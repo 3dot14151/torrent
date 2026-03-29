@@ -1,3 +1,88 @@
+###  Публикация: 1565891   (490430) от 25.07.2022
+
+Валентин Постников | Карандаш и Самоделкин. Карандаш и Самоделкин на острове Динозавров (2013) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский писатель Валентин Постников сочиняет сказки о приключениях маленьких весёлых человечков Карандаша и Самоделкина. Они – самые настоящие волшебники. Карандаш – художник, у которого вместо носа волшебный карандаш. Всё, что он нарисует, превращается в настоящее. А Самоделкин – железный человечек, который умеет мастерить разные невероятные машины. Их друг профессор (   Читать дальше...   )Жанр: Детская литература, СказкаПродолжительность: 04:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B628E7BBB2FB0685B1F425C042D9D7E2DF5A6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404929   (489753) от 27.08.2020
+
+Шотландские народные сказки | Владыка штормов. Тень. Как зайцу всё надоело (1984 -1988)  [Сборник] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489753.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике три радиоспектакля по мотивам шотландской сказки. Фермер жил у моря со своей женой и сыновьями. Однажды, неподалеку от его земли, из морских глубин явилось огромное чудище... Над страной нависла смертельная беда...
+А также две другие не менее интересные небольшие сказки.Жанр: Сказки. РадиоспектаклиВ ролях: Алексей Борзунов, Сергей Цейц, Антонина Дмитриева, Всеволод Кузнецов, Галина Иванова, Александр Леньков, Всеволод  Абдулов,Зоя ПыльноваПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A424376F24E6A0F985A18A3BA91D479232BF3D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523778   (489077) от 27.08.2020
+
+Детское издательство: "Два жирафа" - Голоса птиц и зверей (2002) [FLAC|Lossless]<Звуки природы>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот материал, всегда пригодится для создания собственных звуковых дорожек и видеофильмов, для своей фонотеки. Удобный каталог без нумерации.
+А на слабо! Можешь ли ты на слух, определить какая птица поёт...  :mrgreen:
+
+Альтернативная раздача: Детское издательство: "Два жирафа" - Голоса птиц и зверей (2002)1. Соловей
+2. Певчий дрозд
+3. Черный дрозд
+4. Дрозд-белобровик(   Читать дальше...   )Жанр: Звуки природыПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BF74F0B0A7D5661ED24A22FECE448993A8BF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544792   (489049) от 08.09.2012
 
 Валерий Роньшин | Все о страшилках, ужастиках и кошмариках [2012] [MP3]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489049.jpg" />
+  <img src="Z:/picture/008/save_picture_489049.jpg" />
 </div>
 
 
@@ -33,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488722.jpg" />
+  <img src="Z:/picture/008/save_picture_488722.jpg" />
 </div>
 
 
@@ -59,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488369.jpg" />
+  <img src="Z:/picture/008/save_picture_488369.jpg" />
 </div>
 
 
@@ -85,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487519.jpg" />
+  <img src="Z:/picture/008/save_picture_487519.jpg" />
 </div>
 
 
@@ -111,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487386.jpg" />
+  <img src="Z:/picture/008/save_picture_487386.jpg" />
 </div>
 
 
@@ -137,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487273.jpg" />
+  <img src="Z:/picture/008/save_picture_487273.jpg" />
 </div>
 
 
@@ -163,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486857.jpg" />
+  <img src="Z:/picture/008/save_picture_486857.jpg" />
 </div>
 
 
@@ -191,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486852.jpg" />
+  <img src="Z:/picture/008/save_picture_486852.jpg" />
 </div>
 
 
@@ -217,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486804.jpg" />
+  <img src="Z:/picture/008/save_picture_486804.jpg" />
 </div>
 
 
@@ -243,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486788.jpg" />
+  <img src="Z:/picture/008/save_picture_486788.jpg" />
 </div>
 
 
@@ -269,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485708.jpg" />
+  <img src="Z:/picture/008/save_picture_485708.jpg" />
 </div>
 
 
@@ -296,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485692.jpg" />
+  <img src="Z:/picture/008/save_picture_485692.jpg" />
 </div>
 
 
@@ -322,7 +407,7 @@ Fatcat & Fishface - Meanie (2007) [MP3|192 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485425.jpg" />
+  <img src="Z:/picture/008/save_picture_485425.jpg" />
 </div>
 
 
@@ -351,7 +436,7 @@ VA - Hey! Hey! Big songs for little people (2007) [MP3|128 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485122.jpg" />
+  <img src="Z:/picture/008/save_picture_485122.jpg" />
 </div>
 
 
@@ -380,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484542.jpg" />
+  <img src="Z:/picture/008/save_picture_484542.jpg" />
 </div>
 
 
@@ -408,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484536.jpg" />
+  <img src="Z:/picture/008/save_picture_484536.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ VA - Детские Песни (2003) [MP3|224 kbps]<Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482922.jpg" />
+  <img src="Z:/picture/008/save_picture_482922.jpg" />
 </div>
 
 
@@ -468,7 +553,7 @@ Bebe Lilly - Mon Monde a moi (2006) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482811.jpg" />
+  <img src="Z:/picture/008/save_picture_482811.jpg" />
 </div>
 
 
@@ -497,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481495.jpg" />
+  <img src="Z:/picture/008/save_picture_481495.jpg" />
 </div>
 
 
@@ -524,7 +609,7 @@ Cedarmont Kids - Silly Songs (1996) [MP3|192 kbps]<Детские песенки
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481172.jpg" />
+  <img src="Z:/picture/008/save_picture_481172.jpg" />
 </div>
 
 
@@ -553,7 +638,7 @@ Raffi - Дискография (3 CD) (1979-1996) [MP3|192 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481166.jpg" />
+  <img src="Z:/picture/008/save_picture_481166.jpg" />
 </div>
 
 
@@ -582,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481081.jpg" />
+  <img src="Z:/picture/008/save_picture_481081.jpg" />
 </div>
 
 
@@ -611,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481079.jpg" />
+  <img src="Z:/picture/008/save_picture_481079.jpg" />
 </div>
 
 
@@ -625,90 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F29E19217E38CE9F963D6D36DE0E773FBEEEB3D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405844   (481078) от 31.08.2020
-
-Юрий Кудинов (клоун Плюх) - Песни для детей любого возраста. Любимые детские песенки (2012) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ансамбль «Клоун Плюх и дети», Таня Соловьёва - Детство
-02. Клоун Плюх, клоун Швах - День рождения
-03. Клоун Плюх, клоун Швах - Клоуны и дети
-04. Клоун Плюх - Друг(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2B99224EA359FF382E74D1D62B8BA65B67EB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238406   (480917) от 21.09.2010
-
-Ансамбль песни и танца им. В.С. Локтева - Избранное (2006) [MP3|320 kbps]<PoP, Disco>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня о пионерской дружбе
-2. наш край
-3. Девчонки и мальчишки
-4. Школьная полька(   Читать дальше...   )Жанр: PoP, DiscoПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238121   (480661) от 21.09.2010
-
-Н. Асатрян, И. Скаженик, Ю. Миансарова - Колыбельная (2003) [FLAC|Lossless]<Детские, классические>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские, классическиеПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

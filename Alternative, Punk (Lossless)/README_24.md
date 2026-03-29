@@ -1,3 +1,32 @@
+###  Публикация: 1290994   (668910) от 25.03.2019
+
+Lucy's Drive - Pair Of Sounds (Blue) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668910.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Perfect (05:23)
+2. Wake Up To You (04:45)
+3. Tonight (05:24)
+4. Many Times (04:45)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931FBA00886C5DAD2A75022A682E49D839A5D133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291433   (668909) от 25.03.2019
 
 Swans - What Is This? (2019) Demo [FLAC|Lossless|tracks + .cue] <Industrial, Punk>
@@ -6,7 +35,7 @@ Swans - What Is This? (2019) Demo [FLAC|Lossless|tracks + .cue] <Industrial, Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668909.jpg" />
+  <img src="Z:/picture/008/save_picture_668909.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Brian Jonestown Massacre - The Brian Jonestown Massacre (2019) [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668903.jpg" />
+  <img src="Z:/picture/008/save_picture_668903.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nilufer Yanya - Miss Universe (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668899.jpg" />
+  <img src="Z:/picture/008/save_picture_668899.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stephen Malkmus - Groove Denied (2019) [FLAC|Lossless|tracks + .cue] <Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668591.jpg" />
+  <img src="Z:/picture/008/save_picture_668591.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Cure - Join The Dots (B-Sides & Rarities 1978>2001: The Fiction Years) (2004
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668586.jpg" />
+  <img src="Z:/picture/008/save_picture_668586.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Metronomy - Summer 08 (2016) Because Music [FLAC|Lossless|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668582.jpg" />
+  <img src="Z:/picture/008/save_picture_668582.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Skillet - Dominion (2022) [FLAC|Lossless|image + .cue] <Alternative Metal, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665393.jpg" />
+  <img src="Z:/picture/008/save_picture_665393.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658214.jpg" />
+  <img src="Z:/picture/008/save_picture_658214.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655429.jpg" />
+  <img src="Z:/picture/005/save_picture_655429.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Offspring - Days Go By (2012) [FLAC|Lossless]<Alternative Rock, Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655198.jpg" />
+  <img src="Z:/picture/005/save_picture_655198.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Rest Among Ruins - Fugue (2015) [FLAC|tracks + .cue]<Metalcore | Progressive Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654463.jpg" />
+  <img src="Z:/picture/008/save_picture_654463.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654392.jpg" />
+  <img src="Z:/picture/008/save_picture_654392.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Circuit Des Yeux - In Plain Speech (2015) [FLAC|Lossless|Web-DL] <Experimental, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654387.jpg" />
+  <img src="Z:/picture/008/save_picture_654387.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ In Virgo - In Virgo (2015) [FLAC|Lossless|WEB-DL]<Alt. Metal | Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653454.jpg" />
+  <img src="Z:/picture/008/save_picture_653454.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653446.jpg" />
+  <img src="Z:/picture/008/save_picture_653446.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ The Fallen State - Between Hope & Disillusion (2022) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652718.jpg" />
+  <img src="Z:/picture/008/save_picture_652718.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652669.jpg" />
+  <img src="Z:/picture/008/save_picture_652669.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651197.jpg" />
+  <img src="Z:/picture/008/save_picture_651197.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Florence + The Machine - How Big, How Blue, How Beautiful (2015) Deluxe Edition,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651014.jpg" />
+  <img src="Z:/picture/008/save_picture_651014.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Muse - Drones (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650996.jpg" />
+  <img src="Z:/picture/008/save_picture_650996.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Placebo - Never Let Me Go (2022) Remixes [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650590.jpg" />
+  <img src="Z:/picture/008/save_picture_650590.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Jenny Lewis - On The Line (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650487.jpg" />
+  <img src="Z:/picture/008/save_picture_650487.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Bad Omens - The Death Of Peace Of Mind (2022) [FLAC|Lossless|tracks + .cue] <Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650468.jpg" />
+  <img src="Z:/picture/008/save_picture_650468.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Muse - Drones (2015) [FLAC|Lossless]<Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648948.jpg" />
+  <img src="Z:/picture/008/save_picture_648948.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648368.jpg" />
+  <img src="Z:/picture/008/save_picture_648368.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D6B73004BB54A64D50268820FEDABEEBB0342F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679487   (647888) от 14.07.2013
-
-Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_647888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Care a Lot (Original Version) [4:05]
-02. Introduce Yourself [1:35]
-03. From Out of Nowhere [3:23]
-04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

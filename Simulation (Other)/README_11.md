@@ -1,3 +1,30 @@
+###  Публикация: 1066059   (415649) от 24.10.2016
+
+Demolish & Build Company 2017 (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начни контролировать строительно-разборочную фирму. Сноси разнообразные конструкции – и деревянные избушки, и гигантские бетонные многоэтажки.
+Инвестируй заработанные деньги в собственные строительные проекты, а затем собирай прибыль с аренды. Покупай машины и открывай новые возможности, изменяя их оснащение. Используй специальные ручные инструменты для отделочных (   Читать дальше...   )Тип издания: RepackРазработчик: Noble MuffinsЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0599A82F8F6B4F6CB28A848F853A92659F1F076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066455   (411080) от 26.10.2016
 
 Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
@@ -6,7 +33,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411080.jpg" />
+  <img src="Z:/picture/008/save_picture_411080.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Train Sim World (2018) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Digital Deluxe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407615.jpg" />
+  <img src="Z:/picture/008/save_picture_407615.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Farming Simulator 2013 [En] (L) 2012 | RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398610.jpg" />
+  <img src="Z:/picture/008/save_picture_398610.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Scania Truck Driving Simulator - The Game [En/Ru/Multi33] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395559.jpg" />
+  <img src="Z:/picture/008/save_picture_395559.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ Bus Simulator 2012 [En/Ru] (L) 2012
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395412.jpg" />
+  <img src="Z:/picture/008/save_picture_395412.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_388120.jpg" />
+  <img src="Z:/picture/005/save_picture_388120.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ Train Sim World 3 (2022) [Ru/Multi] (1.0.16/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378551.jpg" />
+  <img src="Z:/picture/008/save_picture_378551.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376404.jpg" />
+  <img src="Z:/picture/008/save_picture_376404.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375717.jpg" />
+  <img src="Z:/picture/008/save_picture_375717.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ Code Blue: The Interactive ER Game / Скорая помощь 1 (2000) [Ru] (1.
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375360.jpg" />
+  <img src="Z:/picture/008/save_picture_375360.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Need to Know (2018) [En] (1.30.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371729.jpg" />
+  <img src="Z:/picture/008/save_picture_371729.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Car Mechanic Simulator 2014 (2014) [Ru/Multi] (1.2.0.5/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369411.jpg" />
+  <img src="Z:/picture/008/save_picture_369411.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.6.0/dlc) Repack R.G. Revenant
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369313.jpg" />
+  <img src="Z:/picture/008/save_picture_369313.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/En] (1.4.2 hotfix 2/dlc) Repack R.G. Reve
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369102.jpg" />
+  <img src="Z:/picture/008/save_picture_369102.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9:500/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368991.jpg" />
+  <img src="Z:/picture/008/save_picture_368991.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.0/dlc) License CODEPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367077.jpg" />
+  <img src="Z:/picture/008/save_picture_367077.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ Fernbus Simulator (2016) [Ru/Multi] (1.14.12800/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366959.jpg" />
+  <img src="Z:/picture/008/save_picture_366959.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366958.jpg" />
+  <img src="Z:/picture/008/save_picture_366958.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ Thief Simulator (2018) [Ru/Multi] (1.2.6) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365086.jpg" />
+  <img src="Z:/picture/008/save_picture_365086.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ On the front line / На линии фронта (2016) [Ru/Multi] (1.0) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363248.jpg" />
+  <img src="Z:/picture/008/save_picture_363248.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360632.jpg" />
+  <img src="Z:/picture/008/save_picture_360632.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ TITANIC Shipwreck Exploration (2018) [En] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360478.jpg" />
+  <img src="Z:/picture/008/save_picture_360478.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Agricultural Simulator 2013 [En] (L) 2012 | SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359496.jpg" />
+  <img src="Z:/picture/008/save_picture_359496.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Emergency Room 3 / Скорая помощь 2 (2001) [Ru] (1.0) License
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358687.jpg" />
+  <img src="Z:/picture/008/save_picture_358687.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357353.jpg" />
+  <img src="Z:/picture/008/save_picture_357353.jpg" />
 </div>
 
 
@@ -649,32 +676,6 @@ Fishing: North Atlantic (2020) [Ru/Multi] (0.9.221.3829) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81C3866F01762D65AF0001C5231636252173FC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317600   (351656) от 05.10.2019
-
-Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spintires®: The Original Game — уникальный симулятор от компании Oovee® Game Studios с реалистичной графикой и отличной физикой взаимодействия колес техники с поверхностью. Игра, изначально являющаяся демонстрацией физического движка Havok, была создана для конкурса Havok Physics Innovation Contest (от компании Intel). Вам предстоит управлять грузовиками по бездорожью (   Читать дальше...   )Тип издания: LicenseРазработчик: Oovee® Game StudiosЖанр: Simulator, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919B9FD45222AB9EC35957A1C044E7727F039483
 ```
 
 https://mybot314.ru/tekegram_catalog/

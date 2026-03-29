@@ -1,3 +1,31 @@
+###  Публикация: 907175   (639033) от 11.06.2015
+
+Роман Гуро | Рисунок и цифровая Живопись (2013) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая живопись имеет преимущество перед традиционными методами, она идет к результату в обход работы с материалами, это позволяет нам сосредоточиться именно на навыках рисования и за короткие сроки добиться значительных результатов.
+
+Курс интенсивный, он охватывает огромное количество знаний из области рисунка и цифровой живописи. Начиная с основ, мы практически (   Читать дальше...   )Жанр: Цифровая живопись, рисунокПродолжительность: 45:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7338DC42F97D3B7B3F633C936BB4BC346F5C7D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542205   (638756) от 06.04.2022
 
 Дмитрий Александрович | Моделирование сложного картуша (2020) PCRec [RU]
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638756.jpg" />
+  <img src="Z:/picture/008/save_picture_638756.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638747.jpg" />
+  <img src="Z:/picture/008/save_picture_638747.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635010.jpg" />
+  <img src="Z:/picture/008/save_picture_635010.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634958.jpg" />
+  <img src="Z:/picture/008/save_picture_634958.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 4 (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634926.jpg" />
+  <img src="Z:/picture/008/save_picture_634926.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 3 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634918.jpg" />
+  <img src="Z:/picture/008/save_picture_634918.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633347.jpg" />
+  <img src="Z:/picture/008/save_picture_633347.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633204.jpg" />
+  <img src="Z:/picture/008/save_picture_633204.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632683.jpg" />
+  <img src="Z:/picture/008/save_picture_632683.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632579.jpg" />
+  <img src="Z:/picture/008/save_picture_632579.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632575.jpg" />
+  <img src="Z:/picture/008/save_picture_632575.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ Lynda.com | Создание отзывчивого веб-дизайна / Crea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623180.jpg" />
+  <img src="Z:/picture/008/save_picture_623180.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622047.jpg" />
+  <img src="Z:/picture/008/save_picture_622047.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ Allegorithmic, What's New in Substance Designer 5, Wha's New in Substance Painte
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621886.jpg" />
+  <img src="Z:/picture/008/save_picture_621886.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621876.jpg" />
+  <img src="Z:/picture/008/save_picture_621876.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621747.jpg" />
+  <img src="Z:/picture/008/save_picture_621747.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619783.jpg" />
+  <img src="Z:/picture/008/save_picture_619783.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617202.jpg" />
+  <img src="Z:/picture/008/save_picture_617202.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613833.jpg" />
+  <img src="Z:/picture/008/save_picture_613833.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613831.jpg" />
+  <img src="Z:/picture/008/save_picture_613831.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613818.jpg" />
+  <img src="Z:/picture/008/save_picture_613818.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612118.jpg" />
+  <img src="Z:/picture/008/save_picture_612118.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612103.jpg" />
+  <img src="Z:/picture/008/save_picture_612103.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608328.jpg" />
+  <img src="Z:/picture/008/save_picture_608328.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Mzed, Seth Worley | Writing 101 w/Seth Worley (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605928.jpg" />
+  <img src="Z:/picture/008/save_picture_605928.jpg" />
 </div>
 
 
@@ -663,33 +691,6 @@ riune Films и сценарист/режиссёр Сет Ворли с удов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3D3A2A06692B39F649C00928CEAA62B4BD2B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544956   (605682) от 24.04.2022
-
-CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605682.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы увидите некоторые методики работы с солвером Vellum Grains, от самых простых до более продвинутых. Vellum – это новый мощный солвер, который появился в Houdini 17. Он позволяет художнику быстро и просто работать с симуляциями.
-Этот курс был разработан для уверенных пользователей Houdini, которые хотят научиться пользоваться Vellum Grains. Он даст (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9345ACFA6A7B9021F49F700890B695D62223D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

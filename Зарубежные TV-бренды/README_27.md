@@ -1,3 +1,107 @@
+###  Публикация: 1266304   (789215) от 13.01.2019
+
+Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/720p-LQ] [50 fps] (Сезон 1, серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789215.jpg" />
+</div>
+
+
+###  Подробнее
+
+В любой момент стихийное бедствие – ураган, потоп или наводнение – может смести с лица земли такие города, как Лондон, Нью-Йорк, Майами и Венеция, поэтому ведущие специалисты служб экстренного реагирования разрабатывают проекты по защите крупных мегаполисов от схождения разрушительных природных катаклизмов. Каждая серия этой документальной программы посвящена истории (   Читать дальше...   )Производство: Канада, Cineflix Inc. Production, Discovery ChannelЖанр: Документальный, катастрофыРежиссер: Билл Ферехок , Дилан РобертсонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561351C446D03744A53D6434A816102839E16575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275974   (788971) от 14.01.2019
+
+Лакомства Шуньдэ / Delicacies Shunde (2016) WEBRip [H.264/720p-LQ] (серии 1-2)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кухня Шуньдэ представляет стили приготовления блюд в провинции Шуньдэ (Shunde) , которая расположена на востоке Китая. История этой кухни уходит вглубь веков. Упоминания о кулинарных традициях в этих местах относятся эпохе правления династии Цинь. Начиная с времен правления династии Сун, Шуньдэнская кухня является одной из восьми главных кухонь Китая. В Шуньдэнской (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, путешествия, кулинарияРежиссер: Фу ЖаоПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989B2294BEEBAE02504425EF2E5552866D7F1B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511591   (788783) от 21.11.2021
+
+NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осиротевшая тигрица Майя пишет свои собственные правила борьбы с дикими собаками и соперничающими тиграми, чтобы сохранить свою крепость на главной территории Центральной Индии.Производство: Южная Африка / Earth Touch, Aishwarya SridharЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Айшвария ШридхарПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203039   (788561) от 01.02.2018
+
+History Channel: Тайны коптских мумий / Coptic Mummies of Antinoopolis (2012) DVB [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788561.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 1990-х годов французский археолог Альбер Гайе сделал удивительное открытие. В центральной части Египта он обнаружил мумии, текстиль и другие артефакты, принадлежащие коптам – первым христианам Египта. Все это время мумии были спрятаны в подвалах Лувра, и были лишь недавно обнаружены сотрудниками музея во время инвентаризации. Спустя целое столетие ученые (   Читать дальше...   )Производство: Франция, Arte France, Cargo Films and Ie CNRS ImagesЖанр: Документальный история, исследования, археологияРежиссер: Жаки БастидПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29985672BCF4D8FD0B6F87118A763BCDFF0F675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276185   (788533) от 15.01.2019
 
 Animal Planet. Кошек не любить нельзя / Must love cats (2012) HDTVRip [H.264/720p-LQ] (Сезон 2, серии 1-6 из 6)
@@ -6,7 +110,7 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788533.jpg" />
+  <img src="Z:/picture/008/save_picture_788533.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788465.jpg" />
+  <img src="Z:/picture/008/save_picture_788465.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788338.jpg" />
+  <img src="Z:/picture/008/save_picture_788338.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788313.jpg" />
+  <img src="Z:/picture/008/save_picture_788313.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788148.jpg" />
+  <img src="Z:/picture/008/save_picture_788148.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788142.jpg" />
+  <img src="Z:/picture/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788141.jpg" />
+  <img src="Z:/picture/008/save_picture_788141.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788035.jpg" />
+  <img src="Z:/picture/008/save_picture_788035.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788014.jpg" />
+  <img src="Z:/picture/008/save_picture_788014.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787964.jpg" />
+  <img src="Z:/picture/008/save_picture_787964.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787593.jpg" />
+  <img src="Z:/picture/008/save_picture_787593.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787592.jpg" />
+  <img src="Z:/picture/008/save_picture_787592.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787545.jpg" />
+  <img src="Z:/picture/008/save_picture_787545.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787220.jpg" />
+  <img src="Z:/picture/008/save_picture_787220.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Animal Planet: Дом для рептилий. Подпольный бар дл�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786996.jpg" />
+  <img src="Z:/picture/008/save_picture_786996.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Animal Planet: Дом для рептилий. Принцесса и Питон 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786995.jpg" />
+  <img src="Z:/picture/008/save_picture_786995.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Animal Planet: Дом для рептилий. Семья древолазов /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786978.jpg" />
+  <img src="Z:/picture/008/save_picture_786978.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Animal Planet: Дом для рептилий. Невероятные бород
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786962.jpg" />
+  <img src="Z:/picture/008/save_picture_786962.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Discovery. Мастера оружия / Mad Dog Made (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786944.jpg" />
+  <img src="Z:/picture/008/save_picture_786944.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786803.jpg" />
+  <img src="Z:/picture/008/save_picture_786803.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786661.jpg" />
+  <img src="Z:/picture/008/save_picture_786661.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786097.jpg" />
+  <img src="Z:/picture/008/save_picture_786097.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837F1F4FA14220346328AF95E0ABDFDBAC308CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123932   (786063) от 09.04.2017
-
-Viasat History. Рим: Первая сверхдержава / Rome: The World's First Superpower (2010) SATRip (Серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786063.jpg" />
-</div>
-
-
-###  Подробнее
-
-3000 лет назад из небольшого племени вырос великий народ подчинивший мир своей воле. Он создал величайшую империю в истории человечества. Империю, что простиралась от Британии до Ближнего Востока. Она просуществовала тысячу лет и повлияла на тот мир, в котором живем мы с вами. Актер Ларри Ламб отправляется в прошлое, которое таится за мраморными памятниками, что (   Читать дальше...   )Телекомпания: Великобритания, 360Production Ltd and Group Entertainment Ltd for Channel 5Жанр: Документальный, историяРежиссер: Дэвид СтаркиПеревод: Одноголосый закадровый, профессиональный, "SDI Media"Продолжительность: 4X~00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD538A09851033586AD3CA8BA51693580C0B70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124247   (785892) от 10.04.2017
-
-NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Производство: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс ТовеллАктеры: Джордж Р. Робертсон, Дэн Дюран, Джилл Фраппье, Ванесса СмитПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124456   (785571) от 12.04.2017
-
-От колыбели до могилы / Cradle to Grave (2016) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124550   (785563) от 12.04.2017
-
-От колыбели до могилы / Cradle to Grave (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 ```
 
 https://mybot314.ru/tekegram_catalog/

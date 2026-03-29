@@ -6,7 +6,7 @@ Windows 10 Manager 3.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766744.jpg" />
+  <img src="Z:/picture/008/save_picture_766744.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced System Font Changer 1.1.3.34 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766738.jpg" />
+  <img src="Z:/picture/008/save_picture_766738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF24 Creator 8.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766737.jpg" />
+  <img src="Z:/picture/008/save_picture_766737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FL Studio Producer Edition 20.7.1.1773 Signature Bundle Portable by XpucT [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766721.jpg" />
+  <img src="Z:/picture/008/save_picture_766721.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7180.5002
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766712.jpg" />
+  <img src="Z:/picture/008/save_picture_766712.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2010 Standard 14.0.7180.5002 SP2 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766701.jpg" />
+  <img src="Z:/picture/008/save_picture_766701.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Reg Organizer 8.25 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766689.jpg" />
+  <img src="Z:/picture/008/save_picture_766689.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Notepad++ 7.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766687.jpg" />
+  <img src="Z:/picture/008/save_picture_766687.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mozilla Firefox Quantum 65.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766684.jpg" />
+  <img src="Z:/picture/008/save_picture_766684.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WinTools.net Premium 19.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766679.jpg" />
+  <img src="Z:/picture/008/save_picture_766679.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Reg Organizer 8.25 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766673.jpg" />
+  <img src="Z:/picture/008/save_picture_766673.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Reg Organizer 8.44 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766662.jpg" />
+  <img src="Z:/picture/008/save_picture_766662.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Illustrator 2020 24.2.1.496 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766660.jpg" />
+  <img src="Z:/picture/008/save_picture_766660.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ qBittorrent 4.1.5 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766643.jpg" />
+  <img src="Z:/picture/008/save_picture_766643.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ priPrinter Professional 6.5.0.2457 Final RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766641.jpg" />
+  <img src="Z:/picture/008/save_picture_766641.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Wondershare Filmora 9.0.7.2 (x64) Repack by elchupacabra + Effect Pack [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766640.jpg" />
+  <img src="Z:/picture/008/save_picture_766640.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ SoftPerfect WiFi Guard+Portable 2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766636.jpg" />
+  <img src="Z:/picture/008/save_picture_766636.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Windows 10 Manager 3.0.1 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766632.jpg" />
+  <img src="Z:/picture/008/save_picture_766632.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ RuntimePack Lite 17.3.14 (x86-x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766624.jpg" />
+  <img src="Z:/picture/008/save_picture_766624.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ FPS Monitor 5020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766617.jpg" />
+  <img src="Z:/picture/008/save_picture_766617.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Glary Utilities Pro 5.94.0.116 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766567.jpg" />
+  <img src="Z:/picture/008/save_picture_766567.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Total Uninstall 6.22.1 Professional Edition RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766560.jpg" />
+  <img src="Z:/picture/008/save_picture_766560.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ MediaHuman Audio Converter 1.9.6.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766557.jpg" />
+  <img src="Z:/picture/008/save_picture_766557.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dism++ 10.1.1000.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766547.jpg" />
+  <img src="Z:/picture/008/save_picture_766547.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Duplicate File Detective 6.1.67 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766544.jpg" />
+  <img src="Z:/picture/008/save_picture_766544.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Total Uninstall 6.22.1 Professional Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766532.jpg" />
+  <img src="Z:/picture/008/save_picture_766532.jpg" />
 </div>
 
 

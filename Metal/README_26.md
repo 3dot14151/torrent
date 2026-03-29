@@ -6,7 +6,7 @@ Rage - My Way (2016) Single [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823307.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Otep - Generation Doom (2016) Deluxe Edition [MP3|320 кб/с] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823228.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Reverber - Sect Of Faceless (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822777.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nocturnal Bloodlust - The Best '09-'17 (2017) 2CD [MP3|320 Kbps] <Metalcore, Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822747.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Crematory - Monument (2016) [MP3|320 кб/с] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822719.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tarja - Extra Raw (2020) EP [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822655.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ravager - Eradicate... Annihilate... Exterminate... (2017) [MP3|320 Kbps] <Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822483.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sabaton feat. Radio Tapok - The Attack of the Dead Men (Live in Moscow) (2020) S
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822371.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Eths - Ankaa (2016) [MP3|320 кб/с] <Nu-Metal, Metalcore, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821495.jpg" />
+  <img src="Z:/picture/008/save_picture_821495.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Dynazty - Titanic Mass (2016) [MP3|320 кб/с] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821407.jpg" />
+  <img src="Z:/picture/008/save_picture_821407.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Front Riders - Steel Trail (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821162.jpg" />
+  <img src="Z:/picture/008/save_picture_821162.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Vildhjarta - Masstaden under vatten (2021) [MP3|320 Kbps] <Progressive Metal, Ma
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819588.jpg" />
+  <img src="Z:/picture/008/save_picture_819588.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ U.D.O. - Game Over (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819253.jpg" />
+  <img src="Z:/picture/008/save_picture_819253.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819191.jpg" />
+  <img src="Z:/picture/008/save_picture_819191.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817849.jpg" />
+  <img src="Z:/picture/008/save_picture_817849.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Nightwish - Endless Forms Most Beautiful (2015) 3CD [MP3|320 кб/с]<Symphonic 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816352.jpg" />
+  <img src="Z:/picture/008/save_picture_816352.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Cradle of Filth - Existence Is Futile (2021) [MP3|320 Kbps] <Symphonic Black Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815946.jpg" />
+  <img src="Z:/picture/008/save_picture_815946.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Eths - 5 Альбомов + 1 Compilation (2004-2016) [MP3|320 кб/с]<Alternat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815935.jpg" />
+  <img src="Z:/picture/008/save_picture_815935.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Bloodred Hourglass - Heal (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815807.jpg" />
+  <img src="Z:/picture/008/save_picture_815807.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Metallica - Kill 'Em All (2016) 6CD Remastered Deluxe Edition  [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814970.jpg" />
+  <img src="Z:/picture/008/save_picture_814970.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Paradise Lost - Obsidian (2020) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813595.jpg" />
+  <img src="Z:/picture/008/save_picture_813595.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812017.jpg" />
+  <img src="Z:/picture/008/save_picture_812017.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Gengis Khan - 3 Albums (2013-2021) [MP3|320 Kbps] <Classic Speed Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810471.jpg" />
+  <img src="Z:/picture/008/save_picture_810471.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808393.jpg" />
+  <img src="Z:/picture/008/save_picture_808393.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808290.jpg" />
+  <img src="Z:/picture/008/save_picture_808290.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808287.jpg" />
+  <img src="Z:/picture/008/save_picture_808287.jpg" />
 </div>
 
 

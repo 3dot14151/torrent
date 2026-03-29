@@ -6,7 +6,7 @@ IObit Driver Booster Pro 7.6.0.764 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740446.jpg" />
+  <img src="Z:/picture/008/save_picture_740446.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dashcam Viewer 3.4.3 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740444.jpg" />
+  <img src="Z:/picture/008/save_picture_740444.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Driver Booster Pro 7.6.0.764 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740440.jpg" />
+  <img src="Z:/picture/008/save_picture_740440.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Eraser 6.2.0.2990 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740427.jpg" />
+  <img src="Z:/picture/008/save_picture_740427.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NirLauncher Package 1.23.27 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740413.jpg" />
+  <img src="Z:/picture/008/save_picture_740413.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Driver Booster Pro 7.6.0.764 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740386.jpg" />
+  <img src="Z:/picture/008/save_picture_740386.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Rhys Thomas b2b Jonny Griffiths - Live @ Wax Format vs. Journey(Portland House C
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740347.jpg" />
+  <img src="Z:/picture/008/save_picture_740347.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740346.jpg" />
+  <img src="Z:/picture/008/save_picture_740346.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dave Lambert - Yearmix 2018 (Deep House Edition) 2019-02-15[MP3|320 Kbps] <Deep 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740345.jpg" />
+  <img src="Z:/picture/008/save_picture_740345.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Clearview 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740343.jpg" />
+  <img src="Z:/picture/008/save_picture_740343.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Bahkauv - Et Bahkouv kütt (1990) [FLAC|Lossless|tracks + .cue] <Electronic, Dun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740342.jpg" />
+  <img src="Z:/picture/008/save_picture_740342.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740341.jpg" />
+  <img src="Z:/picture/008/save_picture_740341.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740340.jpg" />
+  <img src="Z:/picture/008/save_picture_740340.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740334.jpg" />
+  <img src="Z:/picture/008/save_picture_740334.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740333.jpg" />
+  <img src="Z:/picture/008/save_picture_740333.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740331.jpg" />
+  <img src="Z:/picture/008/save_picture_740331.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740328.jpg" />
+  <img src="Z:/picture/008/save_picture_740328.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Sincarnate - In Nomine Homini (2017) [FLAC|Lossless|image + .cue] <Doom Metal, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740325.jpg" />
+  <img src="Z:/picture/008/save_picture_740325.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BLN - Reworked Rewired Vol.1 (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740318.jpg" />
+  <img src="Z:/picture/008/save_picture_740318.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740313.jpg" />
+  <img src="Z:/picture/008/save_picture_740313.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SnippetsLab 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740269.jpg" />
+  <img src="Z:/picture/008/save_picture_740269.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Soulver 2.6.9(6055) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740266.jpg" />
+  <img src="Z:/picture/008/save_picture_740266.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ PhoneRescue for iOS 3.7.2.20190214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740263.jpg" />
+  <img src="Z:/picture/008/save_picture_740263.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ AnyTrans for iOS 7.0.4.20190214 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740258.jpg" />
+  <img src="Z:/picture/008/save_picture_740258.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Master PDF Editor 5.3.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740257.jpg" />
+  <img src="Z:/picture/008/save_picture_740257.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740256.jpg" />
+  <img src="Z:/picture/008/save_picture_740256.jpg" />
 </div>
 
 

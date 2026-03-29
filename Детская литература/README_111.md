@@ -1,3 +1,30 @@
+###  Публикация: 819004   (537499) от 05.09.2014
+
+Луис Сашар | Я не верю в монстров (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти в каждом классе есть такой человек. Как говорится, отпетый. Он сидит на последней парте. Уроков никогда не делает. По всем предметам у него двойки, а когда его стыдят, он только ухмыляется. Учителя давно махнули на него рукой, одноклассники от него шарахаются. Он врет по делу и без дела, частенько противореча сам себе.
+ То он лезет в драку, то вымогает у кого-то (   Читать дальше...   )Жанр: Зарубежная проза для детейПеревод: Евгения КанищеваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CCB02AC9154C96EAA90765B33BB126804A82D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925610   (537273) от 08.08.2015
 
 Анатолий Гладилин | Секрет Жени Сидорова (1975) [DJVU]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537273.jpg" />
+  <img src="Z:/picture/008/save_picture_537273.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537103.jpg" />
+  <img src="Z:/picture/008/save_picture_537103.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536741.jpg" />
+  <img src="Z:/picture/008/save_picture_536741.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536499.jpg" />
+  <img src="Z:/picture/008/save_picture_536499.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536492.jpg" />
+  <img src="Z:/picture/008/save_picture_536492.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536395.jpg" />
+  <img src="Z:/picture/008/save_picture_536395.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536180.jpg" />
+  <img src="Z:/picture/008/save_picture_536180.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536178.jpg" />
+  <img src="Z:/picture/008/save_picture_536178.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535140.jpg" />
+  <img src="Z:/picture/008/save_picture_535140.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535020.jpg" />
+  <img src="Z:/picture/008/save_picture_535020.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535016.jpg" />
+  <img src="Z:/picture/008/save_picture_535016.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535013.jpg" />
+  <img src="Z:/picture/008/save_picture_535013.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534802.jpg" />
+  <img src="Z:/picture/008/save_picture_534802.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534648.jpg" />
+  <img src="Z:/picture/008/save_picture_534648.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534277.jpg" />
+  <img src="Z:/picture/008/save_picture_534277.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534051.jpg" />
+  <img src="Z:/picture/008/save_picture_534051.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533816.jpg" />
+  <img src="Z:/picture/008/save_picture_533816.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533772.jpg" />
+  <img src="Z:/picture/008/save_picture_533772.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533766.jpg" />
+  <img src="Z:/picture/008/save_picture_533766.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533570.jpg" />
+  <img src="Z:/picture/008/save_picture_533570.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533541.jpg" />
+  <img src="Z:/picture/008/save_picture_533541.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533512.jpg" />
+  <img src="Z:/picture/008/save_picture_533512.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533502.jpg" />
+  <img src="Z:/picture/008/save_picture_533502.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533448.jpg" />
+  <img src="Z:/picture/008/save_picture_533448.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531723.jpg" />
+  <img src="Z:/picture/008/save_picture_531723.jpg" />
 </div>
 
 
@@ -663,35 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B99B2A73E8AEAFFEE778432D7F8B822D5D896CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926695   (531501) от 11.08.2015
-
-Шарль Перро и др. | Маленькой принцессе. Волшебные сказки для девочек [антология] (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогая, прими в подарок замечательную книгу о прекрасных и добрых принцессах.
-Тебя и твоих новых подруг, сказочных героинь, ждут увлекательные приключения – нужно преодолеть множество опасностей, победить коварных волшебниц и найти прекрасного принца.
-Итак, отправляемся в сказочное путешествие!
-Расти настоящей принцессой!Жанр: Сказка, Народные сказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA32100D1ED9654847D652C6CEAAC4D1E459C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

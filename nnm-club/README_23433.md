@@ -1,51 +1,22 @@
-###  Публикация: 1695344   (120419) от 28.01.2024
+###  Публикация: 1693433   (121832) от 20.01.2024
 
-Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (2:58)
-02. Child's Play (4:15)
-03. Blues Calling (4:15)
-04. Demolition Man (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695304   (120418) от 28.01.2024
-
-Navicat for SQL Server on Mac 16.3.5 [Multi/Ru]
+SQLPro Studio 2023.60 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121832.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Navicat для SQL Server предоставляет вам полностью графический подход к управлению и разработке баз данных. Быстро и легко создавайте, редактируйте и удаляйте все объекты базы данных или выполняйте SQL-запросы и сценарии. Подключайтесь к любому локальному или удаленному SQL-серверу и совместимо с облачными базами данных, такими как Amazon RDS и Microsoft Azure.Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2023Разработчик: © 2015-2023 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6897DE7AE95D7CEAF91F9E35161A672A27EDFF9A
+magnet:?xt=urn:btih:AE63C78205D6D7A7A54F35131971BA79ED1D18CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,509 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695256   (120417) от 28.01.2024
+###  Публикация: 1693485   (121831) от 20.01.2024
 
-Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Melodic Death/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage Of Light - Melodic Death/Trance метал-группа из Швейцарии.2016 - Chasing A Reflection (EP)
-2019 - Imploder
-2021 - Redemption
-2023 - Opaque (EP)Жанр: Electronic/Melodic Death/Groove MetalПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446E0DEBBC6D8173825DAB3B75670C59F6803B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695361   (120416) от 28.01.2024
-
-Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing on the Edge of Love [00:04:08]
-02. Between Dark and Daylight [00:04:21]
-03. Killing Me Softly With His Song [00:06:06]
-04. Don't Look Down [00:06:06](   Читать дальше...   )Жанр: Blues, PopПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE589686E149A9CC97FAE06C4FF9EA4BFBA933B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695336   (120415) от 28.01.2024
-
-Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1 - Living On the Outside
-Disc 2 - Poor Boy Blue
-Disc 3 - Live Recordings 1993 – 2001(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C348D378C0C73E0E8C8531057B9991EC84C63C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695265   (120414) от 28.01.2024
-
-Grey Wolf - The Icy Mountains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Storm Foreshadows the Battle
-02 - Thunder and Rain
-03 - The Icy Mountains
-04 - They Rule the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4570D5F82925506475B9FB7CD29B13014AEAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695298   (120413) от 28.01.2024
-
-Navicat for MongoDB on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для MongoDB предоставляет вам высокоэффективный графический интерфейс для управления, администрирования и разработки баз данных MongoDB. Подключайтесь к локальным/удаленным серверам MongoDB и совместим с MongoDB Atlas. Navicat для MongoDB предлагает замечательные функции для управления, мониторинга, запроса и визуализации ваших данных. Вы можете легко повысить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09426E03CD4EC641E92B791CDE5AE3C238EE6071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695195   (120412) от 28.01.2024
-
-JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Thrill [9:33]
-02. The G Thing [6:41]
-03. Die Dreaming [5:58]
-04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695216   (120411) от 28.01.2024
-
-Greengoat - A.I. (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Void 02:23
-2. The Seed 07:06
-3. A.I. 05:30
-4. Human 05:05(   Читать дальше...   )Жанр: Stoner Rock, Stoner MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914F8C0E28330B2FB5B0B11B99E133768EEA27A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695187   (120410) от 28.01.2024
-
-Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got a World That Swings [2:10]
-02. Interview [7:24]
-03. Comin' Home Baby [2:31]
-04. Mel Speaks [1:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62A1C218FC83FEE3C881EE7DC459984C9F8EF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695178   (120409) от 28.01.2024
-
-Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on Your Shoes [3:19]
-02. Looking at You/Look at That Face [4:34]
-03. A Nightingale Sang in Berkeley Square [4:46]
-04. Wave [5:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3B79F5F9EA3AA426CF90BD9F2A9FFA4DBCC60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695244   (120408) от 28.01.2024
-
-Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightless (5:07)
-02. Labyrinthine Hex (7:11)
-03. Morningstar (6:57)
-04. Shapshu (4:22)(   Читать дальше...   )Жанр: Extreme Progressive MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695296   (120407) от 28.01.2024
-
-Navicat for PostgreSQL on Mac 16.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat для PostgreSQL — это мощный, но простой в использовании графический интерфейс PostgreSQL, предоставляющий обширные функциональные возможности для управления базой данных PostgreSQL и ее разработки. Расширенные функции позволяют создавать модели баз данных, импортировать/экспортировать данные, выполнять резервное копирование, передавать базы данных, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7767B8161385AED810F423767792AB4C31362C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695107   (120406) от 28.01.2024
-
-Fionn Legacy - Rise of the Windlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Departure (01:43)
-02 - Majestic Return (04:15)
-03 - Distant Lands (04:36)
-04 - Farewell (04:39)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448333CB661AFBE130096CC572AE9BBD51628D9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695337   (120405) от 28.01.2024
-
-Davide Pannozzo - Room for Joy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plug It In (4:02)
-02. Keep on Loving You (Extended Version) (6:00)
-03. Without You, Once Again (5:50)
-04. Love Is a Simple Thing (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36ED55C7AF997343817EDB6026F30AF55758791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695318   (120404) от 28.01.2024
-
-Alice Babs - The Unforgettable Songbird (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided
-02. Hallelujah
-03. The Boy in My Dreams
-04. Visiteur étrange(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D254BBFF99C9E0BA718B8496FAF3C01C02010A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695342   (120403) от 28.01.2024
-
-Mike Goudreau Band - Just Wanna Have Fun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Want to Go to Work (3:52)
-02. Mr. Foolish (3:35)
-03. How Can I Change Your Mind (3:51)
-04. She Found Me (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1020DFCC54EA6209A4AE2EE47A29BAFCA5D2E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695326   (120402) от 28.01.2024
-
-Eve's Bite - Blessed in Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire, Fire, Disaster (05:34)
-02. She's Got More Balls Than You (04:34)
-03. The Fighter (06:16)
-04. Feel The Heat (04:28)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A654B3D9464ACEB312FD64DEE4EF91C5333E39A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695444   (120401) от 29.01.2024
-
-Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по моушн графике в Blender 4.0 от Ducky 3D.Производство: Blender MarketЖанр: 3D моделирование, АнимацияЯзык озвучки: АнглийскийПродолжительность: 07:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84266F31246ADDF31F1E0E0897284BED4BF206F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226560   (120400) от 29.01.2024
-
-И.Г. Жилякова | Мебель и аксессуары для сада. [2006] [PDF]
+Сибирская Благозвонница | Призови имя Мое (2009) [PDF, FB2, EPUB, MOBI, TXT]
 
 >>Разное (категория книг)
->>Сад, огород, животноводство
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге представлены различные варианты садового дизайна, в котором, наряду с растениями, немалая роль отводится правильному подбору садовой мебели и аксессуаров. Сад, окружающий его ландшафт и дом рассматриваются как единое целое, что обусловливает выбор соответствующих материалов, фактуры, цветовой гаммы предметов, а также их местоположения на приусадебном участке. (   Читать дальше...   )Жанр: Справочный материалИздательство: СталкерФормат: PDFКачество: Обработанный скан с OCR
+Сборник, впервые изданный Валаамским монастырем в 1938 году и ставший одним из лучших пособий по Иисусовой молитве, наконец-то переиздан! Что такое молитва Иисусова? Что говорили святые отцы об этой молитве? Одинакова ли молитва в миру и в монастыре? Об этом и о многом другом размышляют в своих беседах мирской иерей и благочестивый инок-старец на страницах данного (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C81E938DD83C8AAAFF2C2A0A0F176F1AEAFD4838
+magnet:?xt=urn:btih:B9AD1D88172EC7E25D7803669BAC9623BBDE7AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,26 +50,573 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694547   (120399) от 29.01.2024
+###  Публикация: 1692981   (121830) от 20.01.2024
 
-Миграция / Migration (2023) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антигерой [00:05:45]
+02. Let It Go [00:04:11]
+03. Потерянный рай [00:04:22]
+04. Прощай [00:03:34](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD2ABFE039E9E34285E97C8EA6865E8BE176AD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693463   (121829) от 20.01.2024
+
+Барабанщик 8-го полка / The Drummer of the 8th (1913) WEBRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история времен Гражданской войны в Америке. Патриотически настроенный, но совсем юный возрастом Билли, вслед за старшим братом, убегает из дома "на войнушку". Но это все не игра. Война такая сука - она не разбирает ни возраста, ни пола, ничего...Производство: США, Broncho Film CompanyЖанр: короткометражный, драма, военный, немое киноРежиссер: Томас Х. ИнсАктеры: Сирил Гарднер, Милдред Харрис, Фрэнк БорзегиПеревод: Немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B509934F9D4EA91E6B703718DC5B022AF6BF8349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693441   (121827) от 20.01.2024
+
+n-Track Studio Suite 10.0.0 ARM [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20666F790005B908E52B091888AE519392561BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693224   (121826) от 20.01.2024
+
+Kruger - Агония (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мощь, скорость и шквал (00:03:25)
+02 - Здравствуй, Брат (00:04:29)
+03 - Агония (00:06:27)
+ 04 - Обряд (00:03:34)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5626E71D61B98D905D640F097587F706891D96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693436   (121825) от 20.01.2024
+
+n-Track Studio Suite 10.0.0 Intel [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3F63289491BE379CC07C60B570A1517CDDFC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693494   (121824) от 20.01.2024
+
+Сибирская Благозвонница | Полная исповедь по десяти Заповедям Божиим и девяти Заповедям Блаженства (2011) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды у известного московского батюшки спросили о том, как наша исповедь в церкви принимается Богом? Батюшка ответил, что исповедь принимает священник, а не Бог. А вот Богу нужно наше покаяние. И очень важно, когда человек сможет сам увидеть свои грехи и рассказать их на исповеди. Но каждый ли знает, против чего в себе нужно «ополчаться»?
+
+Предлагаемая книга поможет (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F890D053F4FB859E8BE6FAD734155C169E2777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692938   (121823) от 20.01.2024
+
+есть что сказать - Солнце больше не светит (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не доверяй словам [00:02:23]
+02. Ненавидь меня [00:02:59]
+03. Не вернусь [00:03:03]
+04. Вспоминай [00:02:46](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860678B2CE75355F1DCEE93FE6856AF3060364E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693311   (121822) от 20.01.2024
+
+Мелодия | Волшебная лампа Аладдина (Радиоспектакль) (2010) [MP3, Ростислав Плятт, Александр Леньков и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+В Багдаде все спокойно? Было спокойно, о достопочтенный, да продлит Аллах твои годы, пока не появился в городе таинственный Магрибинец. Его цель – волшебная лампа, а помочь ему в этом должен некий Алладин, сын портного Хасана. Но Алладин был не прост, даром что бедняк, и когда в его руках оказалась эта волшебная лампа, дающая ни с чем (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE43C07A2F84C09FA040A164404AB5001D232A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692987   (121821) от 20.01.2024
+
+Misery - Out Of My Hands (1994) Remaster, 2023, Eonian Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of My Hands [00:04:24]
+02. Souls On Fire [00:04:18]
+03. War/Hate/Love [00:03:44]
+04. Destiny [00:04:45](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D51598640CFBD0676BCD948FB441386DFA7225A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693083   (121820) от 20.01.2024
+
+Animarum - The Gaian Mind (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Icaro (02:43)
+02 - Unknown Perception (08:37)
+03 - The Missing Link (06:54)
+04 - Ambrosia (08:08)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961AD1A51FCE17AF86EB2883C2AA4B2EAA1911C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693533   (121819) от 20.01.2024
+
+Scrutiny 12.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: ©2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F0FF47C652E3A83B185E6E31391127E662BBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693326   (121818) от 20.01.2024
+
+Михаил Михайлов | Арабские сказки. Петушок и жадный император (2003) [MP3, Татьяна Родионова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Книга добрых сказок.
+Все любят сказки. И во все времена сказки слушали и взрослые, и дети. Вот и восточный царь Шахрияр любил их слушать. Это был очень жестокий царь, но умная жена Шахрезада нашла ключик к его сердцу – ведь она была хорошей рассказчицей, и царь слушал ее сказки каждую ночь – так, говорят, и родился этот сборник, который называется «Тысяча (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: АВТ+Т, Пролог-Мьюзик, RDMПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC85D6DE3C416471D2074849523E003730A5B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693287   (121817) от 20.01.2024
+
+Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancers in Love [2:28]
+02. Crazy She Calls Me [4:01]
+03. No Moon at All [3:52]
+04. I Wrote It for Joe [3:10](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C04383BF153AEBF66AC6B943CCDD17C5F7EAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692796   (121816) от 21.01.2024
+
+Microsoft убивает Outlook. Легендарный почтовый сервис превратился в шпиона, официально сливающего письма сотням «третьих лиц».
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_121816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft призналась, что официально собирает данные пользователей почтового сервиса Outlook, читает их письма и делится ими с почти 800 сторонними компаниями. Раскрыть карты ее вынудили новые европейские законы о конфиденциальности – в других регионах мира пользователи Outlook не знают, что за ними следят сотни компаний со всей планеты.Удобный инструмент для слежки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693562   (121815) от 21.01.2024
+
+Кухня / The Kitchen (2023) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121815.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антиутопическом Лондоне разрыв между богатыми и бедными увеличился до предела. Все формы социального жилья были уничтожены. Изи собирается сбежать из «‎Кухни», одного из последних жилых комплексов в Лондоне. Но когда в его жизни появляется юный Бенджи, он оказывается перед сложным выбором.Производство: Великобритания, США / 59%, DMC Film, Factory Fifteen, Film Four Ltd.Жанр: фантастика, триллер, драма, приключенияРежиссер: Дэниэл Калуя, Кибви ТаваресАктеры: Kano, Хоуп Икпоку-мл., Генри Лоуфулл, Reuben «Trizzy» Nyamah, BackRoad Gee, Cristale, Алан Асаад, Rasaq Kukoyi, Эварт Джеймс Уолтерс, Lesley-Anne MillerПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: Русские - отдельноПродолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F0C4A7BCA7D71D81503E959070A39DF7052762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693604   (121814) от 21.01.2024
+
+Вонка / Wonka (2023) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада / Heyday Films, Québec Production Services Tax Credit, Village Roadshow Pictures, Warner Bros.Жанр: мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Колин О’Брайэн, Кaлa Лэйн, Кигэн-Майкл Ки, Пэтерсон Джозеф, Мэтт Лукас, Мэтью Бэйнтон, Салли Хокинс, Роуэн Эткинсон, Оливия КолманПеревод: Дублированный (Bravo Records Georgia)Язык озвучки: русскийСубтитры: русские (forced)Продолжительность: 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E39CB33FDAD4944D0CF2F556D91B1EF16E0D888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693593   (121813) от 21.01.2024
+
+Убийцы цветочной луны / Killers of the Flower Moon (2023) UHD BDRemux [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вскоре после Первой мировой Эрнест Беркхарт, отслуживший во Франции поваром, приезжает искать удачи в Оклахому, где находится крупная резервация индейцев племени осейдж. В тех краях живет его дядя Уильям Хэйл, который носит прозвище Король — он землевладелец, скотопромышленник, друг индейцев и большой человек. Король убеждает Эрнеста посвататься к Молли Кайл, молодой (   Читать дальше...   )Производство: США / Appian Way, Apple Studios, Imperative EntertainmentЖанр: драма, мелодрама, криминал, детектив, вестерн, историяРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Роберт Де Ниро, Лили Гладстоун, Джесси Племонс, Танту Кардинал, Джон Литгоу, Брендан Фрейзер, Кара Джейд Майерс, Дженей Коллинз, Джиллиан ДионПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские (Full, SDH)Продолжительность: 03:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD1106D4277F7BCEBE97FBD3D69F4222BF7E158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678492   (121812) от 21.01.2024
+
+Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеттинг в Above Snakes показывает альтернативную вселенную Дикого Запада, где в 1883 году начинается восстание нежити. В одну из темных ночей, недалеко от Трупного ручья, происходит огненный дождь и падение ярко-зеленого метеорита. Из-за удара массивного космического объекта об поверхность земли, происходит загадочная метаморфоза с мертвецами и они начинают оживать, (   Читать дальше...   )Тип издания: LicenseРазработчик: Square Glade GamesЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693670   (121811) от 21.01.2024
+
+A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео и Винсент — два парня, мотающих срок в хорошо охраняемой тюрьме. Еще вчера они не были даже знакомы, но сегодня у них просто не осталось иного выхода… и они решаются на побег. A Way Out — приключение исключительно для совместной игры, где вам предстоит примерить роль одного из двух заключенных, задумавших побег. Рывок на свободу быстро становится захватывающим (   Читать дальше...   )Тип издания: RepackРазработчик: HazelightЖанр: Adventure (CO-OP), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063BE8B69946F42D47A384B4E341223139445485
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450188   (121810) от 21.01.2024
+
+D. White - 4 Albums, 67 Singles (2016-2023) [MP3|320 Kbps] <Disco, Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121810.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - One Wish
+2020 - How Are You?
+2022 - The Butterfly Effect
+2022 - Towards the SunЖанр: Disco, Pop, DanceПродолжительность: 14:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADABF5CEC67D47641BD677F938294F9C3E44FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693665   (121809) от 21.01.2024
+
+Стражи терракоты / Yong zhi cheng / Realm of Terracotta (2021) WEBRip [H.264/1080p]
 
 >>Мультфильмы
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семейство крякв находится в затруднительном положении: пока отец Мак Маллард доволен тем, что его родные всегда будут в безопасности, живя в пруду в Новой Англии, мама Пэм стремится встряхнуть их и показать своим детям — сыну-подростку Дэксу и маленькой дочке Гвен — каким большим и многогранным может быть мир.
-После того, как семейство мигрирующих уток приземляется (   Читать дальше...   )Производство: США, Франция, Канада, Universal Pictures, Illumination EntertainmentЖанр: мультфильм, приключения, комедия, фэнтезиРежиссер: Бенжамин Реннер, Гейло ХомсиАктеры: Кумэйл Нанджиани, Треси Газаль, Элизабет Бэнкс, Каспар Дженнингс, Изабела Мерсед, Дэнни ДеВито, Кэрол Кейн, Аквафина, Кигэн-Майкл Ки, Дэвид МитчеллПеревод: Многоголосый профессиональный (TVShows, Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:22:53
+Девушка Джейд и терракотовый воин Магнус объединяются, чтобы сражаться против ониксов — существ, атакующих подземный город династии Цинь. Молодые люди влюбляются друг в друга, а вскоре им удаётся узнать секрет вторжения монстров.Производство: Китай / Fantawild AnimationЖанр: мультфильм, фэнтези, боевикРежиссер: Дин Лян, Линь ЮнчанАктеры: Оливия Ситон-Хилл, Крис Бойке, Пол «Макс» Райнхарт, Джозеф С. Ламберт, Киран Катарей, Ничалия ШварцПеревод: Дублированный (Back Board Cinema)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF561CBBF0DE00086689F78CD2DEF84ACE1314F4
+magnet:?xt=urn:btih:4E5367C43EB52075E6FB74EFBD10E2BB1C2DFB56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,25 +624,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692783   (120398) от 29.01.2024
+###  Публикация: 1693582   (121808) от 21.01.2024
 
-Золотое дно (2024) WEBRip [H.265/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-8 из 8)
+Похититель детей / Il ladro di bambini / The Stolen Children (1992) WEB-DL [H.264/1080p] [MVO]
 
->>Отечественные сериалы
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После смерти Алексея Градова, владельца крупного строительного холдинга, его наследники вступают в борьбу за миллиардное состояние с бывшим чиновником и бизнес-партнером покойного. Со стороны семьи войну возглавляет Градов-старший — патриарх семьи, основавший фамильный бизнес в 90-е, но отошедший от дел. В союзники он берёт финансиста и стратега компании Надежду, (   Читать дальше...   )Производство: Россия / Среда, ИВИЖанр: драмаРежиссер: Илья ЕрмоловАктеры: Алексей Гуськов, Юлия Снигирь, Игорь Гордин, Ростислав Бершауэр, Наталия Вдовина, Павел Попов, Ангелина Пахомова, Валерий Карпов, Александр Новин, Юрий НасоновСубтитры: русскиеПродолжительность: ~00:55:00 серия
+Простая житейская история. Отца нет, мать лишили родительских прав, детей двое (мальчику - 8, девочке - 11). Карабинер Антонио сопровождает их в сиротский приют. Путь не близкий и в дороге спутники становятся друзьями. И оказывается, что совсем немного нужно этим обездоленным детям для счастья...Производство: Италия, Франция, Швейцария / Alia Film, Arena Films, Erre Produzioni, Eurimages, Rai 2, Vega FilmЖанр: драмаРежиссер: Джанни АмелиоАктеры: Энрико Ло Версо, Валентина Скаличи, Джузеппе Иерачитано, Флоранс Дарель, Марина Головин, Ренато Карпентьери, Витальба Андреа, Фабио Алессандрини, Винченцо Пелузо, Массимо Де ЛоренцоПеревод: многоголосый профессиональный (СВ-Дубль)Язык озвучки: русский, итальянскийСубтитры: английские (SDH)Продолжительность: 01:54:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25195C5E8B136AA3B6139CD60D8D6E78639B8115
+magnet:?xt=urn:btih:E76A536ECA230BD0C45B5661F2485A1BC0976776
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,105 +650,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681585   (120397) от 29.01.2024
+###  Публикация: 1693526   (121807) от 21.01.2024
 
-The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
+Вонка / Wonka (2023) WEBRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтая открыть магазин в городе, известном своим шоколадом, молодой и бедный Вилли Вонка обнаруживает, что индустрией управляет картель жадных шоколатье.Производство: США, Великобритания, Канада / Heyday Films, Québec Production Services Tax Credit, Village Roadshow Pictures, Warner Bros.Жанр: мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Пол КингАктеры: Тимоти Шаламе, Колин О’Брайэн, Кaлa Лэйн, Кигэн-Майкл Ки, Пэтерсон Джозеф, Мэтт Лукас, Мэтью Бэйнтон, Салли Хокинс, Роуэн Эткинсон, Оливия КолманПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (full, SDH) и другиеПродолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777D82A86720A5A6552570756BF6B3B817316F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673937   (121806) от 21.01.2024
+
+Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 
 >>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Last Faith рассказывает о герое, который решился опровергнуть слова, предсказанные в древнем пророчестве, и узнать почему его мир пал и стал опустошенным. В основе геймплея стоит исследование, а также здесь объединены жанры платформера и метроидвании с ужасающим готическим сеттингом. Игра отличается наличием огромного арсенала оружия и разнообразия магических (   Читать дальше...   )Тип издания: RepackРазработчик: Kumi Souls GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+В Achilles: Legends Untold пользователи входят в образ знаменитого мифологического персонажа, который отправляется в очередное судьбоносное приключение. В этот раз, Ахиллес оказывается в центре конфликта между Аидом и Аресом. Его основная цель состоит в том, чтобы одолеть Фобоса - ребенка бога войны. Но это не значит, что он сам придет и предложить сойтись в битве. (   Читать дальше...   )Тип издания: SceneРазработчик: Dark Point GamesЖанр: Экшены, Ролевая играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9B158B764E50C83783FD832F1EB7D0383ECAB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695432   (120396) от 29.01.2024
-
-Павел Анни | Приключение в стиле Python: От основ Python к работающему веб-приложению (+code) (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120396.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Приключениях в стиле Python» вы встретите Эрика и Саймона, двух братьев, которые только начинают свое изучение языка Python. Диалоги героев книги помогут молодым программистам гораздо легче понять сложные концепции. Это идеальный способ начать изучение языка для молодых программистов (и их родителей).
-В этом повествовании нет скучных уроков и унылых упражнений. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Manning Publications CoФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBDD8C5E5DC410CCB168FBD5FE7A74B13E6DADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695297   (120395) от 29.01.2024
-
-Терминатор 2: Судный День / Terminator 2: Judgment Day (1991) BDRip [H.265/2160p] [4K, SDR, 8-bit] [Skynet Edition] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло более десяти лет с тех пор, как киборг-терминатор из 2029 года пытался уничтожить Сару Коннор — женщину, чей будущий сын выиграет войну человечества против машин.
-Теперь у Сары родился сын Джон и время, когда он поведёт за собой выживших людей на борьбу с машинами, неумолимо приближается. Именно в этот момент из постапокалиптического будущего прибывает новый (   Читать дальше...   )Производство: США, Франция / Canal+, Carolco Pictures Inc. Lightstorm Entertainment, Pacific Western, T2 ProductionsЖанр: фантастика, боевик, триллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт Голдстин, Ксандер БерклиПеревод: Дублированный, профессиональный многоголосый, авторский одноголосый.Язык озвучки: РусскийСубтитры: нетПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8024C361631BF090D950E3DC512CB1376590E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695093   (120394) от 29.01.2024
-
-Названы лучшие и худшие финалы популярных сериалов за всю историю
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_120394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портал Statistical Significance, занимающийся статистическим анализом разных аспектов жизни, назвал лучшие и худшие финалы популярных сериалов за всё время.Их качество определяли по оценкам зрителей. Для этого эксперты взяли средний рейтинг шоу на IMDB без учёта финала и сравнили его с оценкой последнего эпизода. В итоге они выделили четыре модели концовок: лучшая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:98B31D626C45068ACF65D39493573198D1A2B75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

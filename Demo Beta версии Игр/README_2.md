@@ -1,3 +1,133 @@
+###  Публикация: 1112800   (841105) от 09.03.2017
+
+World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир сошел с ума, все народы мира воюют друг против друга. Причем делают это не стандартным способом, а на футбольном поле. Выберите страну, берите танки, взрывчатку и много оружия, чтобы победить соперника в кровавой игре. World War Party: Balls of Duty – это мультиплеерная игра до 8 игроков на одном матче. Также есть возможность играть в одиночку против ботов – (   Читать дальше...   )Тип издания: RepackРазработчик: Piet DAmoreЖанр: Arcade, Action, SportЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120839CC69E4CEA8A34D3DB48AA39738C225C032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113161   (839163) от 10.03.2017
+
+Gremlins vs Automatons (2016) [Ru/Multi] (1.0.0.200) Repack VseTop [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gremlins vs Automatons – это автономная версия карточной игры «Gremlins, Inc.», не требующая связи с каким-либо сервером. Также в игру была добавлена новая стимпанк музыка, переработан и улучшен фон основного меню и другие важные изменения. По сути, это хорошо всем известный «Gremlins, Inc.», только с перечисленными выше улучшениями.Тип издания: RepackРазработчик: Alexey Bokulev, Sergei Klimov, Charlie Oscar Lima Tango Interactive EntertainmentЖанр: Strategy, IndieЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17B561C5AD766B81A019764D3D1F61762442E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112884   (839157) от 10.03.2017
+
+MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь нет правил – только необходимость победы, можно творить любой беспредел. Подпрыгивающие на кочках, не всегда вписывающиеся в повороты, они летят на максимальной скорости. Оказаться лучше соперников во всем. Взять первое место. Делай все чтобы остальные водители дрожали. Также можно улучшить и машину. Их более 30, каждая уникальна и отличается от других.Тип издания: RepackРазработчик: MadOut GamesЖанр: Arcade, Action, Racing, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2842B932878F5D22DEFB079BDF875CD0E700640E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026470   (837497) от 11.03.2017
+
+Slime Rancher (2016) [Ru/Multi] (0.5.0b) Repack Kuji Kita
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slime Rancher - оригинальный симулятор по разведению Слизи на далекой планете, где в роли отважной молодой девушки по имени Беатрикс вам предстоит создать прибыльную ферму по производству очень ценных ресурсов! В далеком будущем мегакорпорации Земли обнаружили новый источник дохода в виде невероятного ресурса на очень далёкой планете, которую населяют странные маленькие (   Читать дальше...   )Тип издания: RepackРазработчик: Monomi ParkЖанр: Action, Adventure, SimulationЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759658BE312DB2AE421D48BDFC4A93CDBCFF4923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004903   (835778) от 07.04.2016
+
+ARK: Survival Evolved (2015) [Ru/Multi] (build 238.3) Repack SpaceX
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835778.jpg" />
+</div>
+
+
+###  Подробнее
+
+ARK: Survival Evolved – это захватывающая и увлекательная игра в жанре выживания в открытом мире, с уникальной смесью мультиплеерного, кооперативного и соревновательного режимов. Игроки просыпаются голыми и голодными на пляже таинственного острова, среди множества других обескураженных людей. Ваша задачи: охотится, собирать урожай, осваивать ремесло, исследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E4ECC82A1636A3315A2DAE749629FAE05211E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492967   (833094) от 11.10.2021
 
 ΔV: Rings of Saturn (2019) [Ru/Multi] (0.396.4) License GOG [Early Access]
@@ -6,7 +136,7 @@
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833094.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833078.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Gang Beasts (2014) [En] (0.5.5) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825671.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Frozen State (2014) [Ru/Multi] (0.88 build 217) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824518.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ Demesne (2016) [En] (0.7.1.1) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822602.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818829.jpg" />
+  <img src="Z:/picture/008/save_picture_818829.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816462.jpg" />
+  <img src="Z:/picture/008/save_picture_816462.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ Sphere - Flying Cities (2021) [Ru/Multi] (0.1.3/dlc) License GOG [Save the World
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809614.jpg" />
+  <img src="Z:/picture/008/save_picture_809614.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809484.jpg" />
+  <img src="Z:/picture/008/save_picture_809484.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ GIBZ (2016) [Ru/Multi] (24.03.2017) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806561.jpg" />
+  <img src="Z:/picture/008/save_picture_806561.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Gravi (2013) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802024.jpg" />
+  <img src="Z:/picture/008/save_picture_802024.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801946.jpg" />
+  <img src="Z:/picture/008/save_picture_801946.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ Halcyon 6: Starbase Commander (2016) [En] (0.1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797356.jpg" />
+  <img src="Z:/picture/008/save_picture_797356.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ Judgment: Apocalypse Survival Simulation (2016) [En] (0.5.1776) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797291.jpg" />
+  <img src="Z:/picture/008/save_picture_797291.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ Planetoid Pioneers (2016) [En] (Build 0) Repack Other s [Contributor Edition]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796602.jpg" />
+  <img src="Z:/picture/008/save_picture_796602.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ Factorio (2016) [Ru/Multi] (0.18.26) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796483.jpg" />
+  <img src="Z:/picture/008/save_picture_796483.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792961.jpg" />
+  <img src="Z:/picture/008/save_picture_792961.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ Project Zomboid (2013) [Ru/Multi] (38.30) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791895.jpg" />
+  <img src="Z:/picture/008/save_picture_791895.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ Minotaur (2020) [Ru/Multi] (0509) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791750.jpg" />
+  <img src="Z:/picture/008/save_picture_791750.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ Persian Nights 2: The Moonlight Veil (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791614.jpg" />
+  <img src="Z:/picture/008/save_picture_791614.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791069.jpg" />
+  <img src="Z:/picture/008/save_picture_791069.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBF237B9EBFB96BA21D3825E9E5CEE78994F7C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275169   (790887) от 10.01.2019
-
-DECA (2018) [En] (0.1) License HOODLUM
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня игры приходит в себя в психиатрической лечебнице «Дека». Девушка не знает причин, по которым здесь оказалась, но понимает, что из этого жуткого места надо сбегать любой ценой, иначе совсем скоро она пополнит число трупов, которые ей виднеются на полу.Тип издания: LicenseРазработчик: Jorge Diaz Alcaraz, Eduardo San Nicolas Montes, Jorge Rubio Lombardo, Xavier Ques BravoЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47045EE4693DDF1D074A77913B6102B3E563FA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276414   (787589) от 17.01.2019
-
-Paranormal Files 3: Enjoy the Shopping (2019) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение мистической серии игр "Paranormal Files" от Elephant Games и Big Fish Games.Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC5BD5026860D8AE515D98E7172FF610CEFC8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277542   (784978) от 21.01.2019
-
-Hidden Expedition 18: Neptunes Gift (2019) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секретная экспедиция даст вам возможность побывать во всех уголках планеты и найти то, что другие ищут веками. О ваших миссиях практически никто не знает, они совершенно секретны, но хитро расставленные ловушки, то ли самой природой, то ли обычным человеком, говорят о том, что вы не одиноки в поисках. Кто-то хочет вас опередить! Восемнадцать часть приключенческой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6277141BEAC90FA3084759FCB818A7CD1F79EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205439   (783412) от 10.02.2018
-
-World of Diving (2014) [En] (0.16.2) Repack CoD - MW2
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный и продвинутый симулятор дайвинга. По мере прохождения, вам придется не только наблюдать за мелкими рыбами, но и охотиться на больших белых акул. А помимо легких погружений, вас ожидают и глубоководные задания, изучения рифов, потонувших кораблей. Для любителей удачного кадра, существует подводная съемка. Игра полностью совместима со шлемом виртуальной реальности (   Читать дальше...   )Тип издания: RepackРазработчик: Vertigo Games B.V.Жанр: Sport, Action, 3D, 1'st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4DB6E0029D0BCC0D8335BFEF60B7C380F25F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208103   (780034) от 21.02.2018
-
-The Wild Eight (2017) [Ru/En] (0.8.52) Repack VseTop
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. Узнай тайну падения самолета и открой все спрятанные аномалии в этом заснеженном мире. Найди случайные квесты в заброшенных зданиях, хранилищах и секретных лабораториях, чтобы получить уникальные предметы.Тип издания: RepackРазработчик: HypeTrain DigitalЖанр: Action, Adventure, RPG, SimulationЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3C0684638A217D9A5E70B35053AFA92ECDAB79
 ```
 
 https://mybot314.ru/tekegram_catalog/

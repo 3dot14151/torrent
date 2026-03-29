@@ -6,7 +6,7 @@ Xandria - Fire & Ashes (2015) EP [MP3|320 кб/с]<Symphonic Metal, Power Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558952.jpg" />
+  <img src="Z:/picture/008/save_picture_558952.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chelsea Grin - Eternal Nightmare (2018) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558668.jpg" />
+  <img src="Z:/picture/008/save_picture_558668.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Running Wild - Rapid Foray (2016) Limited Edition [MP3|320 Kbps] <Heavy, Power, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557827.jpg" />
+  <img src="Z:/picture/008/save_picture_557827.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Paradise Lost - Medusa (2017) Limited Edition [MP3|320 Kbps] <Doom-Death Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557811.jpg" />
+  <img src="Z:/picture/008/save_picture_557811.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557673.jpg" />
+  <img src="Z:/picture/008/save_picture_557673.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cattle Decapitation - The Anthropocene Extinction (2015) [MP3|~281 кб/с]<Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557538.jpg" />
+  <img src="Z:/picture/008/save_picture_557538.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Seventh Wonder - The Testament (2022) [Mp3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557187.jpg" />
+  <img src="Z:/picture/008/save_picture_557187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kreator - Hate Über Alles (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557077.jpg" />
+  <img src="Z:/picture/008/save_picture_557077.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ignea (ex-Parallax) - 7 Relises (2013-2020) [MP3|320 Kbps] <Oriental Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557003.jpg" />
+  <img src="Z:/picture/008/save_picture_557003.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Decembre Noir - Forsaken Earth (2016) [MP3|320 Kbps] <Melodic Metal, Doom-Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556914.jpg" />
+  <img src="Z:/picture/008/save_picture_556914.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rage - Seasons of the Black (2017) [MP3|320 Kbps] <Heavy Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556805.jpg" />
+  <img src="Z:/picture/008/save_picture_556805.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tank - Re-Ignition (2019) Japanese Edition [MP3|320 kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556182.jpg" />
+  <img src="Z:/picture/008/save_picture_556182.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Enforcer - Zenith (2019) Japanese Edition [MP3|320 kbps] <Heavy Metal, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556176.jpg" />
+  <img src="Z:/picture/008/save_picture_556176.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amon Amarth - Berserker (2019) Japanese Edition, 2CD [MP3|320 kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556130.jpg" />
+  <img src="Z:/picture/008/save_picture_556130.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555360.jpg" />
+  <img src="Z:/picture/008/save_picture_555360.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555359.jpg" />
+  <img src="Z:/picture/008/save_picture_555359.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tanzwut - Seemannsgarn (2019) [MP3|320 Kbps] <Folk Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554664.jpg" />
+  <img src="Z:/picture/008/save_picture_554664.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Powerwolf - The Sacrament of Sin (2018) Deluxe Edition [MP3|320 Kbps] <Symphonic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554009.jpg" />
+  <img src="Z:/picture/008/save_picture_554009.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sodom - Decision Day (2016)  Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552913.jpg" />
+  <img src="Z:/picture/008/save_picture_552913.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Delain - Moonbathers (2016) 2CD Limited Edition [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552855.jpg" />
+  <img src="Z:/picture/008/save_picture_552855.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hate - Auric Gates of Veles (2019) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552145.jpg" />
+  <img src="Z:/picture/008/save_picture_552145.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Katatonia - Dethroned and Uncrowned (2013) [MP3|320 кб/с]<Depressive Rock / M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551397.jpg" />
+  <img src="Z:/picture/008/save_picture_551397.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jungle Rot - Jungle Rot (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550581.jpg" />
+  <img src="Z:/picture/008/save_picture_550581.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Daron Malakian and Scars on Broadway - Dictator (2018) [MP3|320 Kbps] <Alternati
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550471.jpg" />
+  <img src="Z:/picture/008/save_picture_550471.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tarja - Act II (2018) Live [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549698.jpg" />
+  <img src="Z:/picture/008/save_picture_549698.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dee Snider - For the Love of Metal (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549696.jpg" />
+  <img src="Z:/picture/008/save_picture_549696.jpg" />
 </div>
 
 

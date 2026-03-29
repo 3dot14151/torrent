@@ -1,3 +1,149 @@
+###  Публикация: 1297151   (606552) от 20.04.2019
+
+The Rolling Stones - Honk (2019) Deluxe Edition, Compilation [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_606552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Remastered) (3:33)
+ 02. Doom And Gloom (3:59)
+ 03. Brown Sugar (3:50)
+ 04. Beast Of Burden (4:25)(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 03:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760038194EB3393E1554E647D168CC543F3C51E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546479   (606274) от 24.04.2022
+
+First Signal - Closer To The Edge (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_606274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let It End (4:19)
+02. I Don't Wanna Feel The Night Is Over (4:27)
+03. Show Me The Way (4:40)
+04. Don't Look Away (4:30)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3045104711ABC1D96F1BCCBB417D7D92D6CBEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546537   (606120) от 24.04.2022
+
+Dunes - Gargoyle (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_606120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Hands
+02. Behind the Clouds
+03. Lost Her Shadow
+04. Walk into the Waves(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48DAC855A25636A5493DB154F6EBE77F9AD0D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546506   (605812) от 24.04.2022
+
+AOR - L.A. Suspicion (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605812.jpg" />
+</div>
+
+
+###  Подробнее
+
+На компакт-диске представлен невероятный состав, такой как Tommy Denander (Alice Cooper, Steve Walsh), Steve Overland (FM, The Ladder), Paul Sabu (Only Child, John Waite), Robbie LaBlanc (Blanc Faces, Find Me), Bill Kelly (Dakota), Steph Honde (Hollywood Monsters, Scream Taker), Markus Nordenberg (Coastland Ride, Pearls & Flames) & Michael Stosic.
+Возможно, (   Читать дальше...   )01. A Smile In My Heart (Lead Vocals – Steph Honde) (4:37)
+02. The Girl You Won't Leave Behind (Lead Vocals – Markus Nordenberg) (5:13)
+03. Cold Logic (Lead Vocals – Robbie LaBlanc) (4:46)
+04. Stronger Than Desire (Lead Vocals – Steve Overland) (4:36)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE5156B07945C736EB059880084B124179E99B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546510   (605805) от 24.04.2022
+
+The Heavy North - Electric Soul Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Genie
+02. Darkness In Your Eyes
+03. She Gets Me Higher
+04. Awake(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner Rock, Blues RockПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DACF6C626284FBFF6A12FA2D912A7D229E07C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147848   (605744) от 04.07.2017
 
 Roger Clyne And The Peacemakers - Native Heart (2017) [FLAC|Lossless|tracks + .cue] <Rock, Alternativecountry>
@@ -6,7 +152,7 @@ Roger Clyne And The Peacemakers - Native Heart (2017) [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605744.jpg" />
+  <img src="Z:/picture/008/save_picture_605744.jpg" />
 </div>
 
 
@@ -35,7 +181,7 @@ Green Grey (Грин Грей) - 7 Albums + 6 Singles + 1 Maxi-Single + 1 Compil
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605670.jpg" />
+  <img src="Z:/picture/008/save_picture_605670.jpg" />
 </div>
 
 
@@ -64,7 +210,7 @@ Creedence Clearwater Revival - Best Of (2008) 2CD [APE|Lossless|image + .cue] <F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605602.jpg" />
+  <img src="Z:/picture/008/save_picture_605602.jpg" />
 </div>
 
 
@@ -93,7 +239,7 @@ John Fogerty - The Long Road Home (2005) The Ultimate John Fogerty/Creedence Col
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605596.jpg" />
+  <img src="Z:/picture/008/save_picture_605596.jpg" />
 </div>
 
 
@@ -122,7 +268,7 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|image + .cue] <Instru
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604297.jpg" />
+  <img src="Z:/picture/008/save_picture_604297.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ Simon & Garfunkel - The Hit Collection Part 1 (1990) [APE|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604248.jpg" />
+  <img src="Z:/picture/008/save_picture_604248.jpg" />
 </div>
 
 
@@ -181,7 +327,7 @@ Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603956.jpg" />
+  <img src="Z:/picture/008/save_picture_603956.jpg" />
 </div>
 
 
@@ -210,7 +356,7 @@ Queen - Hot Space (1982) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603578.jpg" />
+  <img src="Z:/picture/008/save_picture_603578.jpg" />
 </div>
 
 
@@ -239,7 +385,7 @@ Queen - The Works (1984) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603575.jpg" />
+  <img src="Z:/picture/008/save_picture_603575.jpg" />
 </div>
 
 
@@ -268,7 +414,7 @@ The Hardkiss - Залізна ластівка (2018) [FLAC|lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603572.jpg" />
+  <img src="Z:/picture/008/save_picture_603572.jpg" />
 </div>
 
 
@@ -297,7 +443,7 @@ Ringo & His New All-Starr Band - King Biscuit Flower Hour Presents (2002) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603420.jpg" />
+  <img src="Z:/picture/008/save_picture_603420.jpg" />
 </div>
 
 
@@ -326,7 +472,7 @@ The Ventures - The Ventures Best Hit Collection 30 (2018) Japanese Edition [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603158.jpg" />
+  <img src="Z:/picture/008/save_picture_603158.jpg" />
 </div>
 
 
@@ -355,7 +501,7 @@ Prefab Sprout - Jordan: The Comeback (2013 Blu-spec CD 2 edition) (1990) 2013, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603100.jpg" />
+  <img src="Z:/picture/008/save_picture_603100.jpg" />
 </div>
 
 
@@ -384,7 +530,7 @@ Queen - A Kind Of Magic (1986) Japanese Edition, 2019 [FLAC|lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603083.jpg" />
+  <img src="Z:/picture/008/save_picture_603083.jpg" />
 </div>
 
 
@@ -413,7 +559,7 @@ Southern Empire - Southern Empire (2016) [FLAC|Lossless|tracks + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603011.jpg" />
+  <img src="Z:/picture/008/save_picture_603011.jpg" />
 </div>
 
 
@@ -442,7 +588,7 @@ Eleсtriс Light Оrсhestrа - Live (2013) Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602960.jpg" />
+  <img src="Z:/picture/008/save_picture_602960.jpg" />
 </div>
 
 
@@ -471,7 +617,7 @@ Jagannatha - Samsara (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602912.jpg" />
+  <img src="Z:/picture/008/save_picture_602912.jpg" />
 </div>
 
 
@@ -499,7 +645,7 @@ Psychic Sun - Psychic Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602911.jpg" />
+  <img src="Z:/picture/008/save_picture_602911.jpg" />
 </div>
 
 
@@ -528,7 +674,7 @@ Queen - The Miracle (1989) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602635.jpg" />
+  <img src="Z:/picture/008/save_picture_602635.jpg" />
 </div>
 
 
@@ -557,7 +703,7 @@ The Cranberries - In the End (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602623.jpg" />
+  <img src="Z:/picture/008/save_picture_602623.jpg" />
 </div>
 
 
@@ -586,7 +732,7 @@ Kaipa - Urskog (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602497.jpg" />
+  <img src="Z:/picture/008/save_picture_602497.jpg" />
 </div>
 
 
@@ -600,151 +746,6 @@ Kaipa - Urskog (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDED0FF8BC4AF82A8A96857E682D0986A4B202D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086824   (602377) от 29.04.2022
-
-VA - Where Legends Live (2005) Музыкальное приложение к журналу Classic ROCK № 4-5 (37) [APE|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Idol - Scream
-02. Stereophonics - Superman
-03. Paradise Lost - All You Leave Behind
-04. The Datsuns - Girls Best Friend(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15182AC9280621883E972DEA54FB2BDA2ACAC1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547813   (602045) от 30.04.2022
-
-Demonauta - Low Melodies About Chaos (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinto
-02. Ashes
-03. Evil Minds
-04. Garbage Breeder(   Читать дальше...   )Жанр: Stoner Rock, Doom Metal, Heavy Fuzz RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969B6045E4EFD02C7F10F9519B880936E4B32AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547797   (601987) от 30.04.2022
-
-The William Loveday Intention - Early Demos, Vol. 1 (Vipers Tongue) (2022) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Psychedelic, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Die (Take 1) [00:02:44]
-02. Cave [00:02:41]
-03. I'm Hanging By a Tenuous Thread [00:03:30]
-04. I Don't Like the Man I Am (Take 1) [00:04:03](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E30C00066961A359FCC638AE956FFE80018E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298377   (601837) от 27.04.2019
-
-Queen - Innuendo (1991) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo (06:32)
-02. I'm Going Slightly Mad (04:22)
-03. Headlong (04:38)
-04. I Can't Live With You (04:33)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969242059347B8258326851A09432CEC6A0198B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298404   (601836) от 27.04.2019
-
-Queen - Made in Heaven (1995) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Beautiful Day (02:32)
-02. Made in Heaven (05:25)
-03. Let Me Live (04:46)
-04. Mother Love (04:49)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136047EB01BDEEF07F158649F7424A7C59979146
 ```
 
 https://mybot314.ru/tekegram_catalog/

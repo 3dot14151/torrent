@@ -6,7 +6,7 @@ Ashampoo Photo Optimizer 6.0.20.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844736.jpg" />
+  <img src="Z:/picture/008/save_picture_844736.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JPEXS Free Flash Decompiler 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844727.jpg" />
+  <img src="Z:/picture/008/save_picture_844727.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MobilCAD 2D Pro 3.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844715.jpg" />
+  <img src="Z:/picture/008/save_picture_844715.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844689.jpg" />
+  <img src="Z:/picture/008/save_picture_844689.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844687.jpg" />
+  <img src="Z:/picture/008/save_picture_844687.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844684.jpg" />
+  <img src="Z:/picture/008/save_picture_844684.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844679.jpg" />
+  <img src="Z:/picture/008/save_picture_844679.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft4Boost Secure Eraser 4.4.1.539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844674.jpg" />
+  <img src="Z:/picture/008/save_picture_844674.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844673.jpg" />
+  <img src="Z:/picture/008/save_picture_844673.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844669.jpg" />
+  <img src="Z:/picture/008/save_picture_844669.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WinTools.net Premium 16.3.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844666.jpg" />
+  <img src="Z:/picture/008/save_picture_844666.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844660.jpg" />
+  <img src="Z:/picture/008/save_picture_844660.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ uTorrent 3.4.6 Build 42094 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844651.jpg" />
+  <img src="Z:/picture/008/save_picture_844651.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Internet Download Manager 6.37 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844647.jpg" />
+  <img src="Z:/picture/008/save_picture_844647.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BELOFF [dp] 2020.04.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844645.jpg" />
+  <img src="Z:/picture/008/save_picture_844645.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Topaz Mask AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844642.jpg" />
+  <img src="Z:/picture/008/save_picture_844642.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844619.jpg" />
+  <img src="Z:/picture/008/save_picture_844619.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ PortableApps.com Platform 14.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844601.jpg" />
+  <img src="Z:/picture/008/save_picture_844601.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844598.jpg" />
+  <img src="Z:/picture/008/save_picture_844598.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844593.jpg" />
+  <img src="Z:/picture/008/save_picture_844593.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Arnold Renderer 1.2.3.1 for Maya 2015-2016 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844572.jpg" />
+  <img src="Z:/picture/008/save_picture_844572.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844571.jpg" />
+  <img src="Z:/picture/008/save_picture_844571.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Wondershare Filmora 9.4.5.10 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844561.jpg" />
+  <img src="Z:/picture/008/save_picture_844561.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ SIV (System Information Viewer) 5.47 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844557.jpg" />
+  <img src="Z:/picture/008/save_picture_844557.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Living Metal - Do You Believe in Steel? (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844554.jpg" />
+  <img src="Z:/picture/008/save_picture_844554.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Luminar 4  v4.2.0 (build 6124) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844537.jpg" />
+  <img src="Z:/picture/008/save_picture_844537.jpg" />
 </div>
 
 

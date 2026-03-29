@@ -1,3 +1,87 @@
+###  Публикация: 992396   (900707) от 02.03.2016
+
+Alekseev - Держи (2016) EP [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Держи меня
+02. Всё успеть
+03. Пьяное солнце
+04. Больно как в раю(   Читать дальше...   )Жанр: PopПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8449AF5F6BD5A9C39D8CDCC9A19733470A94F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992393   (900548) от 02.03.2016
+
+Павел Воля - Мысли и музыка (2016) [MP3|320 кб/с] <Pop, Rap, Hip-Hop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Диалог
+02. Если б
+03. Кошки
+04. Хорошо(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D351289C61CB698EFD177C50048E1069EE7184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294148   (899211) от 11.02.2011
+
+Кар-Мэн - Вокруг Света (Remastered) (2011) [MP3|320 kbps]<Exotic-Pop>
+
+>>След.
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Exotic-PopПродолжительность: 51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC464B0A29CF45FFD87B17412790E0E8580BBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992715   (898844) от 03.03.2016
 
 Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [MP3|320 кб/с] <Pop>
@@ -6,7 +90,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898844.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896842.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_896698.jpg" />
+  <img src="Z:/picture/008/save_picture_896698.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896684.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895695.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895427.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893656.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893589.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893574.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893572.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893571.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893565.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893517.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890147.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890093.jpg" />
+  <img src="Z:/picture/008/save_picture_890093.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888740.jpg" />
+  <img src="Z:/picture/005/save_picture_888740.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887313.jpg" />
+  <img src="Z:/picture/005/save_picture_887313.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887235.jpg" />
+  <img src="Z:/picture/005/save_picture_887235.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886461.jpg" />
+  <img src="Z:/picture/005/save_picture_886461.jpg" />
 </div>
 
 
@@ -557,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884930.jpg" />
+  <img src="Z:/picture/005/save_picture_884930.jpg" />
 </div>
 
 
@@ -586,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881328.jpg" />
+  <img src="Z:/picture/005/save_picture_881328.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ OQJAV (Окуджав) - Марта (2016) [MP3|320 кб/с] <Dance pop, New Wav
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878969.jpg" />
+  <img src="Z:/picture/005/save_picture_878969.jpg" />
 </div>
 
 
@@ -644,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872447.jpg" />
+  <img src="Z:/picture/008/save_picture_872447.jpg" />
 </div>
 
 
@@ -658,87 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E210238A12872BBDC0F6976462C59E6825F1B036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374419   (871201) от 11.04.2020
-
-NoNative - Между нами (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871201.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Между намиЖанр: PopПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C63E661107B0DFFB8FDA6FEE08A8E9FA75D7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374352   (870953) от 11.04.2020
-
-Денис Клявер - Ответ (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870953.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ОтветЖанр: PopПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59ADCEDF2EE53328ED48ECE6FEBB5830EE14EC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998820   (868317) от 20.03.2016
-
-Денис Клявер - Любовь Живёт 3 Года...? (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Начнем сначала
-02. Не узнает она
-03. Любовь живет 3 года
-04. Странный сон(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF8A6E4CC0FBF6F87D4C549EE8884A455A88D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ iShowU Instant (Advanced) 1.2.11(beta version) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787253.jpg" />
+  <img src="Z:/picture/008/save_picture_787253.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ TextSoap 8 v8.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787248.jpg" />
+  <img src="Z:/picture/008/save_picture_787248.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Aesop Rock & TOBACCO are Malibu Ken - Malibu Ken (2019) [FLAC|Lossless|Web-DL|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787246.jpg" />
+  <img src="Z:/picture/008/save_picture_787246.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ MarginNote 3 v3.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787244.jpg" />
+  <img src="Z:/picture/008/save_picture_787244.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ A-Zippr 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787241.jpg" />
+  <img src="Z:/picture/008/save_picture_787241.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Privacy Eraser Free 4.46.2 Build 2752 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787234.jpg" />
+  <img src="Z:/picture/008/save_picture_787234.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787232.jpg" />
+  <img src="Z:/picture/008/save_picture_787232.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ CoolUtils Total Audio Converter 5.3.0.186 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787231.jpg" />
+  <img src="Z:/picture/008/save_picture_787231.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Photo Supreme 4.3.2.1878 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787229.jpg" />
+  <img src="Z:/picture/008/save_picture_787229.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - The Best Tracks on Oxytech Limited.2018 (2019) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787221.jpg" />
+  <img src="Z:/picture/008/save_picture_787221.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Wondershare Recoverit 7.3.0.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787216.jpg" />
+  <img src="Z:/picture/008/save_picture_787216.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Advanced Installer 15.6 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787215.jpg" />
+  <img src="Z:/picture/008/save_picture_787215.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Wise Care 365 Pro 5.2.4.519 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787205.jpg" />
+  <img src="Z:/picture/008/save_picture_787205.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Icecream Slideshow Maker PRO 3.49 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787202.jpg" />
+  <img src="Z:/picture/008/save_picture_787202.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ CleanMyPC 1.9.10.1942 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787200.jpg" />
+  <img src="Z:/picture/008/save_picture_787200.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ LibreOffice 6.1.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787197.jpg" />
+  <img src="Z:/picture/008/save_picture_787197.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ MediaHuman YouTube Downloader 3.9.9.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787196.jpg" />
+  <img src="Z:/picture/008/save_picture_787196.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ PreSonus - Studio One Professional 4.1.2.50657 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787194.jpg" />
+  <img src="Z:/picture/008/save_picture_787194.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ PrintMyFonts 19.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787184.jpg" />
+  <img src="Z:/picture/008/save_picture_787184.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Comedy Баттл (2019.01.18) WEB-DLRip (сезон 9, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787183.jpg" />
+  <img src="Z:/picture/008/save_picture_787183.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ashampoo UnInstaller 8.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787180.jpg" />
+  <img src="Z:/picture/008/save_picture_787180.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Download Master 6.17.2.1613 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787177.jpg" />
+  <img src="Z:/picture/008/save_picture_787177.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ CCleaner Professional (5.52.6967) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787175.jpg" />
+  <img src="Z:/picture/008/save_picture_787175.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ NVIDIA GeForce Desktop 417.71 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787172.jpg" />
+  <img src="Z:/picture/008/save_picture_787172.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787156.jpg" />
+  <img src="Z:/picture/008/save_picture_787156.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ A Better Finder Rename 10 v10.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787153.jpg" />
+  <img src="Z:/picture/008/save_picture_787153.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1532168   (244405) от 19.02.2022
+
+Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction To Milk Production
+02. Liars To Impale
+03. Legality Parts From Morality
+04. S.O.S(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610225   (244404) от 07.02.2023
+
+Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reverberation (04:45)
+02. And Death Crawls (04:42)
+03. Dragged Away (05:04)
+04. The Black Door (04:54)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E13165BBF4502119999AD27D7547C6653071FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532153   (244396) от 19.02.2022
+
+Nightrage - Abyss Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss Rising
+02. Swallow Me
+03. Nauseating Oblivion
+04. Dance Of Cerberus(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABE61E2D6017DA6982EB77E55AE310957A60D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610280   (244395) от 07.02.2023
 
 Detestor - In the Circle of Time (1995) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Detestor - In the Circle of Time (1995) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244395.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Solefald - Collection (1997 - 2015) 9 CD [FLAC|Lossless|image + .cue] <Avant-gar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244374.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lesson In Violence - The Thrashfall Of Mankind (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244370.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Urantia - Innerverse (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244363.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Djevel - Naa skrider natten sort (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244348.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Absurd - Asgardsrei (1999) 2017 Remastered, IG Farben [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244335.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244317.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Void Column - Admonition of Clarity (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244293.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Heryos - The Magician (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244257.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Therion - Leviathan II (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244198.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Void - Horrors of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244170.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Heart Healer - The Metal Opera (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244161.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Rizon - Prime Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244123.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244101.jpg" />
+  <img src="Z:/picture/004/save_picture_244101.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Die Apokalyptischen Reiter - Tief.Tiefer (2014) 2xCD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244096.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Stargazer - Life Will Never Be The Same (2023) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244087.jpg" />
+  <img src="Z:/picture/004/save_picture_244087.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244075.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244066.jpg" />
+  <img src="Z:/picture/004/save_picture_244066.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Zac Leaser - Empty Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243930.jpg" />
+  <img src="Z:/picture/004/save_picture_243930.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Gengis Khan - Possessed By The Moon (2022) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243929.jpg" />
+  <img src="Z:/picture/004/save_picture_243929.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Witchmaster - Kaźń (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243922.jpg" />
+  <img src="Z:/picture/004/save_picture_243922.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ DevilDriver - Dealing with Demons Vol. II (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243909.jpg" />
+  <img src="Z:/picture/004/save_picture_243909.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243901.jpg" />
+  <img src="Z:/picture/004/save_picture_243901.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Zombie Riot - World Epitaph (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:145797BF4BD729C0ED8400B79418A3097F68E9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626395   (243895) от 14.04.2023
-
-Zebedy - Waiting for the Tide (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Well Being (02:59)
-02 - Building Sandcastles (04:43)
-03 - This City Is Ours (04:11)
-04 - Thrive (01:12)(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DFC15FDE17CD3E88A124B177E24C68265CE7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611476   (243893) от 12.02.2023
-
-Remote Viewing - Modern Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal, Hardcore Punk, Post Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Short Distance Runner [00:05:25]
-02. Wasted On Purpose [00:05:08]
-03. Cleveland Balloonfest '86 [00:06:22]
-04. Your Opinion Is Wrong [00:04:54](   Читать дальше...   )Жанр: Sludge Metal, Doom Metal, Hardcore Punk, Post HardcoreПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C43ECF61050985B13E39266BEFBC986281C85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626413   (243886) от 14.04.2023
-
-Where the Sun Comes Down - Necropolis Railway (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Doom, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mater Tenebrarum [00:02:06]
-02. Wait For The Pain [00:04:42]
-03. No Sun City [00:05:26]
-04. Longway Home [00:06:43](   Читать дальше...   )Жанр: Psych Doom, StonerПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB90B8934D3DF17E78BACDDAC944E426E7FA673
 ```
 
 https://mybot314.ru/tekegram_catalog/

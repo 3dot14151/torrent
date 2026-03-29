@@ -1,3 +1,29 @@
+###  Публикация: 1565988   (338040) от 26.09.2022
+
+Прима-кукла | Prima Doll [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338040.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чёрная кошка» — кафе, расположенное в пятом районе имперской столицы. Работающие там девушки — автономные механические куклы, также известные, как автоматоны. Изначально они создавались как оружие для войны, которая закончилась всего несколько лет назад. Теперь же им ищут место в этом мире.Производство: Япония / Студия Bibury Animation StudiosЖанр: Повседневность, драма, фантастикаРежиссер: Танака МотокиЯзык озвучки: Русский многоголосый, закадровый (AniDub), ЯпонскийСубтитры: Русские (софтсаб полные) (nnm-club^anime)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C168CEE41E25C0AB4DC917C90881654BF218FA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563055   (338038) от 26.09.2022
 
 Дом теней [ТВ-2] | Shadows House 2nd Season [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338038.jpg" />
+  <img src="Z:/picture/008/save_picture_338038.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338037.jpg" />
+  <img src="Z:/picture/008/save_picture_338037.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338034.jpg" />
+  <img src="Z:/picture/008/save_picture_338034.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338033.jpg" />
+  <img src="Z:/picture/008/save_picture_338033.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338028.jpg" />
+  <img src="Z:/picture/008/save_picture_338028.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Great Teacher Onizuka | Крутой учитель Онидзука [1999, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336763.jpg" />
+  <img src="Z:/picture/008/save_picture_336763.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (сезон четве�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336331.jpg" />
+  <img src="Z:/picture/008/save_picture_336331.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335947.jpg" />
+  <img src="Z:/picture/008/save_picture_335947.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335946.jpg" />
+  <img src="Z:/picture/008/save_picture_335946.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335874.jpg" />
+  <img src="Z:/picture/008/save_picture_335874.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333651.jpg" />
+  <img src="Z:/picture/008/save_picture_333651.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331519.jpg" />
+  <img src="Z:/picture/008/save_picture_331519.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Summer Time Rendering | Summer Time Rendering | Летнее время [2022, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328577.jpg" />
+  <img src="Z:/picture/008/save_picture_328577.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327786.jpg" />
+  <img src="Z:/picture/008/save_picture_327786.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327779.jpg" />
+  <img src="Z:/picture/008/save_picture_327779.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Mahou Sensou / Magical Warfare / Магическая война [2014, TV, 12 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327178.jpg" />
+  <img src="Z:/picture/008/save_picture_327178.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324195.jpg" />
+  <img src="Z:/picture/008/save_picture_324195.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Violence Jack: Hell's Wind Hen | Violence Jack: Hell's Wind | Жестокий �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322558.jpg" />
+  <img src="Z:/picture/008/save_picture_322558.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321859.jpg" />
+  <img src="Z:/picture/008/save_picture_321859.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Досье лорд
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319990.jpg" />
+  <img src="Z:/picture/008/save_picture_319990.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319170.jpg" />
+  <img src="Z:/picture/008/save_picture_319170.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317008.jpg" />
+  <img src="Z:/picture/008/save_picture_317008.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315767.jpg" />
+  <img src="Z:/picture/008/save_picture_315767.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315593.jpg" />
+  <img src="Z:/picture/008/save_picture_315593.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражени�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315323.jpg" />
+  <img src="Z:/picture/008/save_picture_315323.jpg" />
 </div>
 
 
@@ -646,34 +672,6 @@ Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3B4076A4BCFA7314D60FA013CEE77FC2604928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583119   (314603) от 01.12.2012
-
-Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочери Мнемозины [2008, TV-Special, 6 из 6] BDRip 400p RAW+2xRUS(int)+ENG+JAP+SUB HWP
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она молода, умна, красива и нашла интересную работу – частного детектива в не самом фешенебельном городском районе, прямо в духе американских «нуаров» 50-х. А еще Рин Асоги бессмертна – ведь в ее жилах течет кровь древних богов. Пусть Рин и ее сородичи родились не в горах Шотландии, но смысл их жизни тот же – рисковая игра с судьбой, ставка в которой – вечное существование, что с годами все больше в тягость.
-
-Так что профессия частного детектива – отличная профилактика скуки, в чем вы легко убедитесь, посмотрев этот сериал. Ангелы и демоны, таинственные незнакомцы, сумасшедшие ученые, боссы якудза, зомби и наемные убийцы не дадут скучать никому! © Hollow, World ArtЖанр: мистика, ужасы, эротика, приключенияРежиссер: Уэда СигэруПеревод: Профессиональный (многоголосый, закадровый)Формат: BDRip, AVI, XviD, AC3Продолжительность: 6 х ~00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB48AE02D8529F74444AAE3790F432B440822BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

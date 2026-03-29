@@ -1,3 +1,140 @@
+###  Публикация: 349581   (998721) от 08.01.2013
+
+Е.О. Комаровский | Книга от насморка. О детском насморке для мам и пап [2010] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детские насморки — не беда, не трагедия, а просто временная неприятность.
+Это действительно так, особенно тогда, когда родственники сопливого дитя не проводят опасных экспериментов, поскольку знают простые, доступные и эффективные способы помощи.
+Важно понять, что медицинская наука не может избавить вашего ребенка от соплей. Какими бы вы ни были замечательными родителями, с каким бы замечательным детским врачом вы ни дружили, несколько раз в год вы, мамы и папы, окажетесь перед фактом: у дитя насморк, надо помочь. (   Читать дальше...   )Жанр: Детское здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2107A0294C6D3EBD4DE9BB854666B0C405247DFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602053   (997792) от 12.01.2013
+
+Д. Дмитриев | Весёлые звери [2010] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска с цветными образцами, и интересными рисунками зверей, легко узнаваемыми даже малышами.
+Для детей от 3 лет.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20207961C6A76F022E6222F6635A329B2D9A3533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601909   (997784) от 12.01.2013
+
+Альберт Иванов | Сборник произведений (25 книг) (1964-2012) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберт Анатольевич Иванов - сценарист и детский писатель. В 2004 избран действительным членом Академии Российской словесности. Книги А. Иванова переведены на 10 языков.
+По сценариям Иванова поставлено множество замечательных фильмов и мультиков, среди которых: «Приключения Хомы», «Страшная история», «Раз - горох, два - горох», «Хитрая ворона», «Крылья, ноги и хвосты» (   Читать дальше...   )Жанр: Детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363FD2ABBD1EF6E2106D183C78381777736C8A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602310   (997415) от 13.01.2013
+
+Л.Н. Смирнова, С.Н. Овчинников | Большая книга логопедических игр. Играем со звуками, словами, фразами [2010] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая книга логопедических игр - оригинальный авторский практикум для родителей, логопедов, дефектологов, воспитателей, студентов педвузов. Речевой материал в игровой форме обеспечивает качественную автоматизацию и дифференциацию базовых звуков С, Ш, Л, Р у дошкольников и младших школьников. Книга может быть также актуальна и для взрослых, испытывающих речевые (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E82EBE798410FB03643C03EA0CC757EDA37300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602475   (997388) от 13.01.2013
+
+Ольга Владимировна Орлова | Вся теория для подготовки к ЕГЭ. Часть 1. Биология - наука о жизни (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся теоретическая часть, достаточная для качественной подготовки к
+ЕГЭ по биологии, условно разбита на 7 разделов, материалы в каждом из
+которых логично и поступательно проведут Вас от самых простых ко все более
+сложным темам.(   Читать дальше...   )Жанр: Учебная литература.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5A50E182E1D48EF8BF36CFA7D0B4839229C979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602991   (997145) от 14.01.2013
 
 Square Enix | Front Mission (3 модели) [2004-2005] [PDF] [JPN]
@@ -6,7 +143,7 @@ Square Enix | Front Mission (3 модели) [2004-2005] [PDF] [JPN]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997145.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996801.jpg" />
 </div>
 
 
@@ -63,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995876.jpg" />
 </div>
 
 
@@ -90,7 +227,7 @@ WAK [2005-2012] [JPEG] [Pl, En]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995795.jpg" />
 </div>
 
 
@@ -117,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995651.jpg" />
 </div>
 
 
@@ -149,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994685.jpg" />
 </div>
 
 
@@ -175,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994680.jpg" />
 </div>
 
 
@@ -205,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994443.jpg" />
 </div>
 
 
@@ -231,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994364.jpg" />
 </div>
 
 
@@ -259,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994124.jpg" />
 </div>
 
 
@@ -287,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993966.jpg" />
 </div>
 
 
@@ -313,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993110.jpg" />
 </div>
 
 
@@ -341,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992770.jpg" />
 </div>
 
 
@@ -367,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992635.jpg" />
 </div>
 
 
@@ -395,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992512.jpg" />
 </div>
 
 
@@ -421,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992077.jpg" />
 </div>
 
 
@@ -449,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991845.jpg" />
 </div>
 
 
@@ -476,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991789.jpg" />
 </div>
 
 
@@ -502,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991747.jpg" />
 </div>
 
 
@@ -529,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990891.jpg" />
 </div>
 
 
@@ -557,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990815.jpg" />
 </div>
 
 
@@ -570,137 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1DDC21103BECD634B082324418EBC1525109A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353682   (990807) от 19.01.2020
-
-Наталия Волкова (авт-сост.) | Зимние православные праздники. Книга для детей (2017) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта с любовью подготовленная книга с картинками — прекрасный подарок не только для детей, но и для взрослых. Дети узнают историю Рождества Христова и других событий Священной истории и традиции празднования зимних православных праздников. Стихи, собранные в издании, как нельзя лучше подойдут для разучивания с детьми, картинки можно долго-долго разглядывать, а рассказы (   Читать дальше...   )Жанр: Православие. ПоэзияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D229102327844B3E20CA8A68D84B7EC5FDE8EEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353837   (990744) от 19.01.2020
-
-Диана Уинн Джонс | Хранители волшебства (2018) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Айлин – сирота. Когда девочке исполнилось пять лет, её взяла на воспитание тётушка Бек Премудрая, могучая волшебница. Только вот у самой Айлин магический дар пока дремлет, что очень её огорчает. Возможно, он проснётся во время таинственного и опасного путешествия, в которое Бек и Айлин отправляет верховный король? Дело в том, что несколько лет назад логрийские маги (   Читать дальше...   )Жанр: Детская фантастика, Зарубежное фэнтези, Зарубежные детские книги, Книги про волшебниковПеревод: Анастасия БродоцкаяФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF58FA4BDDF460E5D0AF2A4D8337FC46FAF950B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353766   (990737) от 19.01.2020
-
-Евгения Попова (ред.) | Большая книга. Считаем до 100 (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая, красочная и невероятно увлекательная «Большая книга. Считаем до 100» научит считать любого малыша! Обучение счету проходит поэтапно: сначала малыш учится считать до десяти, затем десятки, а завершая чтение книги, он будет готов считать от 1 до 100. Дополнительные задания разнообразят обучение, а яркие иллюстрации сделают обучение счету еще интереснее!
-На (   Читать дальше...   )Жанр: Обучение счету, Основы математикиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7A3337DF9AC00E84B3CC84E37E5380D041305D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353746   (990736) от 19.01.2020
-
-Кэтрин Белнеп, Натали Телфер | Мамская правда. Позорные случаи и убийственно честные советы (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как быть, если ты хочешь выпить, а малыш хочет пить грудное молоко? Стоит ли брать в ресторан двухдневного ребенка? Что делать, если ты забыла про день рождения собственного сына? Как вести себя, когда у дочки истерика? Как долго можно мучить ребенка переодеваниями ради одного удачного кадра в Instagram? Вас точно ставили в тупик эти и еще сотни вопросов, если у (   Читать дальше...   )Жанр: Медицина, Педиатрия, Популярные издания для родителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41C51DD265599049F7AD163A957790EFAE55856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353663   (990694) от 19.01.2020
-
-Найджел Латта | Прежде чем ваш ребенок сведет вас с ума (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая уже стала классикой, в новом прочтении! Мечта любого родителя – прелестный ангелочек, всегда послушный, улыбающийся и беспрекословно выполняющий все просьбы, с обожанием и восторгом взирающий снизу вверх на мамочку и папочку. Но мечта обычно разбивается о реальность. Мы очень любим своих детей, но иногда просто готовы… Ну, в общем, сами знаете, на (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51068367956F01E0486425EB1688F2C8B9F5A130
 ```
 
 https://mybot314.ru/tekegram_catalog/

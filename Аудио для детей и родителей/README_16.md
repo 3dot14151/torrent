@@ -1,3 +1,82 @@
+###  Публикация: 1098013   (912037) от 28.01.2017
+
+Льюис Кэрролл | Алиса в Стране чудес (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное каждый из нас хотя бы раз задумывался над существованием параллельной вселенной, населенной загадочными антиподами. Там, где ходить на голове — обычное дело, там, где обычный мартовский кролик занимает видное место в обществе, там где самые невероятные и абсурдные вещи становятся явью... «Много неясного в странной стране, можно запутаться и заблудиться...» (   Читать дальше...   )Жанр: Детская литература, сказкаПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194B467D5BE57537EB905A0FFA4865C797056D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097630   (911594) от 28.01.2017
+
+Ольга Афанасьева, Ирина Михеева |Английский язык. 2 класс. Аудиоприложение (2012) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский язык. 2 класс. 1-й год обучения - Аудиоприложение к учебнику и рабочей тетради. Соответствует ФОГС.
+Учебник, созданный известными специалистами в области преподавания английского языка О. В. Афанасьевой и И. В. Михеевой, является основным компонентом учебно-методического комплекса, в который также входят рабочая тетрадь, книга для учителя и аудиоприложение. (   Читать дальше...   )Жанр: Аудиоприложение. Английский языкПродолжительность: 03:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05ACF85AFB211345D26AD3BF12F3183900C70C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098344   (910524) от 29.01.2017
+
+Валентин Катаев | Белеет парус одинокий (1955) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои первой части тетралогии “Волны Черного моря” (“Белеет парус одинокий”, “Хуторок в степи”, “Зимний ветер”, “Катакомбы”) - одесские мальчишки: гимназист Петя Бачей, сын рыбака Гаврик Черноволенко, матрос с броненосца “Потемкин” Родион Жуков, отец Пети учитель Василий Петрович Бачей, дедушка Гаврика - все они так или иначе вовлечены в революционные события 1905 (   Читать дальше...   )Жанр: Аудиоспектакль, детская литератураПродолжительность: 01:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A9ACDD48D09964C7DBF25358CCA7D87AE874FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291740   (908777) от 06.02.2011
 
 VA - Давайте жить дружно (2011) [MP3|320 kbps]<Детские песенки>
@@ -6,7 +85,7 @@ VA - Давайте жить дружно (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908777.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ VA - Сборник песен для детей (2010) [MP3|320 kbps]<Детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908513.jpg" />
 </div>
 
 
@@ -64,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908489.jpg" />
 </div>
 
 
@@ -90,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908407.jpg" />
 </div>
 
 
@@ -117,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908132.jpg" />
 </div>
 
 
@@ -143,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908078.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907912.jpg" />
 </div>
 
 
@@ -200,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905124.jpg" />
 </div>
 
 
@@ -226,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905037.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ VA - Колыбельные песни русских и зарубежных к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904736.jpg" />
 </div>
 
 
@@ -283,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904298.jpg" />
 </div>
 
 
@@ -309,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904024.jpg" />
 </div>
 
 
@@ -335,7 +414,7 @@ VA - Babydream. Spiel mit mir. vol. 16 (2003) [MP3|192 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903455.jpg" />
 </div>
 
 
@@ -364,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902702.jpg" />
 </div>
 
 
@@ -392,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902411.jpg" />
 </div>
 
 
@@ -418,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900823.jpg" />
 </div>
 
 
@@ -447,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897899.jpg" />
 </div>
 
 
@@ -473,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897835.jpg" />
 </div>
 
 
@@ -499,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897829.jpg" />
 </div>
 
 
@@ -525,7 +604,7 @@ VA - Белые кораблики (2010) [MP3|128 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896351.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896053.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894609.jpg" />
 </div>
 
 
@@ -608,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894002.jpg" />
 </div>
 
 
@@ -619,87 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1779AD37E0B1E397DEB4F68A47053D2E0009D143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102194   (893040) от 08.02.2017
-
-Джон Роналд Руэл Толкин | Письма Рождественского Деда (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей Дж. Р. Р. Толкина Рождественский Дед был существом вполне реальным. Он не только приносил им подарки на Рождество, но и присылал каждый год письма с поздравлениями и рисунками. В этих письмах он описывал свой дом, своих друзей и те события, порой забавные, а порой тревожные, которые происходили на Северном полюсе. Первое письмо пришло в 1920 году, когда (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAAD76A538431D4144A728E2A4527B3FB65CDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101930   (892920) от 08.02.2017
-
-Aprelevka Sound Production | Басни и русские народные песни (1996) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892920.jpg" />
-</div>
-
-
-###  Подробнее
-
-На диске представлены басни и русские народные песни в исполнении Алексея Покровского и ансамбля народных инструментов п/у Анатолия Цадиковского.01. Пруд и река (03:51)
-02. Откупщик и сапожник (04:50)
-03. Песня бобыля (02:40)
-04. Скупой (03:00)(   Читать дальше...   )Жанр: Басни и сказкиПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0ECDA332EBC9C5DC54AFF3178001FC79A99FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493983   (892432) от 05.09.2021
-
-Анна Старобинец | Страна Хороших Девочек (2021) [MP3, Юлия Яблонская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разве хорошие девочки так себя ведут? Нет, хорошие девочки совсем, никогда не ведут себя так, как девочка Поля. Вот бы у семьи Петровых росла хорошая девочка! И их желание исполняется в Новый год: плохая девочка Поля осталась в Старом году, а на пороге квартиры Петровых объявилась новая девочка, очень вежливая и опрятная. И кушает хорошо. Но как же Поля? Полю отправили (   Читать дальше...   )Жанр: Детская литература/ПрозаПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2388E03CE6E6551B368E878CAC4373D9C6603A68
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731019.jpg" />
+  <img src="Z:/picture/008/save_picture_731019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaInfo 0.7.86 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730998.jpg" />
+  <img src="Z:/picture/008/save_picture_730998.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730985.jpg" />
+  <img src="Z:/picture/008/save_picture_730985.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730978.jpg" />
+  <img src="Z:/picture/008/save_picture_730978.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730972.jpg" />
+  <img src="Z:/picture/008/save_picture_730972.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USDownloader 1.3.5.9 Portable (22.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730964.jpg" />
+  <img src="Z:/picture/008/save_picture_730964.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Obie Trice - The Hangover (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730963.jpg" />
+  <img src="Z:/picture/008/save_picture_730963.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730955.jpg" />
+  <img src="Z:/picture/008/save_picture_730955.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Master PDF Editor 5.3.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730953.jpg" />
+  <img src="Z:/picture/008/save_picture_730953.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ GPU Caps Viewer 1.34.2.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730944.jpg" />
+  <img src="Z:/picture/008/save_picture_730944.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ reaConverter Pro 7.478 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730935.jpg" />
+  <img src="Z:/picture/008/save_picture_730935.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730918.jpg" />
+  <img src="Z:/picture/008/save_picture_730918.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730915.jpg" />
+  <img src="Z:/picture/008/save_picture_730915.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730909.jpg" />
+  <img src="Z:/picture/008/save_picture_730909.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730880.jpg" />
+  <img src="Z:/picture/008/save_picture_730880.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730879.jpg" />
+  <img src="Z:/picture/008/save_picture_730879.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730877.jpg" />
+  <img src="Z:/picture/008/save_picture_730877.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730869.jpg" />
+  <img src="Z:/picture/008/save_picture_730869.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Xojo IDE RAD 17.1.0.36429 (2017r1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730853.jpg" />
+  <img src="Z:/picture/008/save_picture_730853.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - Uplifting Trance Top Twenty April (2017) [MP3|320 Kbps] <Trance, Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730848.jpg" />
+  <img src="Z:/picture/008/save_picture_730848.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Ocenaudio 3.6.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730845.jpg" />
+  <img src="Z:/picture/008/save_picture_730845.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Pale Moon 28.4.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730842.jpg" />
+  <img src="Z:/picture/008/save_picture_730842.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Bandicam 4.3.4.1503 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730832.jpg" />
+  <img src="Z:/picture/008/save_picture_730832.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730827.jpg" />
+  <img src="Z:/picture/008/save_picture_730827.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Super Vectorizer 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730799.jpg" />
+  <img src="Z:/picture/008/save_picture_730799.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mozilla Thunderbird 45.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730794.jpg" />
+  <img src="Z:/picture/008/save_picture_730794.jpg" />
 </div>
 
 

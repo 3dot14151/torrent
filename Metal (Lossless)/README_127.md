@@ -1,3 +1,90 @@
+###  Публикация: 1153684   (558276) от 27.07.2017
+
+Вurning Witсhes - Вurning Witсhes (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Widow (4:05)
+02. Burning Witches (4:18)
+03. Bloody Rose (3:51)
+04. The Dark Companion (5:18)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5285541390B1C8695B6F97ECB6764D70E8D0E8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556526   (558229) от 10.06.2022
+
+Kreator - Hate Uber Alles (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci Is Dead
+02. Hate Über Alles
+03. Killer Of Jesus
+04. Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B73A38E21C3880C7D33F5E2214250A28AF5E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556347   (558217) от 10.06.2022
+
+Bullet For My Valentine - Сollection (2005-2021) [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Metal Core, Alternative Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bullet For My Valentine — (в переводе с англ. — «Пуля для моей возлюбленной») — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли (   Читать дальше...   )Список альбомов:
+2005 - The Poison
+2008 - Scream Aim Fire
+2010 - Fever(   Читать дальше...   )Жанр: Melodic Metal Core, Alternative Metal, Heavy MetalПродолжительность: 09:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AEB558BE09E2E0E6B48B3441B6D56392B0E6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924646   (557677) от 04.08.2015
 
 Hibria - Hibria (2015) Japanese Edition [FLAC|image+.cue]<Power/Speed Metal>
@@ -6,7 +93,7 @@ Hibria - Hibria (2015) Japanese Edition [FLAC|image+.cue]<Power/Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557677.jpg" />
+  <img src="Z:/picture/008/save_picture_557677.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Gus G. - Brand New Revolution (2015) Japanese Edition [FLAC|image+.cue]<Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557614.jpg" />
+  <img src="Z:/picture/008/save_picture_557614.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557128.jpg" />
+  <img src="Z:/picture/008/save_picture_557128.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557126.jpg" />
+  <img src="Z:/picture/008/save_picture_557126.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557125.jpg" />
+  <img src="Z:/picture/008/save_picture_557125.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557124.jpg" />
+  <img src="Z:/picture/008/save_picture_557124.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557119.jpg" />
+  <img src="Z:/picture/008/save_picture_557119.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557117.jpg" />
+  <img src="Z:/picture/008/save_picture_557117.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557113.jpg" />
+  <img src="Z:/picture/008/save_picture_557113.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Evadne - In the Bitterness of Our Souls (2004) Single [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557089.jpg" />
+  <img src="Z:/picture/008/save_picture_557089.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Evadne - Dethroned of Light (2014) Single [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557085.jpg" />
+  <img src="Z:/picture/008/save_picture_557085.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Intus Mortem - Exiled From Light (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557072.jpg" />
+  <img src="Z:/picture/008/save_picture_557072.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557024.jpg" />
+  <img src="Z:/picture/008/save_picture_557024.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Running Wild - Rapid Foray (2016) Limited Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556841.jpg" />
+  <img src="Z:/picture/008/save_picture_556841.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Ossian - Kuldetes (2008) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556619.jpg" />
+  <img src="Z:/picture/008/save_picture_556619.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Sons Of Node - Deadlock (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556506.jpg" />
+  <img src="Z:/picture/008/save_picture_556506.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Level Above Human - Final Anthropic Principle (EP) (2009) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556107.jpg" />
+  <img src="Z:/picture/008/save_picture_556107.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Hyrgal - Fin De Règne (2020) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556104.jpg" />
+  <img src="Z:/picture/008/save_picture_556104.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Saratan - Antireligion (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556102.jpg" />
+  <img src="Z:/picture/008/save_picture_556102.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Korpelarorelsen - Är du av den rätta tron (2022) [FLAC|Lossless|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556100.jpg" />
+  <img src="Z:/picture/008/save_picture_556100.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Venus 5 - Venus 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Glam Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556095.jpg" />
+  <img src="Z:/picture/008/save_picture_556095.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Wind Rose - Warfront (2022) [FLAC|Lossless|image + .cue] <Folk Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556071.jpg" />
+  <img src="Z:/picture/008/save_picture_556071.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Opprobrium - The Fallen Entities (2019) [FLAC|Lossless|tracks + .cue] <Metal, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555690.jpg" />
+  <img src="Z:/picture/008/save_picture_555690.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Opprobrium - The Fallen Entities (2019) [FLAC|Lossless|tracks + .cue] <Metal, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC0C1ABDF900680BBDBE5719F4AF6AA1615A0C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306508   (555582) от 05.06.2019
-
-Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Caravan Of Weird Figures
-02. Another Awful Hobs Tale
-03. From Blood To Stone
-04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306552   (555580) от 05.06.2019
-
-Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Napoleon's Sword) (02:28)
-2. Life Escaping through the Candle's Smoke (04:22)
-3. Forever Faithful to the Emperor (04:54)
-4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306882   (555490) от 06.06.2019
-
-Texas Hippie Coalition - Dark Side Of Black (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Get It (3:43)
- 02. Angel Fall (4:16)
- 03. Shakin' Baby (3:15)
- 04. Knee Deep (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953677557AE0B4F3E061BBD6A3545E369838EFE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

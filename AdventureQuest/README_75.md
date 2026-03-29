@@ -1,3 +1,81 @@
+###  Публикация: 1714964   (60034) от 11.04.2024
+
+Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Children of the Sun бросает вас с головой в жестокую вендетту. Вы управляете одинокой женщиной, жаждущей мести зловещему культу. Но это не типичный шутер. Здесь вы получаете только одну пулю за уровень. В чем сложность? Направить этот единственный выстрел через смертоносный лабиринт врагов, ловушек и разрушаемого окружения, чтобы уничтожить свою цель. Подумайте о (   Читать дальше...   )Тип издания: RepackРазработчик: René RotherЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другиеРеклама: После установки на рабочем столе создаются не относящиеся к игре ярлыки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC948260D43677A7872C2FD82512474676FD622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715024   (59983) от 12.04.2024
+
+Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ereban: Shadow Legacy в быстро развивающемся стелс-платформере вы окажетесь на месте Аяны, последней представительницы забытой расы. Вы будете использовать уникальную смесь мистических теневых способностей и высокотехнологичных гаджетов, сражаясь или крадясь, раскрывая детали своей биографии. Ставки высоки - вы выполняете миссию по спасению гибнущей вселенной, но (   Читать дальше...   )Тип издания: RepackРазработчик: Baby Robot GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63837B5594C6CF30DAA819D563B0119990543EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715625   (59967) от 12.04.2024
+
+The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59967.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Cursed Legacy - это сверхъестественное расследование в мрачной и таинственной атмосфере. Сохраняйте спокойствие и разгадывайте загадки, чтобы распутать это странное исчезновение. Но будьте осторожны, вы не одни!Тип издания: SceneРазработчик: NuciЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5731180FC31E51E9B504A865E514C8145871FB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715572   (59958) от 12.04.2024
 
 Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
@@ -6,7 +84,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59958.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59955.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Frogmonster (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59948.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59938.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Scene Rune [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59863.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MythForce (2023) [Ru/Multi] (1.0.5.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59838.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Turbo Kid (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59837.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Nightmare House (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59834.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ White Day 2: The Flower That Tells Lies (2023) [Ru/Multi] (3.0/dlc) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59819.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59806.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59803.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59757.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ One Last Breath (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59747.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Shadow Corridor 2 (2024) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59722.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Deber (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59721.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Yet Another Fantasy Title / YAFT (2024) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59565.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Harold Halibut (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59455.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Five Nights at Freddy's: Security Breach (2021) [Ru/Multi] (1.0) Scene CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59436.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Die Again (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59355.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59334.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59325.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Purpose 1951 (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59319.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Grand Canyon (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59242.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Grand Canyon - это игра, которая предлагает вам по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95E4DF973FBC98241B3C4C8B3D5E62503FB02E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717234   (59230) от 19.04.2024
-
-Lil Doll House (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lil Doll House - атмосферный хоррор в формате escape the room, где вы примерите на себя необычную роль. Синтия обычная кукла и, как большинству игрушек, ей хочется весело проводить время со своей хозяйкой, но та оказалась далеко не милой и безобидной девочкой. Чтобы заслужить любовь, Синтии предстоит пройти смертельную полосу препятствий и справиться со сложными (   Читать дальше...   )Тип издания: RepackРазработчик: Spektraul StudiosЖанр: Logic, Puzzle, First-person, 3D, HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A4ECD341643687DCF75C674F802EC740FC2132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709504   (59222) от 19.04.2024
-
-Inspector Schmidt - A Bavarian Tale (2023) [Multi] (1.0.1.1014) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspector Schmidt A Bavarian Tale (A Bavarian Tale: Totgeschwiegen) - ролевая игра от третьего лица с насыщенным детективным сюжетом. Перенеситесь в Баварию 1866 года, где студент-медик по имени Валентин Шмидт прибывает в Вольпертсхофен. Именно здесь и разворачивается череда загадочных событий: после внезапной смерти местного жителя в деревне происходят беспорядки. (   Читать дальше...   )Тип издания: LicenseРазработчик: Active Fungus StudiosЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55875A738A48C9FEB19D98F5249035DB7711E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670609   (58954) от 22.04.2024
-
-Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-205827) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами модернизированная версия классического романа Агаты Кристи. На сей раз события «Убийства в Восточном экспрессе» разворачиваются в 2023 году: новая интерпретация классического сюжета удивит самых преданных фанатов. Новые подробности добавляют напряжения и таинственности оригинальной истории. Откройте для себя заново одно из самых знаменитых дел Эркюля Пуаро!Тип издания: LicenseРазработчик: Microids Studio LyonЖанр: Action, Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

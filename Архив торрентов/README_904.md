@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841151.jpg" />
+  <img src="Z:/picture/008/save_picture_841151.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841150.jpg" />
+  <img src="Z:/picture/008/save_picture_841150.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TBS Cover Editor 2.2.4.262 Portable [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841149.jpg" />
+  <img src="Z:/picture/008/save_picture_841149.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Car Audio Vol.19 (2011) [MP3|320 kbps]<Club/Electro House/Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841148.jpg" />
+  <img src="Z:/picture/008/save_picture_841148.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Радио DFM - Свежак Марта (2011) [MP3|320 kbps]<Pop/Evrodanc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841144.jpg" />
+  <img src="Z:/picture/008/save_picture_841144.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBox Player 3.0.4.1000 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841138.jpg" />
+  <img src="Z:/picture/008/save_picture_841138.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841118.jpg" />
+  <img src="Z:/picture/008/save_picture_841118.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841112.jpg" />
+  <img src="Z:/picture/008/save_picture_841112.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Slimjet 26.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841101.jpg" />
+  <img src="Z:/picture/008/save_picture_841101.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ XYplorer 20.90.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841093.jpg" />
+  <img src="Z:/picture/008/save_picture_841093.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ PhoneRescue for Android 3.7.0.20200424 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841085.jpg" />
+  <img src="Z:/picture/008/save_picture_841085.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ EZ CD Audio Converter 9.5.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841074.jpg" />
+  <img src="Z:/picture/008/save_picture_841074.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ XnConvert 1.94.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841069.jpg" />
+  <img src="Z:/picture/008/save_picture_841069.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Visual C++ 2015-2019 Redistributable 14.29.30135.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841067.jpg" />
+  <img src="Z:/picture/008/save_picture_841067.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wondershare UniConverter 13.1.0.72 (х64) Repack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841066.jpg" />
+  <img src="Z:/picture/008/save_picture_841066.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841060.jpg" />
+  <img src="Z:/picture/008/save_picture_841060.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841059.jpg" />
+  <img src="Z:/picture/008/save_picture_841059.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841055.jpg" />
+  <img src="Z:/picture/008/save_picture_841055.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841054.jpg" />
+  <img src="Z:/picture/008/save_picture_841054.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Sleep as Android v20160402 [Ru/Multi] - Будильник с трекером �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841053.jpg" />
+  <img src="Z:/picture/008/save_picture_841053.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kowabon [2015, TV, 13] HDTV 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841052.jpg" />
+  <img src="Z:/picture/008/save_picture_841052.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841050.jpg" />
+  <img src="Z:/picture/008/save_picture_841050.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841046.jpg" />
+  <img src="Z:/picture/008/save_picture_841046.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - In Da Club Vol.49 (16.03.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841041.jpg" />
+  <img src="Z:/picture/008/save_picture_841041.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841039.jpg" />
+  <img src="Z:/picture/008/save_picture_841039.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ VA - TOP 100 Зайцев.нет от 16 марта 2011 (2011) [MP3|112-320 kbp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841038.jpg" />
+  <img src="Z:/picture/008/save_picture_841038.jpg" />
 </div>
 
 

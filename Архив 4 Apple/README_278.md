@@ -1,3 +1,29 @@
+###  Публикация: 1288543   (693415) от 12.03.2019
+
+Grids for Instagram 5.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids for Instagram - Идеальная программа для Instagram на Mac. Программа переносит лучшее из Instagram на ваш Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.03.2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C0CB8B00E3FF171F6A65A19FA8065AC4B42A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133884   (693235) от 13.05.2017
 
 Audirvana Plus 3.0.6 [En]
@@ -6,7 +32,7 @@ Audirvana Plus 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693235.jpg" />
+  <img src="Z:/picture/008/save_picture_693235.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Short Menu 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692963.jpg" />
+  <img src="Z:/picture/008/save_picture_692963.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Pro Microphone: Audio Recorder 1.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692544.jpg" />
+  <img src="Z:/picture/008/save_picture_692544.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ MaxCommander 2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692476.jpg" />
+  <img src="Z:/picture/008/save_picture_692476.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ Filmage Editor 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692475.jpg" />
+  <img src="Z:/picture/008/save_picture_692475.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ News Headlines 3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692474.jpg" />
+  <img src="Z:/picture/008/save_picture_692474.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ EzyCal: Time & Date 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692473.jpg" />
+  <img src="Z:/picture/008/save_picture_692473.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ Iridient Developer 3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692400.jpg" />
+  <img src="Z:/picture/008/save_picture_692400.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ RAR Extractor Max-Unzip Winrar 8.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692399.jpg" />
+  <img src="Z:/picture/008/save_picture_692399.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ WonderPen 1.6.6 (4336)[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692225.jpg" />
+  <img src="Z:/picture/008/save_picture_692225.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Posterino 3.4.4(3073) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692214.jpg" />
+  <img src="Z:/picture/008/save_picture_692214.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ MKVToolNix 32.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692089.jpg" />
+  <img src="Z:/picture/008/save_picture_692089.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ Smart Player Premium 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691973.jpg" />
+  <img src="Z:/picture/008/save_picture_691973.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ One Chat - All in one Messenger 4.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691968.jpg" />
+  <img src="Z:/picture/008/save_picture_691968.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ AnyMP4 Mac Blu-ray Player 6.3.8 (build 84590) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691960.jpg" />
+  <img src="Z:/picture/008/save_picture_691960.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ ArchiCAD 20 (3008) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691905.jpg" />
+  <img src="Z:/picture/008/save_picture_691905.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ EndNote X9 v 9.1 (Build 14319) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691831.jpg" />
+  <img src="Z:/picture/008/save_picture_691831.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691711.jpg" />
+  <img src="Z:/picture/008/save_picture_691711.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ TableEdit Pro 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691654.jpg" />
+  <img src="Z:/picture/008/save_picture_691654.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Fantastical 2 - Calendar and Reminders 2.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691653.jpg" />
+  <img src="Z:/picture/008/save_picture_691653.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Bartender 3 v3.0.57b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691622.jpg" />
+  <img src="Z:/picture/008/save_picture_691622.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ Disk Drill Enterprise 3.7.932 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691618.jpg" />
+  <img src="Z:/picture/008/save_picture_691618.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Folx Pro 5 v 5.7 (build 13779) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691616.jpg" />
+  <img src="Z:/picture/008/save_picture_691616.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Carbon Copy Cloner 4.1.14 (4543) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691556.jpg" />
+  <img src="Z:/picture/008/save_picture_691556.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ PowerTunes 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691550.jpg" />
+  <img src="Z:/picture/008/save_picture_691550.jpg" />
 </div>
 
 
@@ -673,32 +699,6 @@ PowerTunes – программа, позволяющая пользовател
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDC3054A0B5C683064096CEE4B161C69BF76F26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133996   (691542) от 14.05.2017
-
-SteerMouse 5.1 R2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691542.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 апреля 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C24781CB8AEB8E7C919B74714A18D1A199340EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

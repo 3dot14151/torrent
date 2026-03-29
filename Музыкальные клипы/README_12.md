@@ -1,3 +1,84 @@
+###  Публикация: 648027   (855371) от 24.04.2013
+
+Marty - Suddenly (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4D6EFF128E52F0FF4C77744121CBFC5DB41664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648031   (855285) от 24.04.2013
+
+Chase The Ace - California (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПродолжительность: 00:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DC9964B8D39EBD8E693EF410B8163DC451961B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769067   (854167) от 23.03.2014
+
+Сборник клипов - VA - Various Music part. 51 (2014) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854167.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Ferrari - Guere Guere 1080p (2:59)
+2. Andrew Rayel - Power Of Elements (Trancefusion 2014 Anthem) 720p (3:26)
+3. ARASH feat Helena - ONE DAY 1080p (3:46)
+4. Armin van Buuren feat. Lauren Evans - Alone 1080p (4:06)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111068   (848067) от 05.03.2017
 
 Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
@@ -6,7 +87,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848067.jpg" />
+  <img src="Z:/picture/008/save_picture_848067.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842926.jpg" />
+  <img src="Z:/picture/008/save_picture_842926.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842116.jpg" />
+  <img src="Z:/picture/008/save_picture_842116.jpg" />
 </div>
 
 
@@ -91,7 +172,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840860.jpg" />
+  <img src="Z:/picture/008/save_picture_840860.jpg" />
 </div>
 
 
@@ -121,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840685.jpg" />
+  <img src="Z:/picture/008/save_picture_840685.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839910.jpg" />
+  <img src="Z:/picture/008/save_picture_839910.jpg" />
 </div>
 
 
@@ -176,7 +257,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839819.jpg" />
+  <img src="Z:/picture/008/save_picture_839819.jpg" />
 </div>
 
 
@@ -202,7 +283,7 @@ AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839585.jpg" />
+  <img src="Z:/picture/008/save_picture_839585.jpg" />
 </div>
 
 
@@ -228,7 +309,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839236.jpg" />
+  <img src="Z:/picture/008/save_picture_839236.jpg" />
 </div>
 
 
@@ -254,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838986.jpg" />
+  <img src="Z:/picture/008/save_picture_838986.jpg" />
 </div>
 
 
@@ -284,7 +365,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837993.jpg" />
+  <img src="Z:/picture/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -310,7 +391,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837870.jpg" />
+  <img src="Z:/picture/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836561.jpg" />
+  <img src="Z:/picture/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836559.jpg" />
+  <img src="Z:/picture/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819998.jpg" />
+  <img src="Z:/picture/008/save_picture_819998.jpg" />
 </div>
 
 
@@ -417,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812889.jpg" />
+  <img src="Z:/picture/008/save_picture_812889.jpg" />
 </div>
 
 
@@ -443,7 +524,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812614.jpg" />
+  <img src="Z:/picture/008/save_picture_812614.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810968.jpg" />
+  <img src="Z:/picture/008/save_picture_810968.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809615.jpg" />
+  <img src="Z:/picture/008/save_picture_809615.jpg" />
 </div>
 
 
@@ -531,7 +612,7 @@ Chris Isaak - Best of Chris Isaak (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808881.jpg" />
+  <img src="Z:/picture/008/save_picture_808881.jpg" />
 </div>
 
 
@@ -557,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807589.jpg" />
+  <img src="Z:/picture/008/save_picture_807589.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804002.jpg" />
+  <img src="Z:/picture/008/save_picture_804002.jpg" />
 </div>
 
 
@@ -613,7 +694,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803681.jpg" />
+  <img src="Z:/picture/008/save_picture_803681.jpg" />
 </div>
 
 
@@ -624,90 +705,6 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886F02ABDE2A98068694D905161B9F3AE5780502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658863   (803299) от 21.05.2013
-
-Сборник клипов - VA - Various Music part. 42 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 5ive Star - More 720p (3:28)
-2. Alex M. - Greatest DJ 1080p (3:10)
-3. Aligator - Be With You (feat. Sarah West) 1080p (4:22)
-4. Andreea D - Magic Love 1080p (3:53)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0546A9A4C7FF245C60843A0F1D5DA58E73F78EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009153   (802121) от 25.04.2016
-
-Був'е - Влюбленные / Був'є - Закохані (2016) WEB-DL [H.264/2160p] [4K]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сети появился клип группы «Був'є» и Александра Положинского на песню «Закохані». Эта композиция является официальным саундтреком фильма «Жива» режиссера Тараса Химича. На данный момент создатели картины держат сюжет в секрете. «Это история женщины, а не о войне, хотя автоматы там есть», - говорит Химич.Производство: УкраинаЖанр: РокРежиссер: Тарас ХимичПродолжительность: 00:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691C0C8B62F91831FFB166D47278471F17A93686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199101   (801633) от 15.01.2018
-
-Сборник клипов - Rap & Hip Hop от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 3)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801633.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-105 50 Cent - Candy Shop
-106 Лигалайз - Моя Москва
-107 Trick Trick & Eminem - Welcome 2 Detroit(   Читать дальше...   )Жанр: Rap, Hip hopФормат: MKVПродолжительность: 03:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536B9952B36CE79FEB6DD7F68545F8A7B4B6EA46
 ```
 
 https://mybot314.ru/tekegram_catalog/

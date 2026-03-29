@@ -1,3 +1,30 @@
+###  Публикация: 1247537   (448329) от 17.09.2018
+
+Александр Север | Берия и НКВД накануне и в годы Великой Отечественной войны (2018) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Споры о личности Лаврентия Берия не утихают до сих пор: кем он был — «врагом народа» и кровавым диктатором или одним из тех, кто укрепил мощь советской державы?
+Как отразилось его назначение осенью 1938 года на пост наркома внутренних дел на боеспособности НКВД? Чем занимались его подчиненные в годы войны и за что многие из чекистов получили боевые ордена? Почему (   Читать дальше...   )Жанр: Военная история; СпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849EAB860C2D94B02C8CF774CE327A3737124616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247680   (448325) от 17.09.2018
 
 Ганс Якоб Гёбелер | Стальной корабль, железный экипаж. Воспоминания матроса немецкой подводной лодки U-505. 1941–1945 (2016) [PDF]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448325.jpg" />
+  <img src="Z:/picture/008/save_picture_448325.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446532.jpg" />
+  <img src="Z:/picture/008/save_picture_446532.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446371.jpg" />
+  <img src="Z:/picture/008/save_picture_446371.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446369.jpg" />
+  <img src="Z:/picture/008/save_picture_446369.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446360.jpg" />
+  <img src="Z:/picture/008/save_picture_446360.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446094.jpg" />
+  <img src="Z:/picture/008/save_picture_446094.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445065.jpg" />
+  <img src="Z:/picture/008/save_picture_445065.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444980.jpg" />
+  <img src="Z:/picture/008/save_picture_444980.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444977.jpg" />
+  <img src="Z:/picture/008/save_picture_444977.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444810.jpg" />
+  <img src="Z:/picture/008/save_picture_444810.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444495.jpg" />
+  <img src="Z:/picture/008/save_picture_444495.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443974.jpg" />
+  <img src="Z:/picture/008/save_picture_443974.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443971.jpg" />
+  <img src="Z:/picture/008/save_picture_443971.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443301.jpg" />
+  <img src="Z:/picture/008/save_picture_443301.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442759.jpg" />
+  <img src="Z:/picture/008/save_picture_442759.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442652.jpg" />
+  <img src="Z:/picture/008/save_picture_442652.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_442275.jpg" />
+  <img src="Z:/picture/005/save_picture_442275.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442240.jpg" />
+  <img src="Z:/picture/008/save_picture_442240.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441879.jpg" />
+  <img src="Z:/picture/008/save_picture_441879.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441351.jpg" />
+  <img src="Z:/picture/008/save_picture_441351.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441255.jpg" />
+  <img src="Z:/picture/008/save_picture_441255.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440243.jpg" />
+  <img src="Z:/picture/008/save_picture_440243.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439506.jpg" />
+  <img src="Z:/picture/008/save_picture_439506.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438805.jpg" />
+  <img src="Z:/picture/005/save_picture_438805.jpg" />
 </div>
 
 
@@ -638,39 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438735.jpg" />
+  <img src="Z:/picture/005/save_picture_438735.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Как сами снайперы являются элитой вооруженных сил, так и снайперские винтовки - "высшая лига" стрелковых вооружений. Насколько снайперская подготовка превосходит обычный "курс молодого бойца", настолько и снайперское оружие дороже, сложнее и взыскательнее массовых моделей. Потому что оружие снайпера - это не просто винтовка, снабженная оптическим прицелом. Это особо точный прецизионный инструмент, по сложности и надежности не уступающий лучшим хронометрам, требующий ювелирного изготовления не только механизма, но и боеприпасов, чтобы выполнить главную задачу снайпера - поразить удаленную цель с первого выстрела. Новая работа ведущего отечественного историка посвящена развитию снайперского оружия, которое совершило в XX веке грандиозный рывок - от простых винтовок со слабой оптикой до крупнокалиберных шедевров точной механики, снабженных лазерными целеуказателями. В книге представлена подробная информация о более чем 70 моделях снайперских винтовок.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 243332   (438733) от 11.10.2010
-
-Чарли Катшоу | Стрелковое оружие России. Новые модели [Эксмо-Пресс] [2002] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438733.jpg" />
-</div>
-
-
-###  Подробнее
-
-имволом российского стрелкового оружия второй половины XX века, безусловно, стал автомат Калашникова. На протяжении четырех десятилетий все вновь принимаемые на вооружение образцы автоматов и пулеметов являлись, по сути, модификациями АК-47. Однако с начала 90-х годов российские оружейники показали миру десятки новых, оригинальных конструкций стрелкового оружия, многие их которых, такие, как автомат АН-94 или бесшумная снайперская винтовка ВСС, оказались поистине революционными. Тем не менее информация о них оставалась крайне скудной. Работа известного американского оружейника Чарли Катшоу, посвященная новым и перспективным российским системам вооружения и современным боеприпасам, призвана заполнить этот досадный пробел.Формат: PDF
 
 ## Скачать торент
 ```bash

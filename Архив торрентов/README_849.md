@@ -6,7 +6,7 @@ Chaser - Neuronoir (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855624.jpg" />
+  <img src="Z:/picture/008/save_picture_855624.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Macsome iTunes Converter 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855620.jpg" />
+  <img src="Z:/picture/008/save_picture_855620.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Electric Samurai - The Blind Swordsman (2017) [MP3|320 Kbps] <Trance, Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855619.jpg" />
+  <img src="Z:/picture/008/save_picture_855619.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nickbee - Blizzard / Ice Crack (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855613.jpg" />
+  <img src="Z:/picture/008/save_picture_855613.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Slimjet 13.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855610.jpg" />
+  <img src="Z:/picture/008/save_picture_855610.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855580.jpg" />
+  <img src="Z:/picture/008/save_picture_855580.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855556.jpg" />
+  <img src="Z:/picture/008/save_picture_855556.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855555.jpg" />
+  <img src="Z:/picture/008/save_picture_855555.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Stellarium 0.14.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855547.jpg" />
+  <img src="Z:/picture/008/save_picture_855547.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Licky - Gravity Castle (2014) [MP3|320 кб/с] <Darkwave. Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855542.jpg" />
+  <img src="Z:/picture/008/save_picture_855542.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ MEGA Sync Client 2.8.0 (c5b19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855536.jpg" />
+  <img src="Z:/picture/008/save_picture_855536.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Microsoft OneDrive 17.3.6302.0225 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855529.jpg" />
+  <img src="Z:/picture/008/save_picture_855529.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Microwave Recipes / Рецепты в микроволновке v1.0.4 Free и 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855528.jpg" />
+  <img src="Z:/picture/008/save_picture_855528.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855527.jpg" />
+  <img src="Z:/picture/008/save_picture_855527.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855468.jpg" />
+  <img src="Z:/picture/008/save_picture_855468.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Stellarium 0.14.3 classic Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855465.jpg" />
+  <img src="Z:/picture/008/save_picture_855465.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ RightFont 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855464.jpg" />
+  <img src="Z:/picture/008/save_picture_855464.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ AdwCleaner 5.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855461.jpg" />
+  <img src="Z:/picture/008/save_picture_855461.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Junkware Removal Tool 8.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855453.jpg" />
+  <img src="Z:/picture/008/save_picture_855453.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855449.jpg" />
+  <img src="Z:/picture/008/save_picture_855449.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855436.jpg" />
+  <img src="Z:/picture/008/save_picture_855436.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Advanced Renamer 3.72 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855422.jpg" />
+  <img src="Z:/picture/008/save_picture_855422.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855420.jpg" />
+  <img src="Z:/picture/008/save_picture_855420.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855418.jpg" />
+  <img src="Z:/picture/008/save_picture_855418.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ NVIDIA Inspector 1.9.7.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855409.jpg" />
+  <img src="Z:/picture/008/save_picture_855409.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ EZ CD Audio Converter 5.3.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855406.jpg" />
+  <img src="Z:/picture/008/save_picture_855406.jpg" />
 </div>
 
 

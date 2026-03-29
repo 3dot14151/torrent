@@ -1,3 +1,174 @@
+###  Публикация: 1693344   (121848) от 20.01.2024
+
+Минтранс (20.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121848.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Юридические нюансы. Как продать автомобиль после вступления в наследство?
+🔸 Тест-драйв БМВ-5. Почему этого «немца» считали технологическим прорывом? Есть ли у модели просчеты?
+🔸 Генеральная уборка. Что будет, если редко мыть автомобиль?
+🔸 Особенности расположения. Почему лючок бензобака находится то справа, то слева?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8AA2751794EB85884E092188BE3B8285DB08B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695005   (120658) от 27.01.2024
+
+Главная дорога (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неуправляемый питерский автобус, уголовное наказание за тюбинг на дорогах, дальневосточные метели и капризы непогоды по всей России.
+ Виновник ДТП, пострадавший водитель и пострадавшая пешеход: как из этого списка выпал участник аварии, который натворил бед, и на кого могут «повесить» ущерб?
+ Поднимать или не поднимать? Андрей Федорцов и Денис Юченков разрешили вечный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046E7CDCFA0E5CACEC9FD24C4CF74C5CF20C87DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695013   (120466) от 28.01.2024
+
+Минтранс (27.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120466.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Взыскание ущерба. Как быть, если у виновника аварии нет ни полиса ОСАГО, ни доверенности на автомобиль, ни договора аренды?
+🔸 Тест-драйв ORA 03- 2023: насколько надежен электрический хэтчбек?
+🔸 Лайфхак: как защитить в мороз руки?
+🔸 Надежность дизеля. Правда ли, что она зависит от страны, где «бегает» автомобиль?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2330B56E029EF261CB4C24F354F7CD2D03C645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695308   (120439) от 28.01.2024
+
+Первая передача на НТВ. Автомобильная передача (28.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важный чин как виновник ДТП и его действия после аварии: накажут большого начальника или повысят?
+ Как сотрудницу автосервиса обманул ее же коллега, когда та пыталась продать авто?
+ На дне реки в Псковской области оказалась иномарка без номеров. Что «Ауди» делает в холодном сумраке? И как поднимают затонувшие автомобили?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B80B8EA2102D7E38AA0110CD0E3FFBDD5F8160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696610   (119468) от 03.02.2024
+
+Главная дорога (03.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертельная авария с автобусом, перевозившем детскую спортивную команду, невероятное спасение легковушки между фурами и отклоненный законопроект о наказании за опасное вождение.
+  Чувство локтя и других конечностей: как выжить в переполненном общественном транспорте?
+  Защита или кузов под списание? Уникальный краш-тест: такого еще никто не делал! Андрей Федорцов и Денис (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A4F52EFA7B0B067C085F7D1075C6F95B7EB92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696612   (119439) от 03.02.2024
+
+Минтранс (03.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119439.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 15 суток. Что ждет водителя при административном аресте? За какие нарушения применяется арест вместо штрафа?
+🔸 Модная штучка: тест-драйв Омода S5 GT 2023. Чем удивляет горячий китайский лифтбэк?
+🔸 Балансировка колес: для чего нужна и что будет, если не делать?
+🔸 Скребок-телескоп: пластмасса против зимы. Выдержит ли китайский гаджет (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3215C14F7FD510C28C785400F32999DB5EC0113D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696849   (119338) от 04.02.2024
 
 Первая передача на НТВ. Автомобильная передача (04.02.2024) WEBRip [H.264/720p]
@@ -6,7 +177,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119338.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118273.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118261.jpg" />
 </div>
 
 
@@ -90,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118088.jpg" />
 </div>
 
 
@@ -118,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117066.jpg" />
 </div>
 
 
@@ -146,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116866.jpg" />
 </div>
 
 
@@ -175,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116834.jpg" />
 </div>
 
 
@@ -203,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116472.jpg" />
 </div>
 
 
@@ -229,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116468.jpg" />
 </div>
 
 
@@ -255,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116462.jpg" />
 </div>
 
 
@@ -281,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115873.jpg" />
 </div>
 
 
@@ -309,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115827.jpg" />
 </div>
 
 
@@ -338,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115687.jpg" />
 </div>
 
 
@@ -366,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114643.jpg" />
 </div>
 
 
@@ -395,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114630.jpg" />
 </div>
 
 
@@ -423,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113824.jpg" />
 </div>
 
 
@@ -451,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113812.jpg" />
 </div>
 
 
@@ -480,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113740.jpg" />
 </div>
 
 
@@ -507,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113349.jpg" />
 </div>
 
 
@@ -535,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113321.jpg" />
 </div>
 
 
@@ -548,173 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7647B613F467742889AB21B926B7C60A880F2BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707636   (113268) от 17.03.2024
-
-Первая передача на НТВ. Автомобильная передача (17.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дальнобойщик спас людей, но в чем же его все-таки обвинили?
- Тьма рассеялась: кто помог девочке, ослепшей после ДТП?
- «Извини по-братски»: как заставить виновника ДТП возместить ущерб?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DA40152C46D6F1514D41447C81DF49F4426451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711448   (112486) от 30.03.2024
-
-Главная дорога (30.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неуправляемый автобус в Курске, таранящий машины неадекват в погонах, «самоизбиение» задержанного сочинского водителя.
- В Европе угнали автомобиль, который находился… в России. Как такое возможно и почему любая импортная машина — под угрозой?
- Тянем резину дедовским способом: как снять и надеть шину, чтобы не пришлось покупать новую?
- Словить ритм в заносе на черном (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4099CA51BDD6604A2AF607F4B3F03BAE90D8B31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711447   (112461) от 30.03.2024
-
-Главная дорога (23.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сменить свет, ничего не меняя! Как заставить старые фары светить ярче? Андрей Федорцов и Денис Юченков увеличили яркость фар, не меняя лампы, и испытали на долговечность разные лампы для фар. Оказывается, не обязательно покупать дорогие и мощные лампы, можно немного усовершенствовать проводку автомобиля и получить яркий свет, и совершенно законно.
-Без прав из-за (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043F355359E2E539764ACC82892E69AD74F21834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711739   (112357) от 31.03.2024
-
-Первая передача на НТВ. Автомобильная передача (31.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грех на душу: водитель поневоле задавил человека! Что за это грозит?
- Электросамокаты с номерами будут штрафовать по камерам.
- Я на фуре: почему девушки уходят в «дальнобой»?
- Пора «переобуваться»: какие шины купить на лето?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6962D0F67BBB4DFF01D349CE52B65FBA219C755A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713548   (111883) от 06.04.2024
-
-Минтранс. Тест-драйв Субару Форестер (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тест-драйв Субару Форестер 2022Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A217151DB2711BE91965C73FAE081A94F0884115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713561   (111877) от 06.04.2024
-
-Главная дорога (06.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авария на переезде с 7 жертвами из-за пьяного диспетчера, «подвиги» подростка на тонированном седане, кругом вода и затопленный автобус на Алтае.
- Глюки, ржавчина и сюрпризы во время движения: китайское качество по цене квартиры.
- С виду обычный самокат, а даст фору любом мопеду, а то и мотоциклу! Чем опасны СИМ, как правильно ими управлять, где этому учиться и какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0C6795368BAA9BACCF2328A361F0CB1BC71475
 ```
 
 https://mybot314.ru/tekegram_catalog/

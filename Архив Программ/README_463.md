@@ -6,7 +6,7 @@ IObit Smart Defrag Pro 6.5.5.98 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801672.jpg" />
+  <img src="Z:/picture/008/save_picture_801672.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera GX 68.0.3618.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801668.jpg" />
+  <img src="Z:/picture/008/save_picture_801668.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 4.0.32 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801665.jpg" />
+  <img src="Z:/picture/008/save_picture_801665.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YTD Video Downloader PRO 5.9.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801640.jpg" />
+  <img src="Z:/picture/008/save_picture_801640.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Pazera Free Audio Video Pack 2.15 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801625.jpg" />
+  <img src="Z:/picture/008/save_picture_801625.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CoolUtils Total Audio Converter 5.3.0.227 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801599.jpg" />
+  <img src="Z:/picture/008/save_picture_801599.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CoolUtils Total PDF Converter 6.1.0.220 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801598.jpg" />
+  <img src="Z:/picture/008/save_picture_801598.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Allavsoft Video Downloader Converter 3.22.5.7441 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801593.jpg" />
+  <img src="Z:/picture/008/save_picture_801593.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Wise Duplicate Finder Pro 1.3.6.44 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801590.jpg" />
+  <img src="Z:/picture/008/save_picture_801590.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801584.jpg" />
+  <img src="Z:/picture/008/save_picture_801584.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Microsoft Edge 95.0.1020.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801574.jpg" />
+  <img src="Z:/picture/008/save_picture_801574.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ FileZilla Server 1.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801569.jpg" />
+  <img src="Z:/picture/008/save_picture_801569.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Calibre 5.31.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801566.jpg" />
+  <img src="Z:/picture/008/save_picture_801566.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Pale Moon 27.7.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801560.jpg" />
+  <img src="Z:/picture/008/save_picture_801560.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Opera 68.0.3618.125 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801542.jpg" />
+  <img src="Z:/picture/008/save_picture_801542.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ FanControl V95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801513.jpg" />
+  <img src="Z:/picture/008/save_picture_801513.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Tixati 2.86 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801509.jpg" />
+  <img src="Z:/picture/008/save_picture_801509.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Mp3tag 3.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801506.jpg" />
+  <img src="Z:/picture/008/save_picture_801506.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Internet Download Manager 6.30 Build 6 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801490.jpg" />
+  <img src="Z:/picture/008/save_picture_801490.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801480.jpg" />
+  <img src="Z:/picture/008/save_picture_801480.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Serif Affinity Photo 1.6.2.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801478.jpg" />
+  <img src="Z:/picture/008/save_picture_801478.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BlueStacks App Player 3.55.70.1783 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801476.jpg" />
+  <img src="Z:/picture/008/save_picture_801476.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ LibreOffice 6.4.4.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801475.jpg" />
+  <img src="Z:/picture/008/save_picture_801475.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Soft Organizer Pro 9.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801460.jpg" />
+  <img src="Z:/picture/008/save_picture_801460.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ HWiNFO 7.14 Build 4610 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801455.jpg" />
+  <img src="Z:/picture/008/save_picture_801455.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ ESET Online Scanner 3.6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801452.jpg" />
+  <img src="Z:/picture/008/save_picture_801452.jpg" />
 </div>
 
 

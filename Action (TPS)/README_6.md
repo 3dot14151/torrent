@@ -1,3 +1,167 @@
+###  Публикация: 744422   (971122) от 11.01.2014
+
+Scarface: The World is Yours (2006) [En/Ru] (1.0) Repack R.G. Games
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они думали, что он мертв и упивались собственным величием. Они прибрали к рукам весь его бизнес, получив все и сразу. Но истинные Короли криминального мира никогда не исчезают бесследно, а те, кто травил их, словно охотники зверя, сами превращаются в добычу. Час расплаты близок, человек со шрамом уже стоит за дверью и готов вершить собственное правосудие вашими руками. (   Читать дальше...   )Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92F3F9548E1629B8E15B25D154B9292708E3A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975936   (970293) от 16.01.2016
+
+Evil Dead: Hail to the King (2001) [Ru/En] (1.0.0.0) Repack R.G. Revenants
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970293.jpg" />
+</div>
+
+
+###  Подробнее
+
+События игры разворачиваются восемь лет спустя, после истории последнего фильма. Эш вновь возвращается в отдаленную хижину, затерянную в дремучих лесах, обнаружив зло, выпущенное со страниц Некрономикона. Именно здесь и развернутся основные приключения, главной целью которых является спасение его подруги и всего человечества от потусторонних сил зла.Тип издания: RepackРазработчик: Heavy Iron StudiosЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A90F1347CD31C79C36F7B8746A964652AC9227B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 572030   (969085) от 14.02.2013
+
+Tom Clancy's Ghost Recon: Future Soldier [Ru/En/Multi12) [LossLess RePack/1.7/2 DLC] 2012 | R.G. Revenants
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969085.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Призраки», элитные бойцы в составе сил специального назначения, готовы выполнить поставленную задачу в любой точке земного шара. Их работа – борьба с терроризмом, нейтрализация вражеских агентов и уничтожение превосходящих сил противника. Со временем этот легендарный отряд перестал быть просто одним из подразделений спецназа и превратился в идеальный инструмент, способный изменить судьбу человечества.
+
+Оснащенные по последнему слову техники, снабженные лучшими разработками военных технологий, эти специалисты составят вам компанию в целом ряде особых боевых операций. Вас ждут раскаленные пески Африки и антарктические льды, миссии по скрытному проникновению и битвы на выживание. В роли одного из бойцов вам предстоит сражаться бок о бок с лучшими оперативниками отряда. Пришло время продемонстрировать, на что способны настоящие профессионалы! (   Читать дальше...   )Тип издания: LossLess RePackРазработчик: Ubisoft ParisЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Multi12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EE06F63D5D60C253DBF350D4A1B5926C2D9DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619014   (968144) от 15.02.2013
+
+Stranglehold Collector's Edition / Stranglehold. Коллекционное издание [Ru/En] (RePack/1.1) 2007 | R.G.Механики
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Stranglehold — масштабный проект мастера гонконгских боевиков Джона Ву. Блокбастеры прославленного китайского гуру отличаются не только высокими кассовыми сборами, но и фирменным стилем, имеющим огромное количество поклонников, особенно в России. Именно им, а также всем любителям исключительного экшена Джон Ву представляет свой сногсшибательный проект.
+
+Stranglehold — высокотехнологичный компьютерный боевик с невероятным уровнем кинематографичности и реалистичности. Созданный на графическом движке Unreal Engine 3.0, он предлагает игрокам оценить невероятную интерактивность нового поколения. Внешность главного героя игры, инспектора Текилы, с фотографической точностью повторяет внешность актера Чоу Юн-Фата, исполнявшего главную роль в культовом фильме «Круто сваренные», который превратил Джона Ву в звезду мирового масштаба. Игроков ждут эффектные акробатические трюки, жаркие перестрелки, полностью разрушаемое окружение и море чистого экшена.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCF7F92AFB82E38E1E00650DBE41D823D862A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619959   (965941) от 17.02.2013
+
+Orcs Must Die! Dilogy / Дилогия. Бей орков! [Ru/En] (RePack) 2011-2012 | R.G. Revenants
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы швыряли их в разные стороны, жгли огнем, нарезали ломтиками... Счет шел на тысячи - но теперь требуется удвоить усилия! Во второй части «Стратегической игры 2011 года» по версии AIAS от студии Robot Entertainment вам предстоит прорубаться через несметные полчища орков на пару с другом!
+Вновь окунитесь в самую гущу битвы, играя за могущественного боевого мага или хитроумную волшебницу. Защищайте новые крепости и гномьи шахты, истребляйте тысячи орков и прочих чудовищ - в вашем распоряжении самое разнообразное оружие, заклинания, стражники, ловушки и амулеты. Проходите новую кампанию вместе с другом в совместной игре - либо боритесь за выживание в бесконечном режиме!
+Открывайте доступ к новым и старым средствам обороны, совершенствуйте их и пускайте в дело - пусть перемалывают полчища орков в сочный зеленый фарш!Тип издания: RepackЖанр: Action / Strategy (Tower Defense) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4058C982D2F02EA3375F0D8BDB0AA4EA3417F90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620898   (964915) от 18.02.2013
+
+Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Revenants
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alan Wake's American Nightmare - экшен с элементами хоррора, разработанный студией Remedy. События игры не являются продолжением или приквелом к оригинальному Alan Wake. American Nightmare расширяет и углубляет вселенную игры, добавляя ранее неизвестных персонажей и события.
+
+В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580B9DABA71061D57873CF305F8591B432DAB1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977955   (964225) от 22.01.2016
 
 Dark Sector (2009) [Ru] (1.01/fix-vid) Repack =nemos=
@@ -6,7 +170,7 @@ Dark Sector (2009) [Ru] (1.01/fix-vid) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964225.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ Devil May Cry 5 (2019) [Ru/Multi] (1.0.3853173/dlc) SteamRip =nemos= [Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963934.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) SteamRip =nemos= [Deluxe Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963892.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ Red Faction: Armageddon (2011) [Ru/Multi] (1.01/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962815.jpg" />
 </div>
 
 
@@ -110,7 +274,7 @@ Planet Nomads (2019) [Ru/Multi] (1.0.6.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962802.jpg" />
 </div>
 
 
@@ -136,7 +300,7 @@ Orcs Must Die: Game of The Year Edition [Ru/En/Multi9] (L) 2011 | PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961087.jpg" />
 </div>
 
 
@@ -163,7 +327,7 @@ Terminator Salvation The Video Game (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960612.jpg" />
 </div>
 
 
@@ -189,7 +353,7 @@ Strange Brigade (2018) [Ru/Multi] (1.47.22.14/dlc) Repack Other s [Deluxe Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957769.jpg" />
 </div>
 
 
@@ -215,7 +379,7 @@ Resident Evil 0 Remaster / Biohazard 0 HD Remaster (2016) [Ru/Multi] (1.0/dlc) S
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956801.jpg" />
 </div>
 
 
@@ -241,7 +405,7 @@ Crusaders of Might and Magic / Крестоносцы меча и магии (19
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954916.jpg" />
 </div>
 
 
@@ -267,7 +431,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.6890.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954803.jpg" />
 </div>
 
 
@@ -293,7 +457,7 @@ Blades of Time / Клинки Времени [Ru] (RePack/u5) 2012 | a1chem1st
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954711.jpg" />
 </div>
 
 
@@ -326,7 +490,7 @@ Brutal Legend [En/Multi5] (L) 2013 | RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954695.jpg" />
 </div>
 
 
@@ -352,7 +516,7 @@ ENSLAVED Odyssey to the West (2013) [Ru/Multi] (1.0 upd1/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948167.jpg" />
 </div>
 
 
@@ -378,7 +542,7 @@ DreadOut (2014) [Ru/Multi] (2.2.18) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947674.jpg" />
 </div>
 
 
@@ -404,7 +568,7 @@ Terminator Salvation: The Videogame / Терминатор: Да придёт с
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940817.jpg" />
 </div>
 
 
@@ -430,7 +594,7 @@ Blade & Bones (2016) [Ru/Multi] (1.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939498.jpg" />
 </div>
 
 
@@ -456,7 +620,7 @@ DmC: Devil May Cry [Ru] (Repack/1.0u2/4 DLC) 2013 | Fenixx
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934198.jpg" />
 </div>
 
 
@@ -482,7 +646,7 @@ The Admin (2016) [En] (1.02) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933121.jpg" />
 </div>
 
 
@@ -508,7 +672,7 @@ Disney Infinity Trilogy (2013-2016) [Ru/En] (20161216/dlc) Repack R.G. Меха�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933008.jpg" />
 </div>
 
 
@@ -519,163 +683,6 @@ Disney Infinity 3.0 Edition - это аркадная песочница, пос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1754D51C467F14D9B4CBBB9B81BC7B04EE81F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094723   (928419) от 18.01.2017
-
-Bionic Commando (2009) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное военное подразделение, в котором состоял Натан Спенсер, после успешного выполнения последней миссии было признано правительством слишком опасным. Легендарного бойца арестовали и приговорили к смертной казни…
-Однако в роковой день некая террористическая группа привела в действие мощное экспериментальное оружие, вызвав в городе страшное землетрясение, которое (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72BD5C33D6B5243E0B2B2CC9DB556D21161A5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094655   (928409) от 18.01.2017
-
-Resident Evil: Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack R.G. Механики
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928409.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале истории Resident Evil Revelations 2 фанатов ожидает драматичное возвращение их любимой героини Клэр Редфилд. Пережив происшествие в Раккун-Сити, описанное в предыдущих играх Resident Evil, Клэр теперь работает на организацию "Терра Сейв", которая борется с биотерроризмом. Во время вечеринки по случаю приема Клэр на работу в "Терра Сейв" (   Читать дальше...   )Тип издания: RepackРазработчик: Frim Studio и CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F61B08496DC9E21D7C9896349FA358E8254957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987923   (923822) от 18.02.2016
-
-Syphon Filter (1999) [Ru] (1.0) Repack Ma2012ks
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть легендарной игры. Специальный агент Габриэль Логан и его напарница Лиан Синг расследуют серию биологических терактов. В процессе расследования выясняется, что с этими событиями связан международный террорист Эрих Ромер, который разработал смертельно опасный вирус "Syphon Filter". Таким образом, обычная антитеррористическая операция превратилась (   Читать дальше...   )Тип издания: RepackРазработчик: EideticЖанр: Action (3rd Person)Язык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCBBAB6D5E7FE62BB06C0097130233B99844AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096088   (921937) от 22.01.2017
-
-Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет Forgotten Realms: Demon Stone рассказывает о том, как однажды много лет назад могущественный волшебник заключил предводителей демонов в особый магический камень. Те были в заключении очень долго, но однажды один из них сумел подчинить своей воле сразу троицу героев. Те, не ведая что они делают, разбили многолетнюю тюрьму демонов, после чего сразу же началась (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormfront Studios и ZonoЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764C7D0886DFF76443568F433E1C36EF90CCA4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366853   (919757) от 13.03.2020
-
-Sniper Elite V2 Remastered (2019) [Ru/En] (SVN2797PF85690) Repack xatab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — элитный снайпер США, Карл Фейрберн, заброшенный в Берлин, где находится последняя линия обороны немцев. Ваше задание — не дать попасть в руки красной армии секретной технологии нацистов, ракете «Фау-2». Вы должны помочь главным ученым, которые склонны переметнуться на сторону США, и устранить всех, кто стоит у вас на пути.Тип издания: RepackРазработчик: RebellionЖанр: Action (Shooter), Stealth, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69E9A26B05DF9EA670A826085C55D942F6D5019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366803   (919754) от 13.03.2020
-
-NieR: Automata (2017) [Ru] (1.0.1787043/dlc) Repack xatab [Day One Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919754.jpg" />
-</div>
-
-
-###  Подробнее
-
-NieR: Automata – это свежий взгляд на жанр Action/RPG, гармонично сочетающий увлекательный боевик и захватывающе интересный сюжет. Игра является продолжением ставшего культовым хита 2010 г. – NIER и разрабатывается поистине звездной командой разработчиков PlatinumGames. В игре NieR: Automata – захватчики из другого мира напали внезапно, обрушив всю мощь живых машин (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix, PlatinumGames Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEDBFD1C2FEF2F2C44A5D88710EE3EB679D8653
 ```
 
 https://mybot314.ru/tekegram_catalog/

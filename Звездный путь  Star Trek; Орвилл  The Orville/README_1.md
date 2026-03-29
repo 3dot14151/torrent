@@ -6,7 +6,7 @@
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149148.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147144.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54406.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2285.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2278.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2251.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездный путь / Star Trek; Орвилл / The Orville
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1375.jpg" />
 </div>
 
 

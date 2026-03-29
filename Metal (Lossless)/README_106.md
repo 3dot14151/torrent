@@ -1,3 +1,90 @@
+###  Публикация: 1137862   (664382) от 29.05.2017
+
+Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Promised Time 04:42
+02. Blood Thirst 04:07
+03. Perdition 02:58
+04. Ensnared for Eternity 03:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:022F261B709B89CD4B9C2615FF82049434019BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138476   (664325) от 29.05.2017
+
+StormHammer - Welcome To The End (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning of the End  (01:10) 
+02. Northman  (05:03) 
+03. Welcome to the End  (05:42) 
+04. The Heritage  (05:03) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F5F28FAF238C17CF152783C78B8EF48593ADA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137953   (664264) от 29.05.2017
+
+Angel Vivaldi - Away With Words Pt.1 (2014) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angel Vivaldi - американский гитарист-виртуоз исполняет мелодик металкор\прогрессивный металкор, в последние годы набирающий всё большую и большую популярность. Играет он в прогрессив-метал-группе имени самого себя. Кроме гитары Энджел неплохо управляется с басом и клавишными, по крайней мере все клавишные партии для своего последнего мини-альбома он сыграл сам. (   Читать дальше...   )01. · - - - - (5:13)
+02. · · - - - (4:37)
+03. · · · - - (4:29)
+04. · · · · - (3:41)(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 00:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376A4B427982157860BB7A8DE4AF0F67D00A102B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138329   (664256) от 29.05.2017
 
 Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
@@ -6,7 +93,7 @@ Angel Vivaldi - Universal Language (2011) [FLAC|Lossless|tracks + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664256.jpg" />
+  <img src="Z:/picture/008/save_picture_664256.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663359.jpg" />
+  <img src="Z:/picture/008/save_picture_663359.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ Napalm Death - Resentment Is Always Seismic – A Final Throw Of Throes (2022) E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663283.jpg" />
+  <img src="Z:/picture/008/save_picture_663283.jpg" />
 </div>
 
 
@@ -95,7 +182,7 @@ Poisonfog - Spellcaster's Revenge (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662458.jpg" />
+  <img src="Z:/picture/008/save_picture_662458.jpg" />
 </div>
 
 
@@ -124,7 +211,7 @@ Lechery - We Are All Born Evil (2018) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661892.jpg" />
+  <img src="Z:/picture/008/save_picture_661892.jpg" />
 </div>
 
 
@@ -153,7 +240,7 @@ Leather - II (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661882.jpg" />
+  <img src="Z:/picture/008/save_picture_661882.jpg" />
 </div>
 
 
@@ -182,7 +269,7 @@ Foss - These Voices (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661384.jpg" />
+  <img src="Z:/picture/008/save_picture_661384.jpg" />
 </div>
 
 
@@ -211,7 +298,7 @@ Achelous - The Icewind Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661381.jpg" />
+  <img src="Z:/picture/008/save_picture_661381.jpg" />
 </div>
 
 
@@ -240,7 +327,7 @@ Antonio Giorgio - Between Light & Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661380.jpg" />
+  <img src="Z:/picture/008/save_picture_661380.jpg" />
 </div>
 
 
@@ -269,7 +356,7 @@ Airacobra - Midwestern Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661373.jpg" />
+  <img src="Z:/picture/008/save_picture_661373.jpg" />
 </div>
 
 
@@ -298,7 +385,7 @@ In Loving Memory - The Withering (2022) [FLAC|Lossless|image + .cue] <Melodic Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661280.jpg" />
+  <img src="Z:/picture/008/save_picture_661280.jpg" />
 </div>
 
 
@@ -327,7 +414,7 @@ Pentemple - O))) Presents (2008) [FLAC|Lossless] <Drone Doom / Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_660532.jpg" />
+  <img src="Z:/picture/005/save_picture_660532.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ EyeHateGod - 7 albums (1992-2006) [FLAC|Lossless] <Sludge Metal, Doom Metal, Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_660452.jpg" />
+  <img src="Z:/picture/005/save_picture_660452.jpg" />
 </div>
 
 
@@ -390,7 +477,7 @@ Bongripper - 5 albums (2005-2010) [FLAC|Lossless] <Sludge Doom Metal, Stoner, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_660378.jpg" />
+  <img src="Z:/picture/005/save_picture_660378.jpg" />
 </div>
 
 
@@ -419,7 +506,7 @@ Diminished 7 - The Regal Chapters (2014) [FLAC|Lossless]<Melodic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660360.jpg" />
+  <img src="Z:/picture/008/save_picture_660360.jpg" />
 </div>
 
 
@@ -448,7 +535,7 @@ Tristitia - Burial Of The Sad (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660324.jpg" />
+  <img src="Z:/picture/008/save_picture_660324.jpg" />
 </div>
 
 
@@ -477,7 +564,7 @@ Hyperia - Silhouettes Of Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660323.jpg" />
+  <img src="Z:/picture/008/save_picture_660323.jpg" />
 </div>
 
 
@@ -506,7 +593,7 @@ Final Cry - The Ever-Rest (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660322.jpg" />
+  <img src="Z:/picture/008/save_picture_660322.jpg" />
 </div>
 
 
@@ -535,7 +622,7 @@ Isvind - Gud (2015) [FLAC|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660304.jpg" />
+  <img src="Z:/picture/008/save_picture_660304.jpg" />
 </div>
 
 
@@ -564,7 +651,7 @@ Tristitia - Doomystic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660278.jpg" />
+  <img src="Z:/picture/008/save_picture_660278.jpg" />
 </div>
 
 
@@ -593,7 +680,7 @@ Andi The Wicked - Sexually Transmitted Mojo (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660259.jpg" />
+  <img src="Z:/picture/008/save_picture_660259.jpg" />
 </div>
 
 
@@ -622,7 +709,7 @@ Mulla - مَوْلَى (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660169.jpg" />
+  <img src="Z:/picture/008/save_picture_660169.jpg" />
 </div>
 
 
@@ -651,7 +738,7 @@ Axel Rudi Pell & Friends - Magic Moments (2015) 25th Anniversary Special Show [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660019.jpg" />
+  <img src="Z:/picture/008/save_picture_660019.jpg" />
 </div>
 
 
@@ -665,93 +752,6 @@ Axel Rudi Pell & Friends - Magic Moments (2015) 25th Anniversary Special Show [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D670E54E38F053851E400F9587AB9DEBD4B37AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902874   (659929) от 29.05.2015
-
-Helloween - My God-Given Right (2015) Mailorder Edition [FLAC|image+.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659929.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. Heroes 03:51
-02. Battle's Won 04:53(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35164848ADDC8EC813BEFA7402D577B2EF9358A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902766   (659923) от 29.05.2015
-
-Helloween - My God-Given Right (2015) [FLAC|Lossless|WEB-DL]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes 03:51
-02. Battle's Won 04:53
-03. My God-Given Right 03:30
-04. Stay Crazy 04:05(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58639600236477FE2A5E1B3C4E84DE5FC83895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903026   (659154) от 30.05.2015
-
-George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes Of Divinity
-02. Invictus
-03. The Passage
-04. Aeons Of Burning Galaxies(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

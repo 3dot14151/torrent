@@ -6,7 +6,7 @@ Mailbird Pro 2.5.4.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752737.jpg" />
+  <img src="Z:/picture/008/save_picture_752737.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hetman Excel Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752736.jpg" />
+  <img src="Z:/picture/008/save_picture_752736.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Uninstaller Pro 7.4.0.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752733.jpg" />
+  <img src="Z:/picture/008/save_picture_752733.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Photo Editor 5.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752729.jpg" />
+  <img src="Z:/picture/008/save_picture_752729.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Java SE Runtime Environment 10 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752637.jpg" />
+  <img src="Z:/picture/005/save_picture_752637.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MS Office 2011 f. MAC (BETA-3 V14.0.0 BUILD 100519) (WTF)[Английский] 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752365.jpg" />
+  <img src="Z:/picture/005/save_picture_752365.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ TagScanner 6.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752260.jpg" />
+  <img src="Z:/picture/008/save_picture_752260.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Slimjet 27.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752204.jpg" />
+  <img src="Z:/picture/005/save_picture_752204.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ ICQ 10.0 build 12061 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752108.jpg" />
+  <img src="Z:/picture/008/save_picture_752108.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Classic Shell 4.2.6 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752106.jpg" />
+  <img src="Z:/picture/008/save_picture_752106.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PDF24 Creator 8.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752086.jpg" />
+  <img src="Z:/picture/008/save_picture_752086.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ UnHackMe 11.80.0.980 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752018.jpg" />
+  <img src="Z:/picture/008/save_picture_752018.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ LibreOffice 6.4.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751931.jpg" />
+  <img src="Z:/picture/008/save_picture_751931.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Movavi Slideshow Maker 6.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751916.jpg" />
+  <img src="Z:/picture/008/save_picture_751916.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751902.jpg" />
+  <img src="Z:/picture/005/save_picture_751902.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ u-he - Hive 1.2.1.8256 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751874.jpg" />
+  <img src="Z:/picture/008/save_picture_751874.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Pale Moon 28.3.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751868.jpg" />
+  <img src="Z:/picture/008/save_picture_751868.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VueScan Pro 9.7.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751821.jpg" />
+  <img src="Z:/picture/008/save_picture_751821.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Golden Software Didger 5.11.1438 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751758.jpg" />
+  <img src="Z:/picture/008/save_picture_751758.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Ashampoo WinOptimizer 14.00.00 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751754.jpg" />
+  <img src="Z:/picture/008/save_picture_751754.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Ashampoo WinOptimizer 14.00.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751749.jpg" />
+  <img src="Z:/picture/008/save_picture_751749.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Blue Cat's All Plug-Ins Pack (v.2019.2) VST, VST3, RTAS, AAX RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751733.jpg" />
+  <img src="Z:/picture/008/save_picture_751733.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ CleanMyPC 1.10.0.1987 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751726.jpg" />
+  <img src="Z:/picture/008/save_picture_751726.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Wallpaper Engine 1.3.8 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751702.jpg" />
+  <img src="Z:/picture/008/save_picture_751702.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Image Uploader 1.3.1 Build 4314 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751651.jpg" />
+  <img src="Z:/picture/008/save_picture_751651.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Adobe Flash Player 17.0.0.171 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751650.jpg" />
+  <img src="Z:/picture/008/save_picture_751650.jpg" />
 </div>
 
 

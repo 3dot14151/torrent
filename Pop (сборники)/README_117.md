@@ -1,3 +1,177 @@
+###  Публикация: 1520298   (143679) от 27.12.2021
+
+Jeanette - Compilation (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corazon De Poeta
+02. Porque Te Vas
+03. Soy Rebelde
+04. Un dia es un dia(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8739289F7ADC3B6A3DDE1B6AAA6F9B2BB95C619B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520359   (143669) от 27.12.2021
+
+VA - National Pop Dance Music Vol.29 (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выходные в самом разгаре! Наслаждаемся зимой и отличной популярной танцевальной музыкой. Представляем вашему вниманию очередной 29-й релиз сборника "National Pop Dance Music", где музыканты со всех концов света исполняют свои песни которые как бы подводят итог уходящего года.001. John De Bever - Laat Ze Beven
+002. Gйrard Lanvin - Aussi Vite Que Le Temps
+003. Itzy - Gas Me Up
+004. Nct 127 - The Rainy Night(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 08:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C07AFCF391AE4D04AEEAF1440F5F56A8242B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348666   (143557) от 28.12.2019
+
+VA - German Top 100 Single Charts 27.12.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mariah Carey - All I Want for Christmas Is You (4:01)
+2.Wham! - Last Christmas (4:25)
+3.Tones and I - Dance Monkey (3:29)
+4.Apache 207 - Roller (2:38)(   Читать дальше...   )Жанр: PopПродолжительность: 05:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301A7EBF2740C44313EDBCA19756AC7E5F3BA92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520239   (142690) от 27.12.2021
+
+VA - Свежий Русский Хит от ALEXnROCK часть 8 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всех С Наступающим 2022 годом! Ловите мой музыкальный подгон. В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2021 год. Это 8я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK001. Согдиана - Королева Востока
+002. Сергей Лазарев - Танцуй
+003. Burito - Тихо И Скромно
+004. LOBODA - Americano(   Читать дальше...   )Жанр: PopПродолжительность: 04:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE948AD0FC392F4B47A5903135861990D50C17A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088052   (142681) от 29.12.2016
+
+VA - Новая Русская Дискотека (Лучшие 2) (2016) [MP3|256-320 Kbps] <Поп, Диско>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аракадиас - На белом покрывале января
+02. Фея Моргана - День как день
+03. Любовь Попова - А я солгу
+04. Сергей Трощенков - Мой грустный дождик(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 05:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C57492F228F27C290A79E31DEA89CA7D9B6476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088066   (142624) от 29.12.2016
+
+VA - Новая Русская Дискотека (Лучшие 3) (2016) [MP3|256-320 Kbps] <Поп, Диско>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синти Тайм - Игра Любовь
+02. Студия-80 - Тайны далёких звезд
+03. Александр Айвазов - Вкус любви
+04. Кристалл - Это не ты(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 05:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54E3065FFC9B51A8313493EF08E7538CDC1DE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272529   (142584) от 28.12.2018
 
 VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Eurodance, Eurohouse>
@@ -6,7 +180,7 @@ VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142584.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142443.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142400.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142240.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142120.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142007.jpg" />
 </div>
 
 
@@ -186,7 +360,7 @@ VA - Пацаны - Ваще Ребята! vol.23 (2015) [MP3|128-320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141348.jpg" />
 </div>
 
 
@@ -215,7 +389,7 @@ VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141345.jpg" />
 </div>
 
 
@@ -244,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141199.jpg" />
 </div>
 
 
@@ -273,7 +447,7 @@ VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140909.jpg" />
 </div>
 
 
@@ -302,7 +476,7 @@ VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140831.jpg" />
 </div>
 
 
@@ -331,7 +505,7 @@ VA - Новогоднее настроение в СССР (2CD) (1956-1991) о�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140600.jpg" />
 </div>
 
 
@@ -360,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140156.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ VA - Popular Winter Dance Pack (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139703.jpg" />
 </div>
 
 
@@ -418,7 +592,7 @@ VA - De Top 100 Aller Tijden 1978 (RadioVeronica) (2017) [MP3|320 Kbps] <Pop, Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138786.jpg" />
 </div>
 
 
@@ -447,7 +621,7 @@ VA - ВКонтакте: TOP 100 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138751.jpg" />
 </div>
 
 
@@ -476,7 +650,7 @@ Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138724.jpg" />
 </div>
 
 
@@ -505,7 +679,7 @@ VA - Новогодняя Дискотека В Стиле Modern Talking (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138691.jpg" />
 </div>
 
 
@@ -540,7 +714,7 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138416.jpg" />
 </div>
 
 
@@ -569,7 +743,7 @@ VA - Shazam Хит-парад Russia Top 100 Декабрь (2020) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138226.jpg" />
 </div>
 
 
@@ -583,198 +757,6 @@ VA - Shazam Хит-парад Russia Top 100 Декабрь (2020) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:278C54607DB3755B04514BF3D3291FB7C65D8909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970653   (137891) от 31.12.2015
-
-VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 276 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Натали - Новогодние игрушки (03:44)
-002. Белый день - Новый год (03:00)
-003. Emin - Boomerang (02:56)
-004. Frank Sinatra - Jingle Bells jingle bells (02:04)(   Читать дальше...   )Жанр: PopПродолжительность: 05:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158F17911E66F111CCA46E646AC1A32691E1485E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196025   (137621) от 31.12.2017
-
-VA - Новогоднее Настроение: Русский Популярный Сборник (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137621.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Инфинити - Увлечение
-002. Serebro - В Космосе
-003. Полина Гагарина - Обезоружена
-004. Настя Задорожная - Я Луна(   Читать дальше...   )Жанр: PopПродолжительность: 09:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349167   (137473) от 31.12.2019
-
-VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всех С Наступающим! В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2019 год. Это 5я часть сборника. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Сергей Лазарев — Близко
-02. Макс Барских — Лей Не Жалей (Lavrushkin & Max Roven Remi
-03. Grosu — Луна (Xm Remix) (Radio Edit)
-04. Emin — Ночь Тает В Абсенте(   Читать дальше...   )Жанр: PopПродолжительность: 02:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45ABB217286A636E06FF39F5841C0898D6920914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592062   (136243) от 20.12.2012
-
-VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Grand And Glazunov feat.Ирина Кулькова - Убегаю (Radio Mix)
-02. Dj Nikita Noskow feat Marlena - Время Настало (Radio Edit)
-03. Dj Onegin feat. Олеся Астапова - Тайна
-04. Dj Smash feat. Достучаться До Небес - Мерси Баку
-05. Gypsy - Джинсы
-06. Larson - Прости Меня Если Сможешь
-07. Lissa Wassabi - Громче
-08. MC Zali feat. Кира Лондон - Далеко
-09. MC Zali feat. Кира Лондон - Мальчик Мой
-10. Misty - Я Верю В Твою ЛюбовьЖанр: Pop, DanceПродолжительность: 02:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593612   (134899) от 24.12.2012
-
-VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134899.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Баженова - Все О Чем Мечтаю
-002. Анжелика Агурбаш - Для Тебя
-003. Джиган - Нас Больше Нет (Michael Yousher Remix)
-004. Перестрелки - Глаза
-005. Леонид Агутин И Thomas N'evergreen - Ай-Яй-Яй
-006. Snookers - Ready 2 Party (Stefy De Cicco Radio Mix)
-007. Жасмин, Николай Басков, Сергей Лазарев, Зара И Слава - Как В Детстве
-008. Brandy - Wildest Dreams
-009. Fly Project feat. MC Zali & Trinity - Певица Из Села
-010. Паулина Анис - Ангел Хранитель(   Читать дальше...   )Жанр: РорПродолжительность: 12:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED025013388037E1B3F122B2D845AC913F8BA7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593609   (134880) от 24.12.2012
-
-VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Лазарев - Слезы В Моём Сердце
-02. Anastacia - One
-03. 5sta Family - Пуэрто Рико
-04. August Rush feat. Natalie Voice - So Many Times
-05. Светлана Светикова - Буду
-06. Lovers vs. Lanfranchi & Farina - Think
-07. Размер Project - Водка Стайл
-08. Manian feat. Carlprit - Don't Stop The Dance (Video Edit)
-09. Нюша - Queen Of The Night
-10. Medina - Fool (I Feel Bad For You)Жанр: РорПродолжительность: 05:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
 ```
 
 https://mybot314.ru/tekegram_catalog/

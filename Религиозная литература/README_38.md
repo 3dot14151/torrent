@@ -1,3 +1,81 @@
+###  Публикация: 1524309   (745190) от 15.01.2022
+
+А. Мудрова (сост.) | Православный календарь. Церковные праздники, именины. Праздничные тропари и кондаки (2016) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга должна быть в каждой православной семье. И не важно, давно ли вы стоите на пути православной веры или только что обратились к ней. Цель нашего календаря – стать вашим подсказчиком и помощником на каждый день православного года. Он расскажет, чем знаменателен данный день, дан перечень святых, память которых празднуется данного числа. В дни непереходящих (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE00157F0DF5476BB601E459BEE457D7413C02A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019814   (743892) от 27.05.2016
+
+К. Василевский | Ислам на службе контрреволюции (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор в своей работе следовал установке, данной К. Марксом, о том, что — «ученые достаточно объяснили мир, наша задача — его изменить»... Под этим углом здесь сделана попытка — вскрыть реакционную сущность ислама и показать трудящимся массам его контрреволюционное лицо, замаскированное божественностью, личиной мнимой прогрессивности и т. д.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0C1D0CFE300BCC91BA2E437B2CD21F9F13228B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018622   (743870) от 27.05.2016
+
+М. М. Шахнович, Т. В. Чумакова | Музей истории религии Академии наук СССР и российское религиоведение [1932—1961] (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается история формирования, становления и развития Музея истории религии Академии наук СССР в первые тридцать лет его существования, история борьбы за сохранение учреждения, которое неоднократно стремились закрыть. Издание книги заполняет лакуну в истории отечественной науки, открывая ее неизвестные страницы на основе анализа большого корпуса различных (   Читать дальше...   )Жанр: История, религиоведение, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09827F698401D14365697E0123E04A1D5D75E0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019342   (743799) от 27.05.2016
 
 М. Енишерлов и др. (ред.) | Воинствующее безбожие в СССР за 15 лет. 1917-1932 (1932) [DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743799.jpg" />
+  <img src="Z:/picture/008/save_picture_743799.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743764.jpg" />
+  <img src="Z:/picture/008/save_picture_743764.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743582.jpg" />
+  <img src="Z:/picture/008/save_picture_743582.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743477.jpg" />
+  <img src="Z:/picture/008/save_picture_743477.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743422.jpg" />
+  <img src="Z:/picture/008/save_picture_743422.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742544.jpg" />
+  <img src="Z:/picture/008/save_picture_742544.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742472.jpg" />
+  <img src="Z:/picture/008/save_picture_742472.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742470.jpg" />
+  <img src="Z:/picture/008/save_picture_742470.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742469.jpg" />
+  <img src="Z:/picture/008/save_picture_742469.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742468.jpg" />
+  <img src="Z:/picture/008/save_picture_742468.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742431.jpg" />
+  <img src="Z:/picture/008/save_picture_742431.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742399.jpg" />
+  <img src="Z:/picture/008/save_picture_742399.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742254.jpg" />
+  <img src="Z:/picture/008/save_picture_742254.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742111.jpg" />
+  <img src="Z:/picture/008/save_picture_742111.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741230.jpg" />
+  <img src="Z:/picture/008/save_picture_741230.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741170.jpg" />
+  <img src="Z:/picture/008/save_picture_741170.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741166.jpg" />
+  <img src="Z:/picture/008/save_picture_741166.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741165.jpg" />
+  <img src="Z:/picture/008/save_picture_741165.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741162.jpg" />
+  <img src="Z:/picture/008/save_picture_741162.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741118.jpg" />
+  <img src="Z:/picture/008/save_picture_741118.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741041.jpg" />
+  <img src="Z:/picture/008/save_picture_741041.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740950.jpg" />
+  <img src="Z:/picture/008/save_picture_740950.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740906.jpg" />
+  <img src="Z:/picture/008/save_picture_740906.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D161EA8C0043FB45D21DC336DC2BACAEF321AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087276   (740052) от 07.04.2018
-
-Иаков Ворагинский | Золотая легенда [2 Тома] (2017 - 2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине XIII века доминиканский богослов Иаков Ворагинский (Якопо да Варацце) создал книгу «Легенда о святых», собрав в ней сказания о мучениках, подвижниках веры и великих христианских праздниках. Его сочинение стало одной из самых популярных книг Средневековья и получило название «Золотая легенда» (Legenda Aurea). Уже в XIV веке латинский текст «Золотой легенды» (   Читать дальше...   )Жанр: Жития святыхФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8AE890F9C45DC1642AFB8A345264318F2ABB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397490   (739868) от 21.07.2020
-
-Прп. Паисий Святогорец, Свт. Нектарий Эгинский и др. | Непрестанно молитесь. Советы и мысли святых отцов и современных греческих проповедников (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как научиться молиться непрестанно? Возможно ли это среди многих житейских забот и повседневной суеты? На страницах сборника «Непрестанно молитесь» святые отцы и современные греческие духовники доступными словами расскажут о молитве и о том, как преображается жизнь человека, приступающего к ней.Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7EED8CE2279F88D9E281874BA2951869129CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786631   (737626) от 15.05.2014
-
-Б. П. Кандидов | Легенда о христе в классовой борьбе (1930) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737626.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются методы внедрения легенды о христе в народное сознание через систему воспитания и искусство. Автор доказывает, что религия способствовала угнетению трудящихся масс. В последней части работы рассмотрен вопрос о значении праздников рождества и пасхи в СССР.Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AD60546EDC9A111CC147A473AFA19A709EC561
 ```
 
 https://mybot314.ru/tekegram_catalog/

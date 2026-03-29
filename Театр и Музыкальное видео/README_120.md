@@ -1,3 +1,169 @@
+###  Публикация: 1345513   (166113) от 15.12.2019
+
+Roger Waters - The Wall (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой уникальный сплав реставрированных концертных съемок, документальной хроники, анимационных фрагментов и самых передовых технологий визуального изображения и спецэффектов, Роджер Уотерс также включил кадры из своей автобиографии.01. Missing Presumed Dead
+02. On The Road
+03. In The Flesh?
+04. The Thin Ice(   Читать дальше...   )Производство: Великобритания / Rue 21 ProductionsЖанр: Концерт, ДокументальныйРежиссер: Шон Эванс, роджер УотерсАктеры: Роджер Уотерс, Дэйв Килминстер, Сноуи Уайт, Г.И. Смит, Джон Кэрин, Гарри Уотерс, Грэхэм Броад, Робби Вичофф, Джон Джойс, Пэт ЛеннонПеревод: отсутствуетСубтитры: русские (надписи, тексты писем, диалоги, речь Уотерса со сцены и т.п.)Продолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F96C61881D6176211AE62E0C123119EC0885D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449298   (165522) от 15.12.2020
+
+Сборник клипов - 18 эротических клипов (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: VariousПродолжительность: ~00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A829700102589C6ACF8A65D6B71AC9F080CDC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345660   (165491) от 16.12.2019
+
+Сборник клипов 02 (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за декабрь 201901_Don Diablo ft. Brando - Congratulations
+02_Salt Cathedral - CAVIAR
+03_Sunnery James & Ryan Marciano, Magnificence - Monster
+04_Maryana Ro - Загадай(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 03:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345541   (165481) от 16.12.2019
+
+Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165481.jpg" />
+</div>
+
+
+###  Подробнее
+
+После шестилетнего перерыва Милен Фармер триумфально вернулась на сцену, дав серию концертов в знаменитом парижском La Defense Arena — самом большом зале Европы. В программу вошли как уже любимые публикой хиты, так и песни из нового альбома.Производство: Франция / Stuffed Monkey, Sony MusicЖанр: Pop, КонцертРежиссер: Франсуа АнссСубтитры: ОтсутствуютПродолжительность: 02:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345862   (165059) от 17.12.2019
+
+АГОНЬ - По темным улицам (2019) WEB-DL [VP9/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот релиз должен был состоятся в 2011 году под брендом Quest Pistols, но выходит спустя 8 лет в составе группы АГОНЬ в то самое время, когда в музыкальном мире рефлексировать о прошлом модно.
+Сингл «По темным улицам» авторства группы «Босиком по солнцу» - ностальгический хит нулевых, который нашел отклик в сердцах тех, кто встретил свою юность в начале нового тысячелетия. (   Читать дальше...   )Производство: Secret Service Digital & Publishing LTDЖанр: Поп музыкаПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4672524948EA012282520BC8DF071D5C84B0FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516935   (164319) от 13.12.2021
+
+Квартирник НТВ у Маргулиса. Дана Соколова  (11.12.2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя Даны Соколовой стало известно в 2015 году после выхода шоу «Молодая кровь», организованного одним из самых популярных музыкальных лейблов страны. Ее мощный голос и отличительный тембр сложно спутать с чьим-либо, однако удивляет она не только вокалом, но и экстравагантной внешностью. В гостях у Евгения Маргулиса рок-исполнительница исполнила свои самые популярные (   Читать дальше...   )00:00:04 Вера
+00:04:35 Глаза
+00:08:59 Пустота
+00:14:33 Небосвод(   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D5325E29A1977A2350B55576FB89F950EE20E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346065   (164283) от 18.12.2019
 
 Полина Гагарина - Смотри (2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +172,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164283.jpg" />
 </div>
 
 
@@ -32,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163239.jpg" />
 </div>
 
 
@@ -61,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162963.jpg" />
 </div>
 
 
@@ -87,7 +253,7 @@ Ennio Morricone: Peace Notes - Live in Venice (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162579.jpg" />
 </div>
 
 
@@ -116,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162233.jpg" />
 </div>
 
 
@@ -143,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162224.jpg" />
 </div>
 
 
@@ -169,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161960.jpg" />
 </div>
 
 
@@ -198,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161134.jpg" />
 </div>
 
 
@@ -227,7 +393,7 @@ Def Leppard: Hits Vegas - Live at the Planet Hollywood (2020) BDRip [H.265/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160813.jpg" />
 </div>
 
 
@@ -253,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160545.jpg" />
 </div>
 
 
@@ -280,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160437.jpg" />
 </div>
 
 
@@ -307,7 +473,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160400.jpg" />
 </div>
 
 
@@ -333,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160226.jpg" />
 </div>
 
 
@@ -362,7 +528,7 @@ Helloween - Live at Budokan (2023) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160146.jpg" />
 </div>
 
 
@@ -392,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159863.jpg" />
 </div>
 
 
@@ -419,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159853.jpg" />
 </div>
 
 
@@ -446,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159851.jpg" />
 </div>
 
 
@@ -473,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159847.jpg" />
 </div>
 
 
@@ -500,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159843.jpg" />
 </div>
 
 
@@ -527,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159684.jpg" />
 </div>
 
 
@@ -541,169 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6721032F071982FD879067D2049E94F142207E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599888   (159292) от 25.12.2022
-
-Квартирник у Маргулиса. Группа 7Б (24.12.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камерный концерт рок-группы «7Б» на «Квартирнике». Официальным днем рождения коллектива считается 8 марта 2001 года. Дебютный альбом «Молодые ветра» мгновенно покорил множество музыкальных хит-парадов, практически все песни стали хитами, а композиция с одноименным названием стала своеобразной визитной карточкой группы. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:06  Я пришел, чтобы петь
-00:05:00  Осень
-00:12:08  Эльдорадо
-00:20:19  Владивосход(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676282   (158926) от 12.11.2023
-
-Елена Север. «Услышь меня» (2023) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт Елены Север. Это первый сольный концерт певицы, к которому она шла много лет, и одновременно удивительное шоу: сцена и весь зрительный зал с помощью мэппинговых технологий будут перевоплощаться в каждом номере.
-На сцене прозвучат как сольные композиции Елены Север, так и те, что она исполняет в дуэте с популярными артистами российской эстрады. Поздравить (   Читать дальше...   )01 - ЕЛЕНА СЕВЕР - С ума
-02 - ЕЛЕНА СЕВЕР - Услышь меня
-03 - ЕЛЕНА СЕВЕР и СТАС ПЬЕХА - О тебе
-04 - ЕЛЕНА СЕВЕР - Сны(   Читать дальше...   )Жанр: POPЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676183   (158901) от 12.11.2023
-
-IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: K-PopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594237   (158900) от 26.12.2022
-
-Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand made smoother]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphonic Terror - Live at Wacken - концертный альбом немецкой хэви металл группы Accept, записаный с симфоническим оркестром 2 августа 2017 года на фестивале Wacken Open Air. Выпущен 23 ноября 2018 года на Nuclear Blast.Производство: Nuclear BlastЖанр: Heavy MetalЯзык: АнглийскийПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5537F49EED0C6DC3B7EC209D893F7CE1D96A6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967169   (158654) от 20.12.2015
-
-Праздничный концерт ко Дню работника органов безопасности РФ (19.12.2015) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция из Государственного Кремлевского Дворца праздничного концерта к Дню работника органов безопасности Российской Федерации. Вступительное слово президента РФ В.В.ПутинаПроизводство: Россия, Первый каналЖанр: КонцертПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716916180A385232D7F50F05FC48BA05A03A4348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967254   (158448) от 21.12.2015
-
-ЛИГАЛАЙЗ - КАРАВАН (feat. Андрей Гризли, Ika & Art Force Crew) (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэпер Лигалайз, который намерен выпустить первый альбом после десятилетнего перерыва, опубликовал  живописное новое видео «Караван», где главным образом манифестируется собственно его возвращение.Производство: Россия, StarProЖанр: Русский РэпРежиссер: Константин ЧерепковПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
 ```
 
 https://mybot314.ru/tekegram_catalog/

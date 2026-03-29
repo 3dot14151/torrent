@@ -1,3 +1,111 @@
+###  Публикация: 835012   (986505) от 02.01.2016
+
+Приключения Шерлока Холмса и доктора Ватсона: Собака Баскервилей (1981) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труп Чарльза Баскервиля обнаруживают неподалеку от его родового поместья. Выражение нечеловеческого ужаса на лице покойника и следы крупной собаки поблизости заставляют вспомнить старинную легенду о проклятии, тяготеющем над родом Баскервилей. Шерлоку Холмсу предстоит докопаться до истины…Жанр: Криминал, ДетективРежиссер: Игорь МасленниковАктеры: Василий Ливанов, Виталий Соломин, Рина Зеленая, Ирина Купченко, Никита Михалков, Алла Демидова, Светлана Крючкова, Александр Адабашьян, Борислав Брондуков, Евгений Стеблов...Продолжительность: 02:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2678780323F16CD1FEF92BF1DFD3FE59A1127E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971303   (986499) от 02.01.2016
+
+Марсианин / The Martian (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного...Производство: США, Великобритания, 20th Century Fox Film Corporation, Genre FilmsЖанр: Фантастика, ПриключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Чиветель Эджиофор, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель ХенниПеревод: Дублированный (iTunes)Язык субтитров: Русский (Full, Forced), Украинский (Full, Forced), АнглийскийПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5E56FE63223FF6AA95A34F1E3927992611C56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610115   (986389) от 01.02.2013
+
+MultiBoot USB X8 afin 8 [Русский / Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультизагрузочный USB носитель для сервисного обслуживания, резервного копирования, востановления разделов жестких дисков, лечения от вирусов, сброса "забытых" паролей и др.
+В составе раздачи в папке Tools имеется набор необходимых утилит и инструкция по созданию мультизагрузочной флешки.
+
+Внимание!
+НЕ устанавливается и НЕ запускается из операционной системы! Исключение составляют Startup Tools из состава Hiren's Boot CD.Название программы: MultiBoot USB X8 afinЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612263   (986387) от 01.02.2013
+
+Дублёр (2012) [H.264/720p-LQ] BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой нашей истории — успешный актер, звезда шоу-бизнеса Игорь Успенский. Его жизнь — сплошные съемки, концерты, презентации, корпоративы, интервью и светские тусовки. Он вынужден «крутиться» день и ночь, у него нет выходных и праздников. А его очаровательная жена и прекрасная дочка видят его в лучшем случае поздно ночью, когда он приезжает домой, чтобы поспать (   Читать дальше...   )Производство: Enjoy MoviesЖанр: КомедияРежиссер: Евгений АбызовАктеры: Александр Ревва, Дмитрий Хрусталев, Людмила Артемьева, Кристина Асмус, Татьяна Орлова, Ксения Буравская, Варвара Малкова, Александра Кимаева, Евгений Шиманович, Алексей РязанцевПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E29BA096BFAF8DA8B27CBBE6E0ADF560CBCC1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354569   (985651) от 24.01.2020
 
 Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 01.2020 2 DVD
@@ -6,7 +114,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy® 01.2020 2 DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985651.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985647.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985642.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Kaspersky Total Security 2016 16.0.0.614 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985315.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ OMSI2: Steam Edition (2013) [En/Ge/Fr] (2.2.032/dlc) SteamRip MOGLi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985246.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Spectrasonics Omnisphere 2 2.0.3d [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985236.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985230.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ SamDrivers 12.30 от 08.01.2010 [Eng, Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985081.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (e) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985033.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ The Amazing Spider-Man [Ru] (Steam-Rip/1.0.1/4 DLC) 2012 | R.G. GameWorks
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985028.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984485.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ GoodbyeDPI.0.1.6. Launcher-3.3 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984300.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984296.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984292.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ Kaspersky World 1.3.8.99 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983556.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ Primal Fears [Ru/En/Multi4] (RePack/1.0.489) 2013 | Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983546.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983378.jpg" />
 </div>
 
 
@@ -459,7 +567,7 @@ Apple отказалась от планов по шифрованию резе�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983301.jpg" />
 </div>
 
 
@@ -485,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983233.jpg" />
 </div>
 
 
@@ -511,7 +619,7 @@ System USB-Flash 10 v.13.1.0.2961 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983127.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ Microsoft Windows 7 SP1-u with IE11 (2 x 3in1) - DG Win&Soft 2020.01 (en-US, ru-
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983126.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Project I.G.I. (2000) [Ru/Multi] (1.0) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982626.jpg" />
 </div>
 
 
@@ -574,114 +682,6 @@ Project I.G.I. (2000) [Ru/Multi] (1.0) Repack R.G. Revenants
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF2DBA73C33C2878F712B5483B9CDE30DE706F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972068   (982616) от 05.01.2016
-
-Проекты - VideoHive - 3D Portrait (v.1) - 13766531 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для лёгкой реализации анимированных портретов. С помощью данного готового проекта вы сможете с лёгкостью анимировать статичные фотографии(портреты) не прилагая особого труда.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C349126FDD3026E937CBBDB1054C9A1A81464B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972429   (982606) от 05.01.2016
-
-IGI 2: Covert Strike / I.G.I. 2: Скрытый удар (2003) [Ru/Multi] (1.3) Rip R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Джонс – бывший десантник специального подразделения SAS, ныне – суперагент секретной организации IGI. Его задача – расстроить планы крупнейшей террористической организации и предотвратить начало Третьей мировой войны. Три его главных союзника – оружие, тактика и маскировка. В его распоряжении – компьютер-картограф из специального оборудования IGI и всевозможные (   Читать дальше...   )Тип издания: RipРазработчик: Innerloop StudiosЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B7B40284EF4A0C8074D4291CD1E71B6006EF91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613812   (982145) от 04.02.2013
-
-Vit Registry Fix Pro 12.5.0 RePack (& portable) by KpoJIuK [MULTi / Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vit Registry Fix - утилита для устранения ошибок в реестре. Так как после удаления програм в реестре оставляются различные ненужные записи, то со временем этих записей становится все больше и больше и это является причиной долгих задержек перед загрузкой програм, снижение общей производительности системы и других ошибок. Vit Registry Fix находит эти ошибки и разделяет их на категории (ActiveX\COM,Типы файлов, AppPath, автозагрузка, Shared DLL, Uninstall, History list, меню ПУСК, Шрифты, Справка, Звуки, Ключи Software (Deep scan) и дополнительно ищет битые ярлыки на дисках. Также есть возможность ручного удаления ключей из разделов Software (как для HKCU так и для HKLM), создания резервных копий перед удалением ошибок а также можно создать список исключения.
-
-(   Читать дальше...   )Название программы: Vit Registry Fix ProЯзык интерфейса: русский, английский, украинский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613748   (982137) от 04.02.2013
-
-Dead Space 3 [XBOX360] [PAL] [Ru] [LT+2.0] (XGD3 / 15574) 2013 | R.G.X360CLUB
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982137.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Dead Space 3 Айзек Кларк и суровый солдат Джон Карвер отправляются в космическое путешествие, чтобы узнать о происхождении некроморфов. После жесткой посадки на ледяной планете Тау Волантис Айзек прочесывает окрестности в поисках материалов и деталей, чтобы создать и модифицировать оружие и средства выживания.
-
-У Айзека есть возможность навсегда покончить с некроморфами, но для этого нужно пережить лавины, восхождения на ледяные вершины и другие опасности замерзшей планеты. Враги сильны как никогда, но бороться за выживание человечества можно не только в одиночку, но и вместе с другом. В каждом режиме есть свои сюжетные и геймплейные нюансы, а новая технология позволяет быстро войти и выйти из многопользовательской игры. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBCA44CBDD44330C3AE66368F1EB9D43DA62787
 ```
 
 https://mybot314.ru/tekegram_catalog/

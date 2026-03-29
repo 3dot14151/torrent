@@ -6,7 +6,7 @@ Mozilla Firefox 46.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859326.jpg" />
+  <img src="Z:/picture/008/save_picture_859326.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Privacy Eraser Free 4.10.7 Build 1880 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859306.jpg" />
+  <img src="Z:/picture/008/save_picture_859306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v5 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859297.jpg" />
+  <img src="Z:/picture/008/save_picture_859297.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859294.jpg" />
+  <img src="Z:/picture/008/save_picture_859294.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859289.jpg" />
+  <img src="Z:/picture/008/save_picture_859289.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ CatchAll - The Attraction To Earth (2015) [FLAC|Lossless|WEB-DL|tracks] <Psybien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859278.jpg" />
+  <img src="Z:/picture/008/save_picture_859278.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Easy Disc Burner 4.7.3.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859273.jpg" />
+  <img src="Z:/picture/008/save_picture_859273.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Free Studio 6.6.5.323 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859272.jpg" />
+  <img src="Z:/picture/008/save_picture_859272.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859270.jpg" />
+  <img src="Z:/picture/008/save_picture_859270.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859269.jpg" />
+  <img src="Z:/picture/008/save_picture_859269.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Wise Registry Cleaner 9.13.587 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859268.jpg" />
+  <img src="Z:/picture/008/save_picture_859268.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859218.jpg" />
+  <img src="Z:/picture/008/save_picture_859218.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859216.jpg" />
+  <img src="Z:/picture/008/save_picture_859216.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Startail - Artist Focus 66 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859215.jpg" />
+  <img src="Z:/picture/008/save_picture_859215.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Cookie 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859213.jpg" />
+  <img src="Z:/picture/008/save_picture_859213.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859206.jpg" />
+  <img src="Z:/picture/008/save_picture_859206.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Wu-Latino - The New Chamber (2006) Mixtape [MP3|192 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859204.jpg" />
+  <img src="Z:/picture/008/save_picture_859204.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Aes Dana feat. MikTek - The Unexpected Hours (2016) Ultimae Records [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859201.jpg" />
+  <img src="Z:/picture/008/save_picture_859201.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Skype 7.22.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859197.jpg" />
+  <img src="Z:/picture/008/save_picture_859197.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Skype 7.22.32.104 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859196.jpg" />
+  <img src="Z:/picture/008/save_picture_859196.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ PDF-XChange Viewer Pro 2.5.317.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859195.jpg" />
+  <img src="Z:/picture/008/save_picture_859195.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Logistics - Electric Sun (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859194.jpg" />
+  <img src="Z:/picture/008/save_picture_859194.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_859186.jpg" />
+  <img src="Z:/picture/005/save_picture_859186.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Mirillis Splash 2.0.2.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859185.jpg" />
+  <img src="Z:/picture/008/save_picture_859185.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859147.jpg" />
+  <img src="Z:/picture/008/save_picture_859147.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Sound Apparel - Magnum Opus Vol.2 (Greatest Hits-Remastered) (2017) [MP3|320 Kbp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859145.jpg" />
+  <img src="Z:/picture/008/save_picture_859145.jpg" />
 </div>
 
 

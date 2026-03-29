@@ -1,3 +1,173 @@
+###  Публикация: 1204480   (784522) от 06.02.2018
+
+Enigma - Sadeness (2017) Remix [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sadeness
+2. Dj Nik Remix
+3. Up MusicЖанр: HouseПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AA3E2212E742D720E3C3B2946233A487E79457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389137   (784466) от 10.06.2020
+
+VA - не Громкие новинки недели 70 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alions - На этой станции метро (3:55)
+2. ARUBA ICE - Выпускной (3:28)
+3. Barinova - Самый-Самый (Taranoff Remix) (4:41)
+4. Caramel - Без Чувств (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8D06E438F59E9420FFC34413913B5E9285FA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204624   (784234) от 07.02.2018
+
+Goldroom - Till Sunrise (2017) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Till Sunrise
+2. Epatage Soul Remix
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2138534F71287BEAD27F20D9D8639256C2608CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204423   (784233) от 07.02.2018
+
+Arilena Ara - Nentori (2017) Remix [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nentori
+2. Mike Temoff Remix
+3. Up MusicЖанр: HouseПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEA4CC4FE2F630E539222A3CB89E0CB162977CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204434   (784232) от 07.02.2018
+
+The Beloved - Sweet Harmony (2017) Remix [MP3|192 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784232.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sweet Harmony
+2. B&G Remix
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8C3F4E328BB497E1E12D36FF748DE8C36284D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204628   (784228) от 07.02.2018
+
+Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Faded
+2. Sara Farel
+3. Edo remix
+4. Up MusicЖанр: Deep HouseПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204615   (784225) от 07.02.2018
 
 VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русский Рок, Авторская Песня>
@@ -6,7 +176,7 @@ VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русски�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784225.jpg" />
 </div>
 
 
@@ -35,7 +205,7 @@ VA - Зайцев.Нет: Февраль (Музыкальные Новинки)
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784223.jpg" />
 </div>
 
 
@@ -64,7 +234,7 @@ VA - 2000s Party Hits (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784178.jpg" />
 </div>
 
 
@@ -93,7 +263,7 @@ VA - Cosmotronica & Space Disco Vol.7 (2018) [MP3|320 Kbps] <House, Spacesynth, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784070.jpg" />
 </div>
 
 
@@ -122,7 +292,7 @@ VA - Музыка, Которая То, Что Надо (Sound Clinic - Just Rel
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784028.jpg" />
 </div>
 
 
@@ -151,7 +321,7 @@ Demo - Солнышко (2017) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783691.jpg" />
+  <img src="Z:/picture/008/save_picture_783691.jpg" />
 </div>
 
 
@@ -179,7 +349,7 @@ VA - Дискотека 2000х Dance Club - The Best! Лучшие танцев�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783687.jpg" />
+  <img src="Z:/picture/008/save_picture_783687.jpg" />
 </div>
 
 
@@ -208,7 +378,7 @@ VA - ЕвроХит Топ 40 Europa Plus 12.06.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783658.jpg" />
+  <img src="Z:/picture/008/save_picture_783658.jpg" />
 </div>
 
 
@@ -237,7 +407,7 @@ VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783565.jpg" />
+  <img src="Z:/picture/008/save_picture_783565.jpg" />
 </div>
 
 
@@ -266,7 +436,7 @@ VA - Fitnes Hits (2018) [MP3|320 Kbps] <Pop, House, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783475.jpg" />
+  <img src="Z:/picture/008/save_picture_783475.jpg" />
 </div>
 
 
@@ -295,7 +465,7 @@ VA - The Official UK Top 40 Singles Chart 12.06.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783413.jpg" />
+  <img src="Z:/picture/008/save_picture_783413.jpg" />
 </div>
 
 
@@ -324,7 +494,7 @@ VA - Громкие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783274.jpg" />
+  <img src="Z:/picture/008/save_picture_783274.jpg" />
 </div>
 
 
@@ -353,7 +523,7 @@ VA - House Clinic (2018) [MP3|320 Kbps] <House, Electro House, Big Room>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783252.jpg" />
+  <img src="Z:/picture/008/save_picture_783252.jpg" />
 </div>
 
 
@@ -382,7 +552,7 @@ VA - Ham!d Production January 2018 [MP3|320 Kbps] <Dance, Pop, Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783238.jpg" />
+  <img src="Z:/picture/008/save_picture_783238.jpg" />
 </div>
 
 
@@ -411,7 +581,7 @@ VA - Sensuality x San Valentino (Deezer Playlist) (2018) [MP3|320 Kbps] <Pop, R&
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783221.jpg" />
+  <img src="Z:/picture/008/save_picture_783221.jpg" />
 </div>
 
 
@@ -440,7 +610,7 @@ VA - Top 50: Зайцев FM / Февраль (2018) [MP3|320 Kbps] <Pop, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783076.jpg" />
+  <img src="Z:/picture/008/save_picture_783076.jpg" />
 </div>
 
 
@@ -469,7 +639,7 @@ VA - Зайцев.нет Лучшие новинки Июня (2020) [MP3|320 Kb
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782991.jpg" />
+  <img src="Z:/picture/008/save_picture_782991.jpg" />
 </div>
 
 
@@ -498,7 +668,7 @@ VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782967.jpg" />
+  <img src="Z:/picture/008/save_picture_782967.jpg" />
 </div>
 
 
@@ -527,7 +697,7 @@ VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782669.jpg" />
+  <img src="Z:/picture/008/save_picture_782669.jpg" />
 </div>
 
 
@@ -556,7 +726,7 @@ VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782532.jpg" />
+  <img src="Z:/picture/008/save_picture_782532.jpg" />
 </div>
 
 
@@ -570,179 +740,6 @@ VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E05EA2DF4A246D8C9F227DC47BF90EC125E7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206125   (782487) от 13.02.2018
-
-VA - Best Hits 80s от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Bolton  -  Time, Love And Tenderness  5:30
-02.  Sandra  -  Midnight Man  3:04
-03.  Bad Boys Blue  -  Gimme Gimme Your Lovin  3:50
-04.  Roxette  -  Dangerous  3:49(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAAC9B06FE17B4B2E093F5CEDF39ECEB05403E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206581   (782115) от 14.02.2018
-
-VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-02.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
-03.  Merk Kremont  -  Sad Story Out Of Luck  3:32
-04.  Imagine Dragons  -  Whatever It Takes  3:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1C239D8DB37F6A8F7A2778FB65EE1F76EC8DB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206478   (782111) от 14.02.2018
-
-VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп, Рок, Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782111.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх! & Astero - Когда мы были молодыми
-002. Марина Капуро & Aнсамбль Яблоко - Happy New Year
-003. Руки Вверх vs. Ser Twister - С Новым Годом! (DJ Prezzplay MashUp)
-004. Тараканы! - Stacy Hairy (feat. Иван Глобин & Дарья Глобина)(   Читать дальше...   )Жанр: Поп, Рок, ШансонПродолжительность: 06:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7EF11DDC8D9E5C601026908B7A45C78671DAB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206341   (781966) от 14.02.2018
-
-Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aicha
-2. Brooklyn Edit
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5E720F1520995FE13B908BCE93C4066A7044D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206905   (781722) от 15.02.2018
-
-VA - Peoples Choise: Pop Rock Retrospective (2018) [MP3|320 Kbps] <Pop Rock, Retro 80's>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Maggie Macneal  -  When You're Gone  4:30
-002.  Hollies  -  Sandy  4:00
-003.  Ike & Tina Turner  -  Baby Get It On  3:14
-004.  B.T. Express  -  Do It  5:50(   Читать дальше...   )Жанр: Pop Rock, Retro 80'sПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFDA7892AFCF99CDCCD8D330AC0EAC3E416DD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206974   (781278) от 16.02.2018
-
-VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jason Derulo feat. French Montana  -  Tip Toe  3:08
-02.  MARUV & Boosin  -  Drunk Groove  3:47
-03.  Ed Sheeran  -  Perfect (Robin Schulz Remix)  4:10
-04.  Rita Ora  -  Anywhere  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

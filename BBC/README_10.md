@@ -6,7 +6,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742489.jpg" />
+  <img src="Z:/picture/008/save_picture_742489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Чудеса живой природы / Nature's Great Events (2005) DVDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742281.jpg" />
+  <img src="Z:/picture/008/save_picture_742281.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Мир природы - Горы тропических дождей  / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740912.jpg" />
+  <img src="Z:/picture/008/save_picture_740912.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740833.jpg" />
+  <img src="Z:/picture/008/save_picture_740833.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740309.jpg" />
+  <img src="Z:/picture/008/save_picture_740309.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740094.jpg" />
+  <img src="Z:/picture/008/save_picture_740094.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC: Серенгети / Serengeti II (2021) WEB-DL [H.264/1080p] (сезон 2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738347.jpg" />
+  <img src="Z:/picture/008/save_picture_738347.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ BBC. Брачная Игра / The Mating Game (2021) WEB-DL [H.265/2160p] [4K, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738341.jpg" />
+  <img src="Z:/picture/008/save_picture_738341.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC: Да будет вода / There Will Be Water (2016) WEB-DLRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732862.jpg" />
+  <img src="Z:/picture/008/save_picture_732862.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ BBC. Horizon. Гибель океана / The Death of the Oceans (2010) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732555.jpg" />
+  <img src="Z:/picture/008/save_picture_732555.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BBC: Удивительный мир крови / The Wonderful World of Blood w
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730670.jpg" />
+  <img src="Z:/picture/008/save_picture_730670.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730376.jpg" />
+  <img src="Z:/picture/008/save_picture_730376.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729938.jpg" />
+  <img src="Z:/picture/008/save_picture_729938.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729750.jpg" />
+  <img src="Z:/picture/008/save_picture_729750.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729513.jpg" />
+  <img src="Z:/picture/008/save_picture_729513.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729456.jpg" />
+  <img src="Z:/picture/008/save_picture_729456.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729224.jpg" />
+  <img src="Z:/picture/008/save_picture_729224.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728637.jpg" />
+  <img src="Z:/picture/008/save_picture_728637.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728590.jpg" />
+  <img src="Z:/picture/008/save_picture_728590.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC. Барокко! От собора св.Петра до собора св.П
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728464.jpg" />
+  <img src="Z:/picture/008/save_picture_728464.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727316.jpg" />
+  <img src="Z:/picture/008/save_picture_727316.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724462.jpg" />
+  <img src="Z:/picture/008/save_picture_724462.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723966.jpg" />
+  <img src="Z:/picture/008/save_picture_723966.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BBC: Третья мировая война: взгляд из командно�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723433.jpg" />
+  <img src="Z:/picture/008/save_picture_723433.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719930.jpg" />
+  <img src="Z:/picture/008/save_picture_719930.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719875.jpg" />
+  <img src="Z:/picture/008/save_picture_719875.jpg" />
 </div>
 
 

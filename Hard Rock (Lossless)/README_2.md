@@ -1,3 +1,61 @@
+###  Публикация: 1438348   (1041185) от 08.01.2021
+
+Corey Taylor - GMFT (2020) [FLAC|Lossless|image + .cue] <Alt. Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HWY 666
+02. Black Eyes Blue
+03. Samantha's Gone
+04. Meine Lux(   Читать дальше...   )Жанр: Alt. Rock, Hard RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D5F5F71160271B9D86FAC224BD89A1D8BE0C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438397   (1041174) от 08.01.2021
+
+Sammy Hagar & The Circle - Lockdown 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Feng Shui (01:13)
+02. Won't Get Fooled Again (02:09)
+03. Good Enough (02:04)
+04. Three Little Birds (02:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CC326D5F0ABEAC6BFF8AF3B5821BE1AF5F6E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438449   (1041157) от 08.01.2021
 
 Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Restless Spirits - Restless Spirits (2019) Jараnеsе Еditiоn [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041157.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Magnum - Dance of the Black Tattoo (2021) Compilation [FLAC|Lossless|tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041113.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040920.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Brannon - Heartbreak Is Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040633.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040606.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040605.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040604.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Child's Play - Long Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040596.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040593.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040374.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Eclipse - Viva La VicTOURia (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040371.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Robin McAuley - Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039910.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ All My Shadows - Eerie Monsters (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039886.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Rolling Stones - GRRR Live! (2023) SHM-CD, 2xCD, Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039655.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ The Sweet - At The Beeb: The BBC Radio Sessions (Remastered 2023) (2023) [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039620.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Pelegrin - Ways of Avicenna (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychede
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039403.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Those Damn Crows - Inhale/Exhale (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039402.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039398.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Toy Cannon - Forever One (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039392.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Bad Touch - Kiss The Sky (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039341.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Briar - Reach Out - The Lost 1988 Album (2018) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039131.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ The Legendary - Warlord (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039129.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Blond Viper - Boom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039127.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Lynch Mob - Wicked Sensation Reimagined (1990) 30th Anniversary Edition, Remaste
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038812.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Lynch Mob - Wicked Sensation Reimagined (1990) 30th Anniversary Edition, Remaste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A3BA06C9D0C19C7A40DC7919A1A7196E26DCBC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440682   (1038516) от 18.01.2021
-
-House Of Lords - Nеw Wоrld - Nеw Еуеs (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World - New Eyes
-02. Change (What's It Gonna Take)
-03. One More
-04. Perfectly (Just You and I)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C392C864AE785A615E1448863C5913860F8BDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440675   (1038513) от 18.01.2021
-
-H.E.A.T - II (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Your Body
-02. Dangerous Ground
-03. Come Clean
-04. Victory(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DCCD2E562F06E91AB1B7B95A632F2259DCC681
 ```
 
 https://mybot314.ru/tekegram_catalog/

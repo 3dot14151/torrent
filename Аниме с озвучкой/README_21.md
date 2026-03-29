@@ -1,3 +1,29 @@
+###  Публикация: 1266426   (747688) от 10.02.2019
+
+Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Моя единственная любовь — младшая сестрёнка, хоть она и не сестрёнка [2018, TV, 10 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судзука Нагами – младшая сестра Ю Нагами. Она умная и красивая девятиклассница, её даже избрали главой ученического совета. Написанный ей роман о любви девушки к своему старшему брату получает литературную премию. Однако Судзука не хочет, чтобы кто-то знал о её увлечениях, поэтому она уговаривает своего брата выдать себя за молодого писателя под псевдонимом Тикай (   Читать дальше...   )Жанр: комедия, романтика, эттиРежиссер: Фурукава ХироюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 10 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B73E998782EDF88369AFB499D75FF5E726F74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524068   (746377) от 14.01.2022
 
 Рыцари и магия | Knight's & Magic [2017, TV, 13 из 13] BDRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746377.jpg" />
+  <img src="Z:/picture/008/save_picture_746377.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746360.jpg" />
+  <img src="Z:/picture/008/save_picture_746360.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745780.jpg" />
+  <img src="Z:/picture/008/save_picture_745780.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Coppelion / Коппелион [2013, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744967.jpg" />
+  <img src="Z:/picture/008/save_picture_744967.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744795.jpg" />
+  <img src="Z:/picture/008/save_picture_744795.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744794.jpg" />
+  <img src="Z:/picture/008/save_picture_744794.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Shingeki no Kyojin / Attack on Titan / Атака титанов / Вторже�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743154.jpg" />
+  <img src="Z:/picture/008/save_picture_743154.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742000.jpg" />
+  <img src="Z:/picture/008/save_picture_742000.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741886.jpg" />
+  <img src="Z:/picture/008/save_picture_741886.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741088.jpg" />
+  <img src="Z:/picture/008/save_picture_741088.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739431.jpg" />
+  <img src="Z:/picture/008/save_picture_739431.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738312.jpg" />
+  <img src="Z:/picture/008/save_picture_738312.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738293.jpg" />
+  <img src="Z:/picture/008/save_picture_738293.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Naruto Shippuuden / Наруто Ураганные Хроники [2007, 1-302 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737848.jpg" />
+  <img src="Z:/picture/008/save_picture_737848.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737717.jpg" />
+  <img src="Z:/picture/008/save_picture_737717.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737495.jpg" />
+  <img src="Z:/picture/008/save_picture_737495.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736302.jpg" />
+  <img src="Z:/picture/008/save_picture_736302.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735496.jpg" />
+  <img src="Z:/picture/008/save_picture_735496.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732610.jpg" />
+  <img src="Z:/picture/008/save_picture_732610.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730206.jpg" />
+  <img src="Z:/picture/008/save_picture_730206.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728086.jpg" />
+  <img src="Z:/picture/008/save_picture_728086.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Argento Soma / Аргенто Сома [2000, TV, 26 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727896.jpg" />
+  <img src="Z:/picture/008/save_picture_727896.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727285.jpg" />
+  <img src="Z:/picture/008/save_picture_727285.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [ТВ-1]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722229.jpg" />
+  <img src="Z:/picture/008/save_picture_722229.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717874.jpg" />
+  <img src="Z:/picture/008/save_picture_717874.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CFB08DB534DFB1E698B20C84DFD8924C324E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791276   (715405) от 30.05.2014
-
-Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] DVDRip 480p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715405.jpg" />
-</div>
-
-
-###  Подробнее
-
-1988 год, магия стала неотъемлемой частью быта человека, но цена её использованию - проклятье. Люди не справляющиеся с силой магии становятся настоящими демонами, что внушают страх одним лишь своим видом. И есть те кто рискуя своей человеческой сущностью готовы истреблять неиствующих. В народе их называют "Смирительные рубашки".Жанр: приключения, мистика, ужасыРежиссер: Сакаки ИтироОзвучка: одноголосая (муж.) FassaDПродолжительность: (3 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386077716CF4947BBDAB782097A151AC9BB70E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

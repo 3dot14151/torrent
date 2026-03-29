@@ -1,3 +1,108 @@
+###  Публикация: 1073286   (345206) от 16.11.2016
+
+Algoriddim djay Pro 1.4.1 (Complete FX Pack) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Algoriddim djay Pro – это программа для управления и микширования музыкальной коллекции.
+Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 ноября 2016Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A43410E8DEAFD093CB2DE955F75FF6CEAF74DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257369   (345174) от 26.10.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345174.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдАктеры: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  Русские SDH,  АнглийскиеПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1FF590170BB595F134701132D777B1DC50FB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257480   (345025) от 26.10.2018
+
+Альфа / Alpha (2018) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345025.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 000 лет назад Земля была холодным и неуютным местом, в котором смерть подстерегала человека на каждом шагу, а жизнь зависела от того, удалось загнать добычу или нет. Молодой охотник из племени, которое по уровню жизни и культуры было одним из самых развитых на планете, оказывается один на один с враждебным миром, полным смертельных опасностей. Ему предстоит взглянуть (   Читать дальше...   )Производство: СШАЖанр: Драма, приключения, семейныйРежиссер: Альберт ХьюзАктеры: Коди Смит-МакФи, Йоуханнес Хёйкьюр Йоуханнессон, Марцин Ковальчик, Йенс Хультен, Наташа Мальте, Спенсер Богерт, Мерседес Де Ла Зерда, Леонор Варела, Морган Фриман, Прия РаджаратнамПеревод: Многоголосый закадровый (iTunes)Субтитры: Русские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 01:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6614184E547DE83D48F7A3FA784F32430C419D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257366   (344888) от 26.10.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344888.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: СШАЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдАктеры: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские форсированные,  Русские,  Русские SDH,  АнглийскиеПродолжительность: 01:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D556B03E12CBAC2FA91EDDD9AE63954C39C7FB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419098   (344828) от 26.10.2020
 
 Yate 6.1 [En]
@@ -6,7 +111,7 @@ Yate 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344828.jpg" />
+  <img src="Z:/picture/008/save_picture_344828.jpg" />
 </div>
 
 
@@ -35,7 +140,7 @@ Piezo 1.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344826.jpg" />
+  <img src="Z:/picture/008/save_picture_344826.jpg" />
 </div>
 
 
@@ -64,7 +169,7 @@ Iridient Developer 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344825.jpg" />
+  <img src="Z:/picture/008/save_picture_344825.jpg" />
 </div>
 
 
@@ -90,7 +195,7 @@ Loopback 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344710.jpg" />
+  <img src="Z:/picture/008/save_picture_344710.jpg" />
 </div>
 
 
@@ -119,7 +224,7 @@ ON1 HDR 2020.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344697.jpg" />
+  <img src="Z:/picture/008/save_picture_344697.jpg" />
 </div>
 
 
@@ -145,7 +250,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344558.jpg" />
+  <img src="Z:/picture/008/save_picture_344558.jpg" />
 </div>
 
 
@@ -172,7 +277,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344550.jpg" />
+  <img src="Z:/picture/008/save_picture_344550.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ Canvas X Draw 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344436.jpg" />
+  <img src="Z:/picture/008/save_picture_344436.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ IINA 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344430.jpg" />
+  <img src="Z:/picture/008/save_picture_344430.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ Wirecast Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344324.jpg" />
+  <img src="Z:/picture/008/save_picture_344324.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ Sublime Text 4.0 Dev build 4090 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344311.jpg" />
+  <img src="Z:/picture/008/save_picture_344311.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ ON1 Portrait AI 2021 v15.0.0.9618 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344296.jpg" />
+  <img src="Z:/picture/008/save_picture_344296.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344204.jpg" />
+  <img src="Z:/picture/008/save_picture_344204.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ CleanMyMac 3.1.2 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344161.jpg" />
+  <img src="Z:/picture/008/save_picture_344161.jpg" />
 </div>
 
 
@@ -385,7 +490,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343698.jpg" />
+  <img src="Z:/picture/008/save_picture_343698.jpg" />
 </div>
 
 
@@ -412,7 +517,7 @@ Find Any File 2.0 (210)  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343659.jpg" />
+  <img src="Z:/picture/008/save_picture_343659.jpg" />
 </div>
 
 
@@ -439,7 +544,7 @@ Amadeus Pro 2.6.2 (2210) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343658.jpg" />
+  <img src="Z:/picture/008/save_picture_343658.jpg" />
 </div>
 
 
@@ -465,7 +570,7 @@ Studies 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343580.jpg" />
+  <img src="Z:/picture/008/save_picture_343580.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ Cardhop 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343574.jpg" />
+  <img src="Z:/picture/008/save_picture_343574.jpg" />
 </div>
 
 
@@ -521,7 +626,7 @@ BlueHarvest 7 v7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343562.jpg" />
+  <img src="Z:/picture/008/save_picture_343562.jpg" />
 </div>
 
 
@@ -549,7 +654,7 @@ Blocs 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343549.jpg" />
+  <img src="Z:/picture/008/save_picture_343549.jpg" />
 </div>
 
 
@@ -577,7 +682,7 @@ Jettison 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343445.jpg" />
+  <img src="Z:/picture/008/save_picture_343445.jpg" />
 </div>
 
 
@@ -591,115 +696,6 @@ OS X имеет свою философию и некоторые вещи в с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868C45AC3B871A055E3C1DF51B6C00C4BA71DCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330247   (343408) от 09.10.2019
-
-BetterZip 4 v4.2.5 (1558) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
-
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF44DB5B74E66C843CDD4003B03B13325E1D407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257855   (343308) от 27.10.2018
-
-Enolsoft PDF Converter with OCR 4.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enolsoft PDF конвертер с OCR - это эффективный инструмент, который работает для вашего удобства и полностью подходит для получения содержимого из отсканированных PDF или изображений, а также обычных файлов PDF. Он позволяет полностью конвертировать PDF в 15 форматов документов, включая .pages, .key, .pptx, .doc, .docx, .xlsx, .epub, .html, .text, .rtfd, кроме того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: Enolsoft Co., Ltd.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFF487F891028BA0DAB9811F204529A5D59367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257868   (343304) от 27.10.2018
-
-Folx Pro 5 v5.7.13761 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343304.jpg" />
-</div>
-
-
-###  Подробнее
-
-FOLX 5 - Менеджер загрузок для Мас
-
-Folx- бесплатный менеджер загрузок с удобным интерфейсом в стиле Mac OS. Менеджер загрузок предлагает удобную систему управления загрузок, гибкие настройки и т.д
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2AFF52CB3075F0BCB2BCCD4C879F0116125741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257565   (343298) от 27.10.2018
-
-Screenium 3 v3.2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультра-высоким разрешением 4K или 5K дисплея или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E76A5E58BFB488AE8B6121AA2BFA8D5394642E
 ```
 
 https://mybot314.ru/tekegram_catalog/

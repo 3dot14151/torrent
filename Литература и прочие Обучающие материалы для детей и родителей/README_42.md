@@ -1,3 +1,138 @@
+###  Публикация: 746572   (1020986) от 15.04.2021
+
+А. Донченко | Школа над морем (1940) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой рыбацкий поселок на берегу Черного моря. Тут живут герои повести «Школа над морем» — ученики шестого класса. Один из них, Олег Башмачный, случайно узнает, что старый школьный сторож Кажан помогает шпионам переходить границу...
+Об увлекательных, захватывающих событиях вы узнаете, прочитав эту книгу, рассказывающую о мужестве и чести пионеров.Жанр: Детская остросюжетнаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F13023DEC22C9D64F14947321CE42CDAB6ECC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 392443   (1020955) от 15.04.2021
+
+Слово | Звезды. Энциклопедия (1998) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Что есть что" популярна во всем мире. В нее вошли энциклопедические книги для детей, посвященные самым разнообразным предметам, областям знаний и сферам нашей жизни. Издание прекрасно иллюстрировано. Эта серия — победитель конкурсов 2001 года "Лучшие издания XIV ММКВЯ" и "Лучшие книги года" Ассоциации книгоиздателей России.Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3E5885B73470468107BF32FFB647E0E0C84CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350423   (1020889) от 15.04.2021
+
+И.А. Лыкова | Изобразительная деятельность в детском саду: планирование, конспекты занятий, методические рекомендации. Старшая группа (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее пособие содержит систему развивающих занятий изобразительной деятельностью в старшей группе детского сада: приоритетные задачи на учебный год, системное планирование и 96 вариативных конспектов (сценариев) с конкретными методическими рекомендациями.
+Автором представлен новый подход к художественно-творческому развитию детей, в котором гармонично (как на (   Читать дальше...   )Жанр: Практическое пособие, методические указанияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21694A25B643B9886945AD229A638A15CCBA5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462987   (1020875) от 16.04.2021
+
+Сергей Михалков | Я читаю сам! Три поросёнка и другие сказки (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Три поросёнка и другие сказки» С. Михалкова — это отличный способ привить ребёнку любовь к чтению. Впервые знаменитые герои помогут детям научиться бегло читать, ведь в этой книжке большие буквы и слова с ударениями для удобства восприятия текста. А ещё очень много больших цветных иллюстраций.
+Книги из серии «Я читаю сам!» — отличный подарок детям, которые (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804507E603F409755A9DC60C7D1A36FC7F879EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462917   (1020865) от 16.04.2021
+
+Шибел Паундер | Ведьмочки Гламбурга [6 книг] (2018-2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмы жили на нашей планете с самых древних времён. Они варили в огромных котлах вонючие зелья, летали на мётлах, злобно хихикали и непременно держали кошек.
+
+Многие думают, что ведьмы – злые горбоносые старухи, все в бородавках. Носят они какие-то лохмотья, а из головных уборов признают только остроконечные шляпы. Всё это ерунда. Ну, почти всё. Если же вы хотите (   Читать дальше...   )Жанр: Детская литература/Сказка/ПриключенияФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A860CD1E016723C668FC0D19725F88F6150798DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462969   (1020862) от 16.04.2021
 
 Людмила Поликовская | Современная детская энциклопедия. Животные. Птицы и звери (2014) [PDF]
@@ -6,7 +141,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020862.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020856.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020846.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020844.jpg" />
 </div>
 
 
@@ -115,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020843.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020842.jpg" />
 </div>
 
 
@@ -169,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020838.jpg" />
 </div>
 
 
@@ -197,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020835.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020828.jpg" />
 </div>
 
 
@@ -251,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020823.jpg" />
 </div>
 
 
@@ -278,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020819.jpg" />
 </div>
 
 
@@ -306,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020815.jpg" />
 </div>
 
 
@@ -332,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020812.jpg" />
 </div>
 
 
@@ -360,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020763.jpg" />
 </div>
 
 
@@ -386,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020757.jpg" />
 </div>
 
 
@@ -413,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020740.jpg" />
 </div>
 
 
@@ -440,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020730.jpg" />
 </div>
 
 
@@ -468,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020728.jpg" />
 </div>
 
 
@@ -494,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020690.jpg" />
 </div>
 
 
@@ -520,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020689.jpg" />
 </div>
 
 
@@ -548,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020683.jpg" />
 </div>
 
 
@@ -561,141 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B149E4FAE4A80FE7327BFC22E914F905C90EEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463249   (1020682) от 17.04.2021
-
-Сергей Михалков | Добрые сказки. Сказки и стихи для малышей (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020682.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу «Сказки и стихи для малышей» вошли произведения Сергея Владимировича Михалкова: считалочки «Котята» и «Пальчики», игралочка «Поиграем-угадаем!», стихотворения «Трезор», «Сладкоежки», «Комар-комарец», а также маленькие сказки «Волшебное слово», «Пеликанье воспитание», «Белые перчатки» и другие произведения. Стихи С. Михалкова дети легко запоминают и с удовольствием (   Читать дальше...   )Жанр: Детская литература/Сказки/СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC0CDCFBE8797A2B39072307666C0864B1FCC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463269   (1020675) от 17.04.2021
-
-Наталья Павлова | Азбука с крупными буквами (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020675.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Азбука с крупными буквами» создана для нового поколения малышей.
-Известный педагог, автор многих популярных и любимых детьми учебных пособий – Наталья Николаевна Павлова – удачно соединила проверенные временем достижения классической методики с современным содержанием, познавательный материал – с игровыми заданиями. Одно из главных достоинств новой «Азбуки с крупными (   Читать дальше...   )Жанр: АзбукаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A4D80C7456AD16AE7383B3EE2AE554D0BB9A7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746439   (1020673) от 17.04.2021
-
-А. Чумаченко | Город под дождем (1930) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ни старался Андрюша заснуть по настоящему в эту ночь, глаза открывались сами и голова тоже сама поднималась с подушки, как ни старался Андрюша удержать ее на месте...
-
-Рассказы для маленьких.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136E6F82F2953E2313F54BB1B2DAD92F67CAB37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463287   (1020658) от 17.04.2021
-
-Коллектив авторов | Все даты по истории России. Экспресс-справочник для подготовки к ЕГЭ (2019) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020658.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Все даты по истории России. Экспресс-справочник для подготовки к ЕГЭ" - учебное пособие удобного карманного формата. Сжато и доступно в хронологической последовательности изложены исторические события России. Пособие рассчитано на самостоятельную подготовку к ЕГЭ.
-
-Для старшего школьного возраста.Жанр: ЕГЭ/ИсторияФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BD0DE8270F286B8257A27B36B0F8C2D3FFF451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463262   (1020647) от 17.04.2021
-
-Р.В. Пазин | История. ЕГЭ. 10-11 классы. Тематические задания базового и повышенного уровней сложности (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет выпускникам успешно справиться с заданиями базового и повышенного уровней сложности на ЕГЭ по истории. Она позволит в кратчайшие сроки выявить пробелы в знаниях и отработать темы, в которых ученики допускают наибольшее количество ошибок. Книга содержит: более 1000 заданий (в том числе задания на анализ иллюстративного материала, карт, схем); образцы (   Читать дальше...   )Жанр: ЕГЭ/ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2CD8AA4BAB049837550D343A7BFDB3239E8E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

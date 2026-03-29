@@ -6,7 +6,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14366 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703414.jpg" />
+  <img src="Z:/picture/008/save_picture_703414.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinTools.net Premium 20.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703388.jpg" />
+  <img src="Z:/picture/008/save_picture_703388.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF24 Creator 9.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703386.jpg" />
+  <img src="Z:/picture/008/save_picture_703386.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ TrafficMonitor 1.79.1 Portable [En/Ch]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703382.jpg" />
+  <img src="Z:/picture/008/save_picture_703382.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ FurMark 1.21.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703377.jpg" />
+  <img src="Z:/picture/008/save_picture_703377.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CoolUtils Total Audio Converter 5.3.0.200 RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703323.jpg" />
+  <img src="Z:/picture/008/save_picture_703323.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ant Download Manager Pro 1.12.0 Build 57426 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703316.jpg" />
+  <img src="Z:/picture/008/save_picture_703316.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ FastStone Capture 8.2 RePack (&Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703296.jpg" />
+  <img src="Z:/picture/008/save_picture_703296.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703284.jpg" />
+  <img src="Z:/picture/008/save_picture_703284.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ WinNc 6.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703282.jpg" />
+  <img src="Z:/picture/008/save_picture_703282.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Topaz Video Enhance AI 1.5.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703275.jpg" />
+  <img src="Z:/picture/008/save_picture_703275.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Media Encoder 2020 14.3.2.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703274.jpg" />
+  <img src="Z:/picture/008/save_picture_703274.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VKMusic 4.84.3 + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703273.jpg" />
+  <img src="Z:/picture/008/save_picture_703273.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Emsisoft Mamutu 3.0.0.19 Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703249.jpg" />
+  <img src="Z:/picture/005/save_picture_703249.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Comodo Internet Security Premium 11.0.0.6802 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703240.jpg" />
+  <img src="Z:/picture/008/save_picture_703240.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Simple Sticky Notes 4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703233.jpg" />
+  <img src="Z:/picture/008/save_picture_703233.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Auslogics Disk Defrag Professional 4.9.20.0 RePack (& Portable) by TryRooM [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703231.jpg" />
+  <img src="Z:/picture/008/save_picture_703231.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Epic Pen Pro 3.7.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703225.jpg" />
+  <img src="Z:/picture/008/save_picture_703225.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ StrokesPlus.net 0.5.6.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703215.jpg" />
+  <img src="Z:/picture/008/save_picture_703215.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ FBackup 9.5.520 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703212.jpg" />
+  <img src="Z:/picture/008/save_picture_703212.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ SUMo Pro 5.14.11.519 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703208.jpg" />
+  <img src="Z:/picture/008/save_picture_703208.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ AIMP 5.02 Build 2365 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703203.jpg" />
+  <img src="Z:/picture/008/save_picture_703203.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PDF Annotator 5.0.0.508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703168.jpg" />
+  <img src="Z:/picture/008/save_picture_703168.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703148.jpg" />
+  <img src="Z:/picture/008/save_picture_703148.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Epubor Ultimate 3.0.12.707 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703146.jpg" />
+  <img src="Z:/picture/008/save_picture_703146.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Daum PotPlayer 1.7.21280 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703144.jpg" />
+  <img src="Z:/picture/008/save_picture_703144.jpg" />
 </div>
 
 

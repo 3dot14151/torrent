@@ -1,3 +1,29 @@
+###  Публикация: 921795   (573633) от 26.07.2015
+
+Галина Кизима | Заготовки и соленья (2015) [FB2]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малиновое варенье, овощные соленья, моченые яблоки, маринованный виноград и квашеная капуста – уже от одних названий разыгрывается аппетит. Чтобы все эти вкусности были на столе зимой, нужно потрудиться летом. В эту жаркую пору нелегко приходится хозяйкам. Не до отдыха. Но кухонный ад можно исключить из дачной программы, если выбрать именно те способы заготовки, (   Читать дальше...   )Жанр: КулинарияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980C30E611FCF64FBD90A1BF5CE99AD59D2FE1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921974   (573598) от 26.07.2015
 
 А. А. Синельникова | 162 рецепта заготовок из мультиварки (2014) [FB2]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573598.jpg" />
+  <img src="Z:/picture/008/save_picture_573598.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573596.jpg" />
+  <img src="Z:/picture/008/save_picture_573596.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572175.jpg" />
+  <img src="Z:/picture/008/save_picture_572175.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571748.jpg" />
+  <img src="Z:/picture/008/save_picture_571748.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571657.jpg" />
+  <img src="Z:/picture/008/save_picture_571657.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571637.jpg" />
+  <img src="Z:/picture/008/save_picture_571637.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571580.jpg" />
+  <img src="Z:/picture/008/save_picture_571580.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571027.jpg" />
+  <img src="Z:/picture/008/save_picture_571027.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570886.jpg" />
+  <img src="Z:/picture/008/save_picture_570886.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570487.jpg" />
+  <img src="Z:/picture/008/save_picture_570487.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570312.jpg" />
+  <img src="Z:/picture/008/save_picture_570312.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569879.jpg" />
+  <img src="Z:/picture/008/save_picture_569879.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569867.jpg" />
+  <img src="Z:/picture/008/save_picture_569867.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569856.jpg" />
+  <img src="Z:/picture/008/save_picture_569856.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569842.jpg" />
+  <img src="Z:/picture/008/save_picture_569842.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569815.jpg" />
+  <img src="Z:/picture/008/save_picture_569815.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568938.jpg" />
+  <img src="Z:/picture/008/save_picture_568938.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568625.jpg" />
+  <img src="Z:/picture/008/save_picture_568625.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568192.jpg" />
+  <img src="Z:/picture/008/save_picture_568192.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568187.jpg" />
+  <img src="Z:/picture/008/save_picture_568187.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568177.jpg" />
+  <img src="Z:/picture/008/save_picture_568177.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566319.jpg" />
+  <img src="Z:/picture/008/save_picture_566319.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563416.jpg" />
+  <img src="Z:/picture/008/save_picture_563416.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563412.jpg" />
+  <img src="Z:/picture/008/save_picture_563412.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563119.jpg" />
+  <img src="Z:/picture/008/save_picture_563119.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE94E5F7BBA7EA9CCAE682DDE2F90D01E3DBBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530570   (563066) от 02.08.2012
-
-К.Б. Расул | Мусульманская кухня [2011] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является не просто поваренной книгой, не простой "секретами мусульманской кухни", это - полноценное руководство по мусульманской трапезе. В ней приводятся повеления Корана о трапезе, хадисы о правилах приема пищи из таких досточтимых источников Преданий о Пророке, как "ал-Азкар" и "Рийад ас-Салихин" Имама ан-Навави. Общие сведения об этикете питания мусульман приведены по книге Мухаммада Садыка Кашгари "Адаб ас-Салихин". Разумные советы по правилам поведения за столом и обязанностям угощающего и угощающегося приведены по книге "Кабус-наме" Кейкабуса б. Кейкубада.
-Конечно же, даны многочисленные рецепты полезных, питательных и вкусных блюд различных народов, исповедующих Ислам. Надеемся, что мусульманам будут полезны главы о пищевых запретах и правилах заклания животных согласно Шариату.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6594E4B11DA093CA084D1980651E7AC55002B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

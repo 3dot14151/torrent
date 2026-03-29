@@ -1,3 +1,61 @@
+###  Публикация: 1836635   (254255) от 12.11.2025
+
+VA - No name compilation electronic vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Xezzo - You and the Rain
+02 - Dova Music - Hold Me Tight
+03 - Isskoy - Heavy Weight
+04 - Riltim - Raindrops(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4204D453BE54E51B3254B33B9391F6E42457BD5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836633   (254254) от 12.11.2025
+
+Jumanov - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Life is Fast
+ 02 - Define Happiness
+ 03 - Testosterone
+ 04 - We Exist Today(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6717AA3B6EAE289CD977A0A0E38C23B3592644CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498405   (253955) от 18.05.2012
 
 VA - Ministry of Sound: Louder! (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, House>
@@ -6,7 +64,7 @@ VA - Ministry of Sound: Louder! (2012) [MP3|320 кб/с]<Dubstep, Drum & Bass, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253955.jpg" />
+  <img src="Z:/picture/005/save_picture_253955.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ VA - Trance Maniacs Party: Uplifting Breeze #38 (17.04.2012) [MP3|320 кб/с]<T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253915.jpg" />
+  <img src="Z:/picture/005/save_picture_253915.jpg" />
 </div>
 
 
@@ -76,7 +134,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253667.jpg" />
+  <img src="Z:/picture/005/save_picture_253667.jpg" />
 </div>
 
 
@@ -109,7 +167,7 @@ VA - Vocal Passion Vol.26 (16.05.2012) [MP3|320 кб/с]<Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253653.jpg" />
+  <img src="Z:/picture/005/save_picture_253653.jpg" />
 </div>
 
 
@@ -142,7 +200,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #84 (2012) [MP3|320 кб/с]<Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253649.jpg" />
+  <img src="Z:/picture/005/save_picture_253649.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ VA - Autumn Mix (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252584.jpg" />
+  <img src="Z:/picture/005/save_picture_252584.jpg" />
 </div>
 
 
@@ -204,7 +262,7 @@ VA - 60 minutes. Old School Dance Music vol.30 (Special 90's) (mixed by Dj V) (2
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252412.jpg" />
+  <img src="Z:/picture/005/save_picture_252412.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ VA - No name compilation part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal, Easy l
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251669.jpg" />
+  <img src="Z:/picture/004/save_picture_251669.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ VA - No name compilation part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251668.jpg" />
+  <img src="Z:/picture/004/save_picture_251668.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ zero-project - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age, Ambient>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250004.jpg" />
+  <img src="Z:/picture/004/save_picture_250004.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ VA - 60 minutes. Old School Dance Music vol.16 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249672.jpg" />
+  <img src="Z:/picture/004/save_picture_249672.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ VA - Return To Space (2009) [MP3|224 кб/с]<Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248413.jpg" />
+  <img src="Z:/picture/004/save_picture_248413.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - The Dance Cube XXXXII 2CD (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248123.jpg" />
+  <img src="Z:/picture/004/save_picture_248123.jpg" />
 </div>
 
 
@@ -419,7 +477,7 @@ VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247841.jpg" />
+  <img src="Z:/picture/004/save_picture_247841.jpg" />
 </div>
 
 
@@ -454,7 +512,7 @@ VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247149.jpg" />
+  <img src="Z:/picture/004/save_picture_247149.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246500.jpg" />
+  <img src="Z:/picture/004/save_picture_246500.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246316.jpg" />
+  <img src="Z:/picture/004/save_picture_246316.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - Beatport Trance Pack (23.09.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245944.jpg" />
+  <img src="Z:/picture/004/save_picture_245944.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA - Sublime Revelation Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245803.jpg" />
+  <img src="Z:/picture/004/save_picture_245803.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - The Best of Trance 48 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245797.jpg" />
+  <img src="Z:/picture/004/save_picture_245797.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Elegant New Trance Set (2021) [MP3|320 Kbps] <Trance, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245774.jpg" />
+  <img src="Z:/picture/004/save_picture_245774.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - The Best of Trance 49 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245769.jpg" />
+  <img src="Z:/picture/004/save_picture_245769.jpg" />
 </div>
 
 
@@ -696,7 +754,7 @@ VA - Sensual Chillout Lounge (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245741.jpg" />
+  <img src="Z:/picture/004/save_picture_245741.jpg" />
 </div>
 
 
@@ -725,7 +783,7 @@ VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245738.jpg" />
+  <img src="Z:/picture/004/save_picture_245738.jpg" />
 </div>
 
 
@@ -739,64 +797,6 @@ VA - Beatport Techno Electronic: Electro Sound Pack #241 (2021) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1101E3455EAB15B639E2C278F8F91337ABDB252F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448603   (245724) от 18.02.2021
-
-VA - Beatport Trance: Electro Sound Pack #243 (2021) [MP3|320 Kbps] <Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличительная сторона транс музыки это его эмоциональность и окрылённость. Музыка, которая не уступает по гармонии и мелодичности классической музыке. И в то же время транс многообразен, это музыка полета и красивых мелодий. Каждый может найти в нём что то своё, что сможет его вдохновить.001. Ahmed Romel - Road To Vilna
-002. Red Scan - T02
-003. Sonic Boy - Urban Legend
-004. Ava Lantern - Having Words(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 10:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B228E4FB0D0D5E9F7DE8DD8E7A305E7BA8C8F951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058418   (245692) от 01.10.2016
-
-VA - Beatport Trance Pack  (01.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel - Drifting (feat Sarah Shields - UDM Remix)  7:51
-02. Cyre & DJ T.H. - Salida Del Sol (Extravagance SL Remix)  7:01
-03. Frainbreeze - We'll Never Die (Original Mix)  4:56
-04. Tycoos feat. Angel Falls - Where You Are (Fresh Code Remix)  7:17(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF98EC228DDCF5954B4C5E09B965BC9759EE5163
 ```
 
 https://mybot314.ru/tekegram_catalog/

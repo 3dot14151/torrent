@@ -1,3 +1,148 @@
+###  Публикация: 1047703   (548147) от 31.08.2016
+
+Billy Joel - The Hits (2010) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves You Now (2:50)
+ 02. Piano Man (5:39)
+ 03. The Entertainer (3:40)
+ 04. New York State Of Mind (6:03)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339D78E80382BA2CA09139321BF7CF9269377D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238106   (547968) от 28.07.2018
+
+Dave Mason - Dave Mason / Split Coconut (2008) [FLAC|Lossless|image + .cue] <roots rock, blues rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dave Mason (1974):
+01 - Show Me Some Affection
+02 - Get Ahold On Love
+03 - Every Woman(   Читать дальше...   )Жанр: roots rock, blues rockПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D75362BE781FE3292FCD4E61197E72FBFB7598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048017   (547468) от 01.09.2016
+
+Dudley Taft - Skin and Bones (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skin and Bones - 3:58
+02. Lonesome Memphis Blues - 4:02
+03. Ain't Nothing Gonna Stop Us Now - 3:37
+04. Leland Mississippi Blues - 3:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DE53631158399802B0BB4F4567ED62D524415F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048043   (547419) от 01.09.2016
+
+Cosmograf - The Unreasonable Silence (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. echo $abduction; (2:20)
+02. This Film Might Change Your Life (9:03)
+03. Plastic Men (6:27)
+04. Arcade Machine (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAFD9CACA5131CA046D206E5E767E7F29DF3F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048137   (547407) от 01.09.2016
+
+Jeremiah Johnson Band - Blues Heart Attack (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Reader - 3:45
+02. Room Of Fools - 3:47
+03. Flat Line - 3:19
+04. Get In The Middle - 2:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3687D136453A30E14B6C4AAE24D1A57E3A228938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048192   (547358) от 01.09.2016
 
 Long Distance Calling - Trips (2016) Bonus Tracks Version [FLAC|Lossless|tracks] <Post Rock, Progressive Rock, Instrumental Rock>
@@ -6,7 +151,7 @@ Long Distance Calling - Trips (2016) Bonus Tracks Version [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547358.jpg" />
+  <img src="Z:/picture/008/save_picture_547358.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Guesch Patti - Labyrinthe (1988) EMI France [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546962.jpg" />
+  <img src="Z:/picture/008/save_picture_546962.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546681.jpg" />
+  <img src="Z:/picture/008/save_picture_546681.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Smokie - From The Heart (2006) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546461.jpg" />
+  <img src="Z:/picture/008/save_picture_546461.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545459.jpg" />
+  <img src="Z:/picture/008/save_picture_545459.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Slade - The Showplace, Dover NJ, July 30, 1976 (1976) Live [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545451.jpg" />
+  <img src="Z:/picture/008/save_picture_545451.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Smokie - Discover What We Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545324.jpg" />
+  <img src="Z:/picture/008/save_picture_545324.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ The Don Harrison Band - The Don Harrison Band (1976) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544864.jpg" />
+  <img src="Z:/picture/008/save_picture_544864.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Smokie - Burnin' Ambition (1993) [FLAC|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544850.jpg" />
+  <img src="Z:/picture/008/save_picture_544850.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Level 42 - The Essential Collection 2007 (2007) [FLAC|Lossless|tracks + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544799.jpg" />
+  <img src="Z:/picture/008/save_picture_544799.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ Ex Vitae - Mandarine (2018) [FLAC|Lossless|image + .cue] <Progressive rock, Jazz
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543840.jpg" />
+  <img src="Z:/picture/008/save_picture_543840.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ The Black Keys - "Let's Rock" (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543618.jpg" />
+  <img src="Z:/picture/008/save_picture_543618.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Avi Rosenfeld - Very Heepy Very Purple XIII (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542817.jpg" />
+  <img src="Z:/picture/008/save_picture_542817.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Mac Walker - Picture (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542582.jpg" />
+  <img src="Z:/picture/008/save_picture_542582.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Smokie - From Wishes to Kisses (2018) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542125.jpg" />
+  <img src="Z:/picture/008/save_picture_542125.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ The Blue Nile - 2 Альбома (1989, 1996) [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542094.jpg" />
+  <img src="Z:/picture/008/save_picture_542094.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Pigeons Playing Ping Pong - Presto (2020) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541222.jpg" />
+  <img src="Z:/picture/008/save_picture_541222.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Foot - You Are Weightless (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541221.jpg" />
+  <img src="Z:/picture/008/save_picture_541221.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Mater A Clivis Imperat - Atrox Locus (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541130.jpg" />
+  <img src="Z:/picture/008/save_picture_541130.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Ismeros Arcok - Szelbe kialtok (2005) [FLAC|Lossless|image + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540632.jpg" />
+  <img src="Z:/picture/008/save_picture_540632.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Ismeros Arcok - Keritest bontok (2012) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540631.jpg" />
+  <img src="Z:/picture/008/save_picture_540631.jpg" />
 </div>
 
 
@@ -597,156 +742,6 @@ Ismeros Arcok - Keritest bontok (2012) [FLAC|Lossless|image + .cue] <Classic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FCF9D84D8B7D16BDA0393FFC42D1DCDB6ECF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239266   (540624) от 04.08.2018
-
-The Gentlemen - Brass City Band (2005) [FLAC|Lossless|tracks + .cue] <Classic Rock, Hard Rock, Rock'N'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flame for Hire (3:51)
-02. Velvet Rope (2:30)
-03. Three-Minute Marriage Proposal (3:09)
-04. Silver Boogie (3:12)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Rock'N'RollПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D7FCAAB8ED90C7D2AC4C63169338CAD9026D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531668   (540601) от 06.08.2012
-
-Anthony Phillips & Andrew Skeet - Seventh Heaven (2012) [APE|Lossless]<Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Credo In Cantus (Instrumental)
-2. Sojourn
-3. Speak Of Remarkable Things
-4. Nocturne
-5. Long Road Home
-6. The Golden Leaves Of Fall
-7. Credo
-8. Under The Infinite Sky (Guitar Ensemble Version)
-9. The Stuff Of Dreams
-10. Old Sarum Suite(   Читать дальше...   )Жанр: Progressive & Art-Rock |Продолжительность: 00:51:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049736   (540510) от 07.09.2016
-
-Smokie - Chasing Shadows (1992) [FLAC|Lossless|image + .cue] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Play That Game With Me
-02. You're So Different Tonight
-03. Respect
-04. Lyin' In The Arms Of The One You Love(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AE7723A4E12697F459F4E3569D3F8178B1DAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531426   (540464) от 06.08.2012
-
-Queen+Paul Rodgers - C-lebrity (2008) Enhanced CD [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 2004 года к музыкантам легендарной группы Queen Брайану Мэю и Роджеру Тэйлору в качестве вокалиста присоединился известный рок-исполнитель Пол Роджерс. Участники этого мероприятия подчеркивают, что Пол ни в коем случае не заменил Фредди Меркьюри , и сегодня речь идет об абсолютно новой группе.01. C-lebrity :: 03:40
-02. Say It's Not True :: 04:01
-03. Tie Your Mother Down (Live in Sheffield) :: 04:30Жанр: RockФормат: CD, Maxi-Single, EnhancedПродолжительность: 00:12:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050161   (540370) от 07.09.2016
-
-John Fogerty (ex.Creedence Clearwater Revival) - Blue Moon Swamp (1997) [FLAC|Lossless|image + .cue]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Streamline 3:57
-02. Hot Rod Heart 3:26
-03. Blueboy	4:04
-04. A Hundred And Ten In The Shade 4:19(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763EFB33DC00A6A7C8EFC4AAAE8136DA6E7D4C7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1128739   (725746) от 26.04.2017
+
+Paragon Hard Disk Manager 15 Premium 10.1.25.813 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F674402EC36A07E322F1A8D62FD84CC4EEE2CB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710896   (725669) от 25.05.2014
+
+Сверхъестественное / Supernatural (2013-2014) WEB-DLRip [720p] (сезон 9, серии 1-23 из 23) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: РусскийПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFA7A293CE5C723367467097C429E7736B520D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023170   (725443) от 04.06.2016
+
+Мой парень – киллер / Mr. Right (2015) BDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марта застала своего парня за изменой и немного вышла из колеи. И тут она встречает, казалось бы, идеального мужчину. Но её идеал оказывается бывшим киллером, и его прошлое однажды вновь заявляет о себе, причем не самым приятным образом. И едва зародившиеся отношения начинают подвергаться серьёзным испытаниям.Производство: США, Amasia Entertainment, 3311 Productions, Circle of ConfusionЖанр: боевик, мелодрама, комедияРежиссер: Пако КабесасАктеры: Сэм Рокуэлл, Анна Кендрик, Тим Рот, Джеймс Рэнсон, Энсон Маунт, Майкл Эклунд, Кэти Нехра, Джейден Кейн, Дуглас М. Гриффин, Луис Да Силва мл., Елена СанчесПеревод: Любительский (многоголосый, закадровый) RecentFilmsЯзык субтитров: английскийПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC4BF8FC09EB8ED2F7E00532A0BC7AB5DACB984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891490   (724968) от 23.04.2015
+
+Adguard Премиум 5.10.2021.6301 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает со всеми веб-браузерами, эффективно блокируя интернет-угрозы за счет ежедневного обновления базы программы с помощью крупнейших ресурсов Google Safe (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38F7169A5F87A50E33AE85CDB95897C9D8F4B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218289   (724724) от 08.04.2018
 
 Connectify Hotspot 2018.1.1.38937 Max [Multi/Ru]
@@ -6,7 +110,7 @@ Connectify Hotspot 2018.1.1.38937 Max [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724724.jpg" />
+  <img src="Z:/picture/008/save_picture_724724.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Memrise 2.94_21861 Mod by Balatan [Ru] - Интерактивное обучен
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724376.jpg" />
+  <img src="Z:/picture/008/save_picture_724376.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724220.jpg" />
+  <img src="Z:/picture/005/save_picture_724220.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Adobe Premiere Pro CC 2019 13.0.3.9 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724045.jpg" />
+  <img src="Z:/picture/008/save_picture_724045.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724043.jpg" />
+  <img src="Z:/picture/008/save_picture_724043.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ SparkCraft 11 [i386] (1xDVD) [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724036.jpg" />
+  <img src="Z:/picture/008/save_picture_724036.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723712.jpg" />
+  <img src="Z:/picture/008/save_picture_723712.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723709.jpg" />
+  <img src="Z:/picture/008/save_picture_723709.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ SolidWorks Premium Edition 2017 SP 3.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723706.jpg" />
+  <img src="Z:/picture/008/save_picture_723706.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Acronis True Image 2017 20.0.8053 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723705.jpg" />
+  <img src="Z:/picture/008/save_picture_723705.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723591.jpg" />
+  <img src="Z:/picture/008/save_picture_723591.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723589.jpg" />
+  <img src="Z:/picture/008/save_picture_723589.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723010.jpg" />
+  <img src="Z:/picture/005/save_picture_723010.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722964.jpg" />
+  <img src="Z:/picture/005/save_picture_722964.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Intel может вернуться на рынок дискретной гра�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722928.jpg" />
+  <img src="Z:/picture/005/save_picture_722928.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722902.jpg" />
+  <img src="Z:/picture/008/save_picture_722902.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ MAGIX Vegas Pro 18.0 Build 284 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722542.jpg" />
+  <img src="Z:/picture/008/save_picture_722542.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Zver Windows 10 21H2 Enterprise LTSC v.2022.2 x64 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722089.jpg" />
+  <img src="Z:/picture/008/save_picture_722089.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Serious Sam / Крутой Сэм (2003) [Ru] (1.0) License [Gold Edition / Зо
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722088.jpg" />
+  <img src="Z:/picture/008/save_picture_722088.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ Westboro (2017) [Ru/En] (1.00) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721924.jpg" />
+  <img src="Z:/picture/008/save_picture_721924.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721920.jpg" />
+  <img src="Z:/picture/008/save_picture_721920.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Freemake Video Converter 4.1.9.14 RePack by CUTA [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721823.jpg" />
+  <img src="Z:/picture/008/save_picture_721823.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ Freemake Video Converter - это бесплатное универсально�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7911CE9AF29749ACE4839FF5CFB379D6EF7A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982165   (721488) от 06.06.2016
-
-Территория (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Территория — это место, где люди проверяются на прочность. Необозримые пространства, где тундра встречается с ледяными торосами Ледовитого океана. Суровый русский север, которому способны бросить вызов немногие. Геолог Илья Чинков, одержимый идеей найти легендарное золото Территории, собирает команду смельчаков, готовых поставить на карту все, включая собственные (   Читать дальше...   )Производство: РоссияЖанр: Драма, ПриключенияРежиссер: Александр МельникАктеры: Константин Лавроненко, Григорий Добрыгин, Егор Бероев, Ксения Кутепова, Евгений Цыганов, Владислав Абашин, Герасим Васильев, Константин Шелестун, Константин Балакирев, Олег ШапковПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 02:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20342B8320F7FDEBC951F74F6691C2841975A349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023857   (721485) от 06.06.2016
-
-Acronis True Image 19.0.6571 / Universal Restore 11.5.40028 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis BootCD - загрузочный диск, содержащий пакет последних версий трех наиболее популярных программ компании Acronis - Acronis True Image, Acronis Disk Director и Acronis Universal Restore, предназначенных для резервного копирования, создания точных образов жесткого диска и его отдельных областей. В числе функций диска восстановления системы, управление разделами: (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB477E8B1277ABB5A43E942C0778A88D410F8FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285373   (720669) от 26.02.2019
-
-Очередное достижение: 1000 релизов от Stranger-13 !!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_720669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ряды релизеров-тысячников пополнились.
-Встречайте и поздравьте Stranger-13Но трекер выдает в ответ "Не найдено". Это потому, что человек этот скромный и застенчивый.А мы не стесняемся поздравить его и найдем слова благодарности за работу на благо Клуба!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400411   (720613) от 04.08.2020
-
-ABBYY Lingvo X6 Professional 16.2.2.133 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный пакет ABBYY Lingvo отличают богатейшая лексическая база и множество функций для удобного и качественного перевода. С ABBYY Lingvo миллионы пользователей во всем мире смогли убедиться, что профессиональный перевод слов и фраз за считанные секунды – это реальность. Новая версия словаря ABBYY Lingvo x6 воплотила расширенные, в том числе и интерактивные, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F79F38A7BDFE7DB40FB9B78BF412C7E27256C13
 ```
 
 https://mybot314.ru/tekegram_catalog/

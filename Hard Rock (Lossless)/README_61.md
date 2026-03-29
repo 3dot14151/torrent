@@ -1,3 +1,73 @@
+###  Публикация: 501434   (259804) от 31.05.2012
+
+The Itch - Spreading Like Wildfire (2012) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_259804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling Me Back (3:05)
+02. Action (3:43)
+03. The Catalyst (4:24)
+04. Propaganda (3:56)
+05. No Friend Of Mine (5:06)
+06. Pain (3:02)
+07. Bring In The Wine (3:09)
+08. Sold My Soul (3:19)
+09. Mother (2:56)
+10. If You Could See (5:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502344   (259803) от 31.05.2012
+
+Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_259803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haia Gurusah (3:28)
+02. Whales and Snow (4:49)
+03. Illusions (3:12)
+04. Why? (5:10)
+05. I'm Dying (3:51)
+06. Moans (4:39)
+07. Meet Me Up There (5:31)
+08. The Outlet (0:25)
+09. God! (4:38)
+10. Alive and Livin' (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837432   (256705) от 16.11.2025
 
 Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock & Heavy Metal>
@@ -6,7 +76,7 @@ Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256705.jpg" />
+  <img src="Z:/picture/005/save_picture_256705.jpg" />
 </div>
 
 
@@ -35,7 +105,7 @@ Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255476.jpg" />
+  <img src="Z:/picture/005/save_picture_255476.jpg" />
 </div>
 
 
@@ -64,7 +134,7 @@ Amberjacks - The Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 7
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255340.jpg" />
+  <img src="Z:/picture/005/save_picture_255340.jpg" />
 </div>
 
 
@@ -93,7 +163,7 @@ D'ercole - Mass Formation (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255260.jpg" />
+  <img src="Z:/picture/005/save_picture_255260.jpg" />
 </div>
 
 
@@ -122,7 +192,7 @@ Gary Moore - After the War (1989) Japanese Edition, Reissue, 2023, Universal [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255054.jpg" />
+  <img src="Z:/picture/005/save_picture_255054.jpg" />
 </div>
 
 
@@ -151,7 +221,7 @@ Angels In Vein - Long Time Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254744.jpg" />
+  <img src="Z:/picture/005/save_picture_254744.jpg" />
 </div>
 
 
@@ -180,7 +250,7 @@ Def Leppard - 12 Альбомов, 8 изданий, 19 CD (1980-2008)  [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254211.jpg" />
+  <img src="Z:/picture/005/save_picture_254211.jpg" />
 </div>
 
 
@@ -215,7 +285,7 @@ Deep Purple - Rapture Of The Deep (2005) 2XCD, Reissue, Remastered, 2025, Ear Mu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252547.jpg" />
+  <img src="Z:/picture/005/save_picture_252547.jpg" />
 </div>
 
 
@@ -244,7 +314,7 @@ God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252289.jpg" />
+  <img src="Z:/picture/004/save_picture_252289.jpg" />
 </div>
 
 
@@ -273,7 +343,7 @@ Guns n' Roses - 9 альбомов, 1 EP, 2 Box Set (1987 - 2022) 33 CD [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252039.jpg" />
+  <img src="Z:/picture/004/save_picture_252039.jpg" />
 </div>
 
 
@@ -302,7 +372,7 @@ Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251911.jpg" />
+  <img src="Z:/picture/004/save_picture_251911.jpg" />
 </div>
 
 
@@ -331,7 +401,7 @@ The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251907.jpg" />
+  <img src="Z:/picture/004/save_picture_251907.jpg" />
 </div>
 
 
@@ -360,7 +430,7 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251704.jpg" />
+  <img src="Z:/picture/004/save_picture_251704.jpg" />
 </div>
 
 
@@ -389,7 +459,7 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251159.jpg" />
 </div>
 
 
@@ -424,7 +494,7 @@ Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250503.jpg" />
+  <img src="Z:/picture/004/save_picture_250503.jpg" />
 </div>
 
 
@@ -453,7 +523,7 @@ City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250320.jpg" />
+  <img src="Z:/picture/004/save_picture_250320.jpg" />
 </div>
 
 
@@ -482,7 +552,7 @@ VA - Modern Hard Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250152.jpg" />
+  <img src="Z:/picture/004/save_picture_250152.jpg" />
 </div>
 
 
@@ -511,7 +581,7 @@ Transworld Identity - Seven Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249390.jpg" />
+  <img src="Z:/picture/004/save_picture_249390.jpg" />
 </div>
 
 
@@ -540,7 +610,7 @@ Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247823.jpg" />
+  <img src="Z:/picture/004/save_picture_247823.jpg" />
 </div>
 
 
@@ -569,7 +639,7 @@ Ken Hensley - 20 Albums + 2 Box Set (1973 - 2023) 35 CD [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247808.jpg" />
+  <img src="Z:/picture/004/save_picture_247808.jpg" />
 </div>
 
 
@@ -598,7 +668,7 @@ Extreme - 10 Albums, 8 EP & Singles (1989 - 2023) (27 CD)[FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247295.jpg" />
+  <img src="Z:/picture/004/save_picture_247295.jpg" />
 </div>
 
 
@@ -627,7 +697,7 @@ Scorpions - 46 Albums, 2 Box Sett (1972 - 2022) 126 CD [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246823.jpg" />
+  <img src="Z:/picture/004/save_picture_246823.jpg" />
 </div>
 
 
@@ -656,7 +726,7 @@ Kaasin - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246068.jpg" />
+  <img src="Z:/picture/004/save_picture_246068.jpg" />
 </div>
 
 
@@ -685,7 +755,7 @@ Oughton Tanera - Under Crystal Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246027.jpg" />
+  <img src="Z:/picture/004/save_picture_246027.jpg" />
 </div>
 
 
@@ -699,63 +769,6 @@ Oughton Tanera - Under Crystal Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E57C5BD73B416D37C8F1B1E96383138880B800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511676   (245955) от 21.11.2021
-
-Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play To Win
-02. Love Gone Wild
-03. Shadows Of Love
-04. Damon's Rage(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623556   (245899) от 02.04.2023
-
-Roxanne - Stereo Typical (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereotypical (3:50)
-02. Looks Like Rain (Lead Guitar – Paul Gilbert) (3:18)
-03. Gotta Live (Lead VocalsЖанр: Melodic Hard RockПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0B4FEB85A69C3664DAD8CC6A1F9611378AE9AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

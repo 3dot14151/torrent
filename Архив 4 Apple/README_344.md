@@ -1,3 +1,112 @@
+###  Публикация: 1053431   (526033) от 17.09.2016
+
+Vellum 1.3.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vellum — приложение для создания электронных книг на OS X
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, имели совместимые с ними форматы и были также удобны для чтения на бумаге. Многие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 сентября 2016Разработчик: 180gПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DCF248E7847670A6FE0705E106A5F4C4DAAA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053515   (525957) от 17.09.2016
+
+Serial 1.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serial - современный эмулятор терминала, который будет полезен инженерам и системным администраторам для эффективной работы с серверами, сетевым оборудованием и аппаратным обеспечением.
+
+Для системных администраторов, Serial поддерживает все важные последовательности и прерывания, необходимые для подключении и управления маршрутизаторами и коммутаторами. Также включает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 сентября 2016Разработчик: Decisive Tactics, Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E1CD3352D819926D89936817AFECBB986F61DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156449   (525844) от 10.08.2017
+
+Moom 3.2.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moom – управление окнами для продвинутых Mac-пользователей
+Moom небольшая, но очень полезная утилита, за счет которой можно расширить назначение зеленой кнопки “+” в OSX. Разработчиками Moom выступили люди из компании Many Tricks. Само название обязывает к созданию подобных утилит. Основная идея Moom заключена во всплывающем прозрачном меню, появляющемся при наведении (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 августа 2017Разработчик: Many TricksПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A8D5D98A32390E209F14CF54F1B5E0B4884235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157384   (525496) от 11.08.2017
+
+ProPresenter 6.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525496.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter – это система для презентаций, которая использует два экрана, предоставляя пользователям возможность легко и быстро показывать слайды на одном экране и контролировать презентацию – на другом.
+В программу встроен ProVideoPlayer, который позволяет воспроизводить видео. ProPresenter поддерживает любое разрешение экрана, что вместе с экранами новых Мас с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 августа 2017Разработчик: Renewed Vision LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA0E8AEE778102716F0AF1CE9519F6FC34BD6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127407   (525492) от 11.08.2017
 
 iNet Network Scanner 2.4.3 [Multi]
@@ -6,7 +115,7 @@ iNet Network Scanner 2.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525492.jpg" />
+  <img src="Z:/picture/008/save_picture_525492.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ Jump Desktop (Remote Desktop) - RDP/VNC 7.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525473.jpg" />
+  <img src="Z:/picture/008/save_picture_525473.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Sync Folders Pro 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525468.jpg" />
+  <img src="Z:/picture/008/save_picture_525468.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ Wondershare Video Converter Ultimate 10.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525182.jpg" />
+  <img src="Z:/picture/008/save_picture_525182.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ Wondershare PDFelement 6 Pro 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525138.jpg" />
+  <img src="Z:/picture/008/save_picture_525138.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ Pixave 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524919.jpg" />
+  <img src="Z:/picture/008/save_picture_524919.jpg" />
 </div>
 
 
@@ -169,7 +278,7 @@ DCommander 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524657.jpg" />
+  <img src="Z:/picture/008/save_picture_524657.jpg" />
 </div>
 
 
@@ -197,7 +306,7 @@ Transmit 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524599.jpg" />
+  <img src="Z:/picture/008/save_picture_524599.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ SimpleMind 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524560.jpg" />
+  <img src="Z:/picture/008/save_picture_524560.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ PowerPhotos 2.0b14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524504.jpg" />
+  <img src="Z:/picture/008/save_picture_524504.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ DuplicateViewer Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524503.jpg" />
+  <img src="Z:/picture/008/save_picture_524503.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ GrandTotal 7 v7.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524501.jpg" />
+  <img src="Z:/picture/008/save_picture_524501.jpg" />
 </div>
 
 
@@ -331,7 +440,7 @@ BusyCal 2022.2.3 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524500.jpg" />
+  <img src="Z:/picture/008/save_picture_524500.jpg" />
 </div>
 
 
@@ -358,7 +467,7 @@ Cookie 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524429.jpg" />
+  <img src="Z:/picture/008/save_picture_524429.jpg" />
 </div>
 
 
@@ -387,7 +496,7 @@ SoundSource 5.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524425.jpg" />
+  <img src="Z:/picture/008/save_picture_524425.jpg" />
 </div>
 
 
@@ -414,7 +523,7 @@ PowerPhotos 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524366.jpg" />
+  <img src="Z:/picture/008/save_picture_524366.jpg" />
 </div>
 
 
@@ -442,7 +551,7 @@ Inboard 1.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524354.jpg" />
+  <img src="Z:/picture/008/save_picture_524354.jpg" />
 </div>
 
 
@@ -471,7 +580,7 @@ Money Pro - Personal Finance 2.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524312.jpg" />
+  <img src="Z:/picture/008/save_picture_524312.jpg" />
 </div>
 
 
@@ -498,7 +607,7 @@ BusyCal 3.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524274.jpg" />
+  <img src="Z:/picture/008/save_picture_524274.jpg" />
 </div>
 
 
@@ -525,7 +634,7 @@ Art Text 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524272.jpg" />
+  <img src="Z:/picture/008/save_picture_524272.jpg" />
 </div>
 
 
@@ -554,7 +663,7 @@ Sketch 55.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523706.jpg" />
+  <img src="Z:/picture/008/save_picture_523706.jpg" />
 </div>
 
 
@@ -581,7 +690,7 @@ Weather Dock 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523696.jpg" />
+  <img src="Z:/picture/008/save_picture_523696.jpg" />
 </div>
 
 
@@ -592,110 +701,6 @@ Weather Dock 4.5.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D9B67AC42CC9334EE5884CBBC9AF219A4BF859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313249   (523643) от 09.07.2019
-
-Boom 3D 1.2.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom 3D является уникальным приложением для профессиональной обработки звука, которое радикально изменяет ваше восприятие музыки. Эта премиальная версия включает в себя бесплатные звуковые эффекты, обеспечивающие потрясающие ощущения. Приложение автоматически калибруется в соответствии с типом компьютера Mac, обеспечивая уникальное персонализированное звучание. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2019Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: macOS 10.10.3+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921FA8D461004B5276AEF4B57476917D7A5699C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559685   (523608) от 26.06.2022
-
-EdgeView 3 v3.5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523608.jpg" />
-</div>
-
-
-###  Подробнее
-
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453268DF8C8735DC902053555918D19A272C2201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559789   (523607) от 26.06.2022
-
-WonderPen 2.1.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523607.jpg" />
-</div>
-
-
-###  Подробнее
-
-WonderPen - приложение для как для профессиональных, так и для писателей любителей. WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 2022 atominn.comПоддерживаемая ОС: macOS 10.11.0 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4126AEDC7CC14322864C55A458A5B3A758E7B6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559643   (523596) от 26.06.2022
-
-SiteSucker Pro 5.0 U2B [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523596.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 15.06.2022Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243BA03143746F3B42C148ED2393E7CD3C5AEDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 361458   (576867) от 10.07.2011
+
+Затерянные племена. Жизнь с племенем Мачигенга. Конец миссии [8 серия] / Mark & Olly: Living With The Machigenga. The End Of The Affair (2009) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_576867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое английских исследователей изучают культуру самых диких племен на планете. Подступая к границам враждебной среды они руководствуются только доброй волей и желанием познавать новое. Это их самое серьезное путешествие - путешествие в Перу в поисках одного из самых таинственных племен амазонских джунглей: Мачигенга, которое живет в полной изоляции.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11FBD549FB267DDD69B9260C4E109668242FB764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043082   (576306) от 14.08.2016
+
+Орел и решка. Шопинг (2016.08.14) SATRip (cезон 5: Ванкувер)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_576306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1632A3CB23B1745DD1E1BCDCBBF41C851693D60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233859   (576181) от 02.07.2018
 
 Дельта Меконга / Au Coeur du Delta du Mekong (2009) HDTV [H.264/1080i-LQ]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576181.jpg" />
+  <img src="Z:/picture/008/save_picture_576181.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576002.jpg" />
+  <img src="Z:/picture/008/save_picture_576002.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575921.jpg" />
+  <img src="Z:/picture/008/save_picture_575921.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575683.jpg" />
+  <img src="Z:/picture/008/save_picture_575683.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574753.jpg" />
+  <img src="Z:/picture/008/save_picture_574753.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566165.jpg" />
+  <img src="Z:/picture/008/save_picture_566165.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565910.jpg" />
+  <img src="Z:/picture/008/save_picture_565910.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565491.jpg" />
+  <img src="Z:/picture/008/save_picture_565491.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563633.jpg" />
+  <img src="Z:/picture/008/save_picture_563633.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563261.jpg" />
+  <img src="Z:/picture/008/save_picture_563261.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562992.jpg" />
+  <img src="Z:/picture/008/save_picture_562992.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562683.jpg" />
+  <img src="Z:/picture/008/save_picture_562683.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561779.jpg" />
+  <img src="Z:/picture/008/save_picture_561779.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561399.jpg" />
+  <img src="Z:/picture/008/save_picture_561399.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561257.jpg" />
+  <img src="Z:/picture/008/save_picture_561257.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560678.jpg" />
+  <img src="Z:/picture/008/save_picture_560678.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559734.jpg" />
+  <img src="Z:/picture/008/save_picture_559734.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ NGW: Просторы Америки / America's Wild Spaces (2018) HDTVRip [H.2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559636.jpg" />
+  <img src="Z:/picture/008/save_picture_559636.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559217.jpg" />
+  <img src="Z:/picture/008/save_picture_559217.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559160.jpg" />
+  <img src="Z:/picture/008/save_picture_559160.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559067.jpg" />
+  <img src="Z:/picture/008/save_picture_559067.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558911.jpg" />
+  <img src="Z:/picture/008/save_picture_558911.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558476.jpg" />
+  <img src="Z:/picture/008/save_picture_558476.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_557632.jpg" />
+  <img src="Z:/picture/005/save_picture_557632.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556949   (557079) от 11.06.2022
-
-Испания. Солнечное королевство / Aerial Spain (2013) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557079.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Испании есть то, что отличает её от всех других мест на земле. Это солнце, которое светит почти 365 дней в году. Оно нагревает песок на пляжах, проникает в морскую бездну, мерцает в долинах. Его лучи озаряют города и деревни Испании, превращая эту страну в настоящее солнечное королевство.Производство: Испания, Four Luck BananaЖанр: документальный, путешествия, историяРежиссер: Рубен АрталехоПеревод: дублированный (Первый ТВЧ)Субтитры: английскиеПродолжительность: 3x ~00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6AAEEB827B1B9FB9A24B1DA7A7E8CFB1885B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556985   (556436) от 12.06.2022
-
-Прогулка по Калининграду (2010) TVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас умеет нажатием нескольких кнопок прокладывать во всемирной паутине путь к нужной информации. Процесс этот называется маршрутизацией баз данных. А знаете ли вы, что решение загадки о кенигсбергских мостах подтолкнуло члена Петербургской академии наук Леонарда Эйлера к созданию основ теории такой маршрутизации? До второй мировой войны Кенигсбергом назывался (   Читать дальше...   )Производство: Россия, Russian Travel Guide TVЖанр: документальный, научно-познавательный, история, география, путешествиеРежиссер: Сергей ДудкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C84F2B82AD3256BD29F8D61343845B9A2DFB69
 ```
 
 https://mybot314.ru/tekegram_catalog/

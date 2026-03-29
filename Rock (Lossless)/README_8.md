@@ -1,3 +1,148 @@
+###  Публикация: 1447990   (1031386) от 15.02.2021
+
+The McBroom Sisters - Black Floyd (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods and Lovers [06:23]
+02. Money Don't Make The Man [05:35]
+03. Wish You Were Here [05:22]
+04. What Do You Want From Me [04:18](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CC3727F2DBB64E3CDF2466D952FCACD26C0694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621695   (1030985) от 25.03.2023
+
+The Neal Morse Band - [Morse]Fest 2020 Lockdown (2022) 4xCD [WavPack|Lossless|image + .cue] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Where The Streets Have No Names
+02. Hymn 43
+03. Baker Street(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 03:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CB30B93F68F50E1670E82CD40536751CE82EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448324   (1030976) от 17.02.2021
+
+Prog Collective - Worlds On Hold (2021) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worlds On Hold feat. Todd Rundgren & L. Shankar (5:43)
+02. Two Trajectories feat. Geoff Tate & Ron Bumblefoot Thal (6:33)
+03. Anything But Goodbye feat. Jon Davison & Patrick Moraz (6:09)
+04. Meant To Be feat. Jan Akkerman & Billy Sherwood (5:29)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9419CF31292E4659BDDF06D360BE9DCE0894F7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621559   (1030962) от 25.03.2023
+
+City Boy - 5 Альбомов (1976-1979) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская рок-группа, образованная в середине 1970-х годов. Первоначально они назывались Sons Of Doloyne. Группа отличалась сильными мелодиями, умными текстами, сложными вокальными аранжировками и тяжелыми гитарами. В состав группы входили Лол Мейсон, Стив Бротон, Макс Томас, Крис Данн, Роджер Кент, Майк Слэмер, а позже и Рой Уорд. Их самыми популярными песнями (   Читать дальше...   )Альбомы:
+01. City Boy (1976)
+02. Dinner at the Ritz (1976)
+03. Young Men Gone West (1977)(   Читать дальше...   )Жанр: RockПродолжительность: 03:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF544EC61A399AC26E3620CFFD5FB8B1725C757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448608   (1030674) от 18.02.2021
+
+Ramayan - Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Happiness Car [00:07:20]
+02. Saturday Night [00:05:01]
+03. My Soul Doesen't Start [00:08:04]
+04. A Strange Taste [00:06:18](   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF2E5700F66F1893030EEAE0C2E893F6596745A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622172   (1030291) от 28.03.2023
 
 Don & The Dreamers - It's Never Too Late To Be A Rock Star (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
@@ -6,7 +151,7 @@ Don & The Dreamers - It's Never Too Late To Be A Rock Star (2023) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030291.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Ville Valo - Neon Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030023.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ John Lennon - Rock 'N' Roll (1975) Reissue, Remastered, 2014, Universal Music [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029974.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Transatlantic - The Absolute Universe: Forevermore (2021) 2xCD, Extended Version
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029737.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Transatlantic - The Absolute Universe: The Breath Of Life (2021) Abridged Versio
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029727.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Chris Norman (ex-Smokie) - Close Up (2007) [FLAC|Lossless|tracks + .cue]<Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029725.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Broken Silence - Shout It Out Loud (1994) [FLAC|Lossless|image + .cue] <Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029583.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Art Of Illusion - X Marks The Spot (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029567.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ London Symphony Orchestra - Classic Rock Renaissance (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029395.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Louis Michael - Living For The Music (1991) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029393.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Lacrimas Profundere - Bleeding The Stars (2019) [FLAC|Lossless|image + .cue] <Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029326.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Black Keys - Brothers (2010) Deluxe Edition, Remastered, 2020, Nonesuch [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029322.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Alice Cooper - Detroit Stories (2021) [FLAC|Lossless|tracks] <Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029321.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - The Rock Collection: Hot Rock (1992) 2CD Compilation [FLAC|Lossless|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029094.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Bad Dreams - Frоzеn Неаrt (2019) Reissue, 2020, Independent Label [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029071.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Aunt Mary - 4 albums, 5 CD (1970-2020) [FLAC|Lossless|image + .cue | tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029046.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Freddie Mercury - Mr. Bad Guy (1985) [FLAC|Lossless|image + .cue] <Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029013.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Saga - Images at Twilight (1979) Reissue, 1984, Polydor [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028929.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Sonus Umbra - A Sky Full Of Ghosts (2020) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028922.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ Journey - Trial by Fire (1996) Japan [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028920.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Steve Lukather (ex. Toto) - I Found The Sun Again (2021) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028917.jpg" />
 </div>
 
 
@@ -597,150 +742,6 @@ Steve Lukather (ex. Toto) - I Found The Sun Again (2021) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2864FCC80F5C2320F7A6496BF52FBFBB437A239E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450806   (1028877) от 27.02.2021
-
-Chris Norman - Baby I Miss You (2021) Remastered, Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby I Miss You (Remastered)
-02. For You (Remastered)
-03. Into the Night (Remastered)
-04. Stay One More Night (Remastered)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F5667BE33788C8162AE98B87CCFA985E7C2550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450172   (1028729) от 28.02.2021
-
-Christopher Cross - Christopher Cross (1979) Target, Gold, Reissue, 1989, WB [FLAC|Lossless|image + .cue] <Soft Rock, Yacht Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say You'll Be Mine (02:58)
-02. I Really Don't Know Anymore (03:53)
-03. Spinning (04:06)
-04. Never Be the Same (04:46)(   Читать дальше...   )Жанр: Soft Rock, Yacht RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4BBEA321554D13C091B81A7FA40C9425891BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450980   (1028725) от 28.02.2021
-
-Freddie Mercury - Remixes (1993) Compilation, 1994 Japan [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living on My Own (No More Brothers Extended Mix) (05:16)
-02. Time (Nile Rodgers 1992 Remix) (03:50)
-03. Love Kills (Wolf Euro Mix) (03:25)
-04. The Great Pretender (Malouf Mix) (03:39)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8250A805BA4AE29F2A117D12EA7B8C416D1960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451013   (1028724) от 28.02.2021
-
-Гражданская Оборона - Песни в Пустоту (1986) 2CD Ремастеринг, 2018, Выргород [FLAC|Lossless|tracks + .cue] <Acoustic, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жёлтая пресса [00:02:40]
-02. Мама, мама [00:02:39]
-03. Следы на снегу [00:02:19]
-04. БГ [00:02:39](   Читать дальше...   )Жанр: Acoustic, PunkПродолжительность: 2 CD, 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E30E8A3EB9C544F02C046D6C44707F8AEE0AA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451184   (1028567) от 01.03.2021
-
-Fish - Fortunes of War (1994) Promo, CDS, Maxi-Single [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortunes of War (Radio Edit) (03:39)
-02. Fortunes of War (Single Edit) (05:08)
-03. Fortunes of War (Live in London) (06:33)Жанр: Prog RockПродолжительность: 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129A566601F46E79742DCD44395C18E3872756E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

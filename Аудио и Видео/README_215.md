@@ -6,7 +6,7 @@ VA - Breathe & Relax Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306409.jpg" />
+  <img src="Z:/picture/008/save_picture_306409.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - After Sunset Lounge: Chillout Your Mind (2020) [AAC|~331 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306408.jpg" />
+  <img src="Z:/picture/008/save_picture_306408.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - City Sunset Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306407.jpg" />
+  <img src="Z:/picture/008/save_picture_306407.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306335.jpg" />
+  <img src="Z:/picture/008/save_picture_306335.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Summer Breeze Lounge: Chillout Your Mind (2020) [AAC|~327 Kbps] <Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306304.jpg" />
+  <img src="Z:/picture/008/save_picture_306304.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Traveling Lounge: Chillout Your Mind (2020) [AAC|~319 Kbps] <Downtempo, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306303.jpg" />
+  <img src="Z:/picture/008/save_picture_306303.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Sandwalk Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306301.jpg" />
+  <img src="Z:/picture/008/save_picture_306301.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Deep Voyage Lounge: Chillout Your Mind (2020) [AAC|~312 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306299.jpg" />
+  <img src="Z:/picture/008/save_picture_306299.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Beach Bar Lounge: Chillout Your Mind (2020) [AAC|~313 Kbps] <Downtempo, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306290.jpg" />
+  <img src="Z:/picture/008/save_picture_306290.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Soothing Relaxation Lounge: Chillout Your Mind (2020) [AAC|~323 Kbps] <Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306164.jpg" />
+  <img src="Z:/picture/008/save_picture_306164.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305965.jpg" />
+  <img src="Z:/picture/008/save_picture_305965.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305291.jpg" />
+  <img src="Z:/picture/008/save_picture_305291.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305170.jpg" />
+  <img src="Z:/picture/008/save_picture_305170.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304939.jpg" />
+  <img src="Z:/picture/008/save_picture_304939.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304848.jpg" />
+  <img src="Z:/picture/008/save_picture_304848.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304847.jpg" />
+  <img src="Z:/picture/008/save_picture_304847.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304795.jpg" />
+  <img src="Z:/picture/008/save_picture_304795.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304781.jpg" />
+  <img src="Z:/picture/008/save_picture_304781.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304653.jpg" />
+  <img src="Z:/picture/008/save_picture_304653.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304407.jpg" />
+  <img src="Z:/picture/008/save_picture_304407.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Sea Cruising Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304405.jpg" />
+  <img src="Z:/picture/008/save_picture_304405.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Sunny Day Lounge: Chillout Your Mind (2020) [AAC|~314 Kbps] <Downtempo, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304404.jpg" />
+  <img src="Z:/picture/008/save_picture_304404.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Sea & Sand Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo, Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304403.jpg" />
+  <img src="Z:/picture/008/save_picture_304403.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Greatest Hits Instrumental (2020) [AAC|~357 Kbps] <Instrumental, Soundtrack
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304287.jpg" />
+  <img src="Z:/picture/008/save_picture_304287.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Silent Circle - Lost In Space (2020) [AAC|~357 Kbps] <Pop, Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304162.jpg" />
+  <img src="Z:/picture/008/save_picture_304162.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303988.jpg" />
+  <img src="Z:/picture/008/save_picture_303988.jpg" />
 </div>
 
 

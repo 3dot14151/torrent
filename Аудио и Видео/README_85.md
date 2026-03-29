@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761865.jpg" />
+  <img src="Z:/picture/008/save_picture_761865.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761545.jpg" />
+  <img src="Z:/picture/008/save_picture_761545.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761450.jpg" />
+  <img src="Z:/picture/008/save_picture_761450.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761373.jpg" />
+  <img src="Z:/picture/008/save_picture_761373.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ritchie Blackmore's Rainbow - Waiting For A Sign (2018) Single [AAC|256 Kbps] <H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761281.jpg" />
+  <img src="Z:/picture/008/save_picture_761281.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760749.jpg" />
+  <img src="Z:/picture/008/save_picture_760749.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760741.jpg" />
+  <img src="Z:/picture/008/save_picture_760741.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760585.jpg" />
+  <img src="Z:/picture/008/save_picture_760585.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Study Sounds 006 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760443.jpg" />
+  <img src="Z:/picture/008/save_picture_760443.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Study Sounds 008 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760439.jpg" />
+  <img src="Z:/picture/008/save_picture_760439.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Study Sounds 011 (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760438.jpg" />
+  <img src="Z:/picture/008/save_picture_760438.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Study Sounds 004 (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760437.jpg" />
+  <img src="Z:/picture/008/save_picture_760437.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760419.jpg" />
+  <img src="Z:/picture/008/save_picture_760419.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Study Sounds 005 (2021) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760376.jpg" />
+  <img src="Z:/picture/008/save_picture_760376.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Study Sounds 010 (2021) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760375.jpg" />
+  <img src="Z:/picture/008/save_picture_760375.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Study Sounds 009 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760374.jpg" />
+  <img src="Z:/picture/008/save_picture_760374.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - Study Sounds 012 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760372.jpg" />
+  <img src="Z:/picture/008/save_picture_760372.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Study Sounds 007 (2021) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760370.jpg" />
+  <img src="Z:/picture/008/save_picture_760370.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - Study Sounds 002 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760368.jpg" />
+  <img src="Z:/picture/008/save_picture_760368.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VA - Study Sounds 013 (2022) [AAC|~274 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760365.jpg" />
+  <img src="Z:/picture/008/save_picture_760365.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - Study Sounds 003 (2020) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760363.jpg" />
+  <img src="Z:/picture/008/save_picture_760363.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - My Lounge Room: Chillout Your Mind (2022) [AAC|~324 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760237.jpg" />
+  <img src="Z:/picture/008/save_picture_760237.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Not Allowed 2021 Compilation (2022) [AAC|~303 Kbps] <Deep House, Tech House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760235.jpg" />
+  <img src="Z:/picture/008/save_picture_760235.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - The Complete "Blue Cover" Series, vol. 2 (2019) [AAC|~321 Kbps] <Electro Sw
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760233.jpg" />
+  <img src="Z:/picture/008/save_picture_760233.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - The Complete "Blue Cover" Series, vol. 1 (2017) [AAC|~331 Kbps] <Electro Sw
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760232.jpg" />
+  <img src="Z:/picture/008/save_picture_760232.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Study Sounds 001 (2020) [AAC|~316 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760231.jpg" />
+  <img src="Z:/picture/008/save_picture_760231.jpg" />
 </div>
 
 

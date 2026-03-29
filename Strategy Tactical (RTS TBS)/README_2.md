@@ -6,7 +6,7 @@
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917874.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Spellcrafter (2015) [Ru/Multi] (1.0) License PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916350.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ XCOM 2 (2016) [Ru/En/Pl] (1.0.0.33124/dlc) Repack R.G. Origami [Digital Deluxe E
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916340.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Command: Modern Air / Naval Operations (2014) [En] (1.11 SR6 b870.4/dlc) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907880.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dungeons 2 (2015) [Ru] (1.5.2.4-ae89b35a3232/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901852.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901155.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Frontline Zed (2019) [Ru/Multi] (1.30) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899429.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888922.jpg" />
+  <img src="Z:/picture/005/save_picture_888922.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ StarСraft II: Legacy of the Void (2015) [Ru/En] (3.1.4.41219) Battle.Net-Rip OR
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885535.jpg" />
+  <img src="Z:/picture/005/save_picture_885535.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Warhammer 40,000: Armageddon (2014) [Ru/Multi] (1.10/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885517.jpg" />
+  <img src="Z:/picture/005/save_picture_885517.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882659.jpg" />
+  <img src="Z:/picture/005/save_picture_882659.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.6.0/dlc) License GOG (обнов�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880251.jpg" />
+  <img src="Z:/picture/005/save_picture_880251.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Halfway (2014) [En] (1.2.9) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879268.jpg" />
+  <img src="Z:/picture/005/save_picture_879268.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Syrian Warfare (2017) [En] (1.0.0.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869024.jpg" />
+  <img src="Z:/picture/008/save_picture_869024.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ XCOM 2 (2016) [Ru/Multi] (374751/dlc) License GOG [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866782.jpg" />
+  <img src="Z:/picture/008/save_picture_866782.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Panzer Corps (2010) [Ru/Multi] (1.30/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865151.jpg" />
+  <img src="Z:/picture/008/save_picture_865151.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ XCOM 2 (2016) [Ru/En] (374751/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857975.jpg" />
+  <img src="Z:/picture/008/save_picture_857975.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Ceres (2015) [Ru/Multi] (1.2.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853377.jpg" />
+  <img src="Z:/picture/008/save_picture_853377.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Expeditions: Conquistador (2013) [Ru/Multi] (1.6.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853230.jpg" />
+  <img src="Z:/picture/008/save_picture_853230.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Atlantic Fleet (2016) [En] (1.0) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851708.jpg" />
+  <img src="Z:/picture/008/save_picture_851708.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Panzer Corps: Soviet Corps (2016) [Ru/Multi] (1.25/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851616.jpg" />
+  <img src="Z:/picture/008/save_picture_851616.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23391/dlc) SteamRip =nemos= [Master Co
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847532.jpg" />
+  <img src="Z:/picture/008/save_picture_847532.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Fleets of Sol (2016) [En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846207.jpg" />
+  <img src="Z:/picture/008/save_picture_846207.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Warhammer 40,000: Dawn of War II (2009-2010) [Ru/Multi] (2.6.10236) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838481.jpg" />
+  <img src="Z:/picture/008/save_picture_838481.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Gears Tactics (2020) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832530.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Rabiez: Epidemic (2016) [Ru/Multi] (1.01) Repack ALiAS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830192.jpg" />
 </div>
 
 

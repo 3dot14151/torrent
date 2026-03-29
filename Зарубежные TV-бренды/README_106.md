@@ -1,3 +1,107 @@
+###  Публикация: 1514712   (215134) от 04.12.2021
+
+NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215134.jpg" />
+</div>
+
+
+###  Подробнее
+
+У какого хищника самый сильная хватка при укусе? С помощью реалистичной графики мы увидим укусы самых жестоких и смертоносных в мире существ: львов, крокодилов, акул, аллигаторов, ягуаров и многих других.Телекомпания: США / Plimsoll Productions, Aquavision Tv Productions, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Эд ФилдсПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915423   (214854) от 19.12.2015
+
+National Geographic. Взлом системы / Hacking the System (2014) IPTVRip [Серии 1-12 из 12]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брайан Брашвуд  сделал карьеру, думая, как преступник, и теперь он здесь, чтобы показать нам, как избегать людей, которые обманывают систему. Кроме того, он будет давать нам юридические советы и рассказывать о разных уловкахТелекомпания: США, National GeographicЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A1D981E9377CED3DEEEE83E50EBCA219355623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084962   (214209) от 21.12.2016
+
+Фонтаны Краснодара (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214209.jpg" />
+</div>
+
+
+###  Подробнее
+
+На юге России, где теплый сезон длится более полугода, а лето жаркое и засушливое, трудно представить город без фонтанов. Они способны преобразить практически любое пространство, будь то парк, площадь, дачный участок, холл торгового центра или ресторана. Городской оазис, предстающий перед нашими глазами - лишь "вершина айсберга", малая часть большой конструкции. (   Читать дальше...   )Телекомпания: Россия, RTGЖанр: Документальный, познавательныйПеревод: Не требуетсяПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4CA1D9CCB2F8C17A1D0AE4F1E615338C62EBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426374   (214168) от 24.11.2020
+
+Discovery. История Пластика / The Story of Plastic (2019) HDTV [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, охватывающий три континента, иллюстрирует продолжающуюся катастрофу: поля, заполненные мусором, настоящие горы мусора, реки и моря, забитые отходами, и небо, задыхающееся от ядовитых выбросов от производства и обработки пластика. С помощью оригинальной анимации, архивных материалов, снятых в 1930-х годах, и рассказов от первого лица о разворачивающейся чрезвычайной (   Читать дальше...   )Производство: США, Pale Blue Dot Media, Discovery ChannelЖанр: Документальный, природа, экологияРежиссер: Дейа ШлосбергПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AA702C7CDB540138A5F5E6BE07023DD9CC754D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270425   (214041) от 18.12.2018
 
 NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Вдоль по Окаванго / Into the Okavango (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214041.jpg" />
+  <img src="Z:/picture/005/save_picture_214041.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213916.jpg" />
+  <img src="Z:/picture/005/save_picture_213916.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Люди, которые продали Кубок Мира / The Men
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213393.jpg" />
+  <img src="Z:/picture/005/save_picture_213393.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213207.jpg" />
+  <img src="Z:/picture/005/save_picture_213207.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212938.jpg" />
+  <img src="Z:/picture/005/save_picture_212938.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211932.jpg" />
+  <img src="Z:/picture/005/save_picture_211932.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG. Разрушительный ураган Сэнди / Superstorm New York: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211820.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ History Channel. В изоляции (Лабрадор) / Alone (2022) WEB-DL [H
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211808.jpg" />
+  <img src="Z:/picture/005/save_picture_211808.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211586.jpg" />
+  <img src="Z:/picture/005/save_picture_211586.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ History Channel. В изоляции (Арктика) / Alone (2021) WEB-DL [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211541.jpg" />
+  <img src="Z:/picture/005/save_picture_211541.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211376.jpg" />
+  <img src="Z:/picture/005/save_picture_211376.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ PBS: Nature - Отважный Ирак / Braving Iraq (2010) BDRip [H.264/1080p
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210934.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210877.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210231.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NG. В поисках динозавров на Аляске / Hunting Alaskan D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210215.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210196.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210193.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210181.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210155.jpg" />
+  <img src="Z:/picture/005/save_picture_210155.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NG. Путь гепарда / The Way Of the Cheetah (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210010.jpg" />
+  <img src="Z:/picture/005/save_picture_210010.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NG. Настоящая чёрная пантера / The Real Black Panther (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209976.jpg" />
+  <img src="Z:/picture/005/save_picture_209976.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209903.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15644F761783080282B13C7A594F2F046DDC254B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643785   (209885) от 03.07.2023
-
-BBC. Белая королева и ее соперницы / The Real White Queen and Her Rivals (2013) IPTVRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная британская писательница Филиппа Грегори расскажет о трех женщинах, ставших жертвами жестоких предательств и оказавшихся в очаге кровавой династической борьбы, известной как война Алой и Белой розы. Эта война была обусловлена соперничеством за английский престол между двумя ветвями династии Плантагенетов – Ланкастерами и Йорками, герб одних украшала алая (   Читать дальше...   )Производство: Великобритания, Oxsford Scientic Films for BBCЖанр: документально-постановочный, реконструкция, биография, историяРежиссер: Сара Джоблинг, Ричард СандерсУчастники: Филиппа ГрегориПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EB21A1D24EB3BE249CF2C22013B734BA1F8CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644953   (209593) от 07.07.2023
-
-Время атома / Атомная энергетика сегодня / Nuclear Now / Nuclear (2022) WEBRip [H.264/720p] [DVO]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209593.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине XX века атомная энергетика становится альтернативой сжигания ископаемого топлива, которое загрязняет планету и меняет климат. Однако инновационная технология мирного атома на протяжении долгого времени не находит должного отклика у мирового общества, поскольку крупные нефтяные и угольные корпорации запускают масштабную PR-кампанию по запугиванию людей (   Читать дальше...   )Производство: СШАЖанр: документальныйРежиссер: Оливер СтоунПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FAFDEBBDB4B0B624A490F51E90886356B437CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645264   (209490) от 08.07.2023
-
-Квантовая история с Брайаном Грином / Exploring Quantum History with Brian Greene (2015) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все наши физические действия в повседневной жизни обычно легко предсказуемы. Если нам нужно налить кофе и взять в руки чашку, мы делаем это не задумываясь, не прилагая особых усилий. Конечно, может случиться неожиданное, но даже тогда наши действия порождают предсказуемые результаты, которые можно описать, используя тот же самый набор законов физики, которые Исаак (   Читать дальше...   )Производство: США, CuriosityStreamЖанр: документальный, история, исследованияУчастники: Брайан ГринПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 03x ~00:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEF6B99DDFA9B47395A29DDD4A5A59FCD6B4977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645765   (209280) от 11.07.2023
-
-PBS. Охотники за воспоминаниями / Memory Hackers (2016) WEBRip [EN / RU Sub]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Память- это то, что определяет личность человека. Без нее мы были бы узниками настоящего, неспособными использовать уроки прошлого для изменения нашего будущего.
-Но как она работает на самом деле? В фильме показано, как ученые-нейробиологи исследуют мозг, чтобы раскрыть его секреты. Демонстрируется то, как формируются воспоминания, а также новые технологии, используемые (   Читать дальше...   )Производство: США, NOVA Production, WGBH, Public Broadcasting Service (PBS)Жанр: документальный, познавательный, научно-популярныйРежиссер: Анна Ли СтраханПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские (отдельным файлом)Продолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598792BACE4723A8C9E8E50930DD9A5473847C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

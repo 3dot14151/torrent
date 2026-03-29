@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734448.jpg" />
+  <img src="Z:/picture/008/save_picture_734448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734433.jpg" />
+  <img src="Z:/picture/008/save_picture_734433.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734429.jpg" />
+  <img src="Z:/picture/008/save_picture_734429.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - На волнах СССР-FM (2022) [AAC|~308 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734421.jpg" />
+  <img src="Z:/picture/008/save_picture_734421.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734418.jpg" />
+  <img src="Z:/picture/008/save_picture_734418.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734277.jpg" />
+  <img src="Z:/picture/008/save_picture_734277.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734268.jpg" />
+  <img src="Z:/picture/008/save_picture_734268.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734220.jpg" />
+  <img src="Z:/picture/008/save_picture_734220.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734091.jpg" />
+  <img src="Z:/picture/008/save_picture_734091.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734024.jpg" />
+  <img src="Z:/picture/008/save_picture_734024.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734023.jpg" />
+  <img src="Z:/picture/008/save_picture_734023.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734020.jpg" />
+  <img src="Z:/picture/008/save_picture_734020.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734015.jpg" />
+  <img src="Z:/picture/008/save_picture_734015.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734014.jpg" />
+  <img src="Z:/picture/005/save_picture_734014.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Клён ты мой опавший (Лучшие песни и роман�
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734007.jpg" />
+  <img src="Z:/picture/008/save_picture_734007.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734006.jpg" />
+  <img src="Z:/picture/005/save_picture_734006.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ VA - Russian Rock Legends. Vol. 2 (2019) [AAC|~307 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734004.jpg" />
+  <img src="Z:/picture/005/save_picture_734004.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Russian Rock Legends. Vol. 4 (2018) [AAC|~345 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734002.jpg" />
+  <img src="Z:/picture/008/save_picture_734002.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Сергей Есенин. Отговорила роща золотая (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734001.jpg" />
+  <img src="Z:/picture/008/save_picture_734001.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733996.jpg" />
+  <img src="Z:/picture/008/save_picture_733996.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Russian Rock Legends. Vol. 1 (2021) [AAC|~347 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733993.jpg" />
+  <img src="Z:/picture/008/save_picture_733993.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Russian Rock Legends. Vol. 5 (2018) [AAC|~290 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733989.jpg" />
+  <img src="Z:/picture/008/save_picture_733989.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733984.jpg" />
+  <img src="Z:/picture/008/save_picture_733984.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733964.jpg" />
+  <img src="Z:/picture/008/save_picture_733964.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733655.jpg" />
+  <img src="Z:/picture/008/save_picture_733655.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733571.jpg" />
+  <img src="Z:/picture/008/save_picture_733571.jpg" />
 </div>
 
 

@@ -1,3 +1,86 @@
+###  Публикация: 1399860   (725238) от 02.08.2020
+
+Евгения Кретова | Истории о Маше Димкиной и Димке Гречкине (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы думаете, что нелепые случайности и неприятные истории могут случаться только в жизни заядлых двоешников и хулиганов, то вы сильно ошибаетесь. И вот вам доказательство – истории о Маше Димкиной и Диме Гречкине, четвероклассниках и отличниках. Они строят космические модели будильников, инновационно лепят снеговиков и попадают в истории, выйти из которых им (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B075DAA3346E177F47CE80CD445167C2C30D8768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399847   (725150) от 02.08.2020
+
+Дженифер Холм | Четырнадцатая золотая рыбка (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милая, добрая и смешная книга известной американской писательницы Дженнифер Л. Холм, автора бестселлеров The New York Times, а также обладательницы трех медалей Ньюбери.
+
+В жизни одиннадцатилетней Элли никогда не происходило ничего удивительного. Но однажды к ней домой заявился четырнадцатилетний мальчишка с длинными волосами. Он был удивительно похож на ее… дедушку! (   Читать дальше...   )Жанр: Детская литература/Приключения/СказкаПродолжительность: 03:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8AF39EBD68E50FA068AB770A4906E4BDC8919D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399853   (725147) от 02.08.2020
+
+Наталья Щерба, Алексей Березин, Эдуард Овечкин и др. | Удивительные истории о котах (Сборник) (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительные истории про удивительных животных.
+
+С древнейших времен и до наших дней – их рисуют, их обсуждают, о них пишут. Они удивляют нас грациозностью и наглостью, умением тонко чувствовать и преданно любить.
+(   Читать дальше...   )Жанр: Детская литература/Легкая прозаПродолжительность: 11:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F0480072E8C5BA656E9E9ACF057DD330BD6326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 206034   (725128) от 04.06.2010
 
 Астрид Линдгрен | Расмус-Бродяга [2007] [MP3]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725128.jpg" />
+  <img src="Z:/picture/005/save_picture_725128.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724853.jpg" />
+  <img src="Z:/picture/008/save_picture_724853.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724848.jpg" />
+  <img src="Z:/picture/008/save_picture_724848.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724713.jpg" />
+  <img src="Z:/picture/008/save_picture_724713.jpg" />
 </div>
 
 
@@ -112,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723154.jpg" />
+  <img src="Z:/picture/008/save_picture_723154.jpg" />
 </div>
 
 
@@ -141,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723151.jpg" />
+  <img src="Z:/picture/008/save_picture_723151.jpg" />
 </div>
 
 
@@ -170,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722351.jpg" />
+  <img src="Z:/picture/008/save_picture_722351.jpg" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721657.jpg" />
+  <img src="Z:/picture/008/save_picture_721657.jpg" />
 </div>
 
 
@@ -223,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721643.jpg" />
+  <img src="Z:/picture/008/save_picture_721643.jpg" />
 </div>
 
 
@@ -249,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721406.jpg" />
+  <img src="Z:/picture/008/save_picture_721406.jpg" />
 </div>
 
 
@@ -277,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721404.jpg" />
+  <img src="Z:/picture/008/save_picture_721404.jpg" />
 </div>
 
 
@@ -303,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721009.jpg" />
+  <img src="Z:/picture/005/save_picture_721009.jpg" />
 </div>
 
 
@@ -329,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720934.jpg" />
+  <img src="Z:/picture/008/save_picture_720934.jpg" />
 </div>
 
 
@@ -355,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720638.jpg" />
+  <img src="Z:/picture/008/save_picture_720638.jpg" />
 </div>
 
 
@@ -381,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719413.jpg" />
+  <img src="Z:/picture/008/save_picture_719413.jpg" />
 </div>
 
 
@@ -407,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719407.jpg" />
+  <img src="Z:/picture/008/save_picture_719407.jpg" />
 </div>
 
 
@@ -433,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719404.jpg" />
+  <img src="Z:/picture/008/save_picture_719404.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719403.jpg" />
+  <img src="Z:/picture/008/save_picture_719403.jpg" />
 </div>
 
 
@@ -485,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719256.jpg" />
+  <img src="Z:/picture/008/save_picture_719256.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718851.jpg" />
+  <img src="Z:/picture/008/save_picture_718851.jpg" />
 </div>
 
 
@@ -537,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718658.jpg" />
+  <img src="Z:/picture/008/save_picture_718658.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718639.jpg" />
+  <img src="Z:/picture/008/save_picture_718639.jpg" />
 </div>
 
 
@@ -590,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718547.jpg" />
+  <img src="Z:/picture/008/save_picture_718547.jpg" />
 </div>
 
 
@@ -601,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECD8D5BED9D4BDE6EC79F1D649477878666E762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218777   (717412) от 12.04.2018
-
-Алан Сноу | Семейка монстров (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательные приключения Артура и его друзей, среди которых есть удивительные существа – бокс-тролли, покорили сердца детей сначала в Англии, а потом и во всем мире.Жанр: Детская литератураПродолжительность: 08:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100695B71D3D23D63F323E3A0C973EC327FAF766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400761   (717218) от 06.08.2020
-
-Катя Матюшкина, Настя Мишина | Кто украл крокодила? (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Кто украл крокодила?» – первая книга из серии «Путешественники во времени». Это детективная история, действие которой происходит в самых мистических местах Петербурга. Здесь пропадают и находятся загадочные артефакты, происходят перемещения во времени, а во всех событиях самыми главными оказываются верные и храбрые коты во главе с лучшим детективом современности (   Читать дальше...   )Жанр: Детская литература/ДетективПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1967E583BE9170B3406BF9BD9FA96E17390F31F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400753   (717104) от 06.08.2020
-
-Наталья Немцова | Первая энциклопедия в сказках для маленьких почемучек (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для ребёнка мир полон загадок и тайн. Он стремится всё узнать, исследовать, увидеть, попробовать… Чтобы сохранить это стремление к познанию, важно отвечать на все детские вопросы, даже если их бесконечно много. В помощь взрослым создана эта энциклопедия в сказках. Вы найдёте в ней целых 60 сказок о животных и растениях, о природных явлениях, об этикете и полезных (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература/Сказка/ЭнциклопедияПродолжительность: 03:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547ADD0971905CFA44A5FF28B7FFDC50A5B14865
 ```
 
 https://mybot314.ru/tekegram_catalog/

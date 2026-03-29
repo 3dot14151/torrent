@@ -1,3 +1,58 @@
+###  Публикация: 1261139   (304431) от 10.11.2018
+
+И.Л. Бабинская | Задачи математических олимпиад (1975) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой сборник олимпиадных задач по арифметике, алгебре, геометрии и тригонометрии, разбитый по темам, причем почти каждая тема предваряется теоретическими положениями.
+Пособие адресовано учителям математики и интересующимся математикой учащимся.Жанр: задачникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B081435E9B383BDCD6845320015BBA7986411C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423109   (304288) от 11.11.2020
+
+Александр Тихонов | Всё для детского сада. Домашние животные (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашние животные - следующая замечательная книга из серии "Всё для детского сада". Увлекательный текст, запоминающиеся стихи, яркие рисунки непременно вызовут живой отклик, а ведь это так важно - заинтересовать детей, привить тягу к знаниям, к природе и животному миру в самом маленьком возрасте!
+
+В книге известного биолога Александра Тихонова представлены (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423107   (304279) от 11.11.2020
 
 Людмила Доманская, Инна Максимова | Пряталки и находилки. Азбука в картинках (2017) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304279.jpg" />
+  <img src="Z:/picture/008/save_picture_304279.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304017.jpg" />
+  <img src="Z:/picture/008/save_picture_304017.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303499.jpg" />
+  <img src="Z:/picture/008/save_picture_303499.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303272.jpg" />
+  <img src="Z:/picture/008/save_picture_303272.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303251.jpg" />
+  <img src="Z:/picture/008/save_picture_303251.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303084.jpg" />
+  <img src="Z:/picture/008/save_picture_303084.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302635.jpg" />
+  <img src="Z:/picture/008/save_picture_302635.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301195.jpg" />
+  <img src="Z:/picture/008/save_picture_301195.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300985.jpg" />
+  <img src="Z:/picture/008/save_picture_300985.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300948.jpg" />
+  <img src="Z:/picture/008/save_picture_300948.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299832.jpg" />
+  <img src="Z:/picture/008/save_picture_299832.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299569.jpg" />
+  <img src="Z:/picture/008/save_picture_299569.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299462.jpg" />
+  <img src="Z:/picture/008/save_picture_299462.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298785.jpg" />
+  <img src="Z:/picture/008/save_picture_298785.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298723.jpg" />
+  <img src="Z:/picture/008/save_picture_298723.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298544.jpg" />
+  <img src="Z:/picture/008/save_picture_298544.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298130.jpg" />
+  <img src="Z:/picture/008/save_picture_298130.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297936.jpg" />
+  <img src="Z:/picture/008/save_picture_297936.jpg" />
 </div>
 
 
@@ -486,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297870.jpg" />
+  <img src="Z:/picture/008/save_picture_297870.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297610.jpg" />
+  <img src="Z:/picture/008/save_picture_297610.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297573.jpg" />
+  <img src="Z:/picture/008/save_picture_297573.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297139.jpg" />
+  <img src="Z:/picture/008/save_picture_297139.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297114.jpg" />
+  <img src="Z:/picture/008/save_picture_297114.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296797.jpg" />
+  <img src="Z:/picture/008/save_picture_296797.jpg" />
 </div>
 
 
@@ -632,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFE77A7427D5D8301C10B017CEDBABFB934DAD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962060   (296561) от 03.12.2015
-
-Сергей Матвеев | Английский язык для детей. Большой самоучитель (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой уникальное пособие по основным правилам чтения и произношения в английском языке. С ее помощью Ваш ребенок освоит произношение и написание основных букв и буквосочетаний и выучит самые необходимые на начальном уровне слова. Самоучитель содержит задания на тренировку пройденного материала; в конце вы найдете словарь, по которому можно проверить, (   Читать дальше...   )Жанр: Иностранный язык детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF2FF6B7537C5F7E9EF4A9D568EE5BAE880B0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962069   (296449) от 03.12.2015
-
-Сергей Матвеев, Виктория Державина | Английский язык для школьников. 5 книг в одной (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Иностранный язык детямФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E4DD79BD481B80CE5C45EFF4DC2BFE6D809D40
 ```
 
 https://mybot314.ru/tekegram_catalog/

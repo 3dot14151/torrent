@@ -1,3 +1,107 @@
+###  Публикация: 1025485   (700195) от 17.06.2016
+
+NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700195.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПРОРЫВ покажет вам пробуждающую работу мысли и воображение перспективу научных открытий в реальном времени. В каждом эпизоде мы будем наблюдать за работой учёных и исследователей, работающих над передовыми проектами с огромным потенциалом: способные к трансформации приборы, решающие неотложные проблемы (как, например, разработка вакцины от вируса Эболы, поиски способа (   Читать дальше...   )Производство: National Geographic, Asylum Entertainment, Imagine Entertainment SeeЖанр: Документальный, научно-познавательныйРежиссер: Рон Ховард, Бретт Ратнет, Пол Джаматти, Акива Голдсман, Анджела Бассетт и Питер БергПеревод: Одноголосый закадровый, профессиональный | Студия ВелесПродолжительность: 6 х ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1CF5DE0288166692F00BB6ED90E4B7F6793DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023982   (700080) от 17.06.2016
+
+Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие считают, что деньги правят миром, но эколог-экстремал Роб Гринфилд собирается доказать, что человеческая доброта и взаимовыручка дороже любых денег. Вместе с режиссером-документалистом Джеймсом Левеллом он ставит невероятный эксперимент: его цель – преодолеть 9000 километров от Бразилии до Панамы без единого цента в кармане. Никаких денег, никаких кредитных (   Читать дальше...   )Телекомпания: Discovery Channel HDЖанр: Документальный, Спорт, Видовой, Приключения, ЭкстримПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 6 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BA3B1C88AB54096BA852BF4C75D2ABE87361D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025706   (700072) от 17.06.2016
+
+NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот уникальный эксперимент предлагает беспрецедентную возможность узнать ответы на такие вопросы, как: были ли у Ти-рекса перья или нет, как он питался с такими маленькими ручками, был он изначально хищником или падальщиком, как он переваривал пищу, как долго жил, как размножался и был ли он теплокровным как млекопитающее или хладнокровным как рептилия. С глазами (   Читать дальше...   )Телекомпания: Produced By Impossible Factual LTD & For National Geographic ChannelЖанр: Документальный, познавательный, палеонтологияРежиссер: Ричард ДэйлПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9496B3A4FB4BDA95001735534A086F9D73D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025412   (700069) от 17.06.2016
+
+Проклятие ледяного золота / Curse of the Frozen Gold (2016) HDTVRip [H.264/1080p-LQ] (Сезон 1 серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канал Дискавери представляет новый сериал про добычу золота «Проклятие ледяного золота / The curse of the ice of gold 2016». В практически неизведанных горах Британской Колумбии миллионы лет прячут одну из самых таинственных тайн на планете. Легенда о Слумаче – индейце, который в этих местах нашел золото и когда был пойман и по пытками не выдал места где оно хранилось. (   Читать дальше...   )Производство: Discovery ChannelЖанр: Документальный, Природа и животные, ПутешествияПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 6 x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D254333821AAD9DADC56AF64AB27EA10AED2346F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319157   (699243) от 15.08.2020
 
 Ароматное происхождение / Flavorful Origins (2019-2020) WEB-DL [H.264/1080p-LQ] (сезоны 1-2, серии 1-30 из 30) [VO]
@@ -6,7 +110,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699243.jpg" />
+  <img src="Z:/picture/008/save_picture_699243.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699067.jpg" />
+  <img src="Z:/picture/008/save_picture_699067.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699051.jpg" />
+  <img src="Z:/picture/008/save_picture_699051.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698581.jpg" />
+  <img src="Z:/picture/008/save_picture_698581.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698576.jpg" />
+  <img src="Z:/picture/008/save_picture_698576.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698405.jpg" />
+  <img src="Z:/picture/008/save_picture_698405.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698117.jpg" />
+  <img src="Z:/picture/008/save_picture_698117.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697376.jpg" />
+  <img src="Z:/picture/008/save_picture_697376.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Animal Planet: Рожденные свободными / From Cubs to Kings (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697363.jpg" />
+  <img src="Z:/picture/008/save_picture_697363.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696862.jpg" />
+  <img src="Z:/picture/008/save_picture_696862.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ History Channel: Охота за трансильванским золотом /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696721.jpg" />
+  <img src="Z:/picture/008/save_picture_696721.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Discovery. Техногеника. Центр подготовки космон�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696530.jpg" />
+  <img src="Z:/picture/008/save_picture_696530.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696278.jpg" />
+  <img src="Z:/picture/008/save_picture_696278.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ BBC. Вся правда о характере / The Truth About Personality (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696099.jpg" />
+  <img src="Z:/picture/008/save_picture_696099.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696095.jpg" />
+  <img src="Z:/picture/008/save_picture_696095.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695915.jpg" />
+  <img src="Z:/picture/008/save_picture_695915.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695550.jpg" />
+  <img src="Z:/picture/008/save_picture_695550.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695549.jpg" />
+  <img src="Z:/picture/008/save_picture_695549.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695547.jpg" />
+  <img src="Z:/picture/008/save_picture_695547.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695036.jpg" />
+  <img src="Z:/picture/008/save_picture_695036.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695034.jpg" />
+  <img src="Z:/picture/008/save_picture_695034.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694299.jpg" />
+  <img src="Z:/picture/008/save_picture_694299.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B92D04AE74CCC5CB41250223BA97BC8D6C634CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705086   (694164) от 20.06.2016
-
-BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In The Huddle (2013) HDTVRip [H.264/720p-LQ] [3 серии из 3]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Жанр: Документальный, познавательный, фауна, животный мир, пингвиныПеревод: Одноголосый закадровый (любительский)Субтитры: вшитые, отключаемыеЯзык субтитров: русский, английскийПродолжительность: 3 х ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242C9114A7E46EA3A45ACE857E4AD2C58E7E80EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907375   (694035) от 20.06.2016
-
-BBC: Времена года Британии / The Great British Year (2013) BDRemux [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великобритания - островное государство, со всех сторон окруженное морями и круглый год продуваемое ветрами. Нигде в мире больше нет столь уникальных условий, порождающих непредсказуемую, постоянно меняющуюся погоду, неповторимые Британские времена года... BBC давно известна своими замечательными документальными фильмами. Новый проект телеканала, состоящий из четырех (   Читать дальше...   )Жанр: Документальный, видовойРежиссер: Джеймс БриклПеревод: Одноголосый закадровый, профессиональный | студия "Омикрон"Язык субтитров: ГолландскийПродолжительность: 03:26:44 (00:51:40 + 00:51:36 + 00:51:19 + 00:52:09)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A3A1A8DBC649ACA3B9620B156A531D2DA68B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288766   (693918) от 12.03.2019
-
-NGW: Дикая Монголия: страна крайностей. Степь / Wild Mongolia. Land of Extremes (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположенная в самом центре Азии, Монголия является домом для одних из самых жизнеспособных, адаптировавшихся к жизни в суровых условиях животных на земле.
-Монгольская степь раскинулась между таежными лесами на севере и пустыней Гоби на юге. Это дом для животных, вся жизнь которых вращается вокруг одной жизненно необходимой для них вещи - травы.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Нейджел ЛьяциПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CCBEE60592D4D2D09E82DEBDA14629D3DA6773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288598   (693914) от 12.03.2019
-
-NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли человек пробежать марафон менее, чем за 2 часа? Текущий мировой рекорд равен 02:02:57. Его установил 28 сентября 2014 года кенийский спортсмен Деннис Киметто. Однако, три атлета (Лелиса Десиса, Зерсенай Тадесе и Элиуд Кипчоге) хотят преодолеть двухчасовой баръер. Это не просто сложно, а практически невозможно...Производство: США, National Geographic Studios LLC, Dirty RobberЖанр: Документальный, спортРежиссер: Мартин Десмонд РоуПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF2746822F2D853D5B99717FCCC333681C91CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

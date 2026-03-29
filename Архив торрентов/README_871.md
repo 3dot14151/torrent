@@ -6,7 +6,7 @@ GoldWave 6.27 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850027.jpg" />
+  <img src="Z:/picture/008/save_picture_850027.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Contacts Backup & Restore PRO 2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850011.jpg" />
+  <img src="Z:/picture/008/save_picture_850011.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Opera 68.0.3618.46 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849998.jpg" />
+  <img src="Z:/picture/008/save_picture_849998.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Cent Browser 4.2.10.169 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849995.jpg" />
+  <img src="Z:/picture/008/save_picture_849995.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Phone Cooler Pro | Cool & High Temperature 1.1.r [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849993.jpg" />
+  <img src="Z:/picture/008/save_picture_849993.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849968.jpg" />
+  <img src="Z:/picture/008/save_picture_849968.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849942.jpg" />
+  <img src="Z:/picture/008/save_picture_849942.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849930.jpg" />
+  <img src="Z:/picture/008/save_picture_849930.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849923.jpg" />
+  <img src="Z:/picture/008/save_picture_849923.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Clipdiary 5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849917.jpg" />
+  <img src="Z:/picture/008/save_picture_849917.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Auslogics Anti-Malware 2017 1.9.1.0 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849906.jpg" />
+  <img src="Z:/picture/008/save_picture_849906.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kinza Browser 6.2.2 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849899.jpg" />
+  <img src="Z:/picture/008/save_picture_849899.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ LibreOffice 6.4.3.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849893.jpg" />
+  <img src="Z:/picture/008/save_picture_849893.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Smart Shooter 4 v4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849892.jpg" />
+  <img src="Z:/picture/008/save_picture_849892.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Topaz Mask AI 1.2.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849886.jpg" />
+  <img src="Z:/picture/008/save_picture_849886.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ MediaMonkey Gold 4.1.28.1905 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849885.jpg" />
+  <img src="Z:/picture/008/save_picture_849885.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VA - Car Audio Vol.16 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849831.jpg" />
+  <img src="Z:/picture/009/save_picture_849831.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849830.jpg" />
+  <img src="Z:/picture/008/save_picture_849830.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849826.jpg" />
+  <img src="Z:/picture/008/save_picture_849826.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Icecream Screen Recorder Pro 4.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849805.jpg" />
+  <img src="Z:/picture/008/save_picture_849805.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ qBittorrent 4.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849790.jpg" />
+  <img src="Z:/picture/008/save_picture_849790.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Altium Designer 17.0.11 Build 656 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849781.jpg" />
+  <img src="Z:/picture/008/save_picture_849781.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AKVIS Points 3.0.258.14357 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849779.jpg" />
+  <img src="Z:/picture/008/save_picture_849779.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ The Bat! Professional 9.1.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849721.jpg" />
+  <img src="Z:/picture/008/save_picture_849721.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849692.jpg" />
+  <img src="Z:/picture/008/save_picture_849692.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849682.jpg" />
+  <img src="Z:/picture/008/save_picture_849682.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1133680   (693146) от 13.05.2017
+
+Л.Г. Лишин, О.Б. Попов | Запись цифровых аудио- и видеосигналов (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематизирована обширная информация в области современных способов записи аудио- и видеоинформации, ее накопления, хранения и преобразования в различных форматах. Представлены сведения по истории развития, принципам работы, параметрам и характеристикам различных систем записи и архивирования информации. Приведены примеры практической реализации систем записи и (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BA91462556E09CC55421B1EC7D41521BADF27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133651   (693134) от 13.05.2017
+
+А.М. Сомов и др. | Устройства СВЧ и малогабаритные антенны (2012) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены общие положения теории электромагнитных волн и устройств СВЧ, рассмотрены различные линии передачи, включая волноводы прямоугольного и круглого сечения, коаксиальные и микрополосковые линии, указаны способы согласования их сопротивлений.
+Также рассмотрены объемные резонаторы, построенные на основе линий питания, и элементы СВЧ. В завершении рассмотрены различные (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30765744B21751E04E151273FCECB1EA90F58483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133701   (693133) от 13.05.2017
 
 М.П. Трухин | Основы компьютерного проектирования и моделирования радиоэлектронных средств (2015) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693133.jpg" />
+  <img src="Z:/picture/008/save_picture_693133.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693132.jpg" />
+  <img src="Z:/picture/008/save_picture_693132.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693024.jpg" />
+  <img src="Z:/picture/008/save_picture_693024.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692845.jpg" />
+  <img src="Z:/picture/008/save_picture_692845.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691294.jpg" />
+  <img src="Z:/picture/008/save_picture_691294.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691179.jpg" />
+  <img src="Z:/picture/008/save_picture_691179.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691178.jpg" />
+  <img src="Z:/picture/008/save_picture_691178.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691169.jpg" />
+  <img src="Z:/picture/008/save_picture_691169.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690988.jpg" />
+  <img src="Z:/picture/008/save_picture_690988.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690983.jpg" />
+  <img src="Z:/picture/008/save_picture_690983.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690880.jpg" />
+  <img src="Z:/picture/008/save_picture_690880.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689426.jpg" />
+  <img src="Z:/picture/008/save_picture_689426.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689304.jpg" />
+  <img src="Z:/picture/008/save_picture_689304.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689166.jpg" />
+  <img src="Z:/picture/008/save_picture_689166.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688957.jpg" />
+  <img src="Z:/picture/008/save_picture_688957.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688272.jpg" />
+  <img src="Z:/picture/008/save_picture_688272.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687081.jpg" />
+  <img src="Z:/picture/008/save_picture_687081.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686954.jpg" />
+  <img src="Z:/picture/008/save_picture_686954.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686790.jpg" />
+  <img src="Z:/picture/008/save_picture_686790.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686151.jpg" />
+  <img src="Z:/picture/008/save_picture_686151.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686016.jpg" />
+  <img src="Z:/picture/008/save_picture_686016.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684804.jpg" />
+  <img src="Z:/picture/008/save_picture_684804.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684714.jpg" />
+  <img src="Z:/picture/008/save_picture_684714.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684112.jpg" />
+  <img src="Z:/picture/008/save_picture_684112.jpg" />
 </div>
 
 
@@ -625,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19884D37AA78DE6494F0867803B5500A4126AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535565   (684108) от 07.03.2022
-
-Е.А. Кирова (ред.) | Налоги и налогообложение. Учебник и практикум (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684108.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе представлена эволюция налогообложения с древнейших времен до наших дней. Рассмотрены основные принципы и особенности построения современной налоговой системы РФ. Дана подробная характеристика основных налогов и обязательных платежей по состоянию на 1 мая 2021 г., рассмотрены вопросы налогового права, налогообложения юридических и физических лиц, а также субъектов (   Читать дальше...   )Жанр: НалогообложениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D69B1C953C2E2511B0FFDA603767A7648B48ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535597   (684106) от 07.03.2022
-
-О.С.  Боброва и др. | Основы бизнеса. Учебник и практикум (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684106.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе рассматриваются теоретические основы и практические аспекты предпринимательства в России, включая его историю, среду формирования, организационные основы, в частности — налоговое регулирование, материальные и нематериальные ресурсы, включая инвестиции. Уделено внимание государственной поддержке бизнеса. Раскрыта сущность планирования, описаны практико-ориентированные (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D73D4DCD2817FB3CCABC5490D949C863E50954
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870880.jpg" />
+  <img src="Z:/picture/008/save_picture_870880.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Capture 9.7 RePack & Portable by  by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870822.jpg" />
+  <img src="Z:/picture/008/save_picture_870822.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5215.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870817.jpg" />
+  <img src="Z:/picture/008/save_picture_870817.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CoolUtils Total Audio Converter 5.2.0.152 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870806.jpg" />
+  <img src="Z:/picture/008/save_picture_870806.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870797.jpg" />
+  <img src="Z:/picture/008/save_picture_870797.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870791.jpg" />
+  <img src="Z:/picture/008/save_picture_870791.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870783.jpg" />
+  <img src="Z:/picture/008/save_picture_870783.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ R-Studio Network Edition 8.13 build 176093 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870765.jpg" />
+  <img src="Z:/picture/008/save_picture_870765.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MediaHuman YouTube Downloader 3.9.9.35 (0604) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870758.jpg" />
+  <img src="Z:/picture/008/save_picture_870758.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870755.jpg" />
+  <img src="Z:/picture/008/save_picture_870755.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Total Uninstall Pro 5.9.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870715.jpg" />
+  <img src="Z:/picture/008/save_picture_870715.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VirusBuster Professional 32/64bit 7.0.52 [multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870709.jpg" />
+  <img src="Z:/picture/008/save_picture_870709.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870707.jpg" />
+  <img src="Z:/picture/008/save_picture_870707.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870702.jpg" />
+  <img src="Z:/picture/008/save_picture_870702.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870701.jpg" />
+  <img src="Z:/picture/008/save_picture_870701.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870697.jpg" />
+  <img src="Z:/picture/008/save_picture_870697.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870696.jpg" />
+  <img src="Z:/picture/008/save_picture_870696.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Wondershare UniConverter 11.7.4.2 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870678.jpg" />
+  <img src="Z:/picture/008/save_picture_870678.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Kinza Browser 6.2.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870677.jpg" />
+  <img src="Z:/picture/008/save_picture_870677.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Complete Internet Repair 5.2.3.4066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870666.jpg" />
+  <img src="Z:/picture/008/save_picture_870666.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870618.jpg" />
+  <img src="Z:/picture/008/save_picture_870618.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ CCleaner Browser 80.0.3765.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870599.jpg" />
+  <img src="Z:/picture/008/save_picture_870599.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ HiBit Uninstaller 2.3.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870518.jpg" />
+  <img src="Z:/picture/008/save_picture_870518.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ TeamViewer Free 15.4.8332 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870510.jpg" />
+  <img src="Z:/picture/008/save_picture_870510.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BitTorrent 7.10.5 (build 45597) Portable by SanLex (Pro) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870504.jpg" />
+  <img src="Z:/picture/008/save_picture_870504.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870450.jpg" />
+  <img src="Z:/picture/008/save_picture_870450.jpg" />
 </div>
 
 

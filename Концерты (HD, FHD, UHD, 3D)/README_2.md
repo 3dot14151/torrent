@@ -1,3 +1,81 @@
+###  Публикация: 1471926   (1013806) от 28.05.2021
+
+Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264/1080p-LQ] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия заключительного концерта группы Motley Crue, состоявшегося в Лос-Анджелесе 28, 30 и 31 декабря 2015 года.Производство: США | Eagle Rock EntertainmentЖанр: Glam Metal, Heavy MetalРежиссер: Christian LambПеревод: ОтсутствуетПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0581D5793FDACEF27D08C21C0F1949DB6BD121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476960   (1011265) от 13.06.2021
+
+Квартирник НТВ у Маргулиса. Группа Нейромонах Феофан (12.06.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — одна из самых необычных групп отечественной эстрады. Участникам удалось совместить несовместимые вещи — drum ’n’ bass и русско-народные мотивы. Музыкальная троица, состоящая из Нейромонаха Феофана, личность которого долгое время находилась в тени, Никодима и Медведя вот уже более 10 лет будоражит всех своими композициями.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93997FDC496CCD414C74C133C682FE804C1FA3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477176   (1011097) от 14.06.2021
+
+One Desire - One Night Only - Live In Helsinki (2021) ВDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финские хард рокеры One Desire выпустили 11 июня свою новую концертную работу "One Night Only - Live In Helsinki" в вариантах CD/DVD, Blu-ray, LP. Это первый и долгожданный концертный альбом и видео группы (образовалась в 2012, а в 2017 выпустили свой дебютный альбом с одноименным названием). В марте 2020 года группа отправилась в путь с оркестром Night (   Читать дальше...   )Производство: Европа, Frontiers, Nuclear Blast RecordsЖанр: Концертная программа, рокАктеры: Андре Линман, Джимми Вестерлунд, Осси Сивула, Йонас КухлбергПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: АнглийскиеПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6FB1F8C0DF7DF4C9352DA9E03507827922B125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477185   (1011083) от 14.06.2021
 
 Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@ Joe Bonamassa - Now Serving - Royal Tea Live From The Ryman (2021) BDRemux [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011083.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010122.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009651.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Toto: С небольшой помощью моих друзей / Toto: With A 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008824.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008680.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007566.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [720p] [hand made 60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004654.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004429.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003916.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003423.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003142.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003136.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ Nightwish: Decades - Live in Buenos Aires (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002373.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ David Garrett: Music Live In Concert (2012) Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000331.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000317.jpg" />
 </div>
 
 
@@ -415,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000314.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000099.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998999.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998798.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998768.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998520.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Schiller / Atemlos Live (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998454.jpg" />
 </div>
 
 
@@ -615,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998013.jpg" />
 </div>
 
 
@@ -626,87 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F5D490A0612CC872EF13B93F28331426578557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600438   (997981) от 11.01.2013
-
-Песня года 2012 (1 часть) (2013) 1080i HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997981.jpg" />
-</div>
-
-
-###  Подробнее
-
-На телеканале "Россия" - главный концерт страны! Участвуют все звезды! Концерт "Песня года" в Москве – это своеобразное подведение итогов. Каждый уходящий год – это отдельный музыкальный сезон, в котором были свои дебюты и свои провалы, взлеты и падения. По итогам каждого музыкального сезона звездное жюри отбирает лучшие композиции. Так "Песня (   Читать дальше...   )Жанр: Концерт, ТелепередачаПродолжительность: 02:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6E928CB67AF1EF9257958A0D28BD4C13A1252E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602123   (997642) от 12.01.2013
-
-СупердискотЭка / Супердискотека 90-х. Санкт-Петербург, СКК (11.01.2013) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - Новогодняя
-02. Татьяна Булавнова - Мой ненаглядный
-03. Руки вверх! - Крошка моя (Live)
-04. Руки вверх! - Лишь о тебе мечтая (Live)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:27:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602985   (997136) от 14.01.2013
-
-Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт прошел 26 июня 2011 года в Кёльне (Германия) , при огромном стечении людей, билеты распроданы за месяц вперед и зал оказался переполнен.Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:44:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1511676   (245955) от 21.11.2021
+
+Jesse Damon - Damon's Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play To Win
+02. Love Gone Wild
+03. Shadows Of Love
+04. Damon's Rage(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81766192A2DAA116F15128865C28B19111F381AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623556   (245899) от 02.04.2023
+
+Roxanne - Stereo Typical (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereotypical (3:50)
+02. Looks Like Rain (Lead Guitar – Paul Gilbert) (3:18)
+03. Gotta Live (Lead VocalsЖанр: Melodic Hard RockПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0B4FEB85A69C3664DAD8CC6A1F9611378AE9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608212   (245801) от 29.01.2023
 
 Little Black Stitches - Hush Crush (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +63,7 @@ Little Black Stitches - Hush Crush (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245801.jpg" />
+  <img src="Z:/picture/004/save_picture_245801.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Faithful Annie - Sideways (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245653.jpg" />
+  <img src="Z:/picture/004/save_picture_245653.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ The Dead Daisies - Ноlу Grоund (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245604.jpg" />
+  <img src="Z:/picture/004/save_picture_245604.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Jaggu - Rites for the Damned (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245596.jpg" />
+  <img src="Z:/picture/004/save_picture_245596.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ Dirch - First We Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245591.jpg" />
+  <img src="Z:/picture/004/save_picture_245591.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ Giant Sleep - Grounded to the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245549.jpg" />
+  <img src="Z:/picture/004/save_picture_245549.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ Devil's Whiskey - Historias De Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245527.jpg" />
+  <img src="Z:/picture/004/save_picture_245527.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ Roxanne - Radio Silence (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245472.jpg" />
+  <img src="Z:/picture/004/save_picture_245472.jpg" />
 </div>
 
 
@@ -238,7 +295,7 @@ Persian Risk - Who Am I? - Once A King (2012-2014) 2xCD, Reissue, 2019, Escape M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245414.jpg" />
+  <img src="Z:/picture/004/save_picture_245414.jpg" />
 </div>
 
 
@@ -267,7 +324,7 @@ Ghosts of Sunset - Breathe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245337.jpg" />
+  <img src="Z:/picture/004/save_picture_245337.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245150.jpg" />
+  <img src="Z:/picture/004/save_picture_245150.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245113.jpg" />
+  <img src="Z:/picture/004/save_picture_245113.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245051.jpg" />
+  <img src="Z:/picture/004/save_picture_245051.jpg" />
 </div>
 
 
@@ -383,7 +440,7 @@ Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245030.jpg" />
+  <img src="Z:/picture/004/save_picture_245030.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244883.jpg" />
+  <img src="Z:/picture/004/save_picture_244883.jpg" />
 </div>
 
 
@@ -441,7 +498,7 @@ Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244853.jpg" />
+  <img src="Z:/picture/004/save_picture_244853.jpg" />
 </div>
 
 
@@ -470,7 +527,7 @@ Degreed - Are You Ready (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244667.jpg" />
+  <img src="Z:/picture/004/save_picture_244667.jpg" />
 </div>
 
 
@@ -499,7 +556,7 @@ Platens - Of Poetry And Silent Mastery (2021) Japanese Edition [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244603.jpg" />
+  <img src="Z:/picture/004/save_picture_244603.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ City Of Lights - Before the Sun Sets (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244569.jpg" />
+  <img src="Z:/picture/004/save_picture_244569.jpg" />
 </div>
 
 
@@ -557,7 +614,7 @@ Godsleep - Lies to Survive (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244488.jpg" />
+  <img src="Z:/picture/004/save_picture_244488.jpg" />
 </div>
 
 
@@ -586,7 +643,7 @@ Guild Of Ages - One (1998) [FLAC|Lossless|image + .cue] <Progressive & Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244449.jpg" />
 </div>
 
 
@@ -615,7 +672,7 @@ Bourbon House - The Fourth Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244432.jpg" />
 </div>
 
 
@@ -644,7 +701,7 @@ White Lion - Love Don't Come Easy (1991) CDS, Single [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244403.jpg" />
 </div>
 
 
@@ -672,7 +729,7 @@ Guild Of Ages - Vox Dominatas (1999) [FLAC|Lossless|image + .cue] <Progressive &
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244387.jpg" />
 </div>
 
 
@@ -686,64 +743,6 @@ Guild Of Ages - Vox Dominatas (1999) [FLAC|Lossless|image + .cue] <Progressive &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433236DB4F13D6E801E2825561724C3DCA8870C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452798   (244339) от 07.03.2021
-
-Empire - Sound Barrier (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Barrier
-02. Margin Call
-03. Conversation
-04. I Won't Be There(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EE0B83E171E8B1C1DC74AF1E4584B660207529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536532   (244069) от 12.03.2022
-
-Epic - Starlight (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want
-02. Carry On
-03. Can't Get Over You
-04. Groovin' For You(   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7194F866DEF8EA0387605BA66C7791CCF889810B
 ```
 
 https://mybot314.ru/tekegram_catalog/

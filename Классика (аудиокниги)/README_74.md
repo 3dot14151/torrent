@@ -1,3 +1,116 @@
+###  Публикация: 459535   (79079) от 28.02.2012
+
+Джек Лондон | Мартин Иден (2011) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика (аудио)
+Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
+«Мартин Иден» – роман Джека Лондона о мечте и успехе. Простой моряк, в котором легко узнать самого автора, проходит длинный, полный лишений путь к литературному бессмертию...
+Волею случая оказавшийся (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Сергей ЗаяицкийИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 13:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15CFDD699B441746F6757E09E10B267D94710B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450408   (75537) от 11.02.2012
+
+Александр Солженицын | Один день Ивана Денисовича (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое опубликованное произведение Александра Солженицына, принёсшее ему мировую известность.
+Рассказывается об одном дне из жизни заключённого, русского крестьянина и солдата, Ивана Денисовича Шухова, в январе 1951 года.Жанр: литература 20 векаПродолжительность: 04:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D629B3645180FEB7ACBA1A3630FF6E4146AA43A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 449075   (74877) от 08.02.2012
+
+Уильям Шекспир | Сонеты (1987) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям (Вильям) Шекспир – великий английский поэт и драматург, чье творчество является бесценным достоянием мировой культуры.
+В аудиокнигу вошли 154 сонета Шекспира в переводе Самуила Яковлевича Маршака, сделавших их достоянием русской поэзии.
+
+Мы урожая ждем от лучших лоз,(   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде Не КупишьПродолжительность: 03:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0236703BFA9B5713816A0AB116308C49A58AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770631   (71964) от 02.01.2025
+
+Фёдор Достоевский | Униженные и оскорбленные (2023) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый «книжный» и «литературный» роман Достоевского, написанный после возвращения из сибирской каторги. Это время не могло не повлиять на его идейно-художественную эволюцию. Он вынес из Сибири убеждение о трагической оторванности передовой русской интеллигенции от «почвы» и неверие в революционный путь преобразования русской действительности.
+
+В художественном переосмыслении (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ЭксмоПродолжительность: 12:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0934A88AD02135DE4748F6E08AEBC6EB0EDA85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770624   (71963) от 02.01.2025
 
 Николай Гоголь | Вечера на хуторе близ Диканьки (2024) [MP3, Всеволод Кузнецов]
@@ -6,7 +119,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71963.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71947.jpg" />
 </div>
 
 
@@ -60,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71946.jpg" />
 </div>
 
 
@@ -86,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71939.jpg" />
 </div>
 
 
@@ -113,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71925.jpg" />
 </div>
 
 
@@ -141,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71910.jpg" />
 </div>
 
 
@@ -169,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71905.jpg" />
 </div>
 
 
@@ -195,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71904.jpg" />
 </div>
 
 
@@ -223,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71886.jpg" />
 </div>
 
 
@@ -249,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71878.jpg" />
 </div>
 
 
@@ -277,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71873.jpg" />
 </div>
 
 
@@ -305,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71871.jpg" />
 </div>
 
 
@@ -333,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71848.jpg" />
 </div>
 
 
@@ -359,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71847.jpg" />
 </div>
 
 
@@ -385,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71840.jpg" />
 </div>
 
 
@@ -413,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71837.jpg" />
 </div>
 
 
@@ -439,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71836.jpg" />
 </div>
 
 
@@ -466,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71821.jpg" />
 </div>
 
 
@@ -494,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71819.jpg" />
 </div>
 
 
@@ -520,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71817.jpg" />
 </div>
 
 
@@ -546,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71813.jpg" />
 </div>
 
 
@@ -572,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71810.jpg" />
 </div>
 
 
@@ -583,110 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0D3D86C63E96202B0B8070E8891F8873829587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771894   (71807) от 08.01.2025
-
-Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771895   (71803) от 08.01.2025
-
-Федор Достоевский | Идиот (2013) [MP3, Александр Андриенко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71803.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Идиот» — роман, в котором Достоевский впервые с подлинной страстью, ярко и полно изобразил положительного героя, каким его представлял. В князе Мышкине соединились одновременно, умиротворенность, граничащая с беспечностью, и невозможность пройти мимо беды ближнего. В «нормальном» обществе людей, одержимых корыстью и разрушительными страстями, князь Мышкин — идиот. (   Читать дальше...   )Жанр: Русская классика, романИздательство: Предание.руПродолжительность: 27:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CEB063001AD95FAEA01081169FC216FD142FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771889   (71797) от 08.01.2025
-
-Федор Достоевский | Идиот (2014) [MP3, Владимир Еремин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Мышкин, главный герой знаменитого романа Ф. М. Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет Достоевский. (   Читать дальше...   )Жанр: Русская классика, романИздательство: ИП Сергей ГригорянПродолжительность: 26:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57B13405A7E317A408D5C22B6599D5BE3FC1859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773849   (71662) от 17.01.2025
-
-Фёдор Достоевский | Село Степанчиково и его обитатели (2024) [MP3, Михаил Богдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Александрович, столичный студент, узнает, что с семьей его опекуна Ростанева творятся какие-то странные и неприятные вещи. Со свойственной ему самоуверенностью он немедленно решает во всем разобраться, и для того отправляется в поместье. Встречающийся ему по дороге сосед Ростанева рассказывает о вещах столь абсурдных и жутких, что в них и поверить-то сложно. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АРДИСПродолжительность: 09:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6737DE79081170F59D6002DCD99D4442EA4E5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

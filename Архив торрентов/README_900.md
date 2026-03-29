@@ -6,7 +6,7 @@ Assassin’s Creed: Brotherhood / Assassin's Creed: Братство крови 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842040.jpg" />
+  <img src="Z:/picture/008/save_picture_842040.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVP: Evolution 1.7.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842039.jpg" />
+  <img src="Z:/picture/008/save_picture_842039.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842027.jpg" />
+  <img src="Z:/picture/008/save_picture_842027.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841954.jpg" />
+  <img src="Z:/picture/008/save_picture_841954.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841953.jpg" />
+  <img src="Z:/picture/008/save_picture_841953.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841951.jpg" />
+  <img src="Z:/picture/008/save_picture_841951.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841912.jpg" />
+  <img src="Z:/picture/008/save_picture_841912.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841911.jpg" />
+  <img src="Z:/picture/008/save_picture_841911.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841910.jpg" />
+  <img src="Z:/picture/008/save_picture_841910.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841900.jpg" />
+  <img src="Z:/picture/008/save_picture_841900.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841867.jpg" />
+  <img src="Z:/picture/008/save_picture_841867.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841859.jpg" />
+  <img src="Z:/picture/008/save_picture_841859.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Duplicate Detective 1.94 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841850.jpg" />
+  <img src="Z:/picture/008/save_picture_841850.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10036 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841806.jpg" />
+  <img src="Z:/picture/008/save_picture_841806.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ RegScanner 2.16 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841792.jpg" />
+  <img src="Z:/picture/008/save_picture_841792.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Akira Kayosa - 1 compilation, 41 singles, 46 remixes, 11 tracks (2006-2016) [MP3
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841786.jpg" />
+  <img src="Z:/picture/008/save_picture_841786.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841785.jpg" />
+  <img src="Z:/picture/008/save_picture_841785.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841781.jpg" />
+  <img src="Z:/picture/008/save_picture_841781.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841775.jpg" />
+  <img src="Z:/picture/008/save_picture_841775.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841737.jpg" />
+  <img src="Z:/picture/008/save_picture_841737.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841736.jpg" />
+  <img src="Z:/picture/008/save_picture_841736.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841735.jpg" />
+  <img src="Z:/picture/008/save_picture_841735.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841732.jpg" />
+  <img src="Z:/picture/008/save_picture_841732.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Framer Studio v86 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_841729.jpg" />
+  <img src="Z:/picture/009/save_picture_841729.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Downie 2.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841728.jpg" />
+  <img src="Z:/picture/008/save_picture_841728.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841704.jpg" />
+  <img src="Z:/picture/008/save_picture_841704.jpg" />
 </div>
 
 

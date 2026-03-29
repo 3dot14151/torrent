@@ -1,25 +1,22 @@
-###  Публикация: 1761368   (103059) от 19.11.2024
+###  Публикация: 1822884   (104440) от 09.10.2025
 
-J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | Тёмное прошлое перевоплощённой злодейки [2025, TV, 1 из 12 эп.] WEBRip 720p raw
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby What You Want Me To Do (4:13)
-02. Steady Rollin' Man (5:21)
-03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
-04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+У Конохи Сато тёмное прошлое. В конце концов, она провела свои подростковые годы, пиша самовлюблённые фэнтезийные романтические фанфики — свою Тёмную Историю. Но поскольку теперь она стала самой отвратительной злодейкой этой истории, помнить каждую деталь — вопрос жизни и смерти. Избежав первых нескольких флагов смерти, Сато внезапно оказывается в неведении, когда (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: романтика, фэнтезиРежиссер: Сакурай ХироакиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
+magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,717 +24,663 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761323   (103058) от 19.11.2024
+###  Публикация: 1822934   (104439) от 09.10.2025
 
-Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosa Nuestra [00:04:20]
-02. Déjame Entrar [00:04:14]
-03. Qué Pasaría... [00:03:11]
-04. Tú Con Él [00:04:49](   Читать дальше...   )Жанр: Pop, Reggaeton, R&B, TrapПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF9C0128E9398DFB2892441FFE4F7FC6259B98E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761360   (103057) от 19.11.2024
-
-Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wes Jeans feat. Tommy Katona - No Tears Left to Cry (4:14)
-02. Wes Jeans feat. Tommy Katona - Graceland (4:51)
-03. Me & My Woman (3:52)
-04. Wes Jeans feat. Tommy Katona - Dimples (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227D86D46925AD706760C1761E786D008A689D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761278   (103056) от 19.11.2024
-
-Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Made Of Metal 04:12Жанр: Heavy Metal, Hard RockПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DEA9E063467D0F6597B31871BC2C6FFA3A85C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761289   (103055) от 19.11.2024
-
-Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stelae of Vultures
-02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to
-Eat Feces by the Four Apes
-03. To Strike with Secret Fang(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4BFCBD401D9D3DC51BA5CFBCE4FC8CC7F383AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761359   (103054) от 19.11.2024
-
-Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attention Whore
-02. No Fucking Way
-03. Do Not Think / Do Not Act
-04. Shitstorm(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4226FAB63F63ECA714772D024148D8509EC455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761590   (103053) от 21.11.2024
-
-About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come To You (3:53)
-02. Endure (3:45)
-03. Legion (3:29)
-04. Fire With Fire (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939CB4B52D2F7A9FE4AEAB78695C5FECF3B54A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761582   (103052) от 21.11.2024
-
-Eve 6 - It’s All in Your Head (2003) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without You Here (2:23)
-02. Think Twice (3:44)
-03. At Least We’re Dreaming (4:09)
-04. Still Here Waiting (2:16)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EFC4E0A418213D232CFB1159E2B9B3BF7A31EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761598   (103051) от 21.11.2024
-
-Suat Ernur Bilge - Troubled Sadness (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resist (3:16)
-02. Break these chains now (3:13)
-03. There is no tomorrow (3:11)
-04. Fake world (2:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FE561EF3FDE75054E7FF69330D3E4DCCBB1EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761479   (103050) от 21.11.2024
-
-Sylvaine - Silent Chamber, Noisy Heart (2014) Remasteredб 2024, Eisenwald [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doomgaze, Shoegaze, Atmospheric Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvan (Remastered) [00:02:47]
-02. It Rains in My Heart (Remastered) [00:06:02]
-03. Silent Chamber, Noisy Heart (Remastered) [00:06:32]
-04. Тоска (Remastered) [00:04:18](   Читать дальше...   )Жанр: Doomgaze, Shoegaze, Atmospheric Black MetalПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D94064AD9272009297A550BDB51F77DCDA9D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761512   (103049) от 21.11.2024
-
-Живая лестница / De levende ladder (1913) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая драма с голландской дивой раннего кинематографа: Энни Бос. Энни влюбляется в циркового клоуна, но родители запрещают ей быть с ним. Жених - клоун! Разве такого мужа они желали дочери? Завидной партией клоуна не назовешь. Но у цирковых есть и неоспоримые достоинства - они традиционно очень сплоченные, сильные, ловкие и решительные люди. И они докажут (   Читать дальше...   )Производство: Нидерланды / N.V. Maatschappij voor Artistieke CinematografieЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Мауриц Бингер, Louis H. ChrispijnАктеры: Энни Бос, Алекс Бенно, Koba Kinsbergen, Barend Barendse, Луис БоувмеестерПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3719F260D10127E65FC18A664AF44EF9A858196C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761595   (103048) от 21.11.2024
-
-Juan Raul Rosero - Everything is Possible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is Sparta (2:16)
-02. The Triathlon Anthem (3:15)
-03. Now or Never (3:06)
-04. Resilience Warrior (2:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DDC0DD71B609B6221C27DB8B91B54F9C85113A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761600   (103047) от 21.11.2024
-
-Accuser - Rebirthless (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Violent Vanity
-2. Ghost Of Disease
-3. Rebirthless
-4. Painted Cruelty(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458A97D6EA5FC17FFF5E6B84BCB71151FA053052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761714   (103046) от 21.11.2024
-
-Marco Grompi & Michele Fortis - WINTERFLOWERS (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AIMLESS BLUES (4:30)
-02. MICHELE FORTIS & Marco Grompi - LITTLE FLOWER (7:08)
-03. TO FILL MY SOUL (4:52)
-04. LEVEL CROSSING (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F2C98EA45BCC79A231A550C753BF1AD6CB8DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761871   (103045) от 22.11.2024
-
-Wako - Evig liv, perfekt orden (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folk (1:41)
-02. Drifting (5:36)
-03. Homemade (4:40)
-04. Amerika (4:11)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B9C0C6DBC747C586D22F25C9A1133620353F7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761867   (103044) от 22.11.2024
-
-The San Pedro Allstars feat. Reed Turchi, Austin White, Marlon Patton & Eric Burns - Stress 'N' Grits (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ayahuasca Old Fashioned (3:55)
-02. Stress 'N' Grits (3:30)
-03. Going Down South (5:07)
-04. Ima Bore (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0416F38D80B70AD10194CB11C1DC3EA974C3D6E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761858   (103043) от 22.11.2024
-
-Staples Jr. Singers - Searching (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staples Jr. Singers feat. Annie Brown Caldwell - Living In This World Alone (3:01)
-02. Lost In A World Of Sin (4:02)
-03. You Got To Believe (3:09)
-04. Walk Around Heaven (3:35)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A085D25F39B907203629C6428CC6B1062DA6F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761660   (103042) от 22.11.2024
-
-Silent Winter - Utopia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Burn The Future (4:43)
-02. Hellstorm (4:33)
-03. Hands Held High (6:45)
-04. Reign Of The Tyrants (4:53)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C8C3F56B28E5ED17EC40596D9E3D82C7CCB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761646   (103041) от 22.11.2024
-
-Mind Control - This Present Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exordium (0:52)
-02. Departed (6:15)
-03. Calypso - Queen of the Sea (4:17)
-04. Hidden (6:20)(   Читать дальше...   )Жанр: Heavy Psychedelic, Progressive RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F407291BE0BD009E04AF1B1E98BEF0D1427F6C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761833   (103040) от 22.11.2024
-
-Raptore - Renaissance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103040.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Ecclesia (1:07)
-• 02. Satana (4:39)
-• 03. Abaddon (3:54)
-• 04. Darklight (3:54)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E958F5A24DD56C5875A09DAD155E4A4D6A9C508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761782   (103039) от 22.11.2024
-
-Go Radio - Lucky Street (2011) [FLAC|Lossless|tracks + .cue] <Аlternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Street (4:14)
-02. Any Other Heart (3:52)
-03. Singing with the King (3:18)
-04. Strength to Stay (3:23)(   Читать дальше...   )Жанр: Аlternative Rock, Pop RockПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D6AA53BCF1DE1A2EFB4189B90444BBFFDC725C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761864   (103038) от 22.11.2024
-
-Sunjay - I'm Just Like You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Link of Chain (3:56)
-02. No Love Today (4:56)
-03. Love You Like a Man (3:08)
-04. Mail Order Mystics (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E515D01FB854F5B9C4B2EF00A365BD140F20AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761828   (103037) от 22.11.2024
-
-Joan Armatrading - How Did This Happen And What Does It Now Mean (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Pop, Blues, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103037.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. 25 Kisses (3:05)
-• 02. Someone Else (3:15)
-• 03. Irresistible (3:18)
-• 04. I'm Not Moving (3:37)(   Читать дальше...   )Жанр: Rock, Pop, Blues, Singer-SongwriterПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C65F129D7F36BD526E115F6CEF5A9587FFAEBD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761770   (103036) от 22.11.2024
-
-VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Rebirth - Darkness (Original Mix) [7:44]
-02. Pete.M - Hydrogen (Original Mix) [7:18]
-03. GutterGizmo - Laune (Extended Mix) [7:02]
-04. Kvaii - Iridescent (POINoir Intro Remix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E623F5D8FB2553C4044CCD96D7E4358F5E083DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761834   (103035) от 22.11.2024
-
-Kingcrown - Nova Atlantis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic Stone (3:29)
-02. Nova Atlantis (5:21)
-03. Real Or Fantasy (4:17)
-04. Guardian Angels (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66CF2A616A5C460DDA90C6F65374C2F55B9A1B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761869   (103034) от 22.11.2024
-
-Power Trip - Studio Albums (3 releases) (2013-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
+Cult Of Luna - Studio Albums (9 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Sludge/Post-Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Power Trip — американская трэш-метал-группа из Далласа, основанная в 2008 году.2013 - Manifest Decimation
-2017 - Nightmare Logic
-2018 - Opening Fire - 2008-2014Жанр: Thrash Metal/CrossoverПродолжительность: 01:47:44
+Cult of Luna — шведская пост-метал-группа из Умео, основана в 1998 году.2001 - Cult of Luna
+2003 - The Beyond
+2004 - Salvation
+2006 - Somewhere Along the Highway(   Читать дальше...   )Жанр: Atmospheric Sludge/Post-MetalПродолжительность: 12:14:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3FD0D0A40BF95866EAA684491E2190A4677C50
+magnet:?xt=urn:btih:5164CF6CE2F3EAC46A61DA2AE6BA526A0E3BE482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822942   (104438) от 09.10.2025
+
+Дьявол / Diablo (2025) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Чейни, недавно освободившийся заключённый, выполняя поручение, похищает Элизу, дочь могущественного гангстера Висенте, что подвергает их опасности со стороны Эль Корво, убийцы-психопата, жаждущего отомстить семье Висенте.Производство: Колумбия, США / Ágora Films, Buffalo 8 Productions, Daros FilmsЖанр: бoевик, криминалРежиссер: Эрнесто Диас ЭспиносаАктеры: Скотт Эдкинс, Марко Сарор, Хуан Камило Кастильо, Диана Патрисия Ойос, Аланна де ла Роса, Мария дель Росарио, Луис Альфредо Веласко, Джейсон Гурвитц, Хайме Корреа, Хэмилтон КасасПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Forced, Full, SDH)Продолжительность: 01:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F89629B4ED7CB57BD7AE92A0B9F63E9AB79B307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525136   (104437) от 09.10.2025
+
+Монгол (Режиссерская версия) / Mongol (Directors Cut) (2007) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Не презирай слабого детеныша — он может оказаться сыном тигра», — гласит монгольская пословица. Мальчик Тэмуджин, которому предстоит стать Чингисханом, повелителем половины мира, прошел через голод, унижения, рабство. На него охотились, его пытали и предавали. Он выжил, хотя казалось, что это невозможно. Его сила, ум и воля к жизни были несравнимы с возможностями (   Читать дальше...   )Производство: Россия, Германия, КазахстанЖанр: Военный, Драма, ИсторияАктеры: Алия, Теген Ао, Таданобу Асано, Бай Ин, Хулан Чулуун, Бао Ди, Баерцецег Ерденабат, Ден Ба Те Эр, Ю Эр, Сай Хин Га ...Перевод: профессиональный, одноголосый закадровыйСубтитры: русские (включены по умолчанию)Продолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FEEDB096C40E3CBB502585506AF464C60B28D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625938   (104436) от 09.10.2025
+
+karpov.courses, Валерий Бабушкин и др. | Хардкорный Machine Learning (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard ML - это не стандартный курс по машинному обучению. Моя команда не стала ограничиваться одним лишь обучением моделей и решила охватить абсолютно все этапы работы ML-инженера. Вы научитесь самостоятельно собирать и размечать данные, строить пайплайны их поставки, деплоить приложения, настраивать мониторинги и оценивать эффективность алгоритмов.
+
+Вы получите максимально (   Читать дальше...   )Производство: karpov.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 45:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DEEBC4E47CAF07821E6284F60F23570C6E0611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822927   (104435) от 09.10.2025
+
+Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cat Quest - замуррчательная РПГ, чье действие происходит в мире, населенном котиками! Отправляйтесь в погоню за коварным Дракотом, похитившим вашу сестру! Исследуйте огромное королевство Фелингард, проходите подземелья и получайте достойную добычу. Выполняйте задания и заводите новых мохнатых друзей. Игра предоставит вам, увлекательную систему боёв, живописную графику, (   Читать дальше...   )Тип издания: RepackРазработчик: The GentlebrosЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D535959E85820509652B7A0FCF3FF1F68270F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625966   (104434) от 09.10.2025
+
+karpov.courses, Виктор Кузнецов | Инженер данных (2023) WEB-DL [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженерия данных от проектирования до нетривиальной обработки. НАУЧИТЕСЬ ПРАВИЛЬНО ГОТОВИТЬ ДАННЫЕ ЛЮБЫХ РАЗМЕРОВ И СЛОЖНОСТИ. Обучающие выборки для машинного обучения и красивые графики для отчётов не появляются сами собой: данные нужно собирать, хранить, валидировать и комбинировать между собой, быстро реагируя на изменения в их структуре.Производство: karpov.coursesЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 34:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3691110C672514378FC929056562FD022B395EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822970   (104433) от 09.10.2025
+
+Влюблённые / Falling in Love (1984) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирая рождественские подарки, они столкнулись в суете книжного магазина и разошлись. Спустя несколько дней они познакомились в электричке, вспомнив о столкновении в книжном магазине. И опять разошлись. Постепенно, из случайных встреч, приносящих им радость, стала рождаться настоящая любовь. Но у Фрэнка была семья, и Молли была замужем...Производство: США / Paramount PicturesЖанр: драма, мелодрамаРежиссер: Улу ГросбардАктеры: Роберт Де Ниро, Мэрил Стрип, Харви Кейтель, Джейн Качмарек, Джордж Мартин (III), Дэвид Кленнон, Дайэнн Уист, Виктор Арго, Уайли Эрл, Джесси Брэдфорд, Чеви Колтон, Фрэнсис Конрой, Джеймс Райан, Сонни Эбегнейл, Джордж БэрриПеревод: профессиональный многоголосый (ТК Культура; Селена Интернешнл), профессиональный двухголосый (Премьер Видео Фильм; Paramount Channel), авторский (Леонид Володарский; Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF1F4A9B627421E73D189DD192F1D65D8E7673E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822974   (104432) от 09.10.2025
+
+Шрифты - Creative Market - Lakon Rokum - Sign Brush Font - 291693738 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lakon Rokum — смелый и выразительный шрифт, выполненный кистью, который передает суть винтажной живописи на вывесках и ручной работы на витринах. Благодаря четырём универсальным стилям — Regular, Slant, Shadow и Shadow Slant — этот шрифт открывает безграничные творческие возможности для брендинга, создания плакатов, упаковки и рекламных материалов, которым требуется (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6225C1CEC09B44A53D9173851AD30EFDC12C6740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822975   (104431) от 09.10.2025
+
+3D print - Ghamak - Celestial Sagittarii [STL, LYS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы стоим на страже между высокими башнями и на скалах. Любой, кто пройдёт под нашими сводами, обречён на смерть.Формат: STL, LYS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC16EC932B73C4D5CD7B66FF4F2A7A843857F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 37707   (104430) от 09.10.2025
+
+Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
+
+>>След.
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит совершить потрясающее путешествие в будущее, которое однозначно не будет хорошим. В будущее, где анархия, хаос и страх правят миром. Наступило время, когда человечество думает только об одном - как выжить! И именно поэтому людям приходится бороться против самого злейшего врага - самих же себя.
+ Как командир небольшой группы уцелевших людей, в ваших руках (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Silver Style EntertainmentЖанр: Тактическая стратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FC0EEAABB6951DDF16055E866415436078CADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822977   (104429) от 09.10.2025
+
+Проекты - VideoHive - Water Logo Animation - 59752672 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый шаблон с логотипом для ваших творческих задач.
+
+Музыка очищена и предоставлена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EF380374CAA05C43B1AA8AFF570BB725161ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822978   (104428) от 09.10.2025
+
+Человек, который сомневается (1963) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следователю Лекареву поручено выехать в далекий сибирский город и заново расследовать дело об убийстве десятиклассницы, так как виновность осужденного Бориса Дуленко вызывает сомнение.Производство: СССР / МосфильмЖанр: драма, криминалРежиссер: Леонид Агранович, Владимир СемаковАктеры: Олег Даль, Георгий Куликов, Павел Винник, Валентина Талызина, Вера Алтайская, Валентина Ананьина, Геннадий Фролов, Иветта Киселева, Федор Корчагин, Борис КордуновПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B51D064164A9E5C61CC4D5A61F76471A766761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822984   (104427) от 09.10.2025
+
+Отпуск в сентябре (1979) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктор Зилов на работе получает долгожданную квартиру и устраивает новоселье для друзей, с которыми дружит еще со школьных времен. Галина — жена Виктора — возлагает на квартиру большие надежды. Ей кажется, что теперь начнется счастливая жизнь. В последнее время Виктор часто не ночевал дома, весь изолгался, пил, болтался с женщинами. Галина устала от его бесконечных (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: ДрамаРежиссер: Виталий МельниковАктеры: Олег Даль, Евгений Леонов, Ирина Купченко, Наталья Гундарева, Юрий Богатырёв, Ирина Резникова, Наталья Миколышина, Геннадий Богачёв, Николай БурляевПродолжительность: 02:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE5BBB764DA3CF5D8AD43AFC9D4736DF09A067B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822777   (104426) от 09.10.2025
+
+Карапузики. Сборник мультфильмов. Мультики для мальчиков (1940-1953) DVD5 [сжатый, переозвучка]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильмы... Сколько приятных добрых воспоминаний возникает у нас при этом слове - беззаботное детство, родительский дом, сказочные мечты...
+Давайте дадим и нашим малышам возможность расти вместе с добрыми героями любимых сказок.
+Тем более, что психологи всего мира предостерегают: многие современные мультфильмы наносят вред детской психике, делая малышей агрессивными (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, фэнтези, сказка, приключения, короткометражкаРежиссер: Дмитрий Бабиченко, Валентина Брумберг, Зинаида Брумберг, Ольга Ходатаева, Пантелеймон СазоновАктеры: Эраст Гарин, Георгий Милляр, Валентина Сперантова,Субтитры: отсутствуютПродолжительность: 02:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9265BA756CC6B4B2355140F6118606C9A99F3A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822888   (104425) от 09.10.2025
+
+Школьный автобус / The Lost Bus (2025) WEB-DLRip [AV1/1080p] [HDR10+, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушительный лесной пожар в Кэмп-Файр, Калифорния стал самым смертоносным за последние сто лет. В центре сюжета — истории водителя автобуса и школьной учительницы, которые активно участвовали в ликвидации пожара.Производство: США / Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью МакКонахи, Америка Феррера, Юл Васкес, Эшли Аткинсон, Дэнни МакКарти, Питер Дисет, Гэри Краус, Спенсер Уотсон, Кристофер ХэйгенПеревод: Профессиональный (Дублированный, многоголосый)Язык озвучки: РусскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: 02:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F52F272B29DB9E1C92BD51C29804D5C704C7ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822987   (104424) от 09.10.2025
+
+Лондон на проводе / London Calling (2025) WEB-DL [H.264/720p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киллер, чьё последнее дело обернулось полным фиаско, решает покинуть страну. Оказавшись в новом и незнакомом месте, он получает неожиданное повышение — ему поручают перевоспитать сына новоиспеченного криминального босса.Производство: США, ЮАР / Mannequin Films, Short Porch PicturesЖанр: боевик, драма, комедияРежиссер: Аллан АнгарАктеры: Джош Дюамель, Джереми Рэй Тейлор, Рик Хоффман, Эйдан Гиллен, Арнольд Вослу, Нил Сэндилэндс, Даниа Де Вилье, Карл Танинг, Думани Мтя, Дэниэл ЛаскерПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Full, SDH)Продолжительность: 01:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C01CF2317C2668D82F676BB365BAF14BC354C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822981   (104423) от 09.10.2025
+
+О-би, о-ба. Конец цивилизации / O-bi, o-ba. Koniec cywilizacji (1984) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние уцелевшие в ядерной войне люди живут внутри бетонного купола, ожидая прибытия чудесного Ковчега. Однако Ковчег не более чем выдумка высоких чинов, желавших успокоить людей. Тем временем, купол начинает трескаться. Софт знает правду о Ковчеге и пытается поделиться ею с другими. Но его никто не слышит, ибо вера в божественное спасение настолько укоренилась (   Читать дальше...   )Производство: Польша / Zespol Filmowy "Perspektywa"Жанр: фантастика, драма, детективРежиссер: Пётр ШулькинАктеры: Ежи Штур, Кристина Янда, Калина Ендрусик, Мариуш Дмоховский, Марек Вальчевский, Ян Новицкий, Хенрик Биста, Леон Немчик, Кшиштоф Майхжак, Станислав ИгарПеревод: авторский (Антон Алексеев)Язык озвучки: русский, польскийСубтитры: русские, английскиеПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0C8E4DFB33FF888243B7C568DD45B08527143E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822988   (104422) от 09.10.2025
+
+НХЛ 2025-2026. Бостон Брюинз - Вашингтон Кэпиталз (08.10.2025) WEB-DL [H.264/1080p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104422.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 октября 2025, четверг 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Фурман Саут (Сьюикли, США); Линейный: Томми Хьюз (Лондон, Канада); Линейный: Марк Шевчук (Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2290B54D78EF85BD8ABDB7BC84064CCC9A833066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822989   (104421) от 09.10.2025
+
+О-би, о-ба. Конец цивилизации / O-bi, o-ba. Koniec cywilizacji (1984) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние уцелевшие в ядерной войне люди живут внутри бетонного купола, ожидая прибытия чудесного Ковчега. Однако Ковчег не более чем выдумка высоких чинов, желавших успокоить людей. Тем временем, купол начинает трескаться. Софт знает правду о Ковчеге и пытается поделиться ею с другими. Но его никто не слышит, ибо вера в божественное спасение настолько укоренилась (   Читать дальше...   )Производство: Польша / Zespol Filmowy "Perspektywa"Жанр: фантастика, драма, детективРежиссер: Пётр ШулькинАктеры: Ежи Штур, Кристина Янда, Калина Ендрусик, Мариуш Дмоховский, Марек Вальчевский, Ян Новицкий, Хенрик Биста, Леон Немчик, Кшиштоф Майхжак, Станислав ИгарПеревод: авторский (Антон Алексеев)Язык озвучки: русский, польскийСубтитры: русские, английскиеПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716EF0211A1EEC38188A3CF6E8AB022A91722150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345634   (104420) от 09.10.2025
+
+World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104420.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Rally Fever – взрывная смесь боевика и сумасшедших гонок. Каждая трасса создана по мотивам мировых достопримечательностей. Графику в стиле аниме гармонично дополняет модная музыка. Выберите одного из восьми персонажей с разными характеристиками, которые влияют на управление болидом. О честной игре лучше забудьте сразу. Как только опускается стартовый флажок, (   Читать дальше...   )Тип издания: LicenseРазработчик: Team17 SoftwareЖанр: Гонки, Аркада, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C969A74CDB9DF47AB10927114C1C04004E177CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822980   (104419) от 09.10.2025
+
+SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте новую главу в серии SILENT HILL, где психологический хоррор разворачивается в японском антураже. В 1960-х Эбисугаока, родной город Хинако Симидзу, внезапно оказался окутан туманом и превратился в вязкий кошмар. Наступает тишина, туман сгущается, и Хинако должна прокладывать себе путь по городу, решать сложные головоломки и сражаться с неправдоподобными чудовищами, (   Читать дальше...   )Тип издания: LicenseРазработчик: NeoBards Entertainment Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6352989CC44FEC76A7243A9EF3CE74EFBEA2C907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822976   (104418) от 09.10.2025
+
+Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadlink – научно-фантастический шутер с видом от первого лица, события которой разворачиваются в мире далекого будущего. Все локации оформлены в стиле киберпанка, а сам мир представлен классической антиутопией. Все большее могущество набрали мегакорпорации, которые укрепили свою экономическую силу и проводят множество теневых сделок, приносящие миллиарды. Главный (   Читать дальше...   )Тип издания: LicenseРазработчик: Gruby EntertainmentЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2744E75EF707DBFF643096E41FB932D146016D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822979   (104417) от 09.10.2025
+
+Журнал | Мир фантастики. Спецвыпуск №17 (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Мир фантастики» посвящён фантастике в самом широком смысле. В фокусе внимания — книги, фильмы, сериалы, игры и комиксы, статьи о вымышленных вселенных, мифологии и футурологии и всё самое интересное в этой области. О классике и новинках. Под обложкой каждого номера вас ждёт целый мир!Жанр: Журнал фантастикиИздательство: ООО «Мир Хобби»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C7B6F9B2C663DB78589615CDD4554F7FD064C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822973   (104416) от 09.10.2025
+
+Журнал | Render Magazine №10 (октябрь 2025) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104416.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550097F73D9DFD07074FD1D4A3B21AF56C3E6412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822972   (104415) от 09.10.2025
+
+VA - Inside Ibiza 2025 - The Sound Of The Island (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Bisous & Sgt Slick - Reach Out 02:44
+02. Sarrdo Carocci - Take Me Home 02:39
+03. Ekko - Delante 03:12
+04. Aemilian, Basti M & Blaikz - For You (Ibiza Rework) 03:14(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29B947633CFCD8B46CCE606A7137C125CDBE505
 ```
 
 https://mybot314.ru/tekegram_catalog/

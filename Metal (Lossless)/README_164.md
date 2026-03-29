@@ -1,3 +1,90 @@
+###  Публикация: 1251356   (415613) от 02.10.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 4 (1999) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415613.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Witchery - Witchery (3:04)
+02. Myrkskog - A Poignant Scenario Of Death (5:28)
+03. Usurper - Dismal Wings Of Terror (4:40)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5031FD2C9239C9D06F28080564A1C729ABEBB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251648   (415424) от 02.10.2018
+
+Crematory - Oblivion (2018) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expectation (1:27)
+02. Salvation (4:36)
+03. Ghost of the Past (3:59)
+04. Until the Dawn (4:36)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000E93EEF5AF89CEE774D0575954B052929C67BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251506   (415420) от 02.10.2018
+
+Stratovarius - Enigma: Intermission II (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415420.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Enigma (4:21)
+2. Hunter (3:30)
+3. Hallowed (5:53)
+4. Burn Me Down (3:43)(   Читать дальше...   )Жанр: Melodic Power Metal, Symphonic MetalПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA395E3F49423B7C14B4B83571ED8C3BE2D502BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573096   (415052) от 30.08.2022
 
 Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossless|image + .cue] <Acoustic, Pagan Metal, Black Metal>
@@ -6,7 +93,7 @@ Winterfylleth - The Hallowing of Heirdom (2018) Deluxe edition, 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415052.jpg" />
+  <img src="Z:/picture/008/save_picture_415052.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Winterfylleth - The Reckoning Dawn (2020) Special edition, 2CD [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414921.jpg" />
+  <img src="Z:/picture/008/save_picture_414921.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ In Flames - Clayman (2000) Reissue, Remastered, 2020, Nuclear Blast [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414905.jpg" />
+  <img src="Z:/picture/008/save_picture_414905.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Sepultura - SepulQuarta (2021) Japan Edition [WavPack|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414755.jpg" />
+  <img src="Z:/picture/008/save_picture_414755.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Edge Of Sanity - 8 Albums, 2 Compilations, 3 Singles & EP (1990 - 2012) 21CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414702.jpg" />
+  <img src="Z:/picture/008/save_picture_414702.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ NorthTale - Welcome to Paradise (2019) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414677.jpg" />
+  <img src="Z:/picture/008/save_picture_414677.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Jeff Loomis - Plains Of Oblivion (Limited Edition) (2012) [FLAC|Lossless]<Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_414528.jpg" />
+  <img src="Z:/picture/005/save_picture_414528.jpg" />
 </div>
 
 
@@ -214,7 +301,7 @@ TesseracT - Polaris / Errai (2016) 2CD [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413997.jpg" />
+  <img src="Z:/picture/008/save_picture_413997.jpg" />
 </div>
 
 
@@ -243,7 +330,7 @@ Celestial Bloodshed - Cursed, Scarred And Forever Possessed (2008) [APE|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413995.jpg" />
+  <img src="Z:/picture/008/save_picture_413995.jpg" />
 </div>
 
 
@@ -272,7 +359,7 @@ Wolfs Moon - Elysium Dreams (1999) [APE|Lossless|image + .cue] <Power Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413992.jpg" />
+  <img src="Z:/picture/008/save_picture_413992.jpg" />
 </div>
 
 
@@ -301,7 +388,7 @@ Intense - Songs Of A Broken Future (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413989.jpg" />
+  <img src="Z:/picture/008/save_picture_413989.jpg" />
 </div>
 
 
@@ -330,7 +417,7 @@ Carach Angren - Franckensteina Strataemontanus (2020) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413838.jpg" />
+  <img src="Z:/picture/008/save_picture_413838.jpg" />
 </div>
 
 
@@ -359,7 +446,7 @@ Dawnlight - Until The Dark Sun Rises (2019) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413837.jpg" />
+  <img src="Z:/picture/008/save_picture_413837.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ Legion Of The Damned - Malevolent Rapture (2006) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413836.jpg" />
+  <img src="Z:/picture/008/save_picture_413836.jpg" />
 </div>
 
 
@@ -417,7 +504,7 @@ Fairyland - Osyrhianta (2020) [FLAC|Lossless|tracks + .cue] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413834.jpg" />
+  <img src="Z:/picture/008/save_picture_413834.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ DevilDriver - Dealing with Demons I (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413832.jpg" />
+  <img src="Z:/picture/008/save_picture_413832.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ Heathen - Empire Of The Blind (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413830.jpg" />
+  <img src="Z:/picture/008/save_picture_413830.jpg" />
 </div>
 
 
@@ -504,7 +591,7 @@ Amaranthe - Manifest (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413719.jpg" />
+  <img src="Z:/picture/008/save_picture_413719.jpg" />
 </div>
 
 
@@ -533,7 +620,7 @@ Lake of Tears - By the Black Sea (2014) Live [FLAC|Lossless|image + .cue] <Goth 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413367.jpg" />
+  <img src="Z:/picture/008/save_picture_413367.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ Metallophobia by Peterson - Metallophobia (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412761.jpg" />
+  <img src="Z:/picture/008/save_picture_412761.jpg" />
 </div>
 
 
@@ -591,7 +678,7 @@ Alexander Paul Blake - Die Ruckkehr ins Goldene Zeitalter (2012) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412759.jpg" />
+  <img src="Z:/picture/008/save_picture_412759.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ Aethernaeum - Wanderungen durch den Daemmerwald (2013) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412757.jpg" />
+  <img src="Z:/picture/008/save_picture_412757.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412754.jpg" />
+  <img src="Z:/picture/008/save_picture_412754.jpg" />
 </div>
 
 
@@ -663,92 +750,6 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5961364140E94922E09047C6EE55274988E2E33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167902   (412696) от 22.09.2017
-
-Belphegor - Totenritual (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Baphomet 				04:47
-02. 	The Devil's Son 			04:20
-03. 	Swinefever - Regent of Pigs 		04:50
-04. 	Apophis - Black Dragon 			06:12(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B2F81AB76F493AFAAFCF5C23171A5408566D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573432   (412666) от 31.08.2022
-
-Disfallen - The Echoing Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pale Contorted Apparition [00:05:15]
-02. Old Moon [00:08:17]
-03. Oblivion Beckons [00:07:22]
-04. Demon of Perpetual Night [00:06:05](   Читать дальше...   )Жанр: Death, Doom, Gothic MetalПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE6A6B3B3AD8DA553A6DBD2CF6DD2DAEF831184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412980   (412028) от 02.10.2020
-
-Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Dead Star [00:09:38]
-02. Orbital [00:09:23]
-03. Wind up North [00:19:33]Жанр: Doom MetalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD5D489A4D9DBA8BE3C105E0E8F8BE8A04D5DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

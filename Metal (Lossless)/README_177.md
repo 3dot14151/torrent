@@ -1,3 +1,90 @@
+###  Публикация: 1072435   (352270) от 13.11.2016
+
+Dirkschneider - Live - Back To The Roots (2016) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 02:31
+02. Starlight 03:42
+03. Living For Tonite 04:00
+04. Flash Rockin' Man 04:21(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2827EB42F3EF6DFDC7D5C2E107AF7E3DB63576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256689   (352107) от 23.10.2018
+
+Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Shattered Glass    05:49
+02.    Order by Chaos    06:12
+03.    Amer et contre tous    04:29
+04.    Lullaby to the Moon    05:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418097   (351488) от 23.10.2020
+
+Hexx - Entangled In Sin (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watching Me Burn (4:33)
+02. Entangled in Sin (3:24)
+03. Vultures Gather Round (3:28)
+04. Beautiful Lies (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C7C6912D84807EF4735D92923F8976EA6142EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418128   (351225) от 23.10.2020
 
 Leaves' Eyes - The Last Viking (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
@@ -6,7 +93,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351225.jpg" />
+  <img src="Z:/picture/008/save_picture_351225.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350404.jpg" />
+  <img src="Z:/picture/008/save_picture_350404.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Aegeon - Nocturnal Glorification (2014) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350403.jpg" />
+  <img src="Z:/picture/008/save_picture_350403.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Spectrum Mortis - Bit Meseri -The Incantation (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350401.jpg" />
+  <img src="Z:/picture/008/save_picture_350401.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Osculant Brutality - The Ides (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350400.jpg" />
+  <img src="Z:/picture/008/save_picture_350400.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Mighty Wraith - Elegies (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350399.jpg" />
+  <img src="Z:/picture/008/save_picture_350399.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Aeternia - The Quest (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350397.jpg" />
+  <img src="Z:/picture/008/save_picture_350397.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350391.jpg" />
+  <img src="Z:/picture/008/save_picture_350391.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Crystal Eyes - In Silence They March (2000) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350389.jpg" />
+  <img src="Z:/picture/008/save_picture_350389.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Creepmime - Shadows (1993) [FLAC|Lossless|image + .cue] <Thrash, Prog Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350308.jpg" />
+  <img src="Z:/picture/008/save_picture_350308.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350287.jpg" />
+  <img src="Z:/picture/008/save_picture_350287.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Aftermath - Eyes Of Tomorrow (1994) [FLAC|Lossless|image + .cue] <Technical Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350286.jpg" />
+  <img src="Z:/picture/008/save_picture_350286.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ As I Lay Dying - Shaped by Fire (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350272.jpg" />
+  <img src="Z:/picture/008/save_picture_350272.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ God's Army - Demoncracy (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350141.jpg" />
+  <img src="Z:/picture/008/save_picture_350141.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ AcoD - Fourth Reign Over Opacities And Beyond (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350067.jpg" />
+  <img src="Z:/picture/008/save_picture_350067.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Hitten - Twist of Fate (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350041.jpg" />
+  <img src="Z:/picture/008/save_picture_350041.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Guardians of Time - Tearing Up the World (2018) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350034.jpg" />
+  <img src="Z:/picture/008/save_picture_350034.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Impellitteri - The Nature of the Beast (2018) Japan [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350022.jpg" />
+  <img src="Z:/picture/008/save_picture_350022.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Canedy - Warrior (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349291.jpg" />
+  <img src="Z:/picture/008/save_picture_349291.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Mors Principium Est - Seven (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349284.jpg" />
+  <img src="Z:/picture/008/save_picture_349284.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Blind Stare - The Dividing Line (2012) [FLAC|Lossless]<Melodic Death, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348601.jpg" />
+  <img src="Z:/picture/005/save_picture_348601.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Dying Fetus - Descend Into Depravity (Japanese Edition) (2009) [FLAC|Lossless]<T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348196.jpg" />
+  <img src="Z:/picture/005/save_picture_348196.jpg" />
 </div>
 
 
@@ -656,7 +743,7 @@ Anthea - Illusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348168.jpg" />
+  <img src="Z:/picture/008/save_picture_348168.jpg" />
 </div>
 
 
@@ -670,99 +757,6 @@ Anthea - Illusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4475E0482469D54AA380D2FCE1A2D2EEEF53A170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578176   (348167) от 22.09.2022
-
-One Mind Ministry - Gates of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Funeral [00:03:36]
-02. Her Shadows [00:03:32]
-03. Beholder [00:04:21]
-04. Revelation [00:04:52](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CC6775FBFFF9E9D2722042896027864B7E552D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578286   (348154) от 22.09.2022
-
-Anthea - Tales Untold (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tales Untold (04:09)
-02 - Ascendence (03:21)
-03 - Song for Winter (04:03)
-04 - The Deceiver (05:11)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DD9D7F978DAACAC9CA382D30572C9B01C69FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467679   (348113) от 23.11.2012
-
-Beneath The Massacre - 3 альбома (2007/2008/2012) [FLAC/APE|Lossless]<Brutal / Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beneath The Massacre - технодэт/брутал-команда из Монреаля, Квебек, Канада, собравшаяся в 2004 году. Их музыка частично инспирирована хардкором и разбавлена странными брейкдаунами и "грувовыми" риффами.01. Symptoms (3:06)
-02. Hunted (2:28)
-03. Left Hand (2:42)
-04. Hopes (3:33)
-05. It (2:57)
-06. Light (2:51)
-07. Incongruous (1:04)
-08. Pedestal (3:32)
-09. Grief (2:15)
-10. Damages (3:49)(   Читать дальше...   )Жанр: Brutal / Technical Death MetalПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

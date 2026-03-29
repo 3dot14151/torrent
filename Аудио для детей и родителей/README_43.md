@@ -1,3 +1,87 @@
+###  Публикация: 235612   (599828) от 01.07.2015
+
+VA - 101 Лучшая Песня Для Детей (Часть 1) (2003) [FLAC|tracks]<Звуковые дорожки из мультфильмов>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_599828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выступает хор мальчиков-зайчиков
+02. Антошка
+03. Песенка о лете
+04. Пусть нету ни кола и ни двора(   Читать дальше...   )Жанр: Звуковые дорожки из мультфильмовПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356575   (598794) от 28.06.2011
+
+Григорий Гладков - А Может быть, Ворона! (1994) [MP3|320 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Путешествовать прекрасно
+02. А может быть, ворона
+03. Пер-скрипач
+04. Несси(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDC46C88DA8F7521E3FE03A274BA6CF38FFAE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548568   (598354) от 03.05.2022
+
+Владислав Крапивин | Яхта «Кречет», или Снова о капитане Румбе (2021) [MP3, Николай Орловский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598354.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы хоть когда то мечтали о потрясающем морском путешествии? Что бы вокруг – открытое море, за штурвалом – ваш отец, а команда состояла из внука бывшего контрабандиста, оружейника, старого боцмана, что знает миллион историй, и шпиона? Да? Тогда эта книга для вас! Приключения, загадки, дружба, неожиданные повороты событий, джинн(!), и конечно, первая любовь – что (   Читать дальше...   )Жанр: Книги для детейПродолжительность: 11:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549A00F88E2FDC003300D029CBEA6FA3FB46632F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548558   (598191) от 03.05.2022
 
 Антон Чехов | Хрестоматия (2013) [MP3, Хорлин А., Кирсанов С.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598191.jpg" />
+  <img src="Z:/picture/008/save_picture_598191.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598181.jpg" />
+  <img src="Z:/picture/008/save_picture_598181.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597763.jpg" />
+  <img src="Z:/picture/008/save_picture_597763.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596568.jpg" />
+  <img src="Z:/picture/008/save_picture_596568.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596277.jpg" />
+  <img src="Z:/picture/008/save_picture_596277.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592345.jpg" />
+  <img src="Z:/picture/008/save_picture_592345.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592294.jpg" />
+  <img src="Z:/picture/008/save_picture_592294.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591960.jpg" />
+  <img src="Z:/picture/008/save_picture_591960.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591833.jpg" />
+  <img src="Z:/picture/008/save_picture_591833.jpg" />
 </div>
 
 
@@ -245,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590242.jpg" />
+  <img src="Z:/picture/008/save_picture_590242.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588814.jpg" />
+  <img src="Z:/picture/008/save_picture_588814.jpg" />
 </div>
 
 
@@ -299,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588334.jpg" />
+  <img src="Z:/picture/008/save_picture_588334.jpg" />
 </div>
 
 
@@ -326,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587894.jpg" />
+  <img src="Z:/picture/008/save_picture_587894.jpg" />
 </div>
 
 
@@ -355,7 +439,7 @@ VA - 101 Лучшая Песня Для Детей (часть 2) (2003) [FLAC|t
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_587678.jpg" />
+  <img src="Z:/picture/005/save_picture_587678.jpg" />
 </div>
 
 
@@ -384,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586972.jpg" />
+  <img src="Z:/picture/008/save_picture_586972.jpg" />
 </div>
 
 
@@ -410,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586920.jpg" />
+  <img src="Z:/picture/008/save_picture_586920.jpg" />
 </div>
 
 
@@ -436,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586850.jpg" />
+  <img src="Z:/picture/008/save_picture_586850.jpg" />
 </div>
 
 
@@ -462,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586748.jpg" />
+  <img src="Z:/picture/008/save_picture_586748.jpg" />
 </div>
 
 
@@ -488,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585996.jpg" />
+  <img src="Z:/picture/008/save_picture_585996.jpg" />
 </div>
 
 
@@ -514,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585774.jpg" />
+  <img src="Z:/picture/008/save_picture_585774.jpg" />
 </div>
 
 
@@ -541,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585720.jpg" />
+  <img src="Z:/picture/008/save_picture_585720.jpg" />
 </div>
 
 
@@ -569,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585422.jpg" />
+  <img src="Z:/picture/008/save_picture_585422.jpg" />
 </div>
 
 
@@ -595,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584837.jpg" />
+  <img src="Z:/picture/008/save_picture_584837.jpg" />
 </div>
 
 
@@ -606,84 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE3B4A52D2C4BD8EAF5AC085B7B2221413AC10A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359135   (583986) от 04.07.2011
-
-Юрий Лигун | Железный Булкин [2008] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие друзья! На этом диске представлена необыкновенная история, приключившаяся с обыкновенным мальчиком Санькой Булкиным в канун нового года, с музыкой, песнями и захватывающими приключениями, о которых вы узнаете, если вместо плохих новостей по телевизору послушаете эту веселую и добрую повесть-сказку, в которой, как и положено, добро побеждает зло, правда и дружба торжествуют, а злодеи оказываются у разбитого корыта. Не сомневаемся, что эта сказка, рассчитанная на детей от 5-ти до 10-ти лет, встретит восторженный прием как у всех этих детей, так и у всех их родителей.Жанр: РассказПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563D2FA216FF552BBB185C26B50BBBFCF8D0EC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358481   (583979) от 04.07.2011
-
-Ирина Лопатина | Крапиты. Часть 1. Кто самый хитрый в городке? [аудиоспектакль] [2007] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная сказка. Веселые, увлекательные истории о маленьком лесном народце – крапитах. Крапиты – потому что в крапинку. Это необыкновенные существа, жизнь которых насыщена событиями и хлопотами. Они устраивают друг другу всяческие «сюрпризы», в том числе праздники, они ссорятся, мирятся, а на досуге – борются с вредным местным тираном. Иными словами, их мир не слишком отличается от мира современных детей. И вашему ребенку будет уютно в маленьком городке на берегу прозрачной реки, где ни один день не похож на другой…Жанр: СказкаВ ролях: Игорь Сазонтов, Екатерина Голубцова, Ваня Киселёв, Галя Брусьянина, Данил Сазонтов, Илья Маланин, Егор Лямкин, Артём Бойков, Ира Шулбакова, Рома ГирькоПродолжительность: 02:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F61B411755B46665D47CB36A2261CAA841D69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919289   (583836) от 18.07.2015
-
-Аркадий Гайдар, Софья Могилевская и др. | Сказки советских писателей (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583836.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли сказки советских писателей, созданные ими в разное время и полюбившиеся ребятам. В 1986 году антология была издана в ГДР на немецком языке: «Zauberfarben: Märchen sowjetischer Schriftsteller».Жанр: СказкиПродолжительность: 09:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24F9FA2C51372BB3DE9EB25B814517193B83162
 ```
 
 https://mybot314.ru/tekegram_catalog/

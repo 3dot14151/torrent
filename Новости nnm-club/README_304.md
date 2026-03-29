@@ -1,3 +1,161 @@
+###  Публикация: 1814457   (6022) от 25.08.2025
+
+Очередное достижение: 2000+ релизов от dark_elf2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2000+ релизов от dark_elf2Дорогие друзья и гости клуба...
+Наш клуб 2000+ пополнился ещё одним неутомимым тружеником.
+Огромная Благодарность от лица всего коллектива модераторов и администрации трекера за твой неоценимый вклад в развитие трекера, за потраченное время и силы, за не угасающее желание поддерживать трекер, за доброе отношение ко (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814224   (5891) от 26.08.2025
+
+Apple обсуждает с властями РФ установку RuStore на iPhone
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5891.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Известия» со ссылкой на три источника на IT-рынке и в органах власти сообщают о переговорах между Apple и российской стороной по вопросу допуска RuStore на устройствах компании. По одному из каналов коммуникации, собеседники утверждают, что Apple «не будет препятствовать» размещению RuStore в экосистеме iOS, однако финальных договорённостей нет.Источники в VK (оператор (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921336   (5766) от 27.08.2025
+
+Лангольеры / The Langoliers (1995) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пассажиры самолета, летящего в Бостон из Лос-Анджелеса, попадают в «дыру во времени» и оказываются в ином мире, переживая невероятные приключения. Удастся ли им вернуться назад…Производство: СШАЖанр: Ужасы, Фантастика, Триллер, ПриключенияРежиссер: Том Холланд /Tom HollandАктеры: Патриция Уэттиг Дин Стокуэлл Дэвид Морс Марк Линдсэй Чэпман Фрэнки Фэйзон Бакстер Харрис Кимбер Риддл Кристофер Колле Кейт Маберли Бронсон ПинчотПеревод: Многоголосый закадровый, авторскийЯзык субтитров: АнглийскийПродолжительность: 02:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F5F32E3C26376ACFCC0E9E6A3040D7A92F8F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814475   (5745) от 27.08.2025
+
+У смартфонов Google Pixel 10 есть функция запрограммированного «старения» аккумулятора
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания рассказала, что внедрила в новинки функцию Battery Health Assistance, которая после определённого количества циклов зарядки начнёт фактически ухудшать батарею. Функция дебютировала на Pixel 9a, и теперь вот мы знаем, что она будет и у новинок. И отключить её нельзя.Это программное обеспечение будет поэтапно регулировать максимальное напряжение аккумулятора, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814498   (5464) от 29.08.2025
+
+Рыжая Соня / Red Sonja (2025) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня - воин, последний представитель своего народа и хранительница магии в волшебном лесу. Император Дрейган покоряет мир с помощью науки и современных технологий. Его войска берут Соню в плен и отправляют на арену - теперь она гладиатор, участница самых зрелищных и жестоких боёв. Чтобы обрести свободу, ей предстоит пройти множество поединков и суровые испытания.Производство: США / Dynamite Entertainment Comics, Mark Canton ProductionsЖанр: фэнтези, боевикРежиссер: М. Дж. БассеттАктеры: Матильда Лутц, Роберт Шиэн, Рона Митра, Мартин Форд, Тревор Ив, Вероника Феррес, Майкл Биспинг, Уоллис Дэй, Люк Паскуалино, Элиза МатенгуПеревод: Дублированный (Dragon Studio)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD77FF551D4248BCA03C32ED6AD5AC63034282C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814778   (5460) от 29.08.2025
+
+Российская космическая компания SR Space признана банкротом
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арбитражный суд Москвы официально признал банкротом российскую компанию SR Space, которая могла составить конкуренцию SpaceX Илона Маска.Согласно информации на сайте суда, в отношении должника открыто конкурсное производство. Компания, обещавшая бросить вызов американскому лидеру в области спутниковой связи, столкнулась с финансовыми трудностями.Заявление о банкротстве (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815248   (5457) от 29.08.2025
 
 «Яндекс» оштрафован за непередачу доступа ФСБ к умному дому «Алисы»
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5457.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5286.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4898.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4628.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4595.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4512.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4503.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4502.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4491.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ Microsoft нашла способ отключить рекламу в YouTube �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4375.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4373.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ VA - Workout Motivation (Special Edition) (2021-2025) [Mixed by Sergey Sychev] [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4258.jpg" />
 </div>
 
 
@@ -324,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4253.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4224.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4001.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3968.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3935.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3795.jpg" />
 </div>
 
 
@@ -482,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3679.jpg" />
 </div>
 
 
@@ -508,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3676.jpg" />
 </div>
 
 
@@ -519,164 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14764B9341F5FE7B4B0807DD25E04A0D4E9BECD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816834   (3667) от 09.09.2025
-
-Российский аналог Википедии ликвидируют за 303 млн рублей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство постановило выделить Минцифры России более 303 млн руб. на завершение ликвидации автономной некоммерческой организации «Большая российская энциклопедия». Соответствующее распоряжение правительства опубликовано на интернет-портале правовой информации.Средства будут направлены в виде субсидии автономной некоммерческой организации «Национальный научно-образовательный (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764345   (3417) от 11.09.2025
-
-Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack Decepticon [Premium Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте одну из величайших тайн истории в однопользовательской приключенческой игре от первого лица Indiana Jones and the Great Circle, действие которой происходит между событиями фильмов «В поисках утраченного ковчега» и «Последний крестовый поход». В 1937 году зловещие личности начинают искать ключ к древней силе, связанной с большим кругом, и остановить их может (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982C3AAC52684768D8FA62FAFEBDE9667064E4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 25482   (3414) от 11.09.2025
-
-11-е сентября простым взглядом / 911 In Plain Site (2006) [DVDRip]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из первых попыток проанализировать документальные материалы и понять, что же действительно произошло в Вашингтоне и Нью-Йорке 11-го сентября 2001-го года. Многие документальные материалы, использованные в фильме, показывались только один раз, только в прямом эфире и никогда в записи по очень простой причине - они противоречат официальной версии и оставляют больше (   Читать дальше...   )Жанр: ДокументалистикаРежиссер: Вильям Льюис, Давид фон КляйстПеревод: Любительский
-
-ВНИМАНИЕ! 9-ГО СЕНТЯБРЯ ПРЕДЫДУЩИЙ РЕЛИЗ ЗАМЕНЕН РЕЛИЗОМ С КОДЕКОМ MP3 ВМЕСТО ADPCM, УЧИТЫВАЮЩИЙ ЗАМЕЧАНИЯ ЗРИТЕЛЕЙ (УМЕНЬШИЛСЯ ВЕС ФАЙЛА, УЛУЧШИЛАСЬ ПОРТИРУЕМОСТЬ).Продолжительность: 1:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C4A62BDB64A8CF850FB84025D814618522AD57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817357   (3411) от 11.09.2025
-
-Орудия / Weapons (2025) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все дети из одного школьного класса, за исключением одного ребёнка, одновременно бесследно исчезают. Местные жители и семьи пытаются понять, что или кто стал причиной их исчезновения.Производство: США / BoulderLight Pictures, New Line Cinema, Subconscious, Vertigo Entertainment, Warner Bros.Жанр: ужасы, детективРежиссер: Зак КреггерАктеры: Джош Бролин, Джулия Гарнер, Олден Эренрайк, Остин Абрамс, Кэри Кристофер, Бенедикт Вонг, Эми Мэдиган, Тоби Хасс, Сара Пэкстон, Джастин ЛонгПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH), Украинские, ИспанскиеПродолжительность: 02:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C71D4F93B76C6AADA4407E70ED67858ED80536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817610   (3266) от 12.09.2025
-
-В Госдуме оценили идею ввести сухой закон в России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея запрета на продажу алкоголя в России является радикальной мерой, которой не было со времен сухого закона в СССР. При этом подобная мера бессмысленна, считает глава комитета Госдумы по здравоохранению Сергей Леонов.Он также пояснил, что полный запрет влечет за собой различные последствия. В качестве примера политик привел подпольную продажу алкоголя, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817024   (3095) от 13.09.2025
-
-WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.09.07 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A9B7B93589CBCA441455A7FCB2319C2FF59375
 ```
 
 https://mybot314.ru/tekegram_catalog/

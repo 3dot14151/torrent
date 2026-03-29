@@ -6,7 +6,7 @@ Display Driver Uninstaller 17.0.8.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721384.jpg" />
+  <img src="Z:/picture/008/save_picture_721384.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chess: Battle of the Elements 1.01 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721383.jpg" />
+  <img src="Z:/picture/005/save_picture_721383.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Process Hacker 2.34 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721323.jpg" />
+  <img src="Z:/picture/008/save_picture_721323.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IsMyHdOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721321.jpg" />
+  <img src="Z:/picture/008/save_picture_721321.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Any Video Converter Ultimate 5.8.0 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721319.jpg" />
+  <img src="Z:/picture/008/save_picture_721319.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721308.jpg" />
+  <img src="Z:/picture/008/save_picture_721308.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721302.jpg" />
+  <img src="Z:/picture/005/save_picture_721302.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NeoOffice 2017.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721298.jpg" />
+  <img src="Z:/picture/008/save_picture_721298.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721296.jpg" />
+  <img src="Z:/picture/008/save_picture_721296.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ DCommander 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721266.jpg" />
+  <img src="Z:/picture/008/save_picture_721266.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Lunascape 6.9.6 (Standard/Full) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721236.jpg" />
+  <img src="Z:/picture/008/save_picture_721236.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721232.jpg" />
+  <img src="Z:/picture/008/save_picture_721232.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721224.jpg" />
+  <img src="Z:/picture/008/save_picture_721224.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721223.jpg" />
+  <img src="Z:/picture/008/save_picture_721223.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NETGATE Spy Emergency 15.0.205.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721220.jpg" />
+  <img src="Z:/picture/008/save_picture_721220.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721217.jpg" />
+  <img src="Z:/picture/008/save_picture_721217.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721212.jpg" />
+  <img src="Z:/picture/005/save_picture_721212.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Creme De La Creme - Bitte Hau Mich Nicht (1997) EP [FLAC|Lossless|tracks + .cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721193.jpg" />
+  <img src="Z:/picture/008/save_picture_721193.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Text Editor Pro 9.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721183.jpg" />
+  <img src="Z:/picture/008/save_picture_721183.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ YouTube By Click Premium 2.2.135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721180.jpg" />
+  <img src="Z:/picture/008/save_picture_721180.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wonderfox HD Video Converter Factory Pro 19.1 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721179.jpg" />
+  <img src="Z:/picture/008/save_picture_721179.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Microsoft Edge 84.0.522.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721176.jpg" />
+  <img src="Z:/picture/008/save_picture_721176.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ LDPlayer 4.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721175.jpg" />
+  <img src="Z:/picture/008/save_picture_721175.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ PDF Expert 2.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721173.jpg" />
+  <img src="Z:/picture/008/save_picture_721173.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ MKVToolNix 49.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721172.jpg" />
+  <img src="Z:/picture/008/save_picture_721172.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ TechSmith Snagit 2020.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721169.jpg" />
+  <img src="Z:/picture/008/save_picture_721169.jpg" />
 </div>
 
 

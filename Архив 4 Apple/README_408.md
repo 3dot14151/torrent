@@ -1,3 +1,108 @@
+###  Публикация: 1253943   (379517) от 11.10.2018
+
+Navicat Premium 12 v12.1.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2018Разработчик: PremiumSoftПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2E9786708B2295C7FCE7D744955FFA4C166E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253740   (379431) от 11.10.2018
+
+Movavi Video Editor 15 v15.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием кнопки, добавьте анимированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: MovaviПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F799814F6F9CD7D9CBF8099EA423E8AABB4A5B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253797   (379312) от 11.10.2018
+
+TurboCollage 7 v7.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте великолепные коллажи изображений на вашем Mac. Настройте коллаж с рельефным центром картины, организуйте фотографии в регулярной сетке или создайте случайную картину. Свяжите приятные воспоминания вместе в великолепные мозаики изображений. Благодаря интуитивно понятному интерфейсу, TurboCollage дает вам полный контроль над вашим дизайном коллажа. TurboCollage (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Gaurav AgarwalПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E858FB4B840EDAA3B6BE8776CE5551805CD636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949222   (379266) от 22.10.2015
+
+TechTool Pro 8.0.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379266.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechTool Pro — диагностику заказывали?
+Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 октября 2015Разработчик: Micromat Inc.Поддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC72015FA1E81BCF03E9545C820525CD4E8EAA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415184   (379255) от 11.10.2020
 
 Permute 3 v3.5.7 [Multi/Ru]
@@ -6,7 +111,7 @@ Permute 3 v3.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379255.jpg" />
+  <img src="Z:/picture/008/save_picture_379255.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ MediaHuman Youtube Downloader 3.9.9.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379254.jpg" />
+  <img src="Z:/picture/008/save_picture_379254.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ PullTube 1.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379249.jpg" />
+  <img src="Z:/picture/008/save_picture_379249.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ CheckBook Pro 2.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379246.jpg" />
+  <img src="Z:/picture/008/save_picture_379246.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1861 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379245.jpg" />
+  <img src="Z:/picture/008/save_picture_379245.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ Sketch 52.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379195.jpg" />
+  <img src="Z:/picture/008/save_picture_379195.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ Xcode 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379143.jpg" />
+  <img src="Z:/picture/008/save_picture_379143.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ IconJar 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379118.jpg" />
+  <img src="Z:/picture/008/save_picture_379118.jpg" />
 </div>
 
 
@@ -225,7 +330,7 @@ PhotoSweeper X 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379115.jpg" />
+  <img src="Z:/picture/008/save_picture_379115.jpg" />
 </div>
 
 
@@ -252,7 +357,7 @@ SwitchGlass 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379109.jpg" />
+  <img src="Z:/picture/008/save_picture_379109.jpg" />
 </div>
 
 
@@ -278,7 +383,7 @@ Aurora HDR 2019 v1.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379094.jpg" />
+  <img src="Z:/picture/008/save_picture_379094.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ Sublime Text 3 (3150) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379043.jpg" />
+  <img src="Z:/picture/008/save_picture_379043.jpg" />
 </div>
 
 
@@ -331,7 +436,7 @@ Find Any File (FAF) 2.1.2b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378961.jpg" />
+  <img src="Z:/picture/008/save_picture_378961.jpg" />
 </div>
 
 
@@ -358,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378959.jpg" />
+  <img src="Z:/picture/008/save_picture_378959.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ Fresh 4 v4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378954.jpg" />
+  <img src="Z:/picture/008/save_picture_378954.jpg" />
 </div>
 
 
@@ -411,7 +516,7 @@ Bongiovi Digital Power Station (DPS) 2.2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378953.jpg" />
+  <img src="Z:/picture/008/save_picture_378953.jpg" />
 </div>
 
 
@@ -438,7 +543,7 @@ TinkerTool System 6 v.6.93 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378951.jpg" />
+  <img src="Z:/picture/008/save_picture_378951.jpg" />
 </div>
 
 
@@ -466,7 +571,7 @@ Records 1.6.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378950.jpg" />
+  <img src="Z:/picture/008/save_picture_378950.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ Bootstrap Studio 5.4.1 Lifetime Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378854.jpg" />
+  <img src="Z:/picture/008/save_picture_378854.jpg" />
 </div>
 
 
@@ -521,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378832.jpg" />
+  <img src="Z:/picture/008/save_picture_378832.jpg" />
 </div>
 
 
@@ -548,7 +653,7 @@ Antivirus Zap – Virus & Adware 3.9.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378825.jpg" />
+  <img src="Z:/picture/008/save_picture_378825.jpg" />
 </div>
 
 
@@ -574,7 +679,7 @@ Renamer 6.0.6 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378822.jpg" />
+  <img src="Z:/picture/008/save_picture_378822.jpg" />
 </div>
 
 
@@ -585,113 +690,6 @@ Renamer - это приложение для пакетного переимен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE76D2F539CAB41A0158BA65B1D8B414729B8464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326826   (378791) от 23.09.2019
-
-EverWeb 3 v3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378791.jpg" />
-</div>
-
-
-###  Подробнее
-
-С EverWeb вы даже можете создает мобильные сайты, которые отлично смотрятся на iPhone и iPad, и включает в себя такие мощные функции, как раскрывающиеся меню, интеграция с социальными сетями, встроенный SEO, поддержка шрифтов Google и многое другое. Множество готовых шаблонов, из которых есть что выбрать или использовать нужные элементы.
-
-Публикуйте свой веб-сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: RAGE SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204842B18AD78FABF72D4787EEA7559D23E4C63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326846   (378790) от 23.09.2019
-
-MarsEdit 4 v4.3.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5F16641E49FD8CF1BC88A621BE180691C431B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326780   (378789) от 23.09.2019
-
-Unite 2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4B487C48979C33A0B67A92805CEC151E85FF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327007   (378787) от 23.09.2019
-
-Pastebot 2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pastebot - менеджер истории буфера обмена
-Если copy & paste является частью вашего рабочего процесса, Pastebot является незаменимым инструментом для повышения производительности. Быстро вспомнить обрывки, которые вы скопировали и применять мощные текстовые фильтры для форматирования перед вставкой. Вы можете даже стоять в очереди несколько копий, чтобы вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tapbots LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781A01BA276274FB63AD8760E789BA8EC7A4F863
 ```
 
 https://mybot314.ru/tekegram_catalog/

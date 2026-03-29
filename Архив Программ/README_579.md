@@ -6,7 +6,7 @@ Waterfox 56.2.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760424.jpg" />
+  <img src="Z:/picture/005/save_picture_760424.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft Organizer Pro 8.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760388.jpg" />
+  <img src="Z:/picture/008/save_picture_760388.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WinToUSB Technician 5.5 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760382.jpg" />
+  <img src="Z:/picture/008/save_picture_760382.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760298.jpg" />
+  <img src="Z:/picture/008/save_picture_760298.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ CodeLobster IDE 1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760261.jpg" />
+  <img src="Z:/picture/008/save_picture_760261.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ashampoo Photo Optimizer 8.0.1.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760258.jpg" />
+  <img src="Z:/picture/008/save_picture_760258.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Master PDF Editor 5.6.09 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760257.jpg" />
+  <img src="Z:/picture/008/save_picture_760257.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ MAGIX SOUND FORGE Audio Studio 14.0.75 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760254.jpg" />
+  <img src="Z:/picture/008/save_picture_760254.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Wondershare Filmora 9.0.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760178.jpg" />
+  <img src="Z:/picture/008/save_picture_760178.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ BELOFF [dp] 2019.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760168.jpg" />
+  <img src="Z:/picture/008/save_picture_760168.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ CyberLink PowerDVD Ultra 15.0.1510.58 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760159.jpg" />
+  <img src="Z:/picture/008/save_picture_760159.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Adobe Muse CC 2014.3.2 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760152.jpg" />
+  <img src="Z:/picture/008/save_picture_760152.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10056 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760151.jpg" />
+  <img src="Z:/picture/008/save_picture_760151.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10056 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760150.jpg" />
+  <img src="Z:/picture/008/save_picture_760150.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ AAct 3.9.9 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760047.jpg" />
+  <img src="Z:/picture/008/save_picture_760047.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ HitmanPro 3.8.0 Build 295 (x64) RePack by Dickmaster [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760039.jpg" />
+  <img src="Z:/picture/008/save_picture_760039.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Zemana AntiMalware Premium 2.74.2.150 RePack by EnVyMe [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760037.jpg" />
+  <img src="Z:/picture/008/save_picture_760037.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Adobe Premiere Pro 2020 (14.3.0.38) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759958.jpg" />
+  <img src="Z:/picture/008/save_picture_759958.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ PicPick 5.2.1 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759919.jpg" />
+  <img src="Z:/picture/008/save_picture_759919.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ EasyUEFI Technician 4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759915.jpg" />
+  <img src="Z:/picture/008/save_picture_759915.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Windows Repair (All In Onе) 2018 4.4.3 Pro [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759892.jpg" />
+  <img src="Z:/picture/008/save_picture_759892.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ ACDSee Photo Studio Ultimate 2019 12.1 Build 1656 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759881.jpg" />
+  <img src="Z:/picture/008/save_picture_759881.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Chromium 67.0.3369.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759835.jpg" />
+  <img src="Z:/picture/008/save_picture_759835.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Kerish Doctor 2022 4.85 (DC 05.01.2022) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759764.jpg" />
+  <img src="Z:/picture/008/save_picture_759764.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Windows 11 (v21h2) x64 PRO by KulHunter v2 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759759.jpg" />
+  <img src="Z:/picture/008/save_picture_759759.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Boris FX Continuum 2019 Plug-ins OFX Repack от Pooshock 12.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759754.jpg" />
+  <img src="Z:/picture/008/save_picture_759754.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1276774   (787625) от 17.01.2019
+
+Moonspell - 1755 (2017) Limited Edition [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Em Nome do Medo (5:32)
+02. 1755 (5:12)
+03. In Tremor Dei (4:27)
+04. Desastre (3:23)(   Читать дальше...   )Жанр: Dark Metal, Gothic MetalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DB899EA881B23851A59DFCDCE4F9368A2E2DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512331   (787460) от 24.11.2021
+
+Within Temptation - Enter & The Dance (1997-1998) Reissue, Compilation, 2014, Nuclear Blast Entertainment [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enter
+01. Restless (6:10)
+02. Enter (7:16)
+03. Pearls Of Light (5:16)(   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6022AD35C32A39CF4C4B8A2EC66B1290A8328AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512688   (787139) от 25.11.2021
+
+Leverage - Above The Beyond (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight
+02. Emperor
+03. Into The New World
+04. Do You Love Me Now(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442E1F7FC9D07121988512E462FB5A2BCED313B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512620   (787080) от 25.11.2021
 
 Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -6,7 +93,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787080.jpg" />
+  <img src="Z:/picture/008/save_picture_787080.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Embalmer - There Was Blood Everywhere (1995) [FLAC|Lossless|tracks + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787036.jpg" />
+  <img src="Z:/picture/008/save_picture_787036.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787032.jpg" />
+  <img src="Z:/picture/008/save_picture_787032.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Lividity - Fetish for the Sick (1997) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787006.jpg" />
+  <img src="Z:/picture/008/save_picture_787006.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786590.jpg" />
+  <img src="Z:/picture/008/save_picture_786590.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Expulsion - Man Against (1996) [FLAC|Lossless|image + .cue] <Death Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786415.jpg" />
+  <img src="Z:/picture/008/save_picture_786415.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Expulsion - Overflow (1994) [FLAC|Lossless|image + .cue] <Death Metal, Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786413.jpg" />
+  <img src="Z:/picture/008/save_picture_786413.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786403.jpg" />
+  <img src="Z:/picture/008/save_picture_786403.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Oceans of Slumber - Blue (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786398.jpg" />
+  <img src="Z:/picture/008/save_picture_786398.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mattias IA Eklundh Freak Guitar - The Smorgasbord (2013) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786390.jpg" />
+  <img src="Z:/picture/008/save_picture_786390.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Futility - Futility (2009) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786226.jpg" />
+  <img src="Z:/picture/008/save_picture_786226.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Herodias - Antevorta (2012) [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786225.jpg" />
+  <img src="Z:/picture/008/save_picture_786225.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Lachrimatory - Anamnesic Voices Phenomena (2006) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786224.jpg" />
+  <img src="Z:/picture/008/save_picture_786224.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Negative Voice - Infinite Dissonance (2013) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786222.jpg" />
+  <img src="Z:/picture/008/save_picture_786222.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Dаmnаtiоns Dау - А Wоrld Аwаkеns (2017) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786216.jpg" />
+  <img src="Z:/picture/008/save_picture_786216.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Lachrimatory - Transient (2011) [FLAC|Lossless|image + .cue] <Death Metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786211.jpg" />
+  <img src="Z:/picture/008/save_picture_786211.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Negative Voice - Cold Redrafted (2016) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786210.jpg" />
+  <img src="Z:/picture/008/save_picture_786210.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Ulver - The Assassination of Julius Caesar (2017) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786105.jpg" />
+  <img src="Z:/picture/008/save_picture_786105.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785839.jpg" />
+  <img src="Z:/picture/008/save_picture_785839.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Sinner - Tequila Suicide (2017) Limited Edition [FLAC|Lossless|image + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785800.jpg" />
+  <img src="Z:/picture/008/save_picture_785800.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Lay Down Rotten - Gospel of the Wretched (2009) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785669.jpg" />
+  <img src="Z:/picture/008/save_picture_785669.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Light & Shade - The Essence of Everything (2016) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785655.jpg" />
+  <img src="Z:/picture/008/save_picture_785655.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785638.jpg" />
+  <img src="Z:/picture/008/save_picture_785638.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E19DD20364499B5A0C673AF46C5E3A81B29F57B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124643   (785622) от 12.04.2017
-
-Six Feet Under - Torment (2017) [FLAC|Lossless|image + .cue] <Death, Groove Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrificial Kill 03:55
-02. Exploratory Homicide 02:45
-03. The Separation Of Flesh From Bone 04:52
-04. Schizomaniac 03:54(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DE67E054F59DD64A0B263F7EAC126D76CD6DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277382   (785482) от 20.01.2019
-
-Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Disenthrall (1:44)
-02 - Entre Suffrage Et Mirage (4:20)
-03 - Surface's Echoes (6:54)
-04 - Ethereal Kingdom (5:19)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277369   (785481) от 20.01.2019
-
-Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Yata-Garasu
-02. Thy the Ancient Wyvern
-03. Sea of Sacrifice
-04. For Whom the Bell of Ruin Tolls(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

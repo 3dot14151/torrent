@@ -1,3 +1,55 @@
+###  Публикация: 1206963   (780553) от 18.02.2018
+
+Ю.М. Фролов, В.П. Шелякин | Проектирование электропривода промышленных механизмов (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит сведения и рекомендации по проектированию силовых электроприводов технических установок, широко применяющихся в промышленном и сельскохозяйственном производствах, проиллюстрированные достаточным количеством примеров. Приведены методики расчета электроприводов, учитывающие конструктивные особенности механизмов и специфику их технологических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA6C7D232E9737224CB41F3B2EA1E1C238C4BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207235   (780551) от 18.02.2018
+
+Н.П. Заказнов (ред.) | Прикладная оптика (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780551.jpg" />
+</div>
+
+
+###  Подробнее
+
+На базе физической и геометрической оптики (ч. I и II) изложены основы теории и принципы действия ряда оптических и оптико-электронных систем и приборов (ч. III). Учебное пособие предназначено для студентов технических вузов, обучающихся по приборостроительным специальностям (компьютерные технологии в приборостроении, конструирование и производство измерительных (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B781C44487078D39A1927B24FC1B3D27CE6514F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207206   (780550) от 18.02.2018
 
 Е.Ф. Ищенко, А.Л. Соколов | Поляризационная оптика (2012) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780550.jpg" />
+  <img src="Z:/picture/008/save_picture_780550.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780541.jpg" />
+  <img src="Z:/picture/008/save_picture_780541.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780535.jpg" />
+  <img src="Z:/picture/008/save_picture_780535.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780532.jpg" />
+  <img src="Z:/picture/008/save_picture_780532.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780521.jpg" />
+  <img src="Z:/picture/008/save_picture_780521.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780514.jpg" />
+  <img src="Z:/picture/008/save_picture_780514.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780494.jpg" />
+  <img src="Z:/picture/008/save_picture_780494.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780473.jpg" />
+  <img src="Z:/picture/008/save_picture_780473.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780177.jpg" />
+  <img src="Z:/picture/008/save_picture_780177.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779946.jpg" />
+  <img src="Z:/picture/008/save_picture_779946.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779940.jpg" />
+  <img src="Z:/picture/008/save_picture_779940.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779631.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779081.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778703.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778693.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778690.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778312.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778304.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778095.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777598.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777437.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776896.jpg" />
+  <img src="Z:/picture/008/save_picture_776896.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776845.jpg" />
+  <img src="Z:/picture/008/save_picture_776845.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776777.jpg" />
+  <img src="Z:/picture/008/save_picture_776777.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB2D58BD300C9DFBB174650D15FA6B41AF2E900A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013421   (776770) от 06.05.2016
-
-С.Е. Щеклеин, О.Л. Ташлыков (ред.) | Атомные электростанции с реакторами на быстрых нейтронах с натриевым теплоносителем [2 части] (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные сведения из ядерной и нейтронной физики, физики и кинетики ядерных реакторов на быстрых нейтронах с натриевым теплоносителем. Приведены особенности обслуживания систем и оборудования с натриевым теплоносителем. Описаны тепловые схемы, основное оборудование и системы атомных электростанций с реакторами БН-600 и БН-800. Рассмотрены особенности (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB49602945E82A2D89BE926F597E71C1115F593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211525   (776754) от 09.03.2018
-
-В.В. Титков, Ф.Х. Халилов | Перенапряжения и молниезащита (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дано понятие об электрических перенапряжениях. Рассмотрены основные характеристики перенапряжений: величина (кратность), форма, повторяемость и широта охвата сети. Проанализированы основные источники перенапряжений в сетях низкого (до 1 кВ), среднего (6–35 кВ), высокого (110 кВ и выше) напряжений.
-Проведена классификация внешних и внутренних перенапряжений. Даны (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224A2DE1F181E14205A89BABFB4228B5C577181C
 ```
 
 https://mybot314.ru/tekegram_catalog/

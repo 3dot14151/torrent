@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1862135   (1062974) от 
+
+Истории далёкого пригорода / Tales from Outer Suburbia (2026) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 10) Delta Dubbing (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умная девочка «почти тринадцати» лет и её младший брат переезжают в пригородную окраину со своей матерью одиночкой . Их летние каникулы превращаются в череду неожиданных и сюрреалистических приключений, пока они привыкают к своей новой реальности.Производство: Австралия / Australian Broadcasting Corporation (ABC), BYUtv, Flying Bark ProductionsЖанр: фэнтези, комедия, приключенияРежиссер: Ноэль КлириАктеры: Бруклин Дэвис, Феликс Оливер Вержес, Джеральдин Хейкуэлл, Дон Френч, Тони Николакопулос, Майкл Тео, Шабана Азиз, Андреа СолонжПеревод: Многоголосый профессиональный (Delta Dubbing)Язык озвучки: Русский, АнглийскийПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02186DECF4216669F9265AF71E1F255310812028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860385   (1061978) от 
+
+Статический шок / Static Shock (2000) WEBRip [H.265/1080p] (сезон 1, серии 1-5 из 13) [ENG / RU Sub] (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вёрджил Хокинс - скромный, хорошо воспитанный подросток. Когда химический взрыв потряс улицы города Дакота Сити, мальчишка случайно оказался не в том месте и не в то время. Теперь у Вёрджила есть невероятный Статический дар.Производство: США / Warner Bros. AnimationЖанр: мультфильм, фантастика, боевик, драма, криминал, приключения, семейныйРежиссер: Денис Кауэн, Виктор Даль Шеле, Джеймс ТакерАктеры: Фил ЛаМарр, Джейсон Марсден, Кевин Майкл, Ричардсон Мишель, Морган Кристал,Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), Английские (SDH)Продолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243378A978D5E7211A36FF4A346FF4C51E9EE515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860134   (1061789) от 
 
 Могучая девятка / The Mighty Nein (2025) WEB-DL [H.264/1080p-LQ] (сезон 1, серия 1 из 8) NewStation
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061789.jpg" />
+  <img src="Z:/picture/005/save_picture_1061789.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059543.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057793.jpg" />
+  <img src="Z:/picture/005/save_picture_1057793.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056964.jpg" />
+  <img src="Z:/picture/005/save_picture_1056964.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054834.jpg" />
+  <img src="Z:/picture/005/save_picture_1054834.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053496.jpg" />
+  <img src="Z:/picture/005/save_picture_1053496.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053476.jpg" />
+  <img src="Z:/picture/005/save_picture_1053476.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052317.jpg" />
+  <img src="Z:/picture/005/save_picture_1052317.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051620.jpg" />
+  <img src="Z:/picture/005/save_picture_1051620.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051314.jpg" />
+  <img src="Z:/picture/005/save_picture_1051314.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051235.jpg" />
+  <img src="Z:/picture/005/save_picture_1051235.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051059.jpg" />
+  <img src="Z:/picture/005/save_picture_1051059.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050972.jpg" />
+  <img src="Z:/picture/005/save_picture_1050972.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050600.jpg" />
+  <img src="Z:/picture/005/save_picture_1050600.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050599.jpg" />
+  <img src="Z:/picture/005/save_picture_1050599.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050477.jpg" />
+  <img src="Z:/picture/005/save_picture_1050477.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049871.jpg" />
+  <img src="Z:/picture/005/save_picture_1049871.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049624.jpg" />
+  <img src="Z:/picture/005/save_picture_1049624.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049286.jpg" />
+  <img src="Z:/picture/008/save_picture_1049286.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049285.jpg" />
+  <img src="Z:/picture/008/save_picture_1049285.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047716.jpg" />
+  <img src="Z:/picture/008/save_picture_1047716.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047713.jpg" />
+  <img src="Z:/picture/008/save_picture_1047713.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047456.jpg" />
+  <img src="Z:/picture/008/save_picture_1047456.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047455.jpg" />
+  <img src="Z:/picture/008/save_picture_1047455.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41FD02779D1BE4B2A8F1953DAE12DAB2FE443545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840434   (1047391) от 06.12.2025
-
-Грэвити Фоллс / Gravity Falls (2012-2016) WEB-DLRip [H.265/1080p] (Сезон 1-2, серии 40 из 40)  Кириллица, Сыендук
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения двойняшек Диппера и Мэйбл, которые проводят летние каникулы у двоюродного дедушки в городке под названием Гравити Фолз.Производство: США, Корея Южная / Walt Disney Television AnimationЖанр: мультфильм, комедия, детектив, приключения, семейный, фантастикаРежиссер: Джо Питт, Джон Аосима, Мэтт БрэлиАктеры: Джейсон Риттер, Алекс Хирш, Кристен Шаал, Линда Карделлини, Кевин Майкл Ричардсон, Мэтт Чэпман, Кари Уолгрен, Джон Ди Маджио, Кит Фергюсон, Дженнифер Кулидж и др.Перевод: Дублированный ((дублированный Кириллица (По заказу канала Disney), одноголосый профессиональный (Сыендук)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F670F7EE9D1DFD3417F9FAA8D71126A53CF076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840154   (1047072) от 03.12.2025
-
-Монстры-коммандос / Creature Commandos (2024) WEB-DL [H.264/1080p] (сезон 1, серия 1-7 из 7) Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правительство США собирает необычный отряд, состоящий из различных чудовищ, для выполнения особо сложных и секретных миссий.Производство: США, Warner Bros. Animation, DC Studios, The Safran CompanyЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, детектив, приключения, военныйРежиссер: Чарльз Адлер, Dougg Williams, Сэм ЛюАктеры: Алан Тьюдик, Фрэнк Грилло, Индира Варма, Аня Чалотра, Расс Бейн, Виола Дэвис, Шон Ганн, Бен Дэвис, Эли Хьюз, Рауль БанеджаПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A0271F3B69A2AA81BD14592722322B85EB91E
 ```
 
 https://mybot314.ru/tekegram_catalog/

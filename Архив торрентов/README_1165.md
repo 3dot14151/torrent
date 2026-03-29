@@ -6,7 +6,7 @@ Network Radar 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787448.jpg" />
+  <img src="Z:/picture/008/save_picture_787448.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Process Monitor Pro 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787447.jpg" />
+  <img src="Z:/picture/008/save_picture_787447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ iMazing 2.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787445.jpg" />
+  <img src="Z:/picture/008/save_picture_787445.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Victoria 4.72b Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787444.jpg" />
+  <img src="Z:/picture/008/save_picture_787444.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Adobe Substance 3D Designer 11.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787396.jpg" />
+  <img src="Z:/picture/008/save_picture_787396.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ K-Lite Codec Pack Update 16.5.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787384.jpg" />
+  <img src="Z:/picture/008/save_picture_787384.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Substance 3D Sampler 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787376.jpg" />
+  <img src="Z:/picture/008/save_picture_787376.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Edge 96.0.1054.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787372.jpg" />
+  <img src="Z:/picture/008/save_picture_787372.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Adobe Substance 3D Painter 7.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787366.jpg" />
+  <img src="Z:/picture/008/save_picture_787366.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ant Download Manager Pro 2.4.2 акция (Sharewareonsale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787362.jpg" />
+  <img src="Z:/picture/008/save_picture_787362.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Planner 5D Premium 4.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787355.jpg" />
+  <img src="Z:/picture/008/save_picture_787355.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ZW3D 2022X SP [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787349.jpg" />
+  <img src="Z:/picture/008/save_picture_787349.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ StartAllBack 3.1.2 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787348.jpg" />
+  <img src="Z:/picture/008/save_picture_787348.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Ashampoo UnInstaller 11.00.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787344.jpg" />
+  <img src="Z:/picture/008/save_picture_787344.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ UltraUXThemePatcher 4.3.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787339.jpg" />
+  <img src="Z:/picture/008/save_picture_787339.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ WinToUSB Free / Pro / Enterprise / Technician 6.5.2.0 RePack (& Portable) by Dod
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787335.jpg" />
+  <img src="Z:/picture/008/save_picture_787335.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ StartAllBack 3.1.2 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787331.jpg" />
+  <img src="Z:/picture/008/save_picture_787331.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787330.jpg" />
+  <img src="Z:/picture/008/save_picture_787330.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787317.jpg" />
+  <img src="Z:/picture/008/save_picture_787317.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AOMEI Partition Assistant Pro 9.5 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787316.jpg" />
+  <img src="Z:/picture/008/save_picture_787316.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ XnView Classic 2.50.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787311.jpg" />
+  <img src="Z:/picture/008/save_picture_787311.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.348]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787294.jpg" />
+  <img src="Z:/picture/008/save_picture_787294.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TrashMe 2.1.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787263.jpg" />
+  <img src="Z:/picture/008/save_picture_787263.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ShredIt X 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787261.jpg" />
+  <img src="Z:/picture/008/save_picture_787261.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ MediaHuman Youtube Downloader 3.9.9.11 (1701) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787260.jpg" />
+  <img src="Z:/picture/008/save_picture_787260.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ WebScraper 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787254.jpg" />
+  <img src="Z:/picture/008/save_picture_787254.jpg" />
 </div>
 
 

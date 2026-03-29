@@ -6,7 +6,7 @@ Mammoth Weed Wizard Bastard - Y Proffwyd Dwyll (2016) [MP3|320 Kbps] <Doom, Slud
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798848.jpg" />
+  <img src="Z:/picture/008/save_picture_798848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mammoth Weed Wizard Bastard - Noeth Ac Anoeth (2015) [MP3|320 Kbps] <Doom, Sludg
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798843.jpg" />
+  <img src="Z:/picture/008/save_picture_798843.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Kaunis Kuolematon - Vapaus (2017) [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798836.jpg" />
+  <img src="Z:/picture/008/save_picture_798836.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Pretty Maids - Maid in Japan: Future World Live 30 Anniversary (2020) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797866.jpg" />
+  <img src="Z:/picture/008/save_picture_797866.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Black Label Society - Grimmest Hits (2018) [MP3|320 Kbps] <Heavy Metal, Southern
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797483.jpg" />
+  <img src="Z:/picture/008/save_picture_797483.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Hammer Fight - Profound And Profane (2016) [MP3|320 кб/с] <Heavy Metal,Thrash
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797042.jpg" />
+  <img src="Z:/picture/008/save_picture_797042.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Virulent - 3 Альбома (2012-2017) [MP3|320 кб/с]<Progressive Deathcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796957.jpg" />
+  <img src="Z:/picture/008/save_picture_796957.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ October Tide - Winged Waltz (2016) [MP3|320 кб/с] <MDM, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796365.jpg" />
+  <img src="Z:/picture/008/save_picture_796365.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Rob Zombie - The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796156.jpg" />
+  <img src="Z:/picture/008/save_picture_796156.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Die Kreatur - Panoptikum (2020) [MP3|320 kbps] <Gothic Metal, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795884.jpg" />
+  <img src="Z:/picture/008/save_picture_795884.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Burden Of Life - In Cycles (2016) [MP3|320 кб/с] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795631.jpg" />
+  <img src="Z:/picture/008/save_picture_795631.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Farseer - Fall Before the Dawn (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795624.jpg" />
+  <img src="Z:/picture/008/save_picture_795624.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Germ - Escape (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Shoegaze, Post 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795579.jpg" />
+  <img src="Z:/picture/008/save_picture_795579.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Emigrate - The Persistence of Memory (2021) [MP3|320 Kbps] <Alternative Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795547.jpg" />
+  <img src="Z:/picture/008/save_picture_795547.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Dragonforce - Killer Elite (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795443.jpg" />
+  <img src="Z:/picture/008/save_picture_795443.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ivar Bjornson & Einar Selvik's Skuggsja - A Piece For Mind & Mirror (2016) Limit
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795398.jpg" />
+  <img src="Z:/picture/008/save_picture_795398.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Grave Digger - Fields of Blood (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795265.jpg" />
+  <img src="Z:/picture/008/save_picture_795265.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Legion Of The Damned - Slaves Of The Shadow Realm (2019) [MP3|320 Kbps] <Thrash 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795042.jpg" />
+  <img src="Z:/picture/008/save_picture_795042.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Emigrate (Richard Kruspe of Rammstein) - 4 Albums + 4 Singles + 1 EP (2007-2021)
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794605.jpg" />
+  <img src="Z:/picture/008/save_picture_794605.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dodsferd - Diseased Remnants Of A Dying World (2018) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794167.jpg" />
+  <img src="Z:/picture/008/save_picture_794167.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dead By April - Worlds Collide (2017) [MP3|320 Kbps] <Melodic Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793244.jpg" />
+  <img src="Z:/picture/008/save_picture_793244.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Motley Crue, Vince Neil, Sixx:A.M., Tommy Lee - 44 albums and 11 singles (1981-2
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793133.jpg" />
+  <img src="Z:/picture/008/save_picture_793133.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sophie Lloyd - Delusions (2017) EP [MP3|320 Kbps] <Heavy Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793006.jpg" />
+  <img src="Z:/picture/008/save_picture_793006.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Venom - Storm the Gates (2018) [MP3|320 Kbps] <Thrash Metal, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792993.jpg" />
+  <img src="Z:/picture/008/save_picture_792993.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Fe
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792814.jpg" />
+  <img src="Z:/picture/008/save_picture_792814.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792752.jpg" />
+  <img src="Z:/picture/008/save_picture_792752.jpg" />
 </div>
 
 

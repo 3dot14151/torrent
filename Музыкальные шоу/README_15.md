@@ -1,3 +1,55 @@
+###  Публикация: 1053587   (525919) от 17.09.2016
+
+Танцы (2016.09.17) DVB (сезон 3, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525919.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18137E0A47D8BD965E03E20BC96C69580983C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930365   (515991) от 22.08.2015
+
+Танцы. Сезон №2. Выпуск №1 (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515991.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 августа на ТНТ стартует новый сезон самого масштабного танцевального шоу страны. Создатели обещают, что он будет еще круче, ярче и мощнее: больше городов, больше претендентов, больше чем просто танцы! Заявки на участие в предварительных кастингах прислали более 10 000 человек! Отсев в этот раз был гораздо жестче, однако на телевизионных кастингах будет представлено (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602C77E2A3F8E1E7E4DCA8B4BB7D1D3B02399E51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930686   (514996) от 23.08.2015
 
 Танцы. Сезон №2. Выпуск №1 (2015.08.22) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514996.jpg" />
+  <img src="Z:/picture/008/save_picture_514996.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508924.jpg" />
+  <img src="Z:/picture/008/save_picture_508924.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507956.jpg" />
+  <img src="Z:/picture/008/save_picture_507956.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503085.jpg" />
+  <img src="Z:/picture/008/save_picture_503085.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503040.jpg" />
+  <img src="Z:/picture/008/save_picture_503040.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502055.jpg" />
+  <img src="Z:/picture/008/save_picture_502055.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501985.jpg" />
+  <img src="Z:/picture/008/save_picture_501985.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501084.jpg" />
+  <img src="Z:/picture/008/save_picture_501084.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500970.jpg" />
+  <img src="Z:/picture/008/save_picture_500970.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496371.jpg" />
+  <img src="Z:/picture/008/save_picture_496371.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495606.jpg" />
+  <img src="Z:/picture/008/save_picture_495606.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494207.jpg" />
+  <img src="Z:/picture/008/save_picture_494207.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493724.jpg" />
+  <img src="Z:/picture/008/save_picture_493724.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493687.jpg" />
+  <img src="Z:/picture/008/save_picture_493687.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493684.jpg" />
+  <img src="Z:/picture/008/save_picture_493684.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493670.jpg" />
+  <img src="Z:/picture/008/save_picture_493670.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491901.jpg" />
+  <img src="Z:/picture/008/save_picture_491901.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490290.jpg" />
+  <img src="Z:/picture/008/save_picture_490290.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485508.jpg" />
+  <img src="Z:/picture/008/save_picture_485508.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483818.jpg" />
+  <img src="Z:/picture/008/save_picture_483818.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483780.jpg" />
+  <img src="Z:/picture/008/save_picture_483780.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483777.jpg" />
+  <img src="Z:/picture/008/save_picture_483777.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483612.jpg" />
+  <img src="Z:/picture/008/save_picture_483612.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481777.jpg" />
+  <img src="Z:/picture/008/save_picture_481777.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F4BF04C67464AC796289B2AC0527F6E324112B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056337   (481761) от 25.09.2016
-
-Танцы (2016.09.24) DVB (сезон 3, выпуск 6)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481761.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60800C3FE2D3CE4ECAE89CB11A8380B9D81B5505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056285   (481759) от 25.09.2016
-
-Голос (2016.09.24) HDTV [H.264/1080i] (сезон 5, специальный выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наставники продолжают набирать свои команды, преуспели в этом нелегком деле Дима Билан и Леонид Агутин, отобравшие себе по семь вокалистов. У Григория Лепса и Полины Гагариной пока по пять конкурсантов. Кому удастся занять вакантные места в четвертом выпуске Слепых прослушиваний?Телекомпания: Первый канал HDЖанр: ТВ-шоу, музыкальный, развлекательныйПродолжительность: 02:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E2F7C158699C1AE563EC193118B1727DE7B75C
 ```
 
 https://mybot314.ru/tekegram_catalog/

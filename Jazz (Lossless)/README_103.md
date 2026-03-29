@@ -1,3 +1,119 @@
+###  Публикация: 1220248   (706197) от 18.04.2018
+
+Mose Allison - V-8 Ford Blues (1959 - 1961) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V-8 Ford Blues [02:17]
+02. Please Don't Talk About Me When I'm Gone [01:32]
+03. Baby, Please Don't Go [02:38]
+04. Hey, Good Lookin' [01:46](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A26BD3CC7D942841806A2008E36E1138D415120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220254   (706196) от 18.04.2018
+
+Prato Bell Luckin Trio - Through The Tunnel (2017) Self-Released [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through the Tunnel [04:47]
+02. Freedom of Mind [05:52]
+03. Black Orpheus [06:37]
+04. Tortoise [06:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EFEFAA57DDADAD74C7BFE08080A97D2B0E43B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220252   (706195) от 18.04.2018
+
+Bo Sundstrom - Mitt Dumma Jag: Svensk Jazz (2018) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forsvann du [04:01]
+02. Kommer du till mig inatt [02:37]
+03. Sommaren vi alskade varann [04:08]
+04. Allt ar som forut [04:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41366B9ADDBD8C0DC1286095322B26B7D9C5B198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026297   (706157) от 14.06.2016
+
+Johnny “Hammond” Smith - That Good Feelin' (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Good Feelin' [05:39]
+ 02.Bye, Bye Blackbird [04:33]
+ 03.Autumn Leaves [04:28]
+ 04.I'll Remember April [04:41](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB98414E336E491966D4C94CEEB90E263C1CB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026173   (706154) от 14.06.2016
 
 Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, Vocal Jazz>
@@ -6,7 +122,7 @@ Wanda De Sah - Softly! (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706154.jpg" />
+  <img src="Z:/picture/008/save_picture_706154.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Super Premium Band - Sounds of New York (2011) Happinet Corporation[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706153.jpg" />
+  <img src="Z:/picture/008/save_picture_706153.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Herbie Hancock Trio with Ron Carter + Tony Williams - Trio '81 (1981) Remaster, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706152.jpg" />
+  <img src="Z:/picture/008/save_picture_706152.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ella Fitzgerald - The Singles (1954 - 1962) 2017, 3CD, New Continent [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705793.jpg" />
+  <img src="Z:/picture/008/save_picture_705793.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Daphna Levy - Late Night Journey (2014) Self Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705696.jpg" />
+  <img src="Z:/picture/008/save_picture_705696.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Norah Jones - Morning Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705609.jpg" />
+  <img src="Z:/picture/008/save_picture_705609.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Anan Ryoko - Another Beginning (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705533.jpg" />
+  <img src="Z:/picture/008/save_picture_705533.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tamba Trio - Black + Blue (1974) 2001, BMG [APE|Lossless|image + .cue] <Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705532.jpg" />
+  <img src="Z:/picture/008/save_picture_705532.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705528.jpg" />
+  <img src="Z:/picture/008/save_picture_705528.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Drag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
+  <img src="Z:/picture/008/save_picture_705527.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705526.jpg" />
+  <img src="Z:/picture/008/save_picture_705526.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Rolf Billberg - Rare Danish Recordings by a Swedish Jazz Legend (1957 - 1966) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705525.jpg" />
+  <img src="Z:/picture/008/save_picture_705525.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Janne Ersson Big Band - Live At The Stockholm Jazz Festival (2004) Sittel Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705524.jpg" />
+  <img src="Z:/picture/008/save_picture_705524.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Harold Mabern - Wailin' (1970) 2009, Prestige [FLAC|Lossless|image + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705354.jpg" />
+  <img src="Z:/picture/008/save_picture_705354.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dave McKenna - An Intimate Evening With Dave McKenna (1999) 2002, Arbors Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705351.jpg" />
+  <img src="Z:/picture/008/save_picture_705351.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Anna Kolchina - Dark Eyes (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705077.jpg" />
+  <img src="Z:/picture/008/save_picture_705077.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Louis Armstrong - Best One (2002) Universal [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705074.jpg" />
+  <img src="Z:/picture/008/save_picture_705074.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dusko Goykovich - Swinging Macedonia (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704508.jpg" />
+  <img src="Z:/picture/008/save_picture_704508.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Miles Davis - The Real... Miles Davis (2011) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704494.jpg" />
+  <img src="Z:/picture/008/save_picture_704494.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Manhattan Transfer - The Junction (2018) [FLAC|Lossless|image + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704492.jpg" />
+  <img src="Z:/picture/008/save_picture_704492.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Gary Peacock - Voices (1971) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704167.jpg" />
+  <img src="Z:/picture/008/save_picture_704167.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704166.jpg" />
+  <img src="Z:/picture/008/save_picture_704166.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9763B6BF7889A9954F1A4F888468FDD2A589C9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026402   (704165) от 15.06.2016
-
-Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Me [06:08]
- 02. Coffee Time [06:10]
- 03. Etnia [05:29]
- 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026418   (704163) от 15.06.2016
-
-Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Secret Love [10:51]
- 02.Airegin [05:35]
- 03.Confirmation [07:35]
- 04.Four [08:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3002A2B64EC4035F1384419336E3429D49914C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026424   (704162) от 15.06.2016
-
-Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Perdido / Wahoo [13:45]
- 02.Old Folks [04:33]
- 03.Out Of Nowhere [12:12]
- 04.Loverman [04:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402119   (703947) от 13.08.2020
-
-Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703947.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jordu [7:10]
-02. Groovin' High [5:48]
-03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7761F3660296ABCA29C8A9F60BAFC7CDC6823F09
 ```
 
 https://mybot314.ru/tekegram_catalog/

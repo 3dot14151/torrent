@@ -1,3 +1,86 @@
+###  Публикация: 1464889   (1019213) от 25.04.2021
+
+Александр Барышев | Биофакер (2020 (с редакцией 2021)) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019213.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОБНОВЛЕНИЕ 2021: Книга больше на 25-30%: больше конкретики, графиков и уточнений! Так как западный мир декриминализует некоторые запрещенные вещества - разобрал их подробнее. Добавлены комбинации из ноотропов + еще больше про управление гормонами!
+Больше 450 научных источников и 1,5 года работы над книгой (с обновлением от 2021 года уже 544 источника)
+
+Фундамент (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7454DC3A825317E16F1C059C66DF861B11CA4EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465801   (1018905) от 27.04.2021
+
+Ганс Айзенк, Курт Бартол | Эксперимент. Самые жестокие исследования в психологии [сборник] (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Г. Айзенк – британский ученый-психолог, один из лидеров биологического направления в психологии, создатель факторной теории личности, автор популярного теста интеллекта.
+К. Бартол – профессор психологии, бихевиорист, профайлер, автор самого популярного в мире учебника по криминальной психологии.
+Как люди на полном серьезе стали поддерживать идею геноцида евреев в (   Читать дальше...   )Жанр: О психологии популярноПеревод: А. Боричев, А. Можаев, В. Гуринович, Л. ОрдановскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226348A928C36E9C9A44C42CC83BCE0A1A48E736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465762   (1018876) от 27.04.2021
+
+Дэвид Граймс | Неразумная обезьяна. Почему мы верим в дезинформацию, теории заговора и пропаганду (2021) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Роберт Граймс – ирландский физик, получивший образование в Дублине и Оксфорде. Его профессиональная деятельность в основном связана с медицинской физикой, в частности – с исследованиями рака. Однако известность Граймсу принесла его борьба с лженаукой: в своих полемических статьях на страницах The Irish Times, The Guardian и других изданий он разоблачает шарлатанов, (   Читать дальше...   )Жанр: О психологии популярно, Социальная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F707F83866E4C459B4BD41BC571C9F6C8D07BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466584   (1018366) от 30.04.2021
 
 Дуглас Мосс | Общайся лучше, чем Карнеги. Как побеждать в играх, в которые мы все играем (2021) [PDF]
@@ -6,7 +89,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018366.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018235.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018220.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018208.jpg" />
 </div>
 
 
@@ -115,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018200.jpg" />
 </div>
 
 
@@ -141,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018134.jpg" />
 </div>
 
 
@@ -168,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018071.jpg" />
 </div>
 
 
@@ -194,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018008.jpg" />
 </div>
 
 
@@ -220,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017927.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017877.jpg" />
 </div>
 
 
@@ -273,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017852.jpg" />
 </div>
 
 
@@ -301,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016868.jpg" />
 </div>
 
 
@@ -327,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016861.jpg" />
 </div>
 
 
@@ -353,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016087.jpg" />
 </div>
 
 
@@ -379,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014607.jpg" />
 </div>
 
 
@@ -405,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014492.jpg" />
 </div>
 
 
@@ -432,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014290.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014187.jpg" />
 </div>
 
 
@@ -486,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013814.jpg" />
 </div>
 
 
@@ -512,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012509.jpg" />
 </div>
 
 
@@ -538,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011962.jpg" />
 </div>
 
 
@@ -564,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011481.jpg" />
 </div>
 
 
@@ -592,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011082.jpg" />
 </div>
 
 
@@ -603,89 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C224FD2D608D822E527ED1362E073E2938C379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477841   (1010797) от 16.06.2021
-
-Рассел Кольц | Терапия, сфокусированная на сострадании (CFT). Практическое руководство для клинических психологов (2021) [DJVU]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступное руководство по изучению и применению CFT в клинической практике!
-Пошаговая инструкция помощи клиентам.
-Развитие самосострадания.
-Обучение навыкам осознанности.(   Читать дальше...   )Жанр: ПсихологияПеревод: Е. Н. НиколаеваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E8BA5B404B70CA7D8EBE03CB6FA0D257235163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477714   (1010783) от 16.06.2021
-
-Ольга Савельева | ПроЖИВАЯ. Как оставаться счастливым, проживая самые сложные моменты жизни (2021) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010783.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мотивационных историях часто фигурируют эдакие «железные люди»: которые про «встань и иди», которых раз за разом щелкали по носу, унижали, которых сталкивали нос к носу с душевной болью, а они… вставали и шли дальше. Однако в большинстве случаев такие истории либо раздражают, либо погружают в уныние: почему они смогли, а ты – нет?..
-
-Новая книга писателя и автора (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6726C7A19DD79B47EBBB69CF40906DEC3C98B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477757   (1010772) от 16.06.2021
-
-Татьяна Кузнецова | Говори так! Как выступать уверенно, не тупить и быть счастливым (2021) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш язык, слова, которые мы произносим, – отражение нашей культуры, образа мыслей. Мы – это то, что мы говорим. Неумение говорить мешает нам жить и быть счастливыми. Мы проигрываем в спорах, не можем заявить о себе, теряемся перед вопросами, упускаем возможности изменить свою судьбу. Речь – наша визитная карточка, а мы часто скромно прячем ее в кармане, стесняясь (   Читать дальше...   )Жанр: Ораторское искусство / риторика, Саморазвитие / личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1272F7C5467D3AD4B179173BFCC6D0A976E52F
 ```
 
 https://mybot314.ru/tekegram_catalog/

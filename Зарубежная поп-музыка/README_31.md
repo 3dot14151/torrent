@@ -1,3 +1,32 @@
+###  Публикация: 1291538   (668681) от 25.03.2019
+
+VA - 100 Greatest Love Songs (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668681.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Foreigner - I Want To Know What Love Is 4:58
+002. Birdy - Skinny Love 3:21
+003. Dua Lipa - Be The One 3:23
+004. Clean Bandit feat. Jess Glynne - Real Love 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A9CCB5697B1B1E250DC60FDCDA347D70A84AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291572   (668671) от 25.03.2019
 
 VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +35,7 @@ VA - 100 Greatest Motivation Songs (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668671.jpg" />
+  <img src="Z:/picture/008/save_picture_668671.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Voll Bock auf Ballermann (2018) 2CD [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668188.jpg" />
+  <img src="Z:/picture/008/save_picture_668188.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Mastermix Pro Disc 259 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667891.jpg" />
+  <img src="Z:/picture/008/save_picture_667891.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Mastermix Pro Disc 260 (2022) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667844.jpg" />
+  <img src="Z:/picture/008/save_picture_667844.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Alex Maxwell - Signs + Lie To Me (2016-2017) 2EP [MP3|320 Kbps] <Alternative Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665561.jpg" />
+  <img src="Z:/picture/008/save_picture_665561.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Beautiful Mornings - Mesmerizing Soulful Pop Vocals (2018) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664863.jpg" />
+  <img src="Z:/picture/008/save_picture_664863.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Laura Branigan - The Platinum Collection (2006) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664812.jpg" />
+  <img src="Z:/picture/008/save_picture_664812.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Dogs Of War - Dogs Of War (1977) LP [MP3|320 Kbps] <Electronic, Space-Rock, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664383.jpg" />
+  <img src="Z:/picture/008/save_picture_664383.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Cheryl Ladd - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Vo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664323.jpg" />
+  <img src="Z:/picture/008/save_picture_664323.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Hans Edler - Space Vision (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664322.jpg" />
+  <img src="Z:/picture/008/save_picture_664322.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ I Signori Della Galassia - Iceman (1979) Reissue LP, Medical Records LLC, 2013 [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663167.jpg" />
+  <img src="Z:/picture/008/save_picture_663167.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Chromium - Star to Star (1979) LP [MP3|320 Kbps] <Electronic, Disco, Ballad, Spa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663163.jpg" />
+  <img src="Z:/picture/008/save_picture_663163.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - Superfresh Top Dance (2017) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662314.jpg" />
+  <img src="Z:/picture/008/save_picture_662314.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ VA - Mastermix Pro Remix 1 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Du
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662297.jpg" />
+  <img src="Z:/picture/008/save_picture_662297.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ VA - Mastermix Pro Remix 2 (2022) [MP3|320 Kbps] <Soulful House, Indie Dance, Du
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662294.jpg" />
+  <img src="Z:/picture/008/save_picture_662294.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Charli XCX - Crash (2022) Deluxe Edition [MP3|320 Kbps] <Hyperpop, Dance-pop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662196.jpg" />
+  <img src="Z:/picture/008/save_picture_662196.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Marian Hill - Unusual (2018) [MP3|320 Kbps] <Alternative Pop, Electronic, Minima
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660765.jpg" />
+  <img src="Z:/picture/008/save_picture_660765.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ HOLYCHILD - The Shape of Brat Pop To Come (2015) [OGG|522-579 кб/с]<Alternati
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660224.jpg" />
+  <img src="Z:/picture/008/save_picture_660224.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ French Horn Rebellion - Next Jack Swing pt.I (2014) [MP3|320 кб/с]<Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660219.jpg" />
+  <img src="Z:/picture/008/save_picture_660219.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ VA - Body Shaper Vol. 2 (2017) [MP3|320 Kbps] <Pop, Trance, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660198.jpg" />
+  <img src="Z:/picture/008/save_picture_660198.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Intonation - Passing The Planets (1982) Reissue LP , Electrecord, 1987 [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659302.jpg" />
+  <img src="Z:/picture/008/save_picture_659302.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Cigarettes After Sex - Cigarettes After Sex (2017) [MP3|320 Kbps] <Indie Pop, Dr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658776.jpg" />
+  <img src="Z:/picture/008/save_picture_658776.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Francis Rimbert - Bionic Orchestra (1979) LP [MP3|320 Kbps] <Electronic, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658140.jpg" />
+  <img src="Z:/picture/008/save_picture_658140.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ VA - Ultimate 90s Playlist (2018) 5CD [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657821.jpg" />
+  <img src="Z:/picture/008/save_picture_657821.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656118.jpg" />
+  <img src="Z:/picture/008/save_picture_656118.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ VA - The 80s (2022) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4111D10955AE143BD6B33B4DFE9DAC3F720A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140541   (655893) от 06.06.2017
-
-P.R. Computer - P.R. Computer (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Modern Classical, Experimental>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well Tempered Computer (3:29)
-02. Arctic Light (3:23)
-03. The Pendulum (3:02)
-04. Chase (3:23)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Modern Classical, ExperimentalПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DE319809FB209B951CBB51FBBAA7696EB10C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

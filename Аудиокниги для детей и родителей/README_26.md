@@ -1,3 +1,81 @@
+###  Публикация: 1218777   (717412) от 12.04.2018
+
+Алан Сноу | Семейка монстров (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательные приключения Артура и его друзей, среди которых есть удивительные существа – бокс-тролли, покорили сердца детей сначала в Англии, а потом и во всем мире.Жанр: Детская литератураПродолжительность: 08:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100695B71D3D23D63F323E3A0C973EC327FAF766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400761   (717218) от 06.08.2020
+
+Катя Матюшкина, Настя Мишина | Кто украл крокодила? (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Кто украл крокодила?» – первая книга из серии «Путешественники во времени». Это детективная история, действие которой происходит в самых мистических местах Петербурга. Здесь пропадают и находятся загадочные артефакты, происходят перемещения во времени, а во всех событиях самыми главными оказываются верные и храбрые коты во главе с лучшим детективом современности (   Читать дальше...   )Жанр: Детская литература/ДетективПродолжительность: 02:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1967E583BE9170B3406BF9BD9FA96E17390F31F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400753   (717104) от 06.08.2020
+
+Наталья Немцова | Первая энциклопедия в сказках для маленьких почемучек (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для ребёнка мир полон загадок и тайн. Он стремится всё узнать, исследовать, увидеть, попробовать… Чтобы сохранить это стремление к познанию, важно отвечать на все детские вопросы, даже если их бесконечно много. В помощь взрослым создана эта энциклопедия в сказках. Вы найдёте в ней целых 60 сказок о животных и растениях, о природных явлениях, об этикете и полезных (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература/Сказка/ЭнциклопедияПродолжительность: 03:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547ADD0971905CFA44A5FF28B7FFDC50A5B14865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400931   (715293) от 07.08.2020
 
 Пауль Маар | Новые веснушки для Субастика. Книга 3. (2016) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715293.jpg" />
+  <img src="Z:/picture/008/save_picture_715293.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715285.jpg" />
+  <img src="Z:/picture/008/save_picture_715285.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715279.jpg" />
+  <img src="Z:/picture/008/save_picture_715279.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715199.jpg" />
+  <img src="Z:/picture/008/save_picture_715199.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714836.jpg" />
+  <img src="Z:/picture/008/save_picture_714836.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713505.jpg" />
+  <img src="Z:/picture/008/save_picture_713505.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713242.jpg" />
+  <img src="Z:/picture/008/save_picture_713242.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712861.jpg" />
+  <img src="Z:/picture/008/save_picture_712861.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712719.jpg" />
+  <img src="Z:/picture/008/save_picture_712719.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711342.jpg" />
+  <img src="Z:/picture/008/save_picture_711342.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710899.jpg" />
+  <img src="Z:/picture/008/save_picture_710899.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709955.jpg" />
+  <img src="Z:/picture/008/save_picture_709955.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706029.jpg" />
+  <img src="Z:/picture/008/save_picture_706029.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705798.jpg" />
+  <img src="Z:/picture/008/save_picture_705798.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705797.jpg" />
+  <img src="Z:/picture/008/save_picture_705797.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705796.jpg" />
+  <img src="Z:/picture/008/save_picture_705796.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705700.jpg" />
+  <img src="Z:/picture/008/save_picture_705700.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705684.jpg" />
+  <img src="Z:/picture/008/save_picture_705684.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705315.jpg" />
+  <img src="Z:/picture/008/save_picture_705315.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705302.jpg" />
+  <img src="Z:/picture/008/save_picture_705302.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705297.jpg" />
+  <img src="Z:/picture/008/save_picture_705297.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704927.jpg" />
+  <img src="Z:/picture/008/save_picture_704927.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704061.jpg" />
+  <img src="Z:/picture/008/save_picture_704061.jpg" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D781B258989C446622E005D55CC28B5F5805350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402257   (704053) от 13.08.2020
-
-Игорь Козлов | В одно жаркое лето (1986) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беззаботная летняя смена в пионерском лагере закончилась для Тани к обеду. В лице папиного друга пришло известие о ранении папы на границк во время службы. После смерти мамы отец и так служил как потерянный, вот и пропустил вражью пулю, - подумала десятилетняя Таня. Нельзя было на лето оставлять его одного.
-Действовать требовалось немедленно. Она решительно отодвинула (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльВ ролях: Татьяна Аксюта, Валерий Хлевинский, Геннадий Фролов и др.Продолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACECF42D0A0F0E357AB8CF1AE61C6C488AD6D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220440   (703980) от 19.04.2018
-
-Людмила Петрановская | Близкие люди Тайная опора. Привязанность в жизни ребенка (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703980.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Все мы родом из детства», – писал один известный французский писатель и летчик. Однако прежде чем достичь самостоятельности, мы едва ли можем обойтись без взрослых. В своей новой аудиокниге Людмила Петрановская, основываясь на научной теории привязанности, легко и доступно рассказывает о роли родителей на пути к взрослению: «Как зависимость и беспомощность превращаются (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 06:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB24D61025AE709943DBA02FB46A8261909B36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402162   (703929) от 13.08.2020
-
-Наталья Щерба | Лунастры. Прыжок над звездами. Книга 1. (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прыжок над звездами» – первая книга нового захватывающего цикла фэнтези о мире, похожем и непохожем на наш.
-
-Что может быть лучше, чем мчаться по ночным улицам, – бежать, совершая гигантские, почти летящие прыжки? Наверное, только лежать на крыше, любуясь мириадами сверкающих звезд… Так думал Тим до тех пор, пока однажды в его городке не появилась странная девчонка (   Читать дальше...   )Жанр: Книги для подростков/ФэнтезиПеревод: ВИМБОПродолжительность: 13:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065922510D448B0297A96EA521B4B411B8069F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

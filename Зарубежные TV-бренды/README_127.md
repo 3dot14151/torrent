@@ -1,3 +1,107 @@
+###  Публикация: 1235595   (29876) от 25.01.2025
+
+BBC. Большой Барьерный риф с Дэвидом Аттенборо / Great Barrier Reef with David Attenborough (2016) BDRip [H.264/1080p] (Сезон 1, серия 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите отправиться в захватывающее дух по красоте путешествие не отрываясь от мягкого, удобного дивана? Скорее берите с собой в путь что-нибудь повкуснее и вперед к новым вершинам подводного мира! Сэр Дэвид Аттенборо будет рад взять с собой в компанию пару-тройку лежебок, ведь балласт на судне всегда может пригодиться, а акулы никогда не были особо привередливы! (   Читать дальше...   )Производство: Великобритания, BBC Productions SalfordЖанр: Документальный, природа, флора, фаунаРежиссер: Майкл ДэвисУчастники: Сэр Дэвид АттенбороПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: Русские, английскиеПродолжительность: 3 x ~ 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678395   (29838) от 25.01.2025
+
+Discovery: Пропавшие женщины шоссе 20 / Lost Women of Highway 20 (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) [VO]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на реальных событиях проект лауреатки премии «Оскар» Октавии Спенсер расскажет про пустынный участок шоссе в Орегоне, где в период с конца 70-х и до начала 90-х годов несколько женщин пропали без вести, были изнасилованы или вовсе убиты.Производство: США, October Films, Warner Bros. DiscoveryЖанр: документальный, криминал, расследованиеРежиссер: Арианна ЛаПеннеУчастники: Октавия СпенсерПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD29340864375AB484A0D443EB196738CF3689B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505465   (29763) от 26.01.2025
+
+BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] (серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди упорно борются с дикой природой, создавая для себя искусственную среду обитания. Но природа не сдает свои позиции без боя...Производство: США / ВВС, Discovery Channel, France Television Co-ProductionЖанр: документальныйРежиссер: Марк Флауэрс, Николас Браун, Том Хью-Джонс, Тупенс СтоунПеревод: Профессиональный двухголосый, Авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 8 x 00:59:00 (07:52:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF143BCF02AB6BE66CB5C5295C547156BC124752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652553   (29664) от 27.01.2025
+
+BBC. Космическая одиссея. Путешествие по галактике / Space Odyssey. Voyage to the Planets (2005) DVD9
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29664.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Космическая Одиссея" предлагает нам заглянуть в мир будущего. А, точнее, узнать, что увидят космонавты, впервые добравшись и высадившись на планеты нашей Солнечной системы. Наше "путешествие" условно займет промежуток в 6 лет, начиная со старта с планеты Земля и заканчивая возможной трагической встречей с одной из комет. За это время космонавты (   Читать дальше...   )Жанр: документальныйПеревод: ДублированныйСубтитры: вшитые отключаемые (русский)Продолжительность: 02:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688F5EDDCA2ED760425A85F25D730947D3F4DBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469538   (29663) от 27.01.2025
 
 Мрачное обаяние Адольфа Гитлера / The Dark Charisma of Adolf Hitler (2012) WEB-DL [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +110,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29663.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29642.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29639.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29566.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29537.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29528.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29334.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Теории заговора: Тайное правительство и �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29303.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28997.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28993.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ BBC. Охота / The Hunt (2015) BDRemux [H.264/1080p] (сезон 1, сери�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28957.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28931.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28920.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ BBC: Чем мы кормим наших детей? / What Are We Feeding Our K
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28829.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ BBC. Чудеса природы: жизнь на краю Земли / Earth's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28821.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ BBC: Плотоядные. Касатка  / Wildlife Specials. Killer Whale (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28638.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ BBС. Внутренняя вселенная: Тайная жизнь клет�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28637.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ BBC. Операция Стоунхендж: Тайна, скрытая под к
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28621.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28597.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ BBC. Суперчувство / Суперчувства животных / Supe
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28583.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28576.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28549.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5818EC3B0E4FD9C4F973619FDAC8D9CE2B9BB5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619230   (28500) от 06.02.2025
-
-BBC: Саймон Шама - История Британии / BBC: Simon Schama A History Of Britain (2000-2002) DVDRip [H.264] (серии 1-15 из 15)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории в целом и, в частности, британской истории, с присущими ей захватывающими поворотами, необходимо уделить особое внимание, чтобы понять развитие всего мира. Подумайте об Истории Британии как о путешествии в самопознание, возможности увидеть себя в зеркале времен. Только зная, кем мы были, можно понять свое место в истории и даже понять свою нацию.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: документальный, историяРежиссер: Джэми Мьюир, Лиз Хартфорд, Клер Беван, Мартина Холл, Йен БремнерУчастники: Майкл Кичен, Сэмюэл Уэст, Линдси Дункан, Дэвид ТрелфоллПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: серии ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1A07CAC8EB3DAC7A8777445318508B4E08DC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642102   (28475) от 06.02.2025
-
-Игры животных / Animals at Play (2019) WEB-DL [H.264/1080p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всём мире природы молодые животные проводят большую часть своего времени в игре. От кошек, обожающих погоню, до шимпанзе, умеющих решать головоломки. Новые исследования показывают, что игра лежит в основе почти всего, чему учатся животные. Игра - это гораздо больше, чем просто веселье. Она имеет фундаментальное значение для развития животного, а в некоторых случаях (   Читать дальше...   )Производство: Германия, Великобритания, США, ZDF, BBC, Smithsonian NetworksЖанр: документальныйРежиссер: Дэн Пероун, Лора УитлиУчастники: Гордон Бьюкенен, Гордон Бургхардт, Марлис Ван ВууренПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 2x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C586ECEDC752515868A3F0B116CBE147DA5C6FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777768   (28320) от 08.02.2025
-
-Электронные деньги: Тайна биткоина / Money Electric: The Bitcoin Mystery (2024) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каллен Хобак исследует происхождение биткоина и его анонимного создателя Сатоши Накамото, рассматривая потенциал этой криптовалюты в мировой финансовой системе и то, кто может обладать огромной властью, если она станет мейнстримом.Производство: США / HBO Documentary, Hello Pictures, Hyrax FilmsЖанр: документальныйРежиссер: Каллен ХобакУчастники: Каллен Хобак, Samson Mow, Ricardo Salinas Pliego, Adam Back, Rachel-Rose O'Leary, Amir Taaki, Роджер Вер, Нуриэль Рубини, Peter Todd, Nick SzaboПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (SDH), испанские (SDH)Продолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44283EFF8F9E32DFA43DF3155A4AD9F798AEA16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 10804   (27587) от 15.02.2025
-
-BBC: Космическая одиссея. Путешествие по галактике / BBC: Space Odyssey. Voyage to the Planets (2004) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27587.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Космическая Одиссея" предлагает нам заглянуть в мир будущего. А, точнее, узнать, что увидят космонавты, впервые добравшись и высадившись на планеты нашей Солнечной системы. Наше "путешествие" условно займет промежуток в 6 лет, начиная со старта с планеты Земля и заканчивая возможной трагической встречей с одной из комет. За это время космонавты (   Читать дальше...   )Перевод: ПрофессиональныйПродолжительность: 5 x ~ 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DDB693A2765C46092E2008E8594975B48A9AA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1372995   (881991) от 05.04.2020
+
+Скотный двор (1897) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Животные.
+Для младшего и среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1490585F65FD075690AC5B20AE5A3E12A27073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373193   (881434) от 05.04.2020
+
+Елизавета Хейнонен | Английский и Немецкий. Самоучители [8 книг] (2019-2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые книги – это не просто сборники разрозненных упражнений. Они писались с совершенно иной целью, а именно компенсировать, насколько это вообще возможно, отсутствие у учащихся практики общения на английском и немецком языках. Это сборники упражнений, по которым можно научиться говорить на иностранном языке.
+Следует сразу же оговориться, что настоящие учебники (   Читать дальше...   )Жанр: Иностранные языкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1FA02E1D3EE83996FE58E78B1EB7E379DFC3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 899281   (880457) от 12.09.2021
 
 Д.Э. Розенталь | А как лучше сказать? (1979) [FB2, EPUB]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880457.jpg" />
+  <img src="Z:/picture/005/save_picture_880457.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879330.jpg" />
+  <img src="Z:/picture/005/save_picture_879330.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878923.jpg" />
+  <img src="Z:/picture/005/save_picture_878923.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878801.jpg" />
+  <img src="Z:/picture/005/save_picture_878801.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877558.jpg" />
+  <img src="Z:/picture/005/save_picture_877558.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877312.jpg" />
+  <img src="Z:/picture/005/save_picture_877312.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877198.jpg" />
+  <img src="Z:/picture/005/save_picture_877198.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875332.jpg" />
+  <img src="Z:/picture/008/save_picture_875332.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875331.jpg" />
+  <img src="Z:/picture/005/save_picture_875331.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874712.jpg" />
+  <img src="Z:/picture/005/save_picture_874712.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873460.jpg" />
+  <img src="Z:/picture/008/save_picture_873460.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873286.jpg" />
+  <img src="Z:/picture/008/save_picture_873286.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871114.jpg" />
+  <img src="Z:/picture/008/save_picture_871114.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871059.jpg" />
+  <img src="Z:/picture/008/save_picture_871059.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870391.jpg" />
+  <img src="Z:/picture/008/save_picture_870391.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869968.jpg" />
+  <img src="Z:/picture/008/save_picture_869968.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868217.jpg" />
+  <img src="Z:/picture/008/save_picture_868217.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868213.jpg" />
+  <img src="Z:/picture/008/save_picture_868213.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868210.jpg" />
+  <img src="Z:/picture/008/save_picture_868210.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867985.jpg" />
+  <img src="Z:/picture/008/save_picture_867985.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864875.jpg" />
+  <img src="Z:/picture/008/save_picture_864875.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862631.jpg" />
+  <img src="Z:/picture/008/save_picture_862631.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862524.jpg" />
+  <img src="Z:/picture/008/save_picture_862524.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859640.jpg" />
+  <img src="Z:/picture/008/save_picture_859640.jpg" />
 </div>
 
 
@@ -631,60 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCA81C9336C1F4DAF195C5745EA011A9EDCCB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498137   (859545) от 25.09.2021
-
-Ю.А. Первин | Информационная культура: Компьютер и слово: Класс 5 (1995) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие школьники!
-Компьютеры решают самые разнообразные задачи. Самая большая доля этих задач связана с обработкой текстовой информации. В этой книжке идет речь именно о таких задачах. При этом рассказ начинается с азов. Поэтому читать книжку смогут даже младшие школьники. Правда, для этого рядом с читателем должен находиться компьютер PC.
-В таком случае, прочитав (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279A7528DCF356D1743F6C6B5B5E1AE9B903B66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498166   (859435) от 25.09.2021
-
-И.И. Лерер | Иврит для детей в картинках. Интерактивный тренажер с суперзакладкой (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта детская книжка с картинками отлично подойдет для начала занятий ивритом. В ней вы найдете слова и простые предложения по 19 самым необходимым темам. Главная особенность этой книги в том, что она – интерактивная. Специальная закладка, используемая для запоминания и проверки, позволяет детям легко и быстро выучить около 170 слов иврита. Ребенок может писать слова (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E8FC44F5132B41B5FA48DE773B23252BDEF55E
 ```
 
 https://mybot314.ru/tekegram_catalog/

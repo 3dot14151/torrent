@@ -1,25 +1,25 @@
-###  Публикация: 1807407   (65226) от 19.07.2025
+###  Публикация: 1798765   (66598) от 23.05.2025
 
-Above & Beyond - Bigger Than All Of Us (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Electronic>
+Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
 
->>Electronic
->>Trance (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond - Stepping In 04:07
-02. Above & Beyond Feat. Richard Bedford - Start A Fire 03:49
-03. Above & Beyond And Zoë Johnston - Carry Me Home 04:16
-04. Above & Beyond - Everywhere I Go 04:12(   Читать дальше...   )Жанр: Trance, Vocal Trance, ElectronicПродолжительность: 01:07:11
+01 - Let It Ride [3:36]
+02 - Let It Ride (Jamie Jones Remix) [3:27]
+03 - Let It Ride (Kungs Remix) [3:43]
+04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDC3641CED53652E96328B37F32C2028BD6B5FA7
+magnet:?xt=urn:btih:A2C50F90FBD261BED0385469B4EFCACC154FC83F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807488   (65225) от 19.07.2025
+###  Публикация: 1798660   (66597) от 23.05.2025
 
-VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Green Day - Boulevard of Broken Dreams (4:21)
-02.  Linkin Park - In the End (3:37)
-03.  Simple Plan - Welcome to My Life (3:27)
-04.  Halestorm - Get Lucky (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:05
+01 - Cast Away On The Moon (03:57)
+ 02 - I've Been Losing You (04:59)
+ 03 - Chased By Shadows (05:45)
+ 04 - Ferrymen (05:39)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:53:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E7D258DB022A277A5163A9F749458D33B93D473
+magnet:?xt=urn:btih:B189DE729685A83D9BC91C710415B0F29F114142
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807594   (65224) от 19.07.2025
+###  Публикация: 1798643   (66596) от 23.05.2025
 
-Boris Brejcha – Level One (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
+Макс Вебер | Аграрная история Древнего мира (2006) [MP3, Станислав Федосов]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Level One (Intro Edit) (8:05)
-02. Ice Cave (8:19)
-03. Space X (Edit) (3:36)
-04. Dimension (8:01)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:28:14
+Перевод с немецкого под редакцией Д. Петрушевского
+Макс Вебер - немецкий социолог и экономист, крупнейшая фигура в мировой гуманитарно-социальной мысли XX века. Вебер внес особый вклад в философию истории, поставив на рельсы эмпирического исследования вопросы, доступные, как до него казалось, лишь отвлеченно-теоретическому, а то и вовсе умозрительно-спекулятивному (   Читать дальше...   )Жанр: Экономическая историяИздательство: АРДИСПродолжительность: 17:51:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99DF100C34D5E88FAF05C8D5E37848973DA8BBB3
+magnet:?xt=urn:btih:0B5CB6694132D1BA6FCEC756480D83812B8ACA1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,54 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807567   (65223) от 19.07.2025
+###  Публикация: 1798580   (66595) от 23.05.2025
 
-Проекты - VideoHive - Bloodstained Memories Trailer - 57191068 [AEP]
+Козлов Игорь - 3 Albums (1990,1991) [MP3|320 Kbps] <Chanson>
 
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трейлер «Bloodstained Memories» — это мрачный и напряжённый шаблон After Effects, созданный для того, чтобы вызывать глубокие эмоции и тревожные воспоминания. Этот кинематографический трейлер, включающий 3 плейсхолдера для медиафайлов, 6 плейсхолдеров для текста и 1 плейсхолдер для логотипа, идеально подходит для заставок в фильмах ужасов, драматичных вступлений (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3636EB1B1EB13451787AF5EF6E643703C4B49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807088   (65222) от 19.07.2025
-
-Юрий Сучков - Коллекция (1994-2025) [MP3|~245 Kbps (V0)] <Chanson, Post-Punk, Monolog>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66595.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Список альбомов:
-Коллекция: 1994 - 2025. Total Time: 31 CD, 28:63:07:
-16 Albums. Дата выпуска: 1994 - 2020. Total Time: 16 CD, 18:55:52:
-1994 Гитара(   Читать дальше...   )Жанр: Chanson, Post-Punk, MonologПродолжительность: 31CD, 28:63:07
+1990 - Мальчики-налётчики
+1991 - Одесские дворики
+1991 - Привет от не уехавшего эмигрантаЖанр: ChansonПродолжительность: 4 CD, 02:41:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
+magnet:?xt=urn:btih:E1F338E796CA6212986B43F38EF62DDF998B70C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,25 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807553   (65221) от 19.07.2025
+###  Публикация: 1798683   (66594) от 23.05.2025
 
-PhotoDirector v20.3.2 Mod by Balatan [Ru/Multi]
+Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лучший фоторедактор, обладающий всеми инструментами для оптимизации, стилизации и анимации изображений. С легкостью реализуйте свои идеи с помощью PhotoDirector. Воспользуйтесь инструментами для настройки света и оттенков, обрезки, а также масштабной коллекцией фильтров для преображения каждой детали ваших снимков. Настройки инструмента Анимация обеспечат невероятно (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.07.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+01 - An Artist Is An Artist [3:12]
+02 - This Is Not Your Life [3:25]
+03 - Shame [4:07]
+04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B8B60EB77A813681F1B42F0E2411C3A20FAC5E5
+magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,27 +141,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807560   (65220) от 19.07.2025
+###  Публикация: 1798641   (66593) от 23.05.2025
 
-Daily Yoga (Ежедневная йога) v8.72.00 Mod by Balatan [Ru/Multi]
+Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы хотите эффективную и энергичную онлайн-студию йоги?
-Хотите видео с занятиями йогой и медитациями в одном приложении?
-Daily Yoga - это платформа, обеспечивающая ментальное и физическое здоровье с помощью множества асан, различных занятий йогой с наставниками и занятий для похудения. Начните свой день с йоги, улучшите гибкость и равновесие, повысьте эффективность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 18.07.2025Разработчик: DAILY FITNESSПоддерживаемая ОС: Android 5.0+Жанр: СпортЯзык интерфейса: Русский / Мульти
+Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6CFE977588FC6DE04824D6F2F9C309434143203
+magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,25 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807549   (65219) от 19.07.2025
+###  Публикация: 1798703   (66592) от 23.05.2025
 
-Андрей Ткачев | Иная магия (Книга 8). Темный призыватель. Том 7. (2025) [MP3, Вадим Пугачев]
+Энциклопедия Стамбула / Istanbul Ansiklopedisi (2025) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На многие вопросы я пока не смог получить ответов, но это не остановит меня. Я сделаю так, чтобы мой род начал процветать и обеспечу ему достойно будущее. Пускай на моем пути возникнут препятствия, но я их преодолею. Я – Егор Шувалов, и я – темный призыватель.Жанр: фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 09:37:26
+Доктор Несрин пытается разгадать загадку и доработать «Стамбульскую энциклопедию», написанную Решадом Экремом Кочу. Однажды в её дом приезжает Зехра — молодая девушка, которая приходится ей родственницей по материнской линии. Несрин помогает ей поступить в университет и знакомит с ритмом жизни большого города. Но далеко не все правила нового дома нравятся Зехре. (   Читать дальше...   )Производство: Турция / Tims & B ProductionsЖанр: драмаРежиссер: Selman NacarАктеры: Джанан Эргюдер, Хелин Кандемир, Каан Мирач Сезен, Незакет Эрден, Толга Текин, Эджем Сена Байыр, Ebrar Karabakan, Kerem Atasavun, Эрдем Шеноджак, Virgile Mangiavillano и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC8751EB1A1C71AF141B8529FEDBF2A226D67593
+magnet:?xt=urn:btih:3E24A512F57765791E7FDC9D4EAE47396495E889
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +193,437 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807508   (65218) от 19.07.2025
+###  Публикация: 1798773   (66591) от 23.05.2025
 
-Eagles - Hotel California (1976) Reissue, 2017, Asylum 2CD [FLAC|Lossless|tracks + .cue] <Blues Rock, Country Rock, Classic Rock>
+Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Ride (HoneyLuv Remix) [3:32]
+02 - Let It Ride (DJ Ruckus & Nez Remix; Edit) [3:13]
+03 - Let It Ride (Notre Dame Remix; Edit) [4:10]
+04 - Let It Ride (Solardo Remix; Radio) [3:12](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798728   (66590) от 23.05.2025
+
+Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66590.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. The Sword Woman (05:23)
+B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798679   (66589) от 23.05.2025
+
+VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Fletcher & Ruslan Aschaulov & Juan Almiñana Obando – Unforgettable Memories (Intro Mix)
+02. Bryce Keuris X Henry Moe X Aylin – Between The Stars
+03. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix)
+04. Ahmed Romel – Cupertino (SoundLift Remix) (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E506F61049E010F7DE3D0903B28BFB0ADD5159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797344   (66588) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с бантами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F401D14EDF57F39185AD11B70E884FDAEE9617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797179   (66587) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Hat Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с головными уборами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798706   (66586) от 24.05.2025
+
+VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenhya - In the Ocean (Summer Dub Mix) (02:18)
+02. Calmabohain - Take Me Away (03:26)
+03. Lemongrass - Easy Rider (05:14)
+04. Mia Lemar - Drop by Drop (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:17:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797175   (66585) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на тему летнего отпуска.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851CCD2FF664E44691A03B61BB430CB1D84AE294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797112   (66584) от 24.05.2025
+
+Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797708   (66583) от 24.05.2025
+
+Текстуры - MiksKS - Experimental Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные разнообразные текстуры.
+Разработчик: MiksKS
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797962   (66582) от 24.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798709   (66581) от 24.05.2025
+
+VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleks Neptune - The Wolfs (06:53)
+02. Cryalta Generation - Airflow (07:39)
+03. Aleksey Litunov - The Time Has Gone (05:40)
+04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797712   (66580) от 24.05.2025
+
+Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798951   (66579) от 24.05.2025
+
+Год девятнадцатый (1938) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66579.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе Иосифа Прута.
+Начало 1919 года. Над Астраханью нависла серьезная угроза: с воздуха наносит удары авиация англичан, флотилия интервентов приближается морем, Колчак и Деникин осаждают город с суши. По указанию нового руководителя обороны города группа коммунистов тайно пробирается в захваченный англичанами Баку, под видом нефтеторговцев закупает (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: боевик, приключения, экранизацияРежиссер: Илья ТраубергАктеры: Георгий Горбунов, Виталий Полицеймако, Андрей Апсолон, Владимир Гардин, Атамоглан Рзаев, Ханс Клеринг, Борис Кудряшов, Михаил Вольский, Александр Жуков, Николай КрючковСубтитры: отсутствуютПродолжительность: 01:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BD56EC01248206A59D3CFBD3F00AF87F5F254B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797115   (66578) от 24.05.2025
+
+Паттерны - Free PSD Templates - Hexagon Patterns [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные орнаменты с шестиугольниками в векторе и растре.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5952B188AFA024327AE34F8076B1653889BD699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798718   (66577) от 24.05.2025
+
+Kmfdm - Hau Ruck 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Industrial Rock, Electro-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Your Hate 2025 [00:05:03]
+02. Hau Ruck 2025 [00:05:21]
+03. You'Re No Good 2025 [00:04:58]
+04. New American Century 2025 [00:04:50](   Читать дальше...   )Жанр: Progressive Rock, Industrial Rock, Electro-IndustrialПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4624937AF9650B732C516F2EF09780890C3D0CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798165   (66576) от 24.05.2025
+
+Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador [FLAC|Lossless|tracks + .cue] <Stoner Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Take It Easy 4:47
-02. Take It To The Limit 5:19
-03. New Kid In Town 4:52
-04. James Dean 3:50(   Читать дальше...   )Жанр: Blues Rock, Country Rock, Classic RockПродолжительность: 01:32:06
+01. Regular John (4:38)
+ 02. Avon (3:25)
+ 03. If Only (3:23)
+ 04. Walkin on the Sidewalks (5:02)(   Читать дальше...   )Жанр: Stoner Rock, Alternative RockПродолжительность: 01:00:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEC50768D520B621B429FD8AEA6EC839C1C5957B
+magnet:?xt=urn:btih:5DD24F9FCCF9D068D9FA412F421B9B22AA528F58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,269 +631,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807591   (65217) от 19.07.2025
+###  Публикация: 1798923   (66575) от 24.05.2025
 
-Пресеты (LUTs) - Etsy - D-Cinelike Winter Lut - Drone Cinematic Lut - 1114847269 [CUBE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот LUT предназначен для профиля D-Cinelike. Для получения хорошего результата необходима правильная экспозиция и правильно подобранный баланс белого. LUT работает с большинством программ, поддерживающих LUT-куб: Adobe Premiere Pro, Final Cut Pro, DaVinci Resolve, Adobe After Effects и т.д.Формат: CUBE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C92105560535450B8351FB50207156A4BC76C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807629   (65216) от 19.07.2025
-
-Шрифты - Behance - Shalom Guevara - GarciaMarquez - Font - 118013041 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-Материал раздаётся с официальной документацией.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F20C5A2B10254EFE96B7A6CF02E600CD8405E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807452   (65215) от 19.07.2025
-
-Мэри Поппинс, до свидания (1983) DVDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство Бенкс озабочено поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители.Производство: СССР / Мосфильм, Гостелерадио СССРЖанр: мюзикл, фэнтези, детский, семейныйРежиссер: Леонид КвинихидзеАктеры: Наталья Андрейченко, Филипп Рукавишников, Анна Плисецкая, Лембит Ульфсак, Альберт Филозов, Лариса Удовиченко, Олег Табаков, Ирина Скобцева, Зиновий Гердт, Марина Нудьга и др.Субтитры: отсутствуютПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E33D7CD5C305A8619144642B3AA4C49C86552B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807483   (65214) от 19.07.2025
-
-TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для отслеживания перемещений посылок и подобных почтовых отправлений. Поддержка сканирования штрихкода. Проверка статусов. Сортировка.Тип издания: Premium / ModExtraРелиз состоялся: 18.07.2025Разработчик: MetalSoftПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807495   (65213) от 19.07.2025
-
-Mary’s recipes: рецепты, меню v6.1.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более 900 полезных и вкусных рецептов, план питания и список покупок в одном приложении. Быстрые и простые рецепты на каждый день. Готовое блюдо на завтрак, обед или ужин всего за 25 минут! Приложение Mary’s Recipes разработано нутрициологом и экспертом по детскому питанию Марией Кардаковой. Все рецепты тщательно подбираются и корректируются, чтобы ваша семья питалась (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.07.2025Разработчик: Mary's RecipesПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D466214840086DBED8B101ABBFCFD24472FF316E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807585   (65212) от 19.07.2025
-
-VA - Compilation Part 174 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jumanov - Was a Hint
-02 - Dova Music - Smooth
-03 - Azimov - Midnight Memories
-04 - Dova Music - Sweet Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4807B2BFAE9ED2FBBBBA9E5506363C96A46657EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807458   (65211) от 19.07.2025
-
-Smart AudioBook Player Pro v11.5.1 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 18.07.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD516CA1D127BC1B1625E0D9E415EF1721E478B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807427   (65210) от 19.07.2025
-
-VA - The Blues Wont Leave Me Alone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chicken House Purple - That I Was Back Then (3:25)
-02.  Paul Trugman - The Blues Won't Leave Me Alone (3:33)
-03.  NIGEL GROVER - Dear Bartender (3:18)
-04.  Kelly Gale - Be My Friend (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A5E2B444B3CB091508FFFD9D798844B8230B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807468   (65209) от 19.07.2025
-
-VA - Chase the Moon (Rock Hits) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wild Wisteria - On the Outside (4:12)
-02.  PG Naylor - Better Left Unsaid (3:14)
-03.  Raymond Walker - Two of a Kind (4:38)
-04.  Robert Ocean Band - Hang On (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CE82C59172272A92A4B3368D8BE1D8D96E848F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807547   (65208) от 19.07.2025
-
-Андрей Ткачев | Иная магия (Книга 6). Темный призыватель. Том 5. (2025) [MP3, Вадим Пугачев]
+Фёдор Достоевский | Вечный муж (2022) [MP3, Иван Литвинов]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За прошлый год мне удалось стать основателем нового рода и заложить основы будущего его благополучия. Но это только начало работы и предстоит сделать еще многое, чтобы гордо заявить о себе. Кто бы знал, что меня настолько все это увлечет, и я буду с такой готовностью привлекать все больше ресурсов? Возможно, у меня не выйдет, но попытаться все же стоит. Я Егор Шувалов (   Читать дальше...   )Жанр: фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 09:24:18
+Серия/Цикл: Русская классика.
+Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
+Повесть Фёдора Достоевского «Вечный муж», которую сам автор отнёс к жанру рассказа. Писатель изображает встречу обманутого (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 06:17:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E562B6874934FE5ED78119D305E60B00D6F60C9E
+magnet:?xt=urn:btih:0BE34FF7AF92DB75BDA08BF65365F310C1CAD0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807361   (65207) от 19.07.2025
+###  Публикация: 1798860   (66574) от 24.05.2025
 
-Игра Миров - Времени река (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
+Неподходящая работа для женщины / An Unsuitable Job for a Woman (1982) BDRip [H.264] [AVO]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Метро [00:05:13]
-02. Времени река [00:04:20]
-03. Лечу [00:06:42]
-04. До последнего боя [00:03:40](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:37:56
+Фильм основан на одноимённом романе П. Д. Джеймса 1972 года... Найдя своего босса мёртвым у него кабинете, Корделия Грей берёт на себя обязанности в его частном детективном агентстве. Когда вскоре помощница крупного бизнесмена поручает ей расследовать самоубийство его сына, она берётся за своё первое дело и оказывается втянутой в паутину тёмных семейных тайн...Производство: Великобритания / Boyd's Company, Carolina Bank, Goldcrest Films International, National Film Finance Corporation (NFFC)Жанр: драма, криминал, детективРежиссер: Кристофер ПетитАктеры: Билли Уайтлоу, Пол Фримен, Пиппа Гард, Доминик Гард, Элизабет Сприггс, Дэвид Хорович, Доун Арчибальд, Бернадетт ШортПеревод: авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:34:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D5D988F03E76541AE9CDDB08A09E6B2416AFA78
+magnet:?xt=urn:btih:D23B0EDD5CA702AB222C899CE88B3A17A5822007
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,158 +685,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807548   (65206) от 19.07.2025
+###  Публикация: 1798937   (66573) от 24.05.2025
 
-Андрей Ткачев | Иная магия (Книга 7). Темный призыватель. Том 6. (2025) [MP3, Вадим Пугачев]
+Своя игра (24.05.2025) WEBRip [H.264/1080p]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С каждым пройденным месяцем мне удается укрепить положение рода и делать его сильнее, но не все происходит так гладко, как хотелось бы. Изменения, происходящие со мной, вызывают лишь новые вопросы, но ответы дать почему-то никто не спешит. Я уже толком не понимаю, а человек ли я. Есть ли граница у моих сил и что будет дальше, если я соберу осколки Знака Власти? Но (   Читать дальше...   )Жанр: фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 09:43:11
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Даниил Нуриманов, Наталья Степурина, Дмитрий КармадоновЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A657E2F8E2B7DB2CE13C2ED345AC569CD7560612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807558   (65205) от 19.07.2025
-
-TuneIn Radio Pro v39.4 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65205.jpg" />
-</div>
-
-
-###  Подробнее
-
-TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении. Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на вас впечатление.Тип издания: Paid / Mod ExtraРелиз состоялся: 18.07.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02E14D6EC99F47D625E0CE845B3D6405CCD301A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807461   (65204) от 19.07.2025
-
-PowerDirector – Video Editor v15.5.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.07.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D292CAB2428F2DFAD5CB16D423ACE8FF4B7AC269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807475   (65203) от 19.07.2025
-
-VA - Feliz dia do Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Queen - Killer Queen (Remastered 2011) (3:04)
-02.  Creedence Clearwater Revival - Run Through The Jungle (3:05)
-03.  Black Sabbath - End Of The Beginning (8:06)
-04.  The Police - Walking On The Moon (Remastered 2003) (5:01)(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9192BDC11ADA404D8082124A9866CBC2F68F15B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807429   (65202) от 19.07.2025
-
-Шаблоны - Creative Market - Galaxy S24 Mockup - 159305452 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот макет сэкономит ваше время и придаст вашей презентации великолепный вид. Его легко заменить своими дизайнами с помощью смарт-объектов: дважды щелкните смарт-слой, скопируйте и вставьте изображение, сохраните — и готово!Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9042DFBA130B6139014BCB2BB5532E66DA1E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807501   (65201) от 19.07.2025
-
-Jigsawscapes® - Пазлы v4.1.5 Mod by vadj [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пазлы — игра-головоломка для взрослых в хорошем качестве. Любимая миллионами, увлекательная игра в магазине Google Play. Вы можете скачать бесплатную игру в пазлы для телефона или планшета Android. Она поможет вам держать мозг в тонусе и отвлечься от повседневных забот. Пазлы развивают ваше логические мышление и укрепляют память. Игра в пазлы - это хороший способ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 18.07.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: Головоломка, ПазлыЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AACD68730BFF679AF776D88A1DB335B21DDCE3E
+magnet:?xt=urn:btih:CF73A11C18E43E0DE92724B9E7A95839B1D744C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

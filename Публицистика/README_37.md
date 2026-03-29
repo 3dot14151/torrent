@@ -1,3 +1,84 @@
+###  Публикация: 1383682   (631221) от 10.04.2022
+
+В.В.Жириновский | Последний вагон на Север (1995) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обложка с личным автографом Владимира Вольфовича.
+Уникальное третье издание, исправленное и дополненное.
+Это издание  самое большое по содержанию, читается захватывающе и с юмором.
+Последующие издания этой книги значительно сокращены и немного унылы.(   Читать дальше...   )Жанр: Политический, историческийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F7AA66B287D56194C9D12D8F0929BBD0F964DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035107   (630418) от 15.07.2016
+
+Линор Горалик | Полая женщина. Мир Барби изнутри и снаружи (2016) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630418.jpg" />
+</div>
+
+
+###  Подробнее
+
+С первых дней своего существования Барби стала восприниматься как социокультурный феномен. В ее игрушечном мире нашли отражение такие проблемы реального общества, как эмансипация, семейные отношения, сексуальные нормы, карьера, политкорректность и многие другие. В ходе жарких споров сторонники и противники куклы, сами того не замечая, создали целую мифологию Барби. (   Читать дальше...   )Жанр: Культурология, публицистикаФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527A6E49DDEE68086EE6AD47FD8BBBFBB5729E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229026   (630078) от 04.06.2018
+
+П. И. Марков | Бизнес на голоде (1975) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630078.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматривается тяжелое продовольственное положение в странах Азии, Африки, Латинской Америки, разоблачается неоколониалистская стратегия империалистических держав, проявляющаяся в использовании голода и нищеты в странах «третьего мира» для осуществления своих экспансионистских планов. Речь идет также о перспективах решения продовольственной проблемы посредством (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93DBC4B96C9BBBD83432106D0BC6E9EFE40D028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228989   (629960) от 04.06.2018
 
 Подборка | Биографии знаменитых людей (2016) [CHM]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629960.jpg" />
+  <img src="Z:/picture/008/save_picture_629960.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629907.jpg" />
+  <img src="Z:/picture/008/save_picture_629907.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629774.jpg" />
+  <img src="Z:/picture/008/save_picture_629774.jpg" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629762.jpg" />
+  <img src="Z:/picture/008/save_picture_629762.jpg" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629618.jpg" />
+  <img src="Z:/picture/008/save_picture_629618.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628488.jpg" />
+  <img src="Z:/picture/008/save_picture_628488.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628469.jpg" />
+  <img src="Z:/picture/008/save_picture_628469.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628464.jpg" />
+  <img src="Z:/picture/008/save_picture_628464.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628255.jpg" />
+  <img src="Z:/picture/008/save_picture_628255.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628205.jpg" />
+  <img src="Z:/picture/008/save_picture_628205.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627928.jpg" />
+  <img src="Z:/picture/008/save_picture_627928.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627623.jpg" />
+  <img src="Z:/picture/008/save_picture_627623.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627616.jpg" />
+  <img src="Z:/picture/008/save_picture_627616.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627391.jpg" />
+  <img src="Z:/picture/008/save_picture_627391.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627262.jpg" />
+  <img src="Z:/picture/008/save_picture_627262.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626162.jpg" />
+  <img src="Z:/picture/008/save_picture_626162.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626070.jpg" />
+  <img src="Z:/picture/008/save_picture_626070.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625805.jpg" />
+  <img src="Z:/picture/008/save_picture_625805.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625129.jpg" />
+  <img src="Z:/picture/008/save_picture_625129.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624575.jpg" />
+  <img src="Z:/picture/008/save_picture_624575.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624488.jpg" />
+  <img src="Z:/picture/008/save_picture_624488.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624475.jpg" />
+  <img src="Z:/picture/008/save_picture_624475.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624346.jpg" />
+  <img src="Z:/picture/008/save_picture_624346.jpg" />
 </div>
 
 
@@ -605,85 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31266614B9EBED61A69F42C6ABA801EAFF57D7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229680   (624059) от 07.06.2018
-
-Лоуренс Рис | Холокост. Новая история (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624059.jpg" />
-</div>
-
-
-###  Подробнее
-
-«По каким причинам нацисты решили уничтожить целый народ? Почему они отправляли в концлагеря миллионы мужчин, женщин и детей, заталкивали их в газовые камеры, вешали, расстреливали, морили голодом, забивали до смерти – уничтожали всеми вообразимыми и невообразимыми способами? Какое место занимает этот геноцид среди всех ужасов, сотворенных нацистами? Я размышлял (   Читать дальше...   )Жанр: Документальная литература, Зарубежная публицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E9A9E30106D60EB424B7F2536177174128A659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295210   (622484) от 11.04.2019
-
-Андрей Грешнов | После нас (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще никогда прежде ни один журналист в мире не выдерживал там столько лет. Тринадцать! Тринадцать лет проработал в Афганистане журналист-международник, глава представительства РИА «Новости» в Кабуле Андрей Грешнов. На его глазах истерзанная войнами страна несколько раз заливалась кровью. Он видел, как Кабул штурмовали талибы. Он брал интервью и у самых жестоких главарей (   Читать дальше...   )Жанр: Биографии и Мемуары, История войн, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7024AE57DE656015228FFA8F3A4188F5FD022AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295164   (622201) от 11.04.2019
-
-С.И. Дворников (сост.) | Мудрость: цитаты, афоризмы, пословицы, поговорки (2017) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга заслуженного учителя Российской Федерации Сергея Ивановича Дворникова содержит высказывания выдающихся ученых, философов, писателей, государственных и общественных деятелей, а также афоризмы, крылатые фразы, пословицы и поговорки. В сборнике отражено около 70 тем – это многие стороны нашей повседневной жизни – и более 5000 мудрых изречений и поговорок.
-Адресована (   Читать дальше...   )Жанр: Афоризмы и цитаты, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529F6EE14FDBCF402A47361BE75FD91A66DE8950
 ```
 
 https://mybot314.ru/tekegram_catalog/

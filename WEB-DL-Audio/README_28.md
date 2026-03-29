@@ -6,7 +6,7 @@ Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113116.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113114.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bear Garden - Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113112.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113111.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113042.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113029.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113027.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113026.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113025.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113014.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113004.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112997.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112995.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112990.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112984.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112973.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112972.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112967.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112945.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Romantic Love Songs Academy - Rendezvous at Dawn: Sultry Jazz and Romantic Mood 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112940.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gossip - Real Power (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112938.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Steve Emm - Framework (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112936.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Deej - Blue Sky Mama (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112929.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112928.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112925.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Stress Reducing Music Zone, Instrumental Jazz Music Guys, Positive Music Univers
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112919.jpg" />
 </div>
 
 

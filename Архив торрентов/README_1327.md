@@ -6,7 +6,7 @@ Rufus 2.9 (Build 934) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755218.jpg" />
+  <img src="Z:/picture/008/save_picture_755218.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Master PDF Editor 3.7.10 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755215.jpg" />
+  <img src="Z:/picture/008/save_picture_755215.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755214.jpg" />
+  <img src="Z:/picture/008/save_picture_755214.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755213.jpg" />
+  <img src="Z:/picture/008/save_picture_755213.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Inboard 1.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755212.jpg" />
+  <img src="Z:/picture/008/save_picture_755212.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Vivaldi 2.3.1440.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755203.jpg" />
+  <img src="Z:/picture/008/save_picture_755203.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Blocs 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755202.jpg" />
+  <img src="Z:/picture/008/save_picture_755202.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Brave Browser 0.59.35 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755200.jpg" />
+  <img src="Z:/picture/008/save_picture_755200.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Kumasi - I Know You Feel It - Anthology (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755197.jpg" />
+  <img src="Z:/picture/008/save_picture_755197.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Coolutils PDF Splitter 5.2.0.66 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755196.jpg" />
+  <img src="Z:/picture/008/save_picture_755196.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Light Image Resizer 5.1.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755194.jpg" />
+  <img src="Z:/picture/008/save_picture_755194.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CrystalDiskInfo 8.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755188.jpg" />
+  <img src="Z:/picture/008/save_picture_755188.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Viber 13.3.1.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755183.jpg" />
+  <img src="Z:/picture/008/save_picture_755183.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PDF to Word&Document Converter 6.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755180.jpg" />
+  <img src="Z:/picture/008/save_picture_755180.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Kerish Doctor 2020 4.80 [DC 10.07.2020] RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755178.jpg" />
+  <img src="Z:/picture/008/save_picture_755178.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ WhatsApp 2.2027.10.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755174.jpg" />
+  <img src="Z:/picture/008/save_picture_755174.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ NetWorker Pro 8.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755159.jpg" />
+  <img src="Z:/picture/005/save_picture_755159.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ RAR Extractor  - Unarchiver (vip) 6.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755153.jpg" />
+  <img src="Z:/picture/008/save_picture_755153.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ LC Technology RescuePRO Deluxe 5.2.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755148.jpg" />
+  <img src="Z:/picture/008/save_picture_755148.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VACANT (VΛCΛNT) - 13 Releases (2012-2015) [MP3|320 кб/с]<Dubstep, Ambient, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755143.jpg" />
+  <img src="Z:/picture/008/save_picture_755143.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Fedora 19 Schrödinger's Cat beta [i386, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755116.jpg" />
+  <img src="Z:/picture/005/save_picture_755116.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Adobe Acrobat Pro DC 2015.016.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755111.jpg" />
+  <img src="Z:/picture/008/save_picture_755111.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755107.jpg" />
+  <img src="Z:/picture/008/save_picture_755107.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ JetBrains PyCharm Professional 2016.1.3 Build #PY-145.971 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755099.jpg" />
+  <img src="Z:/picture/008/save_picture_755099.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755097.jpg" />
+  <img src="Z:/picture/008/save_picture_755097.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755094.jpg" />
+  <img src="Z:/picture/008/save_picture_755094.jpg" />
 </div>
 
 

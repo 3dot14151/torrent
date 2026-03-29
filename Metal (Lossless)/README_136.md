@@ -1,3 +1,102 @@
+###  Публикация: 534308   (520244) от 13.08.2012
+
+Pathfinder - 2 Albums (2010-2012) [FLAC/WavPack|Lossless]<Symphonic Power Metal/Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот коллектив был образован в 2006 году в Польше басистом Arkadiusz Ruith и гитаристом Karol Mania. Их страна всегда славилась блэк/дэт метал коллективами, такими как Vader и Behemoth. Парни решили не идти по их стопам, а играть нечто другое.01. Ventus Ignis Terra Aqua (2:05)
+02. Fifth Element (8:44)
+03. Ready To Die Between Stars (5:49)
+04. The Day When I Turn Back Time (6:18)
+05. Chronokinesis (5:27)
+06. March To Darkest Horizon (7:50)
+07. Yin Yang (4:03)
+08. Elemental Power (4:34)
+09. Ad Futuram Rei Memoriam (5:04)
+10. When The Sunrise Breaks The Darkness (6:15)(   Читать дальше...   )Жанр: Symphonic Power Metal/Progressive MetalПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533839   (520234) от 13.08.2012
+
+Weird Fate - The Collapse Of All That Has Been (2012) [WavPack|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creeping Corrosion (1:00)
+02. Mirage Of A Star (9:31)
+03. Nacht (8:34)
+04. And Utter Emptiness (2:07)
+05. The Collapse Of All That Has Been (6:52)
+06. Manifest Of The Crestfallen (7:56)
+07. 1709 (1:47)
+08. In Stille (7:30)
+09. Anguish (1:52)
+10. Futile Words (8:18)Жанр: Black MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241456   (520125) от 17.08.2018
+
+Doro - Forever Warriors // Forever United (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All for Metal
+02. Bastardos
+03. If I Can't Have You - No One Will (feat. Johan Hegg)
+04. Soldier of Metal(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CABB453DD30BC0E5EC8535F516C443C69C6151E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560341   (519830) от 30.06.2022
 
 Dark Funeral - We Are the Apocalypse (2022) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +105,7 @@ Dark Funeral - We Are the Apocalypse (2022) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519830.jpg" />
+  <img src="Z:/picture/008/save_picture_519830.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ Verdunkeln - Weder Licht Noch Schatten (2012) [WavPack|Lossless]<Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519454.jpg" />
+  <img src="Z:/picture/008/save_picture_519454.jpg" />
 </div>
 
 
@@ -65,7 +164,7 @@ Landforge - Servitude To Earth (2012) [WavPack|Lossless]<Atmospheric Doom Metal/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519393.jpg" />
+  <img src="Z:/picture/008/save_picture_519393.jpg" />
 </div>
 
 
@@ -96,7 +195,7 @@ Bonded By Blood - The Aftermath (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519312.jpg" />
+  <img src="Z:/picture/008/save_picture_519312.jpg" />
 </div>
 
 
@@ -131,7 +230,7 @@ Serapis - Vita Et Mors (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518877.jpg" />
+  <img src="Z:/picture/008/save_picture_518877.jpg" />
 </div>
 
 
@@ -160,7 +259,7 @@ SolarenD - Subhuman Born (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518876.jpg" />
+  <img src="Z:/picture/008/save_picture_518876.jpg" />
 </div>
 
 
@@ -189,7 +288,7 @@ Scitalis - Doomed Before Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518875.jpg" />
+  <img src="Z:/picture/008/save_picture_518875.jpg" />
 </div>
 
 
@@ -218,7 +317,7 @@ We Are Many We Are Legion - Breathe Fight Believe (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518871.jpg" />
+  <img src="Z:/picture/008/save_picture_518871.jpg" />
 </div>
 
 
@@ -247,7 +346,7 @@ Reverend - World Won’t Miss You (1990) Reissue, Remastered, 2019, Divebomb Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518865.jpg" />
+  <img src="Z:/picture/008/save_picture_518865.jpg" />
 </div>
 
 
@@ -278,7 +377,7 @@ A Sound Of Thunder - It Was Metal (2018) Limited Edition [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518426.jpg" />
+  <img src="Z:/picture/008/save_picture_518426.jpg" />
 </div>
 
 
@@ -307,7 +406,7 @@ Max Pie - Eight Pieces - One World (2013) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518425.jpg" />
+  <img src="Z:/picture/008/save_picture_518425.jpg" />
 </div>
 
 
@@ -336,7 +435,7 @@ Sorgeldom - Innerlig Förmörkelse (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517897.jpg" />
+  <img src="Z:/picture/008/save_picture_517897.jpg" />
 </div>
 
 
@@ -365,7 +464,7 @@ Sorgeldom - Vithatten (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517896.jpg" />
+  <img src="Z:/picture/008/save_picture_517896.jpg" />
 </div>
 
 
@@ -394,7 +493,7 @@ Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517647.jpg" />
+  <img src="Z:/picture/008/save_picture_517647.jpg" />
 </div>
 
 
@@ -423,7 +522,7 @@ Fervent Hate - Tales Of Hate, Lust And Chaos (2018) Limited Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517188.jpg" />
+  <img src="Z:/picture/008/save_picture_517188.jpg" />
 </div>
 
 
@@ -452,7 +551,7 @@ Disturbed - Immortalized (2015) Deluxe Edition [FLAC|tracks+.cue]<Alternative / 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517126.jpg" />
+  <img src="Z:/picture/008/save_picture_517126.jpg" />
 </div>
 
 
@@ -481,7 +580,7 @@ Atrocity - Okkult II (2018) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517099.jpg" />
+  <img src="Z:/picture/008/save_picture_517099.jpg" />
 </div>
 
 
@@ -510,7 +609,7 @@ Taake - Noregs Vaapen (2011) [WavPack|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516971.jpg" />
+  <img src="Z:/picture/008/save_picture_516971.jpg" />
 </div>
 
 
@@ -542,7 +641,7 @@ The Chronicles Of Manimal And Samara - Trust No Leaders (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516914.jpg" />
+  <img src="Z:/picture/008/save_picture_516914.jpg" />
 </div>
 
 
@@ -571,7 +670,7 @@ Aerodyne - Last Days Of Sodom (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516792.jpg" />
+  <img src="Z:/picture/008/save_picture_516792.jpg" />
 </div>
 
 
@@ -600,7 +699,7 @@ Scarlet Anger - Dark Reign (2012) [APE|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516769.jpg" />
+  <img src="Z:/picture/008/save_picture_516769.jpg" />
 </div>
 
 
@@ -635,7 +734,7 @@ Darkness By Oath - Near Death Experience (2012) [FLAC|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515956.jpg" />
+  <img src="Z:/picture/008/save_picture_515956.jpg" />
 </div>
 
 
@@ -670,7 +769,7 @@ BongBongBeerWizards - Ampire (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515728.jpg" />
+  <img src="Z:/picture/008/save_picture_515728.jpg" />
 </div>
 
 
@@ -683,93 +782,6 @@ BongBongBeerWizards - Ampire (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05BFA10AC72E25BB84C7B6964C2001CFB9287C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561288   (515727) от 04.07.2022
-
-Knifesmoke - Reawakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Reawakening (00:02:47)
-02 - Blood for the Blood God (00:05:25)
-03 - No Lives Matter (00:05:02)
-04 - Hail Satin (00:04:21)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9454B35D890902CC6032B97D31910AC6439D67F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561363   (515726) от 04.07.2022
-
-Synteleia - The Secret Last Syllable (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tower of Koth (00:04:33)
-02 - Emblem of Yith (00:04:59)
-03 - Nymph of the Pyramids, Pt. 1- The Reign (00:04:51)
-04 - Nymph of the Pyramids, Pt. 2- The Curse (00:05:42)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F07760EF6E2A84BF2EFC01B4B60B8A2A68F2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561371   (515725) от 04.07.2022
-
-Orthodox - Proceed (2022) [FLAC|Lossless|WEB-DL|tracks] <Drone, Doom, Avant-garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Past Seers (00:07:03)
-02 - Abendrot (00:04:51)
-03 - Rabid God (00:04:26)
-04 - Starve (00:05:57)(   Читать дальше...   )Жанр: Drone, Doom, Avant-garde MetalПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F8FBAAF2D77821114CA3D3C56E8F2DE2D38262
 ```
 
 https://mybot314.ru/tekegram_catalog/

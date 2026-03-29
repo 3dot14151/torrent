@@ -1,3 +1,56 @@
+###  Публикация: 1302298   (581143) от 15.05.2019
+
+Григорий Остер | Задачник по математике. Ненаглядное пособие (1994) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие ребята, эта книжка нарочно называется «Задачник», чтоб ее можно было читать на уроке математики и не прятать под парту. А если учителя начнут возмущаться, говорите: «Ничего не знаем, министерство просвещения разрешило».
+Нет, нет, задачи тут самые настоящие. Для второго, третьего и четвертого классов. Все они имеют решение и помогают закрепить пройденный в (   Читать дальше...   )Жанр: ЗадачникФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8853F1D29B3ACCCF16CB88C1AA2E24ABE57E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920344   (580185) от 22.07.2015
+
+Бернар Фрио | Нетерпеливые истории (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем давно известно, что дети думают по-другому. Их мир полон невероятных при-ключений, и совершенно непонятно, как из них вырастают такие скучные взрослые.Они до ужаса нетерпеливы, и длинные истории с неприкрытой моралью заставляют их лишь зевать да пересчитывать птиц за окном. Известному французскому писателю Бернару Фрио повезло: конечно, он, как и все остальные, (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1F049A8969F1861F23FE40DD1C5E9C4FB3C2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920349   (580181) от 22.07.2015
 
 Юрий Дмитриев | Путешествие на всю жизнь (1977) [FB2]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580181.jpg" />
+  <img src="Z:/picture/008/save_picture_580181.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578865.jpg" />
+  <img src="Z:/picture/008/save_picture_578865.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578788.jpg" />
+  <img src="Z:/picture/008/save_picture_578788.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578657.jpg" />
+  <img src="Z:/picture/008/save_picture_578657.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578205.jpg" />
+  <img src="Z:/picture/008/save_picture_578205.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578086.jpg" />
+  <img src="Z:/picture/008/save_picture_578086.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577981.jpg" />
+  <img src="Z:/picture/008/save_picture_577981.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577708.jpg" />
+  <img src="Z:/picture/008/save_picture_577708.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577550.jpg" />
+  <img src="Z:/picture/008/save_picture_577550.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576638.jpg" />
+  <img src="Z:/picture/008/save_picture_576638.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576548.jpg" />
+  <img src="Z:/picture/008/save_picture_576548.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576418.jpg" />
+  <img src="Z:/picture/008/save_picture_576418.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576265.jpg" />
+  <img src="Z:/picture/008/save_picture_576265.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576209.jpg" />
+  <img src="Z:/picture/008/save_picture_576209.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576051.jpg" />
+  <img src="Z:/picture/008/save_picture_576051.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575970.jpg" />
+  <img src="Z:/picture/008/save_picture_575970.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574843.jpg" />
+  <img src="Z:/picture/008/save_picture_574843.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573486.jpg" />
+  <img src="Z:/picture/008/save_picture_573486.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573024.jpg" />
+  <img src="Z:/picture/008/save_picture_573024.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572889.jpg" />
+  <img src="Z:/picture/008/save_picture_572889.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572792.jpg" />
+  <img src="Z:/picture/008/save_picture_572792.jpg" />
 </div>
 
 
@@ -567,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572515.jpg" />
+  <img src="Z:/picture/008/save_picture_572515.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572004.jpg" />
+  <img src="Z:/picture/008/save_picture_572004.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569828.jpg" />
+  <img src="Z:/picture/008/save_picture_569828.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37AF7B4A1662CF19A9A77590E30C8D5ED69D5721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152295   (567306) от 22.07.2017
-
-Н.Н.  Плавильщиков | Юным любителям природы (1975) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга в помощь любителям природы. Ее написал известный энтомолог доктор биологических наук Н.Н. Плавильщиков. Но в ней рассказывается не только о жизни насекомых. Автор знакомит с сезонными изменениями в природе; рассказывает, какие можно провести наблюдения и поставить опыты над растениями и животными.
-Много интересных сведений и полезных советов сообщает в (   Читать дальше...   )Жанр: Научно-популярнаяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C52E6D644936DDAC9664C816BD18A5B6610CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044272   (566943) от 19.08.2016
-
-Александр Блинков | Геометрия в негеометрических задачах (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятнадцатая книжка серии "Школьные математические кружки" посвящена геометрическим методам решения различных задач и предназначена для занятий со школьниками 6-11 классов. В неё вошли разработки девяти занятий математического кружка с подробно разобранными примерами различной сложности, задачами для самостоятельного решения и методическими указаниями для (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4467EA133D1BAD753AFB04151D3592BBD8DC2EBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

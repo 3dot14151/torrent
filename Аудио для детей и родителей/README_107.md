@@ -1,3 +1,102 @@
+###  Публикация: 487900   (90741) от 25.04.2012
+
+VA - Песни и Музыка Для Малышей (2008) [MP3|192 kbps]<Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник песен для малышей. 172 лучших композиций в исполнении Григория Гинзбурга, Я.Флиера, Инструментального ансамбля под управлением Г.Богдановича, Оркестра народных инструментов под управлением В.Федосеева и многих других.
+
+Этот диск станет лучшим подарком для будущих мам, родителей и, конечно же, для малышей, которые приобщаться к народному творчеству, классическим произведениям, к творчеству народов мира и т.д01. А. Зайцев, В. Астрова - Кошкино пальто
+02. Детский вокальный ансамбль - Блин с горчицей
+03. Детский вокальный ансамбль - Весёлые котята
+04. Детский вокальный ансамбль - Курочка-рябушечка
+05. Детский вокальный ансамбль - Расплата
+06. И. Банковский, В. Астрова, С. Бокаев - Патока с имбирём
+07. О. Борисова, Н. Жеренков, В. Астрова - Как на тоненький ледок
+08. П. Любимцев, Г. Арзамасова, В. Астрова - Только мама…
+09. П. Любимцев, Н. Жеренков, В. Астрова - Дядя Вася и утюг
+10. Т. Белякова, В. Астрова - Весёлая пастушка(   Читать дальше...   )2008Жанр: Детская музыкаПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8D87FC074E682A29AB70B90AFB3EB18551BA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486831   (90670) от 25.04.2012
+
+Русские народные сказки | Петушок и бобовое зернышко [2005] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство "Весть-ТДА" совместно со звукозаписывающей фирмой "РМГ Рекордз" представляет серию детских сказок. В сказках и радиопостановках задействованы лучшие актеры московских театров и кино.
+Прекрасный подарок детям и их родителям.Содержание:
+Петушок и Бобовое зернышко (00:59:59)
+1. Теремок (Обр. Е. Чарушин)
+2. Девочка-снегурочка (Обр. В. Даль)
+3. Почему сова мышей ловит (Обр. Г. Науменко)
+4. Петушок и бобовое зернышко (Обр. О. Капица)
+5. Ворона (Обр. В. Даль)
+6. Лиса и козел (Обр. К. Ушинский)
+7. Мороз и заяц (Обр Г. Науменко)
+8. Лиса и заяц (Обр. В. Даль)(   Читать дальше...   )Жанр: русские народные сказкиПродолжительность: 05:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A73AF1E6E4B63BF27C3D65D5950004183FDE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487497   (90660) от 25.04.2012
+
+Катя Матюшкина; Катя Оковитая | Носки врозь! [2012] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящим сыщикам всегда найдется дело. Днем и ночью, в любое время года неутомимые Фу-Фу и Кис-Kис не знают покоя. А в лесу опять произошло преступление. У крота похищен недавно найденный клад. Невзирая на очевидные опасности, герои берутся за расследование. И, как оказываете не они одни... В Лесу появился еще один сыщик - Кролик. А он, как вы понимаете, тот еще (   Читать дальше...   )Жанр: детский детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B128269AB8586818621EE17E1F3811D9533AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487874   (90652) от 25.04.2012
 
 VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детская музыка>
@@ -6,7 +105,7 @@ VA - 77 детских песен на бис (2003) [MP3|320 kbps]<Детска
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90652.jpg" />
 </div>
 
 
@@ -41,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90616.jpg" />
 </div>
 
 
@@ -68,7 +167,7 @@ VA - Планета детства (1997) [MP3|320 кб/с]<Pop, песни дл
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90611.jpg" />
 </div>
 
 
@@ -103,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90608.jpg" />
 </div>
 
 
@@ -129,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90410.jpg" />
 </div>
 
 
@@ -156,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89862.jpg" />
 </div>
 
 
@@ -182,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89264.jpg" />
 </div>
 
 
@@ -210,7 +309,7 @@ VA - Детские Песни (2006) [MP3|224 кб/с]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89053.jpg" />
 </div>
 
 
@@ -245,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88739.jpg" />
 </div>
 
 
@@ -271,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88597.jpg" />
 </div>
 
 
@@ -301,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88573.jpg" />
 </div>
 
 
@@ -327,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88561.jpg" />
 </div>
 
 
@@ -354,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87556.jpg" />
 </div>
 
 
@@ -382,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87126.jpg" />
 </div>
 
 
@@ -408,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87113.jpg" />
 </div>
 
 
@@ -438,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86618.jpg" />
 </div>
 
 
@@ -473,7 +572,7 @@ VA - Любимые песни для детей 3 (2012) [MP3|160-192 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86197.jpg" />
 </div>
 
 
@@ -502,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85869.jpg" />
 </div>
 
 
@@ -529,7 +628,7 @@ VA - Девочка с планеты Земля. Детские песни и �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85728.jpg" />
 </div>
 
 
@@ -564,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85532.jpg" />
 </div>
 
 
@@ -590,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84980.jpg" />
 </div>
 
 
@@ -617,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84908.jpg" />
 </div>
 
 
@@ -644,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83715.jpg" />
 </div>
 
 
@@ -655,92 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12D24C0226E4D5D33EBBF7C1509288C25635537B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470646   (83064) от 19.03.2012
-
-VA - Дружба начинается с улыбки (1991) [MP3|320 кб/с]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чему учат в школе
-02. Улыбка
-03. Волшебный цветок
-04. Ты слышишь, море?(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A78E697344608012E926C8364F51EDCA7CA59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469346   (82730) от 17.03.2012
-
-VA - СОЮЗ Детский (2012) [MP3|256 кб/с]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Песня мамонтёнка
-002. Улыбка
-003. Чунга-чанга
-004. В доме 8-16(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 05:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D912BDEB2A4968689D9F147787020F7485FA6D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467768   (82081) от 14.03.2012
-
-Анатолий Рыбаков | Кортик [2006] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82081.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о трёх неразлучных друзьях - Мише, Генке и Славке, пытающихся раскрыть тайну старого морского кортика, в котором хранится зашифрованное послание...
-
-Похожие раздачи:Жанр: Детская литература, приключения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B023E1809EE81899BE1945C9AFBCCD91C778F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

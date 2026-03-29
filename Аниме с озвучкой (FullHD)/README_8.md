@@ -1,3 +1,29 @@
+###  Публикация: 1482840   (859225) от 25.09.2021
+
+Meikyuu Black Company | The Dungeon of Black Company | Подземелье Чёрной компании [TV-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниномия Киндзи — профессиональный бездельник, волею судьбы попавший в мир полулюдей и столкнувшийся с необходимостью по-настоящему тяжело трудиться. Но Киндзи далеко не прост, и у него уже есть план, как наладить безбедную и безработную жизнь в новом мире. Для этого ему понадобится помощь Ванибэ — скромного и одинокого здоровяка коллеги. Но планам не суждено сбыться (   Читать дальше...   )Производство: Япония, студия Silver LinkЖанр: Комедия, Исекай, ПриключенияРежиссер: Минато МирайЯзык озвучки: Русский дублированный (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33C2C339D8B5307CE5271579A3BB88CC41A2463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432201   (859224) от 25.09.2021
 
 Я стою на миллионе трупов / 100-man no Inochi no Ue ni Ore wa Tatte Iru / I'm Standing on a Million Lives [2020, TV, 24 ep] WEB-DL 1080p Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859224.jpg" />
+  <img src="Z:/picture/008/save_picture_859224.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855700.jpg" />
+  <img src="Z:/picture/008/save_picture_855700.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Sennen Joyuu | Millennium Actress | Актриса тысячелетия [2004,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853967.jpg" />
+  <img src="Z:/picture/008/save_picture_853967.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Bishoujo Senshi Sailor Moon S | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852763.jpg" />
+  <img src="Z:/picture/008/save_picture_852763.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Bishoujo Senshi Sailor Moon Super S: Black Dream Hole | Красавица-Во�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852757.jpg" />
+  <img src="Z:/picture/008/save_picture_852757.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Bishoujo Senshi Sailor Moon S: Hearts In Ice | Красавица-Воин Се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852756.jpg" />
+  <img src="Z:/picture/008/save_picture_852756.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852755.jpg" />
+  <img src="Z:/picture/008/save_picture_852755.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852754.jpg" />
+  <img src="Z:/picture/008/save_picture_852754.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852753.jpg" />
+  <img src="Z:/picture/008/save_picture_852753.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852751.jpg" />
+  <img src="Z:/picture/008/save_picture_852751.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849045.jpg" />
+  <img src="Z:/picture/008/save_picture_849045.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847274.jpg" />
+  <img src="Z:/picture/008/save_picture_847274.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845784.jpg" />
+  <img src="Z:/picture/008/save_picture_845784.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844001.jpg" />
+  <img src="Z:/picture/008/save_picture_844001.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844000.jpg" />
+  <img src="Z:/picture/008/save_picture_844000.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843999.jpg" />
+  <img src="Z:/picture/008/save_picture_843999.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843998.jpg" />
+  <img src="Z:/picture/008/save_picture_843998.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843994.jpg" />
+  <img src="Z:/picture/008/save_picture_843994.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839060.jpg" />
+  <img src="Z:/picture/008/save_picture_839060.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837438.jpg" />
+  <img src="Z:/picture/008/save_picture_837438.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837232.jpg" />
+  <img src="Z:/picture/008/save_picture_837232.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837231.jpg" />
+  <img src="Z:/picture/008/save_picture_837231.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837229.jpg" />
+  <img src="Z:/picture/008/save_picture_837229.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835858.jpg" />
+  <img src="Z:/picture/008/save_picture_835858.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835756.jpg" />
+  <img src="Z:/picture/008/save_picture_835756.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48019A7CEF2477EEA5FE3FC33C3FE344BBFFE369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379913   (835520) от 01.05.2020
-
-Арифурэта | Arifureta Shokugyou de Sekai Saikyou [2019, TV, 13 из 13] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатилетний Хадзиме Нагумо — типичный отаку. Его жизнь состоит из ночных посиделок за играми и мирного сна за партой во время школьных занятий. Но однажды всё меняется: Хадзиме вместе со всем своим классом попадает в параллельный фэнтезийный мир. Там их встречают как героев и немедленно выдают квест: спасти человечество от вымирания. Однако влажная мечта отаку (   Читать дальше...   )Производство: Япония, студия White FoxЖанр: приключения, фэнтези, исекайРежиссер: Ёсимото КиндзиЯзык озвучки: Русский дублированный (Wakanim.tv), Русский закадровый (AniLibria.tv), English дублированный (FUNimation)Субтитры: Русские надписи, Русский, English, FrançaisПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470E55041BE767B74E7BEF2FFF195D27EC076727
 ```
 
 https://mybot314.ru/tekegram_catalog/

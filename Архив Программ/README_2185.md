@@ -1,3 +1,290 @@
+###  Публикация: 1739018   (48874) от 25.07.2024
+
+Firefox Browser 128.0.2 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1B6C76FFEEF8603103BACEA351122DD9C00D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738828   (48868) от 25.07.2024
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48868.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455F727B7612B4E1841B50BA63C7DE7FB2AACFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738877   (48865) от 25.07.2024
+
+Topaz Video AI 5.2.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8E127F49069F1FF1FE8264E4C77DF8036A952D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738971   (48864) от 25.07.2024
+
+Opera One 112.0.5197.39 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7E8C00ED08EC1F6A7BAB37DE9BDA99E6D9575C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738827   (48863) от 25.07.2024
+
+4K Video Downloader 4.32.0.108 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48863.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92E9A19A30A311CAA80ECDF2DEB37D926960038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739004   (48862) от 25.07.2024
+
+Macrorit Partition Expert 8.2.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EE2C1C7473742815F2243FAB1F05F51C567039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738846   (48860) от 25.07.2024
+
+Viber 23.2.0.2 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
+Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF026D118A57DB9B918FA67F5CE675E6448BD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739140   (48841) от 26.07.2024
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 (25.07.2024) Final RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48841.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA549B22199456A265D40824D31847FF18A5557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739139   (48830) от 26.07.2024
+
+4K Video Downloader 4.32.0.0108 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48830.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C9966D1C4BD7D6BA7545D7A26A052E9F75C975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739130   (48821) от 26.07.2024
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.35.7000 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48821.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD76A7A8BBFB8E9001B4DB4361DC034DEF63491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739200   (48815) от 26.07.2024
+
+Topaz Video AI 5.2.2 (x64) Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3770AFDF59B20021D3294E5D534AED2740C7F296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739055   (48808) от 26.07.2024
 
 Veeam Agent 6.1.2.134 [En]
@@ -6,7 +293,7 @@ Veeam Agent 6.1.2.134 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48808.jpg" />
 </div>
 
 
@@ -32,7 +319,7 @@ Icecream Screen Recorder Pro 7.42 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48804.jpg" />
 </div>
 
 
@@ -58,7 +345,7 @@ Master PDF Editor 5.9.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48797.jpg" />
 </div>
 
 
@@ -84,7 +371,7 @@ By Click Downloader Premium 2.4.9 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48795.jpg" />
 </div>
 
 
@@ -110,7 +397,7 @@ MediaHuman YouTube Downloader 3.9.9.94 (0724) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48794.jpg" />
 </div>
 
 
@@ -136,7 +423,7 @@ NIUBI Partition Editor 9.9.8 Pro / Unlimited / Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48790.jpg" />
 </div>
 
 
@@ -163,7 +450,7 @@ Turbo Studio 24.7.14 Portable by 7997 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48788.jpg" />
 </div>
 
 
@@ -189,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48782.jpg" />
 </div>
 
 
@@ -215,7 +502,7 @@ Display Driver Uninstaller 18.0.7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48781.jpg" />
 </div>
 
 
@@ -241,7 +528,7 @@ Internet Download Manager 6.42 Build 17 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48779.jpg" />
 </div>
 
 
@@ -267,7 +554,7 @@ VCap Downloader 0.1.22.6243 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48777.jpg" />
 </div>
 
 
@@ -293,7 +580,7 @@ Atlantis Word Processor 4.4.0.3 Repack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48773.jpg" />
 </div>
 
 
@@ -319,7 +606,7 @@ Ant Download Manager Pro 2.13.0 Build 87959 (x32) / Build 87960 (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48772.jpg" />
 </div>
 
 
@@ -345,7 +632,7 @@ Winxvideo AI 3.1 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48771.jpg" />
 </div>
 
 
@@ -372,7 +659,7 @@ Aiseesoft Video Converter Ultimate 10.8.60 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48770.jpg" />
 </div>
 
 
@@ -383,293 +670,6 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EBEDBA6104B446640A289C307A04F865EA994A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739138   (48766) от 26.07.2024
-
-4K Video Downloader+ 1.8.1.0110 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48766.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953A4D02A268F9C0B70DA22C17ACE5235808EE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739134   (48757) от 26.07.2024
-
-Topaz Photo AI 3.1.2 (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB70A262EC6B58E9A6A27A169BE67BF96DED0CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739205   (48756) от 26.07.2024
-
-Topaz Photo AI 3.1.2 (x64) Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE78212F4698A7129991E84077F05DCD23D7EFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739339   (48729) от 27.07.2024
-
-Wondershare Filmora 13.6.4.8382 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Filmora - удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. Вы сможете создавать высококачественные фильмы с титрами, применять фильтры, эффекты перехода, обрабатывать звук. Кроме этого, программа поможет напрямую загрузить свое видео на YouTube для обмена с друзьями и семьей, сохранить видео для воспроизведения на (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DDC2BF553E5F1BF113FF125991E73103F43397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739358   (48705) от 27.07.2024
-
-BananaDefenderBlocker 1.0.0.1 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48705.jpg" />
-</div>
-
-
-###  Подробнее
-
-BananaDefenderBlocker - программный продукт от BananaBrain, который способен остановить работу Microsoft Defender без вреда для системы. Работает на технологии BananaRelax.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E03EC803E1D4E056A0FFBE7851FE4069D721B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739357   (48668) от 27.07.2024
-
-ElevenClock 4.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48668.jpg" />
-</div>
-
-
-###  Подробнее
-
-ElevenClock — это бесплатное программное обеспечение (под лицензией Apache 2.0 ), которое позволяет разместить настраиваемые часы на панели задач Windows 11. Когда Microsoft создала часы Windows 11, они забыли сделать их настраиваемыми и отображать на нескольких дисплеях. Вы можете настроить ElevenClock по своему усмотрению — от добавления секунд до изменения цветовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7029122B287465A726A11F879EDB63490A5BEBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739247   (48666) от 27.07.2024
-
-Enigma Virtual Box 10.90 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enigma Virtual Box - бесплатная система виртуализации приложений, которая не извлекая виртуальных файлов на диск и не создавая временных файлов на ПК (эмуляция происходит только во внутренней памяти процесса), позволяет корректно объединить все файлы приложения в один исполняемый файл.
-Поддерживаются любые типы файлов, как например динамические библиотеки (*.dll), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E636C0A7036954244D33CA22FC2227454240F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739673   (48639) от 28.07.2024
-
-Nik Collection by DxO 6.12.0 RePack by 7997 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nik Collection by DxO – это наиболее полная коллекция плагинов с применением фирменной технологии U Point, которая позволяет тонко регулировать яркость, контрастность, насыщенность цвета и другие параметры отдельных объектов или участков фотоснимка. С помощью этих плагинов вы сможете настроить четкость изображения на цифровых фотографиях, выполнить цветокоррекцию, (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1565E6ADB5F6E9E22F325D84E3741B18EB1AF8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739566   (48604) от 28.07.2024
-
-eM Client Pro 10.0.3351.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48604.jpg" />
-</div>
-
-
-###  Подробнее
-
-eM Client - мощный клиент электронной почты. Помимо основного функционала, необходимого для полноценной работы с e-mail корреспонденцией (прием, отправка, чтение, написание, удаление, переадресация, сортировка, массовая рассылка электронных писем), он имеет в своем арсенале множество новинок. В их числе отличный мультифункциональный органайзер со встроенной адресной (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C5B5717BF56E3F391B34C408BA559856F16C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739536   (48600) от 28.07.2024
-
-Capture One 23 Enterprise 16.4.4.2244 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, PNG, DNG (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5CCAD245FA87962324EDCD362CEC66B34F6593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739580   (48580) от 28.07.2024
-
-By Click Downloader Premium 2.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48580.jpg" />
-</div>
-
-
-###  Подробнее
-
-ByClick Downloader (бывший YouTube By Click) - отличный и удобный в использовании загрузчик видео роликов из популярнейшего портала YouTube. Кроме этого хостингового ресурса, поддерживается также скачивание файлов из Facebook, Vimeo, Dailymotion и других сайтов. Разработчики постарались сделать это приложение максимально комфортным в работе. Для того, чтобы скачать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9549FF598A64AB7CC2B6C672651AFEF2C5F7B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

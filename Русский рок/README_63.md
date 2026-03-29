@@ -1,3 +1,119 @@
+###  Публикация: 1068005   (382656) от 31.10.2016
+
+Марсу Нужны Любовники - Дети плохой погоды (2016) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_382656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cкользим
+02. Место
+03. Дальневосток
+04. Космонавты(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0E8A6345F1B5CBEEDB60E32720D75AF40AC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253666   (381692) от 10.10.2018
+
+Пионерлагерь Пыльная Радуга - Мало (2018) [MP3|320 Kbps] <Indie Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Конь
+2. Бхзрд
+3. Король червей
+4. Использованная песня(   Читать дальше...   )Жанр: Indie Rock, GrungeПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3685C17EB6F26D3E5751745987CB493AAEDDB442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253649   (381379) от 10.10.2018
+
+Разные люди, Ч.Ч., Декабрь & The Чиж & Co - Чернецкому - 50! (2018) 2CD, Live [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разные Люди - Песня взрослого человека
+02. Разные Люди - Становись!
+03. Разные Люди - Пятнадцать ножевых
+04. Разные Люди - Чернец(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CD324DC20B1BA59074BCD094B23899F6FB2429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949111   (379466) от 22.10.2015
+
+Операция Пластилин - Маяк (2015) [MP3|320 кб/с]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379466.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В задумке должен был получиться жесткий панк-рок с прямыми текстами и простыми гитарными риффами, в итоге же имеем огромное количество электронщины, скрипок и даже одну медленную композицию».01. Гиганты
+02. Маяк
+03. Я На Качелях
+04. Танцевать!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA11021D27E224A4BD325E170D539D6BB1930C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575003   (379399) от 08.09.2022
 
 Before I Die - Мертвая Вечность (2022) [MP3|320 Kbps] <Metalcore, Doom Metal, Experimental Metal>
@@ -6,7 +122,7 @@ Before I Die - Мертвая Вечность (2022) [MP3|320 Kbps] <Metalcore,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379399.jpg" />
+  <img src="Z:/picture/008/save_picture_379399.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379376.jpg" />
+  <img src="Z:/picture/008/save_picture_379376.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379219.jpg" />
+  <img src="Z:/picture/008/save_picture_379219.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378948.jpg" />
+  <img src="Z:/picture/008/save_picture_378948.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378496.jpg" />
+  <img src="Z:/picture/008/save_picture_378496.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Jane Air - 6 альбомов + 10 синглов + 2 EP + Live (2001-2012) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377769.jpg" />
+  <img src="Z:/picture/008/save_picture_377769.jpg" />
 </div>
 
 
@@ -176,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377628.jpg" />
+  <img src="Z:/picture/008/save_picture_377628.jpg" />
 </div>
 
 
@@ -202,7 +318,7 @@ VA - Охота 84 (2018) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377509.jpg" />
+  <img src="Z:/picture/008/save_picture_377509.jpg" />
 </div>
 
 
@@ -231,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377107.jpg" />
+  <img src="Z:/picture/008/save_picture_377107.jpg" />
 </div>
 
 
@@ -260,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377007.jpg" />
+  <img src="Z:/picture/008/save_picture_377007.jpg" />
 </div>
 
 
@@ -289,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376200.jpg" />
+  <img src="Z:/picture/008/save_picture_376200.jpg" />
 </div>
 
 
@@ -318,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376134.jpg" />
+  <img src="Z:/picture/008/save_picture_376134.jpg" />
 </div>
 
 
@@ -346,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376082.jpg" />
+  <img src="Z:/picture/008/save_picture_376082.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375701.jpg" />
+  <img src="Z:/picture/008/save_picture_375701.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Before I Die (RU) - 5 Albums (2017-2022) [Mp3|320 Kbps] <Metalcore, Doom Metal, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375484.jpg" />
+  <img src="Z:/picture/008/save_picture_375484.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ The Sinners - Идеальный пациент (2022) [Mp3|320 Kbps] <Simphonic
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375482.jpg" />
+  <img src="Z:/picture/008/save_picture_375482.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374506.jpg" />
+  <img src="Z:/picture/008/save_picture_374506.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374074.jpg" />
+  <img src="Z:/picture/008/save_picture_374074.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373928.jpg" />
+  <img src="Z:/picture/008/save_picture_373928.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373810.jpg" />
+  <img src="Z:/picture/008/save_picture_373810.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372811.jpg" />
+  <img src="Z:/picture/008/save_picture_372811.jpg" />
 </div>
 
 
@@ -609,7 +725,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372423.jpg" />
+  <img src="Z:/picture/008/save_picture_372423.jpg" />
 </div>
 
 
@@ -623,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0AA44FFDA2C6F20B4716F5542075544C5B227AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327693   (372148) от 26.09.2019
-
-Александр Пушной - Live Б2 (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. СБТП
-2. Берёза
-3. Рябина
-4. Поранья(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B27F551252EB54E832795F19824DEB49B010A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327903   (370254) от 27.09.2019
-
-Утро в тебе - Это любовь (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370254.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это любовь
-2. Будь со мной
-3. Деградировать
-4. Сильнее смерти(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0EA218D5DF92A82F4B798119A813161B706731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327829   (370236) от 27.09.2019
-
-П.Т.В.П. (Последние Танки В Париже) - Руки иллюзий (2019) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Аффект
-2. Руки иллюзий
-3. На районе
-4. Казарма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFD3BDD92FC172F8BFD5909DB3AC8D23DBC62EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327834   (370228) от 27.09.2019
-
-Центр - Цвет ветки (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Падежи
-2. Полуправда
-3. Поисковик
-4. Цепкий лузер(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7AF6552397955878480DD095B4F1C841E3A4E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

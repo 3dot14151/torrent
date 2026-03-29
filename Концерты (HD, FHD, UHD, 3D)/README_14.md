@@ -1,3 +1,92 @@
+###  Публикация: 1281420   (751060) от 08.02.2019
+
+Кипелов - 60 (2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_751060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия концерта, который состоялся 1 декабря 2018 года в московском Adrenaline Stadium. Валерий Кипелов отмечает 60-летний юбилей. За сорок лет своей музыкальной карьеры он прошёл впечатляющий путь - от советских ВИА "Лейся, песня" и "Поющие сердца" до культовой Heavy Metal группы "Ария" и собственного проекта "#Кипелов". (   Читать дальше...   )1. Жить вопреки
+2. Власть огня
+3. Дама пик
+4. Выше(   Читать дальше...   )Производство: РЕН ТВЖанр: Музыкальный, концертПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD7B3B0DA6C4FFE343B8A76E0073F98BBA3D5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988837   (750987) от 11.01.2022
+
+Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
+
+Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated (   Читать дальше...   )01. Double Vision
+02. Head Games
+03. Cold As Ice
+04. In Pieces(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74644CE655C5F9851A7AD058A6C86637D06E62F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018413   (750077) от 23.05.2016
+
+Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750077.jpg" />
+</div>
+
+
+###  Подробнее
+
+43. Internationale Jazzwoche Burghausen, Wackerhalle, Germany, March 17, 201201. Slideshow
+02. Work Song
+03. Business as Usual
+04. Count Me In(   Читать дальше...   )Производство: Германия | 3SATЖанр: Modern Electric Blues, Blues-Rock, Soul BluesАктеры: ANA POPOVIC - guitar, vocals ROLAND JONKER - bass, vocals MICHELE PAPADIA - keyboards, vocals STEPHANE AVELLANEDA - drumsПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70AF7E89F49AB9EFD83BED089B8CAB81A64DE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017589   (749956) от 23.05.2016
 
 Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert - Mariss Jansons & Wiener Philharmoniker (2016) BDRip [H.264/1080i]
@@ -6,7 +95,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749956.jpg" />
+  <img src="Z:/picture/008/save_picture_749956.jpg" />
 </div>
 
 
@@ -36,7 +125,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749953.jpg" />
+  <img src="Z:/picture/008/save_picture_749953.jpg" />
 </div>
 
 
@@ -62,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749681.jpg" />
+  <img src="Z:/picture/008/save_picture_749681.jpg" />
 </div>
 
 
@@ -88,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747553.jpg" />
+  <img src="Z:/picture/008/save_picture_747553.jpg" />
 </div>
 
 
@@ -114,7 +203,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747286.jpg" />
+  <img src="Z:/picture/008/save_picture_747286.jpg" />
 </div>
 
 
@@ -142,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746684.jpg" />
+  <img src="Z:/picture/008/save_picture_746684.jpg" />
 </div>
 
 
@@ -171,7 +260,7 @@ Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746648.jpg" />
+  <img src="Z:/picture/008/save_picture_746648.jpg" />
 </div>
 
 
@@ -197,7 +286,7 @@ Judas Priest - Epitaph (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745638.jpg" />
+  <img src="Z:/picture/005/save_picture_745638.jpg" />
 </div>
 
 
@@ -226,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743522.jpg" />
+  <img src="Z:/picture/008/save_picture_743522.jpg" />
 </div>
 
 
@@ -252,7 +341,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743296.jpg" />
+  <img src="Z:/picture/008/save_picture_743296.jpg" />
 </div>
 
 
@@ -281,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743272.jpg" />
+  <img src="Z:/picture/008/save_picture_743272.jpg" />
 </div>
 
 
@@ -310,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742154.jpg" />
+  <img src="Z:/picture/008/save_picture_742154.jpg" />
 </div>
 
 
@@ -339,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741293.jpg" />
+  <img src="Z:/picture/008/save_picture_741293.jpg" />
 </div>
 
 
@@ -365,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739602.jpg" />
+  <img src="Z:/picture/008/save_picture_739602.jpg" />
 </div>
 
 
@@ -391,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736391.jpg" />
+  <img src="Z:/picture/008/save_picture_736391.jpg" />
 </div>
 
 
@@ -420,7 +509,7 @@ Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736297.jpg" />
+  <img src="Z:/picture/008/save_picture_736297.jpg" />
 </div>
 
 
@@ -449,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735848.jpg" />
+  <img src="Z:/picture/008/save_picture_735848.jpg" />
 </div>
 
 
@@ -478,7 +567,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735458.jpg" />
+  <img src="Z:/picture/008/save_picture_735458.jpg" />
 </div>
 
 
@@ -507,7 +596,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734067.jpg" />
+  <img src="Z:/picture/008/save_picture_734067.jpg" />
 </div>
 
 
@@ -536,7 +625,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734064.jpg" />
+  <img src="Z:/picture/008/save_picture_734064.jpg" />
 </div>
 
 
@@ -565,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733188.jpg" />
+  <img src="Z:/picture/008/save_picture_733188.jpg" />
 </div>
 
 
@@ -594,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733146.jpg" />
+  <img src="Z:/picture/008/save_picture_733146.jpg" />
 </div>
 
 
@@ -623,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729116.jpg" />
+  <img src="Z:/picture/005/save_picture_729116.jpg" />
 </div>
 
 
@@ -634,93 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022468   (728579) от 02.06.2016
-
-Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mr. Big - американская рок-группа, образованная в 1988 году и известная в России главным образом благодаря хиту «Wild World». В 1988 году бас-гитарист Билли Шихэн покинул группу Дэвида Ли Рота и задумался о собственном проекте. Команда в составе вокалиста Эрика Мартина, гитариста-виртуоза Пола Гилберта и барабанщика Пета Торпи. 1991 году. Огромную популярность группа (   Читать дальше...   )1. Daddy, Brother, Lover, Little Boy (The Electric Drill Song)
-2. Gotta Love The Ride
-3. American Beauty
-4. Undertow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64EB9E0503887A19DE7762052EF4B884CDE6587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022876   (727475) от 03.06.2016
-
-Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727475.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом концерте Lynyrd Skynyrd вернутся туда, где все когда-то начиналось. Вернутся в Джексонвилль, штат Флорида. Вернутся в город. Вернутся на землю, которая давала пищу как музыкальной, так и лирической составляющей большинства американских групп.01. I AIN'T THE ONE
-02. TUESDAY'S GONE
-03. GIMME THREE STEPS
-04. SIMPLE MAN(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9949550A76D1F1AA7EB79C02D1A95088A46AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530909   (726607) от 13.02.2022
-
-Квартирник у Маргулиса. Максим Леонидов и Hippoband (13.02.2022) WEBRip [VP9/2160p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Hippoband образовалась в далеком 1996-м: с тех прошло около 26 лет, и за это время состав коллектива поменялся всего один раз — в 1997-м. А вот название коллективу дал их альбом Hippotazm и опечатка, допущенная гитаристом и аранжировщиком Владимиром Густовым. В гостях у Евгения Маргулиса музыканты поделились интересными воспоминаниями и исполнили песни, покорившие (   Читать дальше...   )00:00:00 Квартирник
-00:00:05 Видение
-00:06:22 7 утра
-00:14:10 Питерские коты(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Rock, PopЯзык озвучки: РусскийПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B019A5748427BBF0587D4127C3898A347131AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

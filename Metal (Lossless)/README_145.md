@@ -1,3 +1,90 @@
+###  Публикация: 1566047   (486394) от 27.07.2022
+
+Sacral Night - Le Diademe D'argent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Les miroirs de la lune (00:03:59)
+02 - Par dela les lueurs sepulcrales (00:01:26)
+03 - L'archange aux yeux de feu (00:03:57)
+04 - Conquerant des lumieres (00:04:21)(   Читать дальше...   )Жанр: Heavy, Death MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5CA94BDE7446071D4DF3FDE43DF456AA629126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566042   (486390) от 27.07.2022
+
+Riptide - Masters of the Apocalypse (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smoke (00:04:51)
+02 - Masters of the Apocalypse (00:06:33)
+03 - Fatal Retribution (00:06:04)
+04 - Cage of Regret (00:07:25)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227A69C18C11C23262D6556101FA9495E11AA835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319167   (486342) от 10.08.2019
+
+Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insert Coin (01:40)
+02. Unsainted (04:21)
+03. Birth of the Cruel (04:36)
+04. Death Because of Death (01:20)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0F780070E5BBC4EDE7B7524FA1E77F294DE904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159050   (486255) от 19.08.2017
 
 Сryоniс Теmple - In Thу Роwer (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -6,7 +93,7 @@
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486255.jpg" />
+  <img src="Z:/picture/008/save_picture_486255.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485836.jpg" />
+  <img src="Z:/picture/008/save_picture_485836.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Akiavel - V (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485833.jpg" />
+  <img src="Z:/picture/008/save_picture_485833.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Agonist - Orphans (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485731.jpg" />
+  <img src="Z:/picture/008/save_picture_485731.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ John Petrucci - Terminal Velocity (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485462.jpg" />
+  <img src="Z:/picture/008/save_picture_485462.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Crematory - Unbroken (2020) 2xCD [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485460.jpg" />
+  <img src="Z:/picture/008/save_picture_485460.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tomb Mold - Planetary Clairvoyance (2019) [FLAC|Lossless|tracks + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484726.jpg" />
+  <img src="Z:/picture/008/save_picture_484726.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Transmetal - Peregrinacion A La Cabeza De Cristo (2014) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484616.jpg" />
+  <img src="Z:/picture/008/save_picture_484616.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ The Xebellian Triangle - At The Banks Of The Rubicon (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484554.jpg" />
+  <img src="Z:/picture/008/save_picture_484554.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Municipal Waste - Electrified Brain (2022) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484552.jpg" />
+  <img src="Z:/picture/008/save_picture_484552.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Dark Funeral - 5 Albums, 1 EP (1994-2009) 7CD, Limited Edition, Reissue 2013 [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484519.jpg" />
+  <img src="Z:/picture/008/save_picture_484519.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Anthrax - XL (MCMLXXXI - MMXXII) (2022) 2xCD, Live [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484422.jpg" />
+  <img src="Z:/picture/008/save_picture_484422.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Nopresion - Sobre Fosas Y Vampiros (1995) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484267.jpg" />
+  <img src="Z:/picture/008/save_picture_484267.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Aspid - Babel (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484261.jpg" />
+  <img src="Z:/picture/008/save_picture_484261.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Mob Rules - Beast Reborn (2018) 2CD, Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484193.jpg" />
+  <img src="Z:/picture/008/save_picture_484193.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Primal Fear - Apocalypse (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484106.jpg" />
+  <img src="Z:/picture/008/save_picture_484106.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Laaz Rockit (Lääz Rockit) - No Stranger To Danger (1985) Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483681.jpg" />
+  <img src="Z:/picture/008/save_picture_483681.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Laaz Rockit (Lääz Rockit) - Know Your Enemy (1987) Reissue, Remastered, 2009, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483534.jpg" />
+  <img src="Z:/picture/008/save_picture_483534.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Evanescence - Fallen (2003) [APE|Lossless|tracks] <Alternative, Nu Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482726.jpg" />
+  <img src="Z:/picture/008/save_picture_482726.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ WarWolf - Necropolis (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482437.jpg" />
+  <img src="Z:/picture/008/save_picture_482437.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Trinity - Memories of the Ancient Presence (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482435.jpg" />
+  <img src="Z:/picture/008/save_picture_482435.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Heathen - Breaking the Silence (1987) Remaster, 1999, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482202.jpg" />
+  <img src="Z:/picture/008/save_picture_482202.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482037.jpg" />
+  <img src="Z:/picture/008/save_picture_482037.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCBE0F8D01EF09D3475C5E3E6113F77D188EDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244425   (482034) от 01.09.2018
-
-U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tongue Reaper
-02. Make The Move
-03. Keeper Of My Soul
-04. In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70E866860E6A9DF6FC3D87C3864008D84BF7A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938361   (481952) от 18.09.2015
-
-Leaves' Eyes - King Of Kings (2015) Deluxe Edition [FLAC|image+.cue]<Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweven
-02. King of Kings
-03. Halvdan the Black
-04. The Waking Eye(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288D774395C9E3CC24504357FCD56B9282534758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938412   (481825) от 18.09.2015
-
-Crossfaith – XENO (2015) Deluxe Edition [FLAC|Lossless]<Alt. Metal | Metalcore | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Xeno
-03. Raise Your Voice
-04. Devil's Party(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Metalcore | ElectronicПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2EC4EE4230F1A32D66B328392299388996B42E
 ```
 
 https://mybot314.ru/tekegram_catalog/

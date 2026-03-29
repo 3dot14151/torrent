@@ -1,3 +1,212 @@
+###  Публикация: 1082834   (865483) от 23.02.2017
+
+WonderFox DVD Ripper Pro 8.4 RePacK by Dinis124 [Ru] (обновляемая)
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865483.jpg" />
+</div>
+
+
+###  Подробнее
+
+WonderFox DVD Ripper является мощным и профессиональным риппером. Это одно из лучших решений для копирования содержания DVD-дисков для широкого спектра основных видео форматов, такие как AVI, MP4, VOB , MKV , MPEG, MOV , FLV, WMV, 3GP и т.д. Обычно занимает около 50 минут, чтобы рипнуть 100 минутный DVD в AVI ( Разрешение: 720 * 480, Видео битрейт: 2000, кадров в (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22C5A79D4EE4FC1C4D1E51910B57CD2A8A9FE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109003   (860194) от 26.02.2017
+
+Harmonic ProMedia Carbon 3.27.0.50553 RePack by AlekseyPopovv [En]
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harmonic ProMedia Carbon (Carbon Coder) - универсальный транскодер медиафайлов профессионального уровня с широчайшими возможностями, "сердцем" которого является первоклассный mpeg2 енкодер. Поддерживая работу с большинством распространенных форматов, ProMedia™ Carbon постоянно обновляется в соответствии с появлением новых форматов. ProMedia™ Carbon может (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FAD27DA6D378805120D5DF418CB6C8FD3231A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378886   (842282) от 27.04.2020
+
+Wondershare Filmora Effect Packs 2 RePack by elchupacabra [Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор эффектов для работы с видеоредактором Wondershare Filmora 9. В набор входит 31 пакет.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB0A35FFCAC8357B419B569C370E1E84038DD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113427   (837725) от 11.03.2017
+
+AquaSoft SlideShow 10 Ultimate 10.4.08 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837725.jpg" />
+</div>
+
+
+###  Подробнее
+
+AquaSoft SlideShow — инструмент для создания и просмотра домашнего видео, создания 4K HD слайд-шоу из ваших фотографий для последующего просмотра получившегося результата по телевизору. Комбинируйте фотографии, видео и музыку, используя огромную палитру специальных эффектов и мощные инструменты, такие как мульти-трековую тайм-линию, раскадровку и макеты дизайна для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657C8FED34DA5FF2875502B37E184A43E3F15682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196249   (825976) от 01.01.2018
+
+AnyMP4 DVD Creator 7.2.6 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825976.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 DVD Creator – профессиональная программа, которая позволяет создавать и записывать DVD из файлов популярных видео форматов, таких, как 3GP, AVI, MP4, TS, FLV, MKV, а также создавать DVD-папки и ISO-файлы. Созданный DVD-диск без проблем можно будет воспроизвести на большинстве портативных и домашних DVD-плеерах.
+Кроме того, AnyMP4 DVD Creator позволяет редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAEED957BBBD304B54C04FBA4F5282BEFE2C516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381501   (825932) от 07.05.2020
+
+GiliSoft Video Editor 12.2.0 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и многофункциональный видеоредактор. С его помощью можно обрезать черные полосы по краям видео, вырезать из видео ненужные фрагменты, склеить несколько видеоклипов в один ролик, повернуть видео, добавить визуальные эффекты, наложить на видео водяной знак. В Gilisoft Video Editor также есть инструменты для наложения фоновой музыки на видео и работы с субтитрами.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE65B14D2BAB80CF95D8EB0AEACBCF1A21D9997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196726   (820423) от 04.01.2018
+
+Wondershare Video Converter Ultimate 10.2.1 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Video Converter Ultimate — представляет собой полноценное решение для копирования/записи: DVD, IFO, ISO, видео и аудио конвертирования, онлайн-видео загрузки и передачи файлов на портативные устройства. Программа имеет простой в использовании и приятный интерфейс, а благодаря поддержке технологии NVIDIA® CUDA обладает высокой скоростью конвертирования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF713732427263C0EAC607B4EF68574C525AFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117394   (818568) от 22.03.2017
+
+Replay Media Splitter 3.0.1703.9 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_818568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Replay Media Splitter – простой редактор для разрезания и соединения аудио и видео файлов. Редактирование выполняется без преобразования. Поэтому сохраняется исходное качество материала при высокой скорости обработки. Загруженные в программу видео или аудио файлы можно делить на части. Можно объединять в один файл, при условии совпадения форматов. Можно вырезать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3C17CF361BE957E29230717BC89681959EAB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117816   (814768) от 24.03.2017
 
 VSO Blu-ray Converter Ultimate 4.0.0.60 [Multi/Ru]
@@ -6,7 +215,7 @@ VSO Blu-ray Converter Ultimate 4.0.0.60 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814768.jpg" />
+  <img src="Z:/picture/008/save_picture_814768.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ ProDAD ProDRENALIN 2.0.27 Repack by Team.V.R [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801010.jpg" />
+  <img src="Z:/picture/008/save_picture_801010.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ Adobe Media Encoder 2022 (22.0.0.107) Portable by XpucT [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790713.jpg" />
+  <img src="Z:/picture/008/save_picture_790713.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ Microsoft Hyperlapse Pro 1.6.116 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788907.jpg" />
+  <img src="Z:/picture/008/save_picture_788907.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ Imagineer Systems Mocha PRO 5.6.0 Build 1601 [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788863.jpg" />
+  <img src="Z:/picture/008/save_picture_788863.jpg" />
 </div>
 
 
@@ -138,7 +347,7 @@ MakeMKV 1.14.2 beta [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788410.jpg" />
+  <img src="Z:/picture/008/save_picture_788410.jpg" />
 </div>
 
 
@@ -164,7 +373,7 @@ JPEXS Free Flash Decompiler 14.6.0 + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787828.jpg" />
+  <img src="Z:/picture/008/save_picture_787828.jpg" />
 </div>
 
 
@@ -190,7 +399,7 @@ VSO DVD Converter Ultimate 4.0.0.60 Final [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786285.jpg" />
+  <img src="Z:/picture/008/save_picture_786285.jpg" />
 </div>
 
 
@@ -216,7 +425,7 @@ GiliSoft Video Converter 10.4.0 RePack by Manshet [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784344.jpg" />
 </div>
 
 
@@ -242,7 +451,7 @@ Aiseesoft HD Video Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783448.jpg" />
+  <img src="Z:/picture/008/save_picture_783448.jpg" />
 </div>
 
 
@@ -268,7 +477,7 @@ SolveigMM Video Splitter 7.3.2006.08 Business Edition + Portable [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783007.jpg" />
+  <img src="Z:/picture/008/save_picture_783007.jpg" />
 </div>
 
 
@@ -294,7 +503,7 @@ Aiseesoft Total Media Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782500.jpg" />
+  <img src="Z:/picture/008/save_picture_782500.jpg" />
 </div>
 
 
@@ -320,7 +529,7 @@ Video Rotator 3.0.3 RePack by KaktusTV [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766821.jpg" />
+  <img src="Z:/picture/008/save_picture_766821.jpg" />
 </div>
 
 
@@ -346,7 +555,7 @@ XviD4PSP 7.0.466 DAILY [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765866.jpg" />
+  <img src="Z:/picture/008/save_picture_765866.jpg" />
 </div>
 
 
@@ -373,7 +582,7 @@ Rubber Monkey FilmConvert Pro 2.39 for After Effects and Premiere Pro RePack by 
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765036.jpg" />
+  <img src="Z:/picture/008/save_picture_765036.jpg" />
 </div>
 
 
@@ -401,7 +610,7 @@ GENARTS sapphire OFX 11.0.1 RePack by Team VR [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762760.jpg" />
+  <img src="Z:/picture/008/save_picture_762760.jpg" />
 </div>
 
 
@@ -430,7 +639,7 @@ Video Repair Utility 4.0.0.0 Portable [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758010.jpg" />
+  <img src="Z:/picture/008/save_picture_758010.jpg" />
 </div>
 
 
@@ -459,7 +668,7 @@ VSDC Free Video Converter 2.4.7.339 [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756439.jpg" />
+  <img src="Z:/picture/008/save_picture_756439.jpg" />
 </div>
 
 
@@ -471,214 +680,6 @@ VSDC Free Video Converter 2.4.7.339 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72080378247DE2B97A4DA55E8DAED927E87E3F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216556   (747269) от 01.04.2018
-
-VideoPad Video Editor Professional 6.01 [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747269.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoPad предлагает средства для быстрого и лёгкого создания видео профессионального качества. Монтируя свой фильм, вы можете использовать видео ролики с web-камеры или видеомагнитофона, объединяя их с помощью эффектов перехода. Программа располагает совершенными инструментами настройки звука и цвета, средствами оптимизации видео. Создавайте собственное видео, делитесь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF09D08A86908CF51FC36A8E9CF9CA96FCDFD66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217622   (740750) от 06.04.2018
-
-VideoSolo DVD Creator 1.2.6 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740750.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoSolo DVD Creator - это програма для создания собственного меню DVD. Запись ваших собственных DVD-дисков выполняется всего за три шага. Хороший интерфейс и иллюстрированная панель инструментов делают весь процесс простым от начала до конца. Просто импортируйте медиафайлы или видеофайлы, которые вы хотите записать на DVD, создайте свое собственное меню DVD. Создание (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C90DF64A4FEC487393BA1DEDBE3E47EC8A07B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217863   (740641) от 06.04.2018
-
-Aiseesoft Video Enhancer 9.2.18 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Enhancer - лучший редактор видео в линейке программного обеспечения от надежного разработчика Aiseesoft. Программа специально создана для того, чтобы улучшить качество, повысить разрешение фильмов, удалить фоновый шум, убирая или сглаживая артефакты. Поддерживает самые передовые форматы - 4K, UHD, HEVC. Особенно удобна для домашнего видео, когда съемка производилась (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BEC173EF8AA8C073545AD5A5D1A46521841613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217662   (740536) от 06.04.2018
-
-Digital Anarchy Beauty Box Video 4.2.1 (AE+OFX) RePack by PooShock [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это следующее поколение в ретуши кожи на видео. Используя передовые технологии, такие как Face Detection, этот плагин автоматически определяет тон кожи, сохраняя важные черты лица. Beauty Box делает процесс ретуширования видео в After Effects, Premiere Pro, Sony Vegas и Avid проще, чем когда-либо. Попрощайтесь с ручными масками или ретушированием кадр за кадром!Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A835DC39537C80497C74BBA5C2E33165A05397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529812   (731382) от 08.02.2022
-
-ВидеоМАСТЕР 12.8 RePack (& Portable) by elchupacabra [Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731382.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВидеоМАСТЕР - универсальный видео конвертер с возможностью записи DVD дисков. Программа позволяет быстро конвертировать видео в любой формат, включая ролики высокого разрешения и онлайн-видео. Конвертер включает более 320 готовых настроек видео для мобильных устройств (плееров, телефонов, игровых приставок) и популярных сайтов, таких как YouTube, Vimeo, ВКонтакте (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39DD03D27E6D9FBEFFC2418F5074BA43128BF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218455   (723210) от 09.04.2018
-
-Tipard DVD Ripper 9.2.18 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard DVD Ripper - мощная и простая в использовании программа для копирования DVD-дисков с возможностью преобразования содержания в аудио и видео файлы, такие как AVI, MPEG, WMV, DivX, MP4, H.264, RM, MOV, M4V, XviD, 3GP, MP3 , WMA, WAV, RA, M4A, AAC, AC3, OGG и т.д. Программа может создавать файлы совместимые с IPod, iPhone, PSP, Apple TV и другими портативными (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81694C18999B1E21586D61166B5604401F2B525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218469   (723114) от 09.04.2018
-
-Tipard Video Enhancer 9.2.18 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Enhancer - редактор видео в линейке программного обеспечения от компании Tipard Studio. Обеспечивает улучшение качества отснятого видео материала, удаляет фоновый шум, убирает или сглаживает артефакты. Располагает самой передовой технологией, позволяющей повысить видео низкого разрешения до более высоких значений. Например, Вы можете достичь разрешения от 480p (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F1546101D5587CC421B79BA14BCE0E7DD94E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129793   (718428) от 30.04.2017
-
-Tipard HD Video Converter 9.2.12 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard HD Video Converter - программа, видео конвертер файлов различных форматов в HD видео, поддержка HD TS, HD MTS, HD WMV, HD MPG, HD MPEG4, H.264/AVC , HD AVI, HD ASF и других видео форматов, поддержка High-Definition (HD) видео кодирования и декодирования, извлечение аудио в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA и другие аудио форматы, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73978D2312D096C9AC9F3FABB7DD98CC4E104D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

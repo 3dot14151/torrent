@@ -1,3 +1,84 @@
+###  Публикация: 1403196   (694275) от 18.08.2020
+
+Андрей Жвалевский, Евгения Пастернак | Я хочу в школу! (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весёлая, живая, немного наивная книга «Я хочу в школу!» адресована всем любителям школьных приключений. В городе N создали удивительное учебное заведение, где нет обычных классов, а есть разновозрастные группы учеников, подобранные по психологической совместимости. Вместо уроков – увлекательные проекты, вместо физкультуры – занятия с лучшими хореографами или походы (   Читать дальше...   )Жанр: Книги для подростковПродолжительность: 07:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF333D2D617E162B4A85534821520584A278A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403192   (694267) от 18.08.2020
+
+Владимир Алеников | Пантелей, Пугало и отличница Перышкина (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694267.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вас ждет несколько необыкновенных, даже сказочных, историй! Некоторые из них – про Чучело-Мяучело, про Пантелея и Пугало – знакомы многим по замечательным мультфильмам, с остальными читатель встретится впервые! Для младшего школьного возраста.Жанр: Детская литература/ПриключенияПродолжительность: 03:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DB042174014E6F217B8B56EC26577F72B0E8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403181   (694261) от 18.08.2020
+
+Группа Маэстро - Котоёжик. Песни Сергея Светлова (2020) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Котоёжик
+02. Когда вырасту
+03. Ленивая песенка
+04. Принцесса(   Читать дальше...   )Жанр: Детские песниПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34119C31494750C627F66C75F1C0C0EE720E61FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133739   (692951) от 13.05.2017
 
 Александр Пушкин | Евгений Онегин. Поэмы (2004) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692951.jpg" />
+  <img src="Z:/picture/008/save_picture_692951.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692874.jpg" />
+  <img src="Z:/picture/008/save_picture_692874.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692577.jpg" />
+  <img src="Z:/picture/008/save_picture_692577.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692448.jpg" />
+  <img src="Z:/picture/008/save_picture_692448.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692442.jpg" />
+  <img src="Z:/picture/008/save_picture_692442.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692336.jpg" />
+  <img src="Z:/picture/008/save_picture_692336.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690874.jpg" />
+  <img src="Z:/picture/008/save_picture_690874.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ MadHotaru | Метка Судьбы (2015) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690869.jpg" />
+  <img src="Z:/picture/008/save_picture_690869.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690737.jpg" />
+  <img src="Z:/picture/008/save_picture_690737.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690699.jpg" />
+  <img src="Z:/picture/008/save_picture_690699.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690696.jpg" />
+  <img src="Z:/picture/008/save_picture_690696.jpg" />
 </div>
 
 
@@ -297,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690693.jpg" />
+  <img src="Z:/picture/008/save_picture_690693.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690692.jpg" />
+  <img src="Z:/picture/008/save_picture_690692.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690601.jpg" />
+  <img src="Z:/picture/008/save_picture_690601.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688640.jpg" />
+  <img src="Z:/picture/008/save_picture_688640.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688639.jpg" />
+  <img src="Z:/picture/008/save_picture_688639.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688638.jpg" />
+  <img src="Z:/picture/008/save_picture_688638.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688564.jpg" />
+  <img src="Z:/picture/008/save_picture_688564.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687836.jpg" />
+  <img src="Z:/picture/008/save_picture_687836.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687343.jpg" />
+  <img src="Z:/picture/008/save_picture_687343.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686596.jpg" />
+  <img src="Z:/picture/008/save_picture_686596.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686595.jpg" />
+  <img src="Z:/picture/008/save_picture_686595.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686581.jpg" />
+  <img src="Z:/picture/008/save_picture_686581.jpg" />
 </div>
 
 
@@ -608,86 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB52BB6597B783B46D5A169034DC50B810CE42FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028743   (686484) от 24.06.2016
-
-Наринэ Абгарян , Валентин Постников | Шоколадный дедушка (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию аудиокнигу «Шоколадный дедушка», записанную на студии АРДИС. Эта смешная, добрая, и очень вкусная сказочная повесть Наринэ Абгарян и Валентина Постникова обязательно понравится маленьким сластёнам и сладкоежкам. Ведь в ней полно волшебства, тайн и весёлых сладких приключений!
-
-В норвежском городе Бергене живёт самая обычная семья – мама, (   Читать дальше...   )Жанр: СказкаПродолжительность: 04:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B234BF0D9D356DDFE17253A280990CB9567176CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126779   (686168) от 22.08.2020
-
-Альберт Иванов | Хома и Суслик. Всё о Хоме и Суслике (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686168.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник известного писателя входят 8 сборников сказок приключениях знаменитого хвастуна — хомяка Хомы, его лучшего друга — пугливого мудреца Суслика, их осторожных приятелей и коварных врагов. Эти герои знакомы ребятам по нескольким книжкам и серии мультфильмов. В книге представлены и новые сказки, которые нигде раньше не публиковались..Жанр: СказкиПродолжительность: 13:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D3DF760D35A3E9E41B8791891265DF45CF07EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507294   (685999) от 07.06.2012
-
-И. А. Крылов | Басни (1996) [MP3, Игорь Ильинский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иван Андреевич Крылов – русский баснописец, драматург, журналист, автор более 200 басен. В баснях Крылов высмеивал общественные и человеческие пороки. В жизни – нарочито отстранялся от общества, подчеркивал собственные пороки: лень, чревоугодие, неряшливость, увлеченность картами. Современниками он часто воспринимался как литературный персонаж – был действующим лицом (   Читать дальше...   )Жанр: Басни, Детская литератураЯзык: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7941192B9A8D1502EEF1FB2F8DA234AB835293E
 ```
 
 https://mybot314.ru/tekegram_catalog/

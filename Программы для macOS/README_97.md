@@ -1,3 +1,133 @@
+###  Публикация: 1573220   (415055) от 30.08.2022
+
+FiveNotes 2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415055.jpg" />
+</div>
+
+
+###  Подробнее
+
+FiveNotes (ранее известный как Quick) — это небольшой текстовый редактор, к которому вы всегда можете получить доступ, щелкнув (или нажав клавиши быстрого доступа) на его значке в меню баре, даже если вы работаете в полноэкранном приложении. Если вы предпочитаете, он может оставаться поверх окна, чтобы его можно было использовать в качестве шпаргалки. FiveNotes предлагает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2022Разработчик: © 2017-2022 ApptoriumПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8D4FB7483E969653DA70FCA27D282D3458B392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573208   (414915) от 30.08.2022
+
+QuickLinks 2.9 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414915.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickLinks - это приложение для создания пользовательских сочетаний клавиш. Можно создать ярлык для любого любимого или регулярно используемого файла, папки, документа, приложения и т. д. Сначала выберите файл, чтобы создать ярлык для легкого доступа. Значок в строке состояния обеспечивает быстрый доступ к списку созданных ярлыков.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2017-2022 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F325D928AD64F0E41DEF88E895CB4527C89173C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573159   (414911) от 30.08.2022
+
+Dark Mode Switch 1.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Mode Switch - это приложение, которое позволяет быстро переключаться со светлого режима на внешний вид темного режима одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 12.08.2022Разработчик: © 2022 Roberto PanettaПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F1C0ED6FB7A1C2230DC79AD70435F57199BA16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573278   (414782) от 30.08.2022
+
+TextMan 1.7.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414782.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499638E75222EFD37603315054CD1FA52FA2B6F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573109   (414780) от 30.08.2022
+
+Wake on Lan for Mac 1.0.3 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Wake on Lan для быстрого пробуждения по локальной сети ваших устройств из строки меню.Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 2022 Lumibit GmbHПоддерживаемая ОС: macOS 12.0+Язык интерфейса: https://apps.apple.com/app/wake-on-lan-menu-bar/id1624703732
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357525D1028DC7708017B8656F61D4D23D10A96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573211   (414757) от 30.08.2022
 
 One Switch 1.26.1 [En]
@@ -6,7 +136,7 @@ One Switch 1.26.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414757.jpg" />
+  <img src="Z:/picture/008/save_picture_414757.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Flowstate 1.33 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414753.jpg" />
+  <img src="Z:/picture/008/save_picture_414753.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ Wondershare DVD Creator 6.1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414654.jpg" />
+  <img src="Z:/picture/008/save_picture_414654.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ Cool Menu 1.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414644.jpg" />
+  <img src="Z:/picture/008/save_picture_414644.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ Chaos Control Premium 1.16 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414642.jpg" />
+  <img src="Z:/picture/008/save_picture_414642.jpg" />
 </div>
 
 
@@ -141,7 +271,7 @@ Boring Old Menu Bar 1.23 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414634.jpg" />
+  <img src="Z:/picture/008/save_picture_414634.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ SmartSound SonicFire Pro 6 v.6.6.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414624.jpg" />
+  <img src="Z:/picture/008/save_picture_414624.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ GoodTimes 1.3.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414467.jpg" />
+  <img src="Z:/picture/008/save_picture_414467.jpg" />
 </div>
 
 
@@ -221,7 +351,7 @@ KeyKey — Typing Practice 2.9.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414422.jpg" />
+  <img src="Z:/picture/008/save_picture_414422.jpg" />
 </div>
 
 
@@ -249,7 +379,7 @@ OS X Server 3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413955.jpg" />
+  <img src="Z:/picture/008/save_picture_413955.jpg" />
 </div>
 
 
@@ -277,7 +407,7 @@ Apple Aperture 3.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413947.jpg" />
+  <img src="Z:/picture/008/save_picture_413947.jpg" />
 </div>
 
 
@@ -303,7 +433,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413194.jpg" />
+  <img src="Z:/picture/008/save_picture_413194.jpg" />
 </div>
 
 
@@ -331,7 +461,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413162.jpg" />
+  <img src="Z:/picture/008/save_picture_413162.jpg" />
 </div>
 
 
@@ -360,7 +490,7 @@ JetBrains PhpStorm 2020.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413149.jpg" />
+  <img src="Z:/picture/008/save_picture_413149.jpg" />
 </div>
 
 
@@ -388,7 +518,7 @@ Templates Lab for MS Office 3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413019.jpg" />
+  <img src="Z:/picture/008/save_picture_413019.jpg" />
 </div>
 
 
@@ -416,7 +546,7 @@ DayRate - Currency Converter 5.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412662.jpg" />
+  <img src="Z:/picture/008/save_picture_412662.jpg" />
 </div>
 
 
@@ -442,7 +572,7 @@ AnyTrans v6.0.1 (20170920)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412598.jpg" />
+  <img src="Z:/picture/008/save_picture_412598.jpg" />
 </div>
 
 
@@ -469,7 +599,7 @@ Animated Wallpapers 1.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412528.jpg" />
+  <img src="Z:/picture/008/save_picture_412528.jpg" />
 </div>
 
 
@@ -495,7 +625,7 @@ Cisdem Data Recovery 13.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412385.jpg" />
+  <img src="Z:/picture/008/save_picture_412385.jpg" />
 </div>
 
 
@@ -521,7 +651,7 @@ Photo Batcher 1.2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412248.jpg" />
+  <img src="Z:/picture/008/save_picture_412248.jpg" />
 </div>
 
 
@@ -549,7 +679,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.113 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412242.jpg" />
+  <img src="Z:/picture/008/save_picture_412242.jpg" />
 </div>
 
 
@@ -563,142 +693,6 @@ SQL Client представляет собой легкий клиент баз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B733466FF39A6F7F8D328D5913E7124FD1A89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252183   (411167) от 04.10.2018
-
-Desktop Curtain 3.0.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Desktop Curtain - это простой инструмент, чтобы скрыть беспорядок на рабочем столе и помочь вам сосредоточиться на основной задаче. Это идеальный вариант для преподавателей, ведущих, писателей, разработчиков и кого-либо еще, кто ненавидит беспорядок и/или тем, кому необходимо делать скриншоты с чистых фоновых изображений.
-
-Зачем тратить время на перемещение файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AD45291475DE0B157364DA0F302D7249A880EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252113   (411165) от 04.10.2018
-
-Org Chart Designer Pro 2 v2.28 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Org Chart Designer Pro позволяет создавать и публиковать профессиональные организационные диаграммы и сетевые диаграммы.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A72B906CC7B933FB46D5E2233E0D3E956BD2CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948665   (410634) от 20.10.2015
-
-Mathworks Matlab R2015b (8.6.0.267246) [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования для инженерных и математических расчетов. Обширная библиотека функций упрощает работу (в частности графическое отображение данных)
-
-MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (C/C++, Java, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 сентября 2015Разработчик: The MathWorks, Inc.Поддерживаемая ОС: 10.9.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CAA015C22B17DB689DA490C1513CBB238CCA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573614   (410412) от 01.09.2022
-
-Theine 3.4.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не позволяйте компьютеру Mac заснуть, затемнению экрана или запуску заставки. Theine не дает уснуть macOS, как кофеин внутри вас.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2015–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8CB37231E07382334A0E28B8EB1C8B6768D366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573739   (410402) от 01.09.2022
-
-Bootstrap Studio 6.1.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 Zine EOODПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C3851CA91AC9103BD1AEEEEAD8F47D9E627A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

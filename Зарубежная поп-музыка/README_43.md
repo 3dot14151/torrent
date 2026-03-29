@@ -1,3 +1,32 @@
+###  Публикация: 1308612   (553733) от 15.06.2019
+
+VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tommy Fischer - Du machst mich kopflos
+02. Kay Dörfel - Malinconia
+03. Michael Fischer - Unser Moment
+04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: Schlager & Volksmusik, Neue Deutsche Welle, DiscoПродолжительность: 05:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEE6C60302D56D7B337ADECBEC1F1FC533F3189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308615   (553730) от 15.06.2019
 
 VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +35,7 @@ VA - Megahits Sommer 2019 (2019) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553730.jpg" />
+  <img src="Z:/picture/008/save_picture_553730.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Madonna - Madame X (2019) (Japanese Edition) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553710.jpg" />
+  <img src="Z:/picture/008/save_picture_553710.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - 30 Spaß Party Hits (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553537.jpg" />
+  <img src="Z:/picture/008/save_picture_553537.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Fun Radio le Son Dancefloor Summer 2019 (2019) 3CD [MP3|320 Kbps] <Electrop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553533.jpg" />
+  <img src="Z:/picture/008/save_picture_553533.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Radio Italia Summer Hits 2019 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553518.jpg" />
+  <img src="Z:/picture/008/save_picture_553518.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - 100X Zomer (2018) 5CD [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553313.jpg" />
+  <img src="Z:/picture/008/save_picture_553313.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ingrid Michaelson - It Doesn't Have to Make Sense (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552947.jpg" />
+  <img src="Z:/picture/008/save_picture_552947.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Ultimate 60S: The Classics (2019) 5CD [MP3|320 Kbps] <Pop, Soul, Reggae, Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552808.jpg" />
+  <img src="Z:/picture/008/save_picture_552808.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Celine Dion - Encore un soir (2016) Deluxe Edition [MP3|320 Kbps] <Pop, French C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552789.jpg" />
+  <img src="Z:/picture/008/save_picture_552789.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Gayalaxy - EP & Album (2017, 2018) [MP3|320 Kbps] <Electronic, Ambient, Downtemp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552473.jpg" />
+  <img src="Z:/picture/008/save_picture_552473.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - We Love Summer (2018) 2CD [MP3|320 Kbps] <Dance, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551535.jpg" />
+  <img src="Z:/picture/008/save_picture_551535.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - 55 Hits Été 2019 (2019) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550448.jpg" />
+  <img src="Z:/picture/008/save_picture_550448.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - The Summer Album 2019 (2019) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550440.jpg" />
+  <img src="Z:/picture/008/save_picture_550440.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Zucchero - Oro Incenso & Birra 30th Anniversary Edition (2019) [MP3|320 Kbps] <P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550238.jpg" />
+  <img src="Z:/picture/008/save_picture_550238.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Global (2016) [MP3|192 Kbps] <Indie Pop, Dream Pop, New Wave>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549246.jpg" />
+  <img src="Z:/picture/008/save_picture_549246.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Schlager Sommer Wahnsinn (2019) [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548851.jpg" />
+  <img src="Z:/picture/008/save_picture_548851.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Ballermann Hits 2019 (XXL Fan Edition) (2019) [MP3|320 Kbps] <Pop, Schlager
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548836.jpg" />
+  <img src="Z:/picture/008/save_picture_548836.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sailor - 2 Albums (1976, 1977) LP [MP3|320 Kbps] <Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547852.jpg" />
+  <img src="Z:/picture/008/save_picture_547852.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Various Artists - Hits 2013 Vol-2 (2013) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547648.jpg" />
+  <img src="Z:/picture/008/save_picture_547648.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Maroon 5 - V (2014) Deluxe Edition [MP3|320 кб/с]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547542.jpg" />
+  <img src="Z:/picture/008/save_picture_547542.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547008.jpg" />
+  <img src="Z:/picture/008/save_picture_547008.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546426.jpg" />
+  <img src="Z:/picture/008/save_picture_546426.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545493.jpg" />
+  <img src="Z:/picture/008/save_picture_545493.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544537.jpg" />
+  <img src="Z:/picture/008/save_picture_544537.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ VA - Top Of The Pops: Love (3CD) (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543772.jpg" />
+  <img src="Z:/picture/008/save_picture_543772.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E2956F9FF25FA02AF3B21C72E6252B26AF4EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049563   (543665) от 05.09.2016
-
-Елена Войнаровская (Fleur) - Присутствие (2016) [MP3|320 Kbps] <Art Pop, Chamber Pop, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сольный альбом является фактическим последователем альбома "Вальсирующие во тьме" (2012) сайд-проекта МРФ.01. Присутствие
-02. Карфаген
-03. Двое у окна
-04. Кофейные зернышки(   Читать дальше...   )Жанр: Art Pop, Chamber Pop, Dream PopПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8D4F3AD3A4BD096479D8182FF3FFD709DA325C
 ```
 
 https://mybot314.ru/tekegram_catalog/

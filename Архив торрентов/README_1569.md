@@ -6,7 +6,7 @@ WinNTSetup 5.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695533.jpg" />
+  <img src="Z:/picture/008/save_picture_695533.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iTubeGo YouTube Downloader Pro 5.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695523.jpg" />
+  <img src="Z:/picture/008/save_picture_695523.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695518.jpg" />
+  <img src="Z:/picture/008/save_picture_695518.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.527]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695515.jpg" />
+  <img src="Z:/picture/008/save_picture_695515.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ K-Lite Codec Pack Update 11.1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695482.jpg" />
+  <img src="Z:/picture/008/save_picture_695482.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ IObit Uninstaller 4.3.0.122 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695473.jpg" />
+  <img src="Z:/picture/008/save_picture_695473.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695468.jpg" />
+  <img src="Z:/picture/008/save_picture_695468.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ USDownloader 1.3.5.9 (08.05.2015) Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695464.jpg" />
+  <img src="Z:/picture/008/save_picture_695464.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695463.jpg" />
+  <img src="Z:/picture/008/save_picture_695463.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695457.jpg" />
+  <img src="Z:/picture/008/save_picture_695457.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695425.jpg" />
+  <img src="Z:/picture/008/save_picture_695425.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ EaseUS Data Recovery Wizard Technician 13.6 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695424.jpg" />
+  <img src="Z:/picture/008/save_picture_695424.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Air Explorer Pro 2.5.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695417.jpg" />
+  <img src="Z:/picture/008/save_picture_695417.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Pixelmator Pro 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695414.jpg" />
+  <img src="Z:/picture/008/save_picture_695414.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695412.jpg" />
+  <img src="Z:/picture/008/save_picture_695412.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.8 Repack by Pooshock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695403.jpg" />
+  <img src="Z:/picture/008/save_picture_695403.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Bandicam 2.2.1.785 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695385.jpg" />
+  <img src="Z:/picture/008/save_picture_695385.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VirtualBox 5.0.0 r100143 Beta 3 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695383.jpg" />
+  <img src="Z:/picture/008/save_picture_695383.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695362.jpg" />
+  <img src="Z:/picture/008/save_picture_695362.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ iZotope - RX 7 Post Production Suite 3.02 STANDALONE, RTAS, VST, VST3, AAX RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695354.jpg" />
+  <img src="Z:/picture/008/save_picture_695354.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695349.jpg" />
+  <img src="Z:/picture/008/save_picture_695349.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695346.jpg" />
+  <img src="Z:/picture/008/save_picture_695346.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (11252) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695344.jpg" />
+  <img src="Z:/picture/008/save_picture_695344.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695281.jpg" />
+  <img src="Z:/picture/008/save_picture_695281.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695280.jpg" />
+  <img src="Z:/picture/008/save_picture_695280.jpg" />
 </div>
 
 
@@ -664,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133404   (695278) от 12.05.2017
+###  Публикация: 1133412   (695279) от 12.05.2017
 
-Баскетбол. НБА 2016-2017. Восток. 1/4 Финала. 5-й матч. Торонто Рэпторс – Милуоки Бакс (24.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+Баскетбол. НБА 2016-2017. Запад. 1/4 Финала. 4-й матч. Портленд Трэйл Блэйзерс – Голден Стэйт Уорриорз (24.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 апреля 2017, вторник. 02:00 МСК
-НБА 2016-2017. Восточная конференция. Плей-офф. Первый раунд
-1/4 Финала. 5-й матч
-Торонто Рэпторс – Милуоки Бакс(   Читать дальше...   )Телекомпания: TSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:56:08
+25 апреля 2017, вторник. 05:30 МСК
+НБА 2016-2017. Западная конференция. Плей-офф. Первый раунд
+1/4 Финала. 4-й матч
+Портленд Трэйл Блэйзерс – Голден Стэйт Уорриорз(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:34:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C87774DA9F982204852861A63BA2351DD32F0B1A
+magnet:?xt=urn:btih:BFE46369C9F2DD654AA4DF9F2F515DDADF5DE2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

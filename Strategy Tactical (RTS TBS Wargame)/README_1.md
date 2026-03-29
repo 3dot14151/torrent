@@ -6,7 +6,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206554.jpg" />
+  <img src="Z:/picture/005/save_picture_206554.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206060.jpg" />
+  <img src="Z:/picture/005/save_picture_206060.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201941.jpg" />
+  <img src="Z:/picture/005/save_picture_201941.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201097.jpg" />
+  <img src="Z:/picture/005/save_picture_201097.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197402.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Desert Law / Койоты: Закон пустыни (2005) [Ru/Multi] (1.0) Lic
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196908.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196461.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196051.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156400.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137186.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125121.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Soldiers of Anarchy / Солдаты анархии [Ru] (L/1.1.2.178) 2002
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104430.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Battle Master [En] (RePack) 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102380.jpg" />
+  <img src="Z:/picture/005/save_picture_102380.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101791.jpg" />
+  <img src="Z:/picture/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89272.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87617.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Gunlok [Ru] (RePack) 2000 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86947.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86630.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Star Wolves / Звездные волки [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86473.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81482.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65800.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ground Control Антология (1999-2004) [Ru] (1.05/1.0.0.8/dlc) Repack Pil
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58504.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hogs of War (2000) [Ru/En] (1.0) Repack 1nomok
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38027.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Combat Mission: Afrika Korps (2003) [Multi] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25876.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Combat Mission: Barbarossa to Berlin (2002) [En] (1.03 rdna fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25858.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22832.jpg" />
 </div>
 
 

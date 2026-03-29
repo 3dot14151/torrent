@@ -1,3 +1,90 @@
+###  Публикация: 1362725   (242614) от 24.02.2020
+
+ADX - Bestial (2020) [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rituel ancestral
+02 Au-dessus des croix noires
+03 Les sanguinaires
+04 Overlord(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C39DF6DBB731C01ED158C4769EA691A443927E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634362   (242606) от 20.05.2023
+
+Just Before Dawn - Battle-Sight Zeroing (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill Zone (05:09)
+02. Mac V Sog (05:11)
+03. Tunnel Rats (06:47)
+04. Into An Ambush (05:36)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05B346F27E141A594D9CE5CFB41FD3FD4892135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615627   (242600) от 27.02.2023
+
+Serpentine Dominion - Serpentine Dominion (2016) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:51
+02. The Vengeance in Me 02:30
+03. Vanquished unto Thee 02:55
+04. Divide, Conquer, Burn and Destroy 02:36(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC3B81925EE444E47F5C9E702B6DF483DDDCAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615633   (242595) от 27.02.2023
 
 Commandment - Engraved In Stone (1999) Reissued 2009 [WavPack|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Commandment - Engraved In Stone (1999) Reissued 2009 [WavPack|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242595.jpg" />
+  <img src="Z:/picture/005/save_picture_242595.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Order - The Gospel (2021) [FLAC|Lossless|image + .cue] <Black Metal, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242579.jpg" />
+  <img src="Z:/picture/005/save_picture_242579.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Aosoth - Aosoth (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242572.jpg" />
+  <img src="Z:/picture/005/save_picture_242572.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Aosoth - Ashes Of Angels (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242564.jpg" />
+  <img src="Z:/picture/005/save_picture_242564.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Riffcoven - O Caminho do Aco (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242562.jpg" />
+  <img src="Z:/picture/005/save_picture_242562.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Endlevel - Weekend War (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groov
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242548.jpg" />
+  <img src="Z:/picture/005/save_picture_242548.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Krvna - For Thine Is the Kingdom of the Flesh (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242542.jpg" />
+  <img src="Z:/picture/005/save_picture_242542.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Gnipahalan (Gnipahålan) - I Nordisk Vredeslusta (2022) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242538.jpg" />
+  <img src="Z:/picture/005/save_picture_242538.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Lucifuge - Monoliths of Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242526.jpg" />
+  <img src="Z:/picture/005/save_picture_242526.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Renacer - En Versiones Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242525.jpg" />
+  <img src="Z:/picture/005/save_picture_242525.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ontborg - Following The Steps Of Damnation (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242524.jpg" />
+  <img src="Z:/picture/005/save_picture_242524.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Frostshock - Frostshock (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242515.jpg" />
+  <img src="Z:/picture/005/save_picture_242515.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Vomitory - All Heads Are Gonna Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Old Sc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242511.jpg" />
+  <img src="Z:/picture/005/save_picture_242511.jpg" />
 </div>
 
 
@@ -385,7 +472,7 @@ Gates Of Mourning - Ruination (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242505.jpg" />
+  <img src="Z:/picture/005/save_picture_242505.jpg" />
 </div>
 
 
@@ -414,7 +501,7 @@ Ravencult - Morbid Blood (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242493.jpg" />
+  <img src="Z:/picture/005/save_picture_242493.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ Kyrie Eleison - ...In The Arms Of Decadence (2007) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242485.jpg" />
+  <img src="Z:/picture/005/save_picture_242485.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ Aosoth - III - Violence & Variations (2011) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242473.jpg" />
+  <img src="Z:/picture/005/save_picture_242473.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ Beneath My Feet - In Parts, Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242468.jpg" />
+  <img src="Z:/picture/005/save_picture_242468.jpg" />
 </div>
 
 
@@ -530,7 +617,7 @@ Serenity - The Last Knight (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242466.jpg" />
+  <img src="Z:/picture/005/save_picture_242466.jpg" />
 </div>
 
 
@@ -559,7 +646,7 @@ Infernal War - Axiom (2015) [FLAC|Lossless|image + .cue] <Black Metal. Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242456.jpg" />
+  <img src="Z:/picture/005/save_picture_242456.jpg" />
 </div>
 
 
@@ -588,7 +675,7 @@ Grief Symposium - ...In The Absence of Light (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242451.jpg" />
+  <img src="Z:/picture/005/save_picture_242451.jpg" />
 </div>
 
 
@@ -617,7 +704,7 @@ Gololedz - Gololedz (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Crust>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242442.jpg" />
+  <img src="Z:/picture/005/save_picture_242442.jpg" />
 </div>
 
 
@@ -646,7 +733,7 @@ Haunt - Mind Freeze (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242429.jpg" />
+  <img src="Z:/picture/005/save_picture_242429.jpg" />
 </div>
 
 
@@ -660,93 +747,6 @@ Haunt - Mind Freeze (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58A6F361D5AED4C295D3B5E813F575E39E8A001B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542047   (242412) от 05.04.2022
-
-The Violent Inzident - This is Nu Metal! (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nu Metal! (00:02:44)
-02 - I Love Nu Metal (00:03:05)
-03 - Whores of Instagram (00:04:26)
-04 - Disastinder (00:03:06)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1BFA2217FBF13803A06202C01DAB2CD9093007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616651   (242400) от 03.03.2023
-
-GrimCurse - Serpent God (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Neverending Light (06:19)
-02 - Serpent God (03:27)
-03 - Metal Sound (05:55)
-04 - Friendly Fire (03:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A1329FCD207F06B62D2C8082C85193D49171BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616596   (242382) от 03.03.2023
-
-Haken - Fauna (Deluxe Edition) (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242382.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Taurus (4:49)
-02. Nightingale (7:25)
-03. The Alphabet of Me (5:34)(   Читать дальше...   )Жанр: Progressive Metal-RockПродолжительность: 02:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E44992CC7FD802C9E7BC80DF2B9F27F51230378
 ```
 
 https://mybot314.ru/tekegram_catalog/

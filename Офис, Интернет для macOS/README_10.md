@@ -6,7 +6,7 @@ Microsoft Office Standard 2016 v15.21.1 (with License/Serializer Installer) [Mul
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824525.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ PDF Expert 2.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820439.jpg" />
+  <img src="Z:/picture/008/save_picture_820439.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Boxy: email client for "Inbox by Gmail" 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819759.jpg" />
+  <img src="Z:/picture/008/save_picture_819759.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ TextSoap 8 v8.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819686.jpg" />
+  <img src="Z:/picture/008/save_picture_819686.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ BookReader 5.1 (AppStore) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819643.jpg" />
+  <img src="Z:/picture/008/save_picture_819643.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ DrawnStrips Reader - The Best Comic Reader 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819558.jpg" />
+  <img src="Z:/picture/008/save_picture_819558.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Flux 6.0.17 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819447.jpg" />
+  <img src="Z:/picture/008/save_picture_819447.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Pomodoro Time Pro 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819313.jpg" />
+  <img src="Z:/picture/008/save_picture_819313.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ PriceWatcher 1.2.33 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819287.jpg" />
+  <img src="Z:/picture/008/save_picture_819287.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ PDFpenPro 8.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819263.jpg" />
+  <img src="Z:/picture/008/save_picture_819263.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Diagrammix 2.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819035.jpg" />
+  <img src="Z:/picture/008/save_picture_819035.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ RealVNC Enterprise 5.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818826.jpg" />
+  <img src="Z:/picture/008/save_picture_818826.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ PDFpenPro 12 v12.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815557.jpg" />
+  <img src="Z:/picture/008/save_picture_815557.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Espresso 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814189.jpg" />
+  <img src="Z:/picture/008/save_picture_814189.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Suite for iWork: Themes for Keynote, Templates for Pages and Numbers 9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813249.jpg" />
+  <img src="Z:/picture/008/save_picture_813249.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Keep It 1.11.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812413.jpg" />
+  <img src="Z:/picture/008/save_picture_812413.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Color Code Copy 1.3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812395.jpg" />
+  <img src="Z:/picture/008/save_picture_812395.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Rocket Pro 1.7.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811737.jpg" />
+  <img src="Z:/picture/008/save_picture_811737.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ calibre 5 v5.30 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810214.jpg" />
+  <img src="Z:/picture/008/save_picture_810214.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Next - Track your expenses and finances 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810156.jpg" />
+  <img src="Z:/picture/008/save_picture_810156.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cal Cat 2.0 (1.95) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810111.jpg" />
+  <img src="Z:/picture/008/save_picture_810111.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Network Utility X 6.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810105.jpg" />
+  <img src="Z:/picture/008/save_picture_810105.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Focused (was Typed) 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809147.jpg" />
+  <img src="Z:/picture/008/save_picture_809147.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Notability 4.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808338.jpg" />
+  <img src="Z:/picture/008/save_picture_808338.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Adobe Animate CC 2015.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807459.jpg" />
+  <img src="Z:/picture/008/save_picture_807459.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Stockfolio - Stocks, Real-Time Stock Portfolio 1.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807231.jpg" />
+  <img src="Z:/picture/008/save_picture_807231.jpg" />
 </div>
 
 

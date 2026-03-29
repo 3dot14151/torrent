@@ -6,7 +6,7 @@ WinToUSB Technician 5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842674.jpg" />
+  <img src="Z:/picture/008/save_picture_842674.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SoftPerfect RAM Disk 4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842665.jpg" />
+  <img src="Z:/picture/008/save_picture_842665.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NirLauncher Package 1.23.19 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842649.jpg" />
+  <img src="Z:/picture/008/save_picture_842649.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dism++ 10.1.4.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842637.jpg" />
+  <img src="Z:/picture/008/save_picture_842637.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ZW3D 2016 20.00 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842632.jpg" />
+  <img src="Z:/picture/008/save_picture_842632.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sandboxie 5.52.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842617.jpg" />
+  <img src="Z:/picture/008/save_picture_842617.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GeoGebra 6.0.668.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842608.jpg" />
+  <img src="Z:/picture/008/save_picture_842608.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842596.jpg" />
+  <img src="Z:/picture/008/save_picture_842596.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Digital Clock 4.5.4 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842593.jpg" />
+  <img src="Z:/picture/008/save_picture_842593.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SideFx Houdini FX 16.0.504.20 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842589.jpg" />
+  <img src="Z:/picture/008/save_picture_842589.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tor Browser Bundle 6.5.1 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842584.jpg" />
+  <img src="Z:/picture/008/save_picture_842584.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.10.25008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842582.jpg" />
+  <img src="Z:/picture/008/save_picture_842582.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Total Commander 9.0a Extended 17.3 Full | Lite RePack (&Portable) by BurSoft [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842580.jpg" />
+  <img src="Z:/picture/008/save_picture_842580.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ qBittorrent 4.2.5 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842557.jpg" />
+  <img src="Z:/picture/008/save_picture_842557.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Total Commander 8.52a VIM 13 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842504.jpg" />
+  <img src="Z:/picture/008/save_picture_842504.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Process Lasso Pro 10.3.0.50 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842486.jpg" />
+  <img src="Z:/picture/008/save_picture_842486.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Reveal Sound - Spire 1.5.10 VSTi, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842483.jpg" />
+  <img src="Z:/picture/008/save_picture_842483.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ FinePrint 11.00 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842481.jpg" />
+  <img src="Z:/picture/008/save_picture_842481.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Opera 80.0.4170.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842476.jpg" />
+  <img src="Z:/picture/008/save_picture_842476.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Paint.NET 4.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842465.jpg" />
+  <img src="Z:/picture/008/save_picture_842465.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PTC Mathcad Prime 4.0 F000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842430.jpg" />
+  <img src="Z:/picture/008/save_picture_842430.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Sticky Password 5.0.2.200 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842389.jpg" />
+  <img src="Z:/picture/008/save_picture_842389.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ OBS Studio 25.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842378.jpg" />
+  <img src="Z:/picture/008/save_picture_842378.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.1.017 + Components [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842374.jpg" />
+  <img src="Z:/picture/008/save_picture_842374.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Emsisoft Emergency Kit 2021.10.0.11201 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842346.jpg" />
+  <img src="Z:/picture/008/save_picture_842346.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ O&O ShutUp10 1.9.1424 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842345.jpg" />
+  <img src="Z:/picture/008/save_picture_842345.jpg" />
 </div>
 
 

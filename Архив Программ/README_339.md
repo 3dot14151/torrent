@@ -6,7 +6,7 @@ PDF Compressor Pro 3.4 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879596.jpg" />
+  <img src="Z:/picture/005/save_picture_879596.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Flash Player 24.0.0.221 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879506.jpg" />
+  <img src="Z:/picture/005/save_picture_879506.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Instagiffer 1.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879396.jpg" />
+  <img src="Z:/picture/005/save_picture_879396.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft Total Media Converter 8.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879295.jpg" />
+  <img src="Z:/picture/005/save_picture_879295.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tipard Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879281.jpg" />
+  <img src="Z:/picture/005/save_picture_879281.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avast Premier 17.1.2286 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879274.jpg" />
+  <img src="Z:/picture/005/save_picture_879274.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Total Commander 9.0a VIM 19 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879257.jpg" />
+  <img src="Z:/picture/005/save_picture_879257.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Aiseesoft Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [11.03.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879196.jpg" />
+  <img src="Z:/picture/005/save_picture_879196.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Aiseesoft MP4 Video Converter 8.1.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879180.jpg" />
+  <img src="Z:/picture/005/save_picture_879180.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinX HD Video Converter Deluxe 5.9.3 Build on Feb 29 2016 RePack by FoXtrot [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879177.jpg" />
+  <img src="Z:/picture/005/save_picture_879177.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CDBurnerXP 4.5.6.6053 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879161.jpg" />
+  <img src="Z:/picture/005/save_picture_879161.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879152.jpg" />
+  <img src="Z:/picture/005/save_picture_879152.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ ZWCAD 2017 SP2 2017.01.23 (13656) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879151.jpg" />
+  <img src="Z:/picture/005/save_picture_879151.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Muse CC 2017.0.2 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879145.jpg" />
+  <img src="Z:/picture/005/save_picture_879145.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879144.jpg" />
+  <img src="Z:/picture/005/save_picture_879144.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Adobe Audition CC 2017 (v10.0.2) Multilingual Update 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879142.jpg" />
+  <img src="Z:/picture/005/save_picture_879142.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Corel VideoStudio Ultimate X10 20.0.0.137 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879139.jpg" />
+  <img src="Z:/picture/005/save_picture_879139.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ ALLPlayer 4.6.0.0 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879128.jpg" />
+  <img src="Z:/picture/005/save_picture_879128.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Aiseesoft HD Video Converter 8.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879084.jpg" />
+  <img src="Z:/picture/005/save_picture_879084.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SIV (System Information Viewer) 5.08 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879082.jpg" />
+  <img src="Z:/picture/005/save_picture_879082.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Gilisoft Video Editor 7.2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879077.jpg" />
+  <img src="Z:/picture/005/save_picture_879077.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Aiseesoft Video Enhancer 1.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879071.jpg" />
+  <img src="Z:/picture/005/save_picture_879071.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Tipard Video Converter Ultimate 9.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879069.jpg" />
+  <img src="Z:/picture/005/save_picture_879069.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ SamDrivers 14.3 - Сборник драйверов для Windows (DriverPack S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879054.jpg" />
+  <img src="Z:/picture/005/save_picture_879054.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Proteus 8.1 SP1 Build 17358 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879038.jpg" />
+  <img src="Z:/picture/005/save_picture_879038.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ SeaMonkey 2.40 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878991.jpg" />
+  <img src="Z:/picture/005/save_picture_878991.jpg" />
 </div>
 
 

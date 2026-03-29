@@ -1,3 +1,148 @@
+###  Публикация: 1676060   (158989) от 12.11.2023
+
+VA - Fallen Angels: Bad Girl Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore - Fast In My Car (3:43)
+02. Alanis Morissette - Sister Blister (4:11)
+03. L7 - Scrap (2:55)
+04. Halestorm - Back from the Dead (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E34934C1E3A534DF883A2F332F83CC8276576D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600190   (158984) от 26.12.2022
+
+Cheap Trick - Live At The Whisky (1977) 4 x CD, Limited Edition, Reissue, 2022, Real Gone Music [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158984.jpg" />
+</div>
+
+
+###  Подробнее
+
+You wanna hear a band about to explode? In June 1977, Cheap Trick was in Los Angeles to record their second album, In Color. To get the band in shape for the record, they booked 5 gigs at the Whisky a Go Go the weekend of June 3. The result: a series of firebreathing shows that you can still hear reverberating on the Sunset Strip to this day. KROQ DJ Rodney Bingenheimer (   Читать дальше...   )CD1 - 06-03-1977 - Early Show:
+01. Rodney Bingenheimer Intro
+02. Speak Now or Forever Hold Your Peace
+03. Elo Kiddies(   Читать дальше...   )Жанр: RockПродолжительность: 03:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1BE3546E6FAFEC5E36C34342E7ECA491213156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676061   (158972) от 12.11.2023
+
+VA - Heavy Queens (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - Cuz I Love You (3:00)
+02. L7 - Freak Magnet (3:15)
+03. Paramore - Pressure (3:06)
+04. Fanny - Lonesome Pine (UK Edit) (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C067D1AD1893F0AAC6E6C7B6BD1F71CE4CE97A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674867   (158945) от 12.11.2023
+
+Radioactive - Yeah (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah
+02. Demon
+03. Don't Give Up
+04. Lies Feed On Lies(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36D078BA06ACCA4487FD995933E147F033541FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676065   (158916) от 12.11.2023
+
+VA - The Very Best of Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Killers - Mr. Brightside (3:44)
+02. Bon Jovi - Livin' On A Prayer (4:11)
+03. Kiss - I Was Made For Lovin' You (4:28)
+04. The Rolling Stones - Paint It, Black (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473CCAF2FDDFED633CA0DE98EFCD455B7969DD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676221   (158891) от 12.11.2023
 
 The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Remixed & Expanded [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ The Beatles - The Beatles 1962 – 1966 (Red Album) (1973) 2CD, 2023 Edition, Re
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158891.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Beatles - The Beatles 1967 – 1970 (Blue Album) (1973) 2CD, 2023 Edition, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158855.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Kamala - Limbo666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158749.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Rolling Stones - 1989 Steel Wheels ● 1991 Flashpoint (2015) Mini LP Platin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158637.jpg" />
 </div>
 
 
@@ -120,7 +265,7 @@ VA - The Many Faces Of Elvis (2015) 3CD, Compilation [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158494.jpg" />
 </div>
 
 
@@ -149,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158249.jpg" />
 </div>
 
 
@@ -178,7 +323,7 @@ Elvis Presley - Elvis 56 (1996) Compilation, Remastered [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158241.jpg" />
 </div>
 
 
@@ -207,7 +352,7 @@ Bon Jovi - Crush (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158225.jpg" />
 </div>
 
 
@@ -236,7 +381,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) 2015 2CD Deluxe 35
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158196.jpg" />
 </div>
 
 
@@ -262,7 +407,7 @@ Rick Wakeman - Journey To The Centre Of The Earth (1974) Japanese Edition, Reiss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157754.jpg" />
 </div>
 
 
@@ -291,7 +436,7 @@ Chris Norman - Full Circle (1999) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156872.jpg" />
 </div>
 
 
@@ -320,7 +465,7 @@ VA - Fetenhits - The Ballads (1997) 2 CD, Compilation [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156859.jpg" />
 </div>
 
 
@@ -349,7 +494,7 @@ Chris Rea - King Of The Beach (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156744.jpg" />
 </div>
 
 
@@ -378,7 +523,7 @@ Chris Rea - The Road To Hell (1989) [FLAC|Lossless|tracks + .cue] <Blues Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156707.jpg" />
 </div>
 
 
@@ -407,7 +552,7 @@ Chris Rea - The Road To Hell Part 2 (1999) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156693.jpg" />
 </div>
 
 
@@ -436,7 +581,7 @@ Chris Rea - Dancing With Strangers (1987) [FLAC|Lossless|tracks + .cue] <Rock & 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156480.jpg" />
 </div>
 
 
@@ -465,7 +610,7 @@ Wishbone Ash - 25 CD (1970 - 2011) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156378.jpg" />
+  <img src="Z:/picture/005/save_picture_156378.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Moviola - The Durable Dream (1999) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156094.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Vitreous Humor - Posthumous (1998) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156088.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Potliquor - Potliquor (1979) Remaster, Reissue, 2010, O-Music [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156072.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Chris Rea - The Best Of Chris Rea (1994) [FLAC|Lossless|tracks + .cue] <Soft Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156055.jpg" />
 </div>
 
 
@@ -601,148 +746,6 @@ Chris Rea - The Best Of Chris Rea (1994) [FLAC|Lossless|tracks + .cue] <Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C392DFB5688FDF52B4D6945BAE88F290ADB06518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600501   (155999) от 28.12.2022
-
-South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - South of Reality
-2022 - Lone Star State Of Mind
-2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270564   (155983) от 20.12.2018
-
-Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Need Your Love (5:33)
-02.Surrender To Me (5:34)
-03.Livin' For You (4:58)
-04.Walkin' At Night (2:02)(   Читать дальше...   )Жанр: Arena Rock, RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600649   (155966) от 28.12.2022
-
-Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bury Me Dead - 5:50
-2. Today Another Day - 5:45
-3. Jester - 3:58
-4. Soft Shoe Dancer - 4:37(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC8BD068CF232335514CFC5EC433E9299292C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600636   (155352) от 28.12.2022
-
-Vinnie Moore - Double Exposure (2022) [FLAC|Lossless|image + .cue] <Classic Rock, Instrumental, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155352.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гитарист UFO и ALICE COOPER Винни Мур (Vinnie Moore) выпустил новый сольный альбом "Double Exposure" на своем собственном лейбле Mind's Eye Music. Впервые за всю сольную дискографию Винни включил несколько треков с вокалом. В записи участвовали вокалисты Эд Терри (Ed Terry, RAGE AND BEYOND, AMERICAN MAFIA), Кит Слэк (Keith Slack, MSG, MOTHER ROAD), (   Читать дальше...   )01. Vertical Horizon (04:03)
-02. Rise (04:15)
-03. Still Waters Run Deep (05:00)
-04. Paid My Dues (03:41)(   Читать дальше...   )Жанр: Classic Rock, Instrumental, Hard RockПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E629A305F032F5692B9BBD2F0E7B176770D3A432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795332   (154950) от 25.12.2017
-
-The Beach Boys - The Platinum Collection (2005) 3CD [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Pop-RockПродолжительность: 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141ED3E1B6F4ACE9538FDD5DACE8AA3E4B7521E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

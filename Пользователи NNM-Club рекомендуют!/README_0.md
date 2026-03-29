@@ -6,7 +6,7 @@
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30393.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15123.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14364.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11860.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10243.jpg" />
 </div>
 
 

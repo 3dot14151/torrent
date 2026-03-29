@@ -1,3 +1,232 @@
+###  Публикация: 1002332   (848601) от 31.03.2016
+
+Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление и "Гимн Солнцу"
+02. После Дождя
+03. Где Живет Ветер
+04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499460   (847826) от 02.10.2021
+
+Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847826.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heaven
+A2 Like An Ocean
+A3 Soon Will Be Too Late
+A4 You Always Saw The Blue Sky(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8365CF1C85317E9D8A6D3349E2E82AE568F3E24B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870976   (846917) от 01.04.2016
+
+Юра Саркисян (кларнет) - 2002 (2002) [FLAC 2.0|44.1/16|tracks|MC-Rip] <Folk/Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Праздничный танец
+02. Танец Юрика
+03. Восточный таней
+04. Далеко ты от меня(   Читать дальше...   )Жанр: Folk/PopПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1199CC2B9492386438ED62F77D76981AD3AE1F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003224   (845110) от 02.04.2016
+
+Аспид - Кровоизлияние (1992) 2016, Metal Race [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро
+02 - Он пришел (Аспид)
+03 - К цели одной
+04 - Дай мне(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650181   (845067) от 29.04.2013
+
+Celine Dion – All the Way….A Decade of Song (1999) [DSD 5.1 1bit/2822,4kHz | SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEC295AC2AE92D889B9A76B9079F7F072C424C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112154   (844772) от 07.03.2017
+
+Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844772.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Underground (5:19)
+A2. Who Are The Mystery Kids (3:45)
+A3. Banquet (5:17)
+A4. Killer On The Loose (4:00)(   Читать дальше...   )Производство: Virgin - 207 629-630Жанр: Progressive RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499462   (842350) от 05.10.2021
+
+Московский Камерный Орк., дир. Л. Маркиз - Mozart - Cassation No. 1 In G Major K. 63 / Concerto No. 2 For Harpsichord And Orchestra In B Flat Major (1972) [FLAC 2.0|96/24|image +.cue] <Classical ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cassation No. 1 In G Magor K. 63 --- Кассация № 1 Соль Мажор К. 63
+A1 Marche
+A2 Allegro
+A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500378   (841290) от 06.10.2021
+
+Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Don`t Know What You Got
+02. Heartbreak Station
+03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 793368   (841272) от 04.04.2016
 
 Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -6,7 +235,7 @@ Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841272.jpg" />
+  <img src="Z:/picture/008/save_picture_841272.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839899.jpg" />
+  <img src="Z:/picture/008/save_picture_839899.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ VA - RETROспектива, часть XIV. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839546.jpg" />
+  <img src="Z:/picture/008/save_picture_839546.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ Rainbow - Легенды Зарубежного Рока (2000) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837869.jpg" />
+  <img src="Z:/picture/008/save_picture_837869.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audi
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835489.jpg" />
+  <img src="Z:/picture/008/save_picture_835489.jpg" />
 </div>
 
 
@@ -151,7 +380,7 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835414.jpg" />
+  <img src="Z:/picture/008/save_picture_835414.jpg" />
 </div>
 
 
@@ -180,7 +409,7 @@ Nirvana - Легенды Зарубежного Рока (2001) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835028.jpg" />
+  <img src="Z:/picture/008/save_picture_835028.jpg" />
 </div>
 
 
@@ -209,7 +438,7 @@ Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834908.jpg" />
+  <img src="Z:/picture/008/save_picture_834908.jpg" />
 </div>
 
 
@@ -238,7 +467,7 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834257.jpg" />
+  <img src="Z:/picture/008/save_picture_834257.jpg" />
 </div>
 
 
@@ -273,7 +502,7 @@ Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834167.jpg" />
+  <img src="Z:/picture/008/save_picture_834167.jpg" />
 </div>
 
 
@@ -302,7 +531,7 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833536.jpg" />
 </div>
 
 
@@ -331,7 +560,7 @@ Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832949.jpg" />
 </div>
 
 
@@ -360,7 +589,7 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832820.jpg" />
 </div>
 
 
@@ -389,7 +618,7 @@ Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832753.jpg" />
 </div>
 
 
@@ -418,7 +647,7 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831490.jpg" />
 </div>
 
 
@@ -447,7 +676,7 @@ Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831443.jpg" />
 </div>
 
 
@@ -476,7 +705,7 @@ Frank Sinatra - Some Nice Things I've Missed (1974) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831231.jpg" />
 </div>
 
 
@@ -505,7 +734,7 @@ Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830963.jpg" />
 </div>
 
 
@@ -518,235 +747,6 @@ Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0DF119E875426465AF55DEAF176838AADC71DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312323   (829947) от 22.03.2011
-
-Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  Mysterious IntegrationЖанр: InternationalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115091   (829699) от 16.03.2017
-
-The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829699.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Strange Days (3:04)
-A2. You're Lost Little Girl (2:58)
-A3. Love Me Two Times (3:12)
-A4. Unhappy Girl (1:56)(   Читать дальше...   )Производство: Elektra - K 42 016Жанр: Psychedelic RockПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774533   (829271) от 06.04.2014
-
-Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829271.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Eldorado Overture (2:12)
-A2. Can't Get It Out Of My Head (4:23)
-A3. Boy Blue (5:20)
-A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653761   (828796) от 08.05.2013
-
-Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celtic, new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Show Me    04:58
-02.    Bright Star    04:15
-03.    Change My World    03:46
-04.    Bi Liom    04:32(   Читать дальше...   )Жанр: CelticПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8715DEFA91F7A2131948E0B5D5407F02BB17546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502492   (828144) от 14.10.2021
-
-Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Compilation, Country Music>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Could Only Win Your Love
-02. Boulder To Birmingham
-03. One Of These Days
-04. Too Far Gone (with Dolly Parton & Linda Ronstandt)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502747   (826501) от 15.10.2021
-
-Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Town 04:34
-02. Trouble is a Man 03:53
-03. Mashup 08:05
-04. Samba de Uma Nota So – One Note Samba 04:28(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A5AF6E5D1C57BE7F46AB0DBEE001708D2AFC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502119   (826499) от 15.10.2021
-
-Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Love Hurts
-A2 Razamanaz
-A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502547   (826412) от 15.10.2021
-
-Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I'll Meet You At Midnight (Midnight Cafe)
-02. What Can I Do (Midnight Cafe)
-03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
 ```
 
 https://mybot314.ru/tekegram_catalog/

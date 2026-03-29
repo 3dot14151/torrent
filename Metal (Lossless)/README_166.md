@@ -1,3 +1,90 @@
+###  Публикация: 1325985   (408533) от 17.09.2019
+
+Tarja - In The Raw (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Promises (with Björn “Speed” Strid) (5:50)
+02. Goodbye Stranger (with Cristina Scabbia) (5:11)
+03. Tears in Rain (4:29)
+04. Railroad (4:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF23D007548261B5941B5710DAB58D338DCBCFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067161   (408245) от 28.10.2016
+
+Testament - Brotherhood Of The Snake (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotherhood Of The Snake 04:14
+02. The Pale King 04:51
+03. Stronghold 04:01
+04. Seven Seals 05:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CECAA5FA90C92F0CD2F58B5BFF826E6FE47DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413331   (408092) от 04.10.2020
+
+Amaranthe - Manifest (2020) Nuclear Blast Records [FLAC|WEB-DL|tracks] <Modern Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fearless [00:03:31]
+02. Make It Better [00:03:50]
+03. Scream My Name [00:03:03]
+04. Viral [00:03:01](   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447D74FE9A3B11295ABC7978542FCDE0250D2B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949268   (408048) от 22.10.2015
 
 Grave Digger - Exhumation - The Early Years (2015) [FLAC|image+.cue]<Heavy Metal, Power Metal>
@@ -6,7 +93,7 @@ Grave Digger - Exhumation - The Early Years (2015) [FLAC|image+.cue]<Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408048.jpg" />
+  <img src="Z:/picture/008/save_picture_408048.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Consumption - Recursive Definitions of Suppuration (2020) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407553.jpg" />
+  <img src="Z:/picture/008/save_picture_407553.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Crematorium - Temple Of Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407552.jpg" />
+  <img src="Z:/picture/008/save_picture_407552.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407549.jpg" />
+  <img src="Z:/picture/008/save_picture_407549.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Aquaria - Alethea (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407541.jpg" />
+  <img src="Z:/picture/008/save_picture_407541.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mad Max - Wings Of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407534.jpg" />
+  <img src="Z:/picture/008/save_picture_407534.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Kogai - Hagakure (2007) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406836.jpg" />
+  <img src="Z:/picture/008/save_picture_406836.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406835.jpg" />
+  <img src="Z:/picture/008/save_picture_406835.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Tygers Of Pan Tang - Ambush (2012) Remastered Edition, 2020, Mighty Music [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406833.jpg" />
+  <img src="Z:/picture/008/save_picture_406833.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Leo Moracchioli - 31 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406735.jpg" />
+  <img src="Z:/picture/008/save_picture_406735.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ My Dying Bride - A Map Of All Our Failures (2012) [FLAC|Lossless]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405908.jpg" />
+  <img src="Z:/picture/005/save_picture_405908.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ Stone Sour - House of Gold and Bones Part 1 (2012) scene [FLAC|Lossless]<Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405819.jpg" />
+  <img src="Z:/picture/005/save_picture_405819.jpg" />
 </div>
 
 
@@ -364,7 +451,7 @@ Dokken - Broken Bones (2012) [FLAC|Lossless]<Heavy Metal / Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405251.jpg" />
+  <img src="Z:/picture/005/save_picture_405251.jpg" />
 </div>
 
 
@@ -399,7 +486,7 @@ Machinae Supremacy - Rise Of A Digital Nation (2012) [FLAC|Lossless]<SID-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405234.jpg" />
+  <img src="Z:/picture/005/save_picture_405234.jpg" />
 </div>
 
 
@@ -434,7 +521,7 @@ Vektor - Terminal Redux (2016) [FLAC|Lossless|image + .cue] <Thrash, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405040.jpg" />
+  <img src="Z:/picture/008/save_picture_405040.jpg" />
 </div>
 
 
@@ -463,7 +550,7 @@ Daylight Dies - A Frail Becoming (2012) [FLAC|Lossless]<Melodic Death/Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_404946.jpg" />
+  <img src="Z:/picture/005/save_picture_404946.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Angelus Apatrida - The Call (Limited Edition) (2012) [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_404944.jpg" />
+  <img src="Z:/picture/005/save_picture_404944.jpg" />
 </div>
 
 
@@ -532,7 +619,7 @@ Jack Starr's Burning Starr - Stand Your Ground (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404106.jpg" />
+  <img src="Z:/picture/008/save_picture_404106.jpg" />
 </div>
 
 
@@ -561,7 +648,7 @@ Eisbrecher - Sturmfahrt (2017) [FLAC|Lossless|tracks + .cue] <NDH, Nu Metal, Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403932.jpg" />
+  <img src="Z:/picture/008/save_picture_403932.jpg" />
 </div>
 
 
@@ -590,7 +677,7 @@ Ozzy Osbourne - 10 Studio albums + 4 Live-albums + 3 Compilations + 1 Limited Ed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403382.jpg" />
+  <img src="Z:/picture/005/save_picture_403382.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ VA - Bat Head Soup - A Tribute To Ozzy (2000) [WavPack|Lossless]<Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402861.jpg" />
+  <img src="Z:/picture/005/save_picture_402861.jpg" />
 </div>
 
 
@@ -654,7 +741,7 @@ My Dying Bride - A Map Of All Our Failures (Limited Edition) (2012) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402210.jpg" />
+  <img src="Z:/picture/005/save_picture_402210.jpg" />
 </div>
 
 
@@ -689,7 +776,7 @@ Leaves' Eyes - Melusine (EP) (2011) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401143.jpg" />
+  <img src="Z:/picture/008/save_picture_401143.jpg" />
 </div>
 
 
@@ -699,111 +786,6 @@ Leaves' Eyes - Melusine (EP) (2011) [FLAC|Lossless]<Symphonic Gothic Metal>
  02. To France (Sonic Mix) (04:38)
  03. Tell Tal Eyes (Alternate Version) (03:58)
  04. The Battle Of Maldon (Remastered Version) (04:23)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565967   (399135) от 27.10.2012
-
-Bloodshot Dawn - Bloodshot Dawn (2012) [FLAC|Lossless]<Thrash Metal / Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beckoning Oblivion (06:27)
-02. Dedication To A Dead Cause (03:55)
-03. Forlorn World (05:01)
-04. Godless (05:35)
-05. Vision (05:04)
-06. Sentient Disease (04:08)
-07. The Quantum Apocalypse (05:03)
-08. Sickening Dogma (05:01)
-09. Illusion Aesthetic (04:52)
-10. Prototype (01:29)(   Читать дальше...   )Жанр: Thrash Metal / Melodic DeathПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566171   (398963) от 27.10.2012
-
-Lamb Of God - Resolution (2012) [FLAC|Lossless]<Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight from the Sun (2:10)
-02. Desolation (3:55)
-03. Ghost Walking (4:27)
-04. Guilty (3:25)
-05. The Undertow (4:47)
-06. The Number Six (5:23)
-07. Barbarosa (1:37)
-08. Invictus (4:15)
-09. Cheated (2:34)
-10. Insurrection (4:50)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566019   (398917) от 27.10.2012
-
-Stone Sour - House of Gold & Bones Part 1 (Japanese Edition) (2012) [FLAC|Lossless]<Alternative / Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Sovereign (4:03)
-02. Absolute Zero (3:50)
-03. A Rumor Of Skin (4:11)
-04. The Travelers, Pt.1 (2:27)
-05. Tired (4:12)
-06. RU486 (4:22)
-07. My Name Is Allen (4:18)
-08. Taciturn (5:26)
-09. Influence Of A Drowsy God (4:29)
-10. The Travelers, Pt.2 (3:02)(   Читать дальше...   )Жанр: Alternative / Nu-MetalПродолжительность: 00:47:00
 
 ## Скачать торент
 ```bash

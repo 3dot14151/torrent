@@ -1,3 +1,133 @@
+###  Публикация: 1631879   (254498) от 08.05.2023
+
+Псих / Siklo (2022) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Между любовницей пастора и курьером вспыхивает страстный роман, последствия которого не заставят себя ждать.Производство: Филиппины / Viva FilmsЖанр: мелодрама, эротикаРежиссер: Роман Перес мл.Актеры: Винс Риллон, Кристин Бермас, Джуни Гамбоа, Альма Морено, Хоко Диас, Аянна Мисола, Лара Морена, Аксель Торрес, Эндрю Мулач, Роб КуинтоПеревод: Двуголосый любительский (DeadSno & den904)Язык озвучки: русский, тагальскийСубтитры: отсутствуютПродолжительность: 01:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967E8760403B0DA86746B5A5D7C73908F0E3ED96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632877   (254428) от 12.05.2023
+
+Очищение / Purificacion (2022) WEBRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер полиции Габриэла Исидро расследует серию убийств женшин в Санта Монике и главным подозреваемым становится недавно появившийся в округе священник.Производство: Филиппины / Viva Films, Five 2 Seven Entertainment ProductionЖанр: триллер, эротикаРежиссер: Дж.Б. СампедроАктеры: Кара Гонсалес, Джозеф Элизальде, Ава Мендес, Роб Куинто, Катрина Дови, Кинн Каррильо, Стефани Раз, Кир Легаспи, Ландер Вера-Перес, Фабио ИдеПеревод: Двуголосый любительский (RealFake)Язык озвучки: русский, тагальскийСубтитры: английскиеПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98D7728C30B3862D9001DDB7A2D19B32DD699C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485514   (254403) от 13.05.2023
+
+Странный дом / Goegimaensyon / Ghost Mansion (2021) WEB-DL [H.264/1080p] [DVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254403.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках идей для новый произведений автор вебтунов решает обследовать дом, о котором ходят страшные легенды. Подозрительный консьерж начинает рассказывать ему истории про проклятые квартиры, и чем больше парень узнаёт, тем больше чувствует, что с ним самим начинает происходить нечто зловещее.Производство: Корея Южная / MCMCЖанр: ужасыРежиссер: Чо Ба-рынАктеры: Сон Джун, Ким Хон-пха, Ким Бо-ра, Ли Чхан-хун, Соджин, Чжэ Хва Ким, Хён У Со, Кан Ю-сок, Ли Сок-хён, Вон Хён-джунПеревод: Двуголосый любительский (АрхиAsia)Язык озвучки: Русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702BE1FA923624EF1ADFB391AAF09BB579CC40CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632900   (254396) от 13.05.2023
+
+Ревность / Panibugho (2023) WEBRip [H.264/720p] [MVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254396.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о трех сестрах и одном мужчине. Действие происходит в конце 90-х, история любви, ненависти и ревности разворачивается, когда незнакомец внезапно входит в жизнь трех сестер.Производство: Филиппины / Viva FilmsЖанр: драма, эротикаРежиссер: Иар АрондаингАктеры: Анджела Морена, Стефани Раз, Микаэлла Раз, Кико Эстрада, Бенз СангалангПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, тагальскийСубтитры: английскиеПродолжительность: 01:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5F734DE08E8E193EE2B3113F289D7D8F5D8A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836139   (252266) от 09.11.2025
+
+Рейд 2 / Serbuan maut 2: Berandal / The Raid 2: Berandal (2014) BDRip [AV1/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из трёх полицейских, выбравшихся из того кровавого ада, в живых остался только Рама. Уволившись из спецназа, он пробует начать жизнь заново, но вскоре прошлое жестко напоминает о себе — преступники убивают его брата. Чтобы отомстить, Рама внедряется в криминальный синдикат.Производство: Индонезия, США, Малайзия / Pt. Merantau Films, Sony Pictures ClassicsЖанр: боевик, криминал, триллерРежиссер: Гарет ЭвансАктеры: Ико Уайс, Арифин Путра, Тио Пакусодево, Ока Антара, Алекс Аббад, Чечеп Ариф Рахман, Чечеп Ариф Рахман, Джулия Эстелл, Вери Три Юлисман, Рюхэй Мацуда, Кэнъити ЭндоПеревод: Дублированный (Лицензия), многоголосый (Kinoteatr TV)Язык озвучки: Русский, узбекский, английскийСубтитры: АнглийскиеПродолжительность: 02:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F96225E1EAC30218B5C1D01E590F345015F57C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633982   (252174) от 18.05.2023
 
 Блуждающая Земля 2 / Liu lang di qiu 2 / The Wandering Earth II (2023) WEB-DL [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252174.jpg" />
+  <img src="Z:/picture/004/save_picture_252174.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252168.jpg" />
+  <img src="Z:/picture/004/save_picture_252168.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252109.jpg" />
+  <img src="Z:/picture/004/save_picture_252109.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252079.jpg" />
+  <img src="Z:/picture/004/save_picture_252079.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251264.jpg" />
+  <img src="Z:/picture/004/save_picture_251264.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250906.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250133.jpg" />
+  <img src="Z:/picture/004/save_picture_250133.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249850.jpg" />
+  <img src="Z:/picture/004/save_picture_249850.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249812.jpg" />
+  <img src="Z:/picture/004/save_picture_249812.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249551.jpg" />
+  <img src="Z:/picture/004/save_picture_249551.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249455.jpg" />
+  <img src="Z:/picture/004/save_picture_249455.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249435.jpg" />
+  <img src="Z:/picture/004/save_picture_249435.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249389.jpg" />
+  <img src="Z:/picture/004/save_picture_249389.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247561.jpg" />
+  <img src="Z:/picture/004/save_picture_247561.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247556.jpg" />
+  <img src="Z:/picture/004/save_picture_247556.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247529.jpg" />
+  <img src="Z:/picture/004/save_picture_247529.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247247.jpg" />
+  <img src="Z:/picture/004/save_picture_247247.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245711.jpg" />
+  <img src="Z:/picture/004/save_picture_245711.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245024.jpg" />
+  <img src="Z:/picture/004/save_picture_245024.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244981.jpg" />
+  <img src="Z:/picture/004/save_picture_244981.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244935.jpg" />
+  <img src="Z:/picture/004/save_picture_244935.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D11AF7A9EEB05D159A636F88FBFA79DF5C45E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540970   (244533) от 02.04.2022
-
-Воспоминания из будущего / Naeilui gioek / Recalled (2021) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Су-джин приходит в себя в больнице после травмы головы и ничего о своём прошлом вспомнить не может. При помощи заботливого мужа она восстанавливается и вскоре выясняет, что теперь способна видеть опасные ситуации в будущем некоторых людей. А после случайной встречи с коллегой Су-джин узнаёт, где она работала, но супруг почему-то об этом ничего ей не сказал.Производство: Корея Южная / CJ Entertainment, iFilm Co. Ltd., Tory PicturesЖанр: Триллер, детектив, криминалРежиссер: Со Ю-минАктеры: Со Е-джи, Ким Ган-у, Сон Хёк, Пак Сан-ук, Пэ Ю-рам, Ким Джон-гу, Ём Хе-ран, Пэ Джэ-ги, Пак Пом, Кон Ю-римПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, корейскийСубтитры: Английские (Full, SDH)Продолжительность: 01:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD254B1C43DF9A17E346233BC470C981D62FF935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530752   (244512) от 12.02.2022
-
-Под стук трамвайных колёс / Додескаден / Dodeskaden (1970) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244512.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу сценария фильма легли рассказы Сюгоро Ямамото. Это рассказ о больном мальчике, мечтающем стать водителем трамвая, который каждый день заходит в невидимый трамвай, поворачивает сотни невидимых рычажков, поправляет несуществующую фуражку и бежит с криком, имитирующим стук трамвайных колёс; о двух пьяницах, которые в подпитии обменялись собственными жёнами; (   Читать дальше...   )Производство: Япония, Toho Company, Yonki-no-Kai ProductionsЖанр: драмаРежиссер: Акира КуросаваАктеры: Ёситака Дзуси, Кин Сугаи, Тосиюки Тономура, Синсуке Минами, Юко Кусуноки, Дзюнзабуро Бан, Киёко Тангэ, Мичио Хино, Кэйдзи Фуруяма, Таппэй СимокаваПеревод: профессиональный одноголосый (Деваль Видео)Субтитры: английскиеПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78C28384ECECBD435FFD6B82B04C9C8FC2EF8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621814   (244145) от 27.03.2023
-
-Врата дракона / Long men fei jia / The Flying Swords of Dragon Gate (2011) BDRip [H.264/720p] [Open Matte]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена династии Мин Китаем фактически управляли евнухи. В операции по спасению преследуемых чиновников фехтовальщик Чжао Хуайань убивает главу Восточной Палаты, евнуха Вань Юйлоу, таким образом делая себя главной мишенью главы Западной Палаты, евнуха Юй Хуатяня. Хуайань и его компания бегут в пустыню на границе, в гостиницу Врата Дракона. Там беглецы сталкиваются (   Читать дальше...   )Производство: Китай, Beijing Liangzi Group, Beijing Poly-bona Film Publishing Company, Bona International Film GroupЖанр: боевик, приключенияРежиссер: Харк ЦуйАктеры: Джет Ли, Сю-Вонг Фан, Сюнь Чжоу, Луньмэй Квай, Кун Чен, Юйчунь Ли, Мевис ФэнПеревод: дублированный, любительский двухголосый, любительский одноголосыйЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0FEAF5FCF09E505D32127CA3DE62893251AC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567850   (243711) от 04.08.2022
-
-Американские приключения / Однажды в Китае и Америке / Wong fei hung VI: Sai wik hung see / Once Upon a Time in China and America (1997) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер Вонг, основатель школы восточных единоборств, вместе с учениками отправляется в Америку. На Диком Западе, где самым весомым аргументом является кольт и крепкий кулак, ему на практике приходится доказать свое непревзойденное мастерство владения боевыми искусствами..Производство: Гонконг / China Star Entertainment, Win's Entertainment LtdЖанр: боевик, приключения, вестернРежиссер: Саммо ХунгАктеры: Джет Ли, Розамунд Кван, Ксин Ксин Ксион, Квок-Понг Чан, Джефф Вульф, Джозеф Сайа, Конг Ланг, Ричард ЭнДжи, Уильям Фанг, Джонни Ку, Роджер Йуан, Район Маршалл, Т.Дж. СтормПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EF50568F474DBD10D1DE68B4F49E3E9D1FFDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626678   (243686) от 15.04.2023
-
-Я дарю тебе свою первую любовь / Boku no hatsukoi wo kimi ni sasagu (2009) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённой манге Аоки Котоми. История Такумы и Маю началась ещё в детстве. Тогда из-за проблем с сердцем Такума часто лежал в больнице, где и познакомился с дочерью своего лечащего врача. С тех пор они становились всё ближе и ближе. Когда Такуме было восемь лет, он дал Маю обещание, которое не мог сдержать. Он пообещал, что женится на ней, когда им будет (   Читать дальше...   )Производство: Япония, D.N. Dream Partners, Nippon Television Network (NTV), Pivot Plus Music (PPM)Жанр: драма, мелодрамаРежиссер: Такехико СиндзоАктеры: Мао Иноэ, Масаки Окада, Нацуки Харада, Кейко Хориути, Ёсихико Хосода, Масатака Кубота, Ёуко Моригучи, Тору Накамура, Мари Окамото, Тэтта СугимотоПеревод: любительский многоголосыйЯзык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52FC64274BD4DCF7B828A1B3E9693CEA314B6E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

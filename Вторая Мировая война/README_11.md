@@ -1,3 +1,55 @@
+###  Публикация: 934362   (503485) от 04.09.2015
+
+Август (2015) HDTV [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм «Август» посвящён стратегической военной операции Вооруженных сил Советского Союза против войск нацистской Германии и Румынии во время Великой Отечественной войны (с целью разгрома крупной немецко-румынской группировки, прикрывавшей балканское направление, освобождения Молдавии и вывода Румынии из войны) — Ясско-Кишинёвской операции. В Советской (   Читать дальше...   )Телекомпания: ЗАО «Телекомпания ТСВ»Жанр: Документальный, просветительский, познавательныйПеревод: ОтсутствуетПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9901E68E3935CCA1291901C8C62D08A824251BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234174   (502584) от 07.09.2010
+
+Живая история: Война и мир (2007) SATRip (8 фильмов из 8)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает страшную правду о временах Великой Отечественной войны. О том, как жили простые люди на окуппированных территориях – на Украине, в Белоруссии, в РСФСР. Они оказались между двух огней: с одной стороны – фашистские комендатуры, с другой – партизанские формирования. Никому невозможно верить, никому нельзя отказать. В этой ситуации все вели себя по-разному, (   Читать дальше...   )Производство: ООО „Профи ТВ“Жанр: ДокументальныйРежиссер: Ярослав Гэляс, Богдан КоровченкоПеревод: не требуется (фильм на русском)Продолжительность: 00:44:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 234156   (501602) от 08.09.2010
 
 Живая история: Нюрнберг. Дело врачей нацистов (2008) SATRip
@@ -6,7 +58,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501602.jpg" />
+  <img src="Z:/picture/008/save_picture_501602.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498268.jpg" />
+  <img src="Z:/picture/008/save_picture_498268.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498228.jpg" />
+  <img src="Z:/picture/008/save_picture_498228.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488643.jpg" />
+  <img src="Z:/picture/008/save_picture_488643.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487880.jpg" />
+  <img src="Z:/picture/008/save_picture_487880.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486907.jpg" />
+  <img src="Z:/picture/008/save_picture_486907.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481830.jpg" />
+  <img src="Z:/picture/008/save_picture_481830.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ NG: Нерассказанные истории второй мировой во
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_481809.jpg" />
+  <img src="Z:/picture/005/save_picture_481809.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481678.jpg" />
+  <img src="Z:/picture/008/save_picture_481678.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479253.jpg" />
+  <img src="Z:/picture/008/save_picture_479253.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476544.jpg" />
+  <img src="Z:/picture/008/save_picture_476544.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469879.jpg" />
+  <img src="Z:/picture/008/save_picture_469879.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468837.jpg" />
+  <img src="Z:/picture/008/save_picture_468837.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464298.jpg" />
+  <img src="Z:/picture/008/save_picture_464298.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463893.jpg" />
+  <img src="Z:/picture/008/save_picture_463893.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463143.jpg" />
+  <img src="Z:/picture/008/save_picture_463143.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460682.jpg" />
+  <img src="Z:/picture/008/save_picture_460682.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458288.jpg" />
+  <img src="Z:/picture/008/save_picture_458288.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453107.jpg" />
+  <img src="Z:/picture/008/save_picture_453107.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450623.jpg" />
+  <img src="Z:/picture/008/save_picture_450623.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450189.jpg" />
+  <img src="Z:/picture/008/save_picture_450189.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448302.jpg" />
+  <img src="Z:/picture/008/save_picture_448302.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446916.jpg" />
+  <img src="Z:/picture/008/save_picture_446916.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445214.jpg" />
+  <img src="Z:/picture/008/save_picture_445214.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C4D347C4CBD87E98EA2AD381873D555E8B46FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943850   (445059) от 05.10.2015
-
-Атомная бомба Адольфа Гитлера. Версии (2015) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445059.jpg" />
-</div>
-
-
-###  Подробнее
-
-О попытках создания ядерного оружия в гитлеровской Германии. О том, что проводившиеся в Тюрингии в 1943 году испытания имели отношения именно к этим попыткам. О том, что атомное оружие нацистами было, по всей видимости, действительно создано. И о том, что предотвратило его использование против СССР и его союзников в конце Второй мировой войны.Телекомпания: "Голд-медиум"Жанр: ДокументальныйПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570379   (442869) от 17.08.2022
-
-В июне сорок четвертого. Герои Свирского десанта (2022) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освобождение Правобережной Украины и Крыма говорило о том, что главным направлением летом 1944 года будет южное. На севере нового большого наступления фашисты не ожидали. Сталин же понимал – Финляндию нужно выводить из игры. Фильм раскроет детали уникальной Свирско-Петрозаводской операции, решившей две важнейшие задачи: ликвидация угрозы Ленинграду со стороны Финляндии, (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: документальный, история, войнаРежиссер: Сергей МерзляковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB9257DEDD29E5385C5516694F568075B503FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

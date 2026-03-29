@@ -1,25 +1,25 @@
-###  Публикация: 1736644   (106653) от 13.07.2024
+###  Публикация: 1729717   (108028) от 12.06.2024
 
-Александр Городницкий  - 2 Альбома (1997-1998) [MP3|320 Kbps] <Авторская песня>
+Libra - Follow The Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Снег
-02. А женам надоели расставанья...
-03. Бухта Тикси / Две весны
-04. Песня полярных летчиков(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:39:19
+01 - Journeying
+02 - Live Yourself
+03 - My Shining Soul
+04 - I'll Breathe For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A544BD528397BAC0DE9F5B370A341C1C9073A53
+magnet:?xt=urn:btih:D8937EEC07884E4DA832467348E87EEB41FB391C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,111 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736690   (106652) от 13.07.2024
+###  Публикация: 1729762   (108027) от 12.06.2024
 
-О.С. Ушакова (редактор) | Развитие речи детей 5-7 лет (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена вопросам развития речи детей дошкольного возраста старшей и подготовительной к школе групп. Предлагаются методические рекомендации по организации образовательной деятельности. Рассмотрены возрастные особенности развития речи детей 5-7 лет. Вводная часть знакомит с теоретическими основами программы и методики.
-В пособии дается материал для занятий, (   Читать дальше...   )Жанр: учебное, методическое пособиеИздательство: Москва: СфераФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D9D99321E50D6EF1AEAF6C6E63691ED50BE671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736611   (106651) от 13.07.2024
-
-John Lennon - Mind Games (1973) The Ultimate Collection, 2024, UMC [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Pop rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Games (Out-take, Take 7)  (4:23)
-02. Tight A$ (Out-take, Take 6)  (2:08)
-03. Aisumasen (I'm Sorry) (Out-take, Take 2)  (4:40)
-04. One Day (At A Time) (Out-take, Take 18)  (3:15)(   Читать дальше...   )Жанр: Rock, Pop rockПродолжительность: 6CD, 04:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEF4F68A07AD7864BC72DB6A3CCDFC753327CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736640   (106650) от 13.07.2024
-
-PilotEdit Lite & Pro 18.9.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
-PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E7AE2A234909D67C577710B7EA45E8D2B6942D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736160   (106649) от 13.07.2024
-
-VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk>
+VA - DJ Hits 48 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jennifer Lopez - Waiting For Tonight
-02. Anastacia - I'm Outta Love
-03. Christina Aguilera - Genie In A Bottle
-04. Dido - Here With Me(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, FolkПродолжительность: 06:04:23
+01. Captain Jack - Captain Jack
+02. Clubzone feat. Ricardo Lyte - Passion of the night
+03. Culture Beat - Take me away (dance mix)
+04. Nina - The reason is you (7'' mix)(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:12:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9B1D89B9A092C864082F3AD4C0C03980B582B58
+magnet:?xt=urn:btih:662CCFAD9CF51A80B3D07587820CF68CA90D5D66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,25 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736695   (106648) от 13.07.2024
+###  Публикация: 1729711   (108026) от 12.06.2024
 
-Виктория Шиманская | Коммуникация. Найди общий язык с кем угодно (2022) [MP3, Сания Галеева]
+Борис Пастернак | Стихотворения (2008) [MP3, Вера Павлова]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Виктория Шиманская — доктор психологии и автор первой в России запатентованной методики развития эмоционального интеллекта — уверена, что именно искусство коммуникации делает обычного человека выдающимся. Но самое главное — хорошим коммуникатором может стать каждый. Она подготовила простые, но эффективные упражнения на каждый день. Чтобы выполнять их, не требуется (   Читать дальше...   )Жанр: воспитание детей, детская психология, подростковая психология, эмоциональный интеллектИздательство: Альпина ДиджиталПродолжительность: 01:41:04
+Серия/Цикл: Литературные чтения.
+Борис Леонидович Пастернак (1890–1960) – величайший лирик XX столетия. За более чем полувековой период творчества он создал стихотворения, вошедшие в сокровищницу мировой поэзии.
+Актерское чтение стихов отличается от поэтического. Актер всегда занимается голосовой интерпретацией материала, а с точки зрения поэта стихи должны «читать (   Читать дальше...   )Жанр: Русская литература, классика, лирика, поэзияИздательство: КонтентМедиаПродолжительность: 01:18:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AB6707872B204A0077C533281D97A4880090C35
+magnet:?xt=urn:btih:550473ADAB52AA6827198B4C3B2897545E45D53B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,25 +84,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736689   (106647) от 13.07.2024
+###  Публикация: 1729700   (108025) от 12.06.2024
 
-Мария Папаянни | Одинокое дерево (2023) [MP3, Георгий Геласов]
+LuLa Featuring Papa Joe - Last Night A DJ Saved My Life [While A DJ Gave Me Trouble] (2008) [FLAC|Lossless|tracks] <Progressive House, Tech House>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В греческой деревне на краю утеса, что смотрит в море, стоит Одинокое Дерево. Давным-давно его почитали, как святыню, украшали ветви подношениями и заклинали утихомирить волны, чтобы не разбушевался шторм. Но с тех пор уже много лет никто не приходит к дереву, не сидит в тени его ветвей и не устраивает праздника в его честь… Спустя долгие годы, проведенные в клинике (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, повестиПеревод: Анна КовалёваИздательство: СамокатПродолжительность: 05:17:55
+01. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (LuLa radio drop/shout) (0:07)
+02. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (Eddie Cumana vs Bruno Renno vs Eddie Amador mixshow mix) (4:42)
+03. LuLa Featuring Papa Joe – Last Night A DJ Saved My Life (While A DJ Gave Me Trouble) (Eddie (   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:18:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32D692C83561C1327F7020EC5EF7D29177CDA073
+magnet:?xt=urn:btih:DD5E1036072CD40B040FA6DFDB6F2DBA7F799E85
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,224 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736782   (106646) от 13.07.2024
+###  Публикация: 1729646   (108024) от 12.06.2024
 
-Griff - Vertigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo (3:00)
-02. Miss Me Too (3:02)
-03. Into The Walls (3:09)
-04. 19th Hour (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9C1249A8E8D84B4D9EE03261211FF06E260A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736515   (106645) от 13.07.2024
-
-Vexxum - Lost In Infinity (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Pit 03:50
-02. Branded 05:44
-03. Blood Eclipse 04:56
-04. Twisted Path 04:48(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21137578866AC5986896B10DBABAD5358726D457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736610   (106644) от 13.07.2024
-
-Ren X - Rain (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gen Omega
-02 - Barry Nights
-03 - This Feeling
-04 - Brand Feel(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55649781639966EE6F666BBC7A4BF09FD54213D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736723   (106643) от 13.07.2024
-
-Jade Warrior - Borne On The Solar Wind: The Vertigo Albums (2022) Remastered, 2024, Esoteric Recordings [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106643.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Traveller
-02. A Prenormal Day at Brighton
-03. Masai Morning(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15294785A4D15DDD47DBC39FC9DCAFC2F02351E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736667   (106642) от 13.07.2024
-
-Константин Паустовский | Маленькие повести (2017) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Константин Георгиевич Паустовский – классик русской литературы, член Союза писателей СССР. Книги К. Паустовского неоднократно переводились на многие языки мира. Во второй половине XX века его повести и рассказы вошли в российских школах в программу по русской литературе для средних классов как один из сюжетных и стилистических образцов пейзажной и лирической прозы. (   Читать дальше...   )Жанр: детская классика, повестиИздательство: СОЮЗПродолжительность: 11:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABF2E9F809A5CF807F4C79732B3999A674A23E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736713   (106641) от 13.07.2024
-
-Екатерина Мурашова | Лекция «Как установить границы для ребёнка?» (2015) [MP3, Екатерина Мурашова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Установление границ никогда не вредит психике ребёнка. Психике ребёнка вредит их отсутствие. Если что-то можно разрешить – разрешите. Если что-то можно дать – дайте!
-
-Для чего же нужны границы между родителями и детьми, и как их правильно устанавливать?Жанр: детская психология, подростковая психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A180BB426BD1F3A2053A30DEA7668B662D2FD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736568   (106640) от 13.07.2024
-
-Юлия Яковлева | Ленинградские сказки (Книга 1). Дети ворона (2022) [MP3, Роза Шмуклер]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему-то ночью уехал в командировку папа, а через несколько дней бесследно исчезли мама и младший братишка, и Шурка с Таней остались одни. «Ворон унёс» — шепчут все вокруг. Но что это за Ворон и кто укажет к нему дорогу? Границу между городом Ворона и обычным городом перейти легче лёгкого — но только в один конец. Лишь поняв, что Ворон в Ленинграде 1938 года — повсюду, (   Читать дальше...   )Жанр: детская проза, историческая литератураИздательство: СамокатПродолжительность: 05:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7521EE5E3145A09043CD94CF6E2DFB434B7B290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736562   (106639) от 13.07.2024
-
-Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hello Like Before [5:06]
-02. A Time For Love [6:37]
-03. Yes Sir That's My Baby [2:59]
-04. Soft Shoe [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:28
+01. The Lonesome Road [2:35]
+02. You Set Me on Fire [2:41]
+03. Baby Won't You Please Come Home? [2:54]
+04. I've Only Myself to Blame [2:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E272AE80F67FD4868887BB16F013361A232AF964
+magnet:?xt=urn:btih:376A085C5FCB62A1B207686BB73B6AD81175E358
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,27 +141,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736700   (106638) от 13.07.2024
+###  Публикация: 1729732   (108023) от 12.06.2024
 
-Екатерина Мурашова | Лекция «Подростковый возраст и подростковый кризис» (2015) [MP3, Екатерина Мурашова]
+Журнал | Народный доктор №11 (657) (июнь 2024) [PDF]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подростковый кризис – это не запрос на взрослость, а запрос на пересмотр договора. И если родители не соглашаются его пересмотреть, не признают этой необходимости, тогда и начинается кризис.
-
-О том, как этого избежать – на лекции психолога Катерины Мурашовой.Жанр: детская психология, подростковая психология, психология личностиИздательство: Лекторий "Прямая Речь"Продолжительность: 01:38:29
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D776A374A0CF4D3614C60C6CC90A3E30A0E22B19
+magnet:?xt=urn:btih:C99678B8B4985DBD0FDFCEDCA4997FA570FC86C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736540   (106637) от 13.07.2024
+###  Публикация: 1729614   (108022) от 12.06.2024
 
-Photo Supreme 2024.2.1.6576 RePack (& Portable) by elchupacabra [Multi/Ru]
+Шах и мат / Menudas piezas / Checkmates (2024) WEB-DLRip [H.264] [звук с TS] [AD]
 
->>Архив торрентов
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Жизнь Канделы в одночасье кардинально меняется, и она из успешной преподавательницы элитного колледжа превращается в простую училку в не самой лучшей школе «на районе». Теперь ей придется обучать трудных подростков из неблагополучных семей. Благодаря Канделе у компании школьных аутсайдеров появляется реальный шанс стать чемпионами страны по шахматам. Ведь в шахматах (   Читать дальше...   )Производство: Испания / Aragon TV, Ayuntamiento de Zaragoza, Diputación de ZaragozaЖанр: комедияРежиссер: Начо Г. ВелильяАктеры: Александра Хименес, Луис Кальехо, Росио Велайос, Пабло Луазель, Вероника Сенра, Кико Бена, Tuoxin Qiu, Франсеск Орелья, Мария Аданес, Мигель РельянПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:00Реклама: Плавающий баннер
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FBDDB352AC696D1DEA1E88EAB6E78B4D0FA0B0E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,218 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736594   (106636) от 13.07.2024
+###  Публикация: 1729669   (108021) от 12.06.2024
 
-Виталий Заиграев - Для своих (2024) [MP3|320 Kbps] <Военная песня, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - За Донбасс [00:04:07]
-02 - Война [00:02:55]
-03 - После войны [00:02:55]
-04 - Герои России [00:03:33](   Читать дальше...   )Жанр: Военная песня, ChansonПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736699   (106635) от 13.07.2024
-
-Мзаго и Гела / На волне 900 метров / Девушка с гор (1932) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 1928 году в грузинском горном селе. Молодой крестьянин Гела полюбил девушку Мзаго, они собирались пожениться. Тем временем в село приехала группа советских туристов, которая познакомила местных жителей с работой радиоприемника. Особенно новое устройство понравилось Мзаго. Она уехала изучать радиотехнику в Тифлис. Но Гела подумал, что (   Читать дальше...   )Производство: СССР / Госкинпром ГрузииЖанр: драма, мелодрама, немое киноРежиссер: Шалва Хускивадзе, Лев ПушАктеры: Р. Мхеидзе, Леван Хотивари, Александре Цитлидзе, С. Вачнадзе, Ольга КежерадзеСубтитры: русские (интертитры)Продолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21CB01117745A216ACB23DD11E4F25B9088082E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736719   (106634) от 13.07.2024
-
-Памела Трэверс | Мэри Поппинс (2021) [MP3, Мария Миронова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106634.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мэри Поппинс» – музыкальный аудиоспектакль по первой части знаменитой сказки британской писательницы Памэлы Треверс с Марией Мироновой в главной роли. Однажды на пороге самого обычного дома самой обычной семьи Бэнксов появилась необыкновенная няня по имени Мэри Поппинс – и с тех пор каждый их день наполнен волшебными приключениями.
-
-Аудиоспектакль поставлен по самому (   Читать дальше...   )Жанр: аудиоспектакль, детская классика, детские приключения, зарубежные детские книги, сказкиИздательство: ВимбоПродолжительность: 03:20:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D79A58A680D7A93AA84CF1F69E5B9145F0F20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736684   (106633) от 13.07.2024
-
-GeoGebra 6.0.848.0 Classic + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106633.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF36A04C335F00CDCD52376447EDC425409E065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736712   (106632) от 13.07.2024
-
-Военная тайна с Игорем Прокопенко (13.07.2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106632.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC02A972042C238D37725F005C5688F15EF2ABE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736648   (106631) от 13.07.2024
-
-Андрей Алешкин - Ничего не случается вдруг... (1997) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Склады
-02. Про папиросочку
-03. Про свободу
-04. Цыганочка(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736711   (106630) от 13.07.2024
-
-Екатерина Мурашова | Лекция «Наказание и манипуляции» (2016) [MP3, Екатерина Мурашова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понятие наказания – на самом деле одно из самых сложных в воспитании и педагогике. Чаще всего на практике за ним скрывается не метод как таковой, а родительская беспомощность или родительская же эмоциональная нестабильность. Условно говоря «не справились с управлением». Много хуже, если в глубине происходящего присутствует осознанная жестокость (это бывает, увы, (   Читать дальше...   )Жанр: детская психология, подростковая психологияИздательство: Лекторий "Прямая Речь"Продолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7532A832BAC8C436CC5B18FE6D8BF541EE6485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736737   (106629) от 13.07.2024
-
-VA - Black Hole Trance Music 07-24 (2024) [MP3|320 Kbps] <Trance>
+VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Giuseppe Ottaviani - Keep Running (Extended Mix) (05:51)
-02. Johan Gielen; Airscape; Gid Sedgwick - Healing (Festival Mix) (04:50)
-03. Ciaran McAuley; Linney - Reach for You (Maratone Extended Remix) (06:19)
-04. John Askew; Shelby Merry - Steady & Stronger (Extended Mix) (07:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:43
+01. Crisy - Astrum (Extended Mix) [6:30]
+02. Pourya Feredi - In The Rain (Original Mix) [3:49]
+03. Rixson - Elevate (Original Mix) [3:06]
+04. Pourya Feredi - Exploration (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A29F4A74D82CCB8E2AA01FD410EC6983877F2157
+magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +222,521 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736655   (106628) от 13.07.2024
+###  Публикация: 1729650   (108020) от 12.06.2024
 
-Алекс Коваль | Счастье с доставкой на дом (2022) [MP3, Ева Ларина]
+Black Diamonds - Destination Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь бизнесмена Романа Бурменцева – сплошная череда встреч, совещаний и командировок. Ни семьи, ни детей, ни праздников в его системе координат не существует. А уж тем более чуда! Но одна волшебная ночь за неделю до Нового года в корне перевернёт его жизнь. Когда нелепое желание, загаданное в супермаркете, неожиданным образом исполнится в самые кратчайшие сроки. (   Читать дальше...   )Жанр: Современные любовные романыИздательство: ИДДКПродолжительность: 15:18:22
+01. Through Hell And Back
+02. After The Rain
+03. Everyday Heroes
+04. Bottoms Up(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA84517484FC8D06729233514748C03049D69898
+magnet:?xt=urn:btih:82EFBFA80F89D8F612B0E5C69C3622C361B0F737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729481   (108019) от 12.06.2024
+
+Broken English Club - Decade (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn in the Fire [00:04:58]
+02. Crime (Club Edit) [00:05:34]
+03. Ritual Killing (Club Edit) [00:06:10]
+04. Concrete Desert (Ron Morelli Remix) [00:05:57](   Читать дальше...   )Жанр: Techno DanceПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4C759C60379AECE13C646701489BF03CF74B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729595   (108018) от 12.06.2024
+
+The Delta Voices - America Sings the 4th of July (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparkling Skies (3:15)
+02. Fireworks in the Sky (3:36)
+03. Small Town Fireworks (2:19)
+04. Independence Day (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA47014F4A7C3DBBB0FE8FAD1A07F7727BD8065B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729549   (108017) от 12.06.2024
+
+Hour of Penance - Cast the First Stone (2017) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.XXI Century Imperial Crusade
+02.Cast The First Stone
+03.Burning Bright
+04.Iron Fist(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F718A96C19B3A39EC6D5472DF9AE6C214AB9A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729743   (108016) от 12.06.2024
+
+Hour of Penance - The Vile Conception (2008) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misconception
+02. Liturgy of Deceivers
+03. Hideously Conceived
+04. Drowned in the Abyss of Ignorance(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D2106675DC31AB4E8BB036477B024AC51479C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729735   (108015) от 12.06.2024
+
+Hour of Penance - Pageantry for Martyrs (2005) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Towards Our Storm
+02. Shreds of Martyr
+03. End of Relief
+04. Celebrating Collective Terror(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C58626DA7BCCA82ED5497681A3E2A753B9F432F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729726   (108014) от 12.06.2024
+
+Hour of Penance - Disturbance (2003) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Zorn Gottes
+02. Rise and Oppress
+03. Mystification as Law
+04. From Hate to Suffering(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68387B13CE44679AEAD23C914A1D3FC24BD3129F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729641   (108013) от 12.06.2024
+
+Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Room for Argument [5:30]
+02. Homage & Acknowledgement (Love Supreme/Filles de Kilimanjaro) [7:47]
+03. Straight No Nothing [7:12]
+04. Metropolis [4:33](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28933356C7D8CAD375FD247AD144CCBB3966810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729642   (108012) от 12.06.2024
+
+Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anya and Liz on the Veranda [6:36]
+02. Get on the Good Foot [5:11]
+03. Better Get Hit in Your Soul [8:07]
+04. Izlyal e Delyo Haidoutin [7:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2159876B5FC003F4C02B0ECEE6080454AB197446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729583   (108011) от 12.06.2024
+
+Rarity - Lower Feeling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep it to Yourself (3:34)
+02. OKAY (3:12)
+03. Brain Dance (2:46)
+04. who gives a fuck? (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51ACE0F8F7CC6AD72A69B80625ADC6424A25EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729558   (108010) от 12.06.2024
+
+Hour of Penance - Misotheism (2019) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mass Crucifixion Of Kings
+02.Blight And Conquer
+03.Fallen From Ivory Towers
+04.The Second Babel(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE84160227B21B870A8A96CCC593178C29996D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729580   (108009) от 12.06.2024
+
+Kelsley Grant & Andrew Scott - Horizon Song (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon Song (5:26)
+02. The Tamarind Tree (5:37)
+03. Beautiful Shira (4:48)
+04. In This Time (5:07)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13948B170383EACADC6CD7B09F2BBAC9E48C6DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729480   (108008) от 12.06.2024
+
+Amon Acid - Submerging (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toad Venom [00:06:53]
+02. Crawling Chaos [00:03:50]
+03. Tetrahydron [00:13:02]
+04. Submerging [00:05:50](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F5D595C55988BA3755DD0744D2845A356BB3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729770   (108007) от 12.06.2024
+
+Корней Чуковский | Сказки Корнея Чуковского (2005) [MP3, Людмила Лубенская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мир удивительных историй.
+Эта книга для тех, кто любит стихотворные сказки Корнея Ивановича Чуковского (1882–1969).
+Вам предстоит встреча с добрым доктором Айболитом и веселым Мойдодыром, гадким и нехорошим Бармалеем, жадным Крокодилом и с другими героями, полюбившимися не одному поколению детей.
+(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Элитайл, СиДиКомПродолжительность: 03:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575FFFB6446B17B975DA18400B63D40AE8F216C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729712   (108006) от 12.06.2024
+
+Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Putting On the Ritz [00:02:24]
+02. Autumn in New York [00:03:22]
+03. Broadway [00:02:16]
+04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729495   (108005) от 12.06.2024
+
+Fjaak - Fjaak The System (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unity [00:00:58]
+02. And You Feel [00:03:21]
+03. Redemption [00:05:23]
+04. Horsepower [00:03:35](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2737E59E16BA815683A2E11EB998A2A6BCE50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729596   (108004) от 12.06.2024
+
+Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Procrastinator (2:38)
+02. Boys Don’t Lie (4:57)
+03. Face Of Jimmy (3:23)
+04. Get It On! (3:21)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60256C0F45826A5DD7D56E74DD586E2D01A583A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729693   (108003) от 12.06.2024
+
+Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mortician - австрийская хэви-метал группа из Саттайнса и Фельдкирха, Форарльберг.2011 - Mortician
+2014 - Shout For Heavy Metal
+2020 - Titans
+2023 - 40 Years Of MetalЖанр: Heavy MetalПродолжительность: 02:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

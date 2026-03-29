@@ -6,7 +6,7 @@ Sexual Music Collection - After Dark Sex Red Room (2024) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36508.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pet Shop Boys - Nonetheless (2024) expanded edition, 2024, Parlophone UK [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36506.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36485.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36483.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36482.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36479.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36471.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36470.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mystery Moon - Shine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36467.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36466.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Van Zant - Always Look Up (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36465.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Viktoria Tolstoy - Stealing Moments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36464.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Storace - Crossfire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36461.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sunstorm - Restless Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36459.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tygers Of Pan Tang - Animal Instinct (2008) Reissue, 2024, Mighty Music [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36457.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Black Pumas - Live from Brooklyn Paramount (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36456.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Smoothies - It's Christmas Around the World: A Cozy Soulful Christmas (2024)
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36452.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Motley Crue - Dr. Feelgood (1989) 35th Anniversary, Remaster, 2024,  BMG Rights 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36451.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alice Cooper - Muscle Of Love (Expanded) (1973) Reissue, Remastered, 2024, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36447.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36255.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35839.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35836.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35833.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35827.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Various Artists - Eric Clapton's Crossroads Guitar Festival 2023 (Live) (2023) 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35723.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35631.jpg" />
 </div>
 
 

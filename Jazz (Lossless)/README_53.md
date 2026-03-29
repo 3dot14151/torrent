@@ -1,3 +1,119 @@
+###  Публикация: 1377630   (851941) от 22.04.2020
+
+Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The James Bond Theme [0:25]
+02. Surrender [5:23]
+03. On Her Majesty's Secret Service [5:13]
+04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377517   (851898) от 22.04.2020
+
+Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [6:21]
+02. Desafinado [5:39]
+03. Dindi [5:04]
+04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001954   (850568) от 30.03.2016
+
+Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zaire [06:17]
+ 02.The Sepia Love Song [08:38]
+ 03.Una Muy Bonita [05:13]
+ 04.Donna Lee [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B560DBA7487A47827C820BAE31A97E9AAC6D9E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110956   (850529) от 04.03.2017
+
+Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_850529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alone Together [11:54]
+ 02.In Your Own Sweet Way [10:12]
+ 03.Huntington Street [07:46]
+ 04.Opus d'Amour [09:41](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D3E0BC5BE86FF607EE3618392B9BFD2696334F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110930   (850442) от 04.03.2017
 
 Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) HatOLOGY [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +122,7 @@ Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850442.jpg" />
+  <img src="Z:/picture/008/save_picture_850442.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850441.jpg" />
+  <img src="Z:/picture/008/save_picture_850441.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Art Tatum - Performance: Solo Piano Recordings from 1933 to 1952 (2010) 2CD, Fue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850440.jpg" />
+  <img src="Z:/picture/008/save_picture_850440.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jon Hendricks - A Good Git-Together (1959) 2006, Pacific Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850439.jpg" />
+  <img src="Z:/picture/008/save_picture_850439.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Al Cohn & Zoot Sims - Easy as Pie: "Live" at the Left Bank (1968) 2000, Label M 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850437.jpg" />
+  <img src="Z:/picture/008/save_picture_850437.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tal Farlow - Chromatic Palette (1981) 1994, Concord Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850433.jpg" />
+  <img src="Z:/picture/008/save_picture_850433.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Benny Goodman - B.G. in Hi-Fi (1954) 1989, Capitol Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850431.jpg" />
+  <img src="Z:/picture/008/save_picture_850431.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Omar Sosa & Seckou Keita - Transparent Water (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850426.jpg" />
+  <img src="Z:/picture/008/save_picture_850426.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Gene Krupa - Four Classic Albums 1954 - 1957 (2014) 2CD, Avid Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850171.jpg" />
+  <img src="Z:/picture/008/save_picture_850171.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Fats Waller - 1935, Vol. 2 (1994) Classics [FLAC|Lossless|tracks + .cue] <Stride
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849651.jpg" />
+  <img src="Z:/picture/008/save_picture_849651.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Brian Culbertson - The Trilogy, Pt. 1: Red (2021) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849644.jpg" />
+  <img src="Z:/picture/008/save_picture_849644.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tony Bennett & Lady Gaga - Love For Sale (2021) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849520.jpg" />
+  <img src="Z:/picture/008/save_picture_849520.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Niels Henning Orsted Pedersen Trio - To A Brother (1993) Pladecompagniet [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848500.jpg" />
+  <img src="Z:/picture/008/save_picture_848500.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Gerald Wilson - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847977.jpg" />
+  <img src="Z:/picture/008/save_picture_847977.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sarah Menescal - Cafe Bossa Nova (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nov
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847674.jpg" />
+  <img src="Z:/picture/008/save_picture_847674.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Duke Pearson - Merry Ole Soul (1969) Remaster, 2014, Universal[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847212.jpg" />
+  <img src="Z:/picture/008/save_picture_847212.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Patton - Memphis To New York Spirit (1969-1970) Remaster, 2014, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847208.jpg" />
+  <img src="Z:/picture/008/save_picture_847208.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ John Coltrane - Ascension (1965) 2009, Verve[FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847207.jpg" />
+  <img src="Z:/picture/008/save_picture_847207.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Kenny Burrell - Blue Lights, Volume 2 (1958) Remaster, 2000, Toshiba[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847204.jpg" />
+  <img src="Z:/picture/008/save_picture_847204.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Ceu - Tropix (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847008.jpg" />
+  <img src="Z:/picture/008/save_picture_847008.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846806.jpg" />
+  <img src="Z:/picture/008/save_picture_846806.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846805.jpg" />
+  <img src="Z:/picture/008/save_picture_846805.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:715A74B7D31A50A6BADE26DC98194FE2FC3C3457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111848   (846804) от 06.03.2017
-
-Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.J.C. [07:12]
- 02.I'm Getting Sentimental Over You [05:06]
- 03.Play Together Again [05:16]
- 04.Waltz For Junior [07:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8513B8A706BBCC22D170A93C79086E4476DE7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111809   (846754) от 06.03.2017
-
-Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bockhanal [03:01]
- 02.Ergo [03:12]
- 03.Moonlight Becomes You [03:28]
- 04.Headline [03:12](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111804   (846751) от 06.03.2017
-
-Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Django [06:54]
- 02.Duerme Negrita [05:18]
- 03.Evidence [05:16]
- 04.Gracias a la vida [09:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499658   (846323) от 03.10.2021
-
-Johnny Griffin & Eddie "Lockjaw" Davis - Ow! Live at the Penthouse (1962) 2019, Reel to Real [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermission Riff (Intro by Jim Wilke) [0:53]
-02. Blues Up and Down [6:48]
-03. Ow! [8:20]
-04. Spoken Introduction [0:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB475A754C984824A60018F9E8A4C7C9EC3D8BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

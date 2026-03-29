@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717906.jpg" />
+  <img src="Z:/picture/008/save_picture_717906.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 12.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717905.jpg" />
+  <img src="Z:/picture/008/save_picture_717905.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717904.jpg" />
+  <img src="Z:/picture/008/save_picture_717904.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717902.jpg" />
+  <img src="Z:/picture/008/save_picture_717902.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717883.jpg" />
+  <img src="Z:/picture/008/save_picture_717883.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CHARLIE & ESDOR - Charlie & Esdor (1970) [MP3|256 kbps]<Old Psychedelic Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717814.jpg" />
+  <img src="Z:/picture/005/save_picture_717814.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Running Wild - Riding The Storm - The Very Best Of The Noise Years 1983-1995 (20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717774.jpg" />
+  <img src="Z:/picture/008/save_picture_717774.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717772.jpg" />
+  <img src="Z:/picture/008/save_picture_717772.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ ReviverSoft Registry Reviver 4.6.2.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717764.jpg" />
+  <img src="Z:/picture/008/save_picture_717764.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717759.jpg" />
+  <img src="Z:/picture/008/save_picture_717759.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Mirillis Splash PRO EX Player 1.7.0.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717732.jpg" />
+  <img src="Z:/picture/005/save_picture_717732.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Corel PDF Fusion v1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717727.jpg" />
+  <img src="Z:/picture/005/save_picture_717727.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ BurnAware Professional 11.2 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717658.jpg" />
+  <img src="Z:/picture/008/save_picture_717658.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717628.jpg" />
+  <img src="Z:/picture/008/save_picture_717628.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717626.jpg" />
+  <img src="Z:/picture/008/save_picture_717626.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Best Fantasy Girls 1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717624.jpg" />
+  <img src="Z:/picture/008/save_picture_717624.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717621.jpg" />
+  <img src="Z:/picture/008/save_picture_717621.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Cacheman 10.0.1.0 DC 07.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717618.jpg" />
+  <img src="Z:/picture/008/save_picture_717618.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mozilla Firefox 38.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717597.jpg" />
+  <img src="Z:/picture/008/save_picture_717597.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Govi - Touch Of Light (2008) [MP3|320 kbps]<New age, flamenco>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717588.jpg" />
+  <img src="Z:/picture/005/save_picture_717588.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717564.jpg" />
+  <img src="Z:/picture/008/save_picture_717564.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CocCoc 68.4.190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717530.jpg" />
+  <img src="Z:/picture/008/save_picture_717530.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Pineal Land (Compiled by Younion) (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717528.jpg" />
+  <img src="Z:/picture/008/save_picture_717528.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Ant Download Manager Pro 1.7.6 Build 49823 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717523.jpg" />
+  <img src="Z:/picture/008/save_picture_717523.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Tipard Mac Video Enhancer 9.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717521.jpg" />
+  <img src="Z:/picture/008/save_picture_717521.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Ashampoo Photo Commander 16.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717520.jpg" />
+  <img src="Z:/picture/008/save_picture_717520.jpg" />
 </div>
 
 

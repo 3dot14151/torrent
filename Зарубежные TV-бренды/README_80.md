@@ -1,3 +1,107 @@
+###  Публикация: 1320507   (470911) от 18.08.2019
+
+NG: Миссия Сатурн (Внутри колец Сатурна) / Mission Saturn (2014) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470911.jpg" />
+</div>
+
+
+###  Подробнее
+
+На прекрасной планете Сатурн, более чем в миллиарде километров от Земли, космический аппарат стоимостью 3 млрд $, движется навстречу гибели. Это не авария, а жертва, призванная уберечь то, что позволила открыть эта миссия, включая спутник, на котором есть все необходимые для зарождения жизни компоненты. Мы не имеем права загрязнять мир, где может развиться жизнь (   Читать дальше...   )Производство: Канада, Exploration production Inc. in association with Discovery Channel and National GeographicЖанр: Документальный, научно-популярный, космосРежиссер: Шелли ЭйрсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5ACBF1590FB5069FCFF378AF1C9A6F7C462A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058056   (470828) от 30.09.2016
+
+NG: Титаник. Заключительное слово с Джеймсом Кэмероном / Titanic. The Final Word with James Cameron (2012) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470828.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Айсберг!!! Прямо по курсу..." - эту часть истории о Титанике мы все знаем. Но что происходило с кораблем после того, как он скрылся под водой? Титаник - превосходная, не решенная загадка. Что происходило в последние минуты с кораблем? Как он развалился? Как он утонул? Как достиг дна? Почему он затонул так быстро? Можно ли было спасти больше людей? Впервые (   Читать дальше...   )Телекомпания: США, Market Road Films, Earthship Productions, National Geographic TelevisionЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3A8205F38CF860348FD417510F28A22995B963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320433   (470795) от 18.08.2019
+
+NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/720p-LQ] (серии 4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470795.jpg" />
+</div>
+
+
+###  Подробнее
+
+За пределами привычной нам реальности скрывается другой невероятный мир, противоречащий многим нашим представлениям о вселенной. Физик и известный писатель Брайан Грин, приглашает вас в путешествие, раздвигающее рамки человеческого плана. Почему в нашей вселенной не происходят события в обратном порядке? Ведь законы физики вполне это допускают.Производство: США, Великобритания, Франция, National Geographic Channel, NOVA Production by The Film Posse, ARTE FranceЖанр: Документальный, познавательный, научно-популярныйРежиссер: Грэхам Джадд, Сейбин СтритерПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D782ADEEC622AFED95A89133FA75560CE7E8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058136   (470706) от 30.09.2016
+
+Discovery: Один день в Освенциме / One Day In Auschwitz (2015) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плохое всегда хочется забыть. Однако есть события, о которых мы обязаны помнить, чтобы они больше никогда не повторились. К дню памяти жертв Холокоста Discovery Channel покажет программу «Один день в Освенциме», где об одном из самых страшных фашистских концентрационных лагерей расскажет его бывшая узница – Китти Хорт-Мокстон. Китти не побоялась вернуться туда, где (   Читать дальше...   )Телекомпания: США, USC Shoah Foundation & Discovery Networks InternationalЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0509ED0A35BE481C26ED79C15DDACD91CF7E7C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058055   (470699) от 30.09.2016
 
 NG: Титаник. Заключительное слово с Джеймсом Кэмероном / Titanic. The Final Word with James Cameron (2012) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470699.jpg" />
+  <img src="Z:/picture/008/save_picture_470699.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470147.jpg" />
+  <img src="Z:/picture/008/save_picture_470147.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470023.jpg" />
+  <img src="Z:/picture/008/save_picture_470023.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470019.jpg" />
+  <img src="Z:/picture/008/save_picture_470019.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470013.jpg" />
+  <img src="Z:/picture/008/save_picture_470013.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Discovery: Выжить после селфи / Still Alive (2015) HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469353.jpg" />
+  <img src="Z:/picture/008/save_picture_469353.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ NG: 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469024.jpg" />
+  <img src="Z:/picture/008/save_picture_469024.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468757.jpg" />
+  <img src="Z:/picture/008/save_picture_468757.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ NG. 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468234.jpg" />
+  <img src="Z:/picture/008/save_picture_468234.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Discovery:Правда о Нострадамусе / Nostradamus Decoded (2009) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467415.jpg" />
+  <img src="Z:/picture/008/save_picture_467415.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466748.jpg" />
+  <img src="Z:/picture/008/save_picture_466748.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466408.jpg" />
+  <img src="Z:/picture/008/save_picture_466408.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466068.jpg" />
+  <img src="Z:/picture/008/save_picture_466068.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466067.jpg" />
+  <img src="Z:/picture/008/save_picture_466067.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip (сезон
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465797.jpg" />
+  <img src="Z:/picture/008/save_picture_465797.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465477.jpg" />
+  <img src="Z:/picture/008/save_picture_465477.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ NG. Осушить океан: тайны нацистов / Drain the Oceans. N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465467.jpg" />
+  <img src="Z:/picture/008/save_picture_465467.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465191.jpg" />
+  <img src="Z:/picture/008/save_picture_465191.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464268.jpg" />
+  <img src="Z:/picture/008/save_picture_464268.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ History Channel: В поисках исчезнувших великанов / S
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464265.jpg" />
+  <img src="Z:/picture/008/save_picture_464265.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Discovery: Сибирская рулетка (сезон 1, серии 1-4 из 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464108.jpg" />
+  <img src="Z:/picture/008/save_picture_464108.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464037.jpg" />
+  <img src="Z:/picture/008/save_picture_464037.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AC377E41F142BC2C2EF539DD105F5CC23F7A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053722   (463782) от 03.10.2016
-
-Первопроходцы / Trailblazers (2016) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Множество открытий было совершено благодаря тому, что ученые, рискуя жизнью, забирались в непроходимые джунгли, поднимались высоко в горы и спускались в пещеры, пересекали океаны и преодолевали пустыни. Но рядом с ними почти всегда были люди, которые прокладывали им путь – первопроходцы-экстремалы, которые владеют секретами выживания в дикой природе. Познакомьтесь (   Читать дальше...   )Производство: Великобритания /  October FilmsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: каждая серия ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678D78077D3A40F389F5BF26903A92389E817DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161764   (463560) от 30.08.2017
-
-NGW: Секретная жизнь жемчужин / The Secret Life of Pearls (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воды Южных морей – удивительный край, где хранятся несметные сокровища, сокрытые внутри невзрачных раковин диких моллюсков. Жемчуг, добытый на северо-западном побережье Австралии - в Кимберли, имеет особую ценность. Из-за превосходно ровной формы и уникальной игры переливов он ценится выше большинства драгоценностей. Охотники за сокровищами часто рискуют жизнью, (   Читать дальше...   )Производство: Австралия, Eye Spy Productions Pty Ltd and Northern PicturesЖанр: Документальный, природа, флора, фаунаРежиссер: Ник РобинсонПеревод: Одноголосый закадровый, профессиональный  (Велес)Субтитры: отсутствуютПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488471B63E59A429803A2261C7D5018D742566C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246466   (463299) от 10.09.2018
-
-NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 серий)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463299.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью новейших технологий, захватывающих снимков и данных лучших морских археологов сериал «Осушить океан» как бы проходит плугом по дну океана, обнажая скрытые в толще воды тайны. Мы увидим погрузившиеся в воду города, затонувшие корабли и другие удивительные чудеса, скрытые в глубинах океанов и морей, найдём затерянные миры, проникнем в эпическую историю человеческой (   Читать дальше...   )Производство: США, Канада, Великобритания, National GeographicЖанр: Документальный, исследования, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 9 х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8E49CEE9B17BF0C40B74A64B8912C0D5F995C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321101   (463134) от 22.08.2019
-
-NG: Генуя. Хронология катастрофы / Genoa. Bridge Disaster (2019) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная картина об обрушении моста Моранди в Генуе. В результате случившейся трагедии 43 человека погибли. Фильм начинается с реконструкции катастрофы, которая показана посредством нескольких сюжетов. В процессе рассказов очевидцев фильм словно отматывает время назад, чтобы разобраться в причинах обрушения.Производство: Италия, National GeographicЖанр: Документальный, история, расследованиеРежиссер: Марко ВисалберчиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253D8EAD9BB36F189583F7638B15F38179F480F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1758607   (38394) от 03.11.2024
+
+Picsart AI Photo Editor, Video v26.1.6 Final Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к сообществу Picsart, насчитывающему более 150 миллионов авторов по всему миру. С помощью фоторедактора и видеоредактора Picsart AI вы сможете воплотить свои творческие идеи в жизнь. Создавайте с помощью инструментов искусственного интеллекта, создавайте коллажи профессионального уровня, создавайте и добавляйте наклейки, быстро удаляйте и меняйте (   Читать дальше...   )Тип издания: Full / GoldРелиз состоялся: 01.11.2024Разработчик: PicsArt, Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B1FDC6C5B31DE41FAD0673B514A9DFA5BAA456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758601   (38393) от 03.11.2024
 
 ToonMe v0.7.14 Mod by Mixroot [Ru/Multi]
@@ -6,7 +32,7 @@ ToonMe v0.7.14 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38393.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38372.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ IPTV Pro v8.2.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38144.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Photo Lab PRO v3.13.34 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38090.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Thenx v5.6.1 [En] Mod by youarefinished
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38077.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Speedtest от Ookla 5.5.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37917.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Duolingo: изучай языки 6.6.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37755.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ TuneIn Radio Pro v36.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37654.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ TikTok 37.2.6 Mod by Dmitry Nechiporenko + Plugin 1.58 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37498.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ GIF Maker - GIF Editor v3.0.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37384.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ KineMaster - Video Editor & Maker v7.5.7.34030.GP Mod by Shadow_Patcher [Ru/Mult
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37363.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ DjVu Reader & Viewer (читалка) v1.0.125 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37336.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Photo Lab PRO v3.13.37 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37311.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Pencil Photo Sketch : Drawing v2.0.99 Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37309.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Shazam v15.0.0-241107 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37219.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ ES File Explorer File Manager v4.4.2.17 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37211.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ PowerDirector – Video Editor v14.6.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37165.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ VideoShow VIP v10.2.5.1 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37164.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Rosetta Stone: Изучение языков 8.29.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37084.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ PictureThis - Plant Identification v5.0.13 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37079.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Textra SMS v4.77 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37063.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37012.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36982.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ FacePic - AI Face App v1.9.1 Pro Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36979.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Polarr v6.10.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36964.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Polarr v6.10.2 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:625DFBC3EFEFBB9C88AEB88F9DE0E350A30979FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761147   (36880) от 18.11.2024
-
-Filmora - Редактор видео с AI 14.2.30 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.11.2024Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C5F61DE44ABD612D82E958027786FEB802DF8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

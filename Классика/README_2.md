@@ -6,7 +6,7 @@ Antonio Lucio Vivaldi - Harmonic Inspirations: Concertos for Strings & Harpsicho
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995525.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Antonio Lucio Vivaldi-Bassoon Concertos: I Musici bassoon Klaus Thunemann 2CD (1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994780.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Secret Garden - Storyteller (2019) Japan Edition [FLAC|Lossless|image + .cue] <N
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993128.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Antonio Lucio Vivaldi - 6 cello concertos: The Academy of Ancient Music Christop
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992780.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992548.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - 100 Шедевров класики 1 (2013) [MP3|256 кб/с]<Класси
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992487.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991798.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989998.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Pyotr Ilyich Tchaikovsky - The Seasons (2000) [MP3|320 кб/с]<Classic>
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989919.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Wolfgang Amadeus Mozart–Complete Wind Concertos Orpheus Chamber Orchestra (198
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989085.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ VA - Под звуки марша (2009) (3CD) [MP3|320 кб/с]<Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989040.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Calm Classical Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986939.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Essential Organ (2011) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986669.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Antonio Lucio Vivaldi-Concerti per viola d'amore: Europa Galante Fabio Biondi au
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984074.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - 20th Anniversary Chesky Records (2CD) (2006) [FLAC|Lossless]<Classical, Jaz
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983810.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Antonio Lucio Vivaldi-Concerti per archi Ensemble Concerto Italiano (1988)/[FLAC
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982782.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Adagio - Serene Classical Music For A Peaceful Mind (2003) 2CD[FLAC|Lossles
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982446.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ries - Piano Trios - Mendelssohn Trio Berlin (2005) [FLAC|Lossless|image + .cue]
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981926.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Claudio Arrau - Beethoven Edition (Alceo Galliera & Philharmonia Orchestra)(5CDs
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981842.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Beck - Symphonies op.4 Nos.1-3 (Michael Schneider &La Stagione Frankfurt Orchest
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981803.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Mozart - Requiem (Frans Bruggen & Orchestra of the Eighteen Century) (2009) [FLA
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981719.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981032.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980872.jpg" />
 </div>
 
 
@@ -765,7 +765,7 @@ Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .c
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978946.jpg" />
 </div>
 
 
@@ -794,7 +794,7 @@ Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue]
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978938.jpg" />
 </div>
 
 
@@ -823,7 +823,7 @@ VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978576.jpg" />
 </div>
 
 

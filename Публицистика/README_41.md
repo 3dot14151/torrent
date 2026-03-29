@@ -1,3 +1,81 @@
+###  Публикация: 1300342   (593201) от 06.05.2019
+
+Г. Л. Розанов | План «Барбаросса». Замыслы и финал (1970) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — историко-документальный очерк об агрессии фашистской Германии против Советского Союза. Подготовка и поход гитлеровцев против страны социализма показаны в книге как бы «изнутри»: читатель присутствует на тайных сборищах немецких промышленников и банкиров, где определялись главные направления агрессии, на совещаниях военных и политических вожаков третьего (   Читать дальше...   )Жанр: История, политология, дипломатия, документалистика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFBA902EDFF5CEF77C8F9D62BCF30421236D794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233525   (592938) от 30.06.2018
+
+Олдос Хаксли | Возвращение в дивный новый мир (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Олдоса Хаксли «Возвращение в дивный новый мир» была впервые опубликована в далеком 1958 году – и тем интереснее читается она в наши дни: ведь в этой работе великий английский писатель и философ, в своей полемичной манере, провел параллели между западной цивилизацией буржуазного «золотого века» 1950-х и антиутопическим тоталитарным «потребительским раем», описанным (   Читать дальше...   )Жанр: Зарубежная публицистика, Социальная философия, ЭссеПеревод: Александр АнваерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1A737D264BD5D1A4C92C3B91C1D03AE758BB27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300678   (592716) от 07.05.2019
+
+Владимир Познер | Немецкая тетрадь. Субъективный взгляд (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592716.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Когда мне было неполных пятнадцать лет, мой отец, горячий сторонник СССР, коммунист по убеждениям, хотя и не член партии, попал в черные списки и лишился источника заработка. Советское правительство предложило ему работу в берлинском отделении «Совэкспортфильма», мы уехали в Восточную Германию, то есть именно в ту страну, куда я ни за что ехать не хотел», – так (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3FA5766597DDCA4FA3C3CDFBC18142AAF474FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550276   (592484) от 10.05.2022
 
 Павел Ковалевский | Русский национализм и национальное воспитание (2017) [FB2]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592484.jpg" />
+  <img src="Z:/picture/008/save_picture_592484.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590904.jpg" />
+  <img src="Z:/picture/008/save_picture_590904.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590876.jpg" />
+  <img src="Z:/picture/008/save_picture_590876.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587920.jpg" />
+  <img src="Z:/picture/008/save_picture_587920.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585935.jpg" />
+  <img src="Z:/picture/008/save_picture_585935.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585871.jpg" />
+  <img src="Z:/picture/008/save_picture_585871.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585807.jpg" />
+  <img src="Z:/picture/008/save_picture_585807.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584776.jpg" />
+  <img src="Z:/picture/008/save_picture_584776.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583740.jpg" />
+  <img src="Z:/picture/008/save_picture_583740.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582631.jpg" />
+  <img src="Z:/picture/008/save_picture_582631.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581342.jpg" />
+  <img src="Z:/picture/008/save_picture_581342.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581306.jpg" />
+  <img src="Z:/picture/008/save_picture_581306.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581243.jpg" />
+  <img src="Z:/picture/008/save_picture_581243.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580164.jpg" />
+  <img src="Z:/picture/008/save_picture_580164.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579382.jpg" />
+  <img src="Z:/picture/008/save_picture_579382.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579380.jpg" />
+  <img src="Z:/picture/008/save_picture_579380.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579333.jpg" />
+  <img src="Z:/picture/008/save_picture_579333.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579275.jpg" />
+  <img src="Z:/picture/008/save_picture_579275.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578924.jpg" />
+  <img src="Z:/picture/008/save_picture_578924.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576143.jpg" />
+  <img src="Z:/picture/008/save_picture_576143.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575688.jpg" />
+  <img src="Z:/picture/008/save_picture_575688.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573651.jpg" />
+  <img src="Z:/picture/008/save_picture_573651.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573058.jpg" />
+  <img src="Z:/picture/008/save_picture_573058.jpg" />
 </div>
 
 
@@ -609,86 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E355BE47E1CE70F0C6585E6A4286E20E0D782D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303285   (572892) от 21.05.2019
-
-20 лет Советской власти. Статистический сборник [Цифровой материал для пропагандистов] (1937) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572892.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Экономическую основу СССР составляют социалистическая система хозяйства и социалистическая собственность на орудия и средства производства, утвердившиеся в результате ликвидации капиталистической системы хозяйства, отмены частной собственности на орудия и средства производства и уничтожения эксплуатации человека человеком».
-
-Конституция СССР, статья 4.Жанр: История, политология, правоведение, экономика, социология, культурология, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EF35D2B176A78672851B7DCB5FB5F020BBF266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303682   (570814) от 22.05.2019
-
-Алексей Беляков | Алла Пугачева. Жизнь и удивительные приключения великой певицы (2019) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из книги вы узнаете, как мама гоняла маленькую Пугачеву мокрым полотенцем, чтобы та занималась сольфеджио; как Алла случайно попала на «Золотого Орфея», для которого быстро нашла старую песню «Арлекино»; как расколотила стекла в новеньких «Жигулях» мужа-режиссера; как ей помогал генерал КГБ; как хотела уехать из СССР после скандала в гостинице «Прибалтийская»; как (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4677DE766111524272F910176304D2A4BF6227F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302751   (570337) от 22.05.2019
-
-Сергей Бубновский, Игорь Прокопенко | Что скрывают врачи? Главные секреты женского здоровья и красоты (2019) [PDF, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индустрия красоты в XXI веке сделала невообразимый скачок. Сложнейшие косметологические процедуры стали обыденностью, а новые способы омоложения, поддержания идеальной фигуры, ухода за лицом и телом появляются чуть ли не каждый день. Но почему так мало людей задумываются о последствиях подобных вмешательств? Ведь любые изменения в организме и теле оставляют свой (   Читать дальше...   )Жанр: Медицина и здоровье, Косметология, ПублицистикаФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA00D993BECB37217C0AD0EDBF554DF533556386
 ```
 
 https://mybot314.ru/tekegram_catalog/

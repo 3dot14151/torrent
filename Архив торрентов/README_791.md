@@ -6,7 +6,7 @@ Tails 2.2.1 [анонимный доступ в сети] [i386] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871475.jpg" />
+  <img src="Z:/picture/008/save_picture_871475.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ RonyaSoft Poster Printer 3.2.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871461.jpg" />
+  <img src="Z:/picture/008/save_picture_871461.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Unchecky 0.4.3 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871457.jpg" />
+  <img src="Z:/picture/008/save_picture_871457.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871455.jpg" />
+  <img src="Z:/picture/008/save_picture_871455.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871448.jpg" />
+  <img src="Z:/picture/008/save_picture_871448.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871446.jpg" />
+  <img src="Z:/picture/008/save_picture_871446.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ K-Lite Codec Pack Update 16.4.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871407.jpg" />
+  <img src="Z:/picture/008/save_picture_871407.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Live @ Electric Zoo Supernaturals (2021) [MP3|~245 Kbps (V0)] <Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871396.jpg" />
+  <img src="Z:/picture/008/save_picture_871396.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ SoundSource 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871389.jpg" />
+  <img src="Z:/picture/008/save_picture_871389.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Soft4Boost Document Converter 4.7.9.501 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871385.jpg" />
+  <img src="Z:/picture/008/save_picture_871385.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Tips - Twists'n'Turns (2016) [FLAC|Lossless|tracks] <Reggae, Ska, Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871380.jpg" />
+  <img src="Z:/picture/008/save_picture_871380.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Daum PotPlayer 1.7.351 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871374.jpg" />
+  <img src="Z:/picture/008/save_picture_871374.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871369.jpg" />
+  <img src="Z:/picture/008/save_picture_871369.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ O&O Defrag Professional 19.5 Build 222 Portable by KloneB@DGuY [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871362.jpg" />
+  <img src="Z:/picture/008/save_picture_871362.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Viber 5.9.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871353.jpg" />
+  <img src="Z:/picture/008/save_picture_871353.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871349.jpg" />
+  <img src="Z:/picture/008/save_picture_871349.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871345.jpg" />
+  <img src="Z:/picture/008/save_picture_871345.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871338.jpg" />
+  <img src="Z:/picture/008/save_picture_871338.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871337.jpg" />
+  <img src="Z:/picture/008/save_picture_871337.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871329.jpg" />
+  <img src="Z:/picture/008/save_picture_871329.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871304.jpg" />
+  <img src="Z:/picture/008/save_picture_871304.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871278.jpg" />
+  <img src="Z:/picture/008/save_picture_871278.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Spotify 1.1.68.628 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871240.jpg" />
+  <img src="Z:/picture/008/save_picture_871240.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Opera 79.0.4143.22 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871236.jpg" />
+  <img src="Z:/picture/008/save_picture_871236.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Notability 4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871200.jpg" />
+  <img src="Z:/picture/008/save_picture_871200.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Calendar 366 II v2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871198.jpg" />
+  <img src="Z:/picture/008/save_picture_871198.jpg" />
 </div>
 
 

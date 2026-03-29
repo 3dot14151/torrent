@@ -1,3 +1,30 @@
+###  Публикация: 962505   (292968) от 05.12.2015
+
+Ольга Смурова | Большая книга предсказаний (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря этой книге читатели смогут узнать о таких фактах из истории человеческой цивилизации, которые до сих пор ставят в тупик многих исследователей, проникнуть в тайны происхождения загадочного числа 666, скрижалей Моисея, а также прояснить для себя некоторые странные аспекты предсказаний Мишеля Нострадамуса, на которые многие не обратили внимания.
+К книге прилагается (   Читать дальше...   )Жанр: ГаданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F45C384B6350FE94E82036ECE372EEFA1A828CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962532   (292963) от 05.12.2015
 
 Сергей Ключников, Дмитрий Странден | Сакральный мистицизм Запада. Герметическая философия (2007) [PDF]
@@ -6,7 +33,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292963.jpg" />
+  <img src="Z:/picture/008/save_picture_292963.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292959.jpg" />
+  <img src="Z:/picture/008/save_picture_292959.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292757.jpg" />
+  <img src="Z:/picture/008/save_picture_292757.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288145.jpg" />
+  <img src="Z:/picture/008/save_picture_288145.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283936.jpg" />
+  <img src="Z:/picture/008/save_picture_283936.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283382.jpg" />
+  <img src="Z:/picture/008/save_picture_283382.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280012.jpg" />
+  <img src="Z:/picture/008/save_picture_280012.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255696.jpg" />
+  <img src="Z:/picture/005/save_picture_255696.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254297.jpg" />
+  <img src="Z:/picture/005/save_picture_254297.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254296.jpg" />
+  <img src="Z:/picture/005/save_picture_254296.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254262.jpg" />
+  <img src="Z:/picture/005/save_picture_254262.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253714.jpg" />
+  <img src="Z:/picture/005/save_picture_253714.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251241.jpg" />
+  <img src="Z:/picture/004/save_picture_251241.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248017.jpg" />
+  <img src="Z:/picture/004/save_picture_248017.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239183.jpg" />
+  <img src="Z:/picture/004/save_picture_239183.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233374.jpg" />
+  <img src="Z:/picture/005/save_picture_233374.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232128.jpg" />
+  <img src="Z:/picture/005/save_picture_232128.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232062.jpg" />
+  <img src="Z:/picture/005/save_picture_232062.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231005.jpg" />
+  <img src="Z:/picture/005/save_picture_231005.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229218.jpg" />
+  <img src="Z:/picture/004/save_picture_229218.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228088.jpg" />
+  <img src="Z:/picture/005/save_picture_228088.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225650.jpg" />
+  <img src="Z:/picture/005/save_picture_225650.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225231.jpg" />
+  <img src="Z:/picture/005/save_picture_225231.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224226.jpg" />
+  <img src="Z:/picture/005/save_picture_224226.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224105.jpg" />
+  <img src="Z:/picture/005/save_picture_224105.jpg" />
 </div>
 
 
@@ -654,35 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3D5C07044DAD35806B0A01C3FCAE28E2D790B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965691   (223817) от 15.12.2015
-
-О. Диксон, И. Ядне | Шаманские практики (2001) [PDF, DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является продолжением "Шаманизма" О.Диксона и основана на традициях кланов Ворона и Малого лебедя.
-Основной акцент делается на рассмотрении таких шаманских практик, как камлания, дыхательные и психоэнергетические практики, боевое искусство.
-Отдельный раздел посвящен атрибутам, ритуалам и предсказательным техникам шаманов.
-(   Читать дальше...   )Жанр: ЭзотерикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A4361F496A9AE24971D19F11DBDA7DFD58652C
 ```
 
 https://mybot314.ru/tekegram_catalog/

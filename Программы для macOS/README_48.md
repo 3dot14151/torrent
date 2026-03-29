@@ -1,3 +1,139 @@
+###  Публикация: 1276911   (787233) от 18.01.2019
+
+FileMaker Pro 17 Advanced 17.0.4.400 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787233.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
+
+Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. Источником вдохновения для вас могут стать встроенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: FileMaker, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0874DDB0532959807AFEE975B78BE8DCAEE55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512627   (787125) от 25.11.2021
+
+DxO PhotoLab 4 ELITE Edition 4.3.5 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A7200C0116389E031F70BF5D1C44B8562C7D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512555   (787123) от 25.11.2021
+
+Allavsoft Video Downloader Converter 3.24.0.7999 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B376369345986B817BFBED0F4252CCE3A063768C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512530   (787118) от 25.11.2021
+
+Flexi Player Turntable 1.4 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старые песни на новый лад и снова веселые. Flexi Player - это интерактивный музыкальный проигрыватель с множеством эффектов и настоящим проигрывателем.
+Легко переделывать и воспроизводить свои песни.
+Flexi использует свою собственную аудиотехнологию Hi-Fi и даже лучше, чем настоящие виниловые проигрыватели, поскольку может обновлять звук одним нажатием кнопки. Вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: Aleksandar MlazevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0861B34CB383C77141E317FE384F6D9919AAAE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512505   (787041) от 25.11.2021
+
+iExplorer 4.5.0 fix [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+iExplorer - утилита для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2021Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25C84D135EB90E07ED5935530A3A4E46D8AB9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277122   (787005) от 19.01.2019
 
 Silverstack XT 6.4.9 [En]
@@ -6,7 +142,7 @@ Silverstack XT 6.4.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787005.jpg" />
+  <img src="Z:/picture/008/save_picture_787005.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ OmniOutliner Pro 5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786348.jpg" />
+  <img src="Z:/picture/008/save_picture_786348.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ SQL Dynamite 2.1.2.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786324.jpg" />
+  <img src="Z:/picture/008/save_picture_786324.jpg" />
 </div>
 
 
@@ -86,7 +222,7 @@ Chocolat 3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786151.jpg" />
+  <img src="Z:/picture/008/save_picture_786151.jpg" />
 </div>
 
 
@@ -115,7 +251,7 @@ Adobe Muse CC 2017.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786034.jpg" />
+  <img src="Z:/picture/008/save_picture_786034.jpg" />
 </div>
 
 
@@ -142,7 +278,7 @@ Adobe InDesign CC 2017.1 (12.1) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786013.jpg" />
+  <img src="Z:/picture/008/save_picture_786013.jpg" />
 </div>
 
 
@@ -168,7 +304,7 @@ Receipts 1.4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785976.jpg" />
+  <img src="Z:/picture/008/save_picture_785976.jpg" />
 </div>
 
 
@@ -196,7 +332,7 @@ PDF Reader++ 1.59 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785866.jpg" />
+  <img src="Z:/picture/008/save_picture_785866.jpg" />
 </div>
 
 
@@ -224,7 +360,7 @@ Resume Templates 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785765.jpg" />
+  <img src="Z:/picture/008/save_picture_785765.jpg" />
 </div>
 
 
@@ -252,7 +388,7 @@ Certificates Templates for Pages 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785626.jpg" />
+  <img src="Z:/picture/008/save_picture_785626.jpg" />
 </div>
 
 
@@ -280,7 +416,7 @@ Fresh 2.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785621.jpg" />
+  <img src="Z:/picture/008/save_picture_785621.jpg" />
 </div>
 
 
@@ -309,7 +445,7 @@ MarginNote X - Efficient study PDF & EPUB books 2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785580.jpg" />
+  <img src="Z:/picture/008/save_picture_785580.jpg" />
 </div>
 
 
@@ -337,7 +473,7 @@ SmartSound SonicFire Pro 5.8.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785567.jpg" />
+  <img src="Z:/picture/008/save_picture_785567.jpg" />
 </div>
 
 
@@ -363,7 +499,7 @@ CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785371.jpg" />
+  <img src="Z:/picture/008/save_picture_785371.jpg" />
 </div>
 
 
@@ -389,7 +525,7 @@ Google Docs Templates by GN 4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785320.jpg" />
+  <img src="Z:/picture/008/save_picture_785320.jpg" />
 </div>
 
 
@@ -417,7 +553,7 @@ PaintCode 3.4.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785252.jpg" />
+  <img src="Z:/picture/008/save_picture_785252.jpg" />
 </div>
 
 
@@ -443,7 +579,7 @@ ClassicWeather Premium 4.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785017.jpg" />
+  <img src="Z:/picture/008/save_picture_785017.jpg" />
 </div>
 
 
@@ -469,7 +605,7 @@ iFunia Media Player 3.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784999.jpg" />
+  <img src="Z:/picture/008/save_picture_784999.jpg" />
 </div>
 
 
@@ -495,7 +631,7 @@ dDNS Broker 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784618.jpg" />
 </div>
 
 
@@ -523,7 +659,7 @@ BookmarkApp 1.7.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784386.jpg" />
 </div>
 
 
@@ -549,7 +685,7 @@ VirusKiller Antivirus 4.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784377.jpg" />
 </div>
 
 
@@ -563,143 +699,6 @@ Endurance Antivirus - Adware & Malware антивирус.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204748   (784329) от 07.02.2018
-
-IINA 0.0.15 (build 68) [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: Collider LIПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58F2653ADA5576D84A8322C9B55AD748AFADF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204758   (784308) от 07.02.2018
-
-LRTimelapse Pro 5.0.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784308.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB39D7E3DAAB3DCDD91166D17B32B94F680B92D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205021   (784013) от 08.02.2018
-
-MaxBulk Mailer Pro 8.6.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784013.jpg" />
-</div>
-
-
-###  Подробнее
-
-MaxBulk Mailer - позволяет создавать и посылать потенциальным и постоянным клиентам профессионально составленные письма, уменьшая затраты до минимума. Рассылка может выполняться напрямую с вашего компьютера. Почтовый клиент от фирмы Maxprog позволит вам увеличить продажи, улучшить качество работы вашего отдела обслуживания, а также позволит вам выйти на новые рынки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: Macx ProgrammingПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8753C99EAE94B1D3EE2476751C3B950DA0D91B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205629   (783452) от 10.02.2018
-
-TripMode 2.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
-
-Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: TripModeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DEF7A75C351B6FC4FCAF84BB49C1FC5E2E98D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205956   (783206) от 11.02.2018
-
-Doo - Get Things Done 2.2.5 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Списки дел и напоминания.
-Doo превращает ваши напоминания в карты, которые помогают вам сосредоточиться и добиться цели.
-
-• Уникальный интерфейс на основе карт(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ciarlo Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6E5EDA8DBB772F0FD66A3E386F83693D6E34F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

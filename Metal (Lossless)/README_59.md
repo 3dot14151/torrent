@@ -1,3 +1,90 @@
+###  Публикация: 1104542   (879988) от 15.02.2017
+
+Battle Beast - Bringer of Pain (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight To The Heart 03:31
+02. Bringer Of Pain 03:04
+03. King For A Day 04:35
+04. Beyond The Burning Skies 04:39(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42472ADE15F64849960D729AE9CC3EFA5951C7F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996374   (879518) от 14.03.2016
+
+Hordak - Padre (2016) [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ekleipsis - Devourer of Gods  05:06
+02. Bloodline of the Wolves  04:29
+03. Soaring  05:00
+04. Sol Sister  04:11(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF71EDFFDF71056F37981F03232C8B69C3959F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996321   (879409) от 14.03.2016
+
+Elyria - Reflection And Refraction (2016) [FLAC|Lossless|image + .cue] <Progressive Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Portals 01:52
+02. The Vigil 04:48
+03. Blind 04:18
+04. Colour Of Silence 05:13(   Читать дальше...   )Жанр: Progressive Gothic MetalПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D449E24287232DBD1309ACEAF8BD2E0BC5D509E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104930   (878297) от 16.02.2017
 
 Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <Pagan, Doom Metal>
@@ -6,7 +93,7 @@ Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878297.jpg" />
+  <img src="Z:/picture/005/save_picture_878297.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878288.jpg" />
+  <img src="Z:/picture/005/save_picture_878288.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877575.jpg" />
+  <img src="Z:/picture/005/save_picture_877575.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877455.jpg" />
+  <img src="Z:/picture/005/save_picture_877455.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877429.jpg" />
+  <img src="Z:/picture/005/save_picture_877429.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876738.jpg" />
+  <img src="Z:/picture/005/save_picture_876738.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876735.jpg" />
+  <img src="Z:/picture/005/save_picture_876735.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876646.jpg" />
+  <img src="Z:/picture/005/save_picture_876646.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876642.jpg" />
+  <img src="Z:/picture/005/save_picture_876642.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876461.jpg" />
+  <img src="Z:/picture/005/save_picture_876461.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Cronopolis - Cronopolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876078.jpg" />
+  <img src="Z:/picture/005/save_picture_876078.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876071.jpg" />
+  <img src="Z:/picture/005/save_picture_876071.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Thundermaker - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876068.jpg" />
+  <img src="Z:/picture/005/save_picture_876068.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Tower - Uriel (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875980.jpg" />
+  <img src="Z:/picture/005/save_picture_875980.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Metalsteel - Forsaken By The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875979.jpg" />
+  <img src="Z:/picture/005/save_picture_875979.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Blazon Stone - Damnation (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875975.jpg" />
+  <img src="Z:/picture/005/save_picture_875975.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Destoyer 666 - Wildfire (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875832.jpg" />
+  <img src="Z:/picture/005/save_picture_875832.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Entombed A.D. - Dead Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875828.jpg" />
+  <img src="Z:/picture/005/save_picture_875828.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Lords Of Black - II (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875821.jpg" />
+  <img src="Z:/picture/005/save_picture_875821.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875070.jpg" />
+  <img src="Z:/picture/005/save_picture_875070.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Edenbridge - The Great Momentum (2017) 2CD, Album, Digipack [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875061.jpg" />
+  <img src="Z:/picture/005/save_picture_875061.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Merciless Death - Realm Of Terror (2008) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874792.jpg" />
+  <img src="Z:/picture/005/save_picture_874792.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Barren Earth - Curse Of The Red River (2010) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874727.jpg" />
+  <img src="Z:/picture/005/save_picture_874727.jpg" />
 </div>
 
 
@@ -655,94 +742,6 @@ Barren Earth - Curse Of The Red River (2010) [FLAC|Lossless|image + .cue] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F70757798FCED54655C29D9DBF68352C39D6BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496008   (874644) от 16.09.2021
-
-Imperia - Queen Of Light (2007) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror
-02. Fly Like The Wind
-03. Raped By The Devil
-04. Broken Wings(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19CF1CBE9C2992F31C6E0BA5ADE869A47F7C7702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590723   (874429) от 09.04.2020
-
-Blackguard - Profugus Mortis (2009) [FLAC|Lossless]<Folk Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet To Snow [05:48]
-02. This Rounds On Me [04:15]
-03. Allegiance [04:34]
-04. I Demon [03:15](   Читать дальше...   )Жанр: Folk Black MetalПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBA1C657CDBE4D5B8ADDE138DAADF137D360D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496021   (874326) от 16.09.2021
-
-Mr. Bungle - The Night They Came Home (2021) Live [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal, Avantgarde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mr. Bungle выпустили специальный хэллоуинский виртуальный концерт "The Night They Came Home!"
-В выступлении вы сможете увидеть всех участников нынешнего состава Mr. Bungle: Тревор Данн, Майк Паттон и Трей Спруэнс, а также Скотт Иэн (Anthrax, S.O.D.) и Дэйв Ломбардо (Dead Cross, Slayer, Suicidal Tendencies). Как пишет Rolling Stone в своём осеннем музыкальном (   Читать дальше...   )01. Won't You Be My Neighbor? (Fred Rogers cover)
-02. Anarchy Up Your Anus
-03. Raping Your Mind
-04. Bungle Grind(   Читать дальше...   )Жанр: Heavy Metal, Speed Metal, Avantgarde MetalПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD7BC5B187947F2DD1C38456A5735A4854FD547
 ```
 
 https://mybot314.ru/tekegram_catalog/

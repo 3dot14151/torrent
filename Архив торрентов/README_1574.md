@@ -1,3 +1,133 @@
+###  Публикация: 1027694   (694541) от 20.06.2016
+
+AnyMP4 Video Enhancement 1.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694541.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75D75D51743DA8E2FF7FB381C526D9A42BF3675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027749   (694540) от 20.06.2016
+
+Soft4Boost Document Converter 4.5.1.351 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FD9E2531052A8473D3C72D0C4565C212E75721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027755   (694539) от 20.06.2016
+
+Soft4Boost Update Checker 6.7.7.349 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная программа для отслеживания появившихся обновлений и новых версий программного обеспечения, установленного на компьютере, непосредственно на сайтах разработчиков.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32E5DA035A8B38D2F7A2999E3DFBC64085DC842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211751   (694537) от 20.06.2010
+
+Огненный шквал / Heat Wave / City on Fire (2009) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир в опасности! В результате экспериментов по разработке альтернативных видов энергии разрушен озоновый слой Земли. Пары ядовитых газов с огромной скоростью распространяются по планете. Если не предотвратить катастрофу, все живое погибнет через несколько часов…Производство: США, Mountain Rose EntertainmentЖанр: ДрамаРежиссер: Рекс ПианоАктеры: Джейми Лунер, Тед Монте, Джэйк Торнтон, Барбара Найвен, Грег Эвиган, Ричард Тэннер, Линн Милано, Роберт Р. Шафер, Дэвид СторрсПеревод: Профессиональный многоголосыйЯзык субтитров: RussianПродолжительность: 01:21:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211606   (694536) от 20.06.2010
+
+Агония (1975) DVDRip (серии 1-2 из 2) [Полная реставрация]
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1916 год. Россия уже третий год ведет войну, которой не видно конца, процветают полицейский произвол, голод и разруха. И всё это - на фоне царящей при дворе роскоши и коррупции, когда агонизирующая власть еще надеется справиться с "бунтовщиками". Российская империя в критическом положении. На престоле - Николай II. По улицам Петрограда маршируют тысячи (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, биография, историяРежиссер: Элем КлимовАктеры: Алексей Петренко, Анатолий Ромашин, Велта Лине, Алиса Фрейндлих, Александр Романцов, Юрий Катин-Ярцев, Леонид Броневой, Павел Панков, Михаил Данилов, Михаил СветинПродолжительность: 01:13:00 + 01:09:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674126   (694517) от 29.06.2013
 
 Падение Олимпа / Olympus Has Fallen (2013) BDRip [720p]
@@ -6,7 +136,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694517.jpg" />
+  <img src="Z:/picture/008/save_picture_694517.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Integrity Plus 12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694498.jpg" />
+  <img src="Z:/picture/008/save_picture_694498.jpg" />
 </div>
 
 
@@ -51,6 +181,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333244   (694462) от 07.05.2011
+
+VA - Убойные Хиты 50x50 (2011) [MP3|128-320 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_694462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4FBD50F714141055D757AA342A32096631494A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027746   (694456) от 20.06.2016
 
 Soft4Boost Any Audio Grabber 5.9.9.403 [Multi/Ru]
@@ -59,7 +215,7 @@ Soft4Boost Any Audio Grabber 5.9.9.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694456.jpg" />
+  <img src="Z:/picture/008/save_picture_694456.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ Netsky - 3 (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694454.jpg" />
+  <img src="Z:/picture/008/save_picture_694454.jpg" />
 </div>
 
 
@@ -114,7 +270,7 @@ Process Lasso Pro 8.9.8.12 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694452.jpg" />
+  <img src="Z:/picture/008/save_picture_694452.jpg" />
 </div>
 
 
@@ -140,7 +296,7 @@ Aurora HDR Pro 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694448.jpg" />
+  <img src="Z:/picture/008/save_picture_694448.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ TapinRadio Pro 1.72.7 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694447.jpg" />
+  <img src="Z:/picture/008/save_picture_694447.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ Technimatic - Better Perspective LP (2016) [MP3|320 кб/с] <Drum & Bass, Liqui
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694444.jpg" />
+  <img src="Z:/picture/008/save_picture_694444.jpg" />
 </div>
 
 
@@ -221,7 +377,7 @@ Soft4Boost Toolbar Cleaner 4.5.9.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694440.jpg" />
+  <img src="Z:/picture/008/save_picture_694440.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ CoolUtils Total Movie Converter 4.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694439.jpg" />
+  <img src="Z:/picture/008/save_picture_694439.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694422.jpg" />
+  <img src="Z:/picture/008/save_picture_694422.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694409.jpg" />
+  <img src="Z:/picture/008/save_picture_694409.jpg" />
 </div>
 
 
@@ -328,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694405.jpg" />
+  <img src="Z:/picture/008/save_picture_694405.jpg" />
 </div>
 
 
@@ -357,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694400.jpg" />
+  <img src="Z:/picture/008/save_picture_694400.jpg" />
 </div>
 
 
@@ -383,7 +539,7 @@ Tor Browser 2.3.25-10 [анонимный доступ в сети] [i686, x86-6
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694399.jpg" />
+  <img src="Z:/picture/008/save_picture_694399.jpg" />
 </div>
 
 
@@ -409,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694394.jpg" />
+  <img src="Z:/picture/008/save_picture_694394.jpg" />
 </div>
 
 
@@ -436,7 +592,7 @@ SiteSucker 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694377.jpg" />
+  <img src="Z:/picture/008/save_picture_694377.jpg" />
 </div>
 
 
@@ -463,7 +619,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694376.jpg" />
+  <img src="Z:/picture/008/save_picture_694376.jpg" />
 </div>
 
 
@@ -489,7 +645,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694375.jpg" />
+  <img src="Z:/picture/008/save_picture_694375.jpg" />
 </div>
 
 
@@ -516,7 +672,7 @@ Export for iTunes 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694374.jpg" />
+  <img src="Z:/picture/008/save_picture_694374.jpg" />
 </div>
 
 
@@ -527,165 +683,6 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48DC1C820FA38205414E14AE635FB8EDFCE87CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534583   (694368) от 02.03.2022
-
-SiteSucker Pro 4.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694368.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A9616E9C2A48C7DB8E54569ED66846097EB9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534470   (694365) от 02.03.2022
-
-Noir – Dark Mode for Safari 2022.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
-Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
-И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 2021-2022 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FC3D66FED1168B4E52332D77A1F3FBF0376889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534604   (694363) от 02.03.2022
-
-Dato 3.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBEABC884CC776E909DFD2EBCAF381E4F95D2891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534480   (694362) от 02.03.2022
-
-SILKYPIX Developer Studio Pro 11 11.0.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694362.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3902E39D520221B30C95079D46B4471333B38F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027747   (694298) от 20.06.2016
-
-Soft4Boost Any Audio Record 4.9.9.403 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4A54F3064C5074C3E649576E9603DDD6636484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027762   (694296) от 20.06.2016
-
-Набор обновлений UpdatePack-XPSP3-Rus Live 16.6.20 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор обновлений для Windows XP SP3 Rus x86. Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E932535DCD63943B0C592C0B8FEA3DFE70350B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

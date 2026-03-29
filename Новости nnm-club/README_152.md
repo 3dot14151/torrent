@@ -1,3 +1,162 @@
+###  Публикация: 372165   (521858) от 06.08.2011
+
+Очень плохая училка / Bad Teacher (2011) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учительница средних классов живет гламурной жизнью светской львицы, ходит на работу как на вечеринку и мечтает об увеличении объема собственного бюста. Однако после внезапного разрыва с богатым бойфрендом ее образ жизни резко меняется, хотя сама она это осознает не сразу. Но когда в их школу приходит новый преподаватель, она совершенно теряет голову и начинает охоту (   Читать дальше...   )Производство: США / Mosaic Media GroupЖанр: КомедияРежиссер: Джейк КэзданАктеры: Кэмерон Диаз, Джастин Тимберлэйк, Джейсон Сигел, Люси Панч, Филлис Смит, Джон Майкл Хиггинс, Дэйв Аллен, Джиллиан Арменанте, Мэттью Дж. Эванс, Кейтлин ДеверПеревод: 1. Дублированный
+2. Дублированный (украинский)Субтитры: Отдельным файломЯзык субтитров: Русский, Украинский (форсированные)Продолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCFB7EF22F10C43E1475CDCB52D767F96E4B1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241196   (520842) от 16.08.2018
+
+ReCore (2016) [Ru/Multi] (1.1.7468.2) License CODEX [Definitive Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте творение легендарного Кэйдзи Инафунэ и разработчиков Metroid Prime — экшен-приключение ReCore: Definitive Edition, созданное специально для нового поколения игроков. Вы — Джул Адамс, одна из последних уцелевших людей на загадочной и опасной планете Дальний Эдем, управляемой враждебными роботами, которые намерены вас уничтожить. Чтобы выжить, вам необходимо (   Читать дальше...   )Тип издания: LicenseРазработчик: Comcept Inc., Armature Studio LLCЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F279680974E8EB00FFFD3C0AD467212291C9BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241282   (520838) от 16.08.2018
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v18.8 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B3D8C5D9E9AC4E04B07C3C9C336C2E75CF6AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135630   (520834) от 16.08.2018
+
+Сектор Газа - 19 Альбомов (1987 - 2005) [FLAC|lossless]<Punk-Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название группы произошло от индустриального Левобережного района Воронежа, который в народе в шутку назвали «Сектором Газа» из-за обилия дымящих заводовЖанр: Фьюжн (самоопределение), панк-рок, рэпкор
+блатная песня
+хард-рок и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8960548FA94078A45345F5DC0CFB4109E5FA8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534053   (520728) от 12.08.2012
+
+DLL-files.com Fixer   v2.7.72.2315 Portable  [Multi+Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520728.jpg" />
+</div>
+
+
+###  Подробнее
+
+DLL-files Fixer - программа для чистки и оптимизации ПК путем исправления DLL ошибок и очистки реестра от ненужного "мусора".Также в программе предусмотрена функция поиска и загрузки отсутствующих DLL-файлов.Название программы: DLL-files.com Fixer 2.7.72.2315Язык интерфейса: Multi+Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495690   (520645) от 29.06.2022
+
+Однажды в Чукурова / Bir Zamanlar Cukurova (2021-2022) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-39 (103-141) из 39) AlisaDirilis
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое молодых людей готовились к свадьбе в Стамбуле, но происходит то, чего они совсем не ожидали. Влюбленным приходится бежать в Адану, где их пути пересекаются с семьей Яман, после чего меняется вся жизнь героев.Производство: Турция / Tims&BЖанр: драмаРежиссер: Мурат СарачоглуАктеры: Ибрагим Челиккол, Хилаль Алтынбилек, Керем Алышик, Ханде Сорал, Илайда Чевик, Хюлья Дарджан, Бюлент Полат, Фуркан Палалы, Назан Кесал и др.Перевод: Двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийПродолжительность: ~02:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F84B1729FBA4116EFD3F8A84F5208523A6529F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929079   (520187) от 18.08.2015
 
 Advanced SystemCare Pro 8.4.0.811 RePack by D!akov [Multi/Ru]
@@ -6,7 +165,7 @@ Advanced SystemCare Pro 8.4.0.811 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520187.jpg" />
+  <img src="Z:/picture/008/save_picture_520187.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520185.jpg" />
+  <img src="Z:/picture/008/save_picture_520185.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519688.jpg" />
+  <img src="Z:/picture/008/save_picture_519688.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519686.jpg" />
+  <img src="Z:/picture/008/save_picture_519686.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519637.jpg" />
+  <img src="Z:/picture/008/save_picture_519637.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2051.0 RePack by KpoJIuK [M
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519620.jpg" />
+  <img src="Z:/picture/008/save_picture_519620.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Destroy Windows 10 Spying 1.5 Build 231 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519246.jpg" />
+  <img src="Z:/picture/008/save_picture_519246.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ uTorrent Pro 3.4.4 Build 40911 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519150.jpg" />
+  <img src="Z:/picture/008/save_picture_519150.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519138.jpg" />
+  <img src="Z:/picture/008/save_picture_519138.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518835.jpg" />
+  <img src="Z:/picture/008/save_picture_518835.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ Prototype 2 + DLC [Ru] (RePack) 2012 l BoxPack
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518583.jpg" />
+  <img src="Z:/picture/008/save_picture_518583.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ The Witcher 2: Assassins of Kings Enhanced Edition / Ведьмак 2: Убий�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518579.jpg" />
+  <img src="Z:/picture/008/save_picture_518579.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518576.jpg" />
+  <img src="Z:/picture/008/save_picture_518576.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518552.jpg" />
+  <img src="Z:/picture/008/save_picture_518552.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517986.jpg" />
+  <img src="Z:/picture/008/save_picture_517986.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ Adobe Photoshop CC 2018 (19.1.5.61161) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517811.jpg" />
+  <img src="Z:/picture/008/save_picture_517811.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517809.jpg" />
+  <img src="Z:/picture/008/save_picture_517809.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517484.jpg" />
+  <img src="Z:/picture/008/save_picture_517484.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ CorelDRAW Graphics Suite X6 16.1.0.843 (x32/x64) [Русский/Английс�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517461.jpg" />
+  <img src="Z:/picture/008/save_picture_517461.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ Erica - новый фотореалистичный робот-андроид п
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_517207.jpg" />
+  <img src="Z:/picture/005/save_picture_517207.jpg" />
 </div>
 
 
@@ -519,167 +678,6 @@ Erica - новый фотореалистичный робот-андроид п
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929742   (516910) от 21.08.2015
-
-Destroy Windows 10 Spying 1.5 Build 295 Hot Fix [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516910.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65291DD3D6277103DF1D240166B654AC9DC987F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929895   (516896) от 21.08.2015
-
-Geekbrains | Вебинары (2014-2015) PCRec [H.264] (Часть 1)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир - это мир асинхронного взаимодействия клиента с сервером. Давно ушли те времена, когда единственной возможностью получить информацию с сайта, было полное обновление ее содержимого. Сейчас веб-страница может запрашивать только то, что ей нужно. Но мы пойдем дальше - напишем свой собственный чат!
-
-В ходе вебинара мы поработаем над созданием чата на (   Читать дальше...   )Жанр: Программирование, ВебинарыПродолжительность: 02:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD0FA92FF6E671F80DEE7F346A39B0B6C9B9BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930128   (516895) от 21.08.2015
-
-Терминатор: Генезис / Terminator: Genisys (2015) HDTVRip [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее.Производство: США, Paramount Pictures, Skydance ProductionsЖанр: Фантастика, Боевик, Триллер, ПриключенияРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдиПеревод: Дублированный (Чистый звук)Субтитры: Корейские (Вшитые не отключаемые)Продолжительность: 02:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A224FBA10A39CB81BBB79C65571507B0814447EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929859   (516893) от 21.08.2015
-
-UltraISO Premium Edition 9.6.5.3237 DC 22.07.2015 RePack by VIPol [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516893.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltraISO - одна из лучших программ для работы с образами дисков. Позволяет корректировать образы CD и DVD - изменять данные или удалять их часть прямо из образов, не распаковывая их, а также создавать образы и записывать их на носители. Поддерживает работу с ISO, BIN/CUE, IMG/CCD/SUB, MDF/MDS, PDI, GI, C2D, CIF, NRG, BWI/BWT, LCD, CDI, TAO/DAO, CIF, VCD, NCD, GCD/GI, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9973183477A25C3D8C290592134656A5A909B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219598   (516873) от 20.08.2018
-
-Full Metal Panic! Invisible Victory | Fullmetal Panic! Invisible Victory | Стальная тревога! Незримая победа [2018, TV, 12 из 12] WEB-DL 1080p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в альтернативном мире, где СССР не был уничтожен, а великие державы ведут периферийные войны, в том числе, с помощью разнообразных мех.
-
-Образцовый мальчик-солдат, сержант Сосукэ Сагару, был направлен в обычную среднюю школу Японии для защиты Канамэ Тидори, девушки, которая обладает странными сверхспособностями.
-(   Читать дальше...   )Производство: Япония / XebecЖанр: Альтернативная история, комедия, приключения, фантастика, мехаРежиссер: Накаяма КацуитиПеревод: LazyFox & Костин Тимофей; HorribleSubsЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: ТВ, 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0DC904ACAB65BF5EA41D4CE055D70B310B2A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313951   (516749) от 16.07.2019
-
-Пляжный бездельник / The Beach Bum (2019) WEB-DL [H.264/1080p-LQ] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвязный тусовщик по кличке Лунный Пёс плевать хотел на все общественные нормы. Всё, что ему нужно, — это бабки на бухло и пляжные вечеринки. Но если он не допишет поэму, не получит наследства покойной жены. И стоит ли из-за этого париться?Производство: США, Великобритания / Iconoclast, Anonymous Content, Grisbi Productions, LeЖанр: KомедияРежиссер: Хармони КоринАктеры: Мэттью МакКонахи, Снуп Догг, Айла Фишер, Стефания Оуэн, Мартин Лоуренс, Зак Эфрон, Джона Хилл, Джимми Баффетт, Донован Сент Ви Уильямс, Дэвид БеннеттПеревод: АвторскийСубтитры: ОтсутствуютПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE0B998F7ADC25887BF176B2C43A23DC8CA61F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

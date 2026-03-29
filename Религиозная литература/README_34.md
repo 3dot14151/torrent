@@ -1,3 +1,84 @@
+###  Публикация: 1208275   (780112) от 21.02.2018
+
+Джейн Эллис | Русская Православная Церковь. Согласие и инакомыслие (1990) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор истории оппозиции в Русской Православной Церкви и представления неконформистской интеллигенции о внутрицерковной жизни, выраженные в самиздате.Жанр: Монография, историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F6848B188E9F1CBD0B7E60400526E4B1E12658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208174   (780110) от 21.02.2018
+
+Елена Тростникова (сост.) | Мудрость отцов-пустынников [Православная библиотека] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто мы? Какие силы в нас действуют? Чего мы можем достичь? В этой книге вы найдёте ответы и наставления старцев, прикоснётесь к опыту отцов-пустынников, который передавался лично от учителя к ученику.
+
+Книга рекомендована Издательским Советом Русской Православной Церкви.
+(   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15FAACF983E8A60279D91C935BF783E8F426A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208280   (780106) от 21.02.2018
+
+Д.Э. Пучкин | Догмат о Непорочном Зачатии Пресвятой Девы Марии (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень часто антикатолические полемисты проявляют полное невежество о самом предмете спора, путаясь даже в терминологии. Итак, под «непорочным зачатием» подразумевается зачатие, при котором потомству не передается первородного греха, обычно передаваемого по наследству от Адама и Евы всякому человеку. Необязательно для непорочности, чтобы оно было бессеменным, т. е. (   Читать дальше...   )Жанр: АпологетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513A6210A0D8657E2D556008755571000343906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208167   (780099) от 21.02.2018
 
 Никея (изд.) | Великий канон святого Андрея Критского с параллельным переводом на русский язык и пояснениями к тексту. Великий канон в четверг пятой седмицы. Житие Марии Египетской (2017) [PDF, DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780099.jpg" />
+  <img src="Z:/picture/008/save_picture_780099.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780094.jpg" />
+  <img src="Z:/picture/008/save_picture_780094.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780089.jpg" />
+  <img src="Z:/picture/008/save_picture_780089.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779975.jpg" />
+  <img src="Z:/picture/008/save_picture_779975.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779803.jpg" />
+  <img src="Z:/picture/008/save_picture_779803.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779779.jpg" />
+  <img src="Z:/picture/008/save_picture_779779.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779668.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779405.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778870.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778867.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778205.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777861.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777828.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777817.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777525.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777521.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776537.jpg" />
+  <img src="Z:/picture/008/save_picture_776537.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776479.jpg" />
+  <img src="Z:/picture/008/save_picture_776479.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776477.jpg" />
+  <img src="Z:/picture/008/save_picture_776477.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776121.jpg" />
+  <img src="Z:/picture/008/save_picture_776121.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775821.jpg" />
+  <img src="Z:/picture/008/save_picture_775821.jpg" />
 </div>
 
 
@@ -569,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775814.jpg" />
+  <img src="Z:/picture/008/save_picture_775814.jpg" />
 </div>
 
 
@@ -595,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775387.jpg" />
+  <img src="Z:/picture/008/save_picture_775387.jpg" />
 </div>
 
 
@@ -606,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6967113C50FEFA074E4B8855A2C8BD42BFBF145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212785   (774462) от 14.03.2018
-
-Святитель Николай Сербский и др. | Сербские светильники. Благословение с Балкан [Духовный азбуковник] (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774462.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли высказывания и поучения святителя Николая Сербского (1880-1956), преподобного Иустина (Поповича) (1894-1979) и архимандрита Фаддея Витовницкого (1914-2003) - великих подвижников, духовников и проповедников Сербской Церкви XX века. Сербия, как и Россия, прошла в XX столетии нелёгкий путь национального возрождения, ужасов Второй мировой войны, коммунистическую (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B0E40FBFBDB695A9E1E66AE72E2FC3AE866AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212887   (774459) от 14.03.2018
-
-Пётр Малков (авт.-сост.) | Рождество Пресвятой Богородицы. Антология святоотеческих проповедей [Святые отцы. Богословие церковных праздников] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология святоотеческих творений на Рождество Пресвятой Богородицы включает произведения разных традиций и эпох, византийских, русских и сербских авторов - от святителя Андрея Критского и преподобного Иоанна Дамаскина до святителя Иоанна Шанхайского и преподобного Иустина (Поповича). Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DF23E379269C7A48AE0CC19478BDBCAB1B21BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212735   (774457) от 14.03.2018
-
-Протоиерей Михаил Браверман | Всенощное бдение. Значение, история возникновения, смысл (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участие в богослужении является неотъемлемой частью жизни православного человека. Но всегда ли верующим до конца понятно, что происходит на церковной службе? Разобраться в значении и смысле всенощного бдения поможет книга петербургского священника Михаила Бравермана. В первой части автор доступно и наглядно, с использованием иллюстраций, объясняет устройство храма (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5316978170E042E264F6E889DCF4F66895734D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

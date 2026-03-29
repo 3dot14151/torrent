@@ -1,3 +1,84 @@
+###  Публикация: 1028245   (690538) от 22.06.2016
+
+Л. П. Дьяконов | Советские законы о церкви (1926) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Буржуазия, чтобы закрепить свое господство над трудящимися, кроме экономического гнета, поддерживаемого аппаратом своего господства — государственной властью, применяет еще целый ряд мероприятий, ослабляющих классовое самосознание пролетариата. Одним из таких мероприятий является религия, внушающая трудящимся убеждение о божественном происхождении капиталистического (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F535CC4ED5FD12B47660455DD73BD14C732747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534936   (690517) от 04.03.2022
+
+Н.М. Бородина (сост.) | Семь смертных грехов. Наказание за грехи. Покаяние и исповедь [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грех есть преступление Закона Божия, неисполнение святых повелений Божиих. «Кто делает грех, тот делает и беззаконие; и грех есть беззаконие» (1 Ин. 3, 4).
+
+Грех всегда влечёт за собою наказание, и правда Божия требует того, чтобы грешник был наказан как преступник святого и непременяемого закона Божия: «Ибо Бог поругаем не бывает. Что посеет человек, то и пожнёт» (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C3D5A9F22185B55F527BC9BD9A51C63C9E3C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505959   (690293) от 05.06.2012
+
+Бенедетто Теста | Таинства в Католической Церкви [2000] [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача этого пособия — систематически и связно изложить учение о таинствах, опираясь на традицию, но при этом учитывая новые проблемы и современные исследования. Надеемся также внести этим пособием вклад в богословие таинств. В этой связи особое внимание уделено методу изложения, о котором стоит сказать несколько слов.
+Во-первых, мы пытались, насколько возможно, учитывать, говоря о таинствах, как богослужебные тексты и чинопоследование, так и богословские исследования, и учительные документы Церкви, выработанные на протяжении ее истории. То и другое кажется нам необходимым и взаимодополняющим. В самом деле, с одной стороны, нельзя пренебречь практикой совершения таинств, через которые Церковь, Тело Христово и полнота Христова, оживотворяемая и ведомая Святым Духом, исповедует веру и сотворяет верующих причастниками дела Христова спасения. С другой — нельзя обойти вниманием и упустить из виду учение Церкви и богословскую мысль, которые развивались на протяжении веков, обосновывая в Церкви, а порой и внося необходимые (   Читать дальше...   )2000Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02B8013DFF332BF04B5917603E6AAA491DCDAC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288799   (690218) от 14.03.2019
 
 Дискос (изд.) | Келейный молитвослов [Молитвы об Отечестве, о спасении России] (2012) [PDF, DJVU, FB2]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690218.jpg" />
+  <img src="Z:/picture/008/save_picture_690218.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690214.jpg" />
+  <img src="Z:/picture/008/save_picture_690214.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689677.jpg" />
+  <img src="Z:/picture/008/save_picture_689677.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689442.jpg" />
+  <img src="Z:/picture/008/save_picture_689442.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689366.jpg" />
+  <img src="Z:/picture/008/save_picture_689366.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689052.jpg" />
+  <img src="Z:/picture/008/save_picture_689052.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688046.jpg" />
+  <img src="Z:/picture/008/save_picture_688046.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687922.jpg" />
+  <img src="Z:/picture/008/save_picture_687922.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687911.jpg" />
+  <img src="Z:/picture/008/save_picture_687911.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687497.jpg" />
+  <img src="Z:/picture/008/save_picture_687497.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687489.jpg" />
+  <img src="Z:/picture/008/save_picture_687489.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687483.jpg" />
+  <img src="Z:/picture/008/save_picture_687483.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687480.jpg" />
+  <img src="Z:/picture/008/save_picture_687480.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687457.jpg" />
+  <img src="Z:/picture/008/save_picture_687457.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687366.jpg" />
+  <img src="Z:/picture/008/save_picture_687366.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687360.jpg" />
+  <img src="Z:/picture/008/save_picture_687360.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687089.jpg" />
+  <img src="Z:/picture/008/save_picture_687089.jpg" />
 </div>
 
 
@@ -458,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684968.jpg" />
+  <img src="Z:/picture/008/save_picture_684968.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683365.jpg" />
+  <img src="Z:/picture/008/save_picture_683365.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683134.jpg" />
+  <img src="Z:/picture/008/save_picture_683134.jpg" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683123.jpg" />
+  <img src="Z:/picture/008/save_picture_683123.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683048.jpg" />
+  <img src="Z:/picture/008/save_picture_683048.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682058.jpg" />
+  <img src="Z:/picture/008/save_picture_682058.jpg" />
 </div>
 
 
@@ -602,87 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF03ED9CD17BDADF74A4ED3875649FB0BEFD7F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135674   (679506) от 20.05.2017
-
-И. И. Мигович | Преступный альянс: О союзе униатской церкви и украинского буржуазного национализма (1985) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679506.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении трех с половиной веков униатская церковь, охраняя интересы господствующих классов и католической церкви, вела в Западной Украине борьбу за умы людей. Многие ее пастыри, сотрудничавшие в период Великой Отечественной войны с фашистскими оккупантами, сбежали на Запад, где в альянсе с украинскими буржуазными националистами выступают за возрождение униатской (   Читать дальше...   )Жанр: История, политология, религиоведение, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343A944811F9C35F82609428B54EA87B40E0F8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135667   (679504) от 20.05.2017
-
-В. А. Васильев | Ноев ковчег (1965) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор настоящей брошюры, преподаватель мединститута, анализируя библейское сказание о «всемирном потопе» и основываясь на научных данных, убедительно доказывает, что никакого «всемирного потопа» в действительности не было, а сама легенда возникла из преданий доисторических народов о больших наводнениях, происшедших на Ближнем Востоке. Легенда о потопе понадобилась (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DAB3F644F1ACFD546BE7A3BD0739315B9C02AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135665   (679428) от 20.05.2017
-
-М. Я. Ленсу | Кто такие «инициативники»? (1967) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679428.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1960 году в среде евангельских христиан-баптистов произошел раскол.
-
-Автор брошюры кандидат философских наук М. Ленсу рассказывает о причинах этого раскола и появлении так называемых баптистов-«инициативников», вскрывает вред, который наносят они своей явно антисоветской деятельностью.
-(   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512968F10E760C59BC1EC9C3EE74FA8E4F947647
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ HDCleaner 2.014 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738465.jpg" />
+  <img src="Z:/picture/008/save_picture_738465.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Action! 4.24.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738455.jpg" />
+  <img src="Z:/picture/008/save_picture_738455.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Internet Download Manager 6.40 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738428.jpg" />
+  <img src="Z:/picture/008/save_picture_738428.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AlterPDF Pro 5.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738422.jpg" />
+  <img src="Z:/picture/008/save_picture_738422.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TweakPower 2.007 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738420.jpg" />
+  <img src="Z:/picture/008/save_picture_738420.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ CCleaner 5.89.9385 Professional / Business / Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738393.jpg" />
+  <img src="Z:/picture/008/save_picture_738393.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla FireFox 96.0.2.8054 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738387.jpg" />
+  <img src="Z:/picture/008/save_picture_738387.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ CCleaner 5.89.9385 Free / Professional / Business / Technician_Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738386.jpg" />
+  <img src="Z:/picture/008/save_picture_738386.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Notepad++ 8.2.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738383.jpg" />
+  <img src="Z:/picture/008/save_picture_738383.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7001 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738378.jpg" />
+  <img src="Z:/picture/008/save_picture_738378.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Master PDF Editor 5.8.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738353.jpg" />
+  <img src="Z:/picture/008/save_picture_738353.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ UnHackMe 13.30.2022.0111 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738350.jpg" />
+  <img src="Z:/picture/008/save_picture_738350.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FXSound Pro 1.1.14.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738346.jpg" />
+  <img src="Z:/picture/008/save_picture_738346.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Internet Download Manager 6.40 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738148.jpg" />
+  <img src="Z:/picture/008/save_picture_738148.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ HDCleaner 2.015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738140.jpg" />
+  <img src="Z:/picture/008/save_picture_738140.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ AllDup 4.5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738120.jpg" />
+  <img src="Z:/picture/008/save_picture_738120.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ OCCT 10.0.7 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738117.jpg" />
+  <img src="Z:/picture/008/save_picture_738117.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Opera 83.0.4254.19 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738113.jpg" />
+  <img src="Z:/picture/008/save_picture_738113.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Freac 1.1.6 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738096.jpg" />
+  <img src="Z:/picture/008/save_picture_738096.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SamDrivers 22.00 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738093.jpg" />
+  <img src="Z:/picture/008/save_picture_738093.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Spotify 1.1.77.643 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738084.jpg" />
+  <img src="Z:/picture/008/save_picture_738084.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Internet Download Manager 6.40 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738081.jpg" />
+  <img src="Z:/picture/008/save_picture_738081.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Revo Uninstaller Free 2.3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738080.jpg" />
+  <img src="Z:/picture/008/save_picture_738080.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nekonverter 1.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738054.jpg" />
+  <img src="Z:/picture/008/save_picture_738054.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738051.jpg" />
+  <img src="Z:/picture/008/save_picture_738051.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738050.jpg" />
+  <img src="Z:/picture/008/save_picture_738050.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263476.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263465.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выжив�
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260857.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259753.jpg" />
+  <img src="Z:/picture/005/save_picture_259753.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257360.jpg" />
+  <img src="Z:/picture/005/save_picture_257360.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255000.jpg" />
+  <img src="Z:/picture/005/save_picture_255000.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Dead Space 3 (2013) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254602.jpg" />
+  <img src="Z:/picture/005/save_picture_254602.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [EUR] 4.76 [Cobr
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254597.jpg" />
+  <img src="Z:/picture/005/save_picture_254597.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dead Island 2 Gold Edition (2023) [PS4] [EUR] [5.05] [HEN] [License / 1.03 / DLC
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254548.jpg" />
+  <img src="Z:/picture/005/save_picture_254548.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Assassin's Creed III (2012) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254451.jpg" />
+  <img src="Z:/picture/005/save_picture_254451.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252115.jpg" />
+  <img src="Z:/picture/004/save_picture_252115.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Back 4 Blood (2021) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi] [Ul
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250240.jpg" />
+  <img src="Z:/picture/004/save_picture_250240.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Shadow Warrior 3 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250218.jpg" />
+  <img src="Z:/picture/004/save_picture_250218.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ELEX II (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250064.jpg" />
+  <img src="Z:/picture/004/save_picture_250064.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249572.jpg" />
+  <img src="Z:/picture/004/save_picture_249572.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249561.jpg" />
+  <img src="Z:/picture/004/save_picture_249561.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249002.jpg" />
+  <img src="Z:/picture/004/save_picture_249002.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247156.jpg" />
+  <img src="Z:/picture/004/save_picture_247156.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247144.jpg" />
+  <img src="Z:/picture/004/save_picture_247144.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246028.jpg" />
+  <img src="Z:/picture/004/save_picture_246028.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244502.jpg" />
+  <img src="Z:/picture/004/save_picture_244502.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244472.jpg" />
+  <img src="Z:/picture/004/save_picture_244472.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244157.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243666.jpg" />
+  <img src="Z:/picture/004/save_picture_243666.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Jurassic World Evolution 2 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.12 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242386.jpg" />
+  <img src="Z:/picture/004/save_picture_242386.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241782.jpg" />
+  <img src="Z:/picture/004/save_picture_241782.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1604524   (1045310) от 14.01.2023
+
+Hath - All That Was Promised (2022) [FLAC|Lossless|tracks + .cue] <Death Metal, Black Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Million Violations
+02 - Kenosis
+03 - Lithopaedic
+04 - Iosis(   Читать дальше...   )Жанр: Death Metal, Black Metal, Progressive MetalПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B400C2262FA29D67D82BDD82C8C9C405936DE00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752277   (1045300) от 14.01.2023
+
+Wulfgar - With Gods And Legends Unite (2007) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro [02:13]
+02.  Cleansed By Fire [04:41]
+03.  Weapons Of Flesh [04:15]
+04.  Heimdall's Horn [03:53](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168A648E005E785A1FA007CD655B7C84A74D9230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604836   (1045227) от 15.01.2023
+
+Artemis & Apollo - Broken Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Human Creation (00:56)
+02 - Animals (04:45)
+03 - Broken Wings (04:19)
+04 - Believe (03:27)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688F7814FC3C4AAF4C5C910B1D6D4E30AB1D3F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604940   (1045110) от 16.01.2023
 
 Born in Saturn - Eternal Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
@@ -6,7 +93,7 @@ Born in Saturn - Eternal Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045110.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Delalma - Delalma (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045108.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Megadeth - The Sick, The Dying... And The Dead! (2022) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045050.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Fall of Babylon - War on the Existent (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045039.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Jordan Sartor - C.O.M.A. (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Alte
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045000.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Undead Killer - Killer Unleashed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044998.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Liv Moon - Our Stories (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044977.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Epica - Live At Paradiso (2022) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044968.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Stargenesis - Distress call from Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044758.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Beyond the Black - Beyond the Black (2023) Limited Edition, 2CD [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044755.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Sagen - Roots of Proctor (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044657.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Sacrosanct - Cosmic Horror (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044654.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Elegeion - Plight Of The Heretic (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044644.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Vader - Solitude in Madness (2020) 2xCD [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044590.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ For I Am King - Crown (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044565.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Freaks And Clowns - Justice Elite (2020) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044563.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Silver Bullet - Shadowfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044556.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ The Privateer - Kingdom Of Exiles (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044553.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Twilight Force - At The Heart Of Wintervale (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044549.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Atrocity - Okkult III (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044544.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Sabaton - Heroes Of The Great War (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044492.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Epica - 26 albums, 50CD (2003-2022) Discography [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044460.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Parkway Drive - Collection (2004-2022) 9CD [FLAC|Lossless|tracks + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044439.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Parkway Drive - метал-группа из Австралии, музыка к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AA9437BD4818B14CBCE9B9A8A120D133C6A5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606618   (1044407) от 22.01.2023
-
-Running Wild - Under Jolly Roger (1987) 2xCD, Deluxe Edition, Reissue, Remastered, 2017, Noise [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044407.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-1. Under Jolly Roger
-2. War In The Gutter
-3. Raw Ride(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E60672A3ACFFD2E14BFC8A75684513FDD5DDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606657   (1044338) от 23.01.2023
-
-Theodicy - Torture of Industry (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comment & Conquer
-02. From Alive to Skeleton
-03. The Truth
-04. Raise the White Flag(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E9797E31977AE7E60094EC53255D03C896C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606731   (1044335) от 23.01.2023
-
-Sunset Boulevard - Bad For Education (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister of God 04:39
-02. Born to Rise 04:41
-03. So Far Away 04:05
-04. Crash N' Burn 03:46(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA02A5BEC63130B1BB67BE009B68BE3874C734F
 ```
 
 https://mybot314.ru/tekegram_catalog/

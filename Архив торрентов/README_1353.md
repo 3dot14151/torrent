@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747959.jpg" />
+  <img src="Z:/picture/008/save_picture_747959.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG AntiVirus 2016 16.71.7598 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747956.jpg" />
+  <img src="Z:/picture/008/save_picture_747956.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RAMexpert + portable 1.10.3.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747951.jpg" />
+  <img src="Z:/picture/008/save_picture_747951.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Prof Reminder v2.2.4 Full [Ru/Multi] - Напоминание о пропуще�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747949.jpg" />
+  <img src="Z:/picture/008/save_picture_747949.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ KCleaner Pro + portable 3.6.1.100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747941.jpg" />
+  <img src="Z:/picture/008/save_picture_747941.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ HDDExpert + portable 1.18.2.41 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747937.jpg" />
+  <img src="Z:/picture/008/save_picture_747937.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Cut Up - Forensic Nightmares (2015) [APE|Lossless|image + .cue] <Death Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747928.jpg" />
+  <img src="Z:/picture/008/save_picture_747928.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Insofta Cover Commander 5.5.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747919.jpg" />
+  <img src="Z:/picture/008/save_picture_747919.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747905.jpg" />
+  <img src="Z:/picture/008/save_picture_747905.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ IObit Driver Booster Pro 9.1.0.156 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747896.jpg" />
+  <img src="Z:/picture/008/save_picture_747896.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Rowbyte Plexus 2.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747875.jpg" />
+  <img src="Z:/picture/008/save_picture_747875.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747871.jpg" />
+  <img src="Z:/picture/008/save_picture_747871.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747861.jpg" />
+  <img src="Z:/picture/008/save_picture_747861.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Format Factory 3.9.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747859.jpg" />
+  <img src="Z:/picture/008/save_picture_747859.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Chromium 67.0.3386.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747850.jpg" />
+  <img src="Z:/picture/008/save_picture_747850.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Insofta Cover Commander 5.5.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747843.jpg" />
+  <img src="Z:/picture/008/save_picture_747843.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Antivirus Zap 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747838.jpg" />
+  <img src="Z:/picture/008/save_picture_747838.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Illustrator CC2019 v23.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747824.jpg" />
+  <img src="Z:/picture/008/save_picture_747824.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Unearthed Records Label Collection (2008 - 2010) [MP3|320 kbps] <Trance, Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747800.jpg" />
+  <img src="Z:/picture/005/save_picture_747800.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747784.jpg" />
+  <img src="Z:/picture/008/save_picture_747784.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ IObit Driver Booster Pro 9.1.0.156 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747782.jpg" />
+  <img src="Z:/picture/008/save_picture_747782.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747775.jpg" />
+  <img src="Z:/picture/008/save_picture_747775.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Reg Organizer 8.82 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747771.jpg" />
+  <img src="Z:/picture/008/save_picture_747771.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747770.jpg" />
+  <img src="Z:/picture/008/save_picture_747770.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ V-Ray 5.10.00 for SketchUp 2017-2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747765.jpg" />
+  <img src="Z:/picture/008/save_picture_747765.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747751.jpg" />
+  <img src="Z:/picture/008/save_picture_747751.jpg" />
 </div>
 
 

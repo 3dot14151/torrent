@@ -1,3 +1,119 @@
+###  Публикация: 1047257   (550257) от 29.08.2016
+
+Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brasamba [03:55]
+ 02.Otem A Note [04:06]
+ 03.Autumn Leaves [04:04]
+ 04.Sambinha [03:41](   Читать дальше...   )Жанр: Bossa Nova, Cool, Latin JazzПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADAA94035FB7E05BC079BA0C215B07D82755F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047126   (550096) от 29.08.2016
+
+VA - The Very Best Jazz Instrumentals (3 CD Box Set) (2015) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quincy Jones & His Orchestra - Soul Bossa Nova (2:47)
+02. Duke Ellington - Take The "A" Train (2:56)
+03. Eddie Harris - Moon River (5:54)
+04. Jimmy Smith - Walk On The Wild Side (5:56)(   Читать дальше...   )Жанр: Instrumental JazzПродолжительность: 03:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EA00B3F90A1763746582572185797EBA25B0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309853   (549677) от 21.06.2019
+
+Peggy Lee - Pass Me By & Big Spender (1964, 1966) 2001, EMI [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneakin’ Up on You [2:24]
+02. Pass Me By [2:26]
+03. I Wanna Be Around [2:30]
+04. Bewitched [2:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9A0D5FF060C8B507400F0AC9AF72F959D7EFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309924   (549536) от 21.06.2019
+
+Quantic - Atlantic Oscillations (2019) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divergence (03:30)
+02. Incendium (04:45)
+03. September Blues (05:06)
+04. You Used To Love Me feat. Denitia (06:18)(   Читать дальше...   )Жанр: Nu Jazz, Soul, FunkПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E11CDE7BAD31BC0AF7D1486A943EBF20BA9B399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309870   (549517) от 21.06.2019
 
 Diana Krall - Doing All Right: In Concert (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -6,7 +122,7 @@ Diana Krall - Doing All Right: In Concert (2011) [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549517.jpg" />
+  <img src="Z:/picture/008/save_picture_549517.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Laurent Cugny Big Band Lumiere - Santander (1991) EmArcy[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549403.jpg" />
+  <img src="Z:/picture/008/save_picture_549403.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Shelly Manne - 2 3 4 (1962) Remaster, 2012, Universal[FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549401.jpg" />
+  <img src="Z:/picture/008/save_picture_549401.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Masahiko Togashi - Song For Myself (1974) Remaster, 2015, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549396.jpg" />
+  <img src="Z:/picture/008/save_picture_549396.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Eddie Marshall - Dance Of The Sun (1977) Remaster, 2015, Solid Records[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549392.jpg" />
+  <img src="Z:/picture/008/save_picture_549392.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Les McCann - On The Soul Side (1995) Jazz Heritage[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549388.jpg" />
+  <img src="Z:/picture/008/save_picture_549388.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Age Thirst Trap (2019) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549360.jpg" />
+  <img src="Z:/picture/008/save_picture_549360.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Fats Waller - Ain't Misbehavin' (1990) [WavPack|Lossless|image + .cue] <Jazz, St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549258.jpg" />
+  <img src="Z:/picture/008/save_picture_549258.jpg" />
 </div>
 
 
@@ -241,7 +357,7 @@ Charles Gayle Quartet - Blue Shadows (1993) 2008, Silkheart[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548504.jpg" />
+  <img src="Z:/picture/008/save_picture_548504.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ Johnny "Hammond" Smith - Talk That Talk (1960) Remaster, 2013, Universal[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548500.jpg" />
+  <img src="Z:/picture/008/save_picture_548500.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Woody Herman - The Thundering Herds 1945-1947 (1988) [WavPack|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548353.jpg" />
+  <img src="Z:/picture/008/save_picture_548353.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Doris Day - The Best Of Doris Day (1944-1957) 2CD, 2008, Not Now Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548340.jpg" />
+  <img src="Z:/picture/008/save_picture_548340.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ May Okita - Art Of Life (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547859.jpg" />
+  <img src="Z:/picture/008/save_picture_547859.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Bill Evans - The Brilliant (1980) 1996, Timeless Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547426.jpg" />
+  <img src="Z:/picture/008/save_picture_547426.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Ray Russell - Ready Or Not (1977) 2004 Remaster, Bonus Tracks [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547424.jpg" />
+  <img src="Z:/picture/008/save_picture_547424.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ ZAZ - Effet Miroir (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Nu Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546887.jpg" />
+  <img src="Z:/picture/008/save_picture_546887.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Bill Charlap - Discography (1993-2009) [FLAC|Lossless]<Jazz, Piano, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546697.jpg" />
+  <img src="Z:/picture/008/save_picture_546697.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Joe Castro - Groove Funk Soul (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546594.jpg" />
+  <img src="Z:/picture/008/save_picture_546594.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546593.jpg" />
+  <img src="Z:/picture/008/save_picture_546593.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546589.jpg" />
+  <img src="Z:/picture/008/save_picture_546589.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546588.jpg" />
+  <img src="Z:/picture/008/save_picture_546588.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546585.jpg" />
+  <img src="Z:/picture/008/save_picture_546585.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Johnny "Hammond" Smith - Opus De Funk (1961) 2004, Prestige[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FED2D9CA2A1F15D7B33F3A410C19F68149D6E041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048639   (546582) от 02.09.2016
-
-Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Christmas Song
-02. Winter Wonderland
-03. Blue Holiday
-04. Sugar Cookies(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC3E1B93BAF24B02A022E8E595E4792916FE725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048604   (546538) от 02.09.2016
-
-Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Feeling Good [07:35]
- 02.If You Could See Me Now [06:18]
- 03.Taurus The 20th [06:59]
- 04.Scotch & Soul [05:06](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAA450EE1C5E2634F0465CBB77FA0B329850BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048575   (546472) от 02.09.2016
-
-Kaori Kobayashi - Melody (2016) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It Off (Taylor Swift)
-02. Runaway (Nuyorican Soul)
-03. We’re All Alone (Boz Scaggs)
-04. Saturday In The Park (Chicago)(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF95FDD4C3AF6EC60AA0D589E808FF39F89837B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238521   (546248) от 30.07.2018
-
-Christina von Bülow - On the Brink of a Lovely Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546248.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Should Care 06:38
-2. Just Too Very 05:24
-3 Still I Love You So 05:41
-4. Out Lee 06:17(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC13EF90863ED57729BE8B59E809B169A00EFE54
 ```
 
 https://mybot314.ru/tekegram_catalog/

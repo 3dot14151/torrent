@@ -1,3 +1,29 @@
+###  Публикация: 1513396   (224561) от 28.11.2021
+
+Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альтернативном мире с нуля [ТВ-2] [2020, TV, 25 из 25] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Субару Нацуки, ничем не примечательный затворник, вдруг попадает в другой мир! Казалось бы, всё теперь ему по плечу, а рядом будет красавица-призывательница. Да только вот реальность оказалась жестока: с магией он всё ещё не в ладах, сил не прибавилось, да и никакой красавицы рядом не предвидится. А тут ещё и разбойники напали! Вот только на помощь ему пришла сребровласая (   Читать дальше...   )Производство: Студия White FoxЖанр: фэнтези, драма, исекайРежиссер: Ватанабэ МасахаруЯзык озвучки: Японский, русскийСубтитры: #1: Русские, ASS, Встроенные, Надписи |Продолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC5ADB78602E063CFB95A039F011AF2F8890B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513313   (224533) от 28.11.2021
 
 Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224533.jpg" />
+  <img src="Z:/picture/005/save_picture_224533.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224366.jpg" />
+  <img src="Z:/picture/005/save_picture_224366.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224357.jpg" />
+  <img src="Z:/picture/005/save_picture_224357.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224347.jpg" />
+  <img src="Z:/picture/005/save_picture_224347.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224336.jpg" />
+  <img src="Z:/picture/005/save_picture_224336.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224320.jpg" />
+  <img src="Z:/picture/005/save_picture_224320.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222937.jpg" />
+  <img src="Z:/picture/005/save_picture_222937.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221867.jpg" />
+  <img src="Z:/picture/005/save_picture_221867.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221866.jpg" />
+  <img src="Z:/picture/005/save_picture_221866.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221831.jpg" />
+  <img src="Z:/picture/005/save_picture_221831.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Hadashi no Gen / Barefoot Gen / Босоногий Ген (1983) raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221456.jpg" />
+  <img src="Z:/picture/005/save_picture_221456.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220797.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217165.jpg" />
+  <img src="Z:/picture/005/save_picture_217165.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216394.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213267.jpg" />
+  <img src="Z:/picture/005/save_picture_213267.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213259.jpg" />
+  <img src="Z:/picture/005/save_picture_213259.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213200.jpg" />
+  <img src="Z:/picture/005/save_picture_213200.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213164.jpg" />
+  <img src="Z:/picture/005/save_picture_213164.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [19
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213163.jpg" />
+  <img src="Z:/picture/005/save_picture_213163.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213125.jpg" />
+  <img src="Z:/picture/005/save_picture_213125.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213070.jpg" />
+  <img src="Z:/picture/005/save_picture_213070.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213002.jpg" />
+  <img src="Z:/picture/005/save_picture_213002.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212985.jpg" />
+  <img src="Z:/picture/005/save_picture_212985.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212981.jpg" />
+  <img src="Z:/picture/005/save_picture_212981.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212926.jpg" />
+  <img src="Z:/picture/005/save_picture_212926.jpg" />
 </div>
 
 
@@ -654,36 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71496138B5D5661D83213D31404FE80484FD27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562065   (212770) от 07.07.2022
-
-Дневник слизи | Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I Got Reincarnated as a Slime [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой дневник… Я переродился в слизь. Даже в другом мире жизнь не всегда на кону. Есть много работы, которой надо заниматься: кормление сообщества, ковка предметов, необходимых сообществу. Много разных игр и шуток вокруг! Присоединяйтесь к Римуру и его друзьям, наслаждающимся своим отдыхом и повседневной жизнью!
-
-Это аниме раскроет Римуру и его спутников с совершенно (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: Комедия, повседневность, сёнен, фэнтезиРежиссер: Хайбара ЮдзиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (SHIZA Project), Японский
-- Ados, Hekomi, Sharon, Silv (AniLibria.TV)
-- Лизавета, Daelit, Wozwald (SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

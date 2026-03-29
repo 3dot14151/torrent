@@ -1,3 +1,82 @@
+###  Публикация: 923255   (564144) от 31.07.2015
+
+R-Undelete 4.9 Build 159222 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564144.jpg" />
+</div>
+
+
+###  Подробнее
+
+R-Undelete — мощная утилита для восстановления удаленных или поврежденных файлов в файловых системах FAT, NTFS, NTFS5 и Ext2FS. Программа может обрабатывать целиком любые логические диски, видимые из операционной системы, практически со 100-процентной вероятностью восстанавливать файлы, удаленные в результате вирусной атаки или отключения питания ПК, умеет работать (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398F0EA9739193F6E0F47D66600D5D3038576289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308051   (554343) от 12.06.2019
+
+Apeaksoft Data Recovery 1.1.16 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Apeaksoft Data Recovery это программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные и потерянные файлы, такие как документы, фотографии, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E9DB13977D3C07D9EE01F0E5F02EE523234F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310040   (548303) от 22.06.2019
+
+Laplink PCmover Professional 11.01.1009.0 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laplink Software PCmover – это программа, которая поможет Вам с переносом данных со старого компьютера на новый. Этот инструмент делает возможным перенос всех программ со старого компьютера, а также файлов и настроек на новый ПК. Для этого вам нужно установить PCmover Professional на оба компьютера и использовать специальный мастер для переноса.
+После установки PCmover (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92F48178E681DE42C5BCE4495C018F8F1894DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238349   (546968) от 29.07.2018
 
 Coolmuster Android Assistant 4.3.16 RePack by вовава [En]
@@ -6,7 +85,7 @@ Coolmuster Android Assistant 4.3.16 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546968.jpg" />
+  <img src="Z:/picture/008/save_picture_546968.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Starus File Recovery 4.1 Home / Office / Commercial Edition RePack (& Portable) 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532227.jpg" />
+  <img src="Z:/picture/008/save_picture_532227.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Ontrack EasyRecovery Enterprise | Professional 11.5.0.3 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527697.jpg" />
+  <img src="Z:/picture/008/save_picture_527697.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Aiseesoft FoneLab for Android 1.2.12 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525806.jpg" />
+  <img src="Z:/picture/008/save_picture_525806.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Tipard Android Data Recovery 1.2.6 RePack by вовава [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525436.jpg" />
+  <img src="Z:/picture/008/save_picture_525436.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ AOMEI Backupper Professional 3.2 BootUSB [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525096.jpg" />
+  <img src="Z:/picture/008/save_picture_525096.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Ashampoo Photo Recovery 1.0.5 RePack (& Portable) by TryRooM [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523649.jpg" />
+  <img src="Z:/picture/008/save_picture_523649.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ O&O MediaRecovery Professional 14.0 Build 17 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521202.jpg" />
+  <img src="Z:/picture/008/save_picture_521202.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ Magic Photo Recovery 4.7 Commercial Edition Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519035.jpg" />
+  <img src="Z:/picture/008/save_picture_519035.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ Magic Partition Recovery 2.8 Commercial Edition Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518848.jpg" />
+  <img src="Z:/picture/008/save_picture_518848.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ Magic FAT Recovery 2.8 Commercial Edition Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517958.jpg" />
+  <img src="Z:/picture/008/save_picture_517958.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ R-Studio 9.1 Build 191020 Network RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504472.jpg" />
+  <img src="Z:/picture/008/save_picture_504472.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ BackRex Expert Backup 2.8.161 Full [Eng]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498899.jpg" />
+  <img src="Z:/picture/008/save_picture_498899.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ FileRescue Professional RePack/Portable by Boomer 4.8 Build 197 [Русский/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497137.jpg" />
+  <img src="Z:/picture/008/save_picture_497137.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ TestDisk & PhotoRec 7.1 Stable Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496188.jpg" />
+  <img src="Z:/picture/008/save_picture_496188.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ Gihosoft Android Data Recovery 8.1.9 RePack by вовава [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467044.jpg" />
+  <img src="Z:/picture/008/save_picture_467044.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ GoodSync 9.9.30.5 Enterprise + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454974.jpg" />
+  <img src="Z:/picture/008/save_picture_454974.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ MEGAsync 4.3.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453281.jpg" />
+  <img src="Z:/picture/008/save_picture_453281.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ Acronis Backup Advanced 11.7.50242 + BootCD [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452049.jpg" />
+  <img src="Z:/picture/008/save_picture_452049.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ MiniTool Power Data Recovery 11.3 Business Technician Portable by AlexYar [Multi
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449097.jpg" />
+  <img src="Z:/picture/008/save_picture_449097.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ R-Studio Network Edition 8.11.Build.175351 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448187.jpg" />
+  <img src="Z:/picture/008/save_picture_448187.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ R-Studio Technician 9.1 Build 191029 Portable by JooSeng [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447002.jpg" />
+  <img src="Z:/picture/008/save_picture_447002.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ DocumentsRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446056.jpg" />
+  <img src="Z:/picture/008/save_picture_446056.jpg" />
 </div>
 
 
@@ -591,85 +670,6 @@ DocumentsRescue Pro - программа для восстановления д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE7447F203B90B6C4253802849C40CF60BAF7A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163890   (445929) от 07.09.2017
-
-MediaRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital MediaRescue Professional - программа для восстановления удаленных и нечитаемых файлов с самых разнообразных носителей информации: жестких дисков, CD/DVD дисков, цифровых фотоаппаратов, мобильных телефонов, а также всех известных флэш-карт ( таких как CompactFlash cards (type I/II), IBM Microdrives, SmartMedia cards, MultiMedia cards (MMCs), Secure Digital (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705B486F296703F7791072135B120744E3115941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163876   (445831) от 07.09.2017
-
-PhotoRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digital PhotoRescue Professional - программа для восстановления удалённых фотографий с самых разнообразных носителей информации: цифровых фотоаппаратов, жестких дисков, CD/DVD дисков, мобильных телефонов, а также всех известных флэш-карт (таких как CompactFlash(type I/II), IBM Microdrives, SmartMedia, MultiMedia (MMCs), Secure Digital (SD), SONY Memory Stick и другие). (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB2B46D0835988BC7C6479B85AC4F27DF0F0392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164723   (439058) от 10.09.2017
-
-FileRescue for FAT 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пограмма FileRescue for FAT - простой в пользовании, но очень мощный инструмент для восстановления информации любого типа с жестких дисков и иных носителей информации. Программа умеет восстанавливать не только файлы удалённые через корзину, но и также те, которые исчезли в результате системных сбоев или вирусных атак.
-FileRescue работает на платформе Windows и поддерживает (   Читать дальше...   )Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCDAC05B5BA3BB701E54658163100C137B66EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

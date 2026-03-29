@@ -1,3 +1,58 @@
+###  Публикация: 1403260   (694273) от 18.08.2020
+
+НХЛ. Кубок Стэнли 2019-2020. Плей-офф. 1/4 финала - Восток. 1-й матч. Филадельфия Флайерз — Монреаль Канадиенс (2020) WEB-DLRip [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Стэнли 2019-2020. Плей-офф.
+13 августа 2020, четверг. 03:00 МСК
+1/4 финала - Восток. 1-й матч.
+Филадельфия Флайерз — Монреаль Канадиенс(   Читать дальше...   )Телекомпания: NBCSNЖанр: Спорт, ХоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8625BB234DCAC627A8DF98CAF10FBEB2C909FD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403125   (694268) от 18.08.2020
+
+Серия Кубков NASCAR-2020. Дайтона Дорожный Курс 235 / NASCAR Cup Series 2020. GoBowling 235, Daytona International Speedway Road Course (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694268.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 этап Nascar Cup Series, GoBowling 235, Daytona International Speedway Road Course (65 Laps, 231 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6770AFD6E43969B358424F19BC3CA543B4F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 333521   (694235) от 07.05.2011
 
 [EN] NG: В глубинах Млечного Пути / Inside the Milky Way (2010) HDRip
@@ -6,7 +61,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694235.jpg" />
+  <img src="Z:/picture/008/save_picture_694235.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694233.jpg" />
+  <img src="Z:/picture/008/save_picture_694233.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694191.jpg" />
+  <img src="Z:/picture/008/save_picture_694191.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ NG: В глубинах Млечного Пути / Inside the Milky Way (2010) 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693962.jpg" />
+  <img src="Z:/picture/008/save_picture_693962.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693901.jpg" />
+  <img src="Z:/picture/008/save_picture_693901.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693557.jpg" />
+  <img src="Z:/picture/008/save_picture_693557.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693556.jpg" />
+  <img src="Z:/picture/008/save_picture_693556.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693555.jpg" />
+  <img src="Z:/picture/008/save_picture_693555.jpg" />
 </div>
 
 
@@ -229,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693554.jpg" />
+  <img src="Z:/picture/008/save_picture_693554.jpg" />
 </div>
 
 
@@ -258,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693553.jpg" />
+  <img src="Z:/picture/008/save_picture_693553.jpg" />
 </div>
 
 
@@ -287,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693552.jpg" />
+  <img src="Z:/picture/008/save_picture_693552.jpg" />
 </div>
 
 
@@ -308,6 +363,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133665   (693551) от 13.05.2017
+
+Баскетбол. Евролига 2016-2017. Плей-офф. 1/4 финала. 3-й матч. Фенербахче (Турция) – Панатинаикос (Греция) (25.04.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693551.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 апреля 2017, вторник. 20:45 МСК
+Евролига 2016-2017. Мужчины. Плей-офф. 1/4 финала. 3-й матч
+Фенербахче (Стамбул, Турция) – Панатинаикос (Афины, Греция)
+Стадион: Улкер Спортс Арена (Стамбул, Турция), 12973 зрителя (94 % при вместимости 13800)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9875DFCFDEF7B7DD432FE335A742ADFDCDD783A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133527   (693550) от 13.05.2017
 
 Футбол. Лига Европы УЕФА 2016-2017. 1/2 финала. 2-й матч. Лион (Франция) – Аякс (Нидерланды) (11.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -316,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693550.jpg" />
+  <img src="Z:/picture/008/save_picture_693550.jpg" />
 </div>
 
 
@@ -345,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693546.jpg" />
+  <img src="Z:/picture/008/save_picture_693546.jpg" />
 </div>
 
 
@@ -374,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693538.jpg" />
+  <img src="Z:/picture/008/save_picture_693538.jpg" />
 </div>
 
 
@@ -403,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693525.jpg" />
+  <img src="Z:/picture/008/save_picture_693525.jpg" />
 </div>
 
 
@@ -429,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693437.jpg" />
+  <img src="Z:/picture/008/save_picture_693437.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693339.jpg" />
+  <img src="Z:/picture/008/save_picture_693339.jpg" />
 </div>
 
 
@@ -476,6 +560,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133754   (693330) от 13.05.2017
+
+Военная тайна с Игорем Прокопенко (2017.05.13) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693330.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:36:24Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767AF26022973F79301D7933F9FE7FA1169532D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221589   (693264) от 25.04.2018
 
 Хоккей. Евро хоккей тур 2017-2018. Чешские игры 2018. Чехия – Швеция (21.04.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -484,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693264.jpg" />
+  <img src="Z:/picture/008/save_picture_693264.jpg" />
 </div>
 
 
@@ -513,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693262.jpg" />
+  <img src="Z:/picture/008/save_picture_693262.jpg" />
 </div>
 
 
@@ -542,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693191.jpg" />
+  <img src="Z:/picture/008/save_picture_693191.jpg" />
 </div>
 
 
@@ -571,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693190.jpg" />
+  <img src="Z:/picture/008/save_picture_693190.jpg" />
 </div>
 
 
@@ -600,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693189.jpg" />
+  <img src="Z:/picture/008/save_picture_693189.jpg" />
 </div>
 
 
@@ -614,122 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC54FBBFAD472BD7F0F10EDDAED7824DDAD844C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221196   (693077) от 25.04.2018
-
-NASCAR. Monster Energy Cup Series 2018. TicketGuardian 500 (11.03.2018) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693077.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 марта 2018 года, 0:30 МСК
-Сезон 2018 года серии Кубка НАСКАР (NASCAR Cup Series). 4-й Этап.
-Авондейл (штат Аризона. США). TicketGuardian 500.
-Дистанция: 312 миль (502,115 км). круг - 1 миля (1,6 км)(   Читать дальше...   )Телекомпания: США, Fox SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 02:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CEA1483FD1FE442BD3B497BC3672199A1F96AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028038   (693041) от 21.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693041.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 июня 2016, понедельник. 22:00 МСК
-Группа B. 3-й тур
-
-Стадион: Жеффруа-Гишар (Сент-Этьен, Франция) , 39 051 зритель (93 % при вместимости 42 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Роман Трушечкин)Продолжительность: 01:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9100586E5EF526C6EC73FB28ED802AE44E82A322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028033   (692977) от 21.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа B. 3-й тур. Словакия - Англия (20.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692977.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 июня 2016, понедельник. 22:00 МСК
-Группа B. 3-й тур.
-
-Стадион: Жеффруа-Гишар (Сент-Этьен, Франция) , 39 051 зритель (93 % при вместимости 42 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин, Денис Казанский) / ИнтершумПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE74C92F1F4BBBF5FA35CCC1661726433A85CA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027943   (692976) от 21.06.2016
-
-Футбол. Кубок Америки 2016. 1/4 финала. Аргентина - Венесуэла (18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692976.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 июня 2016, воскресенье. 02:00 МСК
-1/4 финала
-
-Стадион: Жиллетт (Фоксборо, США) , вместимость: 68756(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Дерябкин, Кытманов)Продолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8794023F1151D0D47D5A2C83A8FBC912A15151FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

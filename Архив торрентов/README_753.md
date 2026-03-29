@@ -6,7 +6,7 @@ Adobe Premiere Pro 2020 14.0.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881586.jpg" />
+  <img src="Z:/picture/005/save_picture_881586.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881581.jpg" />
+  <img src="Z:/picture/005/save_picture_881581.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.13 Build 1886 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881572.jpg" />
+  <img src="Z:/picture/005/save_picture_881572.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Native Instruments Traktor Pro 3 v3.3.0.108 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881567.jpg" />
+  <img src="Z:/picture/005/save_picture_881567.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wondershare Filmora 8.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881561.jpg" />
+  <img src="Z:/picture/005/save_picture_881561.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MediaCoder 0.8.61 Build 6010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881547.jpg" />
+  <img src="Z:/picture/005/save_picture_881547.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ SIV (System Information Viewer) 5.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881541.jpg" />
+  <img src="Z:/picture/005/save_picture_881541.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ ON1 Photo RAW 2017 v11.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881536.jpg" />
+  <img src="Z:/picture/005/save_picture_881536.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Kaspersky Small Office Security 7 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881534.jpg" />
+  <img src="Z:/picture/005/save_picture_881534.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ CCleaner 5.27.5976 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881496.jpg" />
+  <img src="Z:/picture/005/save_picture_881496.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ The Bat! Professional 7.4.10 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881494.jpg" />
+  <img src="Z:/picture/005/save_picture_881494.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CCleaner 5.27.5976 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881469.jpg" />
+  <img src="Z:/picture/005/save_picture_881469.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Pixomatic photo editor 4.7.2 (Premium) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881447.jpg" />
+  <img src="Z:/picture/005/save_picture_881447.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Victoria 5.27 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881438.jpg" />
+  <img src="Z:/picture/005/save_picture_881438.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Snappy Driver Installer Origin R710 / Драйверпаки 20035 [Multi/Ru] (�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881436.jpg" />
+  <img src="Z:/picture/005/save_picture_881436.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881429.jpg" />
+  <img src="Z:/picture/005/save_picture_881429.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881420.jpg" />
+  <img src="Z:/picture/005/save_picture_881420.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881416.jpg" />
+  <img src="Z:/picture/005/save_picture_881416.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881414.jpg" />
+  <img src="Z:/picture/005/save_picture_881414.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881412.jpg" />
+  <img src="Z:/picture/005/save_picture_881412.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881408.jpg" />
+  <img src="Z:/picture/005/save_picture_881408.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881401.jpg" />
+  <img src="Z:/picture/005/save_picture_881401.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Readiris Corporate 16.0.2 Build 9591 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881356.jpg" />
+  <img src="Z:/picture/005/save_picture_881356.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ AIMP 4.13 Build 1886 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881355.jpg" />
+  <img src="Z:/picture/005/save_picture_881355.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Notepad++ 7.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881351.jpg" />
+  <img src="Z:/picture/005/save_picture_881351.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ CCleaner 5.27.5976 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881345.jpg" />
+  <img src="Z:/picture/005/save_picture_881345.jpg" />
 </div>
 
 

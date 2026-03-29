@@ -6,7 +6,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861438.jpg" />
+  <img src="Z:/picture/008/save_picture_861438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861429.jpg" />
+  <img src="Z:/picture/008/save_picture_861429.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Earotic Chill (2009) [MP3|320 kbps]<Chillout, Lo-Fi, Nu Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861391.jpg" />
+  <img src="Z:/picture/008/save_picture_861391.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861361.jpg" />
+  <img src="Z:/picture/008/save_picture_861361.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Dash 6.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861354.jpg" />
+  <img src="Z:/picture/008/save_picture_861354.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ PullTube 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861260.jpg" />
+  <img src="Z:/picture/008/save_picture_861260.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Opera 79.0.4143.56 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861252.jpg" />
+  <img src="Z:/picture/008/save_picture_861252.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Firefox Browser 92.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861244.jpg" />
+  <img src="Z:/picture/008/save_picture_861244.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ GPU-Z 2.42.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861187.jpg" />
+  <img src="Z:/picture/008/save_picture_861187.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Calibre 5.28.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861186.jpg" />
+  <img src="Z:/picture/008/save_picture_861186.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Telegram Desktop 3.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861184.jpg" />
+  <img src="Z:/picture/008/save_picture_861184.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861183.jpg" />
+  <img src="Z:/picture/008/save_picture_861183.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ritual Aesthetic - Discography 4 Releases (2014-2020) [MP3|320 Kbps] <Industrial
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861175.jpg" />
+  <img src="Z:/picture/008/save_picture_861175.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Google Chrome 94.0.4606.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861174.jpg" />
+  <img src="Z:/picture/008/save_picture_861174.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ ASUS GPU Tweak II 2.3.6.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861173.jpg" />
+  <img src="Z:/picture/008/save_picture_861173.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861165.jpg" />
+  <img src="Z:/picture/008/save_picture_861165.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861103.jpg" />
+  <img src="Z:/picture/008/save_picture_861103.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Trance 4 Friends Vol.4 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861096.jpg" />
+  <img src="Z:/picture/008/save_picture_861096.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ FanControl V93 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861094.jpg" />
+  <img src="Z:/picture/008/save_picture_861094.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Quazax - Terrestrial Planet (2017) [MP3|320 Kbps] <Trance,Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861082.jpg" />
+  <img src="Z:/picture/008/save_picture_861082.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Night Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861079.jpg" />
+  <img src="Z:/picture/008/save_picture_861079.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ BBEdit 11.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861078.jpg" />
+  <img src="Z:/picture/008/save_picture_861078.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861005.jpg" />
+  <img src="Z:/picture/008/save_picture_861005.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860990.jpg" />
+  <img src="Z:/picture/008/save_picture_860990.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ JustBroadcaster YTEd 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860986.jpg" />
+  <img src="Z:/picture/008/save_picture_860986.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Pola & Bryson - Find Your Way (2017) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860985.jpg" />
+  <img src="Z:/picture/008/save_picture_860985.jpg" />
 </div>
 
 

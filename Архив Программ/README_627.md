@@ -6,7 +6,7 @@ R-Studio Network 9.0 Build 190275 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734906.jpg" />
+  <img src="Z:/picture/008/save_picture_734906.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ableton - Live Suite 11.1.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734880.jpg" />
+  <img src="Z:/picture/008/save_picture_734880.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Glary Utilities Pro 5.147.0.173 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734794.jpg" />
+  <img src="Z:/picture/008/save_picture_734794.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ RegCool 1.122 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734768.jpg" />
+  <img src="Z:/picture/008/save_picture_734768.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ XYplorer 20.90.0800 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734767.jpg" />
+  <img src="Z:/picture/008/save_picture_734767.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Opera 70.0.3728.71 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734761.jpg" />
+  <img src="Z:/picture/008/save_picture_734761.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MgoSoft PDF To Image Converter 12.2.5 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734758.jpg" />
+  <img src="Z:/picture/008/save_picture_734758.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Hetman Uneraser 5.1 Home / Office / Commercial Edition RePack (& Portable) by Tr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734755.jpg" />
+  <img src="Z:/picture/008/save_picture_734755.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ RogueKiller Anti-Malware 14.6.2.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734754.jpg" />
+  <img src="Z:/picture/008/save_picture_734754.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VueScan Pro 9.7.29 (DC 28.07.2020) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734731.jpg" />
+  <img src="Z:/picture/008/save_picture_734731.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Files Inspector Pro 2.01 (акция sharewareonsale) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734729.jpg" />
+  <img src="Z:/picture/008/save_picture_734729.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734726.jpg" />
+  <img src="Z:/picture/008/save_picture_734726.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Any Video Converter Professional 7.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734717.jpg" />
+  <img src="Z:/picture/008/save_picture_734717.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TweakPower 1.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734715.jpg" />
+  <img src="Z:/picture/008/save_picture_734715.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Google Chrome 84.0.4147.105 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734681.jpg" />
+  <img src="Z:/picture/008/save_picture_734681.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Windows 10 Manager 3.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734646.jpg" />
+  <img src="Z:/picture/008/save_picture_734646.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Chrome 84.0.4147.105 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734645.jpg" />
+  <img src="Z:/picture/008/save_picture_734645.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ StartIsBack 2.1.2 StartIsBack+ 1.7.6 StartIsBack++ 2.9.2 RePack by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734644.jpg" />
+  <img src="Z:/picture/008/save_picture_734644.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Smart Game Booster Pro 4.5.0.4884 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734640.jpg" />
+  <img src="Z:/picture/008/save_picture_734640.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Nitro4D NitroBoxTool v1.07 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734634.jpg" />
+  <img src="Z:/picture/008/save_picture_734634.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Navicat Premium 15.0.17 x86/x64 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734571.jpg" />
+  <img src="Z:/picture/008/save_picture_734571.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ESET Smart Security 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734510.jpg" />
+  <img src="Z:/picture/008/save_picture_734510.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Xfer Records OTT 1.31 VST, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734435.jpg" />
+  <img src="Z:/picture/008/save_picture_734435.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ KLS Backup 2021 Professional 11.0.0.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734407.jpg" />
+  <img src="Z:/picture/008/save_picture_734407.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Windows 11 Manager 1.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734388.jpg" />
+  <img src="Z:/picture/008/save_picture_734388.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Vivaldi 3.1.1929.48 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734278.jpg" />
+  <img src="Z:/picture/008/save_picture_734278.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1361951   (951902) от 21.02.2020
+
+Достать ножи / Knives Out (2019) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951902.jpg" />
+</div>
+
+
+###  Подробнее
+
+На следующее утро после празднования 85-летия известного автора криминальных романов Харлана Тромби виновника торжества находят мёртвым. На лицо — явное самоубийство, но полиция по протоколу опрашивает всех присутствующих в особняке членов семьи, хотя, в этом деле больше заинтересован частный детектив Бенуа Блан. Тем же утром он получил конверт с наличными от неизвестного (   Читать дальше...   )Производство: США / Lionsgate, Media Rights Capital, T-StreetЖанр: Детектив, Комедия, Драма, КриминалРежиссер: Райан ДжонсонАктеры: Дэниэл Крэйг, Ана де Армас, Крис Эванс, Джейми Ли Кёртис, Майкл Шеннон, Дон Джонсон, Тони Коллетт, Лакит Стэнфилд, Кристофер ПламмерПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced)Продолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED123E1FB82195387F7C97CFC8F5C90C392B9D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066881   (951384) от 03.01.2017
+
+Subsistence (2016) [En] (020117) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subsistence — это песочница от первого лица в открытом мире на выживание. Сражайтесь и пытайтесь построить свою базу! Защищайте себя от диких животных и других персонажей в агрессивной игровой среде. Развивайте технологии, улучшайте и создавайте предметы и оружие. Выращивайте сельскохозяйственные культуры, разводите мелких животных, совершенствуйте имеющиеся ресурсы, (   Читать дальше...   )Тип издания: RepackРазработчик: ColdGamesЖанр: Action (Survival), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EACB2081ED5AF707F2256234D744068F69D6977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089434   (951382) от 03.01.2017
+
+Unreal Tournament 2004 (2004) [En] (3369-128.29/dlc) License GOG [Editor's Choice Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unreal Tournament 2004 - культовая компьютерная игра в жанре шутера от первого лица. Является продолжением серии Unreal, мультиплеерную ветку которой начала Unreal Tournament, выпущенная в 2000 году, и двумя годами позже продолжила Unreal Tournament 2003. UT2004, как и предшественники, фокусировался на многопользовательских сражениях и довел без того практически (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital Extremes и Epic GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DC82873181C6DB0ED60842A5C884D406821790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088243   (951375) от 03.01.2017
+
+Windows XP SP3 RUS VL+ Быстрая установка из ESD v1 [Ru] by yahoo00
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951375.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче загрузочный образ диска с WinPE 7 и сжатый в ESD образ системы Windows XP SP3 RUS VL. Windows XP SP3 RUS VL основан на оригинальном образе MSDN и обновлен по декабрь так как применён твик от Windows Embedded POSReady 2009 и возможно дальнейшее обновление. Инегрированы популярные драйверы SATA/SCSI/RAID и в WinPE и в Windows XP что позволяет работать с широким (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301BF359135E053A7E73E41F9CE4F194E6836D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089313   (951374) от 03.01.2017
 
 Ведьма из Блэр: Новая глава / Blair Witch (2016) BDRip
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951374.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951216.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Reg Organizer 7.30 Final + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951004.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ American Truck Simulator (2016) [Ru/Multi] (0.9.1.3s/dlc) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950847.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Reg Organizer 7.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950833.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Xelius Groupe | Трейдинг на миллион - углубленный к
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950821.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950815.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Adobe Photoshop 2020 v21.1.0.106 (x64) Repack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950456.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Medal of Honor Warfighter: Limited Edition + 5 DLC [Ru/En] (Origin-Rip/1.0.0.3) 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_950245.jpg" />
+  <img src="Z:/picture/009/save_picture_950245.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Tomb Raider [PS3] [EUR] [RUSSOUND] [4.31] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950244.jpg" />
 </div>
 
 
@@ -279,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950148.jpg" />
 </div>
 
 
@@ -305,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949958.jpg" />
 </div>
 
 
@@ -331,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949929.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949925.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949719.jpg" />
 </div>
 
 
@@ -410,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949706.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ Total Commander 8.52a VIM 11 Matros portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949260.jpg" />
 </div>
 
 
@@ -465,7 +569,7 @@ MediaChance Dynamic Auto Painter PRO 4.2.0.2 Repack by aleksbank [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949259.jpg" />
 </div>
 
 
@@ -491,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949250.jpg" />
 </div>
 
 
@@ -518,7 +622,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) Portable by punsh [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949248.jpg" />
 </div>
 
 
@@ -544,7 +648,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (4.2.1.8/dlc) SteamRip Let'sРlay [Special 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949246.jpg" />
 </div>
 
 
@@ -570,7 +674,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd9) Repack Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949243.jpg" />
 </div>
 
 
@@ -581,111 +685,6 @@ The Witness — игра для одного пользователя, разн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:364729A9A000021E16A50269502E82D8EACB4935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981837   (949241) от 02.02.2016
-
-Главный (2015) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что Сергей Королев запустил в космос и Первый искусственный спутник Земли, и Лайку, и Гагарина, и вывел в открытый космос Алексея Леонова. Но никто не знает, насколько ему было трудно преодолеть и косность партийного руководства, и недоверие коллег. Но, как сказал один из его соратников, что у Королева все получалось потому, что ему верили и знали, что (   Читать дальше...   )Производство: РоссияЖанр: история, драмаРежиссер: Юрий КараАктеры: Валерий Гришко, Борис Щербаков, Лидия Арефьева, Алексей Богачук, Федор Лавров, Георгий Солдатов, Борис Каморзин, Анатолий Котенёв, Вадим Андреев, Александр КузнецовПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2838CFFE7CC1C537E1F8BA67F3FBDD8DAB374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089979   (948489) от 05.01.2017
-
-Tixati 2.51 + Portable [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FD7D5F85CD8FA3E6A637B95426FC27BB7531E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089745   (948434) от 05.01.2017
-
-Прекрасное далеко: в Сети обнаружили советский диафильм с предсказаниями на 2017 год
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким видели 2017-й в советском диафильме 1960 года
-В соцсетях кто-то вспомнил советский комикс, датированный 1960 годом. В нём художники и авторы студии «Диафильм» фантазировали на тему того, какой будет страна советов в годовщину Великой Октябрьской революции, то есть в 2017 году. Авторам диафильма удалось спрогнозировать некоторые технические новинки, однако ряд (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090064   (948397) от 05.01.2017
-
-Diskeeper 16 Professional 19.0.1214.0 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diskeeper – быстрый дефрагментатор для Windows, который работает в шесть раз быстрее встроенных средств дефрагментации. Программа использует минимум системных ресурсов для поддержания максимальной производительности. Дефрагментация выполняется в фоновом режиме, не мешая работе пользователя. Интеллектуальное планирование динамически корректирует расписание процесса (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F782DA7EEF43C4238122424608B6BAFBDD70F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

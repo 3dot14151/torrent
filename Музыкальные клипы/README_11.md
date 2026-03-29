@@ -1,3 +1,84 @@
+###  Публикация: 997146   (875237) от 16.03.2016
+
+Metallica - The Videos 1989-2004 [iTunes M4V Album] (2006) [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_875237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cборник видеоклипов The Videos 1989—2004 содержит все на тот момент (2006г) видеоклипы, в разное время снятые группой, начиная с «One» 1989 года и заканчивая «Some Kind of Monster» 2003-го, а также различные бонус-материалы, включая альтернативные версии клипов и трейлер к документальному фильму 2005 года «Metallica: Some Kind of Monster».1. One
+2. Enter Sandman
+3.The Unforgiven
+4. Nothing Else Matters(   Читать дальше...   )Жанр: МузыкаАктеры: Kirk Hammett, Lars Ulrich, James Hetfield, Robert Trujillo, Jason NewstedПеревод: ОтсутствуетПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C532F401DE229855C54D837CED3675293691E4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373799   (874435) от 09.04.2020
+
+Feuerschwanz - Das Elfte Gebot (2020) WEBRip [H.264/1080p-LQ]<Mitellater Folk-Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_874435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Feuerschwanz - Das Elfte GebotЖанр: Mitellater Folk-RockПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA630F5B7F76E12B03A58ABA306647450A625EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644050   (873265) от 14.04.2013
+
+Major Lazer feat. Busy Signal & The Flexican & FS Green - Watch Out For This (Bumaye) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_873265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ReggaeПродолжительность: 00:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A7D0C21B6892CFDBA2B0FDB3996EBF63A38FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374429   (872834) от 10.04.2020
 
 Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
@@ -6,7 +87,7 @@ Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872834.jpg" />
+  <img src="Z:/picture/008/save_picture_872834.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Me
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872828.jpg" />
+  <img src="Z:/picture/008/save_picture_872828.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Th
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872579.jpg" />
+  <img src="Z:/picture/008/save_picture_872579.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Paul van Dyk - Music Video (Подборка из 11 клипов) (2000-2009) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871447.jpg" />
+  <img src="Z:/picture/008/save_picture_871447.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Гориз�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867127.jpg" />
+  <img src="Z:/picture/008/save_picture_867127.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867087.jpg" />
+  <img src="Z:/picture/008/save_picture_867087.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867033.jpg" />
+  <img src="Z:/picture/008/save_picture_867033.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866889.jpg" />
+  <img src="Z:/picture/008/save_picture_866889.jpg" />
 </div>
 
 
@@ -217,7 +298,7 @@ Calvin Harris feat. Ellie Goulding - I Need Your Love (2013) WEBRip [H.264/1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865656.jpg" />
+  <img src="Z:/picture/008/save_picture_865656.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865575.jpg" />
+  <img src="Z:/picture/008/save_picture_865575.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ A-Teens - Music Video (Клипография) (1999-2004) DVDRip,TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864656.jpg" />
+  <img src="Z:/picture/008/save_picture_864656.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ We Blame The Empire - Updraft (2020) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863867.jpg" />
+  <img src="Z:/picture/008/save_picture_863867.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863763.jpg" />
+  <img src="Z:/picture/008/save_picture_863763.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863761.jpg" />
+  <img src="Z:/picture/008/save_picture_863761.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863609.jpg" />
+  <img src="Z:/picture/008/save_picture_863609.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863534.jpg" />
+  <img src="Z:/picture/008/save_picture_863534.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861692.jpg" />
+  <img src="Z:/picture/008/save_picture_861692.jpg" />
 </div>
 
 
@@ -464,7 +545,7 @@ Leeched - 6 Music Videos (2017-2020) WEBRip [H.264/1080p-LQ] <Sludge Metal, Meta
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860380.jpg" />
+  <img src="Z:/picture/008/save_picture_860380.jpg" />
 </div>
 
 
@@ -493,7 +574,7 @@ Igorrr - 7 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ] <IDM, Breakcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860370.jpg" />
+  <img src="Z:/picture/008/save_picture_860370.jpg" />
 </div>
 
 
@@ -522,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860364.jpg" />
+  <img src="Z:/picture/008/save_picture_860364.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857505.jpg" />
+  <img src="Z:/picture/008/save_picture_857505.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ ABBA - The Definitive Collection (1974-1982) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857390.jpg" />
+  <img src="Z:/picture/008/save_picture_857390.jpg" />
 </div>
 
 
@@ -607,7 +688,7 @@ Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855438.jpg" />
+  <img src="Z:/picture/008/save_picture_855438.jpg" />
 </div>
 
 
@@ -618,87 +699,6 @@ Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F95ED03E71A95153E6443E34ECFC838FC4B43C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648027   (855371) от 24.04.2013
-
-Marty - Suddenly (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4D6EFF128E52F0FF4C77744121CBFC5DB41664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648031   (855285) от 24.04.2013
-
-Chase The Ace - California (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 00:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DC9964B8D39EBD8E693EF410B8163DC451961B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769067   (854167) от 23.03.2014
-
-Сборник клипов - VA - Various Music part. 51 (2014) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Ferrari - Guere Guere 1080p (2:59)
-2. Andrew Rayel - Power Of Elements (Trancefusion 2014 Anthem) 720p (3:26)
-3. ARASH feat Helena - ONE DAY 1080p (3:46)
-4. Armin van Buuren feat. Lauren Evans - Alone 1080p (4:06)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA58A86487825C9C91585F212F43E74989BADA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

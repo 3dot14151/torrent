@@ -1,3 +1,119 @@
+###  Публикация: 1183884   (305640) от 15.11.2017
+
+Vince Benedetti - Hardbop World (2008) TCB Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime [03:50]
+02. Mr. Walker [05:38]
+03. Bayram [05:05]
+04. Rouge [06:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D032216FF2B49BD63F75636BFE7AD94D60BB520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183897   (305635) от 15.11.2017
+
+Artie Shaw - The Last Recordings Rare & Unreleased (1954) 2CD, 1991, Limelight [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Imagination [04:18]
+02. Besame Mucho [04:03]
+03. My Funny Valentine [05:32](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9187879AD5387F8A78773A9F4D2C7F22E49F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960612   (305628) от 29.11.2015
+
+Art Farmer - Art Worker (1968) 2014, Studio Songs[FLAC|tracks+.cue]<Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Delphine [04:12]
+ 02.Stars [04:02]
+ 03.Erwagung [04:30]
+ 04.Ala Nove [04:32](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA54912DE3A7B705BDFE742CF8A0566D2B670BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333277   (305618) от 24.10.2019
+
+June Christy - Big Band Specials (1962) 1999, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Came a Long Way from St. Louis [2:18]
+02. Swingin' on Nothin' [2:26]
+03. Is You Is or Is You Ain't My Baby [2:49]
+04. Prelude to a Kiss [3:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D703EA38DB2E48E46D8C4F133827B8CA7EF71E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960904   (305568) от 29.11.2015
 
 Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|tracks+.cue]<Swing, Big Band>
@@ -6,7 +122,7 @@ Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305568.jpg" />
+  <img src="Z:/picture/008/save_picture_305568.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Charlie Byrd - Christmas Carols for Solo Guitar (1966) 1997, Columbia Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305523.jpg" />
+  <img src="Z:/picture/008/save_picture_305523.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Stan Getz - Out Of Nowhere (1960) 1994, FourStar [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305521.jpg" />
+  <img src="Z:/picture/008/save_picture_305521.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Clifford Brown & Max Roach Quintet - The Complete Study In Brown (1954 - 1956) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304295.jpg" />
+  <img src="Z:/picture/008/save_picture_304295.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Roger Kellaway - Live At The Jazz Standard (2006) 2CD, 2008, IPO Recordings [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303617.jpg" />
+  <img src="Z:/picture/008/save_picture_303617.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303609.jpg" />
+  <img src="Z:/picture/008/save_picture_303609.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxopho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303604.jpg" />
+  <img src="Z:/picture/008/save_picture_303604.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303599.jpg" />
+  <img src="Z:/picture/008/save_picture_303599.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303518.jpg" />
+  <img src="Z:/picture/008/save_picture_303518.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303497.jpg" />
+  <img src="Z:/picture/008/save_picture_303497.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303493.jpg" />
+  <img src="Z:/picture/008/save_picture_303493.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303492.jpg" />
+  <img src="Z:/picture/008/save_picture_303492.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Lisa Ekdahl - More of the Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303434.jpg" />
+  <img src="Z:/picture/008/save_picture_303434.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Erotic Jazz Moments (2016) (Essential Collection) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303293.jpg" />
+  <img src="Z:/picture/008/save_picture_303293.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303013.jpg" />
+  <img src="Z:/picture/008/save_picture_303013.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303008.jpg" />
+  <img src="Z:/picture/008/save_picture_303008.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303007.jpg" />
+  <img src="Z:/picture/008/save_picture_303007.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303005.jpg" />
+  <img src="Z:/picture/008/save_picture_303005.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Mezzoforte - No Limits (1986) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302995.jpg" />
+  <img src="Z:/picture/008/save_picture_302995.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Puppini Sisters - Дискография (5 альбомов) (2007 - 2011) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_302760.jpg" />
+  <img src="Z:/picture/005/save_picture_302760.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Joe Locke & Geoffrey Keezer Group - Live In Seattle (2006) Origin Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302626.jpg" />
+  <img src="Z:/picture/008/save_picture_302626.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Sonny Clark - 1954 Memorial Album (2001) The Jazz Factory [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302619.jpg" />
+  <img src="Z:/picture/008/save_picture_302619.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Sonny Clark - 1954 Memorial Album (2001) The Jazz Factory [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72318E796411CDC00BA4391B7DB6AD73C3ADF9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333566   (301591) от 26.10.2019
-
-John Coltrane - Plays For Lovers 1951 - 1958 (2003) Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Talk About You [10:49]
-02. Violets for Your Furs [6:17]
-03. Invitation [10:22]
-04. Slow Dance [5:27](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99392B9B8C17A53BFDCDB5D0DCB723B05CBCE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961409   (301555) от 01.12.2015
-
-Blue Mitchell - Bantu Village (1969) 2011, Passion Music[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.H.N.I.C. [05:21]
- 02.Flat Backing [04:21]
- 03.Na Ta Ka [03:59]
- 04.Heads Down [05:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12995772D677F80C7B324C14DB30AB49C48CFAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184396   (301512) от 17.11.2017
-
-Yusef Lateef - 1984 (1965) 1998, MCA [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1984 [08:17]
-02. Try Love [02:14]
-03. Soul Sister [03:06]
-04. Love Waltz [04:31](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBCB0B8C13330725A84720D8E59CC24C22861B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184393   (301508) от 17.11.2017
-
-Milt Jackson - Opus De Jazz (1955) 2017, Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus De Funk [13:28]
-02. Opus Pocus [07:31]
-03. You Leave Me Breathless [06:31]
-04. Opus And Interlude [06:31]Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036BC0EC1C3B2F931B8199B415404DF434BCC11E
 ```
 
 https://mybot314.ru/tekegram_catalog/

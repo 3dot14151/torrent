@@ -1,3 +1,109 @@
+###  Публикация: 1251585   (415606) от 02.10.2018
+
+WebScraper 4.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415606.jpg" />
+</div>
+
+
+###  Подробнее
+
+WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2254BCFE9D105F68805C0B5F7CD87AED002B5D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251702   (415511) от 02.10.2018
+
+Calendar 366 II v2.3.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
+
+Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: n.spektorПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C3924B8B014B88A1ADEBCAAD8F0A1BC694D4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251664   (415502) от 02.10.2018
+
+Garden Planner 3.6.35 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное каждый человек, имеющий свой сад, хотел бы, чтобы его сад был самым красивым, самым уютным и гармоничным. Это только на первый взгляд кажется, что сделать дизайн садового участка легко . На самом деле здесь не все так просто, тем более если вы не профессионал в этом деле. На данный момент существует множество фирм, оказывающих услуги по ландшафтному дизайну, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Artifact InteractiveПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456D7D678E2D989758AD0167CF52D96774AEC56F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412595   (415455) от 30.09.2020
+
+JetBrains GoLand 2020.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415455.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 16.09.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A768F23738DBD6D0E7CA9929B65F1DC9A981F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947929   (415406) от 18.10.2015
 
 Coda 2.5.13 [En]
@@ -6,7 +112,7 @@ Coda 2.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415406.jpg" />
+  <img src="Z:/picture/008/save_picture_415406.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ JetBrains Clion 2020.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415389.jpg" />
+  <img src="Z:/picture/008/save_picture_415389.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ WiFiSpoof 3 v3.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415234.jpg" />
+  <img src="Z:/picture/008/save_picture_415234.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Topaz Plugins Bundle (10.09.2015) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415219.jpg" />
+  <img src="Z:/picture/008/save_picture_415219.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Wondershare MobileTrans 6.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415161.jpg" />
+  <img src="Z:/picture/008/save_picture_415161.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Network Utility X 6.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415083.jpg" />
+  <img src="Z:/picture/008/save_picture_415083.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ DirEqual 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415053.jpg" />
+  <img src="Z:/picture/008/save_picture_415053.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Backgrounds 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415018.jpg" />
+  <img src="Z:/picture/008/save_picture_415018.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Templates for Numbers 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414934.jpg" />
+  <img src="Z:/picture/008/save_picture_414934.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ System Toolkit 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414920.jpg" />
+  <img src="Z:/picture/008/save_picture_414920.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ GlueMotion 2.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414919.jpg" />
+  <img src="Z:/picture/008/save_picture_414919.jpg" />
 </div>
 
 
@@ -303,7 +409,7 @@ Texifier 1.9.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414909.jpg" />
+  <img src="Z:/picture/008/save_picture_414909.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ FileMaker Pro 19 v.19.5.3.300 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414907.jpg" />
+  <img src="Z:/picture/008/save_picture_414907.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ PowerPhotos 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414902.jpg" />
+  <img src="Z:/picture/008/save_picture_414902.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ EverWeb (Standalone) 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414774.jpg" />
+  <img src="Z:/picture/008/save_picture_414774.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ Ghost Buster Pro 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414605.jpg" />
+  <img src="Z:/picture/008/save_picture_414605.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ iStat 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414468.jpg" />
+  <img src="Z:/picture/008/save_picture_414468.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ Pro Paint 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414459.jpg" />
+  <img src="Z:/picture/008/save_picture_414459.jpg" />
 </div>
 
 
@@ -490,7 +596,7 @@ Art Text 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414320.jpg" />
+  <img src="Z:/picture/008/save_picture_414320.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ OS X Server 4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414280.jpg" />
+  <img src="Z:/picture/008/save_picture_414280.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ Navicat Premium 11.2.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414034.jpg" />
+  <img src="Z:/picture/008/save_picture_414034.jpg" />
 </div>
 
 
@@ -575,7 +681,7 @@ Transmit 5.8.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414015.jpg" />
+  <img src="Z:/picture/008/save_picture_414015.jpg" />
 </div>
 
 
@@ -588,113 +694,6 @@ Transmit 5.8.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB3928221850D97DEC821F62CB49FB903D78524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412812   (413827) от 01.10.2020
-
-SQLPro Studio 2020.85 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413827.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF50813069D37539BCB118166A9CE46EBA0A73CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252053   (413518) от 03.10.2018
-
-BusyContacts 1.2.17 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413518.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C24579F951C66FF1BF155C92AE9ACEA97D1C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251992   (413513) от 03.10.2018
-
-BookMacster 2.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413513.jpg" />
-</div>
-
-
-###  Подробнее
-
-BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие "мертвых" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Sheep SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A9F8265285C15B081738ACD498C17AFEA8DDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251879   (413512) от 03.10.2018
-
-Dash 4.5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash - браузер документации и примеров кода
-Dash - удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных. Dash уже содержит более 150 пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну или просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0029B21FEAE97749782E0A397B77EE3FBD59CF08
 ```
 
 https://mybot314.ru/tekegram_catalog/

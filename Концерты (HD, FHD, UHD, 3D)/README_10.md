@@ -1,3 +1,88 @@
+###  Публикация: 1504128   (813680) от 22.10.2021
+
+Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_813680.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Нового года при поддержке ЮНЕСКО и города Париж, Жан-Мишель Жарр дал захватывающий концерт в соборе Нотр-Дам с использованием виртуальных технологий.01 - The Gathering - Credits intro
+02 - The Opening - VR Live
+03 - Speech 1
+04 - Oxygene 2 - VR Live (JMJ Rework of Kosinski remix)(   Читать дальше...   )Производство: Италия, Франция, Великобритания, РоссияЖанр: музыкаРежиссер: Jean-Michel Jarre, Денис СемёновАктеры: Jean-Michel JarreПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4907D342DD223CE029B5A53033F246C0671664A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118301   (812882) от 25.03.2017
+
+Александр Иванов и Рондо - 25:30:50. Юбилейный концерт в Кремле  (2013) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная программа, которая носит название «25.30.50», символизирует 25 лет Иванова с группой «РОНДО», 30 лет творческой деятельности музыканта и 50 лет, которые исполнились артисту в 2011 году. В рамках живого выступления прозвучат самые яркие работы Александра Иванова, как сольного исполнителя и лидера группы «РОНДО», созданные за всю творческую карьеру.
+ «Тройной (   Читать дальше...   )Производство: Россия, Премиум ФильмЖанр: Музыкальный, концертСубтитры: отсутствуютПродолжительность: 02:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB56308A5CAB27303DC74736724410CD3281DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882300   (812728) от 31.03.2015
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812728.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июля 1986 года. Будапешт. Уже сумерки. Nepstadion - самый большой стадион Венгрии. За считанные мгновения трибуны и само поле стадиона заполняются десятками зрителей, а потом наступит вечер - и на помосте появится Джон Дикон, Брайен Мэй, Роджер Тейлор и Фредди Меркьюри. Меркьюри - имя которому - Вселенная. И тогда на смену мгновениям придет Вечность.01. One Vision
+02. Tie Your Mother Down
+03. In the Lap of the Gods. . .Revisited
+04. Seven Seas of Rhye(   Читать дальше...   )Производство: США, Венгрия, Канада | MAFILM Dialog Filmstudio, Queen Films Ltd.Жанр: RockРежиссер: Янош ЖомбояиПеревод: ОтсутствуетЯзык субтитров: Русский, английскийПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4962DDF5E932F72BB3A4AF894908B0BA1EB5A3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087355   (812626) от 25.03.2017
 
 Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
@@ -6,7 +91,7 @@ Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812626.jpg" />
+  <img src="Z:/picture/008/save_picture_812626.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811076.jpg" />
+  <img src="Z:/picture/008/save_picture_811076.jpg" />
 </div>
 
 
@@ -61,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810746.jpg" />
+  <img src="Z:/picture/008/save_picture_810746.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ ZZ Top - Live From Texas (2008) [1080p] BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810616.jpg" />
+  <img src="Z:/picture/008/save_picture_810616.jpg" />
 </div>
 
 
@@ -113,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810206.jpg" />
+  <img src="Z:/picture/008/save_picture_810206.jpg" />
 </div>
 
 
@@ -139,7 +224,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809964.jpg" />
+  <img src="Z:/picture/008/save_picture_809964.jpg" />
 </div>
 
 
@@ -169,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809827.jpg" />
+  <img src="Z:/picture/008/save_picture_809827.jpg" />
 </div>
 
 
@@ -195,7 +280,7 @@ Noize MC - Концерт на платформе МТС Live (2020) WEB-DLRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809694.jpg" />
+  <img src="Z:/picture/008/save_picture_809694.jpg" />
 </div>
 
 
@@ -225,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808017.jpg" />
+  <img src="Z:/picture/008/save_picture_808017.jpg" />
 </div>
 
 
@@ -254,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807863.jpg" />
+  <img src="Z:/picture/008/save_picture_807863.jpg" />
 </div>
 
 
@@ -285,7 +370,7 @@ Evanescence Live at The Tonight Show With Jay Leno & Evanescence Live at Conan  
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807559.jpg" />
+  <img src="Z:/picture/008/save_picture_807559.jpg" />
 </div>
 
 
@@ -311,7 +396,7 @@ Metallica: Francais pour une nuit (2009) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806869.jpg" />
+  <img src="Z:/picture/008/save_picture_806869.jpg" />
 </div>
 
 
@@ -337,7 +422,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802780.jpg" />
+  <img src="Z:/picture/008/save_picture_802780.jpg" />
 </div>
 
 
@@ -366,7 +451,7 @@ Andrea Bocelli - Cinema (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802029.jpg" />
+  <img src="Z:/picture/008/save_picture_802029.jpg" />
 </div>
 
 
@@ -395,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800116.jpg" />
+  <img src="Z:/picture/008/save_picture_800116.jpg" />
 </div>
 
 
@@ -421,7 +506,7 @@ Yello - Live At Montreux Jazz Festival (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798935.jpg" />
+  <img src="Z:/picture/008/save_picture_798935.jpg" />
 </div>
 
 
@@ -450,7 +535,7 @@ Alice Cooper - A Paranormal Evening At The Olympia Paris (2021) WEBRip [H.264/72
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798670.jpg" />
+  <img src="Z:/picture/008/save_picture_798670.jpg" />
 </div>
 
 
@@ -481,7 +566,7 @@ Yello - Live in Berlin (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798389.jpg" />
+  <img src="Z:/picture/008/save_picture_798389.jpg" />
 </div>
 
 
@@ -510,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797960.jpg" />
+  <img src="Z:/picture/008/save_picture_797960.jpg" />
 </div>
 
 
@@ -536,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797775.jpg" />
+  <img src="Z:/picture/008/save_picture_797775.jpg" />
 </div>
 
 
@@ -562,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797762.jpg" />
+  <img src="Z:/picture/008/save_picture_797762.jpg" />
 </div>
 
 
@@ -588,7 +673,7 @@ Wink Live. ДДТ - История звука (22.05.2020) WEBRip [H.264/1080p-L
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795777.jpg" />
+  <img src="Z:/picture/008/save_picture_795777.jpg" />
 </div>
 
 
@@ -614,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795532.jpg" />
+  <img src="Z:/picture/008/save_picture_795532.jpg" />
 </div>
 
 
@@ -625,85 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BAF76CA66B23D15EBC50737F1AC327479DFA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274326   (794091) от 06.01.2019
-
-Квартирник НТВ у Маргулиса. Незваные гости (31.12.2018) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794091.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту новогоднюю ночь телеканал НТВ пригласил всех зрителей на новогодний «Квартирник НТВ у Маргулиса», где выступили очень необычные гости. Музыканты, которых не пригласили на гламурные голубые огоньки, устроили крутую вечеринку, где не нашлось места попсе.
-На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72000B7D49D0783EEA32E5980400A0F85A39C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509770   (793852) от 13.11.2021
-
-Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в Калифорнии, в Лос-Анджелесе в 2001 году в рамках мирового тура Guns, God and Government World Tour, прошедшего 2000-2001 гг в США, России, Японии, Польше.Производство: США / Marilyn Manson Records Inc.Жанр: Industrial metal, Industrial rock, Alternative metal, Hard rock, Glam rock, Shock rockАктеры: Мэрилин Мэнсон, Джон 5, Джорди Уайт, Мадонна Уэйн Гейси, Джинджер Фиш, Тэмми Фэй Баккер, Duncan BlackПеревод: ОтсутствуетПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A51AD4280237A78FA9BC4503A3D04433C3D5A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490854   (793489) от 23.01.2018
-
-Пикник: 30 Световых лет (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант (   Читать дальше...   )Жанр: РокРежиссер: Марат КорчемныйАктеры: Эдмунд Шклярский, Леонид Кирнос, Марат Корчемный, Станислав Шклярский, Вадим СамойловПеревод: ОтсутствуетПродолжительность: 02:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352861D8169A1CA9FA40F810F6211C9058B5215A
 ```
 
 https://mybot314.ru/tekegram_catalog/

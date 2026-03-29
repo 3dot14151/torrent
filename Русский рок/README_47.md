@@ -1,3 +1,116 @@
+###  Публикация: 1296461   (611835) от 17.04.2019
+
+Akado - Dark Side (2016) Single [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Side (3:04)Жанр: Indie RockПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DF4B44F8C37353E603086CC0BEECFE42BD6C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545720   (611539) от 21.04.2022
+
+Teloxcty Relltmet - Помнил Нежности Твои (2022) [MP3|192 Kbps] <Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Быстрая Молодость [00:03:55]
+02 - Не Каждый [00:03:00]
+03 - Страшная Смерть [00:02:42]
+04 - Между Нами [00:03:26](   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE2E8236B5528A3796C2583F45CB8F9C13BE84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545696   (611418) от 21.04.2022
+
+Restless Mind - Самообман (2022) [MP3|320 Kbps] <Alternative Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сальто Одиночек [00:04:11]
+02 - Закат Империй [00:04:29]
+03 - Из Праха в Прах [00:05:26]
+04 - Самообман [00:03:32](   Читать дальше...   )Жанр: Alternative Metal, Groove MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA2D61EC672BBDC03412013E037BBF8D918444F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545806   (611399) от 21.04.2022
+
+Постарнаков и После 11 - Колея (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611399.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ангелы демоны
+2. Колея
+3. Люби пока я буду жить
+4. Поезд(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A79CDD64B5E26EEDC6576997050644C63678E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545812   (611244) от 21.04.2022
 
 Тринадцатое созвездие - 2022 (2022) [MP3|320 Kbps] <Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611244.jpg" />
+  <img src="Z:/picture/008/save_picture_611244.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610673.jpg" />
+  <img src="Z:/picture/008/save_picture_610673.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608359.jpg" />
+  <img src="Z:/picture/008/save_picture_608359.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608284.jpg" />
+  <img src="Z:/picture/008/save_picture_608284.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608223.jpg" />
+  <img src="Z:/picture/008/save_picture_608223.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Position - Армия Личностей (2022) [MP3|320 Kbps] <Punk Rock, Hardc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608144.jpg" />
+  <img src="Z:/picture/008/save_picture_608144.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608135.jpg" />
+  <img src="Z:/picture/008/save_picture_608135.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608132.jpg" />
+  <img src="Z:/picture/008/save_picture_608132.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607990.jpg" />
+  <img src="Z:/picture/008/save_picture_607990.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ The Aquarius - На Пределе Времён (2012) [MP3|320 кб/с]<Symphon
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607745.jpg" />
+  <img src="Z:/picture/008/save_picture_607745.jpg" />
 </div>
 
 
@@ -301,7 +414,7 @@ Drinking Pumpkins - 2 Albums, 2 Singles (2018-2022) [MP3|320 Kbps] <Celtic Punk,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604599.jpg" />
+  <img src="Z:/picture/008/save_picture_604599.jpg" />
 </div>
 
 
@@ -327,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604483.jpg" />
+  <img src="Z:/picture/008/save_picture_604483.jpg" />
 </div>
 
 
@@ -356,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603466.jpg" />
+  <img src="Z:/picture/008/save_picture_603466.jpg" />
 </div>
 
 
@@ -385,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603462.jpg" />
+  <img src="Z:/picture/008/save_picture_603462.jpg" />
 </div>
 
 
@@ -414,7 +527,7 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alt
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603461.jpg" />
+  <img src="Z:/picture/008/save_picture_603461.jpg" />
 </div>
 
 
@@ -443,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603080.jpg" />
+  <img src="Z:/picture/008/save_picture_603080.jpg" />
 </div>
 
 
@@ -472,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603079.jpg" />
+  <img src="Z:/picture/008/save_picture_603079.jpg" />
 </div>
 
 
@@ -501,7 +614,7 @@ Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602916.jpg" />
+  <img src="Z:/picture/008/save_picture_602916.jpg" />
 </div>
 
 
@@ -530,7 +643,7 @@ Alexander Sitkovetsky - Full House (2016) 2CD [MP3|320 Kbps] <Instrumental Rock,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602740.jpg" />
+  <img src="Z:/picture/008/save_picture_602740.jpg" />
 </div>
 
 
@@ -559,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602739.jpg" />
+  <img src="Z:/picture/008/save_picture_602739.jpg" />
 </div>
 
 
@@ -585,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602719.jpg" />
+  <img src="Z:/picture/008/save_picture_602719.jpg" />
 </div>
 
 
@@ -614,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602413.jpg" />
+  <img src="Z:/picture/008/save_picture_602413.jpg" />
 </div>
 
 
@@ -628,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:318FE1DCE881ABC04BDEBC38E96035A685BD6DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547872   (602031) от 30.04.2022
-
-АЛЬТАВИСТА - Редкий зверь (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602031.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Киров-Сыктывкар
-2. Одному никак
-3. Кожа
-4. Все могут друг без друга(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2018EF44A13987C2E856EEC0E6E2F116B6AAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298426   (601883) от 27.04.2019
-
-МультFильмы (Мультфильмы) - Романтика-2 (2019) [MP3|320 kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Романтика-2 (02:20)
-02. Стой! Это не любовь (03:17)
-03. Расстаться (03:08)
-04. Play (02:58)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3802AD9613B15FB55995FF42662ABA24A2CEAA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298206   (601833) от 27.04.2019
-
-VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part I (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вадим Самойлов - Мы за ценой не постоим (03:06)
-02 - Сергей Бобунец - Песенка о ночной Москве (03:27)
-03 - Громыка - Марья Петровна идет за селёдочкой… (03:42)
-04 - Пикник - Грузинская песня (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9698C230AED1C287E21C3D1707B25AD259F311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298483   (601740) от 28.04.2019
-
-Мураками - Без даты (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Невыносим
-02 - Вали домой
-03 - В Белом море
-04 - Музыка по венам(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE6472E73DCBF6E5A7D2ACF5BBEB6AA38B90C9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

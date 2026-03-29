@@ -6,7 +6,7 @@ VA - AVA Seasons Selected By Mike Saint Jules (Spring 2016) (2016) [MP3|320 кб
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710195.jpg" />
+  <img src="Z:/picture/008/save_picture_710195.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Trance Of The Beats #006 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710194.jpg" />
+  <img src="Z:/picture/008/save_picture_710194.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Thomas Petersen & JD Wood - I Need You (2016) [FLAC|Lossless|WEB-DL|tracks] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710181.jpg" />
+  <img src="Z:/picture/008/save_picture_710181.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710151.jpg" />
+  <img src="Z:/picture/008/save_picture_710151.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Imagenomic Plug-in for Photoshop, Aperture 3 and Lightroom (upd 04.05.2017) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710149.jpg" />
+  <img src="Z:/picture/008/save_picture_710149.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710146.jpg" />
+  <img src="Z:/picture/008/save_picture_710146.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Avast Free Antivirus 17.4.2294 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710136.jpg" />
+  <img src="Z:/picture/008/save_picture_710136.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ CameraBag Cinema 1.0.500 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710111.jpg" />
+  <img src="Z:/picture/008/save_picture_710111.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ ZD Soft Screen Recorder 9.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710103.jpg" />
+  <img src="Z:/picture/008/save_picture_710103.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Nouvelle Phenomene - Glory of Romance (2013) [FLAC|Lossless|tracks] <Electronic,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710101.jpg" />
+  <img src="Z:/picture/008/save_picture_710101.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Ex_Tension - Le Seuil De Tolerance (2012) M-Tronic [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710097.jpg" />
+  <img src="Z:/picture/008/save_picture_710097.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ TinkerTool System 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710096.jpg" />
+  <img src="Z:/picture/008/save_picture_710096.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Wallpapers - Ultra Mixed HD Wallpapers Pack (01.06.14) [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710087.jpg" />
+  <img src="Z:/picture/008/save_picture_710087.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Buffalo - Magic Carpet Ride (1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710046.jpg" />
+  <img src="Z:/picture/008/save_picture_710046.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710029.jpg" />
+  <img src="Z:/picture/008/save_picture_710029.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710026.jpg" />
+  <img src="Z:/picture/008/save_picture_710026.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710023.jpg" />
+  <img src="Z:/picture/008/save_picture_710023.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710022.jpg" />
+  <img src="Z:/picture/008/save_picture_710022.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710015.jpg" />
+  <img src="Z:/picture/008/save_picture_710015.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709986.jpg" />
+  <img src="Z:/picture/005/save_picture_709986.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Chikiss - Медленно (2010) [MP3|320 kbps]<Indie Pop/Post-Rock/Shoegaze /P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709985.jpg" />
+  <img src="Z:/picture/005/save_picture_709985.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709976.jpg" />
+  <img src="Z:/picture/005/save_picture_709976.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Glary Utilities Pro 5.96.0.118 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709957.jpg" />
+  <img src="Z:/picture/008/save_picture_709957.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Glary Utilities Pro 5.96.0.118 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709947.jpg" />
+  <img src="Z:/picture/008/save_picture_709947.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709929.jpg" />
+  <img src="Z:/picture/008/save_picture_709929.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709909.jpg" />
+  <img src="Z:/picture/008/save_picture_709909.jpg" />
 </div>
 
 

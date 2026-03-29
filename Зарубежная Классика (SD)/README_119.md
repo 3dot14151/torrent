@@ -1,3 +1,84 @@
+###  Публикация: 476383   (86376) от 04.04.2012
+
+Живущие свободными / Living Free (1972) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был снят по одноименному бестселлеру известной писательницы и натуралиста Джой Адамсон.
+Продолжение фильма "Рожденная свободной".
+Львица Эльза умирает, оставив своим приемным родителям Адамсонам троих львят. Джордж и Джой начинают их воспитывать, но даже не подозревают, с какими проблемами скоро придется столкнуться им и их приемышам…Жанр: Драма, семейный, приключенияРежиссер: Джек КоуфферАктеры: Найджел Дэвенпорт, Сьюзэн Хэмпшир, Джефри Кин, Питер Лукойе, Шон де Лувр, Роберт Бомонт, Нобби Нобл, Чарльз Хэйс, Жан ХэйсПеревод: Профессиональный (дублированный) - русский, немецкийПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117AE6E4EA358E423B0E91AC9B7FA1CDC5E60F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476088   (86157) от 03.04.2012
+
+Принцип домино / The Domino Principle (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран Вьетнамской войны снайпер Рой Такер был осужден на 20 лет за убийство, которое он не совершал. Рой уже отсидел 5 лет из положенного срока в тюрьме строгого режима, когда некая могущественная и безымянная Организация предложила организовать его побег, в обмен на неназванную услугу, которую он должен будет оказать в будущем. Оказавшись на свободе с новым паспортом (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Стэнли КрамерАктеры: Джин Хэкмен, Кэндис Берген, Ричард Уидмарк, Микки Руни, Эдвард Альберт, Эли Уоллах, Кен Своффорд, Нева Паттерсон, Джей Новелло, Джозеф В. ПерриПеревод: Профессиональный (многоголосый закадровый) + Авторский (одноголосый закадровый)Продолжительность: 01:37:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475184   (85262) от 30.03.2012
+
+С тех пор как вы ушли / Since You Went Away (1944) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проводив своего возлюбленного на войну, главная героиня фильма, сопротивляясь ее собственным страхам и неприятностям, прилагает все усилия, чтобы поддержать нормальное, устойчивое домашнее хозяйство ради ее растущих дочерей Дженнифер Джонс и Шерли Темпл.
+Ей предлагает моральную поддержку циничный-но-доброжелательный участник войны Монти Вулли и Джозефер «друг семьи», отношения которого с главной героиней остаются только платоническими…Жанр: Мелодрама, ВоенныйРежиссер: Джон КромвеллАктеры: Клодетт Колбер, Дженнифер Джонс, Ширли Темпл, Джозеф Коттен, Монти Вулли, Лайонел Бэрримор, Роберт Уокер, Хэтти МакДэниэл, Агнес Мурхэд, Алла Назимова, Альберт Бассерманн, Гордон Оливер, Кинан Уинн, Гай Мэдисон, Майкл Гэйл, Ллойд Корригэн, Дороти Адамс, Флоранс Бэйтс, Дороти Дэндридж, Джон Дерек, Ронда Флеминг, Терри Мур, Барбара Пеппер, Эйлин Прингл, Рут РоманПеревод: Двуголосый закадровыйПродолжительность: 02:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E304A3A760A2FD04EA2A9BA07DA4F05487174EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474204   (84984) от 28.03.2012
 
 Титаник / Titanic (1953) DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84984.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84880.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84773.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84637.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84553.jpg" />
 </div>
 
 
@@ -143,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84513.jpg" />
 </div>
 
 
@@ -169,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84288.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84231.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83490.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83082.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82718.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82712.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82296.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81853.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81743.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81538.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81249.jpg" />
 </div>
 
 
@@ -461,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80981.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80436.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79982.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79966.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79892.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79464.jpg" />
 </div>
 
 
@@ -609,88 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459377   (79257) от 29.02.2012
-
-Тинтин и загадка Золотого Руна / Tintin and the Mystery of the Golden Fleece (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Эдок получает в наследство от старого друга судно под названием «Золотое Руно», стоящее на якоре в Стамбуле. Вместе с кораблём он получает целый ворох проблем, тайн и опасностей. Складывается впечатление, что «Золотое Руно» как-то связано с сокровищами, но желающих заграбастать чужое золото гораздо больше, чем желающих рассказать о том, что происходит. Хорошо, (   Читать дальше...   )Жанр: Приключения, комедия, детский, семейныйРежиссер: Жан-Жак ВьернАктеры: Жан-Пьерр Талбот , Жорж Вильсон , Шарль ВанельПеревод: Любительский (одноголосый) Григорий ВойнерПродолжительность: 01:37:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459102   (79112) от 29.02.2012
-
-Излучина реки / Bend of the River (1951) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятидесятые года XIX века. При сопровождении каравана фургонов через горы, через прерии в Портленд, в поисках новой жизни Глен МакЛинток спасает от линчевания Эмерсона Коула, подозреваемого в краже скота. Благодарный Коул помогает Глену и его друзьям отбить неожиданную атаку индейцев, так они становятся друзьями.
-
-Дочь Глена Лаура Бэйл увлеклась Коулом и намерена остаться в Портленде вместе с новым знакомым, а не связывать свою жизнь с работой в поле. Но Коул не простой парень: у него темное прошлое, как, впрочем, и у самого Глена есть свои секреты. Тем временем, оплаченные поставки провизии для переселенцев, обещанные мэром Портленда не производятся. МакЛинток возвращается в город, где ему приходится взяться за оружие, чтобы отстоять продовольствие для своей общины…Жанр: Приключения, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Артур Кеннеди, Джули Адамс, Рок Хадсон, Лори Нельсон, Джей С. Флиппен, Чабби Джонсон, Гарри Морган, Ройал Дано, Фрэнсис БавьерПеревод: Двуголосый закадровыйПродолжительность: 01:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563ECA33698E8A57642483A05A03C07AFC834689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458797   (78975) от 28.02.2012
-
-Пригоршня чудес / Pocketful of Miracles (1961) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йоркский гангстер Красавчик Дэйв — парень с предрассудками. Он считает, что с ним ничего не может случиться, если каждый день он будет покупать яблоко у Яблочной Энни, вечно поддатенькой торговки фруктами. Хотя его помощник Джой Бой и шофер Джуниор считают это полной ерундой, его подружка всегда поддерживает все, чтобы не произнес ее дорогой Дэйв.
-
-В один прекрасный день Яблочной Энни не оказывается на ее обычном месте на углу улицы, и Дэйв отправляется ее искать. Он застает ее в глубокой депрессии, так как ее дочь Луиза, уверенная, что ее матушка уважаемая богатая матрона, приезжает в гости. С помощью Дэйва Яблочная Энни смогла чудесным образом преобразиться и выдать себя за «Миссис И. Уортингтон Мэнвилл», которой услуживают даже такие шишки, как мэр, губернатор и целая свора светской публики.Жанр: Драма, КомедияРежиссер: Фрэнк КапраАктеры: Гленн Форд, Бетт Дэвис, Хоуп Лэнг, Артур О’Коннелл, Питер Фальк, Томас Митчел, Эдвард Эверетт Хортон, Мики Шонесси, Дэвид Брайан, Шелдон ЛеонардПеревод: Многоголосый закадровый, ОригиналПродолжительность: 02:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E396A3382E41F56C48CD3F92E4BA515D78EF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

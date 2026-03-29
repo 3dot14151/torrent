@@ -1,3 +1,116 @@
+###  Публикация: 1067037   (409752) от 27.10.2016
+
+HoudahSpot 4.2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409752.jpg" />
+</div>
+
+
+###  Подробнее
+
+HoudahSpot  - расширяем возможности Spotlight
+HoudahSpot - надстройка над Finder, значительно расширяющая его возможности при поиске файлов. Вы будете приятно удивлены, когда обнаружите файлы, о которых вы давным-давно забыли. Приложение поможет вам составить детализированные запросы (которые можно сохранить) для поиска нужного файла.
+
+HoudahSpot помогает вам управлять (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2016Разработчик: Houdah Software s.à r.lПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C25C45C780D0A680F61014979E4FF432624FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066907   (409618) от 27.10.2016
+
+MacBooster 4.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409618.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacBooster - Максимальное быстродействие.
+MacBooster поможет настроить и ускорить работу OS X. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!
+
+Освободите место (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 октября 2016Разработчик: IObitПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский,  Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DB68867B9D38FAC483778EA4A8B22B5AF63768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948820   (409543) от 21.10.2015
+
+Tweetbot for Twitter 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый, кто активно использует Twitter с помощью устройств от Apple, давно знает, что нет ничего лучше приложения Tweetbot.
+
+Tweetbot - клиент Twitter для Mac. Этот полнофункциональный клиент имеет фантастическую поддержку нескольких учетных записей и списков. Он также имеет мощные фильтры, несколько видов столбцов, и многое другое.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2015Разработчик: Tapbots LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83920FCA815D37DA72EE0146C438404F8BCD8921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066790   (409536) от 27.10.2016
+
+В поисках Дори / Finding Dory (2016) WEB-DL [720p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: СШАЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Энгус МакЛэйнАктеры: Эллен ДеДженерес, Альберт Брукс, Эд О’Нил, Кэйтлин Олсон, Хайден Роуленс, Тай Бурелл, Дайан Китон, Юджин Леви, Слоун Мюррэй, Идрис ЭльбаПеревод: Дублированный (iTunes)Субтитры: Русские,  Английские (полные, отключаемые)Продолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D741EE0C9E28722EB2DE6CDD9998A4A033455025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948829   (409446) от 21.10.2015
 
 BusyCal 2.6.9 & BusyContacts 1.0.8 [Multi]
@@ -6,7 +119,7 @@ BusyCal 2.6.9 & BusyContacts 1.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409446.jpg" />
+  <img src="Z:/picture/008/save_picture_409446.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ Amadeus Pro 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409435.jpg" />
+  <img src="Z:/picture/008/save_picture_409435.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ PullTube 0.11.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409433.jpg" />
+  <img src="Z:/picture/008/save_picture_409433.jpg" />
 </div>
 
 
@@ -86,7 +199,7 @@ TaskPaper 3.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409432.jpg" />
+  <img src="Z:/picture/008/save_picture_409432.jpg" />
 </div>
 
 
@@ -114,7 +227,7 @@ PowerTunes 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409424.jpg" />
+  <img src="Z:/picture/008/save_picture_409424.jpg" />
 </div>
 
 
@@ -140,7 +253,7 @@ VirtualHostX 8 v8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409316.jpg" />
+  <img src="Z:/picture/008/save_picture_409316.jpg" />
 </div>
 
 
@@ -168,7 +281,7 @@ Omni Recover 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409310.jpg" />
+  <img src="Z:/picture/008/save_picture_409310.jpg" />
 </div>
 
 
@@ -196,7 +309,7 @@ Movavi PDF Editor 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409308.jpg" />
+  <img src="Z:/picture/008/save_picture_409308.jpg" />
 </div>
 
 
@@ -222,7 +335,7 @@ Leech 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409213.jpg" />
+  <img src="Z:/picture/008/save_picture_409213.jpg" />
 </div>
 
 
@@ -249,7 +362,7 @@ Eon Timer 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409201.jpg" />
+  <img src="Z:/picture/008/save_picture_409201.jpg" />
 </div>
 
 
@@ -275,7 +388,7 @@ Softorino YouTube Converter 2 v2.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409199.jpg" />
+  <img src="Z:/picture/008/save_picture_409199.jpg" />
 </div>
 
 
@@ -304,7 +417,7 @@ Duplicate File Finder Pro 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409091.jpg" />
+  <img src="Z:/picture/008/save_picture_409091.jpg" />
 </div>
 
 
@@ -333,7 +446,7 @@ Camtasia v2018.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409081.jpg" />
+  <img src="Z:/picture/008/save_picture_409081.jpg" />
 </div>
 
 
@@ -359,7 +472,7 @@ Sketch 52.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408999.jpg" />
+  <img src="Z:/picture/008/save_picture_408999.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ Tri-BACKUP Pro 8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408893.jpg" />
+  <img src="Z:/picture/008/save_picture_408893.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Bartender 3 Beta v.3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408892.jpg" />
+  <img src="Z:/picture/008/save_picture_408892.jpg" />
 </div>
 
 
@@ -439,7 +552,7 @@ Default Folder X 5.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408888.jpg" />
+  <img src="Z:/picture/008/save_picture_408888.jpg" />
 </div>
 
 
@@ -465,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408812.jpg" />
+  <img src="Z:/picture/008/save_picture_408812.jpg" />
 </div>
 
 
@@ -491,7 +604,7 @@ DropDMG 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408772.jpg" />
+  <img src="Z:/picture/008/save_picture_408772.jpg" />
 </div>
 
 
@@ -518,7 +631,7 @@ BusyContacts 1.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408768.jpg" />
+  <img src="Z:/picture/008/save_picture_408768.jpg" />
 </div>
 
 
@@ -546,7 +659,7 @@ BusyCal 3 v3.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408763.jpg" />
+  <img src="Z:/picture/008/save_picture_408763.jpg" />
 </div>
 
 
@@ -573,7 +686,7 @@ Devonthink Pro Office 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408759.jpg" />
+  <img src="Z:/picture/008/save_picture_408759.jpg" />
 </div>
 
 
@@ -584,113 +697,6 @@ Devonthink Pro Office — программное обеспечение для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F88DE592FD452916F3CC347A1E7EBD3E1DB2911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325860   (408709) от 17.09.2019
-
-Paste 2.4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2919Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Мультиязычный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1073D8B1EBD833BD3B241AC5930D6BE0CFACC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325913   (408705) от 17.09.2019
-
-DMG Canvas 3 v3.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408705.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2019Разработчик: Araelium GroupПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C347D244A8B6B30C579C76D4740AE2FBA88E9E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325937   (408696) от 17.09.2019
-
-Audirvana 3.5.20 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED2EBEC0237D9403B5213AF36AE2309A641D0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325865   (408693) от 17.09.2019
-
-Disk Doctor: System Cleaner 4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освободите тонны дискового пространства с помощью Disk Doctor, удалив гигабайты ненужных файлов с вашего жесткого диска.
-Всего за несколько кликов вы можете выборочно удалять файлы в следующих категориях:
-● Кэширование приложений
-● Регистры приложений(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4631423BD5B356A4F76AB2CBE570B2D997AEA2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

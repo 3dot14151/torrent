@@ -1,25 +1,25 @@
-###  Публикация: 1684411   (127774) от 15.12.2023
+###  Публикация: 1525721   (129260) от 21.01.2022
 
-The Howard Alden Trio - Plus Special Guests Ken Peplowski & Warren Vache (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Showed Me the Way [4:35]
-02. Purple Gazelle [4:20]
-03. Where Are You? [6:50]
-04. Douce Ambiance [4:27](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:52
+01. Bruce Loko - Do It Right (6:41)
+02. Shimza - Champagne (6:04)
+03. Aero Manyelo, Oluhle - Siza Sizwe (7:40)
+04. Blanka Mazimela - Ten 2 Killi (7:38)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 01:48:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BD647050AB553EB2AD08A7E186B7E1E7D97ED58
+magnet:?xt=urn:btih:6636ED6ADABD8D3DA0320FAF3E276877311EE486
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684404   (127773) от 15.12.2023
+###  Публикация: 1525659   (129257) от 21.01.2022
 
-Phil Woods, Vincent Herring, Antonio Hart - Alto Summit (1996) Milestone [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+Sound Studio 4 v4.10.0 [Multi]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Minor [5:40]
-02. The Summer Knows (Theme from Summer of '42) [9:44]
-03. Minority [6:47]
-04. Stars Fell on Alabama [6:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:55:35
+Sound Studio - универсальная студия звукозаписи.
+Простое в использовании приложение для записи и редактирования цифрового аудио на вашем компьютере. Оцифровка кассет и виниловых пластинок, записи живых выступлений, свои собственные миксы с кроссфейдов с цифровыми эффектами - и это малая толика того, что можно сделать с Sound Studio.
+В плане импорта программа Sound (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2022Разработчик: © 2010-2019 Felt Tip Inc.Поддерживаемая ОС: OS X 10.14 или вышеЯзык интерфейса: Английский, Немецкий , Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADB58F155C07C397EF7140C7E84708573373EB8B
+magnet:?xt=urn:btih:5C935D08CA3708A28CEFD9C672AD77FE61F4C9E9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +55,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684429   (127772) от 15.12.2023
+###  Публикация: 489140   (129256) от 28.04.2012
 
-Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+[Wallpapers] Обои к игровым новинкам c Hitgames.net.ua (2011-2012)
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Goin' Uptown (5:55)
-02. Just Too Difficult (3:54)
-03. Goin' Round And Round (4:46)
-04. Puff Of Smoke (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
+Обои для рабочего стола:
+Раздача состоит из игр вышедших в 2011 или готовящимися к выпуску в будущем.
+В подборку входят:
+Только оффициальные обои
+Обои с gamewallpapers
+Качественный фанарт
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB39D1B8F5F7478B0BD1532B2993A01B2B482F06
+magnet:?xt=urn:btih:83A15EB6699805A7CDADFD6CFF4C38B505EC5920
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +86,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684452   (127771) от 15.12.2023
+###  Публикация: 1525788   (129255) от 21.01.2022
 
-Искупление рыжего Руба / The Redemption of Red Rube (1912) WEBRip
+iMusic 2.2.2 [Multi]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередная др-р-р-раматическая история про шерифа и беглого преступника. История в которой выясняется. что у рыжего Руба, конокрада и убийцы, еще сохранилось в душе что-то человеческое. А еще там есть индеец, злой индеец. Уже не в первом фильме той эпохи я вижу злого индейца. И у меня закрадывается страшное подозрение, что в американском кинематографе начала прошлого (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Эгил ЭйПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:13:38
+iMusic для Mac - многофункциональный музыкальный менеджер, с которым Вы сможете передавать музыку, плейлисты, подкасты, контент iTunes U, ТВ-шоу и т.д. между iPhone, iPad, iPod и iTunes Library совершенно свободно, без каких-либо ограничений.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 iMusic StudioПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F298A76A79A2828712F6024C44A927741A67EBEF
+magnet:?xt=urn:btih:C420AFDC376FCFA2BDD3857215BDB4AE2979204D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,112 +112,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684388   (127770) от 15.12.2023
+###  Публикация: 1525625   (129254) от 21.01.2022
 
-Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Permanent Vacation (3:34)
-02. The Scandinavian Way (3:52)
-03. Regrets (3:49)
-04. Grov (6:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684391   (127769) от 15.12.2023
-
-Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Does That Magic Like You (3:25)
-02. Ain't Got Nothing But My Sorrow (Bad Gambler) (5:15)
-03. Mysterious Love (5:08)
-04. Riding On My Mind (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A8E068C5BDEF4A22E337FD54B44F8FB2F82822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684405   (127768) от 15.12.2023
-
-Валерий Михайловский, Марк Азов | Когда поют светофоры. Новые приключения в городе Поющих Светофоров (2009) [MP3, Инна Чурикова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Мелодия – детям.
-Музыкальные сказки на стихи Валерия Михайловского, Марка Азова.
-Автор музыки: Максим Дунаевский.
-«Пешехода надо любить!» – прочитали мы в книжке И. Ильфа и Е. Петрова и подумали: дети – все пешеходы (кроме тех, кого катают в колясочках). И решили: а не поговорить ли нам с вами, ребята, как пешеход с пешеходом...(   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C948AD9BB2DED6CD394B7D8A70B9892E5AEFF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684325   (127767) от 15.12.2023
-
-Марина Серова | Частный детектив Татьяна Иванова. Дворец в камышах (2023) [MP3, Борис Павлюков]
+Джим Хаттон | Меркьюри и я. Богемская рапсодия, любовь и котики (2019) [MP3, Андрей Крупник]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зачем искушать судьбу, трепать Богу нервы? У представителя золотой молодежи Евгения Золотавина есть все для беспечного существования: богатые родители, прекрасное настоящее, радужное будущее. А ему все мало: одно за другим шлет анонимные письма родной матери с угрозами о своем собственном похищении, вымогая деньги. Но судьба-злодейка жестоко посмеялась над незадачливым (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 07:19:50
+Фредди Меркьюри – культовый артист, чьи невероятные сценические образы и неповторимая манера выступления до сих восхищают слушателей по всему миру. Но каким он был вне ослепительного света софитов? В 1983 году судьба случайно сводит Фредди Меркьюри с Джимом Хаттоном в одном из лондонских баров. С этого момента начинается удивительная история любви простого ирландского (   Читать дальше...   )Жанр: Биографии и мемуары, МузыкаПеревод: Вера ГерстлеПродолжительность: 07:22:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:736C07CA9B46AFC8ED9C81F3E6FA271543FC679F
+magnet:?xt=urn:btih:0C39D69230A4187BD8C1F5AD0CA32FE14EF82C2A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +138,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684414   (127766) от 15.12.2023
+###  Публикация: 1525421   (129252) от 21.01.2022
 
-Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Count Your Blessings [5:03]
-02. American Ballad [5:51]
-03. Love Letters [5:11]
-04. Wouldn't It Be Loverly [5:35](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:49
+Вдохновленный глубоким и плотным звучанием мелодического техно, «Techno Minimal: Special Party» предлагает плейлист оригинальных, сотрясающих пространство мелодий и непосредственное вдохновение для Ваших творческих идей.001. Ran-D - Dance With The Devil
+002. Bastinov - No Regrets
+003. Refuzion - Good Time
+004. Coone Ft. Atilax - Yours Truly(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 08:14:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E1B45C06B7D21B373AAEEAE43E23D6F018DADC2
+magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +167,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684170   (127765) от 15.12.2023
+###  Публикация: 1525720   (129249) от 21.01.2022
 
-Riding with Killers - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Post Grunge>
+VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aero Manyelo - Mooki (6:24)
+02. Ryan Murgatroyd - Kanna (7:02)
+03. Black Coffee, TOSHI - Buya (Loco Dice Kliptown Love Remix) (7:05)
+04. Thor Rixon, Theresa Toy - Theresa Toy (5:59)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 01:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAA9E12A95ACA602D31210368A0001780F4F79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489050   (129248) от 28.04.2012
+
+Dezperadoz - Dead Man's Hand (2012) [MP3|320 кб/с]<Thrash Metal (Western Metal)>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadwood
+02. Under The Gun
+03. Yippie Ya Yeah (More Than One Good Reason)
+04. Badlands
+05. Bullet With My Name
+06. Just Like Cowboyzz Do
+07. Last Man Standing
+08. My Ol’ Rebel Heart
+09. Saloon No. 10
+10. Dead Man’s Hand(   Читать дальше...   )2012Жанр: Thrash Metal (Western Metal)Продолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74C2279FFBEEC72D694CD581FE006244F8530D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525380   (129247) от 21.01.2022
+
+VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep House, Soft Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы не любите работать в тишине, а ваши пальцы лучше всего стучат по клавишам под фоновую музыку, тогда новый 395-й релиз от Beatport именно для Вас. Такая музыка позволят Вам зарядиться энергией для работы и эффективно реализовать свои творческие замыслы.001. Bliz Nochi - Tender Touch
+002. Owen Ni - Instant Message
+003. State Of Low - Kikimora
+004. Peter Mac - Flying(   Читать дальше...   )Жанр: Chill, Deep House, Soft ElectronicПродолжительность: 10:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525795   (129246) от 21.01.2022
+
+Йорш - Уже не тот (2022) [MP3|320 Kbps] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Do This on My Own [00:04:09]
-02. Hostility [00:03:30]
-03. World Apart [00:03:20]
-04. Dna [00:03:21](   Читать дальше...   )Жанр: Alternative Metal, Post GrungeПродолжительность: 00:42:48
+1. Йорш/НАИВ - Люди в кожаных куртках
+2. Йорш/Смех - Мы идём с рок-концерта
+3. Йорш/Distemper - Римский Папа
+4. Йорш - Втиктоке(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:49:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54A167ECB74A236C8ED6F0F10CC02FF14EA3B63A
+magnet:?xt=urn:btih:CB49E239001E38A3F9686E374D060E9C55BC18B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +289,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684406   (127764) от 15.12.2023
+###  Публикация: 489135   (129245) от 28.04.2012
 
-Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+1. Luke Bond feat. Emel - Amaze (7:32)
+2. Leonid Gnip - Apocalypse (Original Mix) (9:50)
+3. Paul Miller vs. Ronald De Foe - Aqua Virgo (Original Mix) (7:58)
+4. Realistic Brain - Art (Original Mix) (7:17)
+5. Orjan Nilsen - Atchoo! (Original Mix) (7:16)
+6. Pedro Del Mar & Illitheas - Bahia Del Sol (Illitheas Mix) (8:12)
+7. Patric la Funk - Baltic (Original Mix) (6:37)
+8. MilamDo & Iris - Behind The Curtains (Steve Haines Remix) (7:07)
+9. Ralphie B - Bullfrog (Original Mix) (8:55)
+10. Michael Jay Parker - Canberra (Original Mix) (8:23)2012Жанр: TranceПродолжительность: 06:16:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +324,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684337   (127763) от 15.12.2023
+###  Публикация: 1525666   (129244) от 21.01.2022
 
-Зоя Вальц | Группа жертв (2023) [MP3, Михаил Обухов]
+Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отдых следователя по особо важным делам Максима Райенвальда на тропическом курорте был испорчен. Следователь стал свидетелем смертельного нападения акулы на российского дайвера. Местные власти, обеспокоенные тем, что страдает репутация курорта, настаивают: убийство не было несчастным случаем, а истоки преступления нужно искать в заснеженной России. Райенвальд берется (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 08:59:13
+01. Pearl of My Life (3:23)
+ 02. Heartache (3:40)
+ 03. Youth, Love and Fantasy (3:39)
+ 04. Love Connection (4:55)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCA9823DC4DC3BB5DA75EE4BE4F86332A8756EDA
+magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +353,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684370   (127762) от 15.12.2023
+###  Публикация: 1525723   (129242) от 21.01.2022
 
-Чингиз Абдуллаев | Дронго (Книга 26). Бремя идолов (2023) [MP3, Юрий Леханов]
+VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вся беда в том, что его всегда недооценивали. И когда он ликвидировал Француза, и когда убирал Резо – этих и других главарей мафиозных синдикатов. Его ждали внизу, а он убегал наверх. Его ловили далеко от места преступления, а он оказывался рядом с очередным трупом. И никто не мог заподозрить, что вот этот невзрачный, бедно одетый инвалид и есть суперкиллер, суперпрофессионал. (   Читать дальше...   )Жанр: Шпионский детективИздательство: Нигде не купишПродолжительность: 09:19:40
+01. Blanka Mazimela, Kórus, Sobantwana - Gcwanini (8:32)
+02. Nizhe DeSoul - Euphoria (6:52)
+03. Kopoy Zukar - Izalamane (7:42)
+04. Shivers Bw - Tsodilo (6:45)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:00:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E618D7389C6E3645499A345D1F112E5A614CCAC
+magnet:?xt=urn:btih:A76D94F8CFA43571D0A8B91912B36F704AE00708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +382,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684148   (127761) от 15.12.2023
+###  Публикация: 1525373   (129240) от 21.01.2022
 
-C-Clamp - Dream Backwards (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps] <Club House, Pumping House, Dancecore, Eurotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Klubbheads & Mark Van Dale - Raise Your Hands (Klubbheads Old School Mix)
+02-Cunaro & Dean - Its About Time (Freak & Mac Zimms Remix)
+03-Dj Boozywoozy - Everybody Dance
+04-South East Players - The Drummachine (The Sax Brothers Mix)(   Читать дальше...   )Жанр: Club House, Pumping House, Dancecore, EurotranceПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE06CC1DD19204A0EE4E6BEE31460A03E4E0F360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489029   (129239) от 28.04.2012
+
+Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Metal/Female Vocals>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Passing [00:06:13]
-02. Ten Degrees Arc [00:06:05]
-03. Bats [00:04:39]
-04. A Stand Still [00:03:26](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 02:03:36
+01. For The Few 04:51
+ 02. Possession 04:46
+ 03. The Awakening: Chapter III-Regret 05:12
+ 04. The Awakening: Chapter IV-Torment 04:34
+ 05. The Awakening: Chapter V-Descension 03:55
+ 06. Trapped 04:42
+ 07. Lies 03:22
+ 08. Suffer In Silence 04:48
+ 09. Eyes Of A Child 03:12
+ 10. Whan We Leave Behind 04:37(   Читать дальше...   )2012Жанр: Symphonic/Gothic Metal/Female VocalsПродолжительность: 00:54:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F75F98B6F1C507C7C0A6E6687A385CE9B5D45A6
+magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +446,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676997   (127760) от 16.12.2023
+###  Публикация: 1525694   (129238) от 21.01.2022
 
-Санта-Клаусы / The Santa Clauses (2023) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-6 из 6) TVShows
+ISO Workshop Free 10.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129238.jpg" />
+</div>
+
+
+###  Подробнее
+
+ISO Workshop – небольшая программа для работы с образами дисков: извлечения данных из образов практически всех существующих форматов (iso, bin, nrg, cdi, mdf, img, gi, pdi, dmg, b5i, b6i), конвертирование из поддерживаемых форматов в iso, записи (только iso и cue) на CD, DVD, BD диски и создание образов с оптических носителей.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCD85AC065828A4083A3035F96AD8F4584C3A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525681   (129235) от 21.01.2022
+
+Юрий Хорольский | История гвардейского кота (2021) [MP3, Татьяна Янчук]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о карьере корабельного кота с гвардейского крейсера.
+"Наша служба и опасна и трудна, но вдвойне трудней без шуток и кота."
+ (Из народного фольклора)Жанр: юморПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C4371F355C636B464FD27F44E04D4DB8DEC8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489304   (129234) от 28.04.2012
+
+Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The 'A' Train (2:55)
+02. Don't Get Around Much Any More (Never No Lament) (3:18)
+03. Cotton Tail (Shuckin' And Stiffin') (3:11)
+04. I Got It Bad And That Ain't Good (3:18)
+05. Conga Brava (2:58)
+06. Concerto For Cootie (Do Nothin' Till You Hear From Me) (3:17)
+07. A Portrait Of Bert Williams (3:09)
+08. Warm Valley (3:24)
+09. Solitude (2:57)
+10. Country Gal (2:57)(   Читать дальше...   )1990Жанр: Big BandПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525581   (129233) от 21.01.2022
+
+Audio Damage - Other Desert Cities 1.0.9 VST, VST3, AAX (x64) Retail [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Other Desert Cities — это мастерская для творчества. Внутри скрывается много странных и удивительных вещей. С шестью алгоритмами, каждый со своей уникальной индивидуальностью, и широкими возможностями модуляции, Other Desert Cities может заполнить множество ниш, от простых стереофонических двойных задержек до невиданного ранее гранулированного хаоса со сдвигом высоты (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD9F11701B341A1117E87FB0951F66626D5E1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489353   (129232) от 28.04.2012
+
+VA - 50 Trance Tunes Vol.29 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129232.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - 50 Trance Tunes Vol.29 (2012)
+Год: 2012
+Жанр: Trance
+Продолжительность: 05:07:16Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+1. Armin Van Buuren Presents Gaia - J'Ai Envie De Toi (Radio Edit) (2:47)
+ 2. Paul Oakenfold - Glow In The Dark (Original Mix) (7:38)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72606369334CC04DA62BB8D510118EFCDA3861F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525604   (129231) от 21.01.2022
+
+Журнал | Woodworking Crafts №72 (2022) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Woodworking Craft — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся с пошаговыми инструкциями, фотографиями и чертежами, (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7814E73707713E1473EC48E8B463EDF15E6C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489285   (129230) от 28.04.2012
+
+Журнал | Дом №5 [май 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Дом» - помощник для тех, кого интересуют практические вопросы, связанные со строительством, ремонтом и эксплуатацией индивидуального жилья – коттеджей, дачных и садовых домиков, а также надворных построек.май 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBD98FF9D42A0F6B634DBE80E47012E8216C5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525574   (129229) от 21.01.2022
+
+VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Candys, Jack Holiday - Insomnia (Rework) (3:00)
+02. W&W, Blasterjaxx - Dynamite (Bigroom Nation) (2:50)
+03. Timmy Trumpet, Azteck, Darren Styles - Dance Tonight (2:57)
+04. Sam Feldt, Justus, Georgia Ku - Call On Me (3:27)(   Читать дальше...   )Жанр: Big Room, Dance, Hands UpПродолжительность: 04:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525752   (129227) от 21.01.2022
+
+В сетях Каморры / Il Pastore / Im Netz der Camorra (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
 
 >>Зарубежные сериалы
->>
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие разворачивается вокруг Скотта Кэлвина — настоящего Санта-Клауса, который готов отказаться от выполнения рождественских обязанностей и начать со своей семьей новую главу жизни к югу от Северного полюса. Но сперва Скотту Кэлвину предстоит выполнить крайне ответственную миссию — выбрать и утвердить нового Санта-Клауса, которому будет поручено управлять магической (   Читать дальше...   )Производство: США / 20th Television, Small Dog Picture Company, Walt Disney TelevisionЖанр: фэнтези, драма, комедия, семейныйРежиссер: Джейсон УайнерАктеры: Тим Аллен, Элизабет Митчелл, Остин Кэйн, Элизабет Аллен-Дик, Девин Брайт, Матильда Лоулер, Isabella Bennett, Лайам Кайл, Саша Найт, Руби ДжейПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: ~00:30:00 серия
+Винодел Маттео живет со своей женой Стефанией и дочерью Лаурой в окружении живописных виноградников Южного Тироля. Семья известна своим хорошим вином и пользуется уважением в деревне. Затем однажды на его винодельне появляется Нино Соррентино, очевидно, является старым знакомым Маттео. С появлением незнакомца отец семейства сталкивается со своим тёмным прошлым, которое (   Читать дальше...   )Производство: Германия / good friends FilmproduktionЖанр: криминал, триллерРежиссер: Андреас ПрохаскаАктеры: Тобиас Моретти, Урсина Ларди, Фабрицио Романьоли, Харольд Виндиш, Антония Моретти, Mariam Sanusi, Мелика Форутан, Теа Фалько, Lukas Thomas Watzl, Герхард Либманн и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео (2 бегущих строки), аудио вставки (2 короткие) рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4E767EC270C2064BF52784CF77F153348D69FD6
+magnet:?xt=urn:btih:AB0362725CE6E865AB31F3D196F5CA05E7EF8A63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,26 +701,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421770   (127759) от 16.12.2023
+###  Публикация: 1525725   (129226) от 21.01.2022
 
-Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [EN, RU]
+VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы рады предоставить вам новый урок от эксперта по моделированию транспорта и художника EA Dice Andreas Ezelius. В данном партнерстве с Levelup.Digital, Andreas поделится своим способом работы по созданию научно-фантастического воздушного судна.
-Andreas начнет с объяснения своего подхода к дизайну самолета и как он организует свои справочные изображения.Производство: Levelup DigitalЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 12:00:00
+01. Thakzin, Kitty Amor - Khoisan (4:24)
+02. Dawgpound - Egypt (6:40)
+03. Un_Nown, Zikhona - Sikelela (7:38)
+04. Drega, Maline Aura - Mama Dear (6:32)(   Читать дальше...   )Жанр: Afro House, Deep HouseПродолжительность: 02:03:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
+magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,265 +730,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684692   (127758) от 16.12.2023
+###  Публикация: 1525638   (129224) от 21.01.2022
 
-Портрет / The Portrait (2023) WEB-DL [H.264/1080p] [DVO]
+Андрей Шляхов | Главврач (2021) [FB2]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После того, как её муж погиб в результате трагического происшествия, преданная жена получает загадочный портрет, напоминающий о самых счастливых днях. Однако вскоре картина начинает вселять ужас, заставляя женщину терять рассудок. Теперь главная героиня должна взглянуть в лицо своим самым глубоким страхам и раскрыть тревожную правду, пока не стало слишком поздно.Производство: Великобритания, США / David Griffiths Films, Ambassador Film Group, Bad Batch FilmsЖанр: ужасы, криминал, мистикаРежиссер: Саймон РоссАктеры: Наталия Кордова-Бакли, Райан Квантен, Вирджиния Мэдсен, Стеффи Байк, Эмри Франклин, Шэрон Гарднер, Марк-Пол Госселаар, Бэрри Дж. Рэтклифф, Сантьяго Сегура, Чак Ван ЛоусонПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:26:20
+В этой книге рассказывается о поиске Пути, достижении Хрустальной Мечты и обретении Настоящей Любви на примере молодого амбициозного врача, переехавшего в Москву из Самарканда накануне развала Советского Союза. Впрочем, Советский Союз здесь совсем не при чем… Речь идет о превратностях судьбы, которые тернистым и окольным путем привели будущего лауреата Нобелевской (   Читать дальше...   )Жанр: Современная русская литератураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F50268AF3562B7ECA7CF62D72B8F70D0C015976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684519   (127757) от 16.12.2023
-
-Adobe Photoshop 2024 25.3.1.241 Light (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop 2024 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E7D83B04C48595BE2ED87CE4998481BAB9E402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516858   (127756) от 16.12.2023
-
-Тёмный кристалл / The Dark Crystal (1982) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веками в волшебной стране, которую населял народ гелфлингов, царил мир и покой. Но однажды произошла страшная беда: был поврежден Темный кристалл, магический камень, управляющий законами Вселенной. Из-за этого нарушилось равновесие хаоса и порядка, а бедных человекообразных гелфлингов поработили воинственные, злобные ящеры скексисы.
-
-Если Темный кристалл не починить (   Читать дальше...   )Производство: Великобритания, СШАЖанр: фэнтези, приключенияРежиссер: Джим Хенсон, Фрэнк ОзАктеры: Джим Хенсон, Кэтрин Маллен, Фрэнк Оз, Дэйв Гольц, Стив Уитмир, Луиз Голд, Брайан Мюэль, Боб Пэйн и др.Перевод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAB32DEB34D2476410E86E5D13EB9F9C9C4903F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684646   (127755) от 16.12.2023
-
-Рождество в Билтморе / A Biltmore Christmas (2023) WEB-DLRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люси должна сценарий ремейка рождественского фильма. Чтобы проникнуться духом оригинала, она отправляется в поместье, где снимали картину, и, перевернув песочные часы, внезапно оказывается в 1947 году.Производство: США / Hallmark Channel, Lightnin' Production RentalsЖанр: фэнтези, мелодрамаРежиссер: Джон ПутчАктеры: Бетани Джои Ленц, Кристоффер Полаха, Роберт Пикардо, Мэри Бет МакДонаф, Аннабелль Борк, Колтон Литтл, Джонатан Фрейкс, Дэвид Александр, Дженнифер Кортезе, Джейсон СосьерПеревод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F97FC7EFAFB7D49E4BC3FA264CBC3567915A54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684598   (127754) от 16.12.2023
-
-Последний наёмник / In the Land of Saints and Sinners (2023) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный наемный убийца Финбар решает, что он уже не так хорош и ему пора отойти от дел. Но однажды в город, где он залег на дно, наведывается банда и начинает беспредел. Финбару ничего не остается, как встать на сторону правосудия и снова взяться за оружие. И на этот раз он рискует не только собой, но и всеми, кто ему дорог.Производство: Ирландия / Bleiberg Entertainment, Davis-FilmsЖанр: боевик, триллер, криминалРежиссер: Роберт ЛоренцАктеры: Лиам Нисон, Керри Кондон, Джек Глисон, Колм Мини, Бернадетт Карти, Десмонд Иствуд,  Сара Грин, Киран Хайндс,  Нив Кьюсак, Мишель ГлисонПеревод: Дублированный (неофициальный Pazl Voice)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B746C2EB5367E86AB8134C681A79DD320A0568E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684539   (127753) от 16.12.2023
-
-Трактир «Черная дыра» / Demon Pit (2022) WEBRip [H.264/1080p] [Локализованный видеоряд]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то далеко-далеко, посреди пустыни, вот уже много лет стоит небольшая постройка, внешний вид которой напоминает то ли бар, то ли стриптиз-клуб. На пороге обитает вечно голодный мужчина, а внутри — несколько очаровательных женщин-демонов в обтягивающих нарядах. Каждый, кто заходит внутрь, вынужден стать частью игры. Если ты живешь праведной жизнью, то местные накормят (   Читать дальше...   )Производство: США / Bulldog Brothers Entertainment, Enhanced Media, Hannibal Films, Tadross Media GroupЖанр: УжасыРежиссер: Лэнс КауэсАктеры: Рэнди Кутюр, Роберт Дави, Дин Кэйн, Майкл Мэдсен, Ричард Греко, Минди Робинсон, Чак Цито, Джанни Капальди, Джон Орр, Марк ДжастисПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBB367AF91AD683151CE44A6809885ACFCB845E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682393   (127752) от 16.12.2023
-
-Рождество в Билтморе / A Biltmore Christmas (2023) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люси поставлена задача написать сценарий ремейка рождественского фильма. Чтобы проникнуться духом оригинала, она отправляется в поместье, где снимали картину, и, перевернув песочные часы, внезапно оказывается в 1947 году.Производство: США / Hallmark Channel, Lightnin' Production Rentals. Synthetic Cinema InternationalЖанр: фэнтези, мелодрамаРежиссер: Джон ПутчАктеры: Бетани Джои Ленц, Кристоффер Полаха, Роберт Пикардо, Мэри Бет МакДонаф, Аннабелль Борк, Колтон Литтл, Джонатан Фрейкс, Дэвид Александр, Дженнифер Кортезе, Джейсон СосьерПеревод: Многоголосый любительский (AlphaProject), двухголосый закадровый (ViruseProject)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC6761D2F5014A332899D21DA5AB7E0E64E5B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684764   (127751) от 16.12.2023
-
-Office 2013-2024 C2R Install + Lite 7.7.7.4 ++ Portable by Ratiborus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для онлайн установки Microsoft Office 2013-2024 на ваш ПК.
-Преимуществом программы есть возможность установки отдельных компонентов офис 2013-2024, а так же выбора языка устанавливаемого офисного пакета и выполнить активацию
-
-Помимо нового дизайна, выполненного в стилистике Windows 10, пакет получил несколько важных нововведений в плане функциональности.(   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD97EB238F7177DEAEA0B668F5E514AF84F37A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684561   (127750) от 16.12.2023
-
-Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Underground 2 - это аркадный гоночный симулятор серии Need for Speed, разработанный и выпущенный Electronic Arts в 2004 году, является продолжением Need for Speed:Underground.В игре вы можете свободно перемещаться на автомобиле по городу Бэйвью. Управление достаточно простое, город легко можно выучить, не смотря на его большой размер. Вскоре можно (   Читать дальше...   )Тип издания: RepackРазработчик: EA Canada, PocketeersЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC07E7106EA1E8CC8FB5D6C2AFE7B618B514898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188634   (127749) от 16.12.2023
-
-Прибытие поезда на вокзал города Ла-Сьота / L' Arrivee d'un train a la Ciotat (1895/1896) DVDRip (первый в мире фильм)
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирно известная короткометражка братев Люмьер о прибытии поезда на вокзал.
-Самый первый фильм, который получил широкое распространение, был снят в 1895 году - «Прибытие поезда на вокзал Ла-Сиоты» («L'Arrivée d'un train en gare de la Ciotat»). Начало эпохи кинематографа положила именно эта картина. Это документальная короткометражная лента, которую сняли и (   Читать дальше...   )Производство: ФранцияЖанр: документальный, хроника, короткометражкаРежиссер: Огюст Люмьер, Луи Люмьер / Louis Lumire, Auguste LumireАктеры: Прибывающий поездПеревод: НемойПродолжительность: 00:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D145AB9E656ABBDDEBC0D93B2AA3E9C1E27D59
+magnet:?xt=urn:btih:5C1D040CF7DB1B443F26A3FB15CDCEBA9E23783E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 954394   (342152) от 07.11.2015
+
+Подшивка журналов | Practical Motorhome (2015) [PDF] [EN]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_342152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский автомобильный журнал посвященный домам на колесах. История, обзоры, тесты, устройство, путешествия.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7712ECE56551BBCAFAA438B3C42DC4F35533D359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954351   (342151) от 07.11.2015
 
 Подшивка журналов | AutoItalia (2015) [PDF] [EN]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342151.jpg" />
+  <img src="Z:/picture/008/save_picture_342151.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342017.jpg" />
+  <img src="Z:/picture/008/save_picture_342017.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341839.jpg" />
+  <img src="Z:/picture/008/save_picture_341839.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341098.jpg" />
+  <img src="Z:/picture/008/save_picture_341098.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BMW Progman (SSS) v32 [Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340842.jpg" />
+  <img src="Z:/picture/008/save_picture_340842.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ DIS v52.0 [Ru]
 >>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340839.jpg" />
+  <img src="Z:/picture/008/save_picture_340839.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339969.jpg" />
+  <img src="Z:/picture/008/save_picture_339969.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339968.jpg" />
+  <img src="Z:/picture/008/save_picture_339968.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339958.jpg" />
+  <img src="Z:/picture/008/save_picture_339958.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339839.jpg" />
+  <img src="Z:/picture/008/save_picture_339839.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339347.jpg" />
+  <img src="Z:/picture/008/save_picture_339347.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338053.jpg" />
+  <img src="Z:/picture/008/save_picture_338053.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335903.jpg" />
+  <img src="Z:/picture/008/save_picture_335903.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335403.jpg" />
+  <img src="Z:/picture/008/save_picture_335403.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332474.jpg" />
+  <img src="Z:/picture/008/save_picture_332474.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331316.jpg" />
+  <img src="Z:/picture/008/save_picture_331316.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330722.jpg" />
+  <img src="Z:/picture/008/save_picture_330722.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330656.jpg" />
+  <img src="Z:/picture/008/save_picture_330656.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330274.jpg" />
+  <img src="Z:/picture/008/save_picture_330274.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326501.jpg" />
+  <img src="Z:/picture/008/save_picture_326501.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325830.jpg" />
+  <img src="Z:/picture/008/save_picture_325830.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325548.jpg" />
+  <img src="Z:/picture/008/save_picture_325548.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325216.jpg" />
+  <img src="Z:/picture/008/save_picture_325216.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324911.jpg" />
+  <img src="Z:/picture/008/save_picture_324911.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324753.jpg" />
+  <img src="Z:/picture/008/save_picture_324753.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A214301061C4E836B120EA9BA0205F2F66A09E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958198   (324625) от 20.11.2015
-
-Алексей Ревин | Renault Duster 4х2 и 4х4. Устройство, обслуживание, диагностика, ремонт (2012) [PDF]
-
->>Автомобили
->>Автомобильная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии многокрасочных иллюстрированных руководств по обслуживанию и ремонту автомобилей своими силами. В настоящем руководстве приведена подробная информация о конструкции всех систем, отдельных узлов и агрегата автомобилей Renault Duster. Подробно описаны возможные неисправности автомобилей, их причины и способы устранения. Операции по обслуживанию и ремонту (   Читать дальше...   )Жанр: Пособие по ремонту автомобилейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04E387C2DCA06F47BFCB657A4491EA5FCCFD1AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

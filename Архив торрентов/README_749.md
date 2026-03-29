@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882868.jpg" />
+  <img src="Z:/picture/005/save_picture_882868.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tony Martin - Back Where I Belong (1992) [MP3|320 кб/с] <Hard & Heavy>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882841.jpg" />
+  <img src="Z:/picture/005/save_picture_882841.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ CleanMyMac 3.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882838.jpg" />
+  <img src="Z:/picture/005/save_picture_882838.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Ulysses 2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882830.jpg" />
+  <img src="Z:/picture/005/save_picture_882830.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Birds of Paradise - Ascended Blasters (2012) [FLAC|Lossless|WEB-DL|tracks] <Brea
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882823.jpg" />
+  <img src="Z:/picture/005/save_picture_882823.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882822.jpg" />
+  <img src="Z:/picture/005/save_picture_882822.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882818.jpg" />
+  <img src="Z:/picture/005/save_picture_882818.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882812.jpg" />
+  <img src="Z:/picture/005/save_picture_882812.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882810.jpg" />
+  <img src="Z:/picture/005/save_picture_882810.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882802.jpg" />
+  <img src="Z:/picture/005/save_picture_882802.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882787.jpg" />
+  <img src="Z:/picture/005/save_picture_882787.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882774.jpg" />
+  <img src="Z:/picture/005/save_picture_882774.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882769.jpg" />
+  <img src="Z:/picture/005/save_picture_882769.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ CorelCAD 2017.0 Build 17.0.0.1335 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882760.jpg" />
+  <img src="Z:/picture/005/save_picture_882760.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882757.jpg" />
+  <img src="Z:/picture/005/save_picture_882757.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Avira Scout 2016.03.04.00436b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882729.jpg" />
+  <img src="Z:/picture/005/save_picture_882729.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Swinsian 1.11.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882726.jpg" />
+  <img src="Z:/picture/005/save_picture_882726.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ FontExplorer X Pro 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882687.jpg" />
+  <img src="Z:/picture/005/save_picture_882687.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882684.jpg" />
+  <img src="Z:/picture/005/save_picture_882684.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882669.jpg" />
+  <img src="Z:/picture/005/save_picture_882669.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Fuduntu 2013.2 [i686 + x86-64] (4xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882603.jpg" />
+  <img src="Z:/picture/005/save_picture_882603.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Birds of Paradise - Riding the Froth (2016) [FLAC|Lossless|WEB-DL|tracks] <Break
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882592.jpg" />
+  <img src="Z:/picture/005/save_picture_882592.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ PhotoBulk 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882586.jpg" />
+  <img src="Z:/picture/005/save_picture_882586.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ AOL Shield 1.0.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882576.jpg" />
+  <img src="Z:/picture/005/save_picture_882576.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Roadmap Planner - Technology for planning business and life 1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882566.jpg" />
+  <img src="Z:/picture/005/save_picture_882566.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Baidu Browser 43.23.1000.467 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882559.jpg" />
+  <img src="Z:/picture/005/save_picture_882559.jpg" />
 </div>
 
 

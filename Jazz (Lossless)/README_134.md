@@ -1,3 +1,119 @@
+###  Публикация: 1231648   (604153) от 19.06.2018
+
+Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dexter's Mode [5:58]
+02. Street Scene [6:43]
+03. News For Lulu [6:07]
+04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231642   (604152) от 19.06.2018
+
+The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medley: They say it's wonderful / How deep is the ocean? / I don't stand a gh... [10:15]
+02. Between The Devil And The Deep Blue Sea [6:56]
+03. La Ronde [2:12]
+04. Night In Tunisia [6:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78958390464660F67B9A25875E3B97B51DFC1813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231646   (604142) от 19.06.2018
+
+Larry Vuckovich - Blue Balkan Then And Now (2002) Inner City [FLAC|Lossless|tracks + .cue] <World Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serbo Samba [5:51]
+02. Blue Balkan [8:47]
+03. Suite Sanna: Struttin' / Dance / Beboppin' [8:40]
+04. Belgrade Blues [6:55](   Читать дальше...   )Жанр: World Fusion, Post-BopПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FCA12AAF89CE4BC222C8C40741F76A3CECAF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297456   (604070) от 22.04.2019
+
+The Charles McPherson Group - Follow The Bouncing Ball (1989) Discovery Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passport [6:24]
+02. Where Are You [4:59]
+03. Follow the Bouncing Ball [4:34]
+04. Blues for Mac [6:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393F290082BAC04EAB42F699904B8C1D454B50D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297371   (604065) от 22.04.2019
 
 Polly Gibbons - All I Can Do (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -6,7 +122,7 @@ Polly Gibbons - All I Can Do (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604065.jpg" />
+  <img src="Z:/picture/008/save_picture_604065.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ignasi Terraza Trio - Live at the Living Room, Bangkok (2011) Swit Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603953.jpg" />
+  <img src="Z:/picture/008/save_picture_603953.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Cor Vivaldi & Ignasi Terraza Trio - El 25 de Desembre Swing, Swing, Swing! (2012
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603952.jpg" />
+  <img src="Z:/picture/008/save_picture_603952.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603951.jpg" />
+  <img src="Z:/picture/008/save_picture_603951.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603950.jpg" />
+  <img src="Z:/picture/008/save_picture_603950.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603949.jpg" />
+  <img src="Z:/picture/008/save_picture_603949.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ignasi Terraza Trio - Jazz a les Fosques I (1999) 2006, Swit Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603948.jpg" />
+  <img src="Z:/picture/008/save_picture_603948.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Susana Sheiman & Ignasi Terraza Trio - Swing Appeal (2011) Swit Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603947.jpg" />
+  <img src="Z:/picture/008/save_picture_603947.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ignasi Terraza - Sol-IT (2010) 2CD, 2012, Swit Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603946.jpg" />
+  <img src="Z:/picture/008/save_picture_603946.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Pharaohs - Awakening (1971) 1996, Scarab Records, Luv 'N Haight, Ubiquity Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603945.jpg" />
+  <img src="Z:/picture/008/save_picture_603945.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Roland Kirk - I Talk With The Spirits (1964) 1998, Verve [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603944.jpg" />
+  <img src="Z:/picture/008/save_picture_603944.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Toni Sola & Ignasi Terraza Trio - Night Sounds (2000) 2007, Swit Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603943.jpg" />
+  <img src="Z:/picture/008/save_picture_603943.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Members Of The Tommy Dorsey Orchestra - A Tribute To Tommy Dorsey (1997) Green H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603900.jpg" />
+  <img src="Z:/picture/008/save_picture_603900.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bing Crosby - The Legendary Bing Crosby (1930-e - 1950-e) 1990, Metrodome [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603759.jpg" />
+  <img src="Z:/picture/008/save_picture_603759.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Wayne Shorter - Wayning Moments (1961) 2000, Koch Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603605.jpg" />
+  <img src="Z:/picture/008/save_picture_603605.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Karin Plato - Blue Again (2000) Stikjazz Music [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603498.jpg" />
+  <img src="Z:/picture/008/save_picture_603498.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Hendrik Meurkens - Samba To Go! (2009) ZONO Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603497.jpg" />
+  <img src="Z:/picture/008/save_picture_603497.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dean Martin - Everybody Loves Somebody (1998) Prism Leisure [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603496.jpg" />
+  <img src="Z:/picture/008/save_picture_603496.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dave Brubeck - Take Five: Portrait Of A Legend (1946 - 1960) 10CD, 2014, The Int
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603422.jpg" />
+  <img src="Z:/picture/008/save_picture_603422.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Jimmie Lunceford - 1935 - 1937 (1990-1995) Classics [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603278.jpg" />
+  <img src="Z:/picture/008/save_picture_603278.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Mose Allison - The Best of Mose Allison (1962 - 1970) 1988, Atlantic Jazz [WavPa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603277.jpg" />
+  <img src="Z:/picture/008/save_picture_603277.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bob Brookmeyer - Four Classic Albums (1956 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603276.jpg" />
+  <img src="Z:/picture/008/save_picture_603276.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44521A5BD064A25DC52D047AB0BA2B1FD2E82A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297721   (603143) от 24.04.2019
-
-Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul-Leo [8:08]
-02. Shape Shifting [6:58]
-03. Lush Life (Intro) [2:27]
-04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297695   (603114) от 24.04.2019
-
-Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аскеза (4:10)
-02. Костры амбиций (5:46)
-03. Колкие нити (4:44)
-04. Дары моря иллюзий (4:26)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD9E7B9560BC96BE815A5F3CC353D89E3E01A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297694   (603111) от 24.04.2019
-
-Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Медоед (5:44)
-02. Динго (4:14)
-03. Кубическая комета ненависти проткнутая иглой усталости (5:49)Жанр: Dark Jazz, ExperimentalПродолжительность: 00:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F4952C936D112EC1C5CBFA02661DA12FFAC31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297847   (603101) от 24.04.2019
-
-Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment (6:00)
-02. Passages (5:58)
-03. Havana (8:31)
-04. Always (5:34)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
 ```
 
 https://mybot314.ru/tekegram_catalog/

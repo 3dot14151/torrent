@@ -1,3 +1,29 @@
+###  Публикация: 1435357   (145200) от 27.12.2020
+
+Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145200.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последние несколько лет «SpeedTree» стала неотъемлемой частью пайплайна большинства крупных VFX-студий, и овладение им стало необходимым навыком для художников по окружающей среде, Мэт-пэйнт-художников и специалистов по компьютерной графике. Релиз 8й версии знаменует собой полную эволюцию «SpeedTree Cinema» как программного обеспечения для создания растений, специально (   Читать дальше...   )Производство: FXPHDЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 04:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063668F43F76B1B70274775C46F3AC744ED8A962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435300   (145126) от 27.12.2020
 
 Gumroad, Jad Saber | 3D рабочий процесс для концепт-арта в Blender 2.82 и Photoshop / 3D Workflow for Concept Art (2020) PCRec [EN]
@@ -6,7 +32,7 @@ Gumroad, Jad Saber | 3D рабочий процесс для концепт-ар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145126.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Helloluxx.com | MILG11. Hard Surface Modelling Tactics for Cinema 4D (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144950.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Liveclasses, Антон Мартынов | Практика генерации �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144590.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ CGMA, Anthony Vaccaro | Organic World Building in UE4 (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143408.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143359.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Chad Morgan | Animation Pipeline in Unreal Engine 4 1-4 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143232.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ cmiVFX.com | Arnold for Houdini (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141569.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141434.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ Grant Warwick | Mastering Lighting Lessons 1-4 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140602.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ CGMA, Clinton Crumpler | 3D UE4 Modular Environments - Модульные окр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140544.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Digital-Tutors | Introduction to Houdini 15 (2015) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139549.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 2 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138906.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ CG Cookie, Jonathan Lampel | Учебный лагерь по моделиров
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138623.jpg" />
 </div>
 
 
@@ -364,7 +390,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 1 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138573.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Michael Pavlovich | Intro To ZBrush 4R7 Part 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138539.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ CGMA, Pete Zoppi | Создание персонажа для фильмов/с�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138073.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138037.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ CGMA, Dylan Mellott | Weapons and Props for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137970.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137796.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Bloop Animation, Dillon Gu | Курс по анимации в Blender 2.83 / Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137750.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Enterclass, Сергей Курбатов | Тихая река (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137692.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ CG Fast Track | Быстрый путь в Substance Painter: Основы / Sub
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136643.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Vitaly Bulgarov | Character Design and Modeling for Next-Gen Games (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136625.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ CG Fast Track | Искусство освещения в Blender 2.83 / The Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136621.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135161.jpg" />
 </div>
 
 
@@ -679,34 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680196   (134453) от 28.11.2023
-
-Domestika, Alexander Steenhorst | Drawing the Human Figure & Expressive Poses (2023) WEB-DL [AD] [EN / EN, RU Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наполните свой альбом выразительными произведениями искусства, изучив различные техники рисования, чтобы проиллюстрировать персонажей в динамичных позах.
-
-Создание эскизов человеческой фигуры имеет важное значение в мире иллюстрации, поскольку оно исследует сложную анатомию, красоту и движение. Погрузитесь в искусство эскизов вместе с Александром Стинхорстом, который (   Читать дальше...   )Производство: DomestikaЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 02:23:18Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176636BAF3A06580A97F4CD5C55CA57291313933
 ```
 
 https://mybot314.ru/tekegram_catalog/

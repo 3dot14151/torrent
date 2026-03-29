@@ -6,7 +6,7 @@ VA - Italo Made In Spain 5 (2018) 2xCD, Compilation [MP3|~245 Kbps (V0)] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492839.jpg" />
+  <img src="Z:/picture/008/save_picture_492839.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Italo Made In Spain 6 (2019) 2xCD, Mixed [MP3|~245 Kbps (V0)] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492838.jpg" />
+  <img src="Z:/picture/008/save_picture_492838.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Italo Made In Spain (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492730.jpg" />
+  <img src="Z:/picture/008/save_picture_492730.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ VA - Disco Fieber - 48 Super Disco Hits (1980) 3LP [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492714.jpg" />
+  <img src="Z:/picture/008/save_picture_492714.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Ren Woods - Out Of The Woods (1979) Remastered, 2013, Columbia [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492601.jpg" />
+  <img src="Z:/picture/008/save_picture_492601.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Belle Epoque - 3 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489728.jpg" />
+  <img src="Z:/picture/008/save_picture_489728.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Piero - Welcome Piero (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488871.jpg" />
+  <img src="Z:/picture/008/save_picture_488871.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - 80's Dance Story Original Italo Hits (2010) [MP3|320 Kbps] <Italo-Disco, Hi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488543.jpg" />
+  <img src="Z:/picture/008/save_picture_488543.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Ultimate - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488356.jpg" />
+  <img src="Z:/picture/008/save_picture_488356.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ VA - Disco Futuro by Fred Ventura (2019) 2хCD, Compilation [MP3|320 Kbps] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486805.jpg" />
+  <img src="Z:/picture/008/save_picture_486805.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Linda Jo Rizzo - Greatest Hits & Remixes (2019) 2хCD, Compilation [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486689.jpg" />
+  <img src="Z:/picture/008/save_picture_486689.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Cerrone - Afro (2016) [MP3|320 Kbps] <Disco, Funk, Afrobeat>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485889.jpg" />
+  <img src="Z:/picture/008/save_picture_485889.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Debbie Jacobs - Undercover Lover (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485696.jpg" />
+  <img src="Z:/picture/008/save_picture_485696.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Robot - A Discomedy (1977) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484087.jpg" />
+  <img src="Z:/picture/008/save_picture_484087.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Carpoolparty - Hot Tapes (2016) [MP3|320 Kbps] <Nu-Disco, Vapordance, Synth Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484081.jpg" />
+  <img src="Z:/picture/008/save_picture_484081.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Claudja Barry - 7 Albums (1976-1987) [MP3|320 Kbps] <Electronic, Disco, Funk-Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483786.jpg" />
+  <img src="Z:/picture/008/save_picture_483786.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ D.D. Sound - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481407.jpg" />
+  <img src="Z:/picture/008/save_picture_481407.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Disco Inferno (2018) [MP3|320 Kbps] <Club, Funky, Jackin, Nu-Disco, Indie D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480037.jpg" />
+  <img src="Z:/picture/008/save_picture_480037.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Randy Irwin - Randy Irwin's Love Hustle (1977) LP [MP3|320 Kbps] <Disco, Instrum
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479281.jpg" />
+  <img src="Z:/picture/008/save_picture_479281.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ A' La Carte - 4 Albums (1980-1989) Reissue CD [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479168.jpg" />
+  <img src="Z:/picture/008/save_picture_479168.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Strutt - Time Moves On (1975) Reissue CD, 2001, Victor [MP3|320 Kbps] <Funk, Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473371.jpg" />
+  <img src="Z:/picture/008/save_picture_473371.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Southern Exposure - Headin' South (1979) LP [MP3|320 Kbps] <Electronic, Disco, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470953.jpg" />
+  <img src="Z:/picture/008/save_picture_470953.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Brenda Mitchell - Don't You Know (1978) [MP3|320 Kbps] <Electronic, Funk-Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470070.jpg" />
+  <img src="Z:/picture/008/save_picture_470070.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Nation In Blue - Discography (2016-2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469970.jpg" />
+  <img src="Z:/picture/008/save_picture_469970.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468905.jpg" />
+  <img src="Z:/picture/008/save_picture_468905.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Ronnie Jones - Games (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467883.jpg" />
+  <img src="Z:/picture/008/save_picture_467883.jpg" />
 </div>
 
 

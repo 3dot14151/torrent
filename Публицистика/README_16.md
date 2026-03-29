@@ -1,3 +1,81 @@
+###  Публикация: 997227   (875589) от 16.03.2016
+
+Э. М. Арнольди | Жизнь и сказки Уолта Диснея (1968) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_875589.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о том, какие успехи и неудачи постигали величайшего художника-мультипликатора на его трудном пути. Как создавались его персонажи и полнометражные фильмы, ставшие настоящим произведением киноискусства.Жанр: История, искусство, киноискусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769E08B9B89E3E69426F80E9BD7C32AE995A105E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374304   (874710) от 09.04.2020
+
+Людмила Гурченко | Аплодисменты (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_874710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, которую вы держите в руках, – это не просто история девчонки, ставшей знаменитостью, это правдивая история уникальной женщины во всей сложности и противоречивости ее духовной жизни. Все было на тернистом пути актрисы: и любовь, и отчаяние, и разочарования, и надежды. Это был непростой путь, но кто знает, взошла бы такая яркая звезда и сформировались бы такой (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220D352A3C0F8B8152E6BBCF056B9BAD56F5D0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374309   (874418) от 09.04.2020
+
+Раймон де Рувер | Возвышение и упадок Банка Медичи. Столетняя история наиболее влиятельной в Европе династии банкиров (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_874418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представители семейства Медичи широко известны благодаря своей выдающейся роли в итальянском Возрождении. Однако их деятельность в качестве банкиров и торговцев мало изучена. Хотя именно экономическая власть позволила им захватить власть политическую и монопольно вести дела в Европе западнее Рейна. Обширный труд Раймонда де Рувера создан на основе редчайших архивных (   Читать дальше...   )Жанр: Биографии и мемуары, История экономики, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32041B46D9E7828D9FAF7B2CB29AA8BA45856316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374311   (874299) от 09.04.2020
 
 Генри Киссинджер | О Китае (2017) [EPUB]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874299.jpg" />
+  <img src="Z:/picture/005/save_picture_874299.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872881.jpg" />
+  <img src="Z:/picture/008/save_picture_872881.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871798.jpg" />
+  <img src="Z:/picture/008/save_picture_871798.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871393.jpg" />
+  <img src="Z:/picture/008/save_picture_871393.jpg" />
 </div>
 
 
@@ -116,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871069.jpg" />
+  <img src="Z:/picture/008/save_picture_871069.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870680.jpg" />
+  <img src="Z:/picture/008/save_picture_870680.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870679.jpg" />
+  <img src="Z:/picture/008/save_picture_870679.jpg" />
 </div>
 
 
@@ -197,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870601.jpg" />
+  <img src="Z:/picture/008/save_picture_870601.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869944.jpg" />
+  <img src="Z:/picture/008/save_picture_869944.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868910.jpg" />
+  <img src="Z:/picture/008/save_picture_868910.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867995.jpg" />
+  <img src="Z:/picture/008/save_picture_867995.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867990.jpg" />
+  <img src="Z:/picture/008/save_picture_867990.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865624.jpg" />
+  <img src="Z:/picture/008/save_picture_865624.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865498.jpg" />
+  <img src="Z:/picture/008/save_picture_865498.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865388.jpg" />
+  <img src="Z:/picture/008/save_picture_865388.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864331.jpg" />
+  <img src="Z:/picture/008/save_picture_864331.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863993.jpg" />
+  <img src="Z:/picture/008/save_picture_863993.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863891.jpg" />
+  <img src="Z:/picture/008/save_picture_863891.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863865.jpg" />
+  <img src="Z:/picture/008/save_picture_863865.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863607.jpg" />
+  <img src="Z:/picture/008/save_picture_863607.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863604.jpg" />
+  <img src="Z:/picture/008/save_picture_863604.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863595.jpg" />
+  <img src="Z:/picture/008/save_picture_863595.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863525.jpg" />
+  <img src="Z:/picture/008/save_picture_863525.jpg" />
 </div>
 
 
@@ -604,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1B9237C0E0EF05722AB2B91F794908FFE46170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375877   (863517) от 15.04.2020
-
-Себастьян Хафнер | История одного немца. Частный человек против тысячелетнего рейха (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания немецкого журналиста и историка Себастьяна Хафнера (1907–1999), написанные в эмиграции в 1939 году, охватывают период с 1914 по 1933 год. Автор пытается ответить на вопрос, как события этого десятилетия подготовили немцев к принятию власти нацистов, как создавалась и удобрялась многослойная социально-политическая почва, на которой был возведен третий (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаПеревод: Никита Львович ЕлисеевФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9383B0BFC6D6A6840464254CACDBE5C62046539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375882   (863516) от 15.04.2020
-
-Бретт Кинг | Эпоха дополненной реальности (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге Бретт Кинг, автор бестселлеров, эксперт-футуролог, известный журналист и телеведущий, рисует яркую картину будущего. Это время, когда дополненная реальность – интернет-медицина, искусственный интеллект, роботы, умные вещи и города – станет повседневной нормой. Ближайшие два десятилетия принесут человечеству намного больше изменений, чем минувшие 250 (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC96AE8F5A496811A9DDE7B26DF95480F0EDF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999550   (862771) от 23.03.2016
-
-Анатолий Вассерман | Хронические комментарии к российской истории (2014) [FB2, DOCX]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый интеллектуал ведет свою хронику российской истории со свойственными ему обстоятельностью, остроумием и необычным углом зрения.
-Вы сможет по-другому взглянуть на многие события последних лет - начиная от нового срока президента Путина, заканчивая кризисом, который нам обещают. Кроме того, Вассерман рассказывает о последствиях всех этих событий, ожидающих (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6346A1CCDB35F9204592FB8AC27225B1DDE9A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1861309   (1062573) от 
+
+VA - The Detective's Tears (Noir Jazz Compilation) (2026) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlowe Dies - Stray Bullets (3:02)
+02. Doomachine Orchestra - Anima Obscura (3:31)
+03. MJJ Jones - Neon Damnation (5:38)
+04. Ancient Talking - No Rest In Past (5:09)(   Читать дальше...   )Жанр: Dark Jazz, Noir Jazz, Ambient JazzПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E00F135D108919C13ED19EDEE51C5C2AB5ACA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861421   (1062494) от 
+
+Vandell Andrew - 2.14 (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ALL THE TIME (4:37)
+02.  I WANNA BE YOUR MAN (4:23)
+03.  BLACK EDEN (3:28)
+04.  FLUTTERS (3:26)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E790959A6BEBE44C6F059FE1928B9CEC1BCF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860619   (1061867) от 
+
+Norman Brown - Authentically Norman (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillax
+02. King Normantic (Feat. Tameka Dawn)
+03. Valentine
+04. Revolution of Love(   Читать дальше...   )Жанр: Smoth JazzПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D82CFBBBEF9FA24B950875A076A6468B9ACF5A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860620   (1061866) от 
+
+Chris Standring - Time of Change (2026) [FLAC|Lossless|WEB-DL|tracks] <Smoth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photographs
+02. Magnetic
+03. Slippin' In These Streets
+04. All The Good Times(   Читать дальше...   )Жанр: Smoth JazzПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5720592AD2941B5BB1E814687BD7DBBC59101AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858483   (1060341) от 11.03.2026
 
 VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -7,7 +123,7 @@ VA - Jazz Bar Nights - Classic & Modern Lounge Jazz (2026) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060341.jpg" />
+  <img src="Z:/picture/009/save_picture_1060341.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ Rick Braun - Rick Braun Plays Chuck Mangione (2026) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059770.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ VA - Jazz Bar Vibes – Smooth Jazz for Relaxing Evenings (2026) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058558.jpg" />
+  <img src="Z:/picture/005/save_picture_1058558.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 12 (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058556.jpg" />
+  <img src="Z:/picture/005/save_picture_1058556.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Afro Dub - Afro Funk Archive Vol 4 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058326.jpg" />
+  <img src="Z:/picture/005/save_picture_1058326.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Ely Bruna, Papik - Hearts Of The 80s (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058324.jpg" />
+  <img src="Z:/picture/005/save_picture_1058324.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Funk Windows - Funk Tape #3 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funky Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058323.jpg" />
+  <img src="Z:/picture/005/save_picture_1058323.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - Broken Beat Nu Funk, Vol. 9 (2026) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058321.jpg" />
+  <img src="Z:/picture/005/save_picture_1058321.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz / Lounge, Vol. 13 (2026) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058320.jpg" />
+  <img src="Z:/picture/005/save_picture_1058320.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ VA - Electric Daydreams: Chill and Jazz Fusion (2026) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058319.jpg" />
+  <img src="Z:/picture/005/save_picture_1058319.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ VA - Jazz Lounge In Shanghai (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058318.jpg" />
+  <img src="Z:/picture/005/save_picture_1058318.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - This Sounds Like Acid Jazz (2026) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058316.jpg" />
+  <img src="Z:/picture/005/save_picture_1058316.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ VA - Chillout & Lounge Ibiza Beats (2026) [FLAC|Lossless|WEB-DL|tracks] <Chill O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057490.jpg" />
+  <img src="Z:/picture/005/save_picture_1057490.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Richard Marx - After Hours (2026) [FLAC|Lossless|image + .cue] <Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053443.jpg" />
+  <img src="Z:/picture/005/save_picture_1053443.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ Jackiem Joyner - Every Part Of Me (2026) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053250.jpg" />
+  <img src="Z:/picture/005/save_picture_1053250.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052192.jpg" />
+  <img src="Z:/picture/005/save_picture_1052192.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Electro Swing Celebration - Electro Swing Party (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052191.jpg" />
+  <img src="Z:/picture/005/save_picture_1052191.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ Lowell Hopper - Mystique (2026) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052189.jpg" />
+  <img src="Z:/picture/005/save_picture_1052189.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ The Neo Swingers - Electro Swing X-Mas 2025 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052187.jpg" />
+  <img src="Z:/picture/005/save_picture_1052187.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Electro Swing Groove - Fantasy Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051044.jpg" />
+  <img src="Z:/picture/005/save_picture_1051044.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ Electro Swing Radio - Bootleg Boogie (Electro Swing Trance Jazz Music) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051042.jpg" />
+  <img src="Z:/picture/005/save_picture_1051042.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ Electro Swing Radio - Swingin' Into Christmas (Chrismas Electro Swing Jazz Mix) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051040.jpg" />
+  <img src="Z:/picture/005/save_picture_1051040.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ Electro Swing Radio - Swingin' Into Christmas (Chrismas Electro Swing Jazz Mix) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68BAF372AA1C072678C37302C641C07BCF7BC66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846008   (1051039) от 04.01.2026
-
-G!L - King of Electro Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  King of Electro Swing (Radio Edit) (4:13)
-02.  Electro Swing is the Thing (Radio Edit) (3:09)
-03.  Playing Chess With The Devil (Radio Edit) (3:11)
-04.  All The Leaves Are Brown (Radio Edit) (3:26)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0C85947029DB6A416E8A3DA4713C0EECAAC2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845270   (1050586) от 30.12.2025
-
-Lady Gearbox - Electro swing music (Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Velvet Whispers (2:36)
-02.  Neon Waltz (2:10)
-03.  Velvet Groove (2:17)
-04.  Velvet Revolver (1:52)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D2546DD8E091DD610A28061525BC88D17CDDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845277   (1050584) от 30.12.2025
-
-The Merry Christmas Experience - An Electro Swing Christmas Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jingle Bells (Electro Swing Version 2025) (2:08)
-02.  O Little Town of Bethlehem (Electro Swing Version 2025) (2:15)
-03.  Away in a Manger (Electro Swing Version 2025) (2:15)
-04.  Deck the Halls (Electro Swing Version 2025) (2:20)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6F84A4A799B47223F69BA2CF97675ADB273A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844694   (1050287) от 27.12.2025
-
-Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ready to Go (Radio Mix) (4:02)
-02.  Good News (3:34)
-03.  Dessert Moon (4:06)
-04.  Let's Talk (House Party) (4:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DFD0EF4EBA6BD03536D3A9319E0DEA4BA6A91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

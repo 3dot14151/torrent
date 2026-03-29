@@ -1,3 +1,85 @@
+###  Публикация: 1177141   (353444) от 29.10.2017
+
+Последний закат / The Last Sunset (1961) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брендан О'Мэлли, пересекает границу с Мексикой и едет на ранчо Белл Брекенридж.
+Красавица была его возлюбленной и теперь замужем за алкоголиком и трусом Джоном
+Брекенриджем, но О'Мэлли все еще влюблен в нее. Джон нанимает О'Мэлли, чтобы
+перегнать его стадо в Техас. К ним присоединяется и шериф Дана Стриблинг, который(   Читать дальше...   )Производство: США / Brynaprod S.A., Universal International Pictures (UI or U-I)Жанр: Мелодрама, ВестернРежиссер: Роберт ОлдричАктеры: Рок Хадсон, Кирк Дуглас, Дороти Мэлоун, Джозеф Коттен, Кэрол Линли, Невилл Брэнд, Режис Туми, Джеймс Вэстмолэнд, Адам Уильямс, Джек ЭламПеревод: Многоголосый закадровый («Селена Интернешнл» по заказу СТС)Субтитры: ОтсутствуютПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F216D717D0B3494820E88B0EEE40448B08FCBC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414874   (353249) от 22.10.2020
+
+Мари-Октябрь / Marie-Octobre (1959) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_353249.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноимённого романа Жака Робера.
+Участники французского Сопротивления, потерявшие друг друга из виду после войны, собираются на вечеринку в загородном доме, где в годы оккупации Франции размещалась штаб-квартира группы. 15 лет назад при операции захвата группы гестаповцами здесь был убит её командир Пьер Кастиль. Вечеринка организована двумя бывшими подпольщиками (   Читать дальше...   )Производство: Франция / Abbey Films, Doxa Films, Orex Films, Societe Française du Theatre et CinemaЖанр: Драма, детективРежиссер: Жюльен ДювивьеАктеры: Даниель Дарьё, Бернар Блие, Робер Дальбан, Поль Франкёр, Жанна Фюзье-Жир, Поль Гер, Даниэль Ивернель, Поль Мёрисс, Серж Реджани, Ноэль Роквер, Лино Вентура и др.Перевод: Дублированный, двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5DBA48EBDB6745C95C5D68A119A144061ABABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763941   (352830) от 22.10.2020
+
+Луна всего лишь в метре / Сон астронома / La lune a un metre / The Astronomer's Dream (1898) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Феерическое и весёлое зрелище приготовил известнейший киноволшебник Жорж Мельес - сон астронома, в котором Луна пожаловала к нему в гости и оказалась всего в метре, да ещё такая озорная! Правда, тут не обошлось без происков беса, периодически появляющегося на экране. Но хорошо, что есть и добрая фея, которая всегда "придёт и молча поправит всё"...Производство: Франция, Star-FilmЖанр: Короткометражка, комедия, немое киноРежиссер: Жорж МельесАктеры: Жанна д’Альси, Жорж МельесСубтитры: ОтсутствуютПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88213A01AE99E8659237ACF9B5F9241CEFCEFF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 578079   (352585) от 21.11.2012
 
 Безумие / Frenzy (1972) BDRip
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352585.jpg" />
+  <img src="Z:/picture/008/save_picture_352585.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352049.jpg" />
+  <img src="Z:/picture/008/save_picture_352049.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352019.jpg" />
+  <img src="Z:/picture/008/save_picture_352019.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351858.jpg" />
+  <img src="Z:/picture/008/save_picture_351858.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351562.jpg" />
+  <img src="Z:/picture/008/save_picture_351562.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351098.jpg" />
+  <img src="Z:/picture/008/save_picture_351098.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351089.jpg" />
+  <img src="Z:/picture/008/save_picture_351089.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351006.jpg" />
+  <img src="Z:/picture/008/save_picture_351006.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350362.jpg" />
+  <img src="Z:/picture/008/save_picture_350362.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349618.jpg" />
+  <img src="Z:/picture/008/save_picture_349618.jpg" />
 </div>
 
 
@@ -267,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349510.jpg" />
+  <img src="Z:/picture/008/save_picture_349510.jpg" />
 </div>
 
 
@@ -294,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348756.jpg" />
+  <img src="Z:/picture/008/save_picture_348756.jpg" />
 </div>
 
 
@@ -321,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347875.jpg" />
+  <img src="Z:/picture/008/save_picture_347875.jpg" />
 </div>
 
 
@@ -347,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347809.jpg" />
+  <img src="Z:/picture/008/save_picture_347809.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347664.jpg" />
+  <img src="Z:/picture/008/save_picture_347664.jpg" />
 </div>
 
 
@@ -401,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347659.jpg" />
+  <img src="Z:/picture/008/save_picture_347659.jpg" />
 </div>
 
 
@@ -427,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347412.jpg" />
+  <img src="Z:/picture/008/save_picture_347412.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346680.jpg" />
+  <img src="Z:/picture/008/save_picture_346680.jpg" />
 </div>
 
 
@@ -481,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345258.jpg" />
+  <img src="Z:/picture/008/save_picture_345258.jpg" />
 </div>
 
 
@@ -507,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345006.jpg" />
+  <img src="Z:/picture/008/save_picture_345006.jpg" />
 </div>
 
 
@@ -535,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344638.jpg" />
+  <img src="Z:/picture/008/save_picture_344638.jpg" />
 </div>
 
 
@@ -561,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344268.jpg" />
+  <img src="Z:/picture/008/save_picture_344268.jpg" />
 </div>
 
 
@@ -587,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344057.jpg" />
+  <img src="Z:/picture/008/save_picture_344057.jpg" />
 </div>
 
 
@@ -599,89 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2A4E9431C7BD61BE65B63812A851B35204D38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409638   (343854) от 14.11.2011
-
-Кто боится Вирджинии Вульф? / Who's Afraid of Virginia Woolf? (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роль неряшливой, вульгарной Марты принесла Элизабет Тейлор ее вторую Награду Американской Киноакадемии, а также — Награду Нью-Йоркских кинокритиков и Награду Британской киноакадемии как лучшей актрисе.
-Ричард Бартон играет ее мужа, раздираемого на части эмоциями профессора истории. Джордж Сигал и Санди Деннис играют молодую пару новичков на факультете, которые попадают в паутину Джорджа и Марты, и понимают, что их собственный брак находится под угрозой…Жанр: ДрамаВ ролях: Элизабет Тэйлор /Elizabeth Taylor/, Ричард Бертон /Richard Burton/, Джордж Сигал /George Segal/, Сэнди Деннис /Sandy DennisПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 02:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6815258F3EC52301B1887F3AFEB16FF87EB40F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257577   (343477) от 13.11.2010
-
-Первые люди на луне / First Men in the Moon (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники первой международной лунной экспедиции на космическом корабле "ООН-1" были буквально ошарашены находкой в нескольких метрах от места посадки лунного модуля флага Великобритании и записки говорящей о том, что англичане посетили луну еще в 1899 году и передают сим привет королеве Виктории.
-Срочно назначенная комиссия выяснила, что в 1899 году ученый (   Читать дальше...   )Жанр: Фантастика, ПриключенияРежиссер: Натан ЮранАктеры: Эдвард Джадд, Марта Хайер, Лайонел Джеффрис, Майлз Маллесон, Норман Бёрд, Глэдис Хенсон, Хью МакДермотт, Бетти МакДауэлл, Пол Карпентер, Эрик ЧиттиПеревод: Многоголосый закадровыйПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A615B499FF2660374A8491D3752ABA4D7007629F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257260   (343473) от 13.11.2010
-
-Гражданин Кейн / Citizen Kane (1941) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343473.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гражданин Кейн» блестящее произведение искусства! Сам персонаж напоминает Говарда Хьюза: эксцентричный человек, мыслящий глобально, пытающийся двигать мир к лучшему.
-Фильм, произвёл много шума в своё время, и до сих пор считается бесценным вкладом в мире кино. Если бы не чёрно-белая плёнка, вполне можно решить, что фильм современный. Безупречная операторская работа, сценарий — многогранен и затрагивает все сферы жизни.
-Орсон Уэллс, несмотря на то, что в 40-ые играли немного нелепо и наигранно, держится настолько правдиво, что чувствуется, будто это его последняя роль.
-Фильм — эпопея, фильм опередивший время, кино, давшее толчок современному кинематографу.Жанр: Детектив, Драма, ПриключенияРежиссер: Орсон Уэллс Сценарий: Херман Дж. Манкевич, Орсон Уэллс, Джон Хаусмен Продюсер: Орсон Уэллс, Ричард Баэр, Джордж Шефер Оператор: Грегг ТоландАктеры: Орсон Уэллс, Джозеф Коттен, Агнес Мурхед, Рут Уоррик, Рэй Коллинз, Эрскин Сэнфорд, Эверет Слоун, Уильям Олленд, Пол Стюарт, Джордж КулурисПеревод: Многоголосый закадровыйПродолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC37F42E76D9CE60D41E30E171EFF770B411D36
 ```
 
 https://mybot314.ru/tekegram_catalog/

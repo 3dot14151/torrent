@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768688.jpg" />
+  <img src="Z:/picture/008/save_picture_768688.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768666.jpg" />
+  <img src="Z:/picture/008/save_picture_768666.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768664.jpg" />
+  <img src="Z:/picture/008/save_picture_768664.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768663.jpg" />
+  <img src="Z:/picture/008/save_picture_768663.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768658.jpg" />
+  <img src="Z:/picture/008/save_picture_768658.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Cumulative Update KB4015219 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768652.jpg" />
+  <img src="Z:/picture/008/save_picture_768652.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Cumulative Update KB4015221 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768651.jpg" />
+  <img src="Z:/picture/008/save_picture_768651.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768647.jpg" />
+  <img src="Z:/picture/008/save_picture_768647.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ EventScripts 1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768614.jpg" />
+  <img src="Z:/picture/008/save_picture_768614.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Money Pro 2.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768606.jpg" />
+  <img src="Z:/picture/008/save_picture_768606.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Icebreaker International - Distant Early Warning (1999) [FLAC|Lossless|tracks + 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768605.jpg" />
+  <img src="Z:/picture/008/save_picture_768605.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768597.jpg" />
+  <img src="Z:/picture/008/save_picture_768597.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Soft Organizer 6.07 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768596.jpg" />
+  <img src="Z:/picture/008/save_picture_768596.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768587.jpg" />
+  <img src="Z:/picture/008/save_picture_768587.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_768567.jpg" />
+  <img src="Z:/picture/005/save_picture_768567.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Amadeus Pro  2.8.4 (build 2523) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768558.jpg" />
+  <img src="Z:/picture/008/save_picture_768558.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ File Cabinet Pro 7.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768554.jpg" />
+  <img src="Z:/picture/008/save_picture_768554.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ GrandTotal 6 v6.1.5 (build 6.1.5.7) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768543.jpg" />
+  <img src="Z:/picture/008/save_picture_768543.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Christoph Söhngen (Soehngenetic, Soehngen) - Discography 11 Releases (2000-2012
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768537.jpg" />
+  <img src="Z:/picture/008/save_picture_768537.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Raw Power 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768532.jpg" />
+  <img src="Z:/picture/008/save_picture_768532.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Adobe components: Flash Player 25.0.0.148 + AIR 25.0.0.134 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768517.jpg" />
+  <img src="Z:/picture/008/save_picture_768517.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Cumulative Update KB4015217 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768515.jpg" />
+  <img src="Z:/picture/008/save_picture_768515.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Cumulative Update KB4015583 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768511.jpg" />
+  <img src="Z:/picture/008/save_picture_768511.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.3b3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768489.jpg" />
+  <img src="Z:/picture/008/save_picture_768489.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768482.jpg" />
+  <img src="Z:/picture/008/save_picture_768482.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ FileZilla 3.40.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768476.jpg" />
+  <img src="Z:/picture/008/save_picture_768476.jpg" />
 </div>
 
 

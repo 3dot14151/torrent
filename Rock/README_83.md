@@ -1,3 +1,32 @@
+###  Публикация: 1586803   (214838) от 28.10.2022
+
+Bon Jovi - Lost Highway (2007) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Highway
+02. Summertime
+03. (You Want To) Make A Memory
+04. Whole Lot Of Leavin'(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75348DFB80202A61C770EC406D56E25A1E750928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085514   (214822) от 21.12.2016
 
 Grzegorz Skawinski - Me & My Guitar (2012) [MP3|~245 Kbps (V0)] <Prog Rock, Hard Rock, Blues Rock>
@@ -6,7 +35,7 @@ Grzegorz Skawinski - Me & My Guitar (2012) [MP3|~245 Kbps (V0)] <Prog Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214822.jpg" />
+  <img src="Z:/picture/005/save_picture_214822.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bon Jovi - Burning Bridges (2015) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214784.jpg" />
+  <img src="Z:/picture/005/save_picture_214784.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bon Jovi - The Circle (2009) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214775.jpg" />
+  <img src="Z:/picture/005/save_picture_214775.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bon Jovi - What About Now (2013) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214768.jpg" />
+  <img src="Z:/picture/005/save_picture_214768.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Hobbit - Two Feet Tall (1999) [MP3|320 Kbps] <Classic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214616.jpg" />
+  <img src="Z:/picture/005/save_picture_214616.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214539.jpg" />
+  <img src="Z:/picture/005/save_picture_214539.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214419.jpg" />
+  <img src="Z:/picture/005/save_picture_214419.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Rutles - The Rutles (1990) [MP3|320 Kbps] <Beat, Parody Beatles>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214330.jpg" />
+  <img src="Z:/picture/005/save_picture_214330.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Skrizhali - Ледяное одиночество (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214068.jpg" />
+  <img src="Z:/picture/005/save_picture_214068.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bon Jovi - This House Is Not For Sale (2016) [OGG Vorbis|480 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214009.jpg" />
+  <img src="Z:/picture/005/save_picture_214009.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Bon Jovi - 100,000,000 Bon Jovi Fans Can't Be Wrong (2004) Box Set: 4 CD [OGG Vo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213904.jpg" />
+  <img src="Z:/picture/005/save_picture_213904.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ cLOUDs - Once Upon A Time... The Collection (2025) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212664.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Alan Parsons - From The New World (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212636.jpg" />
+  <img src="Z:/picture/005/save_picture_212636.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Apartments - 4 Albums (1996-2025) [MP3|320 Kbps] <Indie Rock, Folk Rock, Aco
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212140.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Miscellen - 4 Albums (2020-2023) [MP3|320 Kbps] <Heavy Alternative Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211159.jpg" />
+  <img src="Z:/picture/005/save_picture_211159.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ CEN-ProjekT (Chris Engels) - 8 Albums (2019-2023) [MP3|320 Kbps] <Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211150.jpg" />
+  <img src="Z:/picture/005/save_picture_211150.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Road Trip Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210984.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Scorpions & Berliner Philharmoniker - Moment Of Glory (2000) [OGG Vorbis|480 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210614.jpg" />
+  <img src="Z:/picture/005/save_picture_210614.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Elo OMEGA - Kisstadion ’77 (2023) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210483.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Chris Angels - Chaos - The War of the Worlds (2023) [MP3|320 Kbps] <Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210278.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Лучшие хиты: Рок 1970-х (2022) [MP3|320 Kbps] <Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209985.jpg" />
+  <img src="Z:/picture/005/save_picture_209985.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Лучшие хиты: Рок 1990-х (2022) [MP3|320 Kbps] <Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209974.jpg" />
+  <img src="Z:/picture/005/save_picture_209974.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Лучшие хиты Рок 1980-х (2021) [MP3|320 Kbps] <Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209958.jpg" />
+  <img src="Z:/picture/005/save_picture_209958.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209118.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Uriah Heep - Chaos & Colour (2023) [MP3|320 Kbps] <Classic Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209009.jpg" />
+  <img src="Z:/picture/005/save_picture_209009.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Uriah Heep - Chaos & Colour (2023) [MP3|320 Kbps] <Classic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979C300166FB9E1DF8822D948405DFBE30271EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646861   (208763) от 17.07.2023
-
-Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Ballad [00:03:36]
-02 St. Charles Square [00:03:55]
-03 Barbaric [00:04:08]
-04 Russian Strings [00:03:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2295E9A0D75395E7C2306B7A67836B3E00D2CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1566032   (245695) от 26.07.2022
+
+Porcupine Tree - Closure / Continuation (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harridan (8:08)
+02. Of The New Day (4:43)
+03. Rats Return (5:40)
+04. Dignity (8:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86754C739CCF04880A90171F458F47DA2EE7718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608710   (245520) от 31.01.2023
+
+Los Quarks - Time Shifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humans
+02. The Calling
+03. Don't Follow Me
+04. Run with the Thunder(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71ED7A4151D51C11B260D87BDBE8A8591FC04CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624044   (245417) от 04.04.2023
+
+Thirteen of everything - Time and Other Delusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeline [00:08:56]
+02. Alternate Life [00:11:58]
+03. Where the Time Goes [00:05:31]
+04. The Penultimate Flight of Armando the Pigeon [00:07:09](   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EE6768A18A0C872842A5435E35642B6A91A3D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060844   (245372) от 08.10.2016
+
+Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sedmina - Pesem O Tanji (2:55)
+02. Sedmina - Jutro (2:36)
+03. Sedmina - Pesem (2:56)
+04. Sedmina - Magdalena (4:39)(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624052   (245370) от 04.04.2023
+
+Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Spirit (feat. John Mitchell & Marco Minnemann) [00:05:19]
+02. The Even Chance (feat. John Mitchell & Todd Sucherman) [00:05:20]
+03. A Sense of Hope (feat. Todd Sucherman & Lars Slowak) [00:05:03]
+04. A Little Differently (feat. Marco Minnemann & Jake Livgren) [00:04:31](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060828   (245322) от 08.10.2016
 
 Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
@@ -6,7 +151,7 @@ Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245322.jpg" />
+  <img src="Z:/picture/004/save_picture_245322.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245255.jpg" />
+  <img src="Z:/picture/004/save_picture_245255.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - The Rock Collection: Rock Ballads (1992) 2CD Compilation [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245226.jpg" />
+  <img src="Z:/picture/004/save_picture_245226.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Heavy Blanket - Moon Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245195.jpg" />
+  <img src="Z:/picture/004/save_picture_245195.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Herman Brood & His Wild Romance - Yada Yada (1988) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245189.jpg" />
+  <img src="Z:/picture/004/save_picture_245189.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ King Moonracer - Hello To Kings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245182.jpg" />
+  <img src="Z:/picture/004/save_picture_245182.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245111.jpg" />
+  <img src="Z:/picture/004/save_picture_245111.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ David Cross - Crossing The Tracks (2018) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245087.jpg" />
+  <img src="Z:/picture/004/save_picture_245087.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Riverside - ID.Entity (2023) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245083.jpg" />
+  <img src="Z:/picture/004/save_picture_245083.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ The Grafenberg Disciples - Breathing Through My Ears (2023) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244902.jpg" />
+  <img src="Z:/picture/004/save_picture_244902.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Aisles - Beyond Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Ne
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244831.jpg" />
+  <img src="Z:/picture/004/save_picture_244831.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244796.jpg" />
+  <img src="Z:/picture/004/save_picture_244796.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Pink Floyd - The Dark Side Of The Moon (Live at Wembley 1974) (2023) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244692.jpg" />
+  <img src="Z:/picture/004/save_picture_244692.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Cla
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244674.jpg" />
+  <img src="Z:/picture/004/save_picture_244674.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ The Raw Collective - The Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244611.jpg" />
+  <img src="Z:/picture/004/save_picture_244611.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Peter Lawson - 10 of Swords (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244503.jpg" />
+  <img src="Z:/picture/004/save_picture_244503.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ A Lake Of Ayes - Ouro Sobre Azul (2021) [FLAC|Lossless|tracks + .cue] <Post Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244362.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Chris Angels - Gods (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244327.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Amartia - Daylight Beauty (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244255.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Ampacity - IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244240.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244222.jpg" />
 </div>
 
 
@@ -600,150 +745,6 @@ Little Bob Story – Livin' In The Fast Lane & 6 Inedits (1977) Reissue, 1991, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD78BDBC6339EBE02F8C2650948276E6D55E36DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454040   (244220) от 13.03.2021
-
-Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Kingdom of Darkness (0:04:28)
-02 - Under the Blood (0:04:52)
-03 - We Shall Be Changed (0:04:22)
-04 - Jesus First (0:04:06)(   Читать дальше...   )Жанр: Classic Rock, RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA1D59A25E2F9C9B569FF8D62977ECA0B1FADB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541585   (244129) от 04.04.2022
-
-John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Folk Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для многих Джон Иллсли всегда будет внушительной фигурой, стоящей рядом с Марком Нопфлером и оказавшим значительное влияние на формирование их музыкального стиля. Наряду с Марком, Джон Иллсли был единственным участником группы, который полностью отработал с "Dire Straits" почти двадцать лет, прежде чем группа постепенно угасла в начале 1990-х. Помимо участия (   Читать дальше...   )--------------------------
-
-01. When God Made Time (3:30)Жанр: Rock, Blues Rock, Folk Rock, Pop Rock |Продолжительность: 08:32:15 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA5616F3A9EE852986E574CCD6A717618CBAF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626294   (244110) от 13.04.2023
-
-Crippled Black Phoenix - Banefyre (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive Post, Folk, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Act I:
-01. Incantation For The Different (2:49)
-02. Wyches And Basterdz (4:56)
-03. Ghostland (5:43)(   Читать дальше...   )Жанр: Progressive Post, Folk, Stoner RockПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12523EA30BA759CC0DD7E2E7974D338B3D9B56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454346   (244089) от 14.03.2021
-
-The Radio Sun - Heaven Or Heartbreak (2015) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught Between Heaven And A Heartbreak
-02. Tell Me What You Want
-03. Dying Without Your Love
-04. Science Fiction Make Believe(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC8FF721474BDDEE6CE90A2D9959701B894C367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454336   (244074) от 14.03.2021
-
-The Radio Sun - Unstoppable (2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven And Earth
-02. Only You
-03. You've Got The Touch
-04. Tonight's the Night(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9E3C911A0C4395649A6A4EAF2DB3E06C0B2CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

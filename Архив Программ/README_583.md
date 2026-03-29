@@ -6,7 +6,7 @@ HitmanPro.Alert 3.7.9 build 775 RePack by Dickmaster [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758181.jpg" />
+  <img src="Z:/picture/008/save_picture_758181.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boris FX Continuum 12.0.0 Plug-ins for Adobe RePack by PooShock 12.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758174.jpg" />
+  <img src="Z:/picture/008/save_picture_758174.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758083.jpg" />
+  <img src="Z:/picture/005/save_picture_758083.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ACDSee Photo Studio Ultimate 2019 12.1 Build 1656 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758082.jpg" />
+  <img src="Z:/picture/008/save_picture_758082.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ HitmanPro 3.8.0 build 295 RePack by Dickmaster [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758063.jpg" />
+  <img src="Z:/picture/008/save_picture_758063.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ nVIDIA GeForce ION Driver (for Notebooks) 267.76 WHQL [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758029.jpg" />
+  <img src="Z:/picture/005/save_picture_758029.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MAGIX Vegas Pro 19.0 Build 458 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758014.jpg" />
+  <img src="Z:/picture/008/save_picture_758014.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cyberfox 52.7.2 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757936.jpg" />
+  <img src="Z:/picture/008/save_picture_757936.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Internet Download Manager 6.30 Build 7 Final RePack by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757877.jpg" />
+  <img src="Z:/picture/008/save_picture_757877.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Opera 52.0.2871.37 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757856.jpg" />
+  <img src="Z:/picture/008/save_picture_757856.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mozilla Firefox ESR 52.7.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757798.jpg" />
+  <img src="Z:/picture/008/save_picture_757798.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mozilla Firefox Quantum 59.0.2 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757792.jpg" />
+  <img src="Z:/picture/008/save_picture_757792.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ FairStars MP3 Recorder 2.20 Eng/Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757783.jpg" />
+  <img src="Z:/picture/005/save_picture_757783.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mozilla Firefox 3.6.4 RC6  [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757770.jpg" />
+  <img src="Z:/picture/005/save_picture_757770.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Registry Life 3.29 DC 19.05.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757636.jpg" />
+  <img src="Z:/picture/008/save_picture_757636.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Free Studio 6.6.13.518 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757560.jpg" />
+  <img src="Z:/picture/008/save_picture_757560.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Maxthon Cloud Browser 4.9.3.400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757546.jpg" />
+  <img src="Z:/picture/008/save_picture_757546.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Techsmith Snagit 10.0.1 Build 58 Portable [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757514.jpg" />
+  <img src="Z:/picture/005/save_picture_757514.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ WinUtilities Professional Edition 12.49 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757463.jpg" />
+  <img src="Z:/picture/008/save_picture_757463.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Wise System Monitor 1.3.9.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757450.jpg" />
+  <img src="Z:/picture/008/save_picture_757450.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Windows Firewall Control 4.7.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757368.jpg" />
+  <img src="Z:/picture/008/save_picture_757368.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Skype 7.24.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757320.jpg" />
+  <img src="Z:/picture/005/save_picture_757320.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757314.jpg" />
+  <img src="Z:/picture/005/save_picture_757314.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Actual Multiple Monitors 8.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757312.jpg" />
+  <img src="Z:/picture/005/save_picture_757312.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ oCam Screen Recorder 105.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757288.jpg" />
+  <img src="Z:/picture/008/save_picture_757288.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Soft Organizer 4.01 Final RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757281.jpg" />
+  <img src="Z:/picture/008/save_picture_757281.jpg" />
 </div>
 
 

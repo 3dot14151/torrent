@@ -1,3 +1,90 @@
+###  Публикация: 1667298   (177684) от 07.10.2023
+
+The Keening - Little Bird (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn [00:04:33]
+02. Eden [00:06:57]
+03. Little Bird [00:09:35]
+04. The Hunter I [00:07:58](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9709E80C32792C5075FEE3440CE3628950436539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667262   (177681) от 07.10.2023
+
+SolNegre - The Spiral Labyrinth (2023) [FLAC|Lossless|WEB-DL|tracks] <doom death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vessel Part 1. The Night Within [00:11:34]
+02. Vessel Part 2. The Day We All Failed [00:09:25]
+03. The End of All Things Endless [00:07:45]
+04. Yours Is a Legacy of Broken Glass and Poisoned Wells [00:07:23](   Читать дальше...   )Жанр: doom death metalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DEC75821EDECD96A0031CDFDCDD227C9BA71AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667269   (177675) от 07.10.2023
+
+Dusk - Wheels of Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <heavy metal, hard rock, occult rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wheels of Twilight [00:05:30]
+02. Wendigo [00:04:58]
+03. The Dagger [00:04:00]
+04. Empress of the Emptiness [00:03:23](   Читать дальше...   )Жанр: heavy metal, hard rock, occult rockПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A71AAADF02B4256DEBC6A6D5A9F11B32F70B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667132   (177665) от 07.10.2023
 
 Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
@@ -6,7 +93,7 @@ Gothminister - Gothic Electronic Anthems (2003) [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177665.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Killer Be Killed - Reluctant Hero (2020) [FLAC|Lossless|image + .cue] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177662.jpg" />
+  <img src="Z:/picture/005/save_picture_177662.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Gothminister - Happiness In Darkness (2008) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177661.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Bone Pixie - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Da
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177654.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Rave The Reqviem - EX​-​EDEN (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177619.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Apotheus - Ergo Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177596.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Creation's End - A New Beginning (2010) [WavPack|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177471.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Faust - From Glory To Infinity (2010) [WavPack|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177462.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Gothminister - Empire Of Dark Salvation (2005) [FLAC|Lossless|image + .cue] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177410.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Seventh Wonder - The Testament (2022) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177383.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ring Of Fire - Gravity (2022) [FLAC|Lossless|image + .cue] <Neo-Classical Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177354.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Disturbed - Divisive (2022) [FLAC|Lossless|image + .cue] <Groove Metal, Nu Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177226.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Saltatio Mortis - Aus Der Asche (2007) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177053.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Poisonblack - A Dead Heavy Day (2008) [FLAC|Lossless|image + .cue] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177044.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Poisonblack - Lust Stained Despair (2006) [FLAC|Lossless|image + .cue] <Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177041.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Saltatio Mortis - Sturm Aufs Paradies (2011) [FLAC|Lossless|image + .cue] <Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177021.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Court of Beasts - 4 Albums (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Sludgy Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177017.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Poisonblack - Of Rust And Bones (2010) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176989.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176920.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Arduinna’s Dawn - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176912.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Withering Night - Lies and Corruption (2010) (Reissue-2012) [WavPack|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176910.jpg" />
+  <img src="Z:/picture/005/save_picture_176910.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Xantotol - Liber Diabolus: 1991-1996 (2004) [WavPack|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176907.jpg" />
+  <img src="Z:/picture/005/save_picture_176907.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Virgin Steele - Life Among the Ruins (1993) Remastered 2CD, 2012, Steamhammer [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176902.jpg" />
+  <img src="Z:/picture/005/save_picture_176902.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Virgin Steele - Life Among the Ruins (1993) Remastered 2CD, 2012, Steamhammer [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88759ED8D256655A4E7D8EA58FABDC419123C979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594818   (176895) от 03.12.2022
-
-Behold! The Monolith - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crown/The Immeasurable Void [00:09:30]
-02. Psychlopean Dread [00:06:29]
-03. Spirit Taker [00:05:37]
-04. This Wailing Blade [00:03:51](   Читать дальше...   )Жанр: Stoner, Sludge, Doom Metal, Heavy MetalПродолжительность: 3 CD, 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80812E002D9697A592A7A159D7E73A90364A638D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594950   (176887) от 03.12.2022
-
-High Command - Eclipse of the Dual Moons (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover, Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Eclipse of the Dual Moons (03:47)
-02 - Immortal Savagery (05:02)
-03 - Imposing Hammers of Cold Sorcery (07:39)
-04 - Omniscient Flail of Infamy (05:11)(   Читать дальше...   )Жанр: Thrash Metal, Crossover, Hardcore PunkПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4E5947EC585D06FA8F06453973BA5751A3E945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429436   (176881) от 06.12.2020
-
-Stormwind - Resurrection (2020) Remastered [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix Rising (1:23)
-02. Ship of Salvation (4:58)
-03. Souldance (5:02)
-04. Seven Seas (5:28)(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DE2EEE3DB9C4C03CD5E9F4F64287966E508F65
 ```
 
 https://mybot314.ru/tekegram_catalog/

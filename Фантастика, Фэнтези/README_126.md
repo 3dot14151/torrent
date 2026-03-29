@@ -1,3 +1,57 @@
+###  Публикация: 1304959   (559786) от 28.05.2019
+
+Лана Волкова | Невеста Кристального Дракона (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотекарь Ирина из Санкт-Петербурга попала в волшебный мир к правителю драконов. Он жесток с женщинами: пользуется ими и выбрасывает за порог. Одна из обиженных жертв жаждет мести. Она обладает даром прорицания и, зная, что Ирина – истинная пара владыки драконов, скрывает от них правду и обращается к заклятому врагу драконов – человеческому князю-чародею. Теперь (   Читать дальше...   )Жанр: Любовное фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947C57D707A70EEE1AA350A26B4AEE1F1F156B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304973   (559654) от 28.05.2019
+
+Айзек Азимов | Лаки Старр и спутники Юпитера (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать в тысяче миль над Юпитером-9? Строить аграв-корабль и планировать путешествие к смертоносному Юпитеру.
+
+Дэвид «Лакки» Старр, благородный находчивый космический рейнджер, и его друг-марсианин Джон «Верзила» Джонс продолжают сражение с врагами Земли на просторах Солнечной системы.Жанр: Боевая фантастика, Зарубежная фантастика, Классика фантастики, Космическая фантастикаПеревод: Дмитрий АрсеньевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A304FDA8ACDD9D6E850FFE1455E5CAA9FADBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556145   (559344) от 09.06.2022
 
 Брендон Сандерсон | Архив Буресвета [5 книг] (2016-2021) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559344.jpg" />
+  <img src="Z:/picture/008/save_picture_559344.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559249.jpg" />
+  <img src="Z:/picture/008/save_picture_559249.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559212.jpg" />
+  <img src="Z:/picture/008/save_picture_559212.jpg" />
 </div>
 
 
@@ -91,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558978.jpg" />
+  <img src="Z:/picture/008/save_picture_558978.jpg" />
 </div>
 
 
@@ -119,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558951.jpg" />
+  <img src="Z:/picture/008/save_picture_558951.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558810.jpg" />
+  <img src="Z:/picture/008/save_picture_558810.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558169.jpg" />
+  <img src="Z:/picture/008/save_picture_558169.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558064.jpg" />
+  <img src="Z:/picture/008/save_picture_558064.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558058.jpg" />
+  <img src="Z:/picture/008/save_picture_558058.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558054.jpg" />
+  <img src="Z:/picture/008/save_picture_558054.jpg" />
 </div>
 
 
@@ -281,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557807.jpg" />
+  <img src="Z:/picture/008/save_picture_557807.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557706.jpg" />
+  <img src="Z:/picture/008/save_picture_557706.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557699.jpg" />
+  <img src="Z:/picture/008/save_picture_557699.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557656.jpg" />
+  <img src="Z:/picture/008/save_picture_557656.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557537.jpg" />
+  <img src="Z:/picture/008/save_picture_557537.jpg" />
 </div>
 
 
@@ -417,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557527.jpg" />
+  <img src="Z:/picture/008/save_picture_557527.jpg" />
 </div>
 
 
@@ -443,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557398.jpg" />
+  <img src="Z:/picture/008/save_picture_557398.jpg" />
 </div>
 
 
@@ -471,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557396.jpg" />
+  <img src="Z:/picture/008/save_picture_557396.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557383.jpg" />
+  <img src="Z:/picture/008/save_picture_557383.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557324.jpg" />
+  <img src="Z:/picture/008/save_picture_557324.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557263.jpg" />
+  <img src="Z:/picture/008/save_picture_557263.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557253.jpg" />
+  <img src="Z:/picture/008/save_picture_557253.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556951.jpg" />
+  <img src="Z:/picture/008/save_picture_556951.jpg" />
 </div>
 
 
@@ -632,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556933.jpg" />
+  <img src="Z:/picture/008/save_picture_556933.jpg" />
 </div>
 
 
@@ -644,60 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2221FD9ED1BE51627CBEF2A4309676806DC3E445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305382   (556907) от 30.05.2019
-
-Николай Метельский | Маска зверя (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск 1126. Шестой роман цикла «Унесённый ветром»
-
-Этап пройден. Герб получен. Что ждет Синдзи из рода Аматэру в будущем? Душная Малайзия с ее джунглями и аристократией, что не желает отдавать свое. Боевые роботы, уничтожающие как своих, так и чужих. Мирные жители, сгораемые в пламени войны. Этап пройден, и под масками подростка все четче видна еще одна - Маска (   Читать дальше...   )Жанр: Боевая фантастика, Городское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00081098C83D5A002E489FE3191512D65D5882DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305369   (556825) от 30.05.2019
-
-Иван Шаман | Истребитель (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр не выбирал свою судьбу. За него все решили родители, начальники и сама жизнь. Быть военным в седьмом поколении – это почетная ноша, от которой можно избавиться только во время мира. Вот только мир катится ко всем чертям… Наномашины, которые изготавливали на заводе в Питсбурге, вырвались из-под контроля, превращая зараженных ими людей в подобие зомби. Что (   Читать дальше...   )Жанр: Боевая фантастика, КиберпанкФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC71FB9F077717C40F15F1510CE97EE68D14777
 ```
 
 https://mybot314.ru/tekegram_catalog/

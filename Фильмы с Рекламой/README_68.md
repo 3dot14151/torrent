@@ -1,3 +1,30 @@
+###  Публикация: 1333127   (306736) от 23.10.2019
+
+Роберт Брюс / Robert the Bruce (2019) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306736.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о величайшем герое Шотландии, ставшем изгоем и получившим корону от своего народа в борьбе за независимость страны в 14 веке.
+Шотландия, 1306 год, Роберт Брюс провозгласил себя королем Шотландии. Он готов отдать жизнь за свободу своей страны. Но он не может одолеть силу Англии: потерпев очередное поражение, его армия разбита, а дворянство Шотландии покидает (   Читать дальше...   )Производство: США / Yellow Brick Films LLCЖанр: ИсторияРежиссер: Ричард ГрэйАктеры: Гэбриел Бейтман, Талита Бейтман, Мхэйри Калви, Джанни Капальди, Уилл Карлсон, Шэйн Цвинер, Ник Фарнелл, Патрик Фьюджит, Крисс Грин, Джаред ХаррисПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 02:02:31Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597653BC6DD6CD8877FAE135DB7BAD490E1E0BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333126   (306560) от 23.10.2019
 
 Роберт Брюс / Robert the Bruce (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
@@ -6,7 +33,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306560.jpg" />
+  <img src="Z:/picture/008/save_picture_306560.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305117.jpg" />
+  <img src="Z:/picture/008/save_picture_305117.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304776.jpg" />
+  <img src="Z:/picture/008/save_picture_304776.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304586.jpg" />
+  <img src="Z:/picture/008/save_picture_304586.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303129.jpg" />
+  <img src="Z:/picture/008/save_picture_303129.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302990.jpg" />
+  <img src="Z:/picture/008/save_picture_302990.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302825.jpg" />
+  <img src="Z:/picture/008/save_picture_302825.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302819.jpg" />
+  <img src="Z:/picture/008/save_picture_302819.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302815.jpg" />
+  <img src="Z:/picture/008/save_picture_302815.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302759.jpg" />
+  <img src="Z:/picture/008/save_picture_302759.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302592.jpg" />
+  <img src="Z:/picture/008/save_picture_302592.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302531.jpg" />
+  <img src="Z:/picture/008/save_picture_302531.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301250.jpg" />
+  <img src="Z:/picture/008/save_picture_301250.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301046.jpg" />
+  <img src="Z:/picture/008/save_picture_301046.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300947.jpg" />
+  <img src="Z:/picture/008/save_picture_300947.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300789.jpg" />
+  <img src="Z:/picture/008/save_picture_300789.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300787.jpg" />
+  <img src="Z:/picture/008/save_picture_300787.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300727.jpg" />
+  <img src="Z:/picture/008/save_picture_300727.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300669.jpg" />
+  <img src="Z:/picture/008/save_picture_300669.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300616.jpg" />
+  <img src="Z:/picture/008/save_picture_300616.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300580.jpg" />
+  <img src="Z:/picture/008/save_picture_300580.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300347.jpg" />
+  <img src="Z:/picture/008/save_picture_300347.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298482.jpg" />
+  <img src="Z:/picture/008/save_picture_298482.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298478.jpg" />
+  <img src="Z:/picture/008/save_picture_298478.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298473.jpg" />
+  <img src="Z:/picture/008/save_picture_298473.jpg" />
 </div>
 
 
@@ -644,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4329E0EDA26E1F5ACFB1B9E2FA46FD2E319F4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334026   (298361) от 27.10.2019
-
-Легенда пустыни Гоби / The Legend of Gobi (2019) DVDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298361.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ханстве, где веками царил мир и отовсюду раздавалась музыка, настали смутные времена. К власти пришёл новый хан, запретивший веселье и песни, за что в итоге был проклят. Сможет ли великий хан снять страшное проклятье?Производство: Монголия / UBS TVЖанр: БоевикРежиссер: Davaajargal TserenchimedАктеры: Эдуард Ондар, Самданы Лхагвасурен, Zamilan Bolor-Erdene, Одонгаваагийн Амгаланбаатар,     Чимэдийн ОчгэрэлПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:54:13Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C691475CD6A5E9AF0F9B1B55C048D8556DB4012
 ```
 
 https://mybot314.ru/tekegram_catalog/

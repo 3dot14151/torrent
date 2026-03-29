@@ -1,3 +1,55 @@
+###  Публикация: 1003914   (839630) от 05.04.2016
+
+Разорванный круг (1987) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839630.jpg" />
+</div>
+
+
+###  Подробнее
+
+На даче, куда съезжается группа людей, чтобы отметить «девятый день» со дня смерти директора швейной фабрики, ближе к вечеру траурное застолье становится более раскованным — и выясняется, что покойный не просто умер, а был убит. И теперь собравшиеся должны выяснить две вещи: кто убил и куда делся чемодан с крупной суммой денег?Производство: СССРЖанр: Детектив, КриминалРежиссер: Вениамин ДорманАктеры: Галина Польских, Тамара Акулова, Виктор Сергачев, Александр Соловьев, Владимир Стеклов, Валентин Смирнитский, Михаил Кононов, Вячеслав Баранов, Александр Яковлев, Павел Иванов, Петр ЩербаковПродолжительность: 01:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B8B8895CA9843E8D0AC53B3F06BA8C087EE13D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112647   (839541) от 10.03.2017
+
+Прощание (1981) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839541.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Проща́ние» — советский двухсерийный фильм 1981 года по мотивам повести «Прощание с Матёрой» Валентина Распутина. Задуманный и начатый Ларисой Шепитько, фильм был снят после её трагической гибели её мужем, кинорежиссёром Элемом Климовым. Трагедия произошла 2 июля 1979 года на 137 км Ленинградского шоссе. Направляясь на съемку, в автокатастрофе трагически погибли (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Элем КлимовАктеры: Стефания Станюта, Лев Дуров, Алексей Петренко, Леонид Крюк, Вадим Яковенко, Юрий Катин-Ярцев, Денис Лупов, Майя Булгакова, Найдан Гендунова, Галина Дёмина, Анна КустоваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:01:19  (2 серии одним файлом)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C411C72DDBC6D2FDC232EB1F6F4A898ED30CFC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379593   (839190) от 29.04.2020
 
 День и вся жизнь (1969) DVBRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839190.jpg" />
+  <img src="Z:/picture/008/save_picture_839190.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839059.jpg" />
+  <img src="Z:/picture/008/save_picture_839059.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838972.jpg" />
+  <img src="Z:/picture/008/save_picture_838972.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838077.jpg" />
+  <img src="Z:/picture/008/save_picture_838077.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837944.jpg" />
+  <img src="Z:/picture/008/save_picture_837944.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836340.jpg" />
+  <img src="Z:/picture/008/save_picture_836340.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835935.jpg" />
+  <img src="Z:/picture/008/save_picture_835935.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834873.jpg" />
+  <img src="Z:/picture/008/save_picture_834873.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834853.jpg" />
+  <img src="Z:/picture/008/save_picture_834853.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833289.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831125.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830365.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827361.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827286.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826408.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826061.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825941.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825939.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825836.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825298.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824459.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824370.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823960.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822178.jpg" />
+  <img src="Z:/picture/008/save_picture_822178.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E78B9E908C697BCCBAD18E8A8285F1FFC6ED41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196602   (820616) от 04.01.2018
-
-Еще до войны (1982) WEB-DLRip (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихо и мирно живет деревушка Улым. После службы в армии домой возвращается Анатолий Трифонов. Отец хочет, чтобы он срочно женился. В деревне много невест. Но из города приезжает племянница председателя, хрупкая и не похожая на других девушка Рая. Они полюбили друг друга. Однако жизнь распорядилась по-своему…Производство: СССРЖанр: МелодрамаРежиссер: Борис СавченкоАктеры: Александр Белина, Дарья Михайлова, Василий Петренко, Людмила Шевель, Ирина Жалыбина, Андрей Ярославцев, Николай Федорцов, Ольга Анохина, Юрий Гребенщиков, Лилия ГуроваСубтитры: ОтсутствуютПродолжительность: 01:04:45 + 01:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6050FAE9CCFE75C424A1ABF99F787D0D07662BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196784   (820614) от 04.01.2018
-
-Берег принцессы Люськи (1969) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телефильм по одноименному рассказу О.М.Куваева.
-В глухом лесу на берегу озера работает небольшая геологическая партия. Из Москвы к ним прилетает студентка-практикантка Люська и, шутя, объявляет себя королевой, а трех ребят - своими рыцарями…Производство: СССРЖанр: Мелодрама, комедияРежиссер: Вячеслав НикифоровАктеры: Светлана Смехнова, Виктор Мирошниченко, Андрей Подубинский, Валентин ТушенцевСубтитры: ОтсутствуютПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C9E4ABD600F1CD23DD5EDF8BFCA811B51E4603
 ```
 
 https://mybot314.ru/tekegram_catalog/

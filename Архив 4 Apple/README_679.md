@@ -1,3 +1,109 @@
+###  Публикация: 1708959   (112930) от 22.03.2024
+
+Magic Disk Cleaner 2.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2022-2024 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2275022E2C29F231FD6928FCBE29CA56DB309195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709044   (112887) от 23.03.2024
+
+Cookie 7.2.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 12.0 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3801225D0134B88EFB504C82BB43E1B707ACD372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710096   (112730) от 26.03.2024
+
+Ghost Buster Pro 3.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Buster Pro находит и удаляет файлы из приложений, которые вы уже удалили. Приложение работает молниеносно и мгновенно освобождает память. Многие приложения устанавливаются на компьютер, но обычно они остаются на вашем компьютере только в течение короткого времени. Каждое приложение создает файлы, но удаление приложения не приводит к их удалению. Это приводит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A8C8A4D65C96F26D2934D1272B3376C917EE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710107   (112715) от 26.03.2024
+
+PopClip 2024.3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112715.jpg" />
+</div>
+
+
+###  Подробнее
+
+PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
+PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 Nicholas MooreПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0117FB78A3ADBFA128EC56063770FC2E3BF6105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710104   (112714) от 26.03.2024
 
 Mp3tag 1.8.19 [Multi]
@@ -6,7 +112,7 @@ Mp3tag 1.8.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112714.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ MediaMate for Mac 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112709.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ BetterMouse for Mac 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112706.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Downie 4 v.4.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112702.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ TechSmith Camtasia 2023 Studio 2023.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112684.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ Cookie 7.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112641.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Wondershare UniConverter for Mac 15.5.4 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112607.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ MarsEdit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112472.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110658.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110639.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106338.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106142.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105764.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ MARVEL VS. CAPCOM 2 [5.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102124.jpg" />
+  <img src="Z:/picture/005/save_picture_102124.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ Bumpy Road v2.1 [3.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101864.jpg" />
+  <img src="Z:/picture/005/save_picture_101864.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ LEGO Indiana Jones [Native] [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90510.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ Mac Blu-ray Player 2.1.0 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90352.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ GarageBand [5.0+Jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89340.jpg" />
 </div>
 
 
@@ -489,7 +595,7 @@ Prince of Persia® Classic [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89293.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ Race Of Champions - The Official Game [3.2+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89276.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88936.jpg" />
 </div>
 
 
@@ -580,123 +686,13 @@ Guitar Pro [3.0+Jailbreake]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88909.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Приложение для чтения и воспроизведения табулатур в формате gtp.Разработчик: Arobas MusicЯзык интерфейса: English, French, Italian, Japanese, Korean, Polish, Russian, Ukrainian
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479993   (87258) от 08.04.2012
-
-Rayman Origins [WineSkin]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение легендарной серии Rayman, за последние пятнадцать лет завоевавшей всемирное признание и восхищение, стало настоящим бестселлером на всех ведущих игровых системах. Теперь эта игра доступна владельцам персональных компьютеров!
-Добро пожаловать в волшебный мир, обитатели которого обожают вкусно кушать, крепко спать и иной раз затевать дружеские потасовки. Вот только по соседству раскинулось мрачное болото, а там собрался совсем другой контингент. Того и жди неприятностей! Зато среди любителей привольной жизни найдутся герои, способные дать отпор любому не в меру зарвавшемуся агрессору. Залихватский и непоседливый Рэйман, его лучший друг Глобокс и пара отчаянных волшебников готовы к самым необычным приключениям в уникальном мультяшно-юмористическом стиле!
-Игра влюбляет в себя с первого взгляда, лишний раз подтверждая, что двухмерная графика никогда не устареет. Все дело в таланте виртуозов, нарисовавших яркий, красочный мир, населенный обаятельными созданиями. Первое время, играя за Глобокса, вы будете (   Читать дальше...   )Тип издания: MacOS X portЖанры: Arcade (Platform)Язык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8815B11C2CFF1E8896F8BF474B1BF73AD5D38DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470889   (84634) от 26.03.2012
-
-Англо-Русский Slovoed Deluxe [3.0+jailbreake]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот словарь содержит около 103.000 словарных статей и максимально подробный перевод слов со множеством примеров употребления и синонимов.Язык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Голландский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469440   (83571) от 21.03.2012
-
-[Игра] (iOS) Infinity Blade 2 [ver._1.0.3]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83571.jpg" />
-</div>
-
-
-###  Подробнее
-
-История продолжается God King повержен, но вам все еще предстоит раскрыть тайну и загадку Infinity Blade. Продолжите еще более интригующие приключения погружаясь все глубже и глубже в мир Бессмертных тиранов и их легионов состоящих из Титанов. Сумеете ли вы раскрыть все загадки и благополучно овладеть силой Infinity Blade в этом увлекательном квесте?
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462617   (80268) от 05.03.2012
-
-Tap The Frog 2 [3.0+jailbreak]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите узнать, почему более 7,000,000 ЧЕЛОВЕК играют в Tap the Frog и Tap the Frog 2 на мобильном и онлайн? Тогда начинайте играть и узнайте, насколько быстры ваши пальцы...
-
-Всеми любимая лягушка отправляется в новое приключение в Tap the Frog 2! На этот раз любовь поведет героя через преграды, вдохновит на увлекательные достижения и продвинет его в ранге для того, чтобы стать прекрасным принцем и завоевать сердце любимой.
-
-Присоединяйтесь к приключению, в котором лягушка пройдет весь путь от водяных лилий в родном пруду до астероидов в открытом космосе. Способны ли вы помочь лягушке лопать, красить, прыгать, строить и всячески прокладывать свой путь к победе? Если да, скорее включайтесь в игру и узнайте, насколько быстры ваши пальцы! Играть легко, но стать настоящим мастером непросто. Множество часов, которые вы проведете за игрой, доставят вам истинное удовольствие. Так чего же вы ждете? Скачайте Tap the Frog 2. Нажимайте на лягушку.Жанр: Arcade / Logic / PuzzleФормат: ipa
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,119 @@
+###  Публикация: 1633233   (243473) от 14.05.2023
+
+Alexis Cole - Nearer The Sun (2004) Canopy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_243473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [3:47]
+02. Night Train [4:29]
+03. My Funny Valentine [5:10]
+04. East of the Sun [5:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BD0D43A8CE57AC06BCCD4FA131F6757E619835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077716   (243469) от 01.12.2016
+
+National Youth Jazz Orchestra - Cottoning On (1995) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Island Samba (9:32)
+02. Miss Malfatti, I Presume (5:12)
+03. Cottoning On (6:05)
+04. A Lady Can Tell (4:09)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07E8FFD82C568AF1E4F15A3BB8A677980ADDDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077581   (243458) от 01.12.2016
+
+Michel Camilo Trio - Suntan (1986) 1992, Evidence[FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.We Three [07:58]
+ 02.Tombo in 7/4 [10:26]
+ 03.Las Olas [05:58]
+ 04.(Used to Be a) Cha-Cha [12:17](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B7EB9BDD896DE4800161BB7E737C4CE70C07E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456051   (243451) от 21.03.2021
+
+Peggy Lee - The Lost '40s & '50s Capitol Masters (1944 - 1952) 2CD, 2008, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243451.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ain't Goin' No Place (with The Capitol Jazzmen) [3:03]
+02. A Cottage for Sale [2:56]
+03. Don't Be So Mean to Baby (alternate take) [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09BEB1C72A36EF46461A4D4811D8C7942262F1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456114   (243436) от 21.03.2021
 
 Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -6,7 +122,7 @@ Veronica Swift - This Bitter Earth (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243436.jpg" />
+  <img src="Z:/picture/004/save_picture_243436.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - The Savory Collection 1935-1940 (2018) 6CD, Mosaic Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243434.jpg" />
+  <img src="Z:/picture/004/save_picture_243434.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ National Youth Jazz Orchestra - Remembrance (1991) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243432.jpg" />
+  <img src="Z:/picture/004/save_picture_243432.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Joe Williams - Presenting Joe Williams And Thad Jones & Mel Lewis Jazz Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243419.jpg" />
+  <img src="Z:/picture/004/save_picture_243419.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ National Youth Jazz Orchestra - 47 Frith Street (1998) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243418.jpg" />
+  <img src="Z:/picture/004/save_picture_243418.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243405.jpg" />
+  <img src="Z:/picture/004/save_picture_243405.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243404.jpg" />
+  <img src="Z:/picture/004/save_picture_243404.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243395.jpg" />
+  <img src="Z:/picture/004/save_picture_243395.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243390.jpg" />
+  <img src="Z:/picture/004/save_picture_243390.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Junior Mance Trio - Junior's Blues (1963) 1998, Original Jazz Classics [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243384.jpg" />
+  <img src="Z:/picture/004/save_picture_243384.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ National Youth Jazz Orchestra - Unison In All Things (1996) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243381.jpg" />
+  <img src="Z:/picture/004/save_picture_243381.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ National Youth Jazz Orchestra - Portraits (1990) [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243364.jpg" />
+  <img src="Z:/picture/004/save_picture_243364.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Kei Marimura - P.S. I Love You (1983) 1986, Teichiku Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243363.jpg" />
+  <img src="Z:/picture/005/save_picture_243363.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Quarantine Doom Jazz vol. 4 (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243360.jpg" />
+  <img src="Z:/picture/004/save_picture_243360.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ A.K. Salim - Blues Suite (1958) 1991, Savoy[FLAC|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243305.jpg" />
+  <img src="Z:/picture/004/save_picture_243305.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Chad Wackerman - Forty Reasons (1991) CMP Records[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243287.jpg" />
+  <img src="Z:/picture/004/save_picture_243287.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Keith Jarrett - Mysteries & Shades (1975) 2011, Universal [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243241.jpg" />
+  <img src="Z:/picture/004/save_picture_243241.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The United States Army Field Band Jazz Ambassadors - The Legacy Of Hank Levy (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243235.jpg" />
+  <img src="Z:/picture/005/save_picture_243235.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Johnny Griffin - Four Classic Albums 1956 - 1958 (2017) 2CD, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243219.jpg" />
+  <img src="Z:/picture/004/save_picture_243219.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Andrea Pozza - Plays Ellington, Monk & Himself (2006) Go4 Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243217.jpg" />
+  <img src="Z:/picture/005/save_picture_243217.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Andrea Pozza Trio - Blue Daniel (2010) Dejavu [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243205.jpg" />
+  <img src="Z:/picture/005/save_picture_243205.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jeremy Pelt - November (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243176.jpg" />
+  <img src="Z:/picture/004/save_picture_243176.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jeremy Pelt - November (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9ED469781C739079E9D6D9FE84A93371092262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614257   (243106) от 21.02.2023
-
-Freddie Hubbard - Topsy (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topsy [5:20]
-02. Caravan [10:49]
-03. As Time Goes By [6:18]
-04. Cherokee [5:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D143A14D33270B587192BFFEEC466D76EC7F4361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614691   (243051) от 23.02.2023
-
-Charles Mingus - Jazz Composers Workshop (1954, 1955) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Heart [5:37]
-02. Gregarian Chant [2:51]
-03. Eulogy for Rudy Williams [6:22]
-04. Tea for Two [6:21](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7100B4387379065F9D333C2D4764FF190F2DA196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082389   (243038) от 12.12.2016
-
-Oliver Nelson, King Curtis, Jimmy Forrest - Soul Battle (1960) 1992, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues At The Five Spot [05:44]
- 02.Blues For M.F. (Mort Fega) [09:40]
- 03.Anacruses [05:43]
- 04.Perdido [09:23](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E5DF3CD445FAC326A4F8AFE8E47AEC1844DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614690   (243009) от 23.02.2023
-
-Duke Ellington And His Orchestra - Ellington Indigos (1957) 1989, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solitude [4:43]
-02. Where or When [4:02]
-03. Mood Indigo [3:07]
-04. Night and Day [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BB2EF9F40C6BA5A37E8C034DB8AFE59B646557
 ```
 
 https://mybot314.ru/tekegram_catalog/

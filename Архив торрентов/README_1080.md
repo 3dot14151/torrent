@@ -6,7 +6,7 @@ Privacy Eraser Free 4.32.5 Build 2481 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800365.jpg" />
+  <img src="Z:/picture/008/save_picture_800365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800355.jpg" />
+  <img src="Z:/picture/008/save_picture_800355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BetterZip 4.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800354.jpg" />
+  <img src="Z:/picture/008/save_picture_800354.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TurboMosaic Pro 3.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800339.jpg" />
+  <img src="Z:/picture/008/save_picture_800339.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Calendar 366 II v2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800329.jpg" />
+  <img src="Z:/picture/008/save_picture_800329.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stand Up (2017.04.02) SATRip (сезон 6, выпуск 7) [AD]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800316.jpg" />
+  <img src="Z:/picture/008/save_picture_800316.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Desktop Ponies 1.61 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800313.jpg" />
+  <img src="Z:/picture/008/save_picture_800313.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ FinePrint 9.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800308.jpg" />
+  <img src="Z:/picture/008/save_picture_800308.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Piezo 1.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800299.jpg" />
+  <img src="Z:/picture/008/save_picture_800299.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Maxthon Browser 5.1.5.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800295.jpg" />
+  <img src="Z:/picture/008/save_picture_800295.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VideoSolo Video Converter Ultimate 1.0.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800292.jpg" />
+  <img src="Z:/picture/008/save_picture_800292.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ XnConvert 1.76 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800290.jpg" />
+  <img src="Z:/picture/008/save_picture_800290.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Enemy Radio - Loud Is Not Enough (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800281.jpg" />
+  <img src="Z:/picture/008/save_picture_800281.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Lil Uzi Vert - Eternal Atake (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Trap
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800274.jpg" />
+  <img src="Z:/picture/008/save_picture_800274.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Glary Utilities Pro 5.142.0.168 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800270.jpg" />
+  <img src="Z:/picture/008/save_picture_800270.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wondershare Recoverit 8 v8.7.2.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800269.jpg" />
+  <img src="Z:/picture/008/save_picture_800269.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Metadatics 1.6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800262.jpg" />
+  <img src="Z:/picture/008/save_picture_800262.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ SyncTime 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800260.jpg" />
+  <img src="Z:/picture/008/save_picture_800260.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800258.jpg" />
+  <img src="Z:/picture/008/save_picture_800258.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Find Any File (FAF) 2.3.2 b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800257.jpg" />
+  <img src="Z:/picture/008/save_picture_800257.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Coherence X 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800255.jpg" />
+  <img src="Z:/picture/008/save_picture_800255.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ UltraCompare 21.00.0.40 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800246.jpg" />
+  <img src="Z:/picture/008/save_picture_800246.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Dropshare 5.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800241.jpg" />
+  <img src="Z:/picture/008/save_picture_800241.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800236.jpg" />
+  <img src="Z:/picture/008/save_picture_800236.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Cent Browser 3.1.5.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800222.jpg" />
+  <img src="Z:/picture/008/save_picture_800222.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800218.jpg" />
+  <img src="Z:/picture/008/save_picture_800218.jpg" />
 </div>
 
 

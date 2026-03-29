@@ -1,3 +1,61 @@
+###  Публикация: 1666139   (179937) от 03.10.2023
+
+Sex Music Zone - Kiss N' Ride Erotic Lounge Music for Sex & Porno (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss N’ Ride (3:55)
+02. Double Pleasure (2:57)
+03. Gangsta Lovin (2:51)
+04. Lost in Xtazy (3:27)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09694A3A08B0307DB131E9859427098256F35D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428773   (178243) от 04.12.2020
+
+Christian Grey & Sasha Black - The Fire of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire of Love (3:22)
+02. Sex and Love (3:33)
+03. Lounge for Love (3:38)
+04. Red Room - Sax Bondage (3:31)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99D9257FDE88F0C423F9497BAFCD4DF94D67B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664857   (178067) от 06.10.2023
 
 neowake Biofrequencies - Утренняя мотивация 16 Гц: бинауральные ритмы для позитивной энергии (2023) [MP3|320 Kbps] <Instrumental, meditation>
@@ -6,7 +64,7 @@ neowake Biofrequencies - Утренняя мотивация 16 Гц: бинау
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_178067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_178067.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ Charlie Clouser - Saw X (Original Motion Picture Soundtrack) (2023) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177874.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ Ted Hammond Orchestra - Hammond & Sax (2022) Vol. 1,2 [MP3|320 Kbps] <Instrument
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177836.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Blackmore's Night - Here We Come A-Caroling (2020) EP [FLAC|24/44.1|Lossless|WEB
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177371.jpg" />
+  <img src="Z:/picture/005/save_picture_177371.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Ron Madore - Intoxicating (2020) [FLAC|Lossless|WEB-DL|tracks] <Country, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176682.jpg" />
+  <img src="Z:/picture/004/save_picture_176682.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Buddha-Bar Elements (2020) [MP3|320 Kbps] <Chillout, Downtempo, Deep-House,
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176529.jpg" />
+  <img src="Z:/picture/004/save_picture_176529.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175130.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175018.jpg" />
+  <img src="Z:/picture/004/save_picture_175018.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173691.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173656.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173516.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Loss
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173341.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172829.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Геннадий Гладков. Обыкновенное Чудо (2002) �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172732.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172542.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Malte Marten, Yatao, Leander Greitemann - To the Stars (Studio Live Sessions) (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171714.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170836.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Emma Swift - Blonde On the Tracks (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170613.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170532.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170462.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Shinnobu - The Trilogy (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170423.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Гармонь России (2005) [FLAC|Lossless|tracks + .cue] <Фоль�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170355.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фол�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170318.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169859.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C5BD8E37C69A688C6CD360E2744D7D909875CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595409   (169849) от 10.12.2022
-
-Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Etherial, Pagan, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. древо [00:04:20]
-02. дом (remastered) [00:06:04]
-03. зима [00:02:23]
-04. лютень (remastered) [00:04:33](   Читать дальше...   )Жанр: Neofolk, Etherial, Pagan, AmbientПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52197C819A9B6425EF2A13017AA5989A162B96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595849   (169837) от 10.12.2022
-
-Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthpop, Power Electronics>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristal [00:03:55]
-02. Accords perdus [00:05:30]
-03. Sirene automatique [00:06:08]
-04. En espagne [00:04:02](   Читать дальше...   )Жанр: Neofolk, Synthpop, Power ElectronicsПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D026E2C919ED9F6483F9E1810C861B753E9257
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sparkle Pro 2.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815051.jpg" />
+  <img src="Z:/picture/008/save_picture_815051.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815049.jpg" />
+  <img src="Z:/picture/008/save_picture_815049.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Algoriddim djay Pro 1.4.3 (Complete FX Pack) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815048.jpg" />
+  <img src="Z:/picture/008/save_picture_815048.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815017.jpg" />
+  <img src="Z:/picture/008/save_picture_815017.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Beyonce - Collaboration (2010) [MP3|320 kbps]<RnB>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815008.jpg" />
+  <img src="Z:/picture/008/save_picture_815008.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_814996.jpg" />
+  <img src="Z:/picture/009/save_picture_814996.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ManyCam Virtual Webcam Free 5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814968.jpg" />
+  <img src="Z:/picture/008/save_picture_814968.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Slime Rancher (2016) [Ru] (0.2.6) Repack John2s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814967.jpg" />
+  <img src="Z:/picture/008/save_picture_814967.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814963.jpg" />
+  <img src="Z:/picture/008/save_picture_814963.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814916.jpg" />
+  <img src="Z:/picture/008/save_picture_814916.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814910.jpg" />
+  <img src="Z:/picture/008/save_picture_814910.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814879.jpg" />
+  <img src="Z:/picture/008/save_picture_814879.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ JetBrains PhpStorm for Win/Mac/Linux v2.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814845.jpg" />
+  <img src="Z:/picture/008/save_picture_814845.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Quantum Break (2016) WEBRip [H.264] [MP4|1920x1080] [60 fps]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814831.jpg" />
+  <img src="Z:/picture/008/save_picture_814831.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814829.jpg" />
+  <img src="Z:/picture/008/save_picture_814829.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814826.jpg" />
+  <img src="Z:/picture/008/save_picture_814826.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814825.jpg" />
+  <img src="Z:/picture/008/save_picture_814825.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Tales of Maj'Eyal (2012) [En] (1.4.6/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814820.jpg" />
+  <img src="Z:/picture/008/save_picture_814820.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814806.jpg" />
+  <img src="Z:/picture/008/save_picture_814806.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ FL Studio Producer Edition 20.6.2.1549 Signature Bundle Portable by XpucT [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814800.jpg" />
+  <img src="Z:/picture/008/save_picture_814800.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814769.jpg" />
+  <img src="Z:/picture/008/save_picture_814769.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Norton 360 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814767.jpg" />
+  <img src="Z:/picture/008/save_picture_814767.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Norton AntiVirus 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814765.jpg" />
+  <img src="Z:/picture/008/save_picture_814765.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Cinemagraph Pro 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814764.jpg" />
+  <img src="Z:/picture/008/save_picture_814764.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814757.jpg" />
+  <img src="Z:/picture/008/save_picture_814757.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Beavis And Butt-Head / Бивис и Баттхед 1.1.1 (SEGA Genesis Game) [R
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814742.jpg" />
+  <img src="Z:/picture/008/save_picture_814742.jpg" />
 </div>
 
 

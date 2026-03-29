@@ -6,7 +6,7 @@ JetBrains WebStorm 2016.1.2b Build #WS-145.972 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755093.jpg" />
+  <img src="Z:/picture/008/save_picture_755093.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Xhun Audio - LittleOne 3.1.0 VSTi, VSTi3 (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755089.jpg" />
+  <img src="Z:/picture/008/save_picture_755089.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lyre Le Temps - Outside the box (2013) [MP3|320 Kbps] <Electronic, Hip Hop, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755088.jpg" />
+  <img src="Z:/picture/008/save_picture_755088.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ XnConvert 1.79 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755087.jpg" />
+  <img src="Z:/picture/008/save_picture_755087.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755086.jpg" />
+  <img src="Z:/picture/008/save_picture_755086.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Torch Browser 65.0.0.1617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755078.jpg" />
+  <img src="Z:/picture/008/save_picture_755078.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Icecream PDF Editor 1.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755077.jpg" />
+  <img src="Z:/picture/008/save_picture_755077.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Icecream Screen Recorder PRO 5.92 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755073.jpg" />
+  <img src="Z:/picture/008/save_picture_755073.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Cookie 6.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755070.jpg" />
+  <img src="Z:/picture/008/save_picture_755070.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Start Menu X 5.41 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755029.jpg" />
+  <img src="Z:/picture/008/save_picture_755029.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755028.jpg" />
+  <img src="Z:/picture/008/save_picture_755028.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Google Chrome 42.0.2311.90 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755017.jpg" />
+  <img src="Z:/picture/008/save_picture_755017.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754994.jpg" />
+  <img src="Z:/picture/008/save_picture_754994.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754992.jpg" />
+  <img src="Z:/picture/008/save_picture_754992.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754976.jpg" />
+  <img src="Z:/picture/005/save_picture_754976.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ MAGIX Video Pro X10 16.0.2.306 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754960.jpg" />
+  <img src="Z:/picture/008/save_picture_754960.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Icecream Password Manager 1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754959.jpg" />
+  <img src="Z:/picture/008/save_picture_754959.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754954.jpg" />
+  <img src="Z:/picture/008/save_picture_754954.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Reg Organizer 8.25 DC 06.02.2019 Final RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754953.jpg" />
+  <img src="Z:/picture/008/save_picture_754953.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Chromium 97.0.4692.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754947.jpg" />
+  <img src="Z:/picture/008/save_picture_754947.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Spotify 1.1.76.447 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754936.jpg" />
+  <img src="Z:/picture/008/save_picture_754936.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Adobe Flash Player 17.0.0.169 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754897.jpg" />
+  <img src="Z:/picture/008/save_picture_754897.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VLC media player 2.2.1 Final + Portable (x86) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754887.jpg" />
+  <img src="Z:/picture/008/save_picture_754887.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ BetterZip 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754861.jpg" />
+  <img src="Z:/picture/008/save_picture_754861.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dee C'rell - Nachtmusik (2018) Holm Records [FLAC|Lossless|WEB-DL|tracks] <Moder
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754857.jpg" />
+  <img src="Z:/picture/008/save_picture_754857.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Corvus Corax - Viator (1998) [APE|Lossless|image + .cue] <Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754854.jpg" />
+  <img src="Z:/picture/008/save_picture_754854.jpg" />
 </div>
 
 

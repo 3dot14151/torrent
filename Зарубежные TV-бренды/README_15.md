@@ -1,3 +1,108 @@
+###  Публикация: 1373288   (880138) от 06.04.2020
+
+NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop (2009) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодно в период разлива реки Окаванго обитающая там стая павианов должна передвигаться вплавь по воде, в которой прячутся крокодилы и еще множество неожиданностей ждут их впереди.Производство: Южная Африка, Road Media, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Адриан БэйлиПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07259D5AD0699ADF40ABC794683412666E2B394D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373375   (879959) от 06.04.2020
+
+Discovery: 100 Величайших Открытий / 100 Greatest Discoveries (2004) HDTVRip [720p-LQ] (9 серий)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любое открытие, в какой бы сфере науки оно ни было сделано, способно коренным образом изменить ход эволюции, хотя на первый взгляд далеко не каждое из них покажется нам важным и полезным. Однако есть в истории науки открытия, мгновенно перевернувшие не только нашу повседневную жизнь, но и наше представление о мире.
+Стремление познать себя и окружающий мир — движущая (   Читать дальше...   )Производство: США, thinkfilm, Discovery ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Майк ФаунтинПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42AD6B11AFCF4AD3D8EDF56887C740F7FA10606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104647   (879854) от 15.02.2017
+
+BBC: Секреты устройства античных городов. Афины / The Ancient City: Life in Classical Athens (2015) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_879854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из прекраснейших городов в мире. Во многом именно Афины определили наш идеал города и гражданина. В современном мире много мегаполисов, которые значительно выросли со времён античности и всё же создание древних Афин стало грандиозным достижением. Все аспекты повседневной жизни, от обороны до утилизации отходов, решали граждане. В конечном счёте эта система (   Читать дальше...   )Телекомпания: Brave New Media WalesЖанр: Документальный, историяРежиссер: Черри ДорреттПеревод: "Видеофильм ТВ", двуголосый закадровый, профессиональныйПродолжительность: 00:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B725C25FE83F26D3233BB4AA3904CE95555BB12D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640154   (878746) от 11.04.2013
+
+Discovery. Как устроена Вселенная / Discovery. How the Universe Works (2010) BDRemux [1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_878746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная великолепная передача канала Discovery. Здесь нам расскажут теорию о том как образовалась вселенная, галактики, солнечные системы, планеты, звезды и т. д. И все это очень красиво нарисовано. В действительности тема космоса одна из наиболее интересных тем. Ведь мы даже не знаем все процессы нашей галактики, а есть ещё миллиарды других, незнакомых нам галактик.Сейчас (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйФормат: MKVПродолжительность: 8 x ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560CC95B1AB627B4BAD5C9188D00FDC5CF523CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373908   (878255) от 07.04.2020
 
 NG: Спасти Титаник: сокровища с глубины / Save the Titanic: Treasures from the Deep (2019) HDTVRip [H.264/1080i-LQ]
@@ -6,7 +111,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878255.jpg" />
+  <img src="Z:/picture/005/save_picture_878255.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878247.jpg" />
+  <img src="Z:/picture/005/save_picture_878247.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878118.jpg" />
+  <img src="Z:/picture/005/save_picture_878118.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877399.jpg" />
+  <img src="Z:/picture/005/save_picture_877399.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877127.jpg" />
+  <img src="Z:/picture/005/save_picture_877127.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876843.jpg" />
+  <img src="Z:/picture/005/save_picture_876843.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876660.jpg" />
+  <img src="Z:/picture/005/save_picture_876660.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876470.jpg" />
+  <img src="Z:/picture/005/save_picture_876470.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876366.jpg" />
+  <img src="Z:/picture/005/save_picture_876366.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874933.jpg" />
+  <img src="Z:/picture/005/save_picture_874933.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874263.jpg" />
+  <img src="Z:/picture/008/save_picture_874263.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874257.jpg" />
+  <img src="Z:/picture/008/save_picture_874257.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873209.jpg" />
+  <img src="Z:/picture/008/save_picture_873209.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872339.jpg" />
+  <img src="Z:/picture/008/save_picture_872339.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ BBC: Гений Марии Кюри: женщина, осветившая мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872328.jpg" />
+  <img src="Z:/picture/008/save_picture_872328.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872213.jpg" />
+  <img src="Z:/picture/008/save_picture_872213.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ Discovery. Техногеника. Буран (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871602.jpg" />
+  <img src="Z:/picture/008/save_picture_871602.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871051.jpg" />
+  <img src="Z:/picture/008/save_picture_871051.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870801.jpg" />
+  <img src="Z:/picture/008/save_picture_870801.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870266.jpg" />
+  <img src="Z:/picture/008/save_picture_870266.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869958.jpg" />
+  <img src="Z:/picture/008/save_picture_869958.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869830.jpg" />
+  <img src="Z:/picture/008/save_picture_869830.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74A5E00750B254A9EB6CDFF7172882FC05DD12C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106315   (869825) от 21.02.2017
-
-Nat Geo Wild: Дикие острова: Невиданные острова / Unseen Islands (2015) HDTVRip [H.264/720p] (сезон 1, серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869825.jpg" />
-</div>
-
-
-###  Подробнее
-
-До ближайшего населённого пункта тысячи километров.Эти скалы, разбросанные по семи морям, в числе самых удалённых мест на Земле. Но жизнь здесь кипит. Город пингвинов по населению не уступает Вашингтону, океан вокруг полон жизни. Края с жестокими нравами, где безобидные птицы становятся кровопийцами. Берега, на которых заканчиваются кругосветные путешествия и начинается (   Читать дальше...   )Телекомпания: США, Warenhouse 51 Productions & Redfern Natural History ProductionsЖанр: ДокументальныйРежиссер: Стюарт МакферсонПеревод: Одноголосый закадровый, профессиональный, озвучено на студии Велес, текст читает Олег БеловПродолжительность: 2x~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF99AC72B0C94FF50081BD89BC9E99FFF17F8CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106813   (869666) от 21.02.2017
-
-Discovery. Города живые и мёртвые. Молога - Мышкин HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869666.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Трагедия Мологи - Российской Атлантиды и возвышение города-музея Мышкина, главного туристического центра Ярославской области. Молога - был основан еще в XII веке на том месте, где одноименная река впадает в Волгу. Благодаря такому близкому соседству рек при весеннем разливе местные луга затапливались, на них оставался ил, и летом здесь росла пышная трава, служившая (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCF8A8374304A90C2E678128A2B4841763857E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496885   (869506) от 19.09.2021
-
-Теория относительности Эйнштейна / The Einstein Theory of Relativity (1923) WEBRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869506.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 20-го века теория относительности Альберта Эйнштейна была революционной, поскольку она дала новое восприятие реальности. С помощью анимированных иллюстраций братья Флейшеры простым языком объясняют общие принципы этой теории.Производство: США, Out of the Inkwell FilmsЖанр: Документальный, научно-популярныйРежиссер: Дэйв Флейшер, Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17DDB065412AD4D209E4ACCC58D6CA1CAC8BCEE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106567   (869382) от 21.02.2017
-
-Вселенная твоего тела / You Planet (2012) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неведомый мир, выходящий за пределы воображения... Горы и каньоны, впадины и пологие равнины... Здесь обитают самые невообразимые живые создания. И их тут - мириады, несметное множество. На этой планете свыше ста триллионов обитателей. Казалось бы, этот причудливый мир должен находиться на расстоянии в несколько световых лет от Земли. Но эта диковинная планета расположена (   Читать дальше...   )Телекомпания: АвстрияЖанр: ДокументальныйРежиссер: Мартин МесарошПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3EA4074A5D9B32823138494E205AEBDD6FB1D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

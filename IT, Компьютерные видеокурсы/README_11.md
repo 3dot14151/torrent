@@ -1,3 +1,141 @@
+###  Публикация: 1453022   (1027171) от 09.03.2021
+
+Udemy, Maher Haddad | MikroTik CAPsMAN with LABS (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многих из вас, как сетевых инженеров, попросили установить полную беспроводную сеть в отеле, торговом центре или на выставках, чтобы Wi-Fi покрыл всю территорию, чтобы пользователи могли пользоваться беспроводным доступом в Интернет. В такой сложной сети вам требуются десятки, а иногда и сотни точек беспроводного доступа (AP) для обеспечения полного покрытия.
+Эти (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845A72784ADD417AE661FEC830CE255685F7BB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453021   (1027170) от 09.03.2021
+
+Udemy, Maher Haddad |  MikroTik Traffic Control with LABS  (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как контролировать трафик на MikroTik? Вопрос, который всегда задают студенты. Если у вас есть сеть, то у вас есть генерируемый трафик, и Mikrotik Router может контролировать трафик так, как вы хотите.
+Например, вы можете создать правила фильтрации для фильтрации нежелательного трафика, проходящего через маршрутизатор или сам маршрутизатор. Вы можете использовать (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 07:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5779C1B47698E59A63A906CE61ABE4BCF496471A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453061   (1027127) от 09.03.2021
+
+SkillUP, Евгений Макаренко |  Вводный курс Тестировщик ПО (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чему научитесь и что узнаете на этом курсе:
+С чего начать: пошаговый алгоритм
+Введение в Software Testing
+Где деньги лежат? :)(   Читать дальше...   )Производство: SkillUPЖанр: ТестированиеПродолжительность: 08:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913CD8CA25F346B1168094F9CA87CCB84AD413DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453371   (1027020) от 10.03.2021
+
+Udemy, Maximilian Schwarzmüller | Python - The Practical Guide (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите изучить Python «на работе», создавая увлекательный курсовой проект? Этот курс для тебя!
+Это очень практичный курс Python, который обучает вас Python с нуля - предварительный опыт программирования не требуется!
+Python - вероятно, самый популярный язык программирования, который вы можете изучить в наши дни!
+Он очень популярен, потому что его легко изучить и (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 16:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114F032D3C1CAE25915B79A1A68B39A2CEF3C468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453307   (1027002) от 10.03.2021
+
+Дегтярев Александр | JavaScript на коленке (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный материал представляет уроки для полных новичков не знакомых с программированием вообще. Уроки имеют минимум теории, и каждый урок строится на задании, которое обучающийся должен выполнить сам, просто посмотрев на текущий код с использованием логического мышления. Задания являются простыми, что позволяет новичкам с лёгкостью влиться в основы разработки ПО.Жанр: Обучающее видеоПродолжительность: 01:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6DC446610867E34C526D5C8CBC5CE738A8418B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453422   (1026989) от 10.03.2021
 
 Udemy, Renat Lotfullin | Excel VBA – Программирование макросов в Excel  (2021) PCRec
@@ -6,7 +144,7 @@ Udemy, Renat Lotfullin | Excel VBA – Программирование макр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026989.jpg" />
 </div>
 
 
@@ -35,7 +173,7 @@ Udemy, Lazaro Diaz | The Only IP Course you Will Ever Need!  (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026905.jpg" />
 </div>
 
 
@@ -63,7 +201,7 @@ Udemy, TCM Security  | Windows Privilege Escalation for Beginners (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026902.jpg" />
 </div>
 
 
@@ -92,7 +230,7 @@ Udemy, TCM Security  | Linux Privilege Escalation for Beginners  (2020) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026895.jpg" />
 </div>
 
 
@@ -121,7 +259,7 @@ Udemy, Maher Haddad | MikroTik Monitoring with LABS  (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026878.jpg" />
 </div>
 
 
@@ -147,7 +285,7 @@ Udemy, Anton Golosnichenko |  React Native с нуля на практике [20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026829.jpg" />
 </div>
 
 
@@ -175,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026815.jpg" />
 </div>
 
 
@@ -202,7 +340,7 @@ Udemy, Tomislav Fedek | MikroTik configuration as failover and firewall setup (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026723.jpg" />
 </div>
 
 
@@ -230,7 +368,7 @@ Udemy, E-Preceptor Online Training | MikroTik Basic - Module 1 based on the MTCN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026721.jpg" />
 </div>
 
 
@@ -258,7 +396,7 @@ Udemy, Maher Haddad | MikroTik Advanced BGP with LABS  (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026718.jpg" />
 </div>
 
 
@@ -285,7 +423,7 @@ Udemy, Maher Haddad | MikroTik Hotspot with User Manager (2018) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026704.jpg" />
 </div>
 
 
@@ -312,7 +450,7 @@ Udemy, Maher Haddad | Learn MikroTik ROUTE with Hands-on LABS from scratch (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026703.jpg" />
 </div>
 
 
@@ -339,7 +477,7 @@ Udemy, Maher Haddad | MikroTik IPv6 Engineer with LABS (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026700.jpg" />
 </div>
 
 
@@ -367,7 +505,7 @@ Udemy, Сергей Голяков и др. | Базовый курс по ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026656.jpg" />
 </div>
 
 
@@ -395,7 +533,7 @@ Udemy, Maher Haddad | MikroTik Switching - Spanning Tree Protocol  (2019) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026548.jpg" />
 </div>
 
 
@@ -422,7 +560,7 @@ Udemy, Maher Haddad | MikroTik Failover Setup with LABS (2019) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026537.jpg" />
 </div>
 
 
@@ -448,7 +586,7 @@ Udemy | MikroTik from Beginner to Expert (2018) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026525.jpg" />
 </div>
 
 
@@ -477,7 +615,7 @@ Udemy, Maher Haddad | Network Automation on MikroTik using Python (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026520.jpg" />
 </div>
 
 
@@ -503,7 +641,7 @@ Udemy, Khaled Alhaibi | Mikrotik Vpn Tunnels Real Labs With OpenVpn, pptp, 2tp,s
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026509.jpg" />
 </div>
 
 
@@ -532,7 +670,7 @@ Udemy, Paweł Ciepliński | Mikrotik MTCNA (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026507.jpg" />
 </div>
 
 
@@ -560,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026458.jpg" />
 </div>
 
 
@@ -574,141 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68393BE6CF70CA9FCCC0BF2E6E32773001642037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453935   (1026456) от 13.03.2021
-
-Дмитрий Романов | Курс Data Science и нейронные сети на Python (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте Middle AI разработчиком за 7 месяцев и реализуйте собственный нейросетевой проект!Производство: Дмитрий РомановЖанр: Нейронные сетиПродолжительность: 15:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA101ABFE3A649CBE81DDE2FB5B73EE3CE44708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454419   (1026331) от 14.03.2021
-
-Udemy, Ervis Trupja | The Complete Guide to ASP.NET Core (.NET 5) Web API  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-API - это интерфейс прикладного программирования для Интернета. С помощью веб-API вы получаете доступ ко всем функциям HTTP, таким как URI, заголовки запроса / ответа, форматирование контента и т. Д.
-Этот курс научит вас всему, что вам нужно знать для создания личных или коммерческих приложений с использованием веб-API Asp.Net Core (.NET 5) в качестве среды разработки. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BDD2A1F0A66733F2796C6F77E590722C19771A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454221   (1026314) от 14.03.2021
-
-Udemy, Maher Haddad | VLAN on MikroTik with LABS (RouterOS & SwOS) (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настройка VLAN на продуктах MikroTik может быть проблемой. Существуют разные способы создания VLAN, и конфигурация отличается от продукта MikroTik к другому.
-По этой причине я создал этот курс, чтобы показать вам все возможные способы создания VLAN на продуктах MikroTik. Это будет включать настройку VLAN на RouterBoards с использованием RouterOS, на коммутаторах (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797CEA1142E281390380799096D632D679F5F546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453506   (1026313) от 14.03.2021
-
-Udemy, Aviral Mishra | Complete Electronics Hardware Design Course 2021  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я разделил этот курс на 4 основных раздела:
-1-й раздел - это выбор каждого компонента, входящего в схему.
-2-й раздел - схематическое проектирование путем чтения таблиц данных.
-3-й стек 4L / 6L / 8L / 12L, планирование и выполнение компонентов.(   Читать дальше...   )Производство: UdemyЖанр: ЭлектроникаЯзык озвучки: АнглийскийПродолжительность: 22:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CC9C31024BFC1D2048E000E1A1F6A564EF9886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454589   (1026193) от 15.03.2021
-
-Дегтярев Александр | Основы программирования на JavaScript. Условия (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение курса по основам JavaScript для абсолютных новичков, где основной уклон сделан на "условия". Уроки имеют минимум теории, и каждый урок строится на задании, которое обучающийся должен выполнить сам, просто посмотрев на текущий код с использованием логического мышления.Жанр: Обучающее видеоПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1700B8662A700A77D34ABD837D41029547FB17F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

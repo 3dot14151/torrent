@@ -1,3 +1,38 @@
+###  Публикация: 218835   (630786) от 15.07.2010
+
+The Alan Parsons Project - 5 Albums (1977-1986) (Japan Paper Sleeve SHM-CD) (2008) [MP3|320 kbps]<Progressive Rock / Soft Rock / Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_630786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereotomy (07:17)
+02. Beaujolais (04:27)
+03. Urbania (Instrumental) (04:59)
+04. Limelight (04:39)
+05. In The Real World (04:21)
+06. Where's The Walrus? (Instrumental) (07:30)
+07. Light Of The World (06:19)
+08. Chinese Whispers (Instrumental) (01:01)
+09. Stereotomy Two (01:19)
+10. Light Of The World (Backing Track) (06:12)(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 01:01:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035113   (630587) от 15.07.2016
 
 Tomorrow - Tomorrow (1968) Reissue, 1991, See For Miles Records Ltd. [MP3|320 Kbps] <Rock, Psychedelic Rock>
@@ -6,7 +41,7 @@ Tomorrow - Tomorrow (1968) Reissue, 1991, See For Miles Records Ltd. [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630587.jpg" />
+  <img src="Z:/picture/008/save_picture_630587.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ Fever Tree - Fever Tree / Another Time Another Place (1968) 2006 Reissue Collect
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630584.jpg" />
+  <img src="Z:/picture/008/save_picture_630584.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
+  <img src="Z:/picture/008/save_picture_629990.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628804.jpg" />
+  <img src="Z:/picture/008/save_picture_628804.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ Mutzie - Light of Your Shadow (1970) Reissue Synton Archive Productions[MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628672.jpg" />
+  <img src="Z:/picture/008/save_picture_628672.jpg" />
 </div>
 
 
@@ -157,7 +192,7 @@ Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628577.jpg" />
+  <img src="Z:/picture/008/save_picture_628577.jpg" />
 </div>
 
 
@@ -186,7 +221,7 @@ VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628187.jpg" />
+  <img src="Z:/picture/008/save_picture_628187.jpg" />
 </div>
 
 
@@ -215,7 +250,7 @@ Polestar 1 - Flying Thru The Universe (1980) LP [MP3|320 Kbps] <Electronic, Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628071.jpg" />
+  <img src="Z:/picture/008/save_picture_628071.jpg" />
 </div>
 
 
@@ -244,7 +279,7 @@ Pink Floyd - Echoes - The Best Of Pink Floyd (2001) Remastered, 2016, Parlophone
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628034.jpg" />
+  <img src="Z:/picture/008/save_picture_628034.jpg" />
 </div>
 
 
@@ -270,7 +305,7 @@ Brownsville Station - Air Special (1978) Remastered, 2006, Wounded Bird Records 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627600.jpg" />
+  <img src="Z:/picture/008/save_picture_627600.jpg" />
 </div>
 
 
@@ -299,7 +334,7 @@ Imagine Dragons - Evolve (2017) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627016.jpg" />
+  <img src="Z:/picture/008/save_picture_627016.jpg" />
 </div>
 
 
@@ -328,7 +363,7 @@ Clepsydra - Tropicarium (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626405.jpg" />
+  <img src="Z:/picture/008/save_picture_626405.jpg" />
 </div>
 
 
@@ -357,7 +392,7 @@ Eric Charles Band - Can You Feel It? (2015) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626402.jpg" />
+  <img src="Z:/picture/008/save_picture_626402.jpg" />
 </div>
 
 
@@ -386,7 +421,7 @@ Christina - The Light (2015) [MP3|320 кб/с]<Progressive / Art Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626398.jpg" />
+  <img src="Z:/picture/008/save_picture_626398.jpg" />
 </div>
 
 
@@ -415,7 +450,7 @@ Kali Ra - Cocoon (2015) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626397.jpg" />
+  <img src="Z:/picture/008/save_picture_626397.jpg" />
 </div>
 
 
@@ -444,7 +479,7 @@ Scream Silence - Heartburnt (2015) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626280.jpg" />
+  <img src="Z:/picture/008/save_picture_626280.jpg" />
 </div>
 
 
@@ -473,7 +508,7 @@ Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626106.jpg" />
+  <img src="Z:/picture/008/save_picture_626106.jpg" />
 </div>
 
 
@@ -502,7 +537,7 @@ Crack The Sky - Crack The Sky (1975) Remastered, 2002, Lifesong [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625917.jpg" />
+  <img src="Z:/picture/008/save_picture_625917.jpg" />
 </div>
 
 
@@ -531,7 +566,7 @@ Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624447.jpg" />
+  <img src="Z:/picture/008/save_picture_624447.jpg" />
 </div>
 
 
@@ -560,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623921.jpg" />
+  <img src="Z:/picture/008/save_picture_623921.jpg" />
 </div>
 
 
@@ -589,7 +624,7 @@ Screamin' Rebel Angels - Heel Grinder (2019) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622498.jpg" />
+  <img src="Z:/picture/008/save_picture_622498.jpg" />
 </div>
 
 
@@ -618,7 +653,7 @@ Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622235.jpg" />
+  <img src="Z:/picture/008/save_picture_622235.jpg" />
 </div>
 
 
@@ -647,7 +682,7 @@ Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622224.jpg" />
+  <img src="Z:/picture/008/save_picture_622224.jpg" />
 </div>
 
 
@@ -676,7 +711,7 @@ Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622116.jpg" />
+  <img src="Z:/picture/008/save_picture_622116.jpg" />
 </div>
 
 
@@ -705,7 +740,7 @@ Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622067.jpg" />
+  <img src="Z:/picture/008/save_picture_622067.jpg" />
 </div>
 
 
@@ -719,35 +754,6 @@ Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E14FB829DDACE9F8C34318DA1D7AA6729C16B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145530   (621749) от 25.06.2017
-
-Mom's Apple Pie - Mom's Apple Pie (1972) Reissue, 2015, Hifly Sound Anstalt [MP3|320 Kbps] <Jazz Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Just Wanna Make Love To You
-2. Lay Your Money Down
-3. Good Days
-4. People(   Читать дальше...   )Жанр: Jazz Rock, Classic RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B13FDB124E0746016491EE510F727D29FF63681
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879386.jpg" />
+  <img src="Z:/picture/005/save_picture_879386.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879382.jpg" />
+  <img src="Z:/picture/005/save_picture_879382.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SparkyLinux 3.3 (Легкие дистрибутивы) [i486, x86-64] 6xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879351.jpg" />
+  <img src="Z:/picture/005/save_picture_879351.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Aiseesoft Total Media Converter 8.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879295.jpg" />
+  <img src="Z:/picture/005/save_picture_879295.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879294.jpg" />
+  <img src="Z:/picture/005/save_picture_879294.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ John O'Callaghan - Armada Collected (2015) [FLAC|Lossless|tracks+.cue] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879292.jpg" />
+  <img src="Z:/picture/005/save_picture_879292.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879289.jpg" />
+  <img src="Z:/picture/005/save_picture_879289.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Alexander Popov - Interplay 001-087 (2014-2016) [MP3|320 кб/с] <Trance, Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879286.jpg" />
+  <img src="Z:/picture/005/save_picture_879286.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Tipard Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879281.jpg" />
+  <img src="Z:/picture/005/save_picture_879281.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879276.jpg" />
+  <img src="Z:/picture/005/save_picture_879276.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Avast Premier 17.1.2286 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879274.jpg" />
+  <img src="Z:/picture/005/save_picture_879274.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879266.jpg" />
+  <img src="Z:/picture/005/save_picture_879266.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879258.jpg" />
+  <img src="Z:/picture/005/save_picture_879258.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ BetterZip 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879202.jpg" />
+  <img src="Z:/picture/005/save_picture_879202.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879199.jpg" />
+  <img src="Z:/picture/005/save_picture_879199.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Aiseesoft Video Converter Ultimate 9.0.18 RePack (& Portable) by TryRooM [11.03.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879196.jpg" />
+  <img src="Z:/picture/005/save_picture_879196.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aiseesoft MP4 Video Converter 8.1.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879180.jpg" />
+  <img src="Z:/picture/005/save_picture_879180.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ WinX HD Video Converter Deluxe 5.9.3 Build on Feb 29 2016 RePack by FoXtrot [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879177.jpg" />
+  <img src="Z:/picture/005/save_picture_879177.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VueScan Pro 9.5.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879172.jpg" />
+  <img src="Z:/picture/005/save_picture_879172.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ CDBurnerXP 4.5.6.6053 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879161.jpg" />
+  <img src="Z:/picture/005/save_picture_879161.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879152.jpg" />
+  <img src="Z:/picture/005/save_picture_879152.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ ZWCAD 2017 SP2 2017.01.23 (13656) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879151.jpg" />
+  <img src="Z:/picture/005/save_picture_879151.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ DAEMON Tools Lite 10.5.1.230 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879144.jpg" />
+  <img src="Z:/picture/005/save_picture_879144.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879141.jpg" />
+  <img src="Z:/picture/005/save_picture_879141.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879132.jpg" />
+  <img src="Z:/picture/005/save_picture_879132.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ ALLPlayer 4.6.0.0 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879128.jpg" />
+  <img src="Z:/picture/005/save_picture_879128.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1619196   (201236) от 15.03.2023
+
+One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Movie] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пираты Соломенной шляпы встречают певицу Уту, чей голос и песни покорили мир. Девушка готовится к первому концерту, когда вдруг выясняется, что она — дочь капитана Шанкса.Производство: Япония, TOEI AnimationЖанр: ПриключенияРежиссер: Танигути ГороПеревод: Ziggy TeamЯзык озвучки: Русский (Nazel & Freya)Субтитры: РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C4B8F406BB52EFFB41017122EC60963FEF3096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620555   (201004) от 20.03.2023
 
 Может, я встречу тебя в подземелье? 4 (часть 2) | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV Shinshou Yakusai Hen | DanMachi IV [2023, TV, 11 из 11] WebRip 396p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201004.jpg" />
+  <img src="Z:/picture/004/save_picture_201004.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200753.jpg" />
+  <img src="Z:/picture/005/save_picture_200753.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200669.jpg" />
+  <img src="Z:/picture/005/save_picture_200669.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200648.jpg" />
+  <img src="Z:/picture/005/save_picture_200648.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200476.jpg" />
+  <img src="Z:/picture/005/save_picture_200476.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200465.jpg" />
+  <img src="Z:/picture/005/save_picture_200465.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200452.jpg" />
+  <img src="Z:/picture/005/save_picture_200452.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200372.jpg" />
+  <img src="Z:/picture/005/save_picture_200372.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200353.jpg" />
+  <img src="Z:/picture/005/save_picture_200353.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200340.jpg" />
+  <img src="Z:/picture/005/save_picture_200340.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200213.jpg" />
+  <img src="Z:/picture/005/save_picture_200213.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200045.jpg" />
+  <img src="Z:/picture/005/save_picture_200045.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199808.jpg" />
+  <img src="Z:/picture/005/save_picture_199808.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199421.jpg" />
+  <img src="Z:/picture/005/save_picture_199421.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199249.jpg" />
+  <img src="Z:/picture/005/save_picture_199249.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198625.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198248.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198215.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197996.jpg" />
+  <img src="Z:/picture/004/save_picture_197996.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197170.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196944.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196724.jpg" />
+  <img src="Z:/picture/004/save_picture_196724.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196519.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196312.jpg" />
+  <img src="Z:/picture/004/save_picture_196312.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196227.jpg" />
+  <img src="Z:/picture/004/save_picture_196227.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1162060EC618CD05C4F096448EFAFB6601F648A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626969   (196221) от 02.07.2023
-
-Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [2023, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Однажды космическая империя Азатот отправляет на маленькую планетку Земля исследователя Лайзу Луну. При первом знакомстве с Землёй Лайза решает, что этот отсталый мирок с допотопными технологиями и никчёмными людишками заслуживает уничтожения. И её мнение не меняется до тех пор, пока, зайдя в кафе, она не сталкивается с созданием под названием кошка. Шерстяное (   Читать дальше...   )Производство: Япония, студия SynergySP / シナジーSPЖанр: комедия, повседневность, фантастикаРежиссер: Хатори ДзюнЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (ShikokuStudio)Субтитры: Русские надписи, русские (софтсаб), FrenchПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B088F00816FB799EECE152E1A4F7A05C6391C10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

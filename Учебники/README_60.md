@@ -1,3 +1,55 @@
+###  Публикация: 940930   (464617) от 26.09.2015
+
+А.В. Бадиков, П.В. Бондарев | Системы контроля и управления доступом. Лабораторный практикум (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464617.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лабораторном практикуме представлены четыре лабораторные работы. Две из них посвящены изучению контроллеров систем контроля и управления доступом и их сетей, одна лабораторная работа – по изучению устройств биометрической идентификации, и одна лабораторная работа – по созданию автоматизированной точки доступа (автоматизация работы турникета). В описаниях лабораторных (   Читать дальше...   )Жанр: БезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3720ABC8739ACB38FBD1D89DECA64D2BC9BEB236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940974   (464456) от 26.09.2015
+
+А.М. Сомов | Распространение радиоволн и антенны спутниковых систем связи (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены принципы организации систем спутниковой связи и распространения радиоволн в этих системах. Приведены обширные сведения об антеннах земных и бортовых станций, методах расчёта их основных параметров. Рассмотрены используемые на практике распределение полос частот между службами и принципы организации зон территориального обслуживания спутниками связи. Особое (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EA35B281454E8877B9D2F0EEBEDF73E4D99E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940995   (464163) от 26.09.2015
 
 С.В. Фролов, А.Ш. Багаутдинова | Высшая математика: этюды по теории и её приложениям (2012) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464163.jpg" />
+  <img src="Z:/picture/008/save_picture_464163.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463433.jpg" />
+  <img src="Z:/picture/008/save_picture_463433.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463307.jpg" />
+  <img src="Z:/picture/008/save_picture_463307.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463198.jpg" />
+  <img src="Z:/picture/008/save_picture_463198.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462389.jpg" />
+  <img src="Z:/picture/008/save_picture_462389.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461921.jpg" />
+  <img src="Z:/picture/008/save_picture_461921.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461620.jpg" />
+  <img src="Z:/picture/008/save_picture_461620.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457611.jpg" />
+  <img src="Z:/picture/008/save_picture_457611.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456533.jpg" />
+  <img src="Z:/picture/008/save_picture_456533.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455409.jpg" />
+  <img src="Z:/picture/008/save_picture_455409.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453070.jpg" />
+  <img src="Z:/picture/008/save_picture_453070.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452651.jpg" />
+  <img src="Z:/picture/008/save_picture_452651.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452523.jpg" />
+  <img src="Z:/picture/008/save_picture_452523.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452441.jpg" />
+  <img src="Z:/picture/008/save_picture_452441.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451078.jpg" />
+  <img src="Z:/picture/008/save_picture_451078.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450747.jpg" />
+  <img src="Z:/picture/008/save_picture_450747.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450504.jpg" />
+  <img src="Z:/picture/008/save_picture_450504.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450378.jpg" />
+  <img src="Z:/picture/008/save_picture_450378.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450355.jpg" />
+  <img src="Z:/picture/008/save_picture_450355.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449094.jpg" />
+  <img src="Z:/picture/008/save_picture_449094.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447718.jpg" />
+  <img src="Z:/picture/008/save_picture_447718.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446498.jpg" />
+  <img src="Z:/picture/008/save_picture_446498.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445611.jpg" />
+  <img src="Z:/picture/008/save_picture_445611.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445150.jpg" />
+  <img src="Z:/picture/008/save_picture_445150.jpg" />
 </div>
 
 
@@ -630,76 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3A3500F7F1D24CF88D87307A34D80F5C3801AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553254   (443727) от 28.09.2012
-
-Ю.С. Очан | Книги по методам математической физики [1966, 1967] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название: Методы математической физики
-Автор: Юрий Семенович Очан
-Издательство: Высшая школа
-Год издания: 1966
-Размер: 7,9 МБ
-
-Учебное пособие состоит из трех частей: "Векторный анализ (математическая теория поля)", "Краевые задачи. Ортогональные системы функций", "Уравнения математической физики". Много решенных примеров и задач.
-
-Название:Сборник задач по методам математической физики
-Автор: Ю.С. 0чан(   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204664555A6B4EA3B500CFF943DC1FF1DBF5205B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553248   (443611) от 28.09.2012
-
-«МГУ» | Книги по математической физике [1993, 1998] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор: Свешников А.Г., Боголюбов А.Н., Кравцов В.В.
-Название: Лекции по математической физике
-Издательство: Издательство МГУ
-Год: 1993
-Размер: 3.92 МБ
-ISBN: 978-5-211-02073-1
-
-В книге рассматриваются основные методы исследования краевых и начально-краевых задач для дифференциальных уравнений математической физики. Отличительной особенностью учебного пособия является непосредственная связь между физической сущностью изучаемых явлений и математическими методами их исследования В пособии содержится математический аппарат, знание которого необходимо студентам-физикам для дальнейшей работы в области экспериментальной и теоретической физики Одна из глав посвящена изложению теории специальных функций — важнейшему аналитическому аппарату исследования краевых задач математической физики
-Для студентов физических специальностей университетов.
-(   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC435B783FEDC219AEC82E7B8F3ECD1AD80468B
 ```
 
 https://mybot314.ru/tekegram_catalog/

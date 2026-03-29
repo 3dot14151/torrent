@@ -1,3 +1,29 @@
+###  Публикация: 1256645   (349642) от 24.10.2018
+
+Останься со мной / The Keeping Hours (2017) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_349642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад в жизни главных героев произошла трагедия - в автомобильной аварии погиб их сын, Джейкоб. И вот спустя десять лет благодаря череде мистических событий у разведённых супругов появляется шанс искупить вину и обрести прощение.Производство: США / Blumhouse ProductionsЖанр: Ужасы, Триллер, Драма, МелодрамаРежиссер: Карен МонкриффАктеры: Ли Пейс, Кэрри Кун, Эми Смарт, Молли Хэйгэн, Ана Ортис, Анна Диоп, Кристина Видаль, Рэй Бэйкер, Клифф Чемберлен, Джейн ДэйлиПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:35:43Реклама: Присутствует текстовая, аудио и видео реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0352F24AC83E68465076D455716B55EC2C4C131F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329771   (349607) от 06.10.2019
 
 Безмолвные свидетели (Покойники) / Chen mo de zheng ren (Bodies at Rest) (2019) WEBRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349607.jpg" />
+  <img src="Z:/picture/008/save_picture_349607.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349408.jpg" />
+  <img src="Z:/picture/008/save_picture_349408.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349069.jpg" />
+  <img src="Z:/picture/008/save_picture_349069.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348900.jpg" />
+  <img src="Z:/picture/008/save_picture_348900.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348766.jpg" />
+  <img src="Z:/picture/008/save_picture_348766.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348627.jpg" />
+  <img src="Z:/picture/008/save_picture_348627.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348500.jpg" />
+  <img src="Z:/picture/008/save_picture_348500.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348499.jpg" />
+  <img src="Z:/picture/008/save_picture_348499.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ S.P.L. Звезды судьбы 3: Парадокс / Saat po long 3: tan lang 
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348495.jpg" />
+  <img src="Z:/picture/008/save_picture_348495.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346463.jpg" />
+  <img src="Z:/picture/008/save_picture_346463.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346323.jpg" />
+  <img src="Z:/picture/008/save_picture_346323.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346190.jpg" />
+  <img src="Z:/picture/008/save_picture_346190.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346181.jpg" />
+  <img src="Z:/picture/008/save_picture_346181.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345123.jpg" />
+  <img src="Z:/picture/008/save_picture_345123.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345118.jpg" />
+  <img src="Z:/picture/008/save_picture_345118.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345028.jpg" />
+  <img src="Z:/picture/008/save_picture_345028.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344109.jpg" />
+  <img src="Z:/picture/008/save_picture_344109.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343938.jpg" />
+  <img src="Z:/picture/008/save_picture_343938.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343121.jpg" />
+  <img src="Z:/picture/008/save_picture_343121.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343079.jpg" />
+  <img src="Z:/picture/008/save_picture_343079.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343076.jpg" />
+  <img src="Z:/picture/008/save_picture_343076.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343072.jpg" />
+  <img src="Z:/picture/008/save_picture_343072.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343068.jpg" />
+  <img src="Z:/picture/008/save_picture_343068.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343062.jpg" />
+  <img src="Z:/picture/008/save_picture_343062.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343060.jpg" />
+  <img src="Z:/picture/008/save_picture_343060.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF5FDD16B89F307215A5B339F047018CC6ED4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330179   (342847) от 09.10.2019
-
-Бешеная / Rabid (2019) WEBRip [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подающая надежды модель попадает в страшную аварию. Единственный шанс исправить последствия — радикальное непроверенное лечение стволовыми клетками. Чудесным образом после операции она становится красивее, чем до несчастного случая. Вместе с уверенностью в себе растёт и сексуальный аппетит, что приводит к нескольким жарким свиданиям. Но девушка не знает, что теперь (   Читать дальше...   )Производство: Канада / Back 40 Pictures, Media Finance CapitalЖанр: Ужасы, фантастикаРежиссер: Джен Соска, Сильвия СоскаАктеры: Лора Вандервурт, Стивен Хусар, Грег Брайк, Стивен Макхетти, Хеннеки Талбот, СМ Панк, Бен Холлингсворт, МакКензи Грэй, Джен Соска, Сильвия СоскаПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:46:47Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1118F56D30FF5B062CFCED78805F18721EAB35D
 ```
 
 https://mybot314.ru/tekegram_catalog/

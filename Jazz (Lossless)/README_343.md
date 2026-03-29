@@ -1,3 +1,119 @@
+###  Публикация: 1770620   (71960) от 02.01.2025
+
+Andre Previn & Thomas Stevens - Play A Classic American Songbook (1992) DRG Records [FLAC|Lossless|image + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust/Skylark [6:09]
+02. It Might as Well Be Spring [4:09]
+03. My Funny Valentine [4:37]
+04. Slowly/Laura [5:07](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8185206B8CF924DCC3BB2F74674ED4F1DCBBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771033   (71930) от 05.01.2025
+
+VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mongo Santamaria - Grass Roots [00:04:14]
+02. Freddie Hubbard - The Return of the Prodigal Son [00:05:42]
+03. Herbie Mann - Kidnappin' Lover [00:07:40]
+04. Eddie Harris - Time to Do Your Thing [00:06:08](   Читать дальше...   )Жанр: JazzПродолжительность: 01:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05129CC36F14181EBD7F3C3BA162BA0DA5244E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771206   (71921) от 05.01.2025
+
+Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Death Took a Holiday - 6:36
+02 - Danny - 4:48
+03 - Sonny & Lorraine - 5:40
+04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771569   (71860) от 07.01.2025
+
+VA - Pop International Hits (Bossa Nova Lounge Jazz Covers) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bebo Best & MagnetiC4 - Creep (Acoustic Mix) (3:42)
+02.  Melania & Christian Lisi - Thank You (Bossa Version) (2:55)
+03.  KISS MY NECK - Wicked Game (5:18)
+04.  Black Mighty Wax & Silvia Donati - Loosing My Religion (4:41)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB566380E082D87BC6E2A1403922570C350122E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771571   (71826) от 07.01.2025
 
 Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -6,7 +122,7 @@ Enrico Pieranunzi & Bert Joris - Afterglow (2021) Challenge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71826.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Enrico Pieranunzi & Marc Johnson - Yellow & Blue Suites (1990) 2008, Challenge J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71801.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71744.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Boogie Woogie & Blues Piano: Milestones of Legends (1920-e -1960-e) 10CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71734.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71727.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71725.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71724.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71715.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71692.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71675.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71615.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71563.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71558.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Blue Notes, Vol.1: The Essence Of Modern Jazz (1953 - 1962) 10CD, 1999, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71531.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Oscar Peterson - Get Happy (1949 - 1950) 2019, Dreyfus Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71515.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71467.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Sun Ra - Inside The Light World: Sun Ra Meets The OVC (1986) 2CD, 2024, Strut [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71412.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Bobby Hutcherson - Classic Blue Note Sessions (1963 - 1970) 7CD, 2024, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71378.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Red Rodney - Bird Lives! (1973) 1989, Muse Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71335.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joe Pass & Paulinho da Costa - Tudo Bem! (1978) 1985, Pablo Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71334.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Gerry Mulligan/Art Farmer Quartet - In Stockholm & Hollywood (1959) 2010, Solar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71333.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71332.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Tran Manh Tuan - Ve que (Coming Home) (2003) Self-Released [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA50DBBA8CB07C8FFE3DD40FA8CFE72757D0921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776079   (71331) от 30.01.2025
-
-Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going There [6:12]
-02. In the Interim [4:25]
-03. This Is My Song [3:09]
-04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776300   (71306) от 31.01.2025
-
-Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isfahan [7:25]
-02. Bloodcount [6:08]
-03. Johnny Come Lately [5:39]
-04. Something to Live For [6:07](   Читать дальше...   )Жанр: Bop, Hard Bop, Post-BopПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AEFA3AD54ABCE08952EF6DD7512D77273F6E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776303   (71305) от 31.01.2025
-
-Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pisces Soul [14:03]
-02. Donna Lee [6:19]
-03. Island Fantasy [6:42]
-04. Epistrophy [5:09](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F4A4E34FEE2DE42CE7F76EA95318B5DEC4260F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776307   (71304) от 31.01.2025
-
-John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You or No One [5:00]
-02. Ceora [7:10]
-03. Strollin' [5:34]
-04. Nomis [6:29](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963D063A9D514A46B460507D0E00D218EB152DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

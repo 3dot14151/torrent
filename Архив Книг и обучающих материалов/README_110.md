@@ -1,3 +1,31 @@
+###  Публикация: 1240480   (524252) от 12.08.2018
+
+Стефан Дж. Гийанэй | Голодный мозг. Как перехитрить инстинкты, которые заставляют нас переедать (2018) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не хочет переедать. И уж тем более никто не хочет делать это в течение многих лет, становясь все толще и толще, приобретая диабет и сердечно-сосудистые заболевания. И тем не менее треть россиян делает это ежедневно!
+
+Почему, даже понимая, что у нас проблемы, мы не можем остановиться? Доктор нейробиолог из США, считает, что все дело в эпигенетике. Наш аппетит (   Читать дальше...   )Жанр: Биологические наукиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D1537F21F65AB06C00F060CE11FA239DA2F5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240604   (524162) от 12.08.2018
 
 Марк Руссинович и др.  | Внутреннее устройство Windows, 7-е издание (2018) [PDF]
@@ -6,7 +34,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524162.jpg" />
+  <img src="Z:/picture/008/save_picture_524162.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524061.jpg" />
+  <img src="Z:/picture/008/save_picture_524061.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524056.jpg" />
+  <img src="Z:/picture/008/save_picture_524056.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524048.jpg" />
+  <img src="Z:/picture/008/save_picture_524048.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524020.jpg" />
+  <img src="Z:/picture/008/save_picture_524020.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524016.jpg" />
+  <img src="Z:/picture/008/save_picture_524016.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524015.jpg" />
+  <img src="Z:/picture/008/save_picture_524015.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523942.jpg" />
+  <img src="Z:/picture/008/save_picture_523942.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523859.jpg" />
+  <img src="Z:/picture/008/save_picture_523859.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523333.jpg" />
+  <img src="Z:/picture/008/save_picture_523333.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523332.jpg" />
+  <img src="Z:/picture/008/save_picture_523332.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523330.jpg" />
+  <img src="Z:/picture/008/save_picture_523330.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523278.jpg" />
+  <img src="Z:/picture/008/save_picture_523278.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523248.jpg" />
+  <img src="Z:/picture/008/save_picture_523248.jpg" />
 </div>
 
 
@@ -382,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523197.jpg" />
+  <img src="Z:/picture/008/save_picture_523197.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522966.jpg" />
+  <img src="Z:/picture/008/save_picture_522966.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522917.jpg" />
+  <img src="Z:/picture/008/save_picture_522917.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522544.jpg" />
+  <img src="Z:/picture/008/save_picture_522544.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522539.jpg" />
+  <img src="Z:/picture/008/save_picture_522539.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522532.jpg" />
+  <img src="Z:/picture/008/save_picture_522532.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522522.jpg" />
+  <img src="Z:/picture/008/save_picture_522522.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522516.jpg" />
+  <img src="Z:/picture/008/save_picture_522516.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522494.jpg" />
+  <img src="Z:/picture/008/save_picture_522494.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521789.jpg" />
+  <img src="Z:/picture/008/save_picture_521789.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521775.jpg" />
+  <img src="Z:/picture/008/save_picture_521775.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE94F116AB2E1235BA4027E742CBE3641C076AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928692   (521751) от 17.08.2015
-
-Евгений Сухов | Жены, которым не повезло (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521751.jpg" />
-</div>
-
-
-###  Подробнее
-
-С целью ограбления убита жена столичного чиновника Аида Крохина. Сам Юрий Сергеевич Крохин, согласно своим показаниям, в момент преступления сидел в баре. Криминальный репортер Аристарх Русаков встретился с безутешным вдовцом, пытаясь разузнать, что происходило в его квартире за несколько часов до гибели женщины. Вдруг в разговор вмешался частный сыщик Киприани, (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86AB99A502413B8027A34CACFA62036BEC4283A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1313076   (528178) от 07.07.2019
+
+Mats Gustafsson / Barry Guy / Paul Lovens - Mouth Eating Trees And Related Activities (1996) [FLAC|Lossless|tracks + .cue] <Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I (4:25)
+ 02. Part II (12:31)
+ 03. Part III (6:46)
+ 04. Part IV (27:14)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB3017E159E98CE0BA13CC3E7DB107F76860F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156398   (527786) от 07.08.2017
+
+Tom Harrell - Prana Dance (2009) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Marching [05:55]
+02.Prana [07:30]
+03.Sequenza [08:26]
+04.Maharajah [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250342207D61490B2F89B036D311DC2857E81175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052826   (527380) от 15.09.2016
+
+Maaike Nicola - A Portrait Of Maaike (1989) IPS[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Easy Living [05:19]
+ 02.Corcovado [03:29]
+ 03.Day By Day [03:31]
+ 04.Close Enough For Love [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE50E96B8EE4A9F5A2305C500384D4AD17576A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052808   (527375) от 15.09.2016
+
+Najee - You, Me and Forever (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air (6:08)
+02. Fly With The Wind (3:50)
+03. Wave (5:23)
+04. Biggest Part Of Me (5:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BFF498935720706A23A47C5DC0D941F8AF08DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559231   (527230) от 24.06.2022
 
 Buddy DeFranco (De Franco) - The Buddy DeFranco Wailers (1956, 1957) 2007, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop>
@@ -6,7 +122,7 @@ Buddy DeFranco (De Franco) - The Buddy DeFranco Wailers (1956, 1957) 2007, Defin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527230.jpg" />
+  <img src="Z:/picture/008/save_picture_527230.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Konstantin Klashtorni - Chillaxonic: 1st Facet (2018) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527193.jpg" />
+  <img src="Z:/picture/008/save_picture_527193.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Cedar Walton & Clifford Jordan - The Pentagon (1976) 2008, Universal [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527079.jpg" />
+  <img src="Z:/picture/008/save_picture_527079.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jim Hall - Giants Of Jazz (1956 - 1964) 1997, Promo Sound AG [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527078.jpg" />
+  <img src="Z:/picture/008/save_picture_527078.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Miles Davis - Walkin' (1954) 1994, GBH Music [FLAC|Lossless|image + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527077.jpg" />
+  <img src="Z:/picture/008/save_picture_527077.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Konstantin Klashtorni - Chillaxonic: 2nd Facet (2020) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527000.jpg" />
+  <img src="Z:/picture/008/save_picture_527000.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Art Tatum - Goldfingers (1933 - 1956) 3CD, 2011, Le Chant du Monde [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526443.jpg" />
+  <img src="Z:/picture/008/save_picture_526443.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eddie Daniels - Blackwood (1989) GRP Records[FLAC|Lossless|image + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526155.jpg" />
+  <img src="Z:/picture/008/save_picture_526155.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Bill Perkins Big Band - Our Man Woody (1991) [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526153.jpg" />
+  <img src="Z:/picture/008/save_picture_526153.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526120.jpg" />
+  <img src="Z:/picture/008/save_picture_526120.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Swingrowers - (Pronounced Swing Grow'ers) (2013) [FLAC|Lossless|image + .cue] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526035.jpg" />
+  <img src="Z:/picture/008/save_picture_526035.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tommy Emmanuel - The Guitar Mastery of Tommy Emmanuel (2014) 2 CD, Compilation [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525923.jpg" />
+  <img src="Z:/picture/008/save_picture_525923.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Paul Whiteman - Greatest Hits (1920 - 1928) 1999, Collector's Choice [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525883.jpg" />
+  <img src="Z:/picture/008/save_picture_525883.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Duke Pearson - Profile (1959) 1999, Blue Note [FLAC|Lossless|image + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525882.jpg" />
+  <img src="Z:/picture/008/save_picture_525882.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dmitry Baevsky - The Day After (2017) Jazz Family [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525878.jpg" />
+  <img src="Z:/picture/008/save_picture_525878.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Willem Breuker Kollektief - Celebrating 25 Years On The Road (2002) 2CD, BV Haas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525540.jpg" />
+  <img src="Z:/picture/008/save_picture_525540.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Eugene Serebrennikov (Евгений Серебренников) - Revelation (�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525538.jpg" />
+  <img src="Z:/picture/008/save_picture_525538.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Bob James - The Genie (1983) 2006, Koch Jazz [FLAC|Lossless|tracks + .cue] <Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525537.jpg" />
+  <img src="Z:/picture/008/save_picture_525537.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Miguel "Anga" Diaz - Echu Mingua (2005) World Circuit [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525233.jpg" />
+  <img src="Z:/picture/008/save_picture_525233.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524780.jpg" />
+  <img src="Z:/picture/008/save_picture_524780.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bert Joris Quartet - Magone (2007) Dreyfus [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524778.jpg" />
+  <img src="Z:/picture/008/save_picture_524778.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524773.jpg" />
+  <img src="Z:/picture/008/save_picture_524773.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E639F60356EF7EE3F0E9A2FF88AEEFAB88A28D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240534   (524473) от 12.08.2018
-
-Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away
-02. Sail
-03. I Can Only Imagine
-04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559425   (524417) от 25.06.2022
-
-Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Crucible for Crisis [12:08]
-02. The Struggle Is in Your Name [8:59]
-03. Affective Affinities [8:05](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4878F9015F8FC0579792FF32730A4DFBA1DF2B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927739   (524130) от 14.08.2015
-
-The Leaders - Mudfoot (1986) /Bellaphon/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Nancy [13:18]
-02. Elaborations [04:24]
-03. Midnite Train [03:44]
-04. Freedom Swing Song [04:46](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E3E1E7BF9CA113885EF4B965888B6BD4246736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927829   (524129) от 14.08.2015
-
-George Wein And The Storyville Sextet - Metronome Presents Jazz At The Modern (1960) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's A Plenty [07:12]
-02. I Ain't Got Nobody [07:25]
-03. September In The Rain [04:05]
-04. Undecided [07:49](   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83806BF94F8F5C6108E04862ACF64A8EC633485
 ```
 
 https://mybot314.ru/tekegram_catalog/

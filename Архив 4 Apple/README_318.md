@@ -1,3 +1,108 @@
+###  Публикация: 1546989   (603922) от 26.04.2022
+
+Vidmore Player 1.0.28 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всестороннее воспроизведение мультимедийных файлов.
+Vidmore Player - универсальный медиаплеер, который не только поддерживает воспроизведение фильмов Blu-ray и DVD, но также поддерживает все распространенные форматы видео и аудио файлов, такие как MP4, MOV, AVI, WMV, MPEG, 3GP, M2TS, MP3, WMA, AAC и др.Тип издания: macOS SoftwareРелиз состоялся: 22.04.2022Разработчик: © 2022 VidmoreПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F93170C5DD7798FC4FCBA5C5CFCD9EB9149C84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148398   (603907) от 06.07.2017
+
+PhoneRescue 3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603907.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE25101EA880D8D28128AAEA3F1DE5FD80BE3A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546997   (603841) от 26.04.2022
+
+Wondershare Filmora Х 11.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5796EF11C63A1A2EA4883CABB5A2F549879135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231766   (603701) от 20.06.2018
+
+Сердцеед / Le retour du heros (2018) BDRip [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавец и ловелас капитан Невиль, отправляясь в Австрию с армией Наполеона, клянется своей возлюбленной ежедневно писать. Но писем нет, и сердце трепетной Полин разбито. Ее сестра Элизабет решает писать от имени Невиля. Но, сочиняя невероятные подвиги и в конце концов похоронив с почестями легендарного героя, она и не предполагает, что однажды вполне живой и далеко (   Читать дальше...   )Производство: Франция, Бельгия / JD Prod, les Films sur Mesure, StudioCanalЖанр: Комедия, ИсторияРежиссер: Лоран ТирарАктеры: Жан Дюжарден, Мелани Лоран, Ноэми Мерлан, Кристоф Монтенез, Эвелин Бюиль, Кристиан Бюжо, Федор Аткин, Фабьен Галула, Лоран Бато, Жан-Мишель ЛамиПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2827C034606FDF0D52932171E0EAF55C049810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231883   (603656) от 20.06.2018
 
 DaisyDisk 4.6.3 [Multi/Ru]
@@ -6,7 +111,7 @@ DaisyDisk 4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603656.jpg" />
+  <img src="Z:/picture/008/save_picture_603656.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Submerge 3 v3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603477.jpg" />
+  <img src="Z:/picture/008/save_picture_603477.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ GoodTask 7.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603471.jpg" />
+  <img src="Z:/picture/008/save_picture_603471.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ FSNotes 5.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603469.jpg" />
+  <img src="Z:/picture/008/save_picture_603469.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ SQLPro for SQLite 2022.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603468.jpg" />
+  <img src="Z:/picture/008/save_picture_603468.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ RAR Extractor  - unzi‪p‬ 9.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603460.jpg" />
+  <img src="Z:/picture/008/save_picture_603460.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ EverWeb (Standalone) 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603437.jpg" />
+  <img src="Z:/picture/008/save_picture_603437.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Boxy SVG 3  v3.85.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603435.jpg" />
+  <img src="Z:/picture/008/save_picture_603435.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ DaisyDisk 4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603390.jpg" />
+  <img src="Z:/picture/008/save_picture_603390.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Boom 3D v1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603362.jpg" />
+  <img src="Z:/picture/008/save_picture_603362.jpg" />
 </div>
 
 
@@ -275,7 +380,7 @@ MacCleaner 2 PRO 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603342.jpg" />
+  <img src="Z:/picture/008/save_picture_603342.jpg" />
 </div>
 
 
@@ -301,7 +406,7 @@ ExactScan Pro 18.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603222.jpg" />
+  <img src="Z:/picture/008/save_picture_603222.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Movavi PDF Editor 1.5.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603196.jpg" />
+  <img src="Z:/picture/008/save_picture_603196.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Readiris Corporate 17.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603185.jpg" />
+  <img src="Z:/picture/008/save_picture_603185.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Sid Meier’s Civilization® VI v1.2.2 (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603037.jpg" />
+  <img src="Z:/picture/008/save_picture_603037.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Cookie 6.6.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603006.jpg" />
+  <img src="Z:/picture/008/save_picture_603006.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Color UI 2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602993.jpg" />
+  <img src="Z:/picture/008/save_picture_602993.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ NCH WavePad Audio Editor Pro 16.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602991.jpg" />
+  <img src="Z:/picture/008/save_picture_602991.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ Sound Siphon 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602987.jpg" />
+  <img src="Z:/picture/008/save_picture_602987.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ Araxis Merge Pro 2017.4884 (macOS 10.12+) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602957.jpg" />
+  <img src="Z:/picture/008/save_picture_602957.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ TechSmith Camtasia 2021 Studio 2021.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602946.jpg" />
+  <img src="Z:/picture/008/save_picture_602946.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Adobe Photoshop CC 2018.1.5 v19.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602683.jpg" />
+  <img src="Z:/picture/008/save_picture_602683.jpg" />
 </div>
 
 
@@ -575,113 +680,6 @@ Adobe Photoshop CC — программа для обработки растро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1622B6BFA3809A14D2CD83925518AFAC59740265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297992   (602624) от 25.04.2019
-
-Kerbal Space Program (1.7.0/dlc) (2019) [En/Ru] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerbal Space Program - многожанровая игра, где вы создаёте свою космическую программу. Вам предстоит создать и построить космический корабль или ракету способную летать и доставить экипаж в космос, не убив его. В распоряжении многочисленные части и комплектующие, которые должны быть собраны в функциональный корабль.
-
-Каждая часть имеет свою функцию и влияет на возможности (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: SquadПоддерживаемая ОС: OS X 10.7Жанр: SimulationЯзык интерфейса: Русский, Английский (раздельные установщики)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E202A81015AA73E774A7FC4C5D40F7C290117A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547669   (602463) от 29.04.2022
-
-Allavsoft Video Downloader Converter 3.24.6.8147 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 29.04.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369DD8600309A1999BD6D72A2E500C6E441C97D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547677   (602416) от 29.04.2022
-
-FxFactory Pro 8.0.0 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602416.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2022Разработчик: © 2022 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEA70E6455FDCA032E922D139FE414D7814C94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547655   (602381) от 29.04.2022
-
-PDF Reader Pro Edition 2.8.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602381.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2021 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E214120338CF1FF24121377F3094743F2B5F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

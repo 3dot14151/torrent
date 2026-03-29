@@ -1,3 +1,177 @@
+###  Публикация: 1255803   (361791) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 3-й День (13.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361791.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 октября 2018 года, суббота.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
+3-й День:
+Лига B. Группа 1 — Словакия – Чехия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BC9E0D839E4B09BC7D45726D504B7E34ECF2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255743   (361788) от 19.10.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 2. 3-й тур. Россия — Швеция (11.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361788.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 октября 2018 года, четверг. 22:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 2. 3-й тур.
+Россия — Швеция(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E682366B544191AC4FE870342F8CB64EBE61CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255753   (361782) от 19.10.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 4. 3-й тур. Хорватия — Англия (12.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361782.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 октября 2018 года, пятница. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига A. Группа 4. 3-й тур.
+Хорватия — Англия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AEFB3F9F0B6E558A77BFF7501FC4E680A22409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255745   (361776) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 1-й День (11.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361776.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 октября 2018 года, четверг.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
+1-й День:
+Лига A. Группа 3 — Польша – Португалия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D981AF481CCD047B46D59303424BCCCBC6B6EB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255846   (361774) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 4-й тур. Обзор матчей. 1-й День (14.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361774.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2018 года, воскресенье.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 4-й тур.
+1-й День:
+Лига C. Группа 4 — Румыния – Сербия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D1E9B712854CA74683CEAE2EEDF68C78902713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255763   (361766) от 19.10.2018
+
+Футбол. Лига Наций 2018-2019. 3-й тур. Обзор матчей. 2-й День (12.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361766.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 октября 2018 года, пятница.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 3-й тур.
+2-й День:
+Лига A. Группа 2 — Бельгия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643F47E3A0089DA360E5E0CACBC463BF8156F720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577195   (361752) от 18.11.2012
 
 Развод по-русски. Выпуск №81. Опасная родня (18.11.2012) SATRip
@@ -6,7 +180,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361752.jpg" />
+  <img src="Z:/picture/008/save_picture_361752.jpg" />
 </div>
 
 
@@ -37,7 +211,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361559.jpg" />
+  <img src="Z:/picture/008/save_picture_361559.jpg" />
 </div>
 
 
@@ -66,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361495.jpg" />
+  <img src="Z:/picture/008/save_picture_361495.jpg" />
 </div>
 
 
@@ -96,7 +270,7 @@ NGW: Рыбалка с Майком Иаконелли. Самая быстра�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361492.jpg" />
+  <img src="Z:/picture/008/save_picture_361492.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361312.jpg" />
+  <img src="Z:/picture/008/save_picture_361312.jpg" />
 </div>
 
 
@@ -148,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361305.jpg" />
+  <img src="Z:/picture/008/save_picture_361305.jpg" />
 </div>
 
 
@@ -174,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361298.jpg" />
+  <img src="Z:/picture/008/save_picture_361298.jpg" />
 </div>
 
 
@@ -204,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361293.jpg" />
+  <img src="Z:/picture/008/save_picture_361293.jpg" />
 </div>
 
 
@@ -230,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361271.jpg" />
+  <img src="Z:/picture/008/save_picture_361271.jpg" />
 </div>
 
 
@@ -259,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361268.jpg" />
+  <img src="Z:/picture/008/save_picture_361268.jpg" />
 </div>
 
 
@@ -288,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361143.jpg" />
+  <img src="Z:/picture/008/save_picture_361143.jpg" />
 </div>
 
 
@@ -314,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360804.jpg" />
+  <img src="Z:/picture/008/save_picture_360804.jpg" />
 </div>
 
 
@@ -340,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360731.jpg" />
+  <img src="Z:/picture/008/save_picture_360731.jpg" />
 </div>
 
 
@@ -366,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360555.jpg" />
+  <img src="Z:/picture/008/save_picture_360555.jpg" />
 </div>
 
 
@@ -392,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359468.jpg" />
+  <img src="Z:/picture/008/save_picture_359468.jpg" />
 </div>
 
 
@@ -421,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359463.jpg" />
+  <img src="Z:/picture/008/save_picture_359463.jpg" />
 </div>
 
 
@@ -450,7 +624,7 @@ National Geographic. Короли рыбалки. Часть 1 / National Geogra
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359208.jpg" />
+  <img src="Z:/picture/008/save_picture_359208.jpg" />
 </div>
 
 
@@ -477,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359162.jpg" />
+  <img src="Z:/picture/008/save_picture_359162.jpg" />
 </div>
 
 
@@ -506,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359144.jpg" />
+  <img src="Z:/picture/008/save_picture_359144.jpg" />
 </div>
 
 
@@ -534,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359134.jpg" />
+  <img src="Z:/picture/008/save_picture_359134.jpg" />
 </div>
 
 
@@ -548,165 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:376CAD8E79A3DE873E41A6287C08CBDA0DE3EADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256014   (359046) от 20.10.2018
-
-Формула 1. Сезон 2018. 18-й Этап. Гран-при США. Свободная практика 1 (19.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359046.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 октября 2018 года, пятница. 18:00 МСК
-Формула 1. 18-й Этап сезона 2018 года. Гран-при США. Остин (США).
-Свободная практика 1
-Арена: Трасса Америк (Остин, США)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01CFB2DBC0ED0D0F052D89061328C74C7D1493D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951921   (358976) от 31.10.2015
-
-Обзор. Кубок Германии 2015-16. 1/16 финала. Обзор матчей (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 1/16 финала Кубка Германии 2015-2016.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F712C220CE7C8058A184E694553F4DFA5518E052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951622   (358975) от 31.10.2015
-
-Футбол. Кубок России 2015-16 1/8 финала. Зенит (Санкт-Петербург) – Тосно (Ленинградская область) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок России 2015-16, 1/8 финала. Зенит (Санкт-Петербург) – Тосно (Ленинградская область).Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7E2D64BB88E873D267DD7744F021D8DC8C6C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951913   (358974) от 31.10.2015
-
-Обзор. Кубок Английской Лиги 2015-2016. 4 Раунд. Обзор матчей (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 4 раунда Кубка Английской Лиги 2015-2016.Телекомпания: Channel 5 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454221877DE1B40B46084E794B72598609343AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951626   (358973) от 31.10.2015
-
-Футбол. Кубок России 2015-16 1/8 финала. ЦСКА (Москва) – Урал (Екатеринбург) (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок России 2015-16, 1/8 финала. ЦСКА (Москва) – Урал (Екатеринбург)Телекомпания: НТВ+ Наш Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9571B213CD311F034F31412BE3528446B9BEE78A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952157   (358972) от 31.10.2015
-
-Хоккей. НХЛ Сезон 2015-16. Баффало Сейбрз - Питсбург Пингвинз (29.10.2015) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матч регулярного чемпионата NHL сезон 2015-16 (Buffalo Sabres vs Pittsburgh Penguins) (эфир от 29.10.2015)Телекомпания: ROOT SportsЖанр: СпортПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCDF612DAB6052B61DA3D103632F2E86584257B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Windows 10 Manager 3.5.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875699.jpg" />
+  <img src="Z:/picture/005/save_picture_875699.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O Defrag Professional 25.0 Build 7210 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875610.jpg" />
+  <img src="Z:/picture/008/save_picture_875610.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mozilla Thunderbird 38.7.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875471.jpg" />
+  <img src="Z:/picture/005/save_picture_875471.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875450.jpg" />
+  <img src="Z:/picture/005/save_picture_875450.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bandicam 5.3.1.1880 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875442.jpg" />
+  <img src="Z:/picture/008/save_picture_875442.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Defender Control 2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875438.jpg" />
+  <img src="Z:/picture/005/save_picture_875438.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ SketchUp Pro 2021 21.1.332 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875434.jpg" />
+  <img src="Z:/picture/005/save_picture_875434.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Driver Magician 4.81 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875338.jpg" />
+  <img src="Z:/picture/008/save_picture_875338.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ZoneAlarm Free Firewall 9.2.105.000 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_875275.jpg" />
+  <img src="Z:/picture/009/save_picture_875275.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BWMeter 6.11.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875260.jpg" />
+  <img src="Z:/picture/005/save_picture_875260.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Balabolka 2.11.0.600 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875253.jpg" />
+  <img src="Z:/picture/005/save_picture_875253.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ WPS Office 10.1.0.5507 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875152.jpg" />
+  <img src="Z:/picture/005/save_picture_875152.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ UnHackMe 7.97 Build 497 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875134.jpg" />
+  <img src="Z:/picture/008/save_picture_875134.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AIMP 4.13 Build 1887 DC 18.02.2017 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875027.jpg" />
+  <img src="Z:/picture/005/save_picture_875027.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Mp3tag 2.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875026.jpg" />
+  <img src="Z:/picture/005/save_picture_875026.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AIMP 4.13 Build 1887 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874945.jpg" />
+  <img src="Z:/picture/005/save_picture_874945.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ FastStone Image Viewer 6.2 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874944.jpg" />
+  <img src="Z:/picture/005/save_picture_874944.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ DevID Agent 4.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874935.jpg" />
+  <img src="Z:/picture/005/save_picture_874935.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874885.jpg" />
+  <img src="Z:/picture/005/save_picture_874885.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Volume2 1.1.5.397 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874883.jpg" />
+  <img src="Z:/picture/005/save_picture_874883.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Orbit Downloader 4.0.0.7 [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874859.jpg" />
+  <img src="Z:/picture/008/save_picture_874859.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AIMP 4.13 Build 1887 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874831.jpg" />
+  <img src="Z:/picture/005/save_picture_874831.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Magic Photo Recovery 4.5 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874830.jpg" />
+  <img src="Z:/picture/005/save_picture_874830.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Security Eye 3.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874828.jpg" />
+  <img src="Z:/picture/005/save_picture_874828.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FastStone Image Viewer 6.2 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874822.jpg" />
+  <img src="Z:/picture/005/save_picture_874822.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ HamMultiPlayer 0.116.37905.792 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874816.jpg" />
+  <img src="Z:/picture/008/save_picture_874816.jpg" />
 </div>
 
 

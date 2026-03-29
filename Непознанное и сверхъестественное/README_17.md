@@ -1,3 +1,57 @@
+###  Публикация: 1152480   (565474) от 23.07.2017
+
+Засекреченные списки. Где наступит конец света: 7 самых гиблых мест (Эфир от 22.07.2017) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец Света начнётся в Индии, и причиной Апокалипсиса может стать нехватка воды в этой густонаселённой ядерной державе.
+Войны за воду предсказывают Индии гидрологи - уже сегодня страна умирает от жажды.
+"ООН поднимала проблему водных ресурсов неоднократно. И ряд экспертов считает, что если будут в будущем конфликты, то они будут вестись не за нефть и газ, а (   Читать дальше...   )Телекомпания: Россия, RenTV, Юнайтед медиаЖанр: ДокументальныйПродолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB199A859DA99129984CDF47BF1C4E81A2F5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923460   (564494) от 31.07.2015
+
+Территория заблуждений с Игорем Прокопенко (2015.07.31) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E1C5EB794042597CB5FC8AC878EFD180AB234C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044913   (563583) от 21.08.2016
 
 Экстрасенсы ведут расследование (2016.08.13) WEB-DL [H.264/720p-LQ] (сезон 7, выпуск 14)
@@ -6,7 +60,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563583.jpg" />
+  <img src="Z:/picture/008/save_picture_563583.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563439.jpg" />
+  <img src="Z:/picture/008/save_picture_563439.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563409.jpg" />
+  <img src="Z:/picture/008/save_picture_563409.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559720.jpg" />
+  <img src="Z:/picture/008/save_picture_559720.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556023.jpg" />
+  <img src="Z:/picture/008/save_picture_556023.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ National Geographic. Правда о зомби / The Truth Behind Zombies (2010
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553812.jpg" />
+  <img src="Z:/picture/008/save_picture_553812.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552194.jpg" />
+  <img src="Z:/picture/008/save_picture_552194.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552132.jpg" />
+  <img src="Z:/picture/008/save_picture_552132.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552131.jpg" />
+  <img src="Z:/picture/008/save_picture_552131.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552129.jpg" />
+  <img src="Z:/picture/008/save_picture_552129.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552128.jpg" />
+  <img src="Z:/picture/008/save_picture_552128.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552126.jpg" />
+  <img src="Z:/picture/008/save_picture_552126.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552124.jpg" />
+  <img src="Z:/picture/008/save_picture_552124.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552121.jpg" />
+  <img src="Z:/picture/008/save_picture_552121.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552119.jpg" />
+  <img src="Z:/picture/008/save_picture_552119.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552118.jpg" />
+  <img src="Z:/picture/008/save_picture_552118.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552115.jpg" />
+  <img src="Z:/picture/008/save_picture_552115.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552027.jpg" />
+  <img src="Z:/picture/008/save_picture_552027.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552023.jpg" />
+  <img src="Z:/picture/008/save_picture_552023.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552022.jpg" />
+  <img src="Z:/picture/008/save_picture_552022.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552021.jpg" />
+  <img src="Z:/picture/008/save_picture_552021.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552020.jpg" />
+  <img src="Z:/picture/008/save_picture_552020.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552019.jpg" />
+  <img src="Z:/picture/008/save_picture_552019.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552018.jpg" />
+  <img src="Z:/picture/008/save_picture_552018.jpg" />
 </div>
 
 
@@ -617,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:173F49D02B0BE61171C0374BE20C4F0B5E663265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046636   (552015) от 27.08.2016
-
-Секретные материалы 17. Мистика картин  (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что скрывают шедевры мировой живописи? Загадочные полотна Босха, проклятые портреты Репина, опасный натюрморт Моне – многие знаменитые картины буквально напичканы тайными знаками и символами. В чем заключается мистическая сторона искусства? Что такое цветотерапия? И как вылечиться с помощью красок?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A25739D0168B6577A878E372B81006D296D62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046586   (552011) от 27.08.2016
-
-Секретные материалы 17. От Хиросимы до Фукусимы (2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто виноват в трагедии Фукусимы? За всю историю человечество пережило не одну атомную катастрофу, в том числе и аварию на японской АЭС. Сегодня специалисты утверждают, что страшного взрыва можно было избежать. Почему же роковое событие все-таки произошло? И чему научил мир чернобыльский опыт?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058D683DB3F16FB3B46AACD66FA543462641CF55
 ```
 
 https://mybot314.ru/tekegram_catalog/

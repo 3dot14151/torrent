@@ -1,3 +1,162 @@
+###  Публикация: 1540712   (650211) от 31.03.2022
+
+Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650211.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ты сильный, так что помогай людям», — слова, которые сказал старшекласснику Юдзи Итадори его дед перед смертью. Но старик даже не представлял, какое будущее ждёт его внука. После смерти деда парень встречает шамана Мегуми Фушигуро, ищущего проклятый амулет. Опасная вещь оказывается в школьном клубе оккультных исследований, в котором состоит Юдзи, и друзья юноши (   Читать дальше...   )Производство: MAPPAЖанр: Приключения, фэнтези, сёнэнРежиссер: Пак Сон ХуСубтитры: РусскиеПродолжительность: 24 серии по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF8E0A1D2C3304954B67C7963792015350FC021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842487   (647386) от 06.07.2016
+
+Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая вода голубых дорожек снова свела вместе старых знакомых и привлекла в привычную компанию новые лица. Вернувшись домой, Рин Мацуока преодолел детскую обиду на Харуку Нанасэ, гения плавания, которого не волнуют победные очки и секунды. К радости друзей и сестры, недостойное чувство зависти сменилось здоровым личным и спортивным соперничеством. Теперь Рин – (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Уцуми Хироко / Utsumi Hiroko / 内海紘子Продолжительность: 13 серий + 1 спэшл по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B152186456B98D05BDFF00B7396F2ED48C0D690D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032235   (645360) от 07.07.2016
+
+Boku dake ga Inai Machi | Erased | Город, в котором меня нет [2016, TV, 12] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сатору Фудзинума – типичный великовозрастный неудачник. В 29 лет куют состояния – а он зарабатывает гроши доставкой пиццы и рисует мангу, которая никому особо не нужна. Однако не все лежит на поверхности. Невыразительный парень владеет чудесной способностью «возрождения», что позволяет вернуться назад во времени и предотвратить смертельную опасность, грозящую кому-то (   Читать дальше...   )Жанр: триллер, драмаРежиссер: Ито Томохико / Itou Tomohiko / 伊藤智彦Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B057364F77985330D1FDD74D062316D9531E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541745   (642723) от 04.04.2022
+
+100-man no Inochi no Ue ni Ore wa Tatte Iru | I'm Standing on a Million Lives | Я стою на миллионе трупов [2020, TV, 24 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ёцуя - простой школьник, которому ничего не интересно в жизни, кроме как играть дома в игры. Каждый день он стремился поскорее уйти и заняться любимым делом. Однако однажды, задержавшись на дежурстве, парень вдруг оказался в каком-то ином мире. Впрочем, новая реальность сильно напоминает игру.Производство: Студия Maho FilmЖанр: приключения, фэнтезиРежиссер: Хабара КумикоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFF64FD4B48B2E3CC4AA9E6ADDAF7CB79EB6D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032950   (641900) от 09.07.2016
+
+Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера-тян [2015, TV, 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641900.jpg" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается вокруг девочки по имени Сомера. Она — хранительница таинственных магических сил, а также причина различных комедийных ситуаций, происходящих с ней и её друзьями.Производство: Студия Seven / セブンЖанр: комедияРежиссер: Имадзаки ИцукиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35862875CFD31BD6C93307BDDB288AD807FC9732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518488   (640592) от 04.07.2012
+
+Asa made Jugyou Chu! / See Me After Class! / Дополнительные занятия до утра! [2012, OVA, 1ep] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юки Кагами наконец-таки поступил в Академию своей мечты! Только почему-то в женское отделение...
+Теперь у парня лишь два пути: прикинуться девкой или со свистом покинуть учебное заведение.
+Юки Кагами достает мамину косметичку...
+© AnimemagaЖанр: комедия, эттиРежиссер: Канадзава Хиромицу / Kanazawa Hiromitsu / 金澤洪充Продолжительность: 1 эп., 30 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DE04AB616C0276194202319DF03C9EF235C525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033229   (639878) от 10.07.2016
 
 Ooya-san wa Shishunki! / Хозяйка квартиры — подросток [2016, TV, 12 из 12] BDRip 1080p Hi10P RAW
@@ -6,7 +165,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639878.jpg" />
+  <img src="Z:/picture/008/save_picture_639878.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633435.jpg" />
+  <img src="Z:/picture/008/save_picture_633435.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633298.jpg" />
+  <img src="Z:/picture/008/save_picture_633298.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633236.jpg" />
+  <img src="Z:/picture/008/save_picture_633236.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Судьба
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633170.jpg" />
+  <img src="Z:/picture/008/save_picture_633170.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633167.jpg" />
+  <img src="Z:/picture/008/save_picture_633167.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633160.jpg" />
+  <img src="Z:/picture/008/save_picture_633160.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632450.jpg" />
+  <img src="Z:/picture/008/save_picture_632450.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631851.jpg" />
+  <img src="Z:/picture/008/save_picture_631851.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631699.jpg" />
+  <img src="Z:/picture/008/save_picture_631699.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631693.jpg" />
+  <img src="Z:/picture/008/save_picture_631693.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631691.jpg" />
+  <img src="Z:/picture/008/save_picture_631691.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631533.jpg" />
+  <img src="Z:/picture/008/save_picture_631533.jpg" />
 </div>
 
 
@@ -351,7 +510,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631528.jpg" />
+  <img src="Z:/picture/008/save_picture_631528.jpg" />
 </div>
 
 
@@ -377,7 +536,7 @@ Wonder Egg Priority | Приоритет чудо-яйца [2021, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631227.jpg" />
+  <img src="Z:/picture/008/save_picture_631227.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ Summer Ghost | Летний призрак [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631226.jpg" />
+  <img src="Z:/picture/008/save_picture_631226.jpg" />
 </div>
 
 
@@ -434,7 +593,7 @@ Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626387.jpg" />
+  <img src="Z:/picture/008/save_picture_626387.jpg" />
 </div>
 
 
@@ -460,7 +619,7 @@ Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625567.jpg" />
+  <img src="Z:/picture/008/save_picture_625567.jpg" />
 </div>
 
 
@@ -486,7 +645,7 @@ Wakako-zake / Саке для Вакако [2015, TV, 12 из 12] BDRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624584.jpg" />
+  <img src="Z:/picture/008/save_picture_624584.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624520.jpg" />
+  <img src="Z:/picture/005/save_picture_624520.jpg" />
 </div>
 
 
@@ -526,164 +685,6 @@ Kimi to Boku / You and I / Ты и я [2011, TV, 13] BDrip Hi10p 1080p raw
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295054   (623866) от 10.04.2019
-
-Zoku Owarimonogatari | Финальные истории: Продолжение [2018, TV-спешл, 6 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623866.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Я так счастлива, но... почему-то мне кажется, что всё вокруг меня — ложь».
-
-Проснувшись на следующий день после своего выпускного, Коёми Арараги осознал, что, словно, стал никем. Его школьная глава жизни уже закончена, а студенческая ещё не начата. Его жизнь стала страшно неопределённой. Но что осталось неизменным, так это странности. Странности, которые в этот (   Читать дальше...   )Производство: студия SHAFT / シャフトЖанр: романтика, мистика, драма, комедияРежиссер: Симбо АкиюкиПеревод: ArarararagiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A14B64D44F2BBD89EE7CC44F63DF830ADA1CFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295117   (622182) от 11.04.2019
-
-Mob Psycho 100 II / Моб Психо 100 II [2019, TV, 13] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кагеяма Шигео по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония / BonesЖанр: Экшн, Повседневность, Комедия, СверхъестественноеРежиссер: Татикава Юдзуру / Tachikawa Yuzuru / 立川譲Язык озвучки: ЯпонскийЯзык субтитров: Русский, АнглийскийПродолжительность: 13 серий по ~24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A173F99FF056BD1EB4F31E904790E07F952DA0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123435   (621422) от 25.06.2017
-
-Gabriel DropOut / Gabriel Dropout / Габриэль бросает школу [2017, TV, 12 + 2 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Габриэль Уайт с отличием окончила школу ангелов и поступила в земную школу, чтобы набраться знаний, но в мире людей с ангелом случилось страшное: она открыла для себя онлайн-игры и пришла к выводу, что выходить из дома слишком утомительно и вообще не нужно. Вот так вот образцово-показательный ангел стала ангелом-хикикомори.Производство: Студия Dogakobo / 動画工房Жанр: комедияРежиссер: Ота МасахикоПеревод: Elmora; AlicepsyxЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 2 OVA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76F4DE17681F9920D1811FD65ED7DE99D579645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145227   (621413) от 25.06.2017
-
-Idolmaster: Cinderella Girls | Идолмастер: Золушки [2015, TV, 13 + 12] BDrip 1080p HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Узуки Шимамура, как и многие девочки, мечтала очутиться в сказке про «Золушку» и по мановению волшебной палочки превратиться в прекрасную принцессу. В погоне за мечтой о сверкающих дворцах и роскошных платьях она решила приложить все усилия к тому, чтобы стать идолом и выступать на сцене на радость публике. К сожалению, многочисленные прослушивания в компании (   Читать дальше...   )Жанр: комедия, музыкальныйРежиссер: Такао Норико / Takao Noriko / 高雄統子Перевод: Язык озвучки: ЯпонскийПродолжительность: 13 + 12 серий + 2 спэшла по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385342A59481E1E1529E6043224DE340DA2EE4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224697   (620658) от 09.06.2018
-
-Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017, TV, 12 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто бы мог подумать, что в далёком будущем население Земли всё-таки обретёт вечную жизнь, бессмертие. Но только, по своей сути, эти бессмертные существа будут напоминать людей внешне, но не являться ими в действительности. Вместо человеческой цивилизации развернётся цивилизация Самоцветов. Но на соседних планетах и спутниках жизнь тоже начала кипеть ключом. Например, (   Читать дальше...   )Производство: студия Orange / オレンジЖанр: приключения, фэнтезиРежиссер: Кёгоку ТакахикоПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: Русские (женская и мужская версии)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88BE3645FECF16C125BD04EADB3621CCB195FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544519   (620205) от 16.04.2022
-
-Ultraman Season 2 | Ультрамен: новый герой [ТВ-2] [2022, TV, 6 из 6] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620205.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране стали происходить случаи таинственного массового исчезновения людей. Во время одного такого происшествия исчезают Рена и Синдзиро, а оказавшийся свидетелем этого происшествия журналист Хигаси Котаро начинает расследовать этот загадочный инцидент. Стоящие за этим инопланетяне - террористическая организация “Темная Звезда” передает людям послание: - Отдайте (   Читать дальше...   )Производство: Production I.G и Sola Digital ArtsЖанр: Приключения, фантастика, сэйнэнРежиссер: Камияма КэндзиСубтитры: РусскиеПродолжительность: 6 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92236948B4CAC13C2A06A1FDD038CD6813BE5EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

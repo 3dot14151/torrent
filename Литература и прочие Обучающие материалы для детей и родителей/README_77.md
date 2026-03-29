@@ -1,3 +1,135 @@
+###  Публикация: 1361510   (955728) от 19.02.2020
+
+Элли Конди, Брендан Райх | Темная бездна (2020) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Тёмная бездна».
+Когда после издевательств одноклассников двенадцатилетний Нико Холленд падает с утеса в ледяные воды Тихой бухты, его друзья Тайлер и Эмма вместе с «крутой девчонкой» Опал бросаются на помощь… и обнаруживают остров, сокрытый в тумане.
+На безлюдном острове ощущается чье-то незримое присутствие, а в заброшенном плавучем доме, который (   Читать дальше...   )Жанр: Фэнтези, Мистика и ужасыПеревод: Мария ШмидтФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371F047AA2D2879327D0C9B0BF186A5FB968814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361496   (955299) от 19.02.2020
+
+Эдуард Успенский | Крокодил Гена и его друзья (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая известная сказочная повесть Э. Успенского «Крокодил Гена и его друзья» — одна из лучших историй про дружбу для малышей. Ведь в ней друзьями становятся совершенно разные существа, которые вместе делают полезное дело — строят Дом дружбы. А чтобы им не было скучно, автор придумал вредную старуху Шапокляк, борьба с которой тоже объединяет героев сказочной повести. (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBB9145192D9839D2951CE803A62D4AA2E38727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361489   (955218) от 19.02.2020
+
+Наталья Попова | Финансы для тинейджеров. Книга для детей и родителей (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деньги — это инструмент. Их мало просто иметь, с ними нужно уметь обращаться. Эта книга — первый шаг к выполнению этой задачи. На её страницах рассказывается просто о сложном: реальной цене денег, макро- и микроэкономике, инфляции, кредитах и доходе. Книга станет первым кирпичиком в фундаменте подросткового финансового образования, подтолкнет к поиску других важных (   Читать дальше...   )Жанр: О бизнесе популярноФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FECBEDC79DB61616673A8A65BB7498BC468912F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088786   (955148) от 01.01.2017
+
+Джулия Дональдсон | Пещерное дитя (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мохнатый серый мамонт берет баловника - пещерного мальчугана в волнующее путешествие через залитый лунным светом пейзаж, населенный крадущимся саблезубым тигром, скачущим зайцем и хохочущей гиеной и, возможно, даже, ОГРОМНЫМ МЕДВЕДЕМ! Но куда они идут? И какое это имеет отношение к детским каракулям на стене пещеры? Забавная история от автора "Груффало" (   Читать дальше...   )Жанр: Детская проза, СказкаПеревод: О.КучаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A3FD76943536556C9773E7B0415462E6D796D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088791   (955072) от 01.01.2017
+
+Наринэ Абгарян | Семен Андреич. Летопись в каракулях (2013) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955072.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Летопись в каракулях" Семёна Андреича - настоящее семейное чтение. Для тех, кто любит смеяться, мечтать и умеет не пасовать перед трудностями. Для тех, кто переживает самую счастливую пору своей жизни - детство. И для тех, кто застрял в этой счастливой поре навсегда.Жанр: Детская проза, СказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81454DFC6C8D62835CDBE651A1B1C80852A3A7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857153   (954888) от 07.01.2015
 
 Александр Маскаев | Сказки кота Кузьмы (2013) [PDF]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954888.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954883.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954838.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954774.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954642.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954637.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954606.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954546.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954524.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954509.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954054.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953917.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953916.jpg" />
 </div>
 
 
@@ -346,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953914.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953909.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953899.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953879.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953735.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953301.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952988.jpg" />
 </div>
 
 
@@ -535,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952977.jpg" />
 </div>
 
 
@@ -547,142 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE390306B982AA8EB1A700C914FEBA569272EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749849   (952950) от 26.01.2014
-
-Иван Новиков | Конопель-конопелька (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детская книга стихов русского писателя Ивана Алексеевича Новикова с иллюстрациями художника и иллюстратора Павла Яковлевича Павлинова.
-Как это там бывает —
-глазком бы да подглядеть!..
-Как росток прорастает,(   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795AB296D413E572114B9293AD618A44095A8231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981008   (952878) от 31.01.2016
-
-Словарь русских мифических змеев (2016) [RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F998ECA0C7911AAC90C069D51A80A9EC622049CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749755   (952869) от 26.01.2014
-
-Лев Кассиль | Собрание сочинений [5 томов] (1965-1967) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание сочинений Льва Кассиля (1905-1970), замечательного писателя, классика детской литературы.
-За свое творчество Лев Абрамович Кассиль награжден Сталинской премией, орденами и медалями.
-По его произведениям снято 10 фильмов.
-Пятитомник включил в себя практически все творчество автора.Жанр: Киги для детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8ED9C8EC4DAC123903300E248768B2068A7D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980983   (952807) от 31.01.2016
-
-Словарь русских мифических дев (2016) [RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4516D351B959AD65C4DCBAD115CC6A56126836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981010   (952764) от 31.01.2016
-
-Словарь русских языческих богов (2016) [RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AFEBDAB60343909F5ADEBB9DFA972C00EE30EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

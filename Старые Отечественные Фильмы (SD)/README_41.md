@@ -1,3 +1,60 @@
+###  Публикация: 909873   (521472) от 17.08.2015
+
+Завещание профессора Доуэля (1984) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет крупный ученый пытался решить проблему бессмертия. Он не скрывает от коллег результатов смелых и рискованных экспериментов.
+Но однажды случилось непредвиденное - профессор исчез. В преступных целях результатами научных изысканий профессора Доуэля пытается воспользоваться его лучший ученик.Производство: СССРЖанр: ФантастикаРежиссер: Леонид МенакерАктеры: Олгерт Кродерс, Игорь Васильев, Валентина Титова, Алексей Бобров, Николай Лавров, Александр Пороховщиков, Эрнст Романов, Боб Цымб, Петр Шелохонов, Наталья СайкоПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2B070EFD6F2A63EDBE128C17A69CA6CA94B329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531688   (521229) от 12.08.2012
+
+Быстрее собственной тени (1980) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петр Королев, мастер спорта и будущий инженер-металлург, благодаря своей настойчивости и силе воли завоевал право участвовать в международных соревнованиях по легкой атлетике.
+
+На соревнованиях по бегу, когда уже было ясно, что побеждает Петр Королев, один из бегунов неловким движением сбивает его соперника, рекордсмена мира на длинных дистанциях Рольфа Шмидта. Заметив это, Петр останавливается и помогает Шмидту подняться. Так началась их дружба.
+
+Но спорт есть спорт. И уже на Олимпийских играх в Москве Петр Королев на финишной прямой обходит своего друга и достойного соперника…Жанр: ДрамаРежиссер: Павел ЛюбимовАктеры: Анатолий Матешко (...Петр Королев), Елена Цыплакова (...Елена), Александр Фатюшин (...тренер Никитич), Борис Морозов (...Олег Иванович), Алексей Ванин (II) (...Рольф Шмидт), Сергей Рубеко (...Мыльников), Виталий Максимов, Юрий Думчев (...дискобол).Продолжительность: 01:27:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 362919   (520421) от 18.08.2015
 
 За прекрасных дам! (1989) DVDRip
@@ -6,7 +63,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520421.jpg" />
+  <img src="Z:/picture/008/save_picture_520421.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520099.jpg" />
+  <img src="Z:/picture/008/save_picture_520099.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519543.jpg" />
+  <img src="Z:/picture/008/save_picture_519543.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_519438.jpg" />
+  <img src="Z:/picture/005/save_picture_519438.jpg" />
 </div>
 
 
@@ -113,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519309.jpg" />
+  <img src="Z:/picture/008/save_picture_519309.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519182.jpg" />
+  <img src="Z:/picture/008/save_picture_519182.jpg" />
 </div>
 
 
@@ -169,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518480.jpg" />
+  <img src="Z:/picture/008/save_picture_518480.jpg" />
 </div>
 
 
@@ -195,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518403.jpg" />
+  <img src="Z:/picture/008/save_picture_518403.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517701.jpg" />
+  <img src="Z:/picture/008/save_picture_517701.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517251.jpg" />
+  <img src="Z:/picture/008/save_picture_517251.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516086.jpg" />
+  <img src="Z:/picture/008/save_picture_516086.jpg" />
 </div>
 
 
@@ -302,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515212.jpg" />
+  <img src="Z:/picture/008/save_picture_515212.jpg" />
 </div>
 
 
@@ -328,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515086.jpg" />
+  <img src="Z:/picture/008/save_picture_515086.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515068.jpg" />
+  <img src="Z:/picture/008/save_picture_515068.jpg" />
 </div>
 
 
@@ -380,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513867.jpg" />
+  <img src="Z:/picture/008/save_picture_513867.jpg" />
 </div>
 
 
@@ -406,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513730.jpg" />
+  <img src="Z:/picture/008/save_picture_513730.jpg" />
 </div>
 
 
@@ -432,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512793.jpg" />
+  <img src="Z:/picture/008/save_picture_512793.jpg" />
 </div>
 
 
@@ -458,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512722.jpg" />
+  <img src="Z:/picture/008/save_picture_512722.jpg" />
 </div>
 
 
@@ -485,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512412.jpg" />
+  <img src="Z:/picture/008/save_picture_512412.jpg" />
 </div>
 
 
@@ -511,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511835.jpg" />
+  <img src="Z:/picture/008/save_picture_511835.jpg" />
 </div>
 
 
@@ -537,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511413.jpg" />
+  <img src="Z:/picture/008/save_picture_511413.jpg" />
 </div>
 
 
@@ -564,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511396.jpg" />
+  <img src="Z:/picture/008/save_picture_511396.jpg" />
 </div>
 
 
@@ -590,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510855.jpg" />
+  <img src="Z:/picture/008/save_picture_510855.jpg" />
 </div>
 
 
@@ -617,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510207.jpg" />
+  <img src="Z:/picture/008/save_picture_510207.jpg" />
 </div>
 
 
@@ -628,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D4CBD004CF1C7D9D3CE0B1006D1EC5C39E676B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537766   (509680) от 23.08.2012
-
-Факир на час  (1971) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509680.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименной пьесы Владимира Дыховичного и Мориса Слободского. История о веселой неразберихе в провинциальной гостинице, где корреспондента газеты Сергея Караванова приняли за известного гипнотизера. Тем более, что совпадают имя и отчество. К "гипнотизеру" тут же начинают обращаться с просьбами, и Сергею Караванову удается "загипнотизировать" (   Читать дальше...   )Производство: БеларусьфильмЖанр: Музыкальная комедияРежиссер: Диамара НижниковскаяАктеры: Надежда Румянцева, Лидия Смирнова, Валентина Ананьина, Александр Белявский, Михаил Пуговкин, Михаил ВодянойПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506285A79BE2238021BA3AA8A02E5983D58E8C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538403   (509646) от 23.08.2012
-
-Где бы ни работать.. (1987) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бездельник Петр Петрович Белкин в поисках "теплого местечка" кочует с одного места работы на другое. В конце концов герой оказывается в коллективе, котоpый решает проучить лодыря...Жанр: Комедия, музыкальный фильмРежиссер: Николай АлександровичАктеры: Галина Беляева, Сергей Скрипкин, Валерий Сторожик, Семён Фарада, Владимир Сошальский, Амаяк Акопян, Владимир Суворов, Наталья Крачковская, Юрий ЧерновПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

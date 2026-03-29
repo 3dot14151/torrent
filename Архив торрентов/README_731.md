@@ -6,7 +6,7 @@ Luminar 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887522.jpg" />
+  <img src="Z:/picture/005/save_picture_887522.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887514.jpg" />
+  <img src="Z:/picture/005/save_picture_887514.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ IcoFX 3.6 RePack (& Portable) by elchupakabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887512.jpg" />
+  <img src="Z:/picture/005/save_picture_887512.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Icecream PDF Editor PRO 2.52 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887490.jpg" />
+  <img src="Z:/picture/005/save_picture_887490.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cyberfox 51.0.3 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887470.jpg" />
+  <img src="Z:/picture/005/save_picture_887470.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Adobe Acrobat XI (v11.0.15) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887443.jpg" />
+  <img src="Z:/picture/005/save_picture_887443.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ The Bat! Professional Edition 7.4.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887440.jpg" />
+  <img src="Z:/picture/005/save_picture_887440.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ MacPilot 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887434.jpg" />
+  <img src="Z:/picture/005/save_picture_887434.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Alarm Clock Pro 10.2.7
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887417.jpg" />
+  <img src="Z:/picture/005/save_picture_887417.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887407.jpg" />
+  <img src="Z:/picture/005/save_picture_887407.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Notepad3 5.21.905.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887397.jpg" />
+  <img src="Z:/picture/005/save_picture_887397.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887395.jpg" />
+  <img src="Z:/picture/005/save_picture_887395.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_887370.jpg" />
+  <img src="Z:/picture/009/save_picture_887370.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tor Browser Bundle 5.5.3 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887363.jpg" />
+  <img src="Z:/picture/005/save_picture_887363.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ AIDA64 Extreme Edition 1.60.1300 Final [RU/UA/EN] RePack от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887344.jpg" />
+  <img src="Z:/picture/005/save_picture_887344.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887339.jpg" />
+  <img src="Z:/picture/005/save_picture_887339.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cyberfox 51.0.3 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887338.jpg" />
+  <img src="Z:/picture/005/save_picture_887338.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Adobe Acrobat Reader DC 2015.010.20060 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887337.jpg" />
+  <img src="Z:/picture/005/save_picture_887337.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (08.03.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887328.jpg" />
+  <img src="Z:/picture/005/save_picture_887328.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Dead Age (2016) [Ru/Multi] (1.7) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887326.jpg" />
+  <img src="Z:/picture/005/save_picture_887326.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887324.jpg" />
+  <img src="Z:/picture/005/save_picture_887324.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887303.jpg" />
+  <img src="Z:/picture/005/save_picture_887303.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887298.jpg" />
+  <img src="Z:/picture/005/save_picture_887298.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Acrobat Professional DC (v15.10) Multilingual Updated
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887296.jpg" />
+  <img src="Z:/picture/005/save_picture_887296.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Affinity Publisher Beta 1.8.3.627 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887289.jpg" />
+  <img src="Z:/picture/005/save_picture_887289.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_887287.jpg" />
+  <img src="Z:/picture/009/save_picture_887287.jpg" />
 </div>
 
 

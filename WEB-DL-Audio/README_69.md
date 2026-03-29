@@ -6,7 +6,7 @@ Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104068.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104067.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104066.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104065.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104064.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104063.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104057.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104056.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sugaray Rayford - Human Decency (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104055.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kate Pierson - Radios & Rainbows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104053.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sylvain Rifflet - We Want Stars (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104052.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Shrinking Mode - Choices of Passion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104051.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Arma - Brazilian Genocide (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104050.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Cold Stares - The Southern (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104048.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Richie Kotzen - Nomad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104047.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Whisky of Blood - Diablesse Of Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104042.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Babbba - Perfect moment (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fusion, Swin
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104017.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104002.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103978.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103977.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103976.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103975.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Albert Bover - A Parisian Affair (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103970.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Brant Bjork Trio & Brant Bjork - Once Upon A Time In The Desert (2024) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103968.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jade Macrae - In My Veins (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103967.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The Gapp Project - 'Atmos Sphere' (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103957.jpg" />
 </div>
 
 

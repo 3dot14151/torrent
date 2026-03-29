@@ -1,3 +1,162 @@
+###  Публикация: 698795   (335027) от 26.11.2013
+
+Подпольная империя / Boardwalk Empire (2013) HDTVRip 720p (Сезон 4 (полный) / Серии 1-12 из 12) Amedia
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1920 год. Через несколько часов Атлантик-Сити — столица развлечений и порока, как и вся Америка, вступит в эпоху «Сухого закона». Енох «Наки» Томпсон, днем — городской казначей, а ночью — хитроумный гангстер со связями на самом «верху», решает воспользоваться ситуацией и получить баснословные прибыли на подпольной торговле алкоголем. Однако не он один жаждет обогатиться (   Читать дальше...   )Жанр: Драма, криминалРежиссер: Тимоти Ван Паттен, Аллен Култер, Джереми Подесва,Актеры: Стив Бушеми, Майкл Питт, Келли Макдоналд, Майкл Шеннон, Ши Уигхэм, Алекса Палладино, Майкл Стулбарг, Стивен Грэм, Винсент Пьяцца, Джек Хьюстон и др.Перевод: Многоголосый закадровый, профессиональный - AMEDIAФормат: MKVПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884398F8701D2DF3FBDB939EED80F710FF3E39D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955246   (335018) от 10.11.2015
+
+Астрономы SETI не нашли признаков существования внеземной цивилизации в районе звезды KIC 8462852
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_335018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-астрономы из института SETI (Search for Extraterrestrial Intelligence), которые занимаются поисками следов внеземных цивилизаций в различных уголках космоса, навели все 42 6-метровые тарелки телескопа Allien Telescope Array на звезду KIC 8462852 и в течение более чем двух недель тщательно "вслушивались" во все сигналы, прибывающие из этой области (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840351   (334973) от 12.11.2014
+
+SlimJet 2.0.0.1 + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slimjet - одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink.
+Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования.
+Мощное приложение позволяет вам быстро и безопасно осуществлять веб-серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контентЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72FC8CBE3F789C812159759561771D3F2A967A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419847   (334912) от 30.10.2020
+
+Nvidia DriverPack v.457.09 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет со стандартными драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499374892C770C0D0A5997E3FBA7B0BF20EC7E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837813   (334760) от 06.11.2017
+
+Unified Remote Full v3.10.4 [En/Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный и самый многофункциональный пульт управления компьютером через локальную сеть или интернет (если есть возможность принимать входящие соединения). Превратите свое устройство в универсальный пульт дистанционного управления по Wi-Fi или Bluetooth для компьютера с Windows. Поддерживаются также Mac и Linux (бета-версия). Управляйте любимыми программами, мышью (   Читать дальше...   )Тип издания: Full с МаркетаРелиз состоялся: 02.11.2017Разработчик: Unified IntentsПоддерживаемая ОС: Android. Версия зависит от устройства.Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9B98817C2170B7077090B38839C24E59C39896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419483   (334684) от 30.10.2020
+
+Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.13328.20292 (2020.10) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский + языковые пакеты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439D94829028941DFD8543B8C26021D731056109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187240   (334683) от 30.10.2020
 
 Андрей Тарковский. Фильмография (1962 - 1986) 7 х DVDRip
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334683.jpg" />
+  <img src="Z:/picture/008/save_picture_334683.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334536.jpg" />
+  <img src="Z:/picture/008/save_picture_334536.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ ACDSee Ultimate 9.1 Build 580 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334524.jpg" />
+  <img src="Z:/picture/008/save_picture_334524.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ Advanced Archive Password Recovery Professional 4.54 [Multi / Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334517.jpg" />
+  <img src="Z:/picture/005/save_picture_334517.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ EVE Online: Parallax / Параллакс (2007) [Ru/Multi] (1.0/13.1.976307) Li
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334516.jpg" />
+  <img src="Z:/picture/008/save_picture_334516.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334494.jpg" />
+  <img src="Z:/picture/005/save_picture_334494.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334288.jpg" />
+  <img src="Z:/picture/008/save_picture_334288.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334286.jpg" />
+  <img src="Z:/picture/008/save_picture_334286.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ NNMClub client v1.02 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334084.jpg" />
+  <img src="Z:/picture/008/save_picture_334084.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ The Evil Within 2 (2017) [Ru/En] (1.05/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334040.jpg" />
+  <img src="Z:/picture/008/save_picture_334040.jpg" />
 </div>
 
 
@@ -272,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334036.jpg" />
+  <img src="Z:/picture/008/save_picture_334036.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333485.jpg" />
+  <img src="Z:/picture/005/save_picture_333485.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333256.jpg" />
+  <img src="Z:/picture/005/save_picture_333256.jpg" />
 </div>
 
 
@@ -351,7 +510,7 @@ Call of Duty: Ghosts / Зов долга: Призраки (2013) [Ru/En] (3.15.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333230.jpg" />
+  <img src="Z:/picture/008/save_picture_333230.jpg" />
 </div>
 
 
@@ -377,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333229.jpg" />
+  <img src="Z:/picture/008/save_picture_333229.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ JetBrains WebStorm 11.0 Build #WS-143.381 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333188.jpg" />
+  <img src="Z:/picture/008/save_picture_333188.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ Planetbase (2015) [Ru/Multi] (1.0.6B1) Repack Elektra
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333184.jpg" />
+  <img src="Z:/picture/008/save_picture_333184.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333182.jpg" />
+  <img src="Z:/picture/008/save_picture_333182.jpg" />
 </div>
 
 
@@ -482,7 +641,7 @@ Windows 10 1903 24in1 (x86/x64) +/- Office 2019 by Eagle123 (10.2019) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332986.jpg" />
+  <img src="Z:/picture/008/save_picture_332986.jpg" />
 </div>
 
 
@@ -508,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_332969.jpg" />
+  <img src="Z:/picture/005/save_picture_332969.jpg" />
 </div>
 
 
@@ -520,164 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259513   (332789) от 18.11.2010
-
-Пила 7 / Saw 7 (2010) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ужасы, триллер, детективРежиссер: Кевин ГротертВ ролях: Костас Мэндилор, Шон Патрик Флэнери, Тобин Белл, Кэри Элвис, Бетси Расселл, Дин Армстронг, Чэд Донелла, Джина Холден, Честер Беннингтон, Ребекка МаршаллФормат: AVI (XviD)Продолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE80DB18BB547E2CF1882F14B6F435D6BB5F8746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258664   (332772) от 18.11.2010
-
-Need for Speed: Hot Pursuit Limited Edition [Ru/Multi23] (L) 2010 l RELOADED
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332772.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Люди, известные как «козлы», подъехали на одноименных машинах…» — этот злобный анекдот как нельзя лучше характеризует отношение к силам правопорядка не только в России, но и по всему миру — в видеоиграх. Быть копом — это не круто. Их задача — мешать вам, их тачки — унылый расходный материал.
-
-Но представьте, как было бы обидно, если за обнаглевшим игроком вдруг погнались не на позорных Chevrolet Impala, и даже не новеньких Dodge Charger, а, скажем, на эксклюзивном, тюнингованном Lamborghini Reventon за полтора миллиона евро! Роль этакого копа-мажора уже не кажется зазорной. Именно ее нам предлагают освоить в Need for Speed: Hot Pursuit.Тип издания: ЛицензияЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: Multi\РусскийЯзык интерфейса: Multi\Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50A314792365D5BE863E8C953BF8A12E409C42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579618   (332757) от 29.09.2022
-
-Быстрее пули / Bullet Train (2022) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро наёмных убийц оказываются в одном сверхскоростном экспрессе. Они узнают, что их миссии связаны, и пытаются выяснить, кто и зачем собрал их вместе.Производство: США / 87North, CTB Inc., Hill District MediaЖанр: боевик, комедияРежиссер: Дэвид ЛитчАктеры: Брэд Питт, Джои Кинг, Аарон Тейлор-Джонсон, Брайан Тайри Генри, Эндрю Кодзи, Хироюки Санада, Майкл Шеннон, Сандра Буллок, Бэд Банни, Логан ЛерманПеревод: многоголосый профессиональный (NewComers) 18+Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 02:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF6D892B10D586137427518457CAAF8D60CEDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258989   (332716) от 01.11.2018
-
-Windows x86 x64 Release by StartSoft 36-2018 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка может заинтересовать тех пользователей персональных компьютров которым хотелось бы иметь возможность установки четырех операционных систем Windows с одной загрузочной флешки. В состав сборки входит образ ISO, который можно распаковать на флешку размером от 16 Гигабайт. Перед началом распаковки установочных файлов из образа ISO на флешку необходимо в ней создать (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564FEF545763981A0854AAD64495B37BC1546E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955744   (331800) от 12.11.2015
-
-RadioSure PRO 2.2.1044.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331800.jpg" />
-</div>
-
-
-###  Подробнее
-
-RadioSure  это новый радио плеер, который дает возможность прослушивать множество станций в онлайн режиме. Использование такого радио - полностью бесплатно, при этом у вас есть возможность слушать массу различных радиоволн. Утилита может взаимодействовать с разнообразными форматами такими, как ogg vorbis, vma и многими другими.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272A61B42B5D47402DC9257C1D1B3AB2AF54E675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839982   (331773) от 14.11.2014
-
-Call Of Duty: Advanced Warfare [PS3] [EUR] [Ru/Pl] [4.65] [Cobra ODE / E3 ODE PRO ISO] (2014)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: Advanced Warfare — шутер от первого лица, разрабатываемый студией Sledgehammer Games при поддержке High Moon Studios. Действие Call of Duty: Advanced Warfighter разворачивается в не столь далеком будущем, в котором частные военные компании стали самыми эффективными войсками, услугами которых пользуются страны во всем мире, а самым могущественным человеком (   Читать дальше...   )Тип издания: ЛицензияРазработчик: High Moon Studios / Raven Software (Multiplayer)Жанр: Action (Shooter) / 1st PersonЯзык озвучки: Русский, ПольскийЯзык интерфейса: Русский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FE05457AE399C00D79732A13B4E74D244F71CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

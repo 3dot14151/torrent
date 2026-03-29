@@ -1,3 +1,61 @@
+###  Публикация: 1513710   (222416) от 30.11.2021
+
+Avatar - Fenyre varva (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero 4:22
+02. Tulelo 4:15
+03. Samanenek 5:13
+04. Hatvan gyertya 4:48(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2320D1F6DDEEAF92C80CEFAC95EAC200975135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651384   (222356) от 06.08.2023
+
+Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign of the Times [00:05:46]
+02. Last Goodbye [00:04:28]
+03. On the Road [00:04:26]
+04. The Lighthouse [00:04:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B74DB60E9307781E767D7A591E17A8104615C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651442   (222299) от 06.08.2023
 
 Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Kaj Pousar - Nine Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222299.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tony Mitchell - Radio Heartbeat (2023) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222262.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Jimmy Page & Friends - Tribute To Alexis Korner (2019) Reissue, 2023, Angel Air 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221750.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Tyler Leads - Planetary Movement (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221714.jpg" />
+  <img src="Z:/picture/005/save_picture_221714.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Bandolier Kings - Time to Remember(A Tribute to Budgie - Volume 2) (2022) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221684.jpg" />
+  <img src="Z:/picture/005/save_picture_221684.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Bad Kingz - Take Me Into Your Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221670.jpg" />
+  <img src="Z:/picture/005/save_picture_221670.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sammy Hagar & The Circle - Crazy Times (2022) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221568.jpg" />
+  <img src="Z:/picture/005/save_picture_221568.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ SeaWitch - Well of Spells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221514.jpg" />
+  <img src="Z:/picture/005/save_picture_221514.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Duff McKagan - Lighthouse: Live from London (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221294.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Joel Hoekstra's 13 - Crash Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221247.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Linman - Heaven Calls (1992) 2xCD, Reissue, 2023, MelodicRock Classics [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220995.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Black Cats NYC - Free Cake (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220952.jpg" />
+  <img src="Z:/picture/005/save_picture_220952.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Steelover - Stainless (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220744.jpg" />
+  <img src="Z:/picture/005/save_picture_220744.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ C.T.P. Christian Tolle Project - Now & Then Encore (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220723.jpg" />
+  <img src="Z:/picture/005/save_picture_220723.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219730.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219607.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Seraina Telli - Simple Talk (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219603.jpg" />
+  <img src="Z:/picture/005/save_picture_219603.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Woven Man - Revelry (In Our Arms) (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219590.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Signs Of Truth - Signs Of Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219529.jpg" />
+  <img src="Z:/picture/005/save_picture_219529.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219247.jpg" />
+  <img src="Z:/picture/005/save_picture_219247.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Phenomena - Still The Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218935.jpg" />
+  <img src="Z:/picture/005/save_picture_218935.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ellefson - No Cover (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218473.jpg" />
+  <img src="Z:/picture/005/save_picture_218473.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ The Chop - Ghostbeef (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock,  Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218439.jpg" />
+  <img src="Z:/picture/005/save_picture_218439.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Skid Row - The Gang's All Here (2022) [FLAC|Lossless|image + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218182.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Skid Row - великие невоспетые герои металла. Они
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9CBD946959A93B1B986305F824FB8591AEA0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218123   (217238) от 22.11.2020
-
-Jimmy Page: Solo Projects - 27 albums, 46 CD (1967-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимми Пейдж (James Patrick Page) — британский рок-музыкант, аранжировщик, композитор, музыкальный продюсер и гитарист-виртуоз, стоявший у истоков Led Zeppelin и до самого конца оставался музыкальным «мозгом» группы. Гитарное соло Пейджа в «Stairway to Heaven» возглавило списки лучших гитарных соло журналов Guitar World и Total Guitar. Журнал Creem признавал его (   Читать дальше...   )--------------------------
-
-01. Breathless (2:41)
-02. Everyday (2:32)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues |Продолжительность: 38:04:40 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB94155C43AD427173B1A439729F71D7CE9D1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652503   (217179) от 12.08.2023
-
-Kind - Close Encounters (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn Scar [00:06:47]
-02. Favorite One [00:07:10]
-03. Black Yesterday [00:05:58]
-04. Snag [00:03:58](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, DoomПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC72FC7517DFF74CBE5B0F65C02C2F41A917A157
 ```
 
 https://mybot314.ru/tekegram_catalog/

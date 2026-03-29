@@ -6,7 +6,7 @@ Painkiller: Hell & Damnation [Ru] (RePack) 2012 | R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393445.jpg" />
+  <img src="Z:/picture/008/save_picture_393445.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ R.A.W.: Realms of Ancient War [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393433.jpg" />
+  <img src="Z:/picture/008/save_picture_393433.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Painkiller: Hell and Damnation [Ru] (Repack/DLC) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392483.jpg" />
+  <img src="Z:/picture/008/save_picture_392483.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392479.jpg" />
+  <img src="Z:/picture/008/save_picture_392479.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ I Am Alive [PS3] [PSN] [ENG] [NTSC] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392472.jpg" />
+  <img src="Z:/picture/008/save_picture_392472.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Brutal DooM [En] (Mod/0.17) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392410.jpg" />
+  <img src="Z:/picture/008/save_picture_392410.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (1.7/Steam-Rip/16 DLC) 2012 l R.G. Origi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392370.jpg" />
+  <img src="Z:/picture/005/save_picture_392370.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Call of Duty: Ghosts [PS3] [USA] [Multi4] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391515.jpg" />
+  <img src="Z:/picture/008/save_picture_391515.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Painkiller Hell & Damnation [Ru/En] (RePack/1.0/3 DLC) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391509.jpg" />
+  <img src="Z:/picture/008/save_picture_391509.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ King's Bounty - Warriors of the North [Ru/En] (RePack/1.3.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391442.jpg" />
+  <img src="Z:/picture/008/save_picture_391442.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.3.1.47) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391436.jpg" />
+  <img src="Z:/picture/008/save_picture_391436.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Elemental: Fallen Enchantress [En] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391391.jpg" />
+  <img src="Z:/picture/008/save_picture_391391.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Worlds of Legend: Son of the Empire [En] (RePack) 1993 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390840.jpg" />
+  <img src="Z:/picture/005/save_picture_390840.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Roger Rabbit and Baby Herman in "Hare Raising Havoc" [En] (RePack) 1991 | RG Gam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390795.jpg" />
+  <img src="Z:/picture/008/save_picture_390795.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Shank Dilogy [Ru/En] (RePack) 2010 - 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390690.jpg" />
+  <img src="Z:/picture/008/save_picture_390690.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Bioshock 2 [Xbox 360] [RUSSOUND] [PAL] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390599.jpg" />
+  <img src="Z:/picture/008/save_picture_390599.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Divinity II: Developer's Cut [Ru] (RePack/1.4.700.38) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390590.jpg" />
+  <img src="Z:/picture/008/save_picture_390590.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Mystical [En] (RePack) 1990 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390332.jpg" />
+  <img src="Z:/picture/005/save_picture_390332.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Wizkid: The Story of Wizball 2 [En] (RePack) 1992 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390275.jpg" />
+  <img src="Z:/picture/005/save_picture_390275.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Murders in Venice и Murder in Space [En] (RePack) 1990 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390269.jpg" />
+  <img src="Z:/picture/005/save_picture_390269.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kajko i Kokosz [Pl] (RePack) 1994 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390212.jpg" />
+  <img src="Z:/picture/005/save_picture_390212.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Blues Brothers Дилогия [En] (RePack) 1993 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390102.jpg" />
+  <img src="Z:/picture/005/save_picture_390102.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Wayne's World [En] (RePack) 1993 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390059.jpg" />
+  <img src="Z:/picture/005/save_picture_390059.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Lethal Weapon [En] (RePack) 1992 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389976.jpg" />
+  <img src="Z:/picture/005/save_picture_389976.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.03) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389960.jpg" />
+  <img src="Z:/picture/008/save_picture_389960.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389904.jpg" />
+  <img src="Z:/picture/008/save_picture_389904.jpg" />
 </div>
 
 

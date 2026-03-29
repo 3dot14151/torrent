@@ -1,3 +1,119 @@
+###  Публикация: 1754856   (103617) от 13.10.2024
+
+Barney Kessel & Herb Ellis - Poor Butterfly (1976) 2002, Victor [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dearly Beloved [3:23]
+02. Monsieur Armand [4:24]
+03. Poor Butterfly [3:48]
+04. Make Someone Happy [8:38](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1530E7E24C56369021F4D875240BA855F2D2197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755040   (103615) от 13.10.2024
+
+Jim Hall - Live! (1975) 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes [11:11]
+02. 'Round Midnight [8:02]
+03. Scrapple From The Apple [7:37]
+04. The Way You Look Tonight [6:14](   Читать дальше...   )Жанр: Cool, Post-Bop, Guitar JazzПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD6B7C94BD2F6DE8B3D22896F5CEEA338228A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755042   (103613) от 13.10.2024
+
+Joe Pass Quartet - Nuages: Live At Yoshi's, Vol. 2 (1992) 1997, Pablo [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember You [5:48]
+02. Repetition [4:58]
+03. September Song [4:33]
+04. Nuages [5:06](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB827098FA5C7BA37F75D088E4CE1C5C274E3247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755400   (103603) от 17.10.2024
+
+Kenny Werner - Vida Nueva (New Life) (2001) Laurel Tree Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [5:03]
+02. Corcovado (Quiet Nights) [5:03]
+03. Girl from Ipanema [4:27]
+04. Morning of Carnival [5:00](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAE7D856932D069E8775D24B82C87B1AFB8FB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755812   (103595) от 17.10.2024
 
 VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +122,7 @@ VA - Jazz Para Trabajar Y Estudiar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103595.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Erskine Hawkins - 1941 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103578.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Roaring Halloween (Electro Swing 3) (2024) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103557.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sarah Vaughan - Great Women of Song (2023) Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103554.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103534.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Milt Jackson & Ray Charles - Soul Brothers (1958) 2012, Atlantic [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103529.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103513.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103507.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Eddie Henderson - Witness To History (2023) Smoke Sessions Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103505.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ray Brown - The Best Of The Concord Years (1973 - 1993) 2CD, 2002, Concord Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103504.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103503.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103502.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103483.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103478.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Charles Mingus - Incarnations (1960) 2024, Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103476.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Frank Sinatra - In The Wee Small Hours (1953 - 1955) 2019, State Of Art [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103445.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Charles Tolliver - New Tolliver (1977) 2009, BMG [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103415.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Frank Sinatra - Close To You And More (2002) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103403.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Frank Sinatra - Where Are You? (2002) Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103339.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bunkiman - Bunkiman 2023 Best (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103337.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Toshiko Akiyoshi Trio - Time Stream (1985) Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103336.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103334.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Laurindo Almeida - Concierto de Aranjuez (1978) 1984, East Wind [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5C1B7F289F1D96B56BF77C2CC57FE3DEB16B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759039   (103321) от 06.11.2024
-
-Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for Night People [20:32]
-02. Blues My Naughty Sweetie Gave to Me [3:42]
-03. Blue Prelude [5:23]
-04. This Can't Be Love [2:43](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B5DFCAA61CC6AEDBD2D415F4AA979D72CA4247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759579   (103272) от 09.11.2024
-
-Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [1:56]
-02. Love Me or Leave Me [1:40]
-03. As Long As I Live [4:12]
-04. You're The Top [2:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A7AA3F38AAA47CA35F38E51C26F837FB006F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759668   (103243) от 10.11.2024
-
-Frank Sinatra & Bing Crosby - The Golden Era Of Jazz Vol. 1 (2006) 2CD [WavPack|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinah
- 02. Can't we talk it over?
- 03. Shine
- 04. Paradise(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40438A7DA03D68E6A82062AA8CE289837DA180B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759713   (103237) от 10.11.2024
-
-VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brasilia [2:19]
-02. I'll Remember April [2:36]
-03. Lonely Lament [2:38]
-04. Carnival [1:46](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, CoolПродолжительность: 10:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A104260354D1AD1417258B020828CDD1463B4D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

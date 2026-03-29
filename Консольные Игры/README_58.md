@@ -6,7 +6,7 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191179.jpg" />
+  <img src="Z:/picture/004/save_picture_191179.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Fullmetal Alchemist 2: Curse of the Crimson Elixir (2005) [PS2] [NTSC] [Unoffici
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189867.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3] [EU
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189546.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182793.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ The Elder Scrolls V: Skyrim (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179137.jpg" />
+  <img src="Z:/picture/005/save_picture_179137.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Street Fighter 6 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178647.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178471.jpg" />
+  <img src="Z:/picture/005/save_picture_178471.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sonic Frontiers (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.40 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177208.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176202.jpg" />
+  <img src="Z:/picture/004/save_picture_176202.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175450.jpg" />
+  <img src="Z:/picture/004/save_picture_175450.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174015.jpg" />
+  <img src="Z:/picture/004/save_picture_174015.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Scars Above (2023) [PS4] [USA] 5.05 [HEN] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173306.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Mortal Kombat 1 Premium Edition (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173268.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ DC League of Super-Pets: The Adventures of Krypto and Ace (2022) [PS4] [USA] 9.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173153.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ ELDEN RING (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.15] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173077.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Minecraft Legends (2023) [PS4] [USA] 5.05 [HEN] [License / 1.06] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172934.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ EA SPORTS UFC 4 (2020) [PS4] [EUR] 5.05 [HEN] [License / 24.00] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172899.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Atomic Heart (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.16 / DLC] [Ru/Multi] [Pr
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172699.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ EA Sports FC 24 (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171982.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Red Dead Redemption (2023) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171813.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ The Long Dark (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.89.69528] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170213.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170088.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Spider-Man 2 (2004) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168100.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Ultimate Spider-Man (2005) [PS2] [NTSC] [Unofficial] [Ru/En]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168085.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167767.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ G-Force / Миссия Дарвина (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166037.jpg" />
 </div>
 
 

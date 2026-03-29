@@ -1,3 +1,29 @@
+###  Публикация: 1222989   (273833) от 28.11.2018
+
+Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит во временной линии бета. Ринтаро Окабэ, путешествуя во времени, пытался спасти возлюбленную, но вместо этого случайно ее убил. Страдая от посттравматического синдрома и чувства вины, парень узнает, что есть программа, позволяющая сгружать сознание человека в искусственный интеллект. И к его удивлению, оказывается, существует цифровая версия его (   Читать дальше...   )Производство: Япония, White FoxЖанр: приключенияРежиссер: Кавамура КэнъитиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE1D544E2B60352DFF5CFCEE1DF95089B4EDF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190551   (266518) от 10.12.2017
 
 Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + SP] BDRip 1080p Hi10p raw+rus
@@ -6,7 +32,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266518.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gyakusatsu Kikan / Genocidal Organ / Орган Геноцида [2017, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265607.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gekijouban Sword Art Online: Ordinal Scale / Мастера Меча Онлай�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264908.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262766.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Robomasters / Робомастера [2017, TV, 6 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262721.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262645.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262641.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito / Sailor Moon S Movie: Hea
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262510.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262003.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261842.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257549.jpg" />
+  <img src="Z:/picture/005/save_picture_257549.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256544.jpg" />
+  <img src="Z:/picture/005/save_picture_256544.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255491.jpg" />
+  <img src="Z:/picture/005/save_picture_255491.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255462.jpg" />
+  <img src="Z:/picture/005/save_picture_255462.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254996.jpg" />
+  <img src="Z:/picture/005/save_picture_254996.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254995.jpg" />
+  <img src="Z:/picture/005/save_picture_254995.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254233.jpg" />
+  <img src="Z:/picture/005/save_picture_254233.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250244.jpg" />
+  <img src="Z:/picture/004/save_picture_250244.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250129.jpg" />
+  <img src="Z:/picture/004/save_picture_250129.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249317.jpg" />
+  <img src="Z:/picture/004/save_picture_249317.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247535.jpg" />
+  <img src="Z:/picture/004/save_picture_247535.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247493.jpg" />
+  <img src="Z:/picture/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247475.jpg" />
+  <img src="Z:/picture/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247436.jpg" />
+  <img src="Z:/picture/004/save_picture_247436.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247434.jpg" />
+  <img src="Z:/picture/004/save_picture_247434.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A168F22CF0219CCDA0C38AD8448B21593A0BD00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624543   (247411) от 23.06.2023
-
-В лоферах вприпрыжку | Долой безделье! | Skip to Loafer | Skip and Loafer [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня сериала Мицуми Ивакура, закончив сельскую среднюю школу, покидает родные пенаты и поступает в престижную старшую школу в Токио, сдав вступительные лучше всех. Но если в учёбе она и правда хороша, то её социальные навыки оставляют желать лучшего. Да и жизнь в новой школе начинается неважно: сначала она опаздывает на вступительную церемонию, а потом (   Читать дальше...   )Производство: Япония / Студия P.A. WorksЖанр: Комедия, романтика, повседневностьРежиссер: Дэай КотомиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- HectoR, Kroxxa, Renie, Stasia Rem (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

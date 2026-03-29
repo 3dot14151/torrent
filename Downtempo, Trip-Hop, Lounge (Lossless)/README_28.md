@@ -1,3 +1,87 @@
+###  Публикация: 1689464   (124651) от 02.01.2024
+
+draag me - lord of the shithouse (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, glitch hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. like a nuisance [00:02:56]
+02. cut the check [00:01:52]
+03. wax figures in the rain [00:02:51]
+04. throwing rocks [00:02:21](   Читать дальше...   )Жанр: alternative, glitch hopПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66670C99FEF90966FB3DA41B234E9DB4BCF69076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690041   (124193) от 05.01.2024
+
+Lemongrass - Mirror Of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Being One
+02. Heat Of The Night
+03. A New Age
+04. The Water(   Читать дальше...   )Жанр: Lounge, Chillout, BalearicПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B9B49E57CDD51CF638EF61EC25D2A9F06FF987D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690393   (123945) от 07.01.2024
+
+Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109F6110BD63D3F66021F3EA23738B6BE038E438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690730   (123827) от 08.01.2024
 
 VA - Музыка для сна и прослушивания перед сном (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
@@ -6,7 +90,7 @@ VA - Музыка для сна и прослушивания перед сно�
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123827.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ V.A. - Chill Out Cafe 60 Essentials Classics (25 Years Celebration) (2024) [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123553.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Blank & Jones - #WhatWeDoAtNight 4 EP 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123281.jpg" />
 </div>
 
 
@@ -92,7 +176,7 @@ Schwarz & Funk - Diamonds of Lounge, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123276.jpg" />
 </div>
 
 
@@ -121,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122768.jpg" />
 </div>
 
 
@@ -150,7 +234,7 @@ VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121474.jpg" />
 </div>
 
 
@@ -179,7 +263,7 @@ VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121466.jpg" />
 </div>
 
 
@@ -208,7 +292,7 @@ VA - Deep Blue Sea, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120970.jpg" />
 </div>
 
 
@@ -237,7 +321,7 @@ V.A. - Buddha-Bar Beach & Love by Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119812.jpg" />
 </div>
 
 
@@ -266,7 +350,7 @@ VA - Cafe Ease: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118771.jpg" />
 </div>
 
 
@@ -295,7 +379,7 @@ Ash - Self-Discovery (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118255.jpg" />
 </div>
 
 
@@ -324,7 +408,7 @@ VA - Erotic Trap -  Bondage, BDSM, Role Play, Fetish, Domination, Rough Sex (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117977.jpg" />
 </div>
 
 
@@ -353,7 +437,7 @@ VA - Best of Chill out Sexy Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116883.jpg" />
 </div>
 
 
@@ -382,7 +466,7 @@ V.A. - Buddha-Bar XXVI (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116717.jpg" />
 </div>
 
 
@@ -411,7 +495,7 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115846.jpg" />
 </div>
 
 
@@ -440,7 +524,7 @@ Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115830.jpg" />
 </div>
 
 
@@ -469,7 +553,7 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115712.jpg" />
 </div>
 
 
@@ -498,7 +582,7 @@ VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115711.jpg" />
 </div>
 
 
@@ -527,7 +611,7 @@ VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115707.jpg" />
 </div>
 
 
@@ -556,7 +640,7 @@ VA - Love & Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114355.jpg" />
 </div>
 
 
@@ -585,7 +669,7 @@ VA - Rhapsodic Night Rythm (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill O
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114352.jpg" />
 </div>
 
 
@@ -614,7 +698,7 @@ VA - Chillout Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Down
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114351.jpg" />
 </div>
 
 
@@ -643,7 +727,7 @@ VA - Emotive Echoes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114154.jpg" />
 </div>
 
 
@@ -657,93 +741,6 @@ VA - Emotive Echoes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9143087CAF1987C3284D11D3A3E8BD12A1BDBDB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704841   (114023) от 06.03.2024
-
-VA - Valentine's Day Perfect Chillout Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing Colors - Feeling Juicy (4:21)
-02. Élan Vital - Eliciting Feelings (4:22)
-03. Klasse XXI - Nocturnal Excursions (4:30)
-04. Monte Venda - Night Airglow (4:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB579A1530CBFD2F8F7377517616E87E33A6CADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704970   (114019) от 06.03.2024
-
-VA - Coastal Chill Vibes: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Excuses (3:28)
-02. Lounge Groove Avenue - Beautiful Dreamer (4:41)
-03. Christos Fourkis - Lover in the Sea (Original Mix) (4:03)
-04. Living Room - A Wonderful Day (3:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11446FAC3CA43207BED358098647C48693FC97CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705616   (113791) от 09.03.2024
-
-Looper - Up A Tree (1999) 25th Anniversary Edition, 2024, Mute [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Indie Rock>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113791.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 – Back to the Treehouse (Ambient Mix)
-12 – Ray’s Golden Fist (Bananahand Remix)
-13 – Burning Flies (Acoustic)
-14 – Columbo’s Car (Peugeot 413 Mix)(   Читать дальше...   )Жанр: Downtempo, Trip Hop, Indie RockПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26C42BB10F3FF2B44FCD40263BA5763158D5A60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1326826   (378791) от 23.09.2019
+
+EverWeb 3 v3.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378791.jpg" />
+</div>
+
+
+###  Подробнее
+
+С EverWeb вы даже можете создает мобильные сайты, которые отлично смотрятся на iPhone и iPad, и включает в себя такие мощные функции, как раскрывающиеся меню, интеграция с социальными сетями, встроенный SEO, поддержка шрифтов Google и многое другое. Множество готовых шаблонов, из которых есть что выбрать или использовать нужные элементы.
+
+Публикуйте свой веб-сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2019Разработчик: RAGE SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204842B18AD78FABF72D4787EEA7559D23E4C63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326846   (378790) от 23.09.2019
+
+MarsEdit 4 v4.3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2019Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5F16641E49FD8CF1BC88A621BE180691C431B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326780   (378789) от 23.09.2019
+
+Unite 2.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unite позволяет быстро и легко превратить веб-сайты в полнофункциональные нативные приложения для MacOS. Используя революционный браузер Unite в качестве бэкэнда, каждое приложение Unite имеет собственный браузер, оставаясь при этом невероятно маленьким и полнофункциональным. И поскольку приложения Unite являются уникальным браузером, они имеют отдельные файлы cookie (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4B487C48979C33A0B67A92805CEC151E85FF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327007   (378787) от 23.09.2019
+
+Pastebot 2.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pastebot - менеджер истории буфера обмена
+Если copy & paste является частью вашего рабочего процесса, Pastebot является незаменимым инструментом для повышения производительности. Быстро вспомнить обрывки, которые вы скопировали и применять мощные текстовые фильтры для форматирования перед вставкой. Вы можете даже стоять в очереди несколько копий, чтобы вставить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tapbots LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781A01BA276274FB63AD8760E789BA8EC7A4F863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327054   (378786) от 23.09.2019
 
 MovieSherlock 6.0.2 [En]
@@ -6,7 +113,7 @@ MovieSherlock 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378786.jpg" />
+  <img src="Z:/picture/008/save_picture_378786.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ TextBar 3 v3.2.182 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378785.jpg" />
+  <img src="Z:/picture/008/save_picture_378785.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ TotalSpaces 2 v2.7.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378784.jpg" />
+  <img src="Z:/picture/008/save_picture_378784.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ GlueMotion 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378783.jpg" />
+  <img src="Z:/picture/008/save_picture_378783.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ Grids for Instagram 5.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378782.jpg" />
+  <img src="Z:/picture/008/save_picture_378782.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Mellel 4.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378781.jpg" />
+  <img src="Z:/picture/008/save_picture_378781.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ iClock Pro 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378778.jpg" />
+  <img src="Z:/picture/008/save_picture_378778.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ VideoProc (former MacX Video Converter Pro) 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378777.jpg" />
+  <img src="Z:/picture/008/save_picture_378777.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ OS X El Capitan 10.11.1 (15B42) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378734.jpg" />
+  <img src="Z:/picture/008/save_picture_378734.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378644.jpg" />
+  <img src="Z:/picture/008/save_picture_378644.jpg" />
 </div>
 
 
@@ -279,7 +386,7 @@ Wondershare PDFelement Pro 7.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378555.jpg" />
+  <img src="Z:/picture/008/save_picture_378555.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ goPanel 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378443.jpg" />
+  <img src="Z:/picture/008/save_picture_378443.jpg" />
 </div>
 
 
@@ -334,7 +441,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378211.jpg" />
+  <img src="Z:/picture/008/save_picture_378211.jpg" />
 </div>
 
 
@@ -360,7 +467,7 @@ Sketch 47.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378182.jpg" />
+  <img src="Z:/picture/008/save_picture_378182.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ AirServer 7.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378173.jpg" />
+  <img src="Z:/picture/008/save_picture_378173.jpg" />
 </div>
 
 
@@ -413,7 +520,7 @@ Photo Mechanic 5.0 (17719) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378031.jpg" />
+  <img src="Z:/picture/008/save_picture_378031.jpg" />
 </div>
 
 
@@ -439,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377895.jpg" />
+  <img src="Z:/picture/008/save_picture_377895.jpg" />
 </div>
 
 
@@ -465,7 +572,7 @@ DaVinci Resolve Studio 12.5.3 + easyDCP [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377808.jpg" />
+  <img src="Z:/picture/008/save_picture_377808.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377724.jpg" />
+  <img src="Z:/picture/008/save_picture_377724.jpg" />
 </div>
 
 
@@ -520,7 +627,7 @@ MacX MediaTrans 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377627.jpg" />
+  <img src="Z:/picture/008/save_picture_377627.jpg" />
 </div>
 
 
@@ -548,7 +655,7 @@ EtreCheck 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377524.jpg" />
+  <img src="Z:/picture/008/save_picture_377524.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ Boxy SVG 3.22.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377518.jpg" />
+  <img src="Z:/picture/008/save_picture_377518.jpg" />
 </div>
 
 
@@ -587,110 +694,6 @@ Boxy SVG 3.22.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83BEDF5895A4450CCC773D8D69C32BA9DA25B917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254093   (377513) от 12.10.2018
-
-QLab Pro 4.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377513.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1439377A424A6CDA47DC3C83D2406096A6FAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254128   (377383) от 12.10.2018
-
-iA Writer 5.1.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7112C7C9AEC8D4E7AAC79EE208FB19A9D869B584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253950   (377382) от 12.10.2018
-
-Disk Diet 5.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получить больше свободного места для вашего SSD или на любом другом диске с помощью одного щелчка мыши. С более чем 4500 высшими международными оценками и поддержкой мирового уровня, это необходимый инструмент для каждого пользователя Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: © 2016 Twixl mediaПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFD5E03EB924DDC04EFF5E5585B9D51C6DEDB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254069   (377369) от 12.10.2018
-
-Pixellu SmartAlbums 2 v2.1.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377369.jpg" />
-</div>
-
-
-###  Подробнее
-
-SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество! Экспериментируйте с дизайном, перемешайте и размещайте фотографии. Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbums создан фотографами и графическими дизайнерами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2018Разработчик: PIXELLUПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD205C4D1554126C033407F95784BAF3F092F20C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 445558   (53573) от 12.06.2024
+
+Корней Чуковский | Сказки (2011) [MP3, Алексей Борзунов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+В сборник вошли сказки Корнея Ивановича Чуковского (1882–1969), которые знают и любят дети. С этими сказками выросло уже несколько поколений юных читателей, ставших теперь дедушками и бабушками, мамами и папами.
+
+Замяукали котята:(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5845ACBB9280BDDCBE3C34FA01E7A8E36A55260C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383001   (53572) от 12.06.2024
+
+Корней Чуковский | Сказки и стихотворения (Аудиоспектакль) (2005) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Корней Иванович Чуковский (1882–1969) – русский писатель, поэт, ученый-литературовед и известный переводчик, историк литературы.
+Эта аудиокнига для тех, кто любит стихотворные сказки Корнея Ивановича Чуковского. Вам предстоит встреча с добрым доктором Айболитом и веселым Мойдодыром, гадким и нехорошим Бармалеем и с другими (   Читать дальше...   )Жанр: Сказка, стихиВ ролях: Николай Литвинов, Ростислав Плятт, Александр Калягин, Рина ЗеленаяИздательство: ИДДКПродолжительность: 02:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEC5E063A32FD33975D61E583CBE489DA9ACA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382964   (53570) от 12.06.2024
+
+Корней Чуковский | Айболит. Стихи и сказки (2005) [MP3, Корней Чуковский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Детская аудиокнига».
+Корней Иванович Чуковский (1882–1969) – русский писатель, поэт, ученый-литературовед и известный переводчик, историк литературы.
+Не одно поколение маленьких читателей выросло на веселых, остроумных и лишенных назидательности сказках в стихах. Давайте вместе послушаем, как их рассказывает сам Корней Иванович Чуковский.Жанр: Русская литература для детей, классика, стихи, сказкаИздательство: Студия «АРДИС»Продолжительность: 01:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FFAB9367E0B10F6BE6B9F79B4B8DD69CF0EAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729983   (53421) от 13.06.2024
 
 Самуил Маршак | Двенадцать месяцев (Радиоспектакль) (2013) [MP3, Анастасия Георгиевская, Евгения Морес и др.]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53421.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53418.jpg" />
 </div>
 
 
@@ -63,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53402.jpg" />
 </div>
 
 
@@ -91,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53255.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53209.jpg" />
 </div>
 
 
@@ -145,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53206.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52961.jpg" />
 </div>
 
 
@@ -202,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52505.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51417.jpg" />
 </div>
 
 
@@ -257,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51213.jpg" />
 </div>
 
 
@@ -284,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51081.jpg" />
 </div>
 
 
@@ -311,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50734.jpg" />
 </div>
 
 
@@ -337,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50612.jpg" />
 </div>
 
 
@@ -364,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50605.jpg" />
 </div>
 
 
@@ -391,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50231.jpg" />
 </div>
 
 
@@ -417,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50195.jpg" />
 </div>
 
 
@@ -446,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50161.jpg" />
 </div>
 
 
@@ -475,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50160.jpg" />
 </div>
 
 
@@ -501,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48697.jpg" />
 </div>
 
 
@@ -529,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48533.jpg" />
 </div>
 
 
@@ -557,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48410.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48361.jpg" />
 </div>
 
 
@@ -613,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48331.jpg" />
 </div>
 
 
@@ -627,85 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19954A8DF808A7F0A3298F32FAB68B8C1BA330E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443791   (48234) от 01.08.2024
-
-Марсель Эме | Сказки кота Мурлыки. Красная книга (2010) [MP3, Кирилл Петров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсель Эме (1902–1967) – французский писатель прозаик, драматург, автор комедий, романов, сказок и новелл. Марсель Эме оставил за собой огромное творческое наследие: 17 романов, несколько сборников рассказов, пьес, сказок, сценариев. Марселю Эме блестяще удавались не только серьезные книги для взрослых, но и детские произведения. Критики называют его продолжателем (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Нигде не купишьПродолжительность: 03:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC38FC019D6DCDD8E33ECC4F1AFFF7F98F00EF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443794   (48223) от 01.08.2024
-
-Марсель Эме | Сказки кота Мурлыки. Синяя книга (2010) [MP3, Кирилл Петров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марсель Эме (1902–1967) – французский писатель прозаик, драматург, автор комедий, романов, сказок и новелл. Марсель Эме оставил за собой огромное творческое наследие: 17 романов, несколько сборников рассказов, пьес, сказок, сценариев. Марселю Эме блестяще удавались не только серьезные книги для взрослых, но и детские произведения. Критики называют его продолжателем (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Нигде не купишьПродолжительность: 04:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D5082BB62B181C06A3CE3955164EE08B7CDB2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305227   (47814) от 05.08.2024
-
-Лаймен Фрэнк Баум | Волшебник из Страны Оз (Книга 2). Чудесная Страна Оз (2010) [MP3, Геннадий Храпунков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Театральный фонограф.
-Лаймен Фрэнк Баум (1856–1919) – американский журналист, драматург, автор детских рассказов. Хотя Баум написал более семи десятков детских книг, его известность базируется в основном на книге о «Волшебнике...» и других историях о стране Оз, во всех из которых особое значение придается таким американским добродетелям, как практичность, (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаВ ролях: Геннадий Храпунков, Сергей Щепачёв и др.Перевод: Ирина ВоскресенскаяИздательство: ООО «АрМир»Продолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A2A1820E37B1BB6563F65814824CB167DBF633
 ```
 
 https://mybot314.ru/tekegram_catalog/

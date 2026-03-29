@@ -1,3 +1,57 @@
+###  Публикация: 1256550   (351572) от 23.10.2018
+
+Runtu 18.04 Xfce [x86_x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла 64-разрядная версия дистрибутива Runtu XFCE 18.04, основанная на пакетной базе релиза  Bionic Beaver 18.04.3 LTS. Дистрибутив собран с помощью debootstrap, установлена базовая система и рабочее окружение XFCE 4.12. В состав ПО включены средства для воспроизведения аудио- и видео-файлов, офисный пакет LibreОffice 6.0.6.2, графический редактор Gimp 2.10.6, подсистема (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7360EEC4E9B640C461970E1B2B6DA585DD361D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953229   (351423) от 03.11.2015
+
+Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официально представлен релиз Linux-дистрибутива Fedora 23. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server и Fedora Cloud, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon и SOAS (Sugar on a Stick).
+
+Дополнительно поставляется образ для Docker и сборки для различных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD88D7709BD7FD4DA5FD005882B47F28B0468C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953239   (351167) от 03.11.2015
 
 Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 6xDVD
@@ -6,7 +60,7 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351167.jpg" />
+  <img src="Z:/picture/008/save_picture_351167.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Tor Browser 2.3.25-15 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350238.jpg" />
+  <img src="Z:/picture/008/save_picture_350238.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Skype for Linux 8.9.0.1 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348628.jpg" />
+  <img src="Z:/picture/008/save_picture_348628.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Tor Browser 5.0.4 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348560.jpg" />
+  <img src="Z:/picture/008/save_picture_348560.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Oracle Linux 7 Update 3 Server [x86-64] 1xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346884.jpg" />
+  <img src="Z:/picture/008/save_picture_346884.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346484.jpg" />
+  <img src="Z:/picture/008/save_picture_346484.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346483.jpg" />
+  <img src="Z:/picture/008/save_picture_346483.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346130.jpg" />
+  <img src="Z:/picture/008/save_picture_346130.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344056.jpg" />
+  <img src="Z:/picture/008/save_picture_344056.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343924.jpg" />
+  <img src="Z:/picture/008/save_picture_343924.jpg" />
 </div>
 
 
@@ -280,7 +334,7 @@ Adobe Dreamweaver CS6 [MULTi / Русский] [x86, amd64] (wine)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342274.jpg" />
+  <img src="Z:/picture/008/save_picture_342274.jpg" />
 </div>
 
 
@@ -306,7 +360,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340655.jpg" />
+  <img src="Z:/picture/008/save_picture_340655.jpg" />
 </div>
 
 
@@ -334,7 +388,7 @@ Debian Edu - Skolelinux 11.5.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340653.jpg" />
+  <img src="Z:/picture/008/save_picture_340653.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340087.jpg" />
+  <img src="Z:/picture/008/save_picture_340087.jpg" />
 </div>
 
 
@@ -386,7 +440,7 @@ Q4OS 1.8.1 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339807.jpg" />
+  <img src="Z:/picture/008/save_picture_339807.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Arch Linux 2015.11.01 [i686, x86-64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339117.jpg" />
+  <img src="Z:/picture/008/save_picture_339117.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Linux UsefulPack 12.11 (L) [Русский] (2012)[x86 + amd64]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_337294.jpg" />
+  <img src="Z:/picture/005/save_picture_337294.jpg" />
 </div>
 
 
@@ -472,7 +526,7 @@ Ubuntu EducationPack 16.04 (2020.10) [i386 + amd64] (2хDVD)
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334937.jpg" />
+  <img src="Z:/picture/008/save_picture_334937.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ Linux Mint 19 Win10 theme by oleg251975 19 [64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322368.jpg" />
+  <img src="Z:/picture/008/save_picture_322368.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321105.jpg" />
+  <img src="Z:/picture/008/save_picture_321105.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ Skype for Linux Beta 5.5.0.1 [x86_x64] (deb, rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321043.jpg" />
+  <img src="Z:/picture/008/save_picture_321043.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ Skype for Linux 8.10.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321029.jpg" />
+  <img src="Z:/picture/008/save_picture_321029.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ Tor Browser 2.2.39-5 [i686, x86-64] (bundle)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319685.jpg" />
+  <img src="Z:/picture/005/save_picture_319685.jpg" />
 </div>
 
 
@@ -640,7 +694,7 @@ JonDo 0.9.87 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316967.jpg" />
+  <img src="Z:/picture/008/save_picture_316967.jpg" />
 </div>
 
 
@@ -653,60 +707,6 @@ Jondo Live-DVD предлагает безопасные, предварител
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F6CF7EE3BD8E10C0BDB7207553572E6C74BF391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959180   (316608) от 24.11.2015
-
-KNOPPIX 7.6 [x32, x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316608.jpg" />
-</div>
-
-
-###  Подробнее
-
-После более чем годичного перерыва Клаус Кноппер (Klaus Knopper) представил выпуск KNOPPIX 7.6, исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian Jessie, со вставками из веток Debian "testing" и "unstable". (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8C34360A7FEC226E279411B07B9DF9093CCB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959756   (314120) от 25.11.2015
-
-Cinelerra 5.0 [i686, x86_64] (txz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinelerra — свободная видеомонтажная система для операционной системы на ядре Linux. Разрабатывается командой Heroine Virtual и распространяется на условиях GNU General Public License.
-
-Cinelerra может работать с видео и звуком очень высокого качества: звук обрабатывается с 64 битной точностью, видео представляется в цветовых пространствах RGBA и YUVA.Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA22BA4CA1B929C5839DAA79492D7E4E42F24FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

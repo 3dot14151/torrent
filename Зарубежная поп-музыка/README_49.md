@@ -1,3 +1,32 @@
+###  Публикация: 1320642   (469378) от 19.08.2019
+
+Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose Control
+02. Matthew
+03. I Don't Care
+04. In My Kitchen(   Читать дальше...   )Жанр: Alternative Pop, Electropop, Electroclash, Synthpop, Indie Pop, Dance-PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058290   (469194) от 01.10.2016
 
 Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
@@ -6,7 +35,7 @@ Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Sou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
+  <img src="Z:/picture/008/save_picture_469194.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - NRJ 300% Hits 2018 Vol. 2 (2018) 3CD [MP3|320 Kbps] <Pop, Dance, Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467661.jpg" />
+  <img src="Z:/picture/008/save_picture_467661.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Mika - The Origin Of Love (2012) [MP3|320 кб/с]<Pop, rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467344.jpg" />
+  <img src="Z:/picture/008/save_picture_467344.jpg" />
 </div>
 
 
@@ -103,7 +132,7 @@ Beyonce - I Was Here (2012) Single, Promo CD [MP3|~245 кб/с (V0)]<R&B, pop, s
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467334.jpg" />
+  <img src="Z:/picture/008/save_picture_467334.jpg" />
 </div>
 
 
@@ -133,7 +162,7 @@ Tanita Tikaram - Can't Go Back (2012) [MP3|320 кб/с]<Pop, Folk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467071.jpg" />
+  <img src="Z:/picture/008/save_picture_467071.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Boney M - Ultimate Long Versions & Rarities 1976-1987 (2009) [MP3|320 кб/с]<P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467060.jpg" />
+  <img src="Z:/picture/008/save_picture_467060.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Nelly Furtado - The Spirit Indestructible (Deluxe Version) 2CD (2012) [MP3|320 �
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466752.jpg" />
+  <img src="Z:/picture/008/save_picture_466752.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Hits Rewind 90s (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465660.jpg" />
+  <img src="Z:/picture/008/save_picture_465660.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Adriano Celentano - il rock di (2006) [MP3|320 кб/с]<Pop, Rock'n'Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465012.jpg" />
+  <img src="Z:/picture/008/save_picture_465012.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Don Henley (Eagles) - Cass County (2015) Deluxe Edition [MP3|320 кб/с]<Countr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464765.jpg" />
+  <img src="Z:/picture/008/save_picture_464765.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Julio Iglesias - Mexico (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464609.jpg" />
+  <img src="Z:/picture/008/save_picture_464609.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ VA - Bonfire: 00s Club & Dance (2018) [MP3|320 Kbps] <Club, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463629.jpg" />
+  <img src="Z:/picture/008/save_picture_463629.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ VA - Clubfete 80er - 63 Club & Party Hits of the 80'S (2018) [MP3|320 Kbps] <Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463435.jpg" />
+  <img src="Z:/picture/008/save_picture_463435.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ VA - 90s Disco Hits - The Club Anthems (2018) 3CD [MP3|320 Kbps] <Dance, Club>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463431.jpg" />
+  <img src="Z:/picture/008/save_picture_463431.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461559.jpg" />
+  <img src="Z:/picture/008/save_picture_461559.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ VA - 100 Greatest 80s (2017) 5CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461323.jpg" />
+  <img src="Z:/picture/008/save_picture_461323.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - I Just Called - Pop Sensations (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459926.jpg" />
+  <img src="Z:/picture/008/save_picture_459926.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Maroon 5 - Singles (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459739.jpg" />
+  <img src="Z:/picture/008/save_picture_459739.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Boney M - Boney M - Original Version • Long Version • Rarities [4CD BOX] (20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459427.jpg" />
+  <img src="Z:/picture/008/save_picture_459427.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ VA - The Best Of TVI Records - Dance The Night Away (1995) CD [MP3|320 Kbps] <Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459219.jpg" />
+  <img src="Z:/picture/008/save_picture_459219.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459152.jpg" />
+  <img src="Z:/picture/008/save_picture_459152.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458937.jpg" />
+  <img src="Z:/picture/008/save_picture_458937.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457908.jpg" />
+  <img src="Z:/picture/008/save_picture_457908.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Gregoire - Poesies De Notre Enfance (2015) [MP3|320 кб/с]<French Pop, Chanson
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455970.jpg" />
+  <img src="Z:/picture/008/save_picture_455970.jpg" />
 </div>
 
 
@@ -743,7 +772,7 @@ Bardeux - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Dance-pop, Synth-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454981.jpg" />
+  <img src="Z:/picture/008/save_picture_454981.jpg" />
 </div>
 
 
@@ -757,41 +786,6 @@ Bardeux - американский танцевальный дуэт 80-х го�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEEC950523BA2E69CD9B09FF684022D7D59FECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389104   (454014) от 19.09.2011
-
-Kim Wilde - Snapshots / Special Edition (2011) [MP3|230-283 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright
-02. In Between Days
-03. About You Now
-04. Sleeping Satellite
-05. To France
-06. A Lilltle Respect
-07. Remember Me
-08. Anyone Who Had A Heart
-09. Wonderful Life
-10. They Don't Know About Us(   Читать дальше...   )2011Жанр: PopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0679E58714465862CE240ADCAAFA7B38C13B9503
 ```
 
 https://mybot314.ru/tekegram_catalog/

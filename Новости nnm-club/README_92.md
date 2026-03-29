@@ -1,3 +1,108 @@
+###  Публикация: 1281279   (752995) от 07.02.2019
+
+Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2019 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A5EDEAE492844D4D96A2ED823D3F6F6840AC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281368   (752993) от 07.02.2019
+
+Суспирия / Suspiria (2018) BDRip  [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Производство: Италия, США / Amazon Studios, First Sun, Frenesy Film CompanyЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Лука ГуаданьиноАктеры: Дакота Джонсон, Тильда Суинтон, Дорис Хик, Малгоша Бела, Хлоя Грейс Морец, Ангела Винклер, Ванда Каприоло, Алек Век, Джессика Батю, Елена ФокинаПеревод: Дублированный (iTunes)Субтитры: Русские (полные), английские (хардсаб на немецкую речь)Продолжительность: 02:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9367C71942082A5866F3565C7081C2DBF5A0B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888773   (752857) от 15.04.2015
+
+Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7147.5001 VL (x86) RePack by SPecialiST v15.4 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения успеха в сфере информационных технологий.
+Для обычных сотрудников это возможность выполнять ежедневную работу быстрее, проще и эффективнее независимо (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B7FB79608D7166FE356EBB35B804677ED31340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523124   (752803) от 10.01.2022
+
+Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Watch Dogs: Legion происходит в ближайшем будущем. Лондон переживает тяжелые времена. Организуйте сопротивление, вербуя кого угодно из жителей города. Взламывайте, внедряйтесь и сражайтесь, чтобы спасти Лондон ближайшего будущего, который переживает тяжёлые времена. Добро пожаловать в сопротивление.Тип издания: RepackРазработчик: Ubisoft TorontoЖанр: Action (Open World, Hacking), Stealth, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDCA8BB3DFFCF749A495C9D2023F7D70EC9530B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473864   (752802) от 10.01.2022
 
 Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
@@ -6,7 +111,7 @@ Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752802.jpg" />
+  <img src="Z:/picture/008/save_picture_752802.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Outlast 2 (2017) [Ru/Multi] (gog-4/19597) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752503.jpg" />
+  <img src="Z:/picture/008/save_picture_752503.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ LEGO Star Wars: The Complete Saga [Ru] (P) 2009
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752350.jpg" />
+  <img src="Z:/picture/005/save_picture_752350.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Gripen E - истребитель нового поколения от комп�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751752.jpg" />
+  <img src="Z:/picture/005/save_picture_751752.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ MAGIX Video Pro X8 15.0.0.83 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751371.jpg" />
+  <img src="Z:/picture/008/save_picture_751371.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Wink ATV Ultimate v1.16.1 (ревизия 2.6) Mod [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751290.jpg" />
+  <img src="Z:/picture/008/save_picture_751290.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751289.jpg" />
+  <img src="Z:/picture/008/save_picture_751289.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751288.jpg" />
+  <img src="Z:/picture/008/save_picture_751288.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ Google через Chrome предупредит о скомпрометиров�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751214.jpg" />
+  <img src="Z:/picture/005/save_picture_751214.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751175.jpg" />
+  <img src="Z:/picture/008/save_picture_751175.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751174.jpg" />
+  <img src="Z:/picture/008/save_picture_751174.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ Ashes of the Singularity (2016) [En/Ge] (1.11) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751173.jpg" />
+  <img src="Z:/picture/008/save_picture_751173.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751036.jpg" />
+  <img src="Z:/picture/008/save_picture_751036.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751025.jpg" />
+  <img src="Z:/picture/008/save_picture_751025.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ PotPlayer 220106 (1.7.21590) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750973.jpg" />
+  <img src="Z:/picture/008/save_picture_750973.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750964.jpg" />
+  <img src="Z:/picture/008/save_picture_750964.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2012-
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750475.jpg" />
+  <img src="Z:/picture/005/save_picture_750475.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750093.jpg" />
+  <img src="Z:/picture/008/save_picture_750093.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749851.jpg" />
+  <img src="Z:/picture/005/save_picture_749851.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ Flash Falcon - проект футуристического сверхзвук�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749850.jpg" />
+  <img src="Z:/picture/005/save_picture_749850.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749745.jpg" />
+  <img src="Z:/picture/005/save_picture_749745.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749725.jpg" />
+  <img src="Z:/picture/008/save_picture_749725.jpg" />
 </div>
 
 
@@ -565,113 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D82BECE09618CAC15667F9B70D977216EBAC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281646   (749589) от 09.02.2019
-
-Александр Никонов | Эволюция на пальцах. Для детей и родителей, которые хотят объяснять детям (2019) [PDF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы вы снова от звонка до звонка 10 лет отсидеть за школьной партой? Вряд ли… Школа запихивает в голову огромную кучу знаний, только вот раскиданы они беспорядочно и поэтому остаются невостребованными. Что вот вы помните из школьной программы про теорию эволюции? Обезьяны, Дарвин, гены… Эх, невелик набор, да и системы в нем нет.
-
-Эта книга знакомит детей и (   Читать дальше...   )Жанр: Человек. Земля. ВселеннаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B92172B1302C4D86FF524F81C1661201938F0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019554   (749469) от 23.05.2016
-
-Дуэль братьев. История Adidas и Puma / Duell der Bruder - Die Geschichte von Adidas und Puma (2016) HDTVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый носит их обувь. А это их история. В начале 20-х годов XX века братья Адольф и Рудольф Дасслеры основали небольшую обувную фабрику в баварском городе Херцогенаурах. Благодаря слаженной работе талантливого Ади и коммерческим способностям Руди предприятие быстро расширялось. Лучшие спортсмены мира предпочитали тренироваться и выступать в их шиповках. Однако за (   Читать дальше...   )Производство: ГерманияЖанр: Драма, ВоенныйРежиссер: Оливер ДомменгетАктеры: Джесси Альберт, Флориан Бартоломай, Надя Бекер, Хенк Бухольц, Давид К. Буннерс, Мерл Колле, Александр Кудрясов, Кен Дукен, Кристоф ГарайзенПеревод: Многоголосый закадровый, любительский (ViruseProject)Продолжительность: 01:51:13Реклама: присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0193B5D13B3F0FE3B90323036F2A7A23329B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178204   (749443) от 09.02.2019
-
-ELEX (2017) [Ru/Multi] (1.0.2981.0) Repack R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749443.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELEX — тщательно проработанная динамическая ролевая игра, создаваемая удостоенными наград авторами серии Gothic. Ее действие разворачивается в новой постапокалиптической научно-фантастической вселенной: игроков ждет огромный бесшовный мир, полный ярких персонажей, гротескных мутантов, моральных дилемм и напряженных приключений.Тип издания: RepackРазработчик: Piranha BytesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF039C6AFE6BB83262794445253D60BF0DA0BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805601   (749135) от 17.04.2015
-
-Плутовство / Хвост виляет собакой / Wag the Dog (1997) HDTV [H.264/720p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749135.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам книги Ларри Бейнхарта «Американский герой».
-Чтобы отвлечь внимание общественности от сексуального скандала, связанного с президентом США, срочно вызван специалист по нештатным ситуациям Конрад Брин (Роберт Де Ниро). Брин решает инсценировать небольшую войну с помощью голливудского продюсера Стенли Мотса (Дастин Хоффман). Вдвоем они смело организуют задуманное (   Читать дальше...   )Производство: США, Baltimore Pictures, New Line Cinema, Punch ProductionsЖанр: Драма, Комедия, Политическая сатираРежиссер: Барри ЛевинсонАктеры: Роберт Де Ниро, Дастин Хоффман, Андреа Мартин, Вуди Харрельсон, Джеймс Белуши, Джон Майкл ХиггинсПеревод: 2x Профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DBF649AAF380A9AB5DEFD7E7D571FAB1B37C5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1541035   (242694) от 03.04.2022
+
+Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over and Over
+02. You're Gone
+03. Starfish Blues (Bottom of the Sea)
+04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362591   (242474) от 24.02.2020
+
+Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242474.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:07| 01. Bad News
+|02:02| 02. Revelation
+|01:03| 03. SOS
+|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362592   (242458) от 24.02.2020
 
 Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242458.jpg" />
+  <img src="Z:/picture/005/save_picture_242458.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Countr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242316.jpg" />
+  <img src="Z:/picture/004/save_picture_242316.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242233.jpg" />
+  <img src="Z:/picture/004/save_picture_242233.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242214.jpg" />
+  <img src="Z:/picture/004/save_picture_242214.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242186.jpg" />
+  <img src="Z:/picture/004/save_picture_242186.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossles
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242049.jpg" />
+  <img src="Z:/picture/005/save_picture_242049.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242016.jpg" />
+  <img src="Z:/picture/004/save_picture_242016.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241449.jpg" />
+  <img src="Z:/picture/004/save_picture_241449.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241208.jpg" />
+  <img src="Z:/picture/004/save_picture_241208.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241061.jpg" />
+  <img src="Z:/picture/004/save_picture_241061.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film So
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240860.jpg" />
+  <img src="Z:/picture/004/save_picture_240860.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <F
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240763.jpg" />
+  <img src="Z:/picture/004/save_picture_240763.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Blick Bassy - Madiba (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Africa>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240755.jpg" />
+  <img src="Z:/picture/004/save_picture_240755.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ ZVENTA SVENTANA - Звента Свентана (2023) [MP3|320 Kbps] <Folk, Ele
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240728.jpg" />
+  <img src="Z:/picture/004/save_picture_240728.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240274.jpg" />
+  <img src="Z:/picture/004/save_picture_240274.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Tinariwen - Amatssou (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <World>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240169.jpg" />
+  <img src="Z:/picture/004/save_picture_240169.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Buddha Room - 2 + Hours of World Music (2018) [MP3|320 Kbps] <Ethnic, World Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239826.jpg" />
+  <img src="Z:/picture/004/save_picture_239826.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Tanya Tucker - Sweet Western Sound (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239421.jpg" />
+  <img src="Z:/picture/004/save_picture_239421.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Rufus Wainwright - Folkocracy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239401.jpg" />
+  <img src="Z:/picture/004/save_picture_239401.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239286.jpg" />
+  <img src="Z:/picture/004/save_picture_239286.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239264.jpg" />
+  <img src="Z:/picture/004/save_picture_239264.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239253.jpg" />
+  <img src="Z:/picture/004/save_picture_239253.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Atahualpa - Музыка у метро (2016) 2CD [MP3|320 Kbps] <Native America
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238916.jpg" />
+  <img src="Z:/picture/005/save_picture_238916.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238475.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0E7087267BD02162C65B48022A1EEFD4C9813D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628842   (237108) от 02.05.2023
-
-ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237108.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sunken Paths, Towering Vines (08:02)
-2.Glimmering Depths Below (05:26)
-3.Restoration Magic (07:52)
-4.A Change in the Weather (06:13)(   Читать дальше...   )Жанр: Dungeon Synth,  Medieval AmbientПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1CC6DD189D01907512BE293639805368CECC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574437   (236915) от 06.09.2022
-
-VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souk Criminals - Moroccan Heaven (Arabesque Rework) (4:17)
-02. Bedouin Spirit - Infidel (Jah Debda Sunset Mix) (3:10)
-03. T.I.A.C. - Camel Train (Marrakesh Mix) (4:44)
-04. DJ Ahmed - Nomad's Chant (4:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6884CD959A72C8D8FF7204F1DC91174137F892
 ```
 
 https://mybot314.ru/tekegram_catalog/

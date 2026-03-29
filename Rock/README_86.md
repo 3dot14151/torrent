@@ -1,3 +1,32 @@
+###  Публикация: 1590145   (189487) от 12.11.2022
+
+Stratovarius - Hunting High And Low (2000) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunting High And Low
+02. Millennium
+03. Neon Light Child
+04. Hunting High And Low (Demo Version)(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D1111C11C51CD7128CE09903D7377A0DA4476A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590047   (189486) от 12.11.2022
 
 Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -6,7 +35,7 @@ Stratovarius - Will The Sun Rise? (1996) Single, Remastered, T&T [OGG Vorbis|480
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189486.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189367.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Roxy Music - The Thrill Of It All (1995) 4CD [MP3|320 Kbps] <Art Rock, Glam Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189305.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stratovarius - Darkest Hours (2010) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189188.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Stratovarius - Unbreakable (2013) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Powe
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189174.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189119.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Who - Who’s Next : Life House (Super Deluxe) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187407.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Slade - The No.1's (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187089.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Marco Ragni - Psychedelic Trips & Artificial Dreams (2023) [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186855.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Random Monsters - With All Due Respect Tribute to Pink Floyd (2020) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186809.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Rock Classics For Gaming (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186784.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Queen - The Miracle (2022) 4CD, Collector's Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186727.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Shawn Pittman & Jay Moeller - Straight Blues From Crooked Fools (2020) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185508.jpg" />
+  <img src="Z:/picture/004/save_picture_185508.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185443.jpg" />
+  <img src="Z:/picture/004/save_picture_185443.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Vinnie Moore - Double Exposure (2022) [MP3|320 Kbps] <Neoclassical, Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185378.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sabbra Cadabra - Kissmoker (A Stoner Rock Tribute To Kiss) (2023) [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184745.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Mythosphere - Pathological (2022) [MP3|222-229 kbps VBR] <Psychedelic Prog Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184570.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Suzi Quatro - Stumblin' In (2020) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184252.jpg" />
+  <img src="Z:/picture/004/save_picture_184252.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Blowmind - Monster (2023) [MP3|320 Kbps] <Stoner Rock, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183943.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Mono Inc. - Melodies in Black (2020) 2xCD [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183266.jpg" />
+  <img src="Z:/picture/004/save_picture_183266.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Kiss - Jersey City 1976 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183093.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Yawning Man - 7 Albums (2005-2021) [MP3|320 Kbps] <Desert Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182558.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jimmy Martin - The Singles (2020) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182434.jpg" />
+  <img src="Z:/picture/005/save_picture_182434.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art r
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182406.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Anthony Phillips - Missing Links I-IV (2020) 5xCD, Remastered [MP3|320 Kbps] <Sy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182391.jpg" />
+  <img src="Z:/picture/005/save_picture_182391.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ CD - 1 - Missing Links Volume One: Finger Painting - A collection of library and
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5012BB9C93FEA1DE501EE026494237EDBD441F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665271   (182344) от 30.09.2023
-
-Jethro Tull - RokFlote (Alternative Mixes) (2023) [MP3|320 Kbps] <Prog Folk, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voluspo (Alternative Mix) (3:43)
-02. Ginnungagap (Alternative Mix) (3:49)
-03. Allfather (Alternative Mix) (2:46)
-04. The Feathered Consort (Alternative Mix) (3:40)(   Читать дальше...   )Жанр: Prog Folk, Progressive RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1923AE1523486D1D8BAE0ADA889102D42F7AD7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

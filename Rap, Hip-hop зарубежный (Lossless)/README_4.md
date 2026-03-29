@@ -6,7 +6,7 @@ VA - Chillhop Essentials Winter (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, J
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216391.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Coolio - Gangsta's Paradise (1995) 2020, 25th Anniversary, Remastered [FLAC|24/9
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208829.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206987.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Chillhop Essentials Fall (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206311.jpg" />
+  <img src="Z:/picture/005/save_picture_206311.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197259.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Chillhop Essentials Fall (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189712.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Secret Garden (2012) [FLAC|Lossless|Web-DL|tracks] <Instrumental Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185809.jpg" />
+  <img src="Z:/picture/004/save_picture_185809.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174984.jpg" />
+  <img src="Z:/picture/004/save_picture_174984.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172479.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Onyx & Snowgoons - SnowMads (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165760.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163127.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162890.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Swizz Beatz - Poison (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Conscious, T
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157548.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amerigo Gazaway - Nina Simone & Lauryn Hill - The Miseducation of Eunice Waymon 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146210.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134852.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134226.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131076.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chillhop Essentials Spring (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113521.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109799.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109793.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107294.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Denzel Curry - KING OF THE MISCHIEVOUS SOUTH (2024) [FLAC|Lossless|Web-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103096.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ice Cube - Man Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103026.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Omakase (2023) Mello Music Group [FLAC|Lossless|tracks + .cue] <Hip-Hop, Ja
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102904.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101510.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101506.jpg" />
 </div>
 
 

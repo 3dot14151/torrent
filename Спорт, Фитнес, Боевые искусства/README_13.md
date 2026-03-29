@@ -1,3 +1,56 @@
+###  Публикация: 1172038   (394030) от 07.10.2017
+
+О.Б. Лапшин | Теория и методика подготовки юных футболистов (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Методическое пособие, подготовленное известным специалистом в области юношеского футбола О.Б. Лапшиным, безусловно, является важным вкладом в данную сферу и рекомендуется к печати для дальнейшего использования в практике.
+В данном пособии охватываются основные этапы обучения и тренировки юных футболистов, раскрываются принципы данного процесса, приводятся примерные (   Читать дальше...   )Жанр: Педагогика спорта, ФутболФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D95AEC0F6DCD37AC389A3EAB24150D2479985C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172012   (393973) от 07.10.2017
+
+В.П. Губа | Теория и методика мини-футбола (футзала) (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_393973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по мини-футболу (футзалу) является трудом, обобщающим теоретико-методический материал отечественных специалистов, и результаты многолетних исследований автора, в котором представлена методология организации учебно-тренировочного процесса. Прежде всего, курс лекций адресован слушателям «Академии футзала АМФР», ВШТ, студентам, аспирантам, преподавателям высших (   Читать дальше...   )Жанр: Педагогика спорта, ФутболФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D5B465EE26869D92ED6FABC256EEA007C6DBCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172115   (393970) от 07.10.2017
 
 Джо Бертанья | Библия хоккейного тренера (2016) [FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393970.jpg" />
+  <img src="Z:/picture/008/save_picture_393970.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393949.jpg" />
+  <img src="Z:/picture/008/save_picture_393949.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393741.jpg" />
+  <img src="Z:/picture/008/save_picture_393741.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392906.jpg" />
+  <img src="Z:/picture/008/save_picture_392906.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391035.jpg" />
+  <img src="Z:/picture/008/save_picture_391035.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390342.jpg" />
+  <img src="Z:/picture/008/save_picture_390342.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387896.jpg" />
+  <img src="Z:/picture/008/save_picture_387896.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387895.jpg" />
+  <img src="Z:/picture/008/save_picture_387895.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385315.jpg" />
+  <img src="Z:/picture/008/save_picture_385315.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384947.jpg" />
+  <img src="Z:/picture/008/save_picture_384947.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383135.jpg" />
+  <img src="Z:/picture/008/save_picture_383135.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383012.jpg" />
+  <img src="Z:/picture/008/save_picture_383012.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381240.jpg" />
+  <img src="Z:/picture/008/save_picture_381240.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377634.jpg" />
+  <img src="Z:/picture/008/save_picture_377634.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373804.jpg" />
+  <img src="Z:/picture/008/save_picture_373804.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372239.jpg" />
+  <img src="Z:/picture/008/save_picture_372239.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371641.jpg" />
+  <img src="Z:/picture/008/save_picture_371641.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371497.jpg" />
+  <img src="Z:/picture/008/save_picture_371497.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367793.jpg" />
+  <img src="Z:/picture/008/save_picture_367793.jpg" />
 </div>
 
 
@@ -516,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363298.jpg" />
+  <img src="Z:/picture/008/save_picture_363298.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362694.jpg" />
+  <img src="Z:/picture/008/save_picture_362694.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ Fitnessanywhere | TRX - Базовый курс (Руководство к тр�
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362573.jpg" />
+  <img src="Z:/picture/008/save_picture_362573.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362111.jpg" />
+  <img src="Z:/picture/008/save_picture_362111.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361222.jpg" />
+  <img src="Z:/picture/008/save_picture_361222.jpg" />
 </div>
 
 
@@ -635,62 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5425DF3DA952BD8568DE6CBCCF3120A813B1AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071301   (361118) от 09.11.2016
-
-Вернер Шлагер, Бернд Гросс | Настольный теннис. Руководство от чемпиона мира (2016) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите показать великолепную игру за теннисным столом и удивить всех?
-
-Книга от чемпиона мира по настольному теннису научит вас всему для этого – хитрым приемам, уникальным тактикам и неповторимому стилю.
-(   Читать дальше...   )Жанр: Спорт, фитнесФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E55682A7E54FAF430E9A6AF2A8126285F744EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255634   (361007) от 19.10.2018
-
-Ян Цзюньмин | Основы шаолиньского стиля «Белый Журавль»: боевая сила и цигун (1998) [FB2]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361007.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Основы шаолиньского стиля “Белый Журавль”» — одна из последних книг Мастера Яна.
-В ней автор подводит итог своей тридцатипятилетней практики этого боевого искусства и собственных изысканий в области теории цигун. Это первая книга, переведенная на русский язык, в которой столь подробно разъясняется самая «эзотерическая» сторона китайских боевых искусств — теория (   Читать дальше...   )Жанр: Боевые искусства, СамосовершенствованиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E787747EE5C07629B47C7F23C86BEF12C6DB97
 ```
 
 https://mybot314.ru/tekegram_catalog/

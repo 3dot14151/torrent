@@ -1,3 +1,61 @@
+###  Публикация: 954671   (339731) от 08.11.2015
+
+Billy Gibbons And The BFGs - Perfectamundo (2015) [FLAC|tracks|WEB-DL]<Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got Love If You Want It (4:18)
+02. Treat Her Right (2:24)
+03. You're What's Happenin', Baby (6:07)
+04. Sal Y Pimiento (3:13)(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B7EAB142006187BFCAEBBFF263A8EB4A0A9306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418741   (339585) от 28.10.2020
+
+Irish Coffee - 5 albums (1971-2020) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их называли "Бельгийский Deep Purple". Эта группа из Алста, Восточная Фландрия, Бельгия была сформирована в 1970 году. Музыка группы представляла собой сочетание хард-рока и блюз-рока с яркими партиями соло-гитары и сильным вокалом. Из-за недостаточного менеджмента им было тяжело конкурировать с британскими и американскими исполнителями. Успех долго им (   Читать дальше...   )--------------------------
+
+01. Tobacco Fields (3:38)
+02. Take Me Home (4:09)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 03:48:54 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5061D7861EDE2E32CB0ED51070A8FDD4B48F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180728   (337775) от 05.11.2017
 
 Fozzy - Judas (2017) [FLAC|Lossless|image + .cue] <Hard & Heavy>
@@ -6,7 +64,7 @@ Fozzy - Judas (2017) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337775.jpg" />
+  <img src="Z:/picture/008/save_picture_337775.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Cornerstone - Arrival (2000) [WavPack|Lossless|image + .cue] <Hard Rock, Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336842.jpg" />
+  <img src="Z:/picture/008/save_picture_336842.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Strom - Strom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336607.jpg" />
+  <img src="Z:/picture/008/save_picture_336607.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Rain - A new tomorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336500.jpg" />
+  <img src="Z:/picture/008/save_picture_336500.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Seventh Storm - Maledictus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Prog
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336499.jpg" />
+  <img src="Z:/picture/008/save_picture_336499.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Hollywood Monsters - Big Trouble (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336104.jpg" />
+  <img src="Z:/picture/008/save_picture_336104.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Graham Bonnet Band - The Book (2016) Russian Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336033.jpg" />
+  <img src="Z:/picture/008/save_picture_336033.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Boston - 6 Studio Albums, 2 Live, 1 Compilation (1976 - 2014) [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334927.jpg" />
+  <img src="Z:/picture/008/save_picture_334927.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Wolf On Fire - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334706.jpg" />
+  <img src="Z:/picture/008/save_picture_334706.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334573.jpg" />
+  <img src="Z:/picture/008/save_picture_334573.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Alliance - Discography: 6 albums, 7CD (1996-2019) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334296.jpg" />
+  <img src="Z:/picture/008/save_picture_334296.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Def Leppard - Def Leppard (2015) Limited Edition Fanpack [FLAC|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333699.jpg" />
+  <img src="Z:/picture/008/save_picture_333699.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Suzi Quatro - Uncovered (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Clas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331839.jpg" />
+  <img src="Z:/picture/008/save_picture_331839.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Alice Cooper - Live from the Astroturf (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331838.jpg" />
+  <img src="Z:/picture/008/save_picture_331838.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Perfect Plan - Time For A Miracle (2020) Jараnеsе Еditiоn [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331287.jpg" />
+  <img src="Z:/picture/008/save_picture_331287.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Dead Daisies - Radiance (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330880.jpg" />
+  <img src="Z:/picture/008/save_picture_330880.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Vanilla Fudge - Vanilla Zeppelin (2005) Remastered, 2022, Golden Robot Records [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330878.jpg" />
+  <img src="Z:/picture/008/save_picture_330878.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Officer X - Hell Is Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330796.jpg" />
+  <img src="Z:/picture/008/save_picture_330796.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Frontline - Scream All You Want (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330618.jpg" />
+  <img src="Z:/picture/008/save_picture_330618.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Dynazty - Final Advent (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329928.jpg" />
+  <img src="Z:/picture/008/save_picture_329928.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ House Of Lords - Saints and Sinners (2022) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329910.jpg" />
+  <img src="Z:/picture/008/save_picture_329910.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ian Blurton's Future Now - Second Skin (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329059.jpg" />
+  <img src="Z:/picture/008/save_picture_329059.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329050.jpg" />
+  <img src="Z:/picture/008/save_picture_329050.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southe
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329049.jpg" />
+  <img src="Z:/picture/008/save_picture_329049.jpg" />
 </div>
 
 
@@ -687,67 +745,6 @@ Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F7F917CE362B3C91CC7A0CA4538D35376670D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580892   (328987) от 03.10.2022
-
-Free Spirit - Pale Sister Of Light (2008) Japanese Edition, Reissue, 2009, Avalon Marquee Inc. [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Of A Man
-02. Moonlight Ride
-03. Pale Sister Of Light
-04. Heroes Don't Cry(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7BC540968F26F1C6F032B0721C466CC9B61768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189915   (326042) от 06.10.2022
-
-Lita Ford - 14 albums, 25 CD (1983-2016) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard'n'Heavy, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лита Форд, полное имя Кармелита Розанна Форд (Carmelita Rosanna Ford), американская гитаристка, певица и композитор, бывшая лид-гитаристка The Runaways. Получила известность в середине 80-х - начале 90-х годов благодаря своим сольным работам, стиль которых постепенно менялся от хэви-метала до чего-то среднего между хэви-металом, глэмом и мэйнстримом.--------------------------
-
-01. 01. Intro (1:35)
-02. 02. Where Will I Find My Heart Tonight (4:50)(   Читать дальше...   )--------------------------
-
-01. Close My Eyes Forever (Remix) (4:44)
-02. Under The Gun (4:50)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' Heavy, Glam Rock |Продолжительность: 19:11:08 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CF36DF16B58CA348471A1FD2E2C71CA878739E
 ```
 
 https://mybot314.ru/tekegram_catalog/

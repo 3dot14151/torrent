@@ -1,3 +1,29 @@
+###  Публикация: 554706   (436303) от 01.10.2012
+
+[Elsa4.0 VW] (04.2012) Автомобильные программы и мультимедийные материалы
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационная база по диагностике и ремонту автомобилей концерна VW AG. Содержит описания технологии ремонта, обслуживания авто, диагностики различных систем автомобиля, электрические схемы, кузовные работы, нормы времени на выполняемые работы и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1666B79A685501DD7330F37DCFA4F15CB363CC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945240   (436087) от 09.10.2015
 
 Джеффри Примроуз | Кровавая обитель (2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436087.jpg" />
+  <img src="Z:/picture/008/save_picture_436087.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436014.jpg" />
+  <img src="Z:/picture/008/save_picture_436014.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435760.jpg" />
+  <img src="Z:/picture/008/save_picture_435760.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435677.jpg" />
+  <img src="Z:/picture/008/save_picture_435677.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435673.jpg" />
+  <img src="Z:/picture/008/save_picture_435673.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435369.jpg" />
+  <img src="Z:/picture/008/save_picture_435369.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435264.jpg" />
+  <img src="Z:/picture/008/save_picture_435264.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435232.jpg" />
+  <img src="Z:/picture/008/save_picture_435232.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435036.jpg" />
+  <img src="Z:/picture/008/save_picture_435036.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Jillian Michaels | Body Revolution (2012) DVDRip [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434283.jpg" />
+  <img src="Z:/picture/008/save_picture_434283.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434149.jpg" />
+  <img src="Z:/picture/008/save_picture_434149.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434139.jpg" />
+  <img src="Z:/picture/008/save_picture_434139.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433927.jpg" />
+  <img src="Z:/picture/008/save_picture_433927.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433822.jpg" />
+  <img src="Z:/picture/008/save_picture_433822.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433588.jpg" />
+  <img src="Z:/picture/008/save_picture_433588.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433498.jpg" />
+  <img src="Z:/picture/008/save_picture_433498.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433496.jpg" />
+  <img src="Z:/picture/008/save_picture_433496.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433429.jpg" />
+  <img src="Z:/picture/008/save_picture_433429.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433355.jpg" />
+  <img src="Z:/picture/008/save_picture_433355.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433346.jpg" />
+  <img src="Z:/picture/008/save_picture_433346.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433191.jpg" />
+  <img src="Z:/picture/008/save_picture_433191.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433171.jpg" />
+  <img src="Z:/picture/008/save_picture_433171.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433037.jpg" />
+  <img src="Z:/picture/008/save_picture_433037.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432899.jpg" />
+  <img src="Z:/picture/008/save_picture_432899.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432763.jpg" />
+  <img src="Z:/picture/008/save_picture_432763.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F50D5E0A7DD5CEB23601748DA5F800554D637EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165469   (432750) от 13.09.2017
-
-Журнал | Спортивное рыболовство №7 (195) (июль 2017) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Спортивное Рыболовство" - путеводитель в мире рыбацких хитростей и рыбных мест. Первый советчик как не остаться "рыбаку без рыбки". Рекомендован к прочтению как опытным рыбакам, так и начинающим.Жанр: Рыбная ловля, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFCDAA56CAA3D566823D6DD171C27C2737A2AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

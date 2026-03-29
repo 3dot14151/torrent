@@ -6,7 +6,7 @@ Gardens Inc. 3: A Bridal Pursuit Collector's Edition / Все в сад 3. Св�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viking Heroes / Герои викинги (2020) [Ru] (1.0) Unofficial [Collecto
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906515.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nowhere Prophet (2019) [Multi] (1.07.013) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891765.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Infested Planet (2014) [En] (1.10.9/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886719.jpg" />
+  <img src="Z:/picture/005/save_picture_886719.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Royal Envoy 3 (2014) [Ru] Unofficial [Collector's Edition / Коллекцион
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877462.jpg" />
+  <img src="Z:/picture/005/save_picture_877462.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Farm to Fork  / С грядки на стол (2014) [Ru] Unofficial [Collector'
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877456.jpg" />
+  <img src="Z:/picture/005/save_picture_877456.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Leeloo's Talent Agency / Агентство Талантов Лилу (2009) [Ru
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874818.jpg" />
+  <img src="Z:/picture/005/save_picture_874818.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874091.jpg" />
+  <img src="Z:/picture/008/save_picture_874091.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874087.jpg" />
+  <img src="Z:/picture/008/save_picture_874087.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868526.jpg" />
+  <img src="Z:/picture/008/save_picture_868526.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ New Yankee 8: Journey of Odysseus / Янки 8: Путешествие Одис�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866857.jpg" />
+  <img src="Z:/picture/008/save_picture_866857.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Railway Empire (2018) [Ru/Multi] (1.12.0.25598/dlc) Repack R.G. Catalyst
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863364.jpg" />
+  <img src="Z:/picture/008/save_picture_863364.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mushroom Wars (2016) [Ru/En] (1.2.2) Repack VseTop
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862019.jpg" />
+  <img src="Z:/picture/008/save_picture_862019.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Virtual City / Виртуальный город (L) [RU] (11 марта 2010)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857688.jpg" />
+  <img src="Z:/picture/008/save_picture_857688.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Zoo Empire / Корпорация Зоопарк (P) [Ru] (2004)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851223.jpg" />
+  <img src="Z:/picture/008/save_picture_851223.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835525.jpg" />
+  <img src="Z:/picture/009/save_picture_835525.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Train Valley (2015) [Ru/Multi] (1.1/dlc) License TiNYiSO
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833853.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Sons of Valhalla (2024) [Ru/Multi] (2.0.19/dlc) Repack Let'sРlay [Supporter Bun
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824017.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Automata Empire (2016) [En] (1.0) Repack John2s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_818822.jpg" />
+  <img src="Z:/picture/009/save_picture_818822.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Fortify (2016) [En] (1.0.5) Repack John2s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814698.jpg" />
+  <img src="Z:/picture/008/save_picture_814698.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Robin Hood 4: Spring of Life / Робин Гуд 4: Источник жизни 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811688.jpg" />
+  <img src="Z:/picture/008/save_picture_811688.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sally's Salon - Beauty Secrets / Спа-салон Салли. Секреты к
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809589.jpg" />
+  <img src="Z:/picture/008/save_picture_809589.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hearthlands (2017) [Ru/Multi] (1.1.3) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809396.jpg" />
+  <img src="Z:/picture/008/save_picture_809396.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Robin Hood 2: Winds of freedom / Робин Гуд 2: За свободу (2020)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805723.jpg" />
+  <img src="Z:/picture/008/save_picture_805723.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Outpost Kaloki / Аванпост Галактики (2004) [Ru] (1.0.5) Unoffic
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805596.jpg" />
+  <img src="Z:/picture/008/save_picture_805596.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Last Hope – Tower Defense (2016) [En] (1.6) Repack Elektra
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805114.jpg" />
+  <img src="Z:/picture/008/save_picture_805114.jpg" />
 </div>
 
 

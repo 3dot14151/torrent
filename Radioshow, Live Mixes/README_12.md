@@ -1,3 +1,61 @@
+###  Публикация: 933944   (503662) от 04.09.2015
+
+Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
+02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
+03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
+04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563990   (501670) от 17.07.2022
+
+DubVision & Third Party - S2O Songkran Music Festival Korea, South Korea (2022) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501670.jpg" />
+</div>
+
+
+###  Подробнее
+
+DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
+
+01. DubVision - No More w/Dave Kurtis - Raise Your Hands
+02. Afrojack - ID (Co-Prod. by Magnificence)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563958   (501573) от 17.07.2022
 
 Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kbps] <Dance, Electro Pop, Tech House>
@@ -6,7 +64,7 @@ Tiesto - Big Beat Radio 200 (Hot In It Summer 2022 Mix) (2022-07-11) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501573.jpg" />
+  <img src="Z:/picture/008/save_picture_501573.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paul Denton - Live @ Trance Room, Bahrein Club Buenos Aires, Argentina 2019-06-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492849.jpg" />
+  <img src="Z:/picture/008/save_picture_492849.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490183.jpg" />
+  <img src="Z:/picture/008/save_picture_490183.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ori Uplift & Bryan Summerville - Uplifting Only 236 (2017) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488128.jpg" />
+  <img src="Z:/picture/008/save_picture_488128.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Markus Schulz & Jordan Suckley - Global DJ Broadcast (2018) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484207.jpg" />
+  <img src="Z:/picture/008/save_picture_484207.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484204.jpg" />
+  <img src="Z:/picture/008/save_picture_484204.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470087.jpg" />
+  <img src="Z:/picture/008/save_picture_470087.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Ori Uplift & Chris Blaylock - Uplifting Only 237 (2017) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467591.jpg" />
+  <img src="Z:/picture/008/save_picture_467591.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Daniel Skyver - Live @ Anomaly 3.0, Tunnel Club Birmingham, United Kingdom 2019-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467268.jpg" />
+  <img src="Z:/picture/008/save_picture_467268.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ KAAZE - Live @ Bali, Indonesia (2022-07-20) [MP3|320 Kbps] <Big Room>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464109.jpg" />
+  <img src="Z:/picture/008/save_picture_464109.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Luminosity 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464092.jpg" />
+  <img src="Z:/picture/008/save_picture_464092.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Vintage Culture - BBC Radio 1 Essential Mix (Hï Ibiza, Spain) (2022-07-30) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464090.jpg" />
+  <img src="Z:/picture/008/save_picture_464090.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464084.jpg" />
+  <img src="Z:/picture/008/save_picture_464084.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Aly & Fila - Future Sound Of Egypt 511 (2017) [MP3|320 Kbps] <Trance, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459217.jpg" />
+  <img src="Z:/picture/008/save_picture_459217.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459087.jpg" />
+  <img src="Z:/picture/008/save_picture_459087.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459085.jpg" />
+  <img src="Z:/picture/008/save_picture_459085.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Adrenalin Sessions pres. Wrecked, Egg London, United Kingdom 2019-08-03 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459083.jpg" />
+  <img src="Z:/picture/008/save_picture_459083.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Ori Uplift & Luis A. Moreno - Uplifting Only 292 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455113.jpg" />
+  <img src="Z:/picture/008/save_picture_455113.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2018) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455110.jpg" />
+  <img src="Z:/picture/008/save_picture_455110.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453826.jpg" />
+  <img src="Z:/picture/008/save_picture_453826.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Armin van Buuren - A State Of Trance ASOT 881 (2018) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452657.jpg" />
+  <img src="Z:/picture/008/save_picture_452657.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Sevenn - Sevenn Hours 001-008 (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449558.jpg" />
+  <img src="Z:/picture/008/save_picture_449558.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448579.jpg" />
+  <img src="Z:/picture/008/save_picture_448579.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444701.jpg" />
+  <img src="Z:/picture/008/save_picture_444701.jpg" />
 </div>
 
 
@@ -685,61 +743,6 @@ Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF054EC4FAA055BD56FDD4E12A810A1EB312AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322886   (442519) от 01.09.2019
-
-Roman Messer - Live @ Mentos Fresh Connector, Alfa Future People Russia 2019-08-17 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & DJ Xquizit feat. OSiTO - Empire Of Our OwnЖанр: Trance, Progressive HouseПродолжительность: 01:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC5A3CBC9140A776081D684CE9B4A81D0944CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248746   (440183) от 21.09.2018
-
-VA - Markus Schulz & Astrosphere - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Secret Cinema & Reinier Zonneveld - Pain Thing (Sound from the Rabbithole)
-02. Markus Schulz & JES - Calling for Love (Marcus Santoro Remix)
-03. Sue McLaren & 4 Strings - Better Part of Me(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7109F81F242C54F2E7070B9F9282B0BEFC190FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756067.jpg" />
+  <img src="Z:/picture/005/save_picture_756067.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Black Hole Trance Music 05-16 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756029.jpg" />
+  <img src="Z:/picture/008/save_picture_756029.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VA - Uplifting Only Top 15 May 2016 (2016) [MP3|320 кб/с] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756027.jpg" />
+  <img src="Z:/picture/008/save_picture_756027.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756026.jpg" />
+  <img src="Z:/picture/008/save_picture_756026.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Together 3.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756018.jpg" />
+  <img src="Z:/picture/008/save_picture_756018.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Mindwave - Project 5 (2016) [MP3|320 кб/с] <Progressive Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756017.jpg" />
+  <img src="Z:/picture/008/save_picture_756017.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Soft4Boost Any Audio Grabber 5.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755927.jpg" />
+  <img src="Z:/picture/008/save_picture_755927.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Milk & Honey (Compiled by Ovnimoon & DJ Rhino) (2016) [MP3|320 кб/с] <Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755926.jpg" />
+  <img src="Z:/picture/008/save_picture_755926.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ SlimBrowser 7.00 Build 144 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755921.jpg" />
+  <img src="Z:/picture/008/save_picture_755921.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755917.jpg" />
+  <img src="Z:/picture/008/save_picture_755917.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755887.jpg" />
+  <img src="Z:/picture/008/save_picture_755887.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Active@ File Recovery v 8.0.1 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755861.jpg" />
+  <img src="Z:/picture/005/save_picture_755861.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755851.jpg" />
+  <img src="Z:/picture/005/save_picture_755851.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755845.jpg" />
+  <img src="Z:/picture/008/save_picture_755845.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755830.jpg" />
+  <img src="Z:/picture/008/save_picture_755830.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Mozilla Firefox 47.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755825.jpg" />
+  <img src="Z:/picture/008/save_picture_755825.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Easy Disc Burner 4.8.1.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755823.jpg" />
+  <img src="Z:/picture/008/save_picture_755823.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Duplicate Detective 1.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755821.jpg" />
+  <img src="Z:/picture/008/save_picture_755821.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755818.jpg" />
+  <img src="Z:/picture/008/save_picture_755818.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Microsoft Offiсe 2010 Interactive Guide - Визуальный интеракт
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755810.jpg" />
+  <img src="Z:/picture/005/save_picture_755810.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ BBC: Полет Земли. (Мир с высоты птичеьго полёт�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755757.jpg" />
+  <img src="Z:/picture/008/save_picture_755757.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755747.jpg" />
+  <img src="Z:/picture/008/save_picture_755747.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Soft4Boost Dup File Finder 6.2.3.435 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755745.jpg" />
+  <img src="Z:/picture/008/save_picture_755745.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Soft4Boost Any Uninstaller 6.9.5.539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755744.jpg" />
+  <img src="Z:/picture/008/save_picture_755744.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Tweetbot for Twitter 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755743.jpg" />
+  <img src="Z:/picture/008/save_picture_755743.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Soft4Boost Secure Eraser 4.0.3.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755733.jpg" />
+  <img src="Z:/picture/008/save_picture_755733.jpg" />
 </div>
 
 

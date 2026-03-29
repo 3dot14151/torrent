@@ -1,3 +1,81 @@
+###  Публикация: 44186   (35806) от 29.11.2024
+
+Взвод / Platoon (1986) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - о борьбе за власть двух сержантов - Барнеса и Элиаса, поставивших на карту жизни бойцов взвода, о жестокости людей, привыкших к мысли о неминуемой смерти, о безумии и желании жить, о силе человеческого духа, побеждающего кошмар войны. Ад войны во Вьетнаме и кровавая реальность событий, увиденных глазами американского солдата Криса Тейлора...Жанр: Боевик, драмаРежиссер: Оливер Стоун /Oliver Stone/Актеры: Том Беренджер /Tom Berenger/, Уиллем Дэфоу /Willem Dafoe/, Чарли Шин /Charlie Sheen/, Джонни Депп /Johnny Depp/, Ричард Эдсон /Richard Edson/, Форест Уитакер /Forest WhitakerПеревод: Закадровый многоголосый переводПродолжительность: 1:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D813E69C75420B2E3AB61AA37046FDDE1AA9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397860   (35791) от 29.11.2024
+
+Кеймада / Queimada / Burn! (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 19 века. Сэр Уильям Уолкер отправляется на далекий остров Кеймада в одну из португальских колоний. Его задача — нарушить сахарную монополию, удерживаемую португальцами. Для этого сэр Уильям провоцирует бунт рабов на плантациях. «Революция» проходит удачно. Уолкер возвращается домой героем Британии. Но через десять лет ему приходится вернуться на остров для (   Читать дальше...   )Производство: Италия, Франция, Produzioni Europee Associate (PEA), Les Productions Artistes AssociésЖанр: боевик, драма, военныйРежиссер: Джилло ПонтекорвоАктеры: Марлон Брандо, Эваристо Маркес, Ренато Сальватори, Дана Гиа, Валерия Ферран Ванани, Джампьеро Альбертини, Карло Палмуччи, Норман Хилл, Thomas Lyons, Джозеф П. ПерсаудПеревод: Многоголосый закадровыйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A272535939219C2B72B4DB76CE3F48379FDADA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763650   (35418) от 02.12.2024
+
+Месье Венсан / Monsieur Vincent (1947) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнеописание католического священника, который с 1610 по 1660 годы прошёл путь от пленника турецких пиратов, проданного в рабство, до первого советника царственных особ, от индивидуальных исканий способов борьбы с последствиями эпидемии чумы до создания монастырских сообществ дочерей милосердия и викентийцев. Ватикан включил "Месье Венсан / Monsieur Vincent" (   Читать дальше...   )Производство: Франция / Office Familial de Documentaire Artistique (O.F.D.A.), Union Générale Cinématographique (UGC)Жанр: драма, биография, историяРежиссер: Морис КлошАктеры: Пьер Френе, Эме Кларион, Жан Дебюкур, Лиз Деламар, Жермена Дермо, Габриель Дорзиа, Пьер Дюкс, Ивонн Годо, Мишель Буке, Жан Карме, Габриель Фонтан, Марсель Перес, Марсель Валли, Жорж ВитреПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (leoferre24), английскиеПродолжительность: 01:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FAFC4DF17231C4FCF0759CA2F39334F7EBE275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755408   (35018) от 06.12.2024
 
 Что случилось с Бэби Джейн? / What Ever Happened to Baby Jane? (1962) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35018.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34989.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34339.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33265.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33198.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33126.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33064.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32781.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32777.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32668.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32664.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32400.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30906.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30784.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30677.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30023.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29410.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29188.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28779.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28653.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28577.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27475.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27212.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0AB379AECC09BE3D46B7DEF994FE8BA08803E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252078   (27169) от 19.02.2025
-
-Плата за страх / Le salaire de la peur (1952) DVDRip [Цветной]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо храбрецов, застрявших без денег в крошечном городишке где-то в сердце Латинской Америки, берутся за самоубийственную работу. За плату в 2000 долларов нужно доставить 2 грузовика, груженных нитроглицерином, на нефтяные скважины, расположенные на расстоянии 300 миль от города. Там нитроглицерин полезен — его используют при тушении пожаров, но в пути он смертельно (   Читать дальше...   )Производство: Франция, Италия / Compagnie Industrielle et Commerciale Cinématographique (CICC), Filmsonor, Vera FilmsЖанр: триллер, драма, приключенияРежиссер: Анри-Жорж КлузоАктеры: Ив Монтан, Шарль Ванель, Фолько Люлли, Петер ван Эйк, Вера Клузо, Уильям Таббс, Дарио Морено, Йо Дест, Антонио Чента, Луиш ди ЛимаПеревод: советский дубляжСубтитры: отсутствуютПродолжительность: 02:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5EA95DC5B9C97432B3CED90FFBEBBB06309E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268165   (26442) от 26.02.2025
-
-Безмолвная звезда / Der schweigende Stern (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26442.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа Станислава Лема "Астронавты". На строительстве в пустыне Гоби был найден цилиндр, на котором в виде магнитных импульсов были записаны данные о химическом составе Земли. Изучая эту находку советский ученый, профессор Арсеньев, устанавливает, что она упала на Землю из потерпевшего аварию космического корабля, летевшего на нашу планету с (   Читать дальше...   )Жанр: ФантастикаРежиссер: Курт МетцигАктеры: Йоко Тани, Ольдржих Лукеш, Игнацы Маховский, Юлиус Онгеве, Майкл Н. Постников, Курт Ракельман, Гюнтер Зимон, Танг Хуа-Та, Люцина Винницка, Данута ШафларскаяПеревод: Дублированный + многоголосый + оригиналЯзык: RU / DEПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CDBFBBEB324F0EEF301E5C7A09275B3D6F63E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781727   (26194) от 28.02.2025
-
-Аттила завоеватель / Attila (1954) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древние пророчества гласили, что однажды появится человек, который сможет объединить племена свирепых воинов и бросить вызов непобедимой Римской империи, которая веками правила античным миром. Имя этого человека стало легендарным и навсегда вошло в историю человечества: Аттила - бесстрашный повелитель гуннов. Нам предстоит стать свидетелями противостояния двух самых (   Читать дальше...   )Производство: Италия, Франция / Compagnie Cinematographique de France, Lux Film S.p.a., Producciones Ponti-de LaurentiisЖанр: драма, военный, биография, историяРежиссер: Пьетро ФранчишиАктеры: Энтони Куинн, Софи Лорен, Анри Видаль, Клод Лейдю, Ирен Папас, Колетт Режис, Этторе Манни, Эдуардо Чианнелли, Жорж Бреа, Кристиан МарканПеревод: Авторский (Андрей Мудров)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F6B06C2170CF5D03B84E38470761AC7D8AE14C
 ```
 
 https://mybot314.ru/tekegram_catalog/

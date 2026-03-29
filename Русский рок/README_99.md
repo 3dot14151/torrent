@@ -1,3 +1,116 @@
+###  Публикация: 1087648   (144207) от 28.12.2016
+
+Хартыга и Альберт Кувезин - Агитатор (2016) [MP3|320 Kbps] <Ethno rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чаахоль (03:56)
+02. Аазышкын (07:21)
+03. Чавыдак (03:29)
+04. Агитатор (04:42)(   Читать дальше...   )Жанр: Ethno rockПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C7FC6B3DEB638945421680293DE775F5E15C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435602   (144206) от 28.12.2020
+
+The Ghostbusters - Семь (2020) EP [MP3|320 Kbps] <Ghost-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Смысл жизни [00:03:23]
+02 - Золотой телец [00:03:07]
+03 - В красной ванне [00:03:00]
+04 - Снова за дело [00:03:44](   Читать дальше...   )Жанр: Ghost-PunkПродолжительность: 00:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D704F5548D33F40D9AD89C1704282D070DEADC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272395   (143943) от 27.12.2018
+
+Ленинград - Предновогодняя (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143943.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ПредновогодняяЖанр: RockПродолжительность: 00:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D62E3AF30B42359D03B27A9AB8E1A956FC2AB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087657   (143079) от 29.12.2016
+
+Mass Of The Heretic - Flames Of Hatred (2016) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Subconscious Darkness
+3. Suffer In Fire
+4. Black Hordes(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D865756697E10D90DA3EC5B9DDAAD02066016E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969619   (143003) от 29.12.2015
 
 nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Rock, Hard Rock, Blues Rock>
@@ -6,7 +119,7 @@ nobody.one - 4 Альбома (2010-2015) [MP3|128-320 кб/с] <Instrumental Ro
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143003.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142456.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142411.jpg" />
 </div>
 
 
@@ -94,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142258.jpg" />
 </div>
 
 
@@ -123,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142035.jpg" />
 </div>
 
 
@@ -152,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141493.jpg" />
 </div>
 
 
@@ -187,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141055.jpg" />
 </div>
 
 
@@ -216,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139848.jpg" />
 </div>
 
 
@@ -245,7 +358,7 @@ The Air of Hiroshima - Желчь (2020) [MP3|320 Kbps] <Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139765.jpg" />
 </div>
 
 
@@ -274,7 +387,7 @@ Forces United - Andy Vortex (2018) [MP3|320 Kbps] <Heavy metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139683.jpg" />
 </div>
 
 
@@ -303,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139672.jpg" />
 </div>
 
 
@@ -338,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139295.jpg" />
 </div>
 
 
@@ -367,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138588.jpg" />
 </div>
 
 
@@ -396,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138031.jpg" />
 </div>
 
 
@@ -425,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137894.jpg" />
 </div>
 
 
@@ -454,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137773.jpg" />
 </div>
 
 
@@ -483,7 +596,7 @@ WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137633.jpg" />
 </div>
 
 
@@ -512,7 +625,7 @@ History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137626.jpg" />
 </div>
 
 
@@ -541,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137091.jpg" />
 </div>
 
 
@@ -570,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136658.jpg" />
 </div>
 
 
@@ -599,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136408.jpg" />
 </div>
 
 
@@ -625,7 +738,7 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135688.jpg" />
 </div>
 
 
@@ -643,125 +756,6 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592679   (135648) от 22.12.2012
-
-Роктябрята - The Best (2012) [MP3|256 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Первое января
- 02. Мой день
- 03. Огни желания
- 04. Восход любви
- 05. Мой блюз
- 06. Ничего не изменить
- 07. Миг
- 08. Железнодорожный блюз
- 09. Портвейн
- 10. Песня о друге(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593276   (135384) от 23.12.2012
-
-Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593266   (135328) от 23.12.2012
-
-Артур Беркут - Каждому свое (2012) [MP3|128 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Каждому свое
-02 - Цыганка
-03 - Пират
-04 - БерезыЖанр: Heavy MetalПродолжительность: 00:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834688865C10BB054578140EA3A50627F8E06EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593147   (135177) от 23.12.2012
-
-VA - Легенды Русского Рока I (1996) 6CDs Box-Set [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock |Продолжительность: 01:13:25
-
-01 | Разлука | 02:18
-02 | Эта Музыка Будет Вечной | 04:35(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F6484AAFCBAC4462862F2E6BBF8FDAB3058227
 ```
 
 https://mybot314.ru/tekegram_catalog/

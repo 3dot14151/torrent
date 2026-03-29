@@ -1,3 +1,110 @@
+###  Публикация: 1652113   (218666) от 10.08.2023
+
+TechSmith Snagit 2023.2.1 for Mac [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218666.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.07.2023Разработчик: © 1995 - 2021, TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB349C68008F574FE228D4DF62555545178C2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652216   (218648) от 10.08.2023
+
+JetBrains RubyMine for Mac 2023.2 Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218648.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby. Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: OS X 10.15 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7B3412B339C0EF289BCF62B60E864FE6A7E0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425800   (218593) от 22.11.2020
+
+TotalFinder 1.13.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218593.jpg" />
+</div>
+
+
+###  Подробнее
+
+TotalFinder – это набор полезных утилит, расширяющих исходную функциональность файлового менеджера Mac OS X Finder. Главной особенностью предлагаемого продукта является поддержка вкладок, в которых могут открываться отдельные окна «проводника».
+
+Приложение TotalFinder обладает исключительной производительностью, удобным пользовательским интерфейсом, компактными размерами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2020Разработчик: BinaryageПоддерживаемая ОС: OS X 10.15 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C8BF99267A38823E8EC8007D2D2B8F5BF7807F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652118   (218542) от 10.08.2023
+
+FontLab 8 v.8.2.0.8620.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218542.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2023 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE529B5D1C70393FB4994910748200AB72BD74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269442   (218541) от 15.12.2018
 
 Adguard 1.5.14 [Multi/Ru]
@@ -6,7 +113,7 @@ Adguard 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218541.jpg" />
+  <img src="Z:/picture/005/save_picture_218541.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Rhinoceros 7 v7.1.20322 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218292.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Codepoint for Mac 1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218196.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Dato 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218185.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Boxy SVG 4.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218177.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ Magic Disk Cleaner 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218168.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218161.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Sip Pro 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218152.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218131.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Folder Designer 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218129.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ Baking Soda for Mac 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218123.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ iNet Network Scanner 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218099.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ Dynamic Wallpaper Engine 15.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218048.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ Charles Web Debugging Proxy 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218008.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ TechTool Pro 12.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217997.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ Cisdem Video Converter 7.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217989.jpg" />
 </div>
 
 
@@ -436,7 +543,7 @@ Nova 11.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217953.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ Currency Assistant 3.5 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217945.jpg" />
 </div>
 
 
@@ -490,7 +597,7 @@ Ghost Buster Pro 2.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217926.jpg" />
 </div>
 
 
@@ -516,7 +623,7 @@ Artstudio Pro 3.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217908.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ AI Transcription 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217880.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ Path Finder 2159 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217853.jpg" />
 </div>
 
 
@@ -579,111 +686,6 @@ Path Finder - один из лучших файловых менеджеров, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3559519407F7A6477D97A3D527A75DA94040BF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652494   (217846) от 11.08.2023
-
-Topaz Video AI for Mac 3.3.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCE07E4F83AF37114BA630BC3A1A15C152E323D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514381   (217811) от 03.12.2021
-
-Color Wheel 6.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881DDBD94809CB954C3B8D10FB7B853ADE24C1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514439   (217796) от 03.12.2021
-
-SQLPro for MSSQL 2021.106 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217796.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro для MSSQL - легкий клиент для управление базами данных Microsoft SQL Server, что позволяет получить быстрый и простой доступ к MSSQL серверам, в том числе через облачные сервисы, такие как SQL Azure или Amazon RDS.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021 Hankinsoft Development, Inc.Поддерживаемая ОС: OS X 10.12 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95EFF06CEC8F6199BF7805CAA5C15D2C31F084DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514379   (217726) от 03.12.2021
-
-Paste Queue (Multi Clipboard) 1.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paste Queue - это отличная экономия времени при копировании и вставке нескольких элементов между местоположениями. Просто сначала скопируйте все необходимые элементы. Затем вставьте их по одному или все сразу - нет необходимости переключаться между источником и местом назначения.
-Например, вы можете скопировать имя, номер телефона и адрес по одному с помощью сочетания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 Hoi ChangПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353B672A410AF09052A276EBE64053C6A8BB3C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

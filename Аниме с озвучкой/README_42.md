@@ -1,3 +1,33 @@
+###  Публикация: 1580915   (206642) от 03.10.2022
+
+Внук мудреца | Kenja no Mago | Wise Man's Grandchild [2019, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Парень, который внезапно погиб в результате несчастного случая, переродился в другом мире ребёнком. Там его нашёл «мудрец» Мэрлин Уолфорд и назвал парнишку Шином. Мэрлин растил ребёнка как своего собственного внука и обучал, благодаря чему Шин обрёл великую силу. Когда же ему исполнилось пятнадцать, Мэрлин воскликнул: «Я забыл обучить его здравому смыслу!» Так и (   Читать дальше...   )Производство: Япония / Студия Silver LinkЖанр: Комедия, магия, Фэнтези, экшенРежиссер: Тамура МасафумиЯзык озвучки: Русский многоголосый закадровый, Японский
+- (внешним файлом) Ados, Itashi, Malevich, MyAska, Narea, Sharon (AniLibria.TV)
+- (внешним файлом) Токарев В., Мосолова А., Борзова Т., Евтягина И., Ртищева П., Русаков А., Ганджаев И., Породов И., Скиданов А.(Wakanim)Субтитры: Русские (софтсаб полные/надписи)
+- (внешним файлом) (надписи) (AniLibria.TV): Перевод: Nomi. Оформление: Sekai.
+- (внешним файлом) (полные) (SovetRomantica): Перевод: Voyager. Редактура: Hakiri.Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DAF45C43E5A9231B7A5DFB0BFF64F574DD3DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581088   (206561) от 04.10.2022
 
 Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw+rus+eng
@@ -6,7 +36,7 @@ Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206561.jpg" />
+  <img src="Z:/picture/005/save_picture_206561.jpg" />
 </div>
 
 
@@ -32,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206355.jpg" />
+  <img src="Z:/picture/005/save_picture_206355.jpg" />
 </div>
 
 
@@ -60,7 +90,7 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206276.jpg" />
+  <img src="Z:/picture/005/save_picture_206276.jpg" />
 </div>
 
 
@@ -87,7 +117,7 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206274.jpg" />
+  <img src="Z:/picture/005/save_picture_206274.jpg" />
 </div>
 
 
@@ -114,7 +144,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205952.jpg" />
 </div>
 
 
@@ -141,7 +171,7 @@ Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205582.jpg" />
+  <img src="Z:/picture/005/save_picture_205582.jpg" />
 </div>
 
 
@@ -167,7 +197,7 @@ Baoh Raihousha | Baoh the Visitor | Бао: Посетитель [1989, OVA] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205539.jpg" />
+  <img src="Z:/picture/005/save_picture_205539.jpg" />
 </div>
 
 
@@ -193,7 +223,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205531.jpg" />
+  <img src="Z:/picture/005/save_picture_205531.jpg" />
 </div>
 
 
@@ -219,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205276.jpg" />
+  <img src="Z:/picture/005/save_picture_205276.jpg" />
 </div>
 
 
@@ -245,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205238.jpg" />
+  <img src="Z:/picture/004/save_picture_205238.jpg" />
 </div>
 
 
@@ -274,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205055.jpg" />
+  <img src="Z:/picture/004/save_picture_205055.jpg" />
 </div>
 
 
@@ -302,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205054.jpg" />
+  <img src="Z:/picture/004/save_picture_205054.jpg" />
 </div>
 
 
@@ -331,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204749.jpg" />
+  <img src="Z:/picture/004/save_picture_204749.jpg" />
 </div>
 
 
@@ -358,7 +388,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204620.jpg" />
+  <img src="Z:/picture/004/save_picture_204620.jpg" />
 </div>
 
 
@@ -384,7 +414,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203707.jpg" />
+  <img src="Z:/picture/004/save_picture_203707.jpg" />
 </div>
 
 
@@ -410,7 +440,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203706.jpg" />
+  <img src="Z:/picture/004/save_picture_203706.jpg" />
 </div>
 
 
@@ -438,7 +468,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203703.jpg" />
+  <img src="Z:/picture/004/save_picture_203703.jpg" />
 </div>
 
 
@@ -464,7 +494,7 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203700.jpg" />
+  <img src="Z:/picture/004/save_picture_203700.jpg" />
 </div>
 
 
@@ -490,7 +520,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203385.jpg" />
+  <img src="Z:/picture/004/save_picture_203385.jpg" />
 </div>
 
 
@@ -516,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202945.jpg" />
+  <img src="Z:/picture/004/save_picture_202945.jpg" />
 </div>
 
 
@@ -542,7 +572,7 @@ Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202633.jpg" />
+  <img src="Z:/picture/004/save_picture_202633.jpg" />
 </div>
 
 
@@ -568,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202527.jpg" />
+  <img src="Z:/picture/004/save_picture_202527.jpg" />
 </div>
 
 
@@ -596,7 +626,7 @@ Shingeki no Kyojin | Attack on Titan | Атака титанов [ТВ-1] [2013,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202147.jpg" />
+  <img src="Z:/picture/004/save_picture_202147.jpg" />
 </div>
 
 
@@ -622,7 +652,7 @@ Futoku no Guild | Immoral Guild | Развращённая гильдия [2022,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201584.jpg" />
+  <img src="Z:/picture/005/save_picture_201584.jpg" />
 </div>
 
 
@@ -648,7 +678,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201510.jpg" />
+  <img src="Z:/picture/005/save_picture_201510.jpg" />
 </div>
 
 
@@ -659,32 +689,6 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98EC75A0ED308A550B8418FB310A601DBAB262F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619196   (201236) от 15.03.2023
-
-One Piece Film: Red | Ван-Пис: Фильм пятнадцатый [2022, Movie] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пираты Соломенной шляпы встречают певицу Уту, чей голос и песни покорили мир. Девушка готовится к первому концерту, когда вдруг выясняется, что она — дочь капитана Шанкса.Производство: Япония, TOEI AnimationЖанр: ПриключенияРежиссер: Танигути ГороПеревод: Ziggy TeamЯзык озвучки: Русский (Nazel & Freya)Субтитры: РусскиеПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C4B8F406BB52EFFB41017122EC60963FEF3096
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 959822   (312400) от 26.11.2015
+
+Евгений Корощупов | Пепел Империи. Хроники Ярована (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир Ярован сотворен, по древним преданиям, тремя богами: великим заступником людей Спасителем, полудемоном хаоса Баалом и богиней природы Мореной. Баал поднял из хаоса сгусток уравновешенного огня и сделал ядро и саму планету, Морена вырастила леса и разлила моря и океаны, Спаситель вдохнул жизнь. И появились первые создания: эльфы, над которыми взяла начало Морена, (   Читать дальше...   )Жанр: Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B771BD16FE4874233AA46EA0B6994EB54191487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959818   (312266) от 26.11.2015
 
 Сергей Софрин | Проект «Асгард» (2012) [FB2]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312266.jpg" />
+  <img src="Z:/picture/008/save_picture_312266.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311870.jpg" />
+  <img src="Z:/picture/008/save_picture_311870.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311866.jpg" />
+  <img src="Z:/picture/008/save_picture_311866.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311413.jpg" />
+  <img src="Z:/picture/008/save_picture_311413.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311352.jpg" />
+  <img src="Z:/picture/008/save_picture_311352.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311021.jpg" />
+  <img src="Z:/picture/008/save_picture_311021.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310750.jpg" />
+  <img src="Z:/picture/008/save_picture_310750.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310666.jpg" />
+  <img src="Z:/picture/008/save_picture_310666.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310657.jpg" />
+  <img src="Z:/picture/008/save_picture_310657.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310578.jpg" />
+  <img src="Z:/picture/008/save_picture_310578.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310570.jpg" />
+  <img src="Z:/picture/008/save_picture_310570.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310563.jpg" />
+  <img src="Z:/picture/008/save_picture_310563.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310490.jpg" />
+  <img src="Z:/picture/008/save_picture_310490.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310415.jpg" />
+  <img src="Z:/picture/008/save_picture_310415.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310328.jpg" />
+  <img src="Z:/picture/008/save_picture_310328.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310307.jpg" />
+  <img src="Z:/picture/008/save_picture_310307.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310291.jpg" />
+  <img src="Z:/picture/008/save_picture_310291.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310218.jpg" />
+  <img src="Z:/picture/008/save_picture_310218.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310169.jpg" />
+  <img src="Z:/picture/008/save_picture_310169.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310044.jpg" />
+  <img src="Z:/picture/008/save_picture_310044.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Lynda.com | Up and Running with Evernote for Windows - Начало работы
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309884.jpg" />
+  <img src="Z:/picture/008/save_picture_309884.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309847.jpg" />
+  <img src="Z:/picture/008/save_picture_309847.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309836.jpg" />
+  <img src="Z:/picture/008/save_picture_309836.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309832.jpg" />
+  <img src="Z:/picture/008/save_picture_309832.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309801.jpg" />
+  <img src="Z:/picture/008/save_picture_309801.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828A3A65E667D26A070071DC5B45427911FF6C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854523   (309255) от 27.11.2015
-
-Бернард Корнуэлл | Собрание сочинений [56 книг] (1996-2015) [FB2] [Обновляемая]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бернард Корнуэлл (англ. Bernard Cornwell, 23 февраля 1944) — английский писатель и репортер, автор исторических романов про королевского стрелка Ричарда Шарпа. Бернард Корнуэлл родился в Лондоне в 1944 году. Это был «ребенок войны» — его отец был канадский летчик, а мать служила во вспомогательных частях ВВС. Его усыновила семья из Эссекса, принадлежавшая религиозной (   Читать дальше...   )Жанр: Исторические приключения, Историческая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3293D51EC53F2D633D687F087749E94F299EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

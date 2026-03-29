@@ -1,3 +1,290 @@
+###  Публикация: 1596077   (170627) от 08.12.2022
+
+Corona Renderer 9.1 for 3ds Max 2016-2023 [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD191B7FDB92C44AD0241EDD8A662F9136423C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430599   (170626) от 10.12.2020
+
+Wireshark 3.4.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wireshark - бесплатный сниффер предназначенный для анализа трафика компьютерных сетей (Ethernet, FDDI, PPP, Token-Ring и других) в режиме реального времени, используя широковещательный режим сетевой карты.
+Программа поддерживает различные сетевые протоколы, как например DNS, FDDI, ftp, HTTP, ICQ, IPV6, IPX, IRC, MAPI, MOUNT, NETBIOS, NFS, NNTP, POP, PPP, TCP, TELNET, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B184E80078C5ACBBC3E4114B01B750AED0BB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344449   (170624) от 10.12.2019
+
+Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC901FE1B745E92CAEFBBDB1A4630FF56CD93CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430468   (170622) от 10.12.2020
+
+Internet Download Manager 6.38 Build 15 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD1EBC578859E28DF28AA9D4C9BBBBD824A8FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671961   (170607) от 26.10.2023
+
+PC HelpSoft Driver Updater 7.0.1050 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170607.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC HelpSoft Driver Updater автоматически сканирует разные базы данных. Идентификация устройства пользователя будет проводиться в автоматическом режиме. Позволяет моментально находить рабочие, новейшие драйвера.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10340A39A53A04DB9197BC577AB7192CDA2F404A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430649   (170566) от 10.12.2020
+
+Cent Browser 4.3.9.227 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794A8872459501975AD8C166AC76D492206880A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344346   (170542) от 10.12.2019
+
+GoodSync Enterprise 10.10.14.4 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170542.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E4F2067B03D34F17E7D82B09464B5A756EEEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430618   (170535) от 10.12.2020
+
+Display Driver Uninstaller 18.0.3.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C2983ABABE6340514EF40F4982E6B32D3435B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430531   (170531) от 10.12.2020
+
+Skylum Luminar AI 1.0.0.7326 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Skylum Software продолжает развивать свой популярный фоторедактор Luminar.  В этот программный продукт была еще сильнее интегрирована система искусственного интеллекта AI, поэтому было принято решение назвать программу LuminarAI. Автоматизируя наиболее распространенные ручные задачи и упрощая постобработку, Luminar AI настроен на революцию в том, как мы используем (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F699807010A7293A10DF0616EB3D9B48070D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344356   (170518) от 10.12.2019
+
+SlimBrowser 11.0.8.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170518.jpg" />
+</div>
+
+
+###  Подробнее
+
+SlimBrowser – браузер, построенный на базе Mozilla Firefox. Поставляется со всеми функциями браузера Mozilla, но также включает большое количество собственных улучшений, которые делают серфинг в интернете гораздо удобнее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5FAD43ACCEC965BE37C8283D492F05A535FA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344447   (170511) от 10.12.2019
+
+Opera 65.0.3467.69 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882A99E46AFE85DA481AF6CF40AE1A6A4D109720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344386   (170497) от 10.12.2019
 
 Dashcam Viewer 3.3.2 Repack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +293,7 @@ Dashcam Viewer 3.3.2 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170497.jpg" />
 </div>
 
 
@@ -33,7 +320,7 @@ Nitro Pro 13.32.0.623 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170495.jpg" />
 </div>
 
 
@@ -60,7 +347,7 @@ Pale Moon 28.8.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170486.jpg" />
 </div>
 
 
@@ -86,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170477.jpg" />
 </div>
 
 
@@ -112,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170476.jpg" />
 </div>
 
 
@@ -138,7 +425,7 @@ ReviverSoft Driver Reviver 5.31.4.2 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170474.jpg" />
 </div>
 
 
@@ -164,7 +451,7 @@ Skype 8.55.0.123 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170450.jpg" />
 </div>
 
 
@@ -190,7 +477,7 @@ Ashampoo Burning Studio 21.0.0.33 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170443.jpg" />
 </div>
 
 
@@ -216,7 +503,7 @@ WinTools.net Premium 20.12.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170440.jpg" />
 </div>
 
 
@@ -242,7 +529,7 @@ Topaz DeNoise AI 2.3.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170413.jpg" />
 </div>
 
 
@@ -268,7 +555,7 @@ Sumatra PDF 3.2.11582 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170406.jpg" />
 </div>
 
 
@@ -295,7 +582,7 @@ O&O DiskImage Professional 18.2 Build 196 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170402.jpg" />
 </div>
 
 
@@ -321,7 +608,7 @@ Ocenaudio 3.11.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170395.jpg" />
 </div>
 
 
@@ -347,7 +634,7 @@ VueScan Pro 9.7.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170380.jpg" />
 </div>
 
 
@@ -373,7 +660,7 @@ DiskTrix UltimateDefrag 6.0.46.0 RePack (& portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170378.jpg" />
 </div>
 
 
@@ -384,297 +671,6 @@ UltimateDefrag - дефрагментатор и оптимизатор разм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B20285ADF864B9CE72E0686772BF2435BA064EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430455   (170364) от 10.12.2020
-
-Topaz Sharpen AI 2.2.2 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharpen AI - это первое программное обеспечение для повышения резкости и уменьшения вибрации, которое может определить разницу между реальными деталями и шумом. Создавайте четкие изображения даже при съемке с рук, ночью или с малой глубиной резкости.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB944E919587B262D664EEC37B952BADC63BCB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344329   (170349) от 10.12.2019
-
-Adobe Flash Player 32.0.0.303 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DA5DD8B077D95140E7223A6C92F3B6C20AA5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430666   (170343) от 10.12.2020
-
-SanDisk SSD Dashboard 3.2.2.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170343.jpg" />
-</div>
-
-
-###  Подробнее
-
-SanDisk SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
-Программа SanDisk SSD Dashboard отображает подробную (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC67EB4D598573F51DF9D30B9F2D7F2862F755C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344471   (170340) от 10.12.2019
-
-CPU-Z 1.91.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170340.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D510AF188420CD506F876183690257962B1C951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430494   (170336) от 10.12.2020
-
-Avast Free Antivirus 20.10.2442 (build 20.10.5824.618) Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Free Antivirus - ультралегкая и современная защита с минимальной нагрузкой на системные ресурсы со всеми необходимыми функциями для надежной защиты компьютера, домашней сети и данных. Поведенческий анализ, облачная технология CyberCapture и проверка Wi-Fi. Avast Free Antivirus сканирует ваш ПК на наличие проблем безопасности и производительности и помогает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65534B082948C30A294D9DC3CA35D28B5C5C61B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672245   (170326) от 27.10.2023
-
-Photo Supreme 2023.2.0.5078 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE076D48E3BC1EE655CC1E2BC5C946AAF5BA273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596392   (170320) от 09.12.2022
-
-Macrorit Partition Expert 7.1.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru] 
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EF40CD49B0E11FEBBD2B5FB080ACD4F37F65E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672252   (170307) от 27.10.2023
-
-Radiant Photo 1.1.2.324 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFE9622365FA516738809647943E1EF0D0871F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596353   (170302) от 09.12.2022
-
-Wireshark 4.0.2 + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wireshark - бесплатный сниффер, предназначенный для анализа трафика компьютерных сетей (Ethernet, FDDI, PPP, Token-Ring и других) в режиме реального времени, используя широковещательный режим сетевой карты.
-Программа поддерживает различные сетевые протоколы, как например DNS, FDDI, ftp, HTTP, ICQ, IPV6, IPX, IRC, MAPI, MOUNT, NETBIOS, NFS, NNTP, POP, PPP, TCP, TELNET, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AA1EE8D4457E600FE447305DD06511B589BA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596342   (170300) от 09.12.2022
-
-Emsisoft Emergency Kit 2022.12.0.11730 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный портативный комплект антивирусных программ, который может быть использован без установки и Интернета для сканирования с помощью движков Bitdefender и Emsisoft, а также лечения зараженного компьютера от вредоносного ПО, используя USB-флешку.
-Состав Emsisoft Emergency Kit:
-- Emergency Kit Scanner (сканер)
-- Commandline Scanner (сканер, работающий из командной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DD45997AE4A3AB0F0013986B2BAB27A4A08C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344409   (170296) от 10.12.2019
-
-Auslogics Windows Slimmer 2.2.0.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9455D724D5733FB89B756DCEA69887C1405F6595
 ```
 
 https://mybot314.ru/tekegram_catalog/

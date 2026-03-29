@@ -1,3 +1,171 @@
+###  Публикация: 960379   (310335) от 27.11.2015
+
+Футбол. Лига Европы 2015-16. Группа C. 5 тур. Краснодар (Россия) - Боруссия Д (Германия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Групповой этап Лиги Европы 5 тур. Краснодар (Россия) - Боруссия Д (Германия)Телекомпания: Матч ТВ HDЖанр: Спорт, ТелепередачаПродолжительность: 01:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2546563E2E8AC06E7BEE39D80E35605447496411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960218   (310325) от 27.11.2015
+
+Обзор. Лига Чемпионов 2015-16. 5 тур. 1 и 2 день. Обзор матчей за 24-25.11.2015 (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор группового этапа Лиги Чемпионов 2015-2016 5 тура.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:40:50 + 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD91B40693939D6827B929594F1667F8DDFD0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183262   (310317) от 13.11.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. 1-й матч. Дания – Ирландия (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310317.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 2017 года, суббота. 22:45 МСК
+Чемпионат Мира 2018. Отборочный турнир. Европа.
+Плей-офф. 1-й матч. Дания – Ирландия
+Стадион: Паркен (Копенгаген, Дания), вместимость: 42358(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B0F01C56B15688F3B61402638CF1831D1A3E914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183227   (310316) от 13.11.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. 1-й матч. Швеция – Италия (10.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310316.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 ноября 2017 года, пятница. 22:45 МСК
+Чемпионат Мира 2018. Отборочный турнир. Европа.
+Плей-офф. 1-й матч. Швеция – Италия
+Стадион: Френдс-Арена (Стокгольм, Швеция), вместимость: 54329(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA8778807A19C5ECFE495344DDE2ADD9A38E4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183179   (310315) от 13.11.2017
+
+Хоккей. Евро хоккей тур 2017—2018. Кубок Карьяла 2017. Швейцария – Россия (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310315.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 2017 года, суббота. 14:30 МСК
+Евро хоккей тур 2017—2018. Кубок Карьяла 2017
+Швейцария – Россия
+Стадион: Хартвалл-Арена (Хельсинки, Финляндия), 2713 зрителей (20 % при вместимости 13464)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666016D1E738E006231AD0929E6F0FDFBE4A649B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183268   (310314) от 13.11.2017
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. Обзор Первыx матчей (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310314.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 2017 года, суббота
+Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. Плей-офф
+Первые матчи:
+09.11.2017 ~ Северная Ирландия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский,Субтитры: отсутствуютПродолжительность: 00:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392F55215EB89220790361886B20BAA07F165EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260818   (310122) от 08.11.2018
 
 Футбол. Лига Чемпионов УЕФА 2018-2019. Группа H. 4-й тур. Валенсия (Испания) — Янг Бойз (Швейцария) (07.11.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310122.jpg" />
+  <img src="Z:/picture/008/save_picture_310122.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310119.jpg" />
+  <img src="Z:/picture/008/save_picture_310119.jpg" />
 </div>
 
 
@@ -64,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310118.jpg" />
+  <img src="Z:/picture/008/save_picture_310118.jpg" />
 </div>
 
 
@@ -93,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310116.jpg" />
+  <img src="Z:/picture/008/save_picture_310116.jpg" />
 </div>
 
 
@@ -122,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310114.jpg" />
+  <img src="Z:/picture/008/save_picture_310114.jpg" />
 </div>
 
 
@@ -151,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310111.jpg" />
+  <img src="Z:/picture/008/save_picture_310111.jpg" />
 </div>
 
 
@@ -180,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310109.jpg" />
+  <img src="Z:/picture/008/save_picture_310109.jpg" />
 </div>
 
 
@@ -209,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309997.jpg" />
+  <img src="Z:/picture/008/save_picture_309997.jpg" />
 </div>
 
 
@@ -238,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309985.jpg" />
+  <img src="Z:/picture/008/save_picture_309985.jpg" />
 </div>
 
 
@@ -267,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309981.jpg" />
+  <img src="Z:/picture/008/save_picture_309981.jpg" />
 </div>
 
 
@@ -296,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309979.jpg" />
+  <img src="Z:/picture/008/save_picture_309979.jpg" />
 </div>
 
 
@@ -325,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309959.jpg" />
+  <img src="Z:/picture/008/save_picture_309959.jpg" />
 </div>
 
 
@@ -352,7 +520,7 @@ Moto GP. Сезон 2017. Gran Premio Motul de la Comunitat. Этап 18. Гон
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309942.jpg" />
+  <img src="Z:/picture/008/save_picture_309942.jpg" />
 </div>
 
 
@@ -380,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309889.jpg" />
+  <img src="Z:/picture/008/save_picture_309889.jpg" />
 </div>
 
 
@@ -406,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309750.jpg" />
+  <img src="Z:/picture/008/save_picture_309750.jpg" />
 </div>
 
 
@@ -432,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309670.jpg" />
+  <img src="Z:/picture/008/save_picture_309670.jpg" />
 </div>
 
 
@@ -461,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309668.jpg" />
+  <img src="Z:/picture/008/save_picture_309668.jpg" />
 </div>
 
 
@@ -490,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309666.jpg" />
+  <img src="Z:/picture/008/save_picture_309666.jpg" />
 </div>
 
 
@@ -519,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309665.jpg" />
+  <img src="Z:/picture/008/save_picture_309665.jpg" />
 </div>
 
 
@@ -548,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309661.jpg" />
+  <img src="Z:/picture/008/save_picture_309661.jpg" />
 </div>
 
 
@@ -562,180 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A598243D018F4729FEED06027D0233AD27D272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076571   (309657) от 27.11.2016
-
-Футбол. Лига Европы 2016-2017. Группа B. 5-й тур. Астана (Казахстан) – АПОЭЛ (Кипр) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309657.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2016, четверг. 19:00 МСК
-Лига Европы 2016-2017. Групповой этап
-Группа B. 5-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC88B6C78A9AF903FE4DC26BDC7F0E01BAF4CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076216   (309655) от 27.11.2016
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. Группа B. 5-й тур. Бешикташ (Турция) – Бенфика (Португалия) (23.11.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309655.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2016, среда. 20:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Групповой этап
-Группа B. 5-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850335EB410B0DF95B09458ACC323F6D0C550432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076557   (309647) от 27.11.2016
-
-Футбол. Лига Европы 2016-2017. Группа A. 5-й тур. Фенербахче (Турция) – Заря (Украина) (24.11.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309647.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2016, четверг. 19:00 МСК
-Лига Европы 2016-2017. Групповой этап
-Группа A. 5-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBAEB28E93E01792ADED4E455FCC1F4B1E98BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077017   (309639) от 27.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "НХК Трофи-2016". Женщины. Произвольная программа (26.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309639.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 ноября 2016, суббота. 10:50 МСК
-6-й Этап серии Гран-при сезона 2016-2017
-"НХК Трофи-2016", Саппоро (Япония)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F43BD091935A45A6A8795EE7807F8789F89EC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076905   (309637) от 27.11.2016
-
-Футбол. Лига Европы 2016-2017. Группа L. 5-й тур. Цюрих (Швейцария) – Вильярреал (Испания) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309637.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября 2016, четверг. 21:00 МСК
-Лига Европы 2016-2017. Групповой этап
-Группа L. 5-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2C66AE71AD99214B08A322FC3900EF262315E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076207   (309631) от 27.11.2016
-
-Футбол. Лига Чемпионов УЕФА 2016-2017. Группа A. 5-й тур. Лудогорец (Болгария) – Базель (Швейцария) (23.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309631.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 ноября 2016, среда. 22:45 МСК
-Лига Чемпионов УЕФА 2016-2017. Групповой этап
-Группа A. 5-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2B47378A0A354C99349FCA64FD99D6C0EA1D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

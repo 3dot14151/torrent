@@ -6,7 +6,7 @@ PDF-XChange Viewer Pro 2.5.322.8 Full / Lite RePack (& Portable) by KpoJIuK  [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792595.jpg" />
+  <img src="Z:/picture/008/save_picture_792595.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792593.jpg" />
+  <img src="Z:/picture/008/save_picture_792593.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UltraISO Premium Edition 9.7.1.3519 RePack (& portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792584.jpg" />
+  <img src="Z:/picture/008/save_picture_792584.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UltraISO Premium Edition 9.7.1.3519 RePack (& Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792578.jpg" />
+  <img src="Z:/picture/008/save_picture_792578.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slimjet 26.0.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792569.jpg" />
+  <img src="Z:/picture/008/save_picture_792569.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ MiniTube 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792567.jpg" />
+  <img src="Z:/picture/008/save_picture_792567.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792566.jpg" />
+  <img src="Z:/picture/008/save_picture_792566.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792565.jpg" />
+  <img src="Z:/picture/008/save_picture_792565.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792563.jpg" />
+  <img src="Z:/picture/008/save_picture_792563.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Miami Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792536.jpg" />
+  <img src="Z:/picture/008/save_picture_792536.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792535.jpg" />
+  <img src="Z:/picture/008/save_picture_792535.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792532.jpg" />
+  <img src="Z:/picture/008/save_picture_792532.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ FSMonitor 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792525.jpg" />
+  <img src="Z:/picture/008/save_picture_792525.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Mitti 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792499.jpg" />
+  <img src="Z:/picture/008/save_picture_792499.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ iThoughtsX 4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792488.jpg" />
+  <img src="Z:/picture/008/save_picture_792488.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Brave Browser 1.9.76 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792465.jpg" />
+  <img src="Z:/picture/008/save_picture_792465.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Viber 6.7.0.1091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792456.jpg" />
+  <img src="Z:/picture/008/save_picture_792456.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Coda 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792454.jpg" />
+  <img src="Z:/picture/008/save_picture_792454.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792453.jpg" />
+  <img src="Z:/picture/008/save_picture_792453.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Koingo Alarm Clock Pro 10.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792451.jpg" />
+  <img src="Z:/picture/008/save_picture_792451.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Deep Purple - Infinite (2017) Scene [FLAC|Lossless|tracks] <Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792449.jpg" />
+  <img src="Z:/picture/008/save_picture_792449.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ YouTube Video Downloader PRO 5.8.2 (20170315) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792447.jpg" />
+  <img src="Z:/picture/008/save_picture_792447.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Internet Download Manager 6.28 Build 6 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792445.jpg" />
+  <img src="Z:/picture/008/save_picture_792445.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ MediaHuman YouTube Downloader 3.9.8.10 (2203) RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792442.jpg" />
+  <img src="Z:/picture/008/save_picture_792442.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Complete Internet Repair 5.2.3.4118 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792434.jpg" />
+  <img src="Z:/picture/008/save_picture_792434.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Format Factory 5.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792426.jpg" />
+  <img src="Z:/picture/008/save_picture_792426.jpg" />
 </div>
 
 

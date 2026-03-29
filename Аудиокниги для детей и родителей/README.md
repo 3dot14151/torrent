@@ -1,4 +1,85 @@
 https://t.me/izofen
+###  Публикация: 1862014   (1062975) от 
+
+Николай Гарин-Михайловский | Корейские народные сказки (2024) [MP3, Аравушкин Александр]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062975.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1898 году русский инженер Николай Гарин-Михайловский отправился в Порт-Артур. По пути он посетил Корею и Манчжурию. Именно там он собрал эти сказки – сокровищницу корейского фольклора, дошедшую до наших дней.
+Сказки познакомят вас с царем зверей, мудрым тигром, с хитрыми монахами и смекалистыми героями, которые всегда выйдут сухими из воды. Уникальный сборник познакомит (   Читать дальше...   )Жанр: СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 06:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6FB96326934FC1F1901D7A63B2697A5B380B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860462   (1061976) от 
+
+Грейс Фридман, Сара Чейетт | Победа над СДВГ. Игровая методика для подростков и юных взрослых с синдромом дефицита внимания и ги (2026) [MP3, Агафья Максимова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синдром дефицита внимания и гиперактивности сегодня встречается очень часто, однако это не приговор и не повод сдаваться. Людям с СДВГ бывает непросто надолго удерживать концентрацию, разбираться в новом материале, поддерживать порядок и выстраивать отношения с окружающими — из‑за этого страдают учеба, работа и самооценка. Грейс Фридман, которая сама живет (   Читать дальше...   )Жанр: ПсихологияИздательство: ВесьПродолжительность: 05:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B317F9443C5E4C1C3FFAAB2C65AAB9BF0B1783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860464   (1061975) от 
+
+Владимир Сурдин | 100 вопросов по астрономии, ответы на которые должен знать каждый (2025) [MP3, Владимир Сурдин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061975.jpg" />
+</div>
+
+
+###  Подробнее
+
+От таинства рождения звезд до парадоксов черных дыр – известный астроном дает лаконичные и поэтичные ответы на главные вопросы о Вселенной.
+Это путеводитель, который не упрощает, а проясняет, открывая космос как пространство для интеллектуального и эстетического переживания.
+В этой книге вы найдёте ответы на самые часто задаваемые автору – известному астроному Владимиру (   Читать дальше...   )Жанр: Астрономия, Астрономия для детей, Детская познавательная и развивающая литератураИздательство: АСТПродолжительность: 03:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32ED4F22DD164991AA5EB3C271129FA3279C1E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859680   (1061250) от 
 
 Марина Бастрыгина | Хрестоматия по литературе. 7 класс (2025) [MP3, Е. Соловьева, В. Мичков и др.]
@@ -7,7 +88,7 @@ https://t.me/izofen
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061250.jpg" />
+  <img src="Z:/picture/005/save_picture_1061250.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061163.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060299.jpg" />
+  <img src="Z:/picture/009/save_picture_1060299.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060149.jpg" />
+  <img src="Z:/picture/009/save_picture_1060149.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059708.jpg" />
+  <img src="Z:/picture/005/save_picture_1059708.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059386.jpg" />
+  <img src="Z:/picture/005/save_picture_1059386.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056124.jpg" />
+  <img src="Z:/picture/005/save_picture_1056124.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055962.jpg" />
+  <img src="Z:/picture/005/save_picture_1055962.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054934.jpg" />
+  <img src="Z:/picture/005/save_picture_1054934.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054501.jpg" />
+  <img src="Z:/picture/005/save_picture_1054501.jpg" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054402.jpg" />
+  <img src="Z:/picture/005/save_picture_1054402.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054401.jpg" />
+  <img src="Z:/picture/005/save_picture_1054401.jpg" />
 </div>
 
 
@@ -327,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054341.jpg" />
+  <img src="Z:/picture/005/save_picture_1054341.jpg" />
 </div>
 
 
@@ -353,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054324.jpg" />
+  <img src="Z:/picture/005/save_picture_1054324.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054320.jpg" />
+  <img src="Z:/picture/005/save_picture_1054320.jpg" />
 </div>
 
 
@@ -409,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053715.jpg" />
+  <img src="Z:/picture/005/save_picture_1053715.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053457.jpg" />
+  <img src="Z:/picture/005/save_picture_1053457.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1053181.jpg" />
+  <img src="Z:/picture/009/save_picture_1053181.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053050.jpg" />
+  <img src="Z:/picture/005/save_picture_1053050.jpg" />
 </div>
 
 
@@ -518,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052878.jpg" />
+  <img src="Z:/picture/005/save_picture_1052878.jpg" />
 </div>
 
 
@@ -544,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052877.jpg" />
+  <img src="Z:/picture/005/save_picture_1052877.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052595.jpg" />
+  <img src="Z:/picture/005/save_picture_1052595.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052588.jpg" />
+  <img src="Z:/picture/005/save_picture_1052588.jpg" />
 </div>
 
 
@@ -608,86 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644440D0A8625E493856993A4F7EE872D060734A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848136   (1052560) от 16.01.2026
-
-Юлия Гиппенрейтер | Самая важная книга для родителей (2021) [MP3, Ксения Бржезовская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052560.jpg" />
-</div>
-
-
-###  Подробнее
-
-В это издание вошли бестселлеры профессора Ю. Б. Гиппенрейтер «Общаться с ребенком. Как?», «Продолжаем общаться с ребенком. Так?» и хрестоматия «Родителям: как быть ребенком» – книги, совершившие революцию в области воспитания и продолжающие окрылять родителей. Автор подробно рассматривает воспитательные нормы, бытующие в нашей культуре много десятилетий, – и показывает, (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Советы родителямИздательство: АСТПродолжительность: 25:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E6ECC6FA68B0BAAA06CAD66F91B430AD985186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847898   (1052446) от 15.01.2026
-
-Юлия Гиппенрейтер | Ребенок в семье (2020) [MP3, Галина Чигинская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Борисовна Гиппенрейтер – один из самых известных в России детских психологов, автор бестселлеров «Общаться с ребенком. Как?» и «Продолжаем общаться с ребенком. Так?» В книге «Ребенок в семье» собраны самые острые и актуальные вопросы родителей касающиеся семьи и воспитания.
-Юлия Борисовна в диалогах с родителями и детьми, на конкретных примерах показывает, как (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Книги для родителейИздательство: АСТПродолжительность: 03:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAD4156DF06A8BB619629C86DFBC8B6208A93DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847737   (1052325) от 14.01.2026
-
-Юлия Гиппенрейтер | Большая книга общения с ребенком (2021) [MP3, Леонтина Броцкая]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшая книга для родителей, которые хотят услышать своих детей и быть услышанными ими.
-"Большая книга общения с ребенком" – представляет собой дополненное и переработанное издание книг «Общаться с ребенком. Как?», «Продолжаем общаться с ребенком. Так?» и специальных глав, посвященных детям из книги «У нас разные характеры. Как быть?». Тексты расширены, (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Книги для родителейИздательство: АСТПродолжительность: 14:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AA92666C90B12860084831A9E6B7AE14249F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

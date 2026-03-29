@@ -1,3 +1,58 @@
+###  Публикация: 1780869   (26997) от 20.02.2025
+
+Вера Никандрова | Классика (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освоив этот курс,  вы получите знания, которые дают возможность не только создавать торты из него, но и в целом прокачают ваши навыки. Всю информацию, техники, секреты вы сможете легко спроецировать на приготовление любых десертов.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB68BAB045070AA5FE734A4910DC12C926D7ECD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780855   (26980) от 20.02.2025
+
+Анна Кулакова | Декоративная дендрология (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декоративная дендрология: Alnus incana и Betula pendula
+Декоративная дендрология: Betula pubescens и Acer platanoides
+Декоративная дендрология: Pinus sylvestris и Salix alba
+Декоративная дендрология: Populus tremula и Alnus glutinosa(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 10:16:18Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157241782B31208B4E930126E31AE36EF797B615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780853   (26972) от 20.02.2025
 
 Анна Кулакова | Дизайн малого сада (2021) WEB-DL [AD] [RU]
@@ -6,7 +61,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26972.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26914.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26782.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26774.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26698.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26690.jpg" />
 </div>
 
 
@@ -177,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26688.jpg" />
 </div>
 
 
@@ -205,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26679.jpg" />
 </div>
 
 
@@ -234,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26674.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26665.jpg" />
 </div>
 
 
@@ -288,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26623.jpg" />
 </div>
 
 
@@ -317,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26480.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26290.jpg" />
 </div>
 
 
@@ -370,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26276.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26264.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26166.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26086.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25860.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25737.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25639.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25633.jpg" />
 </div>
 
 
@@ -591,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25531.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25512.jpg" />
 </div>
 
 
@@ -646,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25400.jpg" />
 </div>
 
 
@@ -657,60 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C3E15C0B5ACF99BDD2D70B57703E89D14ECAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783989   (25302) от 08.03.2025
-
-Вера Никандрова | Выпечка лайт: круассаны, улитки, пицца (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Круассаны – это изделие, которое часто вызывает страх и останавливает в освоении этого изделия. Качественный крафтовый   круассан – это искусство, требующее определенной практики, набитой руки,  изучения поведения продуктов и приручения оборудования, прохождения пути мастерства, понимания сложных этапов тестоведения. Страх перед этим путем – не повод отказываться от (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836B0884E6D0A8F29B8C91FD17F19495E1B32CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784139   (25199) от 09.03.2025
-
-Умный садовник, Елена Савич | Всё о гортензиях (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гортензия — неприхотливый кустарник с эффектными пышными шапками цветов, которые радуют своих хозяев с середины лета до самых морозов.
-Чтобы гортензии в вашем саду были источником радости, необходимо перед посадкой с ними поближе познакомиться и определить для себя множество важных моментов.
-Например, где я хочу посадить кустарник, каким я вижу его через 3-5 лет, (   Читать дальше...   )Производство: Умный садовникЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:45:09Реклама: Ватермарки и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB77C186E9EBD0E4B3D088725C730DCFBA20D02
 ```
 
 https://mybot314.ru/tekegram_catalog/

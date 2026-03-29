@@ -6,7 +6,7 @@ Acronis Disk Director 12 Build 12.0.3223 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709674.jpg" />
+  <img src="Z:/picture/008/save_picture_709674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dism++ 10.1.1000.70 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709641.jpg" />
+  <img src="Z:/picture/008/save_picture_709641.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RarmaRadio Pro 2.70.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709585.jpg" />
+  <img src="Z:/picture/008/save_picture_709585.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ UC Browser 5.6.13108.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709574.jpg" />
+  <img src="Z:/picture/008/save_picture_709574.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709494.jpg" />
+  <img src="Z:/picture/008/save_picture_709494.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AIMP 4.02 Build 1725 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709429.jpg" />
+  <img src="Z:/picture/008/save_picture_709429.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ GOM Player 2.3.3 Build 5254 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709423.jpg" />
+  <img src="Z:/picture/008/save_picture_709423.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 10 Manager 1.1.4 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709317.jpg" />
+  <img src="Z:/picture/008/save_picture_709317.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mp3tag 2.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709294.jpg" />
+  <img src="Z:/picture/008/save_picture_709294.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ HDCleaner 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709281.jpg" />
+  <img src="Z:/picture/008/save_picture_709281.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Autodesk AutoCAD Mechanical 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709198.jpg" />
+  <img src="Z:/picture/008/save_picture_709198.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Autodesk AutoCAD Civil 3D 2017 HF3 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709194.jpg" />
+  <img src="Z:/picture/008/save_picture_709194.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Autodesk AutoCAD LT 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709188.jpg" />
+  <img src="Z:/picture/008/save_picture_709188.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14361 (esd) [Ru] + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709185.jpg" />
+  <img src="Z:/picture/008/save_picture_709185.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ TweakPower  1.151 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709170.jpg" />
+  <img src="Z:/picture/008/save_picture_709170.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AnyDVD & AnyDVD HD 7.6.0.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709165.jpg" />
+  <img src="Z:/picture/008/save_picture_709165.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Icaros 2.3.0 RC1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709161.jpg" />
+  <img src="Z:/picture/008/save_picture_709161.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BestReminder v2019.03.04.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709085.jpg" />
+  <img src="Z:/picture/008/save_picture_709085.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DiskDigger 1.20.10.2731 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709080.jpg" />
+  <img src="Z:/picture/008/save_picture_709080.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ K-Lite Codec Pack Update 11.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709077.jpg" />
+  <img src="Z:/picture/008/save_picture_709077.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Avira AntiVirus Free 2015 15.0.9.504 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709065.jpg" />
+  <img src="Z:/picture/008/save_picture_709065.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Visual C++ 14.28.29115.0 Runtimes AIO (x86-x64) Repack by @ricktendo64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709042.jpg" />
+  <img src="Z:/picture/008/save_picture_709042.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Aiseesoft Video Downloader 6.0.76 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708999.jpg" />
+  <img src="Z:/picture/008/save_picture_708999.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ StrokesPlus.net 0.5.6.4 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708988.jpg" />
+  <img src="Z:/picture/008/save_picture_708988.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ IObit Uninstaller Pro 8.4.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708964.jpg" />
+  <img src="Z:/picture/008/save_picture_708964.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ AdwCleaner 4.203 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708955.jpg" />
+  <img src="Z:/picture/008/save_picture_708955.jpg" />
 </div>
 
 

@@ -1,3 +1,178 @@
+###  Публикация: 1110603   (852267) от 03.03.2017
+
+VA - In Love (2017) [MP3|320 Kbps] <Pop, Lounge, Soul, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Love Yourself (03:54)
+02. Ellie Goulding - Still Falling For You (04:01)
+03. Shawn Mendes - Mercy (03:29)
+04. Ariana Grande, The Weeknd - Love Me Harder (03:56)(   Читать дальше...   )Жанр: Pop, Lounge, Soul, Easy ListeningПродолжительность: 02:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F302DD9BBEF5A688075AE4449D31116BA28AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110662   (852169) от 03.03.2017
+
+VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-house, electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clemens Rumpf & Marcell Russell - Ain't Dancing Without You (Space Age Nu Disco Edit) (4:36)
+02. Ill Twin - Charlies (Max Laut Edit) (3:27)
+03. Funkatron - The Groove (6:49)
+04. Wyatt Ocean - See the Difference (3:56)(   Читать дальше...   )Жанр: Dance, nu-disco, deep-house, electronicПродолжительность: 03:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD6004FD9DBF6C6C124B6122EA4FC1B4916C99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110545   (852087) от 03.03.2017
+
+VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852087.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'bone Man - Human 3:19
+002. Sia - Salted Wound (From The "Fifty Shades Of Grey" Soundtrack) 4:31
+003. Pharrell Williams - Happy 3:53
+004. The Chainsmokers - Selfie 3:04(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE72C695F5B64381C3E75221E6CDFEAB8F2F575C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001527   (852044) от 29.03.2016
+
+VA - Instrumental Covers (Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar Hits) (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, Bossa Nova, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Project - Clocks (03:07)
+02. Gazzara - Wave (04:09)
+03. St Project - Wake up Everybody (03:09)
+04. The Sniffers - Dune Buggy (02:54)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Bossa Nova, Easy ListeningПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC092670EA5D180A3B0D80B0D9CE95B11DB5E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877249   (849160) от 11.03.2015
+
+VA - Billboard Top 25 Hot Rock Songs (14-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Billboard опубликовал  новые чаты за 14 марта 2015 года, из которых представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
+Топ создается в соответствии с ранжированнием в радиоэфире во всех форматах, а также на основе данных о продажах и потоковом воспроизведении треков. (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
+02. Fall Out Boy - Centuries  (3:52)
+03. Vance Joy - Riptide  (3:20)
+04. WALK THE MOON - Shut Up and Dance  (3:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90CAA2C89A9A3283626619E29EE201BAF95561D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002244   (848900) от 31.03.2016
+
+VA - Pure 90s Time Garden (2016) [MP3|320 кб/с] <Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozzy Osbourne - I Just Want You 04:56
+02. The Wallflowers - Three Marlenas 04:59
+03. Nirvana - Heart Shaped Box 04:41
+04. Bon Jovi - Keep The Faith 05:44(   Читать дальше...   )Жанр: Euro, Disco, Pop Rock, R&B, Alternative, Grunge, Folk, CountryПродолжительность: 08:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F729B3570A0478AD1B4E09EB2CDC44EFDCFCE796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377934   (848264) от 24.04.2020
 
 VA - Карантин 2 (Когда остался дома) (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +181,7 @@ VA - Карантин 2 (Когда остался дома) (2020) [MP3|320 Kbp
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848264.jpg" />
+  <img src="Z:/picture/008/save_picture_848264.jpg" />
 </div>
 
 
@@ -35,7 +210,7 @@ VA - Promo Only Express Audio DFF February Week 02 (2021) [MP3|320 Kbps] <Hip-Ho
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847965.jpg" />
+  <img src="Z:/picture/008/save_picture_847965.jpg" />
 </div>
 
 
@@ -64,7 +239,7 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847753.jpg" />
+  <img src="Z:/picture/008/save_picture_847753.jpg" />
 </div>
 
 
@@ -93,7 +268,7 @@ VA - Mega Дискотека 80-90-х В Современной Обработк
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847751.jpg" />
+  <img src="Z:/picture/008/save_picture_847751.jpg" />
 </div>
 
 
@@ -122,7 +297,7 @@ VA - Music News vol.137 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847598.jpg" />
+  <img src="Z:/picture/008/save_picture_847598.jpg" />
 </div>
 
 
@@ -151,7 +326,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Сентябрь) (2021
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847357.jpg" />
+  <img src="Z:/picture/008/save_picture_847357.jpg" />
 </div>
 
 
@@ -180,7 +355,7 @@ VA - I Love Ballads - Part V (2016) [MP3|256 кб/с] <Pop, Rock, Chanson>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846922.jpg" />
+  <img src="Z:/picture/008/save_picture_846922.jpg" />
 </div>
 
 
@@ -209,7 +384,7 @@ VA - Society Clubbing Smashing House (2017) [MP3|247-320 Kbps] <Dance, Club, Fun
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846800.jpg" />
+  <img src="Z:/picture/008/save_picture_846800.jpg" />
 </div>
 
 
@@ -238,7 +413,7 @@ VA - Зайцев нет. 1 апреля. День дурака (2016) [MP3|184-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846762.jpg" />
+  <img src="Z:/picture/008/save_picture_846762.jpg" />
 </div>
 
 
@@ -267,7 +442,7 @@ VA - Woman’s Day (2017) [MP3|320 Kbps] <Pop , R&B , Chillout>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846746.jpg" />
+  <img src="Z:/picture/008/save_picture_846746.jpg" />
 </div>
 
 
@@ -296,7 +471,7 @@ VA - The Passion Of Reggaeton: February Mix (2017) [MP3|320 Kbps] <Reggaeton, La
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846738.jpg" />
+  <img src="Z:/picture/008/save_picture_846738.jpg" />
 </div>
 
 
@@ -325,7 +500,7 @@ VA - Самый новый хит в машину. Версия 50/50 (2016) [MP
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846661.jpg" />
+  <img src="Z:/picture/008/save_picture_846661.jpg" />
 </div>
 
 
@@ -354,7 +529,7 @@ VA - ЕвроХит Топ 40 Europa Plus 24.04.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846609.jpg" />
+  <img src="Z:/picture/008/save_picture_846609.jpg" />
 </div>
 
 
@@ -383,7 +558,7 @@ VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846569.jpg" />
+  <img src="Z:/picture/008/save_picture_846569.jpg" />
 </div>
 
 
@@ -412,7 +587,7 @@ VA - Рок впрок выпуск № 8 (2017) [MP3|320 Kbps] <Рок, Поп-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846565.jpg" />
+  <img src="Z:/picture/008/save_picture_846565.jpg" />
 </div>
 
 
@@ -441,7 +616,7 @@ VA - Настроение жесть (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846526.jpg" />
+  <img src="Z:/picture/008/save_picture_846526.jpg" />
 </div>
 
 
@@ -470,7 +645,7 @@ VA - Звезды Дискотек! (39 - 42) (2015) (4CD) [MP3|192 - 320 кб/�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845717.jpg" />
+  <img src="Z:/picture/008/save_picture_845717.jpg" />
 </div>
 
 
@@ -499,7 +674,7 @@ VA - Empire Records - Dancenudisco 11 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845162.jpg" />
+  <img src="Z:/picture/008/save_picture_845162.jpg" />
 </div>
 
 
@@ -528,7 +703,7 @@ VA - Empire Records - Dancenudisco 10 (2017) [MP3|256-320 Kbps] <Disco, Dance, N
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845156.jpg" />
+  <img src="Z:/picture/008/save_picture_845156.jpg" />
 </div>
 
 
@@ -557,7 +732,7 @@ VA - Empire Records - Club Hit 11 (2017) [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845154.jpg" />
+  <img src="Z:/picture/008/save_picture_845154.jpg" />
 </div>
 
 
@@ -571,186 +746,6 @@ VA - Empire Records - Club Hit 11 (2017) [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4694B9089A676E3C928577C6AC645AF1171043B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002825   (845117) от 02.04.2016
-
-VA - Aprils Popular Top 100 (2016) [MP3|128-320 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Selena Gomez - Hands To Myself
-002. The Weeknd - Can't Feel My Face
-003. WSTRN - In2
-004. Taylor Swift - Bad Blood (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 05:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD058EFC20A318A2FBA5D99485CA2BF1AEB5BC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003287   (844814) от 02.04.2016
-
-VA - Top 100 Зайцев Нет март (2016) [MP3|160-320 кб/с] <Pop, Dance, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alekseev - Пьяное Солнце (3:21)
-002. Егор Крид - Будильник (3:24)
-003. Тимати - Ключи От Рая (3:20)
-004. Алексей Воробьев - Она Сумасшедшая (3:06)(   Читать дальше...   )Жанр: Pop, Dance, RapПродолжительность: 06:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DD50C9CCA7393106FDEBAD5E01010E741D10F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378802   (844649) от 26.04.2020
-
-VA - Туман (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Исенгазин Азамат — Туман
-002. Кармаш Михаил — Разбудила меня ночь
-003. Ждамиров Владимир — Удача
-004. Горбушин Игорь и Эля — Ты и я(   Читать дальше...   )Жанр: Pop, Shanson, OtherПродолжительность: 06:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35B2E767F7EB0F39B257D01D02345DCFD297C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500072   (844303) от 04.10.2021
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 112 (2021) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Alexandra Stan, DMNDS, Void x Kid Cudi, Nitrex - Saxobeat (Dj Baur Mixshow)
-02. Alok, Sofi Tukker & INNA - It Don't Matter (RNSNW & Deeplos Radio Edit)
-03. Armagan Oruc - Tapa-Tapa (Max Flame & Dacks Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DD5834A1114CD148CDD9F019E90EB5E4E8D488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499916   (844171) от 04.10.2021
-
-VA - Shazam Хит-парад World Top 200 Сентябрь (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844171.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. CKay, DJ Yo, AX'EL - love nwantiti (Remix) (3:08)
-002. Elton John, Dua Lipa, PNAU - Cold Heart - PNAU Remix (3:22)
-003. The Kid LAROI, Justin Bieber - STAY (2:21)
-004. Farruko - Pepas (4:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BD8927E3265FCCB39566EAE8A14B5BEE71C160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 650361   (843833) от 30.04.2013
-
-VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.33 (2013) [MP3|128-320  кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Syntheticsax feat. Крошка Bi-Bi (Sofamusic) & Art Night - Босиком (Radio Edit)
-2.Винтаж - Знак Водолея
-3.K-Rim - Я Не Забуду (Radio Edit)
-4.Aslan feat. Misty - Посмотри
-5.Поющие Трусы - Наха
-6.Jamie Drastik feat. Pitbull & Havana Brown - Chasing Shadows
-7.Airplace - Marie (Radio Edit)
-8.Xonia - Ping Pong (Radio Edit)
-9.Рома Жуков - Слушай
-10.Макс Лоренс - На Краю Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F3DEDCA337A7A92C4DE3A10E41D8F0C622B2C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

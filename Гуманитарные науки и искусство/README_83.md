@@ -1,3 +1,29 @@
+###  Публикация: 1171429   (396722) от 04.10.2017
+
+Флавий Филострат | Жизни софистов [Том I] (2017) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396722.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизни софистов» - один из четырех дошедших до нас сборников древнегреческих биографий, до сих пор издававшийся по-русски только в отрывках: завершивший этот сборник в 237/238 гг. н. э. Флавий Филострат был самым знаменитым представителем литературного семейства Филостратов, оставивших нам солидное и разнообразное собрание софистической прозы, создававшейся на протяжении (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360CFA76EB98E0AA143DE7386826651574D9151C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171446   (396677) от 04.10.2017
 
 А.Г. Дугин | Ноомахия. Войны ума. Латинский Логос. Солнце и Крест (2016) [PDF, DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396677.jpg" />
+  <img src="Z:/picture/008/save_picture_396677.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396626.jpg" />
+  <img src="Z:/picture/008/save_picture_396626.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395879.jpg" />
+  <img src="Z:/picture/008/save_picture_395879.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394603.jpg" />
+  <img src="Z:/picture/008/save_picture_394603.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394163.jpg" />
+  <img src="Z:/picture/008/save_picture_394163.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393114.jpg" />
+  <img src="Z:/picture/008/save_picture_393114.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392061.jpg" />
+  <img src="Z:/picture/008/save_picture_392061.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392057.jpg" />
+  <img src="Z:/picture/008/save_picture_392057.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392055.jpg" />
+  <img src="Z:/picture/008/save_picture_392055.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391354.jpg" />
+  <img src="Z:/picture/008/save_picture_391354.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391287.jpg" />
+  <img src="Z:/picture/008/save_picture_391287.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390649.jpg" />
+  <img src="Z:/picture/008/save_picture_390649.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390626.jpg" />
+  <img src="Z:/picture/008/save_picture_390626.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390623.jpg" />
+  <img src="Z:/picture/008/save_picture_390623.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390608.jpg" />
+  <img src="Z:/picture/008/save_picture_390608.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390570.jpg" />
+  <img src="Z:/picture/008/save_picture_390570.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390565.jpg" />
+  <img src="Z:/picture/008/save_picture_390565.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390560.jpg" />
+  <img src="Z:/picture/008/save_picture_390560.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390532.jpg" />
+  <img src="Z:/picture/008/save_picture_390532.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389013.jpg" />
+  <img src="Z:/picture/008/save_picture_389013.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387549.jpg" />
+  <img src="Z:/picture/008/save_picture_387549.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387528.jpg" />
+  <img src="Z:/picture/008/save_picture_387528.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387311.jpg" />
+  <img src="Z:/picture/008/save_picture_387311.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387187.jpg" />
+  <img src="Z:/picture/008/save_picture_387187.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386995.jpg" />
+  <img src="Z:/picture/008/save_picture_386995.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:811233BC4AD11DDDDE1DE32CB388DADE0F122BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066292   (386861) от 29.10.2016
-
-Ниал Фергюсон | Великое вырождение. Как разрушаются институты и гибнут государства (2016) [EPUB, FB2, MOBI]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сделать так, чтобы финансовая система работала на общество, а не против него, была основой стабильности, а не источником проблем? Должно ли государство вмешиваться в работу банков, судов и образовательных учреждений? В чем причина слабеющего финансового и политического влияния Запада в мире? Эти вопросы остро волнуют не только западный мир. По мнению британского (   Читать дальше...   )Жанр: Экономика, история, управление, политикаФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B71F466FABA01707C56CAB81D4D6AFF3E8BAB97
 ```
 
 https://mybot314.ru/tekegram_catalog/

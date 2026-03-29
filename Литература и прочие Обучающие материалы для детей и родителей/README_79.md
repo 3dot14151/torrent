@@ -1,3 +1,137 @@
+###  Публикация: 980997   (949762) от 02.02.2016
+
+Словарь русских мифических  духов и нежити (2016) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8605A5A5888056F872A7BF88268695365645CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980979   (949749) от 02.02.2016
+
+Словарь вещунов, колдунов и знахарей (2016) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F828C6AC76B090E759FED4C857AC6D329B4C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362502   (949549) от 23.02.2020
+
+Нил Патрик Харрис | Цикл: «Волшебные неудачники» [3 книги] (2018-2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Подросток Картер сбегает от своего дядюшки Проныры, обворовывающего людей с помощью фокусов и обмана. Он не верит в волшебство, но случайно находит друзей, которые тоже увлечены магией. В книге есть тайны, шифры и подробные объяснения фокусов, но самое главное, в ней есть вера в дружбу и чудеса.
+Для среднего и старшего школьного возраста.
+
+Актёр, продюсер, режиссёр, (   Читать дальше...   )Жанр: Приключения для детейПеревод: Елена ЯковлеваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88AEF7427F5AB60D260D9994544FA1241418810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362256   (949238) от 23.02.2020
+
+Виктория Кожедуб (ред.) | Сказания о богатырях. Предания Руси [сборник] (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь, подвиги, дружба, походы и битвы – все переплелось в героических сказаниях о русских богатырях. В сборник входят былины о «старших» богатырях – Святогоре, Микуле Селяниновиче, Илье Муромце, и «младших» богатырях – Добрыне Никитиче и Алеше Поповиче.Жанр: Сказки для детей, Мифы, Легенды, ЭпосФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A954ACBB09282BD80CF33052911CD31CACB51B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089930   (949058) от 05.01.2017
+
+Геннадий Цыферов | Собрание сочинений [32 книги] (1958-2012) [PDF, DJVU, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Геннадий Михайлович Цыферов (1930—1972) — советский писатель-сказочник,сценарист, драматург
+Родился 26 марта 1930 года в Свердловске. Отец занимал пост директора Гос. треста зеленого строительства "Госзеленстрой" РСФСР, мать была бухгалтером. В 1949 г. он поступает в институт Востоковедения на факультет японского языка, но из-за большой близорукости на (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EF58C1B937CC915FF7C51C170B08B7CEDFB12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858555   (948963) от 11.01.2015
 
 Евгений Цыбульский (сост.) | Рукопожатия границ (1971) [DJVU]
@@ -6,7 +140,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948963.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948962.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948869.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948293.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948108.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947885.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947606.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947416.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947415.jpg" />
 </div>
 
 
@@ -246,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947413.jpg" />
 </div>
 
 
@@ -272,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947318.jpg" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947291.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ GE Fabbri Ltd | Журнал "Сказочник" № 1 - 40 [2006-2009] [DJVU +
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947245.jpg" />
 </div>
 
 
@@ -353,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947150.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947026.jpg" />
 </div>
 
 
@@ -407,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946989.jpg" />
 </div>
 
 
@@ -434,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946935.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946933.jpg" />
 </div>
 
 
@@ -487,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946923.jpg" />
 </div>
 
 
@@ -514,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946794.jpg" />
 </div>
 
 
@@ -541,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946561.jpg" />
 </div>
 
 
@@ -553,138 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:802F0AF4E861356B690102A11C8B2BFB30EF8C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362877   (946397) от 25.02.2020
-
-Гарет Мур | Шерлок Холмс. Головоломки великого сыщика: коллекция головоломок, загадок, ребусов (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание книги
-Хотите весело и с пользой провести время? Тогда эта книга для вас! «Шерлок Холмс. Головоломки великого сыщика» – это больше ста увлекательных сюжетных головоломок, загадок и ребусов, объединенных знаменитыми персонажами Артура Конан Дойла.
-Разгадывайте головоломки, достойные великого сыщика!Жанр: Головоломки, ДосугФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F638C1E737054CB4B40F3ECFFF306F89B7554FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090647   (946101) от 07.01.2017
-
-Куддус Мухаммади | Как металл затанцевал (1962) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворение для детей младшего школьного возраста Мухаммади Куддус с иллюстрациями Узбякова Юрия.Жанр: СтихиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC3C39565610E8A1BFB12535D5A97A2CC9829DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090652   (946079) от 07.01.2017
-
-Максим Зверев | Белый марал (1961) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для детей дошкольного и младшего школьного возраста Зверева Максима Дмитриевича с иллюстрациями Никольского Георгия Евлампиевича.Жанр: Детская прозаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354EB459B524692DC951697A0AC4A16427A94C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090646   (946075) от 07.01.2017
-
-Низами Гянджеви | Волшебное кольцо (1962) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворение для детей младшего школьного возраста Гянджеви Низами (обработка для детей: Абдуллы Шаика) с иллюстрациями Народного художника Азербайджанской ССР Власова Михаила Александровича.Жанр: Стихи, СказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDB03A25E398BEE4C8564C865A3C31455741A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090930   (945989) от 07.01.2017
-
-Г. Юрмин | Светофор (1976) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы, очерки, стихи о работниках ГАИ, об истории городского транспорта, о различных видах транспорта и законах дорожного движения. В этой книге вы часто будете встречать незнакомые слова — названия отдельных частей автомобиля, новые для вас технические термины. Разобраться в них вам поможет наш «Автомобильный словарик», который приведён в конце книги. Почаще (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B3E9290B86D83E2D8E9C96CD89F71B163C9FF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362322.jpg" />
+  <img src="Z:/picture/008/save_picture_362322.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361133.jpg" />
+  <img src="Z:/picture/008/save_picture_361133.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360701.jpg" />
+  <img src="Z:/picture/008/save_picture_360701.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357947.jpg" />
+  <img src="Z:/picture/008/save_picture_357947.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357397.jpg" />
+  <img src="Z:/picture/008/save_picture_357397.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356430.jpg" />
+  <img src="Z:/picture/008/save_picture_356430.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356324.jpg" />
+  <img src="Z:/picture/008/save_picture_356324.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353261.jpg" />
+  <img src="Z:/picture/008/save_picture_353261.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346554.jpg" />
+  <img src="Z:/picture/008/save_picture_346554.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346494.jpg" />
+  <img src="Z:/picture/008/save_picture_346494.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344089.jpg" />
+  <img src="Z:/picture/008/save_picture_344089.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340642.jpg" />
+  <img src="Z:/picture/008/save_picture_340642.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340339.jpg" />
+  <img src="Z:/picture/008/save_picture_340339.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340208.jpg" />
+  <img src="Z:/picture/008/save_picture_340208.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336908.jpg" />
+  <img src="Z:/picture/008/save_picture_336908.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Black & Decker | The Complete Guide to Landscape Projects / Ландшафтны
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322167.jpg" />
+  <img src="Z:/picture/008/save_picture_322167.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317081.jpg" />
+  <img src="Z:/picture/008/save_picture_317081.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317077.jpg" />
+  <img src="Z:/picture/008/save_picture_317077.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317068.jpg" />
+  <img src="Z:/picture/008/save_picture_317068.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305225.jpg" />
+  <img src="Z:/picture/008/save_picture_305225.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304177.jpg" />
+  <img src="Z:/picture/008/save_picture_304177.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303077.jpg" />
+  <img src="Z:/picture/008/save_picture_303077.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Philip Schmidt | The Complete Guide to Gazebos & Arbors / Беседки и ле
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_302885.jpg" />
+  <img src="Z:/picture/005/save_picture_302885.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Black & Decker - The Complete Guide to Outdoor Carpentry / Руководств�
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_302695.jpg" />
+  <img src="Z:/picture/005/save_picture_302695.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301131.jpg" />
+  <img src="Z:/picture/008/save_picture_301131.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301022.jpg" />
+  <img src="Z:/picture/008/save_picture_301022.jpg" />
 </div>
 
 

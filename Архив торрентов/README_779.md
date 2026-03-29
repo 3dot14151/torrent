@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874833.jpg" />
+  <img src="Z:/picture/005/save_picture_874833.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIMP 4.13 Build 1887 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874831.jpg" />
+  <img src="Z:/picture/005/save_picture_874831.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Magic Photo Recovery 4.5 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874830.jpg" />
+  <img src="Z:/picture/005/save_picture_874830.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Security Eye 3.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874828.jpg" />
+  <img src="Z:/picture/005/save_picture_874828.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874824.jpg" />
+  <img src="Z:/picture/005/save_picture_874824.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Image Viewer 6.2 Corporate RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874822.jpg" />
+  <img src="Z:/picture/005/save_picture_874822.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HamMultiPlayer 0.116.37905.792 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874816.jpg" />
+  <img src="Z:/picture/008/save_picture_874816.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Economist February 26th-March 4th [2011] [PDF] + [аудио версия]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874806.jpg" />
+  <img src="Z:/picture/008/save_picture_874806.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Insofta Document Backup 5.2.0.124 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874803.jpg" />
+  <img src="Z:/picture/005/save_picture_874803.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Alekhine's Gun (2016) [Ru/Multi] (1.0a) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874769.jpg" />
+  <img src="Z:/picture/005/save_picture_874769.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874749.jpg" />
+  <img src="Z:/picture/008/save_picture_874749.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AVG PC Tuneup 16.22.1.58906 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874748.jpg" />
+  <img src="Z:/picture/005/save_picture_874748.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874741.jpg" />
+  <img src="Z:/picture/005/save_picture_874741.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Andrea - Ritorno (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Amb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874725.jpg" />
+  <img src="Z:/picture/005/save_picture_874725.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NoteBurner Spotify Music Converter 1.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874721.jpg" />
+  <img src="Z:/picture/005/save_picture_874721.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Wondershare DVD Creator 6.1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874716.jpg" />
+  <img src="Z:/picture/008/save_picture_874716.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ MediaHuman Youtube Downloader 3.9.9.35 (build 0604) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874714.jpg" />
+  <img src="Z:/picture/005/save_picture_874714.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LonerD System Disc 2010.4 (28.03.2010) 2010.4 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874697.jpg" />
+  <img src="Z:/picture/005/save_picture_874697.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874687.jpg" />
+  <img src="Z:/picture/005/save_picture_874687.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874670.jpg" />
+  <img src="Z:/picture/005/save_picture_874670.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874665.jpg" />
+  <img src="Z:/picture/008/save_picture_874665.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874654.jpg" />
+  <img src="Z:/picture/009/save_picture_874654.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874652.jpg" />
+  <img src="Z:/picture/009/save_picture_874652.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Ashampoo Fhoto Optimizer[portable] v3.3.10 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874649.jpg" />
+  <img src="Z:/picture/008/save_picture_874649.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Privacy Eraser Free 5.15.4 Build 4012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874643.jpg" />
+  <img src="Z:/picture/005/save_picture_874643.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Wise Disk Cleaner 10.6.2.797 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874630.jpg" />
+  <img src="Z:/picture/005/save_picture_874630.jpg" />
 </div>
 
 

@@ -1,3 +1,164 @@
+###  Публикация: 1325348   (411578) от 15.09.2019
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 14.09.19 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411578.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по сентябрь 2019 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20637C5DA09432E08D10F9EAA748D18F2E6D1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066468   (411374) от 26.10.2016
+
+Почем интернет в разных странах?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_411374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько стоит доступ в сеть в разных странах мира
+Сегодня интернет является одним из самых востребованных ресурсов, которым регулярно пользуется более 3,5 миллиардов человек во всем мире. Стоимость доступа в сеть в разных уголках мира существенно отличается. Причем Россия входит в число стран с наиболее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412570   (411183) от 02.10.2020
+
+Российский разработчик создал новое поколение алгоритма Deepfake. Что он умеет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_411183.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последние несколько лет глубинное обучение (Deep Learning) шагнуло далеко вперед. Некоторые системы машинного зрения, голосового восприятия и некоторые другие работают настолько эффективно, что даже порой превосходят возможности человека. Но там, где есть новая перспективная технология, обязательно найдутся те, кто попробуют использовать ее в других целях. Так (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412983   (411030) от 02.10.2020
+
+Какие законы вступают в силу в октябре
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_411030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые правила для продления выплат семьям с детьми, зачисление пенсий и соцвыплат на карты «Мир», упрощение заключения договора ОСАГО, запрет на курение кальянов в кафе и другие нововведения месяца – в нашем материале1 октябряПереплату по налогу можно будет зачесть для любого другого налогаЗаконом отменяется ограничение, по которому переплату по налогу разрешается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849602   (411009) от 02.10.2020
+
+Евгений Карташов | Бюджетная фотостудия или секреты фотовспышек (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите пофотографировать дома с качественным светом, или хотите выехать на природу, а может быть вас позвали пофотографировать детей в детском саду, то здесь нельзя положиться на обычный студийный свет, который занимает много места, требует подключения к электросети да и по сути своей не предназначен для перетаскивания с места на место.
+
+ Здесь на помощь приходит (   Читать дальше...   )Жанр: Обучающее видео и мультимедийный материалПродолжительность: 01:58:45+00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDC9A8D02CD26DD0191922CA730816E422F1FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212917   (410753) от 16.10.2013
+
+Подшивка журналов | Оружие (1994-2013) [PDF, DJVU] [Обновлено 16.10.2013]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_410753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Формат: PDF / DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948474   (410692) от 20.10.2015
 
 SoftMaker Office Professional 2016 rev 745.1010 RePack (& portable) by KpoJIuK [Ru/En]
@@ -6,7 +167,7 @@ SoftMaker Office Professional 2016 rev 745.1010 RePack (& portable) by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410692.jpg" />
+  <img src="Z:/picture/008/save_picture_410692.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410652.jpg" />
+  <img src="Z:/picture/008/save_picture_410652.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410646.jpg" />
+  <img src="Z:/picture/008/save_picture_410646.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ Life Is Strange (2015) [En/Fr] (1.0.0) License CODEX [Episode 1-5]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410638.jpg" />
+  <img src="Z:/picture/008/save_picture_410638.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410631.jpg" />
+  <img src="Z:/picture/008/save_picture_410631.jpg" />
 </div>
 
 
@@ -137,7 +298,7 @@ Train Simulator 2016 (2015) [Ru/Multi] (53.9b) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410627.jpg" />
+  <img src="Z:/picture/008/save_picture_410627.jpg" />
 </div>
 
 
@@ -163,7 +324,7 @@ Assassin's Creed 2 (2010) [Ru] (1.01/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410623.jpg" />
+  <img src="Z:/picture/008/save_picture_410623.jpg" />
 </div>
 
 
@@ -189,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410579.jpg" />
+  <img src="Z:/picture/008/save_picture_410579.jpg" />
 </div>
 
 
@@ -215,7 +376,7 @@ AAct 3.6 Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409834.jpg" />
+  <img src="Z:/picture/008/save_picture_409834.jpg" />
 </div>
 
 
@@ -241,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409812.jpg" />
+  <img src="Z:/picture/008/save_picture_409812.jpg" />
 </div>
 
 
@@ -267,7 +428,7 @@ Avira Phantom VPN Pro 2.28.5.20306 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409771.jpg" />
+  <img src="Z:/picture/008/save_picture_409771.jpg" />
 </div>
 
 
@@ -293,7 +454,7 @@ Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (09.2019) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409767.jpg" />
+  <img src="Z:/picture/008/save_picture_409767.jpg" />
 </div>
 
 
@@ -319,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_409327.jpg" />
+  <img src="Z:/picture/005/save_picture_409327.jpg" />
 </div>
 
 
@@ -345,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_409117.jpg" />
+  <img src="Z:/picture/005/save_picture_409117.jpg" />
 </div>
 
 
@@ -371,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409019.jpg" />
+  <img src="Z:/picture/008/save_picture_409019.jpg" />
 </div>
 
 
@@ -397,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_409016.jpg" />
+  <img src="Z:/picture/005/save_picture_409016.jpg" />
 </div>
 
 
@@ -432,7 +593,7 @@ Destroy Windows 10 Spying 1.5 Build 528 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408967.jpg" />
+  <img src="Z:/picture/008/save_picture_408967.jpg" />
 </div>
 
 
@@ -458,7 +619,7 @@ Life is Strange: Episodes 1-5 (2015) [PS3] [EUR] 3.41/3.55/4.21/4.60 [PSN] [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408926.jpg" />
+  <img src="Z:/picture/008/save_picture_408926.jpg" />
 </div>
 
 
@@ -487,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408296.jpg" />
+  <img src="Z:/picture/008/save_picture_408296.jpg" />
 </div>
 
 
@@ -513,7 +674,7 @@ BELOFF 2019.9 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408294.jpg" />
+  <img src="Z:/picture/008/save_picture_408294.jpg" />
 </div>
 
 
@@ -524,166 +685,6 @@ BELOFF 2019.9 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E53F62063267250445064D3426655F521752D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168487   (408164) от 24.09.2017
-
-Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8/upd1) Repack =nemos=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленная студия-разработчик Arkane Studios представляет Dishonored: Death of the Outsider, очередную самостоятельную главу серии Dishonored, высоко оцененной критиками. Вам снова предстоит роль ассасина со сверхъестественными способностями, на этот раз — печально известной Билли Лерк.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, Stealth, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E4AC111859C31FA558063729C45E98414EFDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413244   (407758) от 04.10.2020
-
-Защитники Linux и прочего СПО устроят бесчестным производителям техники показательную порку
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_407758.jpg" />
-</div>
-
-
-###  Подробнее
-
-НКО Software Freedom Conservancy разочаровалась в методах борьбы с нарушителями лицензии GPL. Информирование о пользе свободного ПО, как выяснилось, не действуют на большинство производителей подключенной электроники, незаконно использующих Linux в своих устройствах. Поэтому организация планирует применить в их отношении жесткие меры юридического воздействия. Защитники (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392779   (407742) от 04.10.2020
-
-Мистер ошибка / Bay Yanlis (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-14 из 14) SesDizi
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эзги жизнерадостная и весёлая девушка, уставшая от неудачных отношений, полностью разочаровалась в мужчинах. Озгюр - очень богатый владелец ресторана, ведёт разгульную, но счастливую жизнь и не верит в любовь. Видя, что Эзги не добивается успеха в отношениях, Озгюр начинает обучать её и давать практические советы, как получить мужчину, который ей нравится. Герои (   Читать дальше...   )Производство: Турция / Gold FilmЖанр: мелодрама, комедияРежиссер: Дениз ИорулмазерАктеры: Джан Яман, Озге Гюрель, Гюрген Оз, Фатма Топташ, Сарп Джан Кёроглу, Джемре Гюмели, Лале Башар, Аныл Челик и др.Перевод: Двуголосый любительский (SesDizi)Продолжительность: ~02:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0903F28AD62462D39ACB7B920CAEECCA50F840A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398185   (407735) от 04.10.2020
-
-OTUS | Мониторинг и логирование: Zabbix, Prometheus, ELK [Части 1-3 из 4] (2020) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никакого хаоса, никаких бессвязных метрик: после курса системные администраторы и devops-инженеры смогут правильно строить системы мониторинга и логирования, что позволит им более точно понимать текущее состояние всех систем и быстрее реагировать на инциденты.
-На профессиональном уровне вы научитесь:
-— строить сложные эффективные системы мониторинга и логирования (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 42:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029C5D358065FFBB0C0F4E9CD9B2894A3A72F3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559600   (407643) от 13.10.2012
-
-AVG Internet Security 2013 2013.0.2740a5822 Final [Русский / Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_407643.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVG Internet Security 2013 - комплексный антивирус с фаерволом, атиспамом и эффективной веб-защитой. Обеспечивает защиту от всех видов Интернет-угроз, сетевых атак и вредоносных файлов с облачной технологией репутации. AVG Internet Security 2013 - комплексный антивирус с улучшенным обнаруженнем угроз, благодаря `облачной` службы File Reputation, простым в управлениие фаерволом и оптимизированной работой с технологией AVG Scan Turbo для быстрого сканирования вашего компьютера.Название программы: AVG Internet Security 2013Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560093   (407636) от 13.10.2012
-
-The Testament of Sherlock Holmes [Ru] (RePack/1.0.0.2) 2012 l YelloSOFT
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_407636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действия в The Testament of Sherlock Holmes развернутся в 1898 году в Лондоне. По сюжету, Шерлок Холмс становится подозреваемым номер один в серии громких преступлений. Он не в силах доказать свою невиновность, так как все улики против него, и Холмс стремительно теряет доверие Лондона. Даже его лучший друг доктор Ватсон начинает сомневаться в невиновности знаменитого сыщика.
-
-В The Testament of Sherlock Holmes игроков ждет запутанный сюжет, сложные головоломки и невероятные расследования. Вы будете вести допросы и собирать улики, а также использовать все навыки великого сыщика, чтобы доказать невиновность Холмса и выйти на след настоящих преступников.Тип издания: RePackЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

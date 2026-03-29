@@ -1,3 +1,88 @@
+###  Публикация: 1315699   (511797) от 21.07.2019
+
+Владислав Крапивин | Почему такое имя? (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511797.jpg" />
+</div>
+
+
+###  Подробнее
+
+У главного героя рассказа имя - Антон. Друзья и домашние зовут его Тоник. Однажды, во аремя вылазки на реку, Антон упал с лодки на плот и сильно ободрал локти и колени и расплакался. А лучший друг Тима передразнил его: "Как девченка То-о-онечка!"
+Дома Антон сетовал на судьбу и имя, а отец поведал ему историю его имени.
+В молодости, работая на целине Краснодарского (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2820AC6F997DF9CE901CFE0A1FAACCF801EBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376379   (510997) от 16.08.2011
+
+Джоан Кэтлин Роулинг | Гарри Поттер и принц-полукровка (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волан-де-Морт стал еще сильнее и опаснее. В борьбе с ним Министерство магии терпит поражение за поражением. Даже простые маглы и те страдают в этой страшной войне. Все больше и больше людей исчезают бесследно, или погибают при невыясненных обстоятельствах. Повсюду происходят загадочные происшествия и необъяснимые катастрофы.
+Но несмотря ни на что жизнь продолжается. (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 20:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7628092395A1631788C9991D1B2004B47292C13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 229884   (510961) от 29.08.2010
+
+Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Мантры для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень необычный диск. Конечно, декламацией индийских священных мантр сейчас уже никого не удивишь. Но вот, что интересно, на этом диске, который с любовью посвящается всем маленьким слушателям - мантры поются с детским хором. Главным вокалом же здесь выступает голос популярного в Индии исполнителя, который наверно уже знаком многим из вас - Rattan Mohan Sharma.
+ (   Читать дальше...   )01. Signature Prayer 0:45
+02. Morning Shlokas 12:15
+03. Daytime Shlokas 13:40
+04. Evening Shlokas 8:32(   Читать дальше...   )Жанр: Мантры для детейПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 229878   (510959) от 29.08.2010
 
 VA - Колисанки (2004) [MP3|320 kbps]<Колыбельные песенки для малышей>
@@ -6,7 +91,7 @@ VA - Колисанки (2004) [MP3|320 kbps]<Колыбельные песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510959.jpg" />
+  <img src="Z:/picture/008/save_picture_510959.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ VA - Здравствуй, школа! (2010) [MP3|320 kbps]<Музыка и п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510886.jpg" />
+  <img src="Z:/picture/008/save_picture_510886.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ VA - Гарний настрій. Співають діти (2006) [MP3|309-319 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510803.jpg" />
+  <img src="Z:/picture/008/save_picture_510803.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510795.jpg" />
+  <img src="Z:/picture/008/save_picture_510795.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510281.jpg" />
+  <img src="Z:/picture/008/save_picture_510281.jpg" />
 </div>
 
 
@@ -148,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509893.jpg" />
+  <img src="Z:/picture/008/save_picture_509893.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509637.jpg" />
+  <img src="Z:/picture/008/save_picture_509637.jpg" />
 </div>
 
 
@@ -200,7 +285,7 @@ VA - Songs for children 3 (2007) [MP3|128 kbps]<Детские песенки.>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509591.jpg" />
+  <img src="Z:/picture/008/save_picture_509591.jpg" />
 </div>
 
 
@@ -229,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509494.jpg" />
+  <img src="Z:/picture/008/save_picture_509494.jpg" />
 </div>
 
 
@@ -255,7 +340,7 @@ VA - Давайте Жить Дружно (2003) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509345.jpg" />
+  <img src="Z:/picture/008/save_picture_509345.jpg" />
 </div>
 
 
@@ -284,7 +369,7 @@ VA - Школьная пора (2007) [MP3|160 kbps]<Песенки для де�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509343.jpg" />
+  <img src="Z:/picture/008/save_picture_509343.jpg" />
 </div>
 
 
@@ -313,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509287.jpg" />
+  <img src="Z:/picture/008/save_picture_509287.jpg" />
 </div>
 
 
@@ -339,7 +424,7 @@ VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508990.jpg" />
+  <img src="Z:/picture/008/save_picture_508990.jpg" />
 </div>
 
 
@@ -368,7 +453,7 @@ VA - Monster Mash & Other Songs of Horror (2000) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508463.jpg" />
+  <img src="Z:/picture/008/save_picture_508463.jpg" />
 </div>
 
 
@@ -397,7 +482,7 @@ VA - Birthday Party Singalong (2001) [MP3|128 kbps]<Детские песенк�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508416.jpg" />
+  <img src="Z:/picture/008/save_picture_508416.jpg" />
 </div>
 
 
@@ -426,7 +511,7 @@ VA - Евгений Крылатов. Умка и другие (2002) [MP3|320 k
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508350.jpg" />
+  <img src="Z:/picture/008/save_picture_508350.jpg" />
 </div>
 
 
@@ -455,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508289.jpg" />
+  <img src="Z:/picture/008/save_picture_508289.jpg" />
 </div>
 
 
@@ -484,7 +569,7 @@ VA - Halloween Songs and Sounds (2006) [MP3|320 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508263.jpg" />
+  <img src="Z:/picture/008/save_picture_508263.jpg" />
 </div>
 
 
@@ -513,7 +598,7 @@ VA - Шкільні Роки (2008) [MP3|320 kbps]<Музыка для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508204.jpg" />
+  <img src="Z:/picture/008/save_picture_508204.jpg" />
 </div>
 
 
@@ -542,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508091.jpg" />
+  <img src="Z:/picture/008/save_picture_508091.jpg" />
 </div>
 
 
@@ -571,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508084.jpg" />
+  <img src="Z:/picture/008/save_picture_508084.jpg" />
 </div>
 
 
@@ -600,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507581.jpg" />
+  <img src="Z:/picture/008/save_picture_507581.jpg" />
 </div>
 
 
@@ -626,7 +711,7 @@ VA - С Добрым Утром (2004) [MP3|320 kbps]<Песенки для де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507433.jpg" />
+  <img src="Z:/picture/008/save_picture_507433.jpg" />
 </div>
 
 
@@ -640,93 +725,6 @@ VA - С Добрым Утром (2004) [MP3|320 kbps]<Песенки для де
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377903   (507420) от 20.08.2011
-
-VA - Simply Kids (4 CD) (2006) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507420.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Nursery Rhymes And Songs
-1. 12345 Once I Caught a Fish Alive
-2. Baa Baa Black Sheep
-3. One Man Went To Mow(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 03:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DB741BCA3959637117B2934F0CE54BDD8BD6A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377847   (507417) от 20.08.2011
-
-VA - Sleepy Baby (2003) [MP3|192 kbps]<Колыбельные для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rockabye, Baby
-2. Bedtime
-3. Duermo, pequeno
-4. Sleep on, little one(   Читать дальше...   )Жанр: Колыбельные для детейПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D6930C313CF71484CB9F42C5B2C6F64C413A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377870   (507414) от 20.08.2011
-
-VA - Детские песни Михаила Ваняна (1972) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кем я стану - М. Ванян. Викторов. Харабадзе
-02. Мне скучно - М. Ванян. Викторов. Камбурова
-03. Хочу быть моряком - М. Ванян. Викторов. Горохов
-04. Подарите крокодила - М. Ванян. Мошковская. Харабадзе(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D21B56471AA5B7146437526399B486A58692A1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

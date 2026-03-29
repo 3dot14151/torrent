@@ -1,3 +1,108 @@
+###  Публикация: 1136519   (551702) от 18.06.2019
+
+Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на новый Дикий Запад.
+Этот шутер переносит беззаконие Дикого Запада в наши дни. Вы отправляетесь в кровавое путешествие из Лос-Анджелеса в Хуарес — Мексику окутает запутанный сюжет с интересными персонажами и самыми разнообразными вариантами игрового процесса. Почувствуйте беззаконие современного Дикого Запада, выслеживая картель Мендозы в мире, (   Читать дальше...   )Тип издания: RipРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B5D17F2AF0188ECD301BF68591B7B43F530720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309219   (551701) от 18.06.2019
+
+S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [Ru/Multi] (1.6.02) Steam-Rip ORiGiNS
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продавшаяся тиражом более 2 миллионов копий серия S.T.A.L.K.E.R. возвращается. S.T.A.L.K.E.R.: Call of Pripyat вновь расскажет ПК игрокам о трагическом взрыве реактора Чернобыльской АЭС в 1986 году. Вокруг станции образовалась "Зона" - ужасно загрязненное радиацией место окруженное со всех сторон вооруженными силами Украины. Но это всё равно не останавливает (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E97005B1160D0A0AF607954C613D1B970CFB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043670   (549795) от 29.08.2016
+
+Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры приходит в себя на опустевшем корабле Purity02, принадлежащем корпорации H+, занимающееся исследованиями возможности избавления человечества от несовершенного биологического тельца. Разумеется, все пошло наперекосяк, а кораблик превратился из исследовательского судна в смертельную ловушку для героя игры.Тип издания: LicenseРазработчик: PolyslashЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, НемецкийЯзык интерфейса: Русский, Английский, Польский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A79D6F69175DC8DB20914B3C973B179B5807409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238355   (546915) от 29.07.2018
+
+Before Nightfall (2018) [Ru/En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546915.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой игре Вас ждёт испытание на время, скорость и расчетливость. Бросьте вызов смертельному холоду. Продержитесь в зимнем, ветреном лесу: согревайтесь, поддерживайте костёр, бродите по лесу в поисках дров, что-бы успеть накопить их достаточное количество до наступления ночи. Каждый раз дрова будут спавниться в случайном месте в случайном количестве. Если это испытание (   Читать дальше...   )Тип издания: LicenseРазработчик: Pickle DrugsЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5677B404BA0661783D30F3C5F34CDD56F77530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817799   (543967) от 01.09.2014
 
 Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
@@ -6,7 +111,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543967.jpg" />
+  <img src="Z:/picture/008/save_picture_543967.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542362.jpg" />
+  <img src="Z:/picture/008/save_picture_542362.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Redneck Rampage Collection (1997) [En] (1.01/1.0/1.01/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542086.jpg" />
+  <img src="Z:/picture/008/save_picture_542086.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540418.jpg" />
+  <img src="Z:/picture/008/save_picture_540418.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Starship Troopers / Звездный десант [Ru] (RePack) 2005 | PUNISHER
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540286.jpg" />
+  <img src="Z:/picture/008/save_picture_540286.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538476.jpg" />
+  <img src="Z:/picture/008/save_picture_538476.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538195.jpg" />
+  <img src="Z:/picture/008/save_picture_538195.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534733.jpg" />
+  <img src="Z:/picture/008/save_picture_534733.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534688.jpg" />
+  <img src="Z:/picture/008/save_picture_534688.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534683.jpg" />
+  <img src="Z:/picture/008/save_picture_534683.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534677.jpg" />
+  <img src="Z:/picture/008/save_picture_534677.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534673.jpg" />
+  <img src="Z:/picture/008/save_picture_534673.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533032.jpg" />
+  <img src="Z:/picture/008/save_picture_533032.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ Titanfall 2 (2016) [Ru] (2.0.7.0) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532887.jpg" />
+  <img src="Z:/picture/008/save_picture_532887.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ Dusk (2018) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530348.jpg" />
+  <img src="Z:/picture/008/save_picture_530348.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529355.jpg" />
+  <img src="Z:/picture/008/save_picture_529355.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ Requiem: Avenging Angel (1999) [Ru/En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528770.jpg" />
+  <img src="Z:/picture/008/save_picture_528770.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.6/upd4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528316.jpg" />
+  <img src="Z:/picture/008/save_picture_528316.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.3/1.0.0.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527699.jpg" />
+  <img src="Z:/picture/008/save_picture_527699.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ Space Hulk: Deathwing (2016) [Multi] (1.74) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526814.jpg" />
+  <img src="Z:/picture/008/save_picture_526814.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ Battlefield Hardline (2015) [Ru/Multi] (1.07.15.00) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523773.jpg" />
+  <img src="Z:/picture/008/save_picture_523773.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520860.jpg" />
+  <img src="Z:/picture/008/save_picture_520860.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927255   (520193) от 18.08.2015
-
-Clive Barker's Undying / Клайв Баркер: Проклятые (2001/2014) [Ru/En] Repack Cheshire28 [Eternal Audamn / Специальное издание]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520193.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Clive Barker’s Undying» - компьютерная игра, созданная на модифицированном движке Unreal Engine в жанре мистического хоррор-экшена от первого лица, разработанная DreamWorks Interactive и изданная Electronic Arts в 2001 году. В разработке участвовал знаменитый автор романов ужасов Клайв Баркер. В России проект был локализован компанией СофтКлаб.Тип издания: RepackРазработчик: DreamWorks InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE4B16A7EC5C3D11934A0175A294CA9F34BCBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929430   (519142) от 19.08.2015
-
-Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам позарез нужно что-то украсть – вы обратились по адресу. В Городе, полном опасностей, есть лишь один человек, способный выполнить самый сложный заказ. По сравнению с ним бледнеют жестокий барон Норткрест и его алчная стража, таинственная Королева попрошаек, пламенные революционеры и обитатели уличного «дна».Тип издания: ЛицензияРазработчик: Eidos-MontrealЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, ЧешскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1040627B00419C40FB00D3096F377736177273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314406   (518955) от 14.07.2019
-
-The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518955.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Original Strife: Veteran Edition – это возрожденный классический ролевой боевик 1996 года, который в свое время стал одним из родоначальников жанра и вдохновил несчетное количество подражателей. Погрузитесь в этот эпический всеобъемлющий квест, впервые когда-то соединивший в себе ролевое приключение от первого лица с потрясающей 3D-графикой в стиле DOOM. Вселенское (   Читать дальше...   )Тип издания: LicenseРазработчик: Rogue EntertainmentЖанр: Шутер, Ролевая игра, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD671A775DEA8FA5B6F717155F132965AE8B054B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241584   (518915) от 18.08.2018
-
-Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры поведает о далеком будущем, когда развитие технологий повлекло за собой неконтролируемые последствия и глобальные катастрофы. Имперская теократия объявила Землю непригодной и бракованной, что привлекло наемников со всех уголков галактики на поиски оставшихся на ней ресурсов и технологий. Прибыв на планету, они начали устраивать постоянные сражения между (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, Probe Entertainment, Iguana EntertainmentЖанр: Экшн, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84F517FF4DF21E440D7B2DABFD7C43380A45662
 ```
 
 https://mybot314.ru/tekegram_catalog/

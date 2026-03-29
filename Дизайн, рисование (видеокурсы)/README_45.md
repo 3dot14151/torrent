@@ -1,3 +1,31 @@
+###  Публикация: 1413720   (406979) от 05.10.2020
+
+ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma и многое другое / Complete Web & Mobile Designer in 2020: UI/UX, Figma + more (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте дизайнером в 2020 году! Это единственный учебный курс по дизайну, который вам нужен, чтобы изучить и освоить веб- и мобильный дизайн, UI и UX, а также HTML и CSS.
+Создавайте красиво оформленные веб- и мобильные проекты для своих клиентов, используя современные инструменты, используемые ведущими компаниями в 2020 году.
+Мгновенный доступ к более чем 100 активам (   Читать дальше...   )Производство: zerotomastery.ioЖанр: Веб дизайнЯзык озвучки: АнглийскийПродолжительность: 23:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD8EC413F9C6871E8874ACA54DC81341BE2B499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414036   (406768) от 06.10.2020
 
 Холодных Дарья | FACES (2019) HDTV
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406768.jpg" />
+  <img src="Z:/picture/008/save_picture_406768.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406741.jpg" />
+  <img src="Z:/picture/008/save_picture_406741.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406733.jpg" />
+  <img src="Z:/picture/008/save_picture_406733.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406619.jpg" />
+  <img src="Z:/picture/008/save_picture_406619.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387624.jpg" />
+  <img src="Z:/picture/008/save_picture_387624.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387448.jpg" />
+  <img src="Z:/picture/008/save_picture_387448.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387407.jpg" />
+  <img src="Z:/picture/008/save_picture_387407.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ Jesse Pitela | Курс по созданию огня и дыма с плаги
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387291.jpg" />
+  <img src="Z:/picture/008/save_picture_387291.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Jesse Pitela | Курс Для Начинающих по Симуляции Жи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387264.jpg" />
+  <img src="Z:/picture/008/save_picture_387264.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Jesse Pitela | Курс для начинающих по созданию зап
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387148.jpg" />
+  <img src="Z:/picture/008/save_picture_387148.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ Jesse Pitela | Курс по созданию продвинутых крупн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387146.jpg" />
+  <img src="Z:/picture/008/save_picture_387146.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Max Twain | Bad Cat (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387116.jpg" />
+  <img src="Z:/picture/008/save_picture_387116.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ Max Twain | NOIRE (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386963.jpg" />
+  <img src="Z:/picture/008/save_picture_386963.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ Max Twain | Mystic (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386955.jpg" />
+  <img src="Z:/picture/008/save_picture_386955.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ Max Twain | Global Wedding (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386822.jpg" />
+  <img src="Z:/picture/008/save_picture_386822.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ Max Twain | Джоконда (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386821.jpg" />
+  <img src="Z:/picture/008/save_picture_386821.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ Max Twain | Workshop (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386816.jpg" />
+  <img src="Z:/picture/008/save_picture_386816.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ Max Twain | Daz3D (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386814.jpg" />
+  <img src="Z:/picture/008/save_picture_386814.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ Max Twain | Pro Retoucher. Fatalism NEON (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386812.jpg" />
+  <img src="Z:/picture/008/save_picture_386812.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ Max Twain | Fatalism ART (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386808.jpg" />
+  <img src="Z:/picture/008/save_picture_386808.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ Max Twain | Pro Retoucher. Fatalism START 2020 PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386704.jpg" />
+  <img src="Z:/picture/008/save_picture_386704.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ Alkis Escobedo | Освещение и рендеринг с помощью V-Ra
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385384.jpg" />
+  <img src="Z:/picture/008/save_picture_385384.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ ArtistHunt School | 25 курсов по рисованию (2020) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384724.jpg" />
+  <img src="Z:/picture/008/save_picture_384724.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383548.jpg" />
+  <img src="Z:/picture/008/save_picture_383548.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383155.jpg" />
+  <img src="Z:/picture/008/save_picture_383155.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E149585DF1F4C8207632D33E7D44702DE01DBA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555404   (383147) от 06.09.2022
-
-Udemy, Nikolay Naydenov | Demon Huntress in Blender Course (2022) PCRec [EN / EN Sub]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383147.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе по созданию 3D-персонажа в Blender мы пройдем через процесс создания слегка стилизованного женского персонажа с доспехами и готовыми к 3D-печати волосами, сделаем позу для неё, создадим некоторые материалы и освещение, а также создадим рендеры и видеоролик для вашего портфолио. В курсе будет много советов по анатомии женского лица и тела, а также разобраны (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 23:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4639E609BA77BAE5352F8570C5A24DD2DA1E1816
 ```
 
 https://mybot314.ru/tekegram_catalog/

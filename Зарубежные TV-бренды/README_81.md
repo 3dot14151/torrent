@@ -1,3 +1,107 @@
+###  Публикация: 1053722   (463782) от 03.10.2016
+
+Первопроходцы / Trailblazers (2016) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Множество открытий было совершено благодаря тому, что ученые, рискуя жизнью, забирались в непроходимые джунгли, поднимались высоко в горы и спускались в пещеры, пересекали океаны и преодолевали пустыни. Но рядом с ними почти всегда были люди, которые прокладывали им путь – первопроходцы-экстремалы, которые владеют секретами выживания в дикой природе. Познакомьтесь (   Читать дальше...   )Производство: Великобритания /  October FilmsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: каждая серия ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678D78077D3A40F389F5BF26903A92389E817DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161764   (463560) от 30.08.2017
+
+NGW: Секретная жизнь жемчужин / The Secret Life of Pearls (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воды Южных морей – удивительный край, где хранятся несметные сокровища, сокрытые внутри невзрачных раковин диких моллюсков. Жемчуг, добытый на северо-западном побережье Австралии - в Кимберли, имеет особую ценность. Из-за превосходно ровной формы и уникальной игры переливов он ценится выше большинства драгоценностей. Охотники за сокровищами часто рискуют жизнью, (   Читать дальше...   )Производство: Австралия, Eye Spy Productions Pty Ltd and Northern PicturesЖанр: Документальный, природа, флора, фаунаРежиссер: Ник РобинсонПеревод: Одноголосый закадровый, профессиональный  (Велес)Субтитры: отсутствуютПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488471B63E59A429803A2261C7D5018D742566C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246466   (463299) от 10.09.2018
+
+NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 серий)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463299.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью новейших технологий, захватывающих снимков и данных лучших морских археологов сериал «Осушить океан» как бы проходит плугом по дну океана, обнажая скрытые в толще воды тайны. Мы увидим погрузившиеся в воду города, затонувшие корабли и другие удивительные чудеса, скрытые в глубинах океанов и морей, найдём затерянные миры, проникнем в эпическую историю человеческой (   Читать дальше...   )Производство: США, Канада, Великобритания, National GeographicЖанр: Документальный, исследования, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 9 х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8E49CEE9B17BF0C40B74A64B8912C0D5F995C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321101   (463134) от 22.08.2019
+
+NG: Генуя. Хронология катастрофы / Genoa. Bridge Disaster (2019) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальная картина об обрушении моста Моранди в Генуе. В результате случившейся трагедии 43 человека погибли. Фильм начинается с реконструкции катастрофы, которая показана посредством нескольких сюжетов. В процессе рассказов очевидцев фильм словно отматывает время назад, чтобы разобраться в причинах обрушения.Производство: Италия, National GeographicЖанр: Документальный, история, расследованиеРежиссер: Марко ВисалберчиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253D8EAD9BB36F189583F7638B15F38179F480F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321168   (463130) от 22.08.2019
 
 NG: Человек против осьминога / Man vs octopus (2017) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463130.jpg" />
+  <img src="Z:/picture/008/save_picture_463130.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Da Vinci Learning: BBC: Джимми Дохерти в Саду Дарвина /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463054.jpg" />
+  <img src="Z:/picture/008/save_picture_463054.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Смертельный улов / Deadliest Catch (2014) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462163.jpg" />
+  <img src="Z:/picture/008/save_picture_462163.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461894.jpg" />
+  <img src="Z:/picture/008/save_picture_461894.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Человек на Марсе. Экспедиция на красную п
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461633.jpg" />
+  <img src="Z:/picture/008/save_picture_461633.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461547.jpg" />
+  <img src="Z:/picture/008/save_picture_461547.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460891.jpg" />
+  <img src="Z:/picture/008/save_picture_460891.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery: Встреча с инопланетянами. Прибытие / Al
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460765.jpg" />
+  <img src="Z:/picture/008/save_picture_460765.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459496.jpg" />
+  <img src="Z:/picture/008/save_picture_459496.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459171.jpg" />
+  <img src="Z:/picture/008/save_picture_459171.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459091.jpg" />
+  <img src="Z:/picture/008/save_picture_459091.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NG: Взгляд изнутри: Северная Корея - династия 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458969.jpg" />
+  <img src="Z:/picture/008/save_picture_458969.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458964.jpg" />
+  <img src="Z:/picture/008/save_picture_458964.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Discovery: Встреча с инопланетянами. Сигнал / Alien 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458838.jpg" />
+  <img src="Z:/picture/008/save_picture_458838.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458751.jpg" />
+  <img src="Z:/picture/008/save_picture_458751.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457435.jpg" />
+  <img src="Z:/picture/008/save_picture_457435.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457270.jpg" />
+  <img src="Z:/picture/008/save_picture_457270.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457239.jpg" />
+  <img src="Z:/picture/008/save_picture_457239.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Discovery: Наука магии / The Magic of Science (2013) HDTVRip (1-9 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457168.jpg" />
+  <img src="Z:/picture/008/save_picture_457168.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457159.jpg" />
+  <img src="Z:/picture/008/save_picture_457159.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457139.jpg" />
+  <img src="Z:/picture/008/save_picture_457139.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457017.jpg" />
+  <img src="Z:/picture/008/save_picture_457017.jpg" />
 </div>
 
 
@@ -569,112 +673,6 @@ BBC: Тайны тёмной энергии / The Mysteries of Dark Energy (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F3B34EC646E541593DF00427BD005396404385F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247026   (456831) от 13.09.2018
-
-NG. Легенда о хрустальном черепе / Legend of the Crystal Skulls (2008) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых таинственных и противоречивых предметов в мире - хрустальный череп, который называют "роковым" черепом. Легенда о нем легла в основу голливудского блокбастера 2008 г, а человек, сделавший его знаменитым, был Индианой Джонсом, который в реальной жизни был отчаянным авантюристом и археологом-грабителем. Этот и другие черепа положили начало (   Читать дальше...   )Производство: Великобритания, Picture Films, Smithsonian Networks, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Тилман РеммПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319371   (456441) от 25.08.2019
-
-History Channel. Династия Трампов / Biography: The Trump Dynasty (2019) HDTVRip [H.264/1080p-LQ] (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал расскажет о жизни 45-го президента Соединенных Штатов и его семьи.Производство: США, Left/Right, A+E Networks, History ChannelЖанр: Документальный, биография, историяРежиссер: Бэнкс ТерверПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708B593A842E31761BC8235D04064C073AD94118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551021   (455393) от 23.09.2012
-
-BBC: Выдающиеся женщины ХХ столетия. Амелия Эрхарт / Extraordinary Women.  Amelia Earhart (2011) SATRip [10 из 13]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455393.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Выдающиеся женщины ХХ столетия" - документальный сериал канала BBC о великих женщинах своего времени, преодолевших трудности на своем пути и добившихся успехов каждая в своем направлении. Грейс Келли, Коко Шанель, Одри Хепберн, Индира Ганди, мадам Чан Кайши, Амелия Эрхарт... Ими восхищались и восхищаются миллионы людей во всем мире, их любили и ненавидели, а иногда даже боялись. Они доказали, что женщина тоже может достичь высот в своем деле и одержали победу. Казалось, у них было все: власть, богатство и восхищение. Но помимо головокружительного успеха, в жизни этих женщин случались страдания и личные трагедии...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27522138A9E7D7286E45AF78906F0373AA1EBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 2484   (454979) от 30.09.2015
-
-BBC: Нацизм: Предостережение истории (1999) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетание военной кинохроники (часть которой представлена никогда не публиковавшимися ранее цветными (!) материалами), красочных карт и схем, а также компьютерной графики и специально аранжированной музыки великих композиторов — все это позволяет современному зрителю ярче и рельефнее представить и понять события тех далеких дней.
-
-Второй фильм серии разоблачает широко (   Читать дальше...   )Жанр: Документальный, Хроники, История
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269512E4AA00AFCD1E020B2A921BE6141FD9BC4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

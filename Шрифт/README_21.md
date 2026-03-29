@@ -1,3 +1,115 @@
+###  Публикация: 1784426   (69567) от 10.03.2025
+
+Шрифты - Creative Market - Castiron - Vintage Font - 290836379 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство шрифтов Castiron — это коллекция из трех отдельных шрифтов, призванных воплощать непреходящее очарование винтажной типографики.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62243AAEDA861E600951D828231498EA753D5938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784311   (69561) от 10.03.2025
+
+Шрифты - Creative Fabrica - Valentine Romantic Font - 2619719 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentine Romantic — это веселый, милый и невероятно очаровательный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784319   (69559) от 10.03.2025
+
+Шрифты - Creative Market - Cadia - Classic Serif Font - 290899717 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шрифт отличается сбалансированной пропорцией толщины и тонкости штриха, создавая привлекательные и легко читаемые визуальные образы. Этот современный стиль с засечками часто характеризуется смелым различием между толстыми и тонкими линиями, что обеспечивает сдержанный, но все же выделяющийся штрих.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD04895356396C6681D0BEF508AEF586E1CDE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784700   (69549) от 12.03.2025
+
+Шрифты - Creative Market - Highland - 290798513 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Highland — это уплотненный брусковый шрифт с засечками.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784740   (69548) от 12.03.2025
 
 Шрифты - Creative Market - YT Hellias - Retro Script Font - 282735752 [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +118,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69548.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69547.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69546.jpg" />
 </div>
 
 
@@ -90,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69522.jpg" />
 </div>
 
 
@@ -118,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69496.jpg" />
 </div>
 
 
@@ -146,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69494.jpg" />
 </div>
 
 
@@ -174,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69493.jpg" />
 </div>
 
 
@@ -202,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69489.jpg" />
 </div>
 
 
@@ -230,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69433.jpg" />
 </div>
 
 
@@ -258,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69429.jpg" />
 </div>
 
 
@@ -286,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69404.jpg" />
 </div>
 
 
@@ -314,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69398.jpg" />
 </div>
 
 
@@ -342,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69396.jpg" />
 </div>
 
 
@@ -370,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69389.jpg" />
 </div>
 
 
@@ -397,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69388.jpg" />
 </div>
 
 
@@ -424,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69380.jpg" />
 </div>
 
 
@@ -451,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69369.jpg" />
 </div>
 
 
@@ -478,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69366.jpg" />
 </div>
 
 
@@ -505,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69360.jpg" />
 </div>
 
 
@@ -532,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69358.jpg" />
 </div>
 
 
@@ -559,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69355.jpg" />
 </div>
 
 
@@ -587,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69353.jpg" />
 </div>
 
 
@@ -600,117 +712,6 @@ Romantic History — это вневременной шрифт, черпающ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785363   (69351) от 15.03.2025
-
-Шрифты - Creative Market - Podrich - Timeless Logo Font - 290897290 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Podrich — элегантный вневременной шрифт с засечками для логотипа, вызывающий утонченность, классику и чувство изысканной роскоши. Он отличается значительным контрастом между толстыми и тонкими штрихами, что повышает читаемость и придает роскошный вид.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785274   (69348) от 15.03.2025
-
-Шрифты - Creative Market - Klase - Cyberpunk Font - 286313411 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт Klase Cyberpunk содержит более 250 глифов. Альтернативные символы были разделены на несколько функций Open Type, таких как Swash, Stylistic Sets, Stylistic Alternates и Ligature.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785209   (69347) от 15.03.2025
-
-Шрифты - Christoph Ulherr - MyFonts - Flacon [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт без кириллицы.
-Разработчик: Christoph UlherrФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785259   (69346) от 15.03.2025
-
-Шрифты - Ergibi - WAVE BLOCK [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69346.jpg" />
-</div>
-
-
-###  Подробнее
-
-WAVE BLOCK — это сырой и энергичный шрифт, созданный с помощью реалистичных мазков кисти, которые придают вашим проектам грубый, нарисованный вручную вид.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

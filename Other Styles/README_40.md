@@ -6,7 +6,7 @@ Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805741.jpg" />
+  <img src="Z:/picture/008/save_picture_805741.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805670.jpg" />
+  <img src="Z:/picture/008/save_picture_805670.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805616.jpg" />
+  <img src="Z:/picture/008/save_picture_805616.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805611.jpg" />
+  <img src="Z:/picture/008/save_picture_805611.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805602.jpg" />
+  <img src="Z:/picture/008/save_picture_805602.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805601.jpg" />
+  <img src="Z:/picture/008/save_picture_805601.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805494.jpg" />
+  <img src="Z:/picture/008/save_picture_805494.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805489.jpg" />
+  <img src="Z:/picture/008/save_picture_805489.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805375.jpg" />
+  <img src="Z:/picture/008/save_picture_805375.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805370.jpg" />
+  <img src="Z:/picture/008/save_picture_805370.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805364.jpg" />
+  <img src="Z:/picture/008/save_picture_805364.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805362.jpg" />
+  <img src="Z:/picture/008/save_picture_805362.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805255.jpg" />
+  <img src="Z:/picture/008/save_picture_805255.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805242.jpg" />
+  <img src="Z:/picture/008/save_picture_805242.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805123.jpg" />
+  <img src="Z:/picture/008/save_picture_805123.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805015.jpg" />
+  <img src="Z:/picture/008/save_picture_805015.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805013.jpg" />
+  <img src="Z:/picture/008/save_picture_805013.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805006.jpg" />
+  <img src="Z:/picture/008/save_picture_805006.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805005.jpg" />
+  <img src="Z:/picture/008/save_picture_805005.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804999.jpg" />
+  <img src="Z:/picture/008/save_picture_804999.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804922.jpg" />
+  <img src="Z:/picture/008/save_picture_804922.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803351.jpg" />
+  <img src="Z:/picture/008/save_picture_803351.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803281.jpg" />
+  <img src="Z:/picture/008/save_picture_803281.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803268.jpg" />
+  <img src="Z:/picture/008/save_picture_803268.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802813.jpg" />
+  <img src="Z:/picture/008/save_picture_802813.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802713.jpg" />
+  <img src="Z:/picture/008/save_picture_802713.jpg" />
 </div>
 
 

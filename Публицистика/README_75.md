@@ -1,3 +1,81 @@
+###  Публикация: 1665502   (182181) от 30.09.2023
+
+Хайнц Фельфе | Мемуары разведчика (1988) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор, бывший офицер разведки германского рейха, затем сотрудник западногерманской разведывательной службы БНД, рассказывает о сложном пути, который привел его к борьбе против тех, кто строит планы подготовки новой войны. В книге разоблачаются подрывные акции западных спецслужб против СССР, других социалистических стран.Жанр: Мемуары, СпецслужбыИздательство: ПолитиздатФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1CC16ACF28330FF51A7CF503D2D71FC3B28581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665492   (182140) от 30.09.2023
+
+Эрвин Ставинский | Восемнадцатое мгновение весны. Подлинная история Штирлица (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чекист Максим Максимович Исаев, он же Всеволод Владимирович Владимиров, он же штандартенфюрер СС Штирлиц – кем на самом деле был этот человек? О трагической судьбе особо ценного агента внешней разведки НКВД – Вильгельма Лемана (А/201, «Брайтенбах»), настоящего, а не придуманного Штирлица рассказывает эта книга.Жанр: Спецслужбы, БиографияИздательство: АлгоритмФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842D8B41DB5D6029DFA95212786F064B4D516D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427700   (182092) от 29.11.2020
+
+Александр Абалов, Владислав Иноземцев | Бесконечная империя: Россия в поисках себя (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_182092.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге историк Александр Абалов и экономист и публицист Владислав Иноземцев рассматривают прошлое, настоящее и будущее нашей страны с точки зрения эволюции ее имперской сущности. По мнению авторов, Россия являлась и является бесконечной империей: с самого зарождения и до наших дней, как бы ни называлась страна, она воспроизводила и воспроизводит имперские стратегии (   Читать дальше...   )Жанр: История, Политология, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC820E1FFC58687DBFEB3A6A41E008D09C55A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427704   (182034) от 29.11.2020
 
 Ричард Роудс | Создание атомной бомбы (2020) [EPUB]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182034.jpg" />
+  <img src="Z:/picture/005/save_picture_182034.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181439.jpg" />
+  <img src="Z:/picture/005/save_picture_181439.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181422.jpg" />
+  <img src="Z:/picture/005/save_picture_181422.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180460.jpg" />
+  <img src="Z:/picture/005/save_picture_180460.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179942.jpg" />
+  <img src="Z:/picture/005/save_picture_179942.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179234.jpg" />
+  <img src="Z:/picture/005/save_picture_179234.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179020.jpg" />
+  <img src="Z:/picture/005/save_picture_179020.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178366.jpg" />
+  <img src="Z:/picture/005/save_picture_178366.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176644.jpg" />
+  <img src="Z:/picture/004/save_picture_176644.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176316.jpg" />
+  <img src="Z:/picture/004/save_picture_176316.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176002.jpg" />
+  <img src="Z:/picture/004/save_picture_176002.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173970.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170662.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170140.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168837.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168481.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ The Epoch Times | Призрак коммунизма управляет наш�
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168073.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167991.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167796.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167606.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166413.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165330.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165306.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A9D34638CE540A804368919BEC6E558E855C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432152   (165264) от 16.12.2020
-
-Майкл Бэрьер | Уолт Дисней: человек-студия (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолт Дисней – значительная фигура в истории двадцатого века, совершившая настоящую революцию в анимации и бизнесе. Проделав путь от простого фермерского мальчишки до известного на весь мир предпринимателя, он вывел индустрию развлечений на качественно новый уровень. Чтобы узнать секреты успеха Диснея, историк мультипликации Майкл Бэрьер провел собственное исследование, (   Читать дальше...   )Жанр: Биографии и мемуары, Кинематограф, театр, ПублицистикаПеревод: Александр МурашовФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C41894F24227E73619092A789E8CF8935DE718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345904   (164989) от 17.12.2019
-
-Ариох Кэн | Владимир Путин, как икона большевизма (2019) [PDF, DOCX, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164989.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы когда-нибудь задумывались, почему процесс «вставания с колен» является бесконечным по своей сути? Психофизиолог эволюционист А.Кэн рассмотрел эту проблему с весьма неожиданного ракурса. Очень кратко и по существу изложены биологические причины того дискомфорта, который вызывает у нормального человека пребывание в современном социуме. Скорее всего, данные, изложенные (   Читать дальше...   )Жанр: публицистика, научно-популярная литератураФормат: PDF, DOCX, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77228B6B3DAD0B3267F97499A0C788C27D0F9676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346062   (164959) от 17.12.2019
-
-Егор Яковлев | Друг государства. Гении и бездарности, изменившие ход истории. Предисловие Дмитрий GOBLIN Пучков (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164959.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу новой книги Егора Яковлева, автора бестселлеров «Война на уничтожение» и «Красный шторм», легли биографии гениев, авантюристов и откровенных чудаков, в затеи которых мало кто верил. Они жили в разные эпохи, в разных странах и даже на разных континентах. Они пересекали на лыжах неизведанную Гренландию, создавали новые архитектурные стили, литературные направления (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA1C1CAD808E25B44AF6FD8F9EA10F23C616C41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 931063   (512875) от 25.08.2015
+
+Андрей Мюллер | Лечение козьим молоком (2015) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Козье молоко не зря называют «живой водой». Чудодейственные целебные силы козьего молока, позволяющие нейтрализовать такие распространенные недуги как вирусные инфекции и аллергия, помогают при желудочно-кишечных заболеваниях, нарушении обмена веществ, заболеваниях дыхательных путей, щитовидной железы, сердечно-сосудистой системы, туберкулезе, аллергии, экземе, для (   Читать дальше...   )Жанр: Лечебное питаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B30A2436041AE1DA2FE3C1083CEDE548E4E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931172   (512728) от 25.08.2015
 
 Александр Кондрашов | Доктор Борменталь. 8 уроков сжигания жира (2015) [FB2, RTF]
@@ -6,7 +32,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512728.jpg" />
+  <img src="Z:/picture/008/save_picture_512728.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512720.jpg" />
+  <img src="Z:/picture/008/save_picture_512720.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511761.jpg" />
+  <img src="Z:/picture/008/save_picture_511761.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511754.jpg" />
+  <img src="Z:/picture/008/save_picture_511754.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511753.jpg" />
+  <img src="Z:/picture/008/save_picture_511753.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511700.jpg" />
+  <img src="Z:/picture/008/save_picture_511700.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510863.jpg" />
+  <img src="Z:/picture/008/save_picture_510863.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510854.jpg" />
+  <img src="Z:/picture/008/save_picture_510854.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510722.jpg" />
+  <img src="Z:/picture/008/save_picture_510722.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510720.jpg" />
+  <img src="Z:/picture/008/save_picture_510720.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510713.jpg" />
+  <img src="Z:/picture/008/save_picture_510713.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510041.jpg" />
+  <img src="Z:/picture/008/save_picture_510041.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509369.jpg" />
+  <img src="Z:/picture/008/save_picture_509369.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509179.jpg" />
+  <img src="Z:/picture/008/save_picture_509179.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509169.jpg" />
+  <img src="Z:/picture/008/save_picture_509169.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509160.jpg" />
+  <img src="Z:/picture/008/save_picture_509160.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508858.jpg" />
+  <img src="Z:/picture/008/save_picture_508858.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506157.jpg" />
+  <img src="Z:/picture/008/save_picture_506157.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506151.jpg" />
+  <img src="Z:/picture/008/save_picture_506151.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505956.jpg" />
+  <img src="Z:/picture/008/save_picture_505956.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505951.jpg" />
+  <img src="Z:/picture/008/save_picture_505951.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505774.jpg" />
+  <img src="Z:/picture/008/save_picture_505774.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504242.jpg" />
+  <img src="Z:/picture/008/save_picture_504242.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502086.jpg" />
+  <img src="Z:/picture/008/save_picture_502086.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501069.jpg" />
+  <img src="Z:/picture/008/save_picture_501069.jpg" />
 </div>
 
 
@@ -660,34 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED21FB697168FA81D62D3BF5CC186494F4F98717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934688   (501066) от 06.09.2015
-
-Олег Панков | От плохого зрения (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не можете прочитать инструкцию по применению или не видите идущего вдалеке хорошего знакомого? Плохое зрение – бич современного общества, поражающий и младшее, и старшее поколение, поэтому не стоит пускать на самотек свое «видение мира» и надеяться на капли или линзы.
-
-Если хотите вернуть и сохранить здоровье, немедленно снимайте очки и начинайте восстанавливать (   Читать дальше...   )Жанр: Медицина, ЗдоровьеФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD134D605BB0B5C253BD4FF99A7AC6127609483
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 969748   (144017) от 28.12.2015
+
+PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144017.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT Professional 11 Домашний – переводчик бизнес-уровня, предназначенный для профессиональной, научной или учебной деятельности.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2AA79C1DDE0F2C7FC2A1ED63F99B8FA9181750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969837   (144003) от 28.12.2015
+
+Александр Медведев | Онлайн мастер-класс Александра Медведева по фотографии. Часть 2. Пакет VIP (2015) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый вебинар Александра Медведева состоящий из 4 уроков, включающих в себя полное описание фото-продакшена:Жанр: фотографияПродолжительность: 22:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5475DD5E4F10A723CBCF092A226EBDFD16EA427B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340384   (143976) от 27.12.2019
+
+F-Secure Freedome VPN 2.30.6180 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143976.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B534B67068144DA96B57EE151DF2D77C1263D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943887   (143972) от 28.12.2015
+
+Доктор Кто / Doctor Who (2015) WEB-DL [H.264/1080p-LQ] (сезон 9, серии 0-12 из 12 + Рождественская серия) BaibaKo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор оказался в ловушке в зловещем городе далеков, самом сердце империи зла без звуковой отвёртки, без ТАРДИС, и помощи ждать неоткуда. Сможет ли он устоять перед величайшим искушением, и будет ли проявлено милосердие?Производство: Великобритания / British Broadcasting Corporation (BBC), Canadian Broadcasting Corporation (CBC)Жанр: фантастика, драма, комедия, приключенияРежиссер: Дуглас Маккиннон, Кит Боак, Хетти МакдональдАктеры: Дэвид Теннант, Дженна Коулман, Питер Капальди, Николас Бриггс, Барнеби Эдвардс, Алекс Кингстон, Николас Пегг и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Татьяна Оболевич, Алексей Кузнецов, Александр Фурман и Владимир КурдовПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1093ED3463179352074AD90BC8CC90E1F659D51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348034   (143931) от 27.12.2019
+
+Gothic II: Gold Edition / Готика 2: Золотое издание (2010) [Ru] (2.6.0.0rev2/dlc) Repack/Mod Nobass123
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gothic II: Золотое Издание включает оригинальную игру Gothic II и официальное дополнение "Ночь Ворона"! Вы уничтожили магический барьер и освободили заключённых Долины Рудников. Вырвавшиеся на свободу бывшие заключённые стали терроризировать окрестности города Хоринис. У городского ополчения слишком мало сил, чтобы бороться с преступниками за пределами (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Piranha BytesЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561DA4F2FB624DA6FDC7876E3B9095154578F12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265359   (143910) от 27.12.2019
+
+HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествуйте по миру и выслеживайте свои цели в экзотических местах. От залитых солнцем улиц до темных и опасных тропических лесов, нигде нельзя спрятаться от Агента 47. Вам необходимо устранить неуловимого теневого клиента и раскрыть данные его группировки. Но когда 47й выяснил настоящую личность своей цели и правду о своем прошлом, то все изменилось. HITMAN™ 2 (   Читать дальше...   )Тип издания: RepackРазработчик: IO Interactive A/SЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9448CD5E1B8E8055388524561ED0D16C2C2DF5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590399   (143711) от 16.12.2012
 
 Sandboxie 3.76 Final [MULTi / Русский]
@@ -6,7 +162,7 @@ Sandboxie 3.76 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143711.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ Need for Speed: Underground Dilogy | Дилогия Need for Speed: Underground 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143652.jpg" />
 </div>
 
 
@@ -64,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143577.jpg" />
 </div>
 
 
@@ -90,7 +246,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack R.G. Catalyst [Complete Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143488.jpg" />
 </div>
 
 
@@ -116,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143469.jpg" />
 </div>
 
 
@@ -142,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143067.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143054.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142926.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142908.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142879.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ Wondershare Filmora Effect Packs 4 RePack by elchupacabra [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142877.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142872.jpg" />
 </div>
 
 
@@ -324,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142717.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142564.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142208.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142107.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142030.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ Garmin: Дороги России Топо 6.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141769.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141676.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141541.jpg" />
 </div>
 
 
@@ -520,165 +676,6 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.29 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0AB5D9274F488D2131CE3D87CCDBD49F1F9BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073043   (141524) от 29.12.2016
-
-СашаТаня (2016) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-20 из 39 + Новогодняя серия)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал про молодую семью Сергеевых. После окончания института Саша и Таня вместе со своим маленьким сыном Алёшкой решили пожить самостоятельно и сняли квартиру в Южном Бутово. Райончик конечно не из лучших, но зато и цены на жилье тут доступные, ведь Саша не собирается пользоваться миллиардами своего папы. Но Сильвестр Андреевич не собирается так просто отставать (   Читать дальше...   )Производство: Россия / "Comedy Club Production"Жанр: комедияРежиссер: Михаил Старчак, Сергей КазачанскийАктеры: Андрей Гайдулян, Валентина Рубцова, Алексей Климушкин, Елена Бирюкова, Татьяна Орлова, Андрей Лебедев, Ксения Хаирова, Олег Новиков, Сергей Рудзевич, Сергей Мурзин и др.Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3BC6B49D59BD10FCEC29400DFBF8F500191F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060632   (141497) от 29.12.2016
-
-Counter-Strike 1.6 Green Edition (2015) [Ru] (1.1.2.6/pv48/b4554) Repack Vin4
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Counter-Strike (от англ. - «Контрудар»; сокр. CS или КС, разг. - контра) - культовая серия компьютерных игр в жанре командного шутера от первого лица, основанная на движке GoldSrc, изначально появившаяся как модификация игры Half-Life. Из серии самая популярная - Counter-Strike 1.6. Основная идея игры - противостояние двух команд - террористов (Terrorist, T) и спецназа (   Читать дальше...   )Тип издания: RepackРазработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710826DF35A5B1021590B23DC3729CF15D7A42AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904626   (141470) от 29.12.2016
-
-Need for Speed: Hot Pursuit (2010) [Ru/En] (1.0.5.0s) RePack =nemos= [Limited Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141470.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Need for Speed Hot Pursuit Limited Edition издание войдут 6 эксклюзивных автомобилей: Alfa Romeo 8C Competizione, Ford Shelby GT500, Audi TT RS Coup, Chevrolet Camaro SS, Porsche Cayman S (модель для полицейских) и Dodge Challenger SRT8. Стоит отметить, что модели Alfa Romeo 8C Competizione и Ford Shelby GT500 будут доступны исключительно в Need for Speed Hot Pursuit (   Читать дальше...   )Тип издания: RePackРазработчик: Criterion StudiosЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839C2F7C527AFDEE7F7A701260F7ACAA4E49BCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678624   (141195) от 23.11.2023
-
-Британские ученые намерены «оживить» мамонта. Используют генную инженерию. Гибриды появятся уже совсем скоро.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская биотехнологическая и генно-инженерная компания Colossal Biosciences заявила о намерении воссоздать к 2028 году шерстистых мамонтов. Детеныш вымершего 4 тыс. лет назад вида, по планам этой фирмы, родится через пять лет, пишет Daily Mail.Эксперты собираются восстановить геном мамонта из найденных образцов, а пробелы заполнить при помощи ДНК современных азиатских (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519963   (141140) от 28.12.2021
-
-Windows 10 PRO 21H2 x64 Rus by OneSmiLe [19044.1415]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_10_business_editions_version_21h2_updated_dec_2021_x64_dvd_147acd99
-Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)
-Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041275CE0065C02836F4731FE49B3B3BED773D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 113022   (141113) от 28.12.2021
-
-Американская история 1-4 / An American Tail I-IV (1986-1999) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свирепое чудовище, охотящееся за мышами, наводит ужас на всех грызунов Манхэттена и преследует бедного Фивела в кошмарных снах. Вместе с мышью-репортером Фивел и его друзья пускаются в головокружительную погоню за «сенсацией века», чтобы увидеть «монстра» своими глазами!Производство: США, Universal PicturesЖанр: Анимационный, приключения, семейный, детский.Режиссер: Ларри ЛэтэмАктеры: Томас Деккер, Дом ДеЛуис, Пэт Масик, Нехемиа Персофф, Эрика Йон, Лэйси Чэберт, Элейн Билстед, Рене Обержене, Дэвид Кэррадайн, Шерман Ховард.Продолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD53E80FDBCD007DB4DEBB0316BE0BE77E289E2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

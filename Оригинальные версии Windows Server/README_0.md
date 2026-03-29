@@ -6,7 +6,7 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877027.jpg" />
+  <img src="Z:/picture/005/save_picture_877027.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874039.jpg" />
+  <img src="Z:/picture/005/save_picture_874039.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.230 (Updated September 2021) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865917.jpg" />
+  <img src="Z:/picture/008/save_picture_865917.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows Server, Version 20H2 (10.0.19042.1237) (Updated September 2021) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864446.jpg" />
+  <img src="Z:/picture/008/save_picture_864446.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Server, Version 1909 (10.0.18363.778) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851004.jpg" />
+  <img src="Z:/picture/008/save_picture_851004.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows Server, Version 20H2 (10.0.19042.1288) (Updated October 2021) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817502.jpg" />
+  <img src="Z:/picture/008/save_picture_817502.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Windows Server, Version 2004 (10.0.19041.208) - Оригинальные обр�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812824.jpg" />
+  <img src="Z:/picture/008/save_picture_812824.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.288 (Updated October 2021) О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805699.jpg" />
+  <img src="Z:/picture/008/save_picture_805699.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790730.jpg" />
+  <img src="Z:/picture/008/save_picture_790730.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790716.jpg" />
+  <img src="Z:/picture/008/save_picture_790716.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.1884 (Updated Fe
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780003.jpg" />
+  <img src="Z:/picture/008/save_picture_780003.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Windows Home Server 2011 [MSDN] [Ru]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760987.jpg" />
+  <img src="Z:/picture/008/save_picture_760987.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Windows Server, Version 20H2 (10.0.19042.1526) (Updated February 2022) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720285.jpg" />
+  <img src="Z:/picture/008/save_picture_720285.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.524 (Updated February 2022) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720163.jpg" />
+  <img src="Z:/picture/008/save_picture_720163.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Windows Server, Version 20H2 (10.0.19042.1586) (Updated March 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669080.jpg" />
+  <img src="Z:/picture/008/save_picture_669080.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Windows Server, Version 20H2 (10.0.19042.1645) (Updated April 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614575.jpg" />
+  <img src="Z:/picture/008/save_picture_614575.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Microsoft Windows Server 2012 R2 with Update 3 - Оригинальные обр
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605903.jpg" />
+  <img src="Z:/picture/008/save_picture_605903.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Windows Home Server 2011 - Оригинальные образы от Microsoft 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591254.jpg" />
+  <img src="Z:/picture/008/save_picture_591254.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальн
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590797.jpg" />
+  <img src="Z:/picture/008/save_picture_590797.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Windows Storage Server 2012 R2 and Microsoft Windows Server 2012 R2 Fo
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589797.jpg" />
+  <img src="Z:/picture/008/save_picture_589797.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Windows Server, Version 20H2 (10.0.19042.1706) (Updated May 2022) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589273.jpg" />
+  <img src="Z:/picture/008/save_picture_589273.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Microsoft Hyper-V Server 2012 R2 9600.16384 (130821-1623) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578563.jpg" />
+  <img src="Z:/picture/008/save_picture_578563.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Windows Server 2012 R2 VL with Update 3 - Оригинальные о�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571192.jpg" />
+  <img src="Z:/picture/008/save_picture_571192.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Windows Server 2012 Datacenter x64 VL RTM by W.Z.T [En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558312.jpg" />
+  <img src="Z:/picture/005/save_picture_558312.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Windows Server, Version 20H2 (10.0.19042.1766) (Updated June 2022) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527673.jpg" />
+  <img src="Z:/picture/008/save_picture_527673.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Microsoft Windows Server 2012 (Volume) + Языковые пакеты (x64) [Ru
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502968.jpg" />
+  <img src="Z:/picture/008/save_picture_502968.jpg" />
 </div>
 
 

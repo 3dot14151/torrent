@@ -6,7 +6,7 @@ Vivaldi 4.2.2406.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854412.jpg" />
+  <img src="Z:/picture/008/save_picture_854412.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIR Music Technology - Hybrid 3.0.10 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854406.jpg" />
+  <img src="Z:/picture/008/save_picture_854406.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF24 Creator 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854404.jpg" />
+  <img src="Z:/picture/008/save_picture_854404.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Baby Audio - TAIP 1.0.0 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854402.jpg" />
+  <img src="Z:/picture/008/save_picture_854402.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Medieval Castle Defense 1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854311.jpg" />
+  <img src="Z:/picture/008/save_picture_854311.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Process Audio - Sugar 1.2.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854294.jpg" />
+  <img src="Z:/picture/008/save_picture_854294.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Wise Disk Cleaner 10.6.2.798 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854290.jpg" />
+  <img src="Z:/picture/008/save_picture_854290.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mozilla Thunderbird 91.1.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854288.jpg" />
+  <img src="Z:/picture/008/save_picture_854288.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wavesfactory - TrackSpacer 2.5.9 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854282.jpg" />
+  <img src="Z:/picture/008/save_picture_854282.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Opera 79.0.4143.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854278.jpg" />
+  <img src="Z:/picture/008/save_picture_854278.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854259.jpg" />
+  <img src="Z:/picture/008/save_picture_854259.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lucha Libre AAA: Héroes del Ring [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854224.jpg" />
+  <img src="Z:/picture/008/save_picture_854224.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Monster Truck Rally 1.02 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854196.jpg" />
+  <img src="Z:/picture/008/save_picture_854196.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ GPU-Z 2.43.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854190.jpg" />
+  <img src="Z:/picture/008/save_picture_854190.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Futuremark 3DMark 2.20.7274 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854186.jpg" />
+  <img src="Z:/picture/008/save_picture_854186.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TechSmith Camtasia 2021.0.11 (Build 32979) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854183.jpg" />
+  <img src="Z:/picture/008/save_picture_854183.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854175.jpg" />
+  <img src="Z:/picture/008/save_picture_854175.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854174.jpg" />
+  <img src="Z:/picture/008/save_picture_854174.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854164.jpg" />
+  <img src="Z:/picture/008/save_picture_854164.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854153.jpg" />
+  <img src="Z:/picture/008/save_picture_854153.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854152.jpg" />
+  <img src="Z:/picture/008/save_picture_854152.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854093.jpg" />
+  <img src="Z:/picture/008/save_picture_854093.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.33.5700 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854074.jpg" />
+  <img src="Z:/picture/008/save_picture_854074.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ CarBit ELM327 OBD2 v3.4.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854072.jpg" />
+  <img src="Z:/picture/008/save_picture_854072.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ StartIsBack++ 2.9.16 StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854070.jpg" />
+  <img src="Z:/picture/008/save_picture_854070.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854058.jpg" />
+  <img src="Z:/picture/008/save_picture_854058.jpg" />
 </div>
 
 

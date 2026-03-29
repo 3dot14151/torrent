@@ -6,7 +6,7 @@ IObit Smart Defrag Pro 5.1.0.787 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717908.jpg" />
+  <img src="Z:/picture/008/save_picture_717908.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 12.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717905.jpg" />
+  <img src="Z:/picture/008/save_picture_717905.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717904.jpg" />
+  <img src="Z:/picture/008/save_picture_717904.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ ReviverSoft Registry Reviver 4.6.2.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717764.jpg" />
+  <img src="Z:/picture/008/save_picture_717764.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Mirillis Splash PRO EX Player 1.7.0.0 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717732.jpg" />
+  <img src="Z:/picture/005/save_picture_717732.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Corel PDF Fusion v1.0 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717727.jpg" />
+  <img src="Z:/picture/005/save_picture_717727.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ BurnAware Professional 11.2 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717658.jpg" />
+  <img src="Z:/picture/008/save_picture_717658.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717621.jpg" />
+  <img src="Z:/picture/008/save_picture_717621.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Cacheman 10.0.1.0 DC 07.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717618.jpg" />
+  <img src="Z:/picture/008/save_picture_717618.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mozilla Firefox 38.0 beta 8 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717597.jpg" />
+  <img src="Z:/picture/008/save_picture_717597.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ CocCoc 68.4.190 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717530.jpg" />
+  <img src="Z:/picture/008/save_picture_717530.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ant Download Manager Pro 1.7.6 Build 49823 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717523.jpg" />
+  <img src="Z:/picture/008/save_picture_717523.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ashampoo Photo Commander 16.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717520.jpg" />
+  <img src="Z:/picture/008/save_picture_717520.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717512.jpg" />
+  <img src="Z:/picture/008/save_picture_717512.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717477.jpg" />
+  <img src="Z:/picture/008/save_picture_717477.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ O&O DiskImage Professional 10.5 Build 154 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717472.jpg" />
+  <img src="Z:/picture/008/save_picture_717472.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717403.jpg" />
+  <img src="Z:/picture/008/save_picture_717403.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ SRWare Iron 51.0.2700.0 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717370.jpg" />
+  <img src="Z:/picture/008/save_picture_717370.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ CleanMyPC 1.7.4.258 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717369.jpg" />
+  <img src="Z:/picture/008/save_picture_717369.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ JetBrains DataGrip 2016.1.1 Build #DB-145.863 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717363.jpg" />
+  <img src="Z:/picture/008/save_picture_717363.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NVIDIA GeForce Desktop 368.39 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717362.jpg" />
+  <img src="Z:/picture/008/save_picture_717362.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Microsoft Windows and Office ISO Download Tool 2.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717360.jpg" />
+  <img src="Z:/picture/008/save_picture_717360.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Tor Browser Bundle 6.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717353.jpg" />
+  <img src="Z:/picture/008/save_picture_717353.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DVDFab 9.2.4.4 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717351.jpg" />
+  <img src="Z:/picture/008/save_picture_717351.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Ashampoo Photo Commander 16.0.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717294.jpg" />
+  <img src="Z:/picture/008/save_picture_717294.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Advanced SystemCare Ultimate 9.1.0.710 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717248.jpg" />
+  <img src="Z:/picture/008/save_picture_717248.jpg" />
 </div>
 
 

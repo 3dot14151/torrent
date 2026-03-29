@@ -1,3 +1,139 @@
+###  Публикация: 1375373   (852774) от 21.04.2020
+
+ITVDN | Python Developer (2015-2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python - это высокоуровневый язык программирования общего назначения, ориентированный на повышение производительности и читаемости кода.
+
+На сегодняшний день Python является одним из самых популярных языков программирования со стремительно растущим охватом сфер применения. Последние 5 лет он входит в ТОП-10 самых востребованных технологий на рынке IT.Производство: ITVDNЖанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 78:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373656   (852772) от 21.04.2020
+
+ITVDN | Frontend Developer (2015-2020) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы в душе дизайнер, но любите программирование и верите, что будущее за internet-технологиями, для вас интересной будет специальность Frontend-разработчика, так как она требует некоторых творческих способностей и глубокой практической подготовки по web-программированию.Производство: ITVDNЖанр: Программирование, Frontend DeveloperЯзык озвучки: РусскийПродолжительность: 185:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0769769E1FF62D709EFC31B7A81ED59F05A74069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001841   (851716) от 29.03.2016
+
+Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс обучения Ruby on Rails с нуля. Книга + видео курс.
+Цель этой книги состоит в том, чтобы стать лучшим ответом на вопрос: “Если я хочу изучить веб-разработку на Ruby on Rails, с чего я должен начать?” К тому времени, когда вы завершите Ruby on Rails Tutorial, вы будете иметь все навыки, необходимые для разработки и разворачивания своих собственных веб-приложений (   Читать дальше...   )Жанр: Программирование, Ruby on RailsПродолжительность: 19:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABB87D3C1251A7875FAD12D203057042B62E7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001517   (851610) от 29.03.2016
+
+Специалист | Microsoft Excel 2013/2010. Уровень 3. Анализ и визуализация данных (2014) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдя обучение на этом курсе, Вы повысите свой «словарный запас» встроенных функций MS Excel в рамках категории «Ссылки и массивы», а в совокупности с формулами массивов перед Вами откроются новые возможности обработки данных. Вы научитесь создавать нестандартные сложные диаграммы, которые помогут визуализировать данные, сделать их запоминающимися и легкими в управлении.Жанр: MS ExcelПродолжительность: 11:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128B0FBE79B55F357267E8479AF7B9DD842A8978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001711   (851609) от 29.03.2016
+
+LoftSchool | Комплексное обучение разработке на Android (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_851609.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕМУ ВЫ НАУЧИТЕСЬ, ПРОЙДЯ КУРС:
+
+Создавать современные мобильные Android-приложения используя лучшие передовые инструменты и технологии.
+(   Читать дальше...   )Жанр: Android, Java, Git, SQLite и т.д.Продолжительность: 29:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001541   (851602) от 29.03.2016
 
 Shultais Education | Online-курс программирования на языке Python 3 (2016) PCRec [H.264/720p]
@@ -6,7 +142,7 @@ Shultais Education | Online-курс программирования на яз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851602.jpg" />
+  <img src="Z:/picture/008/save_picture_851602.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850032.jpg" />
+  <img src="Z:/picture/008/save_picture_850032.jpg" />
 </div>
 
 
@@ -61,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849948.jpg" />
+  <img src="Z:/picture/008/save_picture_849948.jpg" />
 </div>
 
 
@@ -90,7 +226,7 @@ ProfIT | Git для профессионалов (2016) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849940.jpg" />
+  <img src="Z:/picture/008/save_picture_849940.jpg" />
 </div>
 
 
@@ -116,7 +252,7 @@ Hexlet | Практические курсы по программировани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849928.jpg" />
+  <img src="Z:/picture/008/save_picture_849928.jpg" />
 </div>
 
 
@@ -144,7 +280,7 @@ Pluralsight.com | Объединение и фильтрация данных в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849715.jpg" />
+  <img src="Z:/picture/008/save_picture_849715.jpg" />
 </div>
 
 
@@ -170,7 +306,7 @@ Pluralsight.com | JavaScript объекты, прототипы и классы 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849700.jpg" />
+  <img src="Z:/picture/008/save_picture_849700.jpg" />
 </div>
 
 
@@ -196,7 +332,7 @@ ITProTV | Cisco CCNP Enterprise ENCOR (350-401) (2020) PCRec [H.264/1080p-LQ] [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849468.jpg" />
+  <img src="Z:/picture/008/save_picture_849468.jpg" />
 </div>
 
 
@@ -222,7 +358,7 @@ ProfIT | Правильный деплой приложений на PHP (2015) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848312.jpg" />
+  <img src="Z:/picture/008/save_picture_848312.jpg" />
 </div>
 
 
@@ -248,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844367.jpg" />
+  <img src="Z:/picture/008/save_picture_844367.jpg" />
 </div>
 
 
@@ -274,7 +410,7 @@ Udemy | Angular 9. Практический курс по созданию Ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844115.jpg" />
+  <img src="Z:/picture/008/save_picture_844115.jpg" />
 </div>
 
 
@@ -301,7 +437,7 @@ Udemy | Практический курс для новичков по SQL и Po
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844004.jpg" />
+  <img src="Z:/picture/008/save_picture_844004.jpg" />
 </div>
 
 
@@ -327,7 +463,7 @@ ProfIT | "Вуду" регулярных выражений (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842507.jpg" />
+  <img src="Z:/picture/008/save_picture_842507.jpg" />
 </div>
 
 
@@ -356,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842499.jpg" />
+  <img src="Z:/picture/008/save_picture_842499.jpg" />
 </div>
 
 
@@ -384,7 +520,7 @@ OTUS | iOS-разработчик. Базовый курс (2020) PCRec [H.264/1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842361.jpg" />
+  <img src="Z:/picture/008/save_picture_842361.jpg" />
 </div>
 
 
@@ -410,7 +546,7 @@ OTUS | iOS Разработчик. Продвинутый курс v 2.0 (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842286.jpg" />
+  <img src="Z:/picture/008/save_picture_842286.jpg" />
 </div>
 
 
@@ -438,7 +574,7 @@ OTUS | Разработчик C# (2020) PCRec [H.264/1080-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842268.jpg" />
+  <img src="Z:/picture/008/save_picture_842268.jpg" />
 </div>
 
 
@@ -464,7 +600,7 @@ loftschool | Платные видеокурсы [коллекция, 8 курс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842260.jpg" />
+  <img src="Z:/picture/008/save_picture_842260.jpg" />
 </div>
 
 
@@ -490,7 +626,7 @@ ProfIT | Паттерны и антипаттерны - помощники в р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839308.jpg" />
+  <img src="Z:/picture/008/save_picture_839308.jpg" />
 </div>
 
 
@@ -519,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839184.jpg" />
+  <img src="Z:/picture/008/save_picture_839184.jpg" />
 </div>
 
 
@@ -545,7 +681,7 @@ Geekbrains | АнтиБыдлоКодер (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_839178.jpg" />
+  <img src="Z:/picture/009/save_picture_839178.jpg" />
 </div>
 
 
@@ -559,146 +695,6 @@ Geekbrains | АнтиБыдлоКодер (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F27D6BE14168FA6654C0342D679F1C2F79FA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112832   (839143) от 10.03.2017
-
-ITVDN | Angular2 Essential (2017) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс создан для изучения Angular 2, который является переработанной и улучшенной версией популярного фреймворка AngularJS. Среди преимуществ этой технологии можно отметить высокую производительность, удобство работы и использование TypeScript в качестве основного языка для разработки. Курс состоит из 7 уроков, в течении которых Вы изучите такие основные темы, (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 09:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309275   (837453) от 18.03.2011
-
-Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на первый видео урок, который предназначен для изучения интеграции  Vue, с другим программным обеспечением (3D Max, Maya, After Effects и т.д.). Эти видео уроки были записаны, чтобы показать вам процесс и концепции для доставки Vue на более высокий уровень в ваших работах.
-
-Эта серия учебных пособий делает именно это. Узнайте, как использовать Vue, After Effects и Photoshop, чтобы принять ваши домашние фильмы и профессиональных постановок на совершенно новый уровень. Если вы покупаете теперь мы сообщим вам, когда версия с голосом более будут доступны, обновление бесплатно, просто снова скачать новую версию, когда мы посылаем уведомление по электронной почте. Какое-то время сейчас, люди стали просить за учебники, которые связывают Vue в трубу производство фильмов онлайн. Эта серия учебных пособий делает именно это. Узнайте, как использовать Vue, After Effects и Photoshop, чтобы принять ваши домашние фильмы и профессиональных постановок на совершенно новый уровень.Жанр: Обучение программе VueПродолжительность: 2:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D222201BF9424AF78503B9C37C94E33648C4F021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501267   (836017) от 09.10.2021
-
-Udemy, Dr. Angela Yu | The Complete 2021 Flutter Development Bootcamp with Dart [Обновление от 10.2021] (2021) WEB-DL [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на учебный курс по разработке приложений Complete Flutter с помощью Dart, созданный в сотрудничестве с командой Google Flutter.
-Теперь включает в себя новый модуль управления состоянием Flutter!
-Охватывающий все фундаментальные концепции разработки Flutter, это наиболее полный курс по Flutter, доступный в Интернете.
-Мы создавали этот курс в течение (   Читать дальше...   )Производство: UdemyЖанр: ВидеоурокиЯзык озвучки: АнглийскийПродолжительность: 28:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53226DE578AC7CCE137AF2CE7352D40E13931A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378178   (835521) от 01.05.2020
-
-Заур Трегулов | SQL для начинающих: с нуля до сертификата Oracle (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надоело пытаться выучить SQL по нескольким источникам? Тогда этот курс точно для Вас!
-Курс идеально подходит для супер новичков, которые понятия не имеют, что такое SQL.
-А также курс несомненно заценят люди, которые уже имеют какое-то представление о SQL. Поверьте, Вы обязательно узнаете много нового вне зависимости от уже имеющихся знаний.Производство: UdemyЖанр: Программирование, SQLПродолжительность: 29:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717C458217014E413E180737F7B7F978B145138A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501664   (834760) от 10.10.2021
-
-Geekbrains | Видеокурс Excel 2.0 (2021) PCRec [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Основы работы в Excel
-Учимся писать первые формулы и работать с таблицами данных и математическими функциями
-2. Поиск данных и логика
-Используем ВПР для связывания данных, разбираем логические функции и учимся комбинировать несколько функций в одной.(   Читать дальше...   )Производство: GeekbrainsЖанр: MS ExcelПродолжительность: 07:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EBF4943C6F2991F1A65B17EF3D9909F88490D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

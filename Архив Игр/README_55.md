@@ -6,7 +6,7 @@ Medal of Honor: Warfighter - Deluxe Edition [En/Ru] (Update №1) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403431.jpg" />
+  <img src="Z:/picture/005/save_picture_403431.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Medal of Honor: Warfighter - Digital DELUXE EDITION [En/Ru] (Crack/v.1.0.0.2) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403373.jpg" />
+  <img src="Z:/picture/005/save_picture_403373.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403371.jpg" />
+  <img src="Z:/picture/008/save_picture_403371.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Medal of Honor: Warfighter - Limited Edition [En/Ru] (Crack/v.1.0.0.2) 2012 | 3D
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_403368.jpg" />
+  <img src="Z:/picture/005/save_picture_403368.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/Multi8] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403313.jpg" />
+  <img src="Z:/picture/008/save_picture_403313.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Hob (2017) [Ru/Multi] (1.10.2.0) Repack CoolGames
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402980.jpg" />
+  <img src="Z:/picture/008/save_picture_402980.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402755.jpg" />
+  <img src="Z:/picture/005/save_picture_402755.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (L/1.5/5 DLC) 2012 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402741.jpg" />
+  <img src="Z:/picture/008/save_picture_402741.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402652.jpg" />
+  <img src="Z:/picture/008/save_picture_402652.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Medal of Honor Warfighter: Deluxe Edition [Ru] (Lossless RePack/1.0.0.2) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402594.jpg" />
+  <img src="Z:/picture/008/save_picture_402594.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402591.jpg" />
+  <img src="Z:/picture/008/save_picture_402591.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Medal of Honor: Warfighter - Digital Deluxe Edition [En/Ru] (Crack/1.0.0.2) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401675.jpg" />
+  <img src="Z:/picture/008/save_picture_401675.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ RUINER (2017) [Ru/Multi] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401074.jpg" />
+  <img src="Z:/picture/008/save_picture_401074.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400744.jpg" />
+  <img src="Z:/picture/008/save_picture_400744.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Medal of Honor Warfighter [En] (L) 2012 | FairLight
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400740.jpg" />
+  <img src="Z:/picture/008/save_picture_400740.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Borderlands 2: Premier Club Edition [Ru/En] (RePack/1.1.2.u.5/6 DLC) 2012 | R.G.
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400700.jpg" />
+  <img src="Z:/picture/008/save_picture_400700.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Repack/1.0.0.2) 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400697.jpg" />
+  <img src="Z:/picture/008/save_picture_400697.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400696.jpg" />
+  <img src="Z:/picture/008/save_picture_400696.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400654.jpg" />
+  <img src="Z:/picture/008/save_picture_400654.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Medal of Honor Warfighter: Digital Deluxe Edition [Ru] (Lossless RePack/1.0.0.2)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400651.jpg" />
+  <img src="Z:/picture/008/save_picture_400651.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Medal of Honor Warfighter: Deluxe Edition [Ru/En] (Origin-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400641.jpg" />
+  <img src="Z:/picture/008/save_picture_400641.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Of Orcs and Men [En/Ru] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399739.jpg" />
+  <img src="Z:/picture/008/save_picture_399739.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399650.jpg" />
+  <img src="Z:/picture/008/save_picture_399650.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ SBK Generations [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398916.jpg" />
+  <img src="Z:/picture/008/save_picture_398916.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ King's Bounty: Warriors of the North [Ru] (RePack/1.3.1) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398875.jpg" />
+  <img src="Z:/picture/008/save_picture_398875.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ King's Bounty: Warriors of the North [Ru] (Repack) 2012 |  DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398859.jpg" />
+  <img src="Z:/picture/008/save_picture_398859.jpg" />
 </div>
 
 

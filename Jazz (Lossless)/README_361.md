@@ -1,3 +1,119 @@
+###  Публикация: 1755272   (40352) от 14.10.2024
+
+Joe Pass - A Sign Of The Times (1966) 2010, EMI Music [FLAC|Lossless|tracks + .cue] <Bop, Mainstream jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sign of the Times [2:15]
+02. The Phoenix Love Theme (Senza Fine) [2:53]
+03. Nowhere Man [2:41]
+04. Dindi [2:21](   Читать дальше...   )Жанр: Bop, Mainstream jazz, Guitar JazzПродолжительность: 00:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DE3C85EE7F020A47C065C145510882FA99F023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755546   (40194) от 16.10.2024
+
+VA - Soothing & Soft Lounge Playlist to Unwind and Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - The Way You Look Tonight (4:55)
+02. Chillaxonic - Together We Fly (4:08)
+03. Love Suggestions - Can't Hold Us (4:00)
+04. Chillaxonic - So Far, But so Near (4:32)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF94031BCE7EF0DD2F0D3060A2985ECE145F1DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755541   (40172) от 16.10.2024
+
+VA - Luxurious, Relaxed & Sophisticated Atmosphere Soothing Tunes to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Reality (4:01)
+02. Chillaxonic - Iridescent (5:10)
+03. Konstantin Klashtorni - Used to Love You (4:08)
+04. Chillaxing Jazz Kollektion - Touch (3:52)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD05AC40AC168E3FC6EBB629A209A253B9A025DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755540   (40171) от 16.10.2024
+
+VA - Harmonic and Melodic Laid-Back Ambiance Lounge Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - My World (5:25)
+02. Chillaxing Jazz Kollektion - Blessings (4:34)
+03. Chillaxonic - Ethereal (5:09)
+04. Chillaxing Jazz Kollektion - One Hundred Ways (3:54)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E02737E3C64713EE3DE821228B998031190648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755547   (40168) от 16.10.2024
 
 VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
@@ -6,7 +122,7 @@ VA - Travel and Leisure Vacations at Exotic Locations Smooth Jazz Playlist (2024
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40168.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Melodic and Harmonic Laid-Back Ambiance Smooth Intrumentals (2024) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40167.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Vacation Travel and Leisure at Exotic Locations Lounge Sweet Tunes (2024) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40166.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Relaxed & Luxurious Sophisticated Atmosphere Smooth Chilly Instrumentals (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40165.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Soft and Soothing Jazzy Playlist to Unwind and Relax (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40164.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40161.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Classy Charming Luxury Light Jazz Chilly Instrumentals (2024) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40158.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Charming Classy Luxury Lounge Chilly Relaxing Tunes (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40156.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Steve Lacy - Only Monk (1985) 1993, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40065.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Acid Retro Soul Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40062.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nat King Cole - The Complete Capitol Recordings Of The Nat King Cole Trio (1942 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39966.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sarah Vaughan - The Mercury Recordings 1954 - 1960 (2014) 3CD, Not Now Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39855.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Eddie Henderson - Realization & Inside Out : Anthology, Volume 2, The Capricorn 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39795.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sarah Vaughan - Live In Japan (2000) 2CD [FLAC|Lossless|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39712.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sarah Vaughan & Michel Legrand - Orchestra Arranged And Conducted By Michel Legr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39703.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sarah Vaughan - Come Rain Or Come Shine (2000) [FLAC|Lossless|tracks+.cue]<Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39690.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Sarah Vaughan - Crazy And Mixed Up (1987) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39687.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Italian Restaurant Lounge Music Vol 2 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39671.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Conrad Herwig - The Latin Side Of Mingus (2022) Savant [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39562.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Gary Burton & Paul Bley - Right Time Right Place (1991) GNP Crescendo [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39560.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sarah Vaughan - How Long Has This Been Going On? (1978) 2003, Pablo Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39525.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39506.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Sarah Vaughan - The Magic of Sarah Vaughan (1940-e - 1960-e) 1998, Newsound 2000
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FBE05D6D2F51EAD091AAB3514E32B5A8FC22661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318666   (39502) от 23.10.2024
-
-Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown [1:51]
-02. Take the 'A' Train [2:42]
-03. I Left My Heart in San Francisco [4:08]
-04. S'Posin' [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507EBBCE06E28C732B694E3E977112E5AE6D2E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140938   (39501) от 23.10.2024
-
-Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Shanachie [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [00:09]
-02. I'm Gonna Live Till I Die [02:26]
-03. A Night in Tunisia (Interlude) [05:10]
-04. Misty [05:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80682075D02A0097B861DEC3BF856DA48A7D7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001444   (39500) от 23.10.2024
-
-Sarah Vaughan - Compact Jazz: Sarah Vaughan Live! (1987) Mercury[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sometimes I'm Happy [02:07]
- 02.Honeysuckle Rose [03:45]
- 03.Be Anything (But Me Mine) [04:56]
- 04.All Of You [04:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5A1B431C9FBBF21A01E10E0C533185B555F135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756731   (39498) от 23.10.2024
-
-Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trains [7:31]
-02. Beirut [8:18]
-03. Cajun [6:19]
-04. In a Sentimental Mood [3:36](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

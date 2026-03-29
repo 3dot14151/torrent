@@ -1,3 +1,29 @@
+###  Публикация: 1014432   (776399) от 07.05.2016
+
+Журнал | Мультпланета №4 (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для досуга для детей младшего школьного возраста.Жанр: Журнал для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493DDF161C54F211E893AB6FE7D5A3491348743F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014426   (776325) от 07.05.2016
 
 Журнал | Ёжик №3 (2016) [PDF]
@@ -6,7 +32,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776325.jpg" />
+  <img src="Z:/picture/008/save_picture_776325.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771573.jpg" />
+  <img src="Z:/picture/008/save_picture_771573.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762640.jpg" />
+  <img src="Z:/picture/008/save_picture_762640.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753363.jpg" />
+  <img src="Z:/picture/008/save_picture_753363.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730557.jpg" />
+  <img src="Z:/picture/008/save_picture_730557.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717080.jpg" />
+  <img src="Z:/picture/008/save_picture_717080.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715714.jpg" />
+  <img src="Z:/picture/008/save_picture_715714.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708443.jpg" />
+  <img src="Z:/picture/008/save_picture_708443.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685478.jpg" />
+  <img src="Z:/picture/008/save_picture_685478.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684185.jpg" />
+  <img src="Z:/picture/008/save_picture_684185.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683455.jpg" />
+  <img src="Z:/picture/008/save_picture_683455.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683352.jpg" />
+  <img src="Z:/picture/008/save_picture_683352.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676505.jpg" />
+  <img src="Z:/picture/008/save_picture_676505.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651165.jpg" />
+  <img src="Z:/picture/008/save_picture_651165.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645682.jpg" />
+  <img src="Z:/picture/008/save_picture_645682.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633877.jpg" />
+  <img src="Z:/picture/008/save_picture_633877.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633873.jpg" />
+  <img src="Z:/picture/008/save_picture_633873.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633863.jpg" />
+  <img src="Z:/picture/008/save_picture_633863.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633855.jpg" />
+  <img src="Z:/picture/008/save_picture_633855.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625996.jpg" />
+  <img src="Z:/picture/008/save_picture_625996.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624381.jpg" />
+  <img src="Z:/picture/008/save_picture_624381.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622553.jpg" />
+  <img src="Z:/picture/008/save_picture_622553.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619853.jpg" />
+  <img src="Z:/picture/008/save_picture_619853.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604932.jpg" />
+  <img src="Z:/picture/008/save_picture_604932.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587041.jpg" />
+  <img src="Z:/picture/008/save_picture_587041.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD524CFE70362EE85B39F826545FCCB923B89CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041682   (582245) от 09.08.2016
-
-Журнал | Санька в стране сказок №12 (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Санька в стране сказок замечательный развлекательно-познавательный журнал для младших школьников и старших дошкольников. Оригинальная идея журнал состоит в том, что задания надо делать на время и записывать сколько ушло времени, а затем в конце подчитать сколько времени ушло на весь журнал, что бы узнать быстро ли ты его прошел и не надо ли второй раз разбирать все (   Читать дальше...   )Жанр: Детский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122716A48A12F77E292033ED8785EC09C3A4DB98
 ```
 
 https://mybot314.ru/tekegram_catalog/

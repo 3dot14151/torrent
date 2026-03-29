@@ -1,3 +1,55 @@
+###  Публикация: 1383563   (809961) от 16.05.2020
+
+Кеа - остроумные смельчаки Новой Зеландии / Keas - New Zealand's Witty Daredevils (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809961.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Новой Зеландии живут попугаи кеа - остроумные птицы, большие проказники и серьёзные хищники. Они признаны самыми умными птицами в мире. О том, как они выживают в суровых природных условиях Новой Зеландии Вы узнаете, посмотрев данный фильм.Производство: Германия, Text Bild Medienproduktion, ARTE, Westdeutscher Rundfunk (WDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Фолькер Арзт, Анжелика СиглПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A822A7633F29059147BB153B7C5B4703BD544718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009410   (809655) от 21.04.2016
+
+Зеленая планета / The Green Planet (Das  grüne Wunder - Unser Wald) (2012) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леса занимают 30 процентов поверхности Земли, но мы до сих пор мало что о них знаем. «Зеленая планета» позволит нам приблизиться к этому загадочному и волшебному миру. Режиссер Ян Хафт и его команда покажут истории лесных жителей, от грациозных оленей до хитрых лисиц и диких кабанов.Телекомпания: Германия, Natural History Germany, Nautilusfilm, NDR Naturfilm, Polyband GmbH, Studio Hamburg Doclights ProduktionЖанр: Документальный, видовой, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF70E128D70CBF6F4760E333D362586664084A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199157   (808854) от 07.05.2010
 
 Страсти по насекомым 2. Великий Альянс / Insectia 2. The Grand Alliance (2010) HDTVRip (серия 7 из 13)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808854.jpg" />
+  <img src="Z:/picture/008/save_picture_808854.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808852.jpg" />
+  <img src="Z:/picture/008/save_picture_808852.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808851.jpg" />
+  <img src="Z:/picture/008/save_picture_808851.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807855.jpg" />
+  <img src="Z:/picture/008/save_picture_807855.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807688.jpg" />
+  <img src="Z:/picture/008/save_picture_807688.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806242.jpg" />
+  <img src="Z:/picture/008/save_picture_806242.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804229.jpg" />
+  <img src="Z:/picture/008/save_picture_804229.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803844.jpg" />
+  <img src="Z:/picture/008/save_picture_803844.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803616.jpg" />
+  <img src="Z:/picture/008/save_picture_803616.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802399.jpg" />
+  <img src="Z:/picture/008/save_picture_802399.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801973.jpg" />
+  <img src="Z:/picture/008/save_picture_801973.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801931.jpg" />
+  <img src="Z:/picture/008/save_picture_801931.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801197.jpg" />
+  <img src="Z:/picture/008/save_picture_801197.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801148.jpg" />
+  <img src="Z:/picture/008/save_picture_801148.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800207.jpg" />
+  <img src="Z:/picture/008/save_picture_800207.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799999.jpg" />
+  <img src="Z:/picture/008/save_picture_799999.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799195.jpg" />
+  <img src="Z:/picture/008/save_picture_799195.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798674.jpg" />
+  <img src="Z:/picture/008/save_picture_798674.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797973.jpg" />
+  <img src="Z:/picture/008/save_picture_797973.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797972.jpg" />
+  <img src="Z:/picture/008/save_picture_797972.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797526.jpg" />
+  <img src="Z:/picture/008/save_picture_797526.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ BBC. Дельфины. Шпион в стае / Dolphins. Spy In The Pod (2014) 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797420.jpg" />
+  <img src="Z:/picture/008/save_picture_797420.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797124.jpg" />
+  <img src="Z:/picture/008/save_picture_797124.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796535.jpg" />
+  <img src="Z:/picture/008/save_picture_796535.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A05CC7CF1C107AD8D71235E8BF581D1BE5C8DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380779   (796506) от 26.05.2020
-
-Африканские когти и челюсти / Africa's Claws & Jaws (2017) UHDTV [H.265/2160p] [4K, 10-bit, 50fps] (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796506.jpg" />
-</div>
-
-
-###  Подробнее
-
-От острых как бритва зубов большой белой акулы до молниеносного удара чёрной мамбы мы исследуем некоторых из самых опасных животных Африки, известных человеку. В то время как некоторые используют свою подавляющую силу, чтобы одолеть врагов, другие используют смертельный яд. Это история нападения и защиты, хищника и добычи, а также желания убить или быть выжившим.Производство: Канада, Off The Fence for Blue Ant Media InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Мариус БюргерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: серии x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF218C1BC24582245E3E9C22F304ECD0C9967DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508922   (796117) от 10.11.2021
-
-Удивительные животные / Animal (2021) WEB-DL [H.264/1080p] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал погрузит вас в мир самых поразительных существ планеты, осветит невиданные ранее грани их жизни — от нежности до жестокости и приглашает в волнующее, увлекательное и познавательное путешествие по самым отдаленным уголкам нашей планеты.Производство: США, Plimsoll Productions, NetflixЖанр: Документальный, природа, флора, фаунаРежиссер: Марта ХолмсПеревод: Многоголосый профессиональный (VSI Moscow)Субтитры: Русские (Forced, Full), немецкие, английские (SDH), испанские, французские, иврит, итальянские, португальские, румынские, украинскиеПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D070C6CE131BBC09630EEE92933E44824E9857EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

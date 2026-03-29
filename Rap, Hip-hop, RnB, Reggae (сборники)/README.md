@@ -7,7 +7,7 @@ Cypress Hill - Compilation (1991-2025) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058981.jpg" />
+  <img src="Z:/picture/005/save_picture_1058981.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058025.jpg" />
+  <img src="Z:/picture/005/save_picture_1058025.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - RnB Urban Friday Party (2024) [MP3|320 Kbps] <R&B, Funk, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055974.jpg" />
+  <img src="Z:/picture/005/save_picture_1055974.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Suflower Reggae (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045726.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - We Got The Soul (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044013.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Rap Hop Yearmix (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042007.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Rap NNM 2021 (Русский Выпуск 3) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040060.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Have Respect (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039505.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Rap Francais (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039068.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - The Amazing Dancehall Music (2023) [MP3|320 Kbps] <Reggae, Dub, Dancehall>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035534.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Reggae Night: Sweet Sensation (2021) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034911.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Big Rap Review (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034190.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VA - The True Rap (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033259.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ VA - Modern Rap Premiere (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032541.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ VA - Bienvenue: Rap Francais (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029541.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Hip-Hop Street Dance (Vol.07) (2021) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029536.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Best New Trap (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029185.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - The Identity: Rap Francais (Vol.08) (2021) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028214.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Rap Blender Mix (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027549.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026887.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Rap Blender Mix (Vol.02) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026244.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Rap Francais (Vol.09) (2021) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025782.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Symphony Of The Street (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024602.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Exotic Reggae: Dub Edition (2CD) (2021) [MP3|320 Kbps] <Reggae, Dub, Riddim
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023296.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA - Dread Lion Dub (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022998.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022959.jpg" />
 </div>
 
 

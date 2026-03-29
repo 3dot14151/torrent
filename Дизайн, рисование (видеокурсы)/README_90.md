@@ -1,3 +1,32 @@
+###  Публикация: 1525962   (128976) от 22.01.2022
+
+Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Intermediate (2021) PCRec [KR / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128976.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом классе вы сможете установить твердое понимание основ рисования.
+Каждый рисунок начинается с простого понимания геометрических фигур. Из форм мы можем построить человеческие фигуры, животных, предметы - в общем, что угодно. Как только вы поймете основные принципы, вы сможете рисовать любые сложные фигуры.
+
+На этом уроке я научу вас преобразовывать базовые фигуры (   Читать дальше...   )Производство: Class101Жанр: РисованиеЯзык озвучки: КорейскийСубтитры: Английские (отдельными файлами)Продолжительность: 27:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36BD15D52D09A9A7A0B28E1FD7B2B9EC66D07EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824490   (128878) от 15.10.2025
 
 Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist - практический курс для 3D-художника (2024) PCRec [AD] [RU]
@@ -6,7 +35,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128878.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128785.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128720.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128457.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128334.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128311.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128274.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Artefactoschool, Константин Стерхов | Пора цветения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128263.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128252.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128248.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Alexunder Hess | Figma Pro Secrets (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128175.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128167.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128136.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128038.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128017.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127935.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Videosmile, Михаил Бычков | Супер Cinema 4D (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127920.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127857.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127850.jpg" />
 </div>
 
 
@@ -547,7 +576,7 @@ Andreas Ezelius | Designing, Modeling, and Texturing an Aircraft (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127759.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127720.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Motion Science, Cameron Pierron | Beyond The Parallax Effect (2020) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127676.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127641.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127630.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Marker School, Юлия Максимова | Цифровая ботаничес
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127466.jpg" />
 </div>
 
 
@@ -698,33 +727,6 @@ Marker School, Юлия Максимова | Цифровая ботаничес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E49A996627CD866343AD5236ABD05A6820EA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684950   (127450) от 17.12.2023
-
-Bratec Lis School, Элиза Талентино | Эффекты гравюры: цифровой образ с аналоговой душой (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освойте новый подход к созданию иллюстрации, погрузившись в экспериментальную технику – синтез гравюры на металле, живописи и современной цифровой иллюстрации. Найдите оригинальный стиль и обогатите свой творческий процесс.
-Вместе с иллюстратором из Италии Элизой Талентино будем создавать образы, наполненные уникальными, необычными эффектами, вдохновляясь средневековой (   Читать дальше...   )Производство: Bratec Lis SchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:56:04Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABC1FB487E5EAFD5DBF5E28BF26C7A417C85F84
 ```
 
 https://mybot314.ru/tekegram_catalog/

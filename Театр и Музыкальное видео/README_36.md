@@ -1,3 +1,166 @@
+###  Публикация: 193631   (839796) от 19.04.2010
+
+George Michael - Twenty Five (2006) 2xDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Майкл (George Michael) - один из самых успешных артистов в истории поп-музыки. Впервые он прославился в начале 80-х, в составе дуэта Wham! Группа пользовалась огромным успехом - с 1984 по 1986-й они записали 6 синглов №1 в Англии и 3 - в США. Впрочем, первые же сольные записи Джорджа Майкла затмили успех его прежнего проекта: альбом «Faith» (1987) разошелся (   Читать дальше...   )Жанр: РОРПеревод: ОригинальныйПродолжительность: 3:19:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500058   (839585) от 07.10.2021
+
+AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839585.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC устроили экскурсию по своей истории в клипе «Through The Mists Of Time». Видео снято по той же технологии, что и клип «Realize», еще один сингл с прошлогоднего альбома «Power Up». Каждый из участников группы был отснят по отдельности в разных частях мира, а затем с помощью монтажа и специальных эффектов режиссер Наджиб Тарази поместил музыкантов вместе на одну (   Читать дальше...   )Жанр: RockПродолжительность: 0:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B2D897364F0CBE1CE71F690882F5EBFC947F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651412   (839499) от 02.05.2013
+
+Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна – время, когда заядлые дачники начинают делать первые приготовления для открытия нового сезона. Чтобы хорошо отдохнуть летом, нужно зарядиться правильным настроением уже весной. Открываем дачный сезон на телеканале "Россия"!1. Верка Сердючка - Розовый свитер
+2. Николай Басков - Кто тебе сказал
+3. Ани Лорак - Зажигай сердце
+4. Стас Пьеха - Зелёный омут(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:22:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500973   (839236) от 07.10.2021
+
+Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Nemo (2008)Жанр: Symphonic MetalПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830A0A7B7A5A80C8D2B969180232650FCD5B8CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152758   (839067) от 29.04.2020
+
+Александр Островский - Волки и овцы (2004) SATRip (Мастерская П. Фоменко)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Островский. Комедия в 5-ти действиях. Телеверсия спектакля "Волки и овцы" театра "Мастерская Петра Фоменко" по пьесе А.Н. Островского. Запись 2004 года. В спектакле остро, подчас гротескно, подан сюжет известной пьесы. Сюжет разворачивается вокруг аферы с векселями и попыткой заполучить мужа побогаче. Бережный по отношению к классику (   Читать дальше...   )Производство: Россия, Московский театр "Мастерская П. Фоменко", Студия фондовых и архивных программ ГТРК "Культура"Жанр: Спектакль, сатирическая комедия, экранизацияРежиссер: Пётр Фоменко, Ма Чжен Хун, Олег КорвяковАктеры: Ксения Кутепова, Полина Кутепова, Юрий Степанов, Галина Тюнина, Рустэм Юскаев, Мадлен Джабраилова, Карэн Бадалов, Тагир Рахимов, Кирилл Пирогов, Андрей КазаковСубтитры: отсутствуютПродолжительность: 2 x ~ 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A3F46321586718BC86A31B74FA6DE82408E124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379560   (838986) от 29.04.2020
+
+Вика Старикова - Сборник кавер-версий (2017-2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виктория Старикова — юная певица, которая обрела первую популярность на шоу «Минута славы». Несмотря на жёсткую критику со стороны жюри, Вика сумела завоевать своих первых поклонников не только в среди детской, но и среди более взрослой аудитории.
+В родном Нижнем Тагиле, Вика была удостоена престижной премией на церемонии «Человек года» в номинации «Дети, прославившие (   Читать дальше...   )01. А зори здесь тихие
+02. Ангел и я 2
+03. Ангел и я
+04. Богемская рапсодия(   Читать дальше...   )Жанр: CoversАктеры: Виктория СтариковаПродолжительность: 00:02:17-00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DA8558A4E8D1460284F8DB31673FBC68624E38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309256   (838899) от 17.03.2011
 
 Богема / La Boheme: The Film (2009) BDRip
@@ -6,7 +169,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838899.jpg" />
+  <img src="Z:/picture/008/save_picture_838899.jpg" />
 </div>
 
 
@@ -39,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838442.jpg" />
+  <img src="Z:/picture/008/save_picture_838442.jpg" />
 </div>
 
 
@@ -68,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838344.jpg" />
+  <img src="Z:/picture/008/save_picture_838344.jpg" />
 </div>
 
 
@@ -97,7 +260,7 @@ Giuseppe Verdi - NABUCCO (Teatre alla Scala) (2004) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838058.jpg" />
+  <img src="Z:/picture/008/save_picture_838058.jpg" />
 </div>
 
 
@@ -127,7 +290,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837993.jpg" />
+  <img src="Z:/picture/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -153,7 +316,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837870.jpg" />
+  <img src="Z:/picture/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -179,7 +342,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837827.jpg" />
+  <img src="Z:/picture/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -205,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837757.jpg" />
+  <img src="Z:/picture/008/save_picture_837757.jpg" />
 </div>
 
 
@@ -232,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837635.jpg" />
+  <img src="Z:/picture/008/save_picture_837635.jpg" />
 </div>
 
 
@@ -259,7 +422,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837383.jpg" />
+  <img src="Z:/picture/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -285,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837321.jpg" />
+  <img src="Z:/picture/008/save_picture_837321.jpg" />
 </div>
 
 
@@ -312,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837001.jpg" />
+  <img src="Z:/picture/008/save_picture_837001.jpg" />
 </div>
 
 
@@ -341,7 +504,7 @@ Beth Hart & Joe Bonamassa - Live in Amsterdam (2014) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836837.jpg" />
+  <img src="Z:/picture/008/save_picture_836837.jpg" />
 </div>
 
 
@@ -370,7 +533,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836561.jpg" />
+  <img src="Z:/picture/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -396,7 +559,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836559.jpg" />
+  <img src="Z:/picture/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -422,7 +585,7 @@ WINX CLUB IN CONCERTO / Клуб Винкс - Школа волшебниц. К�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836495.jpg" />
+  <img src="Z:/picture/008/save_picture_836495.jpg" />
 </div>
 
 
@@ -448,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836062.jpg" />
+  <img src="Z:/picture/008/save_picture_836062.jpg" />
 </div>
 
 
@@ -474,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835868.jpg" />
+  <img src="Z:/picture/008/save_picture_835868.jpg" />
 </div>
 
 
@@ -500,7 +663,7 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835653.jpg" />
+  <img src="Z:/picture/008/save_picture_835653.jpg" />
 </div>
 
 
@@ -529,177 +692,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835162.jpg" />
+  <img src="Z:/picture/008/save_picture_835162.jpg" />
 </div>
 
 
 ###  Подробнее
 
 WINX и Специалисты начнут новое захватывающее путешествие против монстров на льду, гигантских пауков, в поисках тайны, что скрывается за Каролиной и ее тайного дневника. «Каролина» - известная итальянская фигуристка Каролина Костнер, она играет саму себя, как фея, которую обманом привлекли к себе Валтор и Трикс. На мой взгляд самое красивое и зрелищное шоу! Фанатам (   Читать дальше...   )Жанр: МьюзиклПеревод: ОригинальныйПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501535   (835036) от 10.10.2021
-
-Квартирник НТВ у Маргулиса. Александр Пушной с новой группой (09.10.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карьера российского музыканта-мультиинструменталиста и певца Александра Пушного началась с создания группы «Медведь» в далеком 1993 году. С тех пор он прочно обосновался на музыкальной сцене, его карьера с каждым годом набирает обороты, он записывает каверы на различные песни и выпускает альбомы, а количество поклонников его творчества только увеличивается. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8834519F1DA7B4ADA02BA749C24161AA7426F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652675   (834277) от 05.05.2013
-
-Cirque du Soleil: Сказочный мир / Cirque du Soleil: Worlds Away (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк Бриклэнд ...Перевод: Дублированный (студия «Пифагор»)Язык субтитров: русские, украинские, английские |UTF-8|Продолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C350DD143268AE21700C492B0BCA4216EB19DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004705   (834068) от 08.04.2016
-
-G. BIZET - Carmen - Metropolitan Opera, Garanca, Alagna  (2010) 2DVD5
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Credits / Vorspann / Generique debut 0:53
-Metropolitan Opera Orchestra, Yannick Nezet-Seguin
-2. Introduction by Renée Fleming (I) 1:52
-Renee Fleming(   Читать дальше...   )Жанр: OperaПеревод: ОтсутствуетЯзык субтитров: Francais, English, Deutsch, Espanol, ChineseПродолжительность: 02:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598F0B6BB7ADAC97DAE620F04DE3804F8216DD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310268   (833875) от 20.03.2011
-
-UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Westfalenhalle Dortmund, 29 ноября 1980 года.Жанр: RockПродолжительность: 1:13:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309343   (833702) от 20.03.2011
-
-Дэвид Фостер и друзья / David Foster & Friends - Hit Man Returns (2011) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Фостер (David Foster, род. 1 ноября 1949 г.) — канадский певец и клавишник, больше известный в качестве одного из самых успешных продюсеров в истории популярной музыки. На его счету 14 наград «Грэмми», из них три — в номинации «лучший продюсер года». За благотворительные начинания Фостер и его супруга, Линда Томпсон, удостоены Ордена Канады.
-Hit Man Returns - был снят в прошлом году в Mandalay Bay in Las Vegas.Под руководством David Foster, как маэстро церемонии, включает в себя список выступающих:  Seal, Donna Summer, Martina McBride, Earth, Wind & Fire, Natalie Cole, Ruben Studdard, All-4-One,"Glee" star Charice, Chaka Khan, Jackie Evancho, Lara Fabian...Жанр: Pop, КонцертФормат: DVD9Продолжительность: 02:22:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310234   (833590) от 20.03.2011
-
-Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833590.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Watch", без сомнения, один из самых удачных альбомов Manfred Mann's Earth Band, был выпущен в феврале 1978 года. Для его успешной продажи для каждого трека были сделаны рекламные ролики, которые демонстрировались в музыкальных магазинах Великобритании, а так же по ТВ. Они и представлены на этом DVD. Так же издатели включили в бонусный материал ''живое" выступление группы, записанное для австралийского телевидения в 1979 году и интервью самого Манфреда 2008 года.Жанр: RockАктёры: Chris Hamlet Thompson - vocals, guitar
-Dave Flett -lead guitar, acoustic guitar
-Pat King - bass guitar, backing vocals
-Chris Slade - drums, percussion
-Manfred Mann - keyboards, backing vocalsПеревод: Оригинал (Английский)Продолжительность: 01:45:00
 
 ## Скачать торент
 ```bash

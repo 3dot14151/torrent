@@ -1,3 +1,61 @@
+###  Публикация: 1131840   (704249) от 07.05.2017
+
+Михаил Круг - 55 лет. Юбилейный альбом (2017) 2CD [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимирский централ (04:29)
+02. Купола (05:13)
+03. Магадан (04:27)
+04. Приходите в мой дом (с Викой Цыгановой) (03:44)(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FA18A8E0F996CDEFFD4C87054663D03F4D9B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401929   (703535) от 13.08.2020
+
+Максим Куст - Потерянная любовь (2020) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Зимний плен
+02.Научиться бы мне добру
+03.Журавли
+04.Лоза(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B07CF2CF6136E0610DF6AAEB4DFF7DE347B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402315   (701433) от 14.08.2020
 
 Группа «Владимир» - Надо просто любить (2020) [MP3|320 Kbps] <Шансон>
@@ -6,7 +64,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701433.jpg" />
+  <img src="Z:/picture/008/save_picture_701433.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699418.jpg" />
+  <img src="Z:/picture/008/save_picture_699418.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678049.jpg" />
+  <img src="Z:/picture/008/save_picture_678049.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671886.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667389.jpg" />
+  <img src="Z:/picture/008/save_picture_667389.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660415.jpg" />
+  <img src="Z:/picture/008/save_picture_660415.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Willi Tokarev (Вилли Токарев) - Trumplissimo America! (2017) [MP3|32
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655731.jpg" />
+  <img src="Z:/picture/008/save_picture_655731.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653676.jpg" />
+  <img src="Z:/picture/008/save_picture_653676.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652531.jpg" />
+  <img src="Z:/picture/008/save_picture_652531.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647373.jpg" />
+  <img src="Z:/picture/008/save_picture_647373.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643620.jpg" />
+  <img src="Z:/picture/008/save_picture_643620.jpg" />
 </div>
 
 
@@ -343,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642543.jpg" />
+  <img src="Z:/picture/008/save_picture_642543.jpg" />
 </div>
 
 
@@ -372,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641794.jpg" />
+  <img src="Z:/picture/008/save_picture_641794.jpg" />
 </div>
 
 
@@ -401,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641518.jpg" />
+  <img src="Z:/picture/008/save_picture_641518.jpg" />
 </div>
 
 
@@ -430,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637154.jpg" />
+  <img src="Z:/picture/008/save_picture_637154.jpg" />
 </div>
 
 
@@ -456,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631219.jpg" />
+  <img src="Z:/picture/008/save_picture_631219.jpg" />
 </div>
 
 
@@ -485,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627967.jpg" />
+  <img src="Z:/picture/008/save_picture_627967.jpg" />
 </div>
 
 
@@ -514,7 +572,7 @@ VA - Золотой суперхит 2017/2018 (2018) [MP3|320 Kbps] <Chanson, P
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627833.jpg" />
+  <img src="Z:/picture/008/save_picture_627833.jpg" />
 </div>
 
 
@@ -543,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627768.jpg" />
+  <img src="Z:/picture/008/save_picture_627768.jpg" />
 </div>
 
 
@@ -572,7 +630,7 @@ VA - Золотой суперхит 2 2018/2019 (2019) [MP3|320 Kbps] <Chanson,
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627682.jpg" />
+  <img src="Z:/picture/008/save_picture_627682.jpg" />
 </div>
 
 
@@ -601,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627394.jpg" />
+  <img src="Z:/picture/008/save_picture_627394.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626016.jpg" />
+  <img src="Z:/picture/008/save_picture_626016.jpg" />
 </div>
 
 
@@ -659,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625804.jpg" />
+  <img src="Z:/picture/008/save_picture_625804.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625688.jpg" />
+  <img src="Z:/picture/008/save_picture_625688.jpg" />
 </div>
 
 
@@ -702,64 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E43443AEC57B8FAA438D8A4E5B47C9F5528A30D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452322   (625459) от 09.04.2019
-
-Стас Михайлов и Елена Ваенга - Две Звезды (сборник дуэтов) (2012) [MP3|320 kbps]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стас Михайлов - Все для тебя
-02. Стас Михайлов - Где ты
-03. Елена Ваенга - Клавиши
-04. Елена Ваенга - Фиолетовая тень(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79138B4AF14F1919B65BB06C11EB357EDE2E70A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908499   (625422) от 18.06.2015
-
-Влад Нежный - Сизый (2015) [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сизый
-02. Любимая
-03. Не скучай
-04. Тридцать первый день(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904AC458D9E5E11A888AAC95292CF629281DEC34
 ```
 
 https://mybot314.ru/tekegram_catalog/

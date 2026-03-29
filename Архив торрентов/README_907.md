@@ -6,7 +6,7 @@ SQLite Expert Professional 5.3.5.476 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840753.jpg" />
+  <img src="Z:/picture/008/save_picture_840753.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Movavi Slideshow Maker 6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840747.jpg" />
+  <img src="Z:/picture/008/save_picture_840747.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840726.jpg" />
+  <img src="Z:/picture/008/save_picture_840726.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840715.jpg" />
+  <img src="Z:/picture/008/save_picture_840715.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ UFS Explorer Professional Recovery v3.18.3 (x86x64) Eng. Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840710.jpg" />
+  <img src="Z:/picture/008/save_picture_840710.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840703.jpg" />
+  <img src="Z:/picture/008/save_picture_840703.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ VA - Русский Рэп В Твоей Машине - Прокачай Тач�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840702.jpg" />
+  <img src="Z:/picture/008/save_picture_840702.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Display Driver Uninstaller 18.0.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840699.jpg" />
+  <img src="Z:/picture/008/save_picture_840699.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ W.A.S.T.E. - Discography 9 Releases (2006-2020) Vendetta Music, Sistinas [FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840691.jpg" />
+  <img src="Z:/picture/008/save_picture_840691.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ OBS Studio 25.0.8 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840686.jpg" />
+  <img src="Z:/picture/008/save_picture_840686.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_840649.jpg" />
+  <img src="Z:/picture/009/save_picture_840649.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840641.jpg" />
+  <img src="Z:/picture/008/save_picture_840641.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ TeamViewer Free 15.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840632.jpg" />
+  <img src="Z:/picture/008/save_picture_840632.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ qBittorrent 4.2.5 Portable by Deodatto + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840621.jpg" />
+  <img src="Z:/picture/008/save_picture_840621.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ XnView 2.32 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840598.jpg" />
+  <img src="Z:/picture/008/save_picture_840598.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840580.jpg" />
+  <img src="Z:/picture/008/save_picture_840580.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VLC Media Player 3.0.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840556.jpg" />
+  <img src="Z:/picture/008/save_picture_840556.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ ConsoleAct 2.7.1 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840550.jpg" />
+  <img src="Z:/picture/008/save_picture_840550.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840547.jpg" />
+  <img src="Z:/picture/008/save_picture_840547.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840542.jpg" />
+  <img src="Z:/picture/008/save_picture_840542.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ ConsoleAct 2.7.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840541.jpg" />
+  <img src="Z:/picture/008/save_picture_840541.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840506.jpg" />
+  <img src="Z:/picture/008/save_picture_840506.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ MapInfo Professional 7.5 [RUS] + Portable 7.5 [RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840500.jpg" />
+  <img src="Z:/picture/008/save_picture_840500.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840424.jpg" />
+  <img src="Z:/picture/008/save_picture_840424.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840419.jpg" />
+  <img src="Z:/picture/008/save_picture_840419.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - House Vip (16.04.10) [MP3|192-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840406.jpg" />
+  <img src="Z:/picture/008/save_picture_840406.jpg" />
 </div>
 
 

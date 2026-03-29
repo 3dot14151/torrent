@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703090.jpg" />
+  <img src="Z:/picture/008/save_picture_703090.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702960.jpg" />
+  <img src="Z:/picture/008/save_picture_702960.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702849.jpg" />
+  <img src="Z:/picture/008/save_picture_702849.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702609.jpg" />
+  <img src="Z:/picture/005/save_picture_702609.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702512.jpg" />
+  <img src="Z:/picture/005/save_picture_702512.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702326.jpg" />
+  <img src="Z:/picture/008/save_picture_702326.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Brian Tyler - Иллюзия обмана 2 / Now You See Me 2 (Original Motion 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701822.jpg" />
+  <img src="Z:/picture/008/save_picture_701822.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Iboga Revival, Vol. 01 (2020) [AAC|~327 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701693.jpg" />
+  <img src="Z:/picture/008/save_picture_701693.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Iboga Revival, Vol. 02 (2021) [AAC|~329 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701692.jpg" />
+  <img src="Z:/picture/008/save_picture_701692.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701658.jpg" />
+  <img src="Z:/picture/008/save_picture_701658.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ VA - Electronic Cafe, Vol. 1 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701567.jpg" />
+  <img src="Z:/picture/008/save_picture_701567.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ VA - Chillout Beats 2: Chillout Your Mind (2022) [AAC|~334 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701560.jpg" />
+  <img src="Z:/picture/008/save_picture_701560.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701209.jpg" />
+  <img src="Z:/picture/008/save_picture_701209.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701161.jpg" />
+  <img src="Z:/picture/008/save_picture_701161.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701145.jpg" />
+  <img src="Z:/picture/008/save_picture_701145.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701079.jpg" />
+  <img src="Z:/picture/008/save_picture_701079.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701071.jpg" />
+  <img src="Z:/picture/008/save_picture_701071.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701011.jpg" />
+  <img src="Z:/picture/008/save_picture_701011.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Gorillaz - Humanz (2017) Deluxe Edition [AAC|~256 кб/с]<Alternative Hip-Hop, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700546.jpg" />
+  <img src="Z:/picture/008/save_picture_700546.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700361.jpg" />
+  <img src="Z:/picture/008/save_picture_700361.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700209.jpg" />
+  <img src="Z:/picture/008/save_picture_700209.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700126.jpg" />
+  <img src="Z:/picture/008/save_picture_700126.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700079.jpg" />
+  <img src="Z:/picture/008/save_picture_700079.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699946.jpg" />
+  <img src="Z:/picture/008/save_picture_699946.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699847.jpg" />
+  <img src="Z:/picture/008/save_picture_699847.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699562.jpg" />
+  <img src="Z:/picture/008/save_picture_699562.jpg" />
 </div>
 
 

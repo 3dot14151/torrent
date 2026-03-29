@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418944.jpg" />
+  <img src="Z:/picture/008/save_picture_418944.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418901.jpg" />
+  <img src="Z:/picture/008/save_picture_418901.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418717.jpg" />
+  <img src="Z:/picture/008/save_picture_418717.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Markus Schulz - Escape (2020) [AAC|~331 Kbps]<Electronic, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418466.jpg" />
+  <img src="Z:/picture/008/save_picture_418466.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Memoira - Carnival of Creation (2020) [AAC|~337 Kbps]<Gothic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418465.jpg" />
+  <img src="Z:/picture/008/save_picture_418465.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Ad Infinitum - Chapter I: Monarchy (2020) [AAC|~330 Kbps]<Power Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418364.jpg" />
+  <img src="Z:/picture/008/save_picture_418364.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418362.jpg" />
+  <img src="Z:/picture/008/save_picture_418362.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Best of New Generation Maxi Disco Vol. 1 (2020) [AAC|~319 Kbps]<Disco, Hi-N
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418361.jpg" />
+  <img src="Z:/picture/008/save_picture_418361.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418355.jpg" />
+  <img src="Z:/picture/008/save_picture_418355.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418350.jpg" />
+  <img src="Z:/picture/008/save_picture_418350.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418349.jpg" />
+  <img src="Z:/picture/008/save_picture_418349.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418348.jpg" />
+  <img src="Z:/picture/008/save_picture_418348.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418339.jpg" />
+  <img src="Z:/picture/008/save_picture_418339.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418201.jpg" />
+  <img src="Z:/picture/008/save_picture_418201.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418198.jpg" />
+  <img src="Z:/picture/008/save_picture_418198.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418193.jpg" />
+  <img src="Z:/picture/008/save_picture_418193.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418191.jpg" />
+  <img src="Z:/picture/008/save_picture_418191.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ OMI - Me 4 You (2015) [AAC|WEB-DL|256 кб/с]<Pop, Dance, Reggae, R&B>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418113.jpg" />
+  <img src="Z:/picture/008/save_picture_418113.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Smokie - Gold (2020) [AAC|~341 Kbps]<Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418056.jpg" />
+  <img src="Z:/picture/008/save_picture_418056.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418042.jpg" />
+  <img src="Z:/picture/008/save_picture_418042.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417902.jpg" />
+  <img src="Z:/picture/008/save_picture_417902.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417765.jpg" />
+  <img src="Z:/picture/008/save_picture_417765.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417763.jpg" />
+  <img src="Z:/picture/008/save_picture_417763.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417761.jpg" />
+  <img src="Z:/picture/008/save_picture_417761.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417688.jpg" />
+  <img src="Z:/picture/008/save_picture_417688.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417642.jpg" />
+  <img src="Z:/picture/008/save_picture_417642.jpg" />
 </div>
 
 

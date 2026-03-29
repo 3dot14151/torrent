@@ -1,3 +1,119 @@
+###  Публикация: 1172827   (392100) от 09.10.2017
+
+Eddie Heywood - 1944 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_392100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T'Ain't Me [03:16]
+02. Indiana [02:38]
+03. Blue Lou [02:55]
+04. Carry Me Back To Old Virginny [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E709EB1D72A16C3F6844AB8D88A670F45F0CC977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173084   (391380) от 10.10.2017
+
+Howard Roberts - Jaunty-Jolly! & Guilty!! (1967) 2001, EMI-Capitol [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait For You [02:26]
+02. So Nice (Summer Samba) [02:42]
+03. Winchester Cathedral [01:53]
+04. Sing No Blues [03:59](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC51A5A4B4DEFAFF60C2C1DA13D6FD70D1DFDD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173308   (390653) от 11.10.2017
+
+Jonathan Poretz - A Lot Of Livin' To Do (2006) ArtFlo Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Lot of Livin' to Do [05:52]
+02. My Time of Day/I've Never Been in Love Before [06:00]
+03. Then I'll Be Tired of You [05:16]
+04. Come Rain or Come Shine [04:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783DA7EBAF2D1431610AA3A8FB5244ABBDDB27BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173303   (390650) от 11.10.2017
+
+Kuh Ledesma - Unforgettable (1986) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fascinating Rhythm [02:57]
+02. It Had to Be You [03:59]
+03. Too Marvelous for Words [03:19]
+04. Singing in the Rain [03:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7998FC6C56576B702BB33392AE3E8187928FDB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173298   (390621) от 11.10.2017
 
 Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Big Band>
@@ -6,7 +122,7 @@ Quincy Jones - Complete Recordings 1960-1962 (2014) 4CD, Enlightenment Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390621.jpg" />
+  <img src="Z:/picture/008/save_picture_390621.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Paul Brown - The City (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390544.jpg" />
+  <img src="Z:/picture/005/save_picture_390544.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Eddie Heywood - 1944-1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389783.jpg" />
+  <img src="Z:/picture/008/save_picture_389783.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ James Carter - Gardenias for Lady Day (2003) Columbia [WavPack|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389781.jpg" />
+  <img src="Z:/picture/008/save_picture_389781.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Toshiko Akiyoshi Trio - Four Seasons (1990) 1999, Nippon Crown [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389056.jpg" />
+  <img src="Z:/picture/008/save_picture_389056.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ New York Unit - Tribute To George Adams (1993) King Record [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389054.jpg" />
+  <img src="Z:/picture/008/save_picture_389054.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Willie Lewis - 1941 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388034.jpg" />
+  <img src="Z:/picture/008/save_picture_388034.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_388019.jpg" />
+  <img src="Z:/picture/005/save_picture_388019.jpg" />
 </div>
 
 
@@ -242,7 +358,7 @@ Fred Hersch - Plays Rodgers & Hammerstein (1996) Nonesuch[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387928.jpg" />
+  <img src="Z:/picture/008/save_picture_387928.jpg" />
 </div>
 
 
@@ -271,7 +387,7 @@ Slide Hampton - Explosion! The Sound Of Slide Hampton (1962) Remaster, 2013, War
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387924.jpg" />
+  <img src="Z:/picture/008/save_picture_387924.jpg" />
 </div>
 
 
@@ -300,7 +416,7 @@ Nat King Cole - Crazy Rhythm! Live 1947-1948 (1947-1948) 1991, Vintage Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387923.jpg" />
+  <img src="Z:/picture/008/save_picture_387923.jpg" />
 </div>
 
 
@@ -329,7 +445,7 @@ Allen Farnham - Meets The RIAS Big Band (1996) 1998, Concord Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387890.jpg" />
+  <img src="Z:/picture/008/save_picture_387890.jpg" />
 </div>
 
 
@@ -358,7 +474,7 @@ Louis Armstrong - Big Bands, Vol.2 (1931 - 1932) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387889.jpg" />
+  <img src="Z:/picture/008/save_picture_387889.jpg" />
 </div>
 
 
@@ -387,7 +503,7 @@ Peter Bernstein - Brain Dance (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387884.jpg" />
+  <img src="Z:/picture/008/save_picture_387884.jpg" />
 </div>
 
 
@@ -416,7 +532,7 @@ Nat King Cole - Tenderly (1951) 1996, The Entertainers[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387828.jpg" />
+  <img src="Z:/picture/008/save_picture_387828.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ Stan Getz & Albert Dailey - Poetry (1983) 2001, Blue Note[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387827.jpg" />
+  <img src="Z:/picture/008/save_picture_387827.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ Mal Waldron - Meditations: Live at Dug (1972) 2016, Somethin' Cool [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387643.jpg" />
+  <img src="Z:/picture/008/save_picture_387643.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387642.jpg" />
+  <img src="Z:/picture/008/save_picture_387642.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387592.jpg" />
+  <img src="Z:/picture/008/save_picture_387592.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387540.jpg" />
+  <img src="Z:/picture/008/save_picture_387540.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387433.jpg" />
+  <img src="Z:/picture/008/save_picture_387433.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387431.jpg" />
+  <img src="Z:/picture/008/save_picture_387431.jpg" />
 </div>
 
 
@@ -634,122 +750,6 @@ Randy Waldman - Superheroes (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0708330AD64719401D0F8A9A5E6794671CF889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574500   (385705) от 05.09.2022
-
-Linda Lavin - Love Notes (2020) Club 44 [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got My Eyes on You [2:35]
-02. Not a Care in the World/Shall We Dance [2:46]
-03. I Wish I Were in Love Again [3:03]
-04. I Can't Tell You Why/I Walk a Little Faster [4:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDA8C11FDCC56A6889F64EF1E4C824D5A4DCC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174467   (385575) от 15.10.2017
-
-James Carter - J.C. on the Set (1994) Columbia [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JC on the Set [06:28]
-02. Baby Girl Blues [07:50]
-03. Worried and Blue [08:08]
-04. Blues for a Nomadic Princess [13:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2D6E892EE1D8E9F304AC9EF5A61A64892D392E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174578   (385574) от 15.10.2017
-
-Eddie Heywood - 1946-1947 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temptation [02:53]
-02. Heywood's Blues [02:35]
-03. I Don't Know Why [03:15]
-04. It's Only A Paper Moon [02:41](   Читать дальше...   )Жанр: Swing, Big Band, Piano JazzПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EAE868824CD139CA460B84FD669B28FFB2F58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174540   (385570) от 15.10.2017
-
-John Pizzarelli  (featuring Daniel Jobim) - Sinatra & Jobim @ 50 (2017) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baubles, Bangles And Beads
-02. Aqua De Beber
-03. Meditation Quiet Nights Of Quiet Stars
-04. Dindi(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BF7940FB2ED7A5F061E27A03034B01CB0AFBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

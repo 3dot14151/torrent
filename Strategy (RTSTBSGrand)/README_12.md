@@ -1,3 +1,29 @@
+###  Публикация: 1078073   (301795) от 30.11.2016
+
+Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) License PROPER-PLAZA
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plague Inc: Evolved - сверхпопулярная игрушка, хорошо знакомая владельцам мобильных устройств, в улучшенном и обновленном виде теперь доступна и владельцам PC. Вы найдете массу интересных дизайнерских и геймплейных находок! Битва началась - Вы vs. Человечество! Вы выбираете болезнь и заражаете нулевого пациента любой из доступных стран мира, после чего буквально (   Читать дальше...   )Тип издания: LicenseРазработчик: Ndemic CreationsЖанр: Strategy (Real-time)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962C17E67389ABE94DD861AB0721277485010A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961972   (296447) от 03.12.2015
 
 Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
@@ -6,7 +32,7 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296447.jpg" />
+  <img src="Z:/picture/008/save_picture_296447.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296301.jpg" />
+  <img src="Z:/picture/008/save_picture_296301.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295154.jpg" />
+  <img src="Z:/picture/008/save_picture_295154.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.38) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290705.jpg" />
+  <img src="Z:/picture/008/save_picture_290705.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288875.jpg" />
+  <img src="Z:/picture/008/save_picture_288875.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288867.jpg" />
+  <img src="Z:/picture/008/save_picture_288867.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277279.jpg" />
+  <img src="Z:/picture/008/save_picture_277279.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Hinterland: A New Kingdom / Hinterland: Das Neue Koenigreich (2010) [Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277277.jpg" />
+  <img src="Z:/picture/008/save_picture_277277.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275939.jpg" />
+  <img src="Z:/picture/008/save_picture_275939.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Sid Meier's Civilization III (2001) [Ru] (1.22) Repack
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275931.jpg" />
+  <img src="Z:/picture/008/save_picture_275931.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275416.jpg" />
+  <img src="Z:/picture/008/save_picture_275416.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275073.jpg" />
+  <img src="Z:/picture/008/save_picture_275073.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.13.0) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274176.jpg" />
+  <img src="Z:/picture/008/save_picture_274176.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Master of Orion Dilogy (1993/1996) [Ru] (1.3/1.31) Repack Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273906.jpg" />
+  <img src="Z:/picture/008/save_picture_273906.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270925.jpg" />
+  <img src="Z:/picture/008/save_picture_270925.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270051.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Polaris Sector (2016) [Ru/En/Sp] (1.06d) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266530.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/En] (1.0.0.3
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264155.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264046.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Age of Empires II: HD Edition (2013) [Ru/En] (5.6/dlc) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263642.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack xa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263320.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262681.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262674.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262666.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262161.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502976   (260352) от 01.06.2012
-
-Defenders of Ardania [Ru] (RePack/1.2) 2012 l Naitro
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Defenders of Ardania – игра в стиле «tower defense», действие которой происходит в фэнтезийной вселенной Majesty. В отличие от других игр данного типа, где нужно устанавливать башни, чтобы остановить продвижение вражеских юнитов, игроки также смогут выступить на стороне нападающих и попытаться уничтожить вражескую базу. Defenders of Ardania также включает в себя элементы RTS. В игре представлено три различные расы с уникальными локациями, башнями и юнитами, а также широкий спектр заклинаний.В игре есть как однопользовательский режим, так и многопользовательский, в котором одновременно может принимать участие от двух до четырех игроков. Они могут сражаться друг против друга или против AI через интернет. Всего в мультиплеере представлено три режима игры.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / Arcade / 3DЯзык интерфейса: Русский (русификатор от R.G. Кинозал.ТВ)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2210F03F94C12E60EE303B168CC25401225E1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

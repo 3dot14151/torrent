@@ -1,3 +1,159 @@
+###  Публикация: 1270320   (262527) от 27.11.2019
+
+Подшивка журналов | Сад своими руками (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6D10A1DA5ED72E3300C9F741A4AC95E94FB169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278674   (262518) от 27.11.2019
+
+Подшивка журналов | Моя прекрасная дача [+спецвыпуски] (2019) [PDF]
+
+>>След.
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моя прекрасная дача - это самые лучшие советы дачников и садоводов, это ваш надёжный друг и помощник! Семена, рассада, полив, уход, хранение урожая, благоустройство участка - вы на всё найдете ответ в выпусках журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFBF823D6884D59AE9CFB3BAA25144BE013A5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192918   (262492) от 19.12.2017
+
+Журнал | Мир садовода №9 (419) (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание для тех, кто хочет вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Каждые 2 недели на страницах издания читатели получают много разнообразной, интересной и полезной информации, которую готовят известные специалисты – доктора и кандидаты сельскохозяйственных и биологических наук, агрономы, ведущие журналисты по садоводческой и огороднической (   Читать дальше...   )Жанр: Дача, сад, цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBF3D59FB92AD0D3509B96842AFD904AA9D242B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193396   (262131) от 21.12.2017
+
+Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193397   (262122) от 21.12.2017
+
+Журнал | Жилая среда №1 (143) (декабрь 2017 - январь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B5EC8C90A73BD979E9BC074ACB15E8DB5DF9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193648   (261980) от 22.12.2017
+
+Журнал | Сваты на даче №12 (36) (декабрь 2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D5B32C9023BA7596F87921877D9ADA1F0CDDC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193639   (261971) от 22.12.2017
 
 Журнал | Садовод и огородник №24 (декабрь 2017) [PDF]
@@ -6,7 +162,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261971.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261804.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261434.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260692.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260611.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260189.jpg" />
+  <img src="Z:/picture/005/save_picture_260189.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259861.jpg" />
+  <img src="Z:/picture/005/save_picture_259861.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259844.jpg" />
+  <img src="Z:/picture/005/save_picture_259844.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259815.jpg" />
+  <img src="Z:/picture/005/save_picture_259815.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259552.jpg" />
+  <img src="Z:/picture/005/save_picture_259552.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259077.jpg" />
+  <img src="Z:/picture/005/save_picture_259077.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259066.jpg" />
+  <img src="Z:/picture/005/save_picture_259066.jpg" />
 </div>
 
 
@@ -323,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259044.jpg" />
+  <img src="Z:/picture/005/save_picture_259044.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259043.jpg" />
+  <img src="Z:/picture/005/save_picture_259043.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258737.jpg" />
+  <img src="Z:/picture/005/save_picture_258737.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258515.jpg" />
+  <img src="Z:/picture/005/save_picture_258515.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258304.jpg" />
+  <img src="Z:/picture/005/save_picture_258304.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258267.jpg" />
+  <img src="Z:/picture/005/save_picture_258267.jpg" />
 </div>
 
 
@@ -480,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_258260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_258260.jpg" />
 </div>
 
 
@@ -506,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258239.jpg" />
+  <img src="Z:/picture/005/save_picture_258239.jpg" />
 </div>
 
 
@@ -517,162 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BECC3A8CF79341571168A6B9237E63406530B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501369   (258234) от 25.05.2012
-
-Журнал | Мебель & интерьер №6 [2012 июнь] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_258234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мебель & Интерьер – журнал о мебели и интерьерных аксессуарах, знакомит читателя с новыми предложениями и тенденциями в этой области. В каждом выпуске журнала есть главная тема номера, которая сфокусирует внимание на интересных идеях оформления интерьера.2012 июньФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B08BF850E6DF3130404EAAD4C853C4D0C0A6532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499634   (256348) от 21.05.2012
-
-Журнал | Домой. Интерьеры плюс идеи №57 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256348.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домой. Интерьеры плюс идеи» - это максимум самой полезной и интересной информации, способной помочь каждому при обустройстве своего жилого пространства. Журнал рассказывает о самых интересных тематических выставках, о новинках техники, материалов, мебели и аксессуаров, знакомит с принципами их выбора, проводит тесты бытового оборудования.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFF335E7956B160AC2448D18FD455C10ECE2B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498340   (253934) от 18.05.2012
-
-Газета | Сад, огород - кормилец и лекарь №10 (май 2012) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253934.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEE4A588971D3F1904AD5ACE00434E9B08F4C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498033   (253732) от 17.05.2012
-
-Подборка журналов | Комнатные и садовые растения [2005-2007] [DJVU, PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое тематическое справочное издание для всех, кто выращивает комнатные цветы и декоративные растения, а также интересуется новыми направлениями в современном фитодизайне. Собрав все выпуски, можно получить оригинальный современный справочник, содержащий подробное описание более 2000 комнатных цветов и декоративных растений. Постоянные рубрики журнала: "Растения (   Читать дальше...   )Формат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476A7B16857604C4FDEDB5537092BDC573266639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497808   (253677) от 17.05.2012
-
-Журнал | Золотая коллекция рецептов № 52. Простые рецепты деревенской кухни [май 2012] [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253677.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Золотая коллекция рецептов» представлены всевозможные рецепты приготовления различных блюд. Тема номера - Простые рецепты деревенской кухнимай 2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB7C79E136802805D064AC40E1896DD9AAFC9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497951   (253641) от 17.05.2012
-
-Газета | Сад, огород - кормилец и лекарь. Спецвыпуск №5 (41) (2012) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253641.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20EF13BE7756C9726A380C5824A8371BED91F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

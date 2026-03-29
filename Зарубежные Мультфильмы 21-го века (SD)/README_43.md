@@ -1,3 +1,108 @@
+###  Публикация: 1259168   (322717) от 02.11.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322717.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Брэд БердПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0706C0FC08020FC30A9CDAF21E821FB30AEF7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727658   (322129) от 27.11.2013
+
+Железный человек и Халк: Союз героев / Iron Man & Hulk: Heroes United (2013) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Халк и Железный человек объединили свои невероятные силы во имя борьбы за спасение человечества, а в это время еще один сверхчеловек стал представлять угрозу для Халка, он телепортируется и постоянно получает улучшенную ДНК, что делает его почти неуязвимым. Только вдвоем можно сразить грозного врага.Производство: СШАЖанр: Мультфильм, Фантастика, БоевикРежиссер: Лео РайлиАктеры: Адриан Пасдар, Ди Брэдли Бейкер, Фред ТатаскьорПеревод: ДублированныйЯзык субтитров: ОтсутствуютПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BEBE63856117DFFDDD50FCE3357E85AC788245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727665   (321807) от 27.11.2013
+
+Железный человек и Халк: Союз героев / Iron Man & Hulk: Heroes United (2013) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321807.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Халк и Железный Человек объединят усилия. Поводом дружбы зеленого гиганта и изобретателя-плейбоя станет угроза со стороны Зззакса (Zzzax) - существа, состоящего из чистой энергии и способного поглощать человеческий разум.
+• Зззакс хорошо знаком поклонникам Халка. Это существо было создано во время террористической атаки на ядерную станцию, вызвавшей взрыв сооружения. (   Читать дальше...   )Производство: США | Marvel StudiosЖанр: Мультфильм, Фантастика, БоевикРежиссер: Лео РайлиАктеры: Адриан Пасдар, Ди Брэдли Бейкер, Фред ТатаскьорПеревод: Дублированный (Лицензия)Продолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA438E3B25DFC4F13CC3AD2AAC801C2B974218CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958755   (321371) от 22.11.2015
+
+Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) DCPRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321371.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Скарт - любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: США / Blue Sky StudiosЖанр: Мультфильм, Короткометражка, КомедияРежиссер: Майк ТёрмайерАктеры: Крис УэджПеревод: Дублированный (Лицензия)Продолжительность: 00:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A194DE9988632BE48935F01AE390B60FE60145F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 843556   (318185) от 25.11.2014
 
 Скуби-Ду: Франкен-монстр / Scooby-Doo! Frankencreepy (2014) HDRip
@@ -6,7 +111,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318185.jpg" />
+  <img src="Z:/picture/008/save_picture_318185.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318118.jpg" />
+  <img src="Z:/picture/008/save_picture_318118.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317596.jpg" />
+  <img src="Z:/picture/008/save_picture_317596.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317097.jpg" />
+  <img src="Z:/picture/008/save_picture_317097.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315942.jpg" />
+  <img src="Z:/picture/008/save_picture_315942.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315461.jpg" />
+  <img src="Z:/picture/008/save_picture_315461.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314820.jpg" />
+  <img src="Z:/picture/008/save_picture_314820.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314804.jpg" />
+  <img src="Z:/picture/008/save_picture_314804.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313885.jpg" />
+  <img src="Z:/picture/008/save_picture_313885.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313289.jpg" />
+  <img src="Z:/picture/008/save_picture_313289.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312485.jpg" />
+  <img src="Z:/picture/008/save_picture_312485.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312442.jpg" />
+  <img src="Z:/picture/008/save_picture_312442.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309433.jpg" />
+  <img src="Z:/picture/008/save_picture_309433.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309128.jpg" />
+  <img src="Z:/picture/008/save_picture_309128.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309106.jpg" />
+  <img src="Z:/picture/008/save_picture_309106.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308956.jpg" />
+  <img src="Z:/picture/008/save_picture_308956.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308922.jpg" />
+  <img src="Z:/picture/008/save_picture_308922.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308739.jpg" />
+  <img src="Z:/picture/008/save_picture_308739.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308471.jpg" />
+  <img src="Z:/picture/008/save_picture_308471.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308033.jpg" />
+  <img src="Z:/picture/008/save_picture_308033.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306637.jpg" />
+  <img src="Z:/picture/008/save_picture_306637.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306484.jpg" />
+  <img src="Z:/picture/008/save_picture_306484.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E5F3E5A2E1BC8E4DC924B56E1A3C7D3926A9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729938   (306250) от 03.12.2013
-
-Самолеты / Planes (2013) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дасти Полейполе — скромный трудяга-самолет, работающий сельскохозяйственным распылителем на заштатном провинциальном аэродроме. Однако это не мешает ему мечтать о том, чтобы однажды принять участие в кругосветных гонках самых быстрых самолетов. Одна незадача — Дасти панически боится большой высоты. Поэтому, когда волею случая он все же попадает в число участников (   Читать дальше...   )Производство: США, Walt DisneyЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Клэй ХоллПерсонажи: Дейн Кук, Стейси Кич, Брэд Гэррет, Тери Хэтчер, Джулия Луис-Дрейфус, Приянка Чопра, Джон Клиз, Седрик «Развлекатель», Карлос Алазраки, Энтони Эдвардс, Вэл Килмер, Синбад, Роджер Крэйг Смит ...Перевод: Дублированный (iTunes Russian)Язык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F93907DF60B1CE7130C2BF76BBE53674A7FE893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846172   (306206) от 30.11.2014
-
-Последняя капля / The Final Straw (2013) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противостояние пугала и вороны.Производство: СШАЖанр: короткометражный мультфильмРежиссер: Рики РеннаПеревод: Без слов / НемойПродолжительность: 00:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C0780C0F02E7F4406041267D4D0720C25ADC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729896   (306124) от 03.12.2013
-
-Самолёты / Planes (2013) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная история о похождениях винтового самолетика в мире современных воздушных кораблей. Маленький самолетик оказывается среди больших крылатых машин, умеющих неподражаемо рассекать воздух и выделяющихся современным дизайном. Самолетик чувствует себя неловко в их обществе. Они же относятся к нему по-разному: кто-то с иронией, а кто-то с заботой.Производство: США, Walt DisneyЖанр: Детский, Приключения, КомедияРежиссер: Клэй ХоллАктеры: Дейн Кук, Стейси Кич, Брэд Гэррет, Тери Хэтчер, Джулия Луис-Дрейфус, Приянка Чопра, Джон Клиз, Седрик «Развлекатель», Карлос Алазраки, Роджер Крэйг СмитПеревод: ДублированныйПродолжительность: 01:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193E869C186B4324F51A53752EB8DA4BE452EF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845717   (305852) от 30.11.2014
-
-Финес и Ферб. Звёздные войны / Phineas and Ferb: Star Wars (2014) WEB-DLRip (ЛанселаП)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь Финес и Ферб отправляются во вселенную Звездных воин. Люк Скайуокер, Р2-Д2 и многие другие персонажи появятся в в этом мультфильме. Все действия происходят на планете Татуин. Здесь все также происходят такие же события, хоть и в новых вселенных. Изабелла - пилот корабля и помогает союзу повстанцев. Кендис жаждет получить планы Звезды смерти. В то время, Перри (   Читать дальше...   )Производство: СШАЖанр: Детский, Рисованная анимация, ПриключенияРежиссер: Роберт Ф. Хьюз, Сью ПерроттоПерсонажи: Финес Флинн, Ферб Флэтчер, Кендэс Флинн, Утконос Перри, Доктор Фуфелшмерц, Изабелла Гарсиа-Шапиро и др.Перевод: Двуголосый закадровый - ЛанселаППродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCD57FFE14CF306EEA0C2130544D9409F34CAD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

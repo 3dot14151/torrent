@@ -1,3 +1,82 @@
+###  Публикация: 1677496   (150212) от 18.11.2023
+
+География Уральских Пельменей - Норвегия (17.11.2023) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь сантехнические проблемы помогают созданию семьи. Здесь поездка на поезде – это школа жизни. Здесь детские страхи иногда приходят во взрослые сны. В новом выпуске «География Уральских Пельменей - Норвегия».Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева и др.Субтитры: ОтсутствуютПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAB8105348D7AFF35556E60FB527DD0B9511429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677478   (150178) от 18.11.2023
+
+Камеди Клаб / Комеди Клаб / Comedy Club (17.11.2023) WEBRip [H.264/1080p] (сезон 19, выпуск 19)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу, которое более чем за 15 лет своего существования изменило представление о юморе! Более 700 выпусков, тысячи номеров, миллионы шуток и зрителей по всему миру. Comedy Club — это всегда актуальные темы, эксперименты с юмором и топовые гости. Смотрите и смейтесь вместе с любимыми резидентами!
+В этом выпуске Comedy Club: Иван Половинкин «Ищу девушку», USB «Кавказский (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморУчастники: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Иван Половинкин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец, Андрей Бебуришвили и др.Субтитры: ОтсутствуютПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0C993EA9C1F431A2872833EAEA0E06034700FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676301   (150046) от 18.11.2023
+
+Лига городов (2023.11.12) SATRip (сезон 1, выпуск 9)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150046.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DF0E9FD9B02C8F4C55F3B3C858A446CF57F4F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677916   (148341) от 19.11.2023
 
 Лига городов (2023.11.19) SATRip (сезон 1, выпуск 10)
@@ -6,7 +85,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148341.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147811.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147176.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147138.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146812.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146480.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145843.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145734.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145608.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144457.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144213.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142523.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140413.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139978.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139969.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139966.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139909.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139874.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ Stand Up (2023.11.24) SATRip (сезон 11, выпуск 10)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139377.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138901.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Stand Up / Павел Воля. Большой Stand-Up (2018.12.30) SATRip
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138675.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Stand Up (2016.12.18) WEB-DL [H.264/720p-LQ] (Концерт Стаса Стар
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138146.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137812.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC9FF4F04FB2EDE281B5242AD7FA4A9A03CEF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088683   (137690) от 31.12.2016
-
-Камеди Клаб. Karaoke Star / Комеди Клаб / Comedy Club (2016.12.31-2017.01.01) SATRip (части 1-2 из 2)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137690.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ решили отказаться от банальных голубых огоньков и устроили новогодний музыкальный баттл. Включайте ТНТ ровно в 23.00, накладывайте салаты, и с набитым ртом подпевайте своим любимым звездам! В вокальном новогоднем баттле сойдутся звезды «Дома-2», шоу «ТАНЦЫ», актеры комедийных проектов «Импровизация», «Однажды в России», Comedy Woman, ситкомов «Ольга» и «Универ», (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAC81D5271F0B9255289146ACE0EA59D33E2514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601345   (137564) от 31.12.2022
-
-Однажды в России (30.12.2022) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3444F642AA9EB84AFB13B5E3A0503DF897AAF3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601329   (137522) от 31.12.2022
-
-Камеди Клаб / Комеди Клаб / Comedy Club (30.12.2022) WEBRip [H.264/720p] (сезон 18, выпуск 17)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное комедийное шоу страны, которое изменило представление о юморе. Более 15-ти лет Comedy Club шутит на самые актуальные темы: реклама, футбол, секс, политика, начальники и подчиненные, новости, светская жизнь и отношения. Для них не существует правил и ограничений. Они запросто могут рассмешить любого человека. Они боги юмора! Не веришь? Тогда смотри и смейся (   Читать дальше...   )Телекомпания: ТНТ (PREMIER)Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83B72A47EA64099DD5F91D0AFF58C02FB9A882D
 ```
 
 https://mybot314.ru/tekegram_catalog/

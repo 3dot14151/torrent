@@ -1,3 +1,29 @@
+###  Публикация: 954079   (344655) от 06.11.2015
+
+Книжная серия | Секрет успеха [12 книг] (2010-2011) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344655.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Секрет успеха» - серия беллетризованных биографий выдающихся людей XX века издательства «Астрель».Жанр: История, Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D588515D256107FECF03E4A252505007C34549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953962   (344653) от 06.11.2015
 
 Андрей Дыфо | Дар Прозерпины (2013) [FB2]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344653.jpg" />
+  <img src="Z:/picture/008/save_picture_344653.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344400.jpg" />
+  <img src="Z:/picture/008/save_picture_344400.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344280.jpg" />
+  <img src="Z:/picture/008/save_picture_344280.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344272.jpg" />
+  <img src="Z:/picture/008/save_picture_344272.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344061.jpg" />
+  <img src="Z:/picture/008/save_picture_344061.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343878.jpg" />
+  <img src="Z:/picture/008/save_picture_343878.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343042.jpg" />
+  <img src="Z:/picture/008/save_picture_343042.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342842.jpg" />
+  <img src="Z:/picture/008/save_picture_342842.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342772.jpg" />
+  <img src="Z:/picture/008/save_picture_342772.jpg" />
 </div>
 
 
@@ -258,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342406.jpg" />
+  <img src="Z:/picture/008/save_picture_342406.jpg" />
 </div>
 
 
@@ -284,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342381.jpg" />
+  <img src="Z:/picture/008/save_picture_342381.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341576.jpg" />
+  <img src="Z:/picture/008/save_picture_341576.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341498.jpg" />
+  <img src="Z:/picture/008/save_picture_341498.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341491.jpg" />
+  <img src="Z:/picture/008/save_picture_341491.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341384.jpg" />
+  <img src="Z:/picture/008/save_picture_341384.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341374.jpg" />
+  <img src="Z:/picture/008/save_picture_341374.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341366.jpg" />
+  <img src="Z:/picture/008/save_picture_341366.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341365.jpg" />
+  <img src="Z:/picture/008/save_picture_341365.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341239.jpg" />
+  <img src="Z:/picture/008/save_picture_341239.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341235.jpg" />
+  <img src="Z:/picture/008/save_picture_341235.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341106.jpg" />
+  <img src="Z:/picture/008/save_picture_341106.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341033.jpg" />
+  <img src="Z:/picture/008/save_picture_341033.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340943.jpg" />
+  <img src="Z:/picture/008/save_picture_340943.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340859.jpg" />
+  <img src="Z:/picture/008/save_picture_340859.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340340.jpg" />
+  <img src="Z:/picture/008/save_picture_340340.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DFD5F679BA25306BA30BC1EAFF3D5916E6B4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954664   (340262) от 08.11.2015
-
-Эрнст Сафонов | Избранное (1991) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340262.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу известного писателя Э. Сафонова вошли повести и рассказы, в которых автор как бы прослеживает жизнь целого поколения — детей войны. С первой автобиографической повести «В нашем доне фашист» в книге развертывается панорама непростых судеб «простых» людей — наших современников.
-
-Они действуют по совести, порою совершая ошибки, но в конечном счете убеждаясь (   Читать дальше...   )Жанр: Советская классическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D29AED6108C1C2D78D94B62B69283F3E5A415DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

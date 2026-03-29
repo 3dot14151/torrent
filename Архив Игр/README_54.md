@@ -6,7 +6,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407783.jpg" />
+  <img src="Z:/picture/008/save_picture_407783.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 5382210/dlc) SteamRip InsaneRamZes [Super
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407753.jpg" />
+  <img src="Z:/picture/008/save_picture_407753.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Control (2020) [Ru/Multi] (1.13/upd2) License GOG [Ultimate Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407737.jpg" />
+  <img src="Z:/picture/008/save_picture_407737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407655.jpg" />
+  <img src="Z:/picture/008/save_picture_407655.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406532.jpg" />
+  <img src="Z:/picture/005/save_picture_406532.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Saints Row The Third + 19 DLC [Ru/En] (RePack/1.0.0.1u4) 2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406473.jpg" />
+  <img src="Z:/picture/008/save_picture_406473.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Dishonored [Ru/En] (L) 2012 | RELOADED 2xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406468.jpg" />
+  <img src="Z:/picture/008/save_picture_406468.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Dishonored [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406463.jpg" />
+  <img src="Z:/picture/008/save_picture_406463.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406299.jpg" />
+  <img src="Z:/picture/005/save_picture_406299.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406284.jpg" />
+  <img src="Z:/picture/005/save_picture_406284.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406252.jpg" />
+  <img src="Z:/picture/008/save_picture_406252.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Doom 3 BFG Edition [En] (RePack) 2012 | R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406072.jpg" />
+  <img src="Z:/picture/008/save_picture_406072.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ DOOM 3 BFG Edition [Xbox 360] [ENG] [Pal] (LT+3.0/15574) (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406010.jpg" />
+  <img src="Z:/picture/008/save_picture_406010.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Magicka / Magicka: Ну очень эпическая игра + 19 DLC [Ru/En] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406009.jpg" />
+  <img src="Z:/picture/008/save_picture_406009.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Halo 4 [Xbox 360] [RegionFree] [Rus] [LT+2.0/15574] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406000.jpg" />
+  <img src="Z:/picture/008/save_picture_406000.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mark of the Ninja [MULTi6/-] (Steam-Rip) 2012 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405999.jpg" />
+  <img src="Z:/picture/008/save_picture_405999.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405482.jpg" />
+  <img src="Z:/picture/008/save_picture_405482.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405437.jpg" />
+  <img src="Z:/picture/005/save_picture_405437.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405364.jpg" />
+  <img src="Z:/picture/008/save_picture_405364.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Spec Ops: The Line + 2 DLC [Ru/En] (RePack/1.0.6890.0) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405359.jpg" />
+  <img src="Z:/picture/008/save_picture_405359.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (RePack/1.0.u.1) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405239.jpg" />
+  <img src="Z:/picture/008/save_picture_405239.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Viking: Battle for Asgard [Ru/En] (RePack/1.0.u.1) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405216.jpg" />
+  <img src="Z:/picture/008/save_picture_405216.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Euro Truck Simulator 2 [Ru/Multi4] (RePack) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405141.jpg" />
+  <img src="Z:/picture/008/save_picture_405141.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ No Man’s Sky (2016) [Ru/Multi] (1.37/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404526.jpg" />
+  <img src="Z:/picture/008/save_picture_404526.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ NBA 2K13 [En] (RePack/1.0.1.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404354.jpg" />
+  <img src="Z:/picture/008/save_picture_404354.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Viking: Battle for Asgard [Ru/En/Multi7] (P/1.0.u.1) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404271.jpg" />
+  <img src="Z:/picture/008/save_picture_404271.jpg" />
 </div>
 
 

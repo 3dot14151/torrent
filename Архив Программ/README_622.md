@@ -6,7 +6,7 @@ AIMP 4.70 Build 2224 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737478.jpg" />
+  <img src="Z:/picture/008/save_picture_737478.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FontCreator Professional Edition 13.0.0.2681 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737473.jpg" />
+  <img src="Z:/picture/008/save_picture_737473.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WinMerge 2.16.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737472.jpg" />
+  <img src="Z:/picture/008/save_picture_737472.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HiBit Uninstaller 2.7.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737381.jpg" />
+  <img src="Z:/picture/008/save_picture_737381.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Firefox Browser ESR 91.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737379.jpg" />
+  <img src="Z:/picture/008/save_picture_737379.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mozilla Thunderbird 91.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737372.jpg" />
+  <img src="Z:/picture/008/save_picture_737372.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Chromium 97.0.4692.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737367.jpg" />
+  <img src="Z:/picture/008/save_picture_737367.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ KiCad 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737364.jpg" />
+  <img src="Z:/picture/008/save_picture_737364.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Firefox Browser 96.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_737363.jpg" />
+  <img src="Z:/picture/005/save_picture_737363.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Whale Browser 3.12.129.46 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737342.jpg" />
+  <img src="Z:/picture/008/save_picture_737342.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Auslogics Registry Cleaner Pro 9.2.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737336.jpg" />
+  <img src="Z:/picture/008/save_picture_737336.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Opera 83.0.4254.27 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737333.jpg" />
+  <img src="Z:/picture/008/save_picture_737333.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Firefox Browser 96.0.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737332.jpg" />
+  <img src="Z:/picture/008/save_picture_737332.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737326.jpg" />
+  <img src="Z:/picture/008/save_picture_737326.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Opera 83.0.4254.27 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737304.jpg" />
+  <img src="Z:/picture/008/save_picture_737304.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ LDPlayer 4.0.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737299.jpg" />
+  <img src="Z:/picture/008/save_picture_737299.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Nox App Player 7.0.2.1009 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737293.jpg" />
+  <img src="Z:/picture/008/save_picture_737293.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Blender 3.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737261.jpg" />
+  <img src="Z:/picture/008/save_picture_737261.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Auslogics Duplicate File Finder 9.2.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737257.jpg" />
+  <img src="Z:/picture/008/save_picture_737257.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Android Studio Bumblebee 2021.1.1 Build #AI-211.7628.21.2111.8092744 + Portable 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737253.jpg" />
+  <img src="Z:/picture/008/save_picture_737253.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BELOFF [dp] 2022
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737247.jpg" />
+  <img src="Z:/picture/008/save_picture_737247.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Internet Download Manager 6.40 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737222.jpg" />
+  <img src="Z:/picture/008/save_picture_737222.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Auslogics BoostSpeed 12.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737218.jpg" />
+  <img src="Z:/picture/008/save_picture_737218.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Topaz A.I. Gigapixel 5.0.3 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737008.jpg" />
+  <img src="Z:/picture/008/save_picture_737008.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ K-Lite Codec Pack Update 16.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736902.jpg" />
+  <img src="Z:/picture/008/save_picture_736902.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ MediaHuman YouTube Downloader 3.9.9.67 (2501) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736897.jpg" />
+  <img src="Z:/picture/008/save_picture_736897.jpg" />
 </div>
 
 

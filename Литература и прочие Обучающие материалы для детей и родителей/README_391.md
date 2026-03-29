@@ -1,3 +1,191 @@
+###  Публикация: 1345431   (166457) от 15.12.2019
+
+А.П. Окладников, Е.А. Окладникова | Заселение Земли человеком (1984) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге выдающегося ученого Героя Социалистического Труда лауреата Государственных премий академика А.П.Окладникова и кандидата исторических наук Е.А.Окладниковой рассматривается проблема происхождения человека, рассказывается об истории заселения Земли. Авторы используют материалы, собранные во время экспедиций и путешествий, археологических раскопок.Жанр: Детская энциклопедия, познавательная литература, историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377DE20DE3D2F85B1DE94ACF08A2C54619307922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299068   (166451) от 14.12.2020
+
+Jose Maria Chaquet Ulldemolins |Коллекция самолетов: реальные модели в технике оригами| Aviones de Colección: Modelos Realistas en Papiroflexia (2005) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самолёты в технике оригами для профессионалов.
+Se presentan 18 modelos de aeronaves que tienen gran peso en la historia aeronáutica, cabe destacar los autogiros de Juan de la Cierva y aviones emblemáticos de las dos Guerras Mundiales.
+En cuanto a las tйcnicas utilizadas la mayoria pueden plegarse en menos de 50 pasos. El desarrollo de las figuras utilizan (   Читать дальше...   )Жанр: ОригамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005BCBDF939DF95313EE95D728A209007E83EF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259385   (166432) от 14.12.2020
+
+Стивен У. Мойе | Занимательные опыты с бумагой (2007) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы узнаете, как провести 100 увлекательных научных опытов с бумагой. Все опыты распределены по нескольким категориям: бумага и воздух, опыты на равновесие, химические опыты, опыты с электричеством и магнетизмом, предметы, умеющие летать, опыты с нагревом, со светом, с движением и инерцией, шумелки и сопелки, топологические опыты, опыты с водой и другие. (   Читать дальше...   )Жанр: Образование, развитиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3F363BC116E06A989F3EE4EE1515CE2468B1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345458   (166420) от 15.12.2019
+
+Н.А. Мезенин | Занимательно о железе (1985) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словом "железо" обозначают всю совокупность черных металлов, изделия из чугуна и стали. В сплавах на основе железа сочетаются прочность, пластичность, способность превращаться в изделия любой формы и противостоять ударным нагрузкам, работать при очень низких и довольно высоких температурах.
+Книга рассказывает о том главном, чем связаны все металлургические (   Читать дальше...   )Жанр: Познавательная литература, Детская энциклопедияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18503A2F80E4B69FB08C915F5C2BD3C78360CD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357056   (166411) от 10.12.2021
+
+Библиотека для детей: «Детская литература и сказки»(283 произведения) [2010] [CHM]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166411.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2010 году ЛенИздат совместно с Детской литературой выпустило большой сборник детской литературы. Он – перед вами.
+Переоформлен в CHM (для интернета). Далее, вы, наверное, хотите знать, что же такое CHM книги? Отвечаю – это, прежде всего, красота. Книги прекрасно оформлены и выглядят именно какЖанр: Детская литератураФормат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50246D0B3E67021AE8AA74D87D0A8BA2927CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300129   (166405) от 14.12.2020
+
+Майкл Г. Ля Фосс/Michael G. LaFosse's | Бабочки оригами - невероятная область для иследования новых схем и дизайна/Origami Butterflies. A field of Discovery Through a System of Design (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам нравятся бабочки? Я думаю, что ответ будет положительным, ведь бабочки невероятно красивы! А вам нравятся бабочки оригами, искусно сложенные из бумаги?
+Сложно отыскать человека, который никогда не видел этих очаровательных созданий. Они обитают в любой части нашей планеты, в каждом ее уголке, ну, пожалуй, за исключением Антарктиды. И насколько широко их место (   Читать дальше...   )Жанр: ОригамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD740065245F3E265C703EDF5488B9EDA38D126B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299080   (166395) от 14.12.2020
+
+Томоко Фусэ/Tomoko Fuse | Коробочки оригами/Origami boxes (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный раздел оригами - коробки. Представляет зазнообразие типов коробочек от простых до многогранных. В придверии праздников из этой книги можно почерпнуть множество идей по оформлению подарков.
+   Tomoko Fuse  (родилась в 1951 году в префектуре Ниигата) — японский дизайнер моделей оригами и автор множества книг, посвящённых этому искусству. Фусэ является почётным (   Читать дальше...   )Жанр: ОригамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D6A6E35369AE89C156E57C0A3CA74A0303F320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516463   (166300) от 11.12.2021
 
 Трой Каммингс | Роковая тетрадь. Восстание надувных верзил. Книга 1 (2020) [FB2, EPUB, MOBI]
@@ -6,7 +194,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166300.jpg" />
 </div>
 
 
@@ -32,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166295.jpg" />
 </div>
 
 
@@ -59,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166292.jpg" />
 </div>
 
 
@@ -85,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166281.jpg" />
 </div>
 
 
@@ -111,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166273.jpg" />
 </div>
 
 
@@ -137,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166247.jpg" />
 </div>
 
 
@@ -163,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166241.jpg" />
 </div>
 
 
@@ -190,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166225.jpg" />
 </div>
 
 
@@ -216,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166217.jpg" />
 </div>
 
 
@@ -243,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166210.jpg" />
 </div>
 
 
@@ -269,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166204.jpg" />
 </div>
 
 
@@ -296,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166166.jpg" />
 </div>
 
 
@@ -324,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166157.jpg" />
 </div>
 
 
@@ -352,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166134.jpg" />
 </div>
 
 
@@ -380,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166128.jpg" />
 </div>
 
 
@@ -406,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166098.jpg" />
 </div>
 
 
@@ -432,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166021.jpg" />
 </div>
 
 
@@ -458,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165847.jpg" />
 </div>
 
 
@@ -485,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165840.jpg" />
 </div>
 
 
@@ -497,194 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A806F9DCFE1C68E94EB41890B97FFCB47FBB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345832   (165825) от 16.12.2019
-
-Черстин Лундберг Хан | Печенье счастья (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятилетний Оскар ‒ самый обычный парень, а вот его родители любят почудить. Папа работает простым гитарным мастером, но всегда мечтал о карьере оперного певца, поэтому во всех помещениях с хорошей акустикой он начинает… петь!
-А мама Оскара – талантливая парикмахер, которая обожает исполнять к месту и не к месту различные танцы, заставляя мальчика краснеть (   Читать дальше...   )Жанр: Проза для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F9D9E3AF4CA2EE93027E796869F70BE5338D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328890   (165799) от 15.12.2020
-
-Ирина Гурина | Быстро учимся считать (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для чтения родителями детям.
-Короткие четверостишия и яркие иллюстрации помогут детям научиться быстро считать.Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743551345233E9CFF12C0A0C8C629968FB9E77F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330238   (165792) от 15.12.2020
-
-Проф-Пресс | Скороговорки для самых маленьких (2007) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скороговорки для самых маленьких - это красочная книга из серии "Учимся правильно говорить". Веселых занятий с малышом!Жанр: Обучение и развитие детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37032CD2C54240A6AAAB14D54E7D8D3A7EAD016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345721   (165780) от 16.12.2019
-
-Игры и забавы (1913) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детские игры и развлечения.
-Для младшего и среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DC99A160FD6FC8A05CB7246C9EAC2DAF92AC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300118   (165658) от 15.12.2020
-
-Eiji Nakamura | Летающие самолеты оригами - от простых развлечений до истинной науки (1980) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165658.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора:
-Мои познания многочисленных и достижимых форм оригами восходят к моему детству. Однажды вечером, когда мне было четыре года, моя мама сложила мне бумажный самолет: чудо и очарование той фигурки более не оставляли меня пятьдесят с лишним лет...Жанр: ОригамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E2F7CA3FA2C9715FD206058CDB5688E334B870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343052   (165625) от 16.12.2019
-
-Ольга Добровольская, Ольга Хухлаева | Как наладить сон ребенка. Важные знания, практические советы, сонные сказки (2020) [PDF, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая мама знает, как важен здоровый сон для малыша и всех членов его семьи. Если ребенку сложно уснуть, если он просыпается по ночам или отказывается спать днем, если он устает и капризничает… Словом, если вы никак не можете наладить сон вашего малыша, будь то младенец или школьник, – эта книга для вас.
-
-Психолог, сомнолог, руководитель центра детского сна «Sleep (   Читать дальше...   )Жанр: Психология, Воспитание детейФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE33E736EDE79E04DF4BA8B7EA617E65A410195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345731   (165552) от 16.12.2019
-
-Клиффорд Саймак | Миры Клиффорда Саймака [18 книг] (1992-1995) [FB2, PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165552.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1992 году издательство «Полярис» запустило серию «Миры Клиффорда Саймака. Полное собрание фантастических произведений в 16 томах». В свет вышел первый том, была объявлена подписка на остальные – однако следующие книги стали появляться только после годового перерыва. В 1994 году были изданы последние книги, но оказалось, что при составлении были допущены ошибки, (   Читать дальше...   )Жанр: Детская проза, Научная фантастикаПеревод: А. Козловский, Н. СосновскаяФормат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5CB64E869065B52DF8F88B8A33F6C5CDBBE02E
 ```
 
 https://mybot314.ru/tekegram_catalog/

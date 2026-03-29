@@ -1,3 +1,81 @@
+###  Публикация: 1770157   (32545) от 30.12.2024
+
+Игра в кальмара / Ojingeo geim / Squid Game (2024) WEB-DLRip [H.264] (сезон 2, серии 1-7 из 7) HDRezka Studio
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32545.jpg" />
+</div>
+
+
+###  Подробнее
+
+456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Многоголосый профессиональный - (HDRezka Studio)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E774C2F0F3BCD37E65852D2FE816D7F34C79BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770626   (32067) от 04.01.2025
+
+Игра в кальмара / Ojingeo geim / Squid Game (2021-2024) WEB-DL [H.264/1080p] (сезон 1-2, серии 1-16 из 16) LostFilm
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32067.jpg" />
+</div>
+
+
+###  Подробнее
+
+456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Многоголосый профессиональный - (LostFilm)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), корейские (Forced, Full), английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B8CA653202A1EB091C17898CFA3172A256583B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770087   (32062) от 04.01.2025
+
+Игра в кальмара / Ojingeo geim / Squid Game (2024) WEB-DLRip (сезон 2, серии 1-7 из 7) LostFilm
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32062.jpg" />
+</div>
+
+
+###  Подробнее
+
+456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Многоголосый профессиональный - (LostFilm)Язык озвучки: Русский, английский, корейскийСубтитры: Русские (Forced, Full) - отдельные файлы, английские - отдельные файлы.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975BC609546C4C09A92F1A3D81050BEA7CDD2B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767435   (31974) от 05.01.2025
 
 Набранный вами номер / Когда звонит телефон / Jigeum Geosin Jeonhwaneun / When the Phone Rings (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) LE-Production
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31974.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31124.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30997.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28018.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27028.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26521.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26133.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23811.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23192.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22979.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22035.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21470.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21462.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19684.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16149.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13105.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12998.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12877.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12494.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12472.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12448.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11682.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11678.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD482BEA65B56CBF3C6B8852952F5B5364C9B50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804154   (11270) от 17.07.2025
-
-Игра в кальмара / Ojingeo geim / Squid Game (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 3, серии 1-6 из 6) Videofilm, Red Head Sound, HDrezka, LostFilm, TVShows, WStudio, LE-Production, Сербин
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сон Ги-хун уже немолод, разведён, по уши погряз в долгах и сидит на шее у старенькой матери. Даже выигранные на скачках деньги в его руках долго не задерживаются, и однажды он встречает в метро загадочного незнакомца, который сначала предлагает сыграть в детскую игру, а затем вручает Ги-хуну немалую сумму и визитку. Но радость мужчины сменятся отчаянием, когда он (   Читать дальше...   )Производство: Корея Южная, NetflixЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Videofilm, Red Head Sound), Многоголосый (HDrezka, LostFilm, TVShows, WStudio, LE-Production), Авторский (Ю. Сербин)Язык озвучки: Русский, украинский, английский, корейскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH), корейские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D275DC2B4739452CB41839EF5F29C17B457E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804114   (11261) от 17.07.2025
-
-Игра в кальмара / Ojingeo geim / Squid Game (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit] (сезон 3, серии 1-6 из 6) Videofilm, Red Head Sound, HDrezka, LostFilm, TVShows ...
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сон Ги-хун уже немолод, разведён, по уши погряз в долгах и сидит на шее у старенькой матери. Даже выигранные на скачках деньги в его руках долго не задерживаются, и однажды он встречает в метро загадочного незнакомца, который сначала предлагает сыграть в детскую игру, а затем вручает Ги-хуну немалую сумму и визитку. Но радость мужчины сменятся отчаянием, когда он (   Читать дальше...   )Производство: Корея Южная, NetflixЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Videofilm, Red Head Sound), Многоголосый (HDrezka, LostFilm, TVShows, WStudio, LE-Production), Авторский (Ю. Сербин)Язык озвучки: Русский, украинский, английский, корейскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH), корейские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0A6C6876A527608C620CCD4419823A4541E7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820363   (546) от 27.09.2025
-
-Ночная фотостудия / Yahan sajingwan / The Midnight Studio (2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-16 из 16) TVShows
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий фотограф Со Ки Чжу работает в маленькой фотостудии открытой по ночам, предназначенной только для призраков. Его судьбу неожиданно меняет встреча со справедливой юристкой Хан Бом, которая спасает его и учится по-другому смотреть на мир.Производство: Южная Корея / CJeS Studios, ENA, Slingshot Studios, Studio GenieЖанр: мелодрама, фэнтезиРежиссер: Сон Хён-укАктеры: Чу Вон, Квон На-ра, Ю Ин-су, Ым Мун-сок, Хан Гру, Ан Чхан-хван, Пак Чон-а, Ким Ён-ок, Ли Бом-со-ри, Хан Сан-джинПеревод: Дублированный (TVShows)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~01:08:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E8DCD34B453718F28139A2777260D7576A067D
 ```
 
 https://mybot314.ru/tekegram_catalog/

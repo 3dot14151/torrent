@@ -1,3 +1,55 @@
+###  Публикация: 1586605   (204692) от 27.10.2022
+
+El Matador (2006) [Ru/Multi] (1.1) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204692.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жаркую зелень джунглей Южной Америки, на улицы ее городов и деревень пришли новые хозяева. Они не знают страха. Им не ведома жалость. Эти люди называют себя la Valedora и все они одержимы одним желанием - создать самый могучий наркокартель, истинную империю, способную запустить ядовитые щупальца в самые отдаленные уголки мира.Тип издания: LicenseРазработчик: Plastic Reality TechnologiesЖанр: Экшны, От третьего лицаЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56F1C56B251BE9D20ED89538612461BB3333028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608919   (203267) от 01.02.2023
+
+The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_203267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас презирает вся страна. Подземный мир манит вас. От вас отвернулись даже пираты. Ваш парик воняет мышатиной. Итак, вы Малькольм, тот самый злополучный придворный шут Кирандии, которого ненавидят все. Но теперь у вас появился единственный шанс спасти свою непонятую душу. Немногим из тех, кого считают злодеями, удается изложить свой взгляд на происходящее. Но в третей (   Читать дальше...   )Тип издания: LicenseРазработчик: Westwood StudiosЖанр: Приключение, Квест, ФэнтeзиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF377F4CC96C6A149B9A20CA2FB4733A6108737C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609295   (203228) от 02.02.2023
 
 The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203228.jpg" />
+  <img src="Z:/picture/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202746.jpg" />
+  <img src="Z:/picture/004/save_picture_202746.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202524.jpg" />
+  <img src="Z:/picture/004/save_picture_202524.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202484.jpg" />
+  <img src="Z:/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Cities in Motion (2011) [Multi] (1.0.22/dlc) License GOG [Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_202021.jpg" />
+  <img src="Z:/picture/005/save_picture_202021.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Gary Grigsby's War in the West (2014) [En] (1.02.59/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201941.jpg" />
+  <img src="Z:/picture/005/save_picture_201941.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Demise: Rise of the Ku'tan (2000) [En] (1.0r353) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201899.jpg" />
+  <img src="Z:/picture/005/save_picture_201899.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201860.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Urban Chaos (1999) [En] (2.69) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201246.jpg" />
+  <img src="Z:/picture/005/save_picture_201246.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Gary Grigsby's War in the East (2010) [Multi] (1.11.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201097.jpg" />
+  <img src="Z:/picture/005/save_picture_201097.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200757.jpg" />
+  <img src="Z:/picture/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200756.jpg" />
+  <img src="Z:/picture/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200741.jpg" />
+  <img src="Z:/picture/005/save_picture_200741.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Outcast 1.1 (1999) [Multi] (18970) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200730.jpg" />
+  <img src="Z:/picture/005/save_picture_200730.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ DeathKeep (1995) [En] (3.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200541.jpg" />
+  <img src="Z:/picture/005/save_picture_200541.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200513.jpg" />
+  <img src="Z:/picture/005/save_picture_200513.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Overlord Ultimate Evil Collection (2007-2015) [Ru/Multi] (1.4/1.0/1.0.15.4016/dl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199944.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Star Wars TIE Fighter (1994) [En] (1.0/dlc) License GOG [Special Edition]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199777.jpg" />
+  <img src="Z:/picture/005/save_picture_199777.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199748.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198998.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ ArcaniA: Fall of Setarrif (2011) [Multi] (1.1499.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198990.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198799.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DE36F00BBF81A6DD639E24878FB33E1FC059B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633291   (198400) от 14.05.2023
-
-Legacy of Kain: Defiance (2003) [Multi] (1.1hf) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legacy of Kain: Defiance – атмосферный слэшер, выполненный в жанре приключенческого экшена с элементами фэнтези. Данная игра является пятой частью из целой серии ролевых игр. Данная игра повествует нам о событиях, которые происходят сразу же после окончания предыдущей главы «Legacy of Kain: Soul Reaver 2». Мотивы главного героя Каина стали более разумными и понятными. (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal DynamicsЖанр: Экшны, От третьего лицаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B7B3A1E1485DA9312E1430814890B51E40A5D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637721   (197402) от 06.06.2023
-
-Warhammer 40,000: Chaos Gate (1998) [En] (1.2hf3) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговая стратегия, действия которой происходят в параллельной технологической вселенной. Под вашим управлением находится несколько отрядов Ультрамаринов. Грамотно распоряжайтесь ресурсами и дайте отпор красной армии Хаоса и космическому десанту Несущих Слова. Исследуйте карту, уничтожайте соперников и захватывайте как можно больше территории, ведь она богата полезными (   Читать дальше...   )Тип издания: LicenseРазработчик: Random Games Inc.Жанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DA4327C2E06DCE431EC86164C5A932FEF8493F
 ```
 
 https://mybot314.ru/tekegram_catalog/

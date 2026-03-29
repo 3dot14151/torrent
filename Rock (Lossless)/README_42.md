@@ -1,3 +1,148 @@
+###  Публикация: 1121141   (799670) от 03.04.2017
+
+Alaska - The Bronze Years (2001) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799670.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Run With the Pack (Badhams, Hawthorn, Marsden) 3:49
+2.Woman Like You (Badhams) 3:37
+3.Where Did They Go (Bonneville Blues) (Badhams, Hawthorn, Marsden) 4:41
+4.School Girl (Hawthorn, Marsden, Sinfield) 5:07(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B746A36254B5598E3491FC0F4D84539AF456504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121502   (799620) от 03.04.2017
+
+Tommy Shaw - 7 Deadly Zens (1998) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ocean
+02 - Stop Knockin'
+03 - All In How You Say It
+04 - What Do You Want From Life(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990F1641BF9C6A0D322181C0D62B7CF87478C22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121664   (799587) от 03.04.2017
+
+The Doors - The Doors (50th Anniversary Deluxe Edition) (1967) 3CD, Remastered, 2017 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799587.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1.
+01/11. Break On Through (To The Other Side) (Original Stereo Mix) (2:30)
+ 02/11. Soul Kitchen (Original Stereo Mix) (3:35)
+ 03/11. The Crystal Ship (Original Stereo Mix) (2:34)(   Читать дальше...   )Жанр: RockПродолжительность: 02:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438EA203F0E2C81C7CEB6E7F4CDB741500531D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506753   (799540) от 01.11.2021
+
+Others by No One - Book II: Where Stories Come From (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Raindrops
+02. An Artwork; Clandestine
+03. A Reverie to Quell the Giants
+04. Right Side of the Brain(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Rock OperaПродолжительность: 01:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6614553C7EA7CE3C3933F4B64AAA3E52EFAF0A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506760   (799499) от 01.11.2021
+
+Sonus Orbis - Anthropoid Notion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apsophetos (05:29)
+02. No Country Man (07:07)
+03. Strangers (06:58)
+04. Owner of the World (04:22)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA6AB30D0AECB64430D93D2BC88E5AE094676AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122166   (799158) от 04.04.2017
 
 T. Rex - Greatest Hits (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Glam Rock>
@@ -6,7 +151,7 @@ T. Rex - Greatest Hits (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Gl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799158.jpg" />
+  <img src="Z:/picture/008/save_picture_799158.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799084.jpg" />
+  <img src="Z:/picture/008/save_picture_799084.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Delta Saints - Monte Vista (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798827.jpg" />
+  <img src="Z:/picture/008/save_picture_798827.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Cat Stevens - Teaser And Firecat (1971) Reissue, 1987 [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798290.jpg" />
+  <img src="Z:/picture/008/save_picture_798290.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Byrds - The Very Best Of The Byrds (1988) [FLAC|Lossless|tracks + .cue]<Clas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798278.jpg" />
+  <img src="Z:/picture/008/save_picture_798278.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Peter Gabriel & Friends - Big Blue Ball (2008) [FLAC|Lossless|tracks + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797967.jpg" />
+  <img src="Z:/picture/008/save_picture_797967.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Toby Hitchcock - Changes (2021) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797547.jpg" />
+  <img src="Z:/picture/008/save_picture_797547.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797512.jpg" />
+  <img src="Z:/picture/008/save_picture_797512.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Smokie - Gold (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797382.jpg" />
+  <img src="Z:/picture/008/save_picture_797382.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Invertigo - Veritas (2012) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796917.jpg" />
+  <img src="Z:/picture/008/save_picture_796917.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ The Atomic Bitchwax - Force Field (2017) [FLAC|Lossless|tracks] <Hard Rock, Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796910.jpg" />
+  <img src="Z:/picture/008/save_picture_796910.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Memoria Avenue - Memoria Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796870.jpg" />
+  <img src="Z:/picture/008/save_picture_796870.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Procol Harum - Conquistador (1991) [FLAC|Lossless|image + .cue]<Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796811.jpg" />
+  <img src="Z:/picture/008/save_picture_796811.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Glass Hammer - Dreaming City (2020) [FLAC|Lossless|tracks + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796668.jpg" />
+  <img src="Z:/picture/008/save_picture_796668.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Metal For The Masses 7th Deadly (2008) [FLAC|Lossless|image + .cue] <Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796433.jpg" />
+  <img src="Z:/picture/008/save_picture_796433.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Circa Survive - The Amulet (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796376.jpg" />
+  <img src="Z:/picture/008/save_picture_796376.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Jim Peterik And World Stage - Tigress: Women Who Rock The World (2021) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796280.jpg" />
+  <img src="Z:/picture/008/save_picture_796280.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ The Animals - The Best Of (2000) compilation [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796121.jpg" />
+  <img src="Z:/picture/008/save_picture_796121.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795698.jpg" />
+  <img src="Z:/picture/008/save_picture_795698.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Billy Squier - Absolute Hits (2005) [FLAC|Lossless|image + .cue] <Rock, Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795577.jpg" />
+  <img src="Z:/picture/008/save_picture_795577.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_795009.jpg" />
+  <img src="Z:/picture/005/save_picture_795009.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Groundbreaker - Soul To Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97C185907390D51142BA38C5C64C943427992546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509428   (794959) от 12.11.2021
-
-T. Rex - Bolan Boogie (1988) [FLAC|Lossless|image + .cue]<Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It On
-02. Beltane Walk
-03. The King Of The Mountain Cometh
-04. Jewel(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A593B77910A703F58187187BEC4503A62FBA5F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200659   (794907) от 22.01.2018
-
-Placebo - Covers (2003) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Up That Hill (4:57)
- 02. Where Is My Mind (3:45)
- 03. Bigmouth Strikes Again (3:55)
- 04. Johnny And Mary (3:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307FB48A43C2462EB864E32AA7B07CFAD8B3FFC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509287   (794888) от 12.11.2021
-
-Jethro Tull - Benefit (1970) 4xCD, The 50th Anniversary Enhanced Edition, Compilation, Remastered, 2021, Chrysalis [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794888.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Original Album (A Steven Wilson Stereo Remix):
-01. With You There to Help Me (2013 mix)
-02. Nothing to Say (2013 mix)
-03. Alive and Well and Living In (2013 mix)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 04:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120D18644B78EA0682354A5A5C7B48B44B7DE157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509430   (794821) от 12.11.2021
-
-The Jimi Hendrix Experience - Radio One (1989) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free 3:23
-02. Radio One Theme 1:17
-03. Day Tripper 3:18
-04. Killing Floor 2:27(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC74B3E90A5F4D6F3E3E08F5A51A11607566F926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012071   (794720) от 30.04.2016
-
-VA - Essential Collection - Rock and Roll volume 1 (1995) 2CD [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Berry - Rebel Without a Cause
-02. Chicago - Beginning
-03. Joe Brown - Rock'n' Reel
-04. Jeff Beck - Nervous(   Читать дальше...   )Жанр: RockПродолжительность: 02:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF3C317E920AE1E690A596EB2DE78E73E5D4F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

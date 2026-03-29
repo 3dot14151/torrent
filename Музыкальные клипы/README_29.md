@@ -1,3 +1,85 @@
+###  Публикация: 1416369   (335342) от 30.10.2020
+
+Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Korn - Can You Hear Me
+02 Korn - Finally FreeЖанр: ChansonПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25F87ED6F0612E3F993200236CA166EDA42AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955961   (330833) от 13.11.2015
+
+VA - Осенний марафон № 204 / Видеоклипы (Дискотека с размахом № 3) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (12.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Do It For Love (Official Video) (00:03:11)
+02. Alexander Rybak ft. Pernille Hogstad Stene - Venner fra fortellingen om Trolle (Official Video) (00:03:29)
+03. Betta - Maria Magdalena (Official Video) (00:03:49)
+04. Chris Largo ft. Orry Jackson - I Want U Now (Official Video) (00:03:36)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Chill Out, Rap, Indie, RockПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44FD63235359B20973236D7159B5ABDED14C12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412703   (328500) от 23.11.2011
+
+Виктория Дайнеко - Видеография (2005 - 2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальное видео, клипы, концерт, POPПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957456   (326391) от 18.11.2015
 
 VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
@@ -6,7 +88,7 @@ VA - Осенний марафон № 205 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326391.jpg" />
+  <img src="Z:/picture/008/save_picture_326391.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ Skrillex & The Doors. Breakn A Sweat (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322590.jpg" />
+  <img src="Z:/picture/008/save_picture_322590.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ The Rolling Stones - Doom And Gloom (Uncensored Version) (2012)  [H.264/1080p] W
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322306.jpg" />
+  <img src="Z:/picture/008/save_picture_322306.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ VA - Осенний марафон № 206: Дискотека с размахо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321245.jpg" />
+  <img src="Z:/picture/008/save_picture_321245.jpg" />
 </div>
 
 
@@ -116,7 +198,7 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321147.jpg" />
+  <img src="Z:/picture/008/save_picture_321147.jpg" />
 </div>
 
 
@@ -142,7 +224,7 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321142.jpg" />
+  <img src="Z:/picture/008/save_picture_321142.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320966.jpg" />
+  <img src="Z:/picture/008/save_picture_320966.jpg" />
 </div>
 
 
@@ -194,7 +276,7 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320949.jpg" />
+  <img src="Z:/picture/008/save_picture_320949.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320760.jpg" />
+  <img src="Z:/picture/008/save_picture_320760.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320737.jpg" />
+  <img src="Z:/picture/008/save_picture_320737.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320526.jpg" />
+  <img src="Z:/picture/008/save_picture_320526.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320380.jpg" />
+  <img src="Z:/picture/008/save_picture_320380.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319004.jpg" />
+  <img src="Z:/picture/008/save_picture_319004.jpg" />
 </div>
 
 
@@ -353,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315360.jpg" />
+  <img src="Z:/picture/008/save_picture_315360.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314869.jpg" />
+  <img src="Z:/picture/008/save_picture_314869.jpg" />
 </div>
 
 
@@ -405,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314216.jpg" />
+  <img src="Z:/picture/008/save_picture_314216.jpg" />
 </div>
 
 
@@ -431,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314087.jpg" />
+  <img src="Z:/picture/008/save_picture_314087.jpg" />
 </div>
 
 
@@ -461,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312868.jpg" />
+  <img src="Z:/picture/008/save_picture_312868.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312197.jpg" />
+  <img src="Z:/picture/008/save_picture_312197.jpg" />
 </div>
 
 
@@ -513,7 +595,7 @@ Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311924.jpg" />
+  <img src="Z:/picture/008/save_picture_311924.jpg" />
 </div>
 
 
@@ -539,7 +621,7 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311754.jpg" />
+  <img src="Z:/picture/008/save_picture_311754.jpg" />
 </div>
 
 
@@ -568,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311497.jpg" />
+  <img src="Z:/picture/008/save_picture_311497.jpg" />
 </div>
 
 
@@ -598,7 +680,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310183.jpg" />
+  <img src="Z:/picture/008/save_picture_310183.jpg" />
 </div>
 
 
@@ -610,84 +692,6 @@ Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584646   (307911) от 04.12.2012
-
-Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний клипЖанр: RapПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584559   (307902) от 04.12.2012
-
-Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584650   (307582) от 04.12.2012
-
-The Best of...(vol.3) (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
 ```
 
 https://mybot314.ru/tekegram_catalog/

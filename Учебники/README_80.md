@@ -1,3 +1,56 @@
+###  Публикация: 1639612   (247593) от 14.06.2023
+
+А.С. Кравчук и др. | ООП в языке Java. Сборник заданий и тематических примеров (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник заданий предназначен для проработки приемов объектно-ориентированного программирования в языке Java. Издание содержит задачи на обработку массивов, реализацию интерфейсов, наследование, использование коллекций, дженериков и лямбда-выражений. В каждой теме приводятся примеры решения типовых задач и варианты индивидуальные заданий. Издание ориентировано в первую (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449814154F381169EEC1B923F25B15486E95DA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640148   (247554) от 16.06.2023
+
+В.Д. Боев, Р.П. Сыпченко | Компьютерное моделирование (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс имитационного моделирования под разными названиями: "Моделирование" и т.п. является обязательным в учебных планах технических ВУЗов, в том числе и военных. Соответствующие знания включены в квалификационные характеристики выпускников. Настоящий курс представляет собой учебное пособие для изучения материала по этим дисциплинам.
+Содержание курса определено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC960C94568181493960E2B5E51602675F7952F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640420   (247530) от 17.06.2023
 
 В.Ю. Ачкасов | Программирование баз данных в Delphi (2016) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247530.jpg" />
+  <img src="Z:/picture/004/save_picture_247530.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247508.jpg" />
+  <img src="Z:/picture/004/save_picture_247508.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246611.jpg" />
+  <img src="Z:/picture/004/save_picture_246611.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246575.jpg" />
+  <img src="Z:/picture/004/save_picture_246575.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246268.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245996.jpg" />
+  <img src="Z:/picture/004/save_picture_245996.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245881.jpg" />
+  <img src="Z:/picture/004/save_picture_245881.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245756.jpg" />
+  <img src="Z:/picture/004/save_picture_245756.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245364.jpg" />
+  <img src="Z:/picture/004/save_picture_245364.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244624.jpg" />
+  <img src="Z:/picture/004/save_picture_244624.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244537.jpg" />
+  <img src="Z:/picture/004/save_picture_244537.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244489.jpg" />
+  <img src="Z:/picture/004/save_picture_244489.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244331.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243949.jpg" />
+  <img src="Z:/picture/004/save_picture_243949.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243557.jpg" />
+  <img src="Z:/picture/004/save_picture_243557.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243181.jpg" />
+  <img src="Z:/picture/004/save_picture_243181.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242999.jpg" />
+  <img src="Z:/picture/005/save_picture_242999.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242563.jpg" />
+  <img src="Z:/picture/005/save_picture_242563.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242257.jpg" />
+  <img src="Z:/picture/005/save_picture_242257.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241753.jpg" />
+  <img src="Z:/picture/004/save_picture_241753.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241312.jpg" />
+  <img src="Z:/picture/004/save_picture_241312.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241246.jpg" />
+  <img src="Z:/picture/004/save_picture_241246.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241234.jpg" />
+  <img src="Z:/picture/004/save_picture_241234.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240880.jpg" />
+  <img src="Z:/picture/004/save_picture_240880.jpg" />
 </div>
 
 
@@ -626,61 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D39075D5C5AF5CC65275CA9A9B0F74323CE9BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626633   (240547) от 15.04.2023
-
-О. Иванов, С. Климчук | Математический анализ для первокурсников (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, предлагаемая вниманию читателя, состоит из двух формально независимых текстов, дополняющих как друг друга, так и стандартный курс математического анализа (как часть курса высшей математики ) для первокурсников нематематических специальностей вузов.
-С точки зрения хронологии первой была написана и издана (на английском языке) ее вторая часть – Контрпримеры (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C81C2C67A4BD9D4A6FDB02F82FDD7A9C9727910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545748   (240219) от 21.04.2022
-
-Нейман Л.Р., Демирчян К.С. | Теоретические основы электротехники [2 книги] (1967) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для студентов электротехнических, энергетических и радиотехнических высших учебных заведений и факультетов, изучающих эту дисциплину с отрывом и без отрыва от производства. Содержание книги соответствует программе Министерства высшего и среднего специального образования СССР по одноименной дисциплине.
-Труд делится на четыре части:
-ч. 1 — «Основные (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90742BE3944EA3FF192DBD78A9472CB93DC4822E
 ```
 
 https://mybot314.ru/tekegram_catalog/

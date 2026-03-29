@@ -1,3 +1,110 @@
+###  Публикация: 1458694   (235510) от 30.03.2021
+
+SiteSucker 4.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235510.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E857EB12036EB946D5F746D68745AE1EEDC25A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642381   (235509) от 27.06.2023
+
+Stats 2.9.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 25.06.2023Разработчик: © 2023 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E48F70C47462444EA09645EF7E37D1563D4A226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641184   (235491) от 21.06.2023
+
+PhoneRescue for iOS 4.2.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235491.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2023Разработчик: © 2011 - 2023 iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A82939A980CD6B099C327AF49DE93D563C0A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459152   (235481) от 31.03.2021
+
+Serial 2 v2.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serial современный эмулятор терминала, который будет полезен инженерам и системным администраторам для эффективной работы с серверами, сетевым оборудованием и аппаратным обеспечением.
+Для системных администраторов, Serial поддерживает все важные последовательности и прерывания, необходимые для подключении и управления маршрутизаторами и коммутаторами. Также включает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2021Разработчик: Decisive Tactics, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1836B91F25C69399AC3BCDBC4C4F2FE119E670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459105   (235474) от 31.03.2021
 
 Amadeus Pro 2.8.5 [Multi]
@@ -6,7 +113,7 @@ Amadeus Pro 2.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235474.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235459.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Rogue Amoeba Farrago 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235454.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Downie 4 v4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235430.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ Magic Disk Cleaner 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235367.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Ghost Buster Pro 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235362.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ Dropzone 4 Pro v4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235353.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Pixelmator Pro 3.3.7[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235306.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ DEVONthink Pro Office/Server 3 v3.8.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235302.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Money Pro - Personal Finance 2.7.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235294.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ SiteSucker 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235287.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ Chain Timer 9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235279.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ Infuse PRO 7.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235277.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ One Switch 1.24.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235270.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ PhotoSweeper X 4.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235263.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ Smultron 12 v12.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235257.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ EtreCheckPro 6.4.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235246.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235241.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ Permute 3 v3.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235239.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ GarageSale 8 v8.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235232.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ Dato 2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235225.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235219.jpg" />
 </div>
 
 
@@ -574,113 +681,6 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE948C9CB83216A238A507D75E60188025AC5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462955   (235207) от 16.04.2021
-
-Default Folder X 5.5.8  [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Default Folder X - Расширяет функциональные возможности окна открытия/сохранения, прикрепляя к нему дополнительную панель. Эта панель обеспечивает быстрый доступ к различным папкам (избранное, последние использованные и т.д.), командам (управление файлами и папками в окне) и настройкам. Помимо этого стоит отметить возможность быстрого предпросмотра мультимедийных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2021Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C4C6C5FBEB1B423775BAD312BDAC811B60C977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642927   (235203) от 29.06.2023
-
-PreSonus Studio One 6 Professional 6.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что вам нужно для записи, продюсирования, микширования, мастеринга и исполнения. Studio One 6 позволяет быстро и легко творить благодаря новым смарт-шаблонам, интуитивно понятному рабочему процессу перетаскивания, настраиваемому пользовательскому интерфейсу и мощным интегрированным инструментам.Тип издания: macOS SoftwareРелиз состоялся: 22.05.2023Разработчик: ©2023 PreSonus Audio Electronics, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4CF749BB80E75F14DFA6E0543BE77264CEB87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462853   (235200) от 16.04.2021
-
-myTracks 4.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235200.jpg" />
-</div>
-
-
-###  Подробнее
-
-myTracks — удобный геотаггинг фото
-myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
-Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2021Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EC5D1980E394FCDDA47490C0369E8C3544FF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536567   (235197) от 12.03.2022
-
-Dropzone 4 Pro v4.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909B20906C330039E76C95096F12BDB5F2BA8C87
 ```
 
 https://mybot314.ru/tekegram_catalog/

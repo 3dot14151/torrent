@@ -6,7 +6,7 @@ Serif Affinity Designer 1.6.2.97 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802474.jpg" />
+  <img src="Z:/picture/008/save_picture_802474.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SlimBrowser 7.00 Build 142 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802435.jpg" />
+  <img src="Z:/picture/008/save_picture_802435.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 83.0.4103.61 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802420.jpg" />
+  <img src="Z:/picture/008/save_picture_802420.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SupRemo 4.1.0.2322 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802414.jpg" />
+  <img src="Z:/picture/008/save_picture_802414.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ GameSave Manager 3.1.471.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802406.jpg" />
+  <img src="Z:/picture/008/save_picture_802406.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Display Driver Uninstaller 18.0.4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802397.jpg" />
+  <img src="Z:/picture/008/save_picture_802397.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Reg Organizer 8.81 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802392.jpg" />
+  <img src="Z:/picture/008/save_picture_802392.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Internet Download Manager 6.30 Build 6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802380.jpg" />
+  <img src="Z:/picture/008/save_picture_802380.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WhatsApp 0.2.8000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802375.jpg" />
+  <img src="Z:/picture/008/save_picture_802375.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ummy Video Downloader 1.8.3.3 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802373.jpg" />
+  <img src="Z:/picture/008/save_picture_802373.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Anvir Task Manager 9.2.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802371.jpg" />
+  <img src="Z:/picture/008/save_picture_802371.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Reg Organizer 8.05 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802369.jpg" />
+  <img src="Z:/picture/008/save_picture_802369.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Alternate File Shredder 1.860 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802327.jpg" />
+  <img src="Z:/picture/008/save_picture_802327.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ StartAllBack 3.0.2 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802302.jpg" />
+  <img src="Z:/picture/008/save_picture_802302.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Animate 2022 22.0.0.93 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802294.jpg" />
+  <img src="Z:/picture/008/save_picture_802294.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Wireshark 3.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802289.jpg" />
+  <img src="Z:/picture/008/save_picture_802289.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Panda Free Antivirus 2016 16.1.2 DC 24.04.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802240.jpg" />
+  <img src="Z:/picture/008/save_picture_802240.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Reg Organizer 8.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802230.jpg" />
+  <img src="Z:/picture/008/save_picture_802230.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adobe Photoshop 2021 22.5.2.491 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802221.jpg" />
+  <img src="Z:/picture/008/save_picture_802221.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Reg Organizer 8.81 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802220.jpg" />
+  <img src="Z:/picture/008/save_picture_802220.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Bat! Professional (Halloween Edition) 9.4.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802208.jpg" />
+  <img src="Z:/picture/008/save_picture_802208.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802155.jpg" />
+  <img src="Z:/picture/008/save_picture_802155.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ YouTube Video Downloader PRO 5.5 (20160128) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802153.jpg" />
+  <img src="Z:/picture/008/save_picture_802153.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ AdwCleaner 5.113 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802144.jpg" />
+  <img src="Z:/picture/008/save_picture_802144.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Air Explorer Pro 1.8.1 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802079.jpg" />
+  <img src="Z:/picture/008/save_picture_802079.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Loaris Trojan Remover 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802068.jpg" />
+  <img src="Z:/picture/008/save_picture_802068.jpg" />
 </div>
 
 

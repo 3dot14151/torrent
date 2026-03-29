@@ -1,3 +1,114 @@
+###  Публикация: 1265662   (274144) от 28.11.2018
+
+MovieSherlock 5.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274144.jpg" />
+</div>
+
+
+###  Подробнее
+
+MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
+MovieSherlock - это лучший способ получить видео на ваш Mac.
+
+MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: Capibara Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0279631754804F8197853986EE0588CBE8BC3F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265546   (274126) от 28.11.2018
+
+Big Mean Folder Machine 2 v2.38 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
+
+Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2018Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F5EC1100BA395C9D3B173372384E8F0E198426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188465   (274104) от 02.12.2017
+
+Imagenomic Portraiture 3 for Adobe Lightroom CC2015/ClassicCC build 3035 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imagenomic Portraiture -  незаменимый фильтр, который превратит ваше фото в гламурный снимок, позволит избежать трудоемкой процедуры попиксельного ретуширования снимка с целью удаления дефектов изображения. Благодаря реализованной в приложении технологии интеллектуального сглаживания, фотолюбители смогут бесследно удалять дефекты, не затрагивая мельчайших деталей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: ImagenomicПоддерживаемая ОС: macOS 10.10.x +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EB182CB3C60DCF7A1F0B5BB24CC58A13DA8D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265611   (274078) от 28.11.2018
+
+Elmedia Player Pro 7 v7.0 (1615) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Video Player - это бесплатный медиаплеер для Mac OS. Он может воспроизводить практически все типы файлов, будь то - AVI, MP4, FLV, SWF, WMV, MKV, MP3, M4V и пр. Elmedia Video Player - это решение «все-в-одном», не требующее каких-либо дополнительных плагинов или кодеков.
+
+Этот плеер предлагает своим пользователям изумительное воспроизведение видео в формате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2018Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296FF5666F1D11AE22EA62A6AB603E31AAB0652F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265562   (273854) от 28.11.2018
 
 Affinity Photo Beta 1.7.0 [Multi/Ru]
@@ -6,7 +117,7 @@ Affinity Photo Beta 1.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273854.jpg" />
+  <img src="Z:/picture/008/save_picture_273854.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Murus Pro Suite 1.4.19 (incluye Vallum 3.0.4) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273852.jpg" />
+  <img src="Z:/picture/008/save_picture_273852.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ Affinity Designer Beta 1.7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273851.jpg" />
+  <img src="Z:/picture/008/save_picture_273851.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Sketch 52.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273848.jpg" />
+  <img src="Z:/picture/008/save_picture_273848.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ Pastebot 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273781.jpg" />
+  <img src="Z:/picture/008/save_picture_273781.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ iLock 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273771.jpg" />
+  <img src="Z:/picture/008/save_picture_273771.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ Adobe Prelude 2020 v9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273695.jpg" />
+  <img src="Z:/picture/008/save_picture_273695.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ Vipor Plus CRM - All in One Calendar and Contacts 2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273646.jpg" />
+  <img src="Z:/picture/008/save_picture_273646.jpg" />
 </div>
 
 
@@ -222,7 +333,7 @@ Audirvana Plus 2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273645.jpg" />
+  <img src="Z:/picture/008/save_picture_273645.jpg" />
 </div>
 
 
@@ -251,7 +362,7 @@ Tweetbot for Twitter 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273641.jpg" />
+  <img src="Z:/picture/008/save_picture_273641.jpg" />
 </div>
 
 
@@ -280,7 +391,7 @@ Capo 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273628.jpg" />
+  <img src="Z:/picture/008/save_picture_273628.jpg" />
 </div>
 
 
@@ -307,7 +418,7 @@ AirMail 3 v3.6.73 (557) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273626.jpg" />
+  <img src="Z:/picture/008/save_picture_273626.jpg" />
 </div>
 
 
@@ -335,7 +446,7 @@ SiteSucker 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273565.jpg" />
+  <img src="Z:/picture/008/save_picture_273565.jpg" />
 </div>
 
 
@@ -364,7 +475,7 @@ Adguard 1.4.0 (370) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273557.jpg" />
+  <img src="Z:/picture/008/save_picture_273557.jpg" />
 </div>
 
 
@@ -391,7 +502,7 @@ Adobe XD 24.1.22.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273541.jpg" />
+  <img src="Z:/picture/008/save_picture_273541.jpg" />
 </div>
 
 
@@ -417,7 +528,7 @@ Adobe Dreamweaver 2020 v20.0.0.15196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273532.jpg" />
+  <img src="Z:/picture/008/save_picture_273532.jpg" />
 </div>
 
 
@@ -443,7 +554,7 @@ CADintosh X 8.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273508.jpg" />
+  <img src="Z:/picture/008/save_picture_273508.jpg" />
 </div>
 
 
@@ -469,7 +580,7 @@ Adobe Premiere Rush CC v1.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273460.jpg" />
+  <img src="Z:/picture/008/save_picture_273460.jpg" />
 </div>
 
 
@@ -495,7 +606,7 @@ Cocktail High Sierra Edition 11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273427.jpg" />
+  <img src="Z:/picture/008/save_picture_273427.jpg" />
 </div>
 
 
@@ -521,7 +632,7 @@ Scrivener 2.8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273393.jpg" />
+  <img src="Z:/picture/008/save_picture_273393.jpg" />
 </div>
 
 
@@ -550,7 +661,7 @@ Navicat Premium 12.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273327.jpg" />
+  <img src="Z:/picture/008/save_picture_273327.jpg" />
 </div>
 
 
@@ -578,7 +689,7 @@ Pixelmator Pro 1.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273248.jpg" />
+  <img src="Z:/picture/008/save_picture_273248.jpg" />
 </div>
 
 
@@ -591,115 +702,6 @@ Pixelmator Pro предлагает широкий спектр професси
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D612D0E30F33F5E64E10CE5AF78B1FC33D247806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188678   (273240) от 03.12.2017
-
-Boom2:Volume Boost & Equalizer 1.6.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boom делает звук объемнее и качественней.
-Если вы часто испытываете проблемы с громкостью звука при просмотре фильмов или роликов в интернете, общении в аудио-чатах, или простом прослушивании музыки, Boom то, что вам требуется. В первую очередь Boom подойдет обладателям MacBook и MacBook Air, так как штатная акустика у портативных устройств оставляет желать лучшего. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 сентября 2017Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D59016BB77B84617021DB5F34394CB16CEEAB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188636   (273234) от 03.12.2017
-
-Disk Drill Media Recovery 3.5.873 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Media Recovery - это самое простое и удобное приложение по восстановлению данных для Мака.
-
-Начиная с версии 2.x/3.x можно получить свои данные обратно с любого бинарного образа диска. Поддерживаются следующие форматы диска: DMG, ISO, IMG. Восстановить данные легко, как обычно, всего за 3 простых шага: №1 создать образ диска (используя Disk Utility, например); (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2017Разработчик: Justin JohnsonПоддерживаемая ОС: OS X 10.8.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51ED31AB926C4E916CF130748CFB48B27DEA2F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188691   (273101) от 03.12.2017
-
-Max Payne 3 (2012) [Ru] [macOS WineSkin]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273101.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий Max Payne 2 прошло восемь лет. Макс уже не коп — он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 2012Разработчик: Rockstar VancouverПоддерживаемая ОС: OS X Yosemite 10.10.5Жанр: Action, Shooter, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A13119A1ABC5103534D767E695AC915D3B1ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265777   (273068) от 29.11.2018
-
-MiniNote Pro 5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273068.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
-
-В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA249749B01C92D5C2B221077788895180E6298
 ```
 
 https://mybot314.ru/tekegram_catalog/

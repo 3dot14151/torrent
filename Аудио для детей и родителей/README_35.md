@@ -1,3 +1,83 @@
+###  Публикация: 1532929   (710899) от 21.02.2022
+
+Лев Семенович Выготский | Проблема обучения и умственного развития в школьном возрасте (2016) [MP3, Александр Бордуков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710899.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лекции «Проблема обучения и умственного развития в школьном возрасте» Лев Семенович Выготский размышляет над вопросами развития мышления школьников и о связи процесса обучения и умственного развития ребёнка.Жанр: Воспитание детей, Детская психология, Классики психологии, ПедагогикаПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF223A56C28061115A069C0E9B98B314E064C221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219773   (709955) от 16.04.2018
+
+Сергей Голицын | Сорок изыскателей (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая повесть об одном пионерском отряде, который во время туристического похода занимался поисками пропавшей картины выдающегося художника. Вместе с изыскателями мы узнаем, можно ли убить сразу 3 зайцев, сколько можно съесть мороженого, какие роковые последствия могут произойти из-за непродуманной подмазки сковороды, раскроем тайну старой рукописи, которая (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 06:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3744E8218CB29E16FD2FDA82370A7B076F283E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792961   (706029) от 04.06.2014
+
+Михаил Зощенко | Русские классики детям. Рассказы (2011) [MP3, Ольга Вяликова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Зощенко известен в первую очередь как «взрослый» писатель-сатирик. Но у него есть и несколько десятков замечательных «детских» рассказов.
+
+Зощенко ценил своего маленького читателя и сумел найти удивительно верный тон разговора с детьми. В его рассказах всегда присутствует мораль, назидание, поучение. Он рассуждает о том, что хорошо, а что плохо, но при этом (   Читать дальше...   )Жанр: Детская литература, рассказыИздательство: Студия АРДИСПродолжительность: 03:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5D8315A9C34FC3D7C523919E3FF359DAB0C67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 330905   (706017) от 01.05.2011
 
 VA - Babydream.Traume sub. vol.3 (2001) [MP3|320 kbps]<Колыбельная музыка для малышей>
@@ -6,7 +86,7 @@ VA - Babydream.Traume sub. vol.3 (2001) [MP3|320 kbps]<Колыбельная м
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706017.jpg" />
+  <img src="Z:/picture/008/save_picture_706017.jpg" />
 </div>
 
 
@@ -35,7 +115,7 @@ VA - Brazilian lullaby (1999) [MP3|320 kbps]<Колыбельные для ма�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706016.jpg" />
+  <img src="Z:/picture/008/save_picture_706016.jpg" />
 </div>
 
 
@@ -64,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705798.jpg" />
+  <img src="Z:/picture/008/save_picture_705798.jpg" />
 </div>
 
 
@@ -91,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705797.jpg" />
+  <img src="Z:/picture/008/save_picture_705797.jpg" />
 </div>
 
 
@@ -118,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705796.jpg" />
+  <img src="Z:/picture/008/save_picture_705796.jpg" />
 </div>
 
 
@@ -146,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705700.jpg" />
+  <img src="Z:/picture/008/save_picture_705700.jpg" />
 </div>
 
 
@@ -172,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705684.jpg" />
+  <img src="Z:/picture/008/save_picture_705684.jpg" />
 </div>
 
 
@@ -198,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705315.jpg" />
+  <img src="Z:/picture/008/save_picture_705315.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705302.jpg" />
+  <img src="Z:/picture/008/save_picture_705302.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705297.jpg" />
+  <img src="Z:/picture/008/save_picture_705297.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ VA - Baby Einstein (2000-2006) (5CD) [MP3|192-320 kbps]<Классическая
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705119.jpg" />
+  <img src="Z:/picture/008/save_picture_705119.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704927.jpg" />
+  <img src="Z:/picture/008/save_picture_704927.jpg" />
 </div>
 
 
@@ -333,7 +413,7 @@ VA - Die 30 Schonsten Kinderlieder (2002) [MP3|128 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704176.jpg" />
+  <img src="Z:/picture/008/save_picture_704176.jpg" />
 </div>
 
 
@@ -362,7 +442,7 @@ VA - Zecchino D'Oro 53a Edizione (2010) (2CD)  [MP3|320 kbps]<Детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704175.jpg" />
+  <img src="Z:/picture/008/save_picture_704175.jpg" />
 </div>
 
 
@@ -391,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704061.jpg" />
+  <img src="Z:/picture/008/save_picture_704061.jpg" />
 </div>
 
 
@@ -420,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704053.jpg" />
+  <img src="Z:/picture/008/save_picture_704053.jpg" />
 </div>
 
 
@@ -447,7 +527,7 @@ VA - Philadelphia Chickens (2002) [MP3|140-160 kbps]<Детские песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703999.jpg" />
+  <img src="Z:/picture/008/save_picture_703999.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703980.jpg" />
+  <img src="Z:/picture/008/save_picture_703980.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703929.jpg" />
+  <img src="Z:/picture/008/save_picture_703929.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703812.jpg" />
+  <img src="Z:/picture/008/save_picture_703812.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701962.jpg" />
+  <img src="Z:/picture/008/save_picture_701962.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701849.jpg" />
+  <img src="Z:/picture/008/save_picture_701849.jpg" />
 </div>
 
 
@@ -612,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701829.jpg" />
+  <img src="Z:/picture/008/save_picture_701829.jpg" />
 </div>
 
 
@@ -623,91 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82364997E85207723013AE097D753718667DD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402471   (701728) от 14.08.2020
-
-Юрий Кудинов (клоун Плюх) - Музыкальные развивайки с Плюхом. Песенки-задачки. Музыкальная арифметика. (2014) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-02. Фантики
-03+/-04. Сон
-05+/-06. Конфеты
-07+/-08. В школу(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3994D2412B65D3423104FCDF3D9004CF65C51D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402472   (701726) от 14.08.2020
-
-Юрий Кудинов (клоун Плюх) - Музыкальные развивайки с Плюхом. Пословицы и поговорки в песенках. (2014) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-15. Клоун Плюх - Как аукнется, так и откликнется
-02+/-16. Клоун Плюх, Маша Барабанщикова - Мели, Емеля, твоя неделя
-03+/-17. Клоун Плюх - Не родись красивой, а родись счастливой
-04+/-18. Клоун Плюх - Поспешишь - людей насмешишь(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51881AD2A91DFC6BB1396FE0B597B97F6ABD2513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132388   (700832) от 09.05.2017
-
-Алексей Тверской | Потерянное детство (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты гоняешь мяч во дворе, режешься в стрелялки на компьютере, смотришь фильмы про супергероев, спокойно спишь в теплой постельке и даже не подозреваешь, как это жить в военное время в страхе и голоде.
-Это истории о жизни ребят, которые становились сиротами в блокадном Ленинграде, попадали в концлагерь, голодали, выживали, защищали своих матерей и сестёр и рано взрослели. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3A99A50F654C24339BC8A575608F324794BDC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

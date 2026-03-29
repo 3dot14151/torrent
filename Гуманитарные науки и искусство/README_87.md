@@ -1,3 +1,29 @@
+###  Публикация: 1255685   (361029) от 19.10.2018
+
+Евгений Жаринов | От Шекспира до Агаты Кристи. Как читать и понимать классику (2018) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как чума повлияла на мировую литературу? Почему «Изгнание из рая» стало одним из основополагающих сюжетов в культуре возрождения? «Я знаю всё, но только не себя»,?– что означает эта фраза великого поэта-вора Франсуа Вийона? Почему «Дон Кихот» – это не просто пародия на рыцарский роман? Ответы на эти и другие вопросы вы узнаете в новой книге профессора Евгения Жаринова, (   Читать дальше...   )Жанр: Культурология, ЛитературоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A20D02C1F6AC5C73642C922F35E459F65835CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417145   (360547) от 19.10.2020
 
 М. Г. Бронский | Проблемы экономической политики СССР (1929) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360547.jpg" />
+  <img src="Z:/picture/008/save_picture_360547.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360523.jpg" />
+  <img src="Z:/picture/008/save_picture_360523.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360409.jpg" />
+  <img src="Z:/picture/008/save_picture_360409.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360356.jpg" />
+  <img src="Z:/picture/008/save_picture_360356.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359989.jpg" />
+  <img src="Z:/picture/008/save_picture_359989.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359618.jpg" />
+  <img src="Z:/picture/008/save_picture_359618.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358833.jpg" />
+  <img src="Z:/picture/008/save_picture_358833.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358821.jpg" />
+  <img src="Z:/picture/008/save_picture_358821.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358709.jpg" />
+  <img src="Z:/picture/008/save_picture_358709.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358697.jpg" />
+  <img src="Z:/picture/008/save_picture_358697.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358662.jpg" />
+  <img src="Z:/picture/008/save_picture_358662.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358649.jpg" />
+  <img src="Z:/picture/008/save_picture_358649.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358281.jpg" />
+  <img src="Z:/picture/008/save_picture_358281.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357010.jpg" />
+  <img src="Z:/picture/008/save_picture_357010.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356915.jpg" />
+  <img src="Z:/picture/008/save_picture_356915.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356913.jpg" />
+  <img src="Z:/picture/008/save_picture_356913.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356715.jpg" />
+  <img src="Z:/picture/008/save_picture_356715.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355897.jpg" />
+  <img src="Z:/picture/008/save_picture_355897.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355890.jpg" />
+  <img src="Z:/picture/008/save_picture_355890.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355737.jpg" />
+  <img src="Z:/picture/008/save_picture_355737.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355236.jpg" />
+  <img src="Z:/picture/008/save_picture_355236.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354783.jpg" />
+  <img src="Z:/picture/008/save_picture_354783.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354439.jpg" />
+  <img src="Z:/picture/008/save_picture_354439.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354115.jpg" />
+  <img src="Z:/picture/008/save_picture_354115.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354104.jpg" />
+  <img src="Z:/picture/008/save_picture_354104.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B55EB8636B4CB455C1E0A1638643D5DE98F3E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178840   (354080) от 29.10.2017
-
-А. Е. Пашерстник | Трудовое право стран народной демократии (1955) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354080.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курс советского трудового права, преподаваемый студентам юридических высших учебных заведений СССР, включаются темы, посвященные трудовому праву стран народной демократии и правовому регулированию труда в капиталистических странах. Учебное пособие, предлагаемое вниманию читателя, посвящено трудовому праву стран народной демократии. Трудовое право является в руках (   Читать дальше...   )Жанр: История, политология, правоведение, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9614270784F5F5198F218FFDCD8D9E8F5ACFD3D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

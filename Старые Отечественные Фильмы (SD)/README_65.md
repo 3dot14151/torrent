@@ -1,3 +1,55 @@
+###  Публикация: 1566099   (245355) от 27.07.2022
+
+Инопланетянка (1984) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инопланетянка посетила Землю, и в нее влюбился скромный изобретатель Блинков. Его любовь пробудила в ней новые эмоции и чувства. Смирившись с тем, что Блинков не сможет жить в другом мире, она с грустью покидает Землю в одиночестве.Производство: СССР / Киностудия им. М. ГорькогоЖанр: Фантастика, комедияРежиссер: Яков СегельАктеры: Лилия Алешникова, Владимир Носик, Людмила Шагалова, Виктор Шульгин, Андрей Юренев, Ольга Маркина, Наталья Казначеева, Марина Тарасова, Елена Тонунц, Манефа СоболевскаяСубтитры: ОтсутствуютПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC205E22421186F748A88068DF3BB075057B6B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621313   (244790) от 24.03.2023
+
+Обочина (1978) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслужив в армии, Ленька Парасочка вернулся в родной город и устроился в автопарк, решив пойти по стопам отца. В первый же рабочий день он подвозит девушку, даже не подозревая как сильно изменится его жизнь после этой встречи.Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Вячеслав НикифоровАктеры: Майя Булгакова, Владимир Самойлов, Евгений Шутов, Анатолий Жигарь, Людмила Дребнёва, Александр Кашперов, Елена Ковалева, Евгения Кравченко, Т. Лагун, Виктор МирошниченкоСубтитры: отсутствуютПродолжительность: 01:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDD0E58834AEB47531B6DF4B0E90535D58C01E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563795   (244402) от 01.08.2022
 
 Координаты смерти (1985) WEBRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244402.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244036.jpg" />
+  <img src="Z:/picture/004/save_picture_244036.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243388.jpg" />
+  <img src="Z:/picture/004/save_picture_243388.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242191.jpg" />
+  <img src="Z:/picture/004/save_picture_242191.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242060.jpg" />
+  <img src="Z:/picture/004/save_picture_242060.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242020.jpg" />
+  <img src="Z:/picture/004/save_picture_242020.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241370.jpg" />
+  <img src="Z:/picture/004/save_picture_241370.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241327.jpg" />
+  <img src="Z:/picture/004/save_picture_241327.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240967.jpg" />
+  <img src="Z:/picture/005/save_picture_240967.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239915.jpg" />
+  <img src="Z:/picture/004/save_picture_239915.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239854.jpg" />
+  <img src="Z:/picture/004/save_picture_239854.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239815.jpg" />
+  <img src="Z:/picture/004/save_picture_239815.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239241.jpg" />
+  <img src="Z:/picture/004/save_picture_239241.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237217.jpg" />
+  <img src="Z:/picture/005/save_picture_237217.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237062.jpg" />
+  <img src="Z:/picture/005/save_picture_237062.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236424.jpg" />
+  <img src="Z:/picture/005/save_picture_236424.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236157.jpg" />
+  <img src="Z:/picture/004/save_picture_236157.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236064.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236037.jpg" />
+  <img src="Z:/picture/005/save_picture_236037.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235812.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234825.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234362.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233241.jpg" />
+  <img src="Z:/picture/005/save_picture_233241.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232514.jpg" />
+  <img src="Z:/picture/005/save_picture_232514.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE780DFE23CA07E6F147FCD8840B4DBBE9445C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939380   (232434) от 28.05.2022
-
-Контрольная полоса (1980) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232434.jpg" />
-</div>
-
-
-###  Подробнее
-
-При попытке перейти Государственную границу СССР был задержан и покончил с собой резидент одной из западных разведок, который хотел вынести с советской территории фотопленку, отснятую на одном из оборонных объектов. Из-за границы посылают за дубликатом пленки внучку одного из ближайших сподвижников басмачевского главаря Ибрагимбека, унаследовавшую от деда лютую ненависть (   Читать дальше...   )Производство: СССР, ТаджикфильмЖанр: ПриключенияРежиссер: Юсуф АзизбаевАктеры: Олег Штефанко, Сергей Чернядьев, Георгий Дарчиашвили, Каринэ Арменянц, Михаил Чигарев, Махмадали Махмадалиев, Хабибулло Абдуразаков, Олев Эскола, Юрий ГоробецПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C5130FBA8926F28400B65DAEDBFC7DAB79D2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971434   (232382) от 29.05.2022
-
-Гранитные острова (1976) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232382.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Евгения Воеводина "Пуд соли". О нелегкой воинской службе молодых пограничников. Действие происходит на северных рубежах, на далеком острове, где молодые воины, возглавляемые сержантом, несут службу на посту технического наблюдения "ощупывают" лучом прожектора и волнами радиолокационной станции вверенный участок. "Пуд соли" (   Читать дальше...   )Производство: СССР, ТО "Экран"Жанр: Военный, ДрамаРежиссер: Борис ДуровАктеры: Юрий Никольский, Леонид Белозорович, Александр Милокостый, Андрей Романов, Сергей Стеблюк, Юри Аарма, Владимир Сафронов, Евгений Герасимов, Юрий Сучков, Сергей Тарасов, И. МинскийПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04C895317785E230BCEE0444C256AEA17DC237D
 ```
 
 https://mybot314.ru/tekegram_catalog/

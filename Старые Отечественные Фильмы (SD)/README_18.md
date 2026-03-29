@@ -1,3 +1,55 @@
+###  Публикация: 1108592   (860838) от 26.02.2017
+
+Рожденные бурей (1957) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый год Октябрьской революции. Немецкие войска оставляют маленький городок, расположенный на границе Западной Украины и Польши. Власть в городе захватывают пилсудчики. Вернувшийся из заключения коммунист Сигизмунд Раевский становится во главе подпольного революционного комитета. На заводах, фабриках, в железнодорожных мастерских формируются рабочие дружины. Они (   Читать дальше...   )Производство: СССР, киностудия им. А.ДовженкоЖанр: ДрамаРежиссер: Яков Базелян, Артур ВойтецкийАктеры: Сергей Гурзо (старший), Ольга Бган, Анатолий Иванов (VIII), Вова Силуянов, Олег Жаков, Ада Войцик, Николай Хрящиков, Александр Гречаный, Юрий Мажуга, Александр Толстых, Павел Шпрингфельд, Константин Кульчицкий, А. Теремец, Юрий Леонидов, Валентина Ушакова, Дзидра Ритенберга, Чеслав Сушкевич, Николай Рушковский, Георгий (Юрий) Козаковский, Д. АгибаловПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54DB4F3DBDCDF2ED43F266951D779AB50BDDB347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108974   (860762) от 26.02.2017
+
+С вечера до полудня (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация пьесы Виктора Розова. Все смешалось в доме Андрея Константиновича. Его сын Ким тоскует по ушедшей от него и уехавшей за границу жене, внук Альберт ждет встречи с матерью, параллельно решая проблемы первой любви. Дочь Нина много лет назад пыталась покончить с собой из-за несчастной любви к Леве... И вот возвращается жена Кима, желая забрать сына с собой (   Читать дальше...   )Производство: СССР, МосфильмЖанр: МелодрамаРежиссер: Константин ХудяковАктеры: Всеволод Санаев, Леонид Филатов, Людмила Савельева, Наталья Фатеева, Андрей Петров (I), Эдуард Марцевич, Светлана Аманова, Сергей ФёдоровПродолжительность: 02:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD32C045596F7DE1EADFEE977EDA702D872FC7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108742   (860761) от 26.02.2017
 
 Завтра будет поздно (1972) DVBRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860761.jpg" />
+  <img src="Z:/picture/008/save_picture_860761.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860667.jpg" />
+  <img src="Z:/picture/008/save_picture_860667.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860665.jpg" />
+  <img src="Z:/picture/008/save_picture_860665.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860575.jpg" />
+  <img src="Z:/picture/008/save_picture_860575.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860369.jpg" />
+  <img src="Z:/picture/008/save_picture_860369.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860248.jpg" />
+  <img src="Z:/picture/008/save_picture_860248.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859742.jpg" />
+  <img src="Z:/picture/008/save_picture_859742.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858559.jpg" />
+  <img src="Z:/picture/008/save_picture_858559.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858554.jpg" />
+  <img src="Z:/picture/008/save_picture_858554.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857859.jpg" />
+  <img src="Z:/picture/008/save_picture_857859.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857159.jpg" />
+  <img src="Z:/picture/008/save_picture_857159.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856787.jpg" />
+  <img src="Z:/picture/008/save_picture_856787.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856513.jpg" />
+  <img src="Z:/picture/008/save_picture_856513.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855222.jpg" />
+  <img src="Z:/picture/008/save_picture_855222.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854802.jpg" />
+  <img src="Z:/picture/008/save_picture_854802.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854794.jpg" />
+  <img src="Z:/picture/008/save_picture_854794.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854075.jpg" />
+  <img src="Z:/picture/008/save_picture_854075.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853410.jpg" />
+  <img src="Z:/picture/008/save_picture_853410.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853155.jpg" />
+  <img src="Z:/picture/008/save_picture_853155.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851327.jpg" />
+  <img src="Z:/picture/008/save_picture_851327.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850284.jpg" />
+  <img src="Z:/picture/008/save_picture_850284.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850283.jpg" />
+  <img src="Z:/picture/008/save_picture_850283.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850190.jpg" />
+  <img src="Z:/picture/008/save_picture_850190.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850116.jpg" />
+  <img src="Z:/picture/008/save_picture_850116.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F6D664C4E0F7CC48FD1D4E56A117B1B3E14DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378003   (849990) от 23.04.2020
-
-Гармонь (1934) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849990.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной поэме Александра Жарова. В основе сюжета первого советского музыкального фильма — поэма автора популярных официальных песен 20-х годов, прославлявших энтузиазм комсомольцев новой деревни. В одной из таких деревень веселый гармонист Тимошка избран секретарем партячейки.
-Отложив гаpмонь в стоpону, герой пpинимается наводить поpядок в селе. Затянувшаяся (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: мюзикл, комедияРежиссер: Игорь СавченкоАктеры: Зоя Фёдорова, Петр Савин, Игорь Савченко, Николай Горлов, Николай Ярочкин, Николай Зырянов, Петр Горелов, Ляля Сатеева, Е. Юхова, Е. ПироговаСубтитры: отсутствуютПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A92EAC86963BE8CC8357ECCDE75EA2A10188943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378017   (849823) от 23.04.2020
-
-Гарем Степана Гуслякова (1989) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муж безнадежно больной Клавдии влюбляется в соседку Марию, которая в отсутствие жены помогала ему по хозяйству. А спустя полтора года Клавдия возвращается из больницы…Производство: СССР / КатарсисЖанр: ДрамаРежиссер: Алишер ХамдамовАктеры: Владимир Литвинов, Ольга Богачева, Елена Демидова, Николай Гусаров, Людмила Баранова, Валерий Величко, Татьяна Лаврентьева, Болот Бейшеналиев, Владимир Толоконников, Наталья КорнееваСубтитры: отсутствуютПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44ACE55B16B1D07100FBD534351DE11C809531C
 ```
 
 https://mybot314.ru/tekegram_catalog/

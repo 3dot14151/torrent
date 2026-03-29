@@ -1,3 +1,111 @@
+###  Публикация: 1633980   (233717) от 18.05.2023
+
+Александр Никонов | Экономика на пальцах: научно и увлекательно (2022) [MP3, Алексей Данков ]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем, когда согласованно функционируют все клетки нашего организма, когда их слаженная работа дает нам возможность чувствовать себя здоровым и полным сил. Вот и наше общество – такой же социальный организм, где все роли взаимосвязаны и все винтики образуют открытую систему, которую называют экономикой!
+Экономика – это способ жизни общества. Неудивительно в таком (   Читать дальше...   )Жанр: БизнесПродолжительность: 12:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFB9143070E760EA4846A42D076A86920F156FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634171   (233608) от 19.05.2023
+
+Кэл Ньюпорт | Новые принципы делового общения (2022) [MP3, Олег Булгак]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный писатель и преподаватель информатики в Джорджтаунском университете Кэл Ньюпорт рассказывает, как мы пришли к культуре постоянной коммуникации и как она влияет на нашу продуктивность и психическое здоровье.
+Когда-то появление электронной почты произвело фурор, но сегодня она стала настоящей проблемой. Размываются границы задач, рабочий день превращается (   Читать дальше...   )Жанр: БизнесПродолжительность: 09:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4619C4063BFBDBF955F909851CDDC61A4986DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634386   (233386) от 20.05.2023
+
+Тони Шей | Доставляя счастье. От нуля до миллиарда (2010) [MP3, Алексей Данков]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиография одного из самых ярких молодых бизнесменов последнего времени, начавшего свой первый бизнес в девять лет. История развития его компании Zappos, за десять лет с нуля разогнавшейся до миллиардного оборота.Жанр: БизнесПродолжительность: 08:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA79F6465682CED1B0940AA59B5CFF0B3CA2123D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554057   (232572) от 28.05.2022
+
+Наполеон Хилл | Думай и богатей. Включи мозги и стань богатым (2022) [MP3, Всеволод Кузнецов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцать шагов к богатству, описанные в этой аудиокниге – самая короткая и самая надежная из всех существующих систем, помогающих людям достичь поставленной жизненной цели.
+Это не роман и не развлекательное чтиво. Это пособие по достижению личных целей, построенное на непосредственном опыте сотен процветающих бизнесменов.
+Эту книгу следует изучать, размышлять над (   Читать дальше...   )Жанр: Лидерство, Личные финансы, Мотивация, ПсихологияПеревод: Татьяны БоровиковойПродолжительность: 09:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B543249D2D161D53BBD2D8E5233CB4BFCE512B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646114   (232468) от 13.07.2023
 
 Билл Вильямс | Торговый Хаос (2020) [MP3, Роман Волков]
@@ -6,7 +114,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232468.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232150.jpg" />
+  <img src="Z:/picture/004/save_picture_232150.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231602.jpg" />
+  <img src="Z:/picture/004/save_picture_231602.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230380.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229824.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229162.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227287.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220886.jpg" />
 </div>
 
 
@@ -216,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216003.jpg" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215994.jpg" />
 </div>
 
 
@@ -268,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213485.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212074.jpg" />
+  <img src="Z:/picture/004/save_picture_212074.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211877.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211610.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211270.jpg" />
 </div>
 
 
@@ -403,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209771.jpg" />
 </div>
 
 
@@ -430,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209547.jpg" />
+  <img src="Z:/picture/005/save_picture_209547.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209312.jpg" />
 </div>
 
 
@@ -484,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208217.jpg" />
 </div>
 
 
@@ -510,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206411.jpg" />
 </div>
 
 
@@ -536,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205639.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205346.jpg" />
 </div>
 
 
@@ -573,111 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60D3D4C1B9E16E06F1FC4C438F021D298B08332A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656534   (203096) от 31.08.2023
-
-Патрик Ленсиони | Пять пороков команды (2020) [MP3, Игорь Сергеев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава одной высокотехнологичной компании подал в отставку, поскольку работа компании при нем разваливалась на глазах. «Менеджеры достигли совершенства в искусстве подставлять друг друга. Команда утратила дух единства и товарищества, его сменила нудная обязаловка. Любая работа затягивалась, качество падало». Через некоторое время в компанию приходит новый руководитель (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 04:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4926D30C6AFE33E7788646356E2F475EB73BF9C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619058   (201284) от 14.03.2023
-
-Максим Ильяхов | Ясно, понятно (2020) [MP3, Максим Ильяхов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига о правильной и понятной коммуникации: как с помощью слов доносить свои мысли и влиять на людей.
-Максим Ильяхов развивает тему, затронутую в бестселлере «Пиши, сокращай». Вы узнаете, как привлечь внимание читателей, как помочь им понять и принять точку зрения автора, как увлекательно и доступно раскрыть любую тему, даже самую сложную. Вы найдете в книге (   Читать дальше...   )Жанр: БизнесПродолжительность: 30:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870F2CE4527DF92551A3BED7255211331CF36482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630327   (199153) от 30.04.2023
-
-Роберт Кийосаки | Фейк. Как ложь делает бедных и средний класс еще беднее (2020) [MP3, Андрей Крупник]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательство AB Publishing представляет вниманию слушателей новую аудиокнигу «Фейк. Фейковые деньги, фейковые учителя, фейковые активы» от автора мирового бестселлера №1 «Богатый папа, бедный папа» и признанного популяризатора идеи финансового образования – Роберта Кийосаки. Каждый день по всему миру распространяются новости, информация и мнения различных групп людей (   Читать дальше...   )Жанр: БизнесПродолжительность: 13:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311A510F76AC600C5A8B9C59E1FC9B32063AC7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633696   (198293) от 17.05.2023
-
-Бретт Стинбарджер | Психология трейдинга. Инструменты и методы принятия решений (2020) [MP3, Михаил Мурзаков]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о трейдинге и о том, как трейдеры могут определять и нейтрализовать психологические проблемы, мешающие успешной торговле. Ведь познать себя столь же важно, как познать рынок, – утверждает автор. Цель этой книги состоит в том, чтобы помочь вам идентифицировать свои стереотипы успеха и неудачи и научиться лучше их контролировать.Жанр: Психология в бизнесе, ТрейдингПродолжительность: 15:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC855C444920BA6773414640C6A4E12B429BA0E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

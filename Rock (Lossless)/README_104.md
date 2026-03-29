@@ -1,3 +1,148 @@
+###  Публикация: 1416968   (363342) от 18.10.2020
+
+The Oneira - Injection (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Free To Choose
+02. Know That Feeling
+03. Edipsos
+04. Behind The Sun (Instrumental)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3161DAD8F2CFC1D5BC4F70A18FF1DA61F7D7E4BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576661   (363223) от 17.11.2012
+
+Mystery - The World Is A Game (2012) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_363223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Morning Rise (1:18)
+02. Pride (11:28)
+03. Superstar (6:59)
+04. The Unwinding of Time (0:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 722556   (362976) от 15.11.2013
+
+Bonnie Tyler - Greatest Hits (2001) [APE|Lossless]<Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total Eclipse Of The Heart
+02. It's A Heartache
+03. Holding Out For A Hero
+04. Lost In France(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5231469C31538C76DCD481364E2E5737780AA854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071223   (362023) от 09.11.2016
+
+Krzysztof Lepiarczyk - Art Therapy (2016) [FLAC|Lossless|image + .cue] <Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362023.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Still Remember (5:01)
+2. Dr Schouermann (3:33)
+3. Arthroscopy (4:10)
+4. After All... (4:10)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71889F0A693D31F8899BD7478B78693A6EE10BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576879   (361887) от 16.09.2022
+
+Clutch - Sunrise on Slaughter Beach (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Red Alert (Boss Metal Zone) [00:02:45]
+02 - Slaughter Beach [00:03:41]
+03 - Mountain of Bone [00:04:23]
+04 - Nosferatu Madre [00:03:27](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418211644766FF38A1969332EAE040B6ECC2E49E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576865   (361886) от 16.09.2022
 
 The Mars Volta - The Mars Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progessive Rock, Neo-Psychodelia>
@@ -6,7 +151,7 @@ The Mars Volta - The Mars Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progessive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361886.jpg" />
+  <img src="Z:/picture/008/save_picture_361886.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Beach Boys - Icon (2013) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361868.jpg" />
+  <img src="Z:/picture/008/save_picture_361868.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Ringo Starr - EP3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361826.jpg" />
+  <img src="Z:/picture/008/save_picture_361826.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Ringo Starr - Back to the Good Times Music (Richard Starkey) (2022) Scene [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361786.jpg" />
+  <img src="Z:/picture/008/save_picture_361786.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Rock Sound: Sound Check No. 119 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361693.jpg" />
+  <img src="Z:/picture/008/save_picture_361693.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Creye - Creye (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361654.jpg" />
+  <img src="Z:/picture/008/save_picture_361654.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Kirk Hammett - Portals (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361652.jpg" />
+  <img src="Z:/picture/008/save_picture_361652.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Spiritual Beggars - 9 Albums, 11CD (1994-2016) [FLAC|Lossless|image + .cue | tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361182.jpg" />
+  <img src="Z:/picture/008/save_picture_361182.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Lynyrd Skynyrd - 25 Albums, 1 Box-set, 41CD (1973-2014) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360844.jpg" />
+  <img src="Z:/picture/008/save_picture_360844.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Theo - Figurеhеаds (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360685.jpg" />
+  <img src="Z:/picture/008/save_picture_360685.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Jeff Liberman - Пять Альбомов (2002 - 2012) [WAVPack /FLAC|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360608.jpg" />
+  <img src="Z:/picture/005/save_picture_360608.jpg" />
 </div>
 
 
@@ -331,7 +476,7 @@ Paul McCartney - Tug Of War (2015) 3CD Deluxe Edition [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360288.jpg" />
+  <img src="Z:/picture/008/save_picture_360288.jpg" />
 </div>
 
 
@@ -360,7 +505,7 @@ Kaipa - 9 albums (1974 - 2007) [FLAC|Lossless]<Symphonic Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360089.jpg" />
+  <img src="Z:/picture/005/save_picture_360089.jpg" />
 </div>
 
 
@@ -395,7 +540,7 @@ Pink Floyd - Animals (1977) 2018 Remix, 2022, Parlophone Records Limited [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359510.jpg" />
+  <img src="Z:/picture/008/save_picture_359510.jpg" />
 </div>
 
 
@@ -424,7 +569,7 @@ Deep Purple - Extras: The Now What?! B-Sides and Bonus Songs (2022) [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359374.jpg" />
+  <img src="Z:/picture/008/save_picture_359374.jpg" />
 </div>
 
 
@@ -453,7 +598,7 @@ VA - Rock Sound: Bugging Your Ears! No.141 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359276.jpg" />
+  <img src="Z:/picture/008/save_picture_359276.jpg" />
 </div>
 
 
@@ -482,7 +627,7 @@ VA - Rock Sound: Bugging Your Ears! No.138 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359274.jpg" />
+  <img src="Z:/picture/008/save_picture_359274.jpg" />
 </div>
 
 
@@ -511,7 +656,7 @@ VA - Rock Sound: Bugging Your Ears! No. 132 (2010) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359173.jpg" />
+  <img src="Z:/picture/008/save_picture_359173.jpg" />
 </div>
 
 
@@ -540,7 +685,7 @@ VA - Rock Sound: Bugging Your Ears! No. 134 (2010) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359170.jpg" />
+  <img src="Z:/picture/008/save_picture_359170.jpg" />
 </div>
 
 
@@ -569,7 +714,7 @@ VA - Rock Sound: 100% Volume No. 149 (2011) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359157.jpg" />
+  <img src="Z:/picture/008/save_picture_359157.jpg" />
 </div>
 
 
@@ -598,7 +743,7 @@ VA - Rock Sound: Bugging Your Ears! No.131 (2010) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359140.jpg" />
+  <img src="Z:/picture/008/save_picture_359140.jpg" />
 </div>
 
 
@@ -612,151 +757,6 @@ VA - Rock Sound: Bugging Your Ears! No.131 (2010) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B15E27AA9A4DA5529E684D21BD5B4199551402FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328895   (359072) от 02.10.2019
-
-Eloy - The Vision, The Sword And The Pyre, Part II (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Instant of Relief... Still The War Rages On
-02. Between Hope, Doubts, Fear And Uncertainty
-03. Patay
-04. Joy(   Читать дальше...   )Жанр: Psychedelic Rock, Space RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E897F5BF470E63F2CDBFBA611699A6C5E173D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951890   (358967) от 31.10.2015
-
-Think - We'll Give You a Buzz (1976) Remastered /2008, SouthSide/ [FLAC|image+.cue]<Crossover Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Title 4:09
-02. Look What I've Done 8:33
-03. Rippoff 5:34
-04. Stringless Provider 10:25(   Читать дальше...   )Жанр: Crossover ProgressiveПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8855A7A121893B416C259295E4F66693D7CB3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952140   (358463) от 31.10.2015
-
-Electric Light Orchestra - On the Third Day (1973) Special Edition /2006, Epic/ [FLAC|image + .cue]<Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Breakup / King of the Universe (4:07)
-02. Bluebird Is Dead (4:43)
-03. Oh No Not Susan (3:07)
-04. New World Rising / Ocean Breakup (reprise) (4:05)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC10875670CC47D4303D6F66FD38E1029E8BE0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417449   (358414) от 20.10.2020
-
-Mysteria Noctis - Vulnera (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am I Here? (05:00)
-02. Thoughts (05:22)
-03. A Supplication (08:09)
-04. Ultimo Canto (04:55)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 0:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3C12E346F93980762452771CC0C1EEF5459BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417467   (358266) от 20.10.2020
-
-Ron Keel Band - South X South Dakota (2020) [FLAC|Lossless|tracks + .cue] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Train Train
-02. Rockin' Into The Night
-03. Don't Misunderstand Me (feat. Jasmine Cain)
-04. Red White & Blue(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AB698BE9EC91F136132875FA1238337B955D99
 ```
 
 https://mybot314.ru/tekegram_catalog/

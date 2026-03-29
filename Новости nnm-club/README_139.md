@@ -1,3 +1,164 @@
+###  Публикация: 1042221   (580339) от 11.08.2016
+
+Slimjet 11.0.4.0 + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547A3605D4B2327CD821407D3B416D2C356C8C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811211   (580283) от 08.08.2014
+
+VideoHive - Lost Album - 1333830 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-нибудь и наши внуки
+По истечении времён
+Возьмут однажды в свои руки
+Наш полувыцветший альбом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F3E25577EF026089F0B953D9E18F40367739E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302164   (579959) от 16.05.2019
+
+Детектив Ди: Четыре Небесных царя / Di Renjie: zhi si da tian wang (2018) BDRip [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579959.jpg" />
+</div>
+
+
+###  Подробнее
+
+За заслуги перед отечеством император дарует детективу Ди могущественный артефакт — Жезл Укрощения Драконов. Но императрица недовольна этим жестом, она считает, что таким образом император поставил под угрозу их власть, и Жезл надо немедленно вернуть. Миссия поручается давнему товарищу Ди, а в помощь ему императрица приставляет боевых магов. Но детектив Ди предвидел, (   Читать дальше...   )Производство: Китай, Гонконг / Huayi BrothersЖанр: Фэнтези, боевик, детектив, приключенияРежиссер: Цуй ХаркАктеры: Марк Чао, Карина Лау, Уилльям Фэн, Кенни Лин, Сандра Ма, Этан Жуань ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские, английскиеПродолжительность: 02:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65359E2FBE5552B84756D45611CC46C05E8B22CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920481   (579692) от 22.07.2015
+
+Лондонские каникулы / A Royal Night Out (2015) WEB-DLRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время Дня Победы в Европе в 1945 году принцессе Маргарет и ее сестре Элизабет разрешают покинуть пределы Букингемского дворца на ночь, там они сталкиваются с романтическими приключениями и опасностью…Производство: ВеликобританияЖанр: Триллер, Драма, МелодрамаРежиссер: Джулиан ДжаррольдАктеры: Сара Гадон, Эмили Уотсон, Джек РейнорПеревод: Дублированный (чистый звук)Продолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43338ACAC35A8C5298841F5597B88C8462ABEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920019   (579616) от 22.07.2015
+
+MadOut (2015) [Ru/En] (1.0) Rip Unleashed
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Madout это боевые гонки.
+
+Раздолбанные, подпрыгивающие на кочках, не всегда вписывающиеся в повороты, они летят на максимальной скорости, влекомые одним желанием: успеть. Победить. Оказаться лучше соперников во всем. Взять первое место. Там, где в других играх можно было толкнуть противника боком, вынося его с крутого поворота, здесь ты можешь прострелить ему к чертям (   Читать дальше...   )Тип издания: RipРазработчик: Nuligine Game CompanyЖанр: Action / Arcade / Racing (Cars) / 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3342F2AA63424AE30774C2C8D1192567956F2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920072   (579614) от 22.07.2015
+
+Дмитрий Рус | Цикл «Играть, чтобы жить» [7 книг] (2013-2015) [FB2, RTF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятный феномен Срыва всколыхнул мир. Играя в любимую онлайн-игру — будь осторожен при полном погружении в виртуал! Есть немалый шанс, что твое сознание сбросит оковы ущербного тела и навсегда останется в иной реальности. Горе тому, кто завис в «Тетрисе»! Не позавидуешь и тем, кто сотни раз в день вынужден гореть в броне танковых симуляторов… Но можно ли назвать (   Читать дальше...   )Жанр: Фэнтези, Киберпанк, ЛитРПГФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E087CED388FACE899779DF8239E8FC79A7E02A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920306   (579611) от 22.07.2015
 
 Breach & Clear: Deadline (2015) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +167,7 @@ Breach & Clear: Deadline (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579611.jpg" />
+  <img src="Z:/picture/008/save_picture_579611.jpg" />
 </div>
 
 
@@ -34,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579438.jpg" />
+  <img src="Z:/picture/008/save_picture_579438.jpg" />
 </div>
 
 
@@ -60,7 +221,7 @@ WPI VDO 2011.7 (2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579434.jpg" />
+  <img src="Z:/picture/008/save_picture_579434.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579425.jpg" />
+  <img src="Z:/picture/008/save_picture_579425.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579192.jpg" />
+  <img src="Z:/picture/008/save_picture_579192.jpg" />
 </div>
 
 
@@ -139,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579044.jpg" />
+  <img src="Z:/picture/008/save_picture_579044.jpg" />
 </div>
 
 
@@ -165,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579034.jpg" />
+  <img src="Z:/picture/008/save_picture_579034.jpg" />
 </div>
 
 
@@ -191,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578869.jpg" />
+  <img src="Z:/picture/008/save_picture_578869.jpg" />
 </div>
 
 
@@ -217,7 +378,7 @@ ContraCam v2.9.03 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578692.jpg" />
+  <img src="Z:/picture/008/save_picture_578692.jpg" />
 </div>
 
 
@@ -243,7 +404,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4737.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578561.jpg" />
+  <img src="Z:/picture/008/save_picture_578561.jpg" />
 </div>
 
 
@@ -269,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578559.jpg" />
+  <img src="Z:/picture/008/save_picture_578559.jpg" />
 </div>
 
 
@@ -295,7 +456,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4737.1001 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578557.jpg" />
+  <img src="Z:/picture/008/save_picture_578557.jpg" />
 </div>
 
 
@@ -321,7 +482,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578555.jpg" />
+  <img src="Z:/picture/008/save_picture_578555.jpg" />
 </div>
 
 
@@ -347,7 +508,7 @@ Kaspersky Reset Trial 5.0.0.112 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578550.jpg" />
+  <img src="Z:/picture/008/save_picture_578550.jpg" />
 </div>
 
 
@@ -373,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577689.jpg" />
+  <img src="Z:/picture/008/save_picture_577689.jpg" />
 </div>
 
 
@@ -399,7 +560,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577686.jpg" />
+  <img src="Z:/picture/008/save_picture_577686.jpg" />
 </div>
 
 
@@ -425,7 +586,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577681.jpg" />
+  <img src="Z:/picture/008/save_picture_577681.jpg" />
 </div>
 
 
@@ -451,7 +612,7 @@ System USB-Flash 10 v7.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577680.jpg" />
+  <img src="Z:/picture/008/save_picture_577680.jpg" />
 </div>
 
 
@@ -477,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577679.jpg" />
+  <img src="Z:/picture/008/save_picture_577679.jpg" />
 </div>
 
 
@@ -503,7 +664,7 @@ Saenal Park | Цикл «Overgeared / Во всеоружии» [24 книги] 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577545.jpg" />
+  <img src="Z:/picture/008/save_picture_577545.jpg" />
 </div>
 
 
@@ -514,169 +675,6 @@ Saenal Park | Цикл «Overgeared / Во всеоружии» [24 книги] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D25ECFF6F67F77120D1DC9407B44D565CD9D464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150682   (577439) от 16.07.2017
-
-Советник президента по климату предупредил о новых погодных аномалиях
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погодные аномалии, которые происходят летом 2017 года, могут повторяться чаще. Об этом сообщил советник президента РФ по вопросам изменения климата Александр Бедрицкий."Мы наблюдаем аномальные явления, когда погода неустойчивая. 2017 год - это пример таких ситуаций, которые могут повторятся все чаще", - сказал он, выступая в субботу на форуме МЧС России (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302912   (577379) от 18.05.2019
-
-Windows 10 Pro v1809 build 17763.503 x64 by Zosma (17.05.2019)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе Microsoft:
-ru_windows_10_business_edition_version_1809_updated_sept_2018_x64_dvd_b115f344
-Интегрированы актуальные обновления из ЦО на момент создания сборки: по 17 мая 2019
-После установки версия ОС 10.0.17763.503.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C75667F73CC47150BD28B581DF86C81E339841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150736   (577317) от 16.07.2017
-
-Физики создали первый в мире 51-кубитный квантовый компьютер
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа российских и американских ученых под руководством профессора Гарвардского университета, сооснователя Российского квантового центра (РКЦ) Михаила Лукина создали первый в мире квантовый компьютер, состоящий из 51 кубита. На сегодняшний день устройство является самой сложной вычислительной системой такого рода.С помощью разработанного квантового компьютера Лукину (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554501   (577097) от 30.05.2022
-
-Windows 11 21H2 x64 Rus by OneSmiLe [22000.708] (Fix 2022/30.05)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-22000.708.220511-1950.CO_RELEASE_SVC_PROD3_CLIENTMULTICOMBINED_UUP_X64FRE_RU-RU_FIX
-Удалены все модерн приложения кроме Магазина, Paint и Блокнота.
-3 образа системы -(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E633982E27796B266B81CCC5366D1B9261AC20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553943   (577088) от 30.05.2022
-
-Astra Linux 1.7.1 [amd64] 1xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577088.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7.1 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7.1 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D59046DB6AD8179BC394919483608346181CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920850   (576654) от 24.07.2015
-
-Обнаружен новый бэкдор для Linux
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вирусные аналитики компании «Доктор Веб» исследовали новый образец трояна-бэкдора, представляющего опасность для операционных систем семейства Linux. Как сообщили CNews в «Доктор Веб», по задумке авторов этой вредоносной программы она должна обладать чрезвычайно широким и мощным набором возможностей, однако на текущий момент далеко не все ее функции работают соответствующим (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

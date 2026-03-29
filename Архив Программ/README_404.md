@@ -6,7 +6,7 @@ Icecream Screen Recorder Pro 3.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838063.jpg" />
+  <img src="Z:/picture/008/save_picture_838063.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Calibre 5.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837998.jpg" />
+  <img src="Z:/picture/008/save_picture_837998.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Spotify 1.1.69.612 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837997.jpg" />
+  <img src="Z:/picture/008/save_picture_837997.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Chromium 94.0.4606.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837991.jpg" />
+  <img src="Z:/picture/008/save_picture_837991.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ QOwnNotes 21.10.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837983.jpg" />
+  <img src="Z:/picture/008/save_picture_837983.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WhyNotWin11 2.4.2.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837982.jpg" />
+  <img src="Z:/picture/008/save_picture_837982.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Telegram Desktop 3.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837981.jpg" />
+  <img src="Z:/picture/008/save_picture_837981.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ VirtualBox 5.1.16 r113841 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837954.jpg" />
+  <img src="Z:/picture/008/save_picture_837954.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Faasoft Audio Converter 5.4.18.6270 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837937.jpg" />
+  <img src="Z:/picture/008/save_picture_837937.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Google Chrome 57.0.2987.98 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837935.jpg" />
+  <img src="Z:/picture/008/save_picture_837935.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837933.jpg" />
+  <img src="Z:/picture/008/save_picture_837933.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Skype 7.22.32.108 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837931.jpg" />
+  <img src="Z:/picture/008/save_picture_837931.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AutoLogger 2015.11.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837922.jpg" />
+  <img src="Z:/picture/008/save_picture_837922.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Bandizip 5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837918.jpg" />
+  <img src="Z:/picture/008/save_picture_837918.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Icecream Screen Recorder Pro 3.61 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837917.jpg" />
+  <img src="Z:/picture/008/save_picture_837917.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Visual Studio Code 1.61.0 + Автономная версия (standalone) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837872.jpg" />
+  <img src="Z:/picture/008/save_picture_837872.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ FurMark 1.28.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837871.jpg" />
+  <img src="Z:/picture/008/save_picture_837871.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NetBalancer 10.3.4.2834 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837868.jpg" />
+  <img src="Z:/picture/008/save_picture_837868.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Rainlendar Lite 2.17.1 Build 170 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837867.jpg" />
+  <img src="Z:/picture/008/save_picture_837867.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Rainmeter 4.5.4 Build 3550 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837866.jpg" />
+  <img src="Z:/picture/008/save_picture_837866.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Google Chrome Enterprise 94.0.4606.81 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837865.jpg" />
+  <img src="Z:/picture/008/save_picture_837865.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ WinTools.net Premium 21.9.0 RePack (& portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837863.jpg" />
+  <img src="Z:/picture/008/save_picture_837863.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Adobe Animate CC 2017.1 16.1.0.86 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837846.jpg" />
+  <img src="Z:/picture/008/save_picture_837846.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Icecream Ebook Reader Pro 2.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837833.jpg" />
+  <img src="Z:/picture/008/save_picture_837833.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Display Driver Uninstaller 15.7.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837831.jpg" />
+  <img src="Z:/picture/008/save_picture_837831.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VSDC Free Video Editor 3.3.5.411 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837825.jpg" />
+  <img src="Z:/picture/008/save_picture_837825.jpg" />
 </div>
 
 

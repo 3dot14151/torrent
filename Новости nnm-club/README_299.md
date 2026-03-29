@@ -1,3 +1,159 @@
+###  Публикация: 1799355   (16790) от 27.05.2025
+
+Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участвуйте в важнейших битвах Второй мировой и сражайтесь за победу на фронтах Европы, Тихого океана и Северной Африки. В игре Vanguard, разработанной студией Sledgehammer Games, вас ждет увлекательная история о небольшом отряде элитных солдат из разных стран и родов войск, объединившихся, чтобы дать отпор самой страшной угрозе миру, переломить ход войны и заложить (   Читать дальше...   )Тип издания: RepackРазработчик: Sledgehammer Games, Treyarch, High Moon Studios, Raven Software, Beenox, DemonwareЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF56130E7D13A1FC1529C54373B5CE72A8C4A1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799226   (16789) от 27.05.2025
+
+Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.2.12721522) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, представляющий собой новую главу в одноименной франшизе. Представлен совершенно новый сюжет и огромное количество новых механик. Улучшен искусственный интеллект в одиночном приключении, полностью обновлена физика воды и механика плавания, переработано управление транспортными средствами и многое другое.Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Beenox, Treyarch, High Moon Studios, Sledgehammer Games, Activision Shanghai, Demonware, Toys for BobЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701B12B329685A45B8EF26970BF011EE82408E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799674   (16491) от 29.05.2025
+
+Kaspersky Free 21.21.7.384 Repack by LcHNextGen (29.05.2025) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Free – это ограниченная бесплатная версия приложения Kaspersky. При использовании бесплатной версии приложения вы получаете высокое качество защиты, дополненное нашими новыми разработками, с полностью обновленным интерфейсом для удобного использования.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D0674703AF20DB5ADF4FFF3E332CD1BA1232EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799652   (16490) от 29.05.2025
+
+Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack FitGirl
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участвуйте в важнейших битвах Второй мировой и сражайтесь за победу на фронтах Европы, Тихого океана и Северной Африки. В игре Vanguard, разработанной студией Sledgehammer Games, вас ждет увлекательная история о небольшом отряде элитных солдат из разных стран и родов войск, объединившихся, чтобы дать отпор самой страшной угрозе миру, переломить ход войны и заложить (   Читать дальше...   )Тип издания: RepackРазработчик: Sledgehammer Games, Treyarch, High Moon Studios, Raven Software, Beenox, DemonwareЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B4F6C8D8E1F8B13BB2468D1945A904285CE3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794356   (16484) от 29.05.2025
+
+Одни из нас / The Last of Us (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-7 из 7) Sunnysiders
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после событий первого сезона Джоэл и Элли оказываются втянуты в конфликт друг с другом и с миром, ещё более опасным и непредсказуемым, чем тот, который они оставили позади.Производство: Канада, США /	Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: фантастика, драма, ужасы, боевикРежиссер: Крэйг Мэйзин, Марк Майлод, Питер Хор, Кейт Херрон, Стивен Уильямс, Нил Дракманн, Нина Лопес-КоррадоАктеры: Педро Паскаль, Белла Рэмзи, Гэбриел Луна, Изабела Мерсед, Янг Мазино, Кейтлин Дивер, Рутина Уэсли, Роберт Джон Бёрк, Спенсер Лорд, Тати ГабриэльПеревод: Профессиональный многоголосый (Рус, Укр - Sunnysiders по заказу Megogo)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: 2x русские, английские, украинские, болгарские, китайские, румынскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C3C06ED9E613ADF3FCF59038B33B6CBD99E32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027259   (16483) от 29.05.2025
+
+Подшивка журналов | Моделист-конструктор (1962-1995) [PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный массовый популярный научно-технический журнал. Освещает вопросы научно-технического творчества молодежи, рационализаторской работы, конструирования новой любительской техники, деятельности общественных конструкторских бюро, клубов, кружков юных техников и др.; рассказывает об истории русской, советской и зарубежной техники, о боевых подвигах советских (   Читать дальше...   )Жанр: Моделизм, научно-популярный для детей, хоббиИздательство: ЦК ВЛКСМ, изд-во "Молодая гвардия"Формат: PDFКачество: Хороший скан (
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50583ACF0B9AD35F3289E9B1D920E97F8D3FE289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752679   (16190) от 31.05.2025
 
 Красные бутоны / Kizil Goncalar (2024-2025) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-27 (20-46) из 27) Lucky Production, AlisaDirilis
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16190.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16176.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16155.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Windows 11 Enterprise LTSC x64 24Н2 (build 26100.4061) by ivandubskoj 24.05.202
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16038.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16032.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15903.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15806.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Valve назвала самые популярные видеокарты Steam 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15615.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15435.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15404.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15217.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15104.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14811.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.511.102.0/dlc
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14793.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 06.2025 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14792.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14699.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14698.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14693.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14687.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14585.jpg" />
 </div>
 
 
@@ -515,165 +671,6 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802120   (14538) от 15.06.2025
-
-Новое достижение: 2000 релизов от Beijing65!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое достижение: 2000 релизов от Beijing65!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 2000-м релизом!
-Невероятное количество релизов, огромный труд!!!
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788647   (14270) от 18.06.2025
-
-Гангстерленд / MobLand (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-10 из 10) RHS, HDRezka, LostFilm, TVShows, NewComers, КвК, WStudio, LE-Production (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две враждующие семьи — Харриганы и Стивенсоны — вступают в открытое противостояние. Их столкновение превращает Лондон в поле битвы, где «власть идет на уступки, а союзы рушатся за считанные часы». В эпицентре оказывается Гарри да Соуза (Том Харди) — «уличный решальщик», чья опасность соперничает с его внешней харизмой. Он годами закрывал глаза на преступления Харриганов, (   Читать дальше...   )Производство: США / 101 Studios, MTV Entertainment Studios, MTV Studios, Showtime NetworksЖанр: криминал, драмаРежиссер: Энтони Бирн, Гай Ричи, Даниэль СыркинАктеры: Том Харди, Хелен Миррен, Пирс Броснан, Джемма Найт Джонс, Люк Мэбли, Брэдли Тернер, Джоэнн Фрогатт, Пэдди Консидайн, Лара ПулверПеревод: Дублированный (Red Head Sound), Многоголосый (HDRezka, LostFilm, TVShows, NewComers, WStudio, LE-Production), двухголосый (Кубик в Кубе)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F5816D802CD93F7193F00610332580E7017AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685371   (14168) от 19.06.2025
-
-Игра престолов / Game of Thrones (2011-2019) BDRip [H.265/1080p] [10-bit] (сезон 1-8, серии 1-73 из 73) Кравец, AlexFilm, LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14168.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу подходит время благоденствия, и лето, длившееся почти десятилетие, угасает. Вокруг средоточия власти Семи королевств, Железного трона, зреет заговор, и в это непростое время король решает искать поддержки у друга юности Эддарда Старка. В мире, где все — от короля до наёмника — рвутся к власти, плетут интриги и готовы вонзить нож в спину, есть место и благородству, (   Читать дальше...   )Производство: США, Великобритания / Bighead Littlehead, Created By, Generator Entertainment, Home Box Office (HBO), Television 360Жанр: фэнтези, драма, боевик, мелодрама, приключенияРежиссер: Дэвид Наттер, Алан Тейлор, Алекс ГрейвзАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Софи Тёрнер, Мэйси Уильямс, Николай Костер-Вальдау, Иэн Глен, Алфи Аллен, Джон БрэдлиПеревод: дублированный (Kravec), многоголосый профессиональный (AlexFilm, LostFilm)Язык озвучки: русский, английскийСубтитры: русские (full, forced), английские (full, forced)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C4655F4FC35A3D1338F60F90C51C01A6B12A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802824   (14072) от 20.06.2025
-
-Подтверждена самая крупная утечка данных в истории: в Сеть утекли 16 млрд паролей от аккаунтов Apple и Google
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи из компании Cybernews обнаружили беспрецедентную утечку данных, в результате которой в открытом доступе оказались почти 16 млрд логинов и паролей от аккаунтов в различных популярных сервисах. Некоторыми экспертами данная утечка называется крупнейшей в истории. Предполагается, что база данных собиралась при помощи многочисленных программ-инфостилеров.Слитый (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495415   (14060) от 20.06.2025
-
-Подшивка журналов | Искатель (1961-1969) [PDF] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14060.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Искатель" - советский, затем российский журнал, публикующий преимущественно фантастические и приключенческие произведения, а также научно-популярные очерки.
-Основан в 1961 году, в год столетнего юбилея журнала «Вокруг света», как литературное приложение к нему. До 1997 года выходил шесть раз в год, затем стал ежемесячным, в советское время распространялся (   Читать дальше...   )Жанр: Фантастика, приключения, детективы, публицистикаИздательство: ЦК ВЛКСМ "Молодая гвардия"Формат: PDFКачество: Хороший скан, OCR с ошибками (600dpi)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802836   (14041) от 20.06.2025
-
-В США подняли в воздух «самолет Судного дня». Что это такое. Boeing E-4B совершил необычный полет
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вслед за «Радиостанцией Судного дня» широкой общественности стало известно еще об одном техническом средстве с пугающим апокалиптическим названием. В СМИ распространилась информация об американском Boeing E-4B Nightwatch, или «самолете Судного дня». Недавно он совершил очень странный полет. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

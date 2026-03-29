@@ -6,7 +6,7 @@ Windows 10 Enterprise LTSB 10.0.14393 Version 1607 (x86/x64) [Updates 3.0] by Ye
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798988.jpg" />
+  <img src="Z:/picture/008/save_picture_798988.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SoftPerfect RAM Disk 4.3.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798987.jpg" />
+  <img src="Z:/picture/008/save_picture_798987.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kaspersky Virus Removal Tool 15.0.19.0 (04.04.2017) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798984.jpg" />
+  <img src="Z:/picture/008/save_picture_798984.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Movavi Video Suite 22.0.1 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798983.jpg" />
+  <img src="Z:/picture/008/save_picture_798983.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Atomix VirtualDJ 2021 Pro Infinity 8.5.6732 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798979.jpg" />
+  <img src="Z:/picture/008/save_picture_798979.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Revo Uninstaller Pro 3.1.9 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798969.jpg" />
+  <img src="Z:/picture/008/save_picture_798969.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ O&O ShutUp10 1.9.1426 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798940.jpg" />
+  <img src="Z:/picture/008/save_picture_798940.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Boilsoft Video Splitter 8.3.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798936.jpg" />
+  <img src="Z:/picture/008/save_picture_798936.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Movavi Video Suite 22.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798933.jpg" />
+  <img src="Z:/picture/008/save_picture_798933.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ PicturesToExe Deluxe 9.0.7 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798874.jpg" />
+  <img src="Z:/picture/008/save_picture_798874.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Allavsoft Video Downloader Converter 3.14.2.6303 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798856.jpg" />
+  <img src="Z:/picture/008/save_picture_798856.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ USDownloader 1.3.5.9 Portable (05.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798842.jpg" />
+  <img src="Z:/picture/008/save_picture_798842.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Cacheman 10.10.0.7 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798812.jpg" />
+  <img src="Z:/picture/008/save_picture_798812.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ K-Lite Codec Pack Update 13.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798804.jpg" />
+  <img src="Z:/picture/008/save_picture_798804.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BurnAware Professional 10.2 DC 04.04.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798801.jpg" />
+  <img src="Z:/picture/008/save_picture_798801.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ K-Lite Codec Pack Update 16.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798746.jpg" />
+  <img src="Z:/picture/008/save_picture_798746.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ GoodSync Enterprise 10.9.21.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798743.jpg" />
+  <img src="Z:/picture/008/save_picture_798743.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Wise Data Recovery 4.12.214 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798737.jpg" />
+  <img src="Z:/picture/008/save_picture_798737.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera 57.0.3098.110 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798736.jpg" />
+  <img src="Z:/picture/008/save_picture_798736.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Bandizip 6.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798731.jpg" />
+  <img src="Z:/picture/008/save_picture_798731.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mozilla Thunderbird 91.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798719.jpg" />
+  <img src="Z:/picture/008/save_picture_798719.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Acoustica Premium Edition 7.3.20 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798718.jpg" />
+  <img src="Z:/picture/008/save_picture_798718.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AVS Audio Software 9.0.1.5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798691.jpg" />
+  <img src="Z:/picture/008/save_picture_798691.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Telegram Desktop 3.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798684.jpg" />
+  <img src="Z:/picture/008/save_picture_798684.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798682.jpg" />
+  <img src="Z:/picture/008/save_picture_798682.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Macrorit Partition Extender 1.6.5 Unlimited Edition  RePack (& Portable) by TryR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798680.jpg" />
+  <img src="Z:/picture/008/save_picture_798680.jpg" />
 </div>
 
 

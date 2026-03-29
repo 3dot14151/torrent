@@ -1,3 +1,119 @@
+###  Публикация: 1048639   (546582) от 02.09.2016
+
+Halie Loren & Matt Treder - Many times, many ways (2008) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Christmas Song
+02. Winter Wonderland
+03. Blue Holiday
+04. Sugar Cookies(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC3E1B93BAF24B02A022E8E595E4792916FE725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048604   (546538) от 02.09.2016
+
+Rufus Harley - Scotch & Soul (1966) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Feeling Good [07:35]
+ 02.If You Could See Me Now [06:18]
+ 03.Taurus The 20th [06:59]
+ 04.Scotch & Soul [05:06](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAA450EE1C5E2634F0465CBB77FA0B329850BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048575   (546472) от 02.09.2016
+
+Kaori Kobayashi - Melody (2016) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It Off (Taylor Swift)
+02. Runaway (Nuyorican Soul)
+03. We’re All Alone (Boz Scaggs)
+04. Saturday In The Park (Chicago)(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF95FDD4C3AF6EC60AA0D589E808FF39F89837B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238521   (546248) от 30.07.2018
+
+Christina von Bülow - On the Brink of a Lovely Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546248.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Should Care 06:38
+2. Just Too Very 05:24
+3 Still I Love You So 05:41
+4. Out Lee 06:17(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC13EF90863ED57729BE8B59E809B169A00EFE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049004   (545863) от 03.09.2016
 
 Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +122,7 @@ Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545863.jpg" />
+  <img src="Z:/picture/008/save_picture_545863.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Russell Malone - All About Melody (2016) [FLAC|Lossless|image + .cue] <Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545811.jpg" />
+  <img src="Z:/picture/008/save_picture_545811.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545807.jpg" />
+  <img src="Z:/picture/008/save_picture_545807.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545806.jpg" />
+  <img src="Z:/picture/008/save_picture_545806.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545340.jpg" />
+  <img src="Z:/picture/008/save_picture_545340.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544979.jpg" />
+  <img src="Z:/picture/008/save_picture_544979.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
+  <img src="Z:/picture/008/save_picture_544970.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544926.jpg" />
+  <img src="Z:/picture/008/save_picture_544926.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Scofield - Still Warm (1986) Gramavision[FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544921.jpg" />
+  <img src="Z:/picture/008/save_picture_544921.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Michael Dease - Reaching Out (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544661.jpg" />
+  <img src="Z:/picture/008/save_picture_544661.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Joe Sullivan - 1945 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543841.jpg" />
+  <img src="Z:/picture/008/save_picture_543841.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Cedar Walton - Eastern Rebellion 2 (1977) /2015, Solid Records/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543164.jpg" />
+  <img src="Z:/picture/008/save_picture_543164.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Art Blakey & The Jazz Messengers - A Night In Tunisia (1960) /2013, Universal/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543158.jpg" />
+  <img src="Z:/picture/008/save_picture_543158.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Curtis Fuller - The Opener (1957) 1996, Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542539.jpg" />
+  <img src="Z:/picture/008/save_picture_542539.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Gabor Szabo - In Budapest Again (1978, 1981) 2018, Moiras Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542533.jpg" />
+  <img src="Z:/picture/008/save_picture_542533.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ed Bickert - Ed Bickert (1975) Remaster, 2013, Ratspack Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542481.jpg" />
+  <img src="Z:/picture/008/save_picture_542481.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Junior Mance - Live At The Top (Guest Artist: David Newman) (1968) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542405.jpg" />
+  <img src="Z:/picture/008/save_picture_542405.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Jack DeJohnette - Zebra (1985) Pan Music[FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542402.jpg" />
+  <img src="Z:/picture/008/save_picture_542402.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Ivan 'Boogaloo Joe' Jones - Snake Rhythm Rock & Black Whip (1972, 1973) 1992, BG
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542381.jpg" />
+  <img src="Z:/picture/008/save_picture_542381.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Charlie Hunter - Everybody Has A Plan Until They Get Punched In The Mouth (2016)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542376.jpg" />
+  <img src="Z:/picture/008/save_picture_542376.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bill Evans - Momentum, Vol. 1 (1972) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542259.jpg" />
+  <img src="Z:/picture/008/save_picture_542259.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Richard Galliano Septet - Piazzolla forever (2003) [FLAC|Lossless]<Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542131.jpg" />
+  <img src="Z:/picture/008/save_picture_542131.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Richard Galliano Septet - Piazzolla forever (2003) [FLAC|Lossless]<Contemporary 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925413   (541492) от 06.08.2015
-
-Keith Jarrett - Backhand (1974) /2013, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inflight [09:08]
-02. Kuum [11:41]
-03. Vapallia [07:50]
-04. Backhand [11:09]Жанр: Jazz, Post-BopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A645FC059C3F6EFF40B1790CB06C19A1A09EC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925390   (541491) от 06.08.2015
-
-Curtis Fuller Quintet - South American Cookin' (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Young Lovers [05:24]
-02. Besame Mucho [09:20]
-03. Willow Weep For Me [06:45]
-04. One Note Samba [04:16](   Читать дальше...   )Жанр: Jazz, Hard Bop, Mainstream JazzПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1726BA6A674DA27364352CE0D2E261A63B6C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925369   (541411) от 06.08.2015
-
-VA - Electro Jazz (2015) [FLAC|tracks|WEB-DL]<Electro Jazz, Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpretes Divers - Rhodes Club (03:41)
-02. Interpretes Divers - Hot Times (03:20)
-03. Interpretes Divers - Urban Trumpet (03:31)
-04. Gregory Toucas - Miles from Dream (04:08)(   Читать дальше...   )Производство: Justement MusicЖанр: Electro Jazz, Nu Jazz, Broken BeatПродолжительность: 01:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18381AC79BAFE37658D060A05BE731EB7AE7740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050192   (540755) от 07.09.2016
-
-VA - Jazzy Lounge, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice Sanders - Oise [3:56]
-02. Cee Jazz - A Night in Venice [4:51]
-03. Dee Lice - Derize (Chill Groovers Mix) [5:44]
-04. Cairo Aerts - Hybrid Line [3:52](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3232CC5DA47A2167DC6ADC83AFDDC4AF51259688
 ```
 
 https://mybot314.ru/tekegram_catalog/

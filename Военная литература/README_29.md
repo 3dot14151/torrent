@@ -1,3 +1,29 @@
+###  Публикация: 584307   (574404) от 15.08.2016
+
+Сергей Патянин | Французские крейсера Второй Мировой. «Военно-морское предательство» (2012) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574404.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 января 1941 года, в Сиамском заливе, у Ко-Чанга, французский легкий крейсер «Ламот-Пике» атаковали тайский броненосец береговой обороны «Донбури», который был старше на целых два поколения и, после получасовой перестрелки, тяжело поврежденный, вышел из боя, чтобы вскоре затонуть на мели. «Ламот-Пике» не получил ни одного попадания и потерь не имел. Этот расстрел (   Читать дальше...   )Жанр: Военная история, флотФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89279EC26CCF31F84691B9390D513B270548024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302372   (574155) от 20.05.2019
 
 Андрей Валерьевич Банников | Римская армия в IV столетии (от Константина до Феодосия) (2011) [FB2]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574155.jpg" />
+  <img src="Z:/picture/008/save_picture_574155.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573091.jpg" />
+  <img src="Z:/picture/008/save_picture_573091.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572854.jpg" />
+  <img src="Z:/picture/008/save_picture_572854.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571687.jpg" />
+  <img src="Z:/picture/008/save_picture_571687.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571682.jpg" />
+  <img src="Z:/picture/008/save_picture_571682.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571334.jpg" />
+  <img src="Z:/picture/008/save_picture_571334.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568214.jpg" />
+  <img src="Z:/picture/008/save_picture_568214.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568181.jpg" />
+  <img src="Z:/picture/008/save_picture_568181.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568117.jpg" />
+  <img src="Z:/picture/008/save_picture_568117.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568030.jpg" />
+  <img src="Z:/picture/008/save_picture_568030.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567274.jpg" />
+  <img src="Z:/picture/008/save_picture_567274.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565036.jpg" />
+  <img src="Z:/picture/008/save_picture_565036.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564905.jpg" />
+  <img src="Z:/picture/008/save_picture_564905.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564524.jpg" />
+  <img src="Z:/picture/008/save_picture_564524.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563257.jpg" />
+  <img src="Z:/picture/008/save_picture_563257.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563256.jpg" />
+  <img src="Z:/picture/008/save_picture_563256.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563102.jpg" />
+  <img src="Z:/picture/008/save_picture_563102.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563068.jpg" />
+  <img src="Z:/picture/008/save_picture_563068.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562122.jpg" />
+  <img src="Z:/picture/008/save_picture_562122.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562041.jpg" />
+  <img src="Z:/picture/008/save_picture_562041.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560905.jpg" />
+  <img src="Z:/picture/008/save_picture_560905.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559068.jpg" />
+  <img src="Z:/picture/008/save_picture_559068.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558966.jpg" />
+  <img src="Z:/picture/008/save_picture_558966.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557976.jpg" />
+  <img src="Z:/picture/008/save_picture_557976.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557534.jpg" />
+  <img src="Z:/picture/008/save_picture_557534.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EEC77439A7F49A235A078F75C0F7730FE16C2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306692   (555440) от 06.06.2019
-
-Книжная серия | Военная авиация XX века [18 книг] (2012-2016) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555440.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная авиация XX века» - серия книг о военных самолетах XX века. История создания, испытания, производство, вооружение, характеристики и другие интересные и малодоступные сведения.Жанр: История авиации, Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A8E08D4B6637AA6633EB2F83EF6C3F8932D9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

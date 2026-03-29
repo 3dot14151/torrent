@@ -1,3 +1,87 @@
+###  Публикация: 1691503   (123259) от 12.01.2024
+
+Ксения Валаханович | Однажды в лесу. Сборник стихотворений (2023) [MP3, Елена Березина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто покусал комара и куда торопятся ёжик Пашка с ёжкой Светкой? Отчего невесел лось и что внутри у енота Иннокентия? Кто такие хорхухо́ли-выхорьки и чем же так легендарен барсук?
+
+В сказочном лесу целый день происходят всяческие увлекательности и весёлые интересности! «Однажды в лесу» – это сборник уморительных и добрых стихотворений, которые, несомненно, порадуют (   Читать дальше...   )Жанр: детские стихи, стихи про животныхИздательство: CLEVERПродолжительность: 00:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7AF4F39DC0DFA4F32BEEDE5AF2FB7D6F5F0402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691655   (123072) от 13.01.2024
+
+И.С. Шмелёв | Мэри (2005) [MP3, Рафаэль Клейнер]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская библиотека.
+Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель.
+Аудиокнига составлена из рассказов И.С. Шмелёва, которые сам писатель относил к произведениям для детей и юношества. В заглавие диска вынесено название рассказа о скаковой лошадке Мэри, история которой, удивительная по своей пронзительной (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: ДеоникаПродолжительность: 06:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F49405862631DA2F7764DAF09B6D508D17B1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412334   (123017) от 14.01.2024
+
+Иван Бунин | Повести и рассказы. Лирика (2004) [MP3, Виктор Зозулин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная хрестоматия: литература.
+Иван Алексеевич Бунин (1870-1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт. В 1933 году стал первым русским лауреатом Нобелевской премии по литературе – «за правдивый артистический талант, с которым он воссоздал в прозе типичный русский характер», но уже в эмиграции.
+В книге представлены (   Читать дальше...   )Жанр: Русская литература, классика, рассказ, поэзияПродолжительность: 07:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DA919BEAC272E14DA414B075687D7A36542437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691854   (122891) от 14.01.2024
 
 Корнелия Функе | Рыцарь-призрак (2015) [MP3, Воробьёва Ирина]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122891.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122725.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122671.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122644.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122603.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122559.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122177.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122176.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122109.jpg" />
 </div>
 
 
@@ -250,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122009.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121995.jpg" />
 </div>
 
 
@@ -307,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121991.jpg" />
 </div>
 
 
@@ -335,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121989.jpg" />
 </div>
 
 
@@ -365,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121986.jpg" />
 </div>
 
 
@@ -393,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121984.jpg" />
 </div>
 
 
@@ -421,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121924.jpg" />
 </div>
 
 
@@ -448,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121922.jpg" />
 </div>
 
 
@@ -475,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121846.jpg" />
 </div>
 
 
@@ -502,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121822.jpg" />
 </div>
 
 
@@ -529,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121818.jpg" />
 </div>
 
 
@@ -556,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121790.jpg" />
 </div>
 
 
@@ -584,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121709.jpg" />
 </div>
 
 
@@ -612,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121686.jpg" />
 </div>
 
 
@@ -625,87 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B6A00C90058B4843196FA97DB34ABCFCA7E6096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693630   (121679) от 21.01.2024
-
-Ион Попеску-Гопо | Мария Мирабела (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союзмультфильм.
-В конце восьмидесятых на киноэкранах страны появился этот «чудесный-расчудесный» фильм, в котором мультипликационные герои «играют» на ровне с живыми актерами. Лягушонок Кваки сказал неправду, и вода вокруг его лапок заледенела. Бабочка Амидэ не может научиться летать. А у светлячка Скипирича постоянно загораются его башмачки, когда он (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258F688C2FFDF51EBFA34DE68D8C841B023AA4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693619   (121678) от 21.01.2024
-
-Николай Носов и др. | Бобик в гостях у Барбоса (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союзмультфильм.
-Вы услышите сразу три сюжета на «собачью» тему. В сказке Николая Носова «Бобик в гостях у Барбоса» роли озвучили Юрий Никулин и Олег Табаков – более звездный дуэт трудно севе представить! Вторая сказка – самый настоящий детектив. Далматинский дог Том рассказывает о своих похождениях с самим Шерлоком Холмсом. Роль последнего исполняет, (   Читать дальше...   )Жанр: Детская литература, приключения, рассказ, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E28DD22BE6D4AB70F749B91078AC32686662064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693654   (121665) от 21.01.2024
-
-Геннадий Цыферов | Книжка под подушкой. Сказки (2016) [MP3, Ольга Радченко, Татьяна Акимова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Книжка под подушкой.
-Милые и добрые истории Цыферова знакомы каждому из нас. Кто не знаком с такими мультфильмами, как «Паровозик из Ромашково», «Лошарик», «Лягушонок ищет папу»? Помните трогательную историю про маленький Паровозик, который возил детей на станцию Ромашково? Во время поездок Паровозику так нравилось любоваться красотой окружающего мира, (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: Мастер FMПродолжительность: 00:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A61EC37E0F2586B04ABD19E8C74014EC85E286
 ```
 
 https://mybot314.ru/tekegram_catalog/

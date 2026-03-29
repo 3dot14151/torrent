@@ -1,3 +1,135 @@
+###  Публикация: 404574   (1041348) от 07.01.2021
+
+С.И. Анни | 185 узоров вязания крючком (2010) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041348.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлено 185 узоров полотен, мотивов и элементов, связанных крючком.
+Плотные узоры, узоры в шахматном порядке, филейные узоры, узоры с чередованием ажурных и плотных полос, узоры с вертикальным расположением полос; квадратные, круглые, треугольные, шестиугольные и восьмиугольные мотивы.
+На каждый узор дана цветная фотография и схема вязания.Жанр: Рукоделие, вязание крючкомФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175DA3B7F56F550D6BEB420C1B37EDAC0FCA42A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451735   (1041344) от 07.01.2021
+
+Г.И. Долженко | 100 оригами (2006) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Складывание и художественное оформление фигурок оригами интересно заполнят свободное время, доставят огромное удовольствие, радость и взрослым и детям.Жанр: ХоббиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF3FAC2E330954C2A4B57548FFBAAB5D6697847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510288   (1041341) от 07.01.2021
+
+Любовь Фатеева | Подвижные игры, эстафеты и аттракционы (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игровые формы физических упражнений, представленные в книге, могут проводиться с детьми самого разного возраста, как с большой группой, так и с несколькими участниками, а некоторые, даже индивидуально. Книга рекомендуется как учителям, так и родителям.Жанр: подвижные игрыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A1601D766883DCA7A0597E9FF9C0398C148231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 393214   (1041338) от 07.01.2021
+
+Т.И. Тарабарина | Оригами и развитие ребенка. Популярное пособие для родителей и педагогов (1997) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изготовление различных поделок из цветной бумаги - увлекательное занятие для детей любого возраста, да, пожалуй, и взрослых. Книга поможет вам в овладении японским искусством складывания из бумаги - оригами. Занятия с детьми можно проводить дома, в детском саду, на уроках труда в младших классах школы.Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30458246DB4D9E2A44FA674471E3D0BB45D9714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386830   (1041286) от 07.01.2021
+
+В.В. Выгонов | Трехмерное оригами (2004) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга включает целую коллекцию работ оригами на разные темы и уровни сложности. Многие работы можно использовать при изучении основ геометрии в школе, во внеклассной работе. Более сложные изделия можно применять для оформления интерьеров класса, школы, различных праздников. В данной книге широко представлены изделия, которые выполняются не только из квадратного (   Читать дальше...   )Жанр: Оригами, ПоделкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B9DB485DF86307E9C7DA9FF530D5AEED637C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 391197   (1041285) от 07.01.2021
 
 Клуб семейного досуга | Атлас мира. Иллюстрированная энциклопедия для детей (2008) [PDF]
@@ -6,7 +138,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041285.jpg" />
 </div>
 
 
@@ -35,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041277.jpg" />
 </div>
 
 
@@ -61,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041270.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041207.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041180.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041179.jpg" />
 </div>
 
 
@@ -168,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041103.jpg" />
 </div>
 
 
@@ -194,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041017.jpg" />
 </div>
 
 
@@ -220,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041015.jpg" />
 </div>
 
 
@@ -246,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041003.jpg" />
 </div>
 
 
@@ -272,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040940.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040938.jpg" />
 </div>
 
 
@@ -326,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040917.jpg" />
 </div>
 
 
@@ -352,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040916.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040911.jpg" />
 </div>
 
 
@@ -405,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040907.jpg" />
 </div>
 
 
@@ -431,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040905.jpg" />
 </div>
 
 
@@ -457,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040904.jpg" />
 </div>
 
 
@@ -485,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040901.jpg" />
 </div>
 
 
@@ -512,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040898.jpg" />
 </div>
 
 
@@ -538,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040889.jpg" />
 </div>
 
 
@@ -549,141 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5672E8A0282C70FED69CBC50E317B5000C56C9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438742   (1040882) от 09.01.2021
-
-Наталья Володина | Ломоносовская школа. Знакомлюсь с буквами для детей 3-4 лет. Часть 1-2. (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основная цель пособия, соответствующего требованиям ФГОС, помочь малышу выучить буквы. Веселые красочные рисунки и разнообразные графические упражнения сформируют у ребенка зрительный образ буквы, научат его различать похожие по начертанию буквы. Для этого предлагаются такие формы работы, как раскрашивание, обведение по пунктиру, лепка и т. д. Работа с книгой способствует (   Читать дальше...   )Жанр: Образование/Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD088F1A7C74B3E079A1209F147ACEBFE3C19B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438755   (1040860) от 09.01.2021
-
-Алеся Третьякова, Татьяна Шабан | Найди, узнай, покажи. Умные лабиринты (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Умные лабиринты" - прежде всего весёлая игра. Ведь именно так в первые годы жизни кроха познает мир. Задания и лабиринты на её страницах перемежаются c доступно изложенной занимательной информацией обо всем на свете.
-
-Наши умные лабиринты составлены из множества красочных иллюстраций, рассматривая которые ребёнок научится концентрироваться на задании, (   Читать дальше...   )Жанр: Настольные игры/Головоломки/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF36A3583722DD8A69C546D24246BCC833667591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508924   (1040776) от 09.01.2021
-
-А. И. Блейз | Всё обо всём. Мифы народов Азии и Африки (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Открой книгу «Мифы народов Азии и Африки» - и ты не сможешь от нее оторваться! Сюрпризы и удивительные открытия ждут тебя на каждой странице.
-Ты прочтешь: о злой ведьме Рангде, львиноголовой богине дождя Тефнут и матушке Лун-му, которая вырастила дракона.
-Ты увидишь: бога солнца Ра, который ежедневно проплывает по небу на колеснице; богиню Нюй-ву, которая вылепила (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9575D54B52AEE946421803DEB4E1162F937B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355676   (1040765) от 09.01.2021
-
-Ю. Астапова | Прописи. Готовимся к письму (2008) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прописи предназначены для подготовки детей дошкольного возраста к письму в тетради. Задания помогут развит мелкую моторику и координацию движений руки, формируют графические навыки и воображение ребёнка.
-Прописи помогут детям научиться ориентироваться на листе бумаги, задания разовьют зрительное восприятие, логическое мышление. Заниматься по настоящим прописям можно (   Читать дальше...   )Жанр: ПрописиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E844DEF4127DE4DF5B913989B5A9AF5AF0395ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612151   (1040737) от 09.01.2021
-
-Л. Майлс, А. Смит | Астрономия и Космос. Энциклопедия (2002) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедия откроет для читателей дверь в мир астрономии - древней науки о звездах и планетах, в наше время переживающей буквально второе рождение. Основы астрономической науки изложены в энциклопедии понятным и доходчивым языком, книга иллюстрирована замечательными рисунками из старинных атласов, современными картами звездного неба, фотографиями, выполненными орбитальным (   Читать дальше...   )Жанр: ЭнциклопедияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325DFC310E61F7ADBE82C2EC49E877522C946E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

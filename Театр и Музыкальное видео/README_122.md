@@ -1,3 +1,171 @@
+###  Публикация: 967705   (156383) от 23.12.2015
+
+Квартирник у Маргулиса. 1 выпуск. Чайф (2015) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный гитарист, вокалист и автор песен Евгений Маргулис приглашает к себе домой своих хороших друзей – знаменитых российских рок-музыкантов. Сегодня в теплой и душевной атмосфере участники группы Чайф исполнят свои самые известные и любимые песни, а заодно расскажут историю создания своих произведений. Дата эфира: 14.11.2015.01. Внеплановый концерт
+02. Время не ждёт
+03. Завяжи мне глаза
+04. Поменялся(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2293E213B1121D769E98FD4F811867C2740007BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432919   (156220) от 21.12.2020
+
+ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156220.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBA - The Winner Takes It AllЖанр: музыкальный клипПродолжительность: 00:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD95242E17C393C1EF50FA1552E26A4AEEA4B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968068   (156189) от 23.12.2015
+
+Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концерта, состоявшегося 1 мая 2015 года в зале Мегарон в Афинах.
+День основания Берлинского Филармонического оркестра (1 мая 1882 года) по давней традиции ежегодно отмечается большим концертом в одном из крупных европейских городов с богатыми культурными традициями.
+В 2015 году EUROPAKONZERT во второй раз (после 2004 года) состоялся в Афинах. Приглашенным (   Читать дальше...   )Gioacchino Antonio Rossini (1792-1868)
+- "Semiramide"
+  -- Overture
+Jean Sibelius (1865-1957)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BBA44BA073A50110C51512C4ACC766199F2BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853817   (155964) от 27.12.2014
+
+Весёлая хроника опасного путешествия / Argonavtebi (1986) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыкальный, лирический, комедияРежиссер: Евгений ГинзбургАктеры: Зураб Кипшидзе, Александр Абдулов, Лика Кавжарадзе, Сергей Шакуров, Теймураз Циклаури, Роман Рцхиладзе, Нугзар Квашали, Джемал Багашвили, Игорь Рух, Анатолий Калмыков, Вахтанг Татишвили, Александр Басилая, Анри Басилая, Валентин Манохин, Елена Степанова, Эльвира Зубкова, Леонид ЯрмольникПродолжительность: 01:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10258E87F407242A638CFDB6DB8576EDB89DEBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588625   (155933) от 13.12.2012
+
+Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockРежиссер: Dick CarruthersПродолжительность: 02:04:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968057   (155903) от 23.12.2015
+
+Старые песни о главном 3 (1997) HDTV [H.264 / 1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сборник любимых песен, исполняемых любимыми артистами.
+В этой части "Старых песен о главном" снова, спустя 25 лет, встречаются герои фильма "Иван Васильевич меняет профессию" - изобретатель машины времени Шурик Тимофеев и его жена Зина с бывшим управдомом Иваном Васильевичем Буншей и его супругой Ульяной Андреевной собираются вместе встречать (   Читать дальше...   )Производство: Россия, ОРТЖанр: МузыкальныйРежиссер: Василий ПичулАктеры: Солисты российской эстрадыПродолжительность: 02:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB132A60A6B40DB7076DDDCDC2B3637F0D2D2B29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967719   (155881) от 23.12.2015
 
 Новогодний календарь. Фильм-концерт (1965-1968) SATRip [Цветная версия]
@@ -6,7 +174,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155881.jpg" />
 </div>
 
 
@@ -33,7 +201,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155867.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155824.jpg" />
 </div>
 
 
@@ -91,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155774.jpg" />
 </div>
 
 
@@ -117,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155605.jpg" />
 </div>
 
 
@@ -146,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155480.jpg" />
 </div>
 
 
@@ -172,7 +340,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155442.jpg" />
 </div>
 
 
@@ -201,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155213.jpg" />
 </div>
 
 
@@ -227,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155134.jpg" />
 </div>
 
 
@@ -256,7 +424,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155074.jpg" />
 </div>
 
 
@@ -284,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154525.jpg" />
 </div>
 
 
@@ -310,7 +478,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -342,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -368,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153879.jpg" />
 </div>
 
 
@@ -394,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153820.jpg" />
 </div>
 
 
@@ -420,7 +588,7 @@ VK под шубой (2022) WEBRip [H.246/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153708.jpg" />
 </div>
 
 
@@ -446,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -472,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153164.jpg" />
 </div>
 
 
@@ -501,7 +669,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152960.jpg" />
 </div>
 
 
@@ -533,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152850.jpg" />
 </div>
 
 
@@ -544,170 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1570F3E7C4166A43B989E38364E5074F6BFEF748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588823   (152776) от 14.12.2012
-
-Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968489   (152540) от 24.12.2015
-
-VA - Зимний марафон № 214: Дискотека Уходящего Года (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (23.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
-02. Azary and Kleo ft С.Ибрагимов, Д.Шарапова, З.Омарова, Kental, Alldavai - С Новым Годом, Казахстан! (Премьера!) (00:03:15)
-03. Carly Rae Jepsen ft. Josh Ramsay - Sour Candy (Official Video) (00:03:06)
-04. Dj Kan and Миша Марвин ft. Тимати - Ну Что За Дела (Премьера!) (00:03:20)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, HouseПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518792   (152256) от 21.12.2021
-
-Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый альбом известной группы Gregorian в сопровождении великолепных видов природы, старинных замков и убранства средневековых соборов.Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589156   (152049) от 14.12.2012
-
-Top Of The Pops 70s (vol.3) (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.Rex (feat. Elton John) – "Get It On"
-2. Slade – "Coz I Luv You"
-3. Gary Glitter – "Rock & Roll Part 2"
-4. David Bowie – "Starman"(   Читать дальше...   )Жанр: Музыка, Glam Rock, RockПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAB02754E1747B42CC5D0175CA9DD0AA9634088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194723   (151383) от 27.12.2017
-
-Пётр Чайковский - Евгений Онегин / Piotr Tchaikovski - Eugene Oneguine (2007) BDRip [H.264/720p] (Metropolitan Opera)
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151383.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Евгений Онегин» - опера (лирические сцены) в трех действиях; либретто П.И. Чайковского и К.С. Шиловского по одноименному роману в стихах А.С. Пушкина.
-Первая постановка состоялась в Москве в Малом театре 17 (29) марта 1879 года, силами учащихся Московской консерватории под управлением Н. Рубинштейна. Официальная премьера: Москва, Большой театр, 11 (23) января 1881 (   Читать дальше...   )Производство: США, Metropolitan OperaЖанр: Опера, драмаРежиссер: Питер Макклинток, Брайан ЛарджАктеры: Дмитрий Хворостовский, Рене Флеминг, Рамон Варгас, Елена Заремба, Светлана Волкова, Лариса Шевченко, Сергей Алексашкин, Кейт Миллер, Жан-Пол Фушекорт, Ричард БернстейнСубтитры: Английские, немецкие, французские, итальянские, испанскиеПродолжительность: 02:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F56C4451713B9E60051F19BF33015483F561692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130762   (151199) от 23.12.2019
-
-Соло для часов с боем (1974) DVDRip [H.264] (2 части) [МХАТ им. М. Горького]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151199.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Освальда Заградника (перевод Ю. Айхальда).
-Молодой человек собирался жениться. Где они будут жить, если не в старом дедушкином доме? Ненужные вещи можно выбросить, а дедушку попросить пожить на кухне или вообще переселить в дом престарелых - ведь там неплохо живут его друзья. Но дедушке этот дом дорог не потому, что здесь живут его вещи, а потому, что сюда (   Читать дальше...   )Производство: СССР / МХАТ им. М. Горького, ТО "Экран"Жанр: Телеспектакль, драма, мелодрамаРежиссер: Олег Ефремов (I), Анатолий Васильев (I), Леонид ПчёлкинАктеры: Михаил Яншин, Алексей Грибов, Ольга Андровская, Марк Прудкин, Виктор Станицын, Всеволод Абдулов, Ирина МирошниченкоСубтитры: отсутствуютПродолжительность: 01:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E718B8E3185BED405FA7F5495EA07915B5E0322
 ```
 
 https://mybot314.ru/tekegram_catalog/

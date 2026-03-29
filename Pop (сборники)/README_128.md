@@ -1,3 +1,177 @@
+###  Публикация: 1775664   (29490) от 28.01.2025
+
+VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29490.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whigfield - I Want To Love - 04:16
+002. Charli Xcx - Girl, So Confusing - 03:26
+003. Coldplay - Feels Like - 03:58
+004. Wiz Khalifa - See You Again - 03:50(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 11:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779093   (27200) от 18.02.2025
+
+Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop rock, Punk rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Monster (Pollinator 2017)
+02. Rapture (Autoamerican 1980)
+03. Wipe Off My Sweat (Panic Of Girls 2011)
+04. Sunday Girl (Parallel Lines 1978)(   Читать дальше...   )Жанр: New wave, Pop rock, Punk rock, DiscoПродолжительность: 08:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95143029E03609D7BE1F2D31029339180EDB8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781009   (26971) от 21.02.2025
+
+VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Locked Out of Heaven (03:53)
+02. Madonna - Like a Prayer (05:42)
+03. Coldplay - Viva La Vida (04:02)
+04. Fleetwood Mac - Dreams (2018 Remaster) (04:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784307   (25098) от 10.03.2025
+
+Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Zero (The Hush 1999)
+02. Telephone X (Careful What You Wish For 2003)
+03. Summer Son (The Hush 1999)
+04. The Conversation (The Conversation 2013)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784363   (24951) от 12.03.2025
+
+VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перепесня - Это Инфобизнес
+02. Игорь Малинин - Перископ
+03. Перепесня - Барсучий Случай (Квадроберы)
+04. Игорь Малинин - Рога(   Читать дальше...   )Жанр: Pop, ЮморПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD40502DD41DA4F246B241914526E359BFBA8802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785358   (24594) от 15.03.2025
+
+Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ti Sembra Facile
+  02.  Pensiero Mio
+  03.  Un Amore Grande
+  04.  Non E Un Addio - Goodbye is Not Forever (Duet With Robin Beck)(   Читать дальше...   )Жанр: Pop, ItaloDiscoПродолжительность: 06:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED03C007F26F2744A56FE22BF303E0EEC9A40F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786541   (23906) от 22.03.2025
 
 100 % Disco - Collection (2011) [MP3|320 Kbps] <Disco, Pop, Covers>
@@ -6,7 +180,7 @@
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23906.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23843.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ Piotr Zylbert - Collection (2024) [MP3|320 Kbps] <Dance, Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23438.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ AlimkhanOV A. - Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22181.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22178.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Fantastique - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21830.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21802.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21561.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21335.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21073.jpg" />
 </div>
 
 
@@ -297,7 +471,7 @@ VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19953.jpg" />
 </div>
 
 
@@ -326,7 +500,7 @@ VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19510.jpg" />
 </div>
 
 
@@ -355,7 +529,7 @@ VA - Tracks Of The Golden Circle 80-90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19482.jpg" />
 </div>
 
 
@@ -384,7 +558,7 @@ VA - Boy Band - Compilation (1990-2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18315.jpg" />
 </div>
 
 
@@ -413,7 +587,7 @@ VA - Spring Pop-Rock Medley (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18312.jpg" />
 </div>
 
 
@@ -442,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12533.jpg" />
 </div>
 
 
@@ -471,7 +645,7 @@ Ace Of Base - Compilation (1992-2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12191.jpg" />
 </div>
 
 
@@ -500,7 +674,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 18 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11967.jpg" />
 </div>
 
 
@@ -529,7 +703,7 @@ VA - Лето на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11651.jpg" />
 </div>
 
 
@@ -558,7 +732,7 @@ VA - Back to the 90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10798.jpg" />
 </div>
 
 
@@ -572,180 +746,6 @@ VA - Back to the 90s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5119DDEB7CDD5AEAB4E0F37B88CDA844827E359C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808267   (10483) от 24.07.2025
-
-VA - Italo Electro Disco (2025) [MP3|320 Kbps] <Italo-Disco, Electro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Richard - Walking In The Neon (Dub Mix) (8:58)
-02. International Music System - Nonline (Charlie Remix) (5:30)
-03. The Creatures - Machine's Drama (6:56)
-04. Marzio Dance - Adventure (Dub Version) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 02:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFED4D18B4EE1721A4C859E781CC3008CC4D4E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813284   (6952) от 19.08.2025
-
-Reyvi - Favorites Collection (2025) [MP3|320 Kbps] <Euro-Disco, New Italo Disco Style>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Broke Me
-02 - Don’t Let Go
-03 - Midnight Calls
-04 - Ton Absence(   Читать дальше...   )Жанр: Euro-Disco, New Italo Disco StyleПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD68A43E6BC1D9FEE3B159A072F2C77C5C75F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764679   (5225) от 30.08.2025
-
-Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Keeps Beating (After The Thunder 2012)
-02. Always (Good Love 2019)
-03. Always On My Mind (Obsession 2008)
-04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814229   (4303) от 05.09.2025
-
-Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amore
-02 - Te Busco
-03 - Amore Mio
-04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817596   (3309) от 11.09.2025
-
-Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heartbeat
- 02 - Why Did You Say Goodbye
- 03 - My Love
- 04 - L’amour Nous(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817789   (2647) от 15.09.2025
-
-Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ogni Momento Con Te (Version 2)
- 02 - Per Sempre, Amore Mio
- 03 - L’amore È Morto
- 04 - Ti Amo(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1313478   (522725) от 10.07.2019
+
+Очень странные дела / Загадочные события / Stranger Things (2019) WEBRip [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в 80-х годах в тихом провинциальном городке. Благоприятное течение местной жизни нарушает загадочное исчезновение подростка по имени Уилл. Выяснить обстоятельства дела полны решимости родные мальчика и местный шериф. Также события затрагивают лучшего друга Уилла — Майка. Он начинает собственное расследование. Майк уверен, что близок (   Читать дальше...   )Производство: США / 21 Laps Entertainment, Monkey Massacre, NetflixЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон ЛевиАктеры: Вайнона Райдер, Дэвид Харбор, Финн Вулфхарт, Милли Бобби Браун, Гейтен Матараццо, Кейлеб МакЛохлен, Наталия Дайер, Чарли Хитон, Кейра Буоно, Мэттью МодайнПеревод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: Русские (full), английские (forced, full)Продолжительность: ~00:50:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2898FA9CDE9E57CB27CAE4A01464FCF2341FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240960   (522666) от 14.08.2018
 
 Система / Il sistema (2016) WEB-DLRip (сезон 1, серии 1-12 из 12) ViruseProject [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522666.jpg" />
+  <img src="Z:/picture/008/save_picture_522666.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522007.jpg" />
+  <img src="Z:/picture/008/save_picture_522007.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521969.jpg" />
+  <img src="Z:/picture/008/save_picture_521969.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521802.jpg" />
+  <img src="Z:/picture/008/save_picture_521802.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520952.jpg" />
+  <img src="Z:/picture/008/save_picture_520952.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520735.jpg" />
+  <img src="Z:/picture/008/save_picture_520735.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520678.jpg" />
+  <img src="Z:/picture/008/save_picture_520678.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519867.jpg" />
+  <img src="Z:/picture/008/save_picture_519867.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514900.jpg" />
+  <img src="Z:/picture/008/save_picture_514900.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514726.jpg" />
+  <img src="Z:/picture/008/save_picture_514726.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513929.jpg" />
+  <img src="Z:/picture/008/save_picture_513929.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513686.jpg" />
+  <img src="Z:/picture/008/save_picture_513686.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512899.jpg" />
+  <img src="Z:/picture/008/save_picture_512899.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510690.jpg" />
+  <img src="Z:/picture/008/save_picture_510690.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508617.jpg" />
+  <img src="Z:/picture/008/save_picture_508617.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506115.jpg" />
+  <img src="Z:/picture/008/save_picture_506115.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499665.jpg" />
+  <img src="Z:/picture/008/save_picture_499665.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499595.jpg" />
+  <img src="Z:/picture/008/save_picture_499595.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495646.jpg" />
+  <img src="Z:/picture/008/save_picture_495646.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494567.jpg" />
+  <img src="Z:/picture/008/save_picture_494567.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492777.jpg" />
+  <img src="Z:/picture/008/save_picture_492777.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492774.jpg" />
+  <img src="Z:/picture/008/save_picture_492774.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491819.jpg" />
+  <img src="Z:/picture/008/save_picture_491819.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491817.jpg" />
+  <img src="Z:/picture/008/save_picture_491817.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491803.jpg" />
+  <img src="Z:/picture/008/save_picture_491803.jpg" />
 </div>
 
 
@@ -646,34 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904D0164BAFE7DCD50DA673139B7D58AB36B90C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036014   (491631) от 20.09.2016
-
-Завучи / Vice Principals (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-9 из 9) OMSKBIRD [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черная комедия про двух истеричных завучей средней школы, которые по иронии судьбы отвечают за дисциплину и учебный план. После того, как директор уходит на пенсию, завучи затевают эпическую борьбу за трон.Производство: США /  Home Box Office (HBO)Жанр: комедияРежиссер: Дэвид Гордон Грин, Дэнни МакБрайдАктеры: Дэнни МакБрайд, Уолтон Гоггинс, Джорджия Кинг, Кимберли Хеберт Грегори и др.Перевод: Многоголосый профессиональный | OMSKBIRD (ненормативная лексика)Язык озвучки: Русский, английскийПродолжительность: ~00:30:00 серияРеклама: присутствуют аудио вставки рекламы.
-
-Внимание! Присутствует ненормативная лексика.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD407FD0C0AF6A77E8F1B12E531F5AB561E3E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

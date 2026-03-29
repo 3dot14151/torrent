@@ -1,3 +1,162 @@
+###  Публикация: 1077902   (301663) от 30.11.2016
+
+Отряд самоубийц / Suicide Squad (2016) BDRip [H.264/1080p] [Extended Cut]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство США создает специальную команду, состоящую из суперзлодеев для выполнения очень опасного задания. В обмен - они получают шанс на искупление. Но понадобиться ли он им? Ведь задание настолько сложное, что выжить в нем практически невозможно...Производство: США, Atlas Entertainment, DC Comics, DC Entertainment, Dune Entertainment, Lin Pictures, Warner Bros.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Дэвид ЭйрАктеры: Марго Робби, Уилл Смит, Джаред Лето, Джай Кортни, Кара Делевинь, Джей Эрнандес, Юэль Киннаман, Виола Дэвис, Адевале Акинойе-Агбаже, Скотт ИствудПеревод: Дублированный (iTunes + А. Матвеев), Авторский одноголосый (А. Матвеев)Язык субтитров: Русский (Force), Русский (Полные - iTunes), АнглийскийПродолжительность: 02:14:30Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F0C52C0ECF05D4CD095BA4B9B1C5FE294F4D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518084   (301661) от 30.11.2016
+
+Кино (Виктор Цой) - 13 альбомов (Австрийские, Чехословацкое, Японское, Американское и Французкое издания без ремастера)(1982-1995) 21CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цой стал истинной легендой русского рока, которому было суждено трагически умереть в возрасте 28 лет. Сложно переоценить значение его творчества для целых поколений молодёжи и рок-музыки пост советского пространства в принципе. Творчество группы «КИНО» вот уже более 30 лет значимо и актуально, а значит, «Цой жив!», и неизменно будут звучать его песни.1982 - 45 (1994)
+1983 - 46 (1994)
+1984 - Концерт у Краева (1996)
+1984 - Начальник камчатки (1994)(   Читать дальше...   )Жанр: RockПродолжительность: 14:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBADE25EAE6E136C2239904C9BCD06E7ED9E7FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078363   (301660) от 30.11.2016
+
+Assassin's Creed: Director's Cut Edition (2008) [Ru/Multi] (1.0.2.1) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin's Creed™ — игра нового поколения, разработанная Ubisoft Montreal, которая изменила представление об экшн-жанре. Пока другие игры претендуют называться новым поколением, пытаясь впечатлить нас графикой и физикой, Assassin's Creed сливает технологии, игровой дизайн, мотивы и чувства в мир, где вы вызываете хаос и становитесь могущественным, но уязвимым агентом (   Читать дальше...   )Тип издания: LicenseРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5314FCBE15F024CBB85AE93D0FABA3E4D38225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078052   (301659) от 30.11.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86) RePack by SPecialiST v16.11 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3891D798C5FF5FB887873C228F47BE996F6184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423160   (301514) от 12.11.2020
+
+Maxon CINEMA 4D Studio R23.110 build RB330286 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinema 4D является профессиональным редактором 3D графики, как раз для ваших потребностей. Если вы профессионально работаете с 3D графикой и хотите быстро и с легкостью достичь потрясающего результата, то это - ваш выбор. Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64286158F0079445A403C6785B235FF121C08902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266114   (301478) от 07.12.2010
+
+Начало / Inception (2010) [1080p]  Blu-ray
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кобб — талантливый вор, лучший из лучших в опасном искусстве извлечения: он крадет ценные секреты из глубин подсознания во время сна, когда человеческий разум наиболее уязвим. Редкие способности Кобба сделали его ценным игроком в привычном к предательству мире промышленного шпионажа, но они же превратили его в извечного беглеца и лишили всего, что он когда-либо любил. (   Читать дальше...   )Жанр: Фантастика, Боевик, Триллер, Драма, ДетективРежиссер: Кристофер НоланАктеры: Леонардо ДиКаприо, Кен Ватанабе, Джозеф Гордон-Левитт, Марион Котийяр, Эллен Пейдж, Том Харди, Киллиан Мёрфи, Том Беренджер, Майкл Кейн, Лукас ХаасПеревод: ДублированныйПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267154   (301477) от 07.12.2010
 
 Бригада (2002) DVD9 (сезон 1, серии 1-15 из 15)
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301477.jpg" />
+  <img src="Z:/picture/008/save_picture_301477.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_300820.jpg" />
+  <img src="Z:/picture/005/save_picture_300820.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_300742.jpg" />
+  <img src="Z:/picture/005/save_picture_300742.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ Adobe Photoshop CC 2018 (19.0.1) Special Edition x86/x64 RePack by Gosuto [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300657.jpg" />
+  <img src="Z:/picture/008/save_picture_300657.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ F.E.A.R. (2005) [Ru] (1.08/dlc) Repack Other s [Platinum Collection]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300650.jpg" />
+  <img src="Z:/picture/008/save_picture_300650.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300648.jpg" />
+  <img src="Z:/picture/008/save_picture_300648.jpg" />
 </div>
 
 
@@ -163,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_300594.jpg" />
+  <img src="Z:/picture/005/save_picture_300594.jpg" />
 </div>
 
 
@@ -189,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300427.jpg" />
+  <img src="Z:/picture/008/save_picture_300427.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ Fallout 4 (2015) [Ru/Multi] (1.1.29.0.0) License PROPHET
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300395.jpg" />
+  <img src="Z:/picture/008/save_picture_300395.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300393.jpg" />
+  <img src="Z:/picture/008/save_picture_300393.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300391.jpg" />
+  <img src="Z:/picture/008/save_picture_300391.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300386.jpg" />
+  <img src="Z:/picture/008/save_picture_300386.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru] (1.0.6
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300338.jpg" />
+  <img src="Z:/picture/008/save_picture_300338.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ My Summer Car (2016) [En] (10.11.2018) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300327.jpg" />
+  <img src="Z:/picture/008/save_picture_300327.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ Windows 7 Firewall Control Plus 5.1.14.79 [Eng]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_299877.jpg" />
+  <img src="Z:/picture/005/save_picture_299877.jpg" />
 </div>
 
 
@@ -409,7 +568,7 @@ Far Cry 3 [Ru] (RePack/1.02) 2012 | Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299876.jpg" />
+  <img src="Z:/picture/008/save_picture_299876.jpg" />
 </div>
 
 
@@ -436,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_299874.jpg" />
+  <img src="Z:/picture/005/save_picture_299874.jpg" />
 </div>
 
 
@@ -462,7 +621,7 @@ Gorky 17 / Горький-18: Мужская работа (1999) [Ru] (1.0) Unof
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299725.jpg" />
+  <img src="Z:/picture/008/save_picture_299725.jpg" />
 </div>
 
 
@@ -488,7 +647,7 @@ LittleBigPlanet 3 / Little Big Planet 3 [PS3] [EUR] [Ru] [Multi 12] [4.65] (2014
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299032.jpg" />
+  <img src="Z:/picture/008/save_picture_299032.jpg" />
 </div>
 
 
@@ -515,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_298467.jpg" />
+  <img src="Z:/picture/005/save_picture_298467.jpg" />
 </div>
 
 
@@ -527,164 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184720   (298419) от 18.11.2017
-
-Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298419.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Run» – гоночные состязания, ставка в которых невероятно высока. Единственный способ выжить – первым завершить опаснейшее путешествие из Сан-Франциско в Нью-Йорк. Никаких ограничений скорости. Никаких правил. Никаких друзей.Тип издания: RepackРазработчик: EA Black BoxЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D12C1F0565B67C084812B8D08FF8ED0721E76B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261959   (298335) от 13.11.2018
-
-A Way Out (2018) [Ru/Multi] (1.0) License CPY
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игры Brothers - A Tale of Two Sons представляют вам A Way Out, приключение, предназначенное исключительно для совместного прохождения. Вам предстоит сыграть роль одного из двух заключенных, затеявших дерзкий побег из тюрьмы.Тип издания: LicenseРазработчик: HazelightЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900BB85E31BD0421C67333A3C2CABE58D51967B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406632   (298321) от 13.11.2018
-
-Шпионка / Alias (2005) DVDRip [H.264] (Сезон 5, серии 01-17 из 17) ОРТ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переезды по всему миру, борьба с «плохими ребятами», двойная жизнь и опасность, подстерегающая на каждом шагу. Для Сидни Бристоу это — обычный день на её необычной работе. Она — агент сверхсекретного подразделения — группы СД-6.
-
-Однажды от своего отца Джека Сидни узнаёт страшную правду: оказывается, она работает на международную шпионскую организацию. Чувствуя себя (   Читать дальше...   )Производство: США, Touchstone TelevisionЖанр: Фантастика, Боевик, Триллер, ДетективРежиссер: Кен Олин, Лоуренс Триллинг, Джек Бендер и др.Актеры: Дженнифер Гарнер, Рон Рифкин, Карл Ламбли и др.Перевод: Многоголосый закадровый, профессиональный - ОРТПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE53AD4706A3E6F115D5BBFE654E6F8F2C3F3983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261877   (298317) от 13.11.2018
-
-Adobe Photoshop Lightroom Classic CC 2019 8.0.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A62C2C70223ACB9384F4437C8D7F2CD452D9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961739   (298260) от 02.12.2015
-
-Acronis True Image 2016 19.0.6027 BootCD [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image - комплексное приложение для всех видов локального и онлайн резервного копирования важных данных и системы в целом. Надежное и защищенное резервное копирование, максимально интегрированное с облаком Acronis Cloud.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26384CB38C0D8BE8E7D111645D295A5CF9365539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961264   (298252) от 02.12.2015
-
-Advanced SystemCare Pro 9.0.3.1078 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574D81C469342B15636C7EAA9B71AC4BA4D17B9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

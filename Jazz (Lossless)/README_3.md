@@ -1,3 +1,119 @@
+###  Публикация: 1608370   (1043655) от 30.01.2023
+
+Chick Corea With Trondheim Jazz Orchestra & Erlend Skomsvoll - What Game Shall We Play Today (2018) MNJ Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suite No.2 [4:34]
+02. Pledge for Peace [16:15]
+03. What Game Shall We Play Today [8:30]
+04. Children's Song No.1 and 4, recomp [7:48](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8528236EBE95FB80A68D8B2A15494A2EF63B4FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608362   (1043614) от 30.01.2023
+
+Azymuth, Adrian Younge, & Ali Shaheed Muhammad - Azymuth JID004 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Redor Do Samba (4:30)
+02. Sumaré (5:36)
+03. Cat Jump (4:04)
+04. Fall Afternoon (4:18)(   Читать дальше...   )Жанр: Jazz, Blues, SoulПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45A94F2D7C50912CBD3BE89FA3E44568E6D115C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608624   (1043519) от 31.01.2023
+
+John Arpin - Kings Of Ragtime (1989) Fanfare [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chevy Chase [2:43]
+02. The Chrysanthemum [5:18]
+03. The Cascades [3:02]
+04. Ragtime Nightingale [4:25](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88E47CE50DFCDB009DA1905260EC41A6D028C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609142   (1043371) от 02.02.2023
+
+John Arpin - Ragtime Beatles (1987) Fanfare [FLAC|Lossless|tracks + .cue] <Ragtime, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I'm 64 [3:01]
+02. And I Love Her [3:39]
+03. Maxwell's Silver Hammer [4:16]
+04. Here, There and Everywhere [4:57](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4BCFF31AD12314BDA2FAA2F69101168BBE74B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609435   (1043274) от 03.02.2023
 
 Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +122,7 @@ Eric Alexander - Revival Of The Fittest (2009) HighNote Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043274.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eric Alexander - The Second Milestone (2001) Milestone [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043270.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Michael Broening - Never Too Late (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043243.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Adam Rogers - Time And The Infinite (2007) Criss Cross Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043186.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Carlos Camilo - Groove from beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043167.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Paul Desmond - The Complete Toronto Recordings (1975) 7CD, 2020, Mosaic Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043082.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Enrico Rava - Noir (1996) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop, Mo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042821.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Enrico Pieranunzi - Live In Paris (2001) 2CD, 2005, Challenge Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042517.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Anita O'Day - BD Jazz (1941 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042442.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Nils - Cool Shades (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042435.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Yusef Lateef - Live at Pep's, Vol. 2 (1964) 1999, GRP Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042201.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jackie McLean - Seven Classic Albums, Vol.2 (1956 - 1962) 4CD, 2017, Real Gone J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042199.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Charles Lloyd - Trios: Ocean (2022) Blue Note Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042195.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Mark Maxwell - Oddz 'n Endz (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042036.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Prism - Live Alive (Absolutely) (1982) 1991, Warner Bros. Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041755.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Woody Herman - The Complete Decca, Mars and MGM Sessions (1943 - 1954) 7CD, 2019
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041754.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Luigi Martinale Trio feat. Reuben Rogers - Strange Days (2013) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041751.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Peggy Lee - Sings The Great American Songbook (1949 - 1962) 2CD, 2019, Not Now M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041723.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Art Blakey & The Jazz Messengers - Buhaina's Delight (1961) 2004, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041680.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041674.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041650.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Jazz On Broadway: The Greatest Musicals (1956 - 1962) 10CD, 2019, The Inten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041496.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD01 - Miles Davis-Porgy And Bess:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27E4B145A49BE31D38CDD1883377BABAD23560F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611426   (1041423) от 11.02.2023
-
-Konstantin Klashtorni - Kool&Klean (Volume X) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scent Of Spring
-02. Whispers In My Ear
-03. Sky's Our Limit
-04. Late Nite Suite(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C043CE0DA7543B29D6BB81F5021040D84E392554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438166   (1041396) от 07.01.2021
-
-Frank Sinatra - Reprise Rarities - Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Blue Of Evening
-02. As You Desire Me
-03. Don’t Take Your Love From Me
-04. Name It And It's Yours(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38224675B7AD06FE17DB9E59DE2135C0214AA003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611332   (1041333) от 11.02.2023
-
-Blank & Jones - The Jazz Trio (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Jazz, Relax>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowing
-02. Shade Seeker
-03. High Fly
-04. Sunny LifeЖанр: Jazz, RelaxПродолжительность: 00:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F496EBA84052DDF5923C5F70CC31F96D9F1A5B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438326   (1041203) от 08.01.2021
-
-John Coltrane - The Complete Ray Draper Quintet Sessions (1957 - 1958) 2014, Acrobat [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clifford's Kappa [9:16]
-02. Filidia [7:15]
-03. Two Sons [5:22]
-04. Paul's Pal [7:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4054158F7CEC2D697B9C3189C66B696033BD2BB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

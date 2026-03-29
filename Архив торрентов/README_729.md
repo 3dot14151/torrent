@@ -6,7 +6,7 @@ Norton Internet Security 22.20.2.57 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887965.jpg" />
+  <img src="Z:/picture/005/save_picture_887965.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887952.jpg" />
+  <img src="Z:/picture/005/save_picture_887952.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887940.jpg" />
+  <img src="Z:/picture/005/save_picture_887940.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887934.jpg" />
+  <img src="Z:/picture/005/save_picture_887934.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Eschaton - Quantum 3: Entanglement (2011) [MP3|320 Kbps] <Drum & Bass, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887930.jpg" />
+  <img src="Z:/picture/005/save_picture_887930.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Eschaton - Quantum 2: Uncertainty (2011) [MP3|320 Kbps] <Breakbeat, Drum & Bass,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887916.jpg" />
+  <img src="Z:/picture/005/save_picture_887916.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ WinRAR 5.90 Final (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887890.jpg" />
+  <img src="Z:/picture/005/save_picture_887890.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ File List Export 2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887885.jpg" />
+  <img src="Z:/picture/005/save_picture_887885.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Project Office Pro 8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887875.jpg" />
+  <img src="Z:/picture/005/save_picture_887875.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ A Better Finder Attributes 7 v7.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887872.jpg" />
+  <img src="Z:/picture/005/save_picture_887872.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ FigrCollage 3.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887866.jpg" />
+  <img src="Z:/picture/005/save_picture_887866.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ SpamSieve 2.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887865.jpg" />
+  <img src="Z:/picture/005/save_picture_887865.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887862.jpg" />
+  <img src="Z:/picture/005/save_picture_887862.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Lifespan 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887861.jpg" />
+  <img src="Z:/picture/005/save_picture_887861.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ MWeb Pro 4.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887858.jpg" />
+  <img src="Z:/picture/005/save_picture_887858.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ TurboMosaic Pro 3.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887856.jpg" />
+  <img src="Z:/picture/005/save_picture_887856.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Things 3 v3.14.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887854.jpg" />
+  <img src="Z:/picture/005/save_picture_887854.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ TG Pro (Temperature Gauge Pro) 2.59 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887847.jpg" />
+  <img src="Z:/picture/005/save_picture_887847.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ iNet Network Scanner 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887843.jpg" />
+  <img src="Z:/picture/005/save_picture_887843.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Live Home 3D Pro Edition 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887837.jpg" />
+  <img src="Z:/picture/005/save_picture_887837.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887834.jpg" />
+  <img src="Z:/picture/005/save_picture_887834.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Blank & Jones - Relax Jazzed 2 - by Marcus Loeber (2014) [FLAC|Lossless]<Easy li
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887832.jpg" />
+  <img src="Z:/picture/005/save_picture_887832.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Expressions 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887823.jpg" />
+  <img src="Z:/picture/005/save_picture_887823.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ TechSmith Snagit 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887802.jpg" />
+  <img src="Z:/picture/005/save_picture_887802.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Nana - Nana (1997) [FLAC|Lossless|image + .cue] <Euro-rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887800.jpg" />
+  <img src="Z:/picture/005/save_picture_887800.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Principle 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887795.jpg" />
+  <img src="Z:/picture/005/save_picture_887795.jpg" />
 </div>
 
 

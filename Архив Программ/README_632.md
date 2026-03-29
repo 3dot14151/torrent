@@ -6,7 +6,7 @@ Kaspersky Total Security 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732418.jpg" />
+  <img src="Z:/picture/008/save_picture_732418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Uninstaller Pro 5.4.0.118 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732417.jpg" />
+  <img src="Z:/picture/008/save_picture_732417.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Windows Update MiniTool 18.01.2022 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732397.jpg" />
+  <img src="Z:/picture/008/save_picture_732397.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732388.jpg" />
+  <img src="Z:/picture/008/save_picture_732388.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Kaspersky Anti-Virus 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732384.jpg" />
+  <img src="Z:/picture/008/save_picture_732384.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732379.jpg" />
+  <img src="Z:/picture/008/save_picture_732379.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Process Lasso Pro 9.0.0.300 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732071.jpg" />
+  <img src="Z:/picture/008/save_picture_732071.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AnyMP4 Blu-ray Player 6.2.22 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732069.jpg" />
+  <img src="Z:/picture/008/save_picture_732069.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Avant Browser Ultimate 2017 build 06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732067.jpg" />
+  <img src="Z:/picture/008/save_picture_732067.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Disk Cleaner 10.1.6.765 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732047.jpg" />
+  <img src="Z:/picture/008/save_picture_732047.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Aiseesoft Blu-ray Player 6.5.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731972.jpg" />
+  <img src="Z:/picture/008/save_picture_731972.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Aiseesoft Video Converter Ultimate 9.2.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731970.jpg" />
+  <img src="Z:/picture/008/save_picture_731970.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cacheman 10.10.0.11 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731962.jpg" />
+  <img src="Z:/picture/008/save_picture_731962.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VueScan Pro 9.6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731956.jpg" />
+  <img src="Z:/picture/008/save_picture_731956.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ FBackup 9.5.507 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731871.jpg" />
+  <img src="Z:/picture/008/save_picture_731871.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Reg Organizer 7.80 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731846.jpg" />
+  <img src="Z:/picture/008/save_picture_731846.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Leawo Video Converter Ultimate 7.7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731840.jpg" />
+  <img src="Z:/picture/008/save_picture_731840.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ HWiNFO 5.24-2850 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731776.jpg" />
+  <img src="Z:/picture/008/save_picture_731776.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ OCCT 10.1.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731746.jpg" />
+  <img src="Z:/picture/008/save_picture_731746.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Download Master 6.12.4.1555 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731733.jpg" />
+  <img src="Z:/picture/008/save_picture_731733.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Google Chrome 58.0.3029.81 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731727.jpg" />
+  <img src="Z:/picture/008/save_picture_731727.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dr. Folder 2.6.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731713.jpg" />
+  <img src="Z:/picture/008/save_picture_731713.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ClipGrab 3.8.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731703.jpg" />
+  <img src="Z:/picture/008/save_picture_731703.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ JetBrains PyCharm 1.2.1 build #PY-105.58 for Win/Mac/Linux [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731693.jpg" />
+  <img src="Z:/picture/005/save_picture_731693.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Slimjet 10.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731654.jpg" />
+  <img src="Z:/picture/008/save_picture_731654.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ FileZilla 3.18.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731653.jpg" />
+  <img src="Z:/picture/008/save_picture_731653.jpg" />
 </div>
 
 

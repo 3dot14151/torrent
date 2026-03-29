@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762694.jpg" />
+  <img src="Z:/picture/008/save_picture_762694.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ TapinRadio Pro 1.72.6 Portable by PortableAppC (12.05.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762636.jpg" />
+  <img src="Z:/picture/008/save_picture_762636.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Glary Utilities Pro 5.51.0.71 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762625.jpg" />
+  <img src="Z:/picture/008/save_picture_762625.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ MediaInfo 0.7.73 Final Portable (32-64 bit) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762601.jpg" />
+  <img src="Z:/picture/008/save_picture_762601.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Vivaldi 1.0.151.7 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762583.jpg" />
+  <img src="Z:/picture/008/save_picture_762583.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Zoner Photo Studio Professional 17 Build 9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762574.jpg" />
+  <img src="Z:/picture/008/save_picture_762574.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ UC Browser 5.6.12265.1017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762550.jpg" />
+  <img src="Z:/picture/008/save_picture_762550.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Actual Window Manager 8.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762549.jpg" />
+  <img src="Z:/picture/008/save_picture_762549.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Paragon System Upgrade Utilities 2010 Free / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762538.jpg" />
+  <img src="Z:/picture/008/save_picture_762538.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Total Uninstall Pro 6.13.0 Portable by PortableXapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762521.jpg" />
+  <img src="Z:/picture/008/save_picture_762521.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Total Uninstall Ultimate 6.13.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762520.jpg" />
+  <img src="Z:/picture/008/save_picture_762520.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ XMedia Recode 3.2.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762518.jpg" />
+  <img src="Z:/picture/008/save_picture_762518.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Zoner Photo Studio Professional 17 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762508.jpg" />
+  <img src="Z:/picture/008/save_picture_762508.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Mozilla Firefox 38.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762505.jpg" />
+  <img src="Z:/picture/008/save_picture_762505.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Chief Architect Premier X8 18.2.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762475.jpg" />
+  <img src="Z:/picture/008/save_picture_762475.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Rainmeter 3.3.2 Build 2609 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762474.jpg" />
+  <img src="Z:/picture/008/save_picture_762474.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ ChrisPC Win Experience Index 4.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762466.jpg" />
+  <img src="Z:/picture/008/save_picture_762466.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ CrystalDiskMark 3.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762429.jpg" />
+  <img src="Z:/picture/008/save_picture_762429.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Advanced SystemCare Pro 8.2.0.795 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762428.jpg" />
+  <img src="Z:/picture/008/save_picture_762428.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ XnView 2.36 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762391.jpg" />
+  <img src="Z:/picture/008/save_picture_762391.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Waterfox 37.0.1 x64 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762376.jpg" />
+  <img src="Z:/picture/008/save_picture_762376.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Image Uploader 1.3.1 Build 4311 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762372.jpg" />
+  <img src="Z:/picture/008/save_picture_762372.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Total Uninstall Ultimate 6.13.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762363.jpg" />
+  <img src="Z:/picture/008/save_picture_762363.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ JetBrains ReSharper Ultimate 2015.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762357.jpg" />
+  <img src="Z:/picture/008/save_picture_762357.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.40 (5/16/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762343.jpg" />
+  <img src="Z:/picture/008/save_picture_762343.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762318.jpg" />
+  <img src="Z:/picture/008/save_picture_762318.jpg" />
 </div>
 
 

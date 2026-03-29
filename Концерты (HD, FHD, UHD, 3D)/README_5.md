@@ -1,3 +1,84 @@
+###  Публикация: 856461   (942648) от 15.01.2015
+
+The Piano Guys: Концерт на Красном холме сада / The Piano Guys: Live at Red Butte Garden (2012) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающее музыкальное шоу от Джона Шмидта, Стивена Шарпа Нельсона, Пола Андерсона, Тель Стюарта и Аль ван дер Бика. Эта команда творит чудеса с фортепиано и виолончелью на сцене. Они могут играть в восемь рук, вверх ногами и еще Бог знает как иначе. Это фантастическое (   Читать дальше...   )01.Opening
+02.What Makes You Beautiful
+03.Without You
+04.Rolling in the Deep(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA30AD75DCF56BA3FBBCBD06C1B36263FCEE74BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363405   (942208) от 28.02.2020
+
+The Chemical Brothers: «Не думай» / The Chemical Brothers: Don’t Think (2012) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942208.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 июля 2011 года группа выступала на фестивале Fuji Rock в Японии перед 50 тыс. зрителями. В это же время 21 камера записывала концерт, который позже режиссер Адам Смит превратил в музыкальный фильм. «Не думай» — психоделическое путешествие, в котором не успеешь моргнуть, как оказываешься в бурлящей толпе на горе Фуджи, в море света, звука, видео, марширующих роботов, (   Читать дальше...   )Производство: Япония, Великобритания, ParlophoneЖанр: Big beat, Edm, ConcertРежиссер: Адам СмитАктеры: Эд Саймонс, Том Роулэндс, The Chemical BrothersПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: Японский, АнглийскийСубтитры: отсутствуетПродолжительность: 01:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A080EE4F2F65653DA7DFB2AB5EB0C7C1BBC5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363420   (942151) от 28.02.2020
+
+Sting: Live in Berlin (2010) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live in Berlin – концерт Стинга в сопровождении Королевского Симфонического Концертного Оркестра под управлением Стивена Меркурио 21 сентября 2010 г. в O2 World Arena, Берлин. Blu-ray включает многие известные песни Стинга и Police, такие, как "Roxanne", "Every Little Thing She Does Is Magic", "King Of Pain", и другие - в симфонической (   Читать дальше...   )Производство: США, Decca Music GroupЖанр: Pop, Rock, Concert, OrchestralРежиссер: Джим ГейблАктеры: Стинг, Доминик Миллер, Джо Лоури, Ира Колеман, Дэвид Коссин, Брэнфорд Марсалис, Стивен Миркурио, Королевский филармонический оркестрПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуетПродолжительность: 02:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7913F68FB9FCEF314A2C9A625190207DE088916C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 175261   (941919) от 13.02.2010
 
 Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009) [1080i] Blu-Ray
@@ -6,7 +87,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941919.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941129.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940915.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940689.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939421.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938073.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936530.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936181.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934276.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933973.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ Eric Clapton's Crossroads Guitar Festival (2010) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932806.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931651.jpg" />
 </div>
 
 
@@ -337,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930427.jpg" />
 </div>
 
 
@@ -363,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927012.jpg" />
 </div>
 
 
@@ -392,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926989.jpg" />
 </div>
 
 
@@ -421,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925674.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925657.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Schiller: Zeitreise Live (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923977.jpg" />
 </div>
 
 
@@ -505,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920566.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Beth Hart -  Live in Brezoi HIGH FIVE ROMANIA (2021) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918931.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918847.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918770.jpg" />
 </div>
 
 
@@ -620,7 +701,7 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918498.jpg" />
 </div>
 
 
@@ -634,90 +715,6 @@ Mylene Farmer/Милен Фармер – Live 2019 - Le Film (2019) UHD BDRemux
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91949C8086C46EA765467305B5A603655B7167CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989384   (916610) от 22.02.2016
-
-Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916610.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.01  Raise Your Glass
-02  Walk Of Shame
-03  Just Like A Pill
-04  U + UR Hand(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955D551BD88668B2551729DC590929E12D8172F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367124   (915564) от 16.03.2020
-
-Тим Минчин/Tim Minchin and the Heritage Orchestra - Live at The Royal Albert Hall (2011) WEBRip [AVC/H.264/1080p-LQ / EN, RU Sub]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минчин принялся за новый тур, стартовавший в Бирмингеме в четверг 8 декабря 2010 года. Выступления отличались от предыдущих, номера были переработаны, для исполнения с симфоническим оркестром Heritage Orchestra. В шоу был представлен как старый, так и новый материал, появились новые песни на старые темы религии и рационализма. Минчин задался целью вовлечь оркестр (   Читать дальше...   )Производство: ВеликобританияЖанр: Stand-Up Comedy, концертРежиссер: Tim MinchinСубтитры: внешние (английские, русские (синхронизация - задержка 5 сек для рус))Продолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8560B15696A6B9491A3B4F52CC4689A6EE7388D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367487   (915428) от 16.03.2020
-
-Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915428.jpg" />
-</div>
-
-
-###  Подробнее
-
-(time markers)
-2:45 - Skills In Pills
-7:06 - Ladyboy
-10:27 - Fat(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF30C94DF1640D585718BBBB31513C3205049119
 ```
 
 https://mybot314.ru/tekegram_catalog/

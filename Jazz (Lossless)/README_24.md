@@ -1,3 +1,119 @@
+###  Публикация: 973653   (979320) от 09.01.2016
+
+Bobby Timmons - Soul Time (1960) 2004, Planet[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Soul Time [06:25]
+ 02.So Tired [06:18]
+ 03.The Touch Of Your Lips [04:17]
+ 04.S'posin' [05:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B741D71A67EC297C084AEB763EEA22DD71D47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973712   (979314) от 09.01.2016
+
+Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Water Babies [05:08]
+ 02.Capricorn [08:30]
+ 03.Sweet Pea [08:03]
+ 04.Two Faced [18:03](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D6CA72A9B55C500BD738269DD2F2FED02C7E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356332   (979196) от 30.01.2020
+
+Paquito D'Rivera & The United Nation Orchestra - Live at Manchester Craftsmen's Guild (1997) MCG Jazz [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tocache [5:36]
+02. King of Cancun [6:33]
+03. Puerto Padre [7:55]
+04. Recife's Blues [4:51](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, Post-BopПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6687A23C1343F040BA37F109E252DD95DF2372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356334   (979191) от 30.01.2020
+
+Benny Goodman - The Best of Benny Goodman And His Orchestra 1956 - 1957 (1990) Curb Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Misbehavin' [3:28]
+02. Stompin' at the Savoy [3:18]
+03. Let's Dance [2:17]
+04. When I Grow Too Old to Dream [3:27](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F03E9091889974E247A3026D3EE3B72C7FD11DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356369   (979126) от 30.01.2020
 
 Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Smooth Jazz>
@@ -6,7 +122,7 @@ Brian Culbertson - Winter Stories (2019) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979126.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Spyro Gyra - Vinyl Tap (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979023.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Spyro Gyra - Fast Forward (1993) GRP Records [FLAC|image+.cue]<Smooth, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978897.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billy Taylor - Cross-Section (1953-1954) Remaster, 2014, Universal[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978220.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lionel Hampton & His Giants of Jazz - Hamp in Haarlem (1979) 2000, Timeless Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978219.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Peggy Lee - Let's Love (1974) 2003, Warner Strategic[FLAC|tracks+.cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978212.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Terence Blanchard - Romantic Defiance (1995) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978007.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Stan Getz - The Essential Recordings 1950 - 1954 (2017) 2CD, Primo [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978005.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bill Evans - Smile With Your Heart 1950-e - 1960-e (2019) Resonance Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977852.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - The Golden Age Of Swing "Big Band Legends" (1995-1997) 3CD[FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977598.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ The Art Van Damme Quintet - The Van Damme Sound & Martini Time (1953) 1998, Coll
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976973.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Gary Burton, Jan Garbarek, Pat Metheny - Hommage A Eberhard Weber (2015) ECM[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976933.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ The Stan Getz Quartet - Getz At The Gate: Live at The Village Gate, Nov. 26, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976870.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Enrico Rava & Joe Lovano - Roma (2019) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976869.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ VA - Capitol's Great Ladies Of Song (1992) 2CD [FLAC|Lossless]<Jazz Vocal, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976403.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ Natalie Cole - Ask A Woman Who Knows (2002) SACD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975735.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ Maya - Jazz a GoGo (2015) [FLAC|Lossless|WEB-DL] <Jazz, Vocal Jazz, Covers>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975730.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Akira Miyazawa, Masahiko Sato (Satoh), Masahiko Togashi, Yasuo Arakawa - Four Un
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975619.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ Hank Crawford - Memphis, Ray And A Touch of Moody 1960 - 1965 (1997) 2CD, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975618.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975546.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975148.jpg" />
 </div>
 
 
@@ -633,7 +749,7 @@ The J.J. Johnson Sextet - J.J. Inc. (1960) Remaster, 2014, Sony Music[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974597.jpg" />
 </div>
 
 
@@ -647,121 +763,6 @@ The J.J. Johnson Sextet - J.J. Inc. (1960) Remaster, 2014, Sony Music[FLAC|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B388C883E22A82E6A4FC2E5D69B3CC71305065C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974668   (974590) от 13.01.2016
-
-Jimmy McGriff & Richard "Groove" Holmes - Giants of the Organ Come Together (1973) 2008, LRC Ltd.[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Licks A' Plenty [07:00]
- 02.Out of Nowhere [08:34]
- 03.The Squirrel [05:25]
- 04.Finger Lickin' Good [06:19](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EEA37A28340858E8E95DC9AE96B5A95BFB811D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975017   (974521) от 13.01.2016
-
-Al Di Meola - Consequence Of Chaos (2006) SACD [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Marco (Moderna) (4:54)
-02. Turquoise (7:28)
-03. Odyssey (0:55)
-04. Tao (6:01)(   Читать дальше...   )Жанр: FusionПродолжительность: 1:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2731D5958D40F049A3C7CF5EF9054327FB052EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975041   (974464) от 13.01.2016
-
-Hiromi - Spiral (2005) SACD, 2006 Telarc [FLAC|Lossless|tracks + .cue] <Post Bop, Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral (10:04)
-02. Music for Three-Piece-Orchestra: Open Door - Tuning - Prologue (10:16)
-03. Music for Three-Piece-Orchestra: Déjà vu (7:45)
-04. Music for Three-Piece-Orchestra: Reverse (5:09)(   Читать дальше...   )Жанр: Post Bop, Fusion, Contemporary JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D89455D8F966B0DF391B616C5A9BCD72A8D62D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975047   (974403) от 13.01.2016
-
-Johnny Griffin & Dexter Gordon - Jazz Undulation (1968) Remaster, 2014,Studio Songs[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Body & Soul [07:10]
- 02.All The Things You Are [13:55]
- 03.Blues Up And Down [20:46]Жанр: Hard BopПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C6D55FDCB02DE3ED14C573BA0413FE31D75906
 ```
 
 https://mybot314.ru/tekegram_catalog/

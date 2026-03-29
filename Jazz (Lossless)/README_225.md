@@ -1,3 +1,119 @@
+###  Публикация: 1080583   (288558) от 07.12.2016
+
+Rene Marie - Sound Of Red (2016) Motema [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sound of Red [06:01]
+ 02.If You Were Mine [06:34]
+ 03.Go Home [05:46]
+ 04.Lost [10:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52400CCDFE5C6325CA8E35317AE8CCAE16BAD501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186336   (288460) от 24.11.2017
+
+Rob Schneiderman - Dark Blue (1994) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Blue [05:43]
+02. The Touch of Your Lips [07:59]
+03. The Lion's Mane [08:12]
+04. Silent Conversation [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F7C0C3DE5878602D0C2B207D537AF20EDEA66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186261   (288459) от 24.11.2017
+
+Billy Taylor - Solo (1988) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [06:53]
+02. A Bientot [04:47]
+03. Handle with Care [03:48]
+04. Old Folks [05:14](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE3A4F2A2A536AFBB5E92B39ECD957B4F41BA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186258   (288458) от 24.11.2017
+
+Claudio Roditi & Metropole Orchestra (1996) Mons Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rua Dona Margerida [04:40]
+02. Softly as in the Morning Sunrise [04:00]
+03. The Natural Bridge [04:50]
+04. Airegin [04:13](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC599A24A88FBF13D6342CC7F5661B8BCE04C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186333   (288372) от 24.11.2017
 
 Carola Grey - Noisy Mama (1992) Jazzline [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +122,7 @@ Carola Grey - Noisy Mama (1992) Jazzline [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288372.jpg" />
+  <img src="Z:/picture/008/save_picture_288372.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Hank Mobley & Lee Morgan - Peckin' Time (1958) 2011, Analogue Productions [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288371.jpg" />
+  <img src="Z:/picture/008/save_picture_288371.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Miles Davis - Chasin' The Trane (1955, 1956) 3CD, 2011, Le Chant du Monde [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288368.jpg" />
+  <img src="Z:/picture/008/save_picture_288368.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288260.jpg" />
+  <img src="Z:/picture/008/save_picture_288260.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Norio Maeda Trio - Alpha Ray (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288151.jpg" />
+  <img src="Z:/picture/008/save_picture_288151.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Don Cherry Trio - Studio 105, Paris 1967 (2018) Hi Hat [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288142.jpg" />
+  <img src="Z:/picture/008/save_picture_288142.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Scott Bradlee's Postmodern Jukebox - The New Classics (2017) Live [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288104.jpg" />
+  <img src="Z:/picture/008/save_picture_288104.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ The Duke Ellington Orchestra - Digital Duke (1987) GRP Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287893.jpg" />
+  <img src="Z:/picture/008/save_picture_287893.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Jazzamor - Music En Vogue (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Bossa-N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287558.jpg" />
+  <img src="Z:/picture/008/save_picture_287558.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Bill Evans Trio - with Symphony Orchestra (1965) 1989, Verve [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286688.jpg" />
+  <img src="Z:/picture/008/save_picture_286688.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Kenny Wheeler, Peter O' Mara, Wayne Darling, Bill Elgart (1991) Koala Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286645.jpg" />
+  <img src="Z:/picture/008/save_picture_286645.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Nina Simone - Pastel Blues (1964, 1965) 2006, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286560.jpg" />
+  <img src="Z:/picture/008/save_picture_286560.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Shintaro Nakamura Quintet - Evolution (1984) 2007, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286546.jpg" />
+  <img src="Z:/picture/008/save_picture_286546.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Kiyoshi Sugimoto Quartet - Country Dream (1969) 2007, Columbia Music Entertainme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286542.jpg" />
+  <img src="Z:/picture/008/save_picture_286542.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Alex Riel - Rielatin' (2000) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286521.jpg" />
+  <img src="Z:/picture/008/save_picture_286521.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Kyoto Jazz Sextet - Unity (2017) Universal [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286517.jpg" />
+  <img src="Z:/picture/008/save_picture_286517.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Marcus Printup - Nocturnal Traces (1998) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286514.jpg" />
+  <img src="Z:/picture/008/save_picture_286514.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Dave Brubeck - Blue Rondo A La Turk (1982) 2005, Delta Music [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286512.jpg" />
+  <img src="Z:/picture/008/save_picture_286512.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Ver
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286510.jpg" />
+  <img src="Z:/picture/008/save_picture_286510.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Mel Torme - Cocktail Hour 1940-e - 1950-e (1999) 2CD, Allegro [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286346.jpg" />
+  <img src="Z:/picture/008/save_picture_286346.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Kazumi Watanabe First - Infinite (1971) 2011, Think! Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286294.jpg" />
+  <img src="Z:/picture/008/save_picture_286294.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Dave Douglas - The Infinite (2002) RCA[APE|tracks+.cue]<Avant-Garde Jazz, Modern
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285954.jpg" />
+  <img src="Z:/picture/008/save_picture_285954.jpg" />
 </div>
 
 
@@ -626,123 +742,6 @@ Dave Douglas - The Infinite (2002) RCA[APE|tracks+.cue]<Avant-Garde Jazz, Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7231B0115A7F3B903AE31D612D7836505E402C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186581   (285864) от 25.11.2017
-
-VA - Smooth Jazz 2 (2003) Universal Classics & Jazz [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот «мягкий» джаз легко дает понять о том, что музыка, живущая под этим ответвлением джазового стиля, мелодичная и чувственная. Чувственный, мелодичный и, пожалуй, лучший источник для релакса. Просто слушайте эту музыку и погружайтесь в бесконечный мир Smooth jazz.
-При наличии времени выложу ещё несколько таких сборников из собственной коллекции.CD1:
-01. Nat King Cole - Let There Be Love  (2:45)
-02. Stevie Wonder - My Cherie Amour  (2:51)
-03. Phyllis Nelson - Move Closer  (4:05)(   Читать дальше...   )Релиз состоялся: 2003Жанр: Smooth JazzПродолжительность: 02:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D9360421C82AF2FB631C422CDCC99F94BC84BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186597   (285852) от 25.11.2017
-
-Karen Souza - Essentials II (2014) Japan [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way It Is
-02. Wicked Game
-03. Everyday Is Like Sunday
-04. Dreams(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C448CD5D378B463AA777F7FFEF5CC69CE9FEDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963896   (285799) от 09.12.2015
-
-Nanette Natal - Is Love Enough? (2002) Benyo Music[FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.01 Cool Jet Song [04:58]
- 02.02 Ooh Child [06:23]
- 03.03 Mama He Treats Your Daughter Mean [05:34]
- 04.04 Sometimes [06:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45BD6268857436236D6F7535A332D35C8E32F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186803   (284797) от 26.11.2017
-
-Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extra Time [08:31]
-02. Gravitation [06:37]
-03. Blue Moon [08:51]
-04. There's a Small Hotel [05:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AB80A8C1131056654F7458C62D9C499F231D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1603158   (1045763) от 09.01.2023
+
+DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levente feat Shirley Levi - Vonat (07:48)
+02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
+03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
+04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436875   (1042819) от 02.01.2021
+
+Mr. Smith - Smith Sessions Radioshow 239-240 (Vocal Trance 2020 Top 40) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smith Sessions Radioshow 239 (Vocal Trance 2020 Top 40 - Part I):
+01. Kbk & Grande Piano Ft. Agata Pasternak - Mystery Of Tomorrow (Vocal Mix)
+02. Woody van Eyden DJ T.H. & Cari - Drowning
+03. Joyline Snow - Heart Beating(   Читать дальше...   )Жанр: TranceПродолжительность: 03:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8EDDBC9AD04D3A4A43D4ADF1986391D240A44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436896   (1042813) от 02.01.2021
 
 The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042813.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042728.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Arika Lane - TopTrance Radioshow (2011-2021) [MP3|256 - 320 Kbps] <Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041866.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041155.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041154.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038835.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VER:WEST(Tiesto) - Aftr:hrs Sessions 01 (2021-01-14) [MP3|320 Kbps] <Tech House,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038770.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037863.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Markus Schulz - Global DJ Broadcast - with guest Dennis Sheperd (2021) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037526.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Armin van Buuren & Ruben de Ronde - A State Of Trance 1000 (2021) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037435.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Armin van Buuren - A State Of Trance 1001 (Celebration Mix) (2021) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035471.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Markus Schulz - Global DJ Broadcast - Escape to Fisher Towers (2021) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035205.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033534.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033498.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032991.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Fuerte & Daveepa - EDM Rewind Mashup Mix 2020 (2021-01-28) [MP3|320 Kbps] <Elect
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032750.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032127.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Armin van Buuren & Ruben de Ronde & Allen Watts - A State of Trance 1003 (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032077.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Bryan Kearney - Vocal Anthems Mix (2021-02-05) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031915.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Steve Angello - Tomorrowland Friendship Mix (2023-03-16) [MP3|320 Kbps] <Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031859.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2021-02-11) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031684.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029411.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ ATB & Topic - SiriusXM Guest Room Mix (2021-02-20) [MP3|~245 Kbps (V0)] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028355.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep H
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026747.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Yotto - A Very Cold DJ Set, Lapland, Finland (2021-03-06) [MP3|320 Kbps] <Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F7FD0A2F2CF9B1E1A26CBD2F967EC863244043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453892   (1026623) от 13.03.2021
-
-Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Stranger
-02. Alex O’Rion - Cuprum
-03. Emil Berliner - Aoede
-04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455049   (1025827) от 18.03.2021
-
-Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Frankey & Sandrino - Xrain
-03. ID - ID
-04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
 ```
 
 https://mybot314.ru/tekegram_catalog/

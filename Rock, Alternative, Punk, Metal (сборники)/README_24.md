@@ -1,3 +1,148 @@
+###  Публикация: 1548988   (594984) от 05.05.2022
+
+VA - NDH 3 (2022) [MP3|112-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Staub - Leben (4:55)
+2. Apryl - In Frieden Ruhn (3:56)
+3. Inception Of Eternity - The Age of Warlords (4:11)
+4. Weissglut - Unter deiner Asche (4:50)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC15EC4A638ABD0E3D5D909C0AE5E7801CB0FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548742   (594858) от 05.05.2022
+
+VA - NDH 2 (2022) [MP3|271-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gothminister - Ich will alles (3:50)
+2. In Extremo - Чёрный ворон (3:44)
+3. Death Therapy - The Vice of Voices (2:46)
+4. Die Krupps - Vision 2020 Vision (4:23)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86987F3477A06B2C32E645E919AC06EABE66EF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549768   (592887) от 08.05.2022
+
+VA - Rebel Rock Fest (Vol.03) (2022) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий релиз рок-сборника, как и его предшественники, порадует слушателя смелой, ритмичной, а порой и агрессивной музыкой! Музыкой наполненной особым смыслом. Тексты рок-песен имеют своеобразный язык и обязательную смысловую наполненность. Яркие метафоры, актуальные темы, философские размышления — все это вы найдете на треках представляемого сборника!001. Wvnder - I Don't Think So
+002. Catapults - Open The Blinds
+003. Time Traveller - No Gravity
+004. Suzi Quatro - You Can't Dream It(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 09:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A489A43E2BC5EB3DDE335BEFB0C33C1C1C6030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549783   (592847) от 08.05.2022
+
+VA - The Romantic (2022) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "The Romantic" погрузит слушателей в атмосферу остановившегося времени и настоящих эмоций. Это самобытные и душевные композиции. Признания в любви, что может быть искренне этих слов? Что может быть романтичнее и притягательнее? Только голос, произносящий эти строки под проникновенную музыку.001. Advance Base - Sweet Old World
+002. Delta Sleep - Planet Fantastic
+003. Woolfy - Shooting Stars
+004. Kevin Morby - Sundowner(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320079BE20555D8BD6A2CF243ED90EB399126811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549765   (592648) от 09.05.2022
+
+VA - Overdose: Punk Rock Top 100 Songs (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Панк-рок это тотальный бэкап к каноничному рок-н-роллу 60-х с добавлением гаражной музыки, поэзии и лирики беднеющей молодежи 70-х. Все предыдущие музыкальные достижения обнулились. Никаких больше длинноволосых хиппи, тупости хард-рока, заумности прог-рока и мягкости соула. Панк-рок - это музыка взвинченная, агрессивная и театрализованная.001. Double Negative - Letting The Atoms Breathe
+002. Grandpa Loves Rhinos - Living In A Cave
+003. Chaser - Break The Chain
+004. Lastkaj 14 - Fluktarna(   Читать дальше...   )Жанр: Punk RockПродолжительность: 05:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F03A0A9721BE2EE47E2AD937A323DA740EE4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915290   (591795) от 06.07.2015
 
 VA - Rock 'n' Roll Reloaded (2015) [MP3|320 кб/с]<Rock 'n' Roll, Rock>
@@ -6,7 +151,7 @@ VA - Rock 'n' Roll Reloaded (2015) [MP3|320 кб/с]<Rock 'n' Roll, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591795.jpg" />
+  <img src="Z:/picture/008/save_picture_591795.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - NDH 7 (2022) [MP3|320 Kbps] <NDH, Industrial Metal, Gothic Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590672.jpg" />
+  <img src="Z:/picture/008/save_picture_590672.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Rock Ballads (New & Better) (2015) [MP3|320 кб/с]<Hard Rock, Art Rock, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590337.jpg" />
+  <img src="Z:/picture/008/save_picture_590337.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Новинки Русского Рока Выпуск 4 (2015) [MP3|320 к�
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589863.jpg" />
+  <img src="Z:/picture/008/save_picture_589863.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - New Clear Radio Vol1 (2015) [MP3|~245 кб/с (V0)]<Pop , Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589792.jpg" />
+  <img src="Z:/picture/008/save_picture_589792.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Rarity Rock (1968-1979) [MP3|320 кб/с]<Classic Rock, Blues Rock, Jazz-Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589547.jpg" />
+  <img src="Z:/picture/008/save_picture_589547.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Rod Stewart - Picture In A Frame. The Best Ballads (2015) [MP3|320 кб/с]<Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589544.jpg" />
+  <img src="Z:/picture/008/save_picture_589544.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589465.jpg" />
+  <img src="Z:/picture/008/save_picture_589465.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589443.jpg" />
+  <img src="Z:/picture/008/save_picture_589443.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - New Rock 2022 [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588916.jpg" />
+  <img src="Z:/picture/008/save_picture_588916.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587952.jpg" />
+  <img src="Z:/picture/008/save_picture_587952.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587700.jpg" />
+  <img src="Z:/picture/008/save_picture_587700.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - I Prefer Rock (2022) [MP3|320 Kbps] <Rock, Alternative, Indie>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586678.jpg" />
+  <img src="Z:/picture/008/save_picture_586678.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - 100 Best Rock Ballads (2015) [MP3|256 кб/с]<Rock, Ballads>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586675.jpg" />
+  <img src="Z:/picture/008/save_picture_586675.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Dire Straits - 25 Best Songs (2014) [MP3|~245 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586419.jpg" />
+  <img src="Z:/picture/008/save_picture_586419.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Gary Glitter - Greatest Hits (2019) 2CD [MP3|320 Kbps] <Glam Rock, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586107.jpg" />
+  <img src="Z:/picture/008/save_picture_586107.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585797.jpg" />
+  <img src="Z:/picture/008/save_picture_585797.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Dire Straits - 25 Best Songs (2014) [MP3|320 кб/с]<Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584253.jpg" />
+  <img src="Z:/picture/008/save_picture_584253.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Words On A Dusty Shelf Vol.01 (2019) [MP3|320 Kbps] <Rock, Alternative, Ind
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584224.jpg" />
+  <img src="Z:/picture/008/save_picture_584224.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Kiss - God Gave Rock'n'Roll To You (The Best) (2019) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584079.jpg" />
+  <img src="Z:/picture/008/save_picture_584079.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Баллады Русского Рока (2014) [MP3|192-320 кб/с]<Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583941.jpg" />
+  <img src="Z:/picture/008/save_picture_583941.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Баллады Русского Рока (2014) [MP3|192-320 кб/с]<Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4750D1B7431A278256897CD86EA9046FFA7BCEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690392   (583872) от 12.05.2019
-
-VA - Heavy Japan Vol.01 - Vol.10 (2013-2015) [MP3|192-320 кб/с]<metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpions - Cold [00:03:53]
-02. Altaria - Metality [00:05:02]
-03. Epica - Triumph Of Defeat [00:03:58]
-04. Tony Iommi - Let It Down Easy [00:04:31](   Читать дальше...   )Жанр: metalПродолжительность: 11:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21E0DDE1D3AC6BE34A6A75E37373E2BFE416E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553394   (582881) от 25.05.2022
-
-Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bad Touch (Single Version) (4:27)
-02. Along Comes Mary (The Bloodhound Gang Mix) (3:25)
-03. I Wish I Was Queer So I Could Get Chicks (Punk Version) (3:35)
-04. Fire Water Burn (Single Version) (4:56)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301966   (582216) от 14.05.2019
-
-VA - Words On A Dusty Shelf Vol.02 (2019) [MP3|320 Kbps] <Rock, Alternative, Indi Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Road To Jerusalem - Andromeda's Suffering
-002. Hodera - For The Best
-003. Sum 41 - Out For Blood
-004. Ivy Dye - Soften(   Читать дальше...   )Жанр: Rock, Alternative, Indi RockПродолжительность: 10:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4027B71F35D270F91BF1075F3D90D76ED3EAEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810197   (580503) от 08.08.2014
-
-VA - Alterportal HITS 14 Vol. 71 - July (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Stahli - Enemy
-02. Nomy - Chaos
-03. A Million Souls - Rise
-04. Eluveitie - The Call of The Mountains(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019768E56EF474846F78D92DEBF6C48884C2DCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302521   (580166) от 16.05.2019
-
-VA - Classic Rock Giganten (2019) [MP3|320 Kbps] <Classic Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - We Will Rock You
-002. Toto - Africa
-003. Sum 41 - In Too Deep
-004. Third Eye Blind - Charmed Life(   Читать дальше...   )Жанр: Classic Rock, AlternativeПродолжительность: 09:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E198986C130DE532833FB8B9D124FBBA3ABFD91E
 ```
 
 https://mybot314.ru/tekegram_catalog/

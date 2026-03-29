@@ -1,3 +1,81 @@
+###  Публикация: 1291221   (672117) от 23.03.2019
+
+Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пол Маккартни переиздал свой альбом Wings 1973 года Red Rose Speedway в роскошном издании, включающем 3 диска, 2 DVD и 1 Blu-ray. В визуальную часть пакета был включен неизданный анимационный фильм под названием « The Bruce McMouse Show», объедивший анимацию семьи любящих музыку мышей, живущих под концертной площадкой, с живыми кадрами четырех живых выступлений Wings (   Читать дальше...   )Производство: Великобритания, M.P.L. Communications LimitedЖанр: фильм-концерт, анимацияРежиссер: Барри ЧаттингтонАктеры: Пол и Линда Маккартни, Дерик Гайлер, Пэт Кумбс и Дерек НиммоПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52C26019EFBC301B611B21EFA800DDA10BC2C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291374   (668571) от 25.03.2019
+
+Квартирник НТВ у Маргулиса. Линда (23.03.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668571.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом выпуске в гости к ведущему Евгению Маргулису пришла одна из самых неординарных и эксцентричных певиц России — Линда! Артистка поделилась воспоминаниями из жизни и исполнила самые известные композиции, необычные тексты которых в соединении с тонкой мелодичностью так поражали слушателей. Евгений Маргулис признался, что раньше никогда не встречался с Линдой, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9360F3FC681372DFD268B18B46EA8B63DEE7751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537497   (667719) от 16.03.2022
+
+Adam by Eve: Анимационный концерт / Adam by Eve: A live in Animation (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аниме, игровое кино, творчество певицы Eve — всё это сочетается в концерте, вдохновленном историей Адама и Евы.Производство: Япония / Studio KharaЖанр: Анимация, музыкаСубтитры: РусскиеПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E070DA5713C9438FA55FFAC184D9031EDEC93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049201   (666394) от 27.05.2017
 
 Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
@@ -6,7 +84,7 @@ Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666394.jpg" />
+  <img src="Z:/picture/008/save_picture_666394.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ Deep Purple - California Jam (1974/2016) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666315.jpg" />
+  <img src="Z:/picture/008/save_picture_666315.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ David Gilmour - Rattle That Lock (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666309.jpg" />
+  <img src="Z:/picture/008/save_picture_666309.jpg" />
 </div>
 
 
@@ -90,7 +168,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666218.jpg" />
+  <img src="Z:/picture/008/save_picture_666218.jpg" />
 </div>
 
 
@@ -119,7 +197,7 @@ ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664095.jpg" />
+  <img src="Z:/picture/008/save_picture_664095.jpg" />
 </div>
 
 
@@ -146,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662031.jpg" />
+  <img src="Z:/picture/008/save_picture_662031.jpg" />
 </div>
 
 
@@ -175,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661771.jpg" />
+  <img src="Z:/picture/008/save_picture_661771.jpg" />
 </div>
 
 
@@ -201,7 +279,7 @@ Royal Hunt - 2016 (25 Anniversary) (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660000.jpg" />
+  <img src="Z:/picture/008/save_picture_660000.jpg" />
 </div>
 
 
@@ -229,7 +307,7 @@ Ken Hensley: Blood On The Highway, Albert Hall (2007) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658693.jpg" />
+  <img src="Z:/picture/005/save_picture_658693.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ UK - Curtain Call (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656684.jpg" />
+  <img src="Z:/picture/008/save_picture_656684.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655763.jpg" />
+  <img src="Z:/picture/008/save_picture_655763.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ UK - Curtain Call (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655737.jpg" />
+  <img src="Z:/picture/008/save_picture_655737.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Rammstein - Paris (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655608.jpg" />
+  <img src="Z:/picture/008/save_picture_655608.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Rammstein - Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654486.jpg" />
+  <img src="Z:/picture/008/save_picture_654486.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654225.jpg" />
+  <img src="Z:/picture/005/save_picture_654225.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653593.jpg" />
+  <img src="Z:/picture/008/save_picture_653593.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651205.jpg" />
+  <img src="Z:/picture/008/save_picture_651205.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651129.jpg" />
+  <img src="Z:/picture/008/save_picture_651129.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651128.jpg" />
+  <img src="Z:/picture/008/save_picture_651128.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651102.jpg" />
+  <img src="Z:/picture/008/save_picture_651102.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649416.jpg" />
+  <img src="Z:/picture/008/save_picture_649416.jpg" />
 </div>
 
 
@@ -601,7 +679,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648930.jpg" />
+  <img src="Z:/picture/005/save_picture_648930.jpg" />
 </div>
 
 
@@ -630,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647137.jpg" />
+  <img src="Z:/picture/008/save_picture_647137.jpg" />
 </div>
 
 
@@ -641,94 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04DBD2B72B2A7FCE354DC79F9895FD8B27184943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031865   (645459) от 07.07.2016
-
-The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645459.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Doobie Brothers американская музыкальная группа, которая начиная с 1970 года играла калифорнийский поп-рок в духе The Beach Boys. К концу 1970-х годов, когда вышли их наиболее популярные записи во главе с бестселлером «What a Fool Believes» (премия «Грэмми» за лучшую песню 1979 года), от рок-музыки в их записях не осталось и следа. The Doobie Brothers продолжали (   Читать дальше...   )01. Rockin’ Down The Highway
-02. Jesus Is Just Alright
-03. Dangerous
-04. Another Park, Another Sunday(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПеревод: Отсутствует / Не требуетсяПродолжительность: 02:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BF992E4CEB75145521A5F9D341997023FC842E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541527   (645032) от 03.04.2022
-
-Квартирник у Маргулиса. ST (02.04.2022) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александра Степанов, более известный под псевдонимом ST, стал увлекаться музыкой еще в подростковом возрасте: уже в 15 лет он записал свой первый трек, в 2006 его творчество привлекло внимание Серёги, в 2007 стал сотрудничать с первым в России хип-хоп агентством, а спустя год выпустил свой дебютный альбом «Сто из ста» и принял участие в «Битве за респект». Это принесло (   Читать дальше...   )00:00:05 Время
-00:05:51 Лопасти
-00:11:29 Пацаны
-00:17:26 Признание(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58B308D50FC2105476B0E6A91CD2EF07034AC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292110   (642821) от 31.03.2019
-
-Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Dream Theater в Nippon Budokan Hall 26 апреля 2004 года (Токио, Япония).
-Blu Ray выпущен 18 октября 2011, если верить вики.1. "As I Am" – 8:34
-2. "This Dying Soul" – 12:12
-3. "Beyond This Life" – 19:34
-4. "Hollow Years" – 9:19(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: ProgressiveРежиссер: Mike PortnoyПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B231A39F663123EE65689992A1FA4211D2929E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

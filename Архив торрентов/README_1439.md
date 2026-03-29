@@ -6,7 +6,7 @@ Auslogics BoostSpeed 10.0.23.0  RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727300.jpg" />
+  <img src="Z:/picture/008/save_picture_727300.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kodi 18.1 Leia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727299.jpg" />
+  <img src="Z:/picture/008/save_picture_727299.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727294.jpg" />
+  <img src="Z:/picture/008/save_picture_727294.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727245.jpg" />
+  <img src="Z:/picture/008/save_picture_727245.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AnyToISO Pro 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727244.jpg" />
+  <img src="Z:/picture/008/save_picture_727244.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727240.jpg" />
+  <img src="Z:/picture/008/save_picture_727240.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Wise Memory Optimizer 3.46.97 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727236.jpg" />
+  <img src="Z:/picture/008/save_picture_727236.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ ScreenFlow 6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727231.jpg" />
+  <img src="Z:/picture/008/save_picture_727231.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727228.jpg" />
+  <img src="Z:/picture/008/save_picture_727228.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Moto GP. Сезон 2017. Red Bull Grand Prix of The Americas. Этап 3. Го�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727203.jpg" />
+  <img src="Z:/picture/008/save_picture_727203.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ PDF Shaper Professional 7.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727202.jpg" />
+  <img src="Z:/picture/008/save_picture_727202.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727193.jpg" />
+  <img src="Z:/picture/008/save_picture_727193.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AI RoboForm2Go Enterprise 7.9.28.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727191.jpg" />
+  <img src="Z:/picture/008/save_picture_727191.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AusLogics BoostSpeed 9.1.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727190.jpg" />
+  <img src="Z:/picture/008/save_picture_727190.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adobe Acrobat Reader DC 2019.010.20098 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727187.jpg" />
+  <img src="Z:/picture/008/save_picture_727187.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Alfred 3 Powerpack v3.8 (959) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727181.jpg" />
+  <img src="Z:/picture/008/save_picture_727181.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Sketch 53.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727173.jpg" />
+  <img src="Z:/picture/008/save_picture_727173.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727169.jpg" />
+  <img src="Z:/picture/008/save_picture_727169.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ IsoBuster Pro 4.9 Build 4.9.0.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727147.jpg" />
+  <img src="Z:/picture/008/save_picture_727147.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727108.jpg" />
+  <img src="Z:/picture/008/save_picture_727108.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727104.jpg" />
+  <img src="Z:/picture/008/save_picture_727104.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727102.jpg" />
+  <img src="Z:/picture/008/save_picture_727102.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ iSkysoft iMedia Converter Deluxe 5.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727060.jpg" />
+  <img src="Z:/picture/008/save_picture_727060.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727036.jpg" />
+  <img src="Z:/picture/008/save_picture_727036.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727028.jpg" />
+  <img src="Z:/picture/008/save_picture_727028.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Pepakura Designer 4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727022.jpg" />
+  <img src="Z:/picture/008/save_picture_727022.jpg" />
 </div>
 
 

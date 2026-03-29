@@ -6,7 +6,7 @@ Opera 69.0.3686.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769753.jpg" />
+  <img src="Z:/picture/008/save_picture_769753.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769728.jpg" />
+  <img src="Z:/picture/008/save_picture_769728.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DriverPack Solution 15.4 DVD Edition + Драйвер-Паки 15.04.1 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769727.jpg" />
+  <img src="Z:/picture/008/save_picture_769727.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ HWiNFO 6.28 Build 4200 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769701.jpg" />
+  <img src="Z:/picture/008/save_picture_769701.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Process Explorer 16.32 Portable by Portable RUS [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769642.jpg" />
+  <img src="Z:/picture/008/save_picture_769642.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ StartIsBack Plus 1.7.5 RePack by CRD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769589.jpg" />
+  <img src="Z:/picture/008/save_picture_769589.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mozilla Thunderbird 45.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769558.jpg" />
+  <img src="Z:/picture/008/save_picture_769558.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ pdfFactory Pro 5.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769551.jpg" />
+  <img src="Z:/picture/008/save_picture_769551.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ USDownloader 1.3.5.9 Portable (14.05.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769542.jpg" />
+  <img src="Z:/picture/008/save_picture_769542.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CDBurnerXP 4.5.7.6139 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769540.jpg" />
+  <img src="Z:/picture/008/save_picture_769540.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Air Explorer Pro 1.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769533.jpg" />
+  <img src="Z:/picture/008/save_picture_769533.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FinePrint 8.36 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769508.jpg" />
+  <img src="Z:/picture/008/save_picture_769508.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Dicter 3.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769504.jpg" />
+  <img src="Z:/picture/008/save_picture_769504.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ AdwCleaner 5.117 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769502.jpg" />
+  <img src="Z:/picture/008/save_picture_769502.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ZD Soft Screen Recorder 9.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769495.jpg" />
+  <img src="Z:/picture/008/save_picture_769495.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Freemake Video Converter 4.1.9.10 DC 11.05.2016 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769488.jpg" />
+  <img src="Z:/picture/008/save_picture_769488.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Anvir Task Manager 8.1.2 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769477.jpg" />
+  <img src="Z:/picture/008/save_picture_769477.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769462.jpg" />
+  <img src="Z:/picture/008/save_picture_769462.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Adobe components: Flash Player 21.0.0.242 | AIR 21.0.0.215 | Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769459.jpg" />
+  <img src="Z:/picture/008/save_picture_769459.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Rollback Rx Professional 10.4 Build 2701484045 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769448.jpg" />
+  <img src="Z:/picture/008/save_picture_769448.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.05) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769437.jpg" />
+  <img src="Z:/picture/008/save_picture_769437.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Kaspersky Internet Security 2016 16.0.1.445 MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769434.jpg" />
+  <img src="Z:/picture/008/save_picture_769434.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769432.jpg" />
+  <img src="Z:/picture/008/save_picture_769432.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.05) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769430.jpg" />
+  <img src="Z:/picture/008/save_picture_769430.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Dr.Web CureIt! 10.0.10 [15.05.2016] [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769406.jpg" />
+  <img src="Z:/picture/008/save_picture_769406.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ XnViewMP 0.96.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769368.jpg" />
+  <img src="Z:/picture/008/save_picture_769368.jpg" />
 </div>
 
 

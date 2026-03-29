@@ -1,3 +1,148 @@
+###  Публикация: 1561042   (516806) от 03.07.2022
+
+Righteous Fool - Righteous Fool (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter the Fool Intro
+02. Asteroid
+03. Shifty
+04. Forever Flames(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Psychedelic RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92E1429F136B6976B55016511418EB8A58A7A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560972   (516804) от 03.07.2022
+
+Umphrey's Mcgee - Asking For A Friend (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Don't Know What I Want (00:04:39)
+02 - Small Strides (00:04:31)
+03 - Always October (00:04:13)
+04 - Fenced In (00:03:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C6CDB9758AB342D40B1F7FFA0E0CE4EE34A0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561422   (515722) от 04.07.2022
+
+Goatriders - The Magician’s Keep (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Golem (00:07:08)
+02 - Amitte Diem (00:07:42)
+03 - Hound Of The Gods (00:05:24)
+04 - Pitch Black Blues (00:06:06)(   Читать дальше...   )Жанр: Stoner Rock, Garage RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9BFAB86AB5E17592A3819AD63CE06567D8126A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561385   (515719) от 04.07.2022
+
+Smoke The Light - Ego Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro - We Are Not Alone (00:01:22)
+02 - Inhell (00:04:51)
+03 - Wizards (00:06:11)
+04 - The Heroic Dose (00:04:53)(   Читать дальше...   )Жанр: Heavy Psychedelic, Fuzz RockПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C6908C2FDF4C863A9C4554E5B97A5FE96AD09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561375   (515652) от 04.07.2022
+
+Relayer - Waiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Skyfall (00:04:39)
+02 - Spread Your Sunshine (00:03:32)
+03 - Waiting (00:04:01)
+04 - Off (00:06:43)(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72019E7885C56A4BAFAA5B4146BD19E689DB8845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561285   (515651) от 04.07.2022
 
 The Arc Light Sessions - A Performer's Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
@@ -6,7 +151,7 @@ The Arc Light Sessions - A Performer's Life (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515651.jpg" />
+  <img src="Z:/picture/008/save_picture_515651.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Marco Ragni - Anything you want (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515646.jpg" />
+  <img src="Z:/picture/008/save_picture_515646.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Rod Stewart - Greatest Hits (2012) 2CD [FLAC|image+.cue]<Rock, Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515140.jpg" />
+  <img src="Z:/picture/008/save_picture_515140.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Horned Wolf - Become Like They Are (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514682.jpg" />
+  <img src="Z:/picture/008/save_picture_514682.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Thumpermonkey - We Bake Our Bread Beneath Her Holy Fire (2009) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514679.jpg" />
+  <img src="Z:/picture/008/save_picture_514679.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Fleetwood Mac - The Complete Blue Horizon Sessions (1999) 6CD BoxSet[FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514372.jpg" />
+  <img src="Z:/picture/008/save_picture_514372.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - 100 Hits - The Best Soft Rock Album (5CD) (2018) Box Set [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513684.jpg" />
+  <img src="Z:/picture/008/save_picture_513684.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Gosta Berlings Saga - Artefacts - Live (2020) [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513669.jpg" />
+  <img src="Z:/picture/008/save_picture_513669.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Motor!k - 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513663.jpg" />
+  <img src="Z:/picture/008/save_picture_513663.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ DRH - Ode To A Firework (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513662.jpg" />
+  <img src="Z:/picture/008/save_picture_513662.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Curved Air - Air Cut (1973) Reissue, Remastered, 2004, Belle Antique, Japanese E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513619.jpg" />
+  <img src="Z:/picture/008/save_picture_513619.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Horned Wolf - Set Your Kings On Fire (2016) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512601.jpg" />
+  <img src="Z:/picture/008/save_picture_512601.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Lunear - Curve.Axis.Symmetry. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512592.jpg" />
+  <img src="Z:/picture/008/save_picture_512592.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Pili Coit (Pili Coït) - Love Everywhere (2021) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512590.jpg" />
+  <img src="Z:/picture/008/save_picture_512590.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Bruce Cockburn - Greatest Hits (1970-2020) 2 x CD, Compilation, 2021, True North
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512510.jpg" />
+  <img src="Z:/picture/008/save_picture_512510.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Phish - Lawn Boy (1990) / Elektra / [FLAC|Lossless]<Progressive rock, Rock, Jam,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512466.jpg" />
+  <img src="Z:/picture/008/save_picture_512466.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ Clive Mitten - Tales From A Misspent Youth Volume I (2022) 2CD [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512441.jpg" />
+  <img src="Z:/picture/008/save_picture_512441.jpg" />
 </div>
 
 
@@ -505,7 +650,7 @@ Styx - Gold (2006) 2CD [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511844.jpg" />
+  <img src="Z:/picture/008/save_picture_511844.jpg" />
 </div>
 
 
@@ -534,7 +679,7 @@ Daturana – Crossroad Man (2011) [FLAC|Lossless]<Psychedelic Rock / Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509883.jpg" />
+  <img src="Z:/picture/008/save_picture_509883.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Delirium - Dolce Acqua (1971) Reissue, Remastered, 2005, Arcangelo, Japanese Edi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509286.jpg" />
+  <img src="Z:/picture/008/save_picture_509286.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509285.jpg" />
+  <img src="Z:/picture/008/save_picture_509285.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B711C5B3B967DF429E3816C7533AF8BE4AB10E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562045   (508941) от 09.07.2022
-
-Imagine Dragons - Mercury - Acts 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508941.jpg" />
-</div>
-
-
-###  Подробнее
-
-15. Bones
-16. Symphony
-17. Sharks
-18. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, Electronic, Alternative RockПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DD6F4E1F5ECB78E953034BA66BAF596787F535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562663   (508143) от 10.07.2022
-
-DeGarmo & Key - This Ain't Hollywood (1980) Reissue, 2021, Girder Records [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella, This Ain't Hollywood (3:24)
-02. When He Comes Back (2:46)
-03. You Gave Me All (3:30)
-04. Never Be The Same (2:57)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223EE8E61A9D2DAC673335AB725638DAD2064964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562774   (507324) от 11.07.2022
-
-Duster 69 - With Best Regards (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507324.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Remember
-2. Oppose
-3. Upcoming
-4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478A6F7DF7AE06BF8D97FA864BEFB18F0FAD990E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562776   (507236) от 11.07.2022
-
-Obiat - Indian Ocean (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge, Stoner, Psych, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulysses
-02. Eyes and Soul
-03. Acid Wake
-04. Nothing Above(   Читать дальше...   )Жанр: Doom, Sludge, Stoner, Psych, Prog RockПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5C91D7A6C85D76B33A37F4A824EC8F7C9AEDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562765   (507231) от 11.07.2022
-
-Fantasia - Aikamatkaajan unikuva (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pilvien takaa (00:04:14)
-02 - Unikuva -Huutokauppa (00:05:52)
-03 - Suihkuliidolla (00:03:41)
-04 - Abra (00:04:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1823FDB9947D16BFA22E87CABE560C66CFBEBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

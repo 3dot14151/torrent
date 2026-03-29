@@ -1,3 +1,90 @@
+###  Публикация: 938654   (479453) от 19.09.2015
+
+Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Slayer на Wacken Open Air в 2014 году. Входит бонус-диском в комплект к лимитированному изданию нового альбома "Repentless".1. Intro
+2. Hell Awaits
+3. The Antichrist
+4. Mandatory Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52910E7F00701A687DE75CC4950656FC37D4F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938453   (479364) от 19.09.2015
+
+Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Highway Star
+02. Into The Fire
+03. Hard Lovin' Man
+04. Vincent Price(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FA080AF78BDA012505777B81040719A7E8679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056786   (478922) от 26.09.2016
+
+David Gilmour - Europejska Stolica Kultury Wroclaw Part.1 (2016) HDTV [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление британского rock музыканта, автора и исполнителя, мультиинструменталиста и музыкального продюсера Дэвида Гилмора в польском Вроцлаве в июне 25, 201601. 5 A.M.
+02. Rattle That Lock
+03. Faces of Stone
+04. Wish You Were Here(   Читать дальше...   )Производство: Польша|TVP2Жанр: Progressive rock, Psychedelic rockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBAAF3817A8D8BA2CADA1E4F03C28A5584F0263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 701115   (478384) от 17.09.2013
 
 Madonna: The MDNA Tour (2013) BDRip [720p]
@@ -6,7 +93,7 @@ Madonna: The MDNA Tour (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478384.jpg" />
+  <img src="Z:/picture/008/save_picture_478384.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478306.jpg" />
+  <img src="Z:/picture/008/save_picture_478306.jpg" />
 </div>
 
 
@@ -66,7 +153,7 @@ Linkin Park - Honda Civic Tour (2012) [1080i] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478211.jpg" />
+  <img src="Z:/picture/008/save_picture_478211.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ The Prodigy / Live World's On Fire (2011) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478124.jpg" />
+  <img src="Z:/picture/008/save_picture_478124.jpg" />
 </div>
 
 
@@ -118,7 +205,7 @@ Dream Theater - Breaking the Fourth Wall (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477535.jpg" />
+  <img src="Z:/picture/008/save_picture_477535.jpg" />
 </div>
 
 
@@ -147,7 +234,7 @@ Ayreon - Electric Castle Live and Other Tales (2020) Blu-ray [H.264/1080p] [Cust
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476660.jpg" />
+  <img src="Z:/picture/008/save_picture_476660.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Madonna - The MDNA Tour (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476335.jpg" />
+  <img src="Z:/picture/008/save_picture_476335.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473926.jpg" />
+  <img src="Z:/picture/008/save_picture_473926.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Graham Bonnet Band: Live...Here Comes the Night (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473769.jpg" />
+  <img src="Z:/picture/008/save_picture_473769.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Live At Wacken Open Air 2011 (2011) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473727.jpg" />
+  <img src="Z:/picture/008/save_picture_473727.jpg" />
 </div>
 
 
@@ -291,7 +378,7 @@ Status Quo - The Last Night Of The Electrics (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473647.jpg" />
+  <img src="Z:/picture/008/save_picture_473647.jpg" />
 </div>
 
 
@@ -320,7 +407,7 @@ Metallica - Live at Rock in Rio (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472795.jpg" />
+  <img src="Z:/picture/008/save_picture_472795.jpg" />
 </div>
 
 
@@ -349,7 +436,7 @@ Def Leppard: Hysteria at the O2 (2018) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472536.jpg" />
+  <img src="Z:/picture/008/save_picture_472536.jpg" />
 </div>
 
 
@@ -375,7 +462,7 @@ Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471675.jpg" />
+  <img src="Z:/picture/008/save_picture_471675.jpg" />
 </div>
 
 
@@ -404,7 +491,7 @@ ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471095.jpg" />
+  <img src="Z:/picture/008/save_picture_471095.jpg" />
 </div>
 
 
@@ -432,7 +519,7 @@ Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470597.jpg" />
+  <img src="Z:/picture/008/save_picture_470597.jpg" />
 </div>
 
 
@@ -458,7 +545,7 @@ Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468866.jpg" />
+  <img src="Z:/picture/008/save_picture_468866.jpg" />
 </div>
 
 
@@ -493,7 +580,7 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468547.jpg" />
+  <img src="Z:/picture/008/save_picture_468547.jpg" />
 </div>
 
 
@@ -522,7 +609,7 @@ Metallica - The Global Citizen Festival (2016) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468118.jpg" />
+  <img src="Z:/picture/008/save_picture_468118.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ R-Evolution Band Live - The Dark Side of the Wall (2013) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467662.jpg" />
+  <img src="Z:/picture/008/save_picture_467662.jpg" />
 </div>
 
 
@@ -580,7 +667,7 @@ Styx - Live At the Orleans Arena Las Vegas (2015) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466742.jpg" />
+  <img src="Z:/picture/008/save_picture_466742.jpg" />
 </div>
 
 
@@ -609,7 +696,7 @@ Aerosmith - Rocks Donington (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466567.jpg" />
+  <img src="Z:/picture/008/save_picture_466567.jpg" />
 </div>
 
 
@@ -635,7 +722,7 @@ Eminem - Live From New York City (2005) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466563.jpg" />
+  <img src="Z:/picture/008/save_picture_466563.jpg" />
 </div>
 
 
@@ -649,88 +736,6 @@ Eminem выступил в Madison Square Garden, в Нью-Йорке 8 авг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A9CC26054B1E02746EB5FBD439EEAE87239ADD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058711   (465880) от 02.10.2016
-
-Blind Guardian (2016) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Blind Guardian на рок-фестивале  "Rock Hard Festival" в мае 2016!Производство: Германия / WDR ChannelЖанр: МузыкаПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E680D5E3EEDABAAD8CDE7C958D3EC48C067DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161520   (465360) от 29.08.2017
-
-Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
-Релиз от1. Intro
-2. Starlight
-3. Living For Tonite
-4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7825D2D74C59B99740A251DDD3488AE2DCCB867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320985   (465127) от 21.08.2019
-
-Макс Барских - Шоу Семь (2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкант представил альбом абсолютных суперхитов и закрепил за собой звание главного хитмейкера страны. Пять треков с еще не вышедшего альбома были самыми ожидаемыми, ведь подобного из украинских артистов еще никто не делал. Главная задача состояла в том, чтобы установить контакт со зрителем, сделать из них определенную фокус-группу и получить фид-бэк во время того, (   Читать дальше...   )Производство: Украина / Secret Service EAЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3CB3485FAC44D35DCBC870DEBEED73C6195F95
 ```
 
 https://mybot314.ru/tekegram_catalog/

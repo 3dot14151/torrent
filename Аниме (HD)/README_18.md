@@ -1,3 +1,29 @@
+###  Публикация: 1251809   (648272) от 28.03.2019
+
+Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер [2018, TV, 23] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хайдзи Киёсэ был успешным профессиональным бегуном, однако травма изменила его жизнь и вынудила уйти из спорта. Однажды он знакомится с другим бывшим атлетом Какеру Курахарой, который бросил бег из-за конфликта, и эта встреча заставляет двух парней пожелать вернуться в большой спорт. Хайдзи решает избрать для этого экидэн (марафонский шоссейный пробег-эстафету) из (   Читать дальше...   )Производство: Студия Production I.GЖанр: приключенияРежиссер: Номура КадзуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3FC4F38B5F81CBE2B7C31F17F688116202E894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007980   (648046) от 11.06.2017
 
 12-Sai. Chicchana Mune no Tokimeki / 12 age / 12 лет [2016, TV, 24 из 24] HDTVRip 720p raw
@@ -6,7 +32,7 @@
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648046.jpg" />
+  <img src="Z:/picture/008/save_picture_648046.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647260.jpg" />
+  <img src="Z:/picture/008/save_picture_647260.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Bishoujo Senshi Sera Mun Kurisutaru Season III / Прекрасная воите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647258.jpg" />
+  <img src="Z:/picture/008/save_picture_647258.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Sansha Sanyou / Трилистник [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645436.jpg" />
+  <img src="Z:/picture/008/save_picture_645436.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Mahou Shoujo Tokushusen Asuka | Magical Girl Spec-Ops Asuka | Девочки-в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644457.jpg" />
+  <img src="Z:/picture/008/save_picture_644457.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644448.jpg" />
+  <img src="Z:/picture/008/save_picture_644448.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644441.jpg" />
+  <img src="Z:/picture/008/save_picture_644441.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644314.jpg" />
+  <img src="Z:/picture/008/save_picture_644314.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fuji
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643045.jpg" />
+  <img src="Z:/picture/005/save_picture_643045.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642529.jpg" />
+  <img src="Z:/picture/008/save_picture_642529.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Bermuda Triangle: Colorful Pastorale | Разноцветная пасторал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640771.jpg" />
+  <img src="Z:/picture/008/save_picture_640771.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Fukigen na Mononokean: Tsuzuki | The Morose Mononokean II | Обитель мр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640631.jpg" />
+  <img src="Z:/picture/008/save_picture_640631.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640520.jpg" />
+  <img src="Z:/picture/008/save_picture_640520.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Shingeki no Kyojin: The Final Season | Атака титанов [ТВ-4] [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640365.jpg" />
+  <img src="Z:/picture/008/save_picture_640365.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Ultraman | Ультрамен [2019, ONA, 13 эп.] WebRip 720p HEVC 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638828.jpg" />
+  <img src="Z:/picture/008/save_picture_638828.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638820.jpg" />
+  <img src="Z:/picture/008/save_picture_638820.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638819.jpg" />
+  <img src="Z:/picture/008/save_picture_638819.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638818.jpg" />
+  <img src="Z:/picture/008/save_picture_638818.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen / Kaguya-sama: Love 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638719.jpg" />
+  <img src="Z:/picture/008/save_picture_638719.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Sword Art Online: Alicization / Мастера меча онлайн: Алиси
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638705.jpg" />
+  <img src="Z:/picture/008/save_picture_638705.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638496.jpg" />
+  <img src="Z:/picture/008/save_picture_638496.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638488.jpg" />
+  <img src="Z:/picture/008/save_picture_638488.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638136.jpg" />
+  <img src="Z:/picture/008/save_picture_638136.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [TV-1][2014,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637961.jpg" />
+  <img src="Z:/picture/008/save_picture_637961.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637940.jpg" />
+  <img src="Z:/picture/008/save_picture_637940.jpg" />
 </div>
 
 
@@ -650,34 +676,6 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:784C12DF70DB4DAB982969E83BE9450789007412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278984   (636900) от 03.04.2019
-
-Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [ТВ-2] [2019, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории (а фактически - ремейк). Описание от первого сезона:
-
-В «гигантском интегрированном зоопарке» под названием «Джапари Парк» творится неладное: из-за таинственной субстанции, получившей название «песчаная звезда», животные начали превращаться в антропоморфных существ — зверодевушек. «Джапари Парк» ежедневно посещает множество людей, которые прекрасно (   Читать дальше...   )Производство: студия Tomason / トマソンЖанр: приключенияРежиссер: Кимура РюйтиПеревод: CrunchyRollСубтитры: 1: Английские; 2: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C772AD1EEBBB9E5A69BD55A9A349287D86CADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

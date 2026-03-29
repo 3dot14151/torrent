@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1861098   (1062645) от 
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 18 (2026) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgio Safo - Trinity Of The Void (Original Mix) [3:25]
+02. Mars Shadow - Astrenox (Extended Mix) [6:33]
+03. Axxound - Not Alone (Extended Mix) [6:40]
+04. Makoom - Hope & Memories (Extended Mix) [7:51](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D129F210E023B5F2A0E3901F9DAA2D823CEAE73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861520   (1062377) от 
+
+VA - We Love Progressive Trance 2026 (2026) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AGENTBOY - Poison In The Blood (Extended Mix) [7:09]
+02. Vahid Ghandizadeh - Resurrection (Original Mix) [7:31]
+03. Zakkov - Sacrifice (Original Mix) [4:36]
+04. Henry Caster - Endless (Original Mix) [5:48](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A0717F7817FBECBEF11482F8941D1132A3F4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860829   (1062086) от 
+
+Dennis Sheperd - The Next Generation - Extended Mixes (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Katty Heath & Marcel Vautier - Hearts Aligned (Extended Mix) 04:28
+02. Dennis Sheperd & Julia Eliza - Soul (Extended Mix) 05:40
+03. Dennis Sheperd & Katty Heath & Kazu - Watch Over Me (Extended Mix) 05:05
+04. Dennis Sheperd & Ayandra - Begin Again (Extended Mix) 04:49(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106466F992FFF7E5DEC4E236E15CBCE006F12416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860543   (1061892) от 
+
+VA - Trancendence, Vol. 09 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robinito - Northern Soul (Extended Mix) [7:40]
+02. Kaimo K - Titan (Radio Edit) [3:35]
+03. Ron with Leeds - Crave The Horizon (Original Mix) [3:58]
+04. Simply Drew - Vortex (Extended Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4012C70E6764ECE5243784C4FFEDE62B25070E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860534   (1061889) от 
+
+Sharon Valerona - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Sharon Valerona - Horizon (Extended Mix) [6:44]
+02. DJ T.H. & Sharon Valerona - Only Now I See (Mike Zaloxx Extended Remix) [6:17]
+03. Michael Milov & Dmitry Chelnokov & Sharon Valerona - Live Without You (Michael Milov Extended 90's Mix) [3:18]
+04. Aurosonic & Sharon Valerona - Let Go (Extended Mix) [7:38](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A094C17BA1B68A7B1DA07C1DB82A7E9AA56FB0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860527   (1061888) от 
+
+Jennifer Rene - Voice Of Suanda (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Mike Zaloxx with Jennifer Rene - Lately (Extended Mix) [6:28]
+02. SMR LVE & Jennifer Rene - Stay (Extended Mix) [5:46]
+03. Roman Messer & Anton Pallmer & Jennifer Rene - When I Hear Your Voice (Extended Mix) [7:21]
+04. Lewis Duggleby & Jennifer Rene - Whispering Words (Extended Mix) [5:16](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B4AB3F2748557769FFA91EC62720E37FA2E966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860521   (1061887) от 
+
+VA - Miami Hits 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Brittany Egbert - Odyssey (Extended Mix) [7:33]
+02. Feel - Now We Are Free (Extended Mix) [4:32]
+03. Roman Messer & Philippe El Sisi - The Castle (Extended Mix) [6:54]
+04. Adip Kiyoi - Your Symphony (Extended Mix) [5:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403A24B55B1F8B165E196E9ED90EB1A8FF4BAC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860432   (1061826) от 
 
 VA - Progressive Trance Awakening, Vol. 12 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -7,7 +210,7 @@ VA - Progressive Trance Awakening, Vol. 12 (2026) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061826.jpg" />
+  <img src="Z:/picture/005/save_picture_1061826.jpg" />
 </div>
 
 
@@ -36,7 +239,7 @@ VA - Ablazing Spring Sessions 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061804.jpg" />
+  <img src="Z:/picture/005/save_picture_1061804.jpg" />
 </div>
 
 
@@ -65,7 +268,7 @@ VA - Future Sound of Egypt Miami 2026 Compilation (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061784.jpg" />
+  <img src="Z:/picture/005/save_picture_1061784.jpg" />
 </div>
 
 
@@ -94,7 +297,7 @@ VA - Vocal Anthems Miami 2026 (2026) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061781.jpg" />
+  <img src="Z:/picture/005/save_picture_1061781.jpg" />
 </div>
 
 
@@ -123,7 +326,7 @@ VA - Trance Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061359.jpg" />
+  <img src="Z:/picture/005/save_picture_1061359.jpg" />
 </div>
 
 
@@ -152,7 +355,7 @@ VA - Friends of A State Of Trance, Vol. 1 (Mixed by Ferry Corsten) (2026) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061086.jpg" />
+  <img src="Z:/picture/005/save_picture_1061086.jpg" />
 </div>
 
 
@@ -181,7 +384,7 @@ VA - Trance Fusion, Vol. 17 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060902.jpg" />
+  <img src="Z:/picture/005/save_picture_1060902.jpg" />
 </div>
 
 
@@ -210,7 +413,7 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 17 (2026) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060762.jpg" />
+  <img src="Z:/picture/005/save_picture_1060762.jpg" />
 </div>
 
 
@@ -239,7 +442,7 @@ VA - Black Hole Trance Music 03-26 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060749.jpg" />
+  <img src="Z:/picture/005/save_picture_1060749.jpg" />
 </div>
 
 
@@ -268,7 +471,7 @@ VA - Trancendence, Vol. 05 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060350.jpg" />
+  <img src="Z:/picture/009/save_picture_1060350.jpg" />
 </div>
 
 
@@ -297,7 +500,7 @@ VA - Dark Miami 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060347.jpg" />
+  <img src="Z:/picture/009/save_picture_1060347.jpg" />
 </div>
 
 
@@ -326,7 +529,7 @@ VA - Trancendence, Vol. 08 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060336.jpg" />
+  <img src="Z:/picture/009/save_picture_1060336.jpg" />
 </div>
 
 
@@ -355,7 +558,7 @@ VA - Progressive Trance Awakening, Vol. 11 (2026) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059677.jpg" />
+  <img src="Z:/picture/005/save_picture_1059677.jpg" />
 </div>
 
 
@@ -384,7 +587,7 @@ VA - Trance Winter 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059599.jpg" />
 </div>
 
 
@@ -413,7 +616,7 @@ Armin van Buuren - A State of Trance 001-050 (2001-2002) [MP3|192 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059247.jpg" />
+  <img src="Z:/picture/005/save_picture_1059247.jpg" />
 </div>
 
 
@@ -442,7 +645,7 @@ VA - The Sound of 2026, Chapter 1: Toronto (Night Mix) (2026) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059105.jpg" />
+  <img src="Z:/picture/005/save_picture_1059105.jpg" />
 </div>
 
 
@@ -471,7 +674,7 @@ OTTAGON / Giuseppe Ottaviani - AZZURRO Ep (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058955.jpg" />
+  <img src="Z:/picture/005/save_picture_1058955.jpg" />
 </div>
 
 
@@ -500,7 +703,7 @@ VA - D.Trance 113 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058948.jpg" />
+  <img src="Z:/picture/005/save_picture_1058948.jpg" />
 </div>
 
 
@@ -529,7 +732,7 @@ VA - Uplifting Only Top 15: February 2026 (Extended Mixes) (2026) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058944.jpg" />
+  <img src="Z:/picture/005/save_picture_1058944.jpg" />
 </div>
 
 
@@ -543,208 +746,6 @@ VA - Uplifting Only Top 15: February 2026 (Extended Mixes) (2026) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A36CFEDEB379384E833E549AEA9BB864F3C2355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856483   (1058791) от 28.02.2026
-
-VA - The Sound of 2026, Chapter 1: Toronto (Day Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F4T4L3RR0R - Is There Hope? (Intro - Mixed) 02:37
-02. Fille V - Awake (Original Mix - Mixed) 05:14
-03. Yseph Elaren - Sunshine (Original Mix - Mixed) 03:40
-04. Markus Frost - Bliss (Original Mix - Mixed) 04:41(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63035A78C9A5F92C3426E38ACA778BF8AC6F651D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856093   (1058762) от 26.02.2026
-
-VA - Redux Selection, Vol. 3 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gradian & Lentorek - Demonic Invasion (Buzzard Extended Remix) [6:16]
-02. Full C0urse - One More Time (Extended Mix) [7:34]
-03. JARR Head & PITTARIUS CODE - Legends (Extended Mix) [6:28]
-04. Sander Bastiaans - Unyielding (Extended Mix) [7:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0DCB7597D0E5670C724D88F7043EE041D863C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855947   (1058613) от 25.02.2026
-
-VA - FSOE 950 Compilation (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Stone - Macy (Extended Mix) [6:34]
-02. Aly & Fila meets Roger Shah & Susana - Unbreakable (Extended Mix) [7:47]
-03. Sean Tyas & Darren Porter - The Potion (Extended Mix) [8:25]
-04. Aly & Fila - Beyond The Lights (Extended Mix) [7:47](   Читать дальше...   )Жанр: TranceПродолжительность: 03:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2537A0FE8E581D0226746D86422EE7C51E413BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855892   (1058608) от 25.02.2026
-
-VA - A State of Trance: 25 Years - Official Anthem Collection (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Richard Durand & Dicosis - Always You (A State of Trance 2026 ELEVATION Anthem) (Extended Mix) [5:38]
-02. Armin van Buuren & Ben Hemsley feat. Lucy Pullin - Is It Beautiful? (A State of Trance 2025 TRANSFORMATION Anthem) (Extended Mix) [7:12]
-03. Armin van Buuren, Ferry Corsten, RANK 1 & Ruben de Ronde - Destination (A State (   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DB270CE96DDF111F94AB88F4E14DC8322F0709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854925   (1057892) от 20.02.2026
-
-VA - Festival Anthems 2026 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H. & Roman Messer - Millennium Falcon (Extended Mix) [7:27]
-02. Adip Kiyoi - You Love Me (Extended Mix) [6:04]
-03. Roman Messer & Alexander Popov & Feel - Moonlight Sonata (Extended Mix) [6:51]
-04. Inrayzex - Secret Of The Space (Extended Mix) [4:40](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C32516A6E3C1377A45B3C9CFCD77740FC96E46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853448   (1056837) от 13.02.2026
-
-VA - Black Hole Trance Music 02-26 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciaran McAuley with Deirdre McLaughlin - Why Do We Hide (Extended Mix) [6:45]
-02. Ferry Corsten - Eternity (Genix Extended Reprint) [5:08]
-03. ReOrder & BreaKevin - Struggle For Pleasure (Extended Mix) [6:04]
-04. Orjan Nilsen & Mark Sixma pres. nilsix & Clara Yates - Through It All (Extended Mix) [4:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4031AC05C725336FDCF330C31EDB55401C3D06D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853355   (1056508) от 12.02.2026
-
-VA - Uplifting Trance Collection, vol.1 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polzn Bladz - Awkward Silence (Extended Mix) [6:52]
-02. Elatex - Lost in Keys (Extended Mix) [5:55]
-03. Polzn Bladz - Intended Outcome (Extended Mix) [7:40]
-04. DJ Willbo - Cosmic Star (Original Mix) [7:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5FCD7ECEE4CA927CF22541F131ED55CA5B3F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

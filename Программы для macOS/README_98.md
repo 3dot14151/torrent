@@ -1,3 +1,139 @@
+###  Публикация: 1252183   (411167) от 04.10.2018
+
+Desktop Curtain 3.0.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Desktop Curtain - это простой инструмент, чтобы скрыть беспорядок на рабочем столе и помочь вам сосредоточиться на основной задаче. Это идеальный вариант для преподавателей, ведущих, писателей, разработчиков и кого-либо еще, кто ненавидит беспорядок и/или тем, кому необходимо делать скриншоты с чистых фоновых изображений.
+
+Зачем тратить время на перемещение файлов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AD45291475DE0B157364DA0F302D7249A880EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252113   (411165) от 04.10.2018
+
+Org Chart Designer Pro 2 v2.28 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа Org Chart Designer Pro позволяет создавать и публиковать профессиональные организационные диаграммы и сетевые диаграммы.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A72B906CC7B933FB46D5E2233E0D3E956BD2CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948665   (410634) от 20.10.2015
+
+Mathworks Matlab R2015b (8.6.0.267246) [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования для инженерных и математических расчетов. Обширная библиотека функций упрощает работу (в частности графическое отображение данных)
+
+MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (C/C++, Java, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 сентября 2015Разработчик: The MathWorks, Inc.Поддерживаемая ОС: 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CAA015C22B17DB689DA490C1513CBB238CCA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573614   (410412) от 01.09.2022
+
+Theine 3.4.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не позволяйте компьютеру Mac заснуть, затемнению экрана или запуску заставки. Theine не дает уснуть macOS, как кофеин внутри вас.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2015–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8CB37231E07382334A0E28B8EB1C8B6768D366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573739   (410402) от 01.09.2022
+
+Bootstrap Studio 6.1.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
+Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
+Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2022 Zine EOODПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C3851CA91AC9103BD1AEEEEAD8F47D9E627A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573760   (410315) от 01.09.2022
 
 Meta 2.1.5 [Multi/Ru]
@@ -6,7 +142,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410315.jpg" />
+  <img src="Z:/picture/008/save_picture_410315.jpg" />
 </div>
 
 
@@ -33,7 +169,7 @@ Fantastical 2.1.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409353.jpg" />
+  <img src="Z:/picture/008/save_picture_409353.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ PaintCode 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409350.jpg" />
+  <img src="Z:/picture/008/save_picture_409350.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ App Uninstaller 6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409087.jpg" />
+  <img src="Z:/picture/008/save_picture_409087.jpg" />
 </div>
 
 
@@ -116,7 +252,7 @@ FilmConvert Pro All Packs 2016 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409069.jpg" />
+  <img src="Z:/picture/008/save_picture_409069.jpg" />
 </div>
 
 
@@ -144,7 +280,7 @@ DivX Pro 10.4.0  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408976.jpg" />
+  <img src="Z:/picture/008/save_picture_408976.jpg" />
 </div>
 
 
@@ -171,7 +307,7 @@ CrossFTP Enterprise 1.98.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408855.jpg" />
+  <img src="Z:/picture/008/save_picture_408855.jpg" />
 </div>
 
 
@@ -197,7 +333,7 @@ Deliveries: a package tracker 3.0.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408850.jpg" />
+  <img src="Z:/picture/008/save_picture_408850.jpg" />
 </div>
 
 
@@ -223,7 +359,7 @@ CounterPath Bria 5.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408448.jpg" />
+  <img src="Z:/picture/008/save_picture_408448.jpg" />
 </div>
 
 
@@ -249,7 +385,7 @@ Templates for Pages 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408396.jpg" />
+  <img src="Z:/picture/008/save_picture_408396.jpg" />
 </div>
 
 
@@ -278,7 +414,7 @@ NetWorker - Network Info App 5.1.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408063.jpg" />
+  <img src="Z:/picture/008/save_picture_408063.jpg" />
 </div>
 
 
@@ -304,7 +440,7 @@ PaintCode 3 v3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408062.jpg" />
+  <img src="Z:/picture/008/save_picture_408062.jpg" />
 </div>
 
 
@@ -330,7 +466,7 @@ Adobe Type Manager Deluxe 4.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407901.jpg" />
+  <img src="Z:/picture/008/save_picture_407901.jpg" />
 </div>
 
 
@@ -357,7 +493,7 @@ Vertus Fluid Mask 3.3.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407689.jpg" />
+  <img src="Z:/picture/008/save_picture_407689.jpg" />
 </div>
 
 
@@ -385,7 +521,7 @@ Sketch 58 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407282.jpg" />
+  <img src="Z:/picture/008/save_picture_407282.jpg" />
 </div>
 
 
@@ -412,7 +548,7 @@ Radio Silence 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403809.jpg" />
+  <img src="Z:/picture/008/save_picture_403809.jpg" />
 </div>
 
 
@@ -439,7 +575,7 @@ Boinx snippets: Music pack 1-6 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403107.jpg" />
+  <img src="Z:/picture/008/save_picture_403107.jpg" />
 </div>
 
 
@@ -468,7 +604,7 @@ MailTags 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402476.jpg" />
+  <img src="Z:/picture/008/save_picture_402476.jpg" />
 </div>
 
 
@@ -494,7 +630,7 @@ Kite Compositor 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402403.jpg" />
+  <img src="Z:/picture/008/save_picture_402403.jpg" />
 </div>
 
 
@@ -522,7 +658,7 @@ uBar 4.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402353.jpg" />
+  <img src="Z:/picture/008/save_picture_402353.jpg" />
 </div>
 
 
@@ -548,7 +684,7 @@ WinZip 6.0.35.47 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402292.jpg" />
+  <img src="Z:/picture/008/save_picture_402292.jpg" />
 </div>
 
 
@@ -560,142 +696,6 @@ WinZip предоставляет пользователям лучшие хар
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4914E720440C2153BA07C102DE7946AC55610D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169933   (401505) от 29.09.2017
-
-App Cleaner Pro 4.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр установленных приложений и удалить пакет файлов для полного удаления.
-App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
-
-* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: NektonyПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BB35E502E1885F7798F19F492A649446695C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169750   (401465) от 29.09.2017
-
-Trim Enabler Pro 4.1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401465.jpg" />
-</div>
-
-
-###  Подробнее
-
-По умолчанию в ОС от Apple существует поддержка TRIM только для твердотельных накопителей самого же Apple. Trim Enabler призван исправить это досадное недоразумение и активировать TRIM для большинства существующих SSD. С Trim вы сможете добавить эту особенность к вашему Mac, просто нажмите на переключатель.
-Приложение снабжено несколькими полезными функциями вроде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: Oskar GrothПоддерживаемая ОС: macOS 10.9 или выщеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAE33C09FAF649A411CBC026FC0A022F1D83598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169890   (401423) от 29.09.2017
-
-OmniPlan Pro 3.7.3 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Group славится своими качественными программами для Mac. OmniPlan не стало исключением. Это приложение позволяет пользователям подробно планировать отдельные задания какого-то проекта или мероприятия. Некоторые люди предпочитают иметь визуальное представление своих идей, и именно для них разработано это приложение. Оно поможет набросать весь проект в виде схем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2017Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FCA35EE18A2180821EDAAE3ED910D5DD49F67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169959   (401329) от 29.09.2017
-
-Passport Photo 1.5 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401329.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этого приложения Вы можете мгновенно отформатировать фотографии для паспорта, распечатать или сохранить их. В приложение включены шаблоны для паспортных фотографий из 100 стран мира, на которых вы можете отрегулировать центральное расположение по горизонтали и высоту головы, а так же яркость, контрастность, насыщенность и баланс цветопередачи.Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: vsmedia.deПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A17F82F807CD0A3BDAF590409EA385C2D752493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170073   (400606) от 30.09.2017
-
-iRamDisk 3.6.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cамая функциональная программа для создание RAM-диска из свободного объема оперативной памяти. Поддерживает создание и управление более чем одним диском, автоматическое выполнением команд, автоматическое монтирование, скрытную работу, защиту дисков.
-
-Главное отличие от всех прочих решений — присутствует защита рамдиска от размонтирования в случае сна или падения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Michaël ParrotПоддерживаемая ОС: macOS 10.6.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC4C3A175AE02130A2037A10180BCDAFC8BEB7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

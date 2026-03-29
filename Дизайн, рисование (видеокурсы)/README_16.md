@@ -1,3 +1,31 @@
+###  Публикация: 1488052   (1002487) от 09.08.2021
+
+Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002487.jpg" />
+</div>
+
+
+###  Подробнее
+
+200 советов по работе в Blender меньше чем за час.
+Кто бы мог подумать? Я опубликовал так много 3D-советов по блендеру, что даже не знаю, как запомнил хоть один из них.
+Советы по просмотру, советы по составлению, советы по моделированию - все они здесь.Производство: Daniel KrafftЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BCC0206D9341BE0187B0AD78CA3AD38E587710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488183   (1002279) от 10.08.2021
 
 Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
@@ -6,7 +34,7 @@ Gumroad, Yu Cheng Hong | Armour tutorial (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002279.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Schoolism, Alex Woo | Gesture Drawing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002214.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ ArtNest, Вера Величко | Игровой арт (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002206.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Udemy.com | Adobe Illustrator Advanced Vector Artwork (2019) PCRec [H.264/720p-L
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002131.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Hourences.com, Sjoerd De Jong | The Solus project: Level Introduction (2014) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002031.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Hourences.com, Sjoerd De Jong | The Solus Project: Blueprint Introduction (2014)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002029.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002020.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Legs (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001973.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ Udemy, Pete Jepson | Blender Cyberpunk in Unity HDRP (2020) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001697.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ Side FX, Marc Tucker | Houdini 15 Masterclass Material Stylesheets (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001439.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ Side FX, Jeff Wagner | Houdini 15 Masterclass Loops (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001436.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ CG Academy, Borislav Petrov “Bobo” | MaxScript Fundamentalis 1-2 Advanced (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001431.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ Side FX, Andreas Glad | Flowmaps Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001430.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ Side FX, Andreas Glad | Curvesweeper Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001426.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ Side FX, Jeff Wagner | Geometry Workflows in Houdini 16 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001423.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001422.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001419.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Side FX, Jeff Wagner | Character FX & Cloth in Houdini 17 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001416.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ ENTAGMA, Manuel Casasola | Creating Geometry With VEX (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001409.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Udemy.com | Architectural Design & Animation in Blender (2019) PCRec [H.264/720p
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000983.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Udemy.com | Concept Art Masterclass. Create Conceptual Art from Scratch (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000974.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ Udemy.com | Concept Art Essentials. Digital Painting From Scratch (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000963.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997640.jpg" />
 </div>
 
 
@@ -627,7 +655,7 @@ Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991623.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984137.jpg" />
 </div>
 
 
@@ -664,35 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63641A8512E0235B806FABDF2EDFC3CC56D44A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355324   (983232) от 26.01.2020
-
-МультПросвет | 3D-скульптинг в Blender 2.8 (2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс поможет вам освоиться и сделать первые шаги в мощном и набирающем популярность редакторе Blender 2.8 и создать свою первую 3D скульптуру персонажа.
-Полученные навыки можно будет применить в самых разных областях:
-- это эскизный дизайн персонажей для анимации и компьютерных игр;
-- это ускорение и улучшение Вашего рисунка (можно быстро и наглядно изобразить (   Читать дальше...   )Производство: МультПросветЖанр: 3D моделирование, СкульптингПродолжительность: 27:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5521A29BAF6A1F3A094A7369EE9B9CAF327E6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

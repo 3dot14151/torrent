@@ -6,7 +6,7 @@ JetBrains PyCharm 1.2.1 build #PY-105.58 for Win/Mac/Linux [Английский
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731693.jpg" />
+  <img src="Z:/picture/005/save_picture_731693.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731687.jpg" />
+  <img src="Z:/picture/008/save_picture_731687.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ FileZilla 3.18.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731653.jpg" />
+  <img src="Z:/picture/008/save_picture_731653.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731641.jpg" />
+  <img src="Z:/picture/008/save_picture_731641.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731639.jpg" />
+  <img src="Z:/picture/008/save_picture_731639.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Bulk Crap Uninstaller 5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731626.jpg" />
+  <img src="Z:/picture/008/save_picture_731626.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731606.jpg" />
+  <img src="Z:/picture/008/save_picture_731606.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731598.jpg" />
+  <img src="Z:/picture/008/save_picture_731598.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Jetico BestCrypt 9.03.16.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731594.jpg" />
+  <img src="Z:/picture/008/save_picture_731594.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ The Bat! Professional Edition 8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731593.jpg" />
+  <img src="Z:/picture/008/save_picture_731593.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ FitDEFORMER 1.41 for Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731590.jpg" />
+  <img src="Z:/picture/008/save_picture_731590.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Windows 10 Manager 3.0.2 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731589.jpg" />
+  <img src="Z:/picture/008/save_picture_731589.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731587.jpg" />
+  <img src="Z:/picture/008/save_picture_731587.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731583.jpg" />
+  <img src="Z:/picture/008/save_picture_731583.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Paragon NTFS v15.4.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731581.jpg" />
+  <img src="Z:/picture/008/save_picture_731581.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ JetBrains RubyMine 3.1.1 Build #RM-103.260 For Win/Mac/Linux [Английски
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731557.jpg" />
+  <img src="Z:/picture/005/save_picture_731557.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731555.jpg" />
+  <img src="Z:/picture/008/save_picture_731555.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Magi: Sinbad no Bouken / Маги: Приключения Синбада [2016, 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731536.jpg" />
+  <img src="Z:/picture/008/save_picture_731536.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731520.jpg" />
+  <img src="Z:/picture/008/save_picture_731520.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Cyberduck 5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731518.jpg" />
+  <img src="Z:/picture/008/save_picture_731518.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731515.jpg" />
+  <img src="Z:/picture/008/save_picture_731515.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731510.jpg" />
+  <img src="Z:/picture/008/save_picture_731510.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731504.jpg" />
+  <img src="Z:/picture/008/save_picture_731504.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Reg Organizer 8.85 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731493.jpg" />
+  <img src="Z:/picture/008/save_picture_731493.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Windows 7 Professional VL SP1 (x86-x64) [2in1] by ivandubskoj (17.02.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731473.jpg" />
+  <img src="Z:/picture/008/save_picture_731473.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731464.jpg" />
+  <img src="Z:/picture/008/save_picture_731464.jpg" />
 </div>
 
 

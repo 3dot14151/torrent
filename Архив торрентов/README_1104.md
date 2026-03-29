@@ -6,7 +6,7 @@ SMPlayer 16.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796765.jpg" />
+  <img src="Z:/picture/008/save_picture_796765.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Opera 81.0.4196.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796764.jpg" />
+  <img src="Z:/picture/008/save_picture_796764.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Format Factory 3.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796760.jpg" />
+  <img src="Z:/picture/008/save_picture_796760.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AIMP 5.00 Build 2344 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796755.jpg" />
+  <img src="Z:/picture/008/save_picture_796755.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796750.jpg" />
+  <img src="Z:/picture/008/save_picture_796750.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ foobar2000 1.6.8 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796749.jpg" />
+  <img src="Z:/picture/008/save_picture_796749.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Screaming Frog SEO Spider 16.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796747.jpg" />
+  <img src="Z:/picture/008/save_picture_796747.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Volume2 1.1.7.437 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796744.jpg" />
+  <img src="Z:/picture/008/save_picture_796744.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Universal Media Creation Tool 09.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796739.jpg" />
+  <img src="Z:/picture/008/save_picture_796739.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Doki Doki Literature Club! | Литературный клуб «Тук-Тук!�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796726.jpg" />
+  <img src="Z:/picture/008/save_picture_796726.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796716.jpg" />
+  <img src="Z:/picture/008/save_picture_796716.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796713.jpg" />
+  <img src="Z:/picture/008/save_picture_796713.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796712.jpg" />
+  <img src="Z:/picture/008/save_picture_796712.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Microsoft .NET 6.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796708.jpg" />
+  <img src="Z:/picture/008/save_picture_796708.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Windows 10 Manager 1.1.2 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796704.jpg" />
+  <img src="Z:/picture/008/save_picture_796704.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VMware Workstation Player 16.2.1 build 18811642 Free [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796703.jpg" />
+  <img src="Z:/picture/008/save_picture_796703.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ WebcamMax 7.9.9.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796700.jpg" />
+  <img src="Z:/picture/008/save_picture_796700.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ TotalFinder 1.14.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796694.jpg" />
+  <img src="Z:/picture/008/save_picture_796694.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796691.jpg" />
+  <img src="Z:/picture/008/save_picture_796691.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Nemetschek SCIA Engineer 15.3.120 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796667.jpg" />
+  <img src="Z:/picture/008/save_picture_796667.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Photo Supreme 5.4.1.2924 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796657.jpg" />
+  <img src="Z:/picture/008/save_picture_796657.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VMware Fusion Pro 12 v12.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796643.jpg" />
+  <img src="Z:/picture/008/save_picture_796643.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Kerish Doctor 2021 4.85 (DC 08.11.2021) (Repack & Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796637.jpg" />
+  <img src="Z:/picture/008/save_picture_796637.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Dash 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796632.jpg" />
+  <img src="Z:/picture/008/save_picture_796632.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ WireGuard VPN 0.5.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796624.jpg" />
+  <img src="Z:/picture/008/save_picture_796624.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796609.jpg" />
+  <img src="Z:/picture/008/save_picture_796609.jpg" />
 </div>
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 1709649   (112773) от 25.03.2024
+
+Эдит Несбит и др. | Сердце дракона. Сказки о драконах (2013) [MP3, Олег Исаев]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случились эти истории в те далёкие времена, когда на Земле жили драконы. Драконы были очень могущественными существами, обладавшими непревзойдённой силой и необыкновенной мудростью. Но, как и любое другое существо, драконы могли выбирать – служить добру и созиданию, или встать на путь зла и разрушения. Люди же, в те времена почитали и боготворили добрых драконов (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: Седьмая книга (аудио)Продолжительность: 11:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDCD8E3EA1E82525922D888B128718061CE650BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710429   (112711) от 26.03.2024
+
+Владимир Одоевский | Городок в табакерке (2007) [MP3, Пётр Коршунков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Audiobook.
+Владимир Фёдорович Одоевский (1803–1869) – выдающийся  русский писатель и философ, автор множества художественных произведений для детей, которые стали классикой детской литературы. Эти удивительные сказки унесут вас в волшебный мир, где правит музыка, и совершаются невероятные чудеса…
+
+ Владимир Одоевский на NoNaMe ClubЖанр: Русская литература для детей, классика, сказкаИздательство: ИДДКПродолжительность: 03:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B374573C512FD96239C2F96AC2C5C80B2AAAA883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710657   (112631) от 27.03.2024
+
+Леонардо да Винчи | Сказки и притчи Леонардо да Винчи (2012) [MP3, Николай Литвинов, Зинаида Бокарева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива Гостелерадиофонда. Коллекция радиоспектаклей.
+Дорогие друзья, на диске записаны притчи и сказки великого итальянского художника Леонардо да Винчи. Обращение великого творца к сказкам не было случайным. Сказки, привлекавшие Леонардо да Винчи своей народной мудростью, служили ему подспорьем в неустанных поисках заветного ключика к неразгаданным (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказка, притчаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2682316AC5F23D2B00A0AFFFA11435607D9C9E2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710771   (112561) от 28.03.2024
 
 Ирина Млодик | Метаморфозы родительской любви, или Как воспитывать, но не калечить (2024) [MP3, Александр Мамонов]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112561.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112464.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112463.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112268.jpg" />
 </div>
 
 
@@ -115,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112190.jpg" />
 </div>
 
 
@@ -144,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112167.jpg" />
 </div>
 
 
@@ -172,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112163.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111726.jpg" />
 </div>
 
 
@@ -229,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111646.jpg" />
 </div>
 
 
@@ -257,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111644.jpg" />
 </div>
 
 
@@ -284,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111643.jpg" />
 </div>
 
 
@@ -312,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111639.jpg" />
 </div>
 
 
@@ -340,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111638.jpg" />
 </div>
 
 
@@ -368,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111636.jpg" />
 </div>
 
 
@@ -397,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111610.jpg" />
 </div>
 
 
@@ -424,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111517.jpg" />
 </div>
 
 
@@ -451,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111489.jpg" />
 </div>
 
 
@@ -478,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111449.jpg" />
 </div>
 
 
@@ -505,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111431.jpg" />
 </div>
 
 
@@ -532,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111424.jpg" />
 </div>
 
 
@@ -559,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111159.jpg" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111105.jpg" />
 </div>
 
 
@@ -613,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111098.jpg" />
 </div>
 
 
@@ -627,93 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51AEE0A2287C3EC389291FCF6EA6B760FA1E2519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717961   (111091) от 22.04.2024
-
-Михаил Салтыков-Щедрин, Владимир Даль, Константин Ушинский, Александр Пушкин, Пётр Ершов | Бабушкины сказки 2 (2006) [MP3, Константин Щепочкин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сказка.
-Что, Дорогие, за сказками пришли? Ну, коль пришли ко мне в гости так слушайте. А быль то, иль небыль, про то не рассудим. Уж больно много воды утекло с тех времен давних, дремучих. А почитает вам мои сказочки народный артист Константин Щепочкин.
-
- Бабушкины сказки на NoNaMe Club (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Синтез ПродакшнПродолжительность: 04:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F66C081A159E3C289FFF07BA39A0A95601E263D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717970   (111090) от 22.04.2024
-
-Братья Гримм, Ганс Христиан Андерсен и др. | Бабушкины сказки 4 (2006) [MP3, Александр Куликов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что, Дорогие, за сказками пришли? Ну, коль пришли ко мне в гости так слушайте. А быль то, иль небыль, про то не рассудим. Уж больно много воды утекло с тех времен давних, дремучих.
-
- Бабушкины сказки на NoNaMe Club 
- Нянюшкины сказки на NoNaMe Club (   Читать дальше...   )Жанр: Детская литература, классика, сказкаИздательство: Синтез ПродакшнПродолжительность: 04:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACF6D50D65824BC099619929C9A78CDD4C61325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718165   (111011) от 23.04.2024
-
-Народ | Дедушкины сказки (2006) [MP3, Борис Рунге, Ростислав Плятт и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сказка.
-Умные и добрые сказки – это увлекательные поучительные истории для малышей. Они научат добру и доставят удовольствие.
-Всего 12 сказок. Читают Борис Рунге, Николай Литвинов, Ростислав Плятт, Георгий Менглет, Покровский. Кроме русских народных диск включает еще и французские, японскую, тибетскую, английскую, немецкую сказки.
-Запись фонограмм 1964–1973 (   Читать дальше...   )Жанр: Русская и зарубежная литература для детей, сказкаИздательство: ТВИК-ЛИРЕКПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D651C3FB64CE891DABD141D3F4F7E00A7AD0C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

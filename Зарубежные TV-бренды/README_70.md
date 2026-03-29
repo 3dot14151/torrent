@@ -1,3 +1,107 @@
+###  Публикация: 1307654   (554832) от 10.06.2019
+
+Секреты дикой Индии / Secrets of Wild India (2011) BDRemux [H.264/1080i] (серии 3 из 3) [hand made 50fps]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индия, являющаяся домом для более чем миллиарда человек, имеет и дикие области, населенные великанами, хищниками и экзотическими существами. Легендарный натуралист сэр Дэвид Аттенборо в очередном фильме из серии "Дикая природа" расскажет о удивительной природе этой загадочной страны. Вы посмотрите на мир гигантских травоядных, обитающих в предгорьях Гималаев (   Читать дальше...   )Производство: США, Icon Films for National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Дункан ЧардПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: РусскиеПродолжительность: 3 x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E769751F77647B1716155F7DFC271F1E4438936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307669   (554794) от 10.06.2019
+
+Неизведанная Европа / Wildest Europe (2016) HDTV [H.264/1080i-LQ] (серии 5 из 5)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал раскрывает невероятную красоту и разнообразие дикой природы европейского континента. Результатом явилось удивительное и чудесное путешествие и разнообразные пейзажи. Ни на одном другом континенте нет такого разнообразия ландшафтов и такого количества диких животных, втиснутых в такое ограниченное пространство.Производство: EU, Off the Fence for Animal Planet InternationalЖанр: Документальный, природа, флора, фаунаРежиссер: Паппи Риддл, Колин Коллис, Сара ТиткомбПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A9141D6A1C199FE2268645AEE041323740E0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236241   (554705) от 16.07.2018
+
+BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британская империя ( British  Empire ) развивалась и наращивала свою мощь более двух сотен лет. Небольшая европейская страна какой мы её знаем сегодня, вплоть до 30 годов прошлого столетия являлась самым большим государством в мире. Великобритании принадлежали множество колоний на всех континентах земного шара. Почти четвёртая часть человечества насильственно подчинялось (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, история, исследованиеРежиссер: Джереми ПаксманПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: русские, в непереведённых фрагментахПродолжительность: 5 x 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229987   (554645) от 16.07.2018
+
+History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip HDTVRip [H.264/720p-LQ] (10 серий из 10)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554645.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Одиссея» Гомера - самый известный эпос во всей мировой литературе: сказание о приключениях героя, о мифологических чудищах и мстительных богах. Но было ли нечто подобное на самом деле? И есть ли тому подтверждения? Очень часто первые представления о добре и зле мы получаем из знакомых с детства мифов Древнего мира. Тысячелетия назад эти «наивные» истории о богах (   Читать дальше...   )Производство: США, KPI, A&E Television Networks, History ChannelЖанр: Документальный, мифы, история, эпосРежиссер: Кристофер Кассель, Джессика КонвэйАктеры: Стэн Бернард, Тейт Стейнсик, Грег Форд, Блэр Джонс, Станислав Адамицкий, Джозеф БедделемПродолжительность: 10 x ~ 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDABA95896EA6CA7401D7CC73FE5ABC9C2C2CBDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229986   (554644) от 16.07.2018
 
 History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip (10 серий из 10)
@@ -6,7 +110,7 @@ History Channel: Битвы богов / Clash of the Gods (2009) HDTVRip (10 с
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554644.jpg" />
+  <img src="Z:/picture/008/save_picture_554644.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Герои Средиземноморья / Heroes of the Mediterranean (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554428.jpg" />
+  <img src="Z:/picture/008/save_picture_554428.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Тайны дикой природы / Secrets Of The Wild (2013) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554388.jpg" />
+  <img src="Z:/picture/008/save_picture_554388.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Городские джунгли / Urban Jungle (2014) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554151.jpg" />
+  <img src="Z:/picture/008/save_picture_554151.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW. Стая: Львы / The Pack: Lions (Leslie Schwerin) (2010) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554149.jpg" />
+  <img src="Z:/picture/008/save_picture_554149.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554147.jpg" />
+  <img src="Z:/picture/008/save_picture_554147.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554141.jpg" />
+  <img src="Z:/picture/008/save_picture_554141.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Animal Planet: Кубинская акула / Cuban Shark (2015) HDTV [H.264/10
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554105.jpg" />
+  <img src="Z:/picture/008/save_picture_554105.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553914.jpg" />
+  <img src="Z:/picture/008/save_picture_553914.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Animal Planet: Остров гигантской акулы / Island Of The Mega
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553895.jpg" />
+  <img src="Z:/picture/008/save_picture_553895.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Animal Planet: В дикие края с Эваном. Обезьяны Амаз
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553473.jpg" />
+  <img src="Z:/picture/008/save_picture_553473.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Animal Planet: Необычные животные Ника Бейкера. Ры
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553466.jpg" />
+  <img src="Z:/picture/008/save_picture_553466.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Discovery: История изобретений. С чего всё начин�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553075.jpg" />
+  <img src="Z:/picture/008/save_picture_553075.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Animal Planet: Заплыв с чудовищами / Swimming with Monsters (20
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552733.jpg" />
+  <img src="Z:/picture/008/save_picture_552733.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551783.jpg" />
+  <img src="Z:/picture/008/save_picture_551783.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551736.jpg" />
+  <img src="Z:/picture/008/save_picture_551736.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551733.jpg" />
+  <img src="Z:/picture/008/save_picture_551733.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551692.jpg" />
+  <img src="Z:/picture/008/save_picture_551692.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551678.jpg" />
+  <img src="Z:/picture/008/save_picture_551678.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551649.jpg" />
+  <img src="Z:/picture/008/save_picture_551649.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551294.jpg" />
+  <img src="Z:/picture/008/save_picture_551294.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ Da Vinci Learning: Музыка мозга / Music of the Brain (2009) SATRip
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551293.jpg" />
+  <img src="Z:/picture/008/save_picture_551293.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ Da Vinci Learning: Музыка мозга / Music of the Brain (2009) SATRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD90C10CDE1D5C0454CE2F6D3C86E7B8163D1D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261226   (550907) от 19.06.2019
-
-Шон Бин при Ватерлоо / Sean Bean on Waterloo (2015) HDTVRip [H.264/720p-LQ] (2 серии из 2)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голливудский актер Шон Бин рассказывает историю сражения при Ватерлоо, одной из самых значимых битв истории. Рассказ Шона вдохновлен его собственным опытом игры наполеоновского солдата Ричарда Шарпа в телевизионных фильмах на основе бестселлеров Бернарда Корнуэлла. В фильме он опирается на свидетельские показания солдат, которые сражались при Ватерлоо, чтобы рассказать (   Читать дальше...   )Производство: Великобритания, History ChannelЖанр: Документальный, война, история, исследованиеРежиссер: Патрик МакГрэйдиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A38A74F63312C5320BE09959449F9D3DF6DC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916215   (550288) от 25.07.2018
-
-BBC: Зараженный. Жизнь с паразитами / Unfested! Living With Parasites (2014) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Майкл Мосли исследует странный и удивительный мир паразитов. Он едет в Кению, чтобы поселить в себе солитера - паразита, который может вырасти до нескольких метров в кишечнике человека. Он также изучает вшей, пиявок и смертельных паразитов, вызывающих малярию, после чего глотает таблетку-камеру, чтобы мы могли увидеть, что в нем растет.Телекомпания: British Broadcasting Corporation (BBC), Science ProductionЖанр: Документальный. научно-популярный, паразитологияРежиссер: Натан УильямсПеревод: Русский VO профессиональный (Видеофильм ТВ); Украинский DVO профессиональныйПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93ECFE6C5BAF77EC45C666D53143C4EB96128EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905399   (550285) от 25.07.2018
-
-Animal Planet: Голубые Багамы / Bahama Blue (2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Багамы. Острова, знаменитые своей красотой. За многие тысячи лет выросшие на основании древнего кораллового рифа. На 3000 багамских островах идёт постоянная борьба между жизнью и смертью, которые ведут самые устрашающие и самые чудесные создания на планете.
-Этот документальный фильм из шести серий перенесет вас в сердце глубокого синего моря. Погрузитесь в удивительные (   Читать дальше...   )Телекомпания: Parallax Film ProductionsЖанр: ДокументальныйРежиссер: Ian HerringПеревод: Одноголосый закадровый, профессиональный, озвучено на студии АРК ТВ, текст читают Антон Савенков, Денис Некрасов, Александр ГаврилинПродолжительность: 6x~00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8D1AEDFBCEA66222B3CF4601CD4B14838729A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047161   (549890) от 29.08.2016
-
-BBC. Большой Барьерный риф с Дэвидом Аттенборо  / Great Barrier Reef with David Attenborough (2016) BDRip [H.264/720p] (серия 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гости рифа / VisitorsВ этом фильме Дэвид Аттенборо с помощью научно-исследовательского судна Алюсия расскрывает историю и тайны богатого биоразнообразием самого волшебного места на Земле - Большого Барьерного рифа.Жанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Одноголосый закадровый, любительский (Ю. Онищенко)Язык субтитров: Русский, английскийПродолжительность: 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD338D810BADC4C29D38D0DCA1A13000FAB938E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1245587   (471412) от 06.09.2018
+
+Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь одни посреди океана, дрейфуя на нескольких досках и осматриваетесь: на горизонте нет даже островов. Хуже того, единственное, что вы видите в воде — акулий плавник, нарезающий круги вокруг плота. Здесь и начинается ваше приключение!Тип издания: RepackРазработчик: UniSoft GamesЖанр: Adventure, Action (Survival), 3D, 1st PersonЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB2332454E11134E62AF7B1252F70C6E21585DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547883   (471093) от 16.09.2012
+
+Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471093.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Проклятые» созданы по сценарию знаменитого автора романов ужасов Клайва Баркера и представляют собой смелый эксперимент по скрещиванию интерактивных развлечений с современной литературой: игру можно смело называть «экранизацией» очередного романа писателя. Но одно дело смотреть фильм ужасов в кинотеатре и совсем другое — участвовать в событиях самому. Мастерски расказанная мрачная история и ураганное действие в лучших традициях Unreal и Quake, оккультизм и религия, древняя магия и последние достижения технического прогресса, — все компоненты сливаются воедино, создавая игру невероятно динамичную и вместе с тем совсем не по-детски страшную. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / Racing (Futuristic) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC2CC8483C90449F9115A4E12B4E75160C1E35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043196   (469746) от 04.08.2022
+
+Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как головорез, избитый до полусмерти, Вы начали свой путь к мести. Вы жаждете похоронить тех ублюдков после того, что они сделали с Вами, но сначала Вы должны создать свою собственную банду, набирая рекрутов прямо с улиц. Если новый член банды не оправдал ваших ожиданий, наймите других. Идите к успеху, но не упустите главаря, в конце-концов вы встретитесь с ним.Тип издания: LicenseРазработчик: Xatrix EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F6DACDA3BC06784035EF7DE81CE93D8E980D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233473   (467013) от 08.09.2018
+
+The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467013.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Solus Project, захватывающая история выживания на пустынной планете среди останков иной цивилизации. 2183 год. Человечество ищет планеты для колонизации. Ваша экспедиция потерпела катастрофу, и вы в полном одиночестве оказались в чужом, мертвом мире.Тип издания: RepackРазработчик: Hourences, Grip GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C528536D3D14BF28E19424FE9CA92B45D3681560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245881   (467009) от 08.09.2018
 
 Elea (2018) [Ru/Multi] (1.0) License HOODLUM
@@ -6,7 +110,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467009.jpg" />
+  <img src="Z:/picture/008/save_picture_467009.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465745.jpg" />
+  <img src="Z:/picture/008/save_picture_465745.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463040.jpg" />
+  <img src="Z:/picture/008/save_picture_463040.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462906.jpg" />
+  <img src="Z:/picture/008/save_picture_462906.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462676.jpg" />
+  <img src="Z:/picture/008/save_picture_462676.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461531.jpg" />
+  <img src="Z:/picture/008/save_picture_461531.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457079.jpg" />
+  <img src="Z:/picture/008/save_picture_457079.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456874.jpg" />
+  <img src="Z:/picture/008/save_picture_456874.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456394.jpg" />
+  <img src="Z:/picture/008/save_picture_456394.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454953.jpg" />
+  <img src="Z:/picture/008/save_picture_454953.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454491.jpg" />
+  <img src="Z:/picture/008/save_picture_454491.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454150.jpg" />
+  <img src="Z:/picture/008/save_picture_454150.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452822.jpg" />
+  <img src="Z:/picture/008/save_picture_452822.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Burden (2018) [Ru/En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452320.jpg" />
+  <img src="Z:/picture/008/save_picture_452320.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Evil Park (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452150.jpg" />
+  <img src="Z:/picture/008/save_picture_452150.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Rage: Anarchy Edition [Multi3/+] (Steam-Rip/1.0.29.712) 2011 | R.G. Игрома
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452140.jpg" />
+  <img src="Z:/picture/008/save_picture_452140.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Crysis  Warhead (2008) [Ru] (1.1.1.711) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450008.jpg" />
+  <img src="Z:/picture/008/save_picture_450008.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Syndrome (2016) [Ru/Multi] (1.03f) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450000.jpg" />
+  <img src="Z:/picture/008/save_picture_450000.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Lumber Island - That Special Place (2015) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448443.jpg" />
+  <img src="Z:/picture/008/save_picture_448443.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447829.jpg" />
+  <img src="Z:/picture/008/save_picture_447829.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447794.jpg" />
+  <img src="Z:/picture/008/save_picture_447794.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447741.jpg" />
+  <img src="Z:/picture/008/save_picture_447741.jpg" />
 </div>
 
 
@@ -565,116 +669,6 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBFD2374E0649C5E0D0E43E867E3EC124BE4478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552226   (447562) от 26.09.2012
-
-Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. Shift
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект, объединяющий элементы шутера от первого лица, гоночного боевика и классической ролевой игры.
-
-Действие разворачивается на Пандоре — малонаселенной пустынной планете, где законы переписываются ежедневно — при помощи оружия. Все местное население сосредоточено на небольших аванпостах, расположенных на границе принадлежащих людям территорий, известных как Приграничные земли. Единственная достопримечательность на Пандоре — таинственное Хранилище, скрывающее несметные сокровища, якобы спрятанные представителями высокоразвитой инопланетной цивилизации многие века назад.
-
-Солдат или охотник, сирена или берсерк — выбрав одного из четырех персонажей, каждый из которых обладает уникальными навыками, игрок отправиться на поиски Хранилища. Можно попытаться добраться до сокровищ в одиночку, однако лучше найти союзников, чтобы сражаться с ними плечом к плечу. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8644F4F15ED90B6EC34E265C8D68E94DBBB476D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552289   (447555) от 26.09.2012
-
-The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«The Chronicles of Riddick Gold» содержит как оригинальную «The Chronicles of Riddick: Escape From Butcher Bay», так и продолжение этого потрясающего стелс-экшена «Chronicles of Riddick: Assault on Dark Athena»! В «Escape From Butcher Bay» вы оказываетесь в тюрьме максимально строго режима «Бухта Мясника» (Butcher Bay), расположенной на удаленной внеземной уголовной колонии. Ни одному заключенному никогда еще не удавалось сбежать оттуда. Учреждение состоит из нескольких крыльев с повышающимся уровнем охраны, а подземные шахтные разработки населяют опасные агрессивные твари.
-Главным героем игры является Ричард Б. Риддик, «сыграл» и озвучил которого ключевой персонаж обоих фильмов, положивших начало франшизе, - Вин Дизель. Риддик, пойманный охотником за головами Вильямом Дж. Джонсом, является психопатом-убийцей, которого недавно перевели в Butcher Bay и который намерен использовать все доступные средства, чтобы в ней надолго не задержаться. Для этого ему придется пройти три круга ада этого страшного заведения (зоны single-max, double-max и наконец triple-max, в которой заключенных помещают в криогенный сон и пробуждают каждый день всего на две минуты для проведения необходимых процедур), а также познакомиться со зловещими обитателями канализаций и шахт.
-Сюжет «Assault on Dark Athena» начинается сразу после событий первой части. Случилось так, что Джонс, который и доставил изначально Риддика в «Бухту Мясника», помог ему и сбежать оттуда. На его корабле, находясь в состоянии анабиоза, они оказываются затянутыми на «Темную Афину» (Dark Athena) - гигантский корабль наемников, управляемый Гейл Ревас и ее заместителем Скиннером. Риддику удается избежать пленения, после чего ему предстоит попытаться освободить пленников, включая бывшего капитана «Темной Афины», а также помочь маленькой девочке Линн, прячущейся в вентиляционных шахтах. И когда Риддику после тяжелых испытаний наконец удается на эвакуационном шаттле покинуть забитый под завязку автоматизированными бездушными дронами корабль, судьба опять наносит ему тяжелый удар... Неужели ему снова придется вернуться на «Темную Афину».(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st Person / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский (2 вида)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C4DEB7B748DF1442D70A3B1403A23741F07D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399769   (446499) от 15.08.2022
-
-Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hellpoint - Action RPG в жутком фантастическом сеттинге. Исследуйте Ирид Ново, заброшенную космическую станцию, откройте страшные тайны ее прошлого. Сражайтесь с мерзкими монстрами и всемогущими космическими богами. Если вы не справитесь в одиночку, позовите на помощь друга.Тип издания: LicenseРазработчик: Cradle GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3369A54E60B70FEF8EC2721B1A4C0E53DD359B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297245   (445878) от 30.08.2019
-
-World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445878.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Z — это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z — наследнице одноименного блокбастера от Paramount Pictures — вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60037B389FDCA45C9ED2BB00CD1CB9223D9ABD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

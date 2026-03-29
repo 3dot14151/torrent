@@ -6,7 +6,7 @@ Viber 6.7.2.21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700555.jpg" />
+  <img src="Z:/picture/008/save_picture_700555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AusLogics BoostSpeed 9.1.3.0 DC 05.05.2017 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700539.jpg" />
+  <img src="Z:/picture/008/save_picture_700539.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Masonic (2002) Hymen Records [FLAC|Lossless|tracks+.cue] <IDM, Breakcore, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700538.jpg" />
+  <img src="Z:/picture/008/save_picture_700538.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Maxthon Browser 5.2.1.6000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700535.jpg" />
+  <img src="Z:/picture/008/save_picture_700535.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ The Upbeats & Truth - The Pack (2018) EP [MP3|320 Kbps] <Electronic, Future Beat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700529.jpg" />
+  <img src="Z:/picture/008/save_picture_700529.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700518.jpg" />
+  <img src="Z:/picture/008/save_picture_700518.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700517.jpg" />
+  <img src="Z:/picture/008/save_picture_700517.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700516.jpg" />
+  <img src="Z:/picture/005/save_picture_700516.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700515.jpg" />
+  <img src="Z:/picture/008/save_picture_700515.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700514.jpg" />
+  <img src="Z:/picture/008/save_picture_700514.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700513.jpg" />
+  <img src="Z:/picture/008/save_picture_700513.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Feeder 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700510.jpg" />
+  <img src="Z:/picture/008/save_picture_700510.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700502.jpg" />
+  <img src="Z:/picture/008/save_picture_700502.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VA - Interplay 2016 (Mixed By Alexander Popov) (2016) [MP3|320 кб/с] <Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700501.jpg" />
+  <img src="Z:/picture/008/save_picture_700501.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Tails 0.19 [анонимный доступ в сети] [i386]
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700494.jpg" />
+  <img src="Z:/picture/005/save_picture_700494.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Adobe Flash Player 25.0.0.171 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700457.jpg" />
+  <img src="Z:/picture/008/save_picture_700457.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ StartIsBack++ 2.0.9 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700440.jpg" />
+  <img src="Z:/picture/008/save_picture_700440.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Google Chrome 58.0.3029.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700439.jpg" />
+  <img src="Z:/picture/008/save_picture_700439.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700430.jpg" />
+  <img src="Z:/picture/008/save_picture_700430.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Readiris Corporate 16.0.2 Build 11398 RePack (& Portable) by TryRooM 16.0.2 Buil
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700423.jpg" />
+  <img src="Z:/picture/008/save_picture_700423.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Hotel Chillout: New York Edition (2016) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700416.jpg" />
+  <img src="Z:/picture/008/save_picture_700416.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700413.jpg" />
+  <img src="Z:/picture/008/save_picture_700413.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Nox App Player 6.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700409.jpg" />
+  <img src="Z:/picture/008/save_picture_700409.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700408.jpg" />
+  <img src="Z:/picture/008/save_picture_700408.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700404.jpg" />
+  <img src="Z:/picture/008/save_picture_700404.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700401.jpg" />
+  <img src="Z:/picture/008/save_picture_700401.jpg" />
 </div>
 
 

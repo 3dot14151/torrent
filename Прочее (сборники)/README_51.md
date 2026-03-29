@@ -1,3 +1,176 @@
+###  Публикация: 1206125   (782487) от 13.02.2018
+
+VA - Best Hits 80s от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Bolton  -  Time, Love And Tenderness  5:30
+02.  Sandra  -  Midnight Man  3:04
+03.  Bad Boys Blue  -  Gimme Gimme Your Lovin  3:50
+04.  Roxette  -  Dangerous  3:49(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAC9B06FE17B4B2E093F5CEDF39ECEB05403E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206581   (782115) от 14.02.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+02.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+03.  Merk Kremont  -  Sad Story Out Of Luck  3:32
+04.  Imagine Dragons  -  Whatever It Takes  3:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C239D8DB37F6A8F7A2778FB65EE1F76EC8DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206478   (782111) от 14.02.2018
+
+VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп, Рок, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх! & Astero - Когда мы были молодыми
+002. Марина Капуро & Aнсамбль Яблоко - Happy New Year
+003. Руки Вверх vs. Ser Twister - С Новым Годом! (DJ Prezzplay MashUp)
+004. Тараканы! - Stacy Hairy (feat. Иван Глобин & Дарья Глобина)(   Читать дальше...   )Жанр: Поп, Рок, ШансонПродолжительность: 06:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7EF11DDC8D9E5C601026908B7A45C78671DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206341   (781966) от 14.02.2018
+
+Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aicha
+2. Brooklyn Edit
+3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5E720F1520995FE13B908BCE93C4066A7044D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206905   (781722) от 15.02.2018
+
+VA - Peoples Choise: Pop Rock Retrospective (2018) [MP3|320 Kbps] <Pop Rock, Retro 80's>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Maggie Macneal  -  When You're Gone  4:30
+002.  Hollies  -  Sandy  4:00
+003.  Ike & Tina Turner  -  Baby Get It On  3:14
+004.  B.T. Express  -  Do It  5:50(   Читать дальше...   )Жанр: Pop Rock, Retro 80'sПродолжительность: 06:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFDA7892AFCF99CDCCD8D330AC0EAC3E416DD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206974   (781278) от 16.02.2018
+
+VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jason Derulo feat. French Montana  -  Tip Toe  3:08
+02.  MARUV & Boosin  -  Drunk Groove  3:47
+03.  Ed Sheeran  -  Perfect (Robin Schulz Remix)  4:10
+04.  Rita Ora  -  Anywhere  3:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046E1BA590C5089A6DFA763F7C5200EF3F0525C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391337   (781002) от 20.06.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +179,7 @@ VA - ЕвроХит Топ 40 Europa Plus 19.06.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781002.jpg" />
+  <img src="Z:/picture/008/save_picture_781002.jpg" />
 </div>
 
 
@@ -35,7 +208,7 @@ VA - We Love Bossa Nova (2018) [MP3|320 Kbps] <Downtempo, Jazz, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780854.jpg" />
+  <img src="Z:/picture/008/save_picture_780854.jpg" />
 </div>
 
 
@@ -64,7 +237,7 @@ VA - Kiss FM: Top 40 Февраль (2018) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780809.jpg" />
+  <img src="Z:/picture/008/save_picture_780809.jpg" />
 </div>
 
 
@@ -93,7 +266,7 @@ VA - Зайцев.Нет: Лучшие Новинки Февраля (2018) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780778.jpg" />
+  <img src="Z:/picture/008/save_picture_780778.jpg" />
 </div>
 
 
@@ -122,7 +295,7 @@ VA - Старые Песни по-новому. Интернациональны
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780684.jpg" />
+  <img src="Z:/picture/008/save_picture_780684.jpg" />
 </div>
 
 
@@ -151,7 +324,7 @@ Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780448.jpg" />
+  <img src="Z:/picture/008/save_picture_780448.jpg" />
 </div>
 
 
@@ -179,7 +352,7 @@ VA - Большой Мальчишник (2018) [MP3|320 Kbps] <Поп, Шанс
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780227.jpg" />
+  <img src="Z:/picture/008/save_picture_780227.jpg" />
 </div>
 
 
@@ -208,7 +381,7 @@ VA - Winter Twilight: Eurodance Party (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780107.jpg" />
+  <img src="Z:/picture/008/save_picture_780107.jpg" />
 </div>
 
 
@@ -237,7 +410,7 @@ VA - Hits Cocktail Vol.16 (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780103.jpg" />
+  <img src="Z:/picture/008/save_picture_780103.jpg" />
 </div>
 
 
@@ -266,7 +439,7 @@ VA - Cocktail New Music #28 (2018) [MP3|320 Kbps] <House, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779983.jpg" />
+  <img src="Z:/picture/008/save_picture_779983.jpg" />
 </div>
 
 
@@ -295,7 +468,7 @@ VA - Радио DFM Top 30: Хит-парад D-Чарт (16.02) (2018) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779910.jpg" />
+  <img src="Z:/picture/008/save_picture_779910.jpg" />
 </div>
 
 
@@ -324,7 +497,7 @@ VA - ЕвроХит Топ 40 Europa Plus 23.02.2018 [MP3|320 Kbps] <Dance, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779639.jpg" />
 </div>
 
 
@@ -353,7 +526,7 @@ VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779416.jpg" />
 </div>
 
 
@@ -382,7 +555,7 @@ VA - Love Is A Catastrophe: Synthpop Neuroactive Mix (2018) [MP3|200-320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779391.jpg" />
 </div>
 
 
@@ -411,7 +584,7 @@ VA - I Love The 90's (2018) [MP3|320 Kbps] <Eurodance, Euro House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779369.jpg" />
 </div>
 
 
@@ -440,7 +613,7 @@ VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Sy
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779130.jpg" />
 </div>
 
 
@@ -469,7 +642,7 @@ VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779082.jpg" />
 </div>
 
 
@@ -498,7 +671,7 @@ VA - NRJ Hot 30 от Радио ENERGY 23.02.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778968.jpg" />
 </div>
 
 
@@ -527,7 +700,7 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.70
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778885.jpg" />
 </div>
 
 
@@ -556,7 +729,7 @@ VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778575.jpg" />
 </div>
 
 
@@ -570,180 +743,6 @@ VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210455   (778574) от 03.03.2018
-
-VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
-02. Элджей - Минимал
-03. Элджей & Feduk - Розовое вино
-04. Время и Стекло - Тролль(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210742   (778463) от 04.03.2018
-
-VA - The Best World Ballads - 34 (2018) [MP3|320 Kbps] <Pop, Rock, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anastacia  -  Not Coming Down  3:22
-002.  The Score  -  Revolution  3:52
-003.  Demi Lovato  -  Cry Baby  3:43
-004.  Chris Rea  -  Nothing Left Behind  5:29(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B09E7D96473C8AA77599C092F81999893825191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012925   (778383) от 02.05.2016
-
-VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778383.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chaka Khan - Through the Fire
-2. Al Jarreau - We're In This Love Together
-3. Chicago - You're the Inspiration
-4. Anita Baker - Sweet Love(   Читать дальше...   )Жанр: Pop, Easy Listening, Jazz VocalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012829   (778360) от 02.05.2016
-
-VA - Blues Women: Collection April (2016) [MP3|320 кб/с] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boy Bloater - I Got The Feeling Someone's Watching Me
-02. Vargas Blues Band - Burning Shuffle
-03. Airborne Blues Virus - Gone Fishin'
-04. John Mayall & The Bluesbreakers - I Could Cry(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 05:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC9A6E263D04896858306E09A14C571461E7C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211123   (778154) от 05.03.2018
-
-VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La groupie du pianiste - Michel Berger
-02. Ella, Elle L'A - France Gall
-03. Vancouver - Veronique Sanson
-04. Ce n'est rien - Julien Clerc(   Читать дальше...   )Жанр: ChansonПродолжительность: 04:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D11F3469B3E9486963BB55AD41CBBFF83BE0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211032   (778086) от 05.03.2018
-
-VA - Trance Collection Vol.68 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
-02.  Driftmoon feat. Julie Thompson  -  Only You (Extended Mix)  8:09
-03.  Ula  -  Re Zero (Jimmy Chou pres Prototype Remix)  6:07
-04.  Standerwick feat. HALIENE  -  Deep End (Club Mix)  4:52(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 10:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2446057CE97512EBB263FB95A0848C354F07267
 ```
 
 https://mybot314.ru/tekegram_catalog/

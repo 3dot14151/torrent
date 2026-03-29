@@ -1,3 +1,135 @@
+###  Публикация: 977379   (965766) от 21.01.2016
+
+С. Вишнев | Экономические ресурсы Германии. Экономическая база Германии в новой Европейской войне (1940) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая империалистическая война в Европе имеет свой «экономический фронт», значение которого исключительно велико. Воюющие стороны, мобилизуя все свои военно-производственные ресурсы, одновременно стремятся посредством блокады и экономической войны ослабить хозяйственную базу противника. Это показывает возросшую роль экономических факторов в современной войне и значение (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90EC5105B1173D260D7138B4BCE7261E51AAEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359204   (965111) от 11.02.2020
+
+Мориц Д. Буш | Так говорил Бисмарк! (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Результаты Франко-прусской войны 1870–1871 года стали триумфальными для Германии и дипломатической победой Отто фон Бисмарка. Но как удалось ему добиться этого?
+Мориц Буш – автор этих дневников – безотлучно находился при Бисмарке семь месяцев войны в качестве личного секретаря и врача и ежедневно, методично, скрупулезно фиксировал на бумаге все увиденное и услышанное, (   Читать дальше...   )Жанр: Биография, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C4516A4D3AFB6336D9E787E7CD7740EE35EF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359266   (965007) от 11.02.2020
+
+Олег Воскобойников | Средневековье крупным планом (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со школьной скамьи мы привыкли, что история – это перечень дат, имен и событий, последовательность которых нужно зазубрить. Нам никогда не объясняли мотивов и причин, нам представляли факты, заставляя просто принять их, как данность. Ученый-медиевист и профессор НИУ ВШЭ Олег Воскобойников предлагает другой подход.
+В своей книге «Средневековье крупным планом» автор (   Читать дальше...   )Жанр: История Древнего мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A522FAB0A374CF74256BD74E21216E34F8B88343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978043   (964711) от 22.01.2016
+
+Н. А. Халфин, А. А. Мурадян | Янки на Востоке в XIX веке, или колониализм без империи (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накопленные наукой факты с полной очевидностью свидетельствуют о том, что американская политика на Востоке  носила неоспоримо колониалистский характер. И хотя  до самого конца XIX в. Соединенные Штаты не создали  своей колониальной империи, это отнюдь не означало,  что американскому капитализму было чуждо стремление  наживаться за счет (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D68EA3E7BDF4E7BEE256AA728D846EE03DCEA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978033   (964710) от 22.01.2016
+
+В. И. Дунаев | Японцы в Японии (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги В.И. Дунаев, долгое время работавший в Японии в качестве корреспондента АПН, не претендует на последовательное раскрытие общественно-политических проблем Японии. Но та мозаичность, которой отличается эта книга, многообразие жизненных ситуаций, человеческих судеб, личные наблюдения и впечатлений автора - все это позволяет в конечном итоге сделать достаточно (   Читать дальше...   )Жанр: История, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBFADEEB7BCB75505C35B94A3C869A4A9949AEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978027   (964706) от 22.01.2016
 
 Н. Т. Федоренко | Японские записи (1966) [DJVU, PDF]
@@ -6,7 +138,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964706.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964468.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964190.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963291.jpg" />
 </div>
 
 
@@ -114,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963218.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963209.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963050.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963042.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962978.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962620.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962516.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962404.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962291.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962166.jpg" />
 </div>
 
 
@@ -382,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960737.jpg" />
 </div>
 
 
@@ -409,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960673.jpg" />
 </div>
 
 
@@ -435,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959860.jpg" />
 </div>
 
 
@@ -461,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959338.jpg" />
 </div>
 
 
@@ -489,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958107.jpg" />
 </div>
 
 
@@ -515,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957702.jpg" />
 </div>
 
 
@@ -542,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956992.jpg" />
 </div>
 
 
@@ -553,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F60D113E2853FE6EE88106F5858DC0B83B67C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980346   (956386) от 29.01.2016
-
-А. М. Орехов | Первые марксисты в России. Петербургский "Рабочий союз" 1887-1893 гг. (1979) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена крупнейшей социал-демократической организации периода распространения и упрочения марксизма в России - Петербургскому "Рабочему союзу" (группа Михаила Бруснева).
-
-В книге рассматривается история становления и деятельности "Союза", уточнены периодизация и хронологические рамки этой организации. На фоне развития революционного движения (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF441BBA258C081DCB2BFF3DA633B0E5C5D0C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980344   (956292) от 29.01.2016
-
-Л. С. Шатенштейн | Мултанское дело. 1892-1896 (1960) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мултанское дело — процесс 1892 года над группой крестьян-удмуртов (в те времена их называли «вотяками») из села Старый Мултан Малмыжского уезда Вятской губернии. 10 жителей этого села обвинялись в ритуальном убийстве — человеческом жертвоприношении языческим богам. Характерный пример кровавого навета.Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086DE176BC5B44FBDC62955F5DEF7EADD5631341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980338   (956283) от 29.01.2016
-
-А. Буздес | Гитлер угрожает Чехословакии (1938) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обстановка в Центральной и Юго-Восточной Европе становится все более напряженной. О положении Чехословакии и фашистской угрозе, нависшей над этой страной, ежедневно пишет вся печать. Кто с тревогой, а кто с сочувствием говорит об агрессии германского фашизма, непосредственно угрожающей Чехословакии. Нависшая над Чехословакией угроза агрессии со стороны фашистской (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AE6A8A61C4F2343F6435D9E7C3FEE47E94B9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 748969   (956173) от 24.01.2014
-
-П. Аршинов | История Махновского движения (1918-1921 гг.) (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приступая к этой книге, читателю, прежде всего, важно знать, с какого рода работой он имеет дело: с серьезным ли и добросовестным исследованием — или же с фантастическим и безответственным вымыслом? Может ли он отнестись к автору с доверием — по крайней мере, в области сообщаемых фактов, данных и материалов? Достаточно ли беспристрастен автор, и не искажает ли ом (   Читать дальше...   )Жанр: ИсторияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598F9594C54F3EF5D5AFE539109C65BBE7595DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980358   (956172) от 29.01.2016
-
-А. Востокова | Страна восходящего Солнца. От древности до наших дней (2005) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли понять страну, в которой удивительным образом сочетаются суперсовременные технологии производства и патриархальные традиции? В крупнейших торгово-промышленных центрах страны бурная деловая жизнь соседствует с молитвенным духом старинных храмов. Где, кроме Японии, вы найдете настоящую икебану, оригами, японскую чайную церемонию? Где мелкими шажками к вам (   Читать дальше...   )Жанр: История, политология, культурология, искусство, этика, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3046BEE9AC58932AC71AB7AD63A7EC1F0E9E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

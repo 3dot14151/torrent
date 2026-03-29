@@ -1,3 +1,81 @@
+###  Публикация: 1558203   (533904) от 19.06.2022
+
+MotoGP. Этап 10. Гран-при Германии. Квалификация (18.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533904.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 июня 2022, суббота. 15:35 МСК. Этап 10, Хоэнштайн-Эрнстталь, Гран-при Германии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDA0CF5F542FA4B27F92DE80E16DD8F680854CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558258   (533764) от 19.06.2022
+
+MotoGP. Этап 10. Гран-при Германии. Гонка (19.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533764.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 июня 2022, воскресенье. 15:00 МСК. Этап 10, Хоэнштайн-Эрнстталь, Гран-при Германии. Гонка (30 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D195AD8B6108FAB952E2A100C7CBFB4D4C6ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559557   (524420) от 25.06.2022
+
+MotoGP. Этап 11. Гран-при Нидерландов. Квалификация (25.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524420.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2022, суббота. 15:10 МСК. Этап 11, Ассен, Гран-при Нидерландов. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EC3ECCD7B795EBF16E47CB702CB0BDED95936F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314299   (520215) от 13.07.2019
 
 NASCAR-2019. 17-й Этап. Джолиет. Гонка / Monster Energy NASCAR Cup Series 2019. Camping World 400. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ NASCAR-2019. 17-й Этап. Джолиет. Гонка / Monster Energy NASCAR 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520215.jpg" />
+  <img src="Z:/picture/008/save_picture_520215.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ MotoGP Unlimited / МотоГП без ограничений / 2022 / WEBRip [H
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502615.jpg" />
+  <img src="Z:/picture/008/save_picture_502615.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495281.jpg" />
+  <img src="Z:/picture/008/save_picture_495281.jpg" />
 </div>
 
 
@@ -90,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483409.jpg" />
+  <img src="Z:/picture/008/save_picture_483409.jpg" />
 </div>
 
 
@@ -119,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483381.jpg" />
+  <img src="Z:/picture/008/save_picture_483381.jpg" />
 </div>
 
 
@@ -148,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481494.jpg" />
+  <img src="Z:/picture/008/save_picture_481494.jpg" />
 </div>
 
 
@@ -177,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481359.jpg" />
+  <img src="Z:/picture/008/save_picture_481359.jpg" />
 </div>
 
 
@@ -206,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471178.jpg" />
+  <img src="Z:/picture/008/save_picture_471178.jpg" />
 </div>
 
 
@@ -235,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468486.jpg" />
+  <img src="Z:/picture/008/save_picture_468486.jpg" />
 </div>
 
 
@@ -264,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468484.jpg" />
+  <img src="Z:/picture/008/save_picture_468484.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468481.jpg" />
+  <img src="Z:/picture/008/save_picture_468481.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466714.jpg" />
+  <img src="Z:/picture/008/save_picture_466714.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466555.jpg" />
+  <img src="Z:/picture/008/save_picture_466555.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ MotoGP. Этап 12. Гран-при Великобритании. Квалиф�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464096.jpg" />
+  <img src="Z:/picture/008/save_picture_464096.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ MotoGP. Этап 12. Гран-при Великобритании. Гонка (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462095.jpg" />
+  <img src="Z:/picture/008/save_picture_462095.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455913.jpg" />
+  <img src="Z:/picture/008/save_picture_455913.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455776.jpg" />
+  <img src="Z:/picture/008/save_picture_455776.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453915.jpg" />
+  <img src="Z:/picture/008/save_picture_453915.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453795.jpg" />
+  <img src="Z:/picture/008/save_picture_453795.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453779.jpg" />
+  <img src="Z:/picture/008/save_picture_453779.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453778.jpg" />
+  <img src="Z:/picture/008/save_picture_453778.jpg" />
 </div>
 
 
@@ -598,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453610.jpg" />
+  <img src="Z:/picture/008/save_picture_453610.jpg" />
 </div>
 
 
@@ -624,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443270.jpg" />
+  <img src="Z:/picture/008/save_picture_443270.jpg" />
 </div>
 
 
@@ -638,93 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BEFEA2B04930A4F0A757212DFBE23BDFEAA366B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409625   (443269) от 18.09.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 28-й Этап. Ричмонд 400. Гонка / NASCAR Cup Series 2020. Playoffs. Round 28. Federated Auto Parts 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-12 сентября 2020 года. Ричмонд (штат Вирджиния, США).
-28-й Этап. Ричмонд 400 (Federated Auto Parts 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116B88407C353C431D2406CE383D82122D495B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410112   (438559) от 20.09.2020
-
-Мотоспорт. Спидвей. Гран-При 2020. Вроцлав (Польша). 2-й Этап (2020) IPTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
-29 августа 2020 года
-2-й Этап. Вроцлав (Польша)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B84FE744124697C998727010AB8D661BF9CFB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410108   (438558) от 20.09.2020
-
-Мотоспорт. Спидвей. Гран-При 2020. Вроцлав (Польша). 1-й Этап (2020) IPTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по спидвею — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
-28 августа 2020 года
-1-й Этап. Вроцлав (Польша)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B328E9D116FAAF97AF8B5EF1843F5C656CE9DC0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

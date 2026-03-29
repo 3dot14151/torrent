@@ -1,3 +1,81 @@
+###  Публикация: 1015153   (775457) от 09.05.2016
+
+Night Blights (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Blights — небольшая хоррор-игра подозрительно похожая на Five Nights at Freddy's 4, где вы в роли маленького ребенка должны защитить свою семью от страшных существ, которые приходят ночью. Эти существа непредсказуемые, смертельно опасные и они могут скрываться в любом самом неожиданном месте. Игра использует ваши детские страхи - вам будет казаться, что что-то (   Читать дальше...   )Тип издания: RepackРазработчик: Trapdoor Games,	Hot Cross GamesЖанр: Action, 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366BEFC5B0A56016518FCC91A6E80CA99B8CA589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277864   (774794) от 22.01.2019
+
+Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enemy Front является шутером от первого лица, созданным на базе движка CryEngine 3. События в игре разворачиваются во времена Второй мировой войны. Вам, корреспонденту, но в роли солдата, действующего в тылу врага, предстоит преодолеть нелегкий путь к заданной цели.Тип издания: RepackРазработчик: City Interactive GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E3D4092C909780EB632531D374BC7335CC18DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277947   (774028) от 23.01.2019
+
+Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brothers in Arms: Earned in Blood — это тактический шутер, основанный на событиях дня Д, которые имели место в предыдущей части подвигов Джо Хартсока. Вместе с вами он отправится на важное задание для истории. На битву за освобождение Нормандии.Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F668E2E8845C2E045FD2532AF0AF9FDA98F054F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277955   (774022) от 23.01.2019
 
 Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
@@ -6,7 +84,7 @@ Brothers in Arms: Road to Hill 30 (2005) [Ru/En] (1.11) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774022.jpg" />
+  <img src="Z:/picture/008/save_picture_774022.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773971.jpg" />
+  <img src="Z:/picture/008/save_picture_773971.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Council of Hanwell (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772770.jpg" />
+  <img src="Z:/picture/008/save_picture_772770.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ No Man's Sky (2016) [Ru/Multi] (1.77/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772509.jpg" />
+  <img src="Z:/picture/008/save_picture_772509.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ BioShock Infinite (2013) [Ru/En] (1.1.25.5165/8dlc) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772263.jpg" />
+  <img src="Z:/picture/008/save_picture_772263.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Disintegration (2020) [Ru/Multi] (1.0.0.6) Repack от xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769602.jpg" />
+  <img src="Z:/picture/008/save_picture_769602.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Infected Maze (2020) [Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769314.jpg" />
+  <img src="Z:/picture/008/save_picture_769314.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ P.A.M.E.L.A. (2020) [En] (1.0.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769272.jpg" />
+  <img src="Z:/picture/008/save_picture_769272.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dishonored 2 (2016) [Ru] (1.77.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768822.jpg" />
+  <img src="Z:/picture/008/save_picture_768822.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Deadstep (2018) [En] (1.0.3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768782.jpg" />
+  <img src="Z:/picture/008/save_picture_768782.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Duder (2018) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768751.jpg" />
+  <img src="Z:/picture/008/save_picture_768751.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Far Cry (2004) [En] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768377.jpg" />
+  <img src="Z:/picture/008/save_picture_768377.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768226.jpg" />
+  <img src="Z:/picture/008/save_picture_768226.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767700.jpg" />
+  <img src="Z:/picture/008/save_picture_767700.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767565.jpg" />
+  <img src="Z:/picture/008/save_picture_767565.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Die Young: Prologue (2019) [Ru/Multi] (1.1.0.58.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766717.jpg" />
+  <img src="Z:/picture/008/save_picture_766717.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Deus Ex: Revision (2000-2015) [En] (1.112fm/1.2) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766707.jpg" />
+  <img src="Z:/picture/008/save_picture_766707.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Die Young (2019) [Ru/Multi] (1.2.0.70.20) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766650.jpg" />
+  <img src="Z:/picture/008/save_picture_766650.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.03/upd5/dlc) License PLAZA [Gold
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766623.jpg" />
+  <img src="Z:/picture/008/save_picture_766623.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766475.jpg" />
+  <img src="Z:/picture/008/save_picture_766475.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Wild Eternal (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765998.jpg" />
+  <img src="Z:/picture/008/save_picture_765998.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765987.jpg" />
+  <img src="Z:/picture/008/save_picture_765987.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Homefront: The Revolution (2016) [Ru/Multi] (1.0781467) SteamRip Let'sPlay [Free
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765041.jpg" />
+  <img src="Z:/picture/008/save_picture_765041.jpg" />
 </div>
 
 
@@ -589,86 +667,6 @@ Homefront: The Revolution – это шутер от первого лица, в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6D3F94F87F6CD6AC7FD6C4202D997E96638A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203094   (764684) от 23.05.2010
-
-Kingpin: Life of Crime [En/Ru] (L) 1999
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: лицензияРазработчик: Xatrix EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214719   (763891) от 22.03.2018
-
-Paranormal Activity: The Lost Soul (2018) [En] (1.03) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paranormal Activity: The Lost Soul – приключенческая игра для шлемов виртуальной реальности и ПК, основанная на истории популярной кинофраншизы «Паранормальное явление». Вооружившись фонариком, вы будете блуждать по кажущемуся на первый взгляд тихому дому, расположенному в лесном районе. Со временем вы поймете, что вы здесь не одни, и должны будете сделать все возможное, (   Читать дальше...   )Тип издания: LicenseРазработчик: VRWERXЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937065B5C5E1EA3232B4862E4567A315973919C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203798   (763776) от 24.05.2010
-
-Battlefield Heroes [En] (RePack) 2009 | tukash
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefield Heroes – онлайновый шутер в жанре тактического шутера с элементами ролевой игры, в «мультипликационном» стиле, по правилам Battlefield.
-С простыми и понятными правилами, невысоким порогом вхождения, но в то же самое время – с увлекательным игровым процессом, способным затянуть на долгие недели.
-Самое же приятное – играть можно совершенно бесплатно, деньги здесь тратятся лишь на некоторые дополнительные вещи.Тип издания: Перепакованная лицензияЖанр: Action (Shooter) / 3D / 3rd Person / Online-onlyЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

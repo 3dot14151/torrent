@@ -1,3 +1,32 @@
+###  Публикация: 1204658   (784393) от 07.02.2018
+
+Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
+02. Every Path Has Its Puddle 3:08
+03. Pall Bearer's Song 2:58
+04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204459   (784392) от 07.02.2018
 
 Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784392.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Big Boy Bloater & The Limits - The World Explained (2012) Azan Records [MP3|320 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784388.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Peter Karp & Sue Foley - Beyond The Crossroads (2012) Blind Pig Records [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784385.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Peter Karp - Blue Flame (2018) Rose Cottage Records [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784383.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dan Patlansky - Perfection Kills (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784371.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Luther Allison - Bad News Is Coming (1972) Remastered, 2001, Motown [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784363.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Jimmy Page, Jeff Beck, Eric Clapton - The Night Of Kings (1983) 2CD Live  [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784336.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Blindstone - Live In Denmark (2015) Grooveyard Records [MP3|320 Kbps] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783525.jpg" />
+  <img src="Z:/picture/008/save_picture_783525.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Blindstone - The Seventh Cycle Of Eternity (2016) Grooveyard Records [MP3|320 Kb
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783516.jpg" />
+  <img src="Z:/picture/008/save_picture_783516.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Blindstone - Greetings from the Karma Factory (2012) Grooveyard Records [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783512.jpg" />
+  <img src="Z:/picture/008/save_picture_783512.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Jay Sewall - Payin' My Dues: 50 Years Of Blues (2018) [MP3|320 Kbps] <Acoustic B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783502.jpg" />
+  <img src="Z:/picture/008/save_picture_783502.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Blindstone - Blues-O-Delic Celebration (A Tribute To The Blues) (2017) Grooveyar
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783499.jpg" />
+  <img src="Z:/picture/008/save_picture_783499.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Free - Tons Of Sobs (1968) Island Records [MP3|320 Kbps] <Blues Rock, Electric B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782927.jpg" />
+  <img src="Z:/picture/008/save_picture_782927.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Funkadelic - Discography (1970..2008) [MP3|192, 320 kbps, VBR]<Funk, Soul, Psych
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782294.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ VA - Acoustic Soul (London Radio Sessions) (2018) [MP3|320 Kbps] <Soul, Pop>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780583.jpg" />
+  <img src="Z:/picture/008/save_picture_780583.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ VA - Slide Guitar Blues (2018) [MP3|320 Kbps] <Blues, Electric Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780228.jpg" />
+  <img src="Z:/picture/008/save_picture_780228.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ The Big Blue House - Binne my (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779526.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Vince Vallicelli Band (feat. James Thompson) - New Blues (2004) LM Records [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779396.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Roadhouse Blues (2018) [MP3|320 Kbps] <Blues Rock, Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778991.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Crow Black Chicken - Pariah Brothers (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778536.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Stevie Ray Vaughan - Blues You Can Use (2016) [1987 Live - edition ] [MP3|320 к
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777954.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Lilly Martin - Right Now (2015) [MP3|320 Kbps] <Blues, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777557.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777326.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777240.jpg" />
+  <img src="Z:/picture/008/save_picture_777240.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776572.jpg" />
+  <img src="Z:/picture/008/save_picture_776572.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:480D082C6E87400895FA9558386F01DB2758CB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014374   (776568) от 07.05.2016
-
-Johnny Rieger Band - Come Closer (2013) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Trip (03:32)
-02. Good For You (04:11)
-03. I Want To Fly (04:11)
-04. Hey Boy (04:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA357C6A3D951BC1FE8236B8CD59BCC17D388171
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 988431   (898801) от 03.03.2016
+
+Девушка из банка / Zbrodniarz i panna (1963) DVB
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дерзкое ограбление машины инкассаторов заканчивается трагически — в живых остается только девушка-инкассатор Малгожата Маковска. Теперь только она может опознать преступника. Вместе со своим новым другом, капитаном милиции Яном Житеком, девушка принимает участие в расследовании…Производство: Польша, PRF "Zespol Filmowy"Жанр: Триллер, Криминал, ДетективРежиссер: Януш НасфетерАктеры: Эва Кшижевска, Збигнев Цибульский, Эдмунд Феттинг, Петр Павловский, Густав Люткевич, Адам Павликовский, Мечислав Милецкий, Игнацы Маховский, Кристина Брыль, Хелена ГроссувнаПеревод: Дублированный (к/ст. имени М. Горького)Продолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F7F8680EEA6A50DF555FBE7A1AA526C922B764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 720649   (898762) от 01.09.2021
+
+Расцвет мисс Джин Броди / Мисс Джин Броди в расцвете лет / The Prime of Miss Jean Brodie (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименному роману Мюриэл Спарк (Muriel Spark).
+Эдинбург, 30-ые годы прошлого века. Мисс Броди работает учительницей истории в начальном отделении респектабельной частной школы. При преподавании она использует нетрадиционные методы преподавания, что не нравится директору и совету школы, которые все время ищут повод для ее отставки...Жанр: Драма, МелодрамаРежиссер: Роналд НимАктеры: Мэгги Смит Роберт Стивенс, Памела Фрэнклин, Гордон Джексон Силия Джонсон, Дайэн Грэйсон, Джейн Карр, Ширли Стидмэн, Лавиния Ланг, Антуанетт Биггерстафф, Марго Каннингэм, Айсла Кэмерон, Рона Андерсон, Энн Уэй, Молли УирПеревод: Многоголосый закадровыйПродолжительность: 01:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF32B191804793509D210DF2FB90BC6153A9058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492411   (898659) от 01.09.2021
+
+Зеленый огонь / Green Fire (1954) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Райан Митчелл обнаруживает в Южной Америке месторождение изумрудов. Однако, не успевает он начать разработку, как его начинают преследовать. Вместе со своим партнером Виком они все же едут на месторождение. Там они знакомятся с владельцами кофейной плантации Кэтрин и Дональдом Ноуландами. Райан влюбляется в Кэтрин и оказывается перед сложным выбором...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Драма, ПриключенияРежиссер: Эндрю МартонАктеры: Стюарт Грейнджер, Грэйс Келли, Пол Дуглас, Джон Эриксон, Мервин Вай, Хосе Тровей, Роберт Тафур, Джо Домингес, Начо Галиндо, ЧарлитаПеревод: Многоголосый профессиональный, ФильмэкспортСубтитры: АнглийскиеПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D46FCC0D26ABD0E7611CD011C4AA837C67932A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365391   (898186) от 26.03.2020
 
 Автобусная остановка / Bus Stop (1956) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898186.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897715.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897696.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897328.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896481.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896142.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895938.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895889.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895399.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895259.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895057.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894505.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893810.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892886.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892652.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892273.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891998.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891783.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890444.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890340.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890332.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889818.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889718.jpg" />
+  <img src="Z:/picture/005/save_picture_889718.jpg" />
 </div>
 
 
@@ -598,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19F5E4483CDE9924FB486FE79B455600823A46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994063   (889635) от 08.03.2016
-
-Новые приключения Флиппера / Flipper's New Adventure (1964) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Сэнди и дельфина по имени Флиппер. На этот раз друзья оказываются на Багамских островах, где спасают английское семейство.Производство: США, Ivan Tors ProductionsЖанр: Драма, приключения, семейныйРежиссер: Леон Бенсон/Leon BensonАктеры: Люк Хэлпин, Памела Франклин, Хелен Черри, Том Хелмор, Франческа Аннис, Брайан Келли, Джо Хиггинс, Ллойд Баттиста, Гордон Дилворт, Кортни Браун и др.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31828BDCA74BB3FC15D6406049A006482B2F664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992134   (889255) от 08.03.2016
-
-Унесенные ветром / Gone with the Wind (1939) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скарлетт О'Хара не была красавицей, но «свет еще не видывал более лакомой штучки в туфельках». Ретт Батлер не был похож на прекрасного принца, но он всегда находил выход из любой ситуации и она невольно уважала его за это. Война не была похожа на пикник, а последующая тяжёлая жизнь на безоблачное счастье сбывшихся надежд юности... Но за право оставшихся в живых не (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Selznick International PicturesЖанр: Мелодрама, Драма, Военный, ПриключенияРежиссер: Виктор Флеминг, Джордж Кьюкор, Сэм ВудАктеры: Вивьен Ли, Кларк Гейбл, Лесли Ховард, Оливия Де Хэвиллэнд, Оскар Полк, Хэтти МакДэниэл, Эверетт Браун, Томас Митчелл, Барбара О`Нил, Эвелин Кийес, Энн Рутерфорд, Джордж Ривз, Фред Крэйн, Баттерфлай МакКуин, Виктор Джори, Ховард С. ХикманПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 03:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394A96224715D98FC583C941A4DC67389F830DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097201   (888911) от 10.02.2017
-
-Пустоши / Badlands (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888911.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1959 году юноша по имени Кит и его несовершеннолетняя подружка Холли пускаются в бега после убийства отца Холли, запрещавшего им встречаться.
-Направляясь к пустошам Монтаны, парочка совершает на своем пути череду хладнокровных убийств.Производство: США / Badlands Company, Jill Jakes Production, Pressman-Williams, Warner Bros. PicturesЖанр: Драма, КриминалРежиссер: Терренс МаликАктеры: Мартин Шин, Сисси Спейсек, Уоррен Оутс, Рамон Биери, Алан Винт, Гари Литтлджон, Джон Картер, Брайан Монтгомери, Гэйл Трелкелд, Чарльз ФицпатрикПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D766A12EF563C469429E45A9FBC7B95F39F1267
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1073249   (600650) от 30.04.2019
+
+Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transport Fever - это железнодорожная экономическая стратегия. Игроки начинают в 1850 и строят процветающую транспортную компанию. Будучи новоиспеченным магнатом, игрок возводит станции, аэропорты, доки и зарабатывает деньги, соединяя области, которым нужно транспортное сообщение.Тип издания: RepackРазработчик: Urban GamesЖанр: Strategy (Manage, Busin, Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E63DA78973E2FDB66FF2D139CBD53510248CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683922   (599942) от 07.08.2013
+
+Call of Duty: Black Ops 2 (2012) [En] (Multiplayer Only/39.1337.4/DLC 1-3) Rip Straicker [FourDeltaOne]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call Of Duty: Black Ops II продвигает игроков в ближайшее будущее 21-го века холодной войны, где технологии и оружие сошлись для создания нового поколения войн! Call of Duty: Black Ops II — мультиплатформенная компьютерная игра в жанре трёхмерного шутера от первого лица. Является девятой игрой в серии Call of Duty и прямым сиквелом Call of Duty: Black Ops. Разрабатывается американской студией Treyarch.
+
+В мультиплеере доступны несколько режимов командной или индивидуальной игры.
+Игра с друзьями по сети,совместная (   Читать дальше...   )Тип издания: RipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st Person / Online Only*Язык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1DC4E008B298A7FA5D1CC572D372A5D3BBA5F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147840   (599553) от 11.07.2017
+
+Tor Browser Bundle 7.0.2 Final [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A05C55BAA7FE3E7D45809D293072E1837AA1010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078333   (599542) от 11.07.2017
+
+Darksiders (2016) [Ru/Multi] (1.0.2679/u12) Repack =nemos= [Warmastered Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддавшись лживым вестям сил зла о конце света, один из четырех всадников апокалипсиса, Война, обвиняется в нарушении священного закона и провоцирования войны между Раем и Адом. В невероятных битвах, проходивших во время той войны, победу одержали силы зла - и они же потребовали власти над Землей. Война предстал перед Расплавленным советом и был обвинен в совершении (   Читать дальше...   )Тип издания: RepackРазработчик: KAIKO, Vigil GamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD71E221C92F3E6A5B10F6C99DD556E14E23FD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038962   (599284) от 30.07.2016
+
+Без клавиатуры и мыши - видение будущего компьютерных интерфейсов от компании Microsoft
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_599284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи современных компьютеров могут использовать беспроводные клавиатуры и мыши, тем не менее, их способности к управлению компьютером остаются ограниченными возможностями этих устройств ввода и манипулирования информацией. Однако, исследователи компании Microsoft видят будущее компьютерных интерфейсов несколько по-иному, согласно этому видению в будущем для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804248   (599233) от 01.07.2015
+
+Скрипты — Scripts collection for After Effects CS & CC 2015 [JSXBIN, JSX, JSXINC]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационные текстовые инструментыЯзык интерфейса: EnglishФормат: JSXBIN, JSX, JSXINC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1E467F4757232F2E26C4E4A867A1876E79DDA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912111   (599232) от 01.07.2015
 
 Учебный центр 1C | Знакомство с платформой 1С 8.3 (2015) PCRec [H.264]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599232.jpg" />
+  <img src="Z:/picture/008/save_picture_599232.jpg" />
 </div>
 
 
@@ -35,7 +194,7 @@ The Bat! Professional 7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599004.jpg" />
+  <img src="Z:/picture/008/save_picture_599004.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ Adobe Muse CC 2015.2.1.21 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599001.jpg" />
+  <img src="Z:/picture/008/save_picture_599001.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ Adobe Photoshop Lightroom CC 2015.6.1 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598989.jpg" />
+  <img src="Z:/picture/008/save_picture_598989.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598986.jpg" />
+  <img src="Z:/picture/008/save_picture_598986.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598286.jpg" />
+  <img src="Z:/picture/005/save_picture_598286.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597709.jpg" />
+  <img src="Z:/picture/008/save_picture_597709.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ Final Cut Pro X 10.4.3 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597608.jpg" />
+  <img src="Z:/picture/008/save_picture_597608.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597603.jpg" />
+  <img src="Z:/picture/008/save_picture_597603.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597541.jpg" />
+  <img src="Z:/picture/005/save_picture_597541.jpg" />
 </div>
 
 
@@ -272,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597367.jpg" />
+  <img src="Z:/picture/008/save_picture_597367.jpg" />
 </div>
 
 
@@ -298,7 +457,7 @@ Call of Duty 4 - Modern Warfare (2007) [Ru] (1.8) Repack bizon_75 [Multiplayer O
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597363.jpg" />
+  <img src="Z:/picture/008/save_picture_597363.jpg" />
 </div>
 
 
@@ -324,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597311.jpg" />
+  <img src="Z:/picture/008/save_picture_597311.jpg" />
 </div>
 
 
@@ -350,7 +509,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597187.jpg" />
+  <img src="Z:/picture/008/save_picture_597187.jpg" />
 </div>
 
 
@@ -376,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596994.jpg" />
+  <img src="Z:/picture/008/save_picture_596994.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596300.jpg" />
+  <img src="Z:/picture/008/save_picture_596300.jpg" />
 </div>
 
 
@@ -428,7 +587,7 @@ KMSAuto Net 2016 1.5.1 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596114.jpg" />
+  <img src="Z:/picture/008/save_picture_596114.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596102.jpg" />
+  <img src="Z:/picture/005/save_picture_596102.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ Comodo Internet Security Premium 11.0.0.6606 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596020.jpg" />
+  <img src="Z:/picture/008/save_picture_596020.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596014.jpg" />
+  <img src="Z:/picture/008/save_picture_596014.jpg" />
 </div>
 
 
@@ -517,163 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D24F55DD7245E40876F9964EA80FD27680E8292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183703   (595681) от 03.05.2019
-
-Spintires: MudRunner (2017) [Ru/En] (22032019) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spintires: MudRunner – это крутейшая версия культовой игры Spintires, продавшей миллион копий. Как и в Spintires , Spintires: MudRunner предлагает игрокам сесть за баранку внедорожника и прокатиться по экстремальному сибирскому бездорожью с одной лишь картой и компасом!Тип издания: RepackРазработчик: Saber InteractiveЖанр: Simulator, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858B8BB45CCEBA18F6CBF3250E713EC10EC61EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254743   (595676) от 03.05.2019
-
-Сверхъестественное / Supernatural (2018) WEB-DLRip [H.264/1080p-LQ] (сезон 14, серии 1-20 из 20) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки.Производство: США / Kripke Enterprises, Supernatural Films, Warner Bros. Television, Wonderland Sound and VisionЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роберт Сингер, Томас Дж. РайтАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Саманта Смит, Марк Пеллегрино, Ким Родс, Александр Кэлверт, Кэтерин Эванс и др.Перевод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: ~00:43:00 серияРеклама: присутствуют заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCC3C9011EE3A9F1FC1279C2B344959CDEDEAE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039359   (595473) от 01.08.2016
-
-BELOFF 2016.8 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C308153AC58374081A3CA4F9241422585E69B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039357   (595469) от 01.08.2016
-
-День независимости: Возрождение / Independence Day: Resurgence (2016) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя инопланетные технологии, жители Земли создали специальную программу по защите планеты. Но ничего не может нас спасти от нового, еще более разрушительного и масштабного инопланетного вторжения — только смелость нескольких героев, которые единственные могут спасти наш мир от уничтожения.Производство: США, 20th Century Fox Film CorporationЖанр: Фантастика, Боевик, ПриключенияРежиссер: Роланд ЭммерихАктеры: Лиам Хемсворт, Джефф Голдблюм, Джесси Ашер, Билл Пуллман, Майка Монро, Села Уорд, Уильям Фихтнер, Джадд Хёрш, Брент Спайнер, Патрик Ст. ЭспритПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: Студия Пиратского ДубляжаЯзык субтитров: КорейскийПродолжительность: 02:02:21Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D6FEF7CF8ED7B0F08F33F663D6609A86004681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039148   (595466) от 01.08.2016
-
-SolidWorks Premium Edition 2016 SP4.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595466.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolidWorks — система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения. SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBFC20A3AE576FDA201610F97274D2AFF02F1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526931   (595319) от 25.07.2012
-
-"Большая тройка" и Ростелеком готовы к "китайскому варианту" интернета
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инвестиции МТС, "Вымпелкома" и "Мегафона" в системы отслеживания трафика Deep Packet Inspection окупятся с началом работы закона о "чёрных списках", вступающего в силу с 1 ноября. Решения этого типа изучают нешифрованный абонентский трафик, разделяют его по предназначению, а также ищут ключевые слова. Речь идёт о возможности мониторинга электронной переписки, проверки изображений, автоматическом чтении сообщений в соцсетях, пишут "Ведомости". Первые установки соответствующих систем состоялись ещё в конце прошлого десятилетия, задолго до начала централизованной фильтрации рунета по нашумевшим "спискам".
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

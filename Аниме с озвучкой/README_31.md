@@ -1,3 +1,29 @@
+###  Публикация: 1165480   (432004) от 13.09.2017
+
+Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaiting a Star / Невеста чародея: В ожидании путеводной звезды [2017, OVA, 3 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало аниме переносит нас в Соединенное Королевство Великобритании и прекрасный ночной город Лондон, где, пока не известная нам чародейка по-имени Анжелика, готовит посылку нашей главной героине. Героиню зовут Хатори Чисэ. До событий данного аниме у неё была дюже жестокая жизнь. Мать покончила жизнь самоубийство, так как не могла принять столь странное дитя. А Чисэ (   Читать дальше...   )Жанр: приключения, фэнтези, магияРежиссер: Наганума НорихироЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 3 эпизода по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C38015DD4CC4CA9D82B1D83471A47FBB4B1FE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571556   (431317) от 22.08.2022
 
 Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431317.jpg" />
+  <img src="Z:/picture/008/save_picture_431317.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shingeki no Kyojin: Lost Girls / Attack on Titan: Lost Girls / Атака Тит
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430371.jpg" />
+  <img src="Z:/picture/008/save_picture_430371.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425740.jpg" />
+  <img src="Z:/picture/008/save_picture_425740.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424979.jpg" />
+  <img src="Z:/picture/008/save_picture_424979.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424626.jpg" />
+  <img src="Z:/picture/008/save_picture_424626.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424625.jpg" />
+  <img src="Z:/picture/008/save_picture_424625.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424624.jpg" />
+  <img src="Z:/picture/008/save_picture_424624.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424622.jpg" />
+  <img src="Z:/picture/008/save_picture_424622.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423311.jpg" />
+  <img src="Z:/picture/008/save_picture_423311.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423033.jpg" />
+  <img src="Z:/picture/008/save_picture_423033.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420005.jpg" />
+  <img src="Z:/picture/008/save_picture_420005.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417637.jpg" />
+  <img src="Z:/picture/008/save_picture_417637.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Choujikuu Kidan Southern Cross | Super Dimensional Cavalry Southern Cross | Ги
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413136.jpg" />
+  <img src="Z:/picture/008/save_picture_413136.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sex
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413135.jpg" />
+  <img src="Z:/picture/008/save_picture_413135.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411011.jpg" />
+  <img src="Z:/picture/008/save_picture_411011.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410577.jpg" />
+  <img src="Z:/picture/008/save_picture_410577.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410128.jpg" />
+  <img src="Z:/picture/008/save_picture_410128.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409966.jpg" />
+  <img src="Z:/picture/008/save_picture_409966.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409824.jpg" />
+  <img src="Z:/picture/008/save_picture_409824.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409822.jpg" />
+  <img src="Z:/picture/008/save_picture_409822.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409701.jpg" />
+  <img src="Z:/picture/008/save_picture_409701.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408930.jpg" />
+  <img src="Z:/picture/008/save_picture_408930.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жесто
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408929.jpg" />
+  <img src="Z:/picture/008/save_picture_408929.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Д
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408927.jpg" />
+  <img src="Z:/picture/008/save_picture_408927.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406601.jpg" />
+  <img src="Z:/picture/008/save_picture_406601.jpg" />
 </div>
 
 
@@ -651,40 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8065B61840866E1E37B2A7DE203387521EA6BED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561005   (406253) от 16.10.2012
-
-Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRip 1080p raw + rus x2
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406253.jpg" />
-</div>
-
-
-###  Подробнее
-
-В провинции Ямасиро неожиданно начинается эпидемия чумы — уникальное событие для Японии. Все жители бегут оттуда, а глава одного из соседних самурайских кланов — клана Мотидзукэ, отправляет на разведку в эти места подчиняющиеся ему остатки клана ниндзя Кога.
-
-Однако какие-то странные существа, наделенные невероятной силой, мгновенно расправляются с незваными гостями, и спастись удается только девушке-ниндзя Кагэро, потому что ей в этом помог бродячий ниндзя-самурай Дзюбэй, смогший справиться с одним из этих странных существ.
-
-Но Дзюбэй и не догадывается, что убил не просто «демона», а одного из «Восьми Демонов Кимона», группы воинов с поразительными, нечеловеческими возможностями, и для оставшейся семерки он теперь — смертельный враг.
-
-Да еще и монах-шпион правительства Дакуан шантажоми обманом нанимает Кагэро и Дзюбэя на помощь себе, чтобы выяснить, что замышляют эти «демоны». И им приходится приложить все свои силы и способности, чтобы спасти страну от готовящегося нового витка братоубийственной войны…
-
-Попутно (   Читать дальше...   )Жанр: аниме, фэнтези, боевик, триллер, приключенияРежиссер: Ёсиаки Кавадзири, Кевин СеймурАктеры: Коиши Ямадера, Еми Синохара, Такеши Аоно, Дайсукэ Гори, Тосихико Секи, Сюитиро Морияма, Ричард Барнс, Сонни Биркетт, Ричард Кансино, Дин ЭллиотПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 01:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

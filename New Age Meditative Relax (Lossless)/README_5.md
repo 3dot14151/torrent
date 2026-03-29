@@ -6,7 +6,7 @@ Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876362.jpg" />
+  <img src="Z:/picture/005/save_picture_876362.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
+  <img src="Z:/picture/005/save_picture_874193.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874132.jpg" />
+  <img src="Z:/picture/008/save_picture_874132.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
+  <img src="Z:/picture/008/save_picture_873641.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872274.jpg" />
+  <img src="Z:/picture/008/save_picture_872274.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871397.jpg" />
+  <img src="Z:/picture/008/save_picture_871397.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871391.jpg" />
+  <img src="Z:/picture/008/save_picture_871391.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871209.jpg" />
+  <img src="Z:/picture/008/save_picture_871209.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870514.jpg" />
+  <img src="Z:/picture/008/save_picture_870514.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868615.jpg" />
+  <img src="Z:/picture/008/save_picture_868615.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868516.jpg" />
+  <img src="Z:/picture/008/save_picture_868516.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866939.jpg" />
+  <img src="Z:/picture/008/save_picture_866939.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866936.jpg" />
+  <img src="Z:/picture/008/save_picture_866936.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866934.jpg" />
+  <img src="Z:/picture/008/save_picture_866934.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864529.jpg" />
+  <img src="Z:/picture/008/save_picture_864529.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859982.jpg" />
+  <img src="Z:/picture/008/save_picture_859982.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859324.jpg" />
+  <img src="Z:/picture/008/save_picture_859324.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859007.jpg" />
+  <img src="Z:/picture/008/save_picture_859007.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855823.jpg" />
+  <img src="Z:/picture/008/save_picture_855823.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Isgaard - Whiteout (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Сrosso
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853735.jpg" />
+  <img src="Z:/picture/008/save_picture_853735.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852107.jpg" />
+  <img src="Z:/picture/008/save_picture_852107.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Wo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852095.jpg" />
+  <img src="Z:/picture/008/save_picture_852095.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852093.jpg" />
+  <img src="Z:/picture/008/save_picture_852093.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851961.jpg" />
+  <img src="Z:/picture/008/save_picture_851961.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Milit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850469.jpg" />
+  <img src="Z:/picture/008/save_picture_850469.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848175.jpg" />
+  <img src="Z:/picture/008/save_picture_848175.jpg" />
 </div>
 
 

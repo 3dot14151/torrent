@@ -1,3 +1,112 @@
+###  Публикация: 276055   (156407) от 13.11.2023
+
+Уильям Сомерсет Моэм | Боже, храни короля! (Радиоспектакль) (2008) [MP3, Анатолий Петров, Фёдор Чеханков и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Из архива Гостелерадиофонда».
+Действие пьесы «Боже, храни короля!» происходит в маленьком английском городке в графстве Кент, после войны, в доме Леонарда Эрдсли – единственного адвоката в городе. Он довольно удачлив и доволен жизнью и домочадцами, но не замечает, или не хочет замечать очевидных проблем, возникших на протяжении последних 15 лет. Всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, пьесаИздательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E9F9C35BF4731FAC7C66A72A7316440C82C5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275568   (156398) от 13.11.2023
+
+Уильям Сомерсет Моэм | Узорный покров (2008) [MP3, Татьяна Телегина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Уильям Сомерсет Моэм (1874-1965), английский драматург, романист, новеллист. Правило, которому он следовал всю жизнь - пиши о том, что знаешь. Писатель не скучен, он приятный собеседник. Тот, кто впервые открывает для себя Моэма, вполне может убедиться в этом.
+Знаменитый роман У.С. Моэма «Узорный покров» опубликованный в 1925 (   Читать дальше...   )Жанр: Зарубежная литература, классика, драма, романПеревод: Мария ЛориеИздательство: Студия «АРДИС»Продолжительность: 09:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799C88FD84ACA6F91AA06E72B1F545C33E2795AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275909   (156335) от 13.11.2023
+
+Уильям Сомерсет Моэм | Рассказы (2006) [MP3, Всеволод Якут, Сергей Юрский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Из архива «Гостелерадиофонда».
+Уильям Сомерсет Моэм (1874-1965) – один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов. Он один из самых проницательных писателей в английской литературе XX века. Его называют английским «Мопассаном». Трагические и смешные рассказы увлекают читателя своей лаконичностью. (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Радио России, ГостелерадиофондПродолжительность: 03:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF60CE94A0C32B87D0547EAC4D63337CF9AEB5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275571   (156317) от 13.11.2023
+
+Уильям Сомерсет Моэм | 10 лучших рассказов (2004) [MP3, Елена Морозова, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Виртуозы рассказа.
+Уильям Сомерсет Моэм (1874-1965) - один из самых читаемых и любимых современных классиков. Сомерсет Моэм создал 25 пьес, 21 роман и более 100 рассказов. Герои его рассказов удивляют своим разнообразием: это и пациенты туберкулёзного санатория, жертвующие жизнью ради любви в рассказе «Санаторий», и священник, одержимый греховной страстью (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказыИздательство: СиДиКомПродолжительность: 08:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB52AF926B88FA7C51FBB268149A6DCF9B652263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276384   (156312) от 13.11.2023
 
 Уильям Сомерсет Моэм | Наверху, на вилле (Радиоспектакль) (2002) [MP3, Ирина Печерникова, Михаил Козаков и др.]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156312.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156296.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155828.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155655.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155648.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155623.jpg" />
 </div>
 
 
@@ -169,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155588.jpg" />
 </div>
 
 
@@ -195,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155312.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155031.jpg" />
 </div>
 
 
@@ -250,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155024.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155015.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155005.jpg" />
 </div>
 
 
@@ -331,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154739.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154729.jpg" />
 </div>
 
 
@@ -387,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154662.jpg" />
 </div>
 
 
@@ -413,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154150.jpg" />
 </div>
 
 
@@ -439,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154115.jpg" />
 </div>
 
 
@@ -465,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154007.jpg" />
 </div>
 
 
@@ -494,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153945.jpg" />
 </div>
 
 
@@ -521,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153798.jpg" />
 </div>
 
 
@@ -549,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153746.jpg" />
 </div>
 
 
@@ -577,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153700.jpg" />
 </div>
 
 
@@ -588,111 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5FFB80E9DC2E886276A04D2C37ADA1F77EDB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677150   (153462) от 16.11.2023
-
-Шота Руставели | Витязь в тигровой шкуре (2004) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Литературные чтения.
-Поэма грузинского поэта XII века Шота Руставели «Витязь в тигровой шкуре» – одна из величайших поэм мировой литературы. Предвосхищая гуманистические идеи раннего Возрождения, автор противопоставляет церковно-аскетической морали свободу личности, воспевает возвышенную любовь, товарищество, патриотизм, демонстрируя глубокое проникновение (   Читать дальше...   )Жанр: Классика мировой поэзии, эпическая поэмаИздательство: Студия «АРДИС»Продолжительность: 08:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C156896C412149A6BEC2F18DD72441B57CE4FBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677152   (153385) от 16.11.2023
-
-Шота Руставели | Витязь в барсовой шкуре (2013) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это поэма о любви, на которую лишь отдалённо похожи земные страсти. Это также рассказ о дружбе, перед которой отступает самая горячая любовь. Константин Бальмонт, считая Шота Руставели венценосцем в веках, первым перевёл «Витязя в барсовой шкуре» на русский язык, он первый познакомил русских читателей с грузинской любовной песней, пронзённой, по его выражению, солнечным (   Читать дальше...   )Жанр: Классика мировой поэзии, поэмаИздательство: МедиаКнигаПродолжительность: 10:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0951E099C8B3794C9AB5F6D2FC05270B80736095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085613   (153280) от 24.12.2016
-
-Генрих Бёлль | Пересадка (1988) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрантокс Донат случайно делает пересадку в городке, в котором родился и из которого бежал много лет назад. Бежал, покинув брата, верившего только в него одного, покинув девушку, которая его любила. Сейчас он одинок. Узнав, что любимая девушка жива, он звонит ей по телефону. Но она не хочет его видеть - он давно для нее мертв.Жанр: Радиоспектакль, драмаПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6750272FE9D931FDF4DC13964848998E12ED76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085516   (153247) от 24.12.2016
-
-Генрих Бёлль | Глазами клоуна (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153247.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Глазами клоуна" - один из самых известных романов Генриха Бёлля. Грустная и светлая книга - история одаренного, тонко чувствующего человека, который волею судеб оказался в одиночестве и заново пытается переосмыслить свою жизнь.Жанр: Зарубежная проза, драмаПродолжительность: 10:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7000AD48EE26A62577ACC255E6E6E13CD8E837E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,168 @@
+###  Публикация: 1045080   (559677) от 23.08.2016
+
+Баскетбол. Олимпийские игры 2016. Мужчины. Матч за 3-е место. Австралия - Испания (21.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559677.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 августа 2016, воскресенье. 17:30 МСК.
+За 3-е место. Баскетбол. Мужчины. Австралия - Испания.
+
+Стадион: Арена Кариока 1 (Рио-де-Жанейро, Бразилия) , вместимость: 16000Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Роман Скворцов)Продолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84DD1F5C7049A40F6FBBFF638F90AFC3C530946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364970   (559490) от 19.07.2011
+
+MotoGP 2011 / Этап 9 из 18 / Германия/ Гонка / 125сс + "Королевский класс" + Moto2 / Авто-Плюс (2011) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись трансляции гонок чемпионата MotoGP на гран-при Германии сезона 2011 в Моторраде.Жанр: СпортПродолжительность: 03:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA301E0508837B7C2C101F95CCE1F3D9EF318EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140652   (559440) от 26.07.2017
+
+Возрождение Металлолома / Iron Resurrection (2016) HDTVRip [H.264/1080i-LQ] (сезон 1, серии 1-3,6 из 6) [Обновляемая] [AD]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа о реконструкции автомобилей.
+Джо Мартин и его команда усердно работают, давая транспортным средствам еще один шанс в жизни.Производство: США, Discovery Communications, Velocity ChannelЖанр: Документальный, реалити-ТВ, автомобилестроениеПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 серий по ~ 00:45:00Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7F5DE96DE7FE4C6CC1D2D5D55EB3F9AE3FEC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531424   (558723) от 04.08.2012
+
+Настоящий пират Карибского моря: Капитан Генри Морган / The Real Pirate of the Caribbean: Captain Henry Morgan (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карибское море. 300 лет тому назад . Охотничья территория самых свирепых людей , когда-либо бороздивших океаны. Пираты - кровожадные авантюристы, готовые на все ради наживы. И во главе их валлиец Генри Морган, чье имя наводило ужас на весь Новый Свет. В наши дни международная экспедиция ищет остатки погибшего флота Моргана и его личные документы в забытом архиве и с каждым новым открытием его биография становится все более странной и запутанной. Каким образом помещик из Уэльса превратился в жестокого убийцу ? Как мог пиратский капитан потопить столько собственных кораблей и почему Морган стал адмиралом Британского флота, колониальным губернатором и рыцарем королевства ? Этот фильм о самом прославленном пиратском капитане когда-либо жившем на Земле .Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CDF2FC0EB5BDCCD1B0D7F59C3AD6336E875960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235515   (558507) от 12.07.2018
+
+Футбол. Чемпионат Мира 2018. 1/2 финала. Хорватия - Англия (11.07.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558507.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 июля 2018 года, среда. 21:00 МСК
+Стадион: Лужники (Москва, Россия), 78 011 зрителей (92 % при вместимости 84 745)
+Главный судья: Джюнейт Чакыр (Стамбул, Турция) Ассистенты: Бахаттин Дуран (Стамбул, Турция), Тарык Онгун (Стамбул, Турция)Телекомпания: Россия 1 HDЖанр: Спорт. Футбол.Субтитры: отсутствуютПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743015DE447C2A28ECD48EC31211A9E40501F44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045586   (558252) от 24.08.2016
+
+Хоккей. КХЛ 2016-2017. Лада - Медвешчак (23.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558252.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2016, вторник. 18:00 МСК
+
+Стадион: Лада-Арена (Тольятти, Россия) , 2 499 зрителей (41 % при вместимости 6 122)
+Главный судья: Антон Кислов (Челябинск, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Мельников, Корнилов)Продолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EC42F1022107A3D364BE821B4583AA4D5CAF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305080   (558179) от 29.05.2019
 
 Animal Planet: Рыба или смерть. Австралия / Fish or Die (2019) HDTV [H.264/1080i]
@@ -6,7 +171,7 @@ Animal Planet: Рыба или смерть. Австралия / Fish or Die (2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558179.jpg" />
+  <img src="Z:/picture/008/save_picture_558179.jpg" />
 </div>
 
 
@@ -33,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558164.jpg" />
+  <img src="Z:/picture/008/save_picture_558164.jpg" />
 </div>
 
 
@@ -62,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558043.jpg" />
+  <img src="Z:/picture/008/save_picture_558043.jpg" />
 </div>
 
 
@@ -91,7 +256,7 @@ Verizon IndyCar Series. ABС Supply 500. Pocono raceway. (2016.08.22) HDTVRip [H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558042.jpg" />
+  <img src="Z:/picture/008/save_picture_558042.jpg" />
 </div>
 
 
@@ -120,7 +285,7 @@ Verizon IndyCar Series.  ABС Supply 500. Pocono raceway. (2016.08.22) HDTV [H.2
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558040.jpg" />
+  <img src="Z:/picture/008/save_picture_558040.jpg" />
 </div>
 
 
@@ -149,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557615.jpg" />
+  <img src="Z:/picture/008/save_picture_557615.jpg" />
 </div>
 
 
@@ -175,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557147.jpg" />
+  <img src="Z:/picture/008/save_picture_557147.jpg" />
 </div>
 
 
@@ -204,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557090.jpg" />
+  <img src="Z:/picture/008/save_picture_557090.jpg" />
 </div>
 
 
@@ -233,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557059.jpg" />
+  <img src="Z:/picture/008/save_picture_557059.jpg" />
 </div>
 
 
@@ -262,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557058.jpg" />
+  <img src="Z:/picture/008/save_picture_557058.jpg" />
 </div>
 
 
@@ -291,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557057.jpg" />
+  <img src="Z:/picture/008/save_picture_557057.jpg" />
 </div>
 
 
@@ -320,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557056.jpg" />
+  <img src="Z:/picture/008/save_picture_557056.jpg" />
 </div>
 
 
@@ -349,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557055.jpg" />
+  <img src="Z:/picture/008/save_picture_557055.jpg" />
 </div>
 
 
@@ -378,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557054.jpg" />
+  <img src="Z:/picture/008/save_picture_557054.jpg" />
 </div>
 
 
@@ -407,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557053.jpg" />
+  <img src="Z:/picture/008/save_picture_557053.jpg" />
 </div>
 
 
@@ -436,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557052.jpg" />
+  <img src="Z:/picture/008/save_picture_557052.jpg" />
 </div>
 
 
@@ -465,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557051.jpg" />
+  <img src="Z:/picture/008/save_picture_557051.jpg" />
 </div>
 
 
@@ -494,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557050.jpg" />
+  <img src="Z:/picture/008/save_picture_557050.jpg" />
 </div>
 
 
@@ -523,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556989.jpg" />
+  <img src="Z:/picture/008/save_picture_556989.jpg" />
 </div>
 
 
@@ -552,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556985.jpg" />
+  <img src="Z:/picture/008/save_picture_556985.jpg" />
 </div>
 
 
@@ -563,177 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C2B452A5A2742DB0D46769F9BF8EB5E9F3F519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045917   (556974) от 25.08.2016
-
-Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. 2-й матч. Ростов (Россия) - Аякс (Голландия) (24.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556974.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 августа 2016, среда. 21:45 МСК
-Раунд плей-офф. 2-й матч
-
-Стадион: Олимп-2 (Ростов-на-Дону, Россия) , 15 320 зрителей (97 % при вместимости 15 840)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Михаил Поленов)Продолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB1919AA652E0DD86B9E56B50F0D75326B710B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045638   (556970) от 25.08.2016
-
-Verizon IndyCar Series. ABС Supply 500. Pocono raceway (2016.08.22) HDTVRip [H.264] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556970.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 августа 2016 года, понедельник. 19:00 МСК
-Этап 14, Лонг-Понд (Пенсильвания), США
-Поконо-500
-Арена: Автодром Поконо (Лонг-Понд, США)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 03:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB92E1415F3FC23229D63D591C39E98DC8B4831D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235982   (556568) от 14.07.2018
-
-Футбол. Чемпионат Мира 2018. Матч за 3-е место. Бельгия – Англия (14.07.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556568.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 июля 2018 года, суббота. 17:00 МСК
-21-й Чемпионат Мира по футболу 2018 года. Плей-офф.
-Матч за 3-е место. Бельгия – Англия
-Стадион: Санкт-Петербург (Санкт-Петербург, Россия), 64406 зрителей (95 % при вместимости 68134)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E64E86320C0C4E8E3F8A12799F91FE3906EF249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235911   (556558) от 14.07.2018
-
-Смешанные единоборства. Bellator 202: Main Card. Budd vs. Nogueira (14.07.18) WEB-DLRip [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной кард турнира Bellator 202, главным событием которого стал поединок в полулегком весе между  Джулией Бадд и Талитой Ногейра.Телекомпания: Paramount NetworkЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE04E8F8CE18BC41EEB6CA15B64243D6FEB4F254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305569   (556442) от 31.05.2019
-
-Хоккей. НХЛ. Кубок Стэнли 2019. Финал. 1-й матч. Бостон Брюинз — Сент-Луис Блюз (2019) WEB-DLRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556442.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 мая 2019, вторник. 03:00 МСК
-Финал Кубка Стэнли - решающая серия розыгрыша Кубка Стэнли в сезоне НХЛ 2018-2019 годов.
-1-й матч.
-Бостон Брюинз — Сент-Луис Блюз(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196ECA6D16F4CEAF4E6970EB54DD69AE3AFC1569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305486   (556418) от 31.05.2019
-
-NASCAR-2019. 13-й Этап. Шарлотт. Гонка / Monster Energy NASCAR Cup Series 2019. Coca-Cola 600. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556418.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Cup Series 2019 - Сезон 2019 года
-Воскресенье, 26 мая 2019 года. Конкорд (штат Северная Каролина, США).
-13-й Этап. Coca-Cola 600
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C34C0E52EA9D339EBF914D10D3387CDB505859
 ```
 
 https://mybot314.ru/tekegram_catalog/

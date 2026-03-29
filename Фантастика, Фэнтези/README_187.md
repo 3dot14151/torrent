@@ -1,3 +1,59 @@
+###  Публикация: 955410   (335017) от 10.11.2015
+
+Леонид Кондратьев, Владимир Мясоедов | Продавец королевств (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Торговец».
+
+Люди всегда жаждут большего. Почета, богатства, славы, силы… А потому успешно начавшаяся завоевательная война продолжается! Ну а с чего бы ей не продолжаться, если одной стороной конфликта являются обычные обитатели мира меча и магии, привыкшие к опасностям и чудесам, а на другой они же, только с набором козырных карт в виде высокотехнологичного (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B70E8B9515506EA3A09E75528C81D5A8F6B8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955344   (335013) от 10.11.2015
+
+Евгений Щепетнов | Чумная планета (2015) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Корпорация».
+
+Жизнь беорийца Слая Донгара, менеджера по продажам, однообразна и уныла. Суть его профессии не поменялась спустя тысячелетия звездной эры. Грезы о полетах давно покрылись пылью. Даже получение неожиданного наследства не вызывает радости, ведь он унаследовал не миллионы кредитов, а лишь старый космический грузовик и кучу долгов. А (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D80DAD0688CA5DBAB43F07722F6F4D35AED1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955348   (334883) от 10.11.2015
 
 Людмила Макарова | Оперативный резерв (2015) [FB2, EPUB]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334883.jpg" />
+  <img src="Z:/picture/008/save_picture_334883.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334748.jpg" />
+  <img src="Z:/picture/008/save_picture_334748.jpg" />
 </div>
 
 
@@ -63,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334441.jpg" />
+  <img src="Z:/picture/008/save_picture_334441.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334344.jpg" />
+  <img src="Z:/picture/008/save_picture_334344.jpg" />
 </div>
 
 
@@ -119,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334184.jpg" />
+  <img src="Z:/picture/008/save_picture_334184.jpg" />
 </div>
 
 
@@ -147,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334113.jpg" />
+  <img src="Z:/picture/008/save_picture_334113.jpg" />
 </div>
 
 
@@ -176,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333726.jpg" />
+  <img src="Z:/picture/008/save_picture_333726.jpg" />
 </div>
 
 
@@ -202,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333708.jpg" />
+  <img src="Z:/picture/008/save_picture_333708.jpg" />
 </div>
 
 
@@ -230,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333669.jpg" />
+  <img src="Z:/picture/008/save_picture_333669.jpg" />
 </div>
 
 
@@ -256,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333663.jpg" />
+  <img src="Z:/picture/008/save_picture_333663.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333653.jpg" />
+  <img src="Z:/picture/008/save_picture_333653.jpg" />
 </div>
 
 
@@ -308,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333645.jpg" />
+  <img src="Z:/picture/008/save_picture_333645.jpg" />
 </div>
 
 
@@ -334,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333639.jpg" />
+  <img src="Z:/picture/008/save_picture_333639.jpg" />
 </div>
 
 
@@ -362,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333535.jpg" />
+  <img src="Z:/picture/008/save_picture_333535.jpg" />
 </div>
 
 
@@ -388,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333534.jpg" />
+  <img src="Z:/picture/008/save_picture_333534.jpg" />
 </div>
 
 
@@ -414,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333533.jpg" />
+  <img src="Z:/picture/008/save_picture_333533.jpg" />
 </div>
 
 
@@ -440,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333532.jpg" />
+  <img src="Z:/picture/008/save_picture_333532.jpg" />
 </div>
 
 
@@ -466,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333531.jpg" />
+  <img src="Z:/picture/008/save_picture_333531.jpg" />
 </div>
 
 
@@ -494,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333487.jpg" />
+  <img src="Z:/picture/008/save_picture_333487.jpg" />
 </div>
 
 
@@ -522,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333399.jpg" />
+  <img src="Z:/picture/008/save_picture_333399.jpg" />
 </div>
 
 
@@ -548,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333394.jpg" />
+  <img src="Z:/picture/008/save_picture_333394.jpg" />
 </div>
 
 
@@ -574,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333235.jpg" />
+  <img src="Z:/picture/008/save_picture_333235.jpg" />
 </div>
 
 
@@ -600,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332960.jpg" />
+  <img src="Z:/picture/008/save_picture_332960.jpg" />
 </div>
 
 
@@ -626,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332870.jpg" />
+  <img src="Z:/picture/008/save_picture_332870.jpg" />
 </div>
 
 
@@ -639,61 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220396E087DB706C2321BAA3E91D4072F966F4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258911   (332861) от 01.11.2018
-
-Светлана Казакова, Ирина Шевченко | Судьба на выбор (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из учениц пансиона — в невесты? Как бы не так! Мечта Гвендолин — написать книгу, а такое увлечение едва ли позволительно жене аристократа. Выход найден — обменяться местами с подругой и под чужим именем отправиться в деревню, где нужна учительница. Вот только вместо тишины и покоя там ее ждут опасности, уроки магии и… любовь.Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F063390EBF2F7D898E0E149199DF3DF8ADF7116B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258925   (332807) от 01.11.2018
-
-Дин Кунц | Тихий уголок (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла о Джейн Хок.
-
-Эти леденящие душу слова оставлены человеком, который получил все, ради чего стоит жить, – и заплатил за это собственной жизнью. Теперь его вдова Джейн Хок делает то, чего требуют от нее горе, гнев, страх и отчаяние: ищет истину. Ради этого она готова на все…
-(   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастикаПеревод: Григорий КрыловФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EECB14BD9BC99EE2A8878E20917EB1696CD44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

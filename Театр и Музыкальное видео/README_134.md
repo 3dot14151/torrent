@@ -1,3 +1,164 @@
+###  Публикация: 454296   (76903) от 18.02.2012
+
+Eros Ramazzotti - Stilelibero (2001) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76903.jpg" />
+</div>
+
+
+###  Подробнее
+
+На представленном DVD записан международный тур в поддержку альбома. С ним Eros Ramazzotti выступил в восточно-европейских странах, включая Россию, где он дал три концерта в Кремлёвском дворце
+Эрос Лучано Вальтер Рамаццотти (итал. Eros Luciano Walter Ramazzotti, итал. Eros Ramazzotti; род. 28 октября 1963, Рим) — итальянский певец и композитор. Один из наиболее популярных (   Читать дальше...   )01. Dove c'e musica
+02. II mio amore per te
+03. Musica e
+04. L'aquila e il condor(   Читать дальше...   )Жанр: PopРежиссер: Не указанАктеры: Eros RamazzottiПеревод: ОтсутствуетЯзык субтитров: итальянские, английские, испанские, французские, немецкиеПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453487   (76803) от 17.02.2012
+
+Катя Самбука - Зашли мне лям (Uncensored) (2010) WEBRip [720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_76803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCE8941741446526C6C17A383B3D50B9E36F4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453629   (76800) от 17.02.2012
+
+Анна Нетребко и Роландо Вильясон Концерт в Париже / Anna Netrebko & Rolando Villazon Paris concert (2007) HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ОпераАктеры: Анна Нетребко (сопрано) , Роландо Вильясон (тенор) , Бельгийский национальный оркестрПродолжительность: 01:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D288E2B753B03CA729D6C5DE64C13360D755AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453655   (76767) от 17.02.2012
+
+Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pink выступила в Австралии на концерте в поддержку своего нового альбомаЖанр: Pop,RockРежиссер: Larn Poland, Баз ХэлпинАктеры: Alison Faulk, Reina Hidalgo, Leo Moctezuma, Sebastien Stella, Nikki Tuazon.Перевод: ОтсутствуетФормат: MKVПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453014   (76762) от 17.02.2012
+
+Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт  Марвина Ли Эдейла (англ. Marvin Lee Aday) , более известного под сценическим псевдонимом Мит Лоуф (англ. Meat Loaf), ,снятый в 2007 году в Ontario (Canada).
+Meat Loaf - американский рок-певец, кино- и театральный актёр. Получил широкую известность после выхода успешных альбомов Bat out of Hell и нескольких песен к кинофильмам, а так же весьма зрелищным клипамЖанр: RockПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454124   (76719) от 17.02.2012
+
+Виа Гра - Алло, Мам (2012)[H.264/720p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172E5D81BAF0F8391E3789E78AA6AB32663063BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453485   (76578) от 16.02.2012
 
 Катя Самбука - Сказка (Uncensored) (2010) WEBRip [H.264/720p-LQ]
@@ -6,7 +167,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76578.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76301.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76266.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76144.jpg" />
 </div>
 
 
@@ -162,7 +323,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76117.jpg" />
 </div>
 
 
@@ -188,7 +349,7 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75999.jpg" />
 </div>
 
 
@@ -223,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75776.jpg" />
 </div>
 
 
@@ -249,7 +410,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75736.jpg" />
 </div>
 
 
@@ -275,7 +436,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75661.jpg" />
 </div>
 
 
@@ -301,7 +462,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75469.jpg" />
 </div>
 
 
@@ -336,7 +497,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -364,7 +525,7 @@ Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75328.jpg" />
 </div>
 
 
@@ -393,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75086.jpg" />
 </div>
 
 
@@ -419,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75046.jpg" />
 </div>
 
 
@@ -445,7 +606,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74681.jpg" />
 </div>
 
 
@@ -474,7 +635,7 @@ Van Canto - Live at Wacken (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74637.jpg" />
 </div>
 
 
@@ -504,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74540.jpg" />
 </div>
 
 
@@ -539,7 +700,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74518.jpg" />
 </div>
 
 
@@ -553,186 +714,6 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447318   (74337) от 05.02.2012
-
-Foreigner - Rockin' at the Ryman (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
-
-Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated for the new Foreigner experience about to take place! Recorded with the highest equipment to capture the rocking that actually took place, this concert included the full-set for ultimate listening and viewing pleasure. This new announcement is certainly a dream come true for any fan or new listener, including all of the hits from their album “Can’t Slow Down” like “Double Vision”, “Cold As Ice” to “Jukebox Hero”, “Hot Blooded” and “Urgent”. This is something you really have to see for yourself, and with the new DVD/Blu-ray disc quality, you can experience it as if you were there.01. Double Vision
-02. Head Games
-03. Cold As Ice
-04. In Pieces
-05. Blue Morning, Blue Day
-06. Waiting For A Girl Like You
-07. When It Comes To Love
-08. Dirty White Boy
-09. Starrider
-10. Feels Like The First Time(   Читать дальше...   )Жанр: RockВ ролях: Mick Jones, Kelly Hansen, Jeff Pilson, Tom Gimbel, Michael Bluestein, Jason BonhamПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445817   (73607) от 02.02.2012
-
-Юбилейный вечер Олега Газманова (2012) IPTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_73607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все звёзды "Новой волны" в "Артеке". В 60 лет все только начинается! Российский певец, композитор и поэт, заслуженный артист Российской Федерации и народный артист России Олег Газманов в ноябре отметил свой юбилей праздничной программой, в которой приняли участие друзья и коллеги юбиляра, которые исполнили песни Газманова. А сам юбиляр, помимо (   Читать дальше...   )01.Танцуй пока молодой
-02.Свежий ветер
-03.Доля(Н. Басков)
-04.На заре(Г. Лепс)(   Читать дальше...   )Жанр: ТВ-шоу, концертПродолжительность: 01:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E2597C4BFA4732B3EC1B9F94FE04C277C0814A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443590   (72869) от 29.01.2012
-
-Мещанин во дворянстве (1977) DVB
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мещанин во дворянстве - блестящая, искрометная комедия классика французской литературы Жана Батиста Мольера. Попытки необразованного, невежественного, неотесанного мужлана с большими деньгами выглядеть как благородный дворянин не могут не вызывать смех. Главный герой то и дело попадает в нелепые ситуации, а окружающие не упускают возможности воспользоваться его манией (   Читать дальше...   )Жанр: комедияРежиссер: Владимир ШлезингерПродолжительность: 01:36:00 + 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD287E9FC6EE3E79C05D9A3FA59DCF6A86FA62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441961   (72364) от 26.01.2012
-
-Melanie C - Live Hits (Live) (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мелани Джейн Чисхолм (англ. Melanie Jayne Chisholm) — британская певица, автор песен. Наиболее известна как участница самой популярной в истории развития музыкального бизнеса девичьей группы «Spice Girls», где выступала под псевдонимом «Sporty Spice» (Спортивная Перчинка). Она также известна под псевдонимами «Mel C» или «Melanie C».
-В октябре 2006 года Мел Си выпустила (   Читать дальше...   )01."Beautiful Intentions"
-02."Yeh Yeh Yeh"
-03."Home"
-04."Northern Star"(   Читать дальше...   )Жанр: Концерт, PopПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441629   (72242) от 25.01.2012
-
-Сурганова и Оркестр  (23.01.2012) В программе LIVEнь.<Rock> TvRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Сурганова и оркестр в прямом эфире телеканала Дождь в программе Михаила Козырева LIVEнь. Программа транслировалась 23 января 2012 года.01.	Далеко
-02.	Мураками
-03.	Неужели не я
-04.	Интервью(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250CC12CA75F6AE20673F4ED7E42DD41262C1FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776220   (71368) от 30.01.2025
-
-Квартирник у Маргулиса. «Комната культуры» (25.01.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Комната культуры» была основана 28 марта 2022 года уроженцами Барнаула Женей Трофимовым и Романом Рудыкой. Дебютный альбом группы «Кассета с тремя сторонами» стал открытием в жанре поп-рока, а их песня «Поезда»00:00:06 Привет
-00:05:28 Я даже не знаю
-00:13:42 На тех полюсах
-00:21:05 Номер(   Читать дальше...   )Производство: Россия | "ФРИДОМ"Жанр: Поп-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0289FA1C6F3F5D2948EA01093866ABE19AA3D228
 ```
 
 https://mybot314.ru/tekegram_catalog/

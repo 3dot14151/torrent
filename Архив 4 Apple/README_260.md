@@ -6,7 +6,7 @@ JetBrains IntelliJ IDEA Ultimate 2018.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718389.jpg" />
+  <img src="Z:/picture/008/save_picture_718389.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Debookee 7.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718387.jpg" />
+  <img src="Z:/picture/008/save_picture_718387.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Expert 2.4.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718384.jpg" />
+  <img src="Z:/picture/008/save_picture_718384.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe After Effects 2022 22.3.0 Beta U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718285.jpg" />
+  <img src="Z:/picture/008/save_picture_718285.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tyme2 v1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718256.jpg" />
+  <img src="Z:/picture/008/save_picture_718256.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Office 2021 for Mac LTSC v16.58 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718190.jpg" />
+  <img src="Z:/picture/008/save_picture_718190.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Hazel 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718159.jpg" />
+  <img src="Z:/picture/008/save_picture_718159.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ SSH Shell 16.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718057.jpg" />
+  <img src="Z:/picture/008/save_picture_718057.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sketches Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718048.jpg" />
+  <img src="Z:/picture/008/save_picture_718048.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ BitPerfect 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718046.jpg" />
+  <img src="Z:/picture/008/save_picture_718046.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Tipard Mac Video Enhancer 9.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717521.jpg" />
+  <img src="Z:/picture/008/save_picture_717521.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Mocha Pro 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717483.jpg" />
+  <img src="Z:/picture/008/save_picture_717483.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Social Media Lab - Templates 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717404.jpg" />
+  <img src="Z:/picture/008/save_picture_717404.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717349.jpg" />
+  <img src="Z:/picture/008/save_picture_717349.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Postbox 6.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717308.jpg" />
+  <img src="Z:/picture/008/save_picture_717308.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ MP4Tools 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717299.jpg" />
+  <img src="Z:/picture/008/save_picture_717299.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ A Better Finder Rename 11 v11.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717221.jpg" />
+  <img src="Z:/picture/008/save_picture_717221.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ UctoX 2 v2.8.2 (build 1393) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717220.jpg" />
+  <img src="Z:/picture/008/save_picture_717220.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Rottenwood 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717219.jpg" />
+  <img src="Z:/picture/008/save_picture_717219.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Eon Timer 2.8.2 (build 978) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717111.jpg" />
+  <img src="Z:/picture/008/save_picture_717111.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Permute 3 v3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717069.jpg" />
+  <img src="Z:/picture/008/save_picture_717069.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ SPlayerX 4.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717068.jpg" />
+  <img src="Z:/picture/008/save_picture_717068.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Affinity Photo Beta 1.7.0 (111) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717066.jpg" />
+  <img src="Z:/picture/008/save_picture_717066.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ beaTunes 5 v5.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716954.jpg" />
+  <img src="Z:/picture/008/save_picture_716954.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ EverWeb 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716946.jpg" />
+  <img src="Z:/picture/008/save_picture_716946.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Super PhotoCut Pro 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716818.jpg" />
+  <img src="Z:/picture/008/save_picture_716818.jpg" />
 </div>
 
 

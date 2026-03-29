@@ -1,3 +1,108 @@
+###  Публикация: 1557762   (213243) от 19.06.2022
+
+Adobe Premiere Pro 2022 22.4.0 (build 57) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.05.2022Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C37AFF396769769B4ADFC8DD8E8D6FC20A6F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557480   (213232) от 19.06.2022
+
+Topaz Gigapixel AI 6.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.05.2022Разработчик: © Topaz LabsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EC095A591091DD03A2018A1F766D100DC61A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559894   (213035) от 27.06.2022
+
+Adobe Animate 2022 v22.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Animate 2021, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate также позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 1993 - 2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15 и новееЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62C09771CDDDEA914A15388C82B8E79878FC5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560642   (212967) от 30.06.2022
+
+Capture One 22 Pro v15.3.1.15 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Phase OneПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
+* язык интерфейса приложения зависит от дефолтного языка операционной системы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CDEE2ADB0E94AEB1A3AC38C9B2978A0CC9DEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560508   (212952) от 30.06.2022
 
 Maxon Cinema 4D Studio R26.107 [En]
@@ -6,7 +111,7 @@ Maxon Cinema 4D Studio R26.107 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212952.jpg" />
+  <img src="Z:/picture/005/save_picture_212952.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Adobe After Effects 2022 22.5.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212695.jpg" />
+  <img src="Z:/picture/005/save_picture_212695.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ macOS 12 Monterey 12.5 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212321.jpg" />
+  <img src="Z:/picture/005/save_picture_212321.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ ABBYY FineReader PDF for Mac 15.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212317.jpg" />
+  <img src="Z:/picture/005/save_picture_212317.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Planner 5D Premium 4.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212274.jpg" />
+  <img src="Z:/picture/005/save_picture_212274.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Vidmore Player 1.0.56 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212050.jpg" />
+  <img src="Z:/picture/004/save_picture_212050.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ WiFi Explorer 3 Pro 3.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212024.jpg" />
+  <img src="Z:/picture/004/save_picture_212024.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ DxO PhotoLab 6 ELITE Edition 6.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212022.jpg" />
+  <img src="Z:/picture/004/save_picture_212022.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ DxO FilmPack 6 ELITE Edition 6.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212013.jpg" />
+  <img src="Z:/picture/004/save_picture_212013.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ DxO PureRAW 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_211992.jpg" />
+  <img src="Z:/picture/004/save_picture_211992.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ App Cleaner & Uninstaller Pro 8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211983.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ MacCleaner 3 PRO 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211928.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Davinci Resolve Studio 18.0.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211910.jpg" />
+  <img src="Z:/picture/005/save_picture_211910.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Nik Complete 5 Collection by DxO v5.1.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211863.jpg" />
+  <img src="Z:/picture/005/save_picture_211863.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211836.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ calibre 6.20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211834.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ HitPaw Video Enhancer for Mac 1.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211582.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Capture One 23 Pro 16.2.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211518.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ VideoProc Converter 4K 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211428.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ PDF Reader Pro Edition 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211339.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ Wondershare Filmora for Mac  12.4.0  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211227.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ RAR Extractor Max-Unzip Winrar 9.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211222.jpg" />
+  <img src="Z:/picture/005/save_picture_211222.jpg" />
 </div>
 
 
@@ -574,110 +679,6 @@ RAR Extractor Max унаследовал преимущества RAR Extractor 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:673D8642B9C2D05BB66833D8C425F5B0226DA60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640563   (211172) от 18.06.2023
-
-Mac FoneLab iOS Unlocker 1.0.38 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для людей, которые забыли код доступа iPhone, могут потерять контроль над вашим iPhone, iPad или iPod touch, вам понадобится FoneLab iOS Unlocker, чтобы удалить 4-значный код доступа, 6-значный код доступа, Touch ID или Face ID проверенным простым способом с наивысшим успехом. оценивайте эффективно. Внимание: удаление пароля iPhone приведет к удалению всех данных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.06.2023Разработчик: © 2023 FoneLab StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A6DC738734F0D6148DCAE5B60F7457D72FB9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640600   (211148) от 18.06.2023
-
-DRmare Music Converter for Spotify 2.9.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальный загрузчик музыки Spotify для сохранения любых песен и плейлистов Spotify в автономном режиме и преобразования Spotify Ogg Vorbis в универсальные MP3, AAC, WAV, FLAC и т. д. без потерь для воспроизведения на любом популярном устройстве и MP3-плеере. С подпиской Spotify Premium вы можете загружать любые Песни Spotify для воспроизведения на компьютерах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2023Разработчик: © 2022 DRmare.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B9198AF6F4ACE612254959BCE7A1C86F92CCA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640987   (211042) от 20.06.2023
-
-macOS 14 Sonoma Beta 1 (Installer) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211042.jpg" />
-</div>
-
-
-###  Подробнее
-
-С macOS Sonoma работать и играть на Mac стало еще проще. Поднимите свое присутствие на видеозвонках. Получите доступ к информации совершенно новыми способами. Повысьте производительность в играх. И откройте для себя еще больше способов персонализировать свой Mac.Тип издания: InstallerРелиз состоялся: 05.06.2023Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD552FDEBBB59C91814D745DBA83EB192C7D241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641032   (211004) от 20.06.2023
-
-Sketch 97.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch - это инструмент для векторного дизайна для Mac с акцентом на дизайн экрана. Он используется главным образом дизайнерами экрана, которые создают веб-сайты, значки и пользовательские интерфейсы для настольных и мобильных устройств. Мощные и простые в использовании инструменты Sketch для начинающих и профессионалов отрасли позволяют дизайнерам сосредоточиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2023Разработчик: © 2023 Sketch B.V.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DDE7E21C406DFDC11D0E0024652F2E4222383D
 ```
 
 https://mybot314.ru/tekegram_catalog/

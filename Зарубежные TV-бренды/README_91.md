@@ -1,3 +1,107 @@
+###  Публикация: 1328817   (358909) от 02.10.2019
+
+NG. Нотр Дам: гонка против ада / Notre-Dame. Race Against the Inferno (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358909.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 апреля 2019 года. 18 часов 20 минут. В Нотр-Дам-де-Пари, этом архитектурном, культурном и религиозном символе Франции, проходит служба, посвященная Страстному Понедельнику. Внезапно в соборе вспыхивает пожар. Звучат пожарные сирены, никто не знает, смогут ли пожарные расчеты спасти здание. Это точка отсчета в длившейся почти 15 часов эпической битве с огнем, за (   Читать дальше...   )Производство: Франция, Galaxie Presse, National GeographicЖанр: Документальный, катастрофы, расследованиеРежиссер: Симон Кесслер, Фабрик ГардельПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16007300D9AAC01B18DBBD5190E48120FFF5F13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255953   (358902) от 20.10.2018
+
+NG. Ужас в небесах / Terror in the Skies (2013) DVB (серии 1-4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авиаинженер расследует опасные ситуации на борту, при которых чудом удалось избежать серьезного инцидента, а пассажиры ничего не узнали.Производство: Великобритания, Arrow Media, National Geographic ChannelЖанр: Документальный, катастрофы, исследованиеРежиссер: Сэм Миллер, Эоин О'ШиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6FEBD2212E154CDF579B3849E1606489EA4B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328972   (358765) от 02.10.2019
+
+Загадка Моны Лизы / The Mona Lisa Mystery (2014) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это самое известное произведение искусства в мире. Её имя - синоним интриги. Выражение её лица хранит тайну вот уже пять веков. Мы видим женщину которая вот-вот улыбнется... "Мона Лиза" не всегда была знаменитой, она не привлекала всеобщего внимания до тех пор, пока её не похитили. Картина исчезла и два года о ней ничего не было известно. А тем временем (   Читать дальше...   )Производство: Австрия, Великобритания, Terra Mater Factual Studios, Thirteen ProductionsЖанр: ДокументальныйРежиссер: Клаус ШтейндльПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAC28C063F18100EE7DA184D78B67757451C88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328979   (358760) от 02.10.2019
+
+Загадки тёмной материи / The Mystery of Dark Matter (2012) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Факты упрямая вещь: масса всех объектов во Вселенной, которые мы знаем и можем наблюдать, составляет лишь 5%. Все остальное - это неизвестный материал, материя, которую мы не видим и не можем найти. Её назвали "чёрная материя". Какова природа этого феномена и существует ли он? Если да, то это приведет к необходимости переписать все постулаты физики со времен (   Читать дальше...   )Производство: Франция, ARTE France, Scientifilms, CEA, CNRS ImagesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Сесиль ДанжанПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские, Английские (SDH)Продолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBA26D89692E2324B73BD828FAD7D844C16D028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255948   (358750) от 20.10.2018
 
 Animal Planet. Гангстеры дикой природы / Gangland Killers (2014) HDTV [H.264/1080i-LQ] (эпизоды 6 из 6)
@@ -6,7 +110,7 @@ Animal Planet. Гангстеры дикой природы / Gangland Killers (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358750.jpg" />
+  <img src="Z:/picture/008/save_picture_358750.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358555.jpg" />
+  <img src="Z:/picture/008/save_picture_358555.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Неделя космоса / Space Week (2018) HDTVRip 720p [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358355.jpg" />
+  <img src="Z:/picture/008/save_picture_358355.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Международный аэропорт Дубай. Серия 10 / Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357946.jpg" />
+  <img src="Z:/picture/008/save_picture_357946.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery: Американские Изобретатели / Invent It Rich (2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357867.jpg" />
+  <img src="Z:/picture/008/save_picture_357867.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357673.jpg" />
+  <img src="Z:/picture/008/save_picture_357673.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Подъем "Коста Конкордии" / The Raising the Costa Concord
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357551.jpg" />
+  <img src="Z:/picture/008/save_picture_357551.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG. Медоеды. Змеиные убийцы / Honey Badgers of the Kalahari.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357547.jpg" />
+  <img src="Z:/picture/008/save_picture_357547.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Секретное оружие Японии / Japan's Secret Weapon (2009) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356296.jpg" />
+  <img src="Z:/picture/008/save_picture_356296.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Atari: конец игры / Atari: Game Over (2014) BDRip [H.264/1080p]
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356289.jpg" />
+  <img src="Z:/picture/008/save_picture_356289.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356142.jpg" />
+  <img src="Z:/picture/008/save_picture_356142.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356141.jpg" />
+  <img src="Z:/picture/008/save_picture_356141.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356129.jpg" />
+  <img src="Z:/picture/008/save_picture_356129.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Discovery: Разрушители легенд. Опасное вождение 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355358.jpg" />
+  <img src="Z:/picture/008/save_picture_355358.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG. Потерянные мумии Новой Гвинеи / Mystery Mummies of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354264.jpg" />
+  <img src="Z:/picture/008/save_picture_354264.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG. Титаник: Роковой пожар / Titanic's: Fatal Fire (Titanic: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354142.jpg" />
+  <img src="Z:/picture/008/save_picture_354142.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354063.jpg" />
+  <img src="Z:/picture/008/save_picture_354063.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ BBC: Мари Тюссо. Восковая легенда / Madame Tussaud: A Le
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353700.jpg" />
+  <img src="Z:/picture/008/save_picture_353700.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ BBC:Атлантика: Самый необузданный океан на Зе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352889.jpg" />
+  <img src="Z:/picture/008/save_picture_352889.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Discovery. Трамп: беспрецедентно / Unprecedented (2022) WEBRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352047.jpg" />
+  <img src="Z:/picture/008/save_picture_352047.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NGW: Остров муссонов. Озерные охотники / Island of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351888.jpg" />
+  <img src="Z:/picture/008/save_picture_351888.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NGW: Загадка гигантского пещерного паука / Myste
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350810.jpg" />
+  <img src="Z:/picture/008/save_picture_350810.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NGW: Загадка гигантского пещерного паука / Myste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB92631C851A75B97660997FAE5D0F45FAEB7B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418155   (350659) от 23.10.2020
-
-Доисторические миры / Prehistoric Worlds (2019) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять раз Земля сталкивалась с катаклизмами, уничтожавшими почти все формы жизни. И всё же некоторые виды выживали, создавая новый мир. Как выглядели эти доисторические миры? Какие катастрофы привели к их исчезновению? Как нашим далеким предкам удалось пережить пять массовых вымираний, от которых страдала Земля, и, наконец, дать начало миру, который мы знаем сегодня? (   Читать дальше...   )Производство: Франция, ZED, CuriosityStream, NHK Japan Broadcasting CorporationЖанр: Документальный, познавательный, научно-популярныйРежиссер: Алексис де ФавитскиПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BC8293464037552C12AF3C2BA8241FF8CD4DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578046   (349889) от 21.09.2022
-
-Духи джунглей / Spirits of the Rainforest (1994) VHSRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349889.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Духи тропического леса» — это художественный документальный фильм, действие которого происходит в отдаленных тропических лесах Амазонки в Национальном парке Ману на юго-востоке Перу. В фильме рассказывается о переплетающихся историях нескольких исследователей, изучающих ара с блестящим оперением и прожорливых гигантских выдр, а также американского антрополога - (   Читать дальше...   )Производство: США, Discovery Productions Worldwide, SuperFlow CorporationЖанр: документальный, природа, флора, фаунаРежиссер: Джинджер КатренсПеревод: одноголосый профессиональный (Александр Новиков)Субтитры: отсутствуютПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C70C4EC808D0546C8D8D7B9C3C68FF6A1FFBF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257087   (349750) от 24.10.2018
-
-NG. Мумии, застывшие во времени / Mummies. Frozen in Time (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В западных степях Китая одна примечательная находка поставила под вопрос существующую теорию происхождения китайской нации. В болотах северной Европы рабочие, занимавшиеся торфоразработками, наткнулись при раскопках на сотни хорошо сохранившихся мумий со следами страшных увечий. Среди них были обнаружены три прекрасно сохранившихся мумии детей, которых очевидно выбрали (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэвид Шадрак СмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164835725F2DF35340FFCFBBD3FF4D88952C8DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329839   (349706) от 06.10.2019
-
-BBC: Инопланетяне. Мозговой штурм / Aliens: The Big Think (2016) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задумайтесь на минуту, одни ли мы во Вселенной? Пожалуй, это самый важный вопрос, что мы задавали. Разумно предположить, что где-то в космосе есть мощная сверхчеловеческая цивилизация. Возможно они уже миллионы лет наблюдают за Землёй. Завершив долгую и блестящую карьеру в авангарде космологии, английский астроном Мартин Риз (Martin Rees) занялся поиском внеземной (   Читать дальше...   )Производство: British Broadcasting Corporation (BBC)Жанр: Документальный, КосмосРежиссер: Tom Hewitson (as Thomas Hewitson)Актеры: Peter Capaldi, Martin ReesПеревод: Двуголосый профессиональный (Видеофильм ТВ)Продолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD03F4CEA72D99EBA948CFBDCAF29AA63F7AC66B
 ```
 
 https://mybot314.ru/tekegram_catalog/

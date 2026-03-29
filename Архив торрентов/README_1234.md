@@ -6,7 +6,7 @@ Gilisoft File Lock Pro 10.2.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775512.jpg" />
+  <img src="Z:/picture/008/save_picture_775512.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bartender 3 v3.0.51b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775506.jpg" />
+  <img src="Z:/picture/008/save_picture_775506.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Paste 2 v2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775502.jpg" />
+  <img src="Z:/picture/008/save_picture_775502.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Waltr 2 v2.6.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775497.jpg" />
+  <img src="Z:/picture/008/save_picture_775497.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dead Can Dance - Live in Moscow, Russia (2012) [FLAC 2.0 16/44.1|Tracks]<Rock / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775475.jpg" />
+  <img src="Z:/picture/008/save_picture_775475.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775452.jpg" />
+  <img src="Z:/picture/008/save_picture_775452.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775434.jpg" />
+  <img src="Z:/picture/008/save_picture_775434.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775419.jpg" />
+  <img src="Z:/picture/008/save_picture_775419.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ ABBYY FineReader 12.0.101.483 Corporate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775410.jpg" />
+  <img src="Z:/picture/008/save_picture_775410.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775365.jpg" />
+  <img src="Z:/picture/008/save_picture_775365.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Walk It Out! [Wii] [NTSC] [ENG] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775348.jpg" />
+  <img src="Z:/picture/008/save_picture_775348.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775314.jpg" />
+  <img src="Z:/picture/008/save_picture_775314.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775307.jpg" />
+  <img src="Z:/picture/008/save_picture_775307.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775258.jpg" />
+  <img src="Z:/picture/005/save_picture_775258.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775257.jpg" />
+  <img src="Z:/picture/005/save_picture_775257.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Cyberfox 52.7.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775217.jpg" />
+  <img src="Z:/picture/008/save_picture_775217.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ iTrash 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775216.jpg" />
+  <img src="Z:/picture/008/save_picture_775216.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775205.jpg" />
+  <img src="Z:/picture/005/save_picture_775205.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ AVS All-In-One Install Package 1.2.1.44 [Eng/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775195.jpg" />
+  <img src="Z:/picture/005/save_picture_775195.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Process Explorer 12.03 [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_775193.jpg" />
+  <img src="Z:/picture/005/save_picture_775193.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA - Beautiful Songs For You Vol.14 (Compiled by Виктор31Rus & Людми�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775180.jpg" />
+  <img src="Z:/picture/008/save_picture_775180.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Adobe AIR 29.0.0.112 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775177.jpg" />
+  <img src="Z:/picture/008/save_picture_775177.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ MarsEdit 4 v4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775167.jpg" />
+  <img src="Z:/picture/008/save_picture_775167.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ VA - Annexe: Cottage Industries 2 (2002) 2CD [FLAC|Lossless|tracks + .cue] <Abst
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775166.jpg" />
+  <img src="Z:/picture/008/save_picture_775166.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ GraphicConverter 10 v10.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775163.jpg" />
+  <img src="Z:/picture/008/save_picture_775163.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Scrutiny 8 v8.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775161.jpg" />
+  <img src="Z:/picture/008/save_picture_775161.jpg" />
 </div>
 
 

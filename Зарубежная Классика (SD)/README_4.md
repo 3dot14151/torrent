@@ -1,3 +1,81 @@
+###  Публикация: 1438825   (1032866) от 08.02.2021
+
+Герцогиня и Драный Лис / The Duchess and the Dirtwater Fox (1976) BDRip [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032866.jpg" />
+</div>
+
+
+###  Подробнее
+
+1882 год. Аманда — искательница приключений и танцовщица. Чарли — карточный шулер. Оба они любят деньги, особенно добытые нечестным путем. Влюбившись в него, она понимает, что есть вещи и попрекраснее денег. Теперь остается только ему пересмотреть свое отношение к жизни. Вместе они оказываются втянуты в аферу с кражей 40 тысяч долларов.Производство: США, 20th Century Fox Film CorporationЖанр: Комедия, вестернРежиссер: Мелвин ФрэнкАктеры: Джордж Сигал, Голди Хоун, Конрад Дженис, Тэйер Дэвид, Дженнифер Ли, Сид Гулд, Пэт Эст, Э.Дж. Андре, Ричард Фарнсуорт, Клиффорд ТёркнеттПеревод: Двуголосый профессиональный, авторский одноголосый (Алексей Михалев, Василий Горчаков, Леонид Володарский)Субтитры: Английские - отдельным файломПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE81924FEB4778E69C7B0AE04078118C70FB7E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439335   (1032401) от 10.02.2021
+
+Ворчун / Il Burbero (1986) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он — адвокат, который летит из Нью-Йорка во Флоренцию, разочарованный временной неудачей в делах, но преисполненный надежд на успешное окончание очередной тяжбы. Она — официантка кафе, итальянка по отцовской линии, летит по тому же маршруту, откликнувшись на телефонный звонок мужа. Пикантность ситуации была в том, что адвокат имел два билета на самолет, хотя летел (   Читать дальше...   )Производство: Италия / Alexandra, C.G. Silver FilmЖанр: КомедияАктеры: Адриано Челентано, Дебра Фойер, Жан Сорель, Маттиа Сбраджа, Анджела Финоккьяро, Пеппе Ланцетта, Перси Хоган, Лоредана Аддари, Мишела Альбанезе, Луиджи БоносПеревод: Двухголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC47EEFF3D3853002AFB4BFF6C8C0D597F1AE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439777   (1032275) от 11.02.2021
+
+Леонс Перре. Железные зубы / Les dents de fer (1913) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раннем кинематографе сформировался своеобразный жанр - фильмы о спасении. "Железные зубы" - несомненно одна из вершин этого жанра. На мой взгляд, это совершенно поразительный фильм, Леонсу Перре удалось добиться высокого драматического напряжения, не прибегая к внешним эффектам: девочка задыхается от дифтерии, доктор спешит ей на помощь; машина доктора (   Читать дальше...   )Производство: Франция, Société des Etablissements L. GaumontЖанр: Драма, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Мари Дорли, Эмиль Кеппенс, Валентина ПетиЯзык озвучки: НемойСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCEADBB4F557D402027B621320E975B465773C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439426   (1032188) от 11.02.2021
 
 Что-то дикое / Something Wild (1961) BDRip [AVO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032188.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032041.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032036.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031858.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031829.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031752.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031414.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031257.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031201.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031107.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031097.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031049.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030957.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030892.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030657.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030421.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030400.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030205.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030021.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029801.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029162.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029098.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028889.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68E5CF2818483B84C4662DA734E23E428AA00C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443717   (1028841) от 27.02.2021
-
-Преданные / Betrayed (1954) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028841.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Голландии, во время Второй мировой войны Карлу Ван Овен посылают шпионить на союзников, хотя и подозревают, что она прибегала однажды к помощи нацистов. Полковник голландской разведки Питер Девентер соглашается, что она может присоединиться к движению сопротивления. Но сразу после этого команда начинает нести тяжелые потери и Карлу обвиняют в предательстве…Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Триллер, Драма, Мелодрама, Военный, ИсторияРежиссер: Готфрид РейнхартАктеры: Кларк Гейбл, Лана Тернер, Виктор Мэтьюр, Луи Кэлхерн, О.Э. Хассе, Уилфрид Хайд-Уайт, Йен Кармайкл, Ниалл МакГиннис, Нора Суинбёрн, Роланд КалверПеревод: Авторский, Алексей ЯковлевСубтитры: ОтсутствуютПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DB68DF50B5C4899FA2BEE19BDA2DF94E9F93FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443870   (1028442) от 01.03.2021
-
-Черная серия / Serie noire (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммивояжер, ненавидящий свою унизительную работу и жену-неряху, пересекается с флегматичной шлюхой-дебютанткой. Похоже, состоялась идеальная пара. Вот только где разжиться деньжатами? Самое подходящее решение — кого-нибудь ограбить, и убить, если потребуется.Производство: Франция / Gaumont, ProspectacleЖанр: драма, криминалРежиссер: Ален КорноАктеры: Патрик Девэр, Мириам Буайе, Мари Трентиньян, Бернар Блие, Жанна Эрвиаль, Андреас Кацулас, Чарли Фарнель, Сэмюэл Мек, Жак Журден, Фернан КукеПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C677C2AB639BCF629CCDD57D5B7CD936D7CCD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443912   (1028347) от 02.03.2021
-
-Председатель суда / Praesidenten (1919) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Президент маленького городка (глава местной юстиции), посвятивший всю свою жизнь правосудию и снискавший заслуженный авторитет среди горожан, попал в непростую ситуацию: на скамью подсудимых за детоубийство попала его незаконнорожденная дочь. Её преступление, как выясняется, таковым не являлось, но в спорном деле перевешивают нарушенные нормы общественной морали (   Читать дальше...   )Производство: Дания, Nordisk FilmЖанр: Драма, немое киноРежиссер: Карл Теодор ДрейерАктеры: Рихард Кристенсен, Christian Engelstoft, Hallander Helleman, Halvard Hoff, Джон Иверсен, Jacoba Jessen, Betty Kirkeby, Карл Лауритцен, Эксел Мэдсен, Карл Вальтер МайерПеревод: Немой с интертитрамиСубтитры: Датские интертитры, русские отдельным файломПродолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA8BD3F28281CB5499DB55A492398F9B1E279D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

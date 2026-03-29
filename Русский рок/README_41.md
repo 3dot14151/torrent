@@ -1,3 +1,119 @@
+###  Публикация: 1288757   (694074) от 12.03.2019
+
+VA - Охота 86 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AZ'BEST - Мама
+02. Московское время - Меланхолия
+03. Сергей Даткай - Дельфин
+04. Corwine - Funkynation(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8719864A0425058CF5E202E51446871BB7D2DB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133850   (693033) от 13.05.2017
+
+Зоя Ященко и группа Белая Гвардия - Венеция (2017) [MP3|320 Kbps] <Sentimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Венеция
+02. Поэты
+03. Белый танец
+04. Возвращаться не хочется(   Читать дальше...   )Жанр: Sentimental RockПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA56968A2E9B212E103FFD9B1B92313784E6F58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028224   (692498) от 21.06.2016
+
+Смысловые Галлюцинации и DJ Nejtrino - Волна 1 / Волна 2 (2015-2016) 2EP [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зачем топтать мою любовь
+2. Мысленный волк
+3. Звёзды
+4. Волна(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F28DC832319822DDC3D2A92C75CAC25984558E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534689   (692469) от 03.03.2022
+
+Nalien - Твоей маме понравится (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692469.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твоей маме понравится
+2. Мультики
+3. Выключи стерву
+4. 500 рублей(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F97C0216F2592D67FEA2AC1BD54C77CB49D73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534681   (692468) от 03.03.2022
 
 Капитан Лис - Пристрастие (2022) [MP3|320 Kbps] <Folk Punk>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692468.jpg" />
+  <img src="Z:/picture/008/save_picture_692468.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692463.jpg" />
+  <img src="Z:/picture/008/save_picture_692463.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692078.jpg" />
+  <img src="Z:/picture/008/save_picture_692078.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691963.jpg" />
+  <img src="Z:/picture/008/save_picture_691963.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691421.jpg" />
+  <img src="Z:/picture/008/save_picture_691421.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690718.jpg" />
+  <img src="Z:/picture/008/save_picture_690718.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690150.jpg" />
+  <img src="Z:/picture/008/save_picture_690150.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688877.jpg" />
+  <img src="Z:/picture/008/save_picture_688877.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688282.jpg" />
+  <img src="Z:/picture/008/save_picture_688282.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688248.jpg" />
+  <img src="Z:/picture/008/save_picture_688248.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687219.jpg" />
+  <img src="Z:/picture/008/save_picture_687219.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686794.jpg" />
+  <img src="Z:/picture/008/save_picture_686794.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ Zero People - Конец равновесия (2020) [MP3|320 Kbps] <Alternative
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686451.jpg" />
+  <img src="Z:/picture/008/save_picture_686451.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686244.jpg" />
+  <img src="Z:/picture/008/save_picture_686244.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Butterfly Temple - 3 альбома-1 сингл (2009-2011) [MP3|320 кб/с]<P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686136.jpg" />
+  <img src="Z:/picture/008/save_picture_686136.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Jack Action - Atmosphera (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684979.jpg" />
+  <img src="Z:/picture/008/save_picture_684979.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684589.jpg" />
+  <img src="Z:/picture/008/save_picture_684589.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684002.jpg" />
+  <img src="Z:/picture/008/save_picture_684002.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682523.jpg" />
+  <img src="Z:/picture/008/save_picture_682523.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682449.jpg" />
+  <img src="Z:/picture/008/save_picture_682449.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680669.jpg" />
+  <img src="Z:/picture/008/save_picture_680669.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677466.jpg" />
+  <img src="Z:/picture/008/save_picture_677466.jpg" />
 </div>
 
 
@@ -633,128 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA1418DF9C2969EC044363E8E3450EDE32DACAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290820   (676463) от 21.03.2019
-
-Чайф - Шекогали (1999) Reissue, 2018, Kapkan Records [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо известное вам содержание альбома дополнено первоначальной фанковой версией песни "Время не ждёт" (она была написана именно для "Шекогали") и версией песни "Кошка" 1998 года.1. Кончается век (Не проспать бы)
-2. Мой фильм
-3. В ее глазах
-4. ....................(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64206A817B42AC724BBC007C0A63FC26C667D978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290682   (676453) от 21.03.2019
-
-Лёдъ - Неведомо, Не Страшно (2019) [MP3|320 kbps] <Dark Folk, Nordic Folk, Neofolk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лёдъ (02:36)
-02. Кузница Мира (Сover Gods Tower) (06:35)
-03. Черная Ладья (06:46)
-04. Мать Моя Сказала (04:19)(   Читать дальше...   )Жанр: Dark Folk, Nordic Folk, NeofolkПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BC9E02CD371E8147E32B43A81550CEA6A27CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030272   (676262) от 29.06.2016
-
-Сурганова и Оркестр - Игра в классики: Live In Crocus City Hall (2015) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. В этом городе ф.
-03. Питер
-04. Мне с тобой(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A63355350CCF30787B97A4B155F81574A2E2122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509074   (676222) от 11.06.2012
-
-Константин Никольский - Антология 3CD (2007) [MP3|320 кб/с]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676222.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007Жанр: РокПродолжительность: 00:55:52
- 1. Intro
- 2. Мой друг, художник и поэт
- 3. Я сам из тех...
- 4. Опять до времени отложены дела
- 5. Облако
- 6. Прошедший день
- 7. Когда поймешь умом...
- 8. Перед чертой меж будущим и прошлым
- 9. Цветок у окна(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29BA243944768BFA4F6B95A1DFFB813BFEB9A4E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

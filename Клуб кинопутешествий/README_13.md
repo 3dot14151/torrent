@@ -1,3 +1,56 @@
+###  Публикация: 1010264   (803838) от 24.04.2016
+
+Открытие Китая (2016.04.24) SATRip (серия 9)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803838.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
+Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, познавательный, путешествиеСубтитры: ОтсутствуютПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB435FFD5EFBD842C828E3FA6AB629DF9A5F058B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120634   (801940) от 31.03.2017
+
+Великая гора Хуаншань (2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801940.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубине континента в 400 километрах от побережья Восточно-Китайского моря, возвышается горная гряда Хуаншань. Считается что Хуаншань был наречен в честь легендарного правителя древности, заложившего основы китайского государства. Китайцы называют Хуаншань "горами пяти чудес природы". Здесь можно увидеть реликтовые сосны и невероятной красоты скалы, взглянуть (   Читать дальше...   )Телекомпания: Китай, CCTVЖанр: Документальный, История, ВидовойРежиссер: Ван ЧжэньтаоПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские неотключаемые (вшитые)Продолжительность: каждая часть ~00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5092EB0D2BEAA183A3EE63D3AF4A58D4441BC997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270786   (801313) от 21.05.2020
 
 Мир наизнанку. Бразилия / Світ навиворіт. Бразилія (2018) WEB-DLRip [H.264] (сезон 10, выпуски 1-37 из 37)
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801313.jpg" />
+  <img src="Z:/picture/008/save_picture_801313.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800700.jpg" />
+  <img src="Z:/picture/008/save_picture_800700.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800675.jpg" />
+  <img src="Z:/picture/008/save_picture_800675.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800670.jpg" />
+  <img src="Z:/picture/008/save_picture_800670.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800661.jpg" />
+  <img src="Z:/picture/008/save_picture_800661.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800517.jpg" />
+  <img src="Z:/picture/008/save_picture_800517.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800491.jpg" />
+  <img src="Z:/picture/008/save_picture_800491.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800467.jpg" />
+  <img src="Z:/picture/008/save_picture_800467.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800441.jpg" />
+  <img src="Z:/picture/008/save_picture_800441.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799640.jpg" />
+  <img src="Z:/picture/008/save_picture_799640.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799211.jpg" />
+  <img src="Z:/picture/008/save_picture_799211.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798818.jpg" />
+  <img src="Z:/picture/008/save_picture_798818.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797629.jpg" />
+  <img src="Z:/picture/008/save_picture_797629.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797604.jpg" />
+  <img src="Z:/picture/008/save_picture_797604.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797603.jpg" />
+  <img src="Z:/picture/008/save_picture_797603.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797602.jpg" />
+  <img src="Z:/picture/008/save_picture_797602.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797571.jpg" />
+  <img src="Z:/picture/008/save_picture_797571.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797481.jpg" />
+  <img src="Z:/picture/008/save_picture_797481.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796905.jpg" />
+  <img src="Z:/picture/008/save_picture_796905.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796696.jpg" />
+  <img src="Z:/picture/008/save_picture_796696.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795964.jpg" />
+  <img src="Z:/picture/008/save_picture_795964.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795552.jpg" />
+  <img src="Z:/picture/008/save_picture_795552.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794799.jpg" />
+  <img src="Z:/picture/008/save_picture_794799.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794427.jpg" />
+  <img src="Z:/picture/008/save_picture_794427.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B14E3453A72D8E47861912FC0E659CA58F206C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122724   (793506) от 06.04.2017
-
-Проводник (2017.04.04) SATRip (Сан-Франциско)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телекомпания: ПятницаЖанр: ТВ-Шоу, ПутешествияСубтитры: ОтсутствуютПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8CF9BB3F683905D905788C34A04A728E0E312A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273809   (792914) от 07.01.2019
-
-Джоанна Ламли на Шёлковом пути / Joanna Lumley's Silk Road Adventure (2018) HDTVRip [H.264/720p-LQ] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме «Джоанна Ламли на Шелковом пути» нас ждут Италия, Турция, Грузия, Иран, Албания и другие страны. Все они объединены тонкой нитью Шелкового пути. Каждая из них уникальна. Джоанне предстоит погрузиться в повседневную жизнь людей, культура которых кардинально отличается от привычных европейских ценностей. Нас ждут встречи с фермерами, охотниками, местными звездами (   Читать дальше...   )Производство: Великобритания, Paradise ProductionsЖанр: Документальный, приключения, историяРежиссер: Арчи БаронПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5180EA4C8B1D5631210E037EB5CFD85B0D89CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

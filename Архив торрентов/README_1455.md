@@ -6,7 +6,7 @@ Rectangle Pro 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722781.jpg" />
+  <img src="Z:/picture/008/save_picture_722781.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SiteSucker Pro 4.3.3 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722780.jpg" />
+  <img src="Z:/picture/008/save_picture_722780.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722765.jpg" />
+  <img src="Z:/picture/008/save_picture_722765.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Polymyth - Steliograph (2008) [FLAC|Lossless]<Trip Hop, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722750.jpg" />
+  <img src="Z:/picture/008/save_picture_722750.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ContaCam 9.9.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722740.jpg" />
+  <img src="Z:/picture/008/save_picture_722740.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AOMEI Backupper Technician Plus 5.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722731.jpg" />
+  <img src="Z:/picture/008/save_picture_722731.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Steinberg SpectraLayers Pro 7.0.0 Build 217 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722730.jpg" />
+  <img src="Z:/picture/008/save_picture_722730.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722729.jpg" />
+  <img src="Z:/picture/008/save_picture_722729.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Auslogics Windows Slimmer 2.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722727.jpg" />
+  <img src="Z:/picture/008/save_picture_722727.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722722.jpg" />
+  <img src="Z:/picture/008/save_picture_722722.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722721.jpg" />
+  <img src="Z:/picture/008/save_picture_722721.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ File Cabinet Pro 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722719.jpg" />
+  <img src="Z:/picture/008/save_picture_722719.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - #WeAreTrance #005-17-05 (Mixed by DJ T.H.) (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722717.jpg" />
+  <img src="Z:/picture/008/save_picture_722717.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722711.jpg" />
+  <img src="Z:/picture/008/save_picture_722711.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ TaskPaper 3.8.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722709.jpg" />
+  <img src="Z:/picture/008/save_picture_722709.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ NCH Doxillion Plus 5.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722706.jpg" />
+  <img src="Z:/picture/008/save_picture_722706.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Tower Pro 8 v8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722699.jpg" />
+  <img src="Z:/picture/008/save_picture_722699.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ GeoGebra 6.0.688.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722698.jpg" />
+  <img src="Z:/picture/008/save_picture_722698.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722692.jpg" />
+  <img src="Z:/picture/008/save_picture_722692.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Allavsoft Video Downloader Converter 3.17.1.6994 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722686.jpg" />
+  <img src="Z:/picture/008/save_picture_722686.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722679.jpg" />
+  <img src="Z:/picture/008/save_picture_722679.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Nothing But... Psy Trance Vol.08 (2019) [MP3|320 Kbps] <Psy-Trance, Psyched
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722677.jpg" />
+  <img src="Z:/picture/008/save_picture_722677.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Two Point Hospital v1.12.27083 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722673.jpg" />
+  <img src="Z:/picture/008/save_picture_722673.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ OBS Studio 22.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722671.jpg" />
+  <img src="Z:/picture/008/save_picture_722671.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Wondershare Filmora 9.5.2.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722640.jpg" />
+  <img src="Z:/picture/008/save_picture_722640.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ MAGIX Vegas Pro 18.0.0.284 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722638.jpg" />
+  <img src="Z:/picture/008/save_picture_722638.jpg" />
 </div>
 
 

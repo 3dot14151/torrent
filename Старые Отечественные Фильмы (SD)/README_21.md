@@ -1,3 +1,56 @@
+###  Публикация: 1196602   (820616) от 04.01.2018
+
+Еще до войны (1982) WEB-DLRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихо и мирно живет деревушка Улым. После службы в армии домой возвращается Анатолий Трифонов. Отец хочет, чтобы он срочно женился. В деревне много невест. Но из города приезжает племянница председателя, хрупкая и не похожая на других девушка Рая. Они полюбили друг друга. Однако жизнь распорядилась по-своему…Производство: СССРЖанр: МелодрамаРежиссер: Борис СавченкоАктеры: Александр Белина, Дарья Михайлова, Василий Петренко, Людмила Шевель, Ирина Жалыбина, Андрей Ярославцев, Николай Федорцов, Ольга Анохина, Юрий Гребенщиков, Лилия ГуроваСубтитры: ОтсутствуютПродолжительность: 01:04:45 + 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6050FAE9CCFE75C424A1ABF99F787D0D07662BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196784   (820614) от 04.01.2018
+
+Берег принцессы Люськи (1969) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телефильм по одноименному рассказу О.М.Куваева.
+В глухом лесу на берегу озера работает небольшая геологическая партия. Из Москвы к ним прилетает студентка-практикантка Люська и, шутя, объявляет себя королевой, а трех ребят - своими рыцарями…Производство: СССРЖанр: Мелодрама, комедияРежиссер: Вячеслав НикифоровАктеры: Светлана Смехнова, Виктор Мирошниченко, Андрей Подубинский, Валентин ТушенцевСубтитры: ОтсутствуютПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C9E4ABD600F1CD23DD5EDF8BFCA811B51E4603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366675   (820600) от 10.05.2020
 
 Освобожденная земля (1946) TVRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820600.jpg" />
+  <img src="Z:/picture/008/save_picture_820600.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818557.jpg" />
+  <img src="Z:/picture/008/save_picture_818557.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817573.jpg" />
+  <img src="Z:/picture/008/save_picture_817573.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817448.jpg" />
+  <img src="Z:/picture/008/save_picture_817448.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817439.jpg" />
+  <img src="Z:/picture/008/save_picture_817439.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817436.jpg" />
+  <img src="Z:/picture/008/save_picture_817436.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816764.jpg" />
+  <img src="Z:/picture/008/save_picture_816764.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815729.jpg" />
+  <img src="Z:/picture/008/save_picture_815729.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815701.jpg" />
+  <img src="Z:/picture/008/save_picture_815701.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815062.jpg" />
+  <img src="Z:/picture/008/save_picture_815062.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814914.jpg" />
+  <img src="Z:/picture/008/save_picture_814914.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813025.jpg" />
+  <img src="Z:/picture/008/save_picture_813025.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812891.jpg" />
+  <img src="Z:/picture/008/save_picture_812891.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810747.jpg" />
+  <img src="Z:/picture/008/save_picture_810747.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809990.jpg" />
+  <img src="Z:/picture/008/save_picture_809990.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808933.jpg" />
+  <img src="Z:/picture/008/save_picture_808933.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808023.jpg" />
+  <img src="Z:/picture/008/save_picture_808023.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807996.jpg" />
+  <img src="Z:/picture/008/save_picture_807996.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806796.jpg" />
+  <img src="Z:/picture/008/save_picture_806796.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805455.jpg" />
+  <img src="Z:/picture/008/save_picture_805455.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804960.jpg" />
+  <img src="Z:/picture/008/save_picture_804960.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804825.jpg" />
+  <img src="Z:/picture/008/save_picture_804825.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804820.jpg" />
+  <img src="Z:/picture/008/save_picture_804820.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803781.jpg" />
+  <img src="Z:/picture/008/save_picture_803781.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F839D9A10DA0F683F854D2A56EB3BEF8162C8F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 402878   (803301) от 21.05.2013
-
-Крепостная актриса (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803301.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам либретто Е. Геркена.
-Настя Батманова — бывшая крепостная, красавица, стала прославленной актрисой придворного театра. Посмотрев мир, завоевав Париж, она возвращается домой и попадает в роскошные залы особняка Кутайсова, в окружение дам и гусаров. Там она сталкивается с любовными переживаниями…Производство: СССР / ЛенфильмЖанр: Мюзикл, Комедия, МелодрамаРежиссер: Роман ТихомировАктеры: Тамара Семина, Евгений Леонов, Дмитрий Смирнов, Сергей Юрский, Гренада Мнацаканова, Александр Потапов, Сергей Филиппов, Гликерия Богданова-Чеснокова, Марина Полбенцева, Е. Орлов (II), Е. ЛемкеПродолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B886863E301FA5A59E8DC851214D6DFC89D62D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199587   (800351) от 17.01.2018
-
-Моя жена – бабушка (1976) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лирическая комедия по мотивам рассказа эстонского писателя Эрни Крустена "Новорожденный".
-Главный герой -учитель - все свое свободное время посвящает сочинительству. До поры до времени домочадцы относились к нему с трепетом и бережно оберегали его покой, чтобы случайно не спугнуть вдохновение. Но в один прекрасный день в семье появился младенец, сразу же (   Читать дальше...   )Производство: СССР / ТаллинфильмЖанр: КомедияРежиссер: Вирве АруояАктеры: Аарне Юкскюла, Ита Эвер, Раили Джоеаар, Лембит Ульфсак, Анне Веэсаар, Мартин Вейнманн, Лиина Рандмаа, Лембит ПетерсонСубтитры: Эстонские (вшитые не отключаемые)Продолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2805E32FB907698A2E58D9FBAE411CB54625A50B
 ```
 
 https://mybot314.ru/tekegram_catalog/

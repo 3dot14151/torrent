@@ -1,3 +1,107 @@
+###  Публикация: 1240486   (528540) от 11.08.2018
+
+Сезон чудес / The Miracle Season  (2018) BDRemux [H.264/1080p] [EN, Fr / EN, Fr Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда юных волейболисток обескуражена гибелью своего звёздного капитана Каролины. Её лучшей подруге Кэлли нужно набраться мужества, чтобы занять место капитана и под руководством сурового, но любящего тренера пробиться на престижный чемпионат.Производство: США / LD Entertainment, Apex EntertainmentЖанр: драма, спортРежиссер: Шон МакНамараАктеры: Хелен Хант, Эрин Мориарти, Уильям Хёрт, Даника Ярош, Джейсон Грей-Стенфорд, Тиера Сковбай,  Неста Купер, Баркели Даффилд, Джиллиан ФергейПеревод: ОтсутствуетЯзык озвучки: Английский, французскийСубтитры: английские, французскиеПродолжительность: 01:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49978F22AC8D48D2980FB952C6BE607E27341B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240366   (528535) от 11.08.2018
+
+Опасное расследование (Шок и трепет) /  Shock and Awe (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528535.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о военной кампании США по вторжению в Ирак под предлогом обнаружения там оружия массового поражения. Операция, получившая неофициальное название «Шок и трепет», началась 20 марта 2003 года с целью свержения режима Саддама Хуссейна и растянулась на долгие 9 лет.Производство: США / Acacia Filmed Entertainment, Castle Rock Entertainment, Savvy Media HoldingsЖанр: триллер, драма, биография, историяРежиссер: Роб РайнерАктеры: Вуди Харрельсон, Джеймс Марсден, Роб Райнер, Томми Ли Джонс, Джессика Бил, Милла Йовович, Ричард Шифф,  Терренс Розмор, Марго Мурер, Майкл Хардинг, Кейт БатлерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF48A5D05F555E5C8C042CB5244D6AF74A7127F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240333   (528527) от 11.08.2018
+
+Небоскреб / Skyscraper (2018) WEBRip [H.264/720p-LQ] [EN / KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США, Legendary Entertainment, Flynn Picture Company, Seven Bucks ProductionsЖанр: Боевик, ТриллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чин Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна Куинливан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAE13953F56497D8A815598DBE220A4D945C62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240398   (528478) от 11.08.2018
+
+Небоскреб / Skyscraper (2018) WEBRip [H.264/1080p-LQ] [EN / EN, KOR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый высокий и технологичный небоскрёб в мире становится центром огненной катастрофы. Только бывший агент ФБР, а теперь эксперт по безопасности Уилл Сойер может спасти вертикальный город под небесами. Когда нельзя доверять никому, а жизнь семьи в опасности, каждая секунда на счету.Производство: США, Legendary Entertainment, Flynn Picture Company, Seven Bucks ProductionsЖанр: Боевик, ТриллерРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Нив Кэмпбелл, Чин Хань, Роланд Мюллер, Ноа Тейлор, Байрон Манн, Пабло Шрайбер, МакКенна Робертс, Ной Коттрелл, Ханна Куинливан ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Корейские (вшитые, не отключаемые)Продолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21890C0A7DA066F8EA5D85AA1641E19791FA9388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240110   (528469) от 11.08.2018
 
 Дэдпул 2 / Deadpool 2 (2018) BDRip [H.264/1080p] [Unrated] [EN / RU, EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528469.jpg" />
+  <img src="Z:/picture/008/save_picture_528469.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528465.jpg" />
+  <img src="Z:/picture/008/save_picture_528465.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528006.jpg" />
+  <img src="Z:/picture/008/save_picture_528006.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527860.jpg" />
+  <img src="Z:/picture/008/save_picture_527860.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527593.jpg" />
+  <img src="Z:/picture/008/save_picture_527593.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527570.jpg" />
+  <img src="Z:/picture/008/save_picture_527570.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527527.jpg" />
+  <img src="Z:/picture/008/save_picture_527527.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527479.jpg" />
+  <img src="Z:/picture/008/save_picture_527479.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527129.jpg" />
+  <img src="Z:/picture/008/save_picture_527129.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526912.jpg" />
+  <img src="Z:/picture/008/save_picture_526912.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526869.jpg" />
+  <img src="Z:/picture/008/save_picture_526869.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526867.jpg" />
+  <img src="Z:/picture/008/save_picture_526867.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525101.jpg" />
+  <img src="Z:/picture/008/save_picture_525101.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524258.jpg" />
+  <img src="Z:/picture/008/save_picture_524258.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524246.jpg" />
+  <img src="Z:/picture/008/save_picture_524246.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524242.jpg" />
+  <img src="Z:/picture/008/save_picture_524242.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524172.jpg" />
+  <img src="Z:/picture/008/save_picture_524172.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523578.jpg" />
+  <img src="Z:/picture/008/save_picture_523578.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522764.jpg" />
+  <img src="Z:/picture/008/save_picture_522764.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522641.jpg" />
+  <img src="Z:/picture/008/save_picture_522641.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519968.jpg" />
+  <img src="Z:/picture/008/save_picture_519968.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519882.jpg" />
+  <img src="Z:/picture/008/save_picture_519882.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7253F1CA37375D5E1C473E852555E7400088F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241690   (519072) от 18.08.2018
-
-Отпуск / Furlough  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николь Стивенс, новичок на своей должности тюремного охранника. И именно по этой причине, она старается из всех возможных сил, утвердить свое положение, как опытного работника. Женщина ищет пути проявления своей ответственности и серьезности к делу. К счастью для героини, судьба решает ей помочь в этом деле, путем одного ответственного и необычного задания. Начальство, (   Читать дальше...   )Производство: США / EFC Films, Furlough ProductionsЖанр: комедияРежиссер: Лори КолльеАктеры: Мелисса Лео, Тесса Томпсон, Эдгар Рамирес, Эрик Гриффин, Дрена Де Ниро, Ла Ла Васкес, Дэмиен Лемон, Сюзанн Шеперд, Майкл Чернус, Долли Уэллс, Анна Пэкуин, Вупи ГолдбергПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD867B6290FF7E5DA75B384310B3A4E88DCC1455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241661   (518987) от 18.08.2018
-
-Дневник пастыря (Первая реформатская церковь) / First Reformed (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Толлер, страдающий от потери сына в Ираке и последовавшего развода, ищет утешения под сводами церкви и в алкоголе. Молодая прихожанка Мэри обращается к нему с просьбой поговорить с её мужем, экологом-активистом. А когда тот кончает жизнь самоубийством, Толлер никак не может выкинуть из головы беседу с ним и начинает читать в интернете про загрязнение (   Читать дальше...   )Производство: США / Killer Films, Fibonacci Films, Arclight Films, Big Indie Pictures, Omeira Studio PartnersЖанр: триллер, драмаРежиссер: Пол ШредерАктеры: Аманда Сайфред, Итан Хоук, Майкл Гэстон, Виктория Хилл, Ван Хэнсис, Филип Эттинджер, Билл Хоаг, Кристин Вильянуэва, Гари Махмуд, Кристина Алабадо, Сэтчел Иден БеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4E2D477802479945258E8C8D27C050DB286699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241670   (518984) от 18.08.2018
-
-Ты водишь! / Tag  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год в течение месяца пятеро друзей участвуют в беспощадно навороченной версии игры в кошки-мышки. Они играют в нее с первого класса, чтобы, рискуя собственной шеей, работой и отношениями, одолеть противника с победоносным криком: «Ты водишь!»
-В этом году кошки-мышки приходятся на свадьбу единственного непобежденного игрока, что должно сделать из него легкую (   Читать дальше...   )Производство: США / Broken Road Productions, New Line CinemaЖанр: комедияРежиссер: Джефф ТомсичАктеры: Эд Хелмс, Джереми Реннер, Джон Хэмм, Джейк Джонсон, Хэннибал Бёресс, Аннабелль Уоллис, Айла Фишер, Рашида Джонс, Лил Релл, Нора ДаннПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанские, португальскиеПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD899FE2E77A9560CC15A74FD5162FC12E115EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241721   (518983) от 18.08.2018
-
-Единственный живой парень в Нью-Йорке / The Only Living Boy in New York  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень узнает, что его отец ходит на сторону. Он пытается это прекратить, но сам попадает в сети любовницы. Теперь, иcпользуя «полезные» советы соседей, он попытается завоевать ее сердце.Производство: США / Amazon Studios, Bona Fide Productions, Big Indie PicturesЖанр: драмаРежиссер: Марк УэббАктеры: Каллум Тернер, Джефф Бриджес, Кейт Бекинсейл, Пирс Броснан, Синтия Никсон, Кирси Клемонс, Тейт Донован, Уоллес Шоун, Ан Дуонг, Деби Мейзар, Бен Холландсворт, Джон БолджерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B135332E5C7B8690B7673CD301AF8966043CD168
 ```
 
 https://mybot314.ru/tekegram_catalog/

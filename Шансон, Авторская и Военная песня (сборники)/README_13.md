@@ -1,3 +1,32 @@
+###  Публикация: 1022338   (728998) от 02.06.2016
+
+Таня Лебединская - Ты мною дорожишь (2001) [MP3|256 кб/с] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глашатаи любви
+02. Быть второй
+03. Шахерезада
+04. Ты мною дорожишь(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADCF30513A63FB868151C28F0CD9345B4FF2CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022500   (728706) от 02.06.2016
 
 VA - Фестиваль лучших хитов от радио Шансон (2016) [MP3|256 кб/с] <Chanson>
@@ -6,7 +35,7 @@ VA - Фестиваль лучших хитов от радио Шансон (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728706.jpg" />
+  <img src="Z:/picture/008/save_picture_728706.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728288.jpg" />
+  <img src="Z:/picture/008/save_picture_728288.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Блатная жизнь с радио Шансон. Летний выпу
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727697.jpg" />
+  <img src="Z:/picture/008/save_picture_727697.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Мы с тобой (2016) [MP3|256 кб/с] <Chanson, Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726674.jpg" />
+  <img src="Z:/picture/008/save_picture_726674.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Райские напевы №12, Песни 60-70 х гг (1960-1970 г) 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725859.jpg" />
+  <img src="Z:/picture/008/save_picture_725859.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Весенний хит-парад на радио Шансон. Выпус
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724668.jpg" />
+  <img src="Z:/picture/008/save_picture_724668.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Весенний хит русского шансона. Сборник №
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724652.jpg" />
+  <img src="Z:/picture/008/save_picture_724652.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Best-of-ka от радио Шансон выпуск № 2 (2017) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724645.jpg" />
+  <img src="Z:/picture/008/save_picture_724645.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Любимые песни шансона на стильном радио. 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724532.jpg" />
+  <img src="Z:/picture/008/save_picture_724532.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Козырная песня. Версия № 10 (2017) [MP3|256 Kbps] <Ш�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724368.jpg" />
+  <img src="Z:/picture/008/save_picture_724368.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Удачной дороги. Любимые хиты шансона (5) (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723212.jpg" />
+  <img src="Z:/picture/008/save_picture_723212.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Удачной дороги. Любимые хиты шансона (4) (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723207.jpg" />
+  <img src="Z:/picture/008/save_picture_723207.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Удачной дороги. Любимые хиты шансона (3) (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723111.jpg" />
+  <img src="Z:/picture/008/save_picture_723111.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Удачной дороги. Любимые хиты шансона (6) (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723020.jpg" />
+  <img src="Z:/picture/008/save_picture_723020.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Лучший русский шансон выпуск № 11 (2017) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720711.jpg" />
+  <img src="Z:/picture/008/save_picture_720711.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Позитивный заряд Шансона. (Часть 3) (2016) [MP3|
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718138.jpg" />
+  <img src="Z:/picture/008/save_picture_718138.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Хит сезона  радио Шансон (2016) [MP3|256 кб/с] <Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718045.jpg" />
+  <img src="Z:/picture/008/save_picture_718045.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Душевный шансон в хорошей компании (2) (2018)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717519.jpg" />
+  <img src="Z:/picture/008/save_picture_717519.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Душевный шансон в хорошей компании (2018) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717515.jpg" />
+  <img src="Z:/picture/008/save_picture_717515.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Душевный сборник радио Шансон (2018) [MP3|256 Kbp
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717309.jpg" />
+  <img src="Z:/picture/008/save_picture_717309.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Весенний хит русского шансона. Часть № 7 (
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716664.jpg" />
+  <img src="Z:/picture/008/save_picture_716664.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Шальной шансон в дорогу. Версия № 8 (2017) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716649.jpg" />
+  <img src="Z:/picture/008/save_picture_716649.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Весенний хит-парад от радио Шансон выпус�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716522.jpg" />
+  <img src="Z:/picture/008/save_picture_716522.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - 100-ка блатных душевных песен (2017) [MP3|256 Kbps] <
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716516.jpg" />
+  <img src="Z:/picture/008/save_picture_716516.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Песни для души от радио Шансон Выпуск № 4 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716421.jpg" />
+  <img src="Z:/picture/008/save_picture_716421.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Песни для души от радио Шансон Выпуск № 4 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E4B88F12CB227430A1A1416B98BCF86A765BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219192   (715728) от 13.04.2018
-
-VA - Душевный шансон в хорошей компании (4) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715728.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Андрей Калинин & Кристина Калинина - Я Тебя Люблю
-002. Игорь Махачкалинский - Яхта Белоснежная
-003. Вадим Южный - Васильки
-004. Михаил Княжевич - Ты Моя Судьба(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D578409DF6FFDCDD94526380F44E503744F593B
 ```
 
 https://mybot314.ru/tekegram_catalog/

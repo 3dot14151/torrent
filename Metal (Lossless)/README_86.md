@@ -1,3 +1,90 @@
+###  Публикация: 1212193   (776555) от 10.03.2018
+
+Lady Beast - II (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Metal Destiny (04:38)
+02. We Are The Witches (04:17)
+03. Bind The Runes (04:31)
+04. Caged Fury (03:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D16FCEE5B1E9A6F376AC38C2475C3248715866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212000   (776550) от 10.03.2018
+
+Bloodhunter - The End of Faith (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forbidden Zone
+02. The End of Faith
+03. Eyes Wide Open
+04. Still Standing Up(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B893CCDA67BA326B21692A04D59023D772A3C143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212002   (776549) от 10.03.2018
+
+Defecto - Nemesis (2017) Japan, Reissued, 2018 [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Night of Silence
+02. Nemesis
+03. Endlessly Falling
+04. Savage(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE70865EFBFD33E0BC60BBF705A66ED0D8E8E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212008   (776546) от 10.03.2018
 
 Lords Of The Trident - Frostburn (2015) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -6,7 +93,7 @@ Lords Of The Trident - Frostburn (2015) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776546.jpg" />
+  <img src="Z:/picture/008/save_picture_776546.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Necrophobic - Mark of the Necrogram (2018) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776540.jpg" />
+  <img src="Z:/picture/008/save_picture_776540.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tribulation - Down Below (2018) Japan [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776538.jpg" />
+  <img src="Z:/picture/008/save_picture_776538.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Motorhead - Tear Ya Down: The Rarities (2002) 2CD [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776514.jpg" />
+  <img src="Z:/picture/008/save_picture_776514.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Judas Priest - Firepower (2018) Deluxe, Limited, Special Edition [WavPack|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776419.jpg" />
+  <img src="Z:/picture/008/save_picture_776419.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Cloudscape - Voice Of Reason (2016) [FLAC|Lossless|image + .cue] <Progressive, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776193.jpg" />
+  <img src="Z:/picture/008/save_picture_776193.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Elvenstorm - Blood Leads To Glory (2014) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775825.jpg" />
+  <img src="Z:/picture/008/save_picture_775825.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Ark Storm - 5 albums (2002 - 2018) 4 Full-lenght albums + 1 Compilation [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775220.jpg" />
+  <img src="Z:/picture/008/save_picture_775220.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Pillorian - Obsidian Arc (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775172.jpg" />
+  <img src="Z:/picture/008/save_picture_775172.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Panikos - Eclipse I (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775171.jpg" />
+  <img src="Z:/picture/008/save_picture_775171.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Watch Them Die - Bastard Son (2005) [APE|Lossless|image + .cue] <Thrash Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775170.jpg" />
+  <img src="Z:/picture/008/save_picture_775170.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Enchained Souls - In Memoriam (2010) [FLAC|Lossless|image + .cue] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775169.jpg" />
+  <img src="Z:/picture/008/save_picture_775169.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Zaphyria - Hate and War (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775168.jpg" />
+  <img src="Z:/picture/008/save_picture_775168.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Obscura - Akroasis (2016) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775162.jpg" />
+  <img src="Z:/picture/008/save_picture_775162.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Oni - Ironshore (2016) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Dj
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773528.jpg" />
+  <img src="Z:/picture/008/save_picture_773528.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Motley Crue - Shout At The Devil (1983) Japan +5 Bonus Track [APE|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773352.jpg" />
+  <img src="Z:/picture/008/save_picture_773352.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Ottone Pesante - Apocalips (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773304.jpg" />
+  <img src="Z:/picture/008/save_picture_773304.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Mastodon - Radio Sampler (2006) Promo, Sampler [FLAC|Lossless|tracks + .cue] <Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773302.jpg" />
+  <img src="Z:/picture/008/save_picture_773302.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Clandestine Blaze - Tranquility of Death (2018) [FLAC|Lossless|tracks + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773301.jpg" />
+  <img src="Z:/picture/008/save_picture_773301.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ Hatebreed - The Concrete Confessional (2016) [FLAC|tracks|WEB-DL]<Hardcore, Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771486.jpg" />
+  <img src="Z:/picture/008/save_picture_771486.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ DevilDriver - Trust No One (2016) Limited Edition [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771462.jpg" />
+  <img src="Z:/picture/008/save_picture_771462.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Otargos - Heretic Live (2011) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768819.jpg" />
+  <img src="Z:/picture/008/save_picture_768819.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Alcest - Kodama (2016) Luxus Edition [FLAC|Lossless|tracks + .cue] <Blackgaze, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768533.jpg" />
+  <img src="Z:/picture/008/save_picture_768533.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ Alcest - Kodama (2016) Luxus Edition [FLAC|Lossless|tracks + .cue] <Blackgaze, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B16A347425679E659A9975AB3294CD1E1B7276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125484   (768120) от 15.04.2017
-
-Otargos - Apex Terror (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apex Terror
-02. Fleshless-Deathless
-03. For Terra
-04. Remnant from a Long-Dead Star(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FE860C08CDF94AC79E7B5DC9D98B276192CE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125433   (768100) от 15.04.2017
-
-Black Oath - The Third Aeon (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death as Liberation 08:09
-02. Growth of a Star Within 07:36
-03. The 3rd Aeon 03:04
-04. Evil Sorcerer 07:04(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352DAAD3144886069652EE3D598224F58C3A660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125605   (767933) от 15.04.2017
-
-Ayreon - The Source (2017) Promo, 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767933.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Ayreon" является, по существу, сольным проектом талантливого нидерландского мультиинструменталиста и композитора Арьена Энтони Лукассена. Все остальные музыканты и вокалисты, участвовавшие в записи альбомов "Айреона" – сессионные. Свою деятельность Лукассен начал в 80-х годах, подвизаясь в малоизвестных командах "Bodine" и "Vengeance". (   Читать дальше...   )01. The Day That The World Breaks Down (12:31)
-02. Sea Of Machines (5:09)
-03. Everybody Dies (4:43)
-04. Star Of Sirrah (7:04)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FCD28AB4261F05E6606DCBA05EAA6D95D287E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

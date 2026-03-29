@@ -1,3 +1,90 @@
+###  Публикация: 1414918   (381601) от 10.10.2020
+
+Rise to the Sky - Will Not Keep Us Apart (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From the Distance [00:05:25]
+02. Pain and Blood [00:04:04]
+03. Together in the Grave [00:05:47]
+04. When Death Comes [00:06:47](   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BCF9011337580C9F429C616359185EEF5146EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574880   (381542) от 07.09.2022
+
+Burning Point - The Blaze (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Them All
+02. Time Has Come
+03. Incarnation
+04. My Spirit(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9D408BACE196B3AEFA322BA24F94B2361B4266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414756   (381455) от 10.10.2020
+
+Saltatio Mortis - Für immer frei (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ein Traum von Freiheit [00:01:30]
+02. Bring mich zurück [00:03:37]
+03. Loki [00:03:56]
+04. Linien im Sand [00:03:21](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B1883B864CAA0A77847A27382488A9F7B18046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414737   (381426) от 10.10.2020
 
 Motorhead - On Parole (1979) Expanded and Remastered, 2020, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Motorhead - On Parole (1979) Expanded and Remastered, 2020, Parlophone UK [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381426.jpg" />
+  <img src="Z:/picture/008/save_picture_381426.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Apocalypse Orchestra - The End Is Nigh (2017) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381089.jpg" />
+  <img src="Z:/picture/008/save_picture_381089.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Devin Townsend - Unplugged (2011) EP [FLAC|Lossless|tracks + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380747.jpg" />
+  <img src="Z:/picture/008/save_picture_380747.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sirenia - Nine Destinies and a Downfall (2007) [FLAC|Lossless|tracks + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380736.jpg" />
+  <img src="Z:/picture/008/save_picture_380736.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Old Man’s Child - 8 альбомов (1994 - 2009) Discography [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380596.jpg" />
+  <img src="Z:/picture/008/save_picture_380596.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Galleiria - Betrayal (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379506.jpg" />
+  <img src="Z:/picture/008/save_picture_379506.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Garden Of Shadows - Oracle Moon (2000) [FLAC|Lossless|image + .cue] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379505.jpg" />
+  <img src="Z:/picture/008/save_picture_379505.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Garden Of Shadows - Heart Of The Corona (1997) (EP) Reissue, 1998, X-Rated Recor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379504.jpg" />
+  <img src="Z:/picture/008/save_picture_379504.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Khold - Svartsyn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379502.jpg" />
+  <img src="Z:/picture/008/save_picture_379502.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Eruption - Cloaks Of Oblivion (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379501.jpg" />
+  <img src="Z:/picture/008/save_picture_379501.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Aeternam - Heir of the Rising Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379499.jpg" />
+  <img src="Z:/picture/008/save_picture_379499.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Eruption - Tenses Collide (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379498.jpg" />
+  <img src="Z:/picture/008/save_picture_379498.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Harlequin - Origin of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379426.jpg" />
+  <img src="Z:/picture/008/save_picture_379426.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Eruption - Lifeless Paradise (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379420.jpg" />
+  <img src="Z:/picture/008/save_picture_379420.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Eruption - Cloaks Of Oblivion (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379416.jpg" />
+  <img src="Z:/picture/008/save_picture_379416.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Horizon Ignited - After the Storm (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379414.jpg" />
+  <img src="Z:/picture/008/save_picture_379414.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Defacing God - The Resurrection Of Lilith (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379412.jpg" />
+  <img src="Z:/picture/008/save_picture_379412.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Horizon Ignited - Towards The Dying Lands (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379407.jpg" />
+  <img src="Z:/picture/008/save_picture_379407.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Squealer - Behind Closed Doors (2018) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379402.jpg" />
+  <img src="Z:/picture/008/save_picture_379402.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Grave Digger - Symbol of Eternity (2022) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379400.jpg" />
+  <img src="Z:/picture/008/save_picture_379400.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Eruption - Tellurian Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379397.jpg" />
+  <img src="Z:/picture/008/save_picture_379397.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Fog of Marina - Fog of Marina (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379256.jpg" />
+  <img src="Z:/picture/008/save_picture_379256.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Living Darkness - The Bishop (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379253.jpg" />
+  <img src="Z:/picture/008/save_picture_379253.jpg" />
 </div>
 
 
@@ -658,91 +745,6 @@ Living Darkness - The Bishop (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B47FCB67D24B7C3079C89A92F1DBD8B836416A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415241   (379252) от 11.10.2020
-
-IN CAUDA VENENUM - G​.​O​.​H​.​E. (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malédiction (feat. N.K.L.S & Ictus) [00:22:15]
-02. Délivrance (feat. N.K.L.S & Ictus) [00:21:41]Жанр: Black Metal, Post RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87982DFCAA83D3E43AA73FF9E1F8552413A5F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415174   (379243) от 11.10.2020
-
-Warbringer - Weapons Of Tomorrow (2020) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379243.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Firepower Kills
-02. The Black Hand Reaches Out
-03. Crushed Beneath The Tracks(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E106E3BF85D93C2755A7B0ED42B33908642789E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415327   (379119) от 11.10.2020
-
-Neander - 1 Album / 1 Single (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Doom-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purpur (Prelude) [00:02:35]
-02. Purpur [00:08:01]
-03. Eremit [00:07:34]
-04. Ora [00:08:10](   Читать дальше...   )Жанр: Post-Metal, Doom-MetalПродолжительность: 2 CD, 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DF750D0FA02D63750EFEA8CF1176F6A588FFC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

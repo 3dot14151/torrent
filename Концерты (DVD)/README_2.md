@@ -6,7 +6,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906622.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Gary Moore & The Midnight Blues - Live at Montreux 1990 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902689.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901872.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885421.jpg" />
+  <img src="Z:/picture/005/save_picture_885421.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883182.jpg" />
+  <img src="Z:/picture/005/save_picture_883182.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Mariza - Concerto em Lisboa / Live at Lisbon  (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875637.jpg" />
+  <img src="Z:/picture/005/save_picture_875637.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863578.jpg" />
+  <img src="Z:/picture/008/save_picture_863578.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Metallica - The Videos 1989-2004 (2006) DVD9 [ISO]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860545.jpg" />
+  <img src="Z:/picture/008/save_picture_860545.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ V/A Мелодии и Ритмы Зарубежной Эстрады (2009-2010)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852360.jpg" />
+  <img src="Z:/picture/008/save_picture_852360.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Jackie Evancho - Music Of The Movies (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851098.jpg" />
+  <img src="Z:/picture/008/save_picture_851098.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Beth Hart / 37 Days (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850994.jpg" />
+  <img src="Z:/picture/008/save_picture_850994.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Klaus Schulze feat. Lisa Gerrard - Dziekuje Bardzo (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849864.jpg" />
+  <img src="Z:/picture/008/save_picture_849864.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Blackmore's Night - The Beginning Box(2012) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847089.jpg" />
+  <img src="Z:/picture/008/save_picture_847089.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842289.jpg" />
+  <img src="Z:/picture/008/save_picture_842289.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ George Michael - Twenty Five (2006) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839796.jpg" />
+  <img src="Z:/picture/008/save_picture_839796.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838442.jpg" />
+  <img src="Z:/picture/008/save_picture_838442.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838344.jpg" />
+  <img src="Z:/picture/008/save_picture_838344.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837001.jpg" />
+  <img src="Z:/picture/008/save_picture_837001.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ WINX CLUB IN CONCERTO / Клуб Винкс - Школа волшебниц. К�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836495.jpg" />
+  <img src="Z:/picture/008/save_picture_836495.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ UFO -Rockpalast. Hardrock Legends Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833875.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833702.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Manfred Mann's Earth Band-Watch The DVD (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833590.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mark Knopfler: A night in London (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830337.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826153.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Masters Of The Country Blues: / Son House & Bukka White - 1960 (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817957.jpg" />
+  <img src="Z:/picture/008/save_picture_817957.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815005.jpg" />
+  <img src="Z:/picture/008/save_picture_815005.jpg" />
 </div>
 
 

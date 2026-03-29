@@ -1,3 +1,186 @@
+###  Публикация: 1655721   (193700) от 27.08.2023
+
+Koplayer 2.0.0 [Multi]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193700.jpg" />
+</div>
+
+
+###  Подробнее
+
+KOPLAYER – эмулятор, дающий возможность "развернуть" на десктопном компьютере с Windows полноценную среду для запуска Android игр и приложений. Программа может работать в двух режимах: в режиме максимальной производительности и максимальной совместимости. Как не трудно догадаться, в первом эмуляторе поможет достичь максимального показателя FPS в играх, (   Читать дальше...   )Язык интерфейса: Английский, Индонезийский, Тайский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0F1C46E74E0F654545715C48A619C95714A576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827745   (193355) от 23.10.2025
+
+OrcaSlicer 2.3.1 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193355.jpg" />
+</div>
+
+
+###  Подробнее
+
+OrcaSlicer изначально форк из Bambu Studio, ранее он был известен как BambuStudio-SoftFever.
+OrcaSlicer - популярный слайсер для 3d-печати. Отлично подходит для разнообразного зоопарка принтеров, имеет готовые шаблоны для печати и дружелюбный интерфейс.Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2EC8F8A4CB84CE0BFB894415D8889FAB7CE0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827476   (188097) от 21.10.2025
+
+VirtualBox 7.2.4 Build 170995 + Extension Pack [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle VM VirtualBox является многофункциональным инструментом для создания изолированных виртуальных машин, предлагает высокую производительность, а также является единственным профессиональным решением, которое находится в свободном доступе с открытым исходным кодом на условиях GNU General Public License (GPL) v.2Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681753EE1F46273E1BA601C5D889012E0C12B3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665707   (181072) от 01.10.2023
+
+Materialise Magics 27.0 [Multi]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magics — профессиональное программное обеспечение бельгийского гиганта Materialise, предназначенное для подготовки данных (модели) к 3D-печати, а также управления эффективностью на протяжение всего процесса аддитивного производства от импорта данных до постобработки.Язык интерфейса: Английский, Французский, Немецкий и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28778513A0DC6248EA1977833C3AADAE3F897C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593695   (179569) от 28.11.2022
+
+WimBuilder2 Full x86-x64 v2022.02.02 Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179569.jpg" />
+</div>
+
+
+###  Подробнее
+
+WimBuilder2 Full — это легкий редактор wim-файлов с открытым исходным кодом, мощный, полностью настраиваемый и простой в использовании. Основанный на технологии сценариев GUI, удобный для пользователя и бесконечно расширяемый. Может работать на вашем рабочем столе в Windows, WinPE (среда предустановки Windows). Он будет использовать команду Dism для автоматического (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0769BE4567B95EC63499E6B9463370F5C2C179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667244   (177346) от 07.10.2023
+
+App Builder 2023.61 (x64) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177346.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E12F8897445FE6AAED58FB115A363A7FCFE2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667607   (176552) от 08.10.2023
+
+App Builder 2023.61 (x64) Portable by FC Portables [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176552.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Builder позволяет создавать приложения для смартфонов и гибридные приложения на HTML5 даже без знания языков программирования. И все это благодаря визуальной среде, которая позволяет простым перемещением и добавлением элементов создавать настоящие шедевры. Несмотря на то, что главная идея App Builder – позволить создавать приложения даже тем пользователям, которые (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88497EBC1F2F4E287E90F3CE102EC22BA88CFD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430162   (174291) от 09.12.2020
 
 MapleSoft MapleSim 2020.1 [En]
@@ -6,7 +189,7 @@ MapleSoft MapleSim 2020.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174291.jpg" />
+  <img src="Z:/picture/004/save_picture_174291.jpg" />
 </div>
 
 
@@ -32,7 +215,7 @@ WinToHDD 6.2 Technician Portable by FC Portables [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171150.jpg" />
 </div>
 
 
@@ -58,7 +241,7 @@ Oracle 10g Enterprise Edition 10.2.0 [Английский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168032.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ Wolfram SystemModeler 13.0.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163313.jpg" />
 </div>
 
 
@@ -110,7 +293,7 @@ InstallShield 2019 R3 Premier Edition 25.0.764.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154895.jpg" />
 </div>
 
 
@@ -136,7 +319,7 @@ SMath Studio Desktop 1.0.8348 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151738.jpg" />
 </div>
 
 
@@ -162,7 +345,7 @@ Genymotion 2.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137255.jpg" />
 </div>
 
 
@@ -189,7 +372,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136916.jpg" />
 </div>
 
 
@@ -215,7 +398,7 @@ VMware Workstation Pro 25H2 25.0.0.24995812 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136833.jpg" />
 </div>
 
 
@@ -241,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122636.jpg" />
 </div>
 
 
@@ -268,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119739.jpg" />
 </div>
 
 
@@ -295,7 +478,7 @@ VMware vCenter Converter Standalone 6.6.0 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115757.jpg" />
 </div>
 
 
@@ -323,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115414.jpg" />
 </div>
 
 
@@ -349,7 +532,7 @@ StatSoft STATISTICA 8.0.725 [Eng]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89550.jpg" />
 </div>
 
 
@@ -377,7 +560,7 @@ GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83194.jpg" />
 </div>
 
 
@@ -407,7 +590,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79907.jpg" />
 </div>
 
 
@@ -435,7 +618,7 @@ Simatic WinCC v7.0 SP3 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79296.jpg" />
 </div>
 
 
@@ -466,7 +649,7 @@ Macromedia HomeSite 5.5 [Русский]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78682.jpg" />
 </div>
 
 
@@ -492,7 +675,7 @@ QIAGEN CLC Genomics Workbench 25.0.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63928.jpg" />
 </div>
 
 
@@ -503,192 +686,6 @@ CLC Genomics Workbench — это комплексный аналитическ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0CE74AC32277E2F20D4CC354B22F1F8A033632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716994   (59409) от 17.04.2024
-
-Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Images Date Selector (WIDS) - утилита для смены даты создания/изменения/времени на любую вами выбранную в файлах .WIM/.ESD/.SWM находящихся в ISO-образах. WIDS изменяет значения как для всех редакций, так и каждой по отдельности, путём установки/снятия соответствующих галочек. Утилита проще некуда и думаю в описании не нуждается.Язык интерфейса: не полностью Русский и Английский одновременно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFC663BEDC983FA50D122F38F09B7FDBB0C7543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717975   (58913) от 22.04.2024
-
-Bizagi Modeler 4.0.0.128 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bizagi Modeler — это бесплатное программное обеспечение для составления карт бизнес-процессов и моделей в нотации BPMN.
-
-Программный продукт Bizagi Modeler (рус. Бизаги Моделер) от компании Bizagi позволяет создавать и документировать бизнес-процессы в центральном облачном хранилище, чтобы лучше управлять повседневной работой компании и определить возможности улучшения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810CEB51DB64A82D2DE4E076D3509D24BF934F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721746   (57258) от 08.05.2024
-
-Nox App Player 7.0.6.0007 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмулятор Nox App Player работает на версии Android 5 / 7 / 9. Внутри Nox App Player предустановлен каталог Google Play, который упрощает установку программ, игр и прочего контента. Помимо этого, Nox App Player поддерживает ввод не только с клавиатуры, или мыши, но и с геймпадов и других игровых контроллеров, поэтому он отлично подойдет для геймеров. Также в Nox App (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55513E0E172CD4BE1DF076EA3BD746E1909F11F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723700   (53911) от 09.06.2024
-
-VMware Workstation Player 17.5.2 Build 23775571 Free [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53911.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation Player (ранее VMware Player) - виртуальная система для запуска нескольких операционных систем одновременно на вашем компьютере.
-Благодаря интуитивно понятному интерфейсу, VMware Workstation Player позволяет легко установить и попробовать Windows 10 и другие версии, Chrome OS или последние сборки Linux, создавать изолированные виртуальные машины (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731618   (52631) от 21.06.2024
-
-Android Studio Koala | 2024.1.1 Build #AI-241.15989.150.2411.11948838 + Portable [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Studio - полностью укомплектованная платформа для разработки и тестирования приложений под операционную систему Android. Разработчики этой оболочки (компания Google) внедрили весь необходимый инструментарий для удобного и качественного проектирования новых приложений и доработки существующих. Программа включает в себя такие компоненты как Android SDK, все (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5A2D3C921AA54E2130AE6382AEF08C49FED8AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732808   (51942) от 26.06.2024
-
-MEmu 9.1.5.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51942.jpg" />
-</div>
-
-
-###  Подробнее
-
-MEmu — эмулятор устройств под управлением операционных систем Android. Разработчики компании Microvirt предлагают пользователям всего мира совершенно бесплатно использовать для эмуляции данный продукт.
-MEmu позволит играть в любимые игры на персональном компьютере управляя мышкой, а также пользоваться огромным большинством приложений для Android на компьютере с операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03D8170DA64CC0F0649FC3C8D9F2BA3AAD80EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734143   (51317) от 02.07.2024
-
-WinNTSetup 5.3.5.2 Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51317.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinNTSetup (Windows Setup Tool) – программа для создания дополнительного загрузочного модуля операционной системы Windows. Утилита является неким альтернативным инсталлятором, что позволяет установить вторую операционную систему как в свободный раздел внутреннего или внешнего жесткого диска, так и на виртуальный жесткий диск (VHD) и флешку. При этом наличие флешки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2650EC290EAD4DE5CDA59C26E7793F8E56C6E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1357972   (820276) от 10.05.2020
+
+Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подобно миру взрослых, мир детей не терпит различий, выделяющих кого-то на фоне других, коих принято считать «нормальными». Этот мир жесток, поскольку его обитатели, в отличие от обитателей мира взрослых, еще не успели научиться скрывать мерзкие мысли за напускной улыбкой. Многие вещи им непонятны, более того — неведомы. Дети прямолинейны. И поэтому очень жестоки. (   Читать дальше...   )Производство: Kyoto Animation, ЯпонияЖанр: Повседневность, Драма, РомантикаРежиссер: Ямада НаокоОзвучка: Двухголосая, Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 02:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B961B219DDAE24F90D3FE33D55AE2226571FAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503523   (818916) от 19.10.2021
 
 Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818916.jpg" />
+  <img src="Z:/picture/008/save_picture_818916.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818910.jpg" />
+  <img src="Z:/picture/008/save_picture_818910.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816587.jpg" />
+  <img src="Z:/picture/008/save_picture_816587.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Et
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815394.jpg" />
+  <img src="Z:/picture/008/save_picture_815394.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814668.jpg" />
+  <img src="Z:/picture/008/save_picture_814668.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Поря
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814667.jpg" />
+  <img src="Z:/picture/008/save_picture_814667.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813794.jpg" />
+  <img src="Z:/picture/008/save_picture_813794.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813542.jpg" />
+  <img src="Z:/picture/008/save_picture_813542.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810490.jpg" />
+  <img src="Z:/picture/008/save_picture_810490.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809627.jpg" />
+  <img src="Z:/picture/008/save_picture_809627.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809623.jpg" />
+  <img src="Z:/picture/008/save_picture_809623.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809231.jpg" />
+  <img src="Z:/picture/008/save_picture_809231.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809230.jpg" />
+  <img src="Z:/picture/008/save_picture_809230.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Konohana Kitan | Загадочная история Коноханы [2017, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807815.jpg" />
+  <img src="Z:/picture/008/save_picture_807815.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Boku no Hero Academia | Моя геройская академия OVA [2016-201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807814.jpg" />
+  <img src="Z:/picture/008/save_picture_807814.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807793.jpg" />
+  <img src="Z:/picture/008/save_picture_807793.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Toaru Majutsu no Index II | Некий Магический Индекс [TV-2] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807419.jpg" />
+  <img src="Z:/picture/008/save_picture_807419.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Angel Beats! | Ангельские Ритмы! [2010, TV, 13 ep + 3 sp] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807415.jpg" />
+  <img src="Z:/picture/008/save_picture_807415.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ BECK: Mongolian Chop Squad | БЕК: Восточная Ударная Груп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805877.jpg" />
+  <img src="Z:/picture/008/save_picture_805877.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Gokushufudou | Путь домохозяина [2021, Web, 10 из 10] WEB-DLRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803994.jpg" />
+  <img src="Z:/picture/008/save_picture_803994.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800760.jpg" />
+  <img src="Z:/picture/008/save_picture_800760.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800759.jpg" />
+  <img src="Z:/picture/008/save_picture_800759.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800758.jpg" />
+  <img src="Z:/picture/008/save_picture_800758.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800757.jpg" />
+  <img src="Z:/picture/008/save_picture_800757.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799831.jpg" />
+  <img src="Z:/picture/008/save_picture_799831.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCFD28C7C5681DF123F15533635A35B4BC960018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506599   (799827) от 31.10.2021
-
-Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd Series | King From Now On! 3rd Series | Отныне Мао, король демонов! 3 [2008, TV, 39 из 39] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799827.jpg" />
-</div>
-
-
-###  Подробнее
-
-После церемонии совершеннолетия Юри постепенно понимает, как много всего произошло за время его отсутствия. Совет десяти благородных семей выбрал Вольфрама новым Мао, и теперь Юри придётся доказать, что он — самая достойная кандидатура на роль Мао главе совета — дяде Вольфрама. Нарастающая угроза миру мадзоку и людей, исходящая от древнего тайного сообщества. Борьба (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: приключения, комедия, фэнтезиРежиссер: Нисимура ДзюндзиПеревод: Neutral Unit, Lina, Fedra87, Morween, surfernsk, Sakura89Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 39 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF66BAC45377B22276C838D246BC2B017578DF94
 ```
 
 https://mybot314.ru/tekegram_catalog/

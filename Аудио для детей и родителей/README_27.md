@@ -1,3 +1,90 @@
+###  Публикация: 661303   (770421) от 26.05.2013
+
+Фиксики и Яша Васильев - Любимые песни Фиксиков (2011) [MP3|~190 кб/с (V2)]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_770421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто такие Фиксики?
+02. Пылесос
+03. Компьютер
+04. Интернет(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BC56D5BCD284C3CC76F1A40F6229E08BEB179D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392246   (769919) от 24.06.2020
+
+Наталия Лансере - На коленях у мамы (2018) [MP3|256 Kbps]<Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В завершении дня
+02. Засыпай
+03. Колыбельная
+04. Малыш, пора спать!(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7FD4426DC53B07289A8DE2CA631D9B667F4E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392238   (769916) от 24.06.2020
+
+Нил Патрик Харрис | Волшебные неудачники. Большая игра. Книга 3. (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редакция «Вилли Винки» представляет долгожданное продолжение цикла бестселлеров от звездного автора Нила Патрика Харриса!
+
+«Волшебные неудачники. Большая игра» – это третья история о приключениях подростков-фокусников.
+(   Читать дальше...   )Жанр: Детская литература, приключенияПродолжительность: 05:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BBD5AFC8775CC5053493F4501BEA6FE6E48B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392257   (769854) от 24.06.2020
 
 Лев Давыдычев | Жизнь и страдания Ивана Семёнова, второклассника и второгодника (2018) [MP3]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769854.jpg" />
+  <img src="Z:/picture/008/save_picture_769854.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769257.jpg" />
+  <img src="Z:/picture/008/save_picture_769257.jpg" />
 </div>
 
 
@@ -58,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769225.jpg" />
+  <img src="Z:/picture/008/save_picture_769225.jpg" />
 </div>
 
 
@@ -87,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768989.jpg" />
+  <img src="Z:/picture/008/save_picture_768989.jpg" />
 </div>
 
 
@@ -116,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768987.jpg" />
+  <img src="Z:/picture/008/save_picture_768987.jpg" />
 </div>
 
 
@@ -145,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768968.jpg" />
+  <img src="Z:/picture/008/save_picture_768968.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768962.jpg" />
+  <img src="Z:/picture/008/save_picture_768962.jpg" />
 </div>
 
 
@@ -203,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768960.jpg" />
+  <img src="Z:/picture/008/save_picture_768960.jpg" />
 </div>
 
 
@@ -232,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768613.jpg" />
+  <img src="Z:/picture/008/save_picture_768613.jpg" />
 </div>
 
 
@@ -258,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768544.jpg" />
+  <img src="Z:/picture/008/save_picture_768544.jpg" />
 </div>
 
 
@@ -287,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768542.jpg" />
+  <img src="Z:/picture/008/save_picture_768542.jpg" />
 </div>
 
 
@@ -316,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768540.jpg" />
+  <img src="Z:/picture/008/save_picture_768540.jpg" />
 </div>
 
 
@@ -345,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768490.jpg" />
+  <img src="Z:/picture/008/save_picture_768490.jpg" />
 </div>
 
 
@@ -374,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768481.jpg" />
+  <img src="Z:/picture/008/save_picture_768481.jpg" />
 </div>
 
 
@@ -403,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768438.jpg" />
+  <img src="Z:/picture/008/save_picture_768438.jpg" />
 </div>
 
 
@@ -432,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768368.jpg" />
+  <img src="Z:/picture/008/save_picture_768368.jpg" />
 </div>
 
 
@@ -461,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767770.jpg" />
+  <img src="Z:/picture/008/save_picture_767770.jpg" />
 </div>
 
 
@@ -490,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767769.jpg" />
+  <img src="Z:/picture/008/save_picture_767769.jpg" />
 </div>
 
 
@@ -519,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767705.jpg" />
+  <img src="Z:/picture/008/save_picture_767705.jpg" />
 </div>
 
 
@@ -548,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767595.jpg" />
+  <img src="Z:/picture/008/save_picture_767595.jpg" />
 </div>
 
 
@@ -574,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766951.jpg" />
+  <img src="Z:/picture/008/save_picture_766951.jpg" />
 </div>
 
 
@@ -600,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766923.jpg" />
+  <img src="Z:/picture/008/save_picture_766923.jpg" />
 </div>
 
 
@@ -626,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766919.jpg" />
+  <img src="Z:/picture/008/save_picture_766919.jpg" />
 </div>
 
 
@@ -637,90 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE1A517AAB76D8A26472AA7B156F1896F35677E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393717   (766907) от 01.07.2020
-
-Геннадий Гладков - Трубадур и другие... (2002) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ничего на свете лучше нету (Песня друзей)
-02. Говорят мы - бяки-буки
-03. Дуэт Принцессы и Трубадура
-04. Луч солнца золотого(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B120D66C7922A988300689FB2887C535BC854A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278626   (766873) от 28.01.2019
-
-Марианна Алфёрова | Леонардо да Винчи. Настоящая история гения (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леонардо да Винчи - самый таинственный и загадочный гений. Кто же он был на самом деле? Есть предположения самые невероятные - любители сенсаций объявляют его гостем из будущего и даже инопланетянином.
-Перед вами книга о научных открытиях и изобретениях великого итальянца, о его живописных произведениях.
-Юный читатель сможет:
-- окунуться в атмосферу эпохи Возрождения, (   Читать дальше...   )Жанр: Познавательная литература для детей, Культура и искусствоПродолжительность: 07:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297FE8A9623F80EF0B30436ECFB6CE48D3441B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277614   (766863) от 28.01.2019
-
-Вильгельм Гримм, Якоб Гримм | Сказки братьев Гримм [«Мелодия»] [1987, 1973 / 2010, lossless]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочетание поучительности и занимательности, высмеивания человеческих пороков и создание героев с потрясающими характерами - авторы как настоящие детские психологи затронули все аспекты жизни. Хотя как известно они сами не писали сказки, а просто записывали народные легенды и предания, при этом сами Яков и Вильгельм были видными учеными, дети всего мира всё равно (   Читать дальше...   )Жанр: Сказка / аудиоспектакльПродолжительность: 1:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF00F7C0D2D73D439194538EE5C1756E1BFA30A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,213 @@
+###  Публикация: 485074   (89363) от 19.04.2012
+
+VA - Absolute Acoustic 2012 (2012) [MP3|~197-254 кб/с (V 0)]<Acoustic Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Aid Kit - The Lions Roar [05:08]
+02. Moa Lignell - When I Held Ya [03:30]
+03. Laleh - Some Die Young [03:43]
+04. Walk Off the Earth - Somebody I Used to Know [04:10]
+05. Ed Sheeran - The A Team [03:44]
+06. Lana Del Ray - Video Games [04:03]
+07. Christina Perri - Jar of Hearts [04:07]
+08. Tomas Andersson Wij Feat. Ane Brun - Romantiken [03:52]
+09. Loreen - Sober (Acoustic) [03:34]
+10. Amanda Fondell - True Colours [02:19](   Читать дальше...   )2012Жанр: Acoustic PopПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04C23F07CDF36D0E8F8610706B5E2CB9BFF3011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484678   (89290) от 18.04.2012
+
+VA - За Рулем с Авторадио - Зарубежные Хиты 90-Х (2012) [MP3|256 kbps]<Pop | Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua - Around The World
+02. Bomfunk MC's - Uprocking Beats
+03. Shaggy - Boombastic
+04. Ultra Nate - Free
+05. Tlc - No Scrubs
+06. Tom Wilson - Techno Cat
+07. Mc Sar - Another Night
+08. Scooter - Call Me Manana
+09. Captain Hollywood - Over & over
+10. Moloko - Sing It Back(   Читать дальше...   )2012Жанр: Pop | DiscoПродолжительность: 06:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCD68D42729ED102C0057DFDE3B70C48849AE9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484394   (89148) от 18.04.2012
+
+VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89148.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Девушки Эйнштейна - Suga (Radio Edit)
+002 ЭffekT - Ночная Жизнь
+003 Joni Bek - Забери
+004 Dasha & Demo-so Hard( Extended Club Mix)
+005 Dj Smash, Dj Рыжов, Chinlong - На Заре
+006 Светлана Разина - Радио НАХ
+007 Тина Корн - По Тропинке
+008 Иракли & Даша Суворова - Нелюбовь
+009 Игорь Маркс - Только Вчера
+010 Лера Туманова (Электра) - Здравствуй2012Жанр: PopПродолжительность: 06:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E38454908F5365F2609E87C4F5E0809FFE4765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483503   (88776) от 16.04.2012
+
+VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Mike feat. Gazi Demirel - Leila
+02. Anna Lesko Ft Gilberto - Go Crazy (Official Radio Edit)
+03. Attilson & Bossanova feat. Diana - Dancing Tonight (Video Edit)
+04. Brighi feat. Snoop Dogg - Play Me Like A Violin (Radio Killer Extended Mix)
+05. Calvin Harris feat. Ne-Yo - Let& Go (Radio Edit)
+06. Christopher S feat Max Urban - Star (Dj Nejtrino & Dj Stranger 2012 Remix)
+07. Crocodealer - Coffee From Columbia
+08. Deepcentral - So Divine (Radio Edit)
+09. Dj Gala feat. Kate - Don'T Need (Dj Force Club Mix)
+10. Dj Layla feat. Sianna - Your Angel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A9FDC0A3CC25E484718FA28C180687EC80E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483818   (88772) от 16.04.2012
+
+VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Ради славы & Katty - Целуй меня
+002 Тамерлан и Алена Омаргалиева - Hey yo
+003 Чи-Ли - Облака
+004 Банд'Эрос - Эти сумасшедшие ночи
+005 Потап и Настя Каменских - Если вдруг (Aleksey Kraft mix)
+006 Алисия - Улетаю (DJ Fisun remix)
+007 Митя Фомин & Кристина Орса - Не манекен (URAL DJS dance remix )
+008 Нюша - Выше (dance remix)
+009 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
+010 5sta Family - Тук-тук(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457A12B47AC94EE851E75BE58343B16A6E506ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483470   (88751) от 16.04.2012
+
+VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3|154-199 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juli Kravets - Ты Где-То Есть
+02. Анна Семенович - Обманутые Люди
+03. Батишта & Shaplin feat. Ульяна Глушкова - Когда Наступит Ночь (Rusky Rusk Remix)
+04. Даша Сумская - Для Тебя
+05. Катя Лель - Не Могу Забыть
+06. Фактор 2 - Буду Кем Захочешь
+07. Ket-U - Равнодушна
+08. Milena & Murzin Denis - В Эту Ночь (Radio Version)
+09. 23-45 - Летим (Fidel Wicked Radio Edit)
+10. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix)(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA50BAE0060FC5A38344B59AFA6ACFD7E7BDE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482689   (88461) от 14.04.2012
 
 VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<Pop | Disco>
@@ -6,7 +216,7 @@ VA - Фестиваль Авторадио 80-90-Х 50/50 (2012) [MP3|256 kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88461.jpg" />
 </div>
 
 
@@ -41,7 +251,7 @@ VA - ЕвроХит Топ-40 (13.04.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88408.jpg" />
 </div>
 
 
@@ -76,7 +286,7 @@ VA - Новинки Эфира Love Radio 11 (2012) [MP3|256-320 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88388.jpg" />
 </div>
 
 
@@ -111,7 +321,7 @@ VA - Потап и Настя в кругу друзей (2012) [MP3|192-256 kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88240.jpg" />
 </div>
 
 
@@ -146,7 +356,7 @@ VA - Disco Hits 90's Зарубежный (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88166.jpg" />
 </div>
 
 
@@ -181,7 +391,7 @@ VA - Disco Hits 90's Русский (2012) [MP3|256 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88163.jpg" />
 </div>
 
 
@@ -216,7 +426,7 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88154.jpg" />
 </div>
 
 
@@ -251,7 +461,7 @@ VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87361.jpg" />
 </div>
 
 
@@ -286,7 +496,7 @@ VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87358.jpg" />
 </div>
 
 
@@ -321,7 +531,7 @@ VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87354.jpg" />
 </div>
 
 
@@ -356,7 +566,7 @@ VA - Музыка для отличного настроения (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87351.jpg" />
 </div>
 
 
@@ -391,7 +601,7 @@ VA - Топ 100 Продвинутый Русский (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87343.jpg" />
 </div>
 
 
@@ -426,7 +636,7 @@ VA - Южный Хит Парад (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87338.jpg" />
 </div>
 
 
@@ -461,7 +671,7 @@ VA - Топ 100 Europa Plus 4 50/50 (2012) [MP3|256-320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87328.jpg" />
 </div>
 
 
@@ -496,7 +706,7 @@ VA - Убойные хиты Europa Plus 3 50/50 (2012) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87317.jpg" />
 </div>
 
 
@@ -531,7 +741,7 @@ VA - Super Italo Disco (2012) [MP3|128 kbps]<Pop | Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87301.jpg" />
 </div>
 
 
@@ -566,7 +776,7 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86636.jpg" />
 </div>
 
 
@@ -601,7 +811,7 @@ VA - Любимые весенние хиты (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86502.jpg" />
 </div>
 
 
@@ -636,7 +846,7 @@ VA - Звездная 200-ка (2012) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86491.jpg" />
 </div>
 
 
@@ -671,7 +881,7 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86428.jpg" />
 </div>
 
 
@@ -691,216 +901,6 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B405D027C4596C6C8D4A3761170AB6CEF7AA79F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477599   (86158) от 03.04.2012
-
-VA - Хиты Авторадио Русский №20 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Иванушки International - Кукла
-002 Руки вверх - Крошка моя
-003 Hi-Fi - Не дано
-004 Андрей Губин - Зима-холода
-005 Кар-Мэн - Сан-Франциско
-006 Ласковый май - Седая ночь
-007 Мираж - Наступает ночь
-008 Блестящие - Где же ты где
-009 Анжелика Варум - Ля-ля-фа
-010 Дмитрий Маликов - Ты одна ты такая(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AFDA6616103EEEB53FEF69C1002787DEE4AEA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476350   (85891) от 02.04.2012
-
-VA - Дискотека Бездна Original 50/50 vol. 3 (2012) [MP3|128-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Meg, Timati, Sergey Lazarev - Moscow To California
-002. Far East Movement Feat. Justin Bieber Redfoo - Live My Life (Party Rock Remix)
-003. Dj Nil Sexy Liya - На Краю У Рая (Extended Mix)
-004. Tacabro - Tacata (Radio Edit)
-005. Джиган Feat Жанна Фриске - Ты Рядом (Dj Meg Nerak Remix)
-006. Nick Cox Feat. Lil Lee - Good Sex Beat (Radio Edit)
-007. Лавика - В Городе Весна (Dj Melloffon Remix)
-008. Toni Braxton - I Heart You
-009. Пропаганда - Нет-Да
-010. Simple Plan Feat. Sean Paul - Summer Paradise(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A520584EA4957F78BDFC4E0A532DF0095FAA3531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476789   (85877) от 02.04.2012
-
-VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85877.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алисия & Влад Корса - Здесь и сейчас
-002. Klaas & Bodybangers - I like (Bodybangers mix)
-003. Dan Balan - Лишь до утра (DFM special mix)
-004. JuicyTrax feat. Jess - Fuck your girlfriend
-005. Иракли - Ты одна (DJ Kirill Clash & DJ Dmitriy Nema remix)
-006. Madonna feat. Lmfao & Nicki Minaj - Give me all your luvin (Party Rock remix)
-007. Milena & Murzin Denis - До утра (Filipp Aniskin remix)
-008. David Guetta - Without you (feat. Usher)
-009. Блестящие - Милый мой
-010. Chris Parker - Space(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476462   (85525) от 31.03.2012
-
-VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время и Стекло - Гармошка
-02. Анна Седокова - Такси
-03. Анастасия Приходько - Романс
-04. Simon From Deep Divas feat. Goody - Disco dancer
-05. Вика Гранд - Я Не Боюсь (Emotive Tunes Original Mix)
-06. Pitbull feat. Eila - Slow
-07. Валерий Меладзе - Потерян И Не Найден
-08. Лера Туманова (Электра) - Здравствуй
-09. Катя Чехова - Сердце Тебе В Ответ
-10. Анита Цой - Молитва2012Жанр: PopПродолжительность: 05:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A03725F3A259191860DFADEB30B49B117C7DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475724   (85516) от 31.03.2012
-
-VA - Вечеринка В Стиле Руки Вверх! 8 (2012) [MP3|192-320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Сергей Жуков & Opium Project - Я буду с тобою
-002 Саша Зверева & Sasha Dith & Steve Modana - Супербой
-003 Фактор-2 - Кареглазая
-004 DJ Niki feat. Soda - Я Без Тебя (Radio Mix)
-005 Проект 23 - Молекулы Любви
-006 Света - Не новая игра
-007 Турбомода - Отпусти
-008 Вирус - За тобой
-009 Три желания - Знаешь, мама
-010 RevoльveRS - Девочка (Рома Лейтенант Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2B2A4EDE32CF70F0E17D9A6843AE4AE554DAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473927   (84919) от 28.03.2012
-
-VA - XXXL Золотые 80-е Зарубежный (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machisimo - Perfect Love
-02. Haddaway - What is love
-03. Pandera - Summer feeling
-04. Cher - Rain
-05. Mike Mareen - Love-Spy
-06. Caeser - My Black Lady
-07. Solid Base - Set me free
-08. Ace of base - Beatiful morning
-09. Sandra - Around my heart
-10. Chris Norman - Some Heats Are Diamonds(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4209C991F8BFF39FEF910936A7B4482D1367B08B
 ```
 
 https://mybot314.ru/tekegram_catalog/

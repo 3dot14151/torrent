@@ -1,3 +1,29 @@
+###  Публикация: 526207   (599447) от 23.07.2012
+
+Л.П.Мекердичан, А.И.Пелех | Фронтовой бомбардировщик Ил-28 [2004] [PDF,TIF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В иллюстрированном альбоме «Фронтовой бомбардировщик Ил-28» представлена история создания самолета и подробное описание его конструкции. Издание иллюстрировано большим количеством ранее не публиковавшихся схем и фотографий. Для широкого круга читателей, интересующихся авиацией, авиамоделистов.Формат: PDF,TIF (чертежи)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB71B23736A5A4DFCFA5896AB4A5747228B3E398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526188   (599343) от 23.07.2012
 
 Б.А.Каржавин | Гибель "Отважного": документальная история морской катастрофы [1994] [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599343.jpg" />
+  <img src="Z:/picture/008/save_picture_599343.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598516.jpg" />
+  <img src="Z:/picture/008/save_picture_598516.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598470.jpg" />
+  <img src="Z:/picture/008/save_picture_598470.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598333.jpg" />
+  <img src="Z:/picture/008/save_picture_598333.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596572.jpg" />
+  <img src="Z:/picture/008/save_picture_596572.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596291.jpg" />
+  <img src="Z:/picture/008/save_picture_596291.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596215.jpg" />
+  <img src="Z:/picture/008/save_picture_596215.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596192.jpg" />
+  <img src="Z:/picture/008/save_picture_596192.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595851.jpg" />
+  <img src="Z:/picture/008/save_picture_595851.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595711.jpg" />
+  <img src="Z:/picture/008/save_picture_595711.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595182.jpg" />
+  <img src="Z:/picture/008/save_picture_595182.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595142.jpg" />
+  <img src="Z:/picture/008/save_picture_595142.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595053.jpg" />
+  <img src="Z:/picture/008/save_picture_595053.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595049.jpg" />
+  <img src="Z:/picture/008/save_picture_595049.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595041.jpg" />
+  <img src="Z:/picture/008/save_picture_595041.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594555.jpg" />
+  <img src="Z:/picture/008/save_picture_594555.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593764.jpg" />
+  <img src="Z:/picture/008/save_picture_593764.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593338.jpg" />
+  <img src="Z:/picture/008/save_picture_593338.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593275.jpg" />
+  <img src="Z:/picture/008/save_picture_593275.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592467.jpg" />
+  <img src="Z:/picture/008/save_picture_592467.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592346.jpg" />
+  <img src="Z:/picture/008/save_picture_592346.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591774.jpg" />
+  <img src="Z:/picture/008/save_picture_591774.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589920.jpg" />
+  <img src="Z:/picture/008/save_picture_589920.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589578.jpg" />
+  <img src="Z:/picture/008/save_picture_589578.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588652.jpg" />
+  <img src="Z:/picture/008/save_picture_588652.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49FA4B14A41727A9CE722E71E9EF06E6A0E0B11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917867   (588642) от 13.07.2015
-
-Г. Бельская (сост.) | Неизвестная война. Правда о Первой мировой. Часть 1 (2014) [FB2, RTF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о том, как складывалась ситуация в Европе накануне Первой мировой войны, начавшейся в 1914 году, о том, каково было ее начало, о наиболее ярких событиях первых лет войны, о людях на войне. В книгу вошли статьи, опубликованные в журнале «ЗНАНИЕ-СИЛА» в 2014–2015 годах. Все статьи написаны профессиональными историками из России, Венгрии, Украины (   Читать дальше...   )Жанр: История войнФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74990B92E900D2FF970FE479ACD0888BC149029E
 ```
 
 https://mybot314.ru/tekegram_catalog/

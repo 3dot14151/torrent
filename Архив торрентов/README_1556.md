@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698363.jpg" />
+  <img src="Z:/picture/008/save_picture_698363.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cyberfox 47.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698362.jpg" />
+  <img src="Z:/picture/008/save_picture_698362.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Avira Scout 16.06.2704.549 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698358.jpg" />
+  <img src="Z:/picture/008/save_picture_698358.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698349.jpg" />
+  <img src="Z:/picture/008/save_picture_698349.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698262.jpg" />
+  <img src="Z:/picture/008/save_picture_698262.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Armin van Buuren - A State of Trance 768 (2016) [MP3|320 кб/с] <progressive t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698241.jpg" />
+  <img src="Z:/picture/008/save_picture_698241.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698240.jpg" />
+  <img src="Z:/picture/008/save_picture_698240.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698237.jpg" />
+  <img src="Z:/picture/008/save_picture_698237.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698235.jpg" />
+  <img src="Z:/picture/008/save_picture_698235.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Bassnectar - Unlimited (2016) LP [MP3|320 кб/с] <Future Bass,Trap,Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698232.jpg" />
+  <img src="Z:/picture/008/save_picture_698232.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ ICQ 10.0 build 12091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698231.jpg" />
+  <img src="Z:/picture/008/save_picture_698231.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698228.jpg" />
+  <img src="Z:/picture/008/save_picture_698228.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698226.jpg" />
+  <img src="Z:/picture/008/save_picture_698226.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ FlipBuilder Flip PDF 4.3.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698224.jpg" />
+  <img src="Z:/picture/008/save_picture_698224.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Drum and Bass Collection 14 (2010) [MP3|187-320 kbps]<Drum'n'Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698222.jpg" />
+  <img src="Z:/picture/005/save_picture_698222.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698215.jpg" />
+  <img src="Z:/picture/005/save_picture_698215.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ M.O.I.S.S.E.Y - Dissolute (2009) [MP3|192-320 kbps]<Dark ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698213.jpg" />
+  <img src="Z:/picture/005/save_picture_698213.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Wallpapers - New Mixed HD Wallpapers Pack (07.06.14) [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698167.jpg" />
+  <img src="Z:/picture/008/save_picture_698167.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6785.5000 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698150.jpg" />
+  <img src="Z:/picture/008/save_picture_698150.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Acronis BootCD 10PE x86/x64 by naifle (22.04.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698145.jpg" />
+  <img src="Z:/picture/008/save_picture_698145.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Armada Chill 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698133.jpg" />
+  <img src="Z:/picture/008/save_picture_698133.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ UC Browser 5.6.13108.1201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698130.jpg" />
+  <img src="Z:/picture/008/save_picture_698130.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mp3tag 2.77 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698126.jpg" />
+  <img src="Z:/picture/008/save_picture_698126.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cyberfox 47.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698124.jpg" />
+  <img src="Z:/picture/008/save_picture_698124.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698123.jpg" />
+  <img src="Z:/picture/008/save_picture_698123.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698121.jpg" />
+  <img src="Z:/picture/008/save_picture_698121.jpg" />
 </div>
 
 

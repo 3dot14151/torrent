@@ -6,7 +6,7 @@ New Order, Live In Glasgow (2008) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301135.jpg" />
+  <img src="Z:/picture/008/save_picture_301135.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301086.jpg" />
+  <img src="Z:/picture/008/save_picture_301086.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300804.jpg" />
+  <img src="Z:/picture/008/save_picture_300804.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298805.jpg" />
+  <img src="Z:/picture/008/save_picture_298805.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Celine Dion - Live at Tokyo Dome (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294695.jpg" />
+  <img src="Z:/picture/008/save_picture_294695.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Sting - 25 Years. Rough, Raw & Unreleased: Live at Irving Plaza  (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293737.jpg" />
+  <img src="Z:/picture/008/save_picture_293737.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293506.jpg" />
+  <img src="Z:/picture/008/save_picture_293506.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Tom Waits "Burma Shave" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293155.jpg" />
+  <img src="Z:/picture/008/save_picture_293155.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Iron Maiden - Death On The Road (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292751.jpg" />
+  <img src="Z:/picture/008/save_picture_292751.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Celtic Woman (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290747.jpg" />
+  <img src="Z:/picture/008/save_picture_290747.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289517.jpg" />
+  <img src="Z:/picture/008/save_picture_289517.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285019.jpg" />
+  <img src="Z:/picture/008/save_picture_285019.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Joe Cocker - Cry Me A River (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284045.jpg" />
+  <img src="Z:/picture/008/save_picture_284045.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Beyonce - I Am... World Tour (2010) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275839.jpg" />
+  <img src="Z:/picture/008/save_picture_275839.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) BDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275668.jpg" />
+  <img src="Z:/picture/008/save_picture_275668.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274061.jpg" />
+  <img src="Z:/picture/008/save_picture_274061.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271830.jpg" />
+  <img src="Z:/picture/008/save_picture_271830.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271812.jpg" />
+  <img src="Z:/picture/008/save_picture_271812.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269093.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269038.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268732.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268700.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268346.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267605.jpg" />
+  <img src="Z:/picture/008/save_picture_267605.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266810.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Gary Moore - The Definitive Montreux Collection (2007) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264100.jpg" />
 </div>
 
 

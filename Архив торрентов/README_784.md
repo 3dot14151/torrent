@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873389.jpg" />
+  <img src="Z:/picture/008/save_picture_873389.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873384.jpg" />
+  <img src="Z:/picture/008/save_picture_873384.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873309.jpg" />
+  <img src="Z:/picture/008/save_picture_873309.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873303.jpg" />
+  <img src="Z:/picture/008/save_picture_873303.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873300.jpg" />
+  <img src="Z:/picture/008/save_picture_873300.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873297.jpg" />
+  <img src="Z:/picture/008/save_picture_873297.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Driver Magician 4.81 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873294.jpg" />
+  <img src="Z:/picture/008/save_picture_873294.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Mike Vickerage - Ambiente: Reiki (2003) [MP3|320 kbps]<New Age, Relax, Meditativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873293.jpg" />
+  <img src="Z:/picture/008/save_picture_873293.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Avira Antivirus Free 15.0.16.282 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873273.jpg" />
+  <img src="Z:/picture/008/save_picture_873273.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ QTranslate 6.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873218.jpg" />
+  <img src="Z:/picture/008/save_picture_873218.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873212.jpg" />
+  <img src="Z:/picture/008/save_picture_873212.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Desktop Curtain 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873208.jpg" />
+  <img src="Z:/picture/008/save_picture_873208.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Mp3tag 3.09 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873192.jpg" />
+  <img src="Z:/picture/008/save_picture_873192.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873188.jpg" />
+  <img src="Z:/picture/008/save_picture_873188.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Amadine 1.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873166.jpg" />
+  <img src="Z:/picture/008/save_picture_873166.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Airy Pro 3.13.268 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873165.jpg" />
+  <img src="Z:/picture/008/save_picture_873165.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Disbelief - The Ground Collapse (2020) [MP3|320 Kbps] <Death, Thrash, Sludge Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873164.jpg" />
+  <img src="Z:/picture/008/save_picture_873164.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VideoDuke 1.8 (build 269) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873162.jpg" />
+  <img src="Z:/picture/008/save_picture_873162.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ NG: Экспедиция в Антарктиду / Expedition Antarctica (2009) 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_873130.jpg" />
+  <img src="Z:/picture/009/save_picture_873130.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_873121.jpg" />
+  <img src="Z:/picture/009/save_picture_873121.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873119.jpg" />
+  <img src="Z:/picture/008/save_picture_873119.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873117.jpg" />
+  <img src="Z:/picture/008/save_picture_873117.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873116.jpg" />
+  <img src="Z:/picture/008/save_picture_873116.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873112.jpg" />
+  <img src="Z:/picture/008/save_picture_873112.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Tor Browser Bundle 5.5.4 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873092.jpg" />
+  <img src="Z:/picture/008/save_picture_873092.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873043.jpg" />
+  <img src="Z:/picture/008/save_picture_873043.jpg" />
 </div>
 
 

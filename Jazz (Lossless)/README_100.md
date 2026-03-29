@@ -1,3 +1,119 @@
+###  Публикация: 1130244   (716799) от 01.05.2017
+
+Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newport Up [05:44]
+02. I Got It Bad And That Ain't Good [02:24]
+03. Tulip Or Turnip [03:00]
+04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532137   (716767) от 18.02.2022
+
+Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicken Shack Boogie [3:19]
+02. New Central Avenue Breakdown [3:12]
+03. Benson's Boogie [3:21]
+04. Hamp's Boogie Number 2 [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1200D6B29C80496B3F7D61BA8A60667CEAC28E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531943   (716763) от 18.02.2022
+
+Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Recordings [FLAC|Lossless|tracks + .cue] <Big Band, Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales from the Jacquard, Part 1 [7:03]
+02. Tales from the Jacquard, Part 2 [6:31]
+03. Tales from the Jacquard, Part 3 [17:47]
+04. Blues [7:52](   Читать дальше...   )Жанр: Big Band, Contemporary Jazz, Post-BopПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14922B8B833BD5AFE819E1EC96632B103A1CBFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130312   (716659) от 01.05.2017
+
+Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue] <Jazz, Soul, Funk, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bandzilla Rises!!! (0:39)
+02. Live As One (5:13)
+03. You Can't Get There From Here (5:10)
+04. L.A. Existential (7:20)(   Читать дальше...   )Жанр: Jazz, Funk, Big BandПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5DCABB9582487F42B19B120CDBC3CA741CCC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531952   (716633) от 18.02.2022
 
 Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Bill Charlap Trio - Street Of Dreams (2021) Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716633.jpg" />
+  <img src="Z:/picture/008/save_picture_716633.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Nicki Parrott - Unforgettable ~The Nat King Cole Songbook (2017) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716328.jpg" />
+  <img src="Z:/picture/008/save_picture_716328.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Masabumi Kikuchi - Black Orpheus (2012) Remaster, 2016, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716215.jpg" />
+  <img src="Z:/picture/008/save_picture_716215.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Blakey And The Jazz Messengers - In My Prime Vol. 2 (1977) Remaster, 2015, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716210.jpg" />
+  <img src="Z:/picture/008/save_picture_716210.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Shirley Bassey - That's What Friends Are For (1993) Re-Recordings [APE|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716134.jpg" />
+  <img src="Z:/picture/008/save_picture_716134.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tony Levin (King Crimson) & Pete Levin - Levin Brothers (2014) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715947.jpg" />
+  <img src="Z:/picture/008/save_picture_715947.jpg" />
 </div>
 
 
@@ -183,7 +299,7 @@ Catherine Russell - Alone Together (2019) Dot Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715273.jpg" />
+  <img src="Z:/picture/008/save_picture_715273.jpg" />
 </div>
 
 
@@ -212,7 +328,7 @@ Paul Hardcastle - The Chill Lounge  Volume 1 (2012) [FLAC|Lossless]<Nu Jazz, Lou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715209.jpg" />
+  <img src="Z:/picture/008/save_picture_715209.jpg" />
 </div>
 
 
@@ -241,7 +357,7 @@ Baptiste Herbin - Vista Chinesa (2020) Space Time Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715193.jpg" />
+  <img src="Z:/picture/008/save_picture_715193.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ Smooth Jazz Music Set - Love in a Hotel Room: Compilation of Sexy Jazz (2020) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714995.jpg" />
+  <img src="Z:/picture/008/save_picture_714995.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Keiko Matsui - Echo (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714819.jpg" />
+  <img src="Z:/picture/008/save_picture_714819.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ Buddy Tate - Seven Classic Albums (1958 - 1961) 4CD, 2016, Real Gone Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714747.jpg" />
+  <img src="Z:/picture/008/save_picture_714747.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ Gregory Porter - Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714729.jpg" />
+  <img src="Z:/picture/008/save_picture_714729.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Phil Woods - The New Phil Woods Album (1975) Remaster, 2015, Sony Music[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714318.jpg" />
+  <img src="Z:/picture/008/save_picture_714318.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ The Sergio Mendes Trio Featuring Wanda De Sah - Brasil '65 (1965) Remaster, 2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714246.jpg" />
+  <img src="Z:/picture/008/save_picture_714246.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ Swing Republic - Long Legs (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electro Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713908.jpg" />
+  <img src="Z:/picture/008/save_picture_713908.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Horace Silver - The Horace Silver Collection (1952-1956) 2019, 2CD, Acrobat [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713502.jpg" />
+  <img src="Z:/picture/008/save_picture_713502.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Ella Fitzgerald - The Complete Piano Duets (1964, 1975) 2020, 2CD, Verve [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713493.jpg" />
+  <img src="Z:/picture/008/save_picture_713493.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713280.jpg" />
+  <img src="Z:/picture/008/save_picture_713280.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713279.jpg" />
+  <img src="Z:/picture/008/save_picture_713279.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713211.jpg" />
+  <img src="Z:/picture/008/save_picture_713211.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713204.jpg" />
+  <img src="Z:/picture/008/save_picture_713204.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28C15B61743BC92A91C5EDB3107C41038DD7B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286226   (713197) от 02.03.2019
-
-Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Depend on Me [3:28]
-02. My Shining Hour [5:32]
-03. Home with You [4:25]
-04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286431   (713191) от 02.03.2019
-
-Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Almoravid [7:56]
-02. Early Minor [6:53]
-03. Gazelle Suite [3:40]
-04. Catta [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B367B22C5469CA9CD50C12218F65BB9777DBB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286423   (713182) от 02.03.2019
-
-Michel Petrucciani - Blue Note Jazz Inspiration (2011) Blue Note Jazz Inspiration [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Tune [7:03]
-02. Limbo (Live) [8:01]
-03. She Did It Again [4:03]
-04. One For Us [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC82B4F50FFFB68B05830EC0216D749B0B41816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532613   (713111) от 20.02.2022
-
-Nicki Parrott - The Songs Of Four Seasons (2013) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Might As Well Be Spring [5:39]
-02. Cherry Pink And Apple Blossam White. [3:35]
-03. April Showers [4:55]
-04. They Say It's Spring. [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C337868F6D5A2DD246BB1A8E2F2212AA5B11FECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,168 @@
+###  Публикация: 1522958   (754658) от 09.01.2022
+
+Сборник видеоклипов (2021) WEBRip [H.264/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркие и незабываемые клипы, некоторые из которых стали настоящими хитами.1.Ava Max - Everytime I Cry
+2.Becky G, Natti Natasha - Sin Pijama
+3.Benny Benassi feat. Gary Go - Let This Last Forever
+4.BLACKPINK - How You Like That(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136207894285ADDFCF0AE349466AFC0106DE61A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215720   (754599) от 28.03.2018
+
+Квартирник на НТВ у Маргулиса. Пилот (03.24.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754599.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришла известная рок-группа «Пилот». Лидер коллектива Илья Кнабенгоф вспомнил, как в детстве он втихаря слушал пластинки брата и отца, рассказал, как выступал в коллективе «Эксгуматор» и как впервые в 16 лет оказался на сцене рок-клуба, где группа очень удивила зрителей своей манерой исполнения. Также музыкант вместе с хозяином (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEE18BD07A47269636B5567D2D5AF9AC8CC1ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781114   (754303) от 29.04.2014
+
+Europe - Live at Sweden Rock: 30th Anniversary Show (2013) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754303.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 июня 2013 года Europe вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке.01. Riches To Rags
+02. Firebox
+03. Not Supposed To Sing The Blues
+04. Scream Of Anger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBF3F82C766E290063D86AEE23019EA3EE89D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321520   (753988) от 11.04.2011
+
+Проснись и пой! (1973) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Спектакль, комедияРежиссер: Марк Захаров, Александр ШирвиндтФормат: AVIПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97346756F29E63C811A98D3F0A902F2CBBE449D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781723   (753916) от 29.04.2014
+
+Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray [H.264/1080i] <Rock, Pop, Soul, R'n'B>
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753916.jpg" />
+</div>
+
+
+###  Подробнее
+
+«One Last Time Live In Concert» - великолепный концерт Тины Тёрнер, состоявшийся на стадионе Уэмбли в Лондоне в 2000 году во время мирового турне «Twenty Four Seven Millennium Tour 2000». Концерт снят 18 камерами, прекрасно передана атмосфера «живого» стадионного концерта Тины, позволяющая понять, почему на ее концерты продано билетов больше, чем на концерты любой (   Читать дальше...   )One Last Time Live In Concert:
+01. I Want To Take You Higher
+02. Absolutely Nothing's Changed
+03. Fool In Love(   Читать дальше...   )Производство: Великобритания / Eagle Rock EntertainmentЖанр: Rock, Pop, Soul, R'n'BРежиссер: Дэвид Мале / David Mallet, Бэрри Райан / Barry RyanЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 02:01:08 + 01:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E671E5A063666A7B58DE4FF2D96151BE94A1584C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520126   (752812) от 10.01.2022
+
+Вудсток, 3 дня мира и музыки / Woodstock, 3 Days of Piece & Music (1970) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о музыкальном фестивале в Вудстоке. Режиссер фильма Майкл Уэдли, в этой работе, не просто запечатлел ряд выступлений популярных исполнителей своего времени, но и создал уникальный портрет поколения шестидесятых годов в Америке. Организаторы фестиваля в Вудстоке анонсировали его как "Три Дня Мира и Музыки" и изначально надеялись собрать (   Читать дальше...   )Жанр: МузыкаРежиссер: Майкл УодлиПеревод: ОтсутствуетЯзык субтитров: EnglishПродолжительность: 03:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12CF34F485F893C1BB64F0AE6CB23A4351EA65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781851   (752390) от 30.04.2014
 
 Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
@@ -6,7 +171,7 @@ Lindsey Stirling - Beyond The Veil (2014) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752390.jpg" />
+  <img src="Z:/picture/008/save_picture_752390.jpg" />
 </div>
 
 
@@ -32,7 +197,7 @@ Elvis Presley - Aloha From Hawaii (1973) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751642.jpg" />
+  <img src="Z:/picture/008/save_picture_751642.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ The ВЙО - Карпаты (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751321.jpg" />
+  <img src="Z:/picture/008/save_picture_751321.jpg" />
 </div>
 
 
@@ -87,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751060.jpg" />
+  <img src="Z:/picture/008/save_picture_751060.jpg" />
 </div>
 
 
@@ -116,7 +281,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750987.jpg" />
+  <img src="Z:/picture/008/save_picture_750987.jpg" />
 </div>
 
 
@@ -147,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750690.jpg" />
+  <img src="Z:/picture/008/save_picture_750690.jpg" />
 </div>
 
 
@@ -173,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750682.jpg" />
+  <img src="Z:/picture/008/save_picture_750682.jpg" />
 </div>
 
 
@@ -199,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750158.jpg" />
+  <img src="Z:/picture/008/save_picture_750158.jpg" />
 </div>
 
 
@@ -225,7 +390,7 @@ Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750077.jpg" />
+  <img src="Z:/picture/008/save_picture_750077.jpg" />
 </div>
 
 
@@ -254,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749956.jpg" />
+  <img src="Z:/picture/008/save_picture_749956.jpg" />
 </div>
 
 
@@ -284,7 +449,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749953.jpg" />
+  <img src="Z:/picture/008/save_picture_749953.jpg" />
 </div>
 
 
@@ -310,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749847.jpg" />
+  <img src="Z:/picture/008/save_picture_749847.jpg" />
 </div>
 
 
@@ -336,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749681.jpg" />
+  <img src="Z:/picture/008/save_picture_749681.jpg" />
 </div>
 
 
@@ -362,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749587.jpg" />
+  <img src="Z:/picture/005/save_picture_749587.jpg" />
 </div>
 
 
@@ -388,7 +553,7 @@ Erasure - The Innocents - Live'1988 (2009) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749317.jpg" />
+  <img src="Z:/picture/008/save_picture_749317.jpg" />
 </div>
 
 
@@ -417,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748632.jpg" />
+  <img src="Z:/picture/008/save_picture_748632.jpg" />
 </div>
 
 
@@ -443,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748053.jpg" />
+  <img src="Z:/picture/008/save_picture_748053.jpg" />
 </div>
 
 
@@ -470,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747828.jpg" />
+  <img src="Z:/picture/008/save_picture_747828.jpg" />
 </div>
 
 
@@ -496,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747553.jpg" />
+  <img src="Z:/picture/008/save_picture_747553.jpg" />
 </div>
 
 
@@ -522,7 +687,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747286.jpg" />
+  <img src="Z:/picture/008/save_picture_747286.jpg" />
 </div>
 
 
@@ -531,171 +696,6 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 Nickelback (от англ. Here’s your nickel back — вот ваша сдача) — канадская рок-группа, играет в стиле пост-гранж, образована в 1995 году в городе Ханна. Точнее: "никель" - разговорное название пятицентовой монеты. Точный перевод - "пять центов сдачи".
 
 "Live at Sturgis 2006", на который вошли 12 лучших хитов канадских металлистов NICKELBACK, (   Читать дальше...   )Жанр: Post-grunge | Hard rockРежиссер: Daniel E. Catullo IIIАктеры: Chad Kroeger (вокал, гитара), Ryan Peake (гитара, бэк-вокал), Mike Kroeger (бас-гитара), Daniel Adair (ударные, бэк-вокал)Перевод: ОригинальныйПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323682   (746871) от 15.04.2011
-
-[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782914   (746808) от 03.05.2014
-
-Юрий Антонов - 50 лет на сцене (2014.05.02) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт Юрия Антонова. Только лучшие хиты в живом исполнении.01. Зеркало
-02. Море
-03. У берёз и сосен
-04. На улице Каштановой(   Читать дальше...   )Жанр: Концерт,Soft Rock, Pop Rock, Jazz, DiscoПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71E3BB4BDA62F9C87C5987E11572A5663B6B7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783008   (746684) от 03.05.2014
-
-Юрий Антонов - 50 лет на сцене (2014.05.02) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт Юрия Антонова. Только лучшие хиты в живом исполнении.01 - Зеркало
-02 - Море
-03 - У берёз и сосен
-04 - На улице Каштановой(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Jazz, DiscoПродолжительность: 01:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BC341ED3D36CA061209DF1733BC8E28FF2FC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396275   (746648) от 15.07.2020
-
-Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machine Learning]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746648.jpg" />
-</div>
-
-
-###  Подробнее
-
-From Wishes to Eternity — Live был записан в Тампере (Финляндия) 29 декабря 2000 года. В дополнение к DVD-изданию, исключительно для рынка Финляндии последовало ограниченное издание на компакт-дисках, выпущенных тиражом 10 000 экземпляров, а также на видеокассетах в формате VHS — тиражом 1000 экземпляров. Позже, в 2005 году, звукозаписывающая компания Spinefarm Records (   Читать дальше...   )Производство: FinlandЖанр: Symphonic Power MetalПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08D6407630C89D2A828A8E7B1AC099B1CFE7C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664518   (745685) от 05.06.2013
-
-Мираж - Музыка нас связала (1989) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745685.jpg" />
-</div>
-
-
-###  Подробнее
-
-клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665035   (745638) от 05.06.2013
-
-Judas Priest - Epitaph (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Hymn
-02. Rapid Fire
-03. Metal Gods
-04. Heading Out to the Highway(   Читать дальше...   )Производство: Legacy Recordings/Sony Music EntertainmentЖанр: Heavy MetalПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:22:30
 
 ## Скачать торент
 ```bash

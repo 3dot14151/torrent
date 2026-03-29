@@ -1,3 +1,88 @@
+###  Публикация: 1533571   (705168) от 24.02.2022
+
+Квартирник у Маргулиса. Концерт ко Дню защитника Отечества (23.02.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705168.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь праздника в гости к Евгению Маргулису пришел Ансамбль песни и пляски Воздушно-десантных войск России под руководством подполковника Владислава Викторовича Твёрдого.
+На сцене «Квартирника» выступили известные артисты: Николай Расторгуев и группа «Любэ», заслуженная артистка России Ольга Кормухина, лидер группы «Парк Горького» Алексей Белов, певец-композитор (   Читать дальше...   )00:00:00 Квартирник
+00:00:05 Десантное попурри
+00:05:31 Комбат
+00:12:07 Падаю в небо(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: поп, рок, романсЯзык озвучки: РусскийПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E490B20C609B021DB75307412C7549CB9CAA6227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132149   (702569) от 08.05.2017
+
+Вера Брежнева. Номер 1. Сольный концерт (2017.05.07) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_702569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия большого сольного концерта Веры Брежневой — одной из самых ярких и успешных исполнительниц на российской эстраде. В концертную программу вошли хиты с альбомов певицы «Любовь спасет мир» и Ververa. Зрителей ждут известные композиции и премьеры песен, неожиданные и полюбившиеся дуэты, звездные гости и яркое шоу.Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FE9549A7152E1FEA9BBD56292E2A44F1C66592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894452   (700702) от 05.05.2015
+
+Григорий Лепс и его друзья (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телеверсию Рождественскго концерта,
+который прошел на олимпийском горнолыжном курорте Роза Хутор
+в начале этого года. Концертную программу, основу которой составили
+признанные шлягеры любимого миллионами Григория Лепса,(   Читать дальше...   )Производство: Первый каналЖанр: КонцертПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31213A11FF63E3CF81A64FB1CC63368942698226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 426285   (700610) от 05.05.2015
 
 Nightwish - End Of An Era (2005) [720p] BDRip
@@ -6,7 +91,7 @@ Nightwish - End Of An Era (2005) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700610.jpg" />
+  <img src="Z:/picture/005/save_picture_700610.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699419.jpg" />
+  <img src="Z:/picture/008/save_picture_699419.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ ZZ Top - Stagecoach - California's Country Music Festival (2015) HDTV [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698849.jpg" />
+  <img src="Z:/picture/008/save_picture_698849.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ Lemonade / Beyonce: Lemonade (2016) HDTV [H.264/1080i] [EN/RU Sub]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696093.jpg" />
+  <img src="Z:/picture/008/save_picture_696093.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ Axel Rudi Pell - Magic Moments/25th Anniversary Special Show (2014) BDRip [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695444.jpg" />
+  <img src="Z:/picture/008/save_picture_695444.jpg" />
 </div>
 
 
@@ -152,7 +237,7 @@ Status Quo - Aquostic! Live At The Roundhouse (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691750.jpg" />
+  <img src="Z:/picture/008/save_picture_691750.jpg" />
 </div>
 
 
@@ -181,7 +266,7 @@ Dio - Holy Diver Live (2006) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691679.jpg" />
+  <img src="Z:/picture/008/save_picture_691679.jpg" />
 </div>
 
 
@@ -210,7 +295,7 @@ Quiet Riot - One Night in Milan (2019) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690047.jpg" />
+  <img src="Z:/picture/008/save_picture_690047.jpg" />
 </div>
 
 
@@ -239,7 +324,7 @@ Uriah Heep - Live At Koko (2014)  Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689485.jpg" />
+  <img src="Z:/picture/008/save_picture_689485.jpg" />
 </div>
 
 
@@ -268,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689389.jpg" />
+  <img src="Z:/picture/008/save_picture_689389.jpg" />
 </div>
 
 
@@ -295,7 +380,7 @@ VA - Hellfest Open Air (2016) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688575.jpg" />
+  <img src="Z:/picture/008/save_picture_688575.jpg" />
 </div>
 
 
@@ -324,7 +409,7 @@ Uriah Heep - Live At Koko (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687415.jpg" />
+  <img src="Z:/picture/008/save_picture_687415.jpg" />
 </div>
 
 
@@ -353,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687404.jpg" />
+  <img src="Z:/picture/008/save_picture_687404.jpg" />
 </div>
 
 
@@ -379,7 +464,7 @@ Scorpions - Hellfest (2015) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686091.jpg" />
+  <img src="Z:/picture/008/save_picture_686091.jpg" />
 </div>
 
 
@@ -410,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684681.jpg" />
+  <img src="Z:/picture/008/save_picture_684681.jpg" />
 </div>
 
 
@@ -436,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683984.jpg" />
+  <img src="Z:/picture/008/save_picture_683984.jpg" />
 </div>
 
 
@@ -462,7 +547,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683235.jpg" />
+  <img src="Z:/picture/008/save_picture_683235.jpg" />
 </div>
 
 
@@ -491,7 +576,7 @@ Within Temptation / Within Temptation - Black Symphony (2008) (1080p) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680678.jpg" />
+  <img src="Z:/picture/005/save_picture_680678.jpg" />
 </div>
 
 
@@ -517,7 +602,7 @@ Foreigner - Live at the Rainbow '78 (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680129.jpg" />
+  <img src="Z:/picture/008/save_picture_680129.jpg" />
 </div>
 
 
@@ -545,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676563.jpg" />
+  <img src="Z:/picture/008/save_picture_676563.jpg" />
 </div>
 
 
@@ -574,7 +659,7 @@ Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676342.jpg" />
+  <img src="Z:/picture/008/save_picture_676342.jpg" />
 </div>
 
 
@@ -603,7 +688,7 @@ Rammstein: Paris (2017) Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676183.jpg" />
+  <img src="Z:/picture/008/save_picture_676183.jpg" />
 </div>
 
 
@@ -632,7 +717,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673915.jpg" />
+  <img src="Z:/picture/008/save_picture_673915.jpg" />
 </div>
 
 
@@ -644,84 +729,6 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F5DD1841879585A5E629C4A2015091C2294AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291221   (672117) от 23.03.2019
-
-Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Маккартни переиздал свой альбом Wings 1973 года Red Rose Speedway в роскошном издании, включающем 3 диска, 2 DVD и 1 Blu-ray. В визуальную часть пакета был включен неизданный анимационный фильм под названием « The Bruce McMouse Show», объедивший анимацию семьи любящих музыку мышей, живущих под концертной площадкой, с живыми кадрами четырех живых выступлений Wings (   Читать дальше...   )Производство: Великобритания, M.P.L. Communications LimitedЖанр: фильм-концерт, анимацияРежиссер: Барри ЧаттингтонАктеры: Пол и Линда Маккартни, Дерик Гайлер, Пэт Кумбс и Дерек НиммоПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52C26019EFBC301B611B21EFA800DDA10BC2C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291374   (668571) от 25.03.2019
-
-Квартирник НТВ у Маргулиса. Линда (23.03.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом выпуске в гости к ведущему Евгению Маргулису пришла одна из самых неординарных и эксцентричных певиц России — Линда! Артистка поделилась воспоминаниями из жизни и исполнила самые известные композиции, необычные тексты которых в соединении с тонкой мелодичностью так поражали слушателей. Евгений Маргулис признался, что раньше никогда не встречался с Линдой, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9360F3FC681372DFD268B18B46EA8B63DEE7751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537497   (667719) от 16.03.2022
-
-Adam by Eve: Анимационный концерт / Adam by Eve: A live in Animation (2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме, игровое кино, творчество певицы Eve — всё это сочетается в концерте, вдохновленном историей Адама и Евы.Производство: Япония / Studio KharaЖанр: Анимация, музыкаСубтитры: РусскиеПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E070DA5713C9438FA55FFAC184D9031EDEC93F
 ```
 
 https://mybot314.ru/tekegram_catalog/

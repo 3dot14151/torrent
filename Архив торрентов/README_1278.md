@@ -6,7 +6,7 @@ USDownloader 1.3.5.9 Portable (15.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767085.jpg" />
+  <img src="Z:/picture/008/save_picture_767085.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Allavsoft Video Downloader Converter 3.14.3.6315 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767084.jpg" />
+  <img src="Z:/picture/008/save_picture_767084.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767079.jpg" />
+  <img src="Z:/picture/008/save_picture_767079.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Moto GP. Сезон 2017. Losail International Circuit. Этап 1. Гонка (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767073.jpg" />
+  <img src="Z:/picture/008/save_picture_767073.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Street Racer Europe / Street Racer Europe: От Москвы до Барсело
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767060.jpg" />
+  <img src="Z:/picture/008/save_picture_767060.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Mac Blu-ray Player Pro 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767043.jpg" />
+  <img src="Z:/picture/008/save_picture_767043.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Image Exif Editor 4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767031.jpg" />
+  <img src="Z:/picture/008/save_picture_767031.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Memrise Learn Languages Free Premium 2.9_3923 [Ru] - Интерактивное 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767028.jpg" />
+  <img src="Z:/picture/008/save_picture_767028.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Downcast 2.9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767000.jpg" />
+  <img src="Z:/picture/008/save_picture_767000.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Receipts 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766992.jpg" />
+  <img src="Z:/picture/008/save_picture_766992.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Permute 3 3.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766989.jpg" />
+  <img src="Z:/picture/008/save_picture_766989.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Servovalve - Necromasse (2016) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Indu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766986.jpg" />
+  <img src="Z:/picture/008/save_picture_766986.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Magic Bus Tracks (2002) Warp Records [FLAC|Lossless|tracks+.cue] <Breaks, I
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766985.jpg" />
+  <img src="Z:/picture/008/save_picture_766985.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Gonçalo Penas (Goncalo Penas) - Ego De Espinhos (2019) Subtext [FLAC|Lossless|W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766984.jpg" />
+  <img src="Z:/picture/008/save_picture_766984.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ CopyClip 2.9.91 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766980.jpg" />
+  <img src="Z:/picture/008/save_picture_766980.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Downie 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766979.jpg" />
+  <img src="Z:/picture/008/save_picture_766979.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ExactScan Pro 19.1.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766977.jpg" />
+  <img src="Z:/picture/008/save_picture_766977.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ZD Soft Screen Recorder 10.4.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766971.jpg" />
+  <img src="Z:/picture/008/save_picture_766971.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766961.jpg" />
+  <img src="Z:/picture/008/save_picture_766961.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766959.jpg" />
+  <img src="Z:/picture/008/save_picture_766959.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ UltraUXThemePatcher 3.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766958.jpg" />
+  <img src="Z:/picture/008/save_picture_766958.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MacX DVD Ripper Pro 6.5.3 (build 20200630) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766953.jpg" />
+  <img src="Z:/picture/008/save_picture_766953.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Translatium 13.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766950.jpg" />
+  <img src="Z:/picture/008/save_picture_766950.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kiwi for Gmail 2.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766948.jpg" />
+  <img src="Z:/picture/008/save_picture_766948.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Firefox Browser 78.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766943.jpg" />
+  <img src="Z:/picture/008/save_picture_766943.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ ARCA Menards Series-2020. 4-й Этап. Поконо 200. Гонка / ARCA Men
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766942.jpg" />
+  <img src="Z:/picture/008/save_picture_766942.jpg" />
 </div>
 
 

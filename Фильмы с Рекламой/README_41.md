@@ -1,3 +1,29 @@
+###  Публикация: 1143469   (633006) от 19.06.2017
+
+Новый разум / Mind Blown (2016) HDTVRip [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект «Новый Разум» — секретная государственная программа, которая использует людей с исключительными способностями в своих целях. Во время очередной миссии что-то идёт не так и в результате оказывается разрушенным целый город. Кто виноват в этой трагедии и кому на самом деле можно доверять? Всё это предстоит выяснить телекинетику Дженнифер Гейнс.Производство: СШАЖанр: Фантастика, боевик, триллерРежиссер: Кристиан СесмаАктеры: Джессика Уберуага, Майкл Маринаццио, Люк Госс, Джон Мак, Стив Хэнкс, Сара Бут, Доун Броди, Мэри Кристина Браун, Сара Карсон, Винс ДекостаПеревод: Любительский многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:24:50Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32245F1D857BD116B69677BF4408E6D89F7B556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143801   (632909) от 19.06.2017
 
 Слепая зона / Dode Hoek (2017) HDRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632909.jpg" />
+  <img src="Z:/picture/008/save_picture_632909.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632842.jpg" />
+  <img src="Z:/picture/008/save_picture_632842.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631511.jpg" />
+  <img src="Z:/picture/008/save_picture_631511.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631495.jpg" />
+  <img src="Z:/picture/008/save_picture_631495.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631376.jpg" />
+  <img src="Z:/picture/008/save_picture_631376.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631346.jpg" />
+  <img src="Z:/picture/008/save_picture_631346.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631345.jpg" />
+  <img src="Z:/picture/008/save_picture_631345.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631340.jpg" />
+  <img src="Z:/picture/008/save_picture_631340.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631063.jpg" />
+  <img src="Z:/picture/008/save_picture_631063.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630943.jpg" />
+  <img src="Z:/picture/008/save_picture_630943.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630922.jpg" />
+  <img src="Z:/picture/008/save_picture_630922.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630916.jpg" />
+  <img src="Z:/picture/008/save_picture_630916.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630820.jpg" />
+  <img src="Z:/picture/008/save_picture_630820.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629565.jpg" />
+  <img src="Z:/picture/008/save_picture_629565.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627701.jpg" />
+  <img src="Z:/picture/008/save_picture_627701.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627699.jpg" />
+  <img src="Z:/picture/008/save_picture_627699.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627563.jpg" />
+  <img src="Z:/picture/008/save_picture_627563.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627455.jpg" />
+  <img src="Z:/picture/008/save_picture_627455.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627450.jpg" />
+  <img src="Z:/picture/008/save_picture_627450.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627434.jpg" />
+  <img src="Z:/picture/008/save_picture_627434.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627430.jpg" />
+  <img src="Z:/picture/008/save_picture_627430.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625800.jpg" />
+  <img src="Z:/picture/008/save_picture_625800.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625694.jpg" />
+  <img src="Z:/picture/008/save_picture_625694.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625588.jpg" />
+  <img src="Z:/picture/008/save_picture_625588.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625580.jpg" />
+  <img src="Z:/picture/008/save_picture_625580.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8856AF9A3A0191C552D9C4CDE2E38C0179B1098F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294577   (625439) от 09.04.2019
-
-Главнокомандующий / General Commander (2019) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер из Гонконга создает особую организацию "General Commander", которая должна нанести сокрушительный удар по криминальному миру. Во главе этой организации стоит настоящий профессионал своего дела Джейк Александер. В свою команду он набрал лучших из лучших. Теперь им предстоит ликвидировать самых отпетых преступников...Производство: Великобритания, Филиппины, Венгрия / Saradan Media, SPI InternationalЖанр: БоевикРежиссер: Росс В. Кларксон, Филиппе МартинесАктеры: Стивен Сигал, Рон Смуренбург, Соня Кулинг, Меган Браун, Эрденетуя Батсух, Байрон Гибсон, Джей Дэй ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:21:30Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18D14813568FEA77672FF1341DF598268D9F7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

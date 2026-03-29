@@ -1,3 +1,81 @@
+###  Публикация: 1794149   (20073) от 27.04.2025
+
+MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20073.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35EA54D1C81A9CF2803925FF44A5A9D5E03200F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798161   (17610) от 21.05.2025
+
+AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17610.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF980D844AF429D78ADAD66B0CB43DED64D71BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800185   (16019) от 01.06.2025
+
+AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16019.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EA0A0FD7EEB2E522A8C6876F37D9548A2014A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801539   (14942) от 11.06.2025
 
 O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
@@ -6,7 +84,7 @@ O&O DiskImage Premium 21.0.1074 RePack by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14942.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ Exiland Backup Professional 6.9 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13791.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ Macrium Reflect Free Edition 8.0.7783 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12389.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ MiniTool Power Data Recovery 12.6 Technician RePack (& Portable) by elchupacabra
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10434.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10253.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ FreeFileSync 14.4 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9858.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ Auslogics File Recovery 12.0.1.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9520.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ TeraByte Image for Windows 3.64 + BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9377.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Aiseesoft FoneLab for Android 5.1.12 RePack (& Portable) by elchupacabra [Multi/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8829.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Hetman Partition Recovery 5.1 Unlimited Edition RePack (& Portable) by elchupaca
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8702.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Tenorshare 4DDiG 10.5.8.1 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8616.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ Hekasoft Backup & Restore 0.99.1 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8542.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ Hetman Partition Recovery 5.1 Home / Office / Commercial / Unlimited Edition ReP
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7942.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ DiskDigger 2.0.11.4091 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5221.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ Auslogics File Recovery 12.1.0.0 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4166.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3960.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ R-Studio Network 9.5 Build 191603 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3774.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3245.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ O&O DiskImage Professional 21.1.184 RePack by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2991.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ R-Studio Network / Technician 9.5 Build 191603 RePack (& Portable) by Dodakaedr 
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2378.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Hasleo Backup Suite 5.4.2.3 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2369.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ R-Drive Image System Recovery Media Creator 7.3 Build 7310 RePack (& Portable) b
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1875.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Coolmuster Android Assistant 6.0.89 RePack (& Portable) by elchupacabra [Multi/R
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1700.jpg" />
 </div>
 
 
@@ -599,58 +677,6 @@ Coolmuster Android Assistant — программа предназначенна
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0C475C51AC82715B74AC78447785A02756EDB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819301   (1685) от 21.09.2025
-
-R-Drive Image Technician 7.3 Build 7310 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1685.jpg" />
-</div>
-
-
-###  Подробнее
-
-R-Drive Image — является эффективной утилитой для создания файлов образа диска и резервного копирования данных. Файл образа диска, содержащий точную, "байт в байт" копию жесткого диска, раздела или логического диска, может быть создан без перезагрузки компьютера и с различным уровнем сжатия данных. Созданный образ диска может быть сохранен на носителях (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48BA054E0B1A2B0DA8C7499E74A0CF1F5F13E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819499   (1501) от 22.09.2025
-
-AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1501.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D626DC9E7117DBEA56C64499F678A06BF6444B
 ```
 
 https://mybot314.ru/tekegram_catalog/

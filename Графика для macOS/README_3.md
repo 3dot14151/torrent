@@ -1,3 +1,29 @@
+###  Публикация: 971674   (985757) от 03.01.2016
+
+CameraBag 2 v2.8.01 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985757.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag 2 Desktop — это графический редактор с совершенно новым подходом к обработке фотографий. Программа работает на движке Analog Engine и имеет полный набор инструментов (25+) для коррекции цифровых фотографий с высоким качеством, полностью настраиваемые фильтры (100+) для симуляции различных эффектов. В арсенеле программы инструменты для редактирования фотографий, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2015Разработчик: Nevercenter Ltd. Co.Поддерживаемая ОС: OSX 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9276B2BF0FD239907015AFB8989E2E805098A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971698   (985475) от 03.01.2016
 
 iConvert Icons 2.9 [En]
@@ -6,7 +32,7 @@ iConvert Icons 2.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985475.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ PitStop Pro 13 Update 1 (626770) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984291.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Adobe Photoshop Elements 2020.1 v18.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965895.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ EdgeView 2 v2.842 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963275.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Adobe Photoshop Lightroom Classic 2020 9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960286.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ LUT Utility for Final Cut Pro X and Motion 1.44 (upd 29.10.2015) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959380.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ PicFrame 2.8.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957141.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Super PhotoCut 2.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951896.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Mischief 2.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951299.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ LensFlare Studio 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948282.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ Overlay 3.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946627.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Patina 1.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946582.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ WaterMarker 2 v2.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945408.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Affinity Photo 1.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943900.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Graphic 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942470.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Ember 1.8.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941019.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ On1 Photo 10.1.0 (2689) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938457.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Cf/x Photo Mosaic 2.0.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932275.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Capture One 20 Pro v13.0.3.29 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930020.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ ArtRage 6 v6.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927125.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ PictureCode Photo Ninja 1.4.0d Latest pre-release [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925308.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Color Finale Pro 1.94 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925178.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Logoist 3.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924020.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ Membrane Pro - Cover image maker 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914166.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ LensFlare Studio 5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914154.jpg" />
 </div>
 
 
@@ -672,32 +698,6 @@ LensFlare Студия является мощным инструментом м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:168BA71403E0712369317205601703C68CBD51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367739   (913932) от 17.03.2020
-
-Affinity Photo 1.8.2 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo переопределяет границы профессионального программного обеспечения для редактирования фотографий на Mac. С тщательной ориентацией на рабочий процесс он предлагает сложные инструменты для улучшения, редактирования и ретуширования ваших изображений в невероятно интуитивно понятном интерфейсе со всеми требуемыми мощностями и производительностью.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2020Разработчик: Serif (Europe) LtdПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7ED08E8A5D72575790D2542C64823F0505CF6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

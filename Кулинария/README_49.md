@@ -1,3 +1,29 @@
+###  Публикация: 1261115   (305194) от 10.11.2018
+
+Светлана Першина | Здоровое питание. Готовим на пару (2017) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если паровые блюда ассоциируются у вас только с унылой диетой при больном желудке, загляните под обложку этой книги! С помощью пара можно приготовить полезные, сытные и нескучные блюда. И даже десерты! Они порадуют вас не только отменным вкусом, но и благотворным влиянием на здоровье и фигуру, ведь витаминов в блюдах на пару остается больше, а калорий – меньше!Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881B249283D51D19963726EFF81717806581C097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261097   (305190) от 10.11.2018
 
 Елена Афанасова | Осетинские, грузинские и татарские пироги (2017) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305190.jpg" />
+  <img src="Z:/picture/008/save_picture_305190.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305012.jpg" />
+  <img src="Z:/picture/008/save_picture_305012.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302947.jpg" />
+  <img src="Z:/picture/008/save_picture_302947.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302944.jpg" />
+  <img src="Z:/picture/008/save_picture_302944.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301026.jpg" />
+  <img src="Z:/picture/008/save_picture_301026.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300908.jpg" />
+  <img src="Z:/picture/008/save_picture_300908.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300894.jpg" />
+  <img src="Z:/picture/008/save_picture_300894.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300634.jpg" />
+  <img src="Z:/picture/008/save_picture_300634.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300632.jpg" />
+  <img src="Z:/picture/008/save_picture_300632.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298507.jpg" />
+  <img src="Z:/picture/008/save_picture_298507.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298444.jpg" />
+  <img src="Z:/picture/008/save_picture_298444.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296761.jpg" />
+  <img src="Z:/picture/008/save_picture_296761.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295467.jpg" />
+  <img src="Z:/picture/008/save_picture_295467.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295405.jpg" />
+  <img src="Z:/picture/008/save_picture_295405.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294924.jpg" />
+  <img src="Z:/picture/008/save_picture_294924.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294815.jpg" />
+  <img src="Z:/picture/008/save_picture_294815.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294709.jpg" />
+  <img src="Z:/picture/008/save_picture_294709.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292993.jpg" />
+  <img src="Z:/picture/008/save_picture_292993.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292986.jpg" />
+  <img src="Z:/picture/008/save_picture_292986.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292958.jpg" />
+  <img src="Z:/picture/008/save_picture_292958.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292853.jpg" />
+  <img src="Z:/picture/008/save_picture_292853.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291088.jpg" />
+  <img src="Z:/picture/008/save_picture_291088.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Jay Shri Radhe | Хлеб бездрожжевой (2005) [PDF]
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289240.jpg" />
+  <img src="Z:/picture/008/save_picture_289240.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288140.jpg" />
+  <img src="Z:/picture/008/save_picture_288140.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287969.jpg" />
+  <img src="Z:/picture/008/save_picture_287969.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB79CEA851E157A6569DFB8C2475AF3941E1DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263549   (287630) от 19.11.2018
-
-С. Иванова (сост.) | 365 рецептов. Блюда из хлебопечки (2013) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы мечтаете всегда иметь на столе свежий, мягкий, ароматный хлеб из хлебопечки - эта книга для вас. Здесь собраны рецепты, проверенные опытом многих хозяек. Но выпечка вкусного хлеба - не единственная задача, с которой легко справляется это устройство. Возможно, вы удивитесь, узнав, сколько новых возможностей предлагает нам хлебопечка. Помимо приготовления хлеба (   Читать дальше...   )Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB572B321CEE85C4BB4506333EC998000E4A30F
 ```
 
 https://mybot314.ru/tekegram_catalog/

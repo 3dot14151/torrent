@@ -1,3 +1,57 @@
+###  Публикация: 908327   (633979) от 14.06.2015
+
+Россия. Гений места. Золотое кольцо. Часть 1 (2015.06.14) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Города и села могут быть маленькими, но их история – никогда. У каждого места своя неповторимая судьба и своя память. Этот духовный капитал древние римляне называли "гений места". Уже тогда, тысячи лет назад, люди знали: нельзя покорить народ, который помнит и ценит свое прошлое....
+
+Rip by -=DeMoH=-Телекомпания: РоссияЖанр: ДокументальныйРежиссер: Юрий СоколПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848E7A320F12700210D26E67D0C1458074558C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293889   (633612) от 05.04.2019
+
+Все об Аргентине. Все о Патагонии / Discoveries... Argentina. Patagonia (2003) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немного мест на земле, которые отличаются такой же интересной культурой, разнообразием и глубиной, как Аргентина. Здесь нас ждут величественные водопады, стаи серых китов, скалолазание, рыбалка, полеты на параплане и многое другое. Путешествие будет незабываемым.Производство: США, Bennet/Watt HD Productions, inc.Жанр: Документальный, путешествия, природа, флора, фаунаРежиссер: Джим Уотт, Келли УоттПеревод: Двуголосый закадровый, профессиональный (ТПО РЕД МЕДИА)Субтитры: отсутствуютПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CDF0DB117004C8F2C104366CBC6ECF8B5383E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908415   (633607) от 14.06.2015
 
 Мир Наизнанку. Сезон №6. Выпуск №10. Южная (Латинская) Америка (2015.06.14) SATRip
@@ -6,7 +60,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633607.jpg" />
+  <img src="Z:/picture/008/save_picture_633607.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633600.jpg" />
+  <img src="Z:/picture/008/save_picture_633600.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632328.jpg" />
+  <img src="Z:/picture/008/save_picture_632328.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628176.jpg" />
+  <img src="Z:/picture/008/save_picture_628176.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626700.jpg" />
+  <img src="Z:/picture/008/save_picture_626700.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624487.jpg" />
+  <img src="Z:/picture/008/save_picture_624487.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622921.jpg" />
+  <img src="Z:/picture/008/save_picture_622921.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622527.jpg" />
+  <img src="Z:/picture/008/save_picture_622527.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621755.jpg" />
+  <img src="Z:/picture/008/save_picture_621755.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621636.jpg" />
+  <img src="Z:/picture/008/save_picture_621636.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621632.jpg" />
+  <img src="Z:/picture/008/save_picture_621632.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621566.jpg" />
+  <img src="Z:/picture/008/save_picture_621566.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620824.jpg" />
+  <img src="Z:/picture/008/save_picture_620824.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620519.jpg" />
+  <img src="Z:/picture/008/save_picture_620519.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620364.jpg" />
+  <img src="Z:/picture/008/save_picture_620364.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620244.jpg" />
+  <img src="Z:/picture/008/save_picture_620244.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620227.jpg" />
+  <img src="Z:/picture/008/save_picture_620227.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619986.jpg" />
+  <img src="Z:/picture/008/save_picture_619986.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619984.jpg" />
+  <img src="Z:/picture/008/save_picture_619984.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619852.jpg" />
+  <img src="Z:/picture/008/save_picture_619852.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618493.jpg" />
+  <img src="Z:/picture/008/save_picture_618493.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618425.jpg" />
+  <img src="Z:/picture/008/save_picture_618425.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618421.jpg" />
+  <img src="Z:/picture/008/save_picture_618421.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618324.jpg" />
+  <img src="Z:/picture/008/save_picture_618324.jpg" />
 </div>
 
 
@@ -625,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A1A4E92C28C9A4670E7ADCB9C57B6A08772B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910755   (618311) от 22.06.2015
-
-Альпы с высоты: Северные Альпы / Die Alpen von oben. Von Salzburg zum Knigssee (2011) BDRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит увидеть Альпы от Словении до Швейцарии. Вас ждет путешествие по наиболее известной горной цепи Европы. Вы сможете оценить удивительно разнообразные ландшафты, узнаете об исторических достопримечательностях и современных видах экстремального спорта, посетите уединенные горные обители и познакомитесь с чрезвычайно гостеприимными местными жителями.Телекомпания: ARTE, Bayerischer Rundfunk, Vidicom Media ProductionsЖанр: ДокументальныйРежиссер: Кристиан Стивенхофер, Петер Барделе, Лиза ЭдерПеревод: Двухголосый  закадровый, профессиональныйПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FF872E0362CEFE5632636C1A22F140D946F835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911331   (618032) от 22.06.2015
-
-Альпы с высоты: Северные Альпы /  Die Alpen von oben: Nordalpen (2011) BDRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждет путешествие по самому известному горному хребту в Европе, Альпам. Вы сможете оценить удивительно разнообразные ландшафты, узнаете об исторических достопримечательностях и современных видах экстремального спорта, посетите уединенные горные обители и познакомитесь с чрезвычайно гостеприимными местными жителями.Жанр: ДокументальныйРежиссер: Кристиан Стивенхофер, Петер Барделе, Лиза ЭдерПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B055E3E80860C8BD47A7EBE42B36922B0A41BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

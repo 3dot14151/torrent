@@ -1,3 +1,29 @@
+###  Публикация: 1569285   (241995) от 12.08.2022
+
+QR & Barcode Scanner Pro 2.5.33 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241995.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR & Barcode Scanner Pro - ещё одно приложение для считывания штрих-кодов и QR-кодов. Пользователи смогут быстро получать исчерпывающую информацию скрывающуюся за полосками и квадратиками. Товары и продукты, реклама и объявления, билеты и зашифрованные полезные знания. Подобные элементы окружают нас со всех сторон в современном мире. И зачастую мы их просто-напросто (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.08.2022Разработчик: Gamma PlayПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3F63843AC7504187C3EB66A9E624A2BE11A2C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625167   (241819) от 09.04.2023
 
 Easy Notes 1.1.64.0331 [Ru/Multi]
@@ -6,7 +32,7 @@ Easy Notes 1.1.64.0331 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241819.jpg" />
+  <img src="Z:/picture/004/save_picture_241819.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Text Analyzer Pro 7.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241484.jpg" />
+  <img src="Z:/picture/004/save_picture_241484.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ WPS Office (Kingsoft Office) v17.5.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241479.jpg" />
+  <img src="Z:/picture/004/save_picture_241479.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ VLC for Android 3.5.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239240.jpg" />
+  <img src="Z:/picture/004/save_picture_239240.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Telegram for Android 9.6.1 (3333) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239128.jpg" />
+  <img src="Z:/picture/005/save_picture_239128.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ WhatsApp Messenger for Android 2.22.18.76 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237905.jpg" />
+  <img src="Z:/picture/004/save_picture_237905.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Vivaldi for Android 6.0.2980.26  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237585.jpg" />
+  <img src="Z:/picture/004/save_picture_237585.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ CCleaner Pro: ПО для очистки 6.8.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237268.jpg" />
+  <img src="Z:/picture/005/save_picture_237268.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ TuneIn Radio 31.8 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235956.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Dais Dark - Poweramp v3 Skin 1.3.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235938.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Busuu - изучение языков 30.8.2(600127) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235925.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Textra SMS v4.62 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235919.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Aurora - Poweramp Skin 8.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235911.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ UniBook - Аудиокниги v0.6.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235899.jpg" />
+  <img src="Z:/picture/004/save_picture_235899.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Seven / 7 Минут Упражнение v9.15.08 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235559.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ LightX v2.1.6  [Ru/Multi] - продвинутый фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235299.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ InShot - Фото и видеоредактор 1.902.1407 Mod by Mixroot, maxi1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235180.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ PowerDirector – Video Editor 12.1.2 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235138.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Lucky Patcher 10.8.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235020.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ X-plore File Manager 4.31.21 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234968.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ CamScanner 6.43.0.2306240000 Mod by maxi123444, youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234937.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Duolingo Plus: изучение иностранных языков 5.57.0 XML-M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234780.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Adobe Photoshop Express 8.1.961 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234773.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ CCleaner Pro: ПО для очистки 6.4.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234649.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Videoleap by Lightricks 1.5.12 Mod by PieMods, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234593.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Videoleap by Lightricks - весьма впечатляющий своими к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAA719DBDD291EA596FEC9128B79D8B2E177E28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457533   (234589) от 18.05.2022
-
-Домашняя аптечка v1.22.1 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Домашняя Аптечка это самый простой способ управлять своими лекарствами. Программа позволяет хранить всю необходимую информацию о Ваших медикаментах (таблетках, каплях, гелях, кремах, пилюлях, спреях и т.д.) на мобильном устройстве. Вы всегда и везде будете знать, какие лекарства у Вас есть в домашней аптечке и в каком они состоянии.Тип издания: Пиратка (открыт Premium)Релиз состоялся: 14.02.2022Разработчик: vastuf.comПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2F3FC3BAEB34E779930F8571410461EE8F0D08
 ```
 
 https://mybot314.ru/tekegram_catalog/

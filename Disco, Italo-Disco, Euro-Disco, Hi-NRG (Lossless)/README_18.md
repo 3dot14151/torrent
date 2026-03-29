@@ -6,7 +6,7 @@ Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361701.jpg" />
+  <img src="Z:/picture/008/save_picture_361701.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360799.jpg" />
+  <img src="Z:/picture/005/save_picture_360799.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360313.jpg" />
+  <img src="Z:/picture/005/save_picture_360313.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359065.jpg" />
+  <img src="Z:/picture/008/save_picture_359065.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Savage - Tonight (Expanded Edition) (1984) 2022 Reissue, Remastered, Maschina Re
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356664.jpg" />
+  <img src="Z:/picture/008/save_picture_356664.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Bad Boys Blue - Tears Turning to Ice (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353110.jpg" />
+  <img src="Z:/picture/008/save_picture_353110.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Hot Cold - Love Is Like A Game (2019) Compilation, Remastered [FLAC|Lossless|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350146.jpg" />
+  <img src="Z:/picture/008/save_picture_350146.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Radiorama - Golden Disco Hits (2002) [FLAC|Lossless|image + .cue]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349235.jpg" />
+  <img src="Z:/picture/008/save_picture_349235.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Maxine Nightingale - Lead Me On (2004) [FLAC|Lossless|tracks + .cue] <Rhythm & B
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349104.jpg" />
+  <img src="Z:/picture/008/save_picture_349104.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348001.jpg" />
+  <img src="Z:/picture/008/save_picture_348001.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347863.jpg" />
+  <img src="Z:/picture/008/save_picture_347863.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342462.jpg" />
+  <img src="Z:/picture/005/save_picture_342462.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342041.jpg" />
+  <img src="Z:/picture/008/save_picture_342041.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339982.jpg" />
+  <img src="Z:/picture/008/save_picture_339982.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339980.jpg" />
+  <img src="Z:/picture/008/save_picture_339980.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339708.jpg" />
+  <img src="Z:/picture/008/save_picture_339708.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338987.jpg" />
+  <img src="Z:/picture/008/save_picture_338987.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Gianni Morandi - Questa E' La Storia (1994) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_338561.jpg" />
+  <img src="Z:/picture/005/save_picture_338561.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ V.A. - Italo Disco 80's (Best Of Collection) (2016) [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336380.jpg" />
+  <img src="Z:/picture/008/save_picture_336380.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330609.jpg" />
+  <img src="Z:/picture/008/save_picture_330609.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_328843.jpg" />
+  <img src="Z:/picture/005/save_picture_328843.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323617.jpg" />
+  <img src="Z:/picture/008/save_picture_323617.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323178.jpg" />
+  <img src="Z:/picture/008/save_picture_323178.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321266.jpg" />
+  <img src="Z:/picture/008/save_picture_321266.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320877.jpg" />
+  <img src="Z:/picture/008/save_picture_320877.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317475.jpg" />
+  <img src="Z:/picture/008/save_picture_317475.jpg" />
 </div>
 
 

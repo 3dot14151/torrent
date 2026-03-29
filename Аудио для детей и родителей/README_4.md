@@ -1,3 +1,87 @@
+###  Публикация: 1452512   (1027611) от 06.03.2021
+
+Кейт Нортроп | Мама устала. Как перестать «все успевать» и сделать самое главное (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь каждой мамы заполнена множеством дел и забот: воспитание детей, карьера, домашние хлопоты. Кажется, что нужно всё-всё успеть – и обязательно сделать идеально и на 100 %! Но такое рвение чаще всего приводит к выгоранию. Кейт Нортроп, успешная бизнесвумен с двумя детьми, предлагает свой рецепт для занятых и вечно усталых мам: делать меньше и получать больше! (   Читать дальше...   )Жанр: Психология/Воспитание детейПродолжительность: 08:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299D76A45909AF71E03BA680D83483EA920209FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452800   (1027571) от 07.03.2021
+
+Владимир Добряков | Новая жизнь Димки Шустрова (2021) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта повесть, изданная в 1983 году, о счастливых и беззаботных школьных годах.
+Беззаботных???. Как легко так говорить взрослым!
+жила- была дружная семья: бабушка, мама и Дима и... кот,  общий любимец. Всё у них в семье было размеренно и ровно.
+Мама была журналисткой работала в редакции газеты, Дима ходил в школу и учился вроде неплохо. Бабушка заведовала домашним хозяйством, (   Читать дальше...   )Жанр: детская литератураПродолжительность: 07:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03171B3D59A12A1F7312607B7F6134AC14414F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231347   (1027438) от 07.03.2021
+
+VA - Disney Love Songs (2009) [MP3|192 kbps]<Музыка и песни для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие песни про любовь от компании Дисней. Песни из таких знаменитых мультфильмов как, Покахонтас, Бэмби, Мулан, Король Лев, Дамбо, Спящая красавица, Белоснежка, Мэри Поппинс, Питер Пен, Пиноккио01. Jon Secada Shanice - If I Never Knew You - Покахонтас
+02. Leslie French - Reflection (Karaoke 1) - Мулан
+03. Gene Miller Liz Callaway Chorus - Love Will Find A Way - Король Лев
+04. Chris Martin and Chorus - Baby Mine (Karaoke Vocal) - Дамбо(   Читать дальше...   )Жанр: Музыка и песни для детейПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07A9ACBF9F6A72A78F9D12B114D7254DF58ABC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 441713   (1027009) от 10.03.2021
 
 Владимир Шаинский – Белые Кораблики (2009) [MP3|320 kbps]<Детская музыка>
@@ -6,7 +90,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027009.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Songbirds - Песни для детей на английском языке  [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026999.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026945.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026793.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026421.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026255.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026078.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026005.jpg" />
 </div>
 
 
@@ -222,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025076.jpg" />
 </div>
 
 
@@ -248,7 +332,7 @@ Pregnant and Zen - Музыка для беременных (2011) [MP3|320 kbps
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024989.jpg" />
 </div>
 
 
@@ -277,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024941.jpg" />
 </div>
 
 
@@ -303,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024928.jpg" />
 </div>
 
 
@@ -330,7 +414,7 @@ VA - Эффект Моцарта - Музыка для новорожденны�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024792.jpg" />
 </div>
 
 
@@ -359,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023833.jpg" />
 </div>
 
 
@@ -385,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023812.jpg" />
 </div>
 
 
@@ -411,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023761.jpg" />
 </div>
 
 
@@ -438,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023729.jpg" />
 </div>
 
 
@@ -467,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023701.jpg" />
 </div>
 
 
@@ -493,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023623.jpg" />
 </div>
 
 
@@ -519,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023610.jpg" />
 </div>
 
 
@@ -545,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023584.jpg" />
 </div>
 
 
@@ -572,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023267.jpg" />
 </div>
 
 
@@ -604,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023233.jpg" />
 </div>
 
 
@@ -618,84 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AFF2572CAAFFDDBAB6453243A24579F75D1D3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491023   (1023225) от 01.04.2021
-
-Н.А. Кун | Легенды и мифы Древней Греции (2005) [MP3, Н. Караченцов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенды и мифы Древней Греции были озвучены актёрами московских театров для детей. Что такое легенды и мифы? Это те же сказки, только из другой страны. А кто самый первый любитель сказок? Конечно же ребёнок. Приятно совместить развлечение и познание мира.Жанр: аудиоспектакль для детейПродолжительность: 06:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3800EAE1D1F952F4DD6C5F3888A274178C36604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459650   (1023150) от 02.04.2021
-
-Владислав Крапивин | Ковер - самолет (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оказывается, летать можно не только во сне. Герои сказочной повести — самые обыкновенные ребята. Однажды летом они нашли в старом чулане ковер и узнали его тайну. С этого момента перед друзьями открылись невероятные возможности. Их ждут захватывающие приключения и замечательные путешествия, в которых отважным «летчикам» предстоит совершить множество добрых и справедливых (   Читать дальше...   )Жанр: Детская литература, Фантастика. ПовестьПродолжительность: 05:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3C82EABEC3662A5B08EB3A1DEA887108E887EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460494   (1022598) от 05.04.2021
-
-Ольга Назарова | По ту сторону сказки. Ветры, кони и дороги. Книга 7 (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022598.jpg" />
-</div>
-
-
-###  Подробнее
-
-В седьмой книге серии Катерина попадает в плен к викингам, невольно получает в услужение очень хулиганский Ветер и вывозит из-под носа Кащея великого лукоморского мастера. Ей приходится научиться путать дороги, не пропуская целое войско к мирным землям сказочных царств, пережить предательство и разочарование. Её саму Кир и Степан спасают от хищных цветов. Кир временно (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 12:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E554386C783F3F7327E8EEFC5C42637FBEBA38E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

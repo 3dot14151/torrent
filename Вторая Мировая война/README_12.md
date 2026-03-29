@@ -1,3 +1,55 @@
+###  Публикация: 943850   (445059) от 05.10.2015
+
+Атомная бомба Адольфа Гитлера. Версии (2015) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445059.jpg" />
+</div>
+
+
+###  Подробнее
+
+О попытках создания ядерного оружия в гитлеровской Германии. О том, что проводившиеся в Тюрингии в 1943 году испытания имели отношения именно к этим попыткам. О том, что атомное оружие нацистами было, по всей видимости, действительно создано. И о том, что предотвратило его использование против СССР и его союзников в конце Второй мировой войны.Телекомпания: "Голд-медиум"Жанр: ДокументальныйПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E074D10D8A6AD8BF300CEC204C7579F704A1C3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570379   (442869) от 17.08.2022
+
+В июне сорок четвертого. Герои Свирского десанта (2022) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освобождение Правобережной Украины и Крыма говорило о том, что главным направлением летом 1944 года будет южное. На севере нового большого наступления фашисты не ожидали. Сталин же понимал – Финляндию нужно выводить из игры. Фильм раскроет детали уникальной Свирско-Петрозаводской операции, решившей две важнейшие задачи: ликвидация угрозы Ленинграду со стороны Финляндии, (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: документальный, история, войнаРежиссер: Сергей МерзляковЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB9257DEDD29E5385C5516694F568075B503FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944599   (440381) от 07.10.2015
 
 Бомба для Японии. Спасти Дальний Восток (2010) IPTVRip
@@ -6,7 +58,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440381.jpg" />
+  <img src="Z:/picture/008/save_picture_440381.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436974.jpg" />
+  <img src="Z:/picture/008/save_picture_436974.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC - Вторая Мировая Война: 1941г и Человек из Ст
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430973.jpg" />
+  <img src="Z:/picture/008/save_picture_430973.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427158.jpg" />
+  <img src="Z:/picture/008/save_picture_427158.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424953.jpg" />
+  <img src="Z:/picture/008/save_picture_424953.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ National Geographic. Последние шаги Гитлера / Hitler's Last 
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418661.jpg" />
+  <img src="Z:/picture/008/save_picture_418661.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ NG. Последние шаги Гитлера / Hitler's Last Stand (2019) HDTV
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418485.jpg" />
+  <img src="Z:/picture/008/save_picture_418485.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417102.jpg" />
+  <img src="Z:/picture/008/save_picture_417102.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415335.jpg" />
+  <img src="Z:/picture/008/save_picture_415335.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411955.jpg" />
+  <img src="Z:/picture/008/save_picture_411955.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410830.jpg" />
+  <img src="Z:/picture/008/save_picture_410830.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ History Channel. Высадка союзников в Нормандии. Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408703.jpg" />
+  <img src="Z:/picture/008/save_picture_408703.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ History Channel. Высадка союзников в Нормандии. Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408698.jpg" />
+  <img src="Z:/picture/008/save_picture_408698.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ History Channel. Высадка союзников в Нормандии: Нер
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408621.jpg" />
+  <img src="Z:/picture/008/save_picture_408621.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ History Channel. Поле битвы 360°. Авианосец «Энтерпр�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408613.jpg" />
+  <img src="Z:/picture/008/save_picture_408613.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407355.jpg" />
+  <img src="Z:/picture/008/save_picture_407355.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407332.jpg" />
+  <img src="Z:/picture/008/save_picture_407332.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388401.jpg" />
+  <img src="Z:/picture/008/save_picture_388401.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383241.jpg" />
+  <img src="Z:/picture/008/save_picture_383241.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ History Channel. Вторая мировая война: взгляд из ко�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383232.jpg" />
+  <img src="Z:/picture/008/save_picture_383232.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382976.jpg" />
+  <img src="Z:/picture/008/save_picture_382976.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382801.jpg" />
+  <img src="Z:/picture/008/save_picture_382801.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382786.jpg" />
+  <img src="Z:/picture/008/save_picture_382786.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380944.jpg" />
+  <img src="Z:/picture/008/save_picture_380944.jpg" />
 </div>
 
 
@@ -619,62 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5BCAC7699D3FD38576D1A61572A6A20E008E0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173011   (380932) от 17.10.2017
-
-Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTVRip (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380932.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор.
-Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один из высших офицеров, ответственных за защиту Оаху?
-Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FCCAE1210E9F48C52CEE24E585EF0324FFD182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173014   (380930) от 17.10.2017
-
-Правда о Пёрл-Харборе / Pearl Harbor: The Truth (2016) HDTV [H.264/1080p-LQ] (2 серии из 2)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380930.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 75-й годовщине внезапного нападения японцев на Пёрл-Харбор.
-Остается много вопросов, в частности, что Вашингтон знал о предстоящем нападении и какие действия предпринимал? Было перехвачено огромное количество радиограмм между Токио и его посольством. Почему о них не знал ни один из высших офицеров, ответственных за защиту Оаху?
-Захватывающий сериал из двух частей (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, историяРежиссер: Кристофер СпенсерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 х ~ 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2FF433E4EF943D8311CE5F838BD7FFA6A658E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

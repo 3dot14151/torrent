@@ -6,7 +6,7 @@ Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231138.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231131.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Desolator - Sermon of Apathy (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231016.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mortemia - The Pandemic Pandemonium Sessions (2022) [MP3|320 Kbps] <Symphonic Go
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231008.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Desolator - Unearthly Monument (2013) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231001.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Desolator - Spawn of Misanthropy (2016) EP [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230986.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230944.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Crossing Eternity - The Rising World (2018) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230933.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Dawnlight - Until the Dark Sun Rises (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230915.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Necrofier - Prophecies of Eternal Darkness (2021) [MP3|320 Kbps] <Melodic Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230899.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Necrofier - Burning Shadows in the Southern Night (2023) [MP3|320 Kbps] <Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230889.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Voidfallen - The Atlas of Spiritual Apocalypse (2021) [MP3|320 Kbps] <Melodic De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230795.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ After The Burial - Wolves Within (2013) [MP3|320 кб/с]<Progressive Metalcore 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229782.jpg" />
+  <img src="Z:/picture/004/save_picture_229782.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Art Of Life - Find the Light (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229504.jpg" />
+  <img src="Z:/picture/004/save_picture_229504.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Green Labyrinth - Shadow of My Past (2014) [MP3|320 Kbps] <Symphonic Metal, Fema
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229462.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Angra - Secret Garden (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229445.jpg" />
+  <img src="Z:/picture/004/save_picture_229445.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Night Legion - Night Legion (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229380.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Night Legion - Fight or Fall (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229297.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Green Labyrinth - Sequences (2023) [MP3|320 Kbps] <Symphonic Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229282.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Lordi - Lordiversity: Superflytrap (2021) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229178.jpg" />
+  <img src="Z:/picture/004/save_picture_229178.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Twilight Aura - For A Better World (2022) [MP3|320 Kbps] <Melodic Progressive Po
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229063.jpg" />
+  <img src="Z:/picture/004/save_picture_229063.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ In This Moment - Blood 1983 (2022) EP [MP3|320 Kbps] <Alt.Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228711.jpg" />
+  <img src="Z:/picture/005/save_picture_228711.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Lacuna Coil - Comalies XX (2022) [MP3|320 Kbps] 2CD <Gothic Metal, Alternative M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228672.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Anna Fiori - Magna Mater (2013) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228646.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ U.D.O. - The Legacy (2022) 2CD, Compilation [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228623.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Anna Fiori - Magna Mater (2013) 10th Anniversary, Remixed & Remastered, 2023, An
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228608.jpg" />
 </div>
 
 

@@ -1,3 +1,112 @@
+###  Публикация: 1344238   (213763) от 09.12.2019
+
+Sync Folders Pro 3.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
+
+Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2019Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAD795D09706A9F0B6E8755C31B1DCC445E40A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426611   (213762) от 25.11.2020
+
+DupeZap 4.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213762.jpg" />
+</div>
+
+
+###  Подробнее
+
+DupeZap (бывший DupeZap Plus) - Утилита, позволяющая искать и удалять дубликаты файлов.
+С ее помощью можно найти одинаковые картинки, аудио записи, видео, приложение и другие файлы.
+
+Особенности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: Hyperbolic Software.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569D9337EF1C75DE5936E5E76D7E452459244B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426598   (213757) от 25.11.2020
+
+EdgeView 2 v2.900 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213757.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 2 - это новейший просмотрщик изображений, вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A1E8BBD96680E262E1AA7E361205F883E7A115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426784   (213753) от 25.11.2020
+
+Scherlokk - Files finder 4 v4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scherlokk является утилитой для быстрого поиска одного файла для точного и надежного поиска каждого файла, который соответствует критериям поиска. Музыка, изображения, закладки, документы и т.д., можно найти быстро и легко. Поиск может быть сделано в любой папке и на любом диске в том числе на съёмных носителях (pendrives, карты памяти, USB-диски), сетевой диск (AFP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F04E1C7E859F1BC17D016F31F523863D5E457B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426735   (213745) от 25.11.2020
 
 TextSoap 8 v8.6.1 [En]
@@ -6,7 +115,7 @@ TextSoap 8 v8.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213745.jpg" />
+  <img src="Z:/picture/005/save_picture_213745.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Mirror for Roku TV 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213743.jpg" />
+  <img src="Z:/picture/005/save_picture_213743.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ UniConverter 11.6.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213741.jpg" />
+  <img src="Z:/picture/005/save_picture_213741.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ A Better Finder Attributes 7 v7.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213738.jpg" />
+  <img src="Z:/picture/005/save_picture_213738.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ Blocs 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213736.jpg" />
+  <img src="Z:/picture/005/save_picture_213736.jpg" />
 </div>
 
 
@@ -140,7 +249,7 @@ Grid 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213728.jpg" />
+  <img src="Z:/picture/005/save_picture_213728.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ Disk Xray 2.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213725.jpg" />
+  <img src="Z:/picture/005/save_picture_213725.jpg" />
 </div>
 
 
@@ -195,7 +304,7 @@ PullTube 1.8.5.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213720.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213718.jpg" />
+  <img src="Z:/picture/005/save_picture_213718.jpg" />
 </div>
 
 
@@ -247,7 +356,7 @@ Dark Mode for Safari 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213716.jpg" />
+  <img src="Z:/picture/005/save_picture_213716.jpg" />
 </div>
 
 
@@ -273,7 +382,7 @@ PaintCode 3 v3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213715.jpg" />
+  <img src="Z:/picture/005/save_picture_213715.jpg" />
 </div>
 
 
@@ -299,7 +408,7 @@ Dynamic Wallpaper Engine 15.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213712.jpg" />
 </div>
 
 
@@ -325,7 +434,7 @@ DEVONthink Pro Office/Server 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213689.jpg" />
+  <img src="Z:/picture/005/save_picture_213689.jpg" />
 </div>
 
 
@@ -351,7 +460,7 @@ Kiwi for Gmail 2.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213686.jpg" />
+  <img src="Z:/picture/005/save_picture_213686.jpg" />
 </div>
 
 
@@ -379,7 +488,7 @@ iThoughtsX 5.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213682.jpg" />
+  <img src="Z:/picture/005/save_picture_213682.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ WiFi Explorer 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213670.jpg" />
+  <img src="Z:/picture/005/save_picture_213670.jpg" />
 </div>
 
 
@@ -433,7 +542,7 @@ Wondershare PDFelement Pro 7.5.4.2797 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213656.jpg" />
+  <img src="Z:/picture/005/save_picture_213656.jpg" />
 </div>
 
 
@@ -459,7 +568,7 @@ Viscosity 1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213650.jpg" />
+  <img src="Z:/picture/005/save_picture_213650.jpg" />
 </div>
 
 
@@ -487,7 +596,7 @@ Artlantis 2020 v9.0.2.21201 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213628.jpg" />
+  <img src="Z:/picture/005/save_picture_213628.jpg" />
 </div>
 
 
@@ -513,7 +622,7 @@ Moom 3.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213610.jpg" />
+  <img src="Z:/picture/005/save_picture_213610.jpg" />
 </div>
 
 
@@ -541,7 +650,7 @@ PDF Expert 2.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213608.jpg" />
+  <img src="Z:/picture/005/save_picture_213608.jpg" />
 </div>
 
 
@@ -570,7 +679,7 @@ ProPresenter 6 v6.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213577.jpg" />
+  <img src="Z:/picture/005/save_picture_213577.jpg" />
 </div>
 
 
@@ -584,111 +693,6 @@ ProPresenter — это удобный многоцелевой инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63EA23D02C2CC33D869A384B18F045506DB658BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557762   (213243) от 19.06.2022
-
-Adobe Premiere Pro 2022 22.4.0 (build 57) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.05.2022Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C37AFF396769769B4ADFC8DD8E8D6FC20A6F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557480   (213232) от 19.06.2022
-
-Topaz Gigapixel AI 6.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.05.2022Разработчик: © Topaz LabsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EC095A591091DD03A2018A1F766D100DC61A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559894   (213035) от 27.06.2022
-
-Adobe Animate 2022 v22.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate 2021, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate также позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.06.2022Разработчик: © 1993 - 2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62C09771CDDDEA914A15388C82B8E79878FC5A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560642   (212967) от 30.06.2022
-
-Capture One 22 Pro v15.3.1.15 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конвертеров цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.06.2022Разработчик: © 2022 Phase OneПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса приложения зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05CDEE2ADB0E94AEB1A3AC38C9B2978A0CC9DEA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

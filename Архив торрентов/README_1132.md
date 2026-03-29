@@ -6,7 +6,7 @@ Carbon Copy Cloner 6 v6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792772.jpg" />
+  <img src="Z:/picture/008/save_picture_792772.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Maxon Cinema 4D Studio R25.015 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792760.jpg" />
+  <img src="Z:/picture/008/save_picture_792760.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ WonderFox HD Video Converter Factory Pro 24.3 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792758.jpg" />
+  <img src="Z:/picture/008/save_picture_792758.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792757.jpg" />
+  <img src="Z:/picture/008/save_picture_792757.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ApowerREC 1.5.1.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792756.jpg" />
+  <img src="Z:/picture/008/save_picture_792756.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Notepad++ 8.1.9.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792754.jpg" />
+  <img src="Z:/picture/008/save_picture_792754.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Smart Defrag Pro 7.2.0.91 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792751.jpg" />
+  <img src="Z:/picture/008/save_picture_792751.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BetterTouchTool 2.685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792737.jpg" />
+  <img src="Z:/picture/008/save_picture_792737.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Carbon Copy Cloner 5.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792735.jpg" />
+  <img src="Z:/picture/008/save_picture_792735.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Sidify Music Converter 2.4.1 RePack (& portable) by elchupacabra (для Spotify
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792731.jpg" />
+  <img src="Z:/picture/008/save_picture_792731.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BleachBit 4.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792720.jpg" />
+  <img src="Z:/picture/008/save_picture_792720.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mozilla Firefox ESR 52.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792707.jpg" />
+  <img src="Z:/picture/008/save_picture_792707.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PDF Checkpoint 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792704.jpg" />
+  <img src="Z:/picture/008/save_picture_792704.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Dash 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792696.jpg" />
+  <img src="Z:/picture/008/save_picture_792696.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792693.jpg" />
+  <img src="Z:/picture/008/save_picture_792693.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792684.jpg" />
+  <img src="Z:/picture/008/save_picture_792684.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MarkMyWords 1.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792683.jpg" />
+  <img src="Z:/picture/008/save_picture_792683.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Opera 50.0.2762.67 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792678.jpg" />
+  <img src="Z:/picture/008/save_picture_792678.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Two Friends - Live @ Room Service Festival, United States 2020-04-26 [MP3|320 Kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792673.jpg" />
+  <img src="Z:/picture/008/save_picture_792673.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Alcohol 120% 2.0.3.10121 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792667.jpg" />
+  <img src="Z:/picture/008/save_picture_792667.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) UHD B
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792660.jpg" />
+  <img src="Z:/picture/008/save_picture_792660.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792653.jpg" />
+  <img src="Z:/picture/008/save_picture_792653.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792652.jpg" />
+  <img src="Z:/picture/008/save_picture_792652.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.5.8 Build 6302 Stable RePack (& 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792624.jpg" />
+  <img src="Z:/picture/008/save_picture_792624.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ BELOFF [dp] 2021.11.2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792621.jpg" />
+  <img src="Z:/picture/008/save_picture_792621.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792614.jpg" />
+  <img src="Z:/picture/008/save_picture_792614.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 236144   (524476) от 13.08.2017
+
+Крейсер "Варяг" (2005) DVDRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крейсер "Варяг" - самый знаменитый корабль Российского флота. Бой этого крейсера с японской эскадрой на рейде далекого корейского порта Чемульпо стал первым сражением Русско-японской войны 1904-1905 гг., произошедшим на глазах многочисленных иностранных наблюдателей. Неудивительно, что он вызвал огромный резонанс. Имя "Варяг" появилось на первых (   Читать дальше...   )Жанр: Документальный.Язык субтитров: Английские.Продолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F018EDDBC07243CEFB1678353A942C47685EEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241312   (521069) от 16.08.2018
 
 Каникулы в историю. Казачество (2013) SATRip (6 серий из 6)
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521069.jpg" />
+  <img src="Z:/picture/008/save_picture_521069.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520845.jpg" />
+  <img src="Z:/picture/008/save_picture_520845.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518485.jpg" />
+  <img src="Z:/picture/008/save_picture_518485.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517391.jpg" />
+  <img src="Z:/picture/008/save_picture_517391.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517088.jpg" />
+  <img src="Z:/picture/008/save_picture_517088.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514570.jpg" />
+  <img src="Z:/picture/008/save_picture_514570.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514029.jpg" />
+  <img src="Z:/picture/008/save_picture_514029.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513854.jpg" />
+  <img src="Z:/picture/008/save_picture_513854.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513768.jpg" />
+  <img src="Z:/picture/008/save_picture_513768.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509102.jpg" />
+  <img src="Z:/picture/008/save_picture_509102.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507904.jpg" />
+  <img src="Z:/picture/008/save_picture_507904.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507133.jpg" />
+  <img src="Z:/picture/008/save_picture_507133.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507039.jpg" />
+  <img src="Z:/picture/008/save_picture_507039.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504277.jpg" />
+  <img src="Z:/picture/008/save_picture_504277.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503618.jpg" />
+  <img src="Z:/picture/008/save_picture_503618.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503418.jpg" />
+  <img src="Z:/picture/008/save_picture_503418.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502306.jpg" />
+  <img src="Z:/picture/008/save_picture_502306.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501447.jpg" />
+  <img src="Z:/picture/008/save_picture_501447.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500515.jpg" />
+  <img src="Z:/picture/008/save_picture_500515.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498604.jpg" />
+  <img src="Z:/picture/008/save_picture_498604.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497518.jpg" />
+  <img src="Z:/picture/008/save_picture_497518.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497327.jpg" />
+  <img src="Z:/picture/008/save_picture_497327.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493529.jpg" />
+  <img src="Z:/picture/008/save_picture_493529.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492008.jpg" />
+  <img src="Z:/picture/008/save_picture_492008.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485008.jpg" />
+  <img src="Z:/picture/008/save_picture_485008.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C168C8F47E5951EC16FCF13F895658A9C2D74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405403   (482861) от 30.08.2020
-
-Последний воин СМЕРШа (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482861.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 января 2020 Иван Лаврентьевич Устинов отметил свой сотый День рождения. Военный контрразведчик! Человек-эпоха! Он прошел Великую Отечественную. Воевал в составе легендарного СМЕРШ, который 19 апреля 2020 отметил 77-ю годовщину со дня создания. Ловил шпионов. Позже - боролся с происками иностранных разведок в период Холодной войны. Возглавлял военную контрразведку (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: Документальный, биографияРежиссер: Сергей МерзляковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939572DA5C1902876C0C974CEACC0798E725DC30
 ```
 
 https://mybot314.ru/tekegram_catalog/

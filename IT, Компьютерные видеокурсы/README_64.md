@@ -1,3 +1,146 @@
+###  Публикация: 1175637   (378174) от 18.10.2017
+
+Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем собственный STL (2017) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записи лекций летней C++ школы от Unigine в исполнении Андрея Аксёнова.
+
+Бесплатный онлайн-курс программирования на С++ для продвинутых.
+01 Курс - Пишем собственный STL:(   Читать дальше...   )Производство: UNIGINEЖанр: Программирование, С++Продолжительность: 14:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175150   (378061) от 18.10.2017
+
+Udemy | The Complete Angular Course: Beginner to Advanced (2017) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angular является одним из самых популярных фреймворков для создания клиентских приложений с HTML, CSS и TypeScript. Если вы хотите зарекомендовать себя в качестве фронтенд-разработчика или фуллстэк-разработчика, вам необходимо изучить Angular.
+
+Если вы были сбиты с толку или разочарованы, перепрыгнув с одних уроков по Angular 4 на другие, вы пришли в нужное место. (   Читать дальше...   )Производство: Mosh HamedaniЖанр: Angular, Javascript, Веб-программированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 28:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415134   (378014) от 11.10.2020
+
+[Udemy] Piotr Jura | Изучите Laravel с GraphQL, Vue.js и Tailwind / Master Laravel with GraphQL, Vue.js and Tailwind (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите GraphQL в Laravel и Vue, создав клон Trello с помощью Tailwind CSS!
+Если вы хотите узнать, как создавать SPA с помощью Laravel, Lighthouse, Vue.js, Apollo Client, Tailwind CSS и GraphQL, вы нашли лучшее место.
+В этом курсе вы создадите клон Trello (проект Laravello) и приложение блога, вдохновленное Netlify (проект BlogQL).
+По пути вы узнаете:(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECA111D89AFF0C37B52D027942F11719794D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415214   (378004) от 11.10.2020
+
+Academind Pro | Vue 3 - Полное руководство (включая Router, Vuex, Composition API) / Vue 3 - The Complete Guide (incl. Router, Vuex, Composition API) (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите Vue.js - в его последней версии - шаг за шагом с нуля. Узнайте, как создавать высокореактивные веб-приложения с помощью одного из самых популярных фреймворков!
+
+Независимо от того, на какую метрику вы смотрите (Google Trends, Github Stars, Tweets) - VueJS - падающая звезда в мире фреймворков JavaScript - это просто потрясающе!
+(   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 30:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9275204C64EE79187363275298FF2F6101C283AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175171   (377912) от 18.10.2017
+
+Специалист | Linux (CentOS/Debian). Уровень 3. Создание отказоустойчивых кластерных решений (2017) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надежность — один из важнейших параметров современных информационных систем. Финансовые потери, вызванные их простоем, могут многократно превышать стоимость оборудования.
+
+Девиз курса – «В отпуск с легким сердцем!». На этом курсе Вы научитесь использовать резервное оборудование для создания высоконадежных отказоустойчивых кластеров на основе бюджетных решений, доступных (   Читать дальше...   )Производство: Лохтуров Вячеслав АлександровичЖанр: Linux, Системное администрированиеПродолжительность: 12:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B3DC9A22243267F3EE14664527E60E8EA4576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175191   (377910) от 18.10.2017
 
 WayUp | Веб-верстальщик. Код фрилансера (2017) PCRec
@@ -6,7 +149,7 @@ WayUp | Веб-верстальщик. Код фрилансера (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377910.jpg" />
+  <img src="Z:/picture/008/save_picture_377910.jpg" />
 </div>
 
 
@@ -34,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377904.jpg" />
+  <img src="Z:/picture/008/save_picture_377904.jpg" />
 </div>
 
 
@@ -63,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377903.jpg" />
+  <img src="Z:/picture/008/save_picture_377903.jpg" />
 </div>
 
 
@@ -92,7 +235,7 @@ FructCode, Sergei Nikonov | Курс HTML/CSS - Интерактивный ку�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376480.jpg" />
+  <img src="Z:/picture/008/save_picture_376480.jpg" />
 </div>
 
 
@@ -121,7 +264,7 @@ ITVDN | Сборник бесплатных вебинаров (2014 - 2015) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376405.jpg" />
+  <img src="Z:/picture/008/save_picture_376405.jpg" />
 </div>
 
 
@@ -147,7 +290,7 @@ FrontendConf 2020 | Профессиональная конференция фр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375761.jpg" />
+  <img src="Z:/picture/008/save_picture_375761.jpg" />
 </div>
 
 
@@ -176,7 +319,7 @@ Oleg Lav | Бесплатная антивирусная программа Pand
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374756.jpg" />
+  <img src="Z:/picture/008/save_picture_374756.jpg" />
 </div>
 
 
@@ -202,7 +345,7 @@ IT Education Center | Linux для новичков (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373979.jpg" />
+  <img src="Z:/picture/008/save_picture_373979.jpg" />
 </div>
 
 
@@ -228,7 +371,7 @@ Embacy | Курс вёрстки на Webflow (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372312.jpg" />
+  <img src="Z:/picture/008/save_picture_372312.jpg" />
 </div>
 
 
@@ -257,7 +400,7 @@ Udemy, Drozdov Sergey | Робот для торговли криптовалю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372311.jpg" />
+  <img src="Z:/picture/008/save_picture_372311.jpg" />
 </div>
 
 
@@ -283,7 +426,7 @@ Udemy, Yuri Popov | Unreal Engine — полное руководство по �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372300.jpg" />
+  <img src="Z:/picture/008/save_picture_372300.jpg" />
 </div>
 
 
@@ -311,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371429.jpg" />
+  <img src="Z:/picture/008/save_picture_371429.jpg" />
 </div>
 
 
@@ -338,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371403.jpg" />
+  <img src="Z:/picture/008/save_picture_371403.jpg" />
 </div>
 
 
@@ -367,7 +510,7 @@ software-testing.ru | Организация функционального те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371296.jpg" />
+  <img src="Z:/picture/008/save_picture_371296.jpg" />
 </div>
 
 
@@ -393,7 +536,7 @@ Udemy, Виктор Черемных | Настройка MikroTik и CISCO Fire
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370061.jpg" />
+  <img src="Z:/picture/008/save_picture_370061.jpg" />
 </div>
 
 
@@ -419,7 +562,7 @@ software-testing.ru | Техники и инструменты поиска и �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369234.jpg" />
+  <img src="Z:/picture/008/save_picture_369234.jpg" />
 </div>
 
 
@@ -448,7 +591,7 @@ tocode.ru | Курс по vue.js - с нуля до про (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368999.jpg" />
+  <img src="Z:/picture/008/save_picture_368999.jpg" />
 </div>
 
 
@@ -477,7 +620,7 @@ JUG Ru Group | Heisenbug 2022 Spring. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367983.jpg" />
+  <img src="Z:/picture/008/save_picture_367983.jpg" />
 </div>
 
 
@@ -504,7 +647,7 @@ Oleg Lav | ZoneAlarm Free Firewall — Фаервол для вашего ком
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367204.jpg" />
+  <img src="Z:/picture/008/save_picture_367204.jpg" />
 </div>
 
 
@@ -530,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366858.jpg" />
+  <img src="Z:/picture/008/save_picture_366858.jpg" />
 </div>
 
 
@@ -558,7 +701,7 @@ JUG Ru Group | Hydra 2022. Concurrent and distributed computing conference / Hyd
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366178.jpg" />
+  <img src="Z:/picture/008/save_picture_366178.jpg" />
 </div>
 
 
@@ -571,140 +714,6 @@ Hydra - это техническая конференция, на котору�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E306FC4A9B0C3670AECB12C3BD66CAA92362F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575402   (365121) от 16.11.2012
-
-Видеоурок | Технология ремонта блока питания ATX [2012] WEB-DLRip [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блок питания персонального компьютера преобразует сетевое переменное напряжение 220 вольт 50 герц в постоянное напряжение плюс пять и плюс двенадцать вольт которые используются для питания цифровых схем. Вам представлен один из вариантов ремонта блока питания. Приятного просмотра.Жанр: ВидеоурокПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797926   (364811) от 28.10.2015
-
-Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по фреймворку Bootstrap 3 за 2011 - 2014 года. Сюда вошли все актуальные курсы от Lynda.com на сегодняшний день. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 10:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416875   (364742) от 17.10.2020
-
-[Udemy] KodeKloud Training и др. | OpenShift для абсолютных новичков - Практический опыт / OpenShift for the Absolute Beginners - Hands-on (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите основы OpenShift, которые вам понадобятся для создания простого кластера OpenShift и приступите к развертыванию и управлению приложением.
-Создайте прочную основу для OpenShift и оркестровки контейнеров с помощью этого руководства для начинающих.
-Развертывайте OpenShift с Minishift;
-Понимайте проекты, пользователей;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96268EADC07D7B396493DAE5F79C78FC9E8B3894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416703   (364606) от 17.10.2020
-
-Fandroid | Продвинутый курс по созданию андроид-приложения «Диктофон» на языке Котлин (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364606.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом Продвинутом курсе вы узнаете, как создать андроид-приложение «Диктофон» для записи голоса, самостоятельно и независимо от опыта в программировании. В курсе содержится пошаговая инструкция по разработке мобильного приложения, с учетом актуальных тенденций в разработке, с использованием популярных инструментов и рекомендуемых подходов:
-Язык разработки: Kotlin (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F75E4F29D190BF93115FCADFA34AE5D5CEF8A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416854   (364602) от 17.10.2020
-
-Сергей Голубицкий | Руководство по DarkNet - I2P и Freenet (2018) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364602.jpg" />
-</div>
-
-
-###  Подробнее
-
-На вебинарах о DarkNet Сергей Голубицкий не транслирует общеизвестное мнение о «Тёмном интернете» как рассаднике антисоциальных возможностей, а даёт культурологическое представление о Даркнете как феномене современной социальной мифологии. В рамках интересов МИНОА после просмотра вебинара вы научитесь не тому, где покупать наркотики, а тому как использовать Даркнет (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 02:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A01DBEEC74294C7CDF7C8B5D5F095BA1DC33193
 ```
 
 https://mybot314.ru/tekegram_catalog/

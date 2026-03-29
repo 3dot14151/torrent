@@ -6,7 +6,7 @@ DAEMON Tools Pro 7.1.0.0595 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851709.jpg" />
+  <img src="Z:/picture/008/save_picture_851709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Altap Salamander 3.08 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851660.jpg" />
+  <img src="Z:/picture/008/save_picture_851660.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Windows and Office ISO Download Tool 4.20 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851657.jpg" />
+  <img src="Z:/picture/008/save_picture_851657.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Icecream Ebook Reader Pro 4.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851650.jpg" />
+  <img src="Z:/picture/008/save_picture_851650.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Windows 10.0.18362.778 Version 1903 (April 2020 Update) - Оригин
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851645.jpg" />
+  <img src="Z:/picture/008/save_picture_851645.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cent Browser 4.2.10.169 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851640.jpg" />
+  <img src="Z:/picture/008/save_picture_851640.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851633.jpg" />
+  <img src="Z:/picture/008/save_picture_851633.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ WYSIWYG Web Builder 11.0.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851626.jpg" />
+  <img src="Z:/picture/008/save_picture_851626.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ SpyShelter Free Anti-Keylogger 10.7.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851621.jpg" />
+  <img src="Z:/picture/008/save_picture_851621.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Avira Free Antivirus 15.0.25.154 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851525.jpg" />
+  <img src="Z:/picture/008/save_picture_851525.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FocusWriter 1.7.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851510.jpg" />
+  <img src="Z:/picture/008/save_picture_851510.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wondershare UniConverter 11.7.5.1 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851504.jpg" />
+  <img src="Z:/picture/008/save_picture_851504.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Notepad++ 7.8.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851492.jpg" />
+  <img src="Z:/picture/008/save_picture_851492.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851378.jpg" />
+  <img src="Z:/picture/008/save_picture_851378.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ AOMEI Backupper Technician Plus 5.7.0 (22.04.2020) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851275.jpg" />
+  <img src="Z:/picture/008/save_picture_851275.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851259.jpg" />
+  <img src="Z:/picture/008/save_picture_851259.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Topaz DeNoise AI 3.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851139.jpg" />
+  <img src="Z:/picture/008/save_picture_851139.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851123.jpg" />
+  <img src="Z:/picture/008/save_picture_851123.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ GameSave Manager 3.1.507.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851033.jpg" />
+  <img src="Z:/picture/008/save_picture_851033.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ultimaker Cura 4.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851031.jpg" />
+  <img src="Z:/picture/008/save_picture_851031.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851026.jpg" />
+  <img src="Z:/picture/008/save_picture_851026.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Serato DJ Pro Suite 2.5.7 (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851025.jpg" />
+  <img src="Z:/picture/008/save_picture_851025.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Audacity 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851024.jpg" />
+  <img src="Z:/picture/008/save_picture_851024.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Alcohol 120% 2.1.0 Build 30316 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850983.jpg" />
+  <img src="Z:/picture/008/save_picture_850983.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Reg Organizer 5.14 Final [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850935.jpg" />
+  <img src="Z:/picture/008/save_picture_850935.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AOMEI Partition Assistant Standard Edition 9.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850906.jpg" />
+  <img src="Z:/picture/008/save_picture_850906.jpg" />
 </div>
 
 

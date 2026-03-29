@@ -1,3 +1,29 @@
+###  Публикация: 1806360   (11612) от 13.07.2025
+
+Udemy, CADArtifex LLC | Mastering AutoCAD 2D & 3D for Beginners (2025) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте весь потенциал AutoCAD с этим доступным для начинающих курсом, который поможет вам пройти путь от нулевого опыта до уверенного черчения и 3D-моделирования. Независимо от того, являетесь ли вы студентом, начинающим оператором САПР, чертежником или профессионалом, стремящимся повысить свою квалификацию, этот курс предлагает комплексное и практическое обучение.Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 09:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D7A56D69CEEFF6032E7EE5735B876345BD76DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806552   (11611) от 13.07.2025
 
 Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustration (2023) WEBRip [EN]
@@ -6,7 +32,7 @@ Udemy, Jutta Schneider | Draw With Me in Procreate: Mid-Century Cookbook Illustr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11611.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Skillshare, Mel Armstrong | Illustrate a Children’s Book Cover in Procreate (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11598.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Linkedin, Bart Van de Wiele | Adobe Firefly Essential Training (2025) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11597.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gumroad, 3dex | How to Make a Stylized Outdoor Environment from Start to Finish 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11424.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Greech, Анастасия Гречушникова | Практический �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7342.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6344.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Bazanova Art, Ольга Базанова | Волшебные пионы (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5864.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1200.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1194.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1193.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_453.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_341.jpg" />
 </div>
 
 

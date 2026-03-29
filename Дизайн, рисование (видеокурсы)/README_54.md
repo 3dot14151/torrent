@@ -1,3 +1,32 @@
+###  Публикация: 1622491   (243723) от 29.03.2023
+
+Enterclass, Марина Ласаева | Дачное настроение (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дачный сезон богат на сюжеты для картин. Начинаем готовиться заранее в марафоне с Мариной Ласаевой. Напишем четыре сюжета разными материалами, научимся акварельной «легкости» и острой графике. Шишки, цветы, натюрморт с самоваром и крыжовник линером – отличное подспорье для грядущего творческого сезона. Старт 18 марта – присоединяйтесь!
+
+МАРИНА ЛАСАЕВА
+художник-акварелист,(   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542207   (243685) от 06.04.2022
 
 Дмитрий Александрович | Строим в 3ds Max 2021 нижний классический завиток ножки типа кабриоль (2021) PCRec [RU]
@@ -6,7 +35,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243685.jpg" />
+  <img src="Z:/picture/004/save_picture_243685.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Udemy, Canopy Games, Michael Bridges | Making Procedural Weapons In Blender 3 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243488.jpg" />
+  <img src="Z:/picture/004/save_picture_243488.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ Uartsy, Ben Tristem, Sam Patuzzi | Unreal Multiplayer Mastery Online Game Develo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243270.jpg" />
+  <img src="Z:/picture/004/save_picture_243270.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ Uartsy, Jahirul Amin | Rigging Fundamentals in Maya (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243212.jpg" />
+  <img src="Z:/picture/004/save_picture_243212.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ Skillshare | Astronaut Animation: Motion Graphics & Rendering in Cinema 4D & Red
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243125.jpg" />
+  <img src="Z:/picture/004/save_picture_243125.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ Udemy, Ken Zhuang | Master Houdini FX: Art Directing Magic Smoke Explosion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243093.jpg" />
+  <img src="Z:/picture/004/save_picture_243093.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ Skillshare, Aniket Rawat | Complete Guide to Substance Painter 2022 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242808.jpg" />
+  <img src="Z:/picture/004/save_picture_242808.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ Udemy, Sime Bugarija | Creating asteroid scene in Blender (Backrooms, cinematic)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242576.jpg" />
+  <img src="Z:/picture/005/save_picture_242576.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ Gumroad, Danny Mac | Step by Step Base Meshes - Marie Antoinette (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242076.jpg" />
+  <img src="Z:/picture/004/save_picture_242076.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ SideFX, Simon Verstraete | Post Apocalyptic Ruins for UE4 in Houdini (2020) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242031.jpg" />
+  <img src="Z:/picture/004/save_picture_242031.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Udemy, Darrin Lile | Create Captain America's Motorcycle with Blender 2.7 (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242011.jpg" />
+  <img src="Z:/picture/004/save_picture_242011.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Udemy, DJ Nicke | Become a Professional Character Animator (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241926.jpg" />
+  <img src="Z:/picture/004/save_picture_241926.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Lynda, George Maestri | Animating Cartoon Characters in Maya (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241899.jpg" />
+  <img src="Z:/picture/004/save_picture_241899.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 1-2: Shapes, Surface Deta
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241862.jpg" />
+  <img src="Z:/picture/004/save_picture_241862.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Gumroad, Nika Zautashvili | Blender Video - WHALE-1 (2022) Blu-ray [Realtime pro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241852.jpg" />
+  <img src="Z:/picture/004/save_picture_241852.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ FlippedNormals, Henning Sanden | Introduction to Sculpting in Blender 2.92 (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241803.jpg" />
+  <img src="Z:/picture/004/save_picture_241803.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ FlippedNormals | Sculpting the Facial Features in Zbrush (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241771.jpg" />
+  <img src="Z:/picture/004/save_picture_241771.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ Udemy, Nexttut, Abraham Leal | Hair Creation for Game Character in Maya XGen and
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241719.jpg" />
+  <img src="Z:/picture/004/save_picture_241719.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ TimePad, Ксения Голубович | Предмет искусства: о
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241678.jpg" />
+  <img src="Z:/picture/004/save_picture_241678.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Institute-art, Игорь Сахаров | Солнечный лес + Цвет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241664.jpg" />
+  <img src="Z:/picture/004/save_picture_241664.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Uartsy, Daniel Orchard | Building Perceptive AI in Unreal Engine (2020) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241571.jpg" />
+  <img src="Z:/picture/004/save_picture_241571.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241433.jpg" />
+  <img src="Z:/picture/004/save_picture_241433.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241380.jpg" />
+  <img src="Z:/picture/004/save_picture_241380.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241304.jpg" />
+  <img src="Z:/picture/004/save_picture_241304.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241283.jpg" />
+  <img src="Z:/picture/004/save_picture_241283.jpg" />
 </div>
 
 
@@ -658,34 +687,6 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9312F4AC0ADD82C9A2B5C4D3A0EEB087A026E905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544873   (241089) от 17.04.2022
-
-Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор видеокурсов от Зеньи Гаммер, победительницы премии Good Design Awards 2021. Все, что вам нужно, чтобы начать создавать цифровое искусство. Готовы ли вы стать следующим мастером Photoshop?
-Для кого эти курсы?
-Эти курсы идеально подходят для всех, кто хочет начать создавать цифровое искусство в Photoshop, а также для опытных пользователей, которые ищут (   Читать дальше...   )Производство: ZenzcoursesЖанр: Компьютерная графикаЯзык озвучки: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA772B5E60EB478F61DC8F45894E4D66CC199F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

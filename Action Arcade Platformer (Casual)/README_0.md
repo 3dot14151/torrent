@@ -1,3 +1,55 @@
+###  Публикация: 1844854   (1050174) от 28.12.2025
+
+Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050174.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ржавые" бродят по мертвым землям этого мира, их революция провалилась, но мир в руинах, помогите человечеству выбраться. Beacon of Neyda - это стратегическая игра, в которой вам нужно строить и защищать свою базу от волн врагов. Отремонтируйте главную башню в каждой базе, чтобы победить. Каждая база создает безопасное пространство, но будьте осторожны, (   Читать дальше...   )Тип издания: LicenseРазработчик: Ghost Creative StudioЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE162E70CE696038D29B6D6FB68246F1E53B41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844416   (1049971) от 26.12.2025
+
+SANABI (2023) [Ru/Multi] (1.3.51/dlc) Repack FitGirl
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049971.jpg" />
+</div>
+
+
+###  Подробнее
+
+SANABI – это пиксельный экшн с ретро стилистикой и уникальными локациями. Действия игры происходят в далеком будущем, где кибернетические протезы стали нормой, даже в случае, если человек не терял конечности. Ведь они могут оснащаться различными полезными техническими приспособления и превозмогать человеческие способности. Но это также стало удобной возможностью (   Читать дальше...   )Тип издания: RepackРазработчик: Wonder PotionЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Корейский, Китайский и другиеЯзык интерфейса: Русский, Английский, Корейский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D34019200E5DB2A21E7C1BFFFBC8E5C82AC56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843953   (1049658) от 23.12.2025
 
 The Elephant Collection (2023) [En] (1.1) License GOG
@@ -6,7 +58,7 @@ The Elephant Collection (2023) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049658.jpg" />
+  <img src="Z:/picture/005/save_picture_1049658.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049048.jpg" />
+  <img src="Z:/picture/008/save_picture_1049048.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Toziuha Night: Order of the Alchemists (2024) [Multi] (1.0.5.0/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048840.jpg" />
+  <img src="Z:/picture/008/save_picture_1048840.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Winter Burrow (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048760.jpg" />
+  <img src="Z:/picture/008/save_picture_1048760.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Adrenaline Rampage (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048723.jpg" />
+  <img src="Z:/picture/008/save_picture_1048723.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Metal Mind (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048583.jpg" />
+  <img src="Z:/picture/008/save_picture_1048583.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048571.jpg" />
+  <img src="Z:/picture/008/save_picture_1048571.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack HardwareMining [Deluxe 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048380.jpg" />
+  <img src="Z:/picture/008/save_picture_1048380.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048257.jpg" />
+  <img src="Z:/picture/008/save_picture_1048257.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048198.jpg" />
+  <img src="Z:/picture/008/save_picture_1048198.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack Let'sРlay [Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047262.jpg" />
+  <img src="Z:/picture/005/save_picture_1047262.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ SANABI (2023) [Ru/Multi] (1.3.49/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046467.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Feist (2015) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040429.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Twin Cobra (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039472.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Truxton (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039225.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Zero Wing (2023) [Multi] (19) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039220.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Momodora: Reverie Under the Moonlight (2016) [Ru/Multi] (1.07) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037414.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Source of Madness (2022) [Ru/Multi] (1.1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035510.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Bit.Trip Runner (2010) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032938.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031517.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031306.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Vernal Edge (2023) [Multi] (1.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030172.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028610.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Kaze and the Wild Masks (2021) [Ru/Multi] (2.0.2) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024113.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Kaze and the Wild Masks – это весёлый платформер в сти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F52D3B6B1CFC2174D02944D7887AFB1B40C62B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458867   (1023540) от 30.03.2021
-
-Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crash Bandicoot™ 4: Это вопрос времени представляет собой совершенно новую часть франшизы, которая продолжается после событий в 'Crash Bandicoot: Warped'. Нео Кортекс и Эн-Тропик снова здесь, и теперь они планируют покорить не просто одно измерение, а всю мультивселенную!Тип издания: LicenseРазработчик: Toys For BobЖанр: ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B33F79CEAC4803606CC54CD371FC3C4C7A64524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459785   (1022861) от 03.04.2021
-
-Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) Repack SpaceX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crash Bandicoot™ 4: Это вопрос времени представляет собой совершенно новую часть франшизы, которая продолжается после событий в 'Crash Bandicoot: Warped'. Нео Кортекс и Эн-Тропик снова здесь, и теперь они планируют покорить не просто одно измерение, а всю мультивселенную!Тип издания: RepackРазработчик: Toys For BobЖанр: ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4624917265114609C6BEA26B093A861F430D3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

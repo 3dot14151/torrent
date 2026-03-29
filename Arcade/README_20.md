@@ -1,3 +1,29 @@
+###  Публикация: 1230636   (613529) от 13.06.2018
+
+Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack R.G. Механики
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто следующий?! Встречайте продолжение популярнейшей серии файтингов! Сочетая в себе кинематографическую подачу беспрецедентного качества и обновленную игровую механику, Mortal Kombat X являет миру самую брутальную из всех Смертельных битв. Игроки впервые получат возможность выбрать один из нескольких вариантов для каждого из бойцов, определяя тем самым тактику и (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm Studios, High Voltage SoftwareЖанр: Arcade (Fighting), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60619F8520C2D1DCC8877A7481B5D9803EB08D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277845   (613013) от 16.04.2019
 
 The Hong Kong Massacre (2019) [En] (1.04) License CODEX
@@ -6,7 +32,7 @@ The Hong Kong Massacre (2019) [En] (1.04) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613013.jpg" />
+  <img src="Z:/picture/008/save_picture_613013.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612547.jpg" />
+  <img src="Z:/picture/008/save_picture_612547.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611525.jpg" />
+  <img src="Z:/picture/008/save_picture_611525.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611356.jpg" />
+  <img src="Z:/picture/008/save_picture_611356.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Enter the Gungeon (2016) [Ru/Multi] (2.1.6/dlc) License GOG [Collector`s Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611353.jpg" />
+  <img src="Z:/picture/008/save_picture_611353.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Nine Parchments (2017) [Ru/Multi] (1.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610255.jpg" />
+  <img src="Z:/picture/008/save_picture_610255.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sonic Adventure 2 (2012) [Ru/En] (1.0) Rip X-NET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610168.jpg" />
+  <img src="Z:/picture/008/save_picture_610168.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608045.jpg" />
+  <img src="Z:/picture/008/save_picture_608045.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608044.jpg" />
+  <img src="Z:/picture/008/save_picture_608044.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607896.jpg" />
+  <img src="Z:/picture/008/save_picture_607896.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606062.jpg" />
+  <img src="Z:/picture/008/save_picture_606062.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ I am Weapon: Revival (2016) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605914.jpg" />
+  <img src="Z:/picture/008/save_picture_605914.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Portal Dilogy / Дилогия [Ru/En] (RePack) 2007/2011 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605035.jpg" />
+  <img src="Z:/picture/008/save_picture_605035.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Anarcute (2016) [En] (1.0) Repack Elektra
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604764.jpg" />
+  <img src="Z:/picture/008/save_picture_604764.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ SEUM: Speedrunners from Hell (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604573.jpg" />
+  <img src="Z:/picture/008/save_picture_604573.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Unravel (2016) [Multi] (1.0.0) License STEAMPUNKS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604176.jpg" />
+  <img src="Z:/picture/008/save_picture_604176.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Westboro (2017) [Ru/Multi] (1.00) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604171.jpg" />
+  <img src="Z:/picture/008/save_picture_604171.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Unravel (2016) [Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604158.jpg" />
+  <img src="Z:/picture/008/save_picture_604158.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Dragon Ball: Xenoverse 2 (2016) [Ru/En] (1.07.00/dlc) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603790.jpg" />
+  <img src="Z:/picture/008/save_picture_603790.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603637.jpg" />
+  <img src="Z:/picture/008/save_picture_603637.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Neighbours From Hell Compilation (2004) [Ru/Multi] (1.00.13233/1.01a.13237) Lice
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603258.jpg" />
+  <img src="Z:/picture/008/save_picture_603258.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Mitsurugi Kamui Hikae (2014) [En/Jap] (1.1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602810.jpg" />
+  <img src="Z:/picture/008/save_picture_602810.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Goat Simulator (2014) [Ru/Multi] (1.5.58533/dlc) License PROPHET
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602356.jpg" />
+  <img src="Z:/picture/008/save_picture_602356.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Outland (2014) [Ru/En] (1.13) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599466.jpg" />
+  <img src="Z:/picture/008/save_picture_599466.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ Fly and Destroy (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597086.jpg" />
+  <img src="Z:/picture/008/save_picture_597086.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Fly and Destroy — Ваша задача как можно дольше выд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C6ADE54DAF84F6B93A8ACBD105987DAD03FA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150131   (596126) от 13.07.2017
-
-Black The Fall (2017) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596126.jpg" />
-</div>
-
-
-###  Подробнее
-
-После десятилетий тяжелой работы старый токарь планирует побег из коммунизма. На своем пути он встречает самое невероятное существо — маленького брошенного робота. Смогут ли они вместе выбраться из этого мрачного мира?Тип издания: LicenseРазработчик: Sand Sailor StudioЖанр: Arcade (Industrial), CasualЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F80932B60DB8D780EA59FF55B05582DE6846884
 ```
 
 https://mybot314.ru/tekegram_catalog/

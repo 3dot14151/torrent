@@ -6,7 +6,7 @@ ICQ 10.0 build 12080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711954.jpg" />
+  <img src="Z:/picture/008/save_picture_711954.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711951.jpg" />
+  <img src="Z:/picture/008/save_picture_711951.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711950.jpg" />
+  <img src="Z:/picture/008/save_picture_711950.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Freemake Video Converter 4.1.9.16 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711949.jpg" />
+  <img src="Z:/picture/008/save_picture_711949.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ NASCAR. Monster Energy Cup Series 2018. Folds of Honor QuikTrip 500 (25.02.2018)
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711923.jpg" />
+  <img src="Z:/picture/008/save_picture_711923.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ USDownloader 1.3.5.9 Portable ( 14.04.2018 ) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711909.jpg" />
+  <img src="Z:/picture/008/save_picture_711909.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Infix PDF Editor Pro 7.2.5 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711907.jpg" />
+  <img src="Z:/picture/008/save_picture_711907.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Advanced Installer Architect 8.1.3 Build 35117 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711904.jpg" />
+  <img src="Z:/picture/005/save_picture_711904.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711883.jpg" />
+  <img src="Z:/picture/008/save_picture_711883.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Videomizer 2.0.16.504 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711873.jpg" />
+  <img src="Z:/picture/008/save_picture_711873.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ pdfFactory Pro 5.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711865.jpg" />
+  <img src="Z:/picture/008/save_picture_711865.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711844.jpg" />
+  <img src="Z:/picture/008/save_picture_711844.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Burcu Gunes (Burcu Güneş) - Anadolu'nun Gunesi (Anadolu'nun Güneşi) (2018) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711836.jpg" />
+  <img src="Z:/picture/008/save_picture_711836.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Stimpy & Nskul - Shifting Time (2018) EP [MP3|320 Kbps] <Electronic, Drum & Bass
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711833.jpg" />
+  <img src="Z:/picture/008/save_picture_711833.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ WinUtilities Pro 15.22  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711826.jpg" />
+  <img src="Z:/picture/008/save_picture_711826.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711809.jpg" />
+  <img src="Z:/picture/008/save_picture_711809.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Windows 10 Manager 1.1.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711803.jpg" />
+  <img src="Z:/picture/008/save_picture_711803.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Revenge of the Dragon 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711802.jpg" />
+  <img src="Z:/picture/008/save_picture_711802.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711799.jpg" />
+  <img src="Z:/picture/008/save_picture_711799.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ummy Video Downloader 1.7.0.0 portable by DRON[Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711782.jpg" />
+  <img src="Z:/picture/008/save_picture_711782.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711780.jpg" />
+  <img src="Z:/picture/008/save_picture_711780.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711778.jpg" />
+  <img src="Z:/picture/008/save_picture_711778.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ The Foundry NUKE STUDIO 10.0v2 + HIERO 10.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711776.jpg" />
+  <img src="Z:/picture/008/save_picture_711776.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Crematory - Oblivion (2018) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711718.jpg" />
+  <img src="Z:/picture/008/save_picture_711718.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ MyLifeOrganized 2 v2.12.4 Pro [Ru/Multi] - список дел
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711712.jpg" />
+  <img src="Z:/picture/008/save_picture_711712.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711705.jpg" />
+  <img src="Z:/picture/005/save_picture_711705.jpg" />
 </div>
 
 

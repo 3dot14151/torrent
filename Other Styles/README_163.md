@@ -1,3 +1,73 @@
+###  Публикация: 594102   (133511) от 26.12.2012
+
+Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_133511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - The Atlas March [1:15]
+02. Cloud Atlas Opening Title [3:47]
+03. Travel To Edinburgh [1:42]
+04. Luisa's Birthmark [3:00]
+05. Cavendish In Distress [1:23]
+06. Papa Song [4:15]
+07. Sloosha's Hollow [2:59]
+08. Sonmi-451 Meets Change [3:34]
+09. Won't Let Go [4:10]
+10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594109   (133476) от 26.12.2012
+
+007: Координаты «Скайфолл» /Skyfall (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grand Bazaar, Istanbul [05:16]
+ 02. Voluntary Retirement [02:22]
+ 03. New Digs [02:32]
+ 04. Severine [01:19]
+ 05. Brave New World [01:50]
+ 06. Shanghai Drive [01:26]
+ 07. Jellyfish [03:22]
+ 08. Silhouette [00:56]
+ 09. Modigliani [01:05]
+ 10. Day Wasted [01:31](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680665   (133344) от 01.12.2023
 
 James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrumental, Pop, Easy listening>
@@ -6,7 +76,7 @@ James Last - Non Stop Dancing Box (2023) 20 CD, Polydor [ACC|360 Kbps] <Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133344.jpg" />
 </div>
 
 
@@ -35,7 +105,7 @@ Wychazel - A Brighter Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132372.jpg" />
 </div>
 
 
@@ -64,7 +134,7 @@ Wychazel - The Temple of Hathor (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132348.jpg" />
 </div>
 
 
@@ -93,7 +163,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -122,7 +192,7 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131948.jpg" />
 </div>
 
 
@@ -157,7 +227,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -186,7 +256,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130836.jpg" />
 </div>
 
 
@@ -221,7 +291,7 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129244.jpg" />
 </div>
 
 
@@ -250,7 +320,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129193.jpg" />
 </div>
 
 
@@ -279,7 +349,7 @@ Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129190.jpg" />
 </div>
 
 
@@ -308,7 +378,7 @@ Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128787.jpg" />
 </div>
 
 
@@ -337,7 +407,7 @@ VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127854.jpg" />
 </div>
 
 
@@ -366,7 +436,7 @@ Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127642.jpg" />
 </div>
 
 
@@ -395,7 +465,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -424,7 +494,7 @@ Sex Music Zone - Bad Romance: Sexy Girl, Sensual Sounds for Erotic Massage (2023
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126967.jpg" />
 </div>
 
 
@@ -453,7 +523,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126113.jpg" />
 </div>
 
 
@@ -482,7 +552,7 @@ Leo Rojas - Best Of (2023) [FLAC|Lossless|WEB-DL|tracks] <Panflute, Native ameri
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125612.jpg" />
 </div>
 
 
@@ -511,7 +581,7 @@ Sambodhi Prem - Sunlight Rain River (1995) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125322.jpg" />
 </div>
 
 
@@ -540,7 +610,7 @@ VA - Бременские музыканты (Официальный саунд�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125097.jpg" />
 </div>
 
 
@@ -569,7 +639,7 @@ VA - House M.D. - Original Television Soundtrack (2007) [FLAC|Lossless|tracks + 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124542.jpg" />
 </div>
 
 
@@ -598,7 +668,7 @@ Kirill Pokrovsky - Music from the Divinity Universe (2004) Limited Edition Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124383.jpg" />
 </div>
 
 
@@ -627,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124182.jpg" />
 </div>
 
 
@@ -656,7 +726,7 @@ Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123806.jpg" />
 </div>
 
 
@@ -685,7 +755,7 @@ VA - Бременские музыканты (2023) Официальный са�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123585.jpg" />
 </div>
 
 
@@ -699,64 +769,6 @@ VA - Бременские музыканты (2023) Официальный са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEDD3329AD71B2C18C29FA728CD58F02B859D465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691419   (123315) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123315.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85434100DE4D234734A7675ECD0639F71062A246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691409   (123311) от 12.01.2024
-
-Борис Гребенщиков - Songs of Clear Light (2024) [MP3|320 Kbps] <Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saraswati intro
-2. Hanuman
-3. Om Namah Shivaya
-4. Charam Charam(   Читать дальше...   )Жанр: Relax, MeditativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC03A2C36934D4E141B52A9EF17E0D70ED475CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

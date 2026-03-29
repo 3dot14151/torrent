@@ -1,3 +1,55 @@
+###  Публикация: 758684   (911913) от 19.02.2014
+
+Маленький принц / Le petit prince (2010-2013) Blu-ray [1080p] [1 сезон]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький Принц путешествует по разным планетам. Его ждут необычные встречиЖанр: мультфильмРежиссер: Пьер-Ален ЧартьерПеревод: ДублированныйСубтитры: (PGS): French ("Планета Времени")Продолжительность: "Планета Времени" - 00:43:56 | "Планета Огненной Птицы" - 00:46:14 | "Планета Ветров" - 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948E4EE46D9144DF850A8D0177B3514A3A20520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491462   (910191) от 25.08.2021
+
+Мультяшки от Pixar / Pixar Popcorn (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Flarrow Films [Локализованный видеоряд]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник короткометражек с участием известных персонажей из мультфильмов Pixar.Производство: США / Pixar Animation StudiosЖанр: мультфильм, короткометражка, комедия, семейныйРежиссер: Robert H. Russ, Алан Барилларо, Christopher ChuaПеревод: Дублированный (Flarrow Films)Субтитры: Русские (Forced), английские (SDH)Продолжительность: ~00:01:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A26D9946739E872001C0869324A35B58E7A2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990196   (909231) от 26.02.2016
 
 Щенячий патруль / PAW Patrol (2014 - 2015) HDTVRip [1080i] (Сезон 2, Серии 1-26 из 26)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909231.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908610.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907133.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906848.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900637.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Hello Kitty! Пластилиновая деревушка (выпуск №2, �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899940.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Hello Kitty! Пластилиновая деревушка (выпуск №1, �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899592.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899577.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896758.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896727.jpg" />
 </div>
 
 
@@ -277,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896524.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896431.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896430.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896086.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895430.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895236.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893497.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893454.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893374.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893319.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893316.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890537.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890062.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889807.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E93BFBE777E58424D51486CB91FA35546F4093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494771   (884120) от 10.09.2021
-
-Катури / Katuri (2019) WEBRip [H.264/1080p] (сезон 1, серии 1-52 из 52) Первый Канал. Всемирная сеть
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в удивительное лесное царство! Вас ждут яркие краски лета, чарующие звуки природы и дружелюбные местные обитатели. Это общий дом для сотен больших и маленьких животных, а в их числе – и наш пернатый квартет героев. Три разных по характеру братика-птенца и их сестренка приглашают маленьких зрителей вместе с собой в захватывающее путешествие по лесу. (   Читать дальше...   )Производство: Южная Корея | Funny FluxЖанр: Детский, приключения, познвательныйРежиссер: Су Кён Ха, Су Мён УПеревод: Дублированный (Первый Канал. Всемирная сеть)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:07:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF73A6BF932CACB0C943BE139448E0BD7B4ECA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103788   (882889) от 13.02.2017
-
-Лего Рыцари Нексо / Lego Nexo Knights (2016) HDTVRip [H.264/720p-LQ] (Сезон: 2, серии: 10 из 10) [UKR, EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы окунетесь в параллельный мир Средневековья, мир передовых технологий, роботов и рыцарей будущего. В Найтонии царил лад и покой, подданные любили короля и восславляли его. Но в один миг тучи над королевством сгустились – королевский шут тро нашел Книгу Монстров и обратился на темную сторону зла. Эта книга несла в себе страшную силу, в ней от первой странички до (   Читать дальше...   )Производство: Дания, M2 EntertainmentЖанр: Мультсериал, детский, приключения, фэнтезиРежиссер: Питер ГриффитсПеревод: ДублированныйОзвучка: ТК Плюс ПлюсЯзык субтитров: английскийЯзык: украинский, английскийПродолжительность: 00:21:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93D6E0EAFF8D671E95F36A4A44773EA70C8369F
 ```
 
 https://mybot314.ru/tekegram_catalog/

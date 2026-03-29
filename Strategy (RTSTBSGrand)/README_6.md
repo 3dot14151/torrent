@@ -1,3 +1,29 @@
+###  Публикация: 1291545   (668513) от 25.03.2019
+
+War Wind (1996) [En/Fr/Ge] (1.2) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний чужеземный мир планеты Явон балансирует на грани анархии, а ветер перемен вот-вот разнесет всю цивилизацию! На протяжении столетий четыре расы поддерживали хрупкий баланс власти. Но пришло время перемен. Они витают в воздухе, и породит их кровь и пламя! War Wind позволяет взглянуть на эту эпическую борьбу с точки зрения четырех уникальных рас со своими преимуществами, (   Читать дальше...   )Тип издания: LicenseРазработчик: DreamForge IntertainmentЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCD5B0F13D7DDEF75FFB25B2AA1F39904537C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224260   (666938) от 09.05.2018
 
 Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.801) Repack xatab [Deluxe Edition]
@@ -6,7 +32,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.801) Repack xatab [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666938.jpg" />
+  <img src="Z:/picture/008/save_picture_666938.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ S.W.I.N.E. / С.В.И.Н. [Ru] (L) 2002
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664461.jpg" />
+  <img src="Z:/picture/008/save_picture_664461.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Quarantine (2017) [Ru/Multi] (1.0.24.17) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663951.jpg" />
+  <img src="Z:/picture/008/save_picture_663951.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Stronghold 3 + 6 DLC [Ru] (RePack/1.10.27781) 2011 l Fenixx
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660921.jpg" />
+  <img src="Z:/picture/008/save_picture_660921.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ The X-Com Files (1994-2016) [Ru/En] (0.6.2) Repack/Mod edcarnby
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655497.jpg" />
+  <img src="Z:/picture/008/save_picture_655497.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006) RePack Audioslave
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651496.jpg" />
+  <img src="Z:/picture/008/save_picture_651496.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ StarCraft 2: Wings of Liberty - 7x Collection [Multi11\+] (L) 2010 {Crack + LAN 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650711.jpg" />
+  <img src="Z:/picture/005/save_picture_650711.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Total War: Napoleon (2018) [Ru/En] (1.3.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650007.jpg" />
+  <img src="Z:/picture/008/save_picture_650007.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Total War: Empire (2018) [Ru/En] (1.5.0) Repack xatab [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650003.jpg" />
+  <img src="Z:/picture/008/save_picture_650003.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646346.jpg" />
+  <img src="Z:/picture/008/save_picture_646346.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644387.jpg" />
+  <img src="Z:/picture/008/save_picture_644387.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Age of Wonders III / Age of Wonders 3 (2014) [Ru/Multi] (1.800) SteamRip Let'sPl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642260.jpg" />
+  <img src="Z:/picture/008/save_picture_642260.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Warparty (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640626.jpg" />
+  <img src="Z:/picture/008/save_picture_640626.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635077.jpg" />
+  <img src="Z:/picture/008/save_picture_635077.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Distant Worlds [En] (RePack/1.0.2) 2010 | R.G. R3PacK
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634518.jpg" />
+  <img src="Z:/picture/008/save_picture_634518.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Napoleon: Total War Imperial Edition + 7 DLC [Ru/En] (Steam-Rip/1.3) 2010 | R.G.
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630347.jpg" />
+  <img src="Z:/picture/005/save_picture_630347.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Legends of Pegasus (2012) [Ru/En] (1.0.0.4354) RePack R.G. Revenants
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629420.jpg" />
+  <img src="Z:/picture/008/save_picture_629420.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.94/dlc) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629347.jpg" />
+  <img src="Z:/picture/008/save_picture_629347.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.4.2 S5/dlc) Repack R.G. Механики [D
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629327.jpg" />
+  <img src="Z:/picture/008/save_picture_629327.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Ashes of the Singularity (2016) [En/De] (1.24.20813/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628026.jpg" />
+  <img src="Z:/picture/008/save_picture_628026.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Planar Conquest (2016) [En/Multi] (1.3.1a) License RELOADED
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625898.jpg" />
+  <img src="Z:/picture/008/save_picture_625898.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Total War: ATTILA (2015) [Ru/Multi] (1.2.1.0) License CPY
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621269.jpg" />
+  <img src="Z:/picture/008/save_picture_621269.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Weedcraft (2019) [Ru/Multi] (1.02) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620078.jpg" />
+  <img src="Z:/picture/008/save_picture_620078.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Citadels (2013) [Ru/Multi] License FAIRLIGHT
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619414.jpg" />
+  <img src="Z:/picture/008/save_picture_619414.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618252.jpg" />
+  <img src="Z:/picture/008/save_picture_618252.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Warcraft II (1999) [Multi] (2.02v4) License GOG [Battle.net Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5749B6FA5437D3C97C97546F377D9A82A6DD579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296101   (614811) от 15.04.2019
-
-WAR PARTY (2019) [Ru/Multi] (1.0.4) Repack Other s
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614811.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древние времена на Земле процветала могущественная цивилизация, правившая миром с помощью технологий и магии. Со времен ее падения прошли миллиарды лет, и природа вновь восторжествовала. Там, где когда-то жили люди, теперь бродят дикие звери и динозавры. И среди этой недружелюбной природы появились племена людей. Они развиваются и воюют друг с другом за ограниченные (   Читать дальше...   )Тип издания: RepackРазработчик: Warcave, Crazy Monkey StudiosЖанр: Action (Top-Down), RTS, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708F516F8C41C68E49F894D3B9CBF24611B15C15
 ```
 
 https://mybot314.ru/tekegram_catalog/

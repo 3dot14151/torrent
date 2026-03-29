@@ -1,3 +1,107 @@
+###  Публикация: 1282793   (743290) от 13.02.2019
+
+Проекты - VideoHive - Gold Awards Show - 14636599 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gold Awards Show - это эксклюзивный и профессионально сделанный проект After Effects с модульной структурой. Этот проект можно отлично использовать для создания шоу с церемонии награждения. Он также может быть использован для: слайд-шоу, свадебных фильмов, вступления для фильмов, Love Story, презентаций, музыкального видео и др. В комплекте полный видео-туториал, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE8043BEC589D226051D4267DEC8158B4DA1C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282654   (743277) от 13.02.2019
+
+Проекты - VideoHive - Channel Promo - 3540443 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Channel Promo - чистый и динамичный проект с 3D текстовыми слоями. Этот проект полезен для продвижения канала YouTube, канала Vimeo, фильма, телеканала, телепрограммы, обзора или игр. Этот проект также можно использовать для любого вашего видео производства.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922D9808A878E9F791DA35443AE75B69E4B4507F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282653   (743270) от 13.02.2019
+
+Проекты - VideoHive - Extreme Promo - 11680844 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Extreme Promo - это многофункциональный и динамичный проект After Effects. Этот модульный шаблон очень легко настраивается, и может быть использован для любого типа видео продукции, трансляции, бизнес-промо, корпоративного видео, заставки к фильму, слайд-шоу, бампера и т.д.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E77738E8A02F5978C572299A006B6282A0AF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020601   (743104) от 27.05.2016
+
+Проекты - VideoHive - Pink Fashion Broadcast [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pink Fashion Broadcast - модный проект для телепередач и презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E73E67743F5F55ABF06867978CD03A88F91992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282823   (742101) от 14.02.2019
 
 Проекты - VideoHive - Gold Awards - 20551932 [AEP]
@@ -6,7 +110,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742101.jpg" />
+  <img src="Z:/picture/008/save_picture_742101.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742060.jpg" />
+  <img src="Z:/picture/008/save_picture_742060.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741984.jpg" />
+  <img src="Z:/picture/008/save_picture_741984.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741631.jpg" />
+  <img src="Z:/picture/008/save_picture_741631.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741556.jpg" />
+  <img src="Z:/picture/008/save_picture_741556.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741551.jpg" />
+  <img src="Z:/picture/008/save_picture_741551.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740763.jpg" />
+  <img src="Z:/picture/008/save_picture_740763.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740502.jpg" />
+  <img src="Z:/picture/008/save_picture_740502.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740081.jpg" />
+  <img src="Z:/picture/008/save_picture_740081.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740027.jpg" />
+  <img src="Z:/picture/008/save_picture_740027.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ VideoHive – Dark Opener - 1392588 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739543.jpg" />
+  <img src="Z:/picture/008/save_picture_739543.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ VideoHive – Dual Impact - 2803447 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739541.jpg" />
+  <img src="Z:/picture/008/save_picture_739541.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ VideoHive – Glass Project - 2294272 [AEP, C4D]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739502.jpg" />
+  <img src="Z:/picture/008/save_picture_739502.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739483.jpg" />
+  <img src="Z:/picture/008/save_picture_739483.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ VideoHive – Product Promo - 3736887 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738896.jpg" />
+  <img src="Z:/picture/008/save_picture_738896.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ VideoHive – The Notebook - 163340 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738247.jpg" />
+  <img src="Z:/picture/008/save_picture_738247.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ VideoHive – Corporate Hands - 5699522 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737891.jpg" />
+  <img src="Z:/picture/008/save_picture_737891.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ VideoHive – Mind Gallery - 5274075 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736594.jpg" />
+  <img src="Z:/picture/008/save_picture_736594.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ VideoHive - Hip Hop Fashion - 4816256 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736006.jpg" />
+  <img src="Z:/picture/008/save_picture_736006.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ VideoHive - TV show or Awards Show Package - 4020914 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735514.jpg" />
+  <img src="Z:/picture/005/save_picture_735514.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ VideoHive - TV show or Awards Show Package part.2 - 4361634 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735513.jpg" />
+  <img src="Z:/picture/008/save_picture_735513.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Pond5 - Fashion Star Form - 35756008 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735038.jpg" />
+  <img src="Z:/picture/008/save_picture_735038.jpg" />
 </div>
 
 
@@ -574,112 +678,6 @@ Pond5 - Fashion Star Form - 35756008 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE5245417D3948EABD579DE57ED331ACC254440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789001   (733624) от 23.05.2014
-
-VideoHive – SEO. Internet Marketing. Web Promotion Pack - 7209231 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733624.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: SEO. Internet Marketing. Web Promotion Pack - крутой проект сделанный специально для тех, кто продвигает свои(й) товар(ы) через интернет. С помощью данного проекта вы можете показать свои услуги, товары, веб-сайт или продвижение бизнеса...Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1252CFC2B831BDD180288A4A6AFCB4A91F14552B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021418   (732420) от 29.05.2016
-
-Проекты - VideoHive - Time to talk (Broadcast Pack) [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Time to talk (Broadcast Pack) -  это полный пакет инструмента для дизайна.
-Произведите впечатление на Ваших клиентов и зрителей.
-Отлично подойдет для новостных сюжетов, специальных репортажей, политики, экономики и пр.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39E98FBB2B978FC0458799127A8B218819588CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021598   (731531) от 30.05.2016
-
-Проекты - VideoHive - Corporate Puzzles World [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corporate Puzzles World - проект для презентации логотипа. Кусочки пазлов с медиа заполнителя, собирается в круг и раскрывает ваш логотип.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DBB2711F49D50B59212515F1B29D3D072F5140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021656   (731427) от 30.05.2016
-
-Проекты - VideoHive - Music Night - 3931353 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо ролика. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B8A8C6544EAE85C241264B2AEF8BEFF1D86CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1336633   (279168) от 07.11.2019
+
+Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Money (Jones) - 4:20
+02. Willow Weep for Me (Ronell) - 4:49
+03. Droppin' Things (Carter) - 4:34
+04. Man from Mars (Mitchell) - 6:24(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187574   (278967) от 29.11.2017
+
+Bodil Niska - Blue (2004) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Wee Small Hours of the Morning [05:51]
+02. How About You [04:59]
+03. Et gammelt stykke Oslo [04:32]
+04. Taking a Chance on Love [06:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF41A934E8AA9928CED78742DCE386DACCBD2CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187573   (278966) от 29.11.2017
+
+Bodil Niska - First Song (2000) Hot Club Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Boy [03:53]
+02. Rosetta [06:58]
+03. Merlin [03:45]
+04. Only Trust Your Heart [06:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64F27FBF422B28E94FEBE168D6DFA54148A27CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187578   (278863) от 29.11.2017
+
+Bodil Niska - Night Time (2008) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Rainbow [05:37]
+02. Watch What Happens [04:41]
+03. Fiin gammel [04:26]
+04. C'est si bon [05:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187572   (278860) от 29.11.2017
 
 Charles Mingus - The Complete 1960 Nat Hentoff Sessions 3CD, 2016, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Charles Mingus - The Complete 1960 Nat Hentoff Sessions 3CD, 2016, Essential Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278860.jpg" />
+  <img src="Z:/picture/008/save_picture_278860.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.1 (2000) Egea [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277919.jpg" />
+  <img src="Z:/picture/008/save_picture_277919.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277918.jpg" />
+  <img src="Z:/picture/008/save_picture_277918.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Gil Evans - The Honey Man (1986) 1994, New Tone Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277916.jpg" />
+  <img src="Z:/picture/008/save_picture_277916.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277913.jpg" />
+  <img src="Z:/picture/008/save_picture_277913.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277721.jpg" />
+  <img src="Z:/picture/008/save_picture_277721.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277600.jpg" />
+  <img src="Z:/picture/008/save_picture_277600.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277599.jpg" />
+  <img src="Z:/picture/008/save_picture_277599.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277598.jpg" />
+  <img src="Z:/picture/008/save_picture_277598.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277597.jpg" />
+  <img src="Z:/picture/008/save_picture_277597.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bob James Trio - Espresso (2018) Evosound [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277592.jpg" />
+  <img src="Z:/picture/008/save_picture_277592.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Parov Stelar - The Princess (2012) [FLAC|Lossless]<Electro Swing, Broken Beat, N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277577.jpg" />
+  <img src="Z:/picture/008/save_picture_277577.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sonny Stitt - At The Hi-Hat vol.I (1954) 1992, Roulette Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277495.jpg" />
+  <img src="Z:/picture/008/save_picture_277495.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Steve Lacy & Eric Watson - Spirit of Mingus (1992) Free Lance[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277494.jpg" />
+  <img src="Z:/picture/008/save_picture_277494.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Marcus Printup - Song For The Beautiful Woman (1995) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277394.jpg" />
+  <img src="Z:/picture/008/save_picture_277394.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277391.jpg" />
+  <img src="Z:/picture/008/save_picture_277391.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Scofield - Combo 66 (2018) Universal [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276600.jpg" />
+  <img src="Z:/picture/008/save_picture_276600.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Tad Shull Quartet - In the Land of the Tenor (1993) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276383.jpg" />
+  <img src="Z:/picture/008/save_picture_276383.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276381.jpg" />
+  <img src="Z:/picture/008/save_picture_276381.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Emil Viklicky Quartet - 'Round Midnight (1991) Arta Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276380.jpg" />
+  <img src="Z:/picture/008/save_picture_276380.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Jon Faddis - Hornucopia (1991) Epic [FLAC|Lossless|image + .cue] <Post-Bop, Trum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276376.jpg" />
+  <img src="Z:/picture/008/save_picture_276376.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Mulgrew Miller & Niels-Henning Orsted Pedersen - The Duets: A Selection of Duke 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276373.jpg" />
+  <img src="Z:/picture/008/save_picture_276373.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Mulgrew Miller & Niels-Henning Orsted Pedersen - The Duets: A Selection of Duke 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E745FD3C7A13E61982C2C4BDC18817C6DCBCB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336965   (276319) от 09.11.2019
-
-Kurt Maloo vs. Double - Loopy Avenue (2007) [FLAC|Lossless|image + .cue] <Jazz-Pop, Smooth Jazz, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rangoon Moon (4:12)
- 02. Devils Ball (3:40)
- 03. The Captain Of Her Heart (4:55)
- 04. Loopy Ave (3:14)(   Читать дальше...   )Жанр: Jazz-Pop, Smooth Jazz, Nu JazzПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A587A0FC37E5E3B0D9483064B8B584C6A641E2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188118   (276198) от 01.12.2017
-
-Barney Wilen & Mal Waldron - Movie Themes from France (1990) Timeless Records [WavPack|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Un Homme et Une Femme [06:22]
-02. Julien Dans l'ascenseur / Florence sur les Champs-Elysees [07:32]
-03. Les Parapluies de Cherbourg [09:57]
-04. No Problem [08:46](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE3057226ED7CC1FE20E0E454B68F089D8A3AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188093   (276160) от 01.12.2017
-
-Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Route [07:47]
-02. The Bishop [07:38]
-03. My Foolish Heart [07:03]
-04. Young Blods [07:07](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A732A94A71B743EF08577892F5F2C695C8CE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337126   (276130) от 09.11.2019
-
-Candy Dulfer - Top 40 Candy Dulfer: Her Ultimate Top 40 Collection (2018) 2CD [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Lily Was Here (Dave Stewart feat. Candy Dulfer)
-02. Saxuality (Super Sax Radio Mix)
-03. Heavenly City(   Читать дальше...   )Жанр: Smooth Jazz |Продолжительность: 02:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5A8A056D60C6D8C96C13FBCE23DC6120218C7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

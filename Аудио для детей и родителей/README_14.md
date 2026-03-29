@@ -1,3 +1,82 @@
+###  Публикация: 1363181   (945292) от 26.02.2020
+
+Александр Шаров | 33 злоключения и одно чудо (1975) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Костя Бузыкин спас гнома и получил от него в подарок исполнение желания. Теперь стоит ему только чего-то захотеть - и это желание исполнится. Но только один раз. Чего же пожелать, чтобы не зря потратить подарок гнома? И как удержаться и не пожелать чего-нибудь не очень нужного?
+Сказки Александра Шарова исполнены добра к людям, любви к природе, бесконечным радостным (   Читать дальше...   )Жанр: Сказка. РадиоспектакльВ ролях: Олег Табаков, Галина Новожилова, Виктор Сергачёв, Татьяна Шатилова, Александр Бордуков, Всеволод ЛарионовПродолжительность: 00:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A5A5E6AA2E41C5740587478E81FF1067BBFFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091171   (944759) от 08.01.2017
+
+София Базылик | Сказание о Рождестве Христовом (2007) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много, много лет назад, в те давние времена, когда в древней стране Иудее царствовал один жестокий царь по имени Ирод, а над всем миром властвовал гордый римский кесарь Август, в маленьком иудейском граде Вифлееме сошел с небес и родился во плоти от пречистой Девы Марии наш Господь и Бог Иисус Христос. Хочешь ли, я расскажу тебе, как случилось это великое и дивное (   Читать дальше...   )Жанр: Аудиоспектакль, детская литератураПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4AABD12435894C7BF66174FC23256E718E4321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091254   (944737) от 08.01.2017
+
+Джеймс Хэрриот | О всех созданиях - прекрасных и удивительных (1988) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Хэрриот делится с читателями воспоминаниями об эпизодах, встречающихся в практике ветеринарного врача. Несмотря на, казалось бы, довольно прозаические сюжеты, отношение врача к четвероногим пациентам и их владельцам – то теплое и лиричное, то саркастическое – передано очень тонко, с большой человечностью и юмором.Жанр: Научно-художественные заметкиПродолжительность: 12:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98934B43788ECFAB3BFC35B2CD8D7EC99178EE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090879   (944535) от 08.01.2017
 
 Владимир Беляев | Старая крепость [Трилогия]  (2017) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944535.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943869.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942922.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942530.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ VA - Christmas with Disney (2006) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942012.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ VA - Колокольчики мои (2009) [MP3|320 kbps]<Детские пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941924.jpg" />
 </div>
 
 
@@ -171,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941523.jpg" />
 </div>
 
 
@@ -197,7 +276,7 @@ Fasolki - Koledy Tik-Taka (1991) [MP3|~190 кб/с (V2)]<POP (для детей)
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939916.jpg" />
 </div>
 
 
@@ -232,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939606.jpg" />
 </div>
 
 
@@ -259,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939166.jpg" />
 </div>
 
 
@@ -285,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938647.jpg" />
 </div>
 
 
@@ -311,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937772.jpg" />
 </div>
 
 
@@ -337,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937409.jpg" />
 </div>
 
 
@@ -363,7 +442,7 @@ VA | Машкины страшилки, Часть 1 и 2 (2017) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935336.jpg" />
 </div>
 
 
@@ -393,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934868.jpg" />
 </div>
 
 
@@ -419,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934088.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ C. Rogier и E. Marceillac - El Show de la BrujitaTapita (2004) [MP3|128 kbps]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934051.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ VA - Christmas in The Stars (1980) [MP3|128 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934044.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ VA - The Twelve Days of Christmas (1991) [MP3|192 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934036.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ VA - Babydream. Christmas dreams vol.9 (1999) [MP3|320 kbps]<Детская му
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933998.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ VA - The Little Mermaid - Original Broadway Cast Recording (2008) [MP3|160 kbps]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933976.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933963.jpg" />
 </div>
 
 
@@ -619,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932482.jpg" />
 </div>
 
 
@@ -630,92 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE3A164FF1D96B6265B7D5ECA3503C2B24D8CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285801   (932456) от 23.01.2011
-
-VA - First Christmas Album For Children (1999) [MP3|128 kbps]<Детские песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Here Comes Santa Clause - Doris Day
-02 - I Saw Mommy Kissing Santa Clause - Jimmy Boyd
-03 - The Littlest Showman - Captain Kangaroo
-04 - Suzy Snowflake - Rosemary Clooney(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2C3EAD6CE276BA1D23E56D136B53E5229581AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093886   (932427) от 16.01.2017
-
-Святослав Сахарнов | Подводные приключения (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту книгу я писал вот так. О чём она?
-Конечно, о водолазах. Ещё - о подводных домах и затонувшем пароходе. В ней есть дрессированный дельфин, несколько осьминогов и трепанги, ползающие по дну. Всё морские животные. Правда, есть и одна кошка, но она тоже жила под водой.
-А может быть, в книге есть и что-то другое? Например, как хорошо, когда человек любит своё дело. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD15EBC7B65BB788027DC7CEC116CDC1E422F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 286358   (932162) от 23.01.2011
-
-VA - Потанцуем, Малыши! (1999) [MP3|224 kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932162.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Танец маленьких утят (французская народная)
-2. Веселые дети (литовская народная)
-3. Цып-цып, мои цыплята! (автор музыки: г. гусейнли)
-4. На мосточке(автор музыки: а. филипенко)(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDB151C057B6B9B77C12705A1993566CCEF67F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

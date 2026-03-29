@@ -1,3 +1,112 @@
+###  Публикация: 1171625   (395812) от 05.10.2017
+
+Paste 2.2.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить содержимое буфера (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2017Разработчик: Dmitry ObukhovПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234A95C899B5ABA249353753516600B0B6310CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171607   (395764) от 05.10.2017
+
+Dropshare 4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395764.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+
+Dropshare - приложение строки меню для Drag&Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2017Разработчик: DropshareПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3428A294D8D58BB2C6412B20FCBFAD5F0B4F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171660   (395575) от 05.10.2017
+
+PhoneClean Pro 5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395575.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneClean Pro – персональный уборщик мусора для устройств на базе операционной системы iOS. Программа поможет избавиться от различного ненужного хлама владельцам iPhone, iPod Touch и iPad. Довольно часто, пользователи этих устройств сталкиваются с тем, что места во встроенной памяти становится недостаточно и приходится искать приложения, которые можно было бы удалить, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3CA098ACBA95B185EF90639AEA2AF19C320AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171558   (395464) от 05.10.2017
+
+iStat Menus 6.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395464.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus  — лучшее приложение для контроля работы Mac
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
+
+iStat Menus позволяет в режиме реального времени следить за десятками показателей. Загруженность процессора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 сентября  2017Разработчик: BjangoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский*, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69549C6CCF7B80A17E2BD5A8C0E6F2ADFA60960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171852   (394927) от 06.10.2017
 
 PaintCode 3.3.2 [En]
@@ -6,7 +115,7 @@ PaintCode 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394927.jpg" />
+  <img src="Z:/picture/008/save_picture_394927.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ iFinance 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394893.jpg" />
+  <img src="Z:/picture/008/save_picture_394893.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Disk Sensei 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394889.jpg" />
+  <img src="Z:/picture/008/save_picture_394889.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ PopChar X 8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394840.jpg" />
+  <img src="Z:/picture/008/save_picture_394840.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ Archiver 3.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394721.jpg" />
+  <img src="Z:/picture/008/save_picture_394721.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ Rumpus PRO 8.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394157.jpg" />
+  <img src="Z:/picture/008/save_picture_394157.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ Mellel 3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394106.jpg" />
+  <img src="Z:/picture/008/save_picture_394106.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ iCompta 6.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394096.jpg" />
+  <img src="Z:/picture/008/save_picture_394096.jpg" />
 </div>
 
 
@@ -224,7 +333,7 @@ Keyboard Maestro 8.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393984.jpg" />
+  <img src="Z:/picture/008/save_picture_393984.jpg" />
 </div>
 
 
@@ -252,7 +361,7 @@ Airmail 3 v3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393953.jpg" />
+  <img src="Z:/picture/008/save_picture_393953.jpg" />
 </div>
 
 
@@ -280,7 +389,7 @@ Battery Health 3 v1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393043.jpg" />
+  <img src="Z:/picture/008/save_picture_393043.jpg" />
 </div>
 
 
@@ -308,7 +417,7 @@ QuarkXPress 2017 13.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392950.jpg" />
+  <img src="Z:/picture/008/save_picture_392950.jpg" />
 </div>
 
 
@@ -334,7 +443,7 @@ Parallels Desktop for Mac Business Edition 13.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392740.jpg" />
+  <img src="Z:/picture/008/save_picture_392740.jpg" />
 </div>
 
 
@@ -362,7 +471,7 @@ MAMP & MAMP PRO 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392668.jpg" />
+  <img src="Z:/picture/008/save_picture_392668.jpg" />
 </div>
 
 
@@ -388,7 +497,7 @@ PowerPhotos 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392063.jpg" />
+  <img src="Z:/picture/008/save_picture_392063.jpg" />
 </div>
 
 
@@ -416,7 +525,7 @@ Coda 2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392047.jpg" />
+  <img src="Z:/picture/008/save_picture_392047.jpg" />
 </div>
 
 
@@ -443,7 +552,7 @@ Mellel 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392041.jpg" />
+  <img src="Z:/picture/008/save_picture_392041.jpg" />
 </div>
 
 
@@ -471,7 +580,7 @@ BookReader 5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391951.jpg" />
+  <img src="Z:/picture/008/save_picture_391951.jpg" />
 </div>
 
 
@@ -500,7 +609,7 @@ iRamDisk 3.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391299.jpg" />
+  <img src="Z:/picture/008/save_picture_391299.jpg" />
 </div>
 
 
@@ -528,7 +637,7 @@ Sublime Text 3 (3148) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391294.jpg" />
+  <img src="Z:/picture/008/save_picture_391294.jpg" />
 </div>
 
 
@@ -555,7 +664,7 @@ Blocs 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391292.jpg" />
+  <img src="Z:/picture/008/save_picture_391292.jpg" />
 </div>
 
 
@@ -584,7 +693,7 @@ Hands Off! 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391231.jpg" />
+  <img src="Z:/picture/008/save_picture_391231.jpg" />
 </div>
 
 
@@ -596,118 +705,6 @@ Hands Off! - контроль доступа в Интернет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A16362F2633C557E6E46D0D0B053DAE8B1F9F1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173145   (391146) от 10.10.2017
-
-BetterSnapTool 1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391146.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterSnapTool: новые возможности для окон OS X
-Утилиты для управления окнами рабочего стола могут сослужить хорошую службу владельцам Mac'ов c небольшой диагональю экрана. Они позволяют быстро разместить приложения таким образом, чтобы последние не мешали друг другу и использовали максимально возможное пространство. Утилита сочетает в себе все функции SizeUp! и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 октября 2017Разработчик: Andreas HegenbergПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A1BBB8BEB4073687A7592B6B1C25DC7EA5E363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717819   (391057) от 01.11.2013
-
-Serial Box 11-2013 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391057.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial по состоянию на ноябрь 2013 года.
-В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то,что ищете!Тип издания: OS X SoftwareРелиз состоялся: 1 ноября  2013Разработчик: n/aПоддерживаемая ОС: OS X 10.3.9 or laterЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384B88BDD0A33DDED8AFE1C7E2945020DC85C1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173094   (391024) от 10.10.2017
-
-DaVinci Resolve Studio 14.0.1+ easyDCP [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 октября 2017Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7870EC38A8579F01D7C464D5C79729AF3813E37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173403   (390616) от 11.10.2017
-
-Twitterrific 5 for Twitter 5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переосмысленный с нуля, чтобы стать самым дружелюбным, мощным и современным клиентом Twitter. Twitterrific делает Twitter забавой. Чистая, незагроможденная временная шкала, содержащая только контент, о котором вы заботитесь. Поддержка Notification Center, Retina дисплеев, встроенный обмен, красивые анимации, полноэкранный режим и многое другое.
-
-Панель внешнего вида (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2017Разработчик: The IconfactoryПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9FEE0DCF4C612098E6C84A6D5394D8E046FE3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

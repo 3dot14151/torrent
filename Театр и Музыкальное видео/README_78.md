@@ -1,3 +1,171 @@
+###  Публикация: 820427   (494349) от 11.09.2014
+
+I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OMNIA - Earth Warrior
+02. Indian Passion
+03. Life Nature You
+04. Black Kat(   Читать дальше...   )Жанр: Ambient, Chillout, New Age, Pop, InstrumentalПродолжительность: 02:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C670211842D1A48827DCB2F7552B2573CE6E79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936693   (494179) от 12.09.2015
+
+The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
+02. When The Whip Comes Down
+03. Let s Spend The Night Together
+04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichПродолжительность: 02:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45237ACFA950099DED804EEC5A0676A9C67C50B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054029   (494118) от 19.09.2016
+
+Неоконченный роман (2015) TVRip (Театрально-концертный центр "Новое искусство")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои сериала «Всегда говори всегда» впервые предстанут вместе на одной сцене в лирической комедии «Неоконченный роман».
+
+Мужчина и женщина много лет любят друг друга. И хотя у них есть семьи, наши герои приходят к мысли, что наконец-то встретили свою половинку, без которой уже не смогут жить. Но как быть со своими семейными обязательствами?Производство: Россия, Театрально-концертный центр "Новое искусство"Жанр: Спектакль, комедияРежиссер: Михаил МокеевАктеры: Ярослав Бойко, Мария ПорошинаПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F74BCC44D490CCB05F44DBB699637974A2A8587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053154   (494101) от 19.09.2016
+
+Борис Эйфман - Безумный день (1983) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балет-буфф по мотивам комедии Пьера Огюста Карона де Бомарше «Безумный день, или Женитьба Фигаро».
+Один из ранних и, безусловно, лучших спектаклей Бориса Эйфмана, созданный в те годы. Музыкальная фантазия Тимура Когана по мотивам произведений Джоаккино Антонио Россини придаёт балету своеобразный шарм и юмор. Балет - своеобразный бенефис блистательных танцовщиков (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: Фильм-балет, комедия, экранизацияРежиссер: Виктор ОкунцовАктеры: Валентина Морозова, Валерий Михайловский, Сергей Фокин, Валентина Ганибалова, Кирилл Матвеев, Илья Пьянцев, Николай КозловПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2437DE410E6C4371B3092D8E77F3B0ABF58C5350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053145   (494096) от 19.09.2016
+
+Морис Равель - Болеро (1975) SATRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Болеро» отличается уникальным единством. Композитор писал: «Это - танец в очень умеренном темпе, совершенно неизменный как мелодически, так гармонически и ритмически, причем ритм непрерывно отбивается барабаном. Единственный элемент разнообразия вносится оркестровым крещендо». «Болеро» - оркестровые вариации, в основе которых краткая мелодия народно-танцевального (   Читать дальше...   )Производство: СССР, Творческое объединение «Экран»Жанр: Фильм-балетРежиссер: Феликс СлидовкерАктеры: Инна Лещинская, Олег Микрашевский, Зураб СахокияПродолжительность: 00:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A32BDCD7D3CA075588DBC89E11878B92080C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936410   (494024) от 12.09.2015
+
+Крематорий - Концерт в ДК "Горбунова" (1993) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы «Крематорий» в Горбушке 1993 года. Группа «Крематорий» - одна из культовых групп середины 80-х – начала 90-х годов прошлого столетия. Песни «Крематория» точно отражали все что происходило и в развалившейся стране под названием Советский Союз и в душах людей которые понятия не имели что будет дальше. Началось все в 1983 году когда однокурсники Армен (   Читать дальше...   )01. Крематорий (01:59)
+02. Проходящие мимо (01:45)
+03. Реанимационная машина (03:30)
+04. Женщины города Роз (04:41)(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA6E6CD25E34811C3C384F299A441FDCAB24AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243263   (493971) от 26.08.2018
 
 Квартирник на НТВ у Маргулиса. Запрещенные барабанщики (08.25.2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +174,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493971.jpg" />
+  <img src="Z:/picture/008/save_picture_493971.jpg" />
 </div>
 
 
@@ -33,7 +201,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493857.jpg" />
+  <img src="Z:/picture/008/save_picture_493857.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_493683.jpg" />
+  <img src="Z:/picture/005/save_picture_493683.jpg" />
 </div>
 
 
@@ -89,7 +257,7 @@ Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493594.jpg" />
+  <img src="Z:/picture/008/save_picture_493594.jpg" />
 </div>
 
 
@@ -115,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493561.jpg" />
+  <img src="Z:/picture/008/save_picture_493561.jpg" />
 </div>
 
 
@@ -144,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493031.jpg" />
+  <img src="Z:/picture/008/save_picture_493031.jpg" />
 </div>
 
 
@@ -171,7 +339,7 @@ Tarja Turunen - Act 1 (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492997.jpg" />
+  <img src="Z:/picture/008/save_picture_492997.jpg" />
 </div>
 
 
@@ -197,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492240.jpg" />
+  <img src="Z:/picture/008/save_picture_492240.jpg" />
 </div>
 
 
@@ -223,7 +391,7 @@ The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492231.jpg" />
+  <img src="Z:/picture/008/save_picture_492231.jpg" />
 </div>
 
 
@@ -252,7 +420,7 @@ John Mayall & The Bluesbreakers And Friends - 70th Birthday Concert (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491984.jpg" />
+  <img src="Z:/picture/008/save_picture_491984.jpg" />
 </div>
 
 
@@ -281,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491341.jpg" />
+  <img src="Z:/picture/008/save_picture_491341.jpg" />
 </div>
 
 
@@ -311,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490738.jpg" />
+  <img src="Z:/picture/008/save_picture_490738.jpg" />
 </div>
 
 
@@ -340,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489615.jpg" />
+  <img src="Z:/picture/008/save_picture_489615.jpg" />
 </div>
 
 
@@ -370,7 +538,7 @@ VA - Осенний марафон № 189 / Видеоклипы (Самые Т
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489563.jpg" />
+  <img src="Z:/picture/008/save_picture_489563.jpg" />
 </div>
 
 
@@ -399,7 +567,7 @@ James Last - Live at the Royal Albert Hall (2007/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489551.jpg" />
+  <img src="Z:/picture/008/save_picture_489551.jpg" />
 </div>
 
 
@@ -428,7 +596,7 @@ Madonna - MDNA World Tour (2013) HDTV [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489127.jpg" />
+  <img src="Z:/picture/008/save_picture_489127.jpg" />
 </div>
 
 
@@ -457,7 +625,7 @@ Sting. A Winter's Night... Live From Durham Cathedral (2009) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489017.jpg" />
+  <img src="Z:/picture/008/save_picture_489017.jpg" />
 </div>
 
 
@@ -486,7 +654,7 @@ MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487700.jpg" />
+  <img src="Z:/picture/008/save_picture_487700.jpg" />
 </div>
 
 
@@ -512,7 +680,7 @@ Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487697.jpg" />
+  <img src="Z:/picture/008/save_picture_487697.jpg" />
 </div>
 
 
@@ -538,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486785.jpg" />
+  <img src="Z:/picture/008/save_picture_486785.jpg" />
 </div>
 
 
@@ -549,173 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCCAADBA704C14CA39D401C58986D576B225522F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382477   (486504) от 04.09.2011
-
-Animusic HD (2010) BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Wayne Lytle/Уэйн ЛитлАктеры: animationПеревод: ОтсутствуетПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062E45360A908C66C19F996661B7FACC08E2E88B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544671   (486411) от 09.09.2012
-
-Tarja Turunen - Act 1 (2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486411.jpg" />
-</div>
-
-
-###  Подробнее
-
-‘Act I‘ представляет собой первый концертный диск, запечатлевшим выступления экс-вокалистки NIGHTWISH Tarja Turunen в ее роково-металлической обработке - вероятно, ее самый захватывающий выпуск когда-либо. Основное содержание было снято и записано на шоу в Росарио в Аргентинском Teatro El Crculo, проходившим 30 и 31 марта соответственно в красивом и захватывающем духе театральной постановки.
-С его тщательно продуманным tracklisting,01. If You Believe
-02. Anteroom Of Death
-03. My Little Phoenix
-04. Dark Star
-05. Naiad
-06. Falling Awake
-07. I Walk Alone
-08. Orpheus Hallucination / Orpheus In The Underworld09. Little Lies (band jam)
-10. Little LiesЖанр: Symphonic MetalПеревод: ОтсутствуетПродолжительность: 01:48:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243869   (486075) от 30.08.2018
-
-Концерт ко дню ВМФ России на Дворцовой площади (29 июля 2018 года) WEB-DLRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлен концерт, посвящённый дню Военно-Морского Флота России, который прошёл на Дворцовой площади 29 июля 2018 года.Производство: Телерадиокомпания «Петербург»Жанр: Музыка, КонцертыСубтитры: ОтсутствуютПродолжительность: ~03:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0DF4D967CB252FC69C508B682677DD1AC62972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244056   (485854) от 30.08.2018
-
-Александр Розенбаум в БКЗ "Октябрьский" (29.07.2018) WEB-DLRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Александра Розенбаума в Большом Концертном Зале "Октябрьский",
-посвящённый дню Военно-Морского Флота России.Производство: Телерадиокомпания «Петербург»Жанр: Музыка, КонцертыРежиссер: Геннадий Шагаев (БКЗ), Ядвига ЗакржевскаяСубтитры: ОтсутствуютПродолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE02FD8AF778B50DD0EA643130568A5634C22CA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243831   (485749) от 30.08.2018
-
-Океан Эльзы. Концерт ко Дню Независимости Украины / Океан Ельзи. Концерт до Дня Незалежності України (24.08.2018) WEB-DL [H.264/720p-LQ] [UKR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485749.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 августа, в День Независимости Украины, группа Океана Эльзы дала большой концерт после почти годичного перерыва на НСК Олимпийский в Киеве.
-Концерт длился более 4 часов, его посетили 100 тысяч человек.Производство: ТК 1+1Жанр: концертПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: 03:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4432FC9250C2DA6E26EC3CC2591B1AE802BD922F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384409   (485105) от 05.09.2011
-
-Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 02:49:06 + 02.00.48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1129590   (720797) от 29.04.2017
+
+Shorty Rogers - Creative West Coast Swing (1951-1954) 4CD, 2005, Membran [APE|Lossless|tracks + .cue] <West Coast Jazz, Cool, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720797.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Popo [03:02]
+02. Over the Rainbow [03:01]
+03. Didi [02:27](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Big BandПродолжительность: 02:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1ED351E4DA7F9F9CB306919B8A268637903C4DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024066   (720693) от 07.06.2016
+
+Stanley Turrentine - Hustlin' (1964) [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Trouble (No. 2) [07:52]
+ 02.Love Letters [07:40]
+ 03.The Hustler [06:04]
+ 04.Ladyfingers [06:26](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E71469FF9E7600D99C65272669B59FA47B4D084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024073   (720570) от 07.06.2016
+
+Mongo Santamaria - Mr. Watermelon Man & La Bamba (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Bamba [04:01]
+ 02.Fat Back [03:20]
+ 03.Summertime [04:46]
+ 04.Manha De Carnaval (Morning Of The Carnival) (From 'Black Orpheus') [04:50](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D8A7DAE71179B20821711564A24277A55045B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024018   (720556) от 07.06.2016
+
+Ella Fitzgerald - The Best Of... (1996) Reissue, Remastered, Recordings from 1938 to 1955 [APE|Lossless|image + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Tisket A-Tasket
+02. Undecided
+03. Stairway to the Stars
+04. Five O'Clock Whistle(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF1A17C8EE7762A43B44560F5FF267A0D56AE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024071   (720442) от 07.06.2016
 
 Konstantin Klashtorni - Smooth Jazz III (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
@@ -6,7 +122,7 @@ Konstantin Klashtorni - Smooth Jazz III (2016) [FLAC|Lossless|image + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720442.jpg" />
+  <img src="Z:/picture/008/save_picture_720442.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bud Powell - Swingin' With Bud (1957) 2017, Sony Music [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719643.jpg" />
+  <img src="Z:/picture/008/save_picture_719643.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sauter-Finegan Orchestra - Four Classic Albums Plus (1952 - 1958) 2017, 2CD, Avi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719402.jpg" />
+  <img src="Z:/picture/008/save_picture_719402.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Hank Mobley - The Complete Blue Note Sessions (1963 - 1970) 2019, 8CD, Mosaic Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719400.jpg" />
+  <img src="Z:/picture/008/save_picture_719400.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Bob Graf - At Westminster (1958) 1992, Delmark Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719163.jpg" />
+  <img src="Z:/picture/008/save_picture_719163.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Humphrey Lyttelton - In Canada (1983) 2015, Sackville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719162.jpg" />
+  <img src="Z:/picture/008/save_picture_719162.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kim Mills - The Ruby And The Pearl (2005) Jazz Karma Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719158.jpg" />
+  <img src="Z:/picture/008/save_picture_719158.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Chris Potter - Circuits (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719157.jpg" />
+  <img src="Z:/picture/008/save_picture_719157.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Al Haig & Jimmy Raney - Strings Attached (1975) Remaster, 2007, Absord Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719003.jpg" />
+  <img src="Z:/picture/008/save_picture_719003.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Martin Krusche - Friendship Pagoda (2000) Naxos Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719002.jpg" />
+  <img src="Z:/picture/008/save_picture_719002.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bobby Broom - Upper West Side Story (2012) Origin Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718995.jpg" />
+  <img src="Z:/picture/008/save_picture_718995.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Harold Mabern - The Iron Man: Live At Smoke (2018) 2CD, Smoke Sessions Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718730.jpg" />
+  <img src="Z:/picture/008/save_picture_718730.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ John Lewis - The John Lewis Piano (1957) Remaster, 2012, Warner[FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718258.jpg" />
+  <img src="Z:/picture/008/save_picture_718258.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Phronesis - Parallax (2016) [FLAC|Lossless|tracks + .cue] <Progressive - Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718255.jpg" />
+  <img src="Z:/picture/008/save_picture_718255.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Feyza Erenmemis - I'm New (2000) Yonca Music [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717675.jpg" />
+  <img src="Z:/picture/008/save_picture_717675.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Lee Morgan & Wayne Shorter - The Complete Vee Jay Sessions (1959 - 1961) 2000, 6
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717106.jpg" />
+  <img src="Z:/picture/008/save_picture_717106.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Peter King Quintet - Speed Trap (1996) RSJH Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717071.jpg" />
+  <img src="Z:/picture/008/save_picture_717071.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Monty Alexander - Rass! (1974) 2014, MPS Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717070.jpg" />
+  <img src="Z:/picture/008/save_picture_717070.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dale Cooper Quartet & The Dictaphones - Quatorze Pièces De Menace (2013) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716952.jpg" />
+  <img src="Z:/picture/008/save_picture_716952.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Dale Cooper Quartet & The Dictaphones - Astrild Astrild (2017) [FLAC|Lossless|We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716950.jpg" />
+  <img src="Z:/picture/008/save_picture_716950.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716890.jpg" />
+  <img src="Z:/picture/008/save_picture_716890.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716809.jpg" />
+  <img src="Z:/picture/008/save_picture_716809.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C20B43A71DBAE1C5BE2F9518DB71D4865294D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130244   (716799) от 01.05.2017
-
-Duke Ellington - Welcome To The Clubs (1956 - 1959) 2014, La Maison du Duke [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newport Up [05:44]
-02. I Got It Bad And That Ain't Good [02:24]
-03. Tulip Or Turnip [03:00]
-04. Mood Indigo [01:00](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20866EF20543C7B68BD776839EFD71A105DA620A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532137   (716767) от 18.02.2022
-
-Lionel Hampton And His Orchestra - 1949 - 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicken Shack Boogie [3:19]
-02. New Central Avenue Breakdown [3:12]
-03. Benson's Boogie [3:21]
-04. Hamp's Boogie Number 2 [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1200D6B29C80496B3F7D61BA8A60667CEAC28E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531943   (716763) от 18.02.2022
-
-Julian Siegel Jazz Orchestra - Tales From The Jacquard (2017) 2021, Whirlwind Recordings [FLAC|Lossless|tracks + .cue] <Big Band, Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales from the Jacquard, Part 1 [7:03]
-02. Tales from the Jacquard, Part 2 [6:31]
-03. Tales from the Jacquard, Part 3 [17:47]
-04. Blues [7:52](   Читать дальше...   )Жанр: Big Band, Contemporary Jazz, Post-BopПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14922B8B833BD5AFE819E1EC96632B103A1CBFAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130312   (716659) от 01.05.2017
-
-Richard Niles Bandzilla - Bandzilla Rises!!! (2016) [FLAC|Lossless|image + .cue] <Jazz, Soul, Funk, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bandzilla Rises!!! (0:39)
-02. Live As One (5:13)
-03. You Can't Get There From Here (5:10)
-04. L.A. Existential (7:20)(   Читать дальше...   )Жанр: Jazz, Funk, Big BandПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5DCABB9582487F42B19B120CDBC3CA741CCC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

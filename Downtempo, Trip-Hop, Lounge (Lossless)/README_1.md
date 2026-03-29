@@ -1,3 +1,61 @@
+###  Публикация: 1602958   (1045850) от 08.01.2023
+
+VA - Sunrise Lounge & Chillout, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rob Downbeat - Cosmicon (5:10)
+02. Dulcis Domus - 19:42 P.m. (7:22)
+03. Kenny Laakkinen - Winner Lounge (6:35)
+04. Blue Wave - Eu Gosto De Voce (5:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DBFC28AECD37CB9DA292842BAF5165938D8DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603257   (1045848) от 08.01.2023
+
+GARRISON (Игорь Савосин) - Musical Contact (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Water (4:24)
+02. Astral Space (6:07)
+03. Enigma (4:08)
+04. Positive Energy (4:51)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57E3D608D58E818635B98FB1251430063DE8236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602951   (1045846) от 08.01.2023
 
 VA - Lounge Music Bar and Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Lounge Music Bar and Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, L
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045846.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045669.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045491.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044729.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044156.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1044107.jpg" />
+  <img src="Z:/picture/009/save_picture_1044107.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Lounge Grooves: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043367.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ V.A. - Buddha-Bar Summer Vibes by Ravin & by Charles Schillings (2022) 2CD [FLAC
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043230.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042774.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Morning Relaxation: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042272.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Cozy Weekend: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040897.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Chill & Relax: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040347.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Swingers Club Party Music 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy l
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039864.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ V.A. - Cafe Del Mar Ibiza Chillout Mix I (DJ Mix) (2023) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039349.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Dreaming Silent Worlds: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038772.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - The Essential Downtempo Vol.4: Chillout Your Mind (2023) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037852.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Coffee & Fireplace: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037466.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Erotica Vol. 6 (Most Erotic Chillout & Lounge Music) (2021) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037120.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Mediterranean Sunsets: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036720.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ V.A. - Coffee Bar Lounge, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036307.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ V.A. - Lounge & Coffee, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listen
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035846.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Kim & Buran - Tramplin (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space dis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035545.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Arom - A La Vie (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic, Indi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034566.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ V.A. - The Best of Chillout Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Ou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034124.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ V.A. - The Best of Chillout Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1169AAC04234CEAE04E3DD98E4A5A141242E781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445362   (1033770) от 05.02.2021
-
-The 5th Galaxy Orchestra - Adventures in Sci-Fi (2013) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Cillwave, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3000 Feet Over Paris (5:11)
-02. Cindy Praying for the Sky (7:47)
-03. Forgotten Island (3:07)
-04. Crystal Teardrops (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Cillwave, LoungeПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F818F07A8DA31786904FC6FF7D3FB740DD680E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445355   (1033765) от 05.02.2021
-
-The 5th Galaxy Orchestra - Music Through the Years (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2000 Feet Over Paris (5:32)
-02. Rockin Chair (4:49)
-03. Music Through the Years (4:40)
-04. A Russian Spy in Shanghai (4:21)(   Читать дальше...   )Жанр: Electronic, Balearic, Chillout, LoungeПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3AB3B80FAEBBDB849E7A960B4347FB57412B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

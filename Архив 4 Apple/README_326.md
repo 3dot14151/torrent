@@ -1,3 +1,115 @@
+###  Публикация: 1042692   (578208) от 13.08.2016
+
+iFlicks 2 v2.4.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks 2! Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
+
+iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29.07.2016Разработчик: Jendrik BertramПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644CC54D3982BDA4FAA27096E1D112262FAF85EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042725   (578199) от 13.08.2016
+
+FruitJuice - Active Battery Health and Monitoring 2.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578199.jpg" />
+</div>
+
+
+###  Подробнее
+
+FruitJuice - правильный уход за батареей MacBook
+FruitJuice - приложение тесно интегрированное с онлайн сервисом, которые совместно помогут максимизировать жизненный цикл батарем вашего Macbook и максимально эффективно увеличить время автономной работы, в точном соответствии с рекомендациями компании Apple . Приложение отслеживает состояние батареи в режиме реального (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11.08.2016Разработчик: The Battery Project, LLCПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD7DE4E23CEF5042E838388553DBD6AEC447370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042653   (578197) от 13.08.2016
+
+Spy Cam 3.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надежная система видео наблюдения для вашего Mac.
+Spy Cam превращает ваш Mac в систему наблюдения которая записывает видео ролики со звуком. Вы можете сохранять клипы, чтобы просмотреть их позже, либо автоматически загрузить их на Dropbox, чтобы посмотреть что происходит удаленно!
+
+Spy Cam простое в использование приложение, которое использует встроенные в ваш Mac (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20.07.2016Разработчик: ZipZapMacПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, английский, итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0958DA47EEAA7957CE87AA9005897CF407A22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233694   (578181) от 01.07.2018
+
+1Password 7.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085A4F39370C96C0A6C7CEB38243EBEE4AD9D636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233695   (578070) от 01.07.2018
 
 Dash 4.3.1 [En]
@@ -6,7 +118,7 @@ Dash 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578070.jpg" />
+  <img src="Z:/picture/008/save_picture_578070.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ Ulysses 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577233.jpg" />
+  <img src="Z:/picture/008/save_picture_577233.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ Name Mangler 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577129.jpg" />
+  <img src="Z:/picture/008/save_picture_577129.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Sketch 3.3.3 (12081) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577068.jpg" />
+  <img src="Z:/picture/008/save_picture_577068.jpg" />
 </div>
 
 
@@ -114,7 +226,7 @@ Claquette - Animated Screenshots 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576649.jpg" />
+  <img src="Z:/picture/008/save_picture_576649.jpg" />
 </div>
 
 
@@ -141,7 +253,7 @@ DocScanner [5.1+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576224.jpg" />
+  <img src="Z:/picture/008/save_picture_576224.jpg" />
 </div>
 
 
@@ -167,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575923.jpg" />
+  <img src="Z:/picture/008/save_picture_575923.jpg" />
 </div>
 
 
@@ -195,7 +307,7 @@ Corel Painter 2019 (19.0.0.427) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575631.jpg" />
+  <img src="Z:/picture/008/save_picture_575631.jpg" />
 </div>
 
 
@@ -221,7 +333,7 @@ Tuxera NTFS 2015 RC (030740) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575050.jpg" />
+  <img src="Z:/picture/008/save_picture_575050.jpg" />
 </div>
 
 
@@ -249,7 +361,7 @@ OCRKit 16.8.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574794.jpg" />
+  <img src="Z:/picture/008/save_picture_574794.jpg" />
 </div>
 
 
@@ -277,7 +389,7 @@ KCNcrew Pack 08-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574784.jpg" />
+  <img src="Z:/picture/008/save_picture_574784.jpg" />
 </div>
 
 
@@ -305,7 +417,7 @@ iStatistica 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574684.jpg" />
+  <img src="Z:/picture/008/save_picture_574684.jpg" />
 </div>
 
 
@@ -334,7 +446,7 @@ Vectoraster 6.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574675.jpg" />
+  <img src="Z:/picture/008/save_picture_574675.jpg" />
 </div>
 
 
@@ -362,7 +474,7 @@ iA Writer 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574605.jpg" />
+  <img src="Z:/picture/008/save_picture_574605.jpg" />
 </div>
 
 
@@ -389,7 +501,7 @@ Lingon X 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574496.jpg" />
+  <img src="Z:/picture/008/save_picture_574496.jpg" />
 </div>
 
 
@@ -416,7 +528,7 @@ Librarian Pro 5 v5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574448.jpg" />
+  <img src="Z:/picture/008/save_picture_574448.jpg" />
 </div>
 
 
@@ -442,7 +554,7 @@ Artstudio Pro 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574446.jpg" />
+  <img src="Z:/picture/008/save_picture_574446.jpg" />
 </div>
 
 
@@ -468,7 +580,7 @@ PDFpenPro 11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574442.jpg" />
+  <img src="Z:/picture/008/save_picture_574442.jpg" />
 </div>
 
 
@@ -496,7 +608,7 @@ Kerbal Space Program v.1.4.4.02215/dlc (2015) [En/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574256.jpg" />
+  <img src="Z:/picture/008/save_picture_574256.jpg" />
 </div>
 
 
@@ -522,7 +634,7 @@ Keep It 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574163.jpg" />
+  <img src="Z:/picture/008/save_picture_574163.jpg" />
 </div>
 
 
@@ -548,7 +660,7 @@ GoodTask 7.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574158.jpg" />
+  <img src="Z:/picture/008/save_picture_574158.jpg" />
 </div>
 
 
@@ -575,7 +687,7 @@ Creo Pro 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574153.jpg" />
+  <img src="Z:/picture/008/save_picture_574153.jpg" />
 </div>
 
 
@@ -586,111 +698,6 @@ Creo - это инструмент macOS, целью которого являе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F14D0215EB24BD72CFB7A198F0EF7E42FC40B5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554882   (574020) от 01.06.2022
-
-NCH WavePad Audio Editor Pro 16.41 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.05.2022Разработчик: © 2022 NCH SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED934A60FEFD13B008D7EF32CDB908DF5CD8E74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554904   (574019) от 01.06.2022
-
-Sketch 88.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: macOS 11.0 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826B0307B3A757E71DCA68EF80D0EC336DB75406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555003   (574016) от 01.06.2022
-
-Tower Pro 8 v8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.06.2022Разработчик: © 2010-2022 TowerПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6103A2F7DBB0B1DA5D3A207BF8A68015339479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554967   (574013) от 01.06.2022
-
-iThoughtsX 9.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574013.jpg" />
-</div>
-
-
-###  Подробнее
-
-iThoughtsX – приложение, позволяющее визуализировать ваши мысли с помощью построения графических диаграмм. Отлично помогает при мозговых штурмах и при необходимости упорядочить мысли или идеи. iThoughtsX можно использовать для различных задач - в том числе списков, мозговой штурм, планирования праздников, исследования, письма, управление проектом - и в самых разных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.05.2022Разработчик: © 2021 toketaWare LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6485E9C18EF836D54273899B5924C6DB527535
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1222973   (678684) от 02.05.2018
+
+Microsoft Windows 10 10.0.17134.1 Consumer editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] by WZT [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы Windows 10 April 2018 Update от 30 апреля 2018 года. С обновлением Redstone 4 должны появиться новые функции и усовершенствования, которые сделают Windows 10 лучше во многих отношениях.Язык интерфейса: Русский/Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27445BD9A44A7D3CAF754129AA57830C9A04DB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290519   (677896) от 20.03.2019
+
+Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 включает “универсальную” архитектуру приложений, которая расширяет функциональность приложений Metro. Теперь данные приложения могут быть разработаны для запуска на других продуктах Microsoft - включая планшеты, компьютеры, смартфоны, встроенные системы, Xbox One, Surface Hub и HoloLens.
+
+Пользовательский интерфейс Windows 10 был пересмотрен для организации (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0887D600D0C950AD278648C592EF5384C93C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536359   (676140) от 11.03.2022
 
 Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 22.3.11 [Multi/Ru]
@@ -6,7 +60,7 @@
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676140.jpg" />
+  <img src="Z:/picture/008/save_picture_676140.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Microsoft Windows 10.0.17134.648 Version 1803 (Updated March 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675741.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Microsoft Windows 10 10.0.17134.1 Version 1803 (Updated April 2018) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671091.jpg" />
+  <img src="Z:/picture/008/save_picture_671091.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669178.jpg" />
+  <img src="Z:/picture/008/save_picture_669178.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669092.jpg" />
+  <img src="Z:/picture/008/save_picture_669092.jpg" />
 </div>
 
 
@@ -145,7 +199,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669084.jpg" />
+  <img src="Z:/picture/008/save_picture_669084.jpg" />
 </div>
 
 
@@ -174,7 +228,7 @@ Windows Server, Version 20H2 (10.0.19042.1586) (Updated March 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669080.jpg" />
+  <img src="Z:/picture/008/save_picture_669080.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668976.jpg" />
+  <img src="Z:/picture/008/save_picture_668976.jpg" />
 </div>
 
 
@@ -229,7 +283,7 @@ Microsoft Windows 10.0.19044.1586, Version 21H2 (Updated March 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668966.jpg" />
+  <img src="Z:/picture/008/save_picture_668966.jpg" />
 </div>
 
 
@@ -256,7 +310,7 @@ Microsoft Windows 11 [10.0.22000.556], Version 21H2 (Updated March 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668717.jpg" />
+  <img src="Z:/picture/008/save_picture_668717.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666281.jpg" />
+  <img src="Z:/picture/008/save_picture_666281.jpg" />
 </div>
 
 
@@ -311,7 +365,7 @@ Microsoft Windows 10.0.19044.1586 Professional Version 21H2 (Updated March 2022)
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665112.jpg" />
+  <img src="Z:/picture/008/save_picture_665112.jpg" />
 </div>
 
 
@@ -337,7 +391,7 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658414.jpg" />
+  <img src="Z:/picture/008/save_picture_658414.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657452.jpg" />
+  <img src="Z:/picture/008/save_picture_657452.jpg" />
 </div>
 
 
@@ -393,7 +447,7 @@ Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646355.jpg" />
+  <img src="Z:/picture/008/save_picture_646355.jpg" />
 </div>
 
 
@@ -420,7 +474,7 @@ Microsoft Windows 10 Version 1809 Build 17763.379 (Updated March 2019) Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644320.jpg" />
+  <img src="Z:/picture/008/save_picture_644320.jpg" />
 </div>
 
 
@@ -447,7 +501,7 @@ Microsoft Windows 7 Enterprise with SP1 x86 Updated (12.05.2011) - Оригин�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640940.jpg" />
+  <img src="Z:/picture/008/save_picture_640940.jpg" />
 </div>
 
 
@@ -473,7 +527,7 @@ Recovery Partition for Samsung NP300V5A / NP300E5A / NP300E5Z Win7 HB x64 Window
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629134.jpg" />
+  <img src="Z:/picture/008/save_picture_629134.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ Recovery USB-Flash for Lenovo B5010 / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614997.jpg" />
+  <img src="Z:/picture/008/save_picture_614997.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614689.jpg" />
+  <img src="Z:/picture/008/save_picture_614689.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ Windows Server, Version 20H2 (10.0.19042.1645) (Updated April 2022) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614575.jpg" />
+  <img src="Z:/picture/008/save_picture_614575.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612552.jpg" />
+  <img src="Z:/picture/008/save_picture_612552.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612551.jpg" />
+  <img src="Z:/picture/008/save_picture_612551.jpg" />
 </div>
 
 
@@ -640,7 +694,7 @@ Microsoft Windows 10 10.0.15063.0 Version 1703 (Updated March 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610706.jpg" />
+  <img src="Z:/picture/008/save_picture_610706.jpg" />
 </div>
 
 
@@ -651,59 +705,6 @@ Windows 10 — операционная система для персональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D23D3941404DA5B86A340EAFAD526DF42239EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296789   (609916) от 18.04.2019
-
-Microsoft Windows 10.0.17763.437 Version 1809 (April 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.437 (Updated April 2019).
-Business Edition и Consumer Edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205AFF32D22D4CD3F436B649EAADEEBE843E0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545919   (609159) от 22.04.2022
-
-Windows 11 21H2 Build 22000.613 16in1 Integral Edition 2022.4.14 Ru-Multi38 by Ramsey [Multi/Ru]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609159.jpg" />
-</div>
-
-
-###  Подробнее
-
-За основу для этой сборки взят оригинальный образ Windows 11 от Microsoft. В одном образе объединены 16 разных редакций с выбором одного из 38-ми (!!!) языков. Интегрированы обновления по апрель 2022 года. Сняты ограничения установки на компьютеры без поддержки UEFI и безопасной загрузки, без поддержки TPM, с ОЗУ менее 4Гб и с одноядерным процессором. Более подробную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39876244FF48F4CF3B321CF7B478B130C8ECA6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

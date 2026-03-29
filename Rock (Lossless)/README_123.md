@@ -1,3 +1,147 @@
+###  Публикация: 1454040   (244220) от 13.03.2021
+
+Caspar McCloud - Game Changers (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Kingdom of Darkness (0:04:28)
+02 - Under the Blood (0:04:52)
+03 - We Shall Be Changed (0:04:22)
+04 - Jesus First (0:04:06)(   Читать дальше...   )Жанр: Classic Rock, RockПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA1D59A25E2F9C9B569FF8D62977ECA0B1FADB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541585   (244129) от 04.04.2022
+
+John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Folk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих Джон Иллсли всегда будет внушительной фигурой, стоящей рядом с Марком Нопфлером и оказавшим значительное влияние на формирование их музыкального стиля. Наряду с Марком, Джон Иллсли был единственным участником группы, который полностью отработал с "Dire Straits" почти двадцать лет, прежде чем группа постепенно угасла в начале 1990-х. Помимо участия (   Читать дальше...   )--------------------------
+
+01. When God Made Time (3:30)Жанр: Rock, Blues Rock, Folk Rock, Pop Rock |Продолжительность: 08:32:15 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA5616F3A9EE852986E574CCD6A717618CBAF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626294   (244110) от 13.04.2023
+
+Crippled Black Phoenix - Banefyre (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive Post, Folk, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Act I:
+01. Incantation For The Different (2:49)
+02. Wyches And Basterdz (4:56)
+03. Ghostland (5:43)(   Читать дальше...   )Жанр: Progressive Post, Folk, Stoner RockПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12523EA30BA759CC0DD7E2E7974D338B3D9B56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454346   (244089) от 14.03.2021
+
+The Radio Sun - Heaven Or Heartbreak (2015) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caught Between Heaven And A Heartbreak
+02. Tell Me What You Want
+03. Dying Without Your Love
+04. Science Fiction Make Believe(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC8FF721474BDDEE6CE90A2D9959701B894C367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454336   (244074) от 14.03.2021
+
+The Radio Sun - Unstoppable (2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Earth
+02. Only You
+03. You've Got The Touch
+04. Tonight's the Night(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9E3C911A0C4395649A6A4EAF2DB3E06C0B2CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626186   (244056) от 13.04.2023
 
 VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +150,7 @@ VA - Rock Hymnen (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244056.jpg" />
+  <img src="Z:/picture/004/save_picture_244056.jpg" />
 </div>
 
 
@@ -35,7 +179,7 @@ Bent Muffbanger - Kush (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244031.jpg" />
+  <img src="Z:/picture/004/save_picture_244031.jpg" />
 </div>
 
 
@@ -64,7 +208,7 @@ The Radio Sun - Wrong Things Right (2014) [FLAC|Lossless|image + .cue] <Melodic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244023.jpg" />
+  <img src="Z:/picture/004/save_picture_244023.jpg" />
 </div>
 
 
@@ -93,7 +237,7 @@ Tarmat - Out Of The Blue (2022) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243885.jpg" />
+  <img src="Z:/picture/004/save_picture_243885.jpg" />
 </div>
 
 
@@ -122,7 +266,7 @@ Clouds Of Clarity - Superficial Society (2022) [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243848.jpg" />
+  <img src="Z:/picture/004/save_picture_243848.jpg" />
 </div>
 
 
@@ -151,7 +295,7 @@ Chris Barr & Don Cromwell - A Story Unfolds (2022) 2xCD [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243812.jpg" />
+  <img src="Z:/picture/004/save_picture_243812.jpg" />
 </div>
 
 
@@ -181,7 +325,7 @@ Michael Thompson Band - The Love Goes On (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243746.jpg" />
 </div>
 
 
@@ -210,7 +354,7 @@ Airbag - All Rights Removed (2011) [FLAC|Lossless|tracks + .cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243637.jpg" />
+  <img src="Z:/picture/004/save_picture_243637.jpg" />
 </div>
 
 
@@ -239,7 +383,7 @@ Lifestream - Alter Echo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243578.jpg" />
+  <img src="Z:/picture/004/save_picture_243578.jpg" />
 </div>
 
 
@@ -268,7 +412,7 @@ First Signal - Face Your Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243547.jpg" />
+  <img src="Z:/picture/004/save_picture_243547.jpg" />
 </div>
 
 
@@ -297,7 +441,7 @@ Wyvern - Radiations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243500.jpg" />
+  <img src="Z:/picture/004/save_picture_243500.jpg" />
 </div>
 
 
@@ -326,7 +470,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243485.jpg" />
+  <img src="Z:/picture/004/save_picture_243485.jpg" />
 </div>
 
 
@@ -355,7 +499,7 @@ Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243467.jpg" />
+  <img src="Z:/picture/004/save_picture_243467.jpg" />
 </div>
 
 
@@ -384,7 +528,7 @@ Good NightOwl - Capital (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243452.jpg" />
+  <img src="Z:/picture/004/save_picture_243452.jpg" />
 </div>
 
 
@@ -413,7 +557,7 @@ Creye - III: Weightless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243417.jpg" />
+  <img src="Z:/picture/004/save_picture_243417.jpg" />
 </div>
 
 
@@ -442,7 +586,7 @@ Antumbra - Split The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243413.jpg" />
+  <img src="Z:/picture/004/save_picture_243413.jpg" />
 </div>
 
 
@@ -471,7 +615,7 @@ UFO - Werewolves Of London (Live 1998) (2022) [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243373.jpg" />
+  <img src="Z:/picture/004/save_picture_243373.jpg" />
 </div>
 
 
@@ -500,7 +644,7 @@ Mystery - Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243371.jpg" />
+  <img src="Z:/picture/005/save_picture_243371.jpg" />
 </div>
 
 
@@ -529,7 +673,7 @@ Barry Goudreau’s Engine Room - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243313.jpg" />
+  <img src="Z:/picture/004/save_picture_243313.jpg" />
 </div>
 
 
@@ -558,7 +702,7 @@ Eta Lux - High and Low (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243273.jpg" />
+  <img src="Z:/picture/004/save_picture_243273.jpg" />
 </div>
 
 
@@ -587,7 +731,7 @@ Joan Jett & The Blackhearts - Changeup (Acoustic) (2022) [FLAC 2.0|96/24|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243263.jpg" />
+  <img src="Z:/picture/004/save_picture_243263.jpg" />
 </div>
 
 
@@ -601,151 +745,6 @@ Joan Jett & The Blackhearts - Changeup (Acoustic) (2022) [FLAC 2.0|96/24|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB06538E17922CE34379F3894C7A74F14F985432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352905   (243209) от 15.01.2020
-
-Universal Sigh - Cherish (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedrock & Paradox (05:20)
-02. The Latter (03:51)
-03. Blindside (05:19)
-04. Leftovers Life (05:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B4F99B118F4A01974A1F54945B5871C32C7A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539878   (243208) от 27.03.2022
-
-АнтитілА - MLNL (2022) [FLAC|lossless|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Топити за своє (04:32)
-02. Кіно (03:14)
-03. Маскарад (03:23)
-04. Стань (04:00)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B855912FE1A0D173FD83F3AF259D9F31C9875328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623986   (243171) от 03.04.2023
-
-Remedy - Something That Your Eyes Won't See (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living On The Edge
-02. I Wanna Have It All
-03. Marilyn
-04. Scream In Silence(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5980C77903181D682891DC1D80CEDA46003FC6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634150   (243052) от 18.05.2023
-
-Arjen Lucassen's Supersonic Revolution - Golden Age Of Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic rock, Progressive Hard rock-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SR Prelude (1:33)
-02. The Glamattack (5:15)
-03. Golden Age Of Music (5:12)
-04. The Rise Of The Starman (4:50)(   Читать дальше...   )Жанр: Classic rock, Progressive Hard rock-MetalПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3009376D275C5656CFA7410E7DDC4CCB3E1448E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540734   (242887) от 31.03.2022
-
-Cosmic Debris - Cosmic Debris (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar Solar Race
-02. Concrete Butterfly
-03. Cosmic Debris
-04. The Universe Is Mine(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE263829A9E4BDAACC3772781EE5193BE0A31271
 ```
 
 https://mybot314.ru/tekegram_catalog/

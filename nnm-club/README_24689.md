@@ -1,24 +1,80 @@
-###  Публикация: 1789118   (68375) от 02.04.2025
+###  Публикация: 1783545   (69756) от 07.03.2025
 
-Шрифты - Dmitri Zdorov - Dimka - Oniks [OTF, WOFF, WOFF2]
+VA - The Sound of 2025, Chapter 2: Madrid (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miami Techno - The Truth (Nicolas Muller Remix - Mixed) (06:14)
+02. F4T4L3RR0R - Get What You Deserve (Original Mix - Mixed) (04:16)
+03. Carlo Camargo - Beyond Affliction Road (Original Mix - Mixed) (05:53)
+04. Thian - Slow Undressing (Original Mix - Mixed) (05:15)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51C216F06F821164DEC6E932814761DD76A3132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783689   (69755) от 07.03.2025
+
+VA - Venice Piano Sonata: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holly Jones - Jellies (2:45)
+02. Bob Yonker - The Third Day Dawns (4:11)
+03. Eric Bikales - Reasoning with the Wind (3:37)
+04. Robin Spielberg - Love Story Theme (Where Do I Begin) (5:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F83EBA65B6E9A29FCFCC7ACF6E9818C0124EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783818   (69754) от 07.03.2025
+
+Шрифты - YouWorkForThem - Calps Font [TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Dmitri Zdorov
-В добавленных файлах "Oniks By He Rez AD" расширенная кириллица от "He Rez AD" (Украинская, Молдавская), им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
+Calps — это сжатый шрифт без засечек. Непритязательный дизайн, шрифт разработан так, чтобы быть последовательным для таких букв, как a, b, d, q, p, g и C, G, O, Q, создавая единообразие для набора. Каждый угол линии вырезается, чтобы уменьшить ее резкость, добавляя нотку дружелюбия. Если стандартный шрифт недостаточно сжат, есть тонкая вариация, предлагающая более (   Читать дальше...   )Формат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AE7DC429CCA5BA50DF1101199D52C081E9FEE32
+magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789121   (68374) от 02.04.2025
+###  Публикация: 1783828   (69753) от 07.03.2025
 
-А.В. Грачёв, В.А. Погожев, Е.А. Вишнякова | Физика. Учебник для 8 класса (2022) [PDF]
+Валентина Паевская | Детская ревность. Особенности воспитания нескольких детей в семье (2019) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник рассчитан на учащихся общеобразовательных организаций. Настоящее издание вместе с рабочими тетрадями, тетрадью для лабораторных работ и методическим пособием для учителей составляет учебно-методический комплект по физике для  8 класса. В учебнике представлены разделы «Тепловые явления» и «Электромагнитные явления».Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+Родителям, воспитывающим более одного ребенка в семье, рано или поздно приходится задуматься об отношениях между детьми. Большинство родителей хотят вырастить братьев и сестер дружными, любящими друг друга, умеющими поддержать в различных ситуациях.
+Но порой это кажется непосильным трудом, особенно когда слышишь вопли из детской комнаты или разнимаешь драку.
+Из этой (   Читать дальше...   )Жанр: Детская психологияИздательство: ФениксФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B152639A35D0FF419742B01AD836952D0C113C6
+magnet:?xt=urn:btih:1982C8CDCA131727F3047B7EFA338C60940BD662
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789037   (68373) от 02.04.2025
+###  Публикация: 1783748   (69751) от 07.03.2025
 
-Пресеты - CINECOLOR - PRIMARIES [CUBE, XMP]
+Лето 1993-го / Estiu 1993 / Summer 1993 (2017) BDRip [H.264] [VO]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эти таблицы LUT, используемые в качестве первого шага в вашем цветовом конвейере, исправляют распространенные технические недостатки, создавая оптимальную отправную точку для вашего творческого уровня.Формат: CUBE, XMP
+Летом 1993 года, после смерти родителей, шестилетняя Фрида переезжает из Барселоны к дяде, который живет в Каталонии. Девочке придётся принять эту новую семью, хочет она этого или нет. Теперь у неё есть младшая сестра Анна и приёмные родители - тетя Марга и дядя Эстев. Но Фрида чувствует себя чужой и потерянной, несмотря на хорошее отношение опекунов. Она хочет вернуться (   Читать дальше...   )Производство: Испания / Avalon, Fundación SGAE, Inicia Films...Жанр: драма, семейныйРежиссер: Карла СимонАктеры: Лайя Артигас, Паула Роблес, Бруна Кузи, Давид Вердагер, Ферми Рейксач, Монце Санс, Исабель Рокатти, Берта Пипо, Этна Кампилло, Паула БланкоПеревод: любительский одноголосый (VO visanti-vasaer)Язык озвучки: русский, каталонскийСубтитры: русские, английскиеПродолжительность: 01:39:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CBCFE8F9D6B79221C0119B5694C10C4C5B6CDFA
+magnet:?xt=urn:btih:6B3A570B54B4D35FA16CDD8BB9C6DD1F5CF4FFDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,79 +136,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789117   (68372) от 02.04.2025
+###  Публикация: 1783611   (69750) от 07.03.2025
 
-А.В. Грачёв, В.А. Погожев, А.В. Селиверстов | Физика. Учебник для 7 класса (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник рассчитан на учащихся общеобразовательных организаций, приступающих к систематическому изучению физики. Настоящее издание вместе с рабочими тетрадями, тетрадью для лабораторных работ и методическим пособием для учителей составляет учебно-методический комплект по физике для 7 класса. В учебнике представлен раздел «Механические явления».Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6816EDF9DA4A3AE882DF65ABC70CBD6C993134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789156   (68371) от 02.04.2025
-
-В.В. Белага, И.А. Ломаченков, Ю.А. Панебратцев | Физика. Учебник для 7 класса (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник начинает линию учебно-методических комплексов «Сферы» по физике. Издание освещает вопросы курса физики для основной школы. Материал учебника направлен на формирование первых научных представлений о физических законах и явлениях и основывается на достижениях современной физики и техники. Главными особенностями данного учебника являются фиксированный (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D7D84958BB0EE40F21CBBEEDD6C4C6417E6469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789129   (68370) от 02.04.2025
-
-Шрифты - Maxim Raikov - Behance - Free font - VOKIAR - 127297697 [OTF, TTF]
+Шрифты - Fontwerk - Case Collection [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатный шрифт c кириллицей.
-Разработчик: Maxim Raikov
-Материал раздаётся с официальной документацией.Формат: OTF, TTF
+Коллекция шрифтов Case™ — это освежающая альтернатива классике. Чтобы сделать ее еще более универсальной для сложных проектов брендинга, мы пересмотрели ее с нуля и удвоили количество шрифтов и символов.
+
+Кириллица поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8779EAC69A39AC72D9370F7941E3528526A8C9B
+magnet:?xt=urn:btih:6CA57F06805083E36D3EB695310702DE128B3A26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789188   (68369) от 02.04.2025
+###  Публикация: 1783693   (69749) от 07.03.2025
 
-Tablacus Explorer 25.4.1 Portable [Multi/Ru]
+Журнал | 5 Колесо №3 (377) (март 2025) [PDF]
 
->>Архив торрентов
->>Архив Программ
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+«5 колесо» - один из самых популярных автомобильных журналов в России, имеющий многолетнюю успешную историю развития. Одной из главных особенностей журнала являются непосредственное участие читателей в испытаниях автомобилей, представленных на российском рынке, а также самый полный каталог автомобилей, официально продаваемых на российском рынке с актуальными, действительными (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3D193FB7366BFCF06A2DE18DE27A4181B900F13
+magnet:?xt=urn:btih:8504EC6EAB2FF2A55AE4CB25E748B332E1909BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,25 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789120   (68368) от 02.04.2025
+###  Публикация: 1783614   (69748) от 07.03.2025
 
-Беспокойное сердце / Plenty (1985) BDRip [H.264] [MVO]
+Растровый клипарт - GraphicRiver - 96 Realistic Smoke Photo Overlays - 27028282 [JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По одноимённой пьесе Дэвида Хэйра... Участница французского сопротивления англичанка Сюзан возвращается домой после войны. Её философия: если ты хочешь что-нибудь, возьми это. Её мирная жизнь - замужество за дипломатом, общество коллег мужа по работе, юный любовник... Воспоминания о товарищах по романтической борьбе, золотые мечты во время войны так контрастируют (   Читать дальше...   )Производство: Великобритания, США / Pressman Productions, RKO PicturesЖанр: драмаРежиссер: Фред СкеписиАктеры: Мэрил Стрип, Чарльз Дэнс, Трейси Уллмен, Джон Гилгуд, Стинг, Иэн МакКеллен, Сэм Нил, Берт Квук, Андре Маранн, Пик Сен ЛимПеревод: профессиональный многоголосый (Нева-1), профессиональный двухголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:41
+Просто представьте свои фотографии в атмосфере этого реалистичного дыма...Формат: JPGРазрешение файлов: 3500х2333
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA63B8B269734AEDC3B4930FD0F98415CD6D85C9
+magnet:?xt=urn:btih:1642B00134A06B61B0B8295B30D3E3484B729A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,28 +216,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789099   (68367) от 02.04.2025
+###  Публикация: 1783667   (69747) от 07.03.2025
 
-Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gospel>
+Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-00. Gates (Live) [00:05:04]
-00. Spirit of Elijah (Live) [00:06:39]
-00. Never Gets Old (Live) [00:06:36]
-00. The King Is Coming (Live) [00:06:30](   Читать дальше...   )Жанр: Christian, GospelПродолжительность: 01:00:15
+01. Don't Believe You [04:41]
+02. Hellectric [04:57]
+03. Riff Revolution [03:59]
+04. Tires On Fire [03:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:47:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1899155C3DECDACBE64A80164B3A48EF44F232C
+magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,81 +245,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789194   (68366) от 02.04.2025
+###  Публикация: 1783518   (69746) от 07.03.2025
 
-Морис Метерлинк | Синяя птица (Аудиоспектакль) (2007) [MP3, Алина Покровская, Анатолий Кузнецов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Волшебная сказка-пьеса бельгийского писателя Мориса Метерлинка (1862–1949) появилась в России в 1908 году, на сцене русского театра и сразу завоевала любовь детей. Ведь эта сказка о них самих. Тильтиль и Митиль отправляются на поиски Синей Птицы, которая поможет постичь тайны вещей, животных, стихий и обрести счастье. Они ищут ее (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказка-пьесаИздательство: 1С-Паблишинг, VOX recordsПродолжительность: 03:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126839DE947FAE02559FAA1276A909F3A45CBF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788930   (68365) от 02.04.2025
-
-По беспроводному телеграфу / Via wireless (1915) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стальной магнат Дэвис изготавливает опытный образец нового орудия, по проекту лейтенанта Соммерса. Пинкни, управляющий фабрикой, из корыстных мотивов саботирует производство этой пушки. Когда супруга и дочь Дэвиса посещают броненосец, на котором служит Соммерс, дочь Глэдис очень заинтересовалась и захотела освоить ошеломляющую техническую новинку - беспроводную телеграфию! (   Читать дальше...   )Производство: США / Astra FilmЖанр: драма, немое киноРежиссер: Джордж ФицморисАктеры: Брюс МакРей, Гэйл Кэйн, Генри Уивер, Брэндон Херст, Пол МакАллистерПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C837C1BDBA59D23B3C4872282AA0DCB661D8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789181   (68364) от 02.04.2025
-
-Raven - Leave 'Em Bleeding (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Lightning Swells Forever - Delirium (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Top Of The Mountain 3:37
-02. Metal City 3:29
-03. The Power 3:55
-04. Destroy All Monsters 6:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:49
+01. The Hanged Man [00:05:18]
+02. Daze [00:04:36]
+03. Caldron [00:04:44]
+04. Green Tide [00:07:33](   Читать дальше...   )Жанр: Doom Metal, Hard RockПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DBE591185095D6757CDA7F6918D61773E8E292E
+magnet:?xt=urn:btih:5BB730C777B729C4D886F9673765874658E06BB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,28 +274,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789072   (68363) от 02.04.2025
+###  Публикация: 1783705   (69745) от 07.03.2025
 
-Within Fractals - Samsara (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+The 7th Guild - Triumviro (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Univers Singularity (04:23)
- 02. Univers Entropy (10:53)
- 03. Univers Equilibrium (08:37)
- 04. Touch (05:37)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:49
+01. Holy Land 05:17
+02. The 7th Guild 05:01
+03. Glorious 05:38
+04. La Promessa Cremisi 05:14(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:47:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53BB63693689E1DC7CDCEF0E424CC03A241214D1
+magnet:?xt=urn:btih:106B6827062333506FD83BEA9D1B6C62AA032F38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,28 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789196   (68362) от 02.04.2025
+###  Публикация: 1783676   (69744) от 07.03.2025
 
-Морис Метерлинк | Синяя птица (Радиоспектакль) (2023) [MP3, Игорь Дмитриев, Светлана Письмиченко и др.]
+VA - Ori Uplift - Uplifting Only Episode 630 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Детский остров.
-Морис Метерлинк (1862–1949) – бельгийский писатель, драматург и философ. Лауреат Нобелевской премии по литературе за 1911 год.
-Пьеса-сказка «Синяя птица» Мориса Метерлинка, написанная в 1905 году. Впервые была поставлена в 1908 году в Московском художественном театре Константина Станиславского.
-В ночь под Рождество мальчика и девочку Тильтиля (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, пьеса-сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:39:58
+01. Darren Bax & Alaera - In My Memory
+02. Night Sky feat. Juliet Lyons - When You Are Near
+03. Mark Versluis & Ana Roze - Let Me Know (Last Soldier Remix)
+04. CO1N & Darkingz - Mermaid's Tears (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F20E953F36188E7204F45BE6C6436A36E07140F1
+magnet:?xt=urn:btih:44051ACA748A8AA6DE5F5C95DE512F09E167C4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,28 +332,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789135   (68361) от 02.04.2025
+###  Публикация: 1783742   (69743) от 07.03.2025
 
-Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+Александр Островский | Последняя жертва (Радиоспектакль) (2024) [MP3, Ирина Соколова, Антон Багров и др.]
 
->>Other Styles
->>Folk (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who's Your Farmer    [0:02:50.72]
-02. Everybody    [0:02:52.50]
-03. Name On It    [0:02:43.30]
-04. Eyes for Nobody    [0:03:37.69](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:27
+Серия/Цикл: Театр у вас дома.
+Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, волнующие (   Читать дальше...   )Жанр: Русская литература, классика, комедия, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:13:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD4BA0513C9DC902AF5A4D84C3FCDF6544B3CAA1
+magnet:?xt=urn:btih:12D6080AC9FD4C52987A276BDB84C0516BB5C463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,29 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788972   (68360) от 02.04.2025
+###  Публикация: 1783701   (69742) от 07.03.2025
 
-Kinetikill - Echoes of Oblivion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore, Death-Metal>
+Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. If Ever
-02. The Becoming
-03. Stupid Girl
-04. Echoes of Oblivion(   Читать дальше...   )Жанр: Nu-Metalcore, Post-Hardcore, Death-MetalПродолжительность: 00:45:55
-bandcamp
+01. Denied (5:31)
+02. The Oath (4:50)
+03. Divine Smite (5:03)
+04. The First Loss (1:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A9A5B41A4B0B0C72B1FDDA8D0A326FFED145AC8
+magnet:?xt=urn:btih:5D6884AEA98A3A1D9A9A1B068FDB184931ADE4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,28 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789108   (68359) от 02.04.2025
+###  Публикация: 1783772   (69741) от 07.03.2025
 
-Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Downtempo>
+Антон Чехов | Дом с мезонином (Радиоспектакль) (2024) [MP3, Марианна Мокшина, Антон Багров и др.]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Piano & The Violin [00:02:52]
-02. Pareidolies [00:05:47]
-03. Disco Nap [00:03:14]
-04. Nenuphar [00:04:16](   Читать дальше...   )Жанр: Indie Pop, DowntempoПродолжительность: 00:48:53
+Серия/Цикл: Театр у вас дома.
+Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
+Рассказ «Дом с мезонином» впервые был опубликован в журнале «Русская мысль» (1896, №4).
+Повествование ведётся от лица художника-пейзажиста, поселившегося в имении помещика Белокурова в Т-ой губернии. (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9161449458479B5C3295B4B307F478E81E64895
+magnet:?xt=urn:btih:4FB63CDA1814B9208728516495AA4B6A0EBE0AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,115 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789094   (68358) от 02.04.2025
+###  Публикация: 1783800   (69740) от 07.03.2025
 
-Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Art Pop, Chamber Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Mirror [00:03:32]
-02. No Front Teeth [00:04:46]
-03. Clean Heart [00:03:52]
-04. Me & Angel [00:03:22](   Читать дальше...   )Жанр: Indie Pop, Art Pop, Chamber PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79018E46A4611B505B26BD47098A08CA0C025E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789085   (68357) от 02.04.2025
-
-Ella Fitzgerald - Three Classic Albums Plus: Second Set (1957 - 1961) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Grown Accustomed To His Face [4:05]
-02. I'll Never Be The Same [4:28]
-03. So Rare [3:39]
-04. Stairway To The Stars [2:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAFFF90A0417C638A4F66BE48965B94DB2EF065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789052   (68356) от 02.04.2025
-
-Lola Indigo - Nave Dragon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Latin Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Mission005
-02 – 1000cosas (feat. Manuel Turizo)
-03 – Sin Autotune
-04 – La Reina(   Читать дальше...   )Жанр: Latin Pop, DanceПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312215B01BFD49E7D1BBF4BEC4E5FD56AC876DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789042   (68355) от 02.04.2025
-
-Death Angel - The Art Of Dying / Killing Season (2013) 2 x CD, Compilation, Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+Destruction - Birth of Malice (2025) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - The Art Of Dying:
-1-1 Thrown To The Wolves 7:29
-1-2 5 Steps Of Freedom 4:48
-1-3 Thicker Than Blood 3:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:42:53
+01. Birth of Malice 01:00
+02. Destruction 05:23
+03. Cyber Warfare 04:24
+04. No Kings - No Masters 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CBFBF609DF3C334A987B2D7AA3433B07D507097
+magnet:?xt=urn:btih:748EDD865B86C655025B1AD390ED6AE2B52D48D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789022   (68354) от 02.04.2025
+###  Публикация: 1783627   (69739) от 07.03.2025
 
-Сборник | Время. События. Люди. В окопах холодной войны (2017) [MP3, Всеволод Кузнецов]
+Markus Schulz - Global DJ Broadcast World Tour (Soundcheck Nightclub Washington DC) (2025-03-06) [MP3|320 Kbps] <Trance, Melodic House, Techno>
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В разное время задачи спецслужб были самыми разными и отвечали интересам государства в тот или иной момент его истории. Например в 1920-е – 1930-е годы для советских спецслужб это были операции против белоэмигрантских, троцкистских и националистических организаций. Западные же спецслужбы в этот период сосредотачивали свои усилия на снижении авторитета и влияния молодого (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: СОЮЗПродолжительность: 06:23:33
+01. Miss Monique, GENESI & Carl Bee - Nomacita
+02. Markus Schulz & Emma Hewitt - Till We Fade (Club Mix)
+03. Orjan Nilsen - Between the Rays (ALAT Remix)
+04. Kos:mo - The Tribe(   Читать дальше...   )Жанр: Trance, Melodic House, TechnoПродолжительность: 02:02:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C883C066371BBD61AD4B99532712EF438AE75F6
+magnet:?xt=urn:btih:824908A44A0C63A1FB3E8DE7CAC87BD531B0F9D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,28 +475,197 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788893   (68353) от 02.04.2025
+###  Публикация: 1783810   (69738) от 07.03.2025
 
-Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Synthwave>
+Галина Шалаева | Моя первая книга о Рождестве (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга адресована в первую очередь самим малышам, ну и, конечно, всем мамам, папам, бабушкам и дедушкам. В ней собрано множество весёлых рассказов, игр, стихов и загадок. На страницах этого прекрасно иллюстрированного издания ребёнка ждут занимательные истории о празднике Рождества Христова, о Боге, Богородице и ангелах. Учитывая особенности детского восприятия, автор (   Читать дальше...   )Жанр: Детская прозаИздательство: АстрельФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86B484E8EA9550E59240A49680F0915EFC68F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783822   (69737) от 07.03.2025
+
+Шрифты - Creative Market - The Tragic Romantic - 290869057 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tragic Romantic — это шрифт, выполненный вручную кистью и чернилами, который оснащен 3 моделями Regular, Italic, Outline. Этот шрифт идеально подходит для использования в смелых акварельных дизайнах или рукописных стилях.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783600   (69736) от 07.03.2025
+
+VA - 3 Years Anniversary House Furia - Music Collection (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FaraoN & Nowakowski - No Matter What (04:51)
+02. FaraoN - Remind You (04:36)
+03. FaraoN & Iriser - Love To Hold (03:50)
+04. Ijan Zagorsky - Stay (04:17)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C6D2AECFE78400092F005254E4BC71BB3B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783751   (69735) от 07.03.2025
+
+Шрифты - MyFonts - Prayuth [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prayuth — это современный шрифт без засечек, состоящий из 32 шрифтов в 8 весах с опциями normal и slim. Это уникальный и современный шрифт без засечек, который хорошо подходит для различных типографических приложений, таких как заголовки и небольшие тексты.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBCC1268AFB3FACE1F8163169FDE618EE060AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783811   (69734) от 07.03.2025
+
+VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel Blanes - Just A Dream (Sabeel Chohan Radio Remix) [3:10]
+02. Abel Blanes - Just A Dream (Radio Edit) [5:09]
+03. Abel Blanes - Deep Red (Radio Edit) [3:26]
+04. Abel Blanes - Empty Streets (Radio Edit) [4:11](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 05:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC73C3787580F1B5CFA715B86EBC6913D935F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783773   (69733) от 07.03.2025
+
+VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Sono - Insomnia (Extended Mix) [4:25]
+02. ELI DAVID - Your Time (Original Mix) [8:01]
+03. Fehrmon & Overmute - Loneliness (Original Mix) [9:06]
+04. Shlomi Shanti - Dajame Marte (Original Mix) [5:14](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E5CAE5210122DD5F4433C112194C14FC8D00DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783710   (69732) от 07.03.2025
+
+Zombie Zombie - Funk Kraut (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69732.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Otherworld (4:37)
-02. Secret Heart (5:03)
-03. Haven in the Woods (3:28)
-04. Devotion (4:27)(   Читать дальше...   )Жанр: Electronic, Synthpop, SynthwaveПродолжительность: 00:45:37
+01 – No Cruise Control
+02 – Densite
+03 – Jungle the Jungle
+04 – Helix(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:43:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:628879AE56C60B249985B919FD1B4DB3542008F4
+magnet:?xt=urn:btih:BC33762E63930E343D8F05425CA4D26B9F8FB0A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +673,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789061   (68352) от 02.04.2025
+###  Публикация: 1783669   (69731) от 07.03.2025
 
-Tarzen - 2 Albums (1984,1989) Remaster, 2025, Metallic Blue Records [MP3|320 Kbps] <Melodic Hard Rock>
+VA - Armin van Buuren - A State Of Trance 1215 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69731.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inmediate Obedience [00:03:54]
-02. Victim of Pleasure [00:03:09]
-03. Glad All Over [00:03:00]
-04. Walls and Rivers [00:04:42](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 2 CD, 01:38:34
+01. Cosmic Gate & James French - I'm On Fire (Progressive Pick)
+02. Armin van Buuren & Bon Jovi - Keep The Faith (Future Favorite)
+03. LightControl - Like A Ghost
+04. Hel:sløwed & 88Birds - Come Undone(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FCAC2F9A9065BA08E9478D7F6A1D8B4EEAD6F5C
+magnet:?xt=urn:btih:5C736AC30451A00692C648CADFE54EDD94CC2F05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,54 +702,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788985   (68351) от 02.04.2025
+###  Публикация: 1783935   (69730) от 08.03.2025
 
-Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Dance, Dubstep, Trap>
+Журнал | Linux Magazine №4 (293) (апрель 2025) [PDF][EN]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - SKRILLEX IS DEAD [0:52]
-02 - SPITFIRE [1:30]
-03 - WHILE YOU WERE SLEEPING VIP [0:58]
-04 - SLICKMAN [0:45](   Читать дальше...   )Жанр: Dance, Dubstep, TrapПродолжительность: 00:46:28
+Linux Magazine - журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение журнала будет (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Linux New Media USA, LLC.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DEB03C2A8329CE99182C193B0FEF074D65C0800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789048   (68350) от 02.04.2025
-
-Крестовые походы / The Crusades (1935) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68350.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам жизни английского короля Ричарда I во время Третьего крестового похода и его брака с Беренгарией Наваррской... Иерусалим захвачен войском Саладина, владыки Сирии и Египта. Отшельник из Иерусалима прибывает в Европу и начинает собирать поддержку для крестового похода, убеждая нескольких европейских правителей отправиться в Иерусалим, чтобы вернуть Святой (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, военный, историяРежиссер: Сесил Блаунт Де МилльАктеры: Лоретта Янг, Генри Уилкоксон, Иэн Кит, С. Обри Смит, Кэтрин Де Милль, Джозеф Шилдкраут, Алан Хэйл, Си. Генри Гордон, Джордж Барбье, Монтагю Лав, Рамсэй Хилл, Ламсден Хэйр, Морис Мерфи, Уильям Фарнум, Хобарт БосвортПеревод: профессиональный многоголосый (Светла)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C33658BDC4A3852E685760B5E5A85F9B2B1388A
+magnet:?xt=urn:btih:2E8DA51DB88F47F56710803BFFC180E103801189
 ```
 
 https://mybot314.ru/tekegram_catalog/

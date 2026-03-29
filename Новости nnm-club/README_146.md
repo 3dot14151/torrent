@@ -1,3 +1,166 @@
+###  Публикация: 815517   (551914) от 23.08.2014
+
+Sleeping Dogs (2012) [En/Ru] (2.1.437044/DLC) SteamRip R.G. Games [Limited Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Гонконг, город, в котором дрожащий свет неоновых огней тесно переплетается с повседневной жизнью, город, чьи экзотические места и бурлящие улицы скрывают одну из самых могущественных и опасных криминальных организаций во всем мире — Триад.
+В этой игре с открытым миром вам предстоит примерить на себя роль Вей Шена, полицейского под прикрытием, который пытается разрушить банды Триад изнутри. Докажите свою значимость на пути к верхушкам этой организации, приняв участие в жестоких криминальных операциях, и не дайте преступникам раскрыть себя.
+Разрываясь между верностью к полицейскому значку и бандитским кодексом чести, вам придется поставить на кон всё и не запутаться в размытых границах между правдой, преданностью и справедливостью.
+
+(   Читать дальше...   )Тип издания: Steam-RipРазработчик: United Front Games / Square Enix London StudiosЖанр: Action (Shooter) / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70585E7B6CA384DEC8CA8992720DC8D67B20E63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046080   (551623) от 27.08.2016
+
+Adobe After Effects CC 2015.3 (13.8.1.38) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551623.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов.
+ (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E116CA207BEAF518DB00A9876877869720617A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046205   (551616) от 27.08.2016
+
+Adobe Premiere Pro CC 2015.4 (10.4.0.30) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.
+
+Выполняйте монтаж видео (   Читать дальше...   )Язык интерфейса: Русский, English и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD1D5C0B4A46EDBA0011DA0E1DC5C3F9AC7880A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940701   (551615) от 27.08.2016
+
+sZone Online (2014) [Ru] (25.08.16) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты – новоиспеченный сталкер, имеющий собственные цели. Тебя всегда притягивала Зона. Ее воздух, буквально пропитанный тайнами и терпким запахом поджидающей опасности, щекочет твои нервы. Но кто ты? Лихой наемник, умеющий зарабатывать большие деньги, выполняя опасные задания? Человек, не нашедший себе места в серой обыденности битком набитых людьми городов? Скрывающийся (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Cybertime SystemЖанр: Survival, MMO, Action, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED810311BE1AC834E2B133DCFFE60FB0B42F361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964712   (551612) от 27.08.2016
+
+Devil May Cry 4 (2015) [En/Multi] (12.12.2015/dlc) Repack R.G. Механики [Special Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра от разработчиков оригинальной Devil May Cry® и Resident Evil® 4 в невероятно успешной серии стилизованных экшнов, на текущий момент разошедшейся 7-миллионным тиражом. Devil May Cry® 4 погрузит вас в сверхестественный готический мир, в котором новый протагонист будет противостоять знакомому герою.Тип издания: RepackРазработчик: CapcomЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB40B05F56EFA1DD7E26725AC6E0952F1A0A5FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806681   (551001) от 24.08.2014
+
+Секретные материалы / The X-Files (1993) HDTVRip [H.264] (Сезон 1, серии 0-15 из 23)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальному агенту Дане Скалли, доктору и преподавателю академии ФБР в Вирджинии, поручают работу в паре с агентом Фоксом Малдером над проектом «Секретные материалы», архивом таинственных, нерешенных дел ФБР, которые зачастую связаны с паранормальными явлениями, случаями вампиризма и оборотничества, нападением генетических мутантов, свидетельствами о похищении людей (   Читать дальше...   )Жанр: фантастика, триллер, драма, детективРежиссер: Ким Мэннерс, Роб Боумен, Дэвид НаттерАктеры: Джиллиан Андерсон, Дэвид Духовны, Митч Пилледжи, Уильям Б. Дэвис и др.Перевод: Дублированный, 3х Многоголосый, Двухголосый, 2х Авторский одноголосыйЯзык субтитров: Русский (Кроме 11 эпизода)Продолжительность: 16х 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96063FC3598B0F04FB56DFC100D1004096C00C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 692055   (550760) от 24.08.2013
 
 Microsoft Office 2003 SP3 rus vl + conv2007 + updates (21.08.2013) [Ru]
@@ -6,7 +169,7 @@ Microsoft Office 2003 SP3 rus vl + conv2007 + updates (21.08.2013) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550760.jpg" />
+  <img src="Z:/picture/008/save_picture_550760.jpg" />
 </div>
 
 
@@ -34,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550692.jpg" />
+  <img src="Z:/picture/008/save_picture_550692.jpg" />
 </div>
 
 
@@ -62,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550691.jpg" />
+  <img src="Z:/picture/008/save_picture_550691.jpg" />
 </div>
 
 
@@ -88,7 +251,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 06.2019 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549989.jpg" />
+  <img src="Z:/picture/008/save_picture_549989.jpg" />
 </div>
 
 
@@ -114,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549838.jpg" />
+  <img src="Z:/picture/008/save_picture_549838.jpg" />
 </div>
 
 
@@ -140,7 +303,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/u3/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549794.jpg" />
+  <img src="Z:/picture/008/save_picture_549794.jpg" />
 </div>
 
 
@@ -166,7 +329,7 @@ Galactic Civilizations III (2015) [Ru/Multi] (1.82/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549786.jpg" />
+  <img src="Z:/picture/008/save_picture_549786.jpg" />
 </div>
 
 
@@ -192,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549771.jpg" />
+  <img src="Z:/picture/008/save_picture_549771.jpg" />
 </div>
 
 
@@ -218,7 +381,7 @@ Manjaro Illyria 18.0.4 (GNOME, KDE, Xfce) [x86_64] 3xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549191.jpg" />
+  <img src="Z:/picture/008/save_picture_549191.jpg" />
 </div>
 
 
@@ -244,7 +407,7 @@ MediaChance Dynamic Auto Painter PRO 5.0.3 RePack by KaktusTV (x86) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548911.jpg" />
+  <img src="Z:/picture/008/save_picture_548911.jpg" />
 </div>
 
 
@@ -270,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548892.jpg" />
+  <img src="Z:/picture/008/save_picture_548892.jpg" />
 </div>
 
 
@@ -296,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548888.jpg" />
+  <img src="Z:/picture/008/save_picture_548888.jpg" />
 </div>
 
 
@@ -322,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548883.jpg" />
+  <img src="Z:/picture/008/save_picture_548883.jpg" />
 </div>
 
 
@@ -348,7 +511,7 @@ Grim Dawn (2016) [Ru/En] (1.1.3.0/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548292.jpg" />
+  <img src="Z:/picture/008/save_picture_548292.jpg" />
 </div>
 
 
@@ -374,7 +537,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 27.08.2016 RePack (& Portable) by KpoJIuK [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547942.jpg" />
+  <img src="Z:/picture/008/save_picture_547942.jpg" />
 </div>
 
 
@@ -400,7 +563,7 @@ Movavi Video Suite 15.4.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547940.jpg" />
+  <img src="Z:/picture/008/save_picture_547940.jpg" />
 </div>
 
 
@@ -426,7 +589,7 @@ Adobe InDesign CC 2015 (v11.4.1) x86-x64 RUS/ENG Update 6
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547939.jpg" />
+  <img src="Z:/picture/008/save_picture_547939.jpg" />
 </div>
 
 
@@ -452,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547937.jpg" />
+  <img src="Z:/picture/008/save_picture_547937.jpg" />
 </div>
 
 
@@ -480,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547739.jpg" />
+  <img src="Z:/picture/008/save_picture_547739.jpg" />
 </div>
 
 
@@ -506,7 +669,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 06.2019 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547487.jpg" />
+  <img src="Z:/picture/008/save_picture_547487.jpg" />
 </div>
 
 
@@ -517,168 +680,6 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 06.2019 by OVGorskiy® 1DVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D054F8CFE3D5F7F4AA942B80B2A7EC18868FAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048167   (547088) от 01.09.2016
-
-Проекты - VideoHive - Colorful Ink Slideshow - 17094960 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу.
-Шаблон прост в настройке. Имеет легкую замену цвета.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF85D2AE228151E6F3BAD5A835EB11507840DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047947   (547049) от 01.09.2016
-
-Livelock (2016) [Ru/Multi] (1.0 Build 24994/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Livelock — многопользовательский аркадный шутер, где вы в одиночку или с друзьями должны положить конец бесконечной войне между машинами. В роли одного из Ведущих интеллектов вы должны открыть Эдем и оживить человечество. На борьбу с машинами отправится один из роботов с человеческим сознанием — Хекс, Авангард или Катализатор.Тип издания: RepackРазработчик: Tuque GamesЖанр: Arcade (Top-down), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FB0864513BC0E15A07C0ADF557B937007A2AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048086   (547041) от 01.09.2016
-
-Полтора шпиона / Central Intelligence (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547041.jpg" />
-</div>
-
-
-###  Подробнее
-
-От лайка в соцсети до спасения мира — один шаг. Сегодня ты френдишь бывшего одноклассника, а завтра — он тащит тебя под пули. Кто ж знал, что заядлый любитель пончиков превратится в похожего на скалу супершпиона.Производство: США, New Line Cinema, Bluegrass Films, Principato-Young EntertainmentЖанр: Боевик, Комедия, КриминалРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Кевин Харт, Эми Райан, Даниэль Николет, Джейсон Бейтман, Аарон Пол, Райан Хансен, Тим Гриффин, Тимоти Джон Смит, Сион КелепиПеревод: Дублированный (iTunes)Продолжительность: 01:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF01328FF9F1E9C89B6AEAD2D289F041045AFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238325   (546906) от 29.07.2018
-
-Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybrid x86 & x64 (от 28.07.2018) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
-Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD74B96B7E9E8127899E428C7192D52D066FD53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014775   (546902) от 29.07.2018
-
-Подшивка журналов | BSD Magazine [+ Specials] (2008-2018) [PDF] [En] [Обновлено 22.07.2018]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546902.jpg" />
-</div>
-
-
-###  Подробнее
-
-BSD Magazine - проект, посвященный BSD и решениям с открытым исходным кодом, ориентированный как на начинающих, так и опытных пользователей. В журнале публикуют новости и профессиональную информацию о BSD в мире, в том числе и статьи по программированию, инструкции, и многое другое.
-Чтобы удовлетворить читателей, на страницах номеров представлены советы как для начинающих, (   Читать дальше...   )Жанр: BSDФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB17D4749A67E783AA7A2182A7096ACB9D6FB3B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310466   (546645) от 24.06.2019
-
-Сергей Лукьяненко | Порог (2019) [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космоопера «Порог» продолжит традиции раннего творчества писателя, его романов «Звезды – холодные игрушки» и «Линия грез».
-
-Шесть галактических цивилизаций.
-Пять погибших планет.(   Читать дальше...   )Жанр: Космическая фантастика, научная фантастикаПродолжительность: 12:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D9C334FA41278C2A1EDE6B03AE0CBB4C23334E
 ```
 
 https://mybot314.ru/tekegram_catalog/

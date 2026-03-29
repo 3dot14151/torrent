@@ -1,3 +1,29 @@
+###  Публикация: 566862   (392544) от 02.11.2012
+
+Формула любви (1984) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_392544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная комедия по мотивам повести Алексея Толстого «Граф Калиостро». В 1780 году Джузеппе Калиостро прибыл в Россию для представления высшей знати. Умыкнув под предлогом лечения отца юную Марью Ивановну, граф пытается влюбить в себя девицу, но безуспешно. В провинциальном поместье, где волею случая оказались путешественники, живет юноша, влюбленный в мраморную (   Читать дальше...   )Производство: СССР / МосфильмЖанр: мелодрама, комедияРежиссер: Марк ЗахаровАктеры: Нодар Мгалоблишвили, Елена Валюшкина, Александр Михайлов (III), Александр Абдулов, Семён Фарада, Елена Аминова, Татьяна Пельтцер, Леонид Броневой, Александра Захарова, Николай Скоробогатов, Анна АндрияноваСубтитры: нетПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33081A1EB3281A331F2F9D7CF2A240345BC7A0E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567213   (392490) от 02.11.2012
 
 Афоня (1975)[H.264] DVDRip
@@ -6,7 +32,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392490.jpg" />
+  <img src="Z:/picture/008/save_picture_392490.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392199.jpg" />
+  <img src="Z:/picture/008/save_picture_392199.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391510.jpg" />
+  <img src="Z:/picture/008/save_picture_391510.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391453.jpg" />
+  <img src="Z:/picture/008/save_picture_391453.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391449.jpg" />
+  <img src="Z:/picture/008/save_picture_391449.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391446.jpg" />
+  <img src="Z:/picture/008/save_picture_391446.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391424.jpg" />
+  <img src="Z:/picture/008/save_picture_391424.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391420.jpg" />
+  <img src="Z:/picture/008/save_picture_391420.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390810.jpg" />
+  <img src="Z:/picture/008/save_picture_390810.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390691.jpg" />
+  <img src="Z:/picture/008/save_picture_390691.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390683.jpg" />
+  <img src="Z:/picture/008/save_picture_390683.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390677.jpg" />
+  <img src="Z:/picture/008/save_picture_390677.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390630.jpg" />
+  <img src="Z:/picture/008/save_picture_390630.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390068.jpg" />
+  <img src="Z:/picture/008/save_picture_390068.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389986.jpg" />
+  <img src="Z:/picture/008/save_picture_389986.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389237.jpg" />
+  <img src="Z:/picture/008/save_picture_389237.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389091.jpg" />
+  <img src="Z:/picture/008/save_picture_389091.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389088.jpg" />
+  <img src="Z:/picture/008/save_picture_389088.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389086.jpg" />
+  <img src="Z:/picture/008/save_picture_389086.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388563.jpg" />
+  <img src="Z:/picture/008/save_picture_388563.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388547.jpg" />
+  <img src="Z:/picture/008/save_picture_388547.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387478.jpg" />
+  <img src="Z:/picture/008/save_picture_387478.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387113.jpg" />
+  <img src="Z:/picture/008/save_picture_387113.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385927.jpg" />
+  <img src="Z:/picture/008/save_picture_385927.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385377.jpg" />
+  <img src="Z:/picture/008/save_picture_385377.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD9120A26D4A8F8DDF17415A57541C00D7D067E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568446   (385172) от 05.09.2022
-
-Труффальдино из Бергамо (1976) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлый и неутомимый балагур Труффальдино нанимается в услужение сразу к двум господам, живущим в разных номерах одного и того же отеля. Вскоре выяснится, что оба хозяина не только знакомы, но даже были в прошлом женихом и невестой, но до поры не знают, что другой находится рядом. А неутомимый Труффальдино успевает обслужить всех, да и себе найти невесту…Жанр: Комедия, Мелодрама, МьюзиклРежиссер: Владимир ВоробьевАктеры: Константин Райкин, Наталья Гундарева, Валентина Кособуцкая, Виктор Костецкий, Лев Петропавловский, Елена Дриацкая, Виктор Кривонос, Игорь Соркин, Александр БерезнякФормат: mkvПродолжительность: 01:05:40 + 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC8FCDA71CA5E72DB14D495B70254BEF149D634
 ```
 
 https://mybot314.ru/tekegram_catalog/

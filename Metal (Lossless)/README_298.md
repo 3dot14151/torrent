@@ -1,3 +1,90 @@
+###  Публикация: 1432428   (164386) от 17.12.2020
+
+Volbeat - Live In Deutschland (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164386.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Intro - Lola Montez (6:38)
+02. Pelvis On Fire (2:49)
+03. Doc Holliday (5:33)(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABB1E1BF905A3A17A2838CC9F53B03F6E1DB294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597930   (164380) от 17.12.2022
+
+DragonForce - Re-Powered Within (2018) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On 04:56
+02. Fallen World 04:08
+03. Cry Thunder 05:15
+04. Give Me the Night 04:28(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291DFAB285FE7119EA73AA2A17C8444B07337340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516986   (164375) от 13.12.2021
+
+Epica - Omega Alive (2021) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164375.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Alpha - Anteludium
+02. Abyss Of Time - Countdown To Singularity
+03. The Skeleton Key(   Читать дальше...   )Жанр: Symphonic Power Metal, Gothic MetalПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962F89C072A1A604F53D67FFE370C623BAED2726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432409   (164316) от 17.12.2020
 
 Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -6,7 +93,7 @@ Iron Savior - Skycrest (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164316.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Damiano's Elysium - The Land Beyond Dreams Part 2 (2022) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164295.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Halestorm - Back From the Dead (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163991.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Rorcal - Muladona (2019) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163940.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Timo Tolkki's Avalon - 3 Albums (2013-2019) 5CD [FLAC|WavPack|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163765.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Kennedy Veil - Trinity of Falsehood (2014) [FLAC|Lossless|tracks + .cue] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163749.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ The Kennedy Veil - Imperium (2017) [FLAC|Lossless|tracks + .cue] <Technical Brut
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163735.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Aeonian Sorrow - A Life Without (2020) EP [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163607.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Aeonian Sorrow - Katara (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163587.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Black Label Society - Doom Crew Inc. (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163552.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Project Creation - Floating World (2005) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163543.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Temple Of Baal - Mysterium (2015) [FLAC|Lossless|image + .cue] <Black Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163540.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Balrog - Miserable Frame (2013) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163535.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Heimdalls Wacht - Ut De Graute Olle Tied-Deel Twee (Land Der Nebel) (2015) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163532.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Crest Of Darkness - Project Regeneration (2000) [APE|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163527.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Atrocity - Blut (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163517.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Behemoth - At The Arena Ov Aion - Live Apostasy (2008) [APE|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163514.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Aurora Ortus - Ostara (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163509.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Balrog - Bestial Satanic Terror (2006) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163502.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Born Of Fire - Anthology (2012) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163496.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Boz (Bollox Of Zatan) - Fury of Pegana (2022) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163480.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Abhorer - Unholy Blasphemer (2004) CD-Bootleg [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163474.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Extreme Cold Winter - 2 Albums (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Death,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163469.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Extreme Cold Winter - 2 Albums (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Death,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1BC2BE85C6E46EF20F0E0788B0A9D34880CF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598206   (163464) от 18.12.2022
-
-Catastrophic - Born Into Bondage (2012) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Malice Belief
-02. The Messenger
-03. Dismal
-04. Splendor's Calling(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D630655553C41954292275BF47700B76E7A5D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598365   (163457) от 18.12.2022
-
-Witchcliff - 2 Albums, 2 Singles (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Conan (Single)
-2019 - Rust
-2021 - Vanta(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C3923FDAC665AAD59405844099334BCB864025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598406   (163433) от 18.12.2022
-
-Biwo - Life And Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Now (04:19)
-02. Fountain of Youth (04:04)
-03. Win This Fight (03:21)
-04. Mother Earth (08:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC05D2424F7CD061C8674555FE44AFC11946A48
 ```
 
 https://mybot314.ru/tekegram_catalog/

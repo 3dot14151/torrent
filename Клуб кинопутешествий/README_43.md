@@ -1,3 +1,55 @@
+###  Публикация: 1579573   (336409) от 27.09.2022
+
+Скандинавская кухня Тарека Тейлора / Tareq Taylor's Nordic Cookery (2021) WEBRip [H.264/720p] (сезон 5, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал, исследующий сердце и душу скандинавской кухни. В этом пятом сезоне Тарек Тейлор снова отправится в путешествие по скандинавским странам, чтобы встретиться с местными производителями продуктов питания и шеф-поварами. Он отправляется по туристической тропе, чтобы познакомиться с местными культурами через их еду, искать фантастические ингредиенты, встречаться (   Читать дальше...   )Производство: Швеция, Sintaxis FilmsЖанр: документальный, познавательный, путешествияРежиссер: Андреас ТроедссонПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 6x ~00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED37B9DD0E6A08B75AFA16F4F0B32C268D2A7DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074912   (336140) от 20.11.2016
+
+100500 городов (2016.11.19) SATRip (выпуск 4: Канзас-сити)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое смешное шоу «100500» покидает не только просторы леопардового ковра, но и пределы страны. В своем новом проекте «100500 городов» Максим Голополосов раскроет зрителям «Че» секреты национального юмора и покажет самые уморительные видео из разных частей света. Так над западом ещё никто не стебался.Производство: ЧеЖанр: Документальный/ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3D5AD2ABC859DE2E92226EBD74D87522005F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075042   (336105) от 20.11.2016
 
 Орел и решка. Шопинг (2016.11.20) SATRip (cезон 5: Фландрия)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336105.jpg" />
+  <img src="Z:/picture/008/save_picture_336105.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335566.jpg" />
+  <img src="Z:/picture/008/save_picture_335566.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334858.jpg" />
+  <img src="Z:/picture/008/save_picture_334858.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334582.jpg" />
+  <img src="Z:/picture/008/save_picture_334582.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334447.jpg" />
+  <img src="Z:/picture/008/save_picture_334447.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333883.jpg" />
+  <img src="Z:/picture/008/save_picture_333883.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333824.jpg" />
+  <img src="Z:/picture/008/save_picture_333824.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333541.jpg" />
+  <img src="Z:/picture/008/save_picture_333541.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333539.jpg" />
+  <img src="Z:/picture/008/save_picture_333539.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333410.jpg" />
+  <img src="Z:/picture/008/save_picture_333410.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332572.jpg" />
+  <img src="Z:/picture/008/save_picture_332572.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332519.jpg" />
+  <img src="Z:/picture/008/save_picture_332519.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332490.jpg" />
+  <img src="Z:/picture/008/save_picture_332490.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332167.jpg" />
+  <img src="Z:/picture/008/save_picture_332167.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332149.jpg" />
+  <img src="Z:/picture/008/save_picture_332149.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332136.jpg" />
+  <img src="Z:/picture/008/save_picture_332136.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331743.jpg" />
+  <img src="Z:/picture/008/save_picture_331743.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331188.jpg" />
+  <img src="Z:/picture/008/save_picture_331188.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330990.jpg" />
+  <img src="Z:/picture/008/save_picture_330990.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329832.jpg" />
+  <img src="Z:/picture/008/save_picture_329832.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329437.jpg" />
+  <img src="Z:/picture/008/save_picture_329437.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329203.jpg" />
+  <img src="Z:/picture/008/save_picture_329203.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328978.jpg" />
+  <img src="Z:/picture/008/save_picture_328978.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325643.jpg" />
+  <img src="Z:/picture/008/save_picture_325643.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69FC0C49E36D3BE2D0820F74F86F59A327125338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958348   (324873) от 20.11.2015
-
-Верю - не верю. Уганда (20.11.2015) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )В этом выпуске: Уганда. За время колониального правления, почти ничего не изменилось в сознании жителей. Это страна, в которой мало кто знает, что такое удобства и горячая вода в кране. Здесь бананы как картошка, а шаманы вместо докторов. Андрей Бедняков отправился в эту экзотическую страну, чтобы узнать самые интересные факты о ней.Телекомпания: Пятница!Жанр: Телепередача, ДокументальныйПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86956460A8DCB6763C7C611782D3B302E6CE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958815   (321854) от 22.11.2015
-
-Руссо туристо. Выпуск 11. Стамбул (2015.11.22) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда ли, что нашего человека без труда можно вычислить за границей?
-Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинСубтитры: ОтсутствуютПродолжительность: 00:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E909BA4A39C7DCD7892021DAF4C4FF3D7A957B
 ```
 
 https://mybot314.ru/tekegram_catalog/

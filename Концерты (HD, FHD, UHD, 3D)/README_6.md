@@ -1,3 +1,87 @@
+###  Публикация: 989384   (916610) от 22.02.2016
+
+Pink - The Truth About Love Tour (Live From Melbourne) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916610.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 13 февраля Pink отправилась в новое мировое турне в поддержку своего альбома The Truth About Love. Турне называется The Truth About Love Tour.01  Raise Your Glass
+02  Walk Of Shame
+03  Just Like A Pill
+04  U + UR Hand(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955D551BD88668B2551729DC590929E12D8172F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367124   (915564) от 16.03.2020
+
+Тим Минчин/Tim Minchin and the Heritage Orchestra - Live at The Royal Albert Hall (2011) WEBRip [AVC/H.264/1080p-LQ / EN, RU Sub]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минчин принялся за новый тур, стартовавший в Бирмингеме в четверг 8 декабря 2010 года. Выступления отличались от предыдущих, номера были переработаны, для исполнения с симфоническим оркестром Heritage Orchestra. В шоу был представлен как старый, так и новый материал, появились новые песни на старые темы религии и рационализма. Минчин задался целью вовлечь оркестр (   Читать дальше...   )Производство: ВеликобританияЖанр: Stand-Up Comedy, концертРежиссер: Tim MinchinСубтитры: внешние (английские, русские (синхронизация - задержка 5 сек для рус))Продолжительность: 02:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8560B15696A6B9491A3B4F52CC4689A6EE7388D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367487   (915428) от 16.03.2020
+
+Lindemann - Live in St.Petersburg Sibur Arena (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915428.jpg" />
+</div>
+
+
+###  Подробнее
+
+(time markers)
+2:45 - Skills In Pills
+7:06 - Ladyboy
+10:27 - Fat(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF30C94DF1640D585718BBBB31513C3205049119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989936   (913245) от 24.02.2016
 
 Олег Митяев - Презентация диска «Позабытое чувство» Москва, Крокус Сити Холл (04.12.2011) HDTV [H.264/1080i]
@@ -6,7 +90,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913245.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911782.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910124.jpg" />
+  <img src="Z:/picture/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907183.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ Metallica -  Live Earth. London (2007) HDTV [MPEG-2/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906490.jpg" />
 </div>
 
 
@@ -235,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906167.jpg" />
 </div>
 
 
@@ -261,7 +345,7 @@ Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901318.jpg" />
 </div>
 
 
@@ -290,7 +374,7 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900155.jpg" />
 </div>
 
 
@@ -319,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899531.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899368.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897849.jpg" />
 </div>
 
 
@@ -407,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895581.jpg" />
 </div>
 
 
@@ -433,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895124.jpg" />
 </div>
 
 
@@ -462,7 +546,7 @@ Above & Beyond Acoustic - Full Concert Film Live from Porchester Hall (Official)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894075.jpg" />
 </div>
 
 
@@ -488,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893328.jpg" />
 </div>
 
 
@@ -517,7 +601,7 @@ Accept - Restless And Live (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892181.jpg" />
 </div>
 
 
@@ -546,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891997.jpg" />
 </div>
 
 
@@ -572,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885733.jpg" />
+  <img src="Z:/picture/005/save_picture_885733.jpg" />
 </div>
 
 
@@ -601,7 +685,7 @@ Echoes - Barefoot To The Moon – An Acoustic Tribute To Pink Floyd (2015) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885242.jpg" />
+  <img src="Z:/picture/005/save_picture_885242.jpg" />
 </div>
 
 
@@ -630,7 +714,7 @@ Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884207.jpg" />
+  <img src="Z:/picture/005/save_picture_884207.jpg" />
 </div>
 
 
@@ -644,90 +728,6 @@ Ghost Stories (в пер. с англ. Призрачные истории) — 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C25C94CBECEE1DB4C0A41B788AD5421B49E642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103951   (883204) от 13.02.2017
-
-Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярная британская группа была сформирована в 1977 году в Шеффилде (Йоркшир) Питом Уиллисом  под названием «Atomic Mass». Когда Джо Эллиотт присоединился к ним, команда сменила название на «Def Leppard». Эллиотт также являлся автором логотипа группы — он вспомнил свой плакат, нарисованный на школьной лекции по пластике.1. Let's Go 5:01
-2. Animal 4:03
-3. Let It Go 5:36
-4. Dangerous 3:39(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Heavy Metal, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83D893EEE4A5D7F6F40E53145393125B09EDCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104165   (881182) от 14.02.2017
-
-Стас Михайлов. Концерт в Олимпийском (2017.02.12) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера на Первом! Грандиозный концерт Стаса Михайлова. Поклонники Стаса Михайлова услышат свои самые любимые песни, а также станут свидетелями нескольких премьер. Новых песен артист готовится исполнить немало: так, например, обязательно прозвучит свежая композиция "Ты все", которую самые преданные поклонники Стаса уже слышали на его концертах, а все остальные (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFBBBC62A83FF5D98006184F789235AC43A0CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764013   (881048) от 08.03.2014
-
-Наутилус Помпилиус - 30 лет под водой (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881048.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках празднования 30-летия группы «Наутилус Помпилиус» запланировано три особенных концерта с участием разных составов легендарного коллектива в трёх городах - Москва, Санкт-Петербург, Екатеринбург01. Тутанхамон - "Ю-Питер" совместно с театром клоунады "Лицедеи"
-02. Всего лишь быть - "Ю-Питер" совместно с Максимом Ивановым из рок-группы "Торба-на-Круче"
-03. Кто ещё - "Ю-Питер" совместно Ильёй Разиным из рок-группы "Полюса"
-04. Отход на север - "Ю-Питер" совместно с Ильёй Лагутенко из рок-группы (   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E80BCBDC2A137FA14DAC984614E2B11DAD8C150
 ```
 
 https://mybot314.ru/tekegram_catalog/

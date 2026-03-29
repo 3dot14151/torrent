@@ -6,7 +6,7 @@ AIMP 5.00 build 2335 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819244.jpg" />
+  <img src="Z:/picture/008/save_picture_819244.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF-XChange PRO 9.2.357.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819239.jpg" />
+  <img src="Z:/picture/008/save_picture_819239.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nox App Player 7.0.1.7007 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819235.jpg" />
+  <img src="Z:/picture/008/save_picture_819235.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819232.jpg" />
+  <img src="Z:/picture/008/save_picture_819232.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819219.jpg" />
+  <img src="Z:/picture/008/save_picture_819219.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819218.jpg" />
+  <img src="Z:/picture/008/save_picture_819218.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819217.jpg" />
+  <img src="Z:/picture/008/save_picture_819217.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819210.jpg" />
+  <img src="Z:/picture/008/save_picture_819210.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Antonio Mendez - Highland Drive (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819203.jpg" />
+  <img src="Z:/picture/008/save_picture_819203.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819201.jpg" />
+  <img src="Z:/picture/008/save_picture_819201.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Ghostpoet - Dark Days + Canapes (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819196.jpg" />
+  <img src="Z:/picture/008/save_picture_819196.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ The Black Dog - Forgemasters - Shards Ov Light (2018) Dust Science [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819194.jpg" />
+  <img src="Z:/picture/008/save_picture_819194.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Merzbow - Kaoscitron (2017) スローダウンRECORDS [FLAC|Lossless|tracks+.cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819192.jpg" />
+  <img src="Z:/picture/008/save_picture_819192.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819189.jpg" />
+  <img src="Z:/picture/008/save_picture_819189.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_819181.jpg" />
+  <img src="Z:/picture/009/save_picture_819181.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819180.jpg" />
+  <img src="Z:/picture/008/save_picture_819180.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819170.jpg" />
+  <img src="Z:/picture/008/save_picture_819170.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819163.jpg" />
+  <img src="Z:/picture/008/save_picture_819163.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Reflector 2.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819157.jpg" />
+  <img src="Z:/picture/008/save_picture_819157.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Internet Download Manager 6.25 Build 15 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819155.jpg" />
+  <img src="Z:/picture/008/save_picture_819155.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Torch Browser 69.2.0.1705 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819136.jpg" />
+  <img src="Z:/picture/008/save_picture_819136.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ RegCool 1.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819126.jpg" />
+  <img src="Z:/picture/008/save_picture_819126.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Grids for Instagram 6.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819119.jpg" />
+  <img src="Z:/picture/008/save_picture_819119.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MediaInfo 0.7.93 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819103.jpg" />
+  <img src="Z:/picture/008/save_picture_819103.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Renamer 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819102.jpg" />
+  <img src="Z:/picture/008/save_picture_819102.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819095.jpg" />
+  <img src="Z:/picture/008/save_picture_819095.jpg" />
 </div>
 
 

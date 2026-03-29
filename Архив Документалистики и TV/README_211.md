@@ -1,3 +1,169 @@
+###  Публикация: 1314791   (517132) от 16.07.2019
+
+Спортивная гимнастика. Кубок Мира 2019. 3-й Этап. Бирмингем (Великобритания). Индивидуальное многоборье (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517132.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2019 года.
+3-й Этап Кубка мира по спортивной гимнастике в многоборье 2019 года
+Birmingham Cup 2019. Бирмингем (Великобритания)
+Индивидуальное многоборье. Финалы(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:32:05 – 02:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204F454B90CB13A2C2A36AF0BBC85172757F90EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535670   (516854) от 16.08.2012
+
+Жизнь с врагом / Living with the enemy (2008) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый взгляд на жизнь в послевоенной Германии: свидетельства историков и очевидцев с обеих сторон - оккупантов и оккупированныхЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30970422769CF3D45247B83198BC7C64A9EF210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535714   (516776) от 16.08.2012
+
+Чудеса вселенной. Границы пространства [8 из 13] / Wunder des weltalls. Bis ans Ende der Zeit (1995) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как высоко Луна? Как далеко звезды? Астрономы всего мира до сих пор ищут вопрос на древний вопрос. Ученые понимают незначительность нашей планеты в великой схеме всего сущего. Со времен древнего Египта небеса почти не изменились и вопросы остались прежними. Сможем ли мы добраться до звезд? Насколько велик небосвод? Все эти вопросы приводят нас границам пространства.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E60C1CB47767B5201FC8A2006CCE9E0F22DB780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930221   (516306) от 22.08.2015
+
+Танковый биатлон. Сезон №3. Выпуск №1 (2015.08.22) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Масштабное военно-спортивное шоу "Танковый биатлон-2015"!
+Это шоу можно назвать чемпионатом мира по танковому биатлону. Беспрецедентные учения-соревнования, идея организации которых принадлежит министру обороны России Сергею Шойгу, привлекли внимание всего мира. Если в первом сезоне "Танкового биатлона" участвовали танкисты из четырех стран - (   Читать дальше...   )Телекомпания: РоссияЖанр: Cпорт, Военно-спортивное шоуПродолжительность: ~ 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DD0006E44B03372A8A64FB983E8F7F6FBA3E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314842   (515984) от 17.07.2019
+
+Водное поло. Мировая лига. Суперфинал 2019. Женщины. Будапешт (Венгрия). Группа B. 1-й тур. Россия — Канада (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515984.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 июня 2019 года
+Мировая лига. Суперфинал 2019. Женщины. Будапешт (Венгрия).
+Групповой этап. Группа B. 1-й тур.
+Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA114A8F2963D32187066D5352E3AC461D6CEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314856   (515983) от 17.07.2019
+
+Водное поло. Мировая лига. Суперфинал 2019. Женщины. Будапешт (Венгрия). Группа B. 2-й тур. Россия — Венгрия (2019) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515983.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 июня 2019 года
+Мировая лига. Суперфинал 2019. Женщины. Будапешт (Венгрия).
+Групповой этап. Группа B. 2-й тур.
+Россия — Венгрия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF6F79E56BE55D0A28E5E16E00CF54105E0C633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314861   (515980) от 17.07.2019
 
 Водное поло. Мировая лига. Суперфинал 2019. Женщины. Будапешт (Венгрия). Группа B. 3-й тур. Россия — США (2019) WEB-DL [H.264/720p-LQ]
@@ -6,7 +172,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515980.jpg" />
+  <img src="Z:/picture/008/save_picture_515980.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515965.jpg" />
+  <img src="Z:/picture/008/save_picture_515965.jpg" />
 </div>
 
 
@@ -61,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515254.jpg" />
+  <img src="Z:/picture/008/save_picture_515254.jpg" />
 </div>
 
 
@@ -90,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514938.jpg" />
+  <img src="Z:/picture/008/save_picture_514938.jpg" />
 </div>
 
 
@@ -119,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514107.jpg" />
+  <img src="Z:/picture/008/save_picture_514107.jpg" />
 </div>
 
 
@@ -151,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513939.jpg" />
+  <img src="Z:/picture/008/save_picture_513939.jpg" />
 </div>
 
 
@@ -177,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513421.jpg" />
+  <img src="Z:/picture/008/save_picture_513421.jpg" />
 </div>
 
 
@@ -203,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513268.jpg" />
+  <img src="Z:/picture/008/save_picture_513268.jpg" />
 </div>
 
 
@@ -235,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512930.jpg" />
+  <img src="Z:/picture/008/save_picture_512930.jpg" />
 </div>
 
 
@@ -261,7 +427,7 @@ Discovery. Рыба-меч: жизнь на крючке / Swords: Life on the L
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512776.jpg" />
+  <img src="Z:/picture/008/save_picture_512776.jpg" />
 </div>
 
 
@@ -287,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512598.jpg" />
+  <img src="Z:/picture/008/save_picture_512598.jpg" />
 </div>
 
 
@@ -313,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512471.jpg" />
+  <img src="Z:/picture/008/save_picture_512471.jpg" />
 </div>
 
 
@@ -339,7 +505,7 @@ NG:Как это связано?. От водяного колеса до ави
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512461.jpg" />
+  <img src="Z:/picture/008/save_picture_512461.jpg" />
 </div>
 
 
@@ -365,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512221.jpg" />
+  <img src="Z:/picture/008/save_picture_512221.jpg" />
 </div>
 
 
@@ -391,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512032.jpg" />
+  <img src="Z:/picture/008/save_picture_512032.jpg" />
 </div>
 
 
@@ -420,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511512.jpg" />
+  <img src="Z:/picture/008/save_picture_511512.jpg" />
 </div>
 
 
@@ -446,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511509.jpg" />
+  <img src="Z:/picture/008/save_picture_511509.jpg" />
 </div>
 
 
@@ -472,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511507.jpg" />
+  <img src="Z:/picture/008/save_picture_511507.jpg" />
 </div>
 
 
@@ -500,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511500.jpg" />
+  <img src="Z:/picture/008/save_picture_511500.jpg" />
 </div>
 
 
@@ -526,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511468.jpg" />
+  <img src="Z:/picture/008/save_picture_511468.jpg" />
 </div>
 
 
@@ -538,162 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537484   (511461) от 21.08.2012
-
-Футбол. Чемпионат Англии 2012-13. 1-й тур. Обзор тура (2012) DVBRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор первого тура Чемпионата Англии по футболу 2012-13.Жанр: Документальный, Телепередача, СпортПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF761D41660ACB507D5B5CA856A083E6ED01B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537425   (511309) от 21.08.2012
-
-Рестлинг / WWE SummerSlam 2012 (2012) HDTVRip [H.264] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511309.jpg" />
-</div>
-
-
-###  Подробнее
-
-новое SummerSlam 2012Жанр: СпортПеревод: ОтсутствуетПродолжительность: 02:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6EAD24B7DFDEA9E079187ED80A017D811DC1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537455   (511307) от 21.08.2012
-
-Рестлинг / WWE Summerslam (Preshow) (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511307.jpg" />
-</div>
-
-
-###  Подробнее
-
-WWE Summerslam - это профессиональное рестлерское pay-per-view шоу, проводимое World Wrestling Entertainment (WWE).Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FBE3F9790327FCB892316121766C69AD8CA949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537415   (511304) от 21.08.2012
-
-Рестлинг / WWE SummerSlam 2012 Pre-Show (2012) WEB-DL [720p/H.264] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pre-Show к SummerSlam 2012Жанр: СпортПеревод: ОтсутствуетПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F9BC38DE8DA7720C50FE168083A53571AEE22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537597   (511302) от 21.08.2012
-
-Рестлинг / wwe summerSlam (2012) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511302.jpg" />
-</div>
-
-
-###  Подробнее
-
-WWE SummerSlam главное реслинг событие этого летаЖанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44359F39C308D4D67CAD5F3DC99C6EB73E0FAB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537448   (511269) от 21.08.2012
-
-Рестлинг / WWE Summerslam (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511269.jpg" />
-</div>
-
-
-###  Подробнее
-
-WWE Summerslam - это профессиональное рестлерское pay-per-view шоу, проводимое World Wrestling Entertainment (WWE).Жанр: СпортПеревод: Многоголосый закадровый, любительский.Продолжительность: 02:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FC9B2B1076A8862DB936EF39CD4933C7E0D1AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

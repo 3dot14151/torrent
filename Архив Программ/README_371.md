@@ -6,7 +6,7 @@ CrystalDiskInfo 8.12.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859437.jpg" />
+  <img src="Z:/picture/008/save_picture_859437.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tixati 2.85 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859427.jpg" />
+  <img src="Z:/picture/008/save_picture_859427.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Etcher 1.6.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859419.jpg" />
+  <img src="Z:/picture/008/save_picture_859419.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CyberLink PowerDirector Ultimate 20.0.2106.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859362.jpg" />
+  <img src="Z:/picture/008/save_picture_859362.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser 6.1.2.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859361.jpg" />
+  <img src="Z:/picture/008/save_picture_859361.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Mozilla Firefox 46.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859326.jpg" />
+  <img src="Z:/picture/008/save_picture_859326.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Privacy Eraser Free 4.10.7 Build 1880 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859306.jpg" />
+  <img src="Z:/picture/008/save_picture_859306.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v5 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859297.jpg" />
+  <img src="Z:/picture/008/save_picture_859297.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Easy Disc Burner 4.7.3.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859273.jpg" />
+  <img src="Z:/picture/008/save_picture_859273.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Free Studio 6.6.5.323 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859272.jpg" />
+  <img src="Z:/picture/008/save_picture_859272.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Registry Cleaner 9.13.587 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859268.jpg" />
+  <img src="Z:/picture/008/save_picture_859268.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Skype 7.22.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859197.jpg" />
+  <img src="Z:/picture/008/save_picture_859197.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Skype 7.22.32.104 Business Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859196.jpg" />
+  <img src="Z:/picture/008/save_picture_859196.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ PDF-XChange Viewer Pro 2.5.317.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859195.jpg" />
+  <img src="Z:/picture/008/save_picture_859195.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Mirillis Splash 2.0.2.0 Premium [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859185.jpg" />
+  <img src="Z:/picture/008/save_picture_859185.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ ReviverSoft PC Reviver 2.6.1.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859112.jpg" />
+  <img src="Z:/picture/008/save_picture_859112.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Google Chrome 49.0.2623.108 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859106.jpg" />
+  <img src="Z:/picture/008/save_picture_859106.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Titan FTP Server Enterprise 2016 Build 2662 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859104.jpg" />
+  <img src="Z:/picture/008/save_picture_859104.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Artweaver Free 5.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859101.jpg" />
+  <img src="Z:/picture/008/save_picture_859101.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Google Chrome 49.0.2623.108 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859061.jpg" />
+  <img src="Z:/picture/008/save_picture_859061.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Daum PotPlayer 1.6.59347 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858985.jpg" />
+  <img src="Z:/picture/008/save_picture_858985.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Skype 7.22.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858984.jpg" />
+  <img src="Z:/picture/008/save_picture_858984.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Google Chrome 49.0.2623.108 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858981.jpg" />
+  <img src="Z:/picture/008/save_picture_858981.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ save2pc Ultimate 5.59.1596 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858924.jpg" />
+  <img src="Z:/picture/008/save_picture_858924.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Trojan Killer 2.1.21 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858915.jpg" />
+  <img src="Z:/picture/008/save_picture_858915.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Chromium 81.0.4044.113 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858910.jpg" />
+  <img src="Z:/picture/008/save_picture_858910.jpg" />
 </div>
 
 

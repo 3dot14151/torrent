@@ -6,7 +6,7 @@ VA - Avalon - The Remixes Vol. 2 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805610.jpg" />
+  <img src="Z:/picture/008/save_picture_805610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805575.jpg" />
+  <img src="Z:/picture/008/save_picture_805575.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805572.jpg" />
+  <img src="Z:/picture/008/save_picture_805572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805571.jpg" />
+  <img src="Z:/picture/008/save_picture_805571.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805569.jpg" />
+  <img src="Z:/picture/008/save_picture_805569.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805567.jpg" />
+  <img src="Z:/picture/008/save_picture_805567.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805566.jpg" />
+  <img src="Z:/picture/008/save_picture_805566.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Gilisoft Privacy Protector 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805565.jpg" />
+  <img src="Z:/picture/008/save_picture_805565.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805561.jpg" />
+  <img src="Z:/picture/008/save_picture_805561.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805557.jpg" />
+  <img src="Z:/picture/008/save_picture_805557.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805517.jpg" />
+  <img src="Z:/picture/008/save_picture_805517.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805503.jpg" />
+  <img src="Z:/picture/008/save_picture_805503.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Offline Pages Pro 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805490.jpg" />
+  <img src="Z:/picture/008/save_picture_805490.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Hardware Monitor 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805488.jpg" />
+  <img src="Z:/picture/008/save_picture_805488.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Comodo Cloud Antivirus 1.1.387596.183 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805472.jpg" />
+  <img src="Z:/picture/008/save_picture_805472.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Radio Silence 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805471.jpg" />
+  <img src="Z:/picture/008/save_picture_805471.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ IObit Smart Defrag Pro 5.0.2.768  Final[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805463.jpg" />
+  <img src="Z:/picture/008/save_picture_805463.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Vivaldi 1.8.770.46 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805380.jpg" />
+  <img src="Z:/picture/008/save_picture_805380.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805376.jpg" />
+  <img src="Z:/picture/008/save_picture_805376.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805368.jpg" />
+  <img src="Z:/picture/008/save_picture_805368.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805361.jpg" />
+  <img src="Z:/picture/008/save_picture_805361.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805360.jpg" />
+  <img src="Z:/picture/008/save_picture_805360.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805359.jpg" />
+  <img src="Z:/picture/008/save_picture_805359.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Gilisoft USB Lock 5.7.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805352.jpg" />
+  <img src="Z:/picture/008/save_picture_805352.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Castlevania: Akumajo Dracula Best Music Collections Box(18CD) (2010)[FLAC|L
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805322.jpg" />
+  <img src="Z:/picture/008/save_picture_805322.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805313.jpg" />
+  <img src="Z:/picture/008/save_picture_805313.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768113.jpg" />
+  <img src="Z:/picture/008/save_picture_768113.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Air Explorer Pro 2.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768087.jpg" />
+  <img src="Z:/picture/008/save_picture_768087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Room Arranger 9.5.3.610 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768084.jpg" />
+  <img src="Z:/picture/008/save_picture_768084.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe components: Flash Player 29.0.0.113 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768074.jpg" />
+  <img src="Z:/picture/008/save_picture_768074.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wondershare Video Converter Ultimate 10.2.3.163 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768071.jpg" />
+  <img src="Z:/picture/008/save_picture_768071.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movavi Screen Capture Studio 9.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768045.jpg" />
+  <img src="Z:/picture/008/save_picture_768045.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Xara Designer Pro X 15.0.0.52427 (64bit) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768039.jpg" />
+  <img src="Z:/picture/008/save_picture_768039.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Reg Organizer 8.10 beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768038.jpg" />
+  <img src="Z:/picture/008/save_picture_768038.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.13.26020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768034.jpg" />
+  <img src="Z:/picture/008/save_picture_768034.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Bandicam 4.1.2.1385 RePack (& portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768031.jpg" />
+  <img src="Z:/picture/008/save_picture_768031.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Microsoft Windows 10 Insider Preview build 17115 (Redstone 4) x64 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767980.jpg" />
+  <img src="Z:/picture/008/save_picture_767980.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe Photoshop CC 2018 (19.1.2) x86-x64 Portable by punsh (with Plugins) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767978.jpg" />
+  <img src="Z:/picture/008/save_picture_767978.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Photoshop CC 2018 (19.1.2.45971) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767976.jpg" />
+  <img src="Z:/picture/008/save_picture_767976.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Process Lasso Pro 9.0.0.290 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767927.jpg" />
+  <img src="Z:/picture/008/save_picture_767927.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mp3tag 2.91a RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767880.jpg" />
+  <img src="Z:/picture/008/save_picture_767880.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Display Driver Uninstaller 17.0.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767833.jpg" />
+  <img src="Z:/picture/008/save_picture_767833.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ EZ CD Audio Converter 6.0.0.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767831.jpg" />
+  <img src="Z:/picture/008/save_picture_767831.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ ApowerREC 1.3.4.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767783.jpg" />
+  <img src="Z:/picture/008/save_picture_767783.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Photo Supreme 4.3.2.1920 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767782.jpg" />
+  <img src="Z:/picture/008/save_picture_767782.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ PDF-XChange Editor Plus 6.0.321.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767750.jpg" />
+  <img src="Z:/picture/008/save_picture_767750.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Ummy Video Downloader 1.7.2.8 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767747.jpg" />
+  <img src="Z:/picture/008/save_picture_767747.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ EZ CD Audio Converter 6.0.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767746.jpg" />
+  <img src="Z:/picture/008/save_picture_767746.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Mp3tag 2.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767734.jpg" />
+  <img src="Z:/picture/008/save_picture_767734.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Glary Disk Cleaner 5.0.1.211 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767691.jpg" />
+  <img src="Z:/picture/008/save_picture_767691.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Opera 69.0.3686.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767690.jpg" />
+  <img src="Z:/picture/008/save_picture_767690.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Brave Browser 0.59.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767683.jpg" />
+  <img src="Z:/picture/008/save_picture_767683.jpg" />
 </div>
 
 

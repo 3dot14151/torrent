@@ -1,3 +1,29 @@
+###  Публикация: 1816774   (4187) от 06.09.2025
+
+Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя годы неутомимых поисков отважные викинги обнаружили Нордгард – новую землю, полную тайн, опасностей и богатств. Храбрейшие из северян подняли паруса и отправились покорять чужие берега в надежде прославить свой клан и войти в историю благодаря своим завоеваниям, торговле и ревностному служению богам. Но для этого им придется отбиваться от диких зверей и мертвецов, (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: 3D, Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619879   (3987) от 07.09.2025
 
 Terraforming Mars (2018) [Multi] (2.10.1.2779/dlc) License GOG
@@ -6,7 +32,7 @@ Terraforming Mars (2018) [Multi] (2.10.1.2779/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3987.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack Let'sРlay [Total Conflic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3664.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3532.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack FitGirl [Collection
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3511.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0/dlc) Repack seleZen [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3490.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ AI War 2 (2019) [En] (5.714/dlc) License GOG [Titan Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3092.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Steel Division 2 (2019) [Ru/Multi] (166508/dlc) License GOG [Total Conflict Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3089.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hearts of Iron IV (4) (2016) [Ru/Multi] (1.16.9/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2881.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.0.1/dlc) Repack Wanterlude [Royal
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2565.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Crusader Kings III (3) (2020) [Ru/Multi] (1.17.1/dlc) Repack Pioneer [Royal Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2432.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack FitGirl [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2389.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Songs of Silence (2024) [Ru/Multi] (1.4.5-d.8740/dlc) Repack Let'sРlay [Support
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2277.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2118.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wingspan  / Крылья (2020) [Ru/Multi] (283/dlc) License GOG [Special Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1932.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Repack seleZen [Total Conflict E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1893.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1405.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Northgard (2018) [Ru/Multi] (3.7.56.42549/dlc) Repack Let'sРlay [The Viking Age
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_908.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_887.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Ara: History Untold (2024) [Ru/Multi] (2.0.0.523/dlc) Repack Let'sРlay [Anniver
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_734.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Other s [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_523.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack Pioneer [Steam Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack FitGirl [Ultimate Bundle]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109.jpg" />
 </div>
 
 

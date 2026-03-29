@@ -6,7 +6,7 @@ WinRAR 5.91 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765104.jpg" />
+  <img src="Z:/picture/008/save_picture_765104.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.25 DC 30.01.2019 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765083.jpg" />
+  <img src="Z:/picture/008/save_picture_765083.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hard Disk Sentinel PRO 5.30.6 Build 9417 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765077.jpg" />
+  <img src="Z:/picture/008/save_picture_765077.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tor Browser Bundle 8.0.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765064.jpg" />
+  <img src="Z:/picture/008/save_picture_765064.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4919.1002 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765049.jpg" />
+  <img src="Z:/picture/008/save_picture_765049.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4919.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765048.jpg" />
+  <img src="Z:/picture/008/save_picture_765048.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4919.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765045.jpg" />
+  <img src="Z:/picture/008/save_picture_765045.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765032.jpg" />
+  <img src="Z:/picture/008/save_picture_765032.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765009.jpg" />
+  <img src="Z:/picture/008/save_picture_765009.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ O&O ShutUp 10 1.6.1401 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765003.jpg" />
+  <img src="Z:/picture/008/save_picture_765003.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ PDF Expert 2.4.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764997.jpg" />
+  <img src="Z:/picture/008/save_picture_764997.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BetterZip 4.1 (1305) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764973.jpg" />
+  <img src="Z:/picture/008/save_picture_764973.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BurnAware Professional 11.1 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764972.jpg" />
+  <img src="Z:/picture/008/save_picture_764972.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764938.jpg" />
+  <img src="Z:/picture/008/save_picture_764938.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Lisa Kant - Trinus (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764936.jpg" />
+  <img src="Z:/picture/008/save_picture_764936.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764934.jpg" />
+  <img src="Z:/picture/008/save_picture_764934.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764932.jpg" />
+  <img src="Z:/picture/008/save_picture_764932.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764930.jpg" />
+  <img src="Z:/picture/008/save_picture_764930.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ BlueHarvest 7.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764929.jpg" />
+  <img src="Z:/picture/008/save_picture_764929.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ BLN - Moldern (2013) Square Sound Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Do
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764927.jpg" />
+  <img src="Z:/picture/008/save_picture_764927.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Chingy - Powerballin' (2004) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764902.jpg" />
+  <img src="Z:/picture/008/save_picture_764902.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764900.jpg" />
+  <img src="Z:/picture/008/save_picture_764900.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Trancemaster 7000 (2010) [MP3|192-320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764887.jpg" />
+  <img src="Z:/picture/008/save_picture_764887.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - За Глаза Твои Карие 8 (2010) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764886.jpg" />
+  <img src="Z:/picture/008/save_picture_764886.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Macgo Mac Blu-ray Player Pro 3.2.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764871.jpg" />
+  <img src="Z:/picture/008/save_picture_764871.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Auslogics BoostSpeed 10.0.7.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764869.jpg" />
+  <img src="Z:/picture/008/save_picture_764869.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1602547   (1046052) от 06.01.2023
+
+Karin Krog & Steve Kuhn - Break Of Day (2014) Meantime Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Old Fashioned [3:45]
+02. Break of Day in Molde [5:16]
+03. The Folks Who Live on the Hill [5:32]
+04. Scandia Skies [3:26](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26C2501435FAD5C39417C6986D4F896840DB13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602432   (1046051) от 06.01.2023
+
+Karin Krog - Oslo Calling (2008) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misteree (Storaas-Krog) - 3:46
+02. Senor Blues (Silver) - 6:18
+03. Who Knows (Krog) - 4:40
+04. I Wish I Knew (Gordon-Warren) - 4:36(   Читать дальше...   )Жанр: Contemporary Jazz, VocalПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09927BF519A1D3D49B92BF10DEFF71E9A8A8D883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602804   (1045953) от 07.01.2023
+
+The Charles Mingus Duo & Trio with Spaulding Givens & Max Roach - Debut Rarities, Vol. 2 (1951, 1953) 1992, Debuts Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love [3:06]
+02. Darn That Dream [3:43]
+03. Yesterday (Piano Solo) [3:09]
+04. Blood And Soul [3:38](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7358AF8A809F727DFA2E132F53FAD0B74B0D27FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602801   (1045950) от 07.01.2023
+
+Karin Krog - The Many Faces Of Karin Krog (1967 - 2017) 6CD, 2017, Odin [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Art of Duo:
+01. I Ain't Here [3:46]
+02. The Thrill Is Gone [2:24]
+03. Where Flamingos Fly [4:44](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 04:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479B873C146407FA5DF761FA965083B7470358DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603007   (1045878) от 08.01.2023
 
 Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +122,7 @@ Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045878.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grapp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045874.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045873.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Rex Stewart - 1947 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045773.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Beegie Adair - By Request (2017) Green Hill Productions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045769.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Red Norvo - 1944 - 1945 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045765.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bobby Watson - Made In America (2017) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045759.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Karin Krog - Jubilee: The Best Of 30 Years (1964 - 1991) 2CD, 1995, Verve Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045691.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Classics in Jazz: Sax Stylists (1945 - 1949) 2014, Capitol Records [WavPack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045689.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Hank Jones & Frank Wess - Hank And Frank (2003) 2006, Lineage [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045606.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045604.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045599.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045584.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045522.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045521.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Karin Krog - Where You At? (2003) Enja Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045402.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Carmen Cavallaro - Dancing In The Dark (1961) 1988, Decca [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045366.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sarah Menescal - Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045301.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Don Ellis - Live In India (1978) 2010, Sleepy Night Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045232.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045195.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045103.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045092.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE19B76570E4EF9C89527D1E8E9602B9610CB4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604983   (1045089) от 16.01.2023
-
-Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045089.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Smooth One [3:28]
-02. Miss Jackie's Delight [3:53]
-03. Whisper Not [4:20](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 05:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AA575014C5B926F4B917AF868E1C17B50B8EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605047   (1045088) от 16.01.2023
-
-Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Dance
-02. House Call
-03. Easy on Me (feat. Kayla Waters)
-04. That Special Touch(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EB5D276D7645F086AD048F43CE0A033E7F10F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605223   (1044993) от 17.01.2023
-
-Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile, Stacey [8:06]
-02. Soft Pedal Blues [7:27]
-03. Pia [5:31]
-04. We'll See Yaw'll After While, Ya Heah [7:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E719BA40679C639140CAB6104DBF91F71DA52B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605219   (1044990) от 17.01.2023
-
-Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044990.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Afternoon in Paris [5:58]
-02. You Turned the Tables on Me [4:46]
-03. Apothegm [5:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
 ```
 
 https://mybot314.ru/tekegram_catalog/

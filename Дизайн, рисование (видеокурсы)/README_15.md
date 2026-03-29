@@ -1,3 +1,31 @@
+###  Публикация: 1483879   (1006455) от 16.07.2021
+
+Enterclass, Сергей Курбатов | Сложная вода. Просто порисуем  [Тариф Стандарт] (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сложная вода - та, что бежит, проявляет характер, бьет энергией и увлекает в свой поток. В новом марафоне Сергея Курбатова вы бросите вызов своим страхам, сознательно оставите комфортные мотивы в стороне и попробуете силы в необычных для акварели сюжетах. Водопад, фонтан, горная река и брызги прибоя - ваши будущие творческие победы. Подключайтесь!
+
+За время прохождения (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеПродолжительность: 09:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726594BC5999C433513FB50DBEAF4E76D929DF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484327   (1006152) от 19.07.2021
 
 Gumroad, Lu Dongjun | Gold Study (2016) PCRec [En, Ru]
@@ -6,7 +34,7 @@ Gumroad, Lu Dongjun | Gold Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006152.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Gumroad, Lu Dongjun | Bug Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006141.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Gumroad, Lu Dongjun | Lava Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006137.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Gumroad, Lu Dongjun | Freezing study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006130.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Gumroad, Lu Dongjun | Jurassic Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006126.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ SVS, Will Terry | Choosing colors for storytelling (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006123.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ Gumroad, Lu Dongjun | Desert Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006121.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ SVS, Jake Parker | Creative Environment Design (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006108.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ Gumroad, Lu Dongjun | Metal Study (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006107.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ Gumroad, Lu Dongjun | Jungle Study (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006101.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ SVS, Jake Parker | Drawing Animals: Mammal Edition (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006098.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005245.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Udemy, Mrawan Hussain | Создание робота из Звёздных во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004941.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ CG Fast Track | Быстрый путь в Blender 2.90 части 1-2 / Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004940.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004807.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ Yiihuu, Marcelo Prado | Creating a Sci-Fi Character for Games (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004796.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ Skillshare, Patrick Brown | Characters in a Scene: Sketch to Digital (2014) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004718.jpg" />
 </div>
 
 
@@ -463,7 +491,7 @@ Society of Visual Storytelling, Will Terry | Beginning Photoshop (2015) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004717.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ Society of Visual Storytelling, Dennis Zilber | Digital painting with Dennis Zil
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004688.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ MP4FM, Garrett Fry | Camera Projection Boot Camp Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004349.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ CGMA, Erik D. Martin | Digital Painting Workshop (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004291.jpg" />
 </div>
 
 
@@ -568,7 +596,7 @@ CGMA, Nate Wragg | Character Design for Production (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004282.jpg" />
 </div>
 
 
@@ -594,7 +622,7 @@ CGMA, Nate Wragg | Art Direction for Character Designers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004280.jpg" />
 </div>
 
 
@@ -620,7 +648,7 @@ ezracohen.tv, Ezra Cohen | Residual income for creatives (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003794.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002750.jpg" />
 </div>
 
 
@@ -661,34 +689,6 @@ unrealskills.ru, Лихоманов Даниил | Unreal Basics (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BA9925B0B57D8B1FFAE88C272CEFE9A55D4E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488052   (1002487) от 09.08.2021
-
-Daniel Krafft | 200+ Helpful Blender 3D Hacks in Under 1 Hour (2020) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002487.jpg" />
-</div>
-
-
-###  Подробнее
-
-200 советов по работе в Blender меньше чем за час.
-Кто бы мог подумать? Я опубликовал так много 3D-советов по блендеру, что даже не знаю, как запомнил хоть один из них.
-Советы по просмотру, советы по составлению, советы по моделированию - все они здесь.Производство: Daniel KrafftЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BCC0206D9341BE0187B0AD78CA3AD38E587710
 ```
 
 https://mybot314.ru/tekegram_catalog/

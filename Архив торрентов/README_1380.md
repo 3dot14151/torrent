@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741370.jpg" />
+  <img src="Z:/picture/008/save_picture_741370.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741353.jpg" />
+  <img src="Z:/picture/008/save_picture_741353.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741336.jpg" />
+  <img src="Z:/picture/008/save_picture_741336.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741311.jpg" />
+  <img src="Z:/picture/008/save_picture_741311.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741305.jpg" />
+  <img src="Z:/picture/008/save_picture_741305.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ IObit Smart Defrag Pro 6.5.5.119 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741284.jpg" />
+  <img src="Z:/picture/008/save_picture_741284.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Unreal Commander 3.57 build 1470 + Portable + GraphXPackv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741262.jpg" />
+  <img src="Z:/picture/008/save_picture_741262.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741259.jpg" />
+  <img src="Z:/picture/008/save_picture_741259.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741257.jpg" />
+  <img src="Z:/picture/008/save_picture_741257.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC2020-07-17) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741248.jpg" />
+  <img src="Z:/picture/008/save_picture_741248.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741208.jpg" />
+  <img src="Z:/picture/008/save_picture_741208.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741206.jpg" />
+  <img src="Z:/picture/008/save_picture_741206.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Cookie 5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741198.jpg" />
+  <img src="Z:/picture/008/save_picture_741198.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741197.jpg" />
+  <img src="Z:/picture/008/save_picture_741197.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741194.jpg" />
+  <img src="Z:/picture/008/save_picture_741194.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741190.jpg" />
+  <img src="Z:/picture/008/save_picture_741190.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Dream Travel - Megamix: Best Of Dream Travel (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741188.jpg" />
+  <img src="Z:/picture/008/save_picture_741188.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741186.jpg" />
+  <img src="Z:/picture/008/save_picture_741186.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741173.jpg" />
+  <img src="Z:/picture/008/save_picture_741173.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741172.jpg" />
+  <img src="Z:/picture/008/save_picture_741172.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741167.jpg" />
+  <img src="Z:/picture/008/save_picture_741167.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ PhoneRescue for Android 3.7.0.20190214 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741157.jpg" />
+  <img src="Z:/picture/008/save_picture_741157.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ BurnAware Professional 12.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741156.jpg" />
+  <img src="Z:/picture/008/save_picture_741156.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AnyTrans for Android 6.5.0.20190214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741155.jpg" />
+  <img src="Z:/picture/008/save_picture_741155.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Kaah - Kaahlender (1998) EP [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741154.jpg" />
+  <img src="Z:/picture/008/save_picture_741154.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ King Midas Sound - Solitude (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741152.jpg" />
+  <img src="Z:/picture/008/save_picture_741152.jpg" />
 </div>
 
 

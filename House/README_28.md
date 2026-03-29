@@ -1,3 +1,119 @@
+###  Публикация: 1129013   (724838) от 27.04.2017
+
+VA - Sportskanone Vol 1 (25 Dance Bangers To Make You Sweat) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noax - Dope (Koczinsky Remix)
+02. PARS - Ready To Bounce
+03. Dyren - Whoop It Up (feat Dora S - Steve Cypress remix edit)
+04. Flip Capella - Everybody Raise Your Hands (instrumental mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6AB8E3A5F859B30AD63A4393D2B5645893C265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023520   (724658) от 05.06.2016
+
+VA - Jango Music - Bora Bora Ibiza Summer (2016) [MP3|320 кб/с] <Tech House, UK Garage, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Caseli, David Jimenez & Errol Reid - Stay Together (My Digital Enemy Remix) 04:25
+02. Peverell Bros, RONN & Ron Carroll - Way Back (Roger Sanchez Dirty Beats Dub Remix) 08:24
+03. Paul Jockey - Keep Pushing 04:51
+04. Luca Debonaire - Get Down with This (Club Mix) 05:51(   Читать дальше...   )Жанр: Tech House, UK Garage, FunkyПродолжительность: 07:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3088C2011310FADEFF6F2B69B05402B2B2022FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285146   (724609) от 24.02.2019
+
+VA - Workout Beats EDM 2019 Power And Workout Motivation Music [MP3|320 Kbps] <House, BigRoom, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofiane - Let's Party (Original Mix) 3:53
+02. Wavejackers - Asgardia (Extended Mix) 4:53
+03. Wizard - Wizarding World (Original Mix) 6:04
+04. Zoom Square - Dangerous (Original Mix) 2:56(   Читать дальше...   )Жанр: House, BigRoom, DanceПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FF307772041EB8EB97AD8A774A3646BB50411A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023561   (724540) от 05.06.2016
+
+VA - Vamos A la Playa: Eivissa (2016) [MP3|320 кб/с] <Deep House, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saalim - Snowfall Tribe Yin (Feelin' Alright) (Acos CoolKAs Remix) (7:50)
+02. Katzbatz - Chateau Brisanz (1983 Version) (6:22)
+03. Erdinc Erdogdu - Enjoy the Silence (5:02)
+04. Deepjack - Don't Look Back (Trav & Volta Remix) (7:48)(   Читать дальше...   )Производство: Eivissa RecordingsЖанр: Deep House, Nu DiscoПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEC3B37BBA758B8267D0DE6F2DCD6BDC6D62C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026905   (724354) от 27.04.2017
 
 Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm>
@@ -6,7 +122,7 @@ Pogo - 2 альбома (2015,2016) [MP3|320 kbps] <house, chill electronic, idm
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724354.jpg" />
+  <img src="Z:/picture/008/save_picture_724354.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Phaeleh - All That Remains (2016) EP [MP3|320 кб/с] <Tech House, Ambient, Mod
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724255.jpg" />
+  <img src="Z:/picture/008/save_picture_724255.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - The Best Progressive Hits Vol.7 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723306.jpg" />
+  <img src="Z:/picture/008/save_picture_723306.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Space Drum Meditation - Space Drum Meditation (2018) [MP3|320 Kbps] <Ambient, Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723289.jpg" />
+  <img src="Z:/picture/008/save_picture_723289.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Coral City Compilation (2016) [MP3|320 Kbps] <Nu Disco, Disco House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722617.jpg" />
+  <img src="Z:/picture/008/save_picture_722617.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - EDM Galaxy Vol.5 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722470.jpg" />
+  <img src="Z:/picture/008/save_picture_722470.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Walking Home Vol.9 (2016) [MP3|320 кб/с] <House, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722376.jpg" />
+  <img src="Z:/picture/008/save_picture_722376.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - NRJ Dance Hits 2016 (2016) 2CD [MP3|320 кб/с] <Dance, Electronic, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722029.jpg" />
+  <img src="Z:/picture/008/save_picture_722029.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Summer Nu Disco (Deephouse Selection) (2018) [MP3|320 Kbps] <Deep, Funky, T
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721724.jpg" />
+  <img src="Z:/picture/008/save_picture_721724.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Progressive Summer Vol.1 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720678.jpg" />
+  <img src="Z:/picture/008/save_picture_720678.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720653.jpg" />
+  <img src="Z:/picture/008/save_picture_720653.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Nothing But... Funky Groove, Vol. 10 (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719146.jpg" />
+  <img src="Z:/picture/008/save_picture_719146.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719134.jpg" />
+  <img src="Z:/picture/008/save_picture_719134.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
+  <img src="Z:/picture/008/save_picture_719065.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719060.jpg" />
+  <img src="Z:/picture/008/save_picture_719060.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Ibiza Lounge (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719036.jpg" />
+  <img src="Z:/picture/008/save_picture_719036.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Urban Party Alarm 2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719000.jpg" />
+  <img src="Z:/picture/008/save_picture_719000.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Italo Dance Lignano Beach (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718992.jpg" />
+  <img src="Z:/picture/008/save_picture_718992.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718160.jpg" />
+  <img src="Z:/picture/008/save_picture_718160.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - In The Mood For Love Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714426.jpg" />
+  <img src="Z:/picture/008/save_picture_714426.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Running Magic 90s Comeback Hits (2017) [MP3|320 Kbps] <Funky, Club House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714413.jpg" />
+  <img src="Z:/picture/008/save_picture_714413.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714026.jpg" />
+  <img src="Z:/picture/008/save_picture_714026.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Miami South Beach Sessions (2018) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37119A278DE370563D5332DB8F990D1EACBD52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219383   (713912) от 14.04.2018
-
-VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daspa - Alone 5:07
-02. Djschluetex - Feel Them 4:13
-03. 246 - Prophets Of Science Fiction 4:28
-04. Chrizz Morisson - Never Give Up (Dub Mix) 4:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86C8E57E9FE1E53BF388128251044665C90F21A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286393   (713135) от 02.03.2019
-
-VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gui Boratto - 618 (Koelsch Mix) 3:44
-02. Lane 8 & Fractures - Hold On (Ben Boehmer Remix) 5:08
-03. Jan Blomqvist - Elephant Shunned (Solee Remix) 3:40
-04. Rodriguez Jr. & Liset Alea - Radian (Cercle Version) 3:24(   Читать дальше...   )Жанр: House, Progressive House, Melodic House, Deep HouseПродолжительность: 02:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8C6581EA3F617171BA3E7DDF2846B1632A10B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219630   (711970) от 15.04.2018
-
-VA - Superhits Spring 2018, 2CD [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711970.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Negramaro - La Prima Volta 3:58
-02. Portugal. The Man - Feel It Still 2:43
-03. Lost Frequencies & Zonderling - Crazy 2:33(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C35E5000FE20496E7B4C893232E5E0D917D81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025246   (711964) от 11.06.2016
-
-VA - Hed Kandi Beach House (2016) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
-02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
-03. O&O Music - Music's Hypnotising [4:22]
-04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3063FE87E9F76F7D70E5997A30341B73F7C905D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

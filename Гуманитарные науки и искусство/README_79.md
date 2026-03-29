@@ -1,3 +1,29 @@
+###  Публикация: 945444   (433828) от 10.10.2015
+
+Роман Светлов, Иван Гончаров (сост.) | Книга Государя. Антология политической мысли (2009) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антологию вошли замечательные памятники политической мысли, посвященные искусству государственного управления. Среди них – знаменитый трактат Н. Макиавелли «Князь» и не менее знаменитый опыт опровержения – «Анти-Макиавелли», малоизвестное в России сочинение прусского короля Фридриха Великого.Жанр: Политика, политологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918234A74D9BB72813012E2F254BFE7798DDA3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945481   (433826) от 10.10.2015
 
 Сергей Светлов | Книга Вина (2009) [FB2]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433826.jpg" />
+  <img src="Z:/picture/008/save_picture_433826.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433627.jpg" />
+  <img src="Z:/picture/008/save_picture_433627.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433009.jpg" />
+  <img src="Z:/picture/008/save_picture_433009.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432259.jpg" />
+  <img src="Z:/picture/008/save_picture_432259.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431746.jpg" />
+  <img src="Z:/picture/008/save_picture_431746.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430877.jpg" />
+  <img src="Z:/picture/008/save_picture_430877.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428941.jpg" />
+  <img src="Z:/picture/008/save_picture_428941.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428532.jpg" />
+  <img src="Z:/picture/008/save_picture_428532.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428370.jpg" />
+  <img src="Z:/picture/008/save_picture_428370.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428221.jpg" />
+  <img src="Z:/picture/008/save_picture_428221.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428216.jpg" />
+  <img src="Z:/picture/008/save_picture_428216.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428052.jpg" />
+  <img src="Z:/picture/008/save_picture_428052.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428051.jpg" />
+  <img src="Z:/picture/008/save_picture_428051.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427894.jpg" />
+  <img src="Z:/picture/008/save_picture_427894.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427654.jpg" />
+  <img src="Z:/picture/008/save_picture_427654.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427652.jpg" />
+  <img src="Z:/picture/008/save_picture_427652.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427371.jpg" />
+  <img src="Z:/picture/008/save_picture_427371.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427366.jpg" />
+  <img src="Z:/picture/008/save_picture_427366.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427363.jpg" />
+  <img src="Z:/picture/008/save_picture_427363.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427315.jpg" />
+  <img src="Z:/picture/008/save_picture_427315.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427276.jpg" />
+  <img src="Z:/picture/008/save_picture_427276.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427067.jpg" />
+  <img src="Z:/picture/008/save_picture_427067.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426824.jpg" />
+  <img src="Z:/picture/008/save_picture_426824.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426823.jpg" />
+  <img src="Z:/picture/008/save_picture_426823.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426820.jpg" />
+  <img src="Z:/picture/008/save_picture_426820.jpg" />
 </div>
 
 
@@ -652,34 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73355CAA98CE2C23341603409D30A2DD94658A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945846   (426813) от 13.10.2015
-
-Сюзи Ходж | Искусство. 50 идей, о которых нужно знать (2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюзи Ходж – художник, искусствовед и историк искусства, автор более 50 книг об искусстве, среди которых монографии об импрессионизме, викторианском искусстве, древнеегипетском искусстве, о Пабло Пикассо и Клоде Моне. С. Ходж является членом Королевского общества искусств, читает лекции по всему миру.
-
-Искусство всегда являлось зеркалом, отражающим эпоху. Загадочное (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1275616DA72FA109B94E9926CEB2329A4CC071F
 ```
 
 https://mybot314.ru/tekegram_catalog/

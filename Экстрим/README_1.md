@@ -1,3 +1,29 @@
+###  Публикация: 1645539   (209375) от 09.07.2023
+
+Скотт Линдгрен: покорить поток / The River Runner (2021) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Спорт и активный отдых
+>>Экстрим
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этого документального фильма хочет стать первым, кто сплавится на каяке по четырем великим рекам, берущим начало на священной тибетской горе Кайлас.Производство: СШАЖанр: документальный, каякинг, экстримРежиссер: Раш СтерджесПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C06BEFB937671351806B62615A0397ED5B378E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647471   (208602) от 18.07.2023
 
 Джерри Руфс: живой навсегда / Gerry Roufs, toujours vivant (2020) DVB [FR / RU Sub]
@@ -6,7 +32,7 @@
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208602.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207855.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207364.jpg" />
+  <img src="Z:/picture/005/save_picture_207364.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197243.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195457.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192593.jpg" />
+  <img src="Z:/picture/004/save_picture_192593.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191986.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176558.jpg" />
+  <img src="Z:/picture/004/save_picture_176558.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166024.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158097.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155288.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152456.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130622.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128735.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50762.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50755.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50751.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Skywalkers: История одной пары / Skywalkers: A Love Story (2024)
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48996.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27748.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7547.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1787400   (23508) от 25.03.2025
+
+Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте внутреннего фермера. Погрузитесь в деревенское очарование сельской жизни в «Farmer's Life», где вы испытаете радость и трудности жизни на оживленной ферме. Сажайте, выращивайте и охватывайте страну, живущую в огромном открытом мире. Вы командуете, творите и выбираете из разнообразной механики и безграничных возможностей.Тип издания: RepackРазработчик: FreeMind S.A.Жанр: Action, Adventure, Casual, Indie, RPG, SimulationЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5848A4D7AF958A69387BC6852F53AC605DCAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787609   (23486) от 26.03.2025
 
 Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [Supporter Bundle]
@@ -6,7 +32,7 @@ Sugardew Island: Your Cozy Farm Shop (2025) [Multi] (3781/dlc) Repack FitGirl [S
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23486.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Farmer's Life (2023) [Ru/Multi] (1.0.29/dlc) Repack FitGirl [Ultimate Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23478.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (build 17836335) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23381.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Device Doctor Simulator 2024 (2024) [Ru/Multi] (1.01) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23355.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Spirit City: Lofi Sessions (2024) [Multi] (1.8.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23288.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ I Am Future: Cozy Apocalypse Survival (2024) [Ru/Multi] (1.2.0.009r) Repack Let'
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23257.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.31637s/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23016.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ A TAVERN FOR TEA (2023) [Ru/Multi] (2.03) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22921.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Nature & Life: Drunk On Nectar (2016) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22806.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22727.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Galacticare (2024) [Ru/Multi] (1.2.0+4f6f505ec2/dlc) Repack FitGirl [Full Covera
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22640.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Train Yard Builder (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22612.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ MosGhost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22560.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13195/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22557.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22542.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22519.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Yasuke Simulator (2025) [En] (1.0/dlc) Repack FitGirl [Digital Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22398.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Factory Outlet Simulator (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22041.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21999.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21879.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ SnowRunner (2020) [Ru/Multi] (35.0/dlc) Repack Other s [4-Year Anniversary Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21661.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Project Hospital (2018) [Ru/Multi] (1.2.23584/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21601.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Forever Skies (2023) [Ru/Multi] (build 18071558) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21357.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Barotrauma (2023) [Ru/Multi] (1.8.6.2/dlc) Repack FitGirl [Supporter Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21267.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Forever Skies (2023) [Ru/Multi] (1.0.0 Build #39119/dlc) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21169.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Forever Skies – это нетипичное выживание, в мире п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:522E0B7DC17F52B33DBAA32652F991F6015FF238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791974   (21148) от 17.04.2025
-
-Space for Sale (2025) [Ru/Multi] (2024.11.25.10.55/dlc) Repack Let'sРlay
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space for Sale — межпланетный симулятор управления космической недвижимостью с видом сверху, где упор сделан на решение проблем и исследование мира. Вы можете играть как в одиночку, так и с другом, преобразуя дикие, незаселенные земли в развитые жилые районы! Вы только что открыли собственную франшизу по продаже космической недвижимости, к которой прилагается новый (   Читать дальше...   )Тип издания: RepackРазработчик: Mirage Game StudiosЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1427051   (184122) от 27.11.2020
+
+Кукутики - КОЗЯВКИ (2020) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_184122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тракторист
+2. Слон
+3. Кенгурёнок
+4. Козявки(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B138B1896010F169A0D3A98C7D4CEDCF801C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155353   (183853) от 27.11.2020
+
+VA - Союз Детский (2013) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Азбука Хит & Папины дети - Россия
+02. Даша Яковлева - Золушка
+03. Азбука Хит - Красотка (Ремикс)
+04. Волшебники двора - Напиши мне письмецо(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF39A2F9F459A758E28BC5A0B8CBB2720CF86D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592514   (183846) от 22.11.2022
+
+Александр Седых, Вячеслав Седых | Великолепные зверята и чародей из Арбузовки (Книга 3). Против Колдовского мира (2022) [MP3, Максим Полтавский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183846.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Против Колдовского мира» – фантастический роман Александра Седых и Вячеслава Седых, третья книга цикла «Великолепные зверята и чародей из Арбузовки», жанр детская литература, боевое фэнтези, попаданцы.
+
+Древнее заклинание перемещает пятиклассника Никитку в волшебный край Арбузной Земляники, где счастливо живут симпатичные зверята, похожие на пушистых человечков. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 03:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D041356650DF4AD5A3876129EE04FC43CBF96445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427470   (183477) от 28.11.2020
 
 Екатерина Вильмонт | Даша и Ko. Куда исчез папа. Книга 6 (2018) [MP3]
@@ -6,7 +92,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183477.jpg" />
+  <img src="Z:/picture/004/save_picture_183477.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183465.jpg" />
+  <img src="Z:/picture/004/save_picture_183465.jpg" />
 </div>
 
 
@@ -58,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183430.jpg" />
+  <img src="Z:/picture/004/save_picture_183430.jpg" />
 </div>
 
 
@@ -84,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182933.jpg" />
+  <img src="Z:/picture/004/save_picture_182933.jpg" />
 </div>
 
 
@@ -110,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182783.jpg" />
+  <img src="Z:/picture/004/save_picture_182783.jpg" />
 </div>
 
 
@@ -139,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182575.jpg" />
 </div>
 
 
@@ -165,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182480.jpg" />
+  <img src="Z:/picture/005/save_picture_182480.jpg" />
 </div>
 
 
@@ -191,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182416.jpg" />
+  <img src="Z:/picture/005/save_picture_182416.jpg" />
 </div>
 
 
@@ -217,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182381.jpg" />
+  <img src="Z:/picture/005/save_picture_182381.jpg" />
 </div>
 
 
@@ -243,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182196.jpg" />
+  <img src="Z:/picture/005/save_picture_182196.jpg" />
 </div>
 
 
@@ -269,7 +355,7 @@ VA - Музыка для оформления детских празднико�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181748.jpg" />
+  <img src="Z:/picture/005/save_picture_181748.jpg" />
 </div>
 
 
@@ -298,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181407.jpg" />
+  <img src="Z:/picture/005/save_picture_181407.jpg" />
 </div>
 
 
@@ -326,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181339.jpg" />
+  <img src="Z:/picture/005/save_picture_181339.jpg" />
 </div>
 
 
@@ -352,7 +438,7 @@ Karunesh - Baby Massage (2012) [MP3|320 кб/с]<New age, Relax>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181254.jpg" />
+  <img src="Z:/picture/005/save_picture_181254.jpg" />
 </div>
 
 
@@ -381,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180866.jpg" />
+  <img src="Z:/picture/005/save_picture_180866.jpg" />
 </div>
 
 
@@ -410,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180848.jpg" />
+  <img src="Z:/picture/005/save_picture_180848.jpg" />
 </div>
 
 
@@ -436,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180675.jpg" />
+  <img src="Z:/picture/005/save_picture_180675.jpg" />
 </div>
 
 
@@ -462,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180600.jpg" />
+  <img src="Z:/picture/005/save_picture_180600.jpg" />
 </div>
 
 
@@ -489,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180590.jpg" />
+  <img src="Z:/picture/005/save_picture_180590.jpg" />
 </div>
 
 
@@ -518,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179956.jpg" />
+  <img src="Z:/picture/005/save_picture_179956.jpg" />
 </div>
 
 
@@ -547,7 +633,7 @@ VA - Союз Детский 2 (2015) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179697.jpg" />
+  <img src="Z:/picture/005/save_picture_179697.jpg" />
 </div>
 
 
@@ -576,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179439.jpg" />
 </div>
 
 
@@ -602,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179431.jpg" />
+  <img src="Z:/picture/005/save_picture_179431.jpg" />
 </div>
 
 
@@ -614,90 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37F56B45C656F12CBE05C313ED51BCA139B2678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103409   (178992) от 03.12.2020
-
-Эдуард Успенский и др | Радионяня: Смешные рассказы (2002) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178992.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Радионяня» — образовательная программа для младших школьников на всесоюзном радио в 1970-х—1980-х годов. Выходила в эфир в первое воскресенье месяца. Впервые вышла в эфир 1 января 1970 года.01. Вступление ~ Рассказ «Слава Ивана Козловского» (07:04)
-02. Песня «Хлопай-топай» (03:39)
-03. Рассказ «Шиворот-навыворот» (05:12)
-04. Песня «Ай-ай-ай» (01:15)(   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED943A8A94D9B2609561A63740EA5A85A3A894E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127073   (178985) от 03.12.2020
-
-Бенедикт Сарнов, Станислав Рассадин | В стране литературных героев (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бриллиант в ряду детских радиошедевров "Радионяня", "Клуб знаменитых капитанов", "КОАПП", "Морские вести" и др. Для всех, кто любит детей и литературу.Жанр: Цикл передач для детей о литературеПродолжительность: 09:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6E011EADECDAB0AA084BD87A54601D57BDF02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550891   (178897) от 03.12.2020
-
-Volker Rosin - Alle Kinder tanzen (2012) [MP3|320 kbps] <Детские танцевальные песни на немецком языке>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tschu Tschu Wah - Die Eisenbahn
-02. Tanze Wie Du Bist
-03. Auf Dem Rummelplatz
-04. Es Wird Schon Wieder Gut(   Читать дальше...   )Жанр: Детские танцевальные песни на немецком языкеПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FE767201700FB32AF4A42BF3CC597DA06F90EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

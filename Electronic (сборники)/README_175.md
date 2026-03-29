@@ -1,3 +1,61 @@
+###  Публикация: 1078646   (299576) от 01.12.2016
+
+VA - The Chemical Brothers - Best275z (1995 - 2015) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Leave Home 05:33
+02 Song To The Siren 03:17
+03 Chemical Beats 04:51
+04 One Too Many Mornings 04:14(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F48B4A291B1A53C6EB60CC89764924F2A0E531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961529   (299158) от 02.12.2015
+
+VA - Crepuscular Light (2015) [MP3|320 кб/с]<Drum and Bass, DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_299158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Drumsound & Bassline Smith - I Need Somebody
+002. Muzzy & Voicians - Back To You
+003. Calyx & TeeBee - Panic Attack
+004. Cartoon - Whatever I Do (feat. Kostja)(   Читать дальше...   )Жанр: Drum and Bass, DubStepПродолжительность: 09:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD965C78EDFEDE25BF269F2F80385026CBD2D769
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961714   (299075) от 02.12.2015
 
 VA - Christmas Party 2015-2016 (2015) [MP3|320 кб/с]<Progressive House>
@@ -6,7 +64,7 @@ VA - Christmas Party 2015-2016 (2015) [MP3|320 кб/с]<Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299075.jpg" />
+  <img src="Z:/picture/008/save_picture_299075.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Nudus Color: Underwater Psy Trance Party (2019) [MP3|320 Kbps] <Psychedelic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298958.jpg" />
+  <img src="Z:/picture/008/save_picture_298958.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Metamorphoses Of Figures (2019) [MP3|320 Kbps] <Deep, Tech House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298950.jpg" />
+  <img src="Z:/picture/008/save_picture_298950.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 2012 (08.12.2012) [MP3|320 кб/�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298927.jpg" />
+  <img src="Z:/picture/008/save_picture_298927.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Record Super Chart 610 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298854.jpg" />
+  <img src="Z:/picture/008/save_picture_298854.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Ambient Kandi (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298765.jpg" />
+  <img src="Z:/picture/008/save_picture_298765.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Sweet Dreams Electro Zone (2018) [MP3|320 Kbps] <Electronic, Synthetic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298678.jpg" />
+  <img src="Z:/picture/008/save_picture_298678.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Reverence: Deep House Exrta Mixes (2018) [MP3|320 Kbps] <Deep House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298597.jpg" />
+  <img src="Z:/picture/008/save_picture_298597.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Progressive House Project (2018) [MP3|320 Kbps] <Progressive House, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298596.jpg" />
+  <img src="Z:/picture/008/save_picture_298596.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Wonders Essential Trance (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Em
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298313.jpg" />
+  <img src="Z:/picture/008/save_picture_298313.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Boudoir Lounge Area (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297445.jpg" />
+  <img src="Z:/picture/008/save_picture_297445.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Record Super Chart #512 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297435.jpg" />
+  <img src="Z:/picture/008/save_picture_297435.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Tech House Revealed Christmas (2015) [MP3|320 кб/с]<Minimal, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297233.jpg" />
+  <img src="Z:/picture/008/save_picture_297233.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Trance Legends: Christmas (2015) [MP3|320 кб/с]<Trance, Uplifting Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297229.jpg" />
+  <img src="Z:/picture/008/save_picture_297229.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Sunrise Avenue Vol 5 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297107.jpg" />
+  <img src="Z:/picture/008/save_picture_297107.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Miami Hot Trance Party (2019) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296820.jpg" />
+  <img src="Z:/picture/008/save_picture_296820.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Follow The Wind: Live Groove Mix (2019) [MP3|320 Kbps] <Chillout, Lounge, R
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296818.jpg" />
+  <img src="Z:/picture/008/save_picture_296818.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Horizon Of Events: Synth Space Music (2019) [MP3|320 Kbps] <Synthspace, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296748.jpg" />
+  <img src="Z:/picture/008/save_picture_296748.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Progressive Trance 2017: 30 Top Hits Best Of (2016) [MP3|320 Kbps] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296403.jpg" />
+  <img src="Z:/picture/008/save_picture_296403.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Breaking From The Shadows: Electro House Dance Mix (2019) [MP3|320 Kbps] <E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296367.jpg" />
+  <img src="Z:/picture/008/save_picture_296367.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Timo Maas - Best275z (1999 - 2014) [MP3|320 Kbps] <Progressive House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296243.jpg" />
+  <img src="Z:/picture/008/save_picture_296243.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Record Super Chart 662 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295812.jpg" />
+  <img src="Z:/picture/008/save_picture_295812.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Trance Traveling 71 (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295353.jpg" />
+  <img src="Z:/picture/008/save_picture_295353.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Electro Party (2017) [MP3|320 Kbps] <Electronic, House, Dance, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295199.jpg" />
+  <img src="Z:/picture/008/save_picture_295199.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Electro Party (2017) [MP3|320 Kbps] <Electronic, House, Dance, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:063DA35186F33D310C73EA54D01E3DAEA2CC4333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185163   (295177) от 20.11.2017
-
-VA - Impulse 8: Super Music For Super Car (2017) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  ANG & SaberZ  - Good Love (Original Mix)  3:59
-002.  Alex Cortez feat. CvB  - Vienna (Extended Mix)  4:30
-003.  Luca Rezza & Fintan Vais  - Messing Widda (Extended Mix)  4:02
-004.  Abstract Vision & Aimoon  - Joker (Extended Mix)  6:58(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 08:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3452408DDFBE1C9DB45D9E5744F395511E4CBF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079153   (295145) от 03.12.2016
-
-VA - Dream Dance (Дискотека Казанова) vol.2 (2016) [MP3|320 Kbps] <Club, Dance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madison - Whip It Away (Myde Remix)
-02. Ahmed Romel - Himba (Ikerya Project And Maratone Remix)
-03. Feel & Alexandra Badoi - Did We Feel (Frainbreeze Progressive Mix)
-04. Denis Sender - All I Ever Wanted (Uplifting Remix)(   Читать дальше...   )Жанр: Club, Dance, TranceПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA9402A2688A61D6305BAFBC8AD31B94871861E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 1035575   (626391) от 17.07.2016
+
+Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Bleed Metal
+02. All Hail the King
+03. Against All the Gods
+04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543913   (626093) от 13.04.2022
+
+James Norbert Ivanyi - Sigil (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Spectre Departed (00:10:48)
+02 - The Clairvoyant Coil (00:10:02)
+03 - Our Revenant Sigil (00:11:04)Жанр: Progressive MetalПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB80099B23DAFF7C41F1AAEF8CC50593D71A37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543662   (625957) от 13.04.2022
+
+Stargazery - Eye On The Sky (2011) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dying
+02. Everytime I Dream Of You
+03. Eye On The Sky
+04. How Many Miles(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316B099CECFB9A951A1679D41246E3F67EC54422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144624   (625939) от 23.06.2017
 
 Infected Virulence - Music Of Melkor (1994) 2016, Raw Skull Recordz [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +92,7 @@ Infected Virulence - Music Of Melkor (1994) 2016, Raw Skull Recordz [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625939.jpg" />
+  <img src="Z:/picture/008/save_picture_625939.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Manilla Road - To Kill A King (2017) [FLAC|Lossless|tracks + .cue] <Epic Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625768.jpg" />
+  <img src="Z:/picture/008/save_picture_625768.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Suffocation - ...Of The Dark Light (2017) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625753.jpg" />
+  <img src="Z:/picture/008/save_picture_625753.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ Vintersorg - Orkan (2012) [FLAC|Lossless]<Progressive Metal/Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625237.jpg" />
+  <img src="Z:/picture/005/save_picture_625237.jpg" />
 </div>
 
 
@@ -126,7 +212,7 @@ Pellek - Bag Of Tricks (2012) [FLAC|Lossless]<Power Metal/Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625153.jpg" />
+  <img src="Z:/picture/005/save_picture_625153.jpg" />
 </div>
 
 
@@ -161,7 +247,7 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Sludge Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624731.jpg" />
+  <img src="Z:/picture/008/save_picture_624731.jpg" />
 </div>
 
 
@@ -190,7 +276,7 @@ Pearl - Little Immaculater White Fox (2010) [FLAC|Lossless|tracks + .cue] <Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624730.jpg" />
+  <img src="Z:/picture/008/save_picture_624730.jpg" />
 </div>
 
 
@@ -219,7 +305,7 @@ Joe Stump - The Dark Lord Rises (2015) [FLAC|Lossless|image + .cue] <Neoclassica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624721.jpg" />
+  <img src="Z:/picture/008/save_picture_624721.jpg" />
 </div>
 
 
@@ -248,7 +334,7 @@ Wolf Hoffmann - Classical (1997) Remastered, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624658.jpg" />
+  <img src="Z:/picture/008/save_picture_624658.jpg" />
 </div>
 
 
@@ -277,7 +363,7 @@ Cradle Of Filth - Dusk... And Her Embrace: The Original Sin (2016) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624654.jpg" />
+  <img src="Z:/picture/008/save_picture_624654.jpg" />
 </div>
 
 
@@ -306,7 +392,7 @@ Brymir - Wings of Fire (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624120.jpg" />
+  <img src="Z:/picture/008/save_picture_624120.jpg" />
 </div>
 
 
@@ -335,7 +421,7 @@ Depression - Die Dunkle Dimension (2015) [FLAC|Lossless|image + .cue] <Grindcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624037.jpg" />
+  <img src="Z:/picture/008/save_picture_624037.jpg" />
 </div>
 
 
@@ -364,7 +450,7 @@ Rammstein - Live Aus Berlin (1999) Reissue, 2014, ООО «Юниверсал М
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623972.jpg" />
+  <img src="Z:/picture/008/save_picture_623972.jpg" />
 </div>
 
 
@@ -393,7 +479,7 @@ Mr. Mephisto - Abducted... They Come From Uranus (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623925.jpg" />
+  <img src="Z:/picture/008/save_picture_623925.jpg" />
 </div>
 
 
@@ -422,7 +508,7 @@ Old Season - Beyond the Black (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623912.jpg" />
+  <img src="Z:/picture/008/save_picture_623912.jpg" />
 </div>
 
 
@@ -451,7 +537,7 @@ Odroerir - Das Erbe Unserer Ahnen (Limited Edition) (2017) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623910.jpg" />
+  <img src="Z:/picture/008/save_picture_623910.jpg" />
 </div>
 
 
@@ -480,7 +566,7 @@ Apocalyptica - 7th Symphony (2010) Japanese Edition [FLAC|Lossless]<Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623818.jpg" />
+  <img src="Z:/picture/008/save_picture_623818.jpg" />
 </div>
 
 
@@ -509,7 +595,7 @@ Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623793.jpg" />
+  <img src="Z:/picture/008/save_picture_623793.jpg" />
 </div>
 
 
@@ -538,7 +624,7 @@ Black Sabbath - Technical Ecstasy (1976) Reissue, Remastered, 2010, Vertigo [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623437.jpg" />
+  <img src="Z:/picture/005/save_picture_623437.jpg" />
 </div>
 
 
@@ -567,7 +653,7 @@ Oddland - The Treachery of Senses (2012) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623214.jpg" />
+  <img src="Z:/picture/005/save_picture_623214.jpg" />
 </div>
 
 
@@ -602,7 +688,7 @@ Ahnengrab - Omen (2012) [FLAC|Lossless]<Melodic Black Metal/Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623139.jpg" />
+  <img src="Z:/picture/005/save_picture_623139.jpg" />
 </div>
 
 
@@ -637,7 +723,7 @@ Katana - Storms Of War (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623136.jpg" />
+  <img src="Z:/picture/005/save_picture_623136.jpg" />
 </div>
 
 
@@ -672,7 +758,7 @@ Holy Knights - Between Daylight and Pain (2012) [FLAC|Lossless]<Power Metal/Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623009.jpg" />
+  <img src="Z:/picture/005/save_picture_623009.jpg" />
 </div>
 
 
@@ -691,93 +777,6 @@ Holy Knights - Between Daylight and Pain (2012) [FLAC|Lossless]<Power Metal/Symp
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035981   (622665) от 19.07.2016
-
-Be'lakor - Vessels (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622665.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luma
-2. An Ember's Arc
-3. Withering Strands
-4. Roots To Sever(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 0:88:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353AA2CE79A64DDB886E55485D03235DE7531446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229756   (622621) от 08.06.2018
-
-Lordi - Sexorcism (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexorcism
-02. Your Tongue's Got the Cat
-03. Romeo Ate Juliet
-04. Naked in My Cellar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB94B2A2371B41222467F96612BD395AC4B0A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295023   (622378) от 11.04.2019
-
-Eluveitie - Ategnatos (2019) Limited Bonus Edition [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ategnatos (4:53)
-02. Ancus (0:11)
-03. Deathwalker (4:53)
-04. Black Water Dawn (4:18)(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEF41903C0F72B1F69C72FDC7A2F5B59E96DCF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1286226   (713197) от 02.03.2019
+
+Carmen Bradford - Home With You (2004) Azica Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Depend on Me [3:28]
+02. My Shining Hour [5:32]
+03. Home with You [4:25]
+04. Take the A Train [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B75F1100C040DEA548CA2386DCD738A7F7847E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286431   (713191) от 02.03.2019
+
+Joe Chambers - The Almoravid (1974) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Almoravid [7:56]
+02. Early Minor [6:53]
+03. Gazelle Suite [3:40]
+04. Catta [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B367B22C5469CA9CD50C12218F65BB9777DBB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286423   (713182) от 02.03.2019
+
+Michel Petrucciani - Blue Note Jazz Inspiration (2011) Blue Note Jazz Inspiration [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Tune [7:03]
+02. Limbo (Live) [8:01]
+03. She Did It Again [4:03]
+04. One For Us [5:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC82B4F50FFFB68B05830EC0216D749B0B41816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532613   (713111) от 20.02.2022
+
+Nicki Parrott - The Songs Of Four Seasons (2013) Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Might As Well Be Spring [5:39]
+02. Cherry Pink And Apple Blossam White. [3:35]
+03. April Showers [4:55]
+04. They Say It's Spring. [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C337868F6D5A2DD246BB1A8E2F2212AA5B11FECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219628   (711981) от 15.04.2018
 
 Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +122,7 @@ Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711981.jpg" />
+  <img src="Z:/picture/008/save_picture_711981.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dave Brubeck - His Greatest Hits: Take Five (1990) 1995, Sony Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711841.jpg" />
+  <img src="Z:/picture/008/save_picture_711841.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jan Johansson - Spelar Musik Pa Sitt Eget Vis (1964 - 1966) 1995, Heptagon Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711361.jpg" />
+  <img src="Z:/picture/008/save_picture_711361.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711355.jpg" />
+  <img src="Z:/picture/008/save_picture_711355.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Actis Dato Quartet - Swingin' Hanoi (2003) Splasc(H) Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710828.jpg" />
+  <img src="Z:/picture/008/save_picture_710828.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jimmy Cobb's Mob - Cobb's Groove (2003) Universal [APE|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710824.jpg" />
+  <img src="Z:/picture/008/save_picture_710824.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Don Byas - Complete 1946-1951 European Small Group Master Takes (2001) 3CD, Defi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710822.jpg" />
+  <img src="Z:/picture/008/save_picture_710822.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Buster Williams Quartet - Live At The Montreux Jazz Festival 1999 (2008) TCB Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710818.jpg" />
+  <img src="Z:/picture/008/save_picture_710818.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Angelo Debarre & Ludovic Beier - Swing Rencontre (2002) Marianne Melodie [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710794.jpg" />
+  <img src="Z:/picture/008/save_picture_710794.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Angelo Debarre & Ludovic Beier - Entre Ciel et Terre (2006) Le Chant Du Monde [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710793.jpg" />
+  <img src="Z:/picture/008/save_picture_710793.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Malia - The Best of Malia (2015) [FLAC|Lossless|image + .cue] <Soul, Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710519.jpg" />
+  <img src="Z:/picture/008/save_picture_710519.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Allen Toussaint - American Tunes (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710193.jpg" />
+  <img src="Z:/picture/008/save_picture_710193.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Steve Oliver - Pictures and Frames (2016) [FLAC|Lossless|image + .cue] <Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710190.jpg" />
+  <img src="Z:/picture/008/save_picture_710190.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Clayton Brothers - Siblingity (2000) Warner [FLAC|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710053.jpg" />
+  <img src="Z:/picture/008/save_picture_710053.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Maria Schafer - To Know Love... (2018) Marsch Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710052.jpg" />
+  <img src="Z:/picture/008/save_picture_710052.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Nina Simone - I Got Life And Many Others 1959 - 1971 (2000) Star Series, Unoffic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710039.jpg" />
+  <img src="Z:/picture/008/save_picture_710039.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Django Reinhardt - 100 Ans de Jazz (1930-e - 1940-e) 1997, 2CD, BMG [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709540.jpg" />
+  <img src="Z:/picture/008/save_picture_709540.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Johnny Smith - Plus The Trio (1960) Remaster, 2017, Warner [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709111.jpg" />
+  <img src="Z:/picture/008/save_picture_709111.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Richard Davis - Forest Flowers (1977) 2000, 32 Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709109.jpg" />
+  <img src="Z:/picture/008/save_picture_709109.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709094.jpg" />
+  <img src="Z:/picture/008/save_picture_709094.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Stree
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709093.jpg" />
+  <img src="Z:/picture/008/save_picture_709093.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709007.jpg" />
+  <img src="Z:/picture/008/save_picture_709007.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB2FE176679BB0AE2E840BD920354474142B9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533066   (708997) от 22.02.2022
-
-Maxine Sullivan With The Scott Hamilton Quintet - Uptown (1985) Concord Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Were Meant for Me [3:35]
-02. I Thought About You [5:10]
-03. Goody Goody [3:50]
-04. Something to Remember You By [5:22](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D88E26CC13241F2A2AE0DC782A1E60B99ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131319   (708552) от 05.05.2017
-
-Diana Krall - Turn Up The Quiet (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love
-02. Isn't It Romantic
-03. L-O-V-E
-04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D96336FADD9F85E6D646D4A0BAEF0C3941F2090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025990   (708294) от 13.06.2016
-
-Chico Hamilton - El Chico & The Further Adventures Of El Chico (1965/1966) 2011, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.El Chico [03:47]
- 02.People [06:07]
- 03.Marcheta [04:02]
- 04.This Dream [03:12](   Читать дальше...   )Жанр: Mainstream Jazz, Latin JazzПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3631E6B387C14CB78FECAFD2D465FAED293183FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025924   (708293) от 13.06.2016
-
-Phil Woods - Voyage (2001) Chiaroscuro Records[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Beautiful Friendship [08:38]
- 02.Hey There [13:33]
- 03.'Philly' Twist [07:14]
- 04.These Foolish Things [07:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D681E6AFF06EE226AA6724A11EB51218E37467
 ```
 
 https://mybot314.ru/tekegram_catalog/

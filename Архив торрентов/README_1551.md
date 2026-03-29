@@ -6,7 +6,7 @@ Bullzip PDF Printer 11.13.0.2823 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699576.jpg" />
+  <img src="Z:/picture/008/save_picture_699576.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699574.jpg" />
+  <img src="Z:/picture/008/save_picture_699574.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699571.jpg" />
+  <img src="Z:/picture/008/save_picture_699571.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ EarthView 6.4.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699565.jpg" />
+  <img src="Z:/picture/008/save_picture_699565.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Topaz Video Enhance AI 1.5.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699563.jpg" />
+  <img src="Z:/picture/008/save_picture_699563.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ ORPALIS PaperScan Professional 3.0.116 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699561.jpg" />
+  <img src="Z:/picture/008/save_picture_699561.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Lo-Fi Electronic Presents 2014 (2014) [MP3|320 Kbps] <Synthpop, Technopop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699557.jpg" />
+  <img src="Z:/picture/008/save_picture_699557.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Permute 3 v3.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699556.jpg" />
+  <img src="Z:/picture/008/save_picture_699556.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Downie 4 v4.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699546.jpg" />
+  <img src="Z:/picture/008/save_picture_699546.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699519.jpg" />
+  <img src="Z:/picture/008/save_picture_699519.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ MKVtools 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699518.jpg" />
+  <img src="Z:/picture/008/save_picture_699518.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Process Lasso Pro 9.1.0.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699503.jpg" />
+  <img src="Z:/picture/008/save_picture_699503.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699473.jpg" />
+  <img src="Z:/picture/008/save_picture_699473.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699472.jpg" />
+  <img src="Z:/picture/008/save_picture_699472.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14367 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699470.jpg" />
+  <img src="Z:/picture/008/save_picture_699470.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ LibreOffice 7.0.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699444.jpg" />
+  <img src="Z:/picture/008/save_picture_699444.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ eM Client Pro 8.0.3283.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699440.jpg" />
+  <img src="Z:/picture/008/save_picture_699440.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ BELOFF [dp] 2020.08.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699435.jpg" />
+  <img src="Z:/picture/008/save_picture_699435.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699434.jpg" />
+  <img src="Z:/picture/008/save_picture_699434.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PrivaZer 4.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699416.jpg" />
+  <img src="Z:/picture/008/save_picture_699416.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Headdreamer - Human Frequencies (2014) [FLAC|Lossless|CD]<IDM, Downtempo, Ambien
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699405.jpg" />
+  <img src="Z:/picture/008/save_picture_699405.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ LibreOffice 6.2.1.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699371.jpg" />
+  <img src="Z:/picture/008/save_picture_699371.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Calibre 3.40.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699367.jpg" />
+  <img src="Z:/picture/008/save_picture_699367.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Hetman Partition Recovery 3.1 Home/Office/Commercial Edition RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699360.jpg" />
+  <img src="Z:/picture/008/save_picture_699360.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Bandicam 4.6.2.1699 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699349.jpg" />
+  <img src="Z:/picture/008/save_picture_699349.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Icecream Ebook Reader Pro 5.22 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699347.jpg" />
+  <img src="Z:/picture/008/save_picture_699347.jpg" />
 </div>
 
 

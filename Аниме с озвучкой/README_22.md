@@ -1,3 +1,29 @@
+###  Публикация: 791276   (715405) от 30.05.2014
+
+Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] DVDRip 480p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_715405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 год, магия стала неотъемлемой частью быта человека, но цена её использованию - проклятье. Люди не справляющиеся с силой магии становятся настоящими демонами, что внушают страх одним лишь своим видом. И есть те кто рискуя своей человеческой сущностью готовы истреблять неиствующих. В народе их называют "Смирительные рубашки".Жанр: приключения, мистика, ужасыРежиссер: Сакаки ИтироОзвучка: одноголосая (муж.) FassaDПродолжительность: (3 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386077716CF4947BBDAB782097A151AC9BB70E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400997   (712597) от 08.08.2020
 
 Добро пожаловать в ад, Ирума | Mairimashita! Iruma-kun | Welcome to Demon School! Iruma-kun [2019, TV, 23 из 23] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712597.jpg" />
+  <img src="Z:/picture/008/save_picture_712597.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709686.jpg" />
+  <img src="Z:/picture/008/save_picture_709686.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707125.jpg" />
+  <img src="Z:/picture/008/save_picture_707125.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706225.jpg" />
+  <img src="Z:/picture/008/save_picture_706225.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704683.jpg" />
+  <img src="Z:/picture/008/save_picture_704683.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703852.jpg" />
+  <img src="Z:/picture/008/save_picture_703852.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702845.jpg" />
+  <img src="Z:/picture/008/save_picture_702845.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700885.jpg" />
+  <img src="Z:/picture/008/save_picture_700885.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698579.jpg" />
+  <img src="Z:/picture/008/save_picture_698579.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698283.jpg" />
+  <img src="Z:/picture/008/save_picture_698283.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698140.jpg" />
+  <img src="Z:/picture/008/save_picture_698140.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku / Death March to the Parallel Worl
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698139.jpg" />
+  <img src="Z:/picture/008/save_picture_698139.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Citrus / Цитрус [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698138.jpg" />
+  <img src="Z:/picture/008/save_picture_698138.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Garo: Vanishing Line / Гаро: Линия Схода [2017, TV, 24 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698136.jpg" />
+  <img src="Z:/picture/008/save_picture_698136.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697467.jpg" />
+  <img src="Z:/picture/008/save_picture_697467.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696643.jpg" />
+  <img src="Z:/picture/008/save_picture_696643.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696621.jpg" />
+  <img src="Z:/picture/008/save_picture_696621.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696366.jpg" />
+  <img src="Z:/picture/008/save_picture_696366.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696364.jpg" />
+  <img src="Z:/picture/008/save_picture_696364.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696360.jpg" />
+  <img src="Z:/picture/008/save_picture_696360.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696358.jpg" />
+  <img src="Z:/picture/008/save_picture_696358.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696354.jpg" />
+  <img src="Z:/picture/008/save_picture_696354.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696352.jpg" />
+  <img src="Z:/picture/008/save_picture_696352.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696346.jpg" />
+  <img src="Z:/picture/008/save_picture_696346.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696344.jpg" />
+  <img src="Z:/picture/008/save_picture_696344.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCA62B8C0BCFBCB80CFB0245427267FA0C24905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201954   (694658) от 24.04.2018
-
-Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двадцатилетняя Мичиру Амацуки только что сменила работу и переехала жить в Токио. Так уж получилось, что поселилась она в доме под названием «Stella House Haruno», в котором живут одни только женщины. У соседей Амацуки разные профессии и все они разных возрастов, но её это не волнует до тех пор, пока есть хорошая еда и алкоголь, жить в такой кампании будет всегда (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кобаяси ТомокиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 12 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB10E49069684AE83FDE17D5ED8B3CFCD0F88CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

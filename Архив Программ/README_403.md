@@ -6,7 +6,7 @@ Reg Organizer 5.15 Final [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839024.jpg" />
+  <img src="Z:/picture/008/save_picture_839024.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ashampoo HDD Control 2.06 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839023.jpg" />
+  <img src="Z:/picture/008/save_picture_839023.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Reg Organizer 5.15 RePack by rs.bandito.soft [Английский + Русск�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839019.jpg" />
+  <img src="Z:/picture/008/save_picture_839019.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ STOIK Smart Resizer 3.0.0.3680 [multi +русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839016.jpg" />
+  <img src="Z:/picture/008/save_picture_839016.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PC Tools Registry Mechanic 10.0.1.140 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839013.jpg" />
+  <img src="Z:/picture/008/save_picture_839013.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Opera 68.0.3618.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838989.jpg" />
+  <img src="Z:/picture/008/save_picture_838989.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Topaz Gigapixel AI 4.7.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838982.jpg" />
+  <img src="Z:/picture/008/save_picture_838982.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838977.jpg" />
+  <img src="Z:/picture/008/save_picture_838977.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ipple Play 1.0.0.0 Beta 3 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838965.jpg" />
+  <img src="Z:/picture/008/save_picture_838965.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Advanced Woman Calendar 3.3 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838963.jpg" />
+  <img src="Z:/picture/008/save_picture_838963.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838959.jpg" />
+  <img src="Z:/picture/008/save_picture_838959.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Movavi Photo Editor 6.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838930.jpg" />
+  <img src="Z:/picture/008/save_picture_838930.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ DAZ Studio 3 Advanced x86 v.3.1.2.24 [eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838886.jpg" />
+  <img src="Z:/picture/008/save_picture_838886.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Flash Decompiler Trillix v 5.1.1140 Portable [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838841.jpg" />
+  <img src="Z:/picture/008/save_picture_838841.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ MSActBackUp 1.0.5 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838691.jpg" />
+  <img src="Z:/picture/008/save_picture_838691.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ PicturesToExe Deluxe 9.0.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838631.jpg" />
+  <img src="Z:/picture/008/save_picture_838631.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Wise Care 365 Pro 4.13.398 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838295.jpg" />
+  <img src="Z:/picture/008/save_picture_838295.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Avast Clear 11.2.2729.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838291.jpg" />
+  <img src="Z:/picture/008/save_picture_838291.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Chromium 57.0.2987.98 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838190.jpg" />
+  <img src="Z:/picture/008/save_picture_838190.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Wise Care 365 Pro 4.13.398 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838187.jpg" />
+  <img src="Z:/picture/008/save_picture_838187.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ PDF24 Creator 7.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838179.jpg" />
+  <img src="Z:/picture/008/save_picture_838179.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Slimjet 9.0.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838178.jpg" />
+  <img src="Z:/picture/008/save_picture_838178.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Glarysoft Malware Hunter 1.7.0.15 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838174.jpg" />
+  <img src="Z:/picture/008/save_picture_838174.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Vivaldi 1.0.435.38 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838172.jpg" />
+  <img src="Z:/picture/008/save_picture_838172.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Skype 8.77.0.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838121.jpg" />
+  <img src="Z:/picture/008/save_picture_838121.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Skype 8.77.0.90 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838112.jpg" />
+  <img src="Z:/picture/008/save_picture_838112.jpg" />
 </div>
 
 

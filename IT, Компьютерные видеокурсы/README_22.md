@@ -1,3 +1,142 @@
+###  Публикация: 1471769   (1014794) от 22.05.2021
+
+Udemy, Brad Schiff | React For The Rest Of Us (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите самую популярную в мире библиотеку для создания пользовательских интерфейсов!
+Что отличает этот курс, так это то, что мы уделяем время тому, чтобы понять, * почему * мы делаем то, что делаем. Мы начнем с того, что зададим важный вопрос, который многие другие курсы React полностью игнорируют; Какую проблему решает React?
+Как только мы поймем, что такое React, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068DC3B999273BF3A32A7EC07BC32BAFCCCC9F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471784   (1014729) от 22.05.2021
+
+ITVDN, Сластен Максим | Верстка сайта на CSS Grid (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014729.jpg" />
+</div>
+
+
+###  Подробнее
+
+CSS Grid - это удобный механизм для настройки расположения элементов на странице, использующий принцип сети или таблицы со строками и столбцами. Навыки использования CSS Grid важны для любого современного фронтенд разработчика.
+Данный курс направлен на изучение использования CSS Grid в процессе создания верстки веб страниц. Вы познакомитесь с этой технологией, начиная (   Читать дальше...   )Производство: ITVDNЖанр: Программирование, вёрсткаПродолжительность: 06:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E468613C7EE2A2F53623618A0E03928D02FC65E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471766   (1014718) от 22.05.2021
+
+Специалист, Даниил Леонов | Python для бизнес - аналитики (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования Python в последнее время все чаще используется для анализа данных, как в науке, так и коммерческой сфере. Этому способствует простота языка, а также большое разнообразие открытых библиотек.
+Python — один из самых популярных инструментов для анализа данных. В этом курсе вы узнаете, как с помощью этого языка программирования строить предиктивные (   Читать дальше...   )Производство: СпециалистЖанр: Программирование, аналитикаПродолжительность: 16:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAFB8F77631EB6968306E75528276551DAE3F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471943   (1014706) от 22.05.2021
+
+Skillbox | Профессия Frontend-разработчик PRO (2021) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь верстать веб-страницы, создавать веб-приложения, работать с JavaScript и его фреймворками. Закрепите навыки на воркшопах, пополните портфолио и освоите востребованную профессию.
+Чему вы научитесь
+Верстать веб-страницы и письма средствами CSS и HTML
+Работать в системе контроля версий GIT(   Читать дальше...   )Производство: SkillboxЖанр: Разработка, FrontendПродолжительность: ~140:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF592E81F220FF9037411E53DB552747DE8B724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472208   (1014458) от 24.05.2021
+
+AmigosCode, Nelson | Database Design & Implementation (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн и реализация базы данных
+Бэкэнд начинается с вашей базы данных. Когда у вас есть надежный дизайн базы данных, писать код легко.
+В этом курсе вы узнаете, как разрабатывать базы данных для ваших серверных приложений. Вы узнаете, как создать подмножество платформы YouTube, позволяющее создавать собственные базы данных.Производство: AmigosCodeЖанр: Программирование, базы данныхЯзык озвучки: АнглийскийПродолжительность: 02:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C695D0B4947DD81D69FACC18FC13D902A6B608FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472228   (1014445) от 24.05.2021
 
 Udemy, Kane Ezki и др. | The Ultimate 2021 Fullstack Web Development Bootcamp (2021) PCRec [En / En Sub]
@@ -6,7 +145,7 @@ Udemy, Kane Ezki и др. | The Ultimate 2021 Fullstack Web Development Bootcamp
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014445.jpg" />
 </div>
 
 
@@ -33,7 +172,7 @@ ITVDN,  Александр Бреславец | Web Testing (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014407.jpg" />
 </div>
 
 
@@ -60,7 +199,7 @@ Linux Academy | Certified Kubernetes Administrator (CKA)  (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014403.jpg" />
 </div>
 
 
@@ -86,7 +225,7 @@ Udemy, Prateek Narang и др. | Data Structures & Algorithms, Level-up Course (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014309.jpg" />
 </div>
 
 
@@ -112,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013782.jpg" />
 </div>
 
 
@@ -138,7 +277,7 @@ Devman | Командная строка (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013624.jpg" />
 </div>
 
 
@@ -166,7 +305,7 @@ CASP School | Docker (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013615.jpg" />
 </div>
 
 
@@ -194,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013591.jpg" />
 </div>
 
 
@@ -223,7 +362,7 @@ Udemy, Skills Factory | Разработка приложения на Android �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013589.jpg" />
 </div>
 
 
@@ -249,7 +388,7 @@ O'Reilly, Alistair Croll | Strata Data Superstream Series: Creating Data-Intensi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013523.jpg" />
 </div>
 
 
@@ -275,7 +414,7 @@ Udemy, Nathan Cope | How To Build a Computer: A Beginner's Guide   (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013488.jpg" />
 </div>
 
 
@@ -303,7 +442,7 @@ A Cloud Guru / Linux Academy, Ryan Kroonenburg | AWS Certified Security - Specia
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013486.jpg" />
 </div>
 
 
@@ -331,7 +470,7 @@ Udemy, Jason Xian | React & TypeScript Chrome Extension Development [2021] (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013470.jpg" />
 </div>
 
 
@@ -357,7 +496,7 @@ A Cloud Guru / Linux Academy, William Boyd | Certified Kubernetes Application De
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013461.jpg" />
 </div>
 
 
@@ -384,7 +523,7 @@ A Cloud Guru / Linux Academy, Scott Pletcher | AWS Certified Solutions Architect
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013454.jpg" />
 </div>
 
 
@@ -410,7 +549,7 @@ Christoph Rumpel | Освоение PhpStorm / Mastering PhpStorm (2021) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013154.jpg" />
 </div>
 
 
@@ -438,7 +577,7 @@ Maher Haddad | MikroTik RouterOS Security Engineer with LABS (2019) PCRec [En /E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013132.jpg" />
 </div>
 
 
@@ -465,7 +604,7 @@ ITVDN, Виталий Ли  | Основы MongoDB (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012956.jpg" />
 </div>
 
 
@@ -493,7 +632,7 @@ Udemy, Skills Factory | Разработка сайтов на Wordpress с ну
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012767.jpg" />
 </div>
 
 
@@ -520,7 +659,7 @@ Udemy, Valentyna Dyka | Разработка сайта на WordPress без з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012617.jpg" />
 </div>
 
 
@@ -547,7 +686,7 @@ Udemy, Dmitry Zinoviev | Несложно о сложных сетях для п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012481.jpg" />
 </div>
 
 
@@ -558,140 +697,6 @@ Udemy, Dmitry Zinoviev | Несложно о сложных сетях для п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574E4A68C6663CEF51ADE01875484316180347B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474971   (1012469) от 05.06.2021
-
-Udemy, Oleksandr Kocherhin | NestJS - пишем API для реального проекта с нуля (2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012469.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы создадим API для проекта Medium используя NestJS, Typescript, Typeorm и PostgreSQL. Это курс полностью сфокусирован на глубокое погружение в создание реального приложения используя NestJS. Мы начнем с пустой папки и шаг за шагом мы реализуем реальное приложение. Вы изучите как структурировать ваше приложение, писать переиспользуемые и понятные модули (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 07:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4237B0DA6C4D3387FB343D88F11C1E15CADBE281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468384   (1012462) от 05.06.2021
-
-МФТИ, Поляков Даниил | Первичный анализ данных в Python (Части 1-2) (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс нацелен на овладение Python и его дополнительными библиотеками для анализа данных.
-Задача этого курса - научить с нуля навыкам программирования на Python и научить выполнять первичный анализ данных на Python. В данном курсе мы познакомимся с синтаксисом языка Python, а также научимся работать с его основными библиотеками, полезными для анализа данных, (   Читать дальше...   )Производство: МФТИЖанр: ПрограммированиеПродолжительность: 39:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FFB75F5FC4AF08FE9BAFA552327AFA49E56C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471934   (1012314) от 06.06.2021
-
-ITVDN, Виталий Мазяр | Angular 11.0 Базовый (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angular – это современный фреймворк от компании Google, написанный на TypeScript и обеспечивающий FrontEnd-разработчика удобными инструментами для создания веб-приложения, а также задающий дизайн приложения и упорядоченную структуру кода. Использование Angular дает возможность строить интерактивные и динамические веб-приложения намного быстрее и с меньшим объемом (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 06:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A818E4349ADB98A400AAF8149CB1ED6F35F3237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454361   (1012305) от 06.06.2021
-
-Stepic, Анатолий Карпов и др. | Твой путь в мир Data Analytics. Части 1-2 (2020) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа курса:
-1) PYTHON ДЛЯ РАБОТЫ С ДАННЫМИ
-9 занятий, 20 часов теории, 10 часов практики
-В этом модуле заложим фундамент. Освоим основы программирования, библиотеки для анализа данных, работу с git и командной строкой. Будет сложно, но крутые аналитики обязаны знать эти инструменты. С первого дня начнем работать на удаленном сервере, все по настоящему!(   Читать дальше...   )Производство: StepicЖанр: ПрограммированиеПродолжительность: 30:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B65B2870E99592CAE6883C8385C02FD2F061EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475638   (1012174) от 07.06.2021
-
-Udemy, Антон Кучер | Как стать классным менеджером проектов и не ох..еть (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой курс научит тебя управлять проектами как Боженька) В динамичной и местами юмористичной манере я расскажу, как нелегка и извилиста дорога менеджера проекта. Дам практические рекомендации и инструменты, чтобы ты уже сегодня применил все полученные знания на практике. Поделюсь лайфхаками, которые позволят тебе избежать вражеских пуль и клиентских претензий. Не будет (   Читать дальше...   )Производство: UdemyЖанр: Управление проектами, ИТПродолжительность: 02:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33173545C19C9FBDDB62830F90937459D006A888
 ```
 
 https://mybot314.ru/tekegram_catalog/

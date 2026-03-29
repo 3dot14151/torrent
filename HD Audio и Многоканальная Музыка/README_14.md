@@ -1,3 +1,232 @@
+###  Публикация: 312323   (829947) от 22.03.2011
+
+Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Mysterious IntegrationЖанр: InternationalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115091   (829699) от 16.03.2017
+
+The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Strange Days (3:04)
+A2. You're Lost Little Girl (2:58)
+A3. Love Me Two Times (3:12)
+A4. Unhappy Girl (1:56)(   Читать дальше...   )Производство: Elektra - K 42 016Жанр: Psychedelic RockПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774533   (829271) от 06.04.2014
+
+Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829271.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Eldorado Overture (2:12)
+A2. Can't Get It Out Of My Head (4:23)
+A3. Boy Blue (5:20)
+A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653761   (828796) от 08.05.2013
+
+Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celtic, new age>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Show Me    04:58
+02.    Bright Star    04:15
+03.    Change My World    03:46
+04.    Bi Liom    04:32(   Читать дальше...   )Жанр: CelticПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8715DEFA91F7A2131948E0B5D5407F02BB17546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502492   (828144) от 14.10.2021
+
+Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Compilation, Country Music>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Could Only Win Your Love
+02. Boulder To Birmingham
+03. One Of These Days
+04. Too Far Gone (with Dolly Parton & Linda Ronstandt)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502747   (826501) от 15.10.2021
+
+Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Town 04:34
+02. Trouble is a Man 03:53
+03. Mashup 08:05
+04. Samba de Uma Nota So – One Note Samba 04:28(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A5AF6E5D1C57BE7F46AB0DBEE001708D2AFC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502119   (826499) от 15.10.2021
+
+Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Love Hurts
+A2 Razamanaz
+A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502547   (826412) от 15.10.2021
+
+Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. I'll Meet You At Midnight (Midnight Cafe)
+02. What Can I Do (Midnight Cafe)
+03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381521   (826134) от 07.05.2020
 
 Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
@@ -6,7 +235,7 @@ Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826134.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825797.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <N
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824907.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cu
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824796.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824358.jpg" />
 </div>
 
 
@@ -151,7 +380,7 @@ Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822065.jpg" />
+  <img src="Z:/picture/008/save_picture_822065.jpg" />
 </div>
 
 
@@ -180,7 +409,7 @@ AIX Records - A Demonstration and Test Disc (2003) [DTS 5.1 CD-DA|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820896.jpg" />
+  <img src="Z:/picture/008/save_picture_820896.jpg" />
 </div>
 
 
@@ -209,7 +438,7 @@ Rainbow - Bent Out Of Shape (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Har
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816626.jpg" />
+  <img src="Z:/picture/008/save_picture_816626.jpg" />
 </div>
 
 
@@ -238,7 +467,7 @@ Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815733.jpg" />
+  <img src="Z:/picture/008/save_picture_815733.jpg" />
 </div>
 
 
@@ -264,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815567.jpg" />
+  <img src="Z:/picture/008/save_picture_815567.jpg" />
 </div>
 
 
@@ -293,7 +522,7 @@ Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815263.jpg" />
+  <img src="Z:/picture/008/save_picture_815263.jpg" />
 </div>
 
 
@@ -322,7 +551,7 @@ Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smoo
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815255.jpg" />
+  <img src="Z:/picture/008/save_picture_815255.jpg" />
 </div>
 
 
@@ -351,7 +580,7 @@ Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
+  <img src="Z:/picture/008/save_picture_814903.jpg" />
 </div>
 
 
@@ -380,7 +609,7 @@ Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
+  <img src="Z:/picture/008/save_picture_813553.jpg" />
 </div>
 
 
@@ -409,7 +638,7 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813537.jpg" />
+  <img src="Z:/picture/008/save_picture_813537.jpg" />
 </div>
 
 
@@ -444,7 +673,7 @@ Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [DTS 5.1 CD-DA|44.1/16|im
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813097.jpg" />
+  <img src="Z:/picture/008/save_picture_813097.jpg" />
 </div>
 
 
@@ -473,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812853.jpg" />
+  <img src="Z:/picture/008/save_picture_812853.jpg" />
 </div>
 
 
@@ -503,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811616.jpg" />
+  <img src="Z:/picture/008/save_picture_811616.jpg" />
 </div>
 
 
@@ -517,239 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A41964A9AC5540E1E1BDB807569FE45378B9B3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009102   (811472) от 20.04.2016
-
-Sound In Color / MU.SIC - Pixelated Pulse (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <downtempo, trip-hop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811472.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GB - 208 Strings
-2. Platonic - Alternate Thursday
-3. Mainframe & Platonic - Future's Oldest Story
-4. GB - Nocturnal Tribe(   Читать дальше...   )Жанр: downtempo, trip-hopПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17C9EACAA889C650C2322E8E1ECD3BE63BE360A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657445   (811111) от 17.05.2013
-
-Arabesque - 6 Альбомов (1977-1982) [FLAC 2.0 24/192|image/tracks (Vinyl-Rip)]<Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caballero 3:59
-02. Why Do You Ride The Hight Horse 3:38
-03. Tall Story Teller 3:10
-04. Touch And Go 3:35(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3328D90BB5DB388D197BF9E0CAEE213E88FB9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657905   (809507) от 18.05.2013
-
-Ingrid Kup - Feel Me (Music By Frank Duval) (1982) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA350E44A176997A30F410CEED351F55BCF949BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657752   (809319) от 18.05.2013
-
-Depeche Mode - Delta Machine (2013) [FLAC 2.0 24/192|Tracks (Vinyl-Rip)]<Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My World (4:57)
-02. Angel (3:58)
-03. Heaven (4:05)
-04. Secret To The End (5:12)
-05. My Little Universe (4:26)
-06. Slow (3:46)
-07. Broken (3:57)
-08. The Child Inside (4:17)
-09. Soft Touch / Raw Nerve (3:26)
-10. Should Be Higher (5:05)(   Читать дальше...   )Жанр: Electronic RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE2EAC082BE49756F33BDB982AB8EE9C97F82CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118708   (808803) от 27.03.2017
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808803.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-01. One Vision (5:11)
-02. A Kind Of Magic (4:25)
-03. One Year Of Love (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63206D3840DB89213E8BF171A67C22BF840CA9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778284   (806626) от 18.04.2014
-
-Varios - Колокольные звоны Псково-Печорского монастыря (1981) [[FLAC 2.0 24/96|traks(Vinil-Rip)]]<Church bells/Russian Falc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сторона 1  19:10
-2. Сторона 2  21:22Жанр: Church bells/Russian FalcПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198063   (806041) от 12.01.2018
-
-Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Easy Listening, Sax>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806041.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1:
-01. 命預けます - Inochi Azukemasu
-02. 圭子の夢は夜ひらく - Keiko no Yume wa Yoru Hiraku
-03. 女のブルース - Onna no Blues(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 00:33:26 + 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DC6852B4513188CDDBBD184EDE37E6E8045831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042696   (803133) от 30.03.2017
-
-Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда уходишь • Kdyz Otchazis
-02. Ты озарила мою жизнь • Prozarila Jsi Muj Zivot
-03. Так, как я тебя люблю • Protoze Te Mam Rad
-04. Радость до утра • Radost Az Do Rana(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC28C996ED3D7DC1867ABCC338DA2C793D59903C
 ```
 
 https://mybot314.ru/tekegram_catalog/

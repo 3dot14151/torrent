@@ -1,3 +1,177 @@
+###  Публикация: 1457623   (1024223) от 27.03.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 26.03.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB & Topic & A7S - Your Love (9 PM) (2:30)
+02. Travis Scott, HVME - Goosebumps (Remix) (2:42)
+03. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+04. Billie Eilish - Therefore I Am (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEE57A3F3DC87700C1A2DE8BE7DF2771D1C800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458428   (1023769) от 29.03.2021
+
+VA - Dance Party+ (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza feat. Dermot Kennedy - Paradise (Vintage Culture Remix) (3:36)
+02. Sheeqo Beat - Turn On the Bass (3:40)
+03. Galantis, Ship Wrek, Pink Sweat$, David Solomon - Only A Fool (DJ D-Sol Remix) (3:03)
+04. R3HAB, Quintino, Joe Stone - Freak (Joe Stone 2K18 Edit) (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664889F9F80F360D91470661DA32427870BA35AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458586   (1023714) от 29.03.2021
+
+VA - Дискотека 2021 Dance Club Vol. 208 от NNNB (2021) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. Tury - I Need U (2:59)
+02. Bastard! - You Lose (3:05)
+03. Carmen DeLeon feat. Cali Y El Dandee - Pasado (2:23)(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 24:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C93D491F6AEE330B89F0336F146B54093AEB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459200   (1023303) от 01.04.2021
+
+VA - Chill Pop (2021) [MP3|320 Kbps] <Pop, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli Adams, Nightly - Maybe Could Have Loved (3:41)
+02. Magsy - unimpressed (2:46)
+03. Tiffany Day - HOMESICK (3:37)
+04. JORDY, OSTON - Tomorrow (3:00)(   Читать дальше...   )Жанр: Pop, Chillout, LoungeПродолжительность: 05:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C70EDCCBBD454FDCE66127C279BC6DD8D694F825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459163   (1023302) от 01.04.2021
+
+VA - Music News vol.87 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryze - Девчонка Влюблена (02:42)
+ 02. Alex Pizzuti feat. Krulez - Oh My My (02:30)
+ 03. Anna Green - Надышаться Тобой (03:27)
+ 04. Anna Green - Я По-прежнему Жду (03:20)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE18EF4E0A9267CFEF9693A6F2A0EDB8F8A97A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459458   (1023086) от 02.04.2021
+
+VA - Pop & Dance (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023086.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Travis Scott, HVME - Goosebumps (2:42)
+002. Joel Corry, MNEK - Head & Heart (2:46)
+003. Tony Junior, NIGHT MOVES, Lasse Meling - Unstoppable (3:21)
+004. The FifthGuys, Polina Grace - Seven Nation Army (2:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F80B88005305DD1D0325BE1333AB4EB3BF6698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459639   (1022990) от 03.04.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 02.04.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +180,7 @@ VA - ЕвроХит Топ 40 Europa Plus 02.04.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022990.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Music News vol.88 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022984.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Hit Songs 2021 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022934.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Tik Tok Треки выстрелили весной 2021 [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022707.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ Alamесоs Dе La Siеrra - Las Pacas (2021) [MP3|320 Kbps] <Latin, Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022626.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - CrossFit (2021) [MP3|320 Kbps] <Rap, Dirty Dubstep, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022594.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Music News vol.89 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022586.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Orсhеstеr Ambrоs Sееlоs - Instrumental Highlights (2021) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022565.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - 200 mp3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022533.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Новинки с разных популярных MP3 сайтов, vol.1
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022223.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Наш Тик Ток (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022206.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Shazam Хит-парад World Top 200 Март (2021) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022192.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021764.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - ЕвроХит Топ 40 Europa Plus 09.04.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021729.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Remix Deck (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021591.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - The Official UK Top 100 Singles Chart 09.04.2021 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021586.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - 30(3) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021577.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Громкие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021238.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021228.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Music News vol.91 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021167.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Music News vol.91 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5056FBF42A0F84388D3268C4EC08926108D1CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462378   (1021136) от 14.04.2021
-
-VA - Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nana - Lonely 2021 (Fernando X T-Boy 2K21 Edit) (3:52)
-02. High Flex - Martini Orange (Extended Mix) (6:44)
-03. Ваня Дмитриенко - Венера-Юпитер (Ramirez Remix) (3:40)
-04. Enur ft. Natasja - Calabria (Atalay Tuncali Bootleg) (3:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE21389EE42A2BFBDE377B1CA02B536FD544A9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462486   (1020890) от 15.04.2021
-
-VA - Новинки Русских Ремиксов (2021) [MP3|256-320 Kbps] <Remix, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Султан Лагучев - Горький Вкус (Mikis Remix)
-02.Скаттл - Твои Слезы (Denis Bravo Remix)
-03.Пропаганда - Богиня (Leo Burn Remix)
-04.Пицца - Улыбка (Denis Bravo Radio Edit)(   Читать дальше...   )Жанр: Dance, Electro, Remixes, DanceПродолжительность: 02:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392D4F2B58D10862A24380E49E455041EC588422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462982   (1020759) от 16.04.2021
-
-VA - ЕвроХит Топ 40 Europa Plus 16.04.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masked Wolf - Astronaut In The Ocean (2:12)
-02. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-03. Thomas Gold - Pump Up The Jam (2:33)
-04. Foushee - Deep End (2:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8A7905A007B15BE3A96C46DB314E3E611FF513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463218   (1020639) от 17.04.2021
-
-VA - Music News vol.92 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iguana - Минимум (03:51)
- 002. AFSHINAM feat. Vivranmodi - Ajnabi (03:35)
- 003. Alexa - Como Hare (04:26)
- 004. Alyona Poli - Свет (02:40)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADD526C34CA747E9BF4C7ECD1D09ED88A699B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461951   (1020548) от 17.04.2021
-
-VA - Shazam Хит-парад Top 100 Russia 17.04 (2021) [MP3|192-320 Kbps] <Pop, Electronic, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dom La Nena - Batuque (Jeremy Sole & Atropolis remix) [0:03:49]
-002. Ramil' - Сон [0:02:57]
-003. Masked Wolf - Astronaut in the ocean [0:02:12]
-004. Lil Nas X - Montero (Call me by your name) [0:02:17](   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 05:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C521205CD2BBE621B02870045FDE5A3ADBDA09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463376   (1020375) от 18.04.2021
-
-VA - Зайцев.нет Лучшие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. КерамикА - Журналюги (4:30)
-02. Катя Адушкина, ЛСП - Малэнкий малчик 2.0 (3:14)
-03. Maior - EASY (3:13)
-04. Вадвэй & Арианна - Последний раз (3:04)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185FC6561545028AC1C9AE239C089FBB1ECC1944
 ```
 
 https://mybot314.ru/tekegram_catalog/

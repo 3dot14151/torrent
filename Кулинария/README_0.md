@@ -1,3 +1,32 @@
+###  Публикация: 1851362   (1055355) от 04.02.2026
+
+Антон Воргин | Сборка книг из серии «Готовим просто и вкусно» [4 книги] (2025) [PDF, EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В составе четыре книги.
+Книга 1. Всё про мясо.
+Простые и вкусные рецепты из мяса — от отбивных до шашлыков. Более 50 рецептов, которые получаются с первого раза. Готовим на сковороде, в духовке, на гриле и в рукаве. Подойдёт как новичкам, так и тем, кто ищет вдохновение на кухне.
+Книга 2. Вкусный ужин.(   Читать дальше...   )Жанр: КулинарияИздательство: СамиздатФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E2E7A6197FFC98D1EAA374A7DAFC06708026A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851876   (1055350) от 04.02.2026
 
 Ната Дунаевская | Заготовки с душой (2025) [PDF]
@@ -6,7 +35,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055350.jpg" />
+  <img src="Z:/picture/005/save_picture_1055350.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055250.jpg" />
+  <img src="Z:/picture/005/save_picture_1055250.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054750.jpg" />
+  <img src="Z:/picture/005/save_picture_1054750.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054600.jpg" />
+  <img src="Z:/picture/005/save_picture_1054600.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053206.jpg" />
+  <img src="Z:/picture/005/save_picture_1053206.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052894.jpg" />
+  <img src="Z:/picture/005/save_picture_1052894.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052867.jpg" />
+  <img src="Z:/picture/005/save_picture_1052867.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052797.jpg" />
+  <img src="Z:/picture/005/save_picture_1052797.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052372.jpg" />
+  <img src="Z:/picture/005/save_picture_1052372.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051825.jpg" />
+  <img src="Z:/picture/005/save_picture_1051825.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051823.jpg" />
+  <img src="Z:/picture/005/save_picture_1051823.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051763.jpg" />
+  <img src="Z:/picture/005/save_picture_1051763.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ My.mission | Книга рецептов к Новому году (2025) [PDF]
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049895.jpg" />
+  <img src="Z:/picture/005/save_picture_1049895.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049213.jpg" />
+  <img src="Z:/picture/008/save_picture_1049213.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049209.jpg" />
+  <img src="Z:/picture/008/save_picture_1049209.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048535.jpg" />
+  <img src="Z:/picture/008/save_picture_1048535.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048448.jpg" />
+  <img src="Z:/picture/008/save_picture_1048448.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048447.jpg" />
+  <img src="Z:/picture/008/save_picture_1048447.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048420.jpg" />
+  <img src="Z:/picture/008/save_picture_1048420.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048356.jpg" />
+  <img src="Z:/picture/008/save_picture_1048356.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047985.jpg" />
+  <img src="Z:/picture/008/save_picture_1047985.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047984.jpg" />
+  <img src="Z:/picture/008/save_picture_1047984.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047983.jpg" />
+  <img src="Z:/picture/008/save_picture_1047983.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047423.jpg" />
+  <img src="Z:/picture/005/save_picture_1047423.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047295.jpg" />
+  <img src="Z:/picture/005/save_picture_1047295.jpg" />
 </div>
 
 
@@ -653,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A51E004C4F2E65C57624CCF68744F5ABF4D3065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840343   (1047294) от 04.12.2025
-
-Константин Михайлов | Колбасная книга. Домашние колбаски, ветчины, закуски и копчености (2025) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние колбасы — совсем не то же самое, что магазинные: вы сами выбираете мясо и специи, контролируете качество каждого ингредиента и знаете, что в вашей колбасе не содержится никаких лишних добавок. А приготовить колбасы и мясные деликатесы не так сложно, если есть хороший учитель.
-Константин Михайлов, более известный в Сети как Доброслав13, давно занимается изготовлением (   Читать дальше...   )Жанр: КулинарияИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB453976BFDC3A4C2C92526CAFAF6F602124CD31
 ```
 
 https://mybot314.ru/tekegram_catalog/

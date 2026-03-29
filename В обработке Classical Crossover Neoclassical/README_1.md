@@ -6,7 +6,7 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435265.jpg" />
+  <img src="Z:/picture/008/save_picture_435265.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BrunuhVille - The Eternal Forest (2011) [MP3|320 кб/с]<Neo-Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431447.jpg" />
+  <img src="Z:/picture/008/save_picture_431447.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431434.jpg" />
+  <img src="Z:/picture/008/save_picture_431434.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumen
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431252.jpg" />
+  <img src="Z:/picture/008/save_picture_431252.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427332.jpg" />
+  <img src="Z:/picture/008/save_picture_427332.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BrunuhVille - Northwind (2015) [MP3|320 кб/с]<Neo-Classical, Instrumental, Ce
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422479.jpg" />
+  <img src="Z:/picture/008/save_picture_422479.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Roman Ilyin - Pieces. Part 2 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420965.jpg" />
+  <img src="Z:/picture/008/save_picture_420965.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416639.jpg" />
+  <img src="Z:/picture/008/save_picture_416639.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406490.jpg" />
+  <img src="Z:/picture/008/save_picture_406490.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403387.jpg" />
+  <img src="Z:/picture/008/save_picture_403387.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ IIlyin - EP_005 Else Lie (2020) [MP3|320 Kbps]
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376538.jpg" />
+  <img src="Z:/picture/008/save_picture_376538.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ David Garrett - Alive – My Soundtrack (2020) Deluxe Edition [MP3|320 Kbps] <Ne
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376016.jpg" />
+  <img src="Z:/picture/008/save_picture_376016.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Nox Arcana - Gothic (2015) [MP3|320 кб/с]<Neo-Classical, Dark Ambient, Darkwa
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367404.jpg" />
+  <img src="Z:/picture/008/save_picture_367404.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Ludovico Einaudi - Elements (2015) Deluxe Edition [MP3|320 кб/с]<Modern Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367273.jpg" />
+  <img src="Z:/picture/008/save_picture_367273.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Andrea Bocelli - Cinema (2015) Deluxe Edition [MP3|320 кб/с]<Pop/Classical Cr
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367132.jpg" />
+  <img src="Z:/picture/008/save_picture_367132.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363264.jpg" />
+  <img src="Z:/picture/008/save_picture_363264.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - The Acoustics Collection. Guitar (2002) [MP3|320 кб/с]<Classical, Instru
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347493.jpg" />
+  <img src="Z:/picture/008/save_picture_347493.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340333.jpg" />
+  <img src="Z:/picture/008/save_picture_340333.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ David Garrett - Unlimited - Greatest Hits (2018) 2CD [MP3|320 Kbps] <NeoClassica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338209.jpg" />
+  <img src="Z:/picture/008/save_picture_338209.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Lena Natalia - Sundays in Paris (2015) [MP3|320 кб/с]<Classical, Neo-Classica
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323881.jpg" />
+  <img src="Z:/picture/008/save_picture_323881.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Andre Rieu - December Lights (2012) [MP3|320 kbps]<Classical, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309894.jpg" />
+  <img src="Z:/picture/008/save_picture_309894.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Piano Guys - Limitless (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300883.jpg" />
+  <img src="Z:/picture/008/save_picture_300883.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrument
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300610.jpg" />
+  <img src="Z:/picture/008/save_picture_300610.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Slava Romanchenko - Impressions (2012) [MP3|320 кб/с]<Neoclassic/ Instrumenta
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258619.jpg" />
+  <img src="Z:/picture/005/save_picture_258619.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1997?) 4CD, Box Set [MP3
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229104.jpg" />
+  <img src="Z:/picture/004/save_picture_229104.jpg" />
 </div>
 
 
@@ -766,7 +766,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222251.jpg" />
+  <img src="Z:/picture/005/save_picture_222251.jpg" />
 </div>
 
 

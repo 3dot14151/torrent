@@ -1,3 +1,120 @@
+###  Публикация: 1186581   (285864) от 25.11.2017
+
+VA - Smooth Jazz 2 (2003) Universal Classics & Jazz [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот «мягкий» джаз легко дает понять о том, что музыка, живущая под этим ответвлением джазового стиля, мелодичная и чувственная. Чувственный, мелодичный и, пожалуй, лучший источник для релакса. Просто слушайте эту музыку и погружайтесь в бесконечный мир Smooth jazz.
+При наличии времени выложу ещё несколько таких сборников из собственной коллекции.CD1:
+01. Nat King Cole - Let There Be Love  (2:45)
+02. Stevie Wonder - My Cherie Amour  (2:51)
+03. Phyllis Nelson - Move Closer  (4:05)(   Читать дальше...   )Релиз состоялся: 2003Жанр: Smooth JazzПродолжительность: 02:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D9360421C82AF2FB631C422CDCC99F94BC84BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186597   (285852) от 25.11.2017
+
+Karen Souza - Essentials II (2014) Japan [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way It Is
+02. Wicked Game
+03. Everyday Is Like Sunday
+04. Dreams(   Читать дальше...   )Жанр: Bossa Nova, Vocal JazzПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C448CD5D378B463AA777F7FFEF5CC69CE9FEDA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963896   (285799) от 09.12.2015
+
+Nanette Natal - Is Love Enough? (2002) Benyo Music[FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.01 Cool Jet Song [04:58]
+ 02.02 Ooh Child [06:23]
+ 03.03 Mama He Treats Your Daughter Mean [05:34]
+ 04.04 Sometimes [06:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45BD6268857436236D6F7535A332D35C8E32F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186803   (284797) от 26.11.2017
+
+Rob Schneiderman - Radio Waves (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extra Time [08:31]
+02. Gravitation [06:37]
+03. Blue Moon [08:51]
+04. There's a Small Hotel [05:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AB80A8C1131056654F7458C62D9C499F231D6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186797   (284793) от 26.11.2017
 
 Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -6,7 +123,7 @@ Alex Riel & Stefan Pasborg - Drumfaces (2013) Stunt Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284793.jpg" />
+  <img src="Z:/picture/008/save_picture_284793.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Stephane Wrembel - The Django Experiment: Live In Rochester (2016) 2CD, Water Is
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284685.jpg" />
+  <img src="Z:/picture/008/save_picture_284685.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Lonnie Liston Smith - Love Is The Answer (1980) 2017, Sony Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284670.jpg" />
+  <img src="Z:/picture/008/save_picture_284670.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ The Ramsey Lewis Trio - More Sounds of Christmas (1964) 2019, Argo/Verve [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284594.jpg" />
+  <img src="Z:/picture/008/save_picture_284594.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ Ray Charles - Cocktail Hour 1940-e - 1950-e (2000) 2CD, Allegro [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284577.jpg" />
+  <img src="Z:/picture/008/save_picture_284577.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284576.jpg" />
+  <img src="Z:/picture/008/save_picture_284576.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ Lou Donaldson - Birdseed (1992) Milestone[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284146.jpg" />
+  <img src="Z:/picture/008/save_picture_284146.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ Karen Souza - Velvet Vault (2017) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283887.jpg" />
+  <img src="Z:/picture/008/save_picture_283887.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ VA - A Jazz Christmas (2015) 2CD [FLAC|track+.cue]<Jazz, Christmas>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283792.jpg" />
+  <img src="Z:/picture/008/save_picture_283792.jpg" />
 </div>
 
 
@@ -267,7 +384,7 @@ Ulf Wakenius - Vagabond (2012) [FLAC|Lossless]<Jazz, World Fusion, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283158.jpg" />
+  <img src="Z:/picture/008/save_picture_283158.jpg" />
 </div>
 
 
@@ -296,7 +413,7 @@ Cedar Walton - Among Friends (1982) 1990, Bellaphon[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283123.jpg" />
+  <img src="Z:/picture/008/save_picture_283123.jpg" />
 </div>
 
 
@@ -325,7 +442,7 @@ Art Farmer - Soul Eyes: Live At The Blue Note (1992) Enja[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283121.jpg" />
+  <img src="Z:/picture/008/save_picture_283121.jpg" />
 </div>
 
 
@@ -354,7 +471,7 @@ Toshiko Akiyoshi & Charlie Mariano - Toshiko Mariano Quartet Live at Birdland (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283120.jpg" />
+  <img src="Z:/picture/008/save_picture_283120.jpg" />
 </div>
 
 
@@ -383,7 +500,7 @@ Michel Sajrawy - Writings On The Wall (2009) [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283117.jpg" />
+  <img src="Z:/picture/008/save_picture_283117.jpg" />
 </div>
 
 
@@ -412,7 +529,7 @@ Benny Goodman - Swing, Swing, Swing (1935-1938) 1992, RCA Camden[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283114.jpg" />
+  <img src="Z:/picture/008/save_picture_283114.jpg" />
 </div>
 
 
@@ -441,7 +558,7 @@ VA - Timeless 15th Anniversary Sampler (1991) Timeless Records[FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283078.jpg" />
+  <img src="Z:/picture/008/save_picture_283078.jpg" />
 </div>
 
 
@@ -470,7 +587,7 @@ The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Ne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283068.jpg" />
+  <img src="Z:/picture/008/save_picture_283068.jpg" />
 </div>
 
 
@@ -499,7 +616,7 @@ Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283063.jpg" />
+  <img src="Z:/picture/008/save_picture_283063.jpg" />
 </div>
 
 
@@ -528,7 +645,7 @@ Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283034.jpg" />
+  <img src="Z:/picture/008/save_picture_283034.jpg" />
 </div>
 
 
@@ -557,7 +674,7 @@ Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282956.jpg" />
+  <img src="Z:/picture/008/save_picture_282956.jpg" />
 </div>
 
 
@@ -586,7 +703,7 @@ Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282731.jpg" />
+  <img src="Z:/picture/008/save_picture_282731.jpg" />
 </div>
 
 
@@ -615,7 +732,7 @@ Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282730.jpg" />
+  <img src="Z:/picture/008/save_picture_282730.jpg" />
 </div>
 
 
@@ -629,122 +746,6 @@ Joey Calderazzo - To Know One (1991) Blue Note [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451D75AC8B9CA2AE83980C9986D7C763898C274D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336050   (282724) от 05.11.2019
-
-Katherine Penfold - Sweetest Thing (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unapologetic (4:39)
-02. Feel Like Makin' Love (3:17)
-03. Far Away (4:14)
-04. Better (3:30)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D345C41D09FFA0C057482FE7551E1396247D9DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187149   (282682) от 27.11.2017
-
-Yusef Lateef - Yusef Lateef's Detroit: Latitude 42º 30' Longitude 83º (1969) 2002, Collectables [WavPack|Lossless|image + .cue] <Hard Bop, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bishop School [03:02]
-02. Livingston Playground [03:41]
-03. Eastern Market [04:15]
-04. Belle Isle [03:15](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88473CB9753EDBC290F86DF456A514FAE39F0AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964441   (282606) от 11.12.2015
-
-Cecil Taylor - The Great Paris Concert (1966) 1999, Black Lion[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sudent Studies part 1 [16:01]
- 02.Sudent Studies part 2 [11:01]
- 03.Amplitude [19:45]
- 04.Niggle Feuigle [12:07]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5224CC170F638C791BD6B09671EF6B18DDD5EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964408   (282602) от 11.12.2015
-
-Art Blakey - Drums Around The Corner (1959) 2014, Universal[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moose The Mooche [15:20]
- 02.Blakey's Blues [11:10]
- 03.Lee's Tune [08:27]
- 04.Let's Take 16 Bars [06:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD49171CC79251F1EDBF20945F4AA3C47A3A3DCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

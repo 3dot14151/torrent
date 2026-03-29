@@ -1,3 +1,73 @@
+###  Публикация: 518967   (639601) от 05.07.2012
+
+VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance, uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Marcus Maison & Will Dragen - Another Dimension (Original)
+003. Lunar Motion - Aozora (Original Mix)
+004. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+005. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
+006. Michael Jay Parker - Canberra
+007. Juventa - City On Clouds (Original Mix)
+008. Maguire - Face Yesterday (Original Mix)
+009. John Askew - Fade To Black (Sean Tyas Remix)
+010. Mat Zo - Frequency Flyer (Original Mix)(   Читать дальше...   )Жанр: Trance, uplifting TranceПродолжительность: 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430FBC4F08312CFC1BD085588A2F333875F4E26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518702   (639600) от 05.07.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #89 (2012) [MP3|320 кб/с]<Trance , Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) [07:39]
+ 02. Nic Chagall & Duderstadt feat. Relyk - Alone With You [07:42]
+ 03. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit) [03:45]
+ 04. Paki & Jaro feat. Casey Barnes - Because Of You (Original Mix) [03:54]
+ 05. Snatt & Vix feat. Alexandra Badoi - Cold Shower (Original Club Mix) [07:20]
+ 06. Simon Patterson & Greg Downey feat. Bo Bruce - Come To Me [07:15]
+ 07. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) [04:25]
+ 08. Tate & Diamond feat. Nicolai - Electrified (Mat Zo remix) [07:12]
+ 09. Polina Griffith & Miami Kidz - Feeling This Way (Extended Mix) [06:22]
+ 10. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) [06:14](   Читать дальше...   )Жанр: Trance , Vocal TranceПродолжительность: 03:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54021713CC8DDD8A28CD96C955D8DE040B231CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519024   (639510) от 05.07.2012
 
 VA - Kiss FM - Dance 10 (04.07.2012) [MP3|320 кб/с]<Dance>
@@ -6,7 +76,7 @@ VA - Kiss FM - Dance 10 (04.07.2012) [MP3|320 кб/с]<Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639510.jpg" />
+  <img src="Z:/picture/008/save_picture_639510.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Bassline In My Brain (2018) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639402.jpg" />
+  <img src="Z:/picture/008/save_picture_639402.jpg" />
 </div>
 
 
@@ -70,7 +140,7 @@ VA - Best Of Vocal And Uplifting Trance (2018) [MP3|320 Kbps] <Vocal, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639395.jpg" />
+  <img src="Z:/picture/008/save_picture_639395.jpg" />
 </div>
 
 
@@ -99,7 +169,7 @@ VA - Ben City House (2019) [MP3|320 Kbps] <Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639191.jpg" />
+  <img src="Z:/picture/008/save_picture_639191.jpg" />
 </div>
 
 
@@ -128,7 +198,7 @@ VA - Record Super Chart 580 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639066.jpg" />
+  <img src="Z:/picture/008/save_picture_639066.jpg" />
 </div>
 
 
@@ -157,7 +227,7 @@ VA - Cyber Monday (Vol.01) (2022) [MP3|320 Kbps] <Electronic, Synthwave, Synthsp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638941.jpg" />
+  <img src="Z:/picture/008/save_picture_638941.jpg" />
 </div>
 
 
@@ -186,7 +256,7 @@ VA - Hot Synthpop Romantic Mix (2022) [MP3|320 Kbps] <Synthpop, Pop, Dance, Lyri
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638851.jpg" />
+  <img src="Z:/picture/008/save_picture_638851.jpg" />
 </div>
 
 
@@ -215,7 +285,7 @@ VA - Deep House Collection Vol.198 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638712.jpg" />
+  <img src="Z:/picture/008/save_picture_638712.jpg" />
 </div>
 
 
@@ -244,7 +314,7 @@ VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638244.jpg" />
+  <img src="Z:/picture/008/save_picture_638244.jpg" />
 </div>
 
 
@@ -273,7 +343,7 @@ VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
+  <img src="Z:/picture/008/save_picture_638233.jpg" />
 </div>
 
 
@@ -302,7 +372,7 @@ VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638205.jpg" />
+  <img src="Z:/picture/008/save_picture_638205.jpg" />
 </div>
 
 
@@ -331,7 +401,7 @@ VA - Promo DJ Top 100 Remixes Summer (2015) [MP3|128-320 кб/с]<House, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637874.jpg" />
+  <img src="Z:/picture/008/save_picture_637874.jpg" />
 </div>
 
 
@@ -358,7 +428,7 @@ VA - Hits of My Soul Vol. 05 (2016) [MP3|320 кб/с]<Electronic, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637779.jpg" />
+  <img src="Z:/picture/008/save_picture_637779.jpg" />
 </div>
 
 
@@ -390,7 +460,7 @@ VA - Uplifting And Vocal Trance Party (2017) [MP3|320 Kbps] <Uplifting, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637575.jpg" />
+  <img src="Z:/picture/008/save_picture_637575.jpg" />
 </div>
 
 
@@ -419,7 +489,7 @@ VA - Sexy Trance #41 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637501.jpg" />
+  <img src="Z:/picture/008/save_picture_637501.jpg" />
 </div>
 
 
@@ -454,7 +524,7 @@ VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637479.jpg" />
+  <img src="Z:/picture/008/save_picture_637479.jpg" />
 </div>
 
 
@@ -483,7 +553,7 @@ VA - Empire Records - Space Disco 3 (2017) [MP3|320 Kbps] <House, Nu-Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637469.jpg" />
+  <img src="Z:/picture/008/save_picture_637469.jpg" />
 </div>
 
 
@@ -512,7 +582,7 @@ VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636342.jpg" />
+  <img src="Z:/picture/008/save_picture_636342.jpg" />
 </div>
 
 
@@ -541,7 +611,7 @@ VA - These Are Tuned 235 One Shots (2016) [MP3|320 Kbps] <House, Trance, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636274.jpg" />
+  <img src="Z:/picture/008/save_picture_636274.jpg" />
 </div>
 
 
@@ -570,7 +640,7 @@ VA - Lab Of Music: Deep House Sensation (2016) [MP3|320 Kbps] <Deep House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636273.jpg" />
+  <img src="Z:/picture/008/save_picture_636273.jpg" />
 </div>
 
 
@@ -598,7 +668,7 @@ VA - Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636255.jpg" />
+  <img src="Z:/picture/008/save_picture_636255.jpg" />
 </div>
 
 
@@ -627,7 +697,7 @@ VA - Record Super Charts # 444 (2016) [MP3|320 Kbps] <House, Electro House, Club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636147.jpg" />
+  <img src="Z:/picture/008/save_picture_636147.jpg" />
 </div>
 
 
@@ -656,7 +726,7 @@ VA - Vocal Trance Seduction Vol 3 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636046.jpg" />
+  <img src="Z:/picture/008/save_picture_636046.jpg" />
 </div>
 
 
@@ -685,7 +755,7 @@ VA - Танцплощадка (mixed by Dj Vitalik) (2015) [MP3|320 кб/с]<Dis
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635961.jpg" />
+  <img src="Z:/picture/008/save_picture_635961.jpg" />
 </div>
 
 
@@ -699,70 +769,6 @@ VA - Танцплощадка (mixed by Dj Vitalik) (2015) [MP3|320 кб/с]<Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781975A0AFF10432DB50F52CF9523226977954EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518938   (635774) от 07.07.2012
-
-VA - Best of In Da Club Vol.18 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Otten - Mushroom Therapy (Armin van Buuren Remix)
-002. Armin vs. M.I.K.E. - Intruder (Original Mix)
-003. Interstate - Remember Me (Shawn Mitiska & Tyler Michaud Remix)
-004. Arctic Quest - Glaze (Original Mix)
-005. Armin van Buuren - Birth Of An Angel (Original Mix)
-006. Ron Hagen & Al-Exander - Now Is The Time (Original Mix)
-007. Fabio XB & Ronnie Play feat. Gabriel Cage - Inside of You (Original Mix)
-008. TyDi feat. Audrey Gallagher - You Walk Away (Original Mix)
-009. Andrew Bennett feat. Sir Adrian - Run Till U Shine (Original Mix)
-010. Myon & Shane 54 - International Departures (Classic Anthem Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED668D5332516BA2688D9964311F0163ED090AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293531   (635672) от 04.04.2019
-
-VA - Soap Buble: Clubbing Electro House (2019) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Leonardo Pancaldi - Nothing You Can Save
-002. David Rull - Be Water My Friend
-003. Ant. Shumak - Objective Dream (Original Mix)
-004. Stil & Bense - Serenade(   Читать дальше...   )Жанр: HouseПродолжительность: 10:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9C3D0594B0980B4BE9CAE5C162144B84F5EDBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

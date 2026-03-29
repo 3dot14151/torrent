@@ -1,3 +1,83 @@
+###  Публикация: 1002639   (847004) от 01.04.2016
+
+Александр Викторович Кожевников | По тонкому льду. О нравах в хоккее (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему голеадор мечтал попасть именно в московский «Спартак»? Разве можно в атмосфере коррупции подготовить будущих олимпийских чемпионов? Отчего не женился на американке, хотя прожил за океаном целых шесть лет? Каким образом теплолюбивые армяне заиграли в хоккей? Как избежал «тюрьмы», нарушая спортивный режим?
+Ярчайшая звезда отечественного и мирового хоккея, двукратный (   Читать дальше...   )Жанр: Биографии и Мемуары, Спорт, фитнес, Публицистика: прочееФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732330EE89BD8420F46A469AAA866FC23C022977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002645   (846847) от 01.04.2016
+
+Аглая Топорова | Украина трех революций (2016) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист и социолог Аглая Топорова, заместитель главного редактора газеты «Коммерсантъ — Украина», прожила в Киеве с 1999 по 2014 год. Общественно-политическую жизнь Украины этих лет она знает не понаслышке. Будучи киевским жителем, она оставалась гражданкой России — это придает ее взгляду на новейшую политическую историю Украины уникальность: это взгляд изнутри (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF31A105795A29F87443F6518084E4351C279B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378603   (846530) от 25.04.2020
+
+Юнис Теймурханлы | «Upgrade». Записки отельера (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга от автора бестселлеров «Do not disturb. Записки отельера» и «Room service. Записки отельера» – владельца и генерального менеджера отеля «Гельвеция» Юниса Теймурханлы.
+«Гельвеция» вновь приглашает читателей в мир гостиничного бизнеса, возвращаясь с новыми историями – смешными и трогательными, поучительными и грустными, но неизменно живыми и яркими. А все (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41238B704D8CC22525973897EECBA17A37DBEAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378586   (846523) от 25.04.2020
 
 Грегуар Шамаю | Теория дрона (2020) [EPUB]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846523.jpg" />
+  <img src="Z:/picture/008/save_picture_846523.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846393.jpg" />
+  <img src="Z:/picture/008/save_picture_846393.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844867.jpg" />
+  <img src="Z:/picture/008/save_picture_844867.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844711.jpg" />
+  <img src="Z:/picture/008/save_picture_844711.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843118.jpg" />
+  <img src="Z:/picture/008/save_picture_843118.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843038.jpg" />
+  <img src="Z:/picture/008/save_picture_843038.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842884.jpg" />
+  <img src="Z:/picture/008/save_picture_842884.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842808.jpg" />
+  <img src="Z:/picture/008/save_picture_842808.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842790.jpg" />
+  <img src="Z:/picture/008/save_picture_842790.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841964.jpg" />
+  <img src="Z:/picture/008/save_picture_841964.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841701.jpg" />
+  <img src="Z:/picture/008/save_picture_841701.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840090.jpg" />
+  <img src="Z:/picture/008/save_picture_840090.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840009.jpg" />
+  <img src="Z:/picture/008/save_picture_840009.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839451.jpg" />
+  <img src="Z:/picture/008/save_picture_839451.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839198.jpg" />
+  <img src="Z:/picture/008/save_picture_839198.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838062.jpg" />
+  <img src="Z:/picture/008/save_picture_838062.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837575.jpg" />
+  <img src="Z:/picture/008/save_picture_837575.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836775.jpg" />
+  <img src="Z:/picture/008/save_picture_836775.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836701.jpg" />
+  <img src="Z:/picture/008/save_picture_836701.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836560.jpg" />
+  <img src="Z:/picture/008/save_picture_836560.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836176.jpg" />
+  <img src="Z:/picture/008/save_picture_836176.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835888.jpg" />
+  <img src="Z:/picture/008/save_picture_835888.jpg" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835803.jpg" />
+  <img src="Z:/picture/008/save_picture_835803.jpg" />
 </div>
 
 
@@ -602,88 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF1772D3D508F18726E6239E338B9A398B44F944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114741   (831846) от 15.03.2017
-
-Игорь Кохановский (сост.) | «Всё не так, ребята…» Владимир Высоцкий в воспоминаниях друзей и коллег (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Высоцкий давно стал легендой. Актер, поэт, кумир…
-
-В этой книге впервые под одной обложкой собраны воспоминания тех, с кем он дружил, кого любил, с кем выходил на подмостки. Юрий Петрович Любимов и коллеги-актеры: Алла Демидова, Валерий Золотухин, Вениамин Смехов, одноклассник Игорь Кохановский и однокашники по Школе-студии МХАТ, кинорежиссеры Александр (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литература, Кинематограф, театр, МузыкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A6C2367A15D8620933EDECCAB607BDA8DB41D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380808   (831442) от 04.05.2020
-
-Гарольд Шехтер | Принцесса ада (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831442.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 1902 по 1908 год в различных штатах США бесследно исчезали мужчины: состоятельные холостяки, простые рабочие…
-А в 1908 году их тела были найдены на ферме благоприличной вдовы Белль Ганнесс – в выгребной яме, разрубленными на части…
-Кем же была она – самая жестокая женщина-убийца в истории США? Какая судьба постигла в действительности ее детей, официально считавшихся (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаПеревод: Е. РубинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFC76CD92122AC95D1600A626BCA87B30F6B123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380968   (829755) от 05.05.2020
-
-Э. А. Курбатов (сост.) | Каратель живет в Клифтоне [О фашистских приспешниках, укрывающихся в США] (1985) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — сборник очерков, написанных на основе документального материала, о тех, кто во время Великой Отечественной войны совершил тягчайшие преступления против советского народа и, избежав справедливого возмездия, нашел пристанище за океаном. Власти США, укрывая этих преступников, препятствуя преданию их суду, нарушают международные правовые нормы, — ведь на (   Читать дальше...   )Жанр: История, политология, правоведение, документалистика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C04B22563161031D0514EDAA42DA334D7C448E
 ```
 
 https://mybot314.ru/tekegram_catalog/

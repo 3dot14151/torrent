@@ -6,7 +6,7 @@ Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70984.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70902.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70373.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Limuria - Lost World (2025) [MP3|320 Kbps] <Progressive Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70327.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Throne Of Iron - Adventure Two (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69742.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Avatar Of Hate - Necrotic Awakening (2025) [MP3|320 Kbps] <Symphonic Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69694.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Irony Of Fate - Equinox (2025) [MP3|320 Kbps] <Melodic Death Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69615.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ All Empires Fall - Chronicles of the Unseen (2025) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69524.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Narrow Cold - Burning Tears (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69523.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69049.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sculforge - Cosmic Crusade Chronicles (2025) [MP3|320 Kbps] <Heavy, Power, Speed
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68906.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mechina - Bellum Interruptum (2025) [MP3|320 Kbps] <Symphonic Metal, Modern Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68806.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68085.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68084.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67982.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Machine Head - Unatoned (2025) [MP3|320 Kbps] <Groove Metal, Thrash Metal, Alter
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67478.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ancient Bards - Artifex (2025) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67468.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Epica - Aspiral (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67394.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67283.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67282.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Aggravated Assault - The Order of Chaos (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67260.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67241.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67236.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67220.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Awaken the Night - Total Kommando (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67192.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67069.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1298744   (601633) от 29.04.2019
+
+Д. Дж. Макхейл | Бобби Пендрагон. Связной между мирами. Книга первая (2006) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Пендрагон — совершенно обычный 14-летний подросток. Но оказывается, Бобби обладает необыкновенными способностями: он может пройти сквозь пространство и время и попасть в другое измерение. Бобби суждено стать Странником — Связным между мирами, которым угрожает опасность…Жанр: фантастика, детская литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C892135221F973D856B1511762B4BE7D725443CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992048   (601550) от 29.04.2019
 
 Книжная серия | Фильм-сказка [142 книги] (1966-1996) [PDF, DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601550.jpg" />
+  <img src="Z:/picture/008/save_picture_601550.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601406.jpg" />
+  <img src="Z:/picture/008/save_picture_601406.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601302.jpg" />
+  <img src="Z:/picture/008/save_picture_601302.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601290.jpg" />
+  <img src="Z:/picture/008/save_picture_601290.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601289.jpg" />
+  <img src="Z:/picture/008/save_picture_601289.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601081.jpg" />
+  <img src="Z:/picture/008/save_picture_601081.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601004.jpg" />
+  <img src="Z:/picture/008/save_picture_601004.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600853.jpg" />
+  <img src="Z:/picture/008/save_picture_600853.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600283.jpg" />
+  <img src="Z:/picture/008/save_picture_600283.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600162.jpg" />
+  <img src="Z:/picture/008/save_picture_600162.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600023.jpg" />
+  <img src="Z:/picture/008/save_picture_600023.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599909.jpg" />
+  <img src="Z:/picture/008/save_picture_599909.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599904.jpg" />
+  <img src="Z:/picture/008/save_picture_599904.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599900.jpg" />
+  <img src="Z:/picture/008/save_picture_599900.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599802.jpg" />
+  <img src="Z:/picture/008/save_picture_599802.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599693.jpg" />
+  <img src="Z:/picture/008/save_picture_599693.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599686.jpg" />
+  <img src="Z:/picture/008/save_picture_599686.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599684.jpg" />
+  <img src="Z:/picture/008/save_picture_599684.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599681.jpg" />
+  <img src="Z:/picture/008/save_picture_599681.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599537.jpg" />
+  <img src="Z:/picture/008/save_picture_599537.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599530.jpg" />
+  <img src="Z:/picture/008/save_picture_599530.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599527.jpg" />
+  <img src="Z:/picture/008/save_picture_599527.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598943.jpg" />
+  <img src="Z:/picture/008/save_picture_598943.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598839.jpg" />
+  <img src="Z:/picture/008/save_picture_598839.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Academia | Армянские сказки [1933] [DJVU]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598764.jpg" />
+  <img src="Z:/picture/008/save_picture_598764.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Academia | Армянские сказки [1933] [DJVU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FE261C82194EC8D6AFF87C8D7DC09A8D8E6015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687311   (598505) от 08.08.2013
-
-Ованес Туманян | Армянские Сказки [1953] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий армянский поэт Ованес Туманян (1869–1923) является автором 22 обработок армянских народных сказок. Среди них сказки волшебные, новеллистические, бытовые, анекдоты. Туманян, используя многочисленные варианты, как армянских сказок, так и сказок других народов, создает как бы сводный текст, в котором присутствуют мотивы, эпизоды из разных вариантов. Известно, (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E5BA42044FF31EB33C6910023E1DCF74FABCCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

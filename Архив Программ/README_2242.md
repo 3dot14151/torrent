@@ -1,3 +1,291 @@
+###  Публикация: 1763084   (35653) от 30.11.2024
+
+Digiarty AIArty Image Matting 2.0 Portable by FC Portables [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digiarty AIArty Image Matting — это инновационное программное решение, призванное кардинально изменить способ, которым пользователи справляются с удалением фона и смешиванием изображений. Используя передовые алгоритмы искусственного интеллекта, этот инструмент нацелен на обеспечение точной и бесшовной интеграции объектов переднего плана в новые фоны, что делает его (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9702E1BD977B8FA324BACCB5FAB38769668CD667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763416   (35606) от 01.12.2024
+
+Office Tab Enterprise 16.00 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A22076EFF657BAD23CE521244D80159D6D8F53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763502   (35566) от 01.12.2024
+
+Macrorit Partition Expert 8.4.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7032C2821D210C59187AD1CC7DC19DCD98D850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763428   (35565) от 01.12.2024
+
+PrivaZer Pro 4.0.96 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35565.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C03A0E3EE6AAEA0AC163C52D68DA7AFAFA1D2DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763429   (35558) от 01.12.2024
+
+Ashampoo Photo Optimizer 10.0.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшайте фотографии простым кликом
+Фотографии содержат незаменимые воспоминания и запечатлевают особые моменты Вашей жизни. Но они не всегда получаются такими, как хотелось бы. Получите от Ваших фотографий максимум всего одним кликом и достигните впечатляющих результатов практически мгновенно. Только с помощью Ashampoo Photo Optimizer 9!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7844B26C7DEEEC0176120F3A495458F9D4E8669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763534   (35556) от 01.12.2024
+
+YT Downloader 9.11.3 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35556.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572C08A2DF246EE583B26A646C945683F1336B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763512   (35531) от 01.12.2024
+
+Topaz Video AI 5.5.1 Beta [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC2189D7FFE1B0DC3F5CC1E1C0461D54CD9214A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763385   (35528) от 01.12.2024
+
+Double Commander 1.1.21 gamma  + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E745070345507068D7D96E1A89F1B38CD5ED474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763562   (35527) от 01.12.2024
+
+Notepad++ 8.7.3 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA510E42ED1A7F30E21202B1085519C68E9FC744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763387   (35523) от 01.12.2024
+
+Vivaldi 7.0.3495.20 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB025E6F1547B5B3BE252C7A190318498ACA0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763384   (35503) от 01.12.2024
+
+Balabolka 2.15.0.883 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
+Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B957F75C4C21DBFA0810B8F232BDEA9549B6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763673   (35494) от 02.12.2024
 
 Revo Uninstaller Pro 5.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +294,7 @@ Revo Uninstaller Pro 5.3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35494.jpg" />
 </div>
 
 
@@ -32,7 +320,7 @@ Blackmagic Design DaVinci Resolve Studio 19.1.1 Build 8 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35470.jpg" />
 </div>
 
 
@@ -58,7 +346,7 @@ Steinberg - HALion 7 7.1.20 STANDALONE, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35457.jpg" />
 </div>
 
 
@@ -85,7 +373,7 @@ FliFlik KlearMax for Photo 2.0.0 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35367.jpg" />
 </div>
 
 
@@ -111,7 +399,7 @@ VMware Workstation 17 Pro 17.6.1 Build 24319023 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35364.jpg" />
 </div>
 
 
@@ -137,7 +425,7 @@ Topaz Gigapixel AI 8.0.4 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35358.jpg" />
 </div>
 
 
@@ -164,7 +452,7 @@ Aiseesoft Video Converter Ultimate 10.8.86 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35354.jpg" />
 </div>
 
 
@@ -190,7 +478,7 @@ Wondershare UniConverter Ultimate 16.0.4.86 RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35353.jpg" />
 </div>
 
 
@@ -216,7 +504,7 @@ GeoGebra 6.0.869.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35338.jpg" />
 </div>
 
 
@@ -242,7 +530,7 @@ WizTree Enterprise 4.23 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35324.jpg" />
 </div>
 
 
@@ -268,7 +556,7 @@ Glary Utilities Pro 6.19.0.23 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35323.jpg" />
 </div>
 
 
@@ -294,7 +582,7 @@ Movavi Video Editor 25.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35296.jpg" />
 </div>
 
 
@@ -320,7 +608,7 @@ AOMEI Partition Assistant Technician Edition 10.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35293.jpg" />
 </div>
 
 
@@ -346,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35275.jpg" />
 </div>
 
 
@@ -372,7 +660,7 @@ Microsoft Visual Studio 2022 Enterprise 17.12.3 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35273.jpg" />
 </div>
 
 
@@ -383,299 +671,6 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E301E5971CD8D0383AFFBB138993439FF7E1F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763982   (35266) от 04.12.2024
-
-Topaz Video AI 6.0.0.0 Beta [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353D822FBD8FFB76831A855FD0E9724757C4196D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763850   (35259) от 04.12.2024
-
-JetBrains CLion 2024.3 Repack by Sitego [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35259.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains CLion — интеллектуальная среда разработки, предназначенная для создания программ на языках C и C++ на операционных системах Windows, Linux и macOS. CLion обладает множеством функций, которые облегчают процесс разработки, таких как автодополнение кода, интеграция с системами контроля версий, отладка и многое другое. Это позволяет разработчикам увеличить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9D9337FA2B40D17DF7D8247ACEEE1430E92675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763891   (35258) от 04.12.2024
-
-AnyDesk 9.0.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляните на процесс удалённого администрирования рабочего стола другими глазами! Вы знаете, каким было удаленное администрирование до этого: медленным и изнурительным. При разработке AnyDesk мы отступили на шаг назад и задались фундаментальными вопросами. Как должно работать удаленное администрирование? Чего можно добиться с помощью современного компьютерного оборудования? (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26220954886ED4E8B1A57C26F2FE5B648FCDB53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763924   (35250) от 04.12.2024
-
-Display Driver Uninstaller 18.0.8.8 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A909E01E88BDF989D26CB9DC6FB84CBD910C9B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763954   (35247) от 04.12.2024
-
-RustDesk 1.3.4 + portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35247.jpg" />
-</div>
-
-
-###  Подробнее
-
-RustDesk Remote Desktop – бесплатное приложение для удаленного доступа и управления компьютером или мобильным устройством. Сервис удаленного рабочего стола с открытым исходным кодом работает "из коробки" и не требует настройки.
-
-RustDesk Remote Desktop – программное обеспечение для удаленного рабочего стола, работает "из коробки", не требует настройки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE5CB3BED12A078B4F4E65D9F63AFC49778570B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764018   (35242) от 04.12.2024
-
-Telegram Desktop 5.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39EB516796468B688DB87EEC71A3E9A5F312B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763882   (35241) от 04.12.2024
-
-Free Hex Editor Neo 7.50.03.8800 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Free Hex Editor Neo - бесплатный Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
-Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103D9BD8E573689924795D4FB739F3C40BDC0938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763913   (35240) от 04.12.2024
-
-Aiarty Image Enhancer 2.6 RePack (& Portable) by elchupacabra (DC 23.10.2024) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiarty Image Enhancer (с генеративным ИИ) — это современное программное обеспечение для улучшения изображений, разработанное компанией Digiarty Software. Оно использует передовые технологии искусственного интеллекта для улучшения и масштабирования изображений, сохраняя при этом реалистичные детали.
-Программа позволяет легко улучшать фотографии и AI-арт, делая процесс (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие (Русский отсутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C8F9C8EE2D843C13F5E0873C4F6B3D6AE6A73F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763921   (35238) от 04.12.2024
-
-O&O Defrag Professional 29.1 Build 11203 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35238.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1D6C4FD9518962E6543FD3E048D9B90F73A49C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764021   (35236) от 04.12.2024
-
-Vivaldi 7.0.3495.23 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E9EA95A1947974D25BCF196D369D6728D15C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763885   (35229) от 04.12.2024
-
-Ocenaudio 3.14.8 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D2CE2E1B19960ADCB899F42201EF340A5361F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

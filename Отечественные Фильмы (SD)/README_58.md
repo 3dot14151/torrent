@@ -1,3 +1,29 @@
+###  Публикация: 515164   (656505) от 25.06.2012
+
+Адмиралъ (2008) [H.264] BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, рассказывающий о жизни и любви выдающегося боевого офицера Военно-морского флота, полярного исследователя, ставшего затем адмиралом, верховного правителя России Александра Васильевича Колчака и Анны Тимиревой. События разворачиваются в период 1916—1920 годов на фоне крушения Российской империи, двух революций и Гражданской войны.Жанр: Драма, историяРежиссер: Андрей КравчукАктеры: Константин Хабенский,Продолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD41E6D82A79C3DD3BC7B1784014F1CADEC4981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140177   (656487) от 05.06.2017
 
 Деньги (2016) SATRip [H.264] (серии 1-2 из 2)
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656487.jpg" />
+  <img src="Z:/picture/008/save_picture_656487.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656322.jpg" />
+  <img src="Z:/picture/008/save_picture_656322.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656309.jpg" />
+  <img src="Z:/picture/008/save_picture_656309.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656286.jpg" />
+  <img src="Z:/picture/008/save_picture_656286.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656222.jpg" />
+  <img src="Z:/picture/008/save_picture_656222.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656171.jpg" />
+  <img src="Z:/picture/008/save_picture_656171.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655479.jpg" />
+  <img src="Z:/picture/008/save_picture_655479.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655191.jpg" />
+  <img src="Z:/picture/008/save_picture_655191.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654405.jpg" />
+  <img src="Z:/picture/008/save_picture_654405.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654062.jpg" />
+  <img src="Z:/picture/008/save_picture_654062.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654051.jpg" />
+  <img src="Z:/picture/008/save_picture_654051.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653370.jpg" />
+  <img src="Z:/picture/008/save_picture_653370.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652746.jpg" />
+  <img src="Z:/picture/008/save_picture_652746.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652026.jpg" />
+  <img src="Z:/picture/008/save_picture_652026.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651777.jpg" />
+  <img src="Z:/picture/008/save_picture_651777.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651586.jpg" />
+  <img src="Z:/picture/008/save_picture_651586.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650903.jpg" />
+  <img src="Z:/picture/008/save_picture_650903.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650898.jpg" />
+  <img src="Z:/picture/008/save_picture_650898.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650645.jpg" />
+  <img src="Z:/picture/008/save_picture_650645.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650275.jpg" />
+  <img src="Z:/picture/008/save_picture_650275.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649286.jpg" />
+  <img src="Z:/picture/008/save_picture_649286.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649136.jpg" />
+  <img src="Z:/picture/005/save_picture_649136.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649055.jpg" />
+  <img src="Z:/picture/008/save_picture_649055.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647082.jpg" />
+  <img src="Z:/picture/008/save_picture_647082.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646553.jpg" />
+  <img src="Z:/picture/008/save_picture_646553.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CB357C8BE275AA48F5AB84628F36020351E3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292428   (646546) от 29.03.2019
-
-Т-34 (2018) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена величайших испытаний человечества, когда от каждого действия зависят жизни любимых, два заклятых врага начнут свое противостояние.
-Оказавшись в плену, вчерашний курсант Ивушкин планирует дерзкий побег. Он собирает свой экипаж и на легендарной «тридцатьчетверке» бросает вызов немецким танковым асам во главе с Ягером. Ради своей любви и Родины он готов идти (   Читать дальше...   )Производство: Россия / Марс Медиа, Амедиа ПродакшнЖанр: Драма, военный, приключенияРежиссер: Алексей СидоровАктеры: Александр Петров (II), Виктор Добронравов, Ирина Старшенбаум, Винценц Кифер, Петр Скворцов, Семён Трескунов, Артём Быстров, Антон Богданов, Василий Уриевский, Василий БуткевичПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 02:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00AC974949C7E96DC44B5D898A559F359C6AD1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

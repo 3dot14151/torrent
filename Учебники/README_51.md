@@ -1,3 +1,55 @@
+###  Публикация: 1151044   (575939) от 17.07.2017
+
+В.П. Шувалов (ред.) | Телекоммуникационные системы и сети [3 тома] (2012-2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последние годы наметился переход от разнородных телекоммуникационных сетей, каждая из которых была предназначена для оказания узкого круга услуг к сетям следующего поколения (Next Generation Network, NGN) или, так называемым, мультисервисным сетям. В таких сетях предоставляются услуги по передаче голоса, данных и видео, в них осуществлена конвергенция мобильных (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2144D48060A430F1C412009FBC93A9F506E44288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151069   (575797) от 17.07.2017
+
+В.П. Боровиков | Популярное введение в современный анализ данных в системе Statistica (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга открывает широкому кругу читателей современный анализ данных в программе Statistica. Statistica (производитель StatSoft, USA) занимает лидирующее положение среди программ анализа данных и имеет сотни тысяч зарегистрированных пользователей в России и мире. На простых, ясных примерах популярно описаны современные методы анализа данных – визуальный анализ и графическое (   Читать дальше...   )Жанр: Прикладная математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2552A84D2FF96921188A48BE95A589F48E83FD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302977   (575650) от 19.05.2019
 
 Г.В. Пранцова , Е.С. Романичева | Современные стратегии чтения. Теория и практика. Смысловое чтение и работа с текстом (2015) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575650.jpg" />
+  <img src="Z:/picture/008/save_picture_575650.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574203.jpg" />
+  <img src="Z:/picture/008/save_picture_574203.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574199.jpg" />
+  <img src="Z:/picture/008/save_picture_574199.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573939.jpg" />
+  <img src="Z:/picture/008/save_picture_573939.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573756.jpg" />
+  <img src="Z:/picture/008/save_picture_573756.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572535.jpg" />
+  <img src="Z:/picture/008/save_picture_572535.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572420.jpg" />
+  <img src="Z:/picture/008/save_picture_572420.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572380.jpg" />
+  <img src="Z:/picture/008/save_picture_572380.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572222.jpg" />
+  <img src="Z:/picture/008/save_picture_572222.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571971.jpg" />
+  <img src="Z:/picture/008/save_picture_571971.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571742.jpg" />
+  <img src="Z:/picture/008/save_picture_571742.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570756.jpg" />
+  <img src="Z:/picture/008/save_picture_570756.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570527.jpg" />
+  <img src="Z:/picture/008/save_picture_570527.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570508.jpg" />
+  <img src="Z:/picture/008/save_picture_570508.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568658.jpg" />
+  <img src="Z:/picture/008/save_picture_568658.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568646.jpg" />
+  <img src="Z:/picture/008/save_picture_568646.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568497.jpg" />
+  <img src="Z:/picture/008/save_picture_568497.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566725.jpg" />
+  <img src="Z:/picture/008/save_picture_566725.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563575.jpg" />
+  <img src="Z:/picture/008/save_picture_563575.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563554.jpg" />
+  <img src="Z:/picture/008/save_picture_563554.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563448.jpg" />
+  <img src="Z:/picture/008/save_picture_563448.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563135.jpg" />
+  <img src="Z:/picture/008/save_picture_563135.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562689.jpg" />
+  <img src="Z:/picture/008/save_picture_562689.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562617.jpg" />
+  <img src="Z:/picture/008/save_picture_562617.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871E6295A278725D0CF40F9DA363E2168CAB9C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923659   (562574) от 01.08.2015
-
-А.В. Аттетков и др. | Введение в методы оптимизации (2008) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освещается одно из важнейших направлений математики - теория оптимизации. Рассмотрены теоретические, вычислительные и прикладные аспекты методов конечномерной оптимизации. Описаны алгоритмы численного решения задач безусловной минимизации функций одного и нескольких переменных, изложены методы условной оптимизации.
- Описаны алгоритмы численного решения задач безусловной (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88F90B65DDE6761BD7147EB8FEF0EB1E459D523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923696   (562567) от 01.08.2015
-
-С.М. Горбатюк (ред.) | Детали машин и основы конструирования (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562567.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике представлены основные теоретические и практические вопросы курса «Детали машин и основы конструирования»: критерии работоспособности деталей машин, машиностроительные материалы и их свойства с точки зрения эксплуатации деталей машин, разъемные и неразъемные соединения деталей машин, механические передачи, валы и опоры, муфты, смазывающие устройства, основы (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3280F5F7DEB59A60B471E6DD1C9BAFADD849C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

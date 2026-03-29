@@ -1,3 +1,57 @@
+###  Публикация: 1619284   (201243) от 15.03.2023
+
+К.Н. Лунгу | Линейное программирование: Руководство к решению задач 2-е изд. испр. и доп. (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии отражен многолетний опыт чтения лекций и проведения практических занятий по линейному программированию. Особое внимание уделено симплексному методу и его реализации наиболее экономным способом при помощи таблиц Гаусса, а также методу наименьших тарифов, обеспечивающему быстрое получение оптимального плана для транспортной задачи.
+Для студентов всех форм (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CC0B272D031913CF19B060A44CA31AF8D907FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619110   (201231) от 17.03.2023
+
+Н.М. Изюмов | Курс радиотехники (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя в книге даётся в большинстве ламповая схемотехника, но даже прочитав часть этого труда, любой старшеклассник, студент любой специальности, просто любознательный не только научится разбираться в радиоволнах, но и освоит основы радиотехники, антенн и многого другого.
+Книга предназначена для будущих техников-связистов, готовящихся к эксплуатации средств радиосвязи. (   Читать дальше...   )Жанр: Учебная,РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0D5F31E5D3BC625004D2E13C33DAD2305C2D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619754   (201228) от 17.03.2023
 
 И.Л. Акулич | Математическое программирование в примерах и задачах 4-е изд. (2022) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201228.jpg" />
+  <img src="Z:/picture/005/save_picture_201228.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201227.jpg" />
+  <img src="Z:/picture/005/save_picture_201227.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201129.jpg" />
+  <img src="Z:/picture/005/save_picture_201129.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201120.jpg" />
+  <img src="Z:/picture/005/save_picture_201120.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201100.jpg" />
+  <img src="Z:/picture/005/save_picture_201100.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200870.jpg" />
+  <img src="Z:/picture/005/save_picture_200870.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200642.jpg" />
+  <img src="Z:/picture/005/save_picture_200642.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200601.jpg" />
+  <img src="Z:/picture/005/save_picture_200601.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200504.jpg" />
+  <img src="Z:/picture/005/save_picture_200504.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200386.jpg" />
+  <img src="Z:/picture/005/save_picture_200386.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200315.jpg" />
+  <img src="Z:/picture/005/save_picture_200315.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200310.jpg" />
+  <img src="Z:/picture/005/save_picture_200310.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200301.jpg" />
+  <img src="Z:/picture/005/save_picture_200301.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200293.jpg" />
+  <img src="Z:/picture/005/save_picture_200293.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200185.jpg" />
+  <img src="Z:/picture/005/save_picture_200185.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200151.jpg" />
+  <img src="Z:/picture/005/save_picture_200151.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200132.jpg" />
+  <img src="Z:/picture/005/save_picture_200132.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200095.jpg" />
+  <img src="Z:/picture/005/save_picture_200095.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_200015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200015.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199848.jpg" />
+  <img src="Z:/picture/005/save_picture_199848.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199818.jpg" />
+  <img src="Z:/picture/005/save_picture_199818.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199708.jpg" />
+  <img src="Z:/picture/005/save_picture_199708.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199610.jpg" />
+  <img src="Z:/picture/005/save_picture_199610.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199575.jpg" />
+  <img src="Z:/picture/005/save_picture_199575.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6095AFFC8C8FBF7E08C278E1D65C19CAF46586E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627416   (199563) от 19.04.2023
-
-Г.П. Кутищев | Решение алгебраических уравнений произвольной степени: Теория, методы, алгоритмы (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге изложены с единых позиций практически все вопросы, относящиеся к теории алгебраических уравнений и способам их аналитического и численного решения. Основное внимание уделяется алгоритмичности представления получаемых выражений, с тем чтобы можно было на практике выполнять необходимые расчеты. Для этого предлагается некий языковый инструмент с (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1D3D686CAA1FFFD2BAFF4F93412F7ED6DF3674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628011   (199558) от 21.04.2023
-
-К.Д. Алипрантис, С.К. Чакрабарти | Игры и принятие решений (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан с целью представить сложные концепции современной теории решений для читателя, знакомого лишь с элементарным дифференциальным исчислением и элементарной теорией вероятности. Это автономная трактовка практически всего, что может быть названо теорией решений, — от классической теории оптимизации до современной теории игр. Книга содержит множество приложений (   Читать дальше...   )Жанр: Экономика, математикаПеревод: С.В. БусыгинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA79013038A1CB93D7783C05339C8D5D02F9A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

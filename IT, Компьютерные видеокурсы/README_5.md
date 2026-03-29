@@ -1,3 +1,142 @@
+###  Публикация: 1440666   (1038387) от 18.01.2021
+
+Udemy, Леонид Тишкевич | Java курс c нуля и до первой работы. Полный стек технологий (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все необходимые навыки и технологии для работы Java разработчиком собраны в одном курсе. Много практики и теории. В данном курсе будут разобраны все технологии, необходимые для серверной разработки на Java, такие как Spring Framework, Spring Boot, Spring Data, Spring Cloud, Hibernate, протоколы REST & HTTP, базы данных, SQL, Docker и другие. Так же напишем несколько (   Читать дальше...   )Производство: JavaStartЖанр: ПрограммированиеПродолжительность: 32:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF6F660936E62C1F4EE4A17FBD43341683A5D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440919   (1038203) от 19.01.2021
+
+Udemy, Ziyad Yehia | The Python Bible™ | Everything You Need to Program in Python (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библия Python - идеальный курс Python для начинающих. Даже если у вас нет опыта программирования, не волнуйтесь, потому что это для таких же людей, как вы.
+Фактически, почти 100 000 начинающих Python из более чем 195 стран использовали Библию Python, чтобы изучить основы языка программирования Python в увлекательной и практичной форме.
+Библия Python помещает всю (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74854D7A489DA357C6BD191930B21CB57BB520AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440929   (1038175) от 19.01.2021
+
+Udemy, Jose Salvatierra | Web Developer Bootcamp with Flask and Python  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на семинар для веб-разработчиков с Flask и Python! В этом курсе вы узнаете, как создавать и развертывать динамические веб-сайты с помощью Python, Flask, MongoDB, HTML и CSS!
+Если вы хотите поделиться своими проектами в Интернете и стать полноценным веб-разработчиком, вы попали в нужное место! Я научу вас новейшим и самым популярным технологиям, включая (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 27:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC965D6D52C06367607240F9056D219355B13CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440913   (1038137) от 19.01.2021
+
+Udemy, Anton Golosnichenko | Python для начинающих на практике - парсинг вакансий [2021] (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038137.jpg" />
+</div>
+
+
+###  Подробнее
+
+После прохождения этого курса вы познакомитесь с основами Python и:
+Узнаете как можно парсить вакансии с сайтов по поиску работы (хедхантер и stackoverflow)
+Сделаете сервер на Flask. После парсинга вакансий, мы будем выводить их на веб-странице и позволим пользователям скачать их в CSV-файле
+Что мы изучим:(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3438C5AFC8E61521F93078B2E46A63053A79F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440909   (1038136) от 19.01.2021
+
+Learn Python, Михаил Корнеев | Курс программирования на Python 3.6 (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы никогда не программировали или делали это только в школе.
+Вы хотите автоматизировать свою работу в управлении проектами, тестировании, маркетинге, SEO, системном администрировании и т.д.
+Вы уже учили основы Python до этого, но где-то «застряли».
+Вы хотите сменить работу или попасть в ИТ.(   Читать дальше...   )Производство: Learn PythonЖанр: ПрограммированиеПродолжительность: 56:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF35A2DA840D51C225138ABEDC1B1BB0D3A1BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615180   (1038069) от 24.02.2023
 
 Udemy, Apaar Kamal, Prateek Narang | Dynamic Programming Algorithms Master Course (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +145,7 @@ Udemy, Apaar Kamal, Prateek Narang | Dynamic Programming Algorithms Master Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038069.jpg" />
 </div>
 
 
@@ -32,7 +171,7 @@ Udemy, Lucas Bazilio | The Complete Haskell Course: From Zero to Expert! (2023) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038043.jpg" />
 </div>
 
 
@@ -58,7 +197,7 @@ Udemy, Ali Alaa | Svelte & SvelteKit: The Complete Guide (2022) WEB-DL [EN / EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038037.jpg" />
 </div>
 
 
@@ -84,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037968.jpg" />
 </div>
 
 
@@ -113,7 +252,7 @@ Udemy, Nikita Putintsev | Создание 3D игр на Unity. Shooter (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037965.jpg" />
 </div>
 
 
@@ -139,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037961.jpg" />
 </div>
 
 
@@ -165,7 +304,7 @@ Stepik, Сергей Балакирев | Добрый, добрый Python ОО
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037954.jpg" />
 </div>
 
 
@@ -191,7 +330,7 @@ Slurm (Слёрм), Linkmeup, Алексей Учакин и др. | Сети д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037953.jpg" />
 </div>
 
 
@@ -219,7 +358,7 @@ Udemy, Dzianis Matveyenka | HTTP. Servlets  (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037952.jpg" />
 </div>
 
 
@@ -245,7 +384,7 @@ Udemy, Диас Муратбаев | Изучаем Python 3.10 с основ, �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037696.jpg" />
 </div>
 
 
@@ -271,7 +410,7 @@ Udemy, Sergei Semenov | Автоматизация API: REST Assured + Java, п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037692.jpg" />
 </div>
 
 
@@ -297,7 +436,7 @@ Udemy, Jose Portilla | The Complete SQL Bootcamp 2021: Go from Zero to Hero (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037656.jpg" />
 </div>
 
 
@@ -325,7 +464,7 @@ Usegolang, Jonathan Calhoun | Web Development with Go (2022-2023) WEB-DL [EN] [�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037417.jpg" />
 </div>
 
 
@@ -351,7 +490,7 @@ Udemy, Imtiaz Ahmad | The Complete Oracle SQL Certification Course (2020) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037102.jpg" />
 </div>
 
 
@@ -377,7 +516,7 @@ ihatetomatoes, Petr Tichy | GreenSock - Bella (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037100.jpg" />
 </div>
 
 
@@ -406,7 +545,7 @@ Udemy, Lazy Programmer Inc. | Deep Learning Prerequisites: The Numpy Stack in Py
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037099.jpg" />
 </div>
 
 
@@ -433,7 +572,7 @@ Udemy, Frank Kane | Taming Big Data with Apache Spark and Python - Hands On! (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037094.jpg" />
 </div>
 
 
@@ -460,7 +599,7 @@ Udemy, Kirill Eremenko | Python A-Z™: Python For Data Science With Real Exerci
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037083.jpg" />
 </div>
 
 
@@ -489,7 +628,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C# Mastery Series (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037081.jpg" />
 </div>
 
 
@@ -517,7 +656,7 @@ Udemy, Роман Сакутин | Создание игры 2D Minecraft на C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037044.jpg" />
 </div>
 
 
@@ -543,7 +682,7 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036831.jpg" />
 </div>
 
 
@@ -557,143 +696,6 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F23402367EF9C536AA776E1F8DA2CFFD38FC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442059   (1036795) от 24.01.2021
-
-Udemy, Code Star Academy и др. | The Complete Oracle SQL Bootcamp (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте востребованным специалистом по SQL и с уверенностью сдайте сертификационный экзамен по Oracle SQL 1Z0-071 (OCA)!
-В этом курсе все предметы объясняются в профессиональном порядке.
-Если вы новичок в SQL, нет проблем! Вы можете легко изучить все детали SQL. Если вы уже знаете SQL и хотите улучшить его, этот курс объясняет все детали, включая все предметы.
-Пройдя (   Читать дальше...   )Производство: UdemyЖанр: Программирование, базы данныхЯзык озвучки: АнглйискийПродолжительность: 22:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837177275AD9E2E78FE6C2366221FCF42AB5B918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442165   (1036792) от 24.01.2021
-
-Udemy, Kazi Ariyan | Django 3 - Python Backend Web Development For Beginner (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс бэкэнд-разработки на Python и Django для начинающих! В этом курсе мы рассмотрим все, что вам нужно знать для создания веб-сайта с использованием Python, Django и многих других веб-технологий!
-Если вы хотите изменить карьерный путь, расширить свой текущий набор навыков, начать свой собственный предпринимательский бизнес, стать консультантом (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 40:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C062E81173825B4DB45028B0EACC49FB3D4B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442092   (1036776) от 24.01.2021
-
-Udemy, Олег Новиков | Сайт на Django 3.1 Реализация ТЗ на позицию Junior Developer  (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаг за шагом,  Вы пройдете весь процесс по написанию сайта. Вы узнаете, каким образом  Django работает внутри,  как использовать внутреннюю структуру Django для создания сайта и многое другое. А после того, как приложение уже будет готово, Вы узнаете, как его можно разместить в интернете так, чтобы оно было доступно для всех.
-Основная целевая аудитория курса - студенты, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 17:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3366B11347C19D97F139FBB9CE74316FA0D675F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442156   (1036761) от 24.01.2021
-
-Udemy, Эдуард Козлов | Изучаем PHP с нуля (базовый курс) (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс вобрал в себя исключительно практические вопросы разработки, ничего лишнего - только то, что действительно часто используется в PHP (а остальное вы легко найдете в мануалах).
-Курс проведен в оффлайн формате в несколько потоков, программа откатана и проверена. После прохождения курса лучшие студенты прошли стажировку в BrainForce и начали продуктивно работать (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 20:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC1A86C520248E01F9F5B1E815C0F4CC9779C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442368   (1036498) от 25.01.2021
-
-Udemy, Maximilian Schwarzmüller и др. | CSS - The Complete Guide 2021 (incl. Flexbox, Grid & Sass)  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036498.jpg" />
-</div>
-
-
-###  Подробнее
-
-CSS - сокращение от Cascading Style Sheets - это «язык программирования», который вы используете для превращения необработанных HTML-страниц в настоящие красивые веб-сайты.
-Этот курс охватывает все - мы начинаем с самых основ (что такое CSS? Как он работает? Как вы его используете)? и постепенно погружаюсь все глубже и глубже. И мы делаем это, показывая как практические (   Читать дальше...   )Производство: UdemyЖанр: Программирование, вёрсткаЯзык озвучки: АнглйискийПродолжительность: 20:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD79995715FC3F4DBE36EE82F0999D57A3D1268
 ```
 
 https://mybot314.ru/tekegram_catalog/

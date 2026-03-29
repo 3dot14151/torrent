@@ -1,3 +1,206 @@
+###  Публикация: 1500788   (841396) от 06.10.2021
+
+Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prime of Your Life (3:37)
+ 02. Xphanie (3:08)
+ 03. I Still Care (3:41)
+ 04. Staccato (5:24)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A4C183BC3069881EFED69A00EF85A217DD817F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500803   (841293) от 06.10.2021
+
+Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave, Synthpop, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (feat. Voyou) (1:54)
+ 02. Ilya (2:26)
+ 03. A Phone Call (feat. David Numwami) (2:42)
+ 04. Can't Get You (feat. Ménage à trois) (2:48)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Chillwave, Synthpop, DowntempoПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F461E9091CF5BFDA1D5B7A769F982553190F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003703   (841276) от 04.04.2016
+
+F. R. David - серия "Золотые хиты дискотек" (Golden Disco Hits) (2001) compilation [FLAC|Lossless|image + .cue] <pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Words  3:31
+02.  Pick up the phone  3:15
+03.  Givin it up  3:19
+04.  Don`t go  4:35(   Читать дальше...   )Жанр: popПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C44AE945FF43D1A9974713F3839E41BD076CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379153   (841213) от 28.04.2020
+
+William Hennessey - De pire en pire (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naissance (01:41)
+02. Fous (02:52)
+03. De pire en pire (feat. Mohammed Baazi) (04:20)
+04. Damy (04:31)(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAE708C0662789221A0E2CA1C9D023B8A2DC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379169   (841102) от 28.04.2020
+
+Hayley Williams - Petals for Armor (2020) Scene [FLAC|Lossless|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simmer (04:26)
+02. Leave It Alone (04:05)
+03. Cinnamon (03:32)
+04. Creepin' (02:58)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE116DE6E79542202499FB9F0989B046EF6974E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112557   (839883) от 10.03.2017
+
+Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Mexican Joe
+2. Bimbo
+3. Then I'll Stop Loving You(   Читать дальше...   )Жанр: Country, PopПродолжительность: 02:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05669D11B6B51782C31265EFD951EDC600204EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113554   (838627) от 11.03.2017
+
+Yvonne Catterfeld - Guten Morgen Freiheit (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guten Morgen Freiheit (3:24)
+02. Irgendwas (feat. Bengio) (3:34)
+03. Was bleibt (2:43)
+04. Besser werden (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BB00FD8924798A40CC9159EB2DCCDF04C1D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004150   (838067) от 06.04.2016
 
 Alexandra Stan - Alesta (2016) Japanese Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dancepop>
@@ -6,7 +209,7 @@ Alexandra Stan - Alesta (2016) Japanese Deluxe Edition [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838067.jpg" />
+  <img src="Z:/picture/008/save_picture_838067.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Everything Everything - In Birdsong (2020) Single [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836529.jpg" />
+  <img src="Z:/picture/008/save_picture_836529.jpg" />
 </div>
 
 
@@ -62,7 +265,7 @@ VA - Party Dance Mix Vol.2 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835062.jpg" />
+  <img src="Z:/picture/008/save_picture_835062.jpg" />
 </div>
 
 
@@ -91,7 +294,7 @@ VA - The Party Dance Mix Vol.1 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835055.jpg" />
+  <img src="Z:/picture/008/save_picture_835055.jpg" />
 </div>
 
 
@@ -120,7 +323,7 @@ VA - The Party Dance Mix Vol.3 (1991) [FLAC|Lossless|image + .cue] <Rock & Roll,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835053.jpg" />
+  <img src="Z:/picture/009/save_picture_835053.jpg" />
 </div>
 
 
@@ -149,7 +352,7 @@ VA - BRAVO Hits 115 (2021) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Danc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835038.jpg" />
+  <img src="Z:/picture/008/save_picture_835038.jpg" />
 </div>
 
 
@@ -178,7 +381,7 @@ Sabrina Carpenter - Eyes Wide Open (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834369.jpg" />
+  <img src="Z:/picture/008/save_picture_834369.jpg" />
 </div>
 
 
@@ -207,7 +410,7 @@ M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834161.jpg" />
+  <img src="Z:/picture/008/save_picture_834161.jpg" />
 </div>
 
 
@@ -236,7 +439,7 @@ VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833546.jpg" />
 </div>
 
 
@@ -265,7 +468,7 @@ VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833543.jpg" />
 </div>
 
 
@@ -294,7 +497,7 @@ Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832156.jpg" />
 </div>
 
 
@@ -323,7 +526,7 @@ VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831980.jpg" />
 </div>
 
 
@@ -352,7 +555,7 @@ Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831666.jpg" />
 </div>
 
 
@@ -381,7 +584,7 @@ VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831451.jpg" />
 </div>
 
 
@@ -410,7 +613,7 @@ VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831360.jpg" />
 </div>
 
 
@@ -439,7 +642,7 @@ Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Fun
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830999.jpg" />
 </div>
 
 
@@ -465,7 +668,7 @@ All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830808.jpg" />
 </div>
 
 
@@ -494,7 +697,7 @@ Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French H
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830215.jpg" />
 </div>
 
 
@@ -523,7 +726,7 @@ Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829843.jpg" />
 </div>
 
 
@@ -536,209 +739,6 @@ Sweet Lollipop Band - 37 US-Hit-Cocktails (1998) [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67DD20058D1C6E5507C32CF46C3D839AEF3D916F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381187   (829753) от 05.05.2020
-
-VA - Party Hits (Unknown) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Montez - Lets Dance (2:08)
-02. Mungo Jerry - In the Summertime (3:28)
-03. Safaris - Wipe Out (2:16)
-04. Rubettes - I Can Do It (3:14)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CEBFA9805DDE543556672D021B7E84E8B58577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114835   (829704) от 16.03.2017
-
-Supermax -  Fly With Me (1979) Remastered, 2005, CD-Maximum [FLAC|Lossless|image + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. African Bood
-02. Fly With Me
-03. It Ain't Easy
-04. Ain't Gonna Feel(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13810043CC0B4A9C8AB816016ABA9E0F21005B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381200   (829668) от 05.05.2020
-
-VA - Mega Dance Mix - 1 (Unknown) [FLAC|Lossless|image + .cue] <Medley, Cover, Italo-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829668.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 -	Party Time/Salsa Mix	10:06
-1.1	Piano Groove
-1.2	Ritmo De La Noche
-1.3	Everybody Salsa(   Читать дальше...   )Жанр: Medley, Cover, Italo-DiscoПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F9B61CD4B3B88377D28001D699F67103EBA8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773336   (829011) от 06.04.2014
-
-VA - Pure... america (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, R&B, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ответ на американские санкции публикую очередной сборник американских песен, изданных Sony Music в 2011 году. Интересно, что на ebay его жанр определили как Country, а уж на AllMusic разошлись - здесь целый букет: Adult Contemporary, Adult Contemporary R&B, AM Pop, Contemporary Pop/Rock, Country-Pop. Так что выбирайте, что вам хочется послушать больше из списка.01. Boston - More Than A Feeling  (3:31)
-02. The Calling - Wherever You Will Go  (3:29)
-03. Train - Drops Of Jupiter (Tell Me)  (4:21)
-04. Phantom Planet - California  (3:15)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 04:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F94E4500D658EDE8A005721C44C872A93FEE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774651   (827145) от 07.04.2014
-
-VA - 100 Hits: 70s (2007) [FLAC|Lossless]<Top 40, Pop, Rock, Disco, Funk & Soul, New Wave, Glam>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carly Simon - You're So Vain (1972) - 4:20
-02. Alvin Stardust - My Coo Ca Choo (1973) - 2:47
-03. Guys & Dolls - There's A Whole Lot Of Loving (1974) - 3:15
-04. Michael Nesmith - Rio (1976) - 4:31(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Classic Rock, Pop Rock, Disco, Funk &Soul, Folk, World, & Country, Folk Rock, Prog Rock, Punk, New Wave, Glam, Doo-wop, RockabillyПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEA1FDE1129EF77C5695E41C7652731ECEC0478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007037   (825482) от 13.04.2016
-
-Camp Claude - Swimming Lessons (2016) [FLAC|Lossless|tracks] <Indie Pop, Electro-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricanes 04:03
-02. Don't Hold Back 03:12
-03. In the Middle 03:36
-04. Golden Prize 03:06(   Читать дальше...   )Жанр: Indie Pop, Electro-popПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B640546D045CEAA0651BEE02ACE692D8F83A246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006775   (825180) от 13.04.2016
-
-Fleur East - Love, Sax & Flashbacks (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Funk & Soul, R&B, Dancepop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sax (3:56)
-02. Breakfast (3:24)
-03. More And More (3:55)
-04. Gold Watch (3:32)(   Читать дальше...   )Жанр: Pop, Funk & Soul, R&B, DancepopПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0C6607913384E0F4422419ED8129E3068CBA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

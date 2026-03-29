@@ -1,3 +1,86 @@
+###  Публикация: 929198   (518101) от 20.08.2015
+
+Крис Пэйли | Не бери в голову. 100 фактов о том, как подсознание влияет на наши решения (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первая популярная книга о подсознании на русском языке. В ней в очень увлекательной манере описана тема сознательного и бессознательного и даны противоречащие интуиции выводы. Книга поможет вам лучше понять себя, других людей и то, как подсознание влияет на большинство принимаемых нами решений.
+
+На русском языке публикуется впервые.Жанр: Психология, Практическая психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F806AE9AEA46F7E3DB1F2FF44217B91BB5784D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929887   (517342) от 21.08.2015
+
+Надежда Командина | Кто куда, а я вперед! Стратегия успеха в бизнесе и в жизни (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517342.jpg" />
+</div>
+
+
+###  Подробнее
+
+В багаже Надежды Командиной высшее строительное образование (МГСУ), МВА по управлению, факультет журналистики МГУ, стажировки в Англии и США, более 16 лет в строительном бизнесе. Сейчас она управляющий крупных строительных проектов.
+
+В книгу вошли материалы и идеи всемирно признанных гениев (Кови, Менегетти, Карнеги, Дилтс, Маслоу, Якокка и др.), полезные мысли и (   Читать дальше...   )Жанр: Самосовершенствование, Личностный ростФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2CF89DE2964D0D99268E12863CAB5EA2BA64B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929873   (517297) от 21.08.2015
+
+Джон Готтман, Нэн Сильвер | Как сохранить любовь в браке (2014) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга написана для тех, кто только собирается вступить в брак, и для тех, кто живет со своим супругом не одно десятилетие. В этой мудрой и долгожданной книге знаменитый психолог и семейный консультант Джон Готтман открывает тайны любви: Откуда возникает любовь? Почему некоторые продолжают любить, когда отношений уже нет? И куда исчезает любовь?
+Готтман потратил (   Читать дальше...   )Жанр: Секс и семейная психология, Зарубежная психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0B3B0F12BA8CD2E5B77183CA9538083D24D1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930047   (516203) от 22.08.2015
 
 Татьяна Болотова | Хватит ныть! Действуй! (2014) [FB2, RTF]
@@ -6,7 +89,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516203.jpg" />
+  <img src="Z:/picture/008/save_picture_516203.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516149.jpg" />
+  <img src="Z:/picture/008/save_picture_516149.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516087.jpg" />
+  <img src="Z:/picture/008/save_picture_516087.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515994.jpg" />
+  <img src="Z:/picture/008/save_picture_515994.jpg" />
 </div>
 
 
@@ -115,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515975.jpg" />
+  <img src="Z:/picture/008/save_picture_515975.jpg" />
 </div>
 
 
@@ -141,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515908.jpg" />
+  <img src="Z:/picture/008/save_picture_515908.jpg" />
 </div>
 
 
@@ -170,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515823.jpg" />
+  <img src="Z:/picture/008/save_picture_515823.jpg" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514913.jpg" />
+  <img src="Z:/picture/008/save_picture_514913.jpg" />
 </div>
 
 
@@ -224,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514514.jpg" />
+  <img src="Z:/picture/008/save_picture_514514.jpg" />
 </div>
 
 
@@ -250,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513877.jpg" />
+  <img src="Z:/picture/008/save_picture_513877.jpg" />
 </div>
 
 
@@ -277,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513845.jpg" />
+  <img src="Z:/picture/008/save_picture_513845.jpg" />
 </div>
 
 
@@ -304,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513777.jpg" />
+  <img src="Z:/picture/008/save_picture_513777.jpg" />
 </div>
 
 
@@ -331,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513767.jpg" />
+  <img src="Z:/picture/008/save_picture_513767.jpg" />
 </div>
 
 
@@ -357,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513705.jpg" />
+  <img src="Z:/picture/008/save_picture_513705.jpg" />
 </div>
 
 
@@ -384,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513659.jpg" />
+  <img src="Z:/picture/008/save_picture_513659.jpg" />
 </div>
 
 
@@ -412,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513652.jpg" />
+  <img src="Z:/picture/008/save_picture_513652.jpg" />
 </div>
 
 
@@ -439,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513651.jpg" />
+  <img src="Z:/picture/008/save_picture_513651.jpg" />
 </div>
 
 
@@ -465,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512748.jpg" />
+  <img src="Z:/picture/008/save_picture_512748.jpg" />
 </div>
 
 
@@ -493,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512732.jpg" />
+  <img src="Z:/picture/008/save_picture_512732.jpg" />
 </div>
 
 
@@ -521,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512653.jpg" />
+  <img src="Z:/picture/008/save_picture_512653.jpg" />
 </div>
 
 
@@ -550,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511837.jpg" />
+  <img src="Z:/picture/008/save_picture_511837.jpg" />
 </div>
 
 
@@ -576,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510938.jpg" />
+  <img src="Z:/picture/008/save_picture_510938.jpg" />
 </div>
 
 
@@ -604,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510771.jpg" />
+  <img src="Z:/picture/008/save_picture_510771.jpg" />
 </div>
 
 
@@ -616,87 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EEE445F2FF37D72E83FE4514FF9C8D49F4999C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931745   (510766) от 27.08.2015
-
-Джон Шоул | Только вперед! Пошаговое руководство по достижению успеха (2014) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от своей работы? Надоело топтаться на месте и быть посредственностью? Если вы ответили «да» хотя бы на один из этих вопросов, пришло время взять свою жизнь под контроль и искупаться в море возможностей. Пришло время нырнуть в успех!
-Ничего не изменится в вашей жизни, в окружении, пока вы не предпримете меры. Но важно то, что вы уже взяли в руки эту книгу (   Читать дальше...   )Жанр: личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2EDD8198AB283BAF22506616745B120CC2878B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931942   (510707) от 27.08.2015
-
-Виталий Климчук | Практическая психология, или Как подобрать ключик к любому человеку. 1000 подсказок на все случаи жизни (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как работать в удовольствие и достигать успеха без стресса, преодолевать кризисы в отношениях и находить общий язык с детьми, общаться без боязни и добиваться желаемого, распознавать психологические ловушки и устанавливать свои правила, справляться с фобиями и тревогами и помогать близким людям? Ответы вы найдете на страницах этой книги. Простые и понятные рекомендации (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC39E062679347AC66DA85629D14CBF74F7410E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931737   (509988) от 28.08.2015
-
-Алла Фолсом и др. | Королева мужского царства (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая девочка с самого детства видит себя принцессой или королевой роскошного замка в окружении галантных кавалеров и рыцарей.
-Однако детство проходит, а замки так и не появляются. Кавалеры год от года становятся все менее галантными, а уж о рыцарстве и мечтать не приходится. Мечты разбиваются о суровую реальность.
-Алла Фолсом в своей книге дает пошаговую инструкцию, (   Читать дальше...   )Жанр: личностный рост, практическая психологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6B00FD27B8B5F58FA8E7E3EC510325ECFE4DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

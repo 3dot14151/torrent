@@ -1,3 +1,30 @@
+###  Публикация: 1136096   (677151) от 21.05.2017
+
+Duplicate Photos Detective 1.0.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_677151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Детектив помогает быстро найти дубликаты  изображений
+ Duplicate Photos Detective - превосходный инструмент, который помогает пользователям находить дубликаты фотографий и удалять их с Mac. Это приложение упрощает процесс идентификации и удаления повторяющихся фотографий. У Duplicate Photos Detective есть привлекательный интерфейс, который достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988B226BE7B11BAAF0A3DB30F2AFE34E460062CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536586   (675014) от 12.03.2022
 
 Capture One 22 Enterprise v15.2.0.69 Beta [Multi/Ru]
@@ -6,7 +33,7 @@ Capture One 22 Enterprise v15.2.0.69 Beta [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675014.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ HDR projects 5 professional v5.52 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672862.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Adobe InDesign CC 2014 (10.0.0.70) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672737.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ TiltShift 1.0.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671059.jpg" />
+  <img src="Z:/picture/008/save_picture_671059.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Bokeh - Focus with Background Blur Photo Effects 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670078.jpg" />
+  <img src="Z:/picture/008/save_picture_670078.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Glyphs 2.0.1 (727) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669199.jpg" />
+  <img src="Z:/picture/008/save_picture_669199.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Photo Batch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667870.jpg" />
+  <img src="Z:/picture/008/save_picture_667870.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Circular Studio 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667818.jpg" />
+  <img src="Z:/picture/008/save_picture_667818.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ MediaChance Dynamic Auto Painter PRO 5.21 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665833.jpg" />
+  <img src="Z:/picture/008/save_picture_665833.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ CorelDRAW Graphics Suite 2022 v24.0.0.301 (Incl. CorelDRAW Technical Suite 2022 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664051.jpg" />
+  <img src="Z:/picture/008/save_picture_664051.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ Colol 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663153.jpg" />
+  <img src="Z:/picture/008/save_picture_663153.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Movavi Picverse Photo Editor 7.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661183.jpg" />
+  <img src="Z:/picture/008/save_picture_661183.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ Sketch 50.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659546.jpg" />
+  <img src="Z:/picture/008/save_picture_659546.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ CollageIt 3 Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656178.jpg" />
+  <img src="Z:/picture/008/save_picture_656178.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ Video Copilot Element 3D 2.0.7.2008 (Motion Design Bundle) for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656163.jpg" />
+  <img src="Z:/picture/008/save_picture_656163.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Video Copilot - Heat Distortion 1.0.30 for Mac [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655110.jpg" />
+  <img src="Z:/picture/008/save_picture_655110.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Image2icon - Make your icon‪s‬ 2.17 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655009.jpg" />
+  <img src="Z:/picture/008/save_picture_655009.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Smart Shooter 4 v4.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654909.jpg" />
+  <img src="Z:/picture/008/save_picture_654909.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ JPEG Jackal PRO 2.0.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652640.jpg" />
+  <img src="Z:/picture/008/save_picture_652640.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Snapheal Pro 1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651006.jpg" />
+  <img src="Z:/picture/008/save_picture_651006.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ HDR Effect 1.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650755.jpg" />
+  <img src="Z:/picture/008/save_picture_650755.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ Adobe Animate CC 2015.2 (15.2.0.66) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645351.jpg" />
+  <img src="Z:/picture/008/save_picture_645351.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ Adobe Illustrator CC 2015.3 (20.0.0) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645151.jpg" />
+  <img src="Z:/picture/008/save_picture_645151.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ PitStop Pro 11 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642432.jpg" />
+  <img src="Z:/picture/005/save_picture_642432.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ VSCO Film 01-07 in LUTs (cube, 3dl) for AE, PP and FCPX [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640964.jpg" />
+  <img src="Z:/picture/008/save_picture_640964.jpg" />
 </div>
 
 
@@ -661,34 +688,6 @@ FCPX понадобится  загрузчик LUT  или LUT утилита. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56FAF0622D4169740DF9662913FF101BE971D083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893860   (639312) от 11.06.2015
-
-Tonality Pro 1.2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tonality — самый красивый способ лишить ваши фотографии цвета
-Tonality Pro поможет создать сногсшибательные и драматические черно-белые изображения. Tonality Pro - полноценный редактор монохромных изображений с больше чем 150 пресетами и  уникальными инструментами для творческих людей.
-Agfa, Kodak, Fuji и Ilford  обеспечивают старый взгляд на новые фотографии с помощью (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июня 2014Разработчик: Macphun SoftwareПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D28CE125A99E42DE303AC67E9591B7B28159985
 ```
 
 https://mybot314.ru/tekegram_catalog/

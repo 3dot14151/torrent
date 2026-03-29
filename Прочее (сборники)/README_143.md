@@ -1,3 +1,236 @@
+###  Публикация: 505057   (261040) от 03.06.2012
+
+VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 kbps]<Dance|Club|Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наташа Королева - Конфетти (Carnaval Version 2011)
+02. Анжелика Варум - Зимняя вишня (Ural Djs Ritm Version)
+03. Dj Нил & Андрей Аверин - Бабло побеждает зло (Radio Gansta House Rap Mix)
+04. A-Europa - Белые Небеса (Dj Nastasya Radio Mix)
+05. DJ Mikola vs. Руки Вверх - Крошка моя (DJ XM Remix)
+06. Натали - Черепашка (DJ Melnikoff Remix)
+07. DJ Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
+08. Балаган Лимитед - Че те надо (DJ Dron Remix)
+09. Ева Польна - Не расставаясь (Official Club Version)
+10. Света & DJ Jump - Город рая 2011 (Aleksey Kraft Remix)(   Читать дальше...   )2012Жанр: Dance|Club|DiscoПродолжительность: 06:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA299C1CE87E21A20050AEEC216D007033A09B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505073   (260808) от 03.06.2012
+
+VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Zivago - Tell By Your Eyes
+02. Robin - Flames Of Love
+03. Latin Rose - Everybody Is Gay
+04. Ken Laszlo - Tonight
+05. Den Harrow - Don't Break My Heart 2k
+06. Righeira - La Bionda - Vamos A La Playa
+07. Mikki - Meteor Man 2k - Rainbow
+08. Larabell - Up And Down
+09. Grooove - Black Is Black
+10. Alan Cook - Bad Dreams(   Читать дальше...   )2012Жанр: Dance|Pop|DiscoПродолжительность: 05:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505083   (260722) от 03.06.2012
+
+VA - MAXI. Горячее Лето в стиле Dance (2012) [MP3|320 kbps]<Dance|Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradisco ft. Giorgio - Kokoloko (Radio Edit)
+02. The Wanted - Satellite
+03. Ola - I'm In Love
+04. Kelly Clarkson - Dark Side (Varsity Team Radio Edit)
+05. B.o.B ft. Ryan Tedder - Never Let You Go
+06. Valdi ft. Catalin D & Drago - Summer Is Crazy (Radio Edit)
+07. Nick Kamarera ft. Alinka - Nada Mas (Pego Pego) (Club Radio Edit)
+08. MainstreaM One ft. Anya - Смейся, Плачь (Petroff Remix)
+09. King & White - Rock This Club (R.I.O. Radio Edit)
+10. KET-U - Не Надо(   Читать дальше...   )2012Жанр: Dance|PopПродолжительность: 04:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84455DABA545DB69D0250B28BB5B64DAAF91F293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838605   (260639) от 23.11.2025
+
+L’Amour Fané - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feu Sous Or
+ 02 - Ne Reviens Pas
+ 03 - Je Suis Folle De Toi
+ 04 - Amour Faux(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28981CF4B2A92BC63EA010645D981E35225C43EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838448   (260616) от 23.11.2025
+
+VA - No name compilation part 14 Instrumental, Other (2025) [MP3|320 Kbps] <Instrumental, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Artur - Deep Into the Nothingness
+02 - Сергей  Грищук - А  На Душе  Метель
+03 - Smtve - Morning Smile
+04 - Silent Night - Giovanni Marradi(   Читать дальше...   )Жанр: Instrumental, OtherПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15783D5C11D9F4519EADA9EF6286303765CD238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504530   (260523) от 02.06.2012
+
+VA - Сборник медленных хитов Vol.7 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie C - Burn
+02. Mark Knopfler - Nobody's Got The Gun
+03. Lionel Richie - Forever
+04. Eros Ramazzotti - Stella Gemella
+05. Jason Derulo - Dumb
+06. Morten Harket - Tell Me What You See
+07. Lara Fabian - I Guess I Loved You
+08. Bryan Adams - Home Again
+09. Westlife - That's Where You Find Love
+10. Jessica Mauboy - No One Like You(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC2646EFA51DB5B0204BEB5053AD9C357AF856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504765   (260414) от 02.06.2012
+
+VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black, Gothic, Power, Folk, Doom Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden of Eden - Бlomkйz
+02. Garden of Eden - Az цrdцg tбnca
+03. Garden of Eden - Vampires of eden
+04. Moonspell - Alma Mater
+05. Moonspell - Opium
+06. Moonspell - Rowen clows
+07. Diablo Swing Orchestra - A Rancid Romance
+08. Diablo Swing Orchestra - Vodka Inferno
+09. Diablo Swing Orchestra - Zodiac Virtues
+10. Far Beyond - An Angel's Requiem(   Читать дальше...   )2012Жанр: Symphonic, Black, Gothic, Power, Folk, Doom MetalПродолжительность: 11:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F58A87B47E2FD7E615DC7C8673079ACB998BA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504751   (260384) от 02.06.2012
 
 VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]<Dance, Pop>
@@ -6,7 +239,7 @@ VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260384.jpg" />
+  <img src="Z:/picture/005/save_picture_260384.jpg" />
 </div>
 
 
@@ -41,7 +274,7 @@ VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260354.jpg" />
+  <img src="Z:/picture/005/save_picture_260354.jpg" />
 </div>
 
 
@@ -67,7 +300,7 @@ VA - Радио Energy - NRJ HOT30 (31.05.2012) [MP3|320 кб/с]<Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260257.jpg" />
+  <img src="Z:/picture/005/save_picture_260257.jpg" />
 </div>
 
 
@@ -102,7 +335,7 @@ VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260165.jpg" />
+  <img src="Z:/picture/005/save_picture_260165.jpg" />
 </div>
 
 
@@ -137,7 +370,7 @@ VA - Non Stop Pop Wave (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260075.jpg" />
+  <img src="Z:/picture/005/save_picture_260075.jpg" />
 </div>
 
 
@@ -166,7 +399,7 @@ VA - Synthpop Stars (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260050.jpg" />
+  <img src="Z:/picture/005/save_picture_260050.jpg" />
 </div>
 
 
@@ -195,7 +428,7 @@ VA - National Pop Dance Music Vol.124 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260047.jpg" />
+  <img src="Z:/picture/005/save_picture_260047.jpg" />
 </div>
 
 
@@ -224,7 +457,7 @@ VA - Клубные Новинки Vol.84 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259793.jpg" />
+  <img src="Z:/picture/005/save_picture_259793.jpg" />
 </div>
 
 
@@ -259,7 +492,7 @@ VA - Наше Радио 200 Хитов (2012) [MP3|128 кб/с]<Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259709.jpg" />
+  <img src="Z:/picture/005/save_picture_259709.jpg" />
 </div>
 
 
@@ -294,7 +527,7 @@ VA - Українські Народні Пісні: Українська Гул
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259445.jpg" />
+  <img src="Z:/picture/005/save_picture_259445.jpg" />
 </div>
 
 
@@ -320,7 +553,7 @@ VA - MAXI. Летний танцевальный Fresh (2012) [MP3|320 кб/с]<
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259051.jpg" />
+  <img src="Z:/picture/005/save_picture_259051.jpg" />
 </div>
 
 
@@ -355,7 +588,7 @@ VA - Летние Хиты Радиостанций (2012) [MP3|256 кб/с]<Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258534.jpg" />
+  <img src="Z:/picture/005/save_picture_258534.jpg" />
 </div>
 
 
@@ -390,7 +623,7 @@ VA - Золотые Хиты Курортов Алания *2012* (2012) [MP3|25
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258526.jpg" />
+  <img src="Z:/picture/005/save_picture_258526.jpg" />
 </div>
 
 
@@ -425,7 +658,7 @@ VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258351.jpg" />
+  <img src="Z:/picture/005/save_picture_258351.jpg" />
 </div>
 
 
@@ -460,7 +693,7 @@ VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Elec
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257959.jpg" />
+  <img src="Z:/picture/005/save_picture_257959.jpg" />
 </div>
 
 
@@ -489,7 +722,7 @@ VA - Music News For Forum vol.148 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257753.jpg" />
+  <img src="Z:/picture/005/save_picture_257753.jpg" />
 </div>
 
 
@@ -518,7 +751,7 @@ VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257262.jpg" />
+  <img src="Z:/picture/005/save_picture_257262.jpg" />
 </div>
 
 
@@ -544,7 +777,7 @@ VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256942.jpg" />
+  <img src="Z:/picture/005/save_picture_256942.jpg" />
 </div>
 
 
@@ -579,7 +812,7 @@ VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256873.jpg" />
+  <img src="Z:/picture/005/save_picture_256873.jpg" />
 </div>
 
 
@@ -599,227 +832,6 @@ VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD43DD7F162CA2A582D08E04905EEEAC694D18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837292   (256833) от 15.11.2025
-
-VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256833.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лера Вокс feat. Gracciano DJ & AKORD - В этот вечер (03:27)
- 002. Afonso Dubraz - Pedaco De Bom Caminho (02:44)
- 003. Феодор - Снежный ком (03:44)
- 004. Ahmet Kilic - No Communication (Indie Dance Mix) (05:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEE5D0D7347566F8DEBFC0CA8DEE02EDB0F9BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837372   (256722) от 16.11.2025
-
-VA - Santa Baby Sexy New Year (2025) [MP3|320 Kbps] <Insrumental, Easy Listening, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christmas Songs - Christmas Eve (Soulful Music) [03:42]
-002. Lounge 50 - New Years Party [04:09]
-003. New Years Eve Djs Collective - New Years Party Music Mix - Techno House [03:30]
-004. Mont Blanc Apres Ski Lounge Cafe - Senses Forever [02:55](   Читать дальше...   )Жанр: Insrumental, Easy Listening, PopПродолжительность: 06:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED478F731AF70FAFBCE879F98CEF7F5E069AC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837099   (256675) от 14.11.2025
-
-VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Isaak - Wicked Game (4:49)
-02. The Neighbourhood - Daddy Issues (4:20)
-03. The Weeknd - Often (4:09)
-04. The Neighbourhood - Reflections (4:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6514FBD9B3B44FABAB86203C098961A994E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499705   (256341) от 21.05.2012
-
-VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistow - "Fear My Love" (Dazt Glitch remix) (04:44)
-02. Krueger & Leu - "Pour Annabelle" (Fred Wendekinds Early Friedrichshain mix) (07:45)
-03. Martin Hedegaard - "Rhythm Of" (Maksy remix) (06:41)
-04. Martin Hedegaard - "Rhythm Of" (Armando Cooper remix) (04:28)
-05. Sergio Pardo - "Lucian Night" (07:37)
-06. G&O - "Nordic" (Yenk remix) (07:39)
-07. Crooper - "Earn Money" (06:13)
-08. Jack Fennessy - "Bouncey" (05:27)
-09. Beckmann - "Breaking Headlines" (radio edit) (03:45)
-10. Patrick MC Culkgin - "Nasty Sexy Girls" (03:46)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836479   (256337) от 10.11.2025
-
-VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Misamo - Message (04:05)
- 002. Nolive - A Fragile Heart (02:23)
- 003. Soonone - A Mind Without Greed (03:46)
- 004. Robia - Basic Needs (02:17)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F532839AA67AE66346B667C3A150DC0738B9F134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499526   (256315) от 21.05.2012
-
-VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & 16 Bit Lolitas - Circles
-02. Sandra - Maybe Tonight (Extended Version)
-03. Adam Lambert - Nirvana
-04. Emma Hewitt - Foolish Boy
-05. M.O.B - Every Single Day (Radio Edit)
-06. T.I. - Like That
-07. Lana Del Rey - Never Let Me Go
-08. Karmin - Brokenhearted (Razor N Guido Radio Edit)
-09. Claydee - Mamacita Buena
-10. Melanie C x Jodie Harsh - Set You Free2012Жанр: PopПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10BC05562B60F74099B81E9D8FF33B1842AFA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499522   (256294) от 21.05.2012
-
-VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с]<Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 feat. Chris James - The Veldt (Original Mix)
-02. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
-03. Тринна - Взорви Моё Сердце
-04. Tony Ray Project - Send Me An Angel (Radio Edit)
-05. David Guetta & Nicky Romero - Metropolis (PAKD Remix)
-06. Иван Дорн n Co - Co'n'Dorn
-07. Eva Simons - I Don't Like You (Nicky Romero Remix)
-08. Afrojack & Shermanology - Can't Stop Me (Tiesto Remix)
-09. Скрябин - Держи её за руку
-10. Music People Deejays (Mpdj's) - Выпускной (New 2012 Extended Mix)2012Жанр: Pop, Club, DanceПродолжительность: 04:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD1971A471BAB45B63A6F7D0BE8A782C41555EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

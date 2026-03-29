@@ -1,3 +1,81 @@
+###  Публикация: 1284256   (729704) от 20.02.2019
+
+Detective Gallo (2018) [Ru/Multi] (1.2) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Detective Gallo – юмористическая нуар point&click адвенчура, героем которой является пернатый ворчливый приватный детектив, расследующий весьма странное дело. Тьма окутала город и под покровом ночи пять экзотических растений стали жертвами трагического события. Нет никаких сомнений – это серийное убийство растений.Тип издания: RepackРазработчик: Footprints GamesЖанр: Adeventure, QuestЯзык озвучки: Английский, ИтальянскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9789BA3FE2F6841CE199263C5DA0A61591A1B476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284241   (729578) от 20.02.2019
+
+STEINS;GATE ELITE (2019) [En/Jp] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steins;Gate Elite — это обновлённая версия Steins;Gate 2009 года. Игра появилась на свет благодаря тому, что её создатель, Тиёмару Сикура (Chiyomaru Shikura), захотел развить жанр визуальных новелл под влиянием полноценно анимированной серии Yarudora.Тип издания: LicenseРазработчик: MAGESЖанр: Adventure, Quest, Indie, NovellaЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CFE6B9FE95FE5184B570F888A7D526DBCD72F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284248   (729575) от 20.02.2019
+
+AWAY: Journey to the Unexpected (2019) [Ru/Multi] (1.6) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках небольшого приключения в цветной мир, наполненный неожиданными событиями и сумасшедшими героями? Погрузитесь в доброе приключение с бунтарскими элементами, где действие наполнено миловидностью, а сила исходит из дружбы.Тип издания: RepackРазработчик: Aurelien Regard GamesЖанр: Action, Adnenture, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:613F41DDAABA8DF7B07E9B19FD7A9942AC87AD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022256   (729235) от 01.06.2016
 
 Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe Edition]
@@ -6,7 +84,7 @@ Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) R.G. Catalyst [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729235.jpg" />
+  <img src="Z:/picture/008/save_picture_729235.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ Nancy Drew: Sea of Darkness / Нэнси Дрю: Песнь темных вод 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728014.jpg" />
+  <img src="Z:/picture/008/save_picture_728014.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Don't Starve Together (2016) [En] (214437) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725742.jpg" />
+  <img src="Z:/picture/008/save_picture_725742.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ What Remains of Edith Finch (2017) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725740.jpg" />
+  <img src="Z:/picture/008/save_picture_725740.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724903.jpg" />
+  <img src="Z:/picture/008/save_picture_724903.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) License CPY [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724062.jpg" />
+  <img src="Z:/picture/008/save_picture_724062.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ The Alien Cube (2021) [Ru/Multi] (Build 8187558) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723975.jpg" />
+  <img src="Z:/picture/008/save_picture_723975.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ INFERNIUM (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722836.jpg" />
+  <img src="Z:/picture/008/save_picture_722836.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722318.jpg" />
+  <img src="Z:/picture/008/save_picture_722318.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Pacify (2019) [Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720518.jpg" />
+  <img src="Z:/picture/008/save_picture_720518.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Devotion (2019) [Multi] (1.0.5) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720389.jpg" />
+  <img src="Z:/picture/008/save_picture_720389.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Lust from Beyond (2022) [Ru/Multi] (01.02.2022) License GOG [M Edition] [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720145.jpg" />
+  <img src="Z:/picture/008/save_picture_720145.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ What Remains of Edith Finch (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719976.jpg" />
+  <img src="Z:/picture/008/save_picture_719976.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718981.jpg" />
+  <img src="Z:/picture/008/save_picture_718981.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Returner 77 (2018) [Ru/Multi] (4102018) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718974.jpg" />
+  <img src="Z:/picture/008/save_picture_718974.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ The Long Dark (2017) [Ru/Multi] (1.29) License RELOADED [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718966.jpg" />
+  <img src="Z:/picture/008/save_picture_718966.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Nancy Drew: Midnight in Salem / Нэнси Дрю: Полночь в Сейле�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718534.jpg" />
+  <img src="Z:/picture/008/save_picture_718534.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Life Is Strange 2 (2018) [Ru/Multi] (1.0) Repack xatab [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718371.jpg" />
+  <img src="Z:/picture/008/save_picture_718371.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ KAPIA (2022) [Ru/Multi] (1.266) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718176.jpg" />
+  <img src="Z:/picture/008/save_picture_718176.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Scarf (2021) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718172.jpg" />
+  <img src="Z:/picture/008/save_picture_718172.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Day of the Tentacle Remastered (2016) [En/Multi] (1.3.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717242.jpg" />
+  <img src="Z:/picture/008/save_picture_717242.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ The Road to Hades (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716916.jpg" />
+  <img src="Z:/picture/008/save_picture_716916.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716584.jpg" />
+  <img src="Z:/picture/008/save_picture_716584.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ Skully (2020) [Ru/Multi] (1.0.161.6416) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AEDCF5E65706055C4776E169F84F8C34DE48D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332225   (716446) от 06.08.2020
-
-Subnautica (2018) [Ru/Multi] (65786) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment. Главная особенность игры – всё действие происходит в инопланетном океанеТип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F31F8196A3D2E5E5E13A69BD4DD666D34285CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024637   (715286) от 09.06.2016
-
-Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) Repack Other s [Episodes 1-6]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
-Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940BA5A90F6D0DE6213590D83D70D3046CFD6FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219254   (715056) от 13.04.2018
-
-Solas and the White Winter (2018) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древнем кельтском повествовании молодая девушка по имени Солас (Solas) должна пройти через суровую безжалостную зиму, чтобы исправить ошибки прошлого своей семьи. Solas и White WInter - это атмосферная приключенческая игра с с элементами головоломок и темной историей, которую Солас должна раскрыть.Тип издания: LicenseРазработчик: Savepoint StudiosЖанр: AdventureЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB3F9172CD9441D7DC384DF8D702BCD065AA599
 ```
 
 https://mybot314.ru/tekegram_catalog/

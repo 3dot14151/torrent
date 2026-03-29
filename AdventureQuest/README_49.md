@@ -1,3 +1,82 @@
+###  Публикация: 1027652   (291405) от 05.12.2016
+
+Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Between Me and The Night — из тех игр, что донельзя дуальна: добро против зла, здравомыслие против безумия, день против ночи. Смена времени суток — одна из ключевых особенностей здешнего геймплея. Днем игроку предстоит исследовать плавающий дом, попутно решая головоломки и получая доступ к новым комнатам. Это позволит улучшить свои навыки, которые обязательно пригодятся (   Читать дальше...   )Тип издания: RepackРазработчик: RainDance LXЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241363   (290939) от 17.11.2018
+
+Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем вас полное чудес анимационное царство, в котором самые обычные предметы обретают собственную жизнь. Найдите дорогу домой, разгадав тайны забывчиков и покорив магические силы.Тип издания: RepackРазработчик: ThroughLine GamesЖанр: Adventure, Quest, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142232   (290638) от 22.11.2017
+
+Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tales from the Borderlands – эпизодическое приключение от Telltale Games. Местом действия выступает мир Borderlands, где игроку встретятся новые персонажи.
+События Tales from the Borderlands развиваются после сюжетных перипетий Borderlands 2, а сама история рассказывается от лица двух персонажей (Райс и Фиона), что позволяет взглянуть на происходящее с двух различных (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422133   (289344) от 13.12.2011
 
 A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на фюрера. Операция "Валькирия" [Ru] (RePack/1.02) 2009 | SxSxL
@@ -6,7 +85,7 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289344.jpg" />
+  <img src="Z:/picture/008/save_picture_289344.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ The Descendant (2016) [Multi] (3.2/dlc) License PLAZA [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287577.jpg" />
+  <img src="Z:/picture/008/save_picture_287577.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287375.jpg" />
+  <img src="Z:/picture/008/save_picture_287375.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ That Dragon, Cancer (2016) [En] (1.0) License PROPER-PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285733.jpg" />
+  <img src="Z:/picture/008/save_picture_285733.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Her Majesty's SPIFFING (2016) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285416.jpg" />
+  <img src="Z:/picture/008/save_picture_285416.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ To the Moon (2011) [Multi] (1.0.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285183.jpg" />
+  <img src="Z:/picture/008/save_picture_285183.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285078.jpg" />
+  <img src="Z:/picture/008/save_picture_285078.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Mind: Path to Thalamus (2014) [Ru/En] (08.12.2015) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285072.jpg" />
+  <img src="Z:/picture/008/save_picture_285072.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Lost Horizon 2 (2015) [En] (08.12.2015) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285046.jpg" />
+  <img src="Z:/picture/008/save_picture_285046.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ STASIS (2015) [Ru/Multi] (1.09.5) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283271.jpg" />
+  <img src="Z:/picture/008/save_picture_283271.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282277.jpg" />
+  <img src="Z:/picture/008/save_picture_282277.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281610.jpg" />
+  <img src="Z:/picture/008/save_picture_281610.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ Emily Wants To Play (2015) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281513.jpg" />
+  <img src="Z:/picture/008/save_picture_281513.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ Republique Remastered (2015) [Ru/Multi] (4.11) License SKIDROW [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280856.jpg" />
+  <img src="Z:/picture/008/save_picture_280856.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ Republique Remastered (2015-2016) [Ru/Multi] (4.11) Repack Other s [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280499.jpg" />
+  <img src="Z:/picture/008/save_picture_280499.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ Beholder (2016) [Ru/Multi] (1.0.20161118) Repack Dok2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279897.jpg" />
+  <img src="Z:/picture/008/save_picture_279897.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ The 9th Gate (2018) [En/Ch] (1.1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278909.jpg" />
+  <img src="Z:/picture/008/save_picture_278909.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278108.jpg" />
+  <img src="Z:/picture/008/save_picture_278108.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278104.jpg" />
+  <img src="Z:/picture/008/save_picture_278104.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ Art of Murder: Cards of Destiny / Смерть как искусство 3: Ка
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276782.jpg" />
+  <img src="Z:/picture/008/save_picture_276782.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275637.jpg" />
+  <img src="Z:/picture/008/save_picture_275637.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ Moons of Madness (2019) [Ru/Multi] (1.01) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275547.jpg" />
+  <img src="Z:/picture/008/save_picture_275547.jpg" />
 </div>
 
 
@@ -579,7 +658,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274499.jpg" />
+  <img src="Z:/picture/008/save_picture_274499.jpg" />
 </div>
 
 
@@ -590,84 +669,6 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188582   (274333) от 02.12.2017
-
-Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лилли - самая послушная девочка на свете. Она старательно делает все, о чем её просят, даже когда работы несуразно много. Трудясь, она выглядит так честно и искренне, что глядя на нее хочется плакать... или ужаснуться. Любые сердитые мысли, любые помыслы о бунтарстве надежно похоронены под толстым слоем благонадежной кротости. Но как долго они останутся погребены?Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE4AECCB2E6DE5159E59FEF33BC4111802F3CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188467   (274146) от 02.12.2017
-
-Black Mirror (2017) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландия, 1926 год. Получив известие о самоубийстве отца, Дэвид Гордон впервые в жизни приезжает в родовое поместье. Мрачные тайны этого места свели с ума немало Гордонов, и следующей жертвой может стать он сам. Кошмары и видения терзают Дэвида с самого детства. Он боится, что ему суждено повторить судьбу отца и пойти по пути, ведущему к безумию и смерти. Неужели (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: Приключение, Квест, ХоррорЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD47907BEDBF2A0D51A1B0FAE823B367B334E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083453   (273281) от 16.12.2016
-
-The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет The Little Acre строится вокруг Эйдана и его дочери Лили, живущих в Ирландии в середине ХХ века. Эйдан ищет давно пропавшего отца и, наконец обнаружив какие-то зацепки, проваливается в чужой мир. Лили, девушка неробкого десятка, спешит на помощь отцу.Тип издания: LicenseРазработчик: Pewter Games StudiosЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0F90271DD395C9461D8A5E88773B97C2F74E20
 ```
 
 https://mybot314.ru/tekegram_catalog/

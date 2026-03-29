@@ -6,7 +6,7 @@ iStatistica 1.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706041.jpg" />
+  <img src="Z:/picture/008/save_picture_706041.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CyberByte Antivirus and Internet Security Premium 3.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705360.jpg" />
+  <img src="Z:/picture/008/save_picture_705360.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ USB Overdrive 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704921.jpg" />
+  <img src="Z:/picture/008/save_picture_704921.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ A-Zippr Pro: Better Unarchiver 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703340.jpg" />
+  <img src="Z:/picture/008/save_picture_703340.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Recordam 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702925.jpg" />
+  <img src="Z:/picture/008/save_picture_702925.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ picatext - OCR made simple 2.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702821.jpg" />
+  <img src="Z:/picture/008/save_picture_702821.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Battery Indicator for Mac 2.12.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701280.jpg" />
+  <img src="Z:/picture/008/save_picture_701280.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ PhoneExpander 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700084.jpg" />
+  <img src="Z:/picture/008/save_picture_700084.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ oneSafe 2.0.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698233.jpg" />
+  <img src="Z:/picture/008/save_picture_698233.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Memory Clean 2 v1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698114.jpg" />
+  <img src="Z:/picture/008/save_picture_698114.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Cocktail Monterey Edition 15.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697665.jpg" />
+  <img src="Z:/picture/008/save_picture_697665.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ InternetSpeedTest 3.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697652.jpg" />
+  <img src="Z:/picture/008/save_picture_697652.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ RAR Extractor Expert Pro 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697068.jpg" />
+  <img src="Z:/picture/008/save_picture_697068.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Serial Box & SerialSeeker 2022 - 03 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693855.jpg" />
+  <img src="Z:/picture/008/save_picture_693855.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Timing 1.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693136.jpg" />
+  <img src="Z:/picture/008/save_picture_693136.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ WindowMizer 4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692859.jpg" />
+  <img src="Z:/picture/008/save_picture_692859.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Invisible 1.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691474.jpg" />
+  <img src="Z:/picture/008/save_picture_691474.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ quickWallpaper 2.53 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690857.jpg" />
+  <img src="Z:/picture/008/save_picture_690857.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Batteries 2.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690717.jpg" />
+  <img src="Z:/picture/008/save_picture_690717.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Together 3.8.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689364.jpg" />
+  <img src="Z:/picture/008/save_picture_689364.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Living Earth - Desktop Weather & World Clock 1.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688970.jpg" />
+  <img src="Z:/picture/008/save_picture_688970.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ QR Creator PRO 4.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686561.jpg" />
+  <img src="Z:/picture/008/save_picture_686561.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ OS X Server 5.1.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686249.jpg" />
+  <img src="Z:/picture/008/save_picture_686249.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Horcrux Email Backup 2.9.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684424.jpg" />
+  <img src="Z:/picture/008/save_picture_684424.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Clean Text Menu 7.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681989.jpg" />
+  <img src="Z:/picture/008/save_picture_681989.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Temp Monitor 1.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681672.jpg" />
+  <img src="Z:/picture/008/save_picture_681672.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1653372   (205500) от 16.08.2023
+
+VA - Jazz Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larkster Quartet - Always on My Mind (4:00)
+02. George Lanza - Sugar (3:57)
+03. Shannon & Keast - Fever (3:15)
+04. Meesha - Fields of Gold (4:00)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04BCE8F05A6A78A0B1E4B8EE72C0B429691A226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653380   (205488) от 16.08.2023
+
+VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Keast - Viva la Vida (4:27)
+02. Malva and the Sunday Crew - Use Somebody (3:05)
+03. Talisha Karrer - Sweet Child O’ Mine (3:56)
+04. Alice Lamb - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz Vocal, RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653450   (205452) от 16.08.2023
+
+Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky [9:01]
+02. Pint Size [12:24]
+03. Stella By Starlight [8:58]
+04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653543   (205436) от 16.08.2023
+
+Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Professor Longhair Boogie (Live At Casino Montreux 1986) (3:36)
+02. You Ain't Such A Much (Live At Casino Montreux 1986) (4:53)
+03. Sick And Tired (Live At Casino Montreux 1986) (3:31)
+04. Stack-a-Lee (Live At Casino Montreux 1986) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, BluesПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653664   (205384) от 17.08.2023
 
 Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205384.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205279.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205137.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205125.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204895.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204728.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204610.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204319.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204207.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Roy Haynes With Booker Ervin - Cracklin' (1963) 1994, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204008.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Enrico Pieranunzi & Marc Johnson - The Dream Before Us (1990) 1992, IDA Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203708.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203548.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203296.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203039.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202823.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202480.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202477.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202475.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Martin Taylor & David Grisman - I'm Beginning To See The Light (1999) Acoustic D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201374.jpg" />
+  <img src="Z:/picture/005/save_picture_201374.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Series Retro Planet: The Best Of Retro Music (1999) Unofficial Release [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198685.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ V.A. - Pop Nostalgia (Popular Songs From The Past Revisited) Vol. 1 / Vol. 2 (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198409.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Origin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193147.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F491C467C6373EC5CFF3C4FDA6E40E8461632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587272   (192977) от 30.10.2022
-
-Bing Crosby - The CBS Radio Recordings (1954 - 1956) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192977.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. If I Give My Heart to You [3:25]
-02. Mandy [1:41]
-03. Count Your Blessings Instead of Sheep [2:55](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 06:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720FB9E5897C301DD56050865AC1129994E842A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587522   (192711) от 31.10.2022
-
-Woody Herman - The Complete Capitol Recordings Of Woody Herman (1948 - 1956) 6CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192711.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. That's Right [3:05]
-02. Lemon Drop [2:53]
-03. I Got It Bad (And That Ain't Good) [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B0D58413E18020FD3E1EC500B7A65A46ED1B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657507   (192460) от 04.09.2023
-
-Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Parker's Last Supper [7:14]
-02. Hymn from the Inferno [12:03]
-03. What It Is [17:59]Жанр: Hard Bop, Post-BopПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3441770B435BFBEDE69E8EF0960CD9AA96DC4191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657616   (192456) от 04.09.2023
-
-Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lighea [5:15]
-02. Never Before Never Again [4:12]
-03. Filigrane [5:20]
-04. What Is This Thing Called Love [5:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

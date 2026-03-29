@@ -6,7 +6,7 @@ Kyau & Albert - 20 Years (2016) [FLAC|Lossless|tracks + .cue] <Trance, Progressi
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942989.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [FLAC|Lossless|WEB|track
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941663.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Trance 100 (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910569.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910305.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ DJ Valium - The Album (2003) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro-Hou
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909165.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Little Jam - Alone in the Desert (1997) [FLAC|Lossless|tracks + .cue] <Electroni
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895457.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Robert Miles - Dreamland (The Winter Edition) (1996) Unofficial Release [FLAC|Lo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893490.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ministry Of Sound: I Love Trance (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892513.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Above & Beyond - Anjunabeats, Volume 13 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883328.jpg" />
+  <img src="Z:/picture/005/save_picture_883328.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Grotesque Winter Edition (Mixed by RAM & Mark Sherry) (2016) [FLAC|Lossless
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880955.jpg" />
+  <img src="Z:/picture/005/save_picture_880955.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Sean Tyas - Degeneration (2016) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880950.jpg" />
+  <img src="Z:/picture/005/save_picture_880950.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Armin van Buuren: A State Of Trance 800 (2017) [FLAC|Lossless|tracks] <Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874873.jpg" />
+  <img src="Z:/picture/005/save_picture_874873.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872984.jpg" />
+  <img src="Z:/picture/008/save_picture_872984.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (2017)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869827.jpg" />
+  <img src="Z:/picture/008/save_picture_869827.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Paul van Dyk & VA - VONYC Sessions 2013 (2013) 2CD, Compilation, Mixed [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868982.jpg" />
+  <img src="Z:/picture/008/save_picture_868982.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010) [FLAC|Lossless]<Trance , Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855865.jpg" />
+  <img src="Z:/picture/008/save_picture_855865.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Vocal Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852022.jpg" />
+  <img src="Z:/picture/008/save_picture_852022.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - HeavensGate vol.3 Aluminium Edition (Mixed by Alex M.O.R.P.H B2B Woody Van 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838713.jpg" />
+  <img src="Z:/picture/008/save_picture_838713.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Myths & Legends (Mixed By SoundLift) (2012) [FLAC|Lossless|WEB|tracks|image
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833604.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Aly & Fila - FSOE Top 20 April 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833307.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Giuseppe Ottaviani (aKa Nu NRG) - 6 Альбомов, 4 Компиляции (20
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830981.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ATB - Trilogy (2007) 2CD [FLAC|Lossless|tracks + .cue] <Breakbeat, Trance, Euro 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811785.jpg" />
+  <img src="Z:/picture/008/save_picture_811785.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811456.jpg" />
+  <img src="Z:/picture/008/save_picture_811456.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808734.jpg" />
+  <img src="Z:/picture/008/save_picture_808734.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807969.jpg" />
+  <img src="Z:/picture/008/save_picture_807969.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Armin van Buuren - A State Of Trance 2020 (2020) 2CD, DJ Mix [FLAC|Lossless|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802313.jpg" />
+  <img src="Z:/picture/008/save_picture_802313.jpg" />
 </div>
 
 

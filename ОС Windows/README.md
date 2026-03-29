@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861376   (1062479) от 
+
+Windows 11 Pro х64 Version 25H2 Build 26200.8039 by Igors_VL [RU]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настроенная авторская сборка Windows 11 Pro с автоматизированной установкой, запускаемой с установочного носителя через UEFI (BIOS), и интегрированным обновлением KB5085516.Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4156DC3F6F5E8D967CFAB5662D87FA6B734E9648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861058   (1062187) от 
+
+Windows 10 3in1 x64 22Н2 (build 19045.7058) by ivandubskoj 23.03.2026 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка Windows 10, с отключенной телеметрией, службами, без METR0-приложений и с актуальными обновлениями на момент создания релиза.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE112C551E13381173DBDA823A9C3B57BA9647E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860031   (1061552) от 
 
 Windows 11 3in1 26Н1 (build 28000.1719) by ivandubskoj 19.03.2026 [Ru]
@@ -7,7 +59,7 @@ Windows 11 3in1 26Н1 (build 28000.1719) by ivandubskoj 19.03.2026 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061552.jpg" />
+  <img src="Z:/picture/005/save_picture_1061552.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Microsoft Windows 11 [10.0.26100.8037], Version 24H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061436.jpg" />
+  <img src="Z:/picture/005/save_picture_1061436.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Microsoft Windows 11 [10.0.26100.8037], Version 24H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061435.jpg" />
+  <img src="Z:/picture/005/save_picture_1061435.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Microsoft Windows 11 [10.0.26200.8037], Version 25H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061434.jpg" />
+  <img src="Z:/picture/005/save_picture_1061434.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Microsoft Windows 11 [10.0.26200.8037], Version 25H2 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061433.jpg" />
+  <img src="Z:/picture/005/save_picture_1061433.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Microsoft Windows 11 [10.0.28000.1719], Version 26H1 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061432.jpg" />
+  <img src="Z:/picture/005/save_picture_1061432.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Windows Server 2022 LTSC [10.0.20348.4893], Version 21H2 (Updated March 2026) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061431.jpg" />
+  <img src="Z:/picture/005/save_picture_1061431.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Windows Server [10.0.25398.2207], version 23H2 (Updated March 2026) - Ориги
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061430.jpg" />
+  <img src="Z:/picture/005/save_picture_1061430.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Windows Server 2025 LTSC [10.0.26100.32522], Version 24H2 (Updated March 2026) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061429.jpg" />
+  <img src="Z:/picture/005/save_picture_1061429.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Microsoft Windows 11 [10.0.28000.1719], Version 26H1 (Updated March 2026) - Ор
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061340.jpg" />
+  <img src="Z:/picture/005/save_picture_1061340.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Windows 11 PRO 25H2 26200.8037 Update 5 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061149.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061137.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Windows 11 3in1 25Н2 (build 26200.8037) by ivandubskoj 15.03.2026 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061048.jpg" />
+  <img src="Z:/picture/005/save_picture_1061048.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.8037) by ivandubskoj 13.03.2026 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060971.jpg" />
+  <img src="Z:/picture/005/save_picture_1060971.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Microsoft® Windows® 10 Professional VL x64 22H2 RU by OVGorskiy 03.2026
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060656.jpg" />
+  <img src="Z:/picture/005/save_picture_1060656.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Windows 11 Pro/Ent by OneSmiLe 24H2 build 26100.8037 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060596.jpg" />
+  <img src="Z:/picture/005/save_picture_1060596.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.7058 [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060417.jpg" />
+  <img src="Z:/picture/009/save_picture_1060417.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.8037 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060416.jpg" />
+  <img src="Z:/picture/009/save_picture_1060416.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Windows 11 Pro/Ent by OneSmiLe 26H1 build 28000.1719 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060413.jpg" />
+  <img src="Z:/picture/009/save_picture_1060413.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [En]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058308.jpg" />
+  <img src="Z:/picture/005/save_picture_1058308.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ Windows 10 (v22h2) x64 PRO by KulHunter v30 (esd) [Ru]
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058307.jpg" />
+  <img src="Z:/picture/005/save_picture_1058307.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ Windows 11 3in1 x64 25Н2 (build 26200.7840) by ivandubskoj 21.02.2026 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057841.jpg" />
+  <img src="Z:/picture/005/save_picture_1057841.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Windows 11 Pro х64 Version 26H1 Build 28000.1575 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057726.jpg" />
+  <img src="Z:/picture/005/save_picture_1057726.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ Windows 11 Pro 26H1 (x64) Elgujakviso Edition (v.17.02.26) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057634.jpg" />
+  <img src="Z:/picture/005/save_picture_1057634.jpg" />
 </div>
 
 
@@ -638,58 +690,6 @@ Windows 11 Pro 26H1 (x64) Elgujakviso Edition (v.17.02.26) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4474FDD9E977810B0881C052A32655A634EF28FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854440   (1057435) от 17.02.2026
-
-Windows Server 2025 LTSC [10.0.26100.32370], Version 24H2 (Updated February 2026) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Windows Server 2025 поможет вам справиться с вызовами будущего и обеспечит актуальную безопасность, производительность и гибкость. Повышайте продуктивность благодаря оптимизированной работе в сети, ускоренному хранилищу и возможностям гибридного облака, которые адаптируются под ваши потребности. Идите в ногу с прогрессом за счет модернизированной системы (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD096C8D4BBFAFB808E908B11AF171932623982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854439   (1057434) от 17.02.2026
-
-Windows Server [10.0.25398.2149], version 23H2 (Updated February 2026) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078877F2FEA6431793AF14A6CBA83D880BA9F5CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

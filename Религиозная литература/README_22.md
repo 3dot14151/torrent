@@ -1,3 +1,84 @@
+###  Публикация: 998385   (866683) от 21.03.2016
+
+Преподобный Лев (2016) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронное издание в современной орфографии книги, выпущенной в 1917 г. Свято-Введенской Оптиной пустынью.
+Иеросхимонах Лев (Наголкин) (1768—1841) ― первый основатель и вдохновитель оптинского старчества. Человек непоколебимой веры, необычайной смелости, твердости и энергии. Выражением евангельской любви была вся жизнь этого старца, проходившая в самоотверженном (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6FC9CAC2F1C2D961C8B45B22EBD6D1523A45EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767605   (866516) от 17.03.2014
+
+Г. А. Гурев | Антирелигиозная хрестоматия (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие для пропагандистов, преподавателей и учащихся.
+
+Пролетариат, разбивающий цепи политического и экономического рабства, не может одновременно с этим не разрушать тяжких оков духовного, умственного рабства. Эти оковы - религия, идея бога, представление о существовании сверхъестественных, внеприродных, сверхчувственньх, таинственных сил, находящихся в определенных (   Читать дальше...   )Жанр: Хрестоматия, сборник, религиоведение, история, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184512856CC2AC96142F577E08BB2E4CAB23BE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999453   (864821) от 22.03.2016
+
+А. А. Алексеев | Библия в богослужении. Византийско-славянский лекционарий (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лекционарий (сборник библейских пассажей для чтения за богослужением) нашел применение в Византии в VIII—XII, а у славян в X—XIV вв. В книге охарактеризованы рукописная традиция лекционария на греческом и славянском языках и его структура, рассмотрены причины назначения библейских пассажей для чтения в определенные дни литургического года, устанавливаются обстоятельства (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C892633E39D85F28B0C5C36CAC989470FE27AB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108032   (864741) от 24.02.2017
 
 И. Даров | Бехаизм. Новая религия Востока (1930) [DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864741.jpg" />
+  <img src="Z:/picture/008/save_picture_864741.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864739.jpg" />
+  <img src="Z:/picture/008/save_picture_864739.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864734.jpg" />
+  <img src="Z:/picture/008/save_picture_864734.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864645.jpg" />
+  <img src="Z:/picture/008/save_picture_864645.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864541.jpg" />
+  <img src="Z:/picture/008/save_picture_864541.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864538.jpg" />
+  <img src="Z:/picture/008/save_picture_864538.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864419.jpg" />
+  <img src="Z:/picture/008/save_picture_864419.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864404.jpg" />
+  <img src="Z:/picture/008/save_picture_864404.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864327.jpg" />
+  <img src="Z:/picture/008/save_picture_864327.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863451.jpg" />
+  <img src="Z:/picture/008/save_picture_863451.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_861820.jpg" />
+  <img src="Z:/picture/005/save_picture_861820.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860604.jpg" />
+  <img src="Z:/picture/008/save_picture_860604.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859068.jpg" />
+  <img src="Z:/picture/008/save_picture_859068.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859025.jpg" />
+  <img src="Z:/picture/008/save_picture_859025.jpg" />
 </div>
 
 
@@ -383,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856165.jpg" />
+  <img src="Z:/picture/008/save_picture_856165.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855592.jpg" />
+  <img src="Z:/picture/008/save_picture_855592.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855392.jpg" />
+  <img src="Z:/picture/008/save_picture_855392.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855069.jpg" />
+  <img src="Z:/picture/008/save_picture_855069.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852298.jpg" />
+  <img src="Z:/picture/008/save_picture_852298.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851490.jpg" />
+  <img src="Z:/picture/008/save_picture_851490.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850570.jpg" />
+  <img src="Z:/picture/008/save_picture_850570.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850569.jpg" />
+  <img src="Z:/picture/008/save_picture_850569.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850559.jpg" />
+  <img src="Z:/picture/008/save_picture_850559.jpg" />
 </div>
 
 
@@ -604,86 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616A712BE32D7A1E682EA5EDB15309350B359FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002039   (850393) от 30.03.2016
-
-Сергей Алексеев | Миф о насильственном крещении Руси (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из расхожих штампов что у атеистов, что у неоязычников — обвинения христиан в насильственном крещении Руси, при котором, якобы, истреблялись миллионы людей и текли реки крови. Московский историк С.В. Алексеев на фактическом материале показывает несостоятельность этого мифа.Жанр: АпологетикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3BD4384D69A3D21D49EB0A9769FCE95E09261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002067   (850271) от 30.03.2016
-
-Валентина Николаевна Кузнецова | Евангелие от Матфея. Комментарий (2002) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентина Николаевна Кузнецова (род. 10 марта 1948) — российский переводчик, филолог-классик и библеист. Закончила отделение классической филологии филологического факультета Московского университета. Духовная дочь о. Александра Меня. По его благословению и с непосредственным участием в середине 1980-х гг. начала работу над переводом Нового Завета. С 1991 г. В.Н. (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3564EBCD110427E61017DA5521A5570526542498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377960   (849890) от 23.04.2020
-
-Владимир Зоберн (сост.) | Коронавирус. Молитвы в помощь болящим и для тех, кто в зоне риска (2020) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу включены молитвы, рекомендованные Церковью для чтения во время вредоносных поветрий.
-И в добром здравии и, конечно, во время болезни верующий человек обращается с молитвой к Господу Богу, Его Пречистой Матери, ангелам и святым. «Молитва веры исцелит болящего, и восставит его Господь» (Иак. 5, 15).
-Церковная история знает множество примеров исцелений и облегчений (   Читать дальше...   )Жанр: Духовная литература, ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD728CDA204F2643B4CCB1A61D22440101E5480
 ```
 
 https://mybot314.ru/tekegram_catalog/

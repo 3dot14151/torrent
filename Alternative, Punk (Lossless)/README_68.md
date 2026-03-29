@@ -1,3 +1,32 @@
+###  Публикация: 1731803   (107602) от 22.06.2024
+
+Manafest - Learning How To Be Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Rap Rock, Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Learning How To Be Human [00:03:14]
+02. Glitch In The Matrix [00:02:42]
+03. Soldier (feat. Greylee) [00:03:17]
+04. Here I Am [00:03:19](   Читать дальше...   )Жанр: Alt. Rock, Alt. Metal, Rap Rock, ChristianПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02341AB5B3D769EE2E68A1A57293AA0C03001FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732078   (107556) от 23.06.2024
 
 Alanis Morissette - Supposed Former Infatuation Junkie (1998) Thank U Edition, 2024, Rhino - Warner Records [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Adult Alternative, Pop Rock, Post-Grunge>
@@ -6,7 +35,7 @@ Alanis Morissette - Supposed Former Infatuation Junkie (1998) Thank U Edition, 2
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107556.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Muna - Live at The Greek Theatre in Los Angeles (2024) [FLAC|Lossless|WEB-DL|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107283.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Algorithmic Melody - Love & War (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alt Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107184.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Lacey Sturm (ex-Flyleaf) - Kenotic Metanoia (2023) Deluxe Edition, 2024, Indepen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107111.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Axty - Hannya (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107055.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Amongst Liars - By Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106957.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106729.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ OneRepublic - Artificial Paradise (2024) Deluxe [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106424.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Crawlers - The Mess We Seem To Make (2024) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106080.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ James - 2001 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105917.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Creed - Human Clay (1999) Deluxe Edition, 2024, [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105405.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dinosaur Jr. - Farm (2009) 15th Anniversary Edition, 2024, Jagjaguwar[FLAC|Lossl
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105379.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ SunSay - Дайвер (2010) Digipack [WavPack|Lossless|image + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105374.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Royal Blood - Royal Blood (2014) 10th Anniversary Edition, 2024, Warner Records 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105368.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Rising Insane - Wildfires (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104979.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Marianas Trench - Haven (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104791.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Rex Orange County - The Alexander Technique (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104609.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Conner Youngblood - Cascades, Cascading, Cascadingly (2024) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104608.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Many Eyes - The Light Age (2024) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104563.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ AFI - Silver Bleeds the Black Sun... (2025) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104497.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103747.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102974.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 936249809
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102973.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102963.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102961.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4696B1299538FF3B65C223A27B6790BE8637F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763386   (102826) от 01.12.2024
-
-Linkin Park - Hybrid Theory (2000) Japan, WPCR-10877, 2001 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papercut (3:06)
-02. One Step Closer (2:36)
-03. With You (3:23)
-04. Points Of Authority (3:20)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-MetalПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC4B26A7EC05A072A5073DBE58E4BC110241188
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1860525   (1061885) от 
+
+Мария Кича | Афганистан. Подлинная история страны-легенды (2022) [MP3, Наталья Коршун]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный Афганистан – это страна-антилидер по вопросам безопасности, образования и экономического развития. Его печальное настоящее резко контрастирует с блистательным прошлым, когда Афганистан являлся одним из ключевых отрезков Великого шелкового пути и «солнечным сплетением Евразии». Но почему эта древняя страна до сих пор не исчезает из новостных сводок? Что (   Читать дальше...   )Жанр: ИсторияИздательство: Бомбора (Эксмо)Продолжительность: 16:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151295800704D0EC056F2D23FAE3904CFBD7A6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860526   (1061878) от 
+
+Мария Кича | Иерусалим. Все лики великого города (2023) [MP3, Наталья Коршун]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сакральный перекресток культур и религий, город, в котором переплелись судьбы всего мира. «„Ни один другой город не повлиял на судьбу человечества так сильно и глубоко, как Иерусалим“», – говорит Мария Кича.
+
+Книга о том, какой он на самом деле – город Давида, город Иисуса, город османов, город римлян, раввинов, византийский, исламский, город крестоносцев – одним (   Читать дальше...   )Жанр: ИсторияИздательство: Бомбора (Эксмо)Продолжительность: 16:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8402050F63162B8A3D3AD844E1C75EB7BB98D1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860423   (1061825) от 
 
 Мария Кича | Династии. Как устроена власть в современных арабских монархиях (2021) [MP3, Наталья Коршун]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061825.jpg" />
+  <img src="Z:/picture/005/save_picture_1061825.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061824.jpg" />
+  <img src="Z:/picture/005/save_picture_1061824.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061311.jpg" />
+  <img src="Z:/picture/005/save_picture_1061311.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061310.jpg" />
+  <img src="Z:/picture/005/save_picture_1061310.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061309.jpg" />
+  <img src="Z:/picture/005/save_picture_1061309.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061308.jpg" />
+  <img src="Z:/picture/005/save_picture_1061308.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061307.jpg" />
+  <img src="Z:/picture/005/save_picture_1061307.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061306.jpg" />
+  <img src="Z:/picture/005/save_picture_1061306.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056844.jpg" />
+  <img src="Z:/picture/005/save_picture_1056844.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056410.jpg" />
+  <img src="Z:/picture/005/save_picture_1056410.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054570.jpg" />
+  <img src="Z:/picture/005/save_picture_1054570.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054428.jpg" />
+  <img src="Z:/picture/005/save_picture_1054428.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054311.jpg" />
+  <img src="Z:/picture/005/save_picture_1054311.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054132.jpg" />
+  <img src="Z:/picture/005/save_picture_1054132.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053369.jpg" />
+  <img src="Z:/picture/005/save_picture_1053369.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053368.jpg" />
+  <img src="Z:/picture/005/save_picture_1053368.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053141.jpg" />
+  <img src="Z:/picture/005/save_picture_1053141.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053132.jpg" />
+  <img src="Z:/picture/005/save_picture_1053132.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053129.jpg" />
+  <img src="Z:/picture/005/save_picture_1053129.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053128.jpg" />
+  <img src="Z:/picture/005/save_picture_1053128.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053127.jpg" />
+  <img src="Z:/picture/005/save_picture_1053127.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053125.jpg" />
+  <img src="Z:/picture/005/save_picture_1053125.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053123.jpg" />
+  <img src="Z:/picture/005/save_picture_1053123.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053119.jpg" />
+  <img src="Z:/picture/005/save_picture_1053119.jpg" />
 </div>
 
 
@@ -631,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB13E4425D95CB3530C78849EE03C35AD3614A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848163   (1052541) от 16.01.2026
-
-Валерий Поволяев | Царский угодник (2025) [MP3, Зоя Банкетова]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга известного писателя-историка Валерия Поволяева посвящена одной из знаковых фигур, появившихся на закате Российской империи, – Григорию Распутину. Роман-хроника, роман-исследование показывает знаменитого «старца» в период наивысшего могущества, но уже в одном шаге от смерти. Своеобразным рефреном в повествовании стало название другого произведения о Распутине (   Читать дальше...   )Жанр: Исторический романИздательство: ВЕЧЕПродолжительность: 28:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61537E751BAD3979C2CCCAC481F7FFA3FF3B261D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847729   (1052345) от 14.01.2026
-
-Элисон Уэйр | Розы Тюдоров (Книга 1). Елизавета Йоркская. Последняя Белая роза (2023) [MP3, Евгения Витте]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английская принцесса Елизавета появилась на свет в разгар Войны Алой и Белой розы – династических распрей между Ланкастерами и Йорками. Старшая дочь королевского дома Йорков, она мечтает о короне. Но внезапно умирает Эдуард IV, отец принцессы, и в ее судьбе наступают резкие перемены. Клан Алой розы стремится захватить власть, безжалостно уничтожая других претендентов (   Читать дальше...   )Жанр: ИсторияИздательство: Азбука-АттикусПродолжительность: 22:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E363BB303536D30C8119A2E7AB077F4E099D5F8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

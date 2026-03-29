@@ -6,7 +6,7 @@ Adobe components: Flash Player 28.0.0.161 + AIR 28.0.0.127 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783723.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Malwarebytes AdwCleaner 7.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783712.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783675.jpg" />
+  <img src="Z:/picture/008/save_picture_783675.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Registry Life 5.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783664.jpg" />
+  <img src="Z:/picture/008/save_picture_783664.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1797 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783657.jpg" />
+  <img src="Z:/picture/008/save_picture_783657.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Skype 8.61.0.87 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783645.jpg" />
+  <img src="Z:/picture/008/save_picture_783645.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CrystalDiskInfo 8.6.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783644.jpg" />
+  <img src="Z:/picture/008/save_picture_783644.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Athentech Perfectly Clear Complete 3.10.0.1797 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783643.jpg" />
+  <img src="Z:/picture/008/save_picture_783643.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Topaz Gigapixel AI 4.9.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783630.jpg" />
+  <img src="Z:/picture/008/save_picture_783630.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ SamDrivers 20.5 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783629.jpg" />
+  <img src="Z:/picture/008/save_picture_783629.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Xilinx Vitis Unified Software Platform 2020.1 [En] (unpacked)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783617.jpg" />
+  <img src="Z:/picture/008/save_picture_783617.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Andrei Neagoie | Complete Python Developer in 2020: Zero to Mastery (2020) WEB-D
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783603.jpg" />
+  <img src="Z:/picture/008/save_picture_783603.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Anvir Task Manager 9.3.3 RePack (& Portable) by elchupacabra (12.06.2020) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783582.jpg" />
+  <img src="Z:/picture/008/save_picture_783582.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Silent Strangers - Anagram 4: Lume (2017) Selection 27 & IDMf [FLAC|Lossless|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783552.jpg" />
+  <img src="Z:/picture/008/save_picture_783552.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - EE Compilation (2012) Electronic Explorations [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783550.jpg" />
+  <img src="Z:/picture/008/save_picture_783550.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Phylum Sinter - Colony Collapse Reorder (2014) Detroit Underground [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783544.jpg" />
+  <img src="Z:/picture/008/save_picture_783544.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Gold Panda - Good Luck and Do Your Best (2016) City Slang [FLAC|Lossless|tracks+
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783529.jpg" />
+  <img src="Z:/picture/008/save_picture_783529.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Numina - The Chroma Plateau (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783528.jpg" />
+  <img src="Z:/picture/008/save_picture_783528.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Junksista - Promiscuous Tendencies (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783509.jpg" />
+  <img src="Z:/picture/008/save_picture_783509.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Future Lied To Us - Presence (2018) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783505.jpg" />
+  <img src="Z:/picture/008/save_picture_783505.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Homemade Weapons & Red Army - Sleep Terror EP (2016) Samurai Music [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783500.jpg" />
+  <img src="Z:/picture/008/save_picture_783500.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Son Lux - Brighter Wounds (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Expe
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783497.jpg" />
+  <img src="Z:/picture/008/save_picture_783497.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Robert Rich - The Biode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783494.jpg" />
+  <img src="Z:/picture/008/save_picture_783494.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783490.jpg" />
+  <img src="Z:/picture/008/save_picture_783490.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ ExpanDrive 6.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783489.jpg" />
+  <img src="Z:/picture/008/save_picture_783489.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Propellerheads - Decksandrumsandrockandroll (1998) [FLAC|Lossless|tracks + .cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783481.jpg" />
+  <img src="Z:/picture/008/save_picture_783481.jpg" />
 </div>
 
 

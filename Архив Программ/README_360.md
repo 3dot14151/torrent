@@ -6,7 +6,7 @@ W10Privacy 3.7.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866220.jpg" />
+  <img src="Z:/picture/008/save_picture_866220.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft SQL Server 2008 R2 RC1 WinBeta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866197.jpg" />
+  <img src="Z:/picture/008/save_picture_866197.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ SMath Studio Desktop 0.97.5890 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866118.jpg" />
+  <img src="Z:/picture/008/save_picture_866118.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sticky Password Premium 8.3.1.21 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866084.jpg" />
+  <img src="Z:/picture/008/save_picture_866084.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CorelDRAW Graphics Suite X5 15.0.0.486 final Portable (Английский)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866040.jpg" />
+  <img src="Z:/picture/008/save_picture_866040.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Microsoft Windows Server 10 Pro Technical Preview 2 Build 9926 OEM RETAIL DVD-WZ
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865982.jpg" />
+  <img src="Z:/picture/008/save_picture_865982.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Skype 7.21.32.100 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865940.jpg" />
+  <img src="Z:/picture/008/save_picture_865940.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ WinCatalog 2017 17.0.2.23 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865914.jpg" />
+  <img src="Z:/picture/008/save_picture_865914.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Avira Free Antivirus 15.0.24.146 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865897.jpg" />
+  <img src="Z:/picture/008/save_picture_865897.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ TeraCopy Pro 3 RC2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865799.jpg" />
+  <img src="Z:/picture/008/save_picture_865799.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ BlueStacks HD App Player 2.1.7.5658 MOD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865715.jpg" />
+  <img src="Z:/picture/008/save_picture_865715.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Auslogics Registry Cleaner 6.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865695.jpg" />
+  <img src="Z:/picture/008/save_picture_865695.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ BDtoAVCHD 2.9.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865616.jpg" />
+  <img src="Z:/picture/008/save_picture_865616.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865614.jpg" />
+  <img src="Z:/picture/008/save_picture_865614.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Macrium Reflect 6.3.1734 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865588.jpg" />
+  <img src="Z:/picture/008/save_picture_865588.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Mathworks Matlab R2016a (9.0.0.341360) (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865510.jpg" />
+  <img src="Z:/picture/008/save_picture_865510.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Bandizip 7.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865488.jpg" />
+  <img src="Z:/picture/008/save_picture_865488.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Glary Disk Cleaner 5.0.1.205 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865486.jpg" />
+  <img src="Z:/picture/008/save_picture_865486.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Inkscape 0.92.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865382.jpg" />
+  <img src="Z:/picture/008/save_picture_865382.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ ScreenHunter Pro 7.0.1055 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865313.jpg" />
+  <img src="Z:/picture/008/save_picture_865313.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ The Bat! Professional 9.1.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865258.jpg" />
+  <img src="Z:/picture/008/save_picture_865258.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ priPrinter Professional 6.6.0.2491 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865255.jpg" />
+  <img src="Z:/picture/008/save_picture_865255.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Adobe Flash Player 32.0.0.363 (Adobe Runtimes AllInOne 14.04.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865248.jpg" />
+  <img src="Z:/picture/008/save_picture_865248.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Ashampoo UnInstaller 9.00.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865246.jpg" />
+  <img src="Z:/picture/008/save_picture_865246.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Adobe Flash Player 32.0.0.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865167.jpg" />
+  <img src="Z:/picture/008/save_picture_865167.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Textify 1.8.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865161.jpg" />
+  <img src="Z:/picture/008/save_picture_865161.jpg" />
 </div>
 
 

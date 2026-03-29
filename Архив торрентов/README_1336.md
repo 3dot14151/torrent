@@ -6,7 +6,7 @@ CyberLink PowerDirector Ultimate 20.1.2424.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753049.jpg" />
+  <img src="Z:/picture/008/save_picture_753049.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 8.82 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753038.jpg" />
+  <img src="Z:/picture/008/save_picture_753038.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Transmit 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753015.jpg" />
+  <img src="Z:/picture/008/save_picture_753015.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ableton - Live Suite 10.0.6 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753014.jpg" />
+  <img src="Z:/picture/008/save_picture_753014.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753006.jpg" />
+  <img src="Z:/picture/008/save_picture_753006.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Bandit Rock-3 (2CD) (2010) [MP3|176-320 kbps]<ROCK>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752986.jpg" />
+  <img src="Z:/picture/005/save_picture_752986.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752968.jpg" />
+  <img src="Z:/picture/008/save_picture_752968.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MediaInfo 18.03.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752950.jpg" />
+  <img src="Z:/picture/008/save_picture_752950.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Kinza Browser 4.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752945.jpg" />
+  <img src="Z:/picture/008/save_picture_752945.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Transmit 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752944.jpg" />
+  <img src="Z:/picture/008/save_picture_752944.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ K-Lite Codec Pack Update 14.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752942.jpg" />
+  <img src="Z:/picture/008/save_picture_752942.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Paste 2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752939.jpg" />
+  <img src="Z:/picture/008/save_picture_752939.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ O&O DiskImage Professional 12.1 Build 145 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752935.jpg" />
+  <img src="Z:/picture/008/save_picture_752935.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ YTD Video Downloader PRO 5.9.5.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752934.jpg" />
+  <img src="Z:/picture/008/save_picture_752934.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ MacBooster 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752933.jpg" />
+  <img src="Z:/picture/008/save_picture_752933.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Yelawolf - Trial By Fire (2017) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752931.jpg" />
+  <img src="Z:/picture/008/save_picture_752931.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ KeePass Password Safe 2.50 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752926.jpg" />
+  <img src="Z:/picture/008/save_picture_752926.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752908.jpg" />
+  <img src="Z:/picture/008/save_picture_752908.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Empty - Surfacing (2010) [MP3|192-320 kbps]<Industrial / Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752876.jpg" />
+  <img src="Z:/picture/005/save_picture_752876.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752861.jpg" />
+  <img src="Z:/picture/008/save_picture_752861.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ FileOptimizer 12.60.2252 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752845.jpg" />
+  <img src="Z:/picture/008/save_picture_752845.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Light Image Resizer 5.1.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752842.jpg" />
+  <img src="Z:/picture/008/save_picture_752842.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Opera 52.0.2871.40 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752838.jpg" />
+  <img src="Z:/picture/008/save_picture_752838.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Directory Lister  2.26  Enterprise Edition  RePack (& Portable) by TryRooM  [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752837.jpg" />
+  <img src="Z:/picture/008/save_picture_752837.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Aaliyah - One In A Million (1996) [MP3|320 Kbps] <R&B>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752836.jpg" />
+  <img src="Z:/picture/008/save_picture_752836.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752792.jpg" />
+  <img src="Z:/picture/005/save_picture_752792.jpg" />
 </div>
 
 

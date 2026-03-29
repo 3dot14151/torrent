@@ -1,3 +1,87 @@
+###  Публикация: 307909   (43535) от 15.09.2024
+
+Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник концертных выступлений, рекламных роликов и видеоклипов известной британской группы «Manfred Mann's Earth Band».01. Blinded By The Light (Top Of The Pops, BBC TV UK - 1976)
+02. Joybringer (Hits A Go-Go, Swiss TV - 1973)
+03. Don't Kill It Carol (Promo Video - 1979)
+04. Brothers And Sisters Of Africa (Tour Cartoon - 1983)(   Читать дальше...   )Жанр: Rock, Jazz-Rock, Pop-Rock, British Invasion, Prog-Rock, Art RockПродолжительность: 01:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260421   (43212) от 18.09.2024
+
+ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43212.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD 2:
+1. Gimme! Gimme! Gimme!
+2. Mamma Mia
+3. Dancing Queen(   Читать дальше...   )Жанр: EurodiscoФормат: DVD VideoКачество: DVD 9Продолжительность: 2:15 min
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F0B451AC93DBD43B6BEE2023F9F5B3E7D717AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749524   (43190) от 18.09.2024
+
+ВИА ГРА - Избранная видеография (2002-2008) DVDRip [H.264/1080p] [AI Upscale, 50fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43190.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ВИА Гра» (англ. Nu Virgos, укр. ВІА Гра) — украинская женская поп-группа, образованная в 2000 году в Киеве. Коллектив считался одним из самых успешных русскоязычных музыкальных проектов 2000-х годов. Группой было записано 5 студийных альбомов: 3 из них получили золотой статус в России, 1 англоязычный альбом получил платиновый статус в Таиланде и золотой — в некоторых (   Читать дальше...   )01. Good morning, папа!Производство: УкраинаЖанр: Pop, EuropopРежиссер: Семён Горов и другиеПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7293A040ACB5B96DAD4A1A6C44042310424E6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 77933   (42145) от 28.09.2024
 
 Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
@@ -6,7 +90,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42145.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36784.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36441.jpg" />
 </div>
 
 
@@ -91,7 +175,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35126.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35033.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -247,7 +331,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -273,7 +357,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -299,7 +383,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -351,7 +435,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34908.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34907.jpg" />
 </div>
 
 
@@ -403,7 +487,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -429,7 +513,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -455,7 +539,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -481,7 +565,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -535,7 +619,7 @@ Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33685.jpg" />
 </div>
 
 
@@ -561,7 +645,7 @@ Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33684.jpg" />
 </div>
 
 
@@ -587,7 +671,7 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33670.jpg" />
 </div>
 
 
@@ -598,84 +682,6 @@ Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E98413038B456FDB6527EDD406207F290CE39B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766573   (33669) от 19.12.2024
-
-Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33669.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Uptown Funk» (UpTown Funk!) — песня британского автора-исполнителя и продюсера Марка Ронсона при участии американского певца Бруно Марса, изданная 10 ноября 2014 года в качестве первого сингла с его четвёртого студийного альбома Uptown Special на лейбле Sony Music Entertainment. Видеоклип вышел 17 ноября 2014 года, а 19 ноября появился на каналах Vevo и YouTube.Жанр: Фанк, Буги, Minneapolis soundПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5BFF7A3D51C18FFF21C822FD9ED3DDBF995292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766572   (33664) от 19.12.2024
-
-Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33664.jpg" />
-</div>
-
-
-###  Подробнее
-
-«24K Magic» («twenty-four karat magic») — песня американского певца Бруно Марса с его третьего одноимённого студийного альбома 24K Magic (2016). Музыкальное видео вышло 7 октября 2016.Жанр: Синтипоп, фанк, диско, R&BПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2DDCD390F84FC9C0EFDDD4BC444F740A817F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766575   (33660) от 19.12.2024
-
-Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33660.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

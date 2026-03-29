@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818395.jpg" />
+  <img src="Z:/picture/008/save_picture_818395.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818393.jpg" />
+  <img src="Z:/picture/008/save_picture_818393.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (1.3.4.f) SteamRip Let'sP
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818388.jpg" />
+  <img src="Z:/picture/008/save_picture_818388.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818381.jpg" />
+  <img src="Z:/picture/008/save_picture_818381.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818380.jpg" />
+  <img src="Z:/picture/008/save_picture_818380.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818333.jpg" />
+  <img src="Z:/picture/008/save_picture_818333.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818306.jpg" />
+  <img src="Z:/picture/008/save_picture_818306.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818305.jpg" />
+  <img src="Z:/picture/008/save_picture_818305.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818173.jpg" />
+  <img src="Z:/picture/008/save_picture_818173.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818171.jpg" />
+  <img src="Z:/picture/008/save_picture_818171.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818170.jpg" />
+  <img src="Z:/picture/008/save_picture_818170.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818108.jpg" />
+  <img src="Z:/picture/008/save_picture_818108.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818107.jpg" />
+  <img src="Z:/picture/008/save_picture_818107.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818106.jpg" />
+  <img src="Z:/picture/008/save_picture_818106.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818104.jpg" />
+  <img src="Z:/picture/008/save_picture_818104.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ FilePane 1.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818096.jpg" />
+  <img src="Z:/picture/008/save_picture_818096.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ V.A. - DJ Dado Presents - Odyssey One Compilation (1996) [FLAC|Lossless]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818054.jpg" />
+  <img src="Z:/picture/008/save_picture_818054.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ HoudahGeo 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818024.jpg" />
+  <img src="Z:/picture/008/save_picture_818024.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818021.jpg" />
+  <img src="Z:/picture/008/save_picture_818021.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Friction - Dare EP (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818020.jpg" />
+  <img src="Z:/picture/008/save_picture_818020.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ QuartzCode 1.39.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818018.jpg" />
+  <img src="Z:/picture/008/save_picture_818018.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ SnippetsLab 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818016.jpg" />
+  <img src="Z:/picture/008/save_picture_818016.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818015.jpg" />
+  <img src="Z:/picture/008/save_picture_818015.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Telekinesis - Obey (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818014.jpg" />
+  <img src="Z:/picture/008/save_picture_818014.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ oneBYone - Give Me The Chance (2016) [MP3|320 кб/с] < Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818011.jpg" />
+  <img src="Z:/picture/008/save_picture_818011.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818010.jpg" />
+  <img src="Z:/picture/008/save_picture_818010.jpg" />
 </div>
 
 

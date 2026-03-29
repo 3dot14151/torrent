@@ -1,3 +1,107 @@
+###  Публикация: 1628104   (238994) от 21.04.2023
+
+Создание вакцины против коронавируса / The Vaccine: Conquering Covid (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вспышка этого заболевания затронула всё население Земли. Возможно, самое важное научное достижение современности - это вакцина против COVID-19, разработанная в кратчайшие сроки, чтобы остановить пандемию, которая затронула более 170 стран и убила уже более 2 миллионов человек во всем мире. Это рассказ о разработке вакцины, полный трагизма и ликования. Пандемия заставила (   Читать дальше...   )Производство: США, Glass Entertainment GroupЖанр: документальный, история, исследованияПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B1CFFD302E8A71696135824775DE2F60A9E539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638388   (238387) от 12.06.2023
+
+Хватай не глядя / Storage Wars (2014-2015) WEBRip [H.264/1080i-LQ] (сезон 6, серии 1-18 из 18) [AD]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Складские и гаражные аукционы – это богатейший и практически неисчерпаемый источник скрытых сокровищ. Понятно, что охотники за этими сокровищами постараются завладеть ими, обойдя всех конкурентов, в надежде, что в старом хламе отыщутся по-настоящему ценные вещи, которые можно выгодно перепродать. Аукционы проходят так: владелец склада открывает дверь, и у потенциальных (   Читать дальше...   )Производство: США, ORIGINAL PRODUCTIONS, INC A Fremantle Company for A&E NETWORKЖанр: телепередача, реальное ТВУчастники: Брэнди Пассанте, Джаррод Шульц, Лаура Дотсон, Дэн Дотсон, Даррел Шитс, Том Бирс, Брэндон Шитс, Дэйв Хестер, Айви Кэлвин, Барри УайссПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:22:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72322489CBA0F320F5A530DF88EE06D288DF53DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640031   (237891) от 15.06.2023
+
+NG. Море надежды. Подводные сокровища Америки / Sea of Hope. America's Underwater Treasures (2017) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Океан считали слишком большим, чтобы ему что-то угрожало. Но теперь мы знаем, что ошибались. Национальные парки сохраняют природные богатства Америки на суше, но в этом нуждается и океан - ведь он находится в опасности. В столетнюю годовщину Управлению национальных парков инициативная группа отправляется в путешествие по морям и океанам, чтобы убедить одного человека (   Читать дальше...   )Производство: США, True Blue Films, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Роберт НиксонПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629684   (237875) от 28.04.2023
+
+Охота на Бигфута / Shooting Bigfoot (2013) DVB
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о странном, полном конкуренции и интриг мире охотников на бигфута. Молодой британский режиссер Морган Мэттьюз сопровождает три экспедиции, пытающиеся отыскать это неуловимое мифическое существо в американских лесах.Производство: Великобритания, Minnow FilmsЖанр: документальный, тайны, загадкиРежиссер: Морган МэтьюзПеревод: двуголосый профессиональный (24 ДОК)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19129E4D26A08C6BBF8BDA2DC24B9AAC0765A563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631251   (236749) от 04.05.2023
 
 NG. Львы с Крокодильей реки / Lions of Crocodile River (2007) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236749.jpg" />
+  <img src="Z:/picture/005/save_picture_236749.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236295.jpg" />
+  <img src="Z:/picture/004/save_picture_236295.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235360.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235045.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235032.jpg" />
+  <img src="Z:/picture/005/save_picture_235032.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233400.jpg" />
+  <img src="Z:/picture/005/save_picture_233400.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232490.jpg" />
+  <img src="Z:/picture/005/save_picture_232490.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232263.jpg" />
+  <img src="Z:/picture/005/save_picture_232263.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232056.jpg" />
+  <img src="Z:/picture/004/save_picture_232056.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231347.jpg" />
+  <img src="Z:/picture/005/save_picture_231347.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231294.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231033.jpg" />
+  <img src="Z:/picture/004/save_picture_231033.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230727.jpg" />
+  <img src="Z:/picture/004/save_picture_230727.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230640.jpg" />
+  <img src="Z:/picture/004/save_picture_230640.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230525.jpg" />
+  <img src="Z:/picture/005/save_picture_230525.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230517.jpg" />
+  <img src="Z:/picture/004/save_picture_230517.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230473.jpg" />
+  <img src="Z:/picture/004/save_picture_230473.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230389.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229953.jpg" />
+  <img src="Z:/picture/005/save_picture_229953.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229410.jpg" />
+  <img src="Z:/picture/004/save_picture_229410.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229012.jpg" />
+  <img src="Z:/picture/004/save_picture_229012.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228986.jpg" />
+  <img src="Z:/picture/004/save_picture_228986.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:166E4473161CE3614F20A58C4DF0EC7C2036D5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343326   (228958) от 28.07.2023
-
-NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Uncharted (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гордон Рамзи поставил перед собой задачу погрузиться в новые культуры, блюда и запахи. От Перу и Марокко до Гавайев, Аляски и Новой Зеландии, Рамзи пробирается по лесам и долинам, погружается в океаны, карабкается по горам в своих путешествиях по миру для изучения кулинарных особенностей разных народов.Производство: Великобритания, Studio Ramsay, Disney+, National Geographic ChannelЖанр: Документальный, познавательный, путешествияРежиссер: Алистер СмитУчастники: Гордон Рамзи, Шелдон Симеон, Мишель КостеллоПеревод: Одноголосый закадровый, профессиональныйСубтитры: Английские (неотключаемые, на отличную от английской речь)Продолжительность: серии x ~00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18CAEF021E32ECCDE69955B8F9FF3958B04AA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214519   (228950) от 28.07.2023
-
-NG: Последствия: Преданные Солнцем / Aftermath: Betrayed by the sun (2010) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше Солнце не вечно. Через миллиарды лет оно умрет - превратится в огромного красного гиганта и поглотит Землю. Что будет с землей если Солнце станет красным карликом прямо сегодня, на наших глазах, и как мы будем справляться с последствиями?Жанр: ДокументальныйПеревод: Одноголосый профессиональныйПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47BA8AE825302CFFA378D5CF5E498BEC995834D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499582   (228935) от 28.07.2023
-
-NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Uncharted (2021) HDTVRip [H.264/1080i] (Сезон 3, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших поваров мира — Гордон Рамзи — отправляется в путешествие по миру ради новых кулинарных впечатлений и идей. Зрители побывают вместе с Рамзи в Перу, Марокко, на Гавайях, в Новой Зеландии и даже посетят Аляску, чтобы насладиться местными деликатесами. Помимо еды, героя передачи интересуют и культурные ценности местных народов, а также посещение главных (   Читать дальше...   )Производство: США, Studio Ramsay, National GeographicЖанр: Документальный, путешествия, кулинарияРежиссер: Джон КроллУчастники: Гордон Рамзи, Шелдон Симеон, Мишель КостеллоПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D429F58B038C24C872E71D6DC31F88BE692624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583705   (228597) от 15.10.2022
-
-Аляска и её соседи / Alaska and the Wilds Beyond (2021) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аляска, Канада, Норвегия и Арктика - одни из самых холодных и отдаленных районов на Земле. Животные, которые обитают в этих местах, прекрасно приспособлены к выживанию в таких суровых условиях. Белые медведи, касатки и тихоокеанские сельдевые акулы успешно охотятся в этих ледяных водах. Между тем вдали от моря свою добычу упорно преследуют волки, лисы и росомахи.Производство: США, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Сэмюэл ХоллПеревод: одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163868AF0B4CDF4F62AD9D63E7291EF05CBBC654
 ```
 
 https://mybot314.ru/tekegram_catalog/

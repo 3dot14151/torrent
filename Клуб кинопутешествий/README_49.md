@@ -1,3 +1,57 @@
+###  Публикация: 1835974   (251748) от 08.11.2025
+
+Камчатка: серфинг в Тихом океане, нерпа и медведь, крабсбургер и пончики | «Поедем, поедим» (08.11.2025)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди на Камчатке научился серфингу в Тихом океане, увидел самого настоящего бурого медведя и поздоровался с нерпой, попробовал крабсбургер и совершенно нетипичные пончики. А еще он отправился в тайгу и даже привезет с собой в Москву частичку потрясающего полуострова!Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11E64D5B781EAEFBB43596228B5676426C12F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492936   (248967) от 08.05.2012
+
+Мир наизнанку с Дмитрием Комаровым - Камбоджа (7 серий) (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор "Мира наизнанку" путешествует по странам, в которые не принято ездить с туристическими турами. В программе вы увидите редкие традиции и уникальные ритуалы, невероятные знакомства с аборигенами. Дмитрий Комаров - украинский журналист и фотограф, специальный корреспондент газеты "Известия в Украине".
+Автор и участник масштабных экспедиций отдает предпочтение одиночным путешествиям – покупает билет в один конец и надолго уезжает в незнакомую страну, чтобы понять ее изнутри, стать ее жителем, показать изнанку.
+В багаже Комарова сегодня порядка 20 стран: Кения, Танзания, Непал, Бирма, Таиланд, Азербайджан, Казахстан, республика Кабардино-Балкария и другие. Одиночное путешествие Комарова по Индии было внесено в "Книгу рекордов Украины" как максимальный пробег "своим ходом" по этой стране за минимальный срок – 20 000 километров за 90 дней. Дмитрий так же восходил на Килиманджаро, Эльбрус и Монблан.Жанр: Документальный, ТелепередачаПродолжительность: 7х ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3988F20EEBCD0E1954A3F2A8463B28C22D7035F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493124   (248913) от 08.05.2012
 
 Армения - Земля Ноя / ARMENIA The Land Of Noah (2008) HDTVRip[720p]
@@ -6,7 +60,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248913.jpg" />
+  <img src="Z:/picture/004/save_picture_248913.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245501.jpg" />
+  <img src="Z:/picture/004/save_picture_245501.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ RTG. Парки Москвы. Коломенское (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245285.jpg" />
+  <img src="Z:/picture/004/save_picture_245285.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ RTG. Национальная Президентская библиотека (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245276.jpg" />
+  <img src="Z:/picture/004/save_picture_245276.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ RTG. Музей оптики (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245220.jpg" />
+  <img src="Z:/picture/004/save_picture_245220.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ RTG. Сибирские пимы (2012) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245205.jpg" />
+  <img src="Z:/picture/004/save_picture_245205.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244043.jpg" />
+  <img src="Z:/picture/004/save_picture_244043.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243975.jpg" />
+  <img src="Z:/picture/004/save_picture_243975.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243507.jpg" />
+  <img src="Z:/picture/004/save_picture_243507.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243348.jpg" />
+  <img src="Z:/picture/004/save_picture_243348.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243341.jpg" />
+  <img src="Z:/picture/004/save_picture_243341.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243135.jpg" />
+  <img src="Z:/picture/004/save_picture_243135.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ RTG. Выходные в горах. Поселок Каменномостски
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243103.jpg" />
+  <img src="Z:/picture/005/save_picture_243103.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ RTG. Выходные дни в Геленджике (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243019.jpg" />
+  <img src="Z:/picture/005/save_picture_243019.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242462.jpg" />
+  <img src="Z:/picture/005/save_picture_242462.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ RTG. Дальневосточный морской заповедник (2013) H
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242343.jpg" />
+  <img src="Z:/picture/005/save_picture_242343.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ RTG. Заповедник Утриш (2015) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242332.jpg" />
+  <img src="Z:/picture/005/save_picture_242332.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ RTG. Зеленчукская астрофизическая обсервато�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242304.jpg" />
+  <img src="Z:/picture/005/save_picture_242304.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ RTG. Зимний отдых в Домбае (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242296.jpg" />
+  <img src="Z:/picture/005/save_picture_242296.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241929.jpg" />
+  <img src="Z:/picture/004/save_picture_241929.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241478.jpg" />
+  <img src="Z:/picture/004/save_picture_241478.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241136.jpg" />
+  <img src="Z:/picture/004/save_picture_241136.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ RTG. Музей-усадьба Льва Толстого "Ясная Полян�
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241115.jpg" />
+  <img src="Z:/picture/004/save_picture_241115.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ RTG. Святки в деревне Шуваловка (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240149.jpg" />
+  <img src="Z:/picture/004/save_picture_240149.jpg" />
 </div>
 
 
@@ -620,58 +674,6 @@ RTG. Святки в деревне Шуваловка (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:636503DB4256D834A5DC4C2AD808304D6228A652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637524   (239871) от 04.06.2023
-
-RTG. Подземный мир хребта Азиш-Тау (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хребет Западного Кавказа Азиш-Тау славится своими карстовыми пещерами. Они пронизывают горный массив, образуя целую сеть подземных трасс. Некоторые из них, такие, как Большая Азишская пещера, давно изучены и теперь оборудованы для осмотра туристами. Но большинство ученым только предстоит зафиксировать и описать.Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Алексей СтарченкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067703E5590AC366C31410140D2FCCE77EEA029A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635941   (239603) от 27.05.2023
-
-RTG. Летний отдых в Анапе (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всем мире всего четыре водных парка, построенных в открытом море. Один из них - «Море удовольствия» - находится в Анапе. Солнечный город привлекает не только любителей пляжного отдыха: сюда приезжают профессиональные спортсмены и люди, увлеченные воднолыжным спортом и вейкбордингом.Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Игорь ЧернышевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C92693E49146B84E6C287E2B6A5C92653F8BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

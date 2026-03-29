@@ -1,3 +1,165 @@
+###  Публикация: 1175701   (373927) от 20.10.2017
+
+VA - Viva Music (1996) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов легендарного немецкого музыкального телеканалаDJ Hooligan - System Ecstasy
+Rhythm of Sylvia - Rhythm of Sylvia
+CJ Bolland - Camargue
+Der dritte Raum Trommelmaschine(   Читать дальше...   )Производство: Viva MusicЖанр: Музыка,клипыСубтитры: отсутствуютПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D8558D78FB6CEABEFD7328311F451CBA39BA91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175996   (373919) от 20.10.2017
+
+Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фееричное шоу вечно молодой, энергичной и эпатажной королевы поп-музыки - Madonna. "Rebel Heart Tour" - десятый концертный тур американской певицы в поддержку её тринадцатого студийного альбома Rebel Heart, вышедшего 6 марта 2015 года. Данный тур собрал более $169,800,000. Премьера шоу состоялась 9 декабря 2016 года на кабельном канале SHOWTIME.Производство: США, Live Nation Global Touring, Live Nation, York StudiosЖанр: Документальный, МузыкаРежиссер: Натан Риссман, Дэнни ТуллАктеры: Мадонна, Кевин Антунес, Купоно Алоу ...Субтитры: ОтсутствуютПродолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D61B51514B26C22D3386880FF0A5AC57390692C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069645   (373668) от 04.11.2016
+
+Адольф Адан - Жизель /  Adolphe Adam - Giselle (1974) DVDRip (Большой театр)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373668.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жизель» (полное название «Жизель, или Вилисы») - балет-пантомима в двух актах на музыку Адольфа Шарля Адана. Либретто Т. Готье и Ж. Сен-Жоржа по старинной легенде, записанной Генрихом Гейне, - о вилисах - погибших от несчастной любви девушках, которые, превратившись в волшебных существ, до смерти затанцовывают ночами молодых людей, мстя им за свою погубленную жизнь.Производство: СССР, ТО "Экран"Жанр: Балет, экранизацияРежиссер: Владимир ГравеАктеры: Наталья Бессмертнова, Михаил Лавровский, Галина Козлова, Владимир Левашев, Алексей ЗакалинскийПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21792212F682DD54E9FCA02CA43C31D2D5E9209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575732   (373060) от 11.09.2022
+
+Квартирник у Маргулиса. Концерт ко дню рождения Ларисы Долиной (11.09.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал НТВ продолжает серию атмосферных «Квартирников» концертом в честь дня рождения Ларисы Долиной. Именинница пригласила в студию к Евгению Маргулису своих коллег и друзей, чтобы вместе отметить праздник. В этот вечер Лариса Александровна спела не только полюбившиеся песни, но и представила неожиданные дуэты. Артистка продолжает экспериментировать и искать (   Читать дальше...   )00:00:01 Я не умею танцевать
+00:07:28 P.S.
+00:13:51 Они знакомы давно
+00:24:14 Я падаю в небо(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Поп, блюз, джаз.Продолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0F43BC8DBE89A54B221103FBB37287D625FDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254542   (372255) от 14.10.2018
+
+Квартирник на НТВ у Маргулиса. Би-2 (10.13.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372255.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске к Евгению Маргулису пришел популярный музыкальный коллектив, без хитов которого сложно представить российскую рок-сцену, — «Би-2». Бессменные лидеры группы — Лёва и Шура — исполнили известные хиты, а также поделились интересными воспоминаниями, которые у них накопились за 20 лет работы друг с другом.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172FCF836E36966EFBE4A1A96159706930E53F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327469   (371998) от 26.09.2019
+
+Наталья Маркова  Выступление на фестивале «Аку...рок» (1992) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_371998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акустическое выступление волшебной Наташи Марковой 20 сентября 1992 года на фестивале «Аку...рок» (акустический рок, если кто не понял), организованном ассоциацией «Д.В.А.»Жанр: RockАктеры: Наталья МарковаСубтитры: отсутствуютПродолжительность: 00:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F003EB26E0F10585C6138AF8DFFC8FAF273255E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574837   (371123) от 14.11.2012
 
 Стар Трэк. Видеоколлекция 18 / Star Track. Video Collection 18 (2004) VHSRip(DVD9)
@@ -6,7 +168,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_371123.jpg" />
+  <img src="Z:/picture/005/save_picture_371123.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370097.jpg" />
+  <img src="Z:/picture/008/save_picture_370097.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ Queen - Live at Wembley Stadium (1986, 12th July) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369969.jpg" />
+  <img src="Z:/picture/008/save_picture_369969.jpg" />
 </div>
 
 
@@ -90,7 +252,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_369932.jpg" />
+  <img src="Z:/picture/005/save_picture_369932.jpg" />
 </div>
 
 
@@ -125,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369690.jpg" />
+  <img src="Z:/picture/008/save_picture_369690.jpg" />
 </div>
 
 
@@ -154,7 +316,7 @@ AC/DC - Live in Berlin (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369399.jpg" />
+  <img src="Z:/picture/008/save_picture_369399.jpg" />
 </div>
 
 
@@ -183,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369383.jpg" />
+  <img src="Z:/picture/008/save_picture_369383.jpg" />
 </div>
 
 
@@ -212,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369192.jpg" />
+  <img src="Z:/picture/008/save_picture_369192.jpg" />
 </div>
 
 
@@ -241,7 +403,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369117.jpg" />
+  <img src="Z:/picture/008/save_picture_369117.jpg" />
 </div>
 
 
@@ -267,7 +429,7 @@ Assorti Creative 50 (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368450.jpg" />
+  <img src="Z:/picture/008/save_picture_368450.jpg" />
 </div>
 
 
@@ -296,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367924.jpg" />
+  <img src="Z:/picture/008/save_picture_367924.jpg" />
 </div>
 
 
@@ -327,7 +489,7 @@ DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367907.jpg" />
+  <img src="Z:/picture/008/save_picture_367907.jpg" />
 </div>
 
 
@@ -353,7 +515,7 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367808.jpg" />
+  <img src="Z:/picture/008/save_picture_367808.jpg" />
 </div>
 
 
@@ -379,7 +541,7 @@ VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367786.jpg" />
+  <img src="Z:/picture/008/save_picture_367786.jpg" />
 </div>
 
 
@@ -405,7 +567,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366936.jpg" />
+  <img src="Z:/picture/008/save_picture_366936.jpg" />
 </div>
 
 
@@ -434,7 +596,7 @@ Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366309.jpg" />
+  <img src="Z:/picture/008/save_picture_366309.jpg" />
 </div>
 
 
@@ -460,7 +622,7 @@ JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365576.jpg" />
+  <img src="Z:/picture/008/save_picture_365576.jpg" />
 </div>
 
 
@@ -486,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365328.jpg" />
+  <img src="Z:/picture/008/save_picture_365328.jpg" />
 </div>
 
 
@@ -517,7 +679,7 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365146.jpg" />
+  <img src="Z:/picture/005/save_picture_365146.jpg" />
 </div>
 
 
@@ -553,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365093.jpg" />
+  <img src="Z:/picture/008/save_picture_365093.jpg" />
 </div>
 
 
@@ -564,182 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE05B3F2EFDD6DFFBB534222BCABFEB7AAB1A006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950814   (365072) от 28.10.2015
-
-VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осенние (27.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
-Представляю юбилейный, двухсотый сборник популярной музыки для хорошего настроения.01. 5 Seconds of Summer - Hey Everybody! (Official Video) (00:04:03)
-02. Alex Sparrow - She's Crazy But She's Mine (ПРЕМЬЕРА!) (00:04:18)
-03. Armin van Buuren ft. Cimo Fränkel - Strong Ones (Official Video) (00:03:29)
-04. BT and Senadee ft. Dragon and Jontron - Lifeline (Official Video) (00:03:58)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494605E8979914BC467E07C9408CC893DC2343E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950661   (365066) от 28.10.2015
-
-Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое видео британской певицы Adele на песню  "Hello"Жанр: поп-джаз/соул, блюз.Продолжительность: 00:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BCBC5EAA027C23913EAC3EE30F6C45A5117598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254000   (364001) от 04.11.2010
-
-Yanni Live! The Concert Event (2006) HDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, каждому меломану знакомо чувство насыщения музыкой, которая есть у него, и хочется чего-то не просто нового, а потрясающе нового, открытия новых имен, новых музыкальных идей. Если вам знакомо это чувство, вы должны быть очарованы музыкой Янни. Янни поистине великий мультиинструменалист. Родившись в Греции он стал известен во всем мире благодаря потрясающим (   Читать дальше...   )01. Creating
-02. Standing in Motion
-03. Rainmaker
-04. Keys to Imagination(   Читать дальше...   )Жанр: Концерт, New AgeПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6458B35336DEE43C2153047B9EE86B25FD578C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154155   (363685) от 22.11.2009
-
-Сурганова и Оркестр - Программа "Весь этот рок" [2009 г., Rock, SATRip]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Весь этот рок": Сурганова и оркестр
-Запись с телеканала "Парк Развлечений" 15.11.09 .Жанр: Концерт, VIP-Punk-Decadence, интервьюРежиссер: Ольга МихешкинаПродолжительность: 00:27:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575922   (363572) от 17.11.2012
-
-Осмондс / The Osmonds - Live 72 (1972) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы помните эту семейку? Для всех поклонников The Osmonds! (Для немного ностальгирующих...)01. One Bad Apple
-02. Yo Yo
-03. Hold Her Tight
-04. Meet The Osmonds
-05. Too Young
-06. Sweet & Innocent
-07. Why
-08. Crazy Horses
-09. Puppy Love
-10. Down By The Lazy River(   Читать дальше...   )Жанр: Музыка, Pop-RockПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA1F60E4278BA846F1BB1C4F43B4F87B48589DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255406   (363460) от 18.10.2018
-
-Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).1. Rammstein
-2. Herzeleid
-3. Bestrafe mich (demo)
-4. Der Meister(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEBB49EC17C870262B58F629230786D2590C8DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

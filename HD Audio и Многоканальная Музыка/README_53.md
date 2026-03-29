@@ -1,3 +1,236 @@
+###  Публикация: 1637016   (231036) от 02.06.2023
+
+Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_231036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stairway To Heaven
+A2 Custard Pie
+A3 D'Yer Mak'er
+A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637048   (230996) от 02.06.2023
+
+Queen - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230996.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Kind Of Magic (A Kind Of Magic)
+A2 Killer Queen (Sheer Heart Attack)
+A3 You're My Best Friend (A Night At The Opera)
+A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic Rock, Arena RockПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637289   (230957) от 03.06.2023
+
+Krokus - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 24/48|Lossless|image + .cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Wild Love
+02. Winning Man
+03. Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850096   (230927) от 06.06.2022
+
+Владимир Высоцкий - Лукоморья больше нет. Песни 1967 - 1968 годов (1995) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня про правого инсайда
+02. ''У нас вчера с позавчера...''
+03. Аисты
+04. Лукоморья больше нет(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637232   (230921) от 03.06.2023
+
+Creedence Clearwater Revival - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before You Assure Me
+02. Green River
+03. I Put A Speel On You
+04. Travelin' Band(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556033   (230778) от 07.06.2022
+
+Running Wild (X-Wild, Toxic Taste, Giant X) - Studio Albums (22 releases) (1984 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Running Wild (с англ. — «Ведущий беспутный образ жизни») — немецкая метал-группа. Основана в 1976 году гитаристом Рольфом Каспареком в Гамбурге, ФРГ.
+Стиль группы можно определить как некую смесь хэви-метал, пауэр-метал и спид-метал. Музыкально Running Wild сформировались под влиянием «Новой волны британского хэви-метал» с заметными заимствованиями из (   Читать дальше...   )1984 - Gates To Purgatory
+1985 - Branded And Exiled
+1987 - Under Jolly Roger
+1988 - Port Royal(   Читать дальше...   )Жанр: Heavy/Power/Speed MetalПродолжительность: 20:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395195E3218167A7611320B7E0C7EA9E5DBF3C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637784   (230481) от 06.06.2023
+
+10СС - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Dreadlock Holiday
+02. Take This Woman
+03. Nothing Can Move Me(   Читать дальше...   )Жанр: Art RockПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582736   (230384) от 11.10.2022
+
+Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera) (1970) [DSD128 2.0|images(sides)|Vinyl-Rip]<Classic Rock, Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:59)
+ 02. Heaven on Their Minds (4:22)
+ 03. What's the Buzz/Strange Thing Mystifying (4:14)
+ 04. Everything's Alright (5:15)(   Читать дальше...   )Жанр: Classic Rock, MusicalПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583185   (230204) от 13.10.2022
 
 XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classical>
@@ -6,7 +239,7 @@ XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230204.jpg" />
+  <img src="Z:/picture/005/save_picture_230204.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230001.jpg" />
+  <img src="Z:/picture/005/save_picture_230001.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229534.jpg" />
+  <img src="Z:/picture/004/save_picture_229534.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229117.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228845.jpg" />
+  <img src="Z:/picture/004/save_picture_228845.jpg" />
 </div>
 
 
@@ -151,7 +384,7 @@ VA - Dantcho "Rap" Georgiev Presents: Dance Hits Vol. 4 (1992) [FLAC|96/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228561.jpg" />
 </div>
 
 
@@ -180,7 +413,7 @@ VA - The Wild Life. Music From The Original Motion Picture Soundtrack (1984) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228434.jpg" />
 </div>
 
 
@@ -209,7 +442,7 @@ VA - The Dooley Family And The Others (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227970.jpg" />
+  <img src="Z:/picture/005/save_picture_227970.jpg" />
 </div>
 
 
@@ -238,7 +471,7 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227704.jpg" />
+  <img src="Z:/picture/005/save_picture_227704.jpg" />
 </div>
 
 
@@ -267,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227654.jpg" />
+  <img src="Z:/picture/005/save_picture_227654.jpg" />
 </div>
 
 
@@ -296,7 +529,7 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227333.jpg" />
 </div>
 
 
@@ -325,7 +558,7 @@ Aldo Nova - Blood On The Bricks (1991) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224838.jpg" />
 </div>
 
 
@@ -354,7 +587,7 @@ The Sylvers - Forever Yours (1978) [FLAC|96/24|image + .cue|Vinyl-Rip] <Soul, Di
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224804.jpg" />
 </div>
 
 
@@ -383,7 +616,7 @@ Aerosmith (Steven Tyler; Joe Perry) - Studio Albums (10 releases) (1993-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224575.jpg" />
 </div>
 
 
@@ -412,7 +645,7 @@ Jamiroquai - A Funk Odyssey (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <House, Ac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223122.jpg" />
+  <img src="Z:/picture/005/save_picture_223122.jpg" />
 </div>
 
 
@@ -441,7 +674,7 @@ VA - ''Не люблю прощания'' - Песни на музыку Иго�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223061.jpg" />
+  <img src="Z:/picture/005/save_picture_223061.jpg" />
 </div>
 
 
@@ -470,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222893.jpg" />
+  <img src="Z:/picture/005/save_picture_222893.jpg" />
 </div>
 
 
@@ -499,7 +732,7 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222673.jpg" />
+  <img src="Z:/picture/005/save_picture_222673.jpg" />
 </div>
 
 
@@ -513,235 +746,6 @@ Robert Michaels - Paradiso (1998) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Flamen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBE624EF642C2696EFC1CEDFF8EBC92BDCDEE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965111   (222635) от 16.12.2015
-
-М. Горький, Е. Честняков: Сказка про Иванушку-Дурачка, Чудесное яблоко (1980) [FLAC 2.0 16/44,1|tracks (Vinyl-Rip)] <Сказка>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки М. Горького и Е. Честнякова исполняют: В. Тучинский, В. Невинный, Р. Филиппов, М. Калашников, С. Бубнов, О. Якунина, З. Нарышкина, А. Баранцев, в эпизодах артисты московских театров, режиссёры А. Крюков и В. Иванов, инсценировка В. Толмачёвой.01. Сказка про Иванушку-Дурачка (М. Горький)
-02. Чудесное яблоко (Е. Честняков)Жанр: СказкаПродолжительность: 00:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312CE21DCEF77E52055E731CEA0F02EB2550BA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965437   (222548) от 16.12.2015
-
-B. B. King - Blues Masters (Compilation) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Day I Have The Blues
-02. Sweet Little Angel
-03. How Blue Can You Get?
-04. Playing The Cost To Be The Boss (King)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B633A2D7C7EF9837296F8875CFF415B8402336C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965360   (221879) от 16.12.2015
-
-Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Ночной город / Night City  3:34
-2. Давайте еще потанцуем / Let Us Dance Just A Little Bit More   4:24
-3. Наша песня / Special Songs  3:30(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232E9787FB355287810D7BEC66858DEEB9DC4C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585399   (221365) от 22.10.2022
-
-Great White - Studio Albums (14 releases) (1991 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Great White (Грейт Уайт, с англ. — «Большая белая» (подразумевается акула)) — американская хард-рок-группа, основанная в Лос-Анджелесе в 1977 году вокалистом Джеком Расселом и гитаристом Марком Кендалом.1991 - Hooked
-1992 - Psycho City
-1994 - Sail Away
-1996 - Let It RockЖанр: Hard Rock, Glam MetalПродолжительность: 14:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9756C2E3DDC6AE75B2359503FA693EAAF81635BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651927   (219758) от 09.08.2023
-
-Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Doom>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Family Man [00:10:43]
-02 Three Times Great [00:09:10]
-03 Become Nothing [00:03:22]
-04 Forgotten Gods [00:02:12](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBCDB8F39FE4FE53E7AA3D9CF15D85E9F1A70C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650653   (219713) от 09.08.2023
-
-GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stoner>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Electric Dream Demon (LP)
-2023 - GNOB II (LP)Жанр: Heavy Psych, Fuzz, StonerПродолжительность: 2 CD, 01:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EF2B759EAB75623C73843D9B0CBD933A719F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650501   (219574) от 09.08.2023
-
-VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219574.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kake Randelin - Avaa Hakas
-A2 Meiju Suvas - Taa Onnea On = Maria No Mas
-A3 Matti Ja Teppo - Ma Joka Paiva Toita Teen
-A4 Katri Helena - Vain Hieman Rauhaa = A Little Peace(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C584D45710EE4D9660F516AE982A349228EFF5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649982   (219557) от 09.08.2023
-
-Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219557.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Highlights Of The Best Of Bacharach
-A2 I Don't Know How To Love Him
-A3 Put Your Hand In The Hand
-A4 Help Me Make It Through The Night(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447CC9A5174872247930E0E2AD535FC657F7CF80
 ```
 
 https://mybot314.ru/tekegram_catalog/

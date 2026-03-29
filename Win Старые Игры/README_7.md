@@ -1,3 +1,55 @@
+###  Публикация: 1114146   (834538) от 13.03.2017
+
+Battle Realms (2001) [Multi] (1.0/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_834538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кендзи, изгнанный наследник престола, вынужден бороться за трон Дракона. Действие происходит в безумном мире, погруженном в хаос бесконечными интригами кланов Змея, Волка и Лотоса. Решит ли наш герой покорить растерзанную землю, или же он сможет восстановить гибнущее царство и вернуть ему былую славу? Судьба ждет вас в Battle Realms. Узнайте, что привело к событиям, (   Читать дальше...   )Тип издания: LicenseРазработчик: Liquid Entertainment и Crave EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499254   (833099) от 11.10.2021
+
+Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых мрачных игр всех времён, отправляет игроков в эпическое путешествие по готической вселенной, наполненной убийствами, магией и местью. В этом умирающем мире был рождён Каин, аристократ, ничего ещё не подозревающей о своей судьбе. Когда Каин был молод, он отправился в путешествие по Нозготу. Вскоре он был убит бандой разбойников возле деревушки Зиегстурхл. (   Читать дальше...   )Тип издания: LicenseРазработчик: Silicon KnightsЖанр: RPG, Hack'n'slash, Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114456   (832784) от 14.03.2017
 
 Lula: The Sexy Empire (1998) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832784.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827479.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825815.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы (2003) [En
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825538.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Deathtrap Dungeon (1998) [En] (1.0 it fix) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825532.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824326.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822192.jpg" />
+  <img src="Z:/picture/008/save_picture_822192.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820420.jpg" />
+  <img src="Z:/picture/008/save_picture_820420.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818611.jpg" />
+  <img src="Z:/picture/008/save_picture_818611.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818609.jpg" />
+  <img src="Z:/picture/008/save_picture_818609.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818552.jpg" />
+  <img src="Z:/picture/008/save_picture_818552.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818467.jpg" />
+  <img src="Z:/picture/008/save_picture_818467.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818457.jpg" />
+  <img src="Z:/picture/008/save_picture_818457.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816733.jpg" />
+  <img src="Z:/picture/008/save_picture_816733.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816482.jpg" />
+  <img src="Z:/picture/008/save_picture_816482.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816345.jpg" />
+  <img src="Z:/picture/008/save_picture_816345.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815561.jpg" />
+  <img src="Z:/picture/008/save_picture_815561.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Delta Force (1998) [En] (1.00.03.03p) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814568.jpg" />
+  <img src="Z:/picture/008/save_picture_814568.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Delta Force 2 (1999) [En] (1.06.15) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812749.jpg" />
+  <img src="Z:/picture/008/save_picture_812749.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812699.jpg" />
+  <img src="Z:/picture/008/save_picture_812699.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812638.jpg" />
+  <img src="Z:/picture/008/save_picture_812638.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812637.jpg" />
+  <img src="Z:/picture/008/save_picture_812637.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812622.jpg" />
+  <img src="Z:/picture/008/save_picture_812622.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810637.jpg" />
+  <img src="Z:/picture/008/save_picture_810637.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Planescape: Torment - одна из величайших игр в истори�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198119   (807756) от 11.01.2018
-
-Terminus (2000) [Ru] (1.1) Unofficial
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminus - космический симулятор с реальной физической моделью поведения в вакууме и невесомости. В далёком будущем человечество, обнаружив древний артефакт и узнав о новой технологии, заселили всю солнечную систему и создали огромные колонии. Через какое-то время между колониями появились некоторые трения, переросшие впоследствии во вселенную войну между Объединённой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Vicarious VisionsЖанр: Space flight simulator, Role-playingЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752E5B0CBD6ADA9817C8C01875866F1CB12A1059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505769   (802211) от 28.10.2021
-
-Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Экшн, От третьего лица, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
 ```
 
 https://mybot314.ru/tekegram_catalog/

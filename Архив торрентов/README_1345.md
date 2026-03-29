@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750222.jpg" />
+  <img src="Z:/picture/008/save_picture_750222.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750220.jpg" />
+  <img src="Z:/picture/008/save_picture_750220.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ryo Nakamura - Coastal Flow EP (2016) EP [MP3|320 кб/с] <Trance,Progressive H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750189.jpg" />
+  <img src="Z:/picture/008/save_picture_750189.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Watermark Batch 1.0 (build 3) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750188.jpg" />
+  <img src="Z:/picture/008/save_picture_750188.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750186.jpg" />
+  <img src="Z:/picture/008/save_picture_750186.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ VA - Goa Session by Goa Gil and Ariane (2016) [MP3|320 кб/с] <Psy, Goa Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750184.jpg" />
+  <img src="Z:/picture/008/save_picture_750184.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750177.jpg" />
+  <img src="Z:/picture/008/save_picture_750177.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750171.jpg" />
+  <img src="Z:/picture/008/save_picture_750171.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750168.jpg" />
+  <img src="Z:/picture/008/save_picture_750168.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Sunnery James & Ryan Marciano - Live @ Monument Of Light, Sensation Netherlands 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750166.jpg" />
+  <img src="Z:/picture/008/save_picture_750166.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750163.jpg" />
+  <img src="Z:/picture/008/save_picture_750163.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750161.jpg" />
+  <img src="Z:/picture/008/save_picture_750161.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750137.jpg" />
+  <img src="Z:/picture/008/save_picture_750137.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750094.jpg" />
+  <img src="Z:/picture/008/save_picture_750094.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ RegScanner 2.17 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750089.jpg" />
+  <img src="Z:/picture/008/save_picture_750089.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750083.jpg" />
+  <img src="Z:/picture/005/save_picture_750083.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ OCCT 6.1.0.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750056.jpg" />
+  <img src="Z:/picture/008/save_picture_750056.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Photo Supreme 4.3.3.1943 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750026.jpg" />
+  <img src="Z:/picture/008/save_picture_750026.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Poison Idea - Feel the Darkness (1990) [FLAC|Lossless|tracks + .cue] <Hardcore>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750025.jpg" />
+  <img src="Z:/picture/008/save_picture_750025.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750024.jpg" />
+  <img src="Z:/picture/008/save_picture_750024.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Affinity Photo Beta 1.7.0 (110) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750018.jpg" />
+  <img src="Z:/picture/008/save_picture_750018.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Morph Age 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750011.jpg" />
+  <img src="Z:/picture/008/save_picture_750011.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Smooze Pro 2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750004.jpg" />
+  <img src="Z:/picture/008/save_picture_750004.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ GarageSale 8 v8.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749999.jpg" />
+  <img src="Z:/picture/008/save_picture_749999.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ System Toolkit 5.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749995.jpg" />
+  <img src="Z:/picture/008/save_picture_749995.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Dropshare 5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749992.jpg" />
+  <img src="Z:/picture/008/save_picture_749992.jpg" />
 </div>
 
 

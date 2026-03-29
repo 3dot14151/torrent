@@ -1,3 +1,55 @@
+###  Публикация: 1385878   (793290) от 30.05.2020
+
+Вампирина / Vampirina (2017-2019) WEB-DL [H.264/720p-LQ] (сезон 1-2, серии 50 из 50) [UKR,EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Ви переезжает вместе со своей семьей в Пенсильванию. На новом месте юную героиню ждут и радости, и сложности. Ей будет непросто сразу найти друзей и освоиться в новой школе, ведь она так непохожа на сверстников. Ви родилась в Трансильвании в семье вампиров, и теперь им предстоит адаптироваться к жизни в человеческом мире. Заботливые родители и добрые (   Читать дальше...   )Производство: Ирландия, США, Brown Bag Films, Disney Enterprises, Disney JuniorЖанр: Мультсериал, мюзикл, фэнтези, комедия, семейныйРежиссер: Эхуд Ландсберг, Мартен, Йонмарк, Нортон Вирджиен, Ники ФеланПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:23:02 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E3ACBB3433D0C3CC7AA96FEB2DCAB9A19C6B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122678   (793183) от 06.04.2017
+
+Юная Лига Справедливости / Young Justice (2010 - 2012) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 01-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал о группе подростков-помощников Супергероев из Лиги Справедливости. Они захотели утвердиться и доказать своим опытным наставникам, что они готовы самостоятельно выполнять задания чрезвычайной опасности.Производство: СШАЖанр: ПриключенияРежиссер: Джей Олива, Майкл Чанг, Тим ДиварПерсонажи: Артемида, Робин, Кид-Флэш, Супербой, Мисс Марсианка и АквалэдПеревод: ДублированныйОзвучка / Автор перевода: ПифагорСубтитры: Русские форсированные (SkyeFilmTV), русские (Kapet's Studios, Supermedia, DCcomics, ZM-SHOW & Notabenoid) (кроме 10 серии), английские (Addic7ed)Продолжительность: 00:22:00 x 26 серий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0532AE7EC77A7A0B84CCCCBE1296C2DDCA58FAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498318   (792552) от 14.11.2021
 
 Что, если...? / What If...? (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) Flarrow Films
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792552.jpg" />
+  <img src="Z:/picture/008/save_picture_792552.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792340.jpg" />
+  <img src="Z:/picture/008/save_picture_792340.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792283.jpg" />
+  <img src="Z:/picture/008/save_picture_792283.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791771.jpg" />
+  <img src="Z:/picture/008/save_picture_791771.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791669.jpg" />
+  <img src="Z:/picture/008/save_picture_791669.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791665.jpg" />
+  <img src="Z:/picture/008/save_picture_791665.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791520.jpg" />
+  <img src="Z:/picture/008/save_picture_791520.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791424.jpg" />
+  <img src="Z:/picture/008/save_picture_791424.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791247.jpg" />
+  <img src="Z:/picture/008/save_picture_791247.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791032.jpg" />
+  <img src="Z:/picture/008/save_picture_791032.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790711.jpg" />
+  <img src="Z:/picture/008/save_picture_790711.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790351.jpg" />
+  <img src="Z:/picture/008/save_picture_790351.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788693.jpg" />
+  <img src="Z:/picture/008/save_picture_788693.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788269.jpg" />
+  <img src="Z:/picture/008/save_picture_788269.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787276.jpg" />
+  <img src="Z:/picture/008/save_picture_787276.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786797.jpg" />
+  <img src="Z:/picture/008/save_picture_786797.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786792.jpg" />
+  <img src="Z:/picture/008/save_picture_786792.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786313.jpg" />
+  <img src="Z:/picture/008/save_picture_786313.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785737.jpg" />
+  <img src="Z:/picture/008/save_picture_785737.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784571.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784291.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783760.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782589.jpg" />
+  <img src="Z:/picture/008/save_picture_782589.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782195.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7DC2083AC0BFC410BE67CF9205BC6BC77DF049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391117   (781774) от 18.06.2020
-
-Скрестив мечи / Crossing Swords (2020) WEB-DL [H.264/1080p-LQ] (1 сезон, серии 1-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик - добросердечный крестьянин, который занимает желанную роль оруженосца в королевском замке. Однако работа его мечты быстро превращается в сущий кошмар, когда он узнает, что его любимое королевство управляется гнездом алчных и разнузданных монархов. Хуже того, доблесть Патрика сделала его белой вороной в семье, где преступные братья хотят сделать его жизнь (   Читать дальше...   )Производство: США /  Stoopid Buddy StoodiosЖанр: мультфильм, фэнтези, комедия, для взрослыхРежиссер: Джон Херветайн IVПеревод: Двуголосый профессиональный (Дима Сыендук и Лиза Чабан)Субтитры: АнглийскиеПродолжительность: ~ 00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D73FB31140EEA75AA6338DDDB4407A5D1BFF798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362840   (781764) от 18.06.2020
-
-Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские (MWT),  английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:493D85CE5CBAD579BF5F2AF4357F2D96A95FF8E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

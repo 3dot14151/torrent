@@ -1,3 +1,89 @@
+###  Публикация: 1115054   (829780) от 16.03.2017
+
+Диско-группа Русский Стилль - Одинокая брюнетка (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокая брюнетка
+02. Не мой мальчик
+03. Вечер
+04. Просто ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706D5C0C1DB7AF36C89E51A7DD5927D9BC70C58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380988   (829738) от 05.05.2020
+
+RASA - Рашн Карантин (2020) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829738.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рашн КарантинЖанр: PopПродолжительность: 00:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149995BB9ED24745711ED1A69F0136A9E92D7AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653322   (827283) от 09.05.2013
+
+Modern Tracking - Running Away (Special Single Edition) (2013) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running away (Original Version) (4:24)
+02. Running Away (Remix) (4:25)
+03. Running away (Alex Neo Electro Mix) (5:39)
+04. Running Away (Alex Neo Remix) (4:50)
+05. Running Away (80` Alex Neo Version) (4:52)
+06. Running away (Extended Version) (6:10)Жанр: Pop,EurodanceПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941B02702518ECA196EF52EBE3D11C383FF8002D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006509   (826765) от 12.04.2016
 
 АлоэВера - Держи меня в курсе (2016) EP [MP3|320 кб/с] <Pop-Rock, Indie Pop>
@@ -6,7 +92,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826765.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825971.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825965.jpg" />
 </div>
 
 
@@ -93,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825875.jpg" />
 </div>
 
 
@@ -122,7 +208,7 @@ Lx24 - 5 альбомов, 51 сингл (2016-2017) [MP3|320 Kbps] <Рор>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825549.jpg" />
 </div>
 
 
@@ -152,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824857.jpg" />
 </div>
 
 
@@ -181,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824476.jpg" />
 </div>
 
 
@@ -210,7 +296,7 @@ Little Big - Hypnodancer (2020) Single [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824463.jpg" />
 </div>
 
 
@@ -236,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823223.jpg" />
 </div>
 
 
@@ -265,7 +351,7 @@ Flagi - Оставь свой след (2017) [MP3|320 Kbps] <Indie Pop, Synthpo
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822402.jpg" />
 </div>
 
 
@@ -294,7 +380,7 @@ ZOLOTO - Не переживай (2018) EP [MP3|320 Kbps] <Indie Pop, Synthpop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822304.jpg" />
+  <img src="Z:/picture/008/save_picture_822304.jpg" />
 </div>
 
 
@@ -323,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820630.jpg" />
+  <img src="Z:/picture/008/save_picture_820630.jpg" />
 </div>
 
 
@@ -352,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818939.jpg" />
+  <img src="Z:/picture/008/save_picture_818939.jpg" />
 </div>
 
 
@@ -381,7 +467,7 @@ Pinballsound - Дирижабль (2016) [MP3|320 кб/с] <Indie Pop, Electroni
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817855.jpg" />
+  <img src="Z:/picture/008/save_picture_817855.jpg" />
 </div>
 
 
@@ -410,7 +496,7 @@ Uma2rman - Пой, весна! (2016) [MP3|320 кб/с] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817154.jpg" />
+  <img src="Z:/picture/008/save_picture_817154.jpg" />
 </div>
 
 
@@ -439,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815105.jpg" />
+  <img src="Z:/picture/008/save_picture_815105.jpg" />
 </div>
 
 
@@ -468,7 +554,7 @@ VA - Хитовый Romantic (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814902.jpg" />
+  <img src="Z:/picture/008/save_picture_814902.jpg" />
 </div>
 
 
@@ -497,7 +583,7 @@ Loboda - H2LO (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814504.jpg" />
+  <img src="Z:/picture/008/save_picture_814504.jpg" />
 </div>
 
 
@@ -526,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813563.jpg" />
+  <img src="Z:/picture/008/save_picture_813563.jpg" />
 </div>
 
 
@@ -555,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_813476.jpg" />
+  <img src="Z:/picture/009/save_picture_813476.jpg" />
 </div>
 
 
@@ -590,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810472.jpg" />
+  <img src="Z:/picture/008/save_picture_810472.jpg" />
 </div>
 
 
@@ -619,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810355.jpg" />
+  <img src="Z:/picture/008/save_picture_810355.jpg" />
 </div>
 
 
@@ -648,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801519.jpg" />
+  <img src="Z:/picture/008/save_picture_801519.jpg" />
 </div>
 
 
@@ -662,93 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98202D066250D24ECD79BE8891FEF266628F7BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384850   (800849) от 22.05.2020
-
-Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не такая, как вы!
-2. Синтетический мир
-3. Изоляция
-4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384900   (800338) от 23.05.2020
-
-23:45 - Новое время (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моя любовь (3:47)
-02. Тайна (3:17)
-03. Сложно забыть (3:26)
-04. Плохая привычка (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767365F82EE20D612B63469F6AA08B79D266F088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122272   (799204) от 04.04.2017
-
-VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shura - Сказка
-02. Алсу, Александр Шевченко - Дуэт
-03. Андрей Губин - Плачь, любовь
-04. Батыр - Забытый(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A095947434F093073AD6E9776DB3BBE62C96F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

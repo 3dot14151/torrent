@@ -1,3 +1,58 @@
+###  Публикация: 755239   (355585) от 03.11.2014
+
+Арчер / Спецагент Арчер / Archer (2014) WEB-DLRip (Сезон-5 / Серии 1-13 из 13) NewStudio
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355585.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международном шпионском агенстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Жанр: Мультфильм, боевик, комедия, для взрослыхРежиссер: Адам Рид, Брайан ФордниАктеры: Х. Джон Бенжамин, Джуди Грир, Эмбер Нэш, Крис Парнелл, Аиша Тайлер, Джессика Уолтер, Адам Рид и др.Перевод: Многоголосый закадровый, профессиональный - Кубик в кубе & Бяко РекордсОзвучка: Руслан Габидуллин, Константин Погодаев, Ольга Кравцова, Анна ТухФормат: AVIПродолжительность: ~00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC194870BA774BA2505D05444D95FB3449562F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577465   (354342) от 20.11.2012
+
+Звёздные Войны: Войны Клонов / Star Wars: The Clone Wars (2008-2011) WEB-DLRip (Сезоны 1-4, серий 87 из 87)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354342.jpg" />
+</div>
+
+
+###  Подробнее
+
+На передовых позициях межгалактической войны Добра и Зла — снова любимые герои: Анакин Скайуокер, Оби-Ван Кеноби и Падме Амидала, а также присоединившийся к ним падаван Анакина, Асока.
+Противостоящие им злодеи — Палпатин, граф Дуку и генерал Гривус — вынашивают план захвата Галактики. Начинается последняя схватка, и судьбы Вселенной вверены рыцарям-джедаям. Их подвиги станут самыми яркими эпизодами масштабных битв и подарят множество удивительных открытий.
+
+Все сезоны разбиты по папкам, так что вы можете не качать все сезоны по-отдельности. Не пугайтесь такого большого веса.Жанр: Компьютерная анимация, Приключения, ДетскийРежиссер: Дэйв Филони, Джастин РиджВ ролях: Ди Брэдли Бэйкер, Йен Эберкромби, Грег Эллис, Катрин Табер, Энтони Дэниелс, Ника Футтерман, Том Кэйн, Кристофер Ли, Мэттью Вуд, Эшли ДрейнПерсонажи: Все персонажи вселенной Star WarsПеревод: Многоголосый закадровыйПродолжительность: 00:23:00  каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3F7F771583695663F56BD409A4E7260B9D4B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359823   (353931) от 19.09.2022
 
 Плуто. Самый весёлый пес в мире! Части 1 - 6 (61 серия) / Pluto (1930-1952) DVDRip
@@ -6,7 +61,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353931.jpg" />
+  <img src="Z:/picture/008/save_picture_353931.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353925.jpg" />
+  <img src="Z:/picture/008/save_picture_353925.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353916.jpg" />
+  <img src="Z:/picture/008/save_picture_353916.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353900.jpg" />
+  <img src="Z:/picture/008/save_picture_353900.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352189.jpg" />
+  <img src="Z:/picture/008/save_picture_352189.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351761.jpg" />
+  <img src="Z:/picture/008/save_picture_351761.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351750.jpg" />
+  <img src="Z:/picture/008/save_picture_351750.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348891.jpg" />
+  <img src="Z:/picture/008/save_picture_348891.jpg" />
 </div>
 
 
@@ -214,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348760.jpg" />
+  <img src="Z:/picture/008/save_picture_348760.jpg" />
 </div>
 
 
@@ -240,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348746.jpg" />
+  <img src="Z:/picture/008/save_picture_348746.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347640.jpg" />
+  <img src="Z:/picture/008/save_picture_347640.jpg" />
 </div>
 
 
@@ -292,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347199.jpg" />
+  <img src="Z:/picture/008/save_picture_347199.jpg" />
 </div>
 
 
@@ -318,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347172.jpg" />
+  <img src="Z:/picture/008/save_picture_347172.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2017) WEBRip (сезон 3,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346330.jpg" />
+  <img src="Z:/picture/008/save_picture_346330.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346148.jpg" />
+  <img src="Z:/picture/008/save_picture_346148.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346076.jpg" />
+  <img src="Z:/picture/008/save_picture_346076.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345366.jpg" />
+  <img src="Z:/picture/008/save_picture_345366.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344774.jpg" />
+  <img src="Z:/picture/008/save_picture_344774.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342986.jpg" />
+  <img src="Z:/picture/008/save_picture_342986.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342445.jpg" />
+  <img src="Z:/picture/008/save_picture_342445.jpg" />
 </div>
 
 
@@ -530,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342438.jpg" />
+  <img src="Z:/picture/008/save_picture_342438.jpg" />
 </div>
 
 
@@ -556,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_342059.jpg" />
+  <img src="Z:/picture/005/save_picture_342059.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341591.jpg" />
+  <img src="Z:/picture/008/save_picture_341591.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340484.jpg" />
+  <img src="Z:/picture/008/save_picture_340484.jpg" />
 </div>
 
 
@@ -619,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7E3F9A0C62D886B9B945C64D451AEAE6AA5474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475532   (339376) от 26.11.2012
-
-Шоу Луни Тюнз / The Looney Tunes Show (2011-2012) (Сезон: 1, Серии: 1-26 из 26) WEB-DL [H.264/720p-LQ] [Обновляемая]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал представляет собой совершенно новую интерпретацию «Безумных Мелодий (в народе Луни Тюнз)». В новом шоу сюжет в основном крутится вокруг двух главных персонажей — Багза и Даффи, которые покинули свои родные леса и переехали в город. Им еще только предстоит встретиться с такими же странными личностями, как Лола, Сильвестр, Порки Пиг и многими другими. Присоединяйтесь (   Читать дальше...   )Жанр: Мультсериал, комедияРежиссер: Джеф Дэвисон / Jeff DavisonПеревод: Профессиональный (дублированный) ПифагорСубтитры: отсутствуютЯзык: Русский, АнглийскийФормат: MKVКачество: WEB-DLПродолжительность: 26 ~ 00:23:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839526   (339171) от 10.11.2014
-
-LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters of Spinjitzu (2011-2012) WEB-DL [1080p] (Сезон: 1, Серии: 1-13 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражные мультфильмы. 1 сезон, продолжение мультфильма о героях Лего-коллекции Нидзяго. Наших героев ждут новые испытания, новые приключения. Сенсей Ву Гармадон - наставник юных ниндзя (Кай, Джей, Зан, Кол), духовный отец, готовит их, помогает понять и осмыслить что-то важное в жизни... Появляются новые персонажи (как положительные, так и отрицательные)... (   Читать дальше...   )Жанр: Мультсериал, детский, приключения, фэнтезиПеревод: Дублированный, любительский одноголосыйСубтитры: отсутствуютПродолжительность: 13 х 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC1FA3A85D6B0D5C1FB20F99C825E8D54FCE2C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

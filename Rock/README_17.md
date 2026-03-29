@@ -1,3 +1,32 @@
+###  Публикация: 1113176   (839653) от 10.03.2017
+
+Rockin'1000 - That's Live - Live in Cesena 2016 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitter Sweet Symphony
+02. Come Together
+03. Gold on the Ceiling
+04. Born to Be Wild(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEEBF0E1A95F27FE3F059B9B1C31D7EE4297073F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309850   (839255) от 17.03.2011
 
 Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Hard Rock>
@@ -6,7 +35,7 @@ Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839255.jpg" />
+  <img src="Z:/picture/008/save_picture_839255.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838122.jpg" />
+  <img src="Z:/picture/008/save_picture_838122.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
+  <img src="Z:/picture/008/save_picture_837381.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Ind
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
+  <img src="Z:/picture/008/save_picture_836383.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
+  <img src="Z:/picture/008/save_picture_836161.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835246.jpg" />
+  <img src="Z:/picture/008/save_picture_835246.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Jacky Chalard - Avec Un Pied Dans Le Rock 'N Roll (1977) LP [MP3|320 Kbps] <Elec
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833752.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833184.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833176.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_833046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_833046.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832936.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-196
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832627.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832553.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832462.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Pink Floyd - Greatest Hits (2CD) (2008) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830240.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Wax & Boogie - Come With Me (2016) [MP3|320 кб/с] <Rock&Roll, Boogie, Rockin'
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828983.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Santana - Blessings and Miracles (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828323.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828244.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Brian May + Friends - Star Fleet Project (2011) [MP3|320 Kbps] <Rock, Hard Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828052.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Redlight King - Moonshine (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827739.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827173.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Foreigner - 10 albums (1977-2009) [MP3|320 kbps]<Classic Rock, Melodic Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826878.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Chris De Burgh - Discography (1978..2008) [MP3|320 kbps]<Soft Rock, Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826870.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Jimmy Urine and Serj Tankian - Fuktronic (2020) [MP3|320 Kbps] <Rock, Electronic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826241.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Lindi Ortega (Линди Ортега) - The Drifter (2009) EP [MP3|320 Kbps] <C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826045.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Lindi Ortega (Линди Ортега) - The Drifter (2009) EP [MP3|320 Kbps] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF856CE8FAD8D697389C9F3D2EAB0BE0A6A266C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196290   (826043) от 01.01.2018
-
-Nicolette Larson - Live At The Roxy (1979) Remastered, 2006, Rhino Handmade [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clear Light 4:57
-02. Give A Little 4:16
-03. Come Early Mornin' 3:07
-04. French Waltz 5:20(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FDCB17DEC9F451741CFD601C3A5C534ED8FD0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

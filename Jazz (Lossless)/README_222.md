@@ -1,3 +1,125 @@
+###  Публикация: 1261984   (298869) от 13.11.2018
+
+Stephane Wrembel - Dreamer Of Dreams (2014) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Light [3:08]
+02. Lascaux [5:49]
+03. Mystic Circles [4:16]
+04. Human Condition I : Peace [1:36](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707A26D07A14CECE8905CCFE28F5B836F01E7ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262046   (298861) от 13.11.2018
+
+Stephane Wrembel - The Django Experiment I (2017) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuages [3:31]
+02. Gin-Gin [2:47]
+03. Bouncin' Around [4:46]
+04. Dinette [2:48](   Читать дальше...   )Жанр: Jazz Fusion, Guitar Jazz, Gypsy JazzПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCA7E6DAF356CD325C76F01E6F1DECC1FBAC1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586723   (298822) от 08.12.2012
+
+AHA! Quintet - Freespace (2012) [FLAC|Lossless]<Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_298822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Hip Mice
+02. Looking
+03. Silver Cloud
+04. Land of Another
+05. Fourth Street
+06. Creepy Crawly
+07. Slim Jim
+08. Freespace
+09. Trio Rio
+10. Never Never LandЖанр: Hard Bop, Post-BopПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078667   (298311) от 02.12.2016
+
+Terry Pollard - Terry Pollard (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fedi [03:50]
+ 02.Autumn Serenade [06:03]
+ 03.Laura [03:57]
+ 04.Where or When [03:12](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC872C322C686B55D33CD68D3EAB04EA7991E399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078609   (298221) от 02.12.2016
 
 Sonny Rollins - Horn Culture (1973) 1992, Fantasy[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +128,7 @@ Sonny Rollins - Horn Culture (1973) 1992, Fantasy[FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298221.jpg" />
+  <img src="Z:/picture/008/save_picture_298221.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Paris Jazz Big Band - Mediterraneo (2002) Cristal Production[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298219.jpg" />
+  <img src="Z:/picture/008/save_picture_298219.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Mel Torme and The Marty Paich Dek-Tette - The 1956 Torme-Paich Legendary Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298217.jpg" />
+  <img src="Z:/picture/008/save_picture_298217.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Mongo Santamaria - Mongo At Montreux (1971) 2012, Atlantic/Warner Japan/WEA/Rhin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298216.jpg" />
+  <img src="Z:/picture/008/save_picture_298216.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ Klaus Doldingers Passport - Balance Of Happiness (1990) WEA[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298212.jpg" />
+  <img src="Z:/picture/008/save_picture_298212.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ Bud Powell - The Ultimate Bud Powell (1947 - 1959) 2012, 2CD, Blue Note [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298155.jpg" />
+  <img src="Z:/picture/008/save_picture_298155.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Dakota Staton - Dakota Staton (1991) Muse Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298076.jpg" />
+  <img src="Z:/picture/008/save_picture_298076.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ Ella Fitzgerald & Louis Armstrong - The Wonderful World Of Ella Fitzgerald & Lou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298061.jpg" />
+  <img src="Z:/picture/008/save_picture_298061.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ Jeremy Wall - Cool Running (1991) Amherst Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297540.jpg" />
+  <img src="Z:/picture/008/save_picture_297540.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297444.jpg" />
+  <img src="Z:/picture/008/save_picture_297444.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ Don Friedman - Hope For Tomorrow (1975) 2015, Universal[FLAC|tracks+.cue]<Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297238.jpg" />
+  <img src="Z:/picture/008/save_picture_297238.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ Archie Shepp - Live In San Francisco (1966) 2015, Universal[FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297237.jpg" />
+  <img src="Z:/picture/008/save_picture_297237.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ Roy Haynes, Phineas Newborn, Paul Chambers - We Three (1958) 2007, Concord[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297230.jpg" />
+  <img src="Z:/picture/008/save_picture_297230.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ Kirk Lightsey Trio with Chet Baker - Everything Happens To Me (1983) 2015, Timel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297227.jpg" />
+  <img src="Z:/picture/008/save_picture_297227.jpg" />
 </div>
 
 
@@ -412,7 +534,7 @@ Cannonball Adderley - The Complete Albums Collection 1955-1958 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297023.jpg" />
+  <img src="Z:/picture/008/save_picture_297023.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ Stephane Wrembel - The Django Experiment II (2017) Water Is Life Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297019.jpg" />
+  <img src="Z:/picture/008/save_picture_297019.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ Anita O'Day - Cocktail Hour 1950-e - 1960-e (2000) 2CD, Allegro [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296921.jpg" />
+  <img src="Z:/picture/008/save_picture_296921.jpg" />
 </div>
 
 
@@ -499,7 +621,7 @@ Oliver Nelson and His Orchestra - Fantabulous (1964) 2008, Verve[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296510.jpg" />
+  <img src="Z:/picture/008/save_picture_296510.jpg" />
 </div>
 
 
@@ -528,7 +650,7 @@ Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296502.jpg" />
+  <img src="Z:/picture/008/save_picture_296502.jpg" />
 </div>
 
 
@@ -557,7 +679,7 @@ Michael Lee Thomas - Far Away Near (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296499.jpg" />
+  <img src="Z:/picture/008/save_picture_296499.jpg" />
 </div>
 
 
@@ -586,7 +708,7 @@ Los Amigos Invisibles - The New Sound Of The Venezuelan Gozadera (1998) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296493.jpg" />
+  <img src="Z:/picture/008/save_picture_296493.jpg" />
 </div>
 
 
@@ -615,7 +737,7 @@ Chucho Valdes - Border-Free (2013) Jazz Village[FLAC|Lossless|tracks + .cue] <Af
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296393.jpg" />
+  <img src="Z:/picture/008/save_picture_296393.jpg" />
 </div>
 
 
@@ -629,122 +751,6 @@ Chucho Valdes - Border-Free (2013) Jazz Village[FLAC|Lossless|tracks + .cue] <Af
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57B017200C223AE0D596CD0399BDE70CFD751C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079041   (296253) от 03.12.2016
-
-Manhattan Jazz Quintet - Autumn Leaves (1985) [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jordu
-02. Recado Bossa Nova
-03. Confirmation
-04. Autumn Leaves(   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760AB306F9BF8EFFCF15628524752A516C0FA594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079044   (296251) от 03.12.2016
-
-Manhattan Jazz Quintet - 25-Tribute to Art Blakey (2009) [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Liaisons Dangereuses
-02. Moanin`
-03. Mosaic
-04. Blues for Buhaina(   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD2130DA0B9EC88EB68DD639B718FE36E59991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424046   (296036) от 15.11.2020
-
-Sammy Davis, Jr. & Buddy Rich - The Sounds Of '66 (1996) DCC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sammy's introduction [1:08]
-02. Come Back to Me [2:55]
-03. The Birth of the Blues [3:35]
-04. I Know a Place [2:26](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068976AA88F6F67E2FA0CE142A1F05F04C0B976C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962273   (295356) от 04.12.2015
-
-Earl Coleman - Earl Coleman Returns (1956) 2013, Universal[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Say It Isn't So [05:43]
- 02.Reminiscing [05:54]
- 03.Social Call [06:32]
- 04.It's You Or No One [05:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C02C94E1954D08C1D17EC778341D903693AE35
 ```
 
 https://mybot314.ru/tekegram_catalog/

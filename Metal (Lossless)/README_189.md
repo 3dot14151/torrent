@@ -1,3 +1,90 @@
+###  Публикация: 961534   (294833) от 04.12.2015
+
+Motorhead - Overkill (1979) [FLAC|tracks+.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overkill (5:12)
+02. Stay Clean (2:42)
+03. (I Won't) Pay Your Price (2:57)
+04. I'll Be Your Sister (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F82FCEFD4C8969CF29E8D1D398BADCC5B21E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185330   (293739) от 21.11.2017
+
+Logos - Plan Mundial Para La Destruccion (2006) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viaje a la realidad
+02. Darse cuenta
+03. Sólo una vez más
+04. Esclavos de sus mentes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B044C7E2145408A01CF75B8CD3DE68CBE46EA145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262783   (293524) от 16.11.2018
+
+Wolverine - Machina Viva (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bedlam Overture (14:40)
+02. Machina (5:17)
+03. Pile of Ash (ES-335 version) (4:18)
+04. Our Last Goodbye (7:44)(   Читать дальше...   )Жанр: Progressive Metal, Prog RockПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE0D3B2D4B0897E7475EECCD471400B2B9D3AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237846   (292890) от 16.11.2018
 
 Stratovarius & Kotipelto - 18 Albums, 7 Compilations & Lives, 8 Singles & EP (1989-2018) 81 CD [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Stratovarius & Kotipelto - 18 Albums, 7 Compilations & Lives, 8 Singles & EP (19
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292890.jpg" />
+  <img src="Z:/picture/008/save_picture_292890.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292219.jpg" />
+  <img src="Z:/picture/008/save_picture_292219.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292211.jpg" />
+  <img src="Z:/picture/008/save_picture_292211.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292149.jpg" />
+  <img src="Z:/picture/008/save_picture_292149.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292143.jpg" />
+  <img src="Z:/picture/008/save_picture_292143.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292138.jpg" />
+  <img src="Z:/picture/008/save_picture_292138.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292071.jpg" />
+  <img src="Z:/picture/008/save_picture_292071.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Persecutor - Rebirth (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291677.jpg" />
+  <img src="Z:/picture/008/save_picture_291677.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Angeli Di Pietra - Storm Over Scaldis (2009) [FLAC|image +.cue]<Folk, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291495.jpg" />
+  <img src="Z:/picture/008/save_picture_291495.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291411.jpg" />
+  <img src="Z:/picture/008/save_picture_291411.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Graveshadow - Nocturnal Resurrection (2015) [FLAC|image +.cue]<Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291344.jpg" />
+  <img src="Z:/picture/008/save_picture_291344.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Eternal Idol - The Unrevealed Secret (2016) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290332.jpg" />
+  <img src="Z:/picture/008/save_picture_290332.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Leah - The Quest (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal, Medieval 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289930.jpg" />
+  <img src="Z:/picture/008/save_picture_289930.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Iron Maiden - The Book of Souls: Live Chapter (2017) 2CD [WavPack|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289525.jpg" />
+  <img src="Z:/picture/008/save_picture_289525.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Stereo Nasty - Nasty By Nature (2015) [WavPack|image+.cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289220.jpg" />
+  <img src="Z:/picture/008/save_picture_289220.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Reverence - Gods Of War (2015) Japan [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289056.jpg" />
+  <img src="Z:/picture/008/save_picture_289056.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [FLAC|Lossless|image + .cue] <Epic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288542.jpg" />
+  <img src="Z:/picture/008/save_picture_288542.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Evanescence - Fallen (2003) Japanese Edition [FLAC|Lossless]<Gothic Metal, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287495.jpg" />
+  <img src="Z:/picture/008/save_picture_287495.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Danzig - Skeletons (2015) Limited Edition [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287444.jpg" />
+  <img src="Z:/picture/008/save_picture_287444.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Elettra Storm - Evertale (2025) [FLAC|Lossless|image + .cue] <Melodic Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287036.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Batushka - Litourgiya (2015) [FLAC|Lossless|WEB-DL]<Black Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286969.jpg" />
+  <img src="Z:/picture/008/save_picture_286969.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Antiquus Scriptum - Abi In Malam Pestem / In Pulverem Reverteris (2002) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286545.jpg" />
+  <img src="Z:/picture/008/save_picture_286545.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286543.jpg" />
+  <img src="Z:/picture/008/save_picture_286543.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263339   (286540) от 20.11.2018
-
-Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galois (2:05)
-02. Code / Anticode (6:44)
-03. Reflections (6:49)
-04. Megrez (4:00)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263341   (286462) от 20.11.2018
-
-Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Signal (1:20)
-02. Dim (4:58 )
-03. Out Of Time (4:57)
-04. Synthetic Hands (5:41)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263573   (286450) от 20.11.2018
-
-Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychotopia (6:41)
-02. The New Delhi Assassination (3:16)
-03. The Combat (5:43)
-04. Too Much Time (7:35)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

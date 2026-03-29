@@ -1,3 +1,148 @@
+###  Публикация: 1419419   (339451) от 28.10.2020
+
+Commander One PRO 2.5.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
+
+Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEED7FC740E18CD9F932D286D935B6195D0224B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581142   (339385) от 26.11.2012
+
+Nik Software Silver Efex Pro 2.006 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_339385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silver Efex Pro — превосходный плагин для Adobe Photoshop, позволяющий фотохудожникам выполнять стилизацию современных цифровых изображений под стильные черно-белые снимки. В автоматическом режиме, программа преобразует цветное изображение в черно-белое. После этого пользователь может выполнить более тонкую настройку, например, выбрать один из двух десятков готовых стилей, воспользоваться фильтрами цветности и другими инструментами.
+Возможности плагина:
+● Быстрая стилизация цветных изображений в черно-белые в автоматическом режиме
+● Использование встроенных фильтров цветности
+● Настройка яркости, контраста и структуры изображения
+● Использование готовых пресетов
+В последней версии:
+● Добавлена поддержка Lightroom 4
+● Решена проблема с экспортом нескольких пресетов
+● Устранен потенциальный конфликт с Photoshop.Название программы: Silver Efex Pro 2Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258251   (338673) от 29.10.2018
+
+iCalamus 2 v2.18 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338673.jpg" />
+</div>
+
+
+###  Подробнее
+
+iCalamus - настольное издательское решение для Mac OS X.
+iCalamus это профессиональная программа, используемая для подготовки к печати различных публикаций. Приложение поддерживает Uniocode, предоставляет множество специализированных инструментов, позволяющих достичь простым способом интересных эффектов.
+iCalamus предлагает простой подход к АКДС и является отличным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: invers SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2C2F7E766AB1ABCD864934F7CF2E8B54C74791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258281   (338671) от 29.10.2018
+
+Aeon Timeline 2 v2.3.13 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aeon Timeline: программный инструмент для создания временных событий.
+Есть множество профессий, в работе которых требуется точное соблюдение временных интервалов. Писатель, журналист, ученый объединены исследованием истории или временных последовательностей, которые необходимо заранее выстроить в один ряд, в несколько слоев, связать с людьми и их возрастом, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2018Разработчик: Aeon TimelineПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C10AF4AFDB2CB85F028CEB8B89200A3DC19D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258258   (338519) от 29.10.2018
+
+Aiseesoft Mac Video Converter Ultimate 9.2.18 (79982) [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Mac Video Converter Ultimate - мощная программа для конвертации DVD и видеофайлов и папок Blu-Ray в популярные видео форматы и 3D-видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видео-редактор, который позволяет настроить видео эффекты, обрезку видеоклипов, добавить водяные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: Aiseesoft StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDE37E4C9EE1D09DEEDAE624F7CC7FF343C181B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074552   (338439) от 19.11.2016
 
 Copied 1.1.9 [En]
@@ -6,7 +151,7 @@ Copied 1.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338439.jpg" />
+  <img src="Z:/picture/008/save_picture_338439.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Man Reader 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336132.jpg" />
+  <img src="Z:/picture/008/save_picture_336132.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Trash Without 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335599.jpg" />
+  <img src="Z:/picture/008/save_picture_335599.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Periscope Pro 3.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335482.jpg" />
+  <img src="Z:/picture/008/save_picture_335482.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Block Advertising on Internet 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335465.jpg" />
+  <img src="Z:/picture/008/save_picture_335465.jpg" />
 </div>
 
 
@@ -147,7 +292,7 @@ H265 Converter Pro 3.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335055.jpg" />
+  <img src="Z:/picture/008/save_picture_335055.jpg" />
 </div>
 
 
@@ -173,7 +318,7 @@ Cyberduck 4.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335023.jpg" />
+  <img src="Z:/picture/008/save_picture_335023.jpg" />
 </div>
 
 
@@ -201,7 +346,7 @@ Hobo 1.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335002.jpg" />
+  <img src="Z:/picture/008/save_picture_335002.jpg" />
 </div>
 
 
@@ -228,7 +373,7 @@ Vanilla Pro 1.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334860.jpg" />
+  <img src="Z:/picture/008/save_picture_334860.jpg" />
 </div>
 
 
@@ -256,7 +401,7 @@ MacPaw Hider 2 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334680.jpg" />
+  <img src="Z:/picture/008/save_picture_334680.jpg" />
 </div>
 
 
@@ -285,7 +430,7 @@ MacProxy 3 v3.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334587.jpg" />
+  <img src="Z:/picture/008/save_picture_334587.jpg" />
 </div>
 
 
@@ -311,7 +456,7 @@ Mathworks Matlab 2014b (8.4.0.150421) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334496.jpg" />
+  <img src="Z:/picture/008/save_picture_334496.jpg" />
 </div>
 
 
@@ -339,7 +484,7 @@ ControllerMate 4 v4.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334242.jpg" />
+  <img src="Z:/picture/008/save_picture_334242.jpg" />
 </div>
 
 
@@ -365,7 +510,7 @@ iBoostUp Premium 6.4.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333153.jpg" />
+  <img src="Z:/picture/008/save_picture_333153.jpg" />
 </div>
 
 
@@ -393,7 +538,7 @@ Focus 1.8.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333031.jpg" />
+  <img src="Z:/picture/008/save_picture_333031.jpg" />
 </div>
 
 
@@ -421,7 +566,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332984.jpg" />
+  <img src="Z:/picture/008/save_picture_332984.jpg" />
 </div>
 
 
@@ -448,7 +593,7 @@ Flux 7 v7.1.11 [RU/En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332928.jpg" />
+  <img src="Z:/picture/008/save_picture_332928.jpg" />
 </div>
 
 
@@ -474,7 +619,7 @@ iSkysoft PDF Editor 6 Pro - Edit & OCR 6.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332856.jpg" />
+  <img src="Z:/picture/008/save_picture_332856.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ KeeWeb 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332345.jpg" />
+  <img src="Z:/picture/008/save_picture_332345.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ MPV 0.12.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332328.jpg" />
+  <img src="Z:/picture/008/save_picture_332328.jpg" />
 </div>
 
 
@@ -552,7 +697,7 @@ PhpStorm 10.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331942.jpg" />
+  <img src="Z:/picture/008/save_picture_331942.jpg" />
 </div>
 
 
@@ -563,149 +708,6 @@ JetBrains PhpStorm представляет coбoй легкий и удобны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9AAD9FA577EC7C4B5A33BD198B27C8BCB25C072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420823   (331415) от 02.11.2020
-
-MarsEdit 4 v4.4.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2020Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD45E285F0C148238DD73E735E1B6A3C380C011E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260378   (330540) от 20.11.2010
-
-iTunes 10.1.0.54 [x86 64] (dmg)
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330540.jpg" />
-</div>
-
-
-###  Подробнее
-
-медиаплеер для проигрывания и систематизации аудио и видеофайлов, разработанный компанией Apple и бесплатно распространяющийся для платформ Mac OS X  и Windows.
-
-iTunes предоставляет доступ к фирменному онлайн-магазину iTunes Store, позволяя совершать покупки и арендовать фильмы. Также, в iTunes, начиная с версии 10, интегрирована музыкальная социальная сеть Ping, позволяющая любому пользователю, имеющему аккаунт в iTunes Store, делиться со своими друзьями музыкальными предпочтениями. Одной из интересных особенностей плеера, является функция Genius, анализирующая медиатеку пользователя и предлагающая исходя из его предпочтений песни и фильмы в iTunes Store.
-
-iTunes совместим со всеми существующими моделями iPod, iPhone, iPad и Apple TV. Плеер может использоваться для потоковой трансляции видеофайлов (включая HDTV) и создания домашней коллекции (предоставляя к ней доступ с различных устройств входящих в «домашнюю» сеть), включающую как аудио- и видеофайлы, так и фотографии.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956445   (330101) от 14.11.2015
-
-FileMaker Pro Advanced 14.0.4.406 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330101.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro 14 — это последняя версия ведущей удобной СУБД.
-FileMaker Pro облегчает создание индивидуальных решений для управления бизнес-информацией на iPad iPhone, Mac и веб-платформах, а также в Windows.
-
-Миллионы людей во всем мире используют FileMaker Pro для оптимизации управления контактами, отслеживания запасов, организации проектов и др. Компонент FileMaker (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 13 ноября 2015Разработчик: FileMaker, Inc.Поддерживаемая ОС: OS X 10.9+Язык интерфейса: Английский, Французский, Итальянский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F560B0A3EB58BE82B02DBB699571F5F0EFDB09C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956919   (329043) от 15.11.2015
-
-ABBYY Lingvo Dictionary для Mac 1.9.6 [En/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329043.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY Lingvo Dictionary - самый популярный оффлайн словарь от компании ABBYY.
-Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
-
-Переводите слова с русского на (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2015Разработчик: ABBYYПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B03F9127FFC06FC93F19D9ADEB79C6809BD5ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957642   (326599) от 18.11.2015
-
-PhotoDesk for Instagram 3.2.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instagram - простой и элегантный способ поделиться своими фотографиями с друзьями.
-Приложение PhotoDesc привносит часть функциональности Instagram прямо на ваш Mac и практически все, что вы можете делать в Instagram на своем iPhone, вы можете делать в PhotoDesc на своем Mac.
-
-PhotoDesk позволяет вам просматривать, получать новости и уведомления, сохранять изображения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2015Разработчик: Benedikt TerhechteПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Испанский, Итальянский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409C829E4AA2F53E6969B6CE7E3082BBDF1ACED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

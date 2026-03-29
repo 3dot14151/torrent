@@ -1,3 +1,82 @@
+###  Публикация: 1163890   (445929) от 07.09.2017
+
+MediaRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital MediaRescue Professional - программа для восстановления удаленных и нечитаемых файлов с самых разнообразных носителей информации: жестких дисков, CD/DVD дисков, цифровых фотоаппаратов, мобильных телефонов, а также всех известных флэш-карт ( таких как CompactFlash cards (type I/II), IBM Microdrives, SmartMedia cards, MultiMedia cards (MMCs), Secure Digital (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705B486F296703F7791072135B120744E3115941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163876   (445831) от 07.09.2017
+
+PhotoRescue PRO 6.16.1045 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital PhotoRescue Professional - программа для восстановления удалённых фотографий с самых разнообразных носителей информации: цифровых фотоаппаратов, жестких дисков, CD/DVD дисков, мобильных телефонов, а также всех известных флэш-карт (таких как CompactFlash(type I/II), IBM Microdrives, SmartMedia, MultiMedia (MMCs), Secure Digital (SD), SONY Memory Stick и другие). (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB2B46D0835988BC7C6479B85AC4F27DF0F0392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164723   (439058) от 10.09.2017
+
+FileRescue for FAT 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пограмма FileRescue for FAT - простой в пользовании, но очень мощный инструмент для восстановления информации любого типа с жестких дисков и иных носителей информации. Программа умеет восстанавливать не только файлы удалённые через корзину, но и также те, которые исчезли в результате системных сбоев или вирусных атак.
+FileRescue работает на платформе Windows и поддерживает (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCDAC05B5BA3BB701E54658163100C137B66EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164737   (438931) от 10.09.2017
 
 FileRescue for NTFS 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
@@ -6,7 +85,7 @@ FileRescue for NTFS 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438931.jpg" />
+  <img src="Z:/picture/008/save_picture_438931.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ FileRescue Pro 4.16.228 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438924.jpg" />
+  <img src="Z:/picture/008/save_picture_438924.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Comfy Photo Recovery 5.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438327.jpg" />
+  <img src="Z:/picture/008/save_picture_438327.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Comfy File Recovery 5.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438224.jpg" />
+  <img src="Z:/picture/008/save_picture_438224.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Comfy Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438080.jpg" />
+  <img src="Z:/picture/008/save_picture_438080.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ Hetman Office Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435963.jpg" />
+  <img src="Z:/picture/008/save_picture_435963.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Hetman Word Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435818.jpg" />
+  <img src="Z:/picture/008/save_picture_435818.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ Hetman Excel Recovery 2.9 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435801.jpg" />
+  <img src="Z:/picture/008/save_picture_435801.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Hetman Uneraser 5.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433743.jpg" />
+  <img src="Z:/picture/008/save_picture_433743.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ Hetman Photo Recovery 5.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433464.jpg" />
+  <img src="Z:/picture/008/save_picture_433464.jpg" />
 </div>
 
 
@@ -275,7 +354,7 @@ Hetman FAT Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431635.jpg" />
+  <img src="Z:/picture/008/save_picture_431635.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ Hetman NTFS Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431546.jpg" />
+  <img src="Z:/picture/008/save_picture_431546.jpg" />
 </div>
 
 
@@ -331,7 +410,7 @@ Hetman Partition Recovery 3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431300.jpg" />
+  <img src="Z:/picture/008/save_picture_431300.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ Macrium Reflect v7.3.5925 x64 Home [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425110.jpg" />
+  <img src="Z:/picture/008/save_picture_425110.jpg" />
 </div>
 
 
@@ -387,7 +466,7 @@ Acronis Backup 12.5.16363 BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413137.jpg" />
+  <img src="Z:/picture/008/save_picture_413137.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ DiskGenius Professional 5.0.0.589 RePack by WYLEK [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407619.jpg" />
+  <img src="Z:/picture/008/save_picture_407619.jpg" />
 </div>
 
 
@@ -439,7 +518,7 @@ Runtime GetDataBack for NTFS & FAT 4.32 [Rus] RePack by kuchkan + Portable
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405671.jpg" />
+  <img src="Z:/picture/005/save_picture_405671.jpg" />
 </div>
 
 
@@ -465,7 +544,7 @@ Acronis Bootable ISO Images 2020 by andwarez 08.10.2020 [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377975.jpg" />
+  <img src="Z:/picture/008/save_picture_377975.jpg" />
 </div>
 
 
@@ -491,7 +570,7 @@ Comfy Partition Recovery 1.0 Commercial Edition [Русский + Английс
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372945.jpg" />
+  <img src="Z:/picture/005/save_picture_372945.jpg" />
 </div>
 
 
@@ -519,7 +598,7 @@ FonePaw iPhone Data Recovery 7.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371338.jpg" />
+  <img src="Z:/picture/008/save_picture_371338.jpg" />
 </div>
 
 
@@ -547,7 +626,7 @@ FoneLab Android Data Recovery 3.0.36 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371315.jpg" />
+  <img src="Z:/picture/008/save_picture_371315.jpg" />
 </div>
 
 
@@ -576,7 +655,7 @@ ApeakSoft iOS Toolkit 1.1.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369362.jpg" />
+  <img src="Z:/picture/008/save_picture_369362.jpg" />
 </div>
 
 
@@ -604,7 +683,7 @@ AnyMP4 Android Data Recovery 2.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369351.jpg" />
+  <img src="Z:/picture/008/save_picture_369351.jpg" />
 </div>
 
 
@@ -615,86 +694,6 @@ AnyMP4 Android Data Recovery – это отличная программа дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EFB78751D87F5C456879B91B889F461173F4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416230   (369246) от 15.10.2020
-
-ApeakSoft Android Toolkit 2.0.62 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Apeaksoft Android Data Recovery создана для восстановления утерянных/удаленных файлов с мобильных телефонов, планшетов на Android и SD-карт. Программа легко восстановит текстовые сообщения, вложения, контакты, историю вызовов, фото, изображения, видео, музыку и документы.
-Android Data Recovery  совместима с Android 2.3 и другими более новыми версиями операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:037BDCAD883B81DD4D4D28E979B201CD4C76DDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576291   (368384) от 13.09.2022
-
-SyncBackFree 10.2.49.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368384.jpg" />
-</div>
-
-
-###  Подробнее
-
-SyncBackFree - мощный многофункциональный инструмент для выполнения резервного копирования целых каталогов и папок с возможностью их синхронизации. При этом Вы не ограничены только жесткими дисками компьютера: поддерживается работа с USB-накопителями, оптическими дисками, сетевыми каталогами и даже FTP-серверами.
-В программу встроен планировщик, где расписав удобное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDCCEB664791885E3A02EB4678791D306874E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950853   (367210) от 27.10.2015
-
-FileRecovery 2015 Enterprise 5.5.7.9 Portable by poni-koni [Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367210.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileRecovery производит сканирование и поиск потерянных разделов, загрузочных секторов и других элементов файловой системы. FileRecovery обеспечивает работу с дисками, которые не отображаются в Проводнике Windows. Программа выводит на экран полное дерево каталогов диска (в т.ч. и подлежащих восстановлению разделов NTFS) и предлагает удобные средства поиска и восстановления (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECDE17F63C28675803070EA5BCA98AB5997216F
 ```
 
 https://mybot314.ru/tekegram_catalog/

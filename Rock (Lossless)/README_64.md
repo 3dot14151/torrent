@@ -1,3 +1,148 @@
+###  Публикация: 903893   (656877) от 01.06.2015
+
+Lord Sutch and Heavy Friends - Hands of Jack the Ripper (1972) Remastered /2005, Wounded Bird Records/ [FLAC|image+.cue]<Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gotta Keep A-Rocking (Lord Sutch) 04:42
+02. Roll Over Beethoven (Chuck Berry) 02:38
+03. Country Club (Lord Sutch) 03:21
+04. Hands Of Jack The Ripper (Lord Sutch) 09:39(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD209439B03B2EBEAE8B660B5F7B13CACB0EDC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903886   (656874) от 01.06.2015
+
+Pete Townshend - Empty Glass (1980) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rough Boys 04:05
+02. I Am An Animal 03:48
+03. And I Moved 03:24
+04. Let My Love Open The Door 02:45(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1818B2427A26DC9FE53F6B5601E2CC5AD3DFCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904043   (656873) от 01.06.2015
+
+Back Street Crawler - The Band Plays On (1975) Remastered /2014, Wowow Entertainment/ [FLAC|image+.cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do Woman 04:17
+02. New York, New York 04:40
+03. Stealing My Way 04:21
+04. Survivor 03:35(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253BF9EEE925983306E6DE3F8FB68F51BE77B1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903873   (656790) от 01.06.2015
+
+Humble Pie - Humble Pie (1970) Remastered /2012, Lemon Recordings/ [FLAC|image+.cue]<Rock, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Live With Me (Humble Pie) 07:54
+02. Only A Roach (Shirley) 02:48
+03. One Eyed Trouser Snake Rumba (Humble Pie) 02:50
+04. Earth And Water Song (Frampton) 06:17(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E22DE8684A6F221DBDEDB04D45165B90C5C83F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903829   (656781) от 01.06.2015
+
+George Thorogood & The Destroyers - Born To Be Bad (1988) [FLAC|image+.cue]<Blues Rock, Boogie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Your Moneymaker (Elmore James) 03:31
+02. You Talk Too Much (George Thorogood) 04:41
+03. Highway 49 (Big Joe Williams) 05:50
+04. Born to Be Bad (Thorogood) 03:34(   Читать дальше...   )Жанр: Blues Rock, Boogie RockПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4F252CCAA92D1027815A5D054717698BABF9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904054   (656780) от 01.06.2015
 
 Epsilon – Move On (1972) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progressive Rock, KrautRock>
@@ -6,7 +151,7 @@ Epsilon – Move On (1972) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656780.jpg" />
+  <img src="Z:/picture/008/save_picture_656780.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Chicken Shack Featuring Stan Webb – Goodbye Chicken Shack (1974) Remastered /2
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656670.jpg" />
+  <img src="Z:/picture/008/save_picture_656670.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - While My Guitar Gently Weeps 2 (2002) 2CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656668.jpg" />
+  <img src="Z:/picture/008/save_picture_656668.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Chicken Shack Featuring Stan Webb - Unlucky Boy (1973) [FLAC|image+.cue]<Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656665.jpg" />
+  <img src="Z:/picture/008/save_picture_656665.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ U2 - The Joshua Tree (30th Anniversary Edition) (2017) 4CD, Remastered [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656587.jpg" />
+  <img src="Z:/picture/008/save_picture_656587.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656559.jpg" />
+  <img src="Z:/picture/008/save_picture_656559.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Emerson, Lake & Palmer - Trilogy (1972) (2 CD) Remastered /2015, Sony Music/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656438.jpg" />
+  <img src="Z:/picture/008/save_picture_656438.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Eric Clapton - Story (1990) [FLAC|image+.cue]<Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656380.jpg" />
+  <img src="Z:/picture/008/save_picture_656380.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Circus - Movin' On (1977) Remastered /1990, Decoder/ [FLAC|image+.cue]<Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655692.jpg" />
+  <img src="Z:/picture/008/save_picture_655692.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Epsilon – Epsilon (1971) Remastered /1993, Bellaphon/ [FLAC|image+.cue]<Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655686.jpg" />
+  <img src="Z:/picture/008/save_picture_655686.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Aunt Mary - Aunt Mary (1970) Remastered /2004, Pan Records/ [FLAC|tracks+.cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655684.jpg" />
+  <img src="Z:/picture/008/save_picture_655684.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Exxasens - 3 albums (2008-2011) [FLAC|Lossless] <Post-Rock, Space Rock, Instrume
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655622.jpg" />
+  <img src="Z:/picture/005/save_picture_655622.jpg" />
 </div>
 
 
@@ -359,7 +504,7 @@ Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655469.jpg" />
+  <img src="Z:/picture/008/save_picture_655469.jpg" />
 </div>
 
 
@@ -388,7 +533,7 @@ Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Univer
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655456.jpg" />
+  <img src="Z:/picture/008/save_picture_655456.jpg" />
 </div>
 
 
@@ -417,7 +562,7 @@ Hidria Spacefolk - 7 albums (2001-2007) [FLAC|Lossless] <Space, Progressive, Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655329.jpg" />
+  <img src="Z:/picture/005/save_picture_655329.jpg" />
 </div>
 
 
@@ -448,7 +593,7 @@ The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655240.jpg" />
+  <img src="Z:/picture/008/save_picture_655240.jpg" />
 </div>
 
 
@@ -478,7 +623,7 @@ Yes - Progeny: Seven Shows From Seventy-Two (2015) 14CD Box Set [FLAC|image+.cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655239.jpg" />
+  <img src="Z:/picture/008/save_picture_655239.jpg" />
 </div>
 
 
@@ -507,7 +652,7 @@ Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655053.jpg" />
+  <img src="Z:/picture/008/save_picture_655053.jpg" />
 </div>
 
 
@@ -536,7 +681,7 @@ Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655049.jpg" />
+  <img src="Z:/picture/008/save_picture_655049.jpg" />
 </div>
 
 
@@ -565,7 +710,7 @@ Aldous Harding - Warm Chris (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655040.jpg" />
+  <img src="Z:/picture/008/save_picture_655040.jpg" />
 </div>
 
 
@@ -594,7 +739,7 @@ Muzak - Songs From A Lonely Planet (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654952.jpg" />
+  <img src="Z:/picture/008/save_picture_654952.jpg" />
 </div>
 
 
@@ -608,153 +753,6 @@ Muzak - Songs From A Lonely Planet (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8F897C1B927F37916B9AFA18A9B7D78186162DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539720   (654847) от 28.03.2022
-
-Kings Of Cool Jam Rhythm And Rant - Shooting at the World (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Rabbit
-02. Engineer
-03. See A Little Madness
-04. Raining(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E8052B3B978C636F2FEE5100D40F320A1454706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226487   (654781) от 21.05.2018
-
-Lee Aaron - Diamond Baby Blues (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Baby (3:29)
-02. Mistreated (7:11)
-03. American High (4:12)
-04. I'm A Woman (4:27)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E3B9B2F78630CD42DB36FC9B928FC9726CFB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515048   (654513) от 27.06.2012
-
-Quantum Fantay - 5 albums (2005-2010) [FLAC|Lossless] <Psychedelic / Space / Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kukuriku Pt.1 - Bridge One (08:09)
-02. Follow The Star - Bridge Two (08:59)
-03. Shiver Moments - Bridge Three (07:53)
-04. Portable Forest - Bridge Four (08:28)
-05. Counter Clockwise - Bridge Five (09:20)
-06. Kukuriku Pt.2 (05:03)Жанр: Psychedelic / Space / Progressive RockПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904427   (654459) от 03.06.2015
-
-Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evrybody 03:28
-02. Flesh & Blood 04:50
-03. Rise 03:44
-04. Holyland 04:04(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1514F151F149BDA3E5DF3701606689BB7B3E1FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904347   (654458) от 03.06.2015
-
-Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. English Boy 05:07
-02. Meher Baba M3 03:31
-03. Let's Get Pretentious 03:36
-04. Meher Baba M4 (Signal Box) 02:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4926279AB4E7504DC97B81166E116D91FA815700
 ```
 
 https://mybot314.ru/tekegram_catalog/

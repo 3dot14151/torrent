@@ -1,3 +1,87 @@
+###  Публикация: 1444714   (1034433) от 02.02.2021
+
+Анна Зегерс  | Седьмой крест (1972) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Зегерс (19.11.1900 - 01.06.1973) - немецкая писательница. После прихода в 1933 году в Германии к власти фашистов книги Зегерс были запрещены, а сама она ненадолго арестована. В том же году писательница эмигрирует во Францию, через год переезжает в Вену, а затем – в Испанию и Мексику.
+
+«Седьмой крест» давно признан лучшим романом Анны Зегерс. Это история семи (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 18:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2A86EB46E905387BB89E667558C635279BC868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619972   (1032569) от 18.03.2023
+
+Теодор Драйзер | Гений (Книга 2). Борьба (2011) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творческие и душевные поиски незаурядной личности, взлёты и падения, испытание бедностью и богатством, страсть к молоденькой девушке и угасающая любовь к жене… Герой романа «Гений», талантливый художник Юджин Витла, во многом сродни своему создателю – американскому писателю Теодору Драйзеру.
+
+Выход романа в 1915 году произвёл взрыв в американских литературных кругах. (   Читать дальше...   )Жанр: зарубежная классика, литература 20 векаПеревод: Марк ВолосовПродолжительность: 13:27:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89175DBA47BFC4539E6CBAAE7366DB5F09933AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619915   (1032534) от 18.03.2023
+
+Теодор Драйзер | Гений (Книга 1). Юность (2011) [MP3, Станислав Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творческие и душевные поиски незаурядной личности, взлёты и падения, испытание бедностью и богатством, страсть к молоденькой девушке и угасающая любовь к жене… Герой романа «Гений», талантливый художник Юджин Витла, во многом сродни своему создателю – американскому писателю Теодору Драйзеру.
+
+Выход романа в 1915 году произвёл взрыв в американских литературных кругах. (   Читать дальше...   )Жанр: зарубежная классика, литература 20 векаПеревод: Марк ВолосовПродолжительность: 10:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61899B73B4338D27E89398C51890FF2714F6561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621608   (1030959) от 25.03.2023
 
 Борис Пастернак | Апеллесова черта. Записки Патрика. Повесть (2017) [MP3, Всеволод Кузнецов, Максим Суханов]
@@ -6,7 +90,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030959.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030832.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030034.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027301.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026119.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025267.jpg" />
 </div>
 
 
@@ -167,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024747.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024733.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023700.jpg" />
 </div>
 
 
@@ -245,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022452.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021788.jpg" />
 </div>
 
 
@@ -298,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021676.jpg" />
 </div>
 
 
@@ -326,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021670.jpg" />
 </div>
 
 
@@ -352,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021666.jpg" />
 </div>
 
 
@@ -378,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021662.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021659.jpg" />
 </div>
 
 
@@ -432,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021648.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020188.jpg" />
 </div>
 
 
@@ -485,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018921.jpg" />
 </div>
 
 
@@ -513,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018414.jpg" />
 </div>
 
 
@@ -539,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017891.jpg" />
 </div>
 
 
@@ -565,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017885.jpg" />
 </div>
 
 
@@ -592,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017880.jpg" />
 </div>
 
 
@@ -604,85 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:214CB231FDA8472907D18F77FE6D9D91CA3E1E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468113   (1017434) от 06.05.2021
-
-Александр Гладков | Давным - давно (1949) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые поставлена в 1941 году в осаждённом Ленинграде актёрами ЦТСА
- В основе сюжета некоторые эпизоды из биографии героини Отечественной войны 1812 года Надежды Дуровой. Героиня спектакля - Шура Азарова, переодевшись мужчиной, вступила в кавалерийский полк, и бесстрашно сражалась с французами, ничем не уступая лихим и отважным гусарам и своему нареченному жениху.Жанр: Комедия, РадиоспектакльВ ролях: Николай Коновалов, Любовь Добржанская и др. актёрыПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904D4D423FE644C85ED9606CBA579FC4CDCBB2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468147   (1017406) от 06.05.2021
-
-Вальтер Скотт | Квентин Дорвард (2006) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие романа происходит во второй половине XV века во Франции. В это непростое для страны время во главе ее стал хитрый, расчетливый и жестокий король Людовик XI. Молодой шотландец Квентин Дорвард приезжает во Францию в надежде заработать и прославиться. В пути прямодушный и благородный юноша знакомится с неким «дядюшкой Пьером», не подозревая, что это сам Людовик (   Читать дальше...   )Жанр: Классика, Исторический романПродолжительность: 20:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F028054892447C5B57DB05ABA6B70FA5B36A5603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468112   (1017389) от 06.05.2021
-
-Василий Аксенов | Остров Крым (2006) [MP3, Александр Алексеев-Валуа]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крым не был взят большевиками во время Гражданской войны, он остался независимой территорией, имя которой – Остров Крым. Фантастика!? Аксенов написал об этом в 70-х. Впервые книга увидела свет в 1981-м, и еще долго не была доступна российскому читателю. Сценарием фантастической истории интересовался Голливуд – не сложилось пока. Мы не можем сегодня посмотреть «Остров (   Читать дальше...   )Жанр: Роман, Классика, Антиутопия, Социальная фантастикаИздательство: АудиокнигаПродолжительность: 15:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6B4A0630A9ADC89259593F264F6352FA0C2A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

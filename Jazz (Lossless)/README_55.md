@@ -1,3 +1,119 @@
+###  Публикация: 1378711   (844876) от 26.04.2020
+
+Oscar Peterson - Somebody Loves Me 1950 - 1954 (2004) 4CD, Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844876.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Oscar's Blues [3:11]
+02. For You [2:06]
+03. Pennies From Heaven [2:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6DDAEEBC1090D56B0618EDD76E75F0D5532C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499951   (844556) от 04.10.2021
+
+Charles Mingus - Mingus At Carnegie Hall (1974) 2CD, 2021, Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844556.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction [3:11]
+02. Peggy's Blue Skylight [11:57]
+03. Celia [22:56](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6982924307C5567FBC7CEB8AF5FFD2531382CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500025   (844532) от 04.10.2021
+
+Dave Grusin - Subways Are for Sleeping & Piano, Strings and Moonlight (1962) 2021, American Jazz Classics [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_844532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just Taking My Time [4:29]
+02. Ride Through the Night [4:33]
+03. Now I Have Someone [5:34]
+04. When You Help a Friend Out [4:38](   Читать дальше...   )Жанр: Crossover Jazz, Piano JazzПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FF6D436D50CA9334F29810DC84E1C40AA8BFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003419   (843584) от 03.04.2016
+
+Bobby Hutcherson - Cruisin' The 'Bird (1988) 1992, Landmark Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_843584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.All Or Nothing At All [06:51]
+ 02.Cruising The Bird [06:13]
+ 03.Sierra [08:37]
+ 04.If You Do [06:48](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC334EE2839921F679CF4F44DADBA4FB164D76A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003513   (843581) от 03.04.2016
 
 Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +122,7 @@ Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843581.jpg" />
+  <img src="Z:/picture/008/save_picture_843581.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ WYSI WYG - What You See Is What You Get (1997) SubConscious [APE|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843404.jpg" />
+  <img src="Z:/picture/008/save_picture_843404.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Larry Coryell - Inner Urge (2001) HighNote [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843400.jpg" />
+  <img src="Z:/picture/008/save_picture_843400.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Larry Coryell & The Eleventh House - January 1975 (2014) Promising Music [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843396.jpg" />
+  <img src="Z:/picture/008/save_picture_843396.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Anita O'Day - Sings The Winners (1958) 1989, Verve [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843394.jpg" />
+  <img src="Z:/picture/008/save_picture_843394.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Meade Lux Lewis - Cat House Piano (1954 - 1955) 1998, Verve [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843295.jpg" />
+  <img src="Z:/picture/008/save_picture_843295.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kishi Mitsuaki Trio And Harry Allen (2017) Swing Bros. Records Inc. [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843051.jpg" />
+  <img src="Z:/picture/008/save_picture_843051.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Anita O'Day - The Jazz Stylings Of Anita O'Day (1955 - 1962) Essential Jazz Clas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842721.jpg" />
+  <img src="Z:/picture/008/save_picture_842721.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Erroll Garner - Milestones Of A Jazz Legend (1944 - 1959) 10CD, 2021, The Intens
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842719.jpg" />
+  <img src="Z:/picture/008/save_picture_842719.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Erroll Garner - One More Time (1950 - 1958) 2021, Essential Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842718.jpg" />
+  <img src="Z:/picture/008/save_picture_842718.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dave Stryker Organ Quartet - Keystone (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842645.jpg" />
+  <img src="Z:/picture/008/save_picture_842645.jpg" />
 </div>
 
 
@@ -329,7 +445,7 @@ Lou Donaldson Quartet - Live In Bologna (1984) Remaster, 2015, Solid Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_841906.jpg" />
+  <img src="Z:/picture/009/save_picture_841906.jpg" />
 </div>
 
 
@@ -358,7 +474,7 @@ The Prestige All Stars - Roots (1957) Remaster, 2013, Universal[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841904.jpg" />
+  <img src="Z:/picture/008/save_picture_841904.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Key OG - The Choice (2014) [FLAC|Lossless|tracks] <Nu Jazz, R'n'B, Hip-Hop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841898.jpg" />
+  <img src="Z:/picture/008/save_picture_841898.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Beady Belle - Songs From A Decade: The Best Of Beady Belle (2015) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841790.jpg" />
+  <img src="Z:/picture/008/save_picture_841790.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ The Candoli Brothers Sextet - Jazz Horizons (1957, 1958) 2005, Lone Hill Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841733.jpg" />
+  <img src="Z:/picture/008/save_picture_841733.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Jeremy Pelt - Make Noise! (2017) HighNote [FLAC|Lossless|tracks + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841730.jpg" />
+  <img src="Z:/picture/008/save_picture_841730.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Gerry Mulligan & His Ten-Tette / Shorty Rogers - Modern Sounds (1951, 1953) 2008
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841726.jpg" />
+  <img src="Z:/picture/008/save_picture_841726.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Charlie Sepulveda & The Turnaround - Mr. EP: A Tribute to Eddie Palmieri (2017) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841640.jpg" />
+  <img src="Z:/picture/008/save_picture_841640.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Roy Eldridge - The Nifty Cat (1970) 1986, New World Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841400.jpg" />
+  <img src="Z:/picture/008/save_picture_841400.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Roy Eldridge & Richie Kamuca Quintet - At The Half Note (1965, 1966) 2017, Sound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841399.jpg" />
+  <img src="Z:/picture/008/save_picture_841399.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Warne Marsh Groups - Noteworthy (1956 - 1979) 1988, Discovery Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841397.jpg" />
+  <img src="Z:/picture/008/save_picture_841397.jpg" />
 </div>
 
 
@@ -632,128 +748,6 @@ Warne Marsh Groups - Noteworthy (1956 - 1979) 1988, Discovery Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F3818A0D24E735B52E5878A77B599383DEDB6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500381   (841395) от 06.10.2021
-
-Tony Bennett & Count Basie - Swingin' Together (1958) 2021, 20th Century Masterworks [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [1:48]
-02. When I Fall in Love [2:22]
-03. Taking a Chance on Love [2:00]
-04. Without a Song [3:09](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E473FE06664107033A161E7A27382CFE3DC3A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500374   (841307) от 06.10.2021
-
-Roy Eldridge With The Gene Krupa Orchestra Featuring Anita O'Day - Uptown (1941 - 1949) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Eyes [2:41]
-02. Let Me Off Uptown [3:06]
-03. Kick It! [2:29]
-04. After You've Gone [2:39](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA0D3EED48C58D5CD2083DF30F2832352910882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309679   (840910) от 16.03.2011
-
-Paul Hardcastle - Desire (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz, New Age>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (4:27)
-02. Valentine (3:47)
-03. Forever Dreamin (4:50)
-04. Closer (4:55)
-05. Wonderland (5:18)
-06. Lost Summer (4:51)
-07. Same Place Same Time (5:52)
-08. Lost In Space (4:56)
-09. Smooth Jazz Is Bumpin (4:09)
-10. Cloud Watching (5:30)(   Читать дальше...)Жанр: Jazz-Pop, Smooth Jazz, New AgeПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004181   (840316) от 05.04.2016
-
-Russ Garcia & His Vocal Choir & Orchestra - Sounds In The Night (1957) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sophisticated Lady [02:39]
- 02.Ill Wind [03:05]
- 03.Painting The Town Blue [02:44]
- 04.Sweet And Lovely [03:29](   Читать дальше...   )Жанр: Vocal Jazz, Third StreamПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C8879F0D2EFB05F8088F4737D0103E7F0D9D3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

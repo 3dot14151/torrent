@@ -1,3 +1,55 @@
+###  Публикация: 1233491   (592825) от 30.06.2018
+
+Симпсоны / The Simpsons (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 28, серии 1-22 из 22) [UKR]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпсоны живут в вымышленном городе Спрингфилд, со своим обществом и историей. Гомер - отец семейства, который дает плохие советы и работает инспектором безопасности на атомной электростанции; Мардж - любящая мать и жена, старается сохранить спокойствие в семье; Барт - 10 летний хулиган; Лиза - философский 8-летний ребенок; и Мэгги - младенец, который общается посредством (   Читать дальше...   )Производство: СШАЖанр: мультсериалРежиссер: Мэтт ГроунингПеревод: Дублированный (украинский)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEDE2DE303E0832ED91D5F37E825B7993A61097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549872   (592584) от 09.05.2022
+
+Отмена / Undone (2022) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) HDRezka
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый профессиональный (HDRezka)Язык озвучки: русский, английскийСубтитры: Русские, Английские (Forced, Full, SDH), Немецкие, Испанские, Финские, Французские, Итальянские, Японские, Польские, КитайскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6B192A57A6A01937DD97FA56F3419D1D9C9F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550346   (592033) от 11.05.2022
 
 Люк - путешественник во времени / Time Traveler Luke (2020) WEBRip [H.264/720p] (сезон 1, серии 1-52 из 52) CLS Media
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592033.jpg" />
+  <img src="Z:/picture/008/save_picture_592033.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591589.jpg" />
+  <img src="Z:/picture/008/save_picture_591589.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591566.jpg" />
+  <img src="Z:/picture/008/save_picture_591566.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587846.jpg" />
+  <img src="Z:/picture/008/save_picture_587846.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587589.jpg" />
+  <img src="Z:/picture/008/save_picture_587589.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587572.jpg" />
+  <img src="Z:/picture/008/save_picture_587572.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587022.jpg" />
+  <img src="Z:/picture/008/save_picture_587022.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587021.jpg" />
+  <img src="Z:/picture/008/save_picture_587021.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586380.jpg" />
+  <img src="Z:/picture/008/save_picture_586380.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585573.jpg" />
+  <img src="Z:/picture/008/save_picture_585573.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584744.jpg" />
+  <img src="Z:/picture/008/save_picture_584744.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584146.jpg" />
+  <img src="Z:/picture/008/save_picture_584146.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584089.jpg" />
+  <img src="Z:/picture/008/save_picture_584089.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584080.jpg" />
+  <img src="Z:/picture/008/save_picture_584080.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583231.jpg" />
+  <img src="Z:/picture/008/save_picture_583231.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583226.jpg" />
+  <img src="Z:/picture/008/save_picture_583226.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583174.jpg" />
+  <img src="Z:/picture/008/save_picture_583174.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582179.jpg" />
+  <img src="Z:/picture/008/save_picture_582179.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581537.jpg" />
+  <img src="Z:/picture/008/save_picture_581537.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578270.jpg" />
+  <img src="Z:/picture/008/save_picture_578270.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576599.jpg" />
+  <img src="Z:/picture/008/save_picture_576599.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576268.jpg" />
+  <img src="Z:/picture/008/save_picture_576268.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575366.jpg" />
+  <img src="Z:/picture/008/save_picture_575366.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574099.jpg" />
+  <img src="Z:/picture/008/save_picture_574099.jpg" />
 </div>
 
 
@@ -617,60 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7313BF9BE2FB4CE1966789CFB16886D6F5A72D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151272   (573845) от 18.07.2017
-
-Кастлвания / Castlevania (2017) WEB-DL [H.264/720p-LQ] (Сезон 1, 4 серии из 4) Kansai
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет серии Castlevania основан на извечном противостоянии клана Бельмонтов (Belmonts) и графа Дракулы. Каждые сто лет Дракула восстаёт из своей могилы, чтобы пить кровь невинных людей и плодить армию нечисти с целью погрузить весь мир во тьму. И Бельмонты, наделённые особенной силой по уничтожению вампиров, должны помешать коварному графу.
-
-Когда его возлюбленную (   Читать дальше...   )Производство: CША, NetFlixЖанр: Фентези, ПриключенияРежиссер: Сэм ДитсПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Kansai StudioПродолжительность: 4 серии по ~00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70830A59F4C878847ED3AEC288B9493228CB54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554848   (573758) от 01.06.2022
-
-Утиные истории / DuckTales (2017-2021) WEB-DLRip (сезон 1-3, серии 1-74 из 74)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения миллионера Скруджа Макдака и его неугомонных племянников, которые путешествуют по всему миру в поисках невероятных сокровищ и несметных богатств.Производство: США / Disney Television AnimationЖанр: мультфильм, фантастика, детский, фэнтези, боевик, комедия, детектив, приключения, семейныйРежиссер: Мэттью Хэмфрис, Тэннер Джонсон, Джейсон ЗурекПеревод: Дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63619279C51DDF8FA6CD4EAACA7252AE1EF92E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

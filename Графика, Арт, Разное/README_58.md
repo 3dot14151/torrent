@@ -1,3 +1,29 @@
+###  Публикация: 1224746   (663907) от 12.05.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 278 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_663907.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BB2668B37B0B7FE62AFA0EF266C94569286075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224749   (663905) от 12.05.2018
 
 Обои - Ultra HD 3840x2160 Wallpaper Pack 279 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663905.jpg" />
+  <img src="Z:/picture/008/save_picture_663905.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663899.jpg" />
+  <img src="Z:/picture/008/save_picture_663899.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663896.jpg" />
+  <img src="Z:/picture/008/save_picture_663896.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663829.jpg" />
+  <img src="Z:/picture/008/save_picture_663829.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663824.jpg" />
+  <img src="Z:/picture/008/save_picture_663824.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663822.jpg" />
+  <img src="Z:/picture/008/save_picture_663822.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663818.jpg" />
+  <img src="Z:/picture/008/save_picture_663818.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663813.jpg" />
+  <img src="Z:/picture/008/save_picture_663813.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663766.jpg" />
+  <img src="Z:/picture/008/save_picture_663766.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662823.jpg" />
+  <img src="Z:/picture/008/save_picture_662823.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661324.jpg" />
+  <img src="Z:/picture/008/save_picture_661324.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660186.jpg" />
+  <img src="Z:/picture/008/save_picture_660186.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659909.jpg" />
+  <img src="Z:/picture/008/save_picture_659909.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659908.jpg" />
+  <img src="Z:/picture/008/save_picture_659908.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659896.jpg" />
+  <img src="Z:/picture/008/save_picture_659896.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659813.jpg" />
+  <img src="Z:/picture/008/save_picture_659813.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659657.jpg" />
+  <img src="Z:/picture/008/save_picture_659657.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659279.jpg" />
+  <img src="Z:/picture/008/save_picture_659279.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658885.jpg" />
+  <img src="Z:/picture/008/save_picture_658885.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658714.jpg" />
+  <img src="Z:/picture/008/save_picture_658714.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658706.jpg" />
+  <img src="Z:/picture/008/save_picture_658706.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658690.jpg" />
+  <img src="Z:/picture/008/save_picture_658690.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658662.jpg" />
+  <img src="Z:/picture/008/save_picture_658662.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658602.jpg" />
+  <img src="Z:/picture/008/save_picture_658602.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658588.jpg" />
+  <img src="Z:/picture/008/save_picture_658588.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88D07CEAB63655C012436EBC55B1DC332DB6B19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225709   (658587) от 17.05.2018
-
-Иконки - Creative Market - 370 People Line Icons - 2321735 [AI, CDR, EPS, JPG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иконки чёрно-белые контурные в векторе и не только.
-Автор: IconBunny.Формат: AI, CDR, EPS, JPG, PNG, SVG, CMXРазрешение файлов: 16 x 16 - 5120 x 5120
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE0444FB4C11FD903EFC4CBC77CFB94DC6F3A31
 ```
 
 https://mybot314.ru/tekegram_catalog/

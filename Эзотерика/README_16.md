@@ -1,3 +1,29 @@
+###  Публикация: 818906   (537345) от 05.09.2014
+
+Валерий Ерофеев | Тайные рецепты парциальной магии (2002) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся совершенно новые методы и способы исцеления. Знания, которые изложены в этом труде, редкостны и уникальны, так как способны давать мистическую силу. В книге раскрываются многие тайны медицинской эзотерики и описываются специфические методы воздействия на сознание и здоровье людей. Впервые приведены шифры-коды для постоянной связи с основными эгрегорами Вселенной, даются советы и описываются способы избавления от колдовских чар, супероригинальные рецепты для женщин и их детей, а также методы (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0023F6C84AC7D88A363BED28B9D47C05492AEB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818922   (535793) от 06.09.2014
 
 Бэрд Сполдинг | Жизнь и учение Мастеров Дальнего Востока. Книги 1-6 [3] (2013-2014) [DJVU]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535793.jpg" />
+  <img src="Z:/picture/008/save_picture_535793.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534985.jpg" />
+  <img src="Z:/picture/008/save_picture_534985.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534165.jpg" />
+  <img src="Z:/picture/008/save_picture_534165.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532170.jpg" />
+  <img src="Z:/picture/008/save_picture_532170.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531904.jpg" />
+  <img src="Z:/picture/008/save_picture_531904.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531663.jpg" />
+  <img src="Z:/picture/008/save_picture_531663.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531637.jpg" />
+  <img src="Z:/picture/008/save_picture_531637.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531185.jpg" />
+  <img src="Z:/picture/008/save_picture_531185.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530058.jpg" />
+  <img src="Z:/picture/008/save_picture_530058.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529965.jpg" />
+  <img src="Z:/picture/008/save_picture_529965.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528976.jpg" />
+  <img src="Z:/picture/008/save_picture_528976.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528513.jpg" />
+  <img src="Z:/picture/008/save_picture_528513.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528402.jpg" />
+  <img src="Z:/picture/008/save_picture_528402.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527215.jpg" />
+  <img src="Z:/picture/008/save_picture_527215.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525964.jpg" />
+  <img src="Z:/picture/008/save_picture_525964.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523695.jpg" />
+  <img src="Z:/picture/008/save_picture_523695.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523165.jpg" />
+  <img src="Z:/picture/008/save_picture_523165.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522760.jpg" />
+  <img src="Z:/picture/008/save_picture_522760.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520501.jpg" />
+  <img src="Z:/picture/008/save_picture_520501.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518469.jpg" />
+  <img src="Z:/picture/008/save_picture_518469.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517311.jpg" />
+  <img src="Z:/picture/008/save_picture_517311.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516195.jpg" />
+  <img src="Z:/picture/008/save_picture_516195.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515088.jpg" />
+  <img src="Z:/picture/008/save_picture_515088.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513791.jpg" />
+  <img src="Z:/picture/008/save_picture_513791.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513658.jpg" />
+  <img src="Z:/picture/008/save_picture_513658.jpg" />
 </div>
 
 
@@ -662,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4B8369C61E89E29ACF562C002ADE76CCE9B8ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242784   (512752) от 24.08.2018
-
-Сатья Дас | Нескучная книга о счастье, деньгах и своем предназначении (2018) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как получать хорошие деньги и быть при этом счастливым и духовно развиваться? Ответ – в этой книге!
-Сатья – психолог, философ, наследник знаний древних Вед, а главное, он – мудрый человек, который любую тему объяснит просто и понятно. И при этом отличное настроение, заряд оптимизма, позитив – вам гарантированы.
-Сатья объяснит вам тайны денежных потоков, поможет найти (   Читать дальше...   )Жанр: Карьера, кадры, Психология и психотерапия, Эзотерика, эзотерическая литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7477F2FD281D7FAD0F01F090D3BBFFF256CBD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

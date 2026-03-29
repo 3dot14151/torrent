@@ -1,3 +1,119 @@
+###  Публикация: 1641590   (196719) от 23.06.2023
+
+Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лететь высоко
+2. Солнце моё
+3. Лелею
+4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641592   (196699) от 23.06.2023
+
+VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дмитрий Маликов - Бумажный змей
+2. Лариса Долина/Алексей Чумаков - Дельтаплан
+3. ХАБИБ - Домовой
+4. Александр Розенбаум - Дворик(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB03EA920E96BC36779878466554CED422DEFC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588173   (191795) от 03.11.2022
+
+Маленький Принц - Мы Встретимся Снова (1994) Reissue, 2022, Maschina Records [OGG Vorbis|480 Kbps] <Disco, Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не знаю, зачем мне ты
+02. Голос в ночи
+03. Прощай
+04. Не знаю я тебя(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA26DE828DD95EB03482E2415B54A2F26922EF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590073   (189326) от 12.11.2022
+
+Юлия Савичева - Стихия (2022) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189326.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скажи мне
+2. Жёлтое такси
+3. От его голоса
+4. Незнакомец(   Читать дальше...   )Жанр: PopПродолжительность: 00:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426703   (185949) от 25.11.2020
 
 Dabro - Юность. Deluxe Version (2020) [MP3|320 Kbps] <Pop>
@@ -6,7 +122,7 @@ Dabro - Юность. Deluxe Version (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_185949.jpg" />
+  <img src="Z:/picture/005/save_picture_185949.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dead Blonde - 3 альбома, 6 синглов (2020-2022) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185227.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ ANNA ASTI - Царица (2023) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182951.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181620.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179904.jpg" />
+  <img src="Z:/picture/005/save_picture_179904.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178293.jpg" />
+  <img src="Z:/picture/005/save_picture_178293.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178232.jpg" />
+  <img src="Z:/picture/005/save_picture_178232.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177154.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176638.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175745.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175474.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174943.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Po
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174941.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174457.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173776.jpg" />
+  <img src="Z:/picture/004/save_picture_173776.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172439.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172261.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ VA - Любовь всегда права (2023) Посвящение Алекс
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172081.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170361.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170222.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170085.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169944.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A8CD8065A517BBE1D0D4D9819134F08676A148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430822   (169690) от 11.12.2020
-
-Александр Маршал - Невыдуманные Истории (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дуэль
-2. Я Помню Тот День
-3. Роль
-4. Отец(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF855925DA0C733EB603030B2F3F849F985477D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596777   (168990) от 11.12.2022
-
-A'Studio - A’21 (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168990.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Волосы
-2. Avenue
-3. Завтрак без тебя
-4. Это всё она(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C13E092613446EE78E90BA20EB8AC55A3AA13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344925   (168989) от 12.12.2019
-
-Emin - Девочка моя (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168989.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лирика
-2. Нежная
-3. Кружимся
-4. Девочка моя(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17792139C2172D1A412E0E6F5FD3494F0DCD698B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345296   (167209) от 14.12.2019
-
-Loboda - SOLD OUT (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167209.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Хиросима
-2. Новый Рим
-3. Синие волны
-4. В зоне риска(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5ACDCEA51CF86B37F26D606F4DA2A18B0F615C
 ```
 
 https://mybot314.ru/tekegram_catalog/

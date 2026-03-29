@@ -1,3 +1,108 @@
+###  Публикация: 1641114   (233714) от 20.06.2023
+
+OnlySwitch 2.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233714.jpg" />
+</div>
+
+
+###  Подробнее
+
+OnlySwitch предоставляет серию тумблеров/переключателей для упрощения рутинной работы, таких как скрытие значков рабочего стола, темный режим и скрытие выемки нового Macbook Pro и многое другое. Переключатели отображаются в строке состояния, вы можете легко управлять ими. Элементы переключателей и ярлыков могут быть настроены (удалить/добавить или отсортировать) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2022 JacklandrinПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9188F781676A4BE164ABD9F6427CFB2FE9DA89A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641111   (233709) от 20.06.2023
+
+QLab 5.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233709.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2023Разработчик: © 2023 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9914859E0CF4E2F8347B3A73CDCB8FBD228ACD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511564   (233687) от 21.11.2021
+
+Bartender 4 v4.1.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2021Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD18C81C020687F0FA16E8B7B227FF4A6523CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641027   (233685) от 20.06.2023
+
+FoneDog Toolkit for Android 2.1.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233685.jpg" />
+</div>
+
+
+###  Подробнее
+
+FoneDog Android Data Recovery специализируется на восстановлении удаленных контактов (номера телефонов, имена, электронные письма), текстовых сообщений (контент, номера телефонов, дата отправки / получения) и истории вызовов (имена, номера телефонов, тип вызова, продолжительность), WhatsApp (сообщения / вложения), фотографии, видео, аудио файлы и документы с устройств (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.06.2023Разработчик: © 2016 - 2022 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4447B637893C7A6F7FDBE6D67926D746A64AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511521   (233682) от 21.11.2021
 
 File List Export 2.6.9 [En]
@@ -6,7 +111,7 @@ File List Export 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233682.jpg" />
+  <img src="Z:/picture/005/save_picture_233682.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ System Dashboard 4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233678.jpg" />
+  <img src="Z:/picture/005/save_picture_233678.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Invisor - Media File Inspector 3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233675.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Movist Pro 2.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233671.jpg" />
+  <img src="Z:/picture/005/save_picture_233671.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ ProFind 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233670.jpg" />
+  <img src="Z:/picture/005/save_picture_233670.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Slidepad 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233667.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ ToothFairy 2.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233661.jpg" />
+  <img src="Z:/picture/005/save_picture_233661.jpg" />
 </div>
 
 
@@ -194,7 +299,7 @@ RightFont 8.0.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233660.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ Screens 4.12.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233655.jpg" />
+  <img src="Z:/picture/005/save_picture_233655.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ PullTube 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233653.jpg" />
+  <img src="Z:/picture/005/save_picture_233653.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ BatchOutput PDF 2.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233651.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ Ghost Buster Pro 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233650.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ WonderPen 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233646.jpg" />
+  <img src="Z:/picture/005/save_picture_233646.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Find Any File (FAF) 2.3.2 b7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233640.jpg" />
+  <img src="Z:/picture/005/save_picture_233640.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Duplicate Photos Fixer Pro 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233637.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Cardhop 2.0.7 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233631.jpg" />
+  <img src="Z:/picture/005/save_picture_233631.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ TG Pro (Temperature Gauge Pro) 2.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233624.jpg" />
+  <img src="Z:/picture/005/save_picture_233624.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ Permute 3 v.3.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233623.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233616.jpg" />
+  <img src="Z:/picture/005/save_picture_233616.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ One Switch 1.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233600.jpg" />
+  <img src="Z:/picture/005/save_picture_233600.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ Timemator 2 v2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233593.jpg" />
+  <img src="Z:/picture/005/save_picture_233593.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Middle 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233586.jpg" />
+  <img src="Z:/picture/005/save_picture_233586.jpg" />
 </div>
 
 
@@ -576,112 +681,6 @@ Middle  просто добавляет возможность сделать «
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A42C91346DB97CA5C3CC28FDD031B1930DF4093F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511560   (233580) от 21.11.2021
-
-DMG Canvas 3.0.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233580.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат, таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2021Разработчик: © 2021 Araelium GroupПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3AED3C36F6B547DE7AE06D71A44876ABAAAA88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511597   (233566) от 21.11.2021
-
-Recordia 2.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записывайте звук прямо из строки меню или с помощью глобального сочетания клавиш.Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8FF5EBF7F1EB26063B229FC51A3B29B0373062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642056   (233552) от 25.06.2023
-
-iTubeGo YouTube Downloader Pro for Mac 6.9.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачивайте видео в формате Full HD/4K/8K с YouTube и более чем с 10 000 веб-сайтов на высокой скорости.
-Являясь мощным загрузчиком HD-видео для YouTube, Dailymotion, Facebook и других потоковых сайтов, iTubeGo HD Video Downloader обеспечивает в 10 раз более высокую скорость для массовой загрузки высококачественных видео. Кроме того, он предоставляет встроенный браузер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.05.2023Разработчик: © 2023 iTubeGoПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08863511935E042EEDC438E4663A430D24F7D91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511535   (233551) от 21.11.2021
-
-Things 3 v3.15.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE570BE996F4FCF712CBF21FE2B30ADD30FD8DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

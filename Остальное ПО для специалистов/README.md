@@ -1,4 +1,189 @@
 https://t.me/izofen
+###  Публикация: 1861222   (1062627) от 
+
+OrcaSlicer 2.3.2 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062627.jpg" />
+</div>
+
+
+###  Подробнее
+
+OrcaSlicer изначально форк из Bambu Studio, ранее он был известен как BambuStudio-SoftFever.
+OrcaSlicer - популярный слайсер для 3d-печати. Отлично подходит для разнообразного зоопарка принтеров, имеет готовые шаблоны для печати и дружелюбный интерфейс.Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEE3AEB322123BF058F5DB42DD874910458F7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861297   (1062577) от 
+
+SQLite Expert Professional 5.5.42.653 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062577.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLite Expert Professional – мощный визуальный инструмент для удобного управления БД SQLite3.
+Программа совмещает управление базами данных и их обслуживание в единой интегрированной среде с четким и интуитивно понятным пользователю графическим интерфейсом. С помощью этого приложения пользователь может редактировать и просматривать таблицы, перестраивать поля, проставлять (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D6B120A4C9AFB2E88B8FB55B7FBDE19A02957B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861486   (1062448) от 
+
+EasyUEFI 6.2 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062448.jpg" />
+</div>
+
+
+###  Подробнее
+
+EasyUEFI - удобная утилита для редактирования загрузочного меню операционных систем Windows на основе EFI/UEFI. Технология UEFI все чаще используется разработчиками и производителями ПК как замена известного всем интерфейса BIOS, позволяя более гибко и тонко управлять параметрами запуска операционной системы.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0A4EB5B2FF7FD6A188DAEAD3EA848CD191EE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861493   (1062429) от 
+
+WinToHDD 7.0 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062429.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - это удобное и полезное программное обеспечение, которое позволяет вам устанавливать или переустанавливать Windows 11/10/8/7/Vista без использования CD/DVD/ USB-накопителя. С помощью этого универсального средства развертывания Microsoft Windows вы можете легко переустановить Windows, установить Windows на диски, отличные от того, на котором установлена (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C192286E0A54FE519A3E7162F801D4132CD860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860882   (1062336) от 
+
+Hex Editor Neo Ultimate 8.02.00.9315 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
+Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305AEC795EE482D620DF0F2EDB42BA0C651DA89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860981   (1062245) от 
+
+LDPlayer 9.5.3.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062245.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer 9 — мощный бесплатный эмулятор устройства с операционной системой Android для ПК Windows. Это приложение позволяет запускать на вашем компьютере почти все популярные мобильные игры и приложения созданные для ОС Android. Игры можно устанавливать из магазина LD Store, Google Play или с помощью APK-файла и управлять ими с помощью мыши и клавиатуры. Этот эмулятор (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447298682F08DD151B5B1BD2A3E00631C0BD9C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861074   (1062161) от 
+
+WinToHDD 7.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062161.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984358BCD7C6CFFC78722DB8391852A420BF36AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857540   (1059703) от 06.03.2026
 
 Ultimaker Cura 5.12 [Multi/Ru]
@@ -7,7 +192,7 @@ Ultimaker Cura 5.12 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059703.jpg" />
+  <img src="Z:/picture/005/save_picture_1059703.jpg" />
 </div>
 
 
@@ -33,7 +218,7 @@ MEmu 9.5.0.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059632.jpg" />
 </div>
 
 
@@ -60,7 +245,7 @@ WinNTSetup 5.4.2 Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059295.jpg" />
+  <img src="Z:/picture/005/save_picture_1059295.jpg" />
 </div>
 
 
@@ -86,7 +271,7 @@ VMware Workstation Pro 25H2u1 25.0.1.25219725 RePack by KpoJIuK [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059252.jpg" />
+  <img src="Z:/picture/005/save_picture_1059252.jpg" />
 </div>
 
 
@@ -112,7 +297,7 @@ MEmu 9.3.3.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058525.jpg" />
+  <img src="Z:/picture/005/save_picture_1058525.jpg" />
 </div>
 
 
@@ -139,7 +324,7 @@ Aptech Systems GAUSS 25.0.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058080.jpg" />
+  <img src="Z:/picture/005/save_picture_1058080.jpg" />
 </div>
 
 
@@ -165,7 +350,7 @@ TI-Nspire CX CAS Student Software 5.4.0.259 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057170.jpg" />
+  <img src="Z:/picture/005/save_picture_1057170.jpg" />
 </div>
 
 
@@ -191,7 +376,7 @@ RegToCMD 1.0 RePack by BlueScreen [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056414.jpg" />
+  <img src="Z:/picture/005/save_picture_1056414.jpg" />
 </div>
 
 
@@ -217,7 +402,7 @@ Maplesoft Maple Flow 2025.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056404.jpg" />
+  <img src="Z:/picture/005/save_picture_1056404.jpg" />
 </div>
 
 
@@ -243,7 +428,7 @@ MapleSoft MapleSim 2025.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056400.jpg" />
+  <img src="Z:/picture/005/save_picture_1056400.jpg" />
 </div>
 
 
@@ -269,7 +454,7 @@ Cisco Packet Tracer 9.0.0.0810 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055021.jpg" />
+  <img src="Z:/picture/005/save_picture_1055021.jpg" />
 </div>
 
 
@@ -295,7 +480,7 @@ VirtualBox 7.2.6 Build 172322 + Extension Pack [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054450.jpg" />
+  <img src="Z:/picture/005/save_picture_1054450.jpg" />
 </div>
 
 
@@ -321,7 +506,7 @@ WinToUSB Technician 10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053716.jpg" />
+  <img src="Z:/picture/005/save_picture_1053716.jpg" />
 </div>
 
 
@@ -347,7 +532,7 @@ WinToHDD 6.9 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051247.jpg" />
+  <img src="Z:/picture/005/save_picture_1051247.jpg" />
 </div>
 
 
@@ -373,7 +558,7 @@ PilotEdit Lite & Pro 20.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051152.jpg" />
+  <img src="Z:/picture/005/save_picture_1051152.jpg" />
 </div>
 
 
@@ -400,7 +585,7 @@ Molsoft  ICM-Pro 3.9-4 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050468.jpg" />
+  <img src="Z:/picture/005/save_picture_1050468.jpg" />
 </div>
 
 
@@ -426,7 +611,7 @@ WinToUSB Technician 10.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049115.jpg" />
+  <img src="Z:/picture/008/save_picture_1049115.jpg" />
 </div>
 
 
@@ -452,7 +637,7 @@ Hex Editor Neo Ultimate 7.50.04.8813 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048940.jpg" />
+  <img src="Z:/picture/008/save_picture_1048940.jpg" />
 </div>
 
 
@@ -479,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048870.jpg" />
+  <img src="Z:/picture/008/save_picture_1048870.jpg" />
 </div>
 
 
@@ -492,191 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473AC5F36404578CDF50E911999A8C464F4F3F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841173   (1047789) от 09.12.2025
-
-Wolfram Mathematica 14.3 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система Mathematica является оригинальным ведущим продуктом компании Wolfram, главным образом нацеленным на технические вычисления для научно-исследовательской и образовательной деятельности. Основанная на языке Wolfram Language, Mathematica абсолютно совместима с другими основными продуктами компании Wolfram.
-На протяжении трёх десятилетий система Mathematica определяет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC055CAAE1B6C823DBC89E8274A26B306469B727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839750   (1047197) от 03.12.2025
-
-1С:Предприятие платформа 8.3.27.1859 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047197.jpg" />
-</div>
-
-
-###  Подробнее
-
-«1С:Предприятие 8» — это технологическая платформа для разработки и исполнения прикладных решений. Платформа «1С:Предприятие 8» предоставляет разработчику предметно-ориентированную среду быстрой разработки — интегрированный набор инструментов и технологий, необходимых для быстрой разработки, распространения и поддержки прикладного решения для автоматизации бизнеса.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2ABCF604327FDB337623FB7E1C0875C1D749B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612766   (1039795) от 17.02.2023
-
-Magma Computational Algebra System 2.20.9 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magma — это большой хорошо поддерживаемый программный пакет, предназначенный для вычислений в алгебре, теории чисел, алгебраической геометрии и алгебраической комбинаторике. Он обеспечивает математически строгую среду для определения и работы с такими структурами, как группы, кольца, поля, модули, алгебры, схемы, кривые, графики, конструкции, коды и многие другие. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C7EDF7FF06263417C3B86FA62D1DCBE24C991D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440545   (1038644) от 17.01.2021
-
-Adobe Dreamweaver 2021 (21.1.0.15413) Portable by XpucT [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver – новая версия приложения, предназначенного для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver CC содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной поддержкой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FBC6274D99423918529A90CA0FA0986E7B59C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614593   (1038536) от 22.02.2023
-
-Inno Setup 6.2.2 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inno Setup - программа для создания инсталляционных пакетов. Созданный утилитой инсталляционный файл какого-либо приложения, позволяет при его установке считывать и записывать данные в реестр и в конфигурационные INI-файлы. Тут имеется возможность регистрации библиотек и ActiveX компонентов, а также запуск внешних программ. Кроме того, в утилите есть опция создания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06430888855CE7F5B051A0F26C980A829A3FF68B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443891   (1035146) от 30.01.2021
-
-ColorAndCode 20.2 Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Color and Code - программа позволяет определить номинал или тип радиоэлементов по цветовой или кодовой маркировке, в дополнение содержит справочник по пассивным и активным радиокомпонентам.
-Всего - 4216 элемента. В справочник входят как отечественные так и зарубежные элементы. Последнее обновление содержит справочник по «Arduino».
-Программа обладает собственной базой (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B8403157072C53F933453A1AAFFB9380BFE643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447082   (1031736) от 13.02.2021
-
-HyperX NGENUITY 5.2.8.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031736.jpg" />
-</div>
-
-
-###  Подробнее
-
-HyperX NGENUITY — это мощное и интуитивно понятное программное обеспечение, предоставляющее для вас возможность персонализировать ваши совместимые продукты HyperX. Задавайте привязки кнопок, пишите и сохраняйте макросы, а также выполняйте персонализированную настройку подсветки: HyperX NGENUITY предоставляет вам такой уровень управления, какой вы хотите. Кроме того, (   Читать дальше...   )Язык интерфейса: Русский, английский, испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4EB5909FDEEDE2FA5CB1FB22CA1DA688FCF241
 ```
 
 https://mybot314.ru/tekegram_catalog/

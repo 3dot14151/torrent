@@ -6,7 +6,7 @@ Cockos REAPER 6.08 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872341.jpg" />
+  <img src="Z:/picture/008/save_picture_872341.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Bat! Professional 9.1.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872281.jpg" />
+  <img src="Z:/picture/008/save_picture_872281.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional 9.1.12 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872271.jpg" />
+  <img src="Z:/picture/008/save_picture_872271.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tor Browser Bundle 9.0.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872220.jpg" />
+  <img src="Z:/picture/008/save_picture_872220.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VLC Media Player 3.0.9.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872209.jpg" />
+  <img src="Z:/picture/008/save_picture_872209.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Illustrator 2020 24.1.2.402 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872203.jpg" />
+  <img src="Z:/picture/008/save_picture_872203.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ V-Ray Next 4.30.02 for 3ds Max 2016-2021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872170.jpg" />
+  <img src="Z:/picture/008/save_picture_872170.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Bat! Voyager 9.1.10.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872168.jpg" />
+  <img src="Z:/picture/008/save_picture_872168.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AnyDesk 5.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872166.jpg" />
+  <img src="Z:/picture/008/save_picture_872166.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.25.5400 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872152.jpg" />
+  <img src="Z:/picture/008/save_picture_872152.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ QQ Browser 9.3.6872.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872096.jpg" />
+  <img src="Z:/picture/008/save_picture_872096.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ KakaoTalk 2.1.2.1124 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872089.jpg" />
+  <img src="Z:/picture/008/save_picture_872089.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sogou Explorer 6.1.5.20644 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872088.jpg" />
+  <img src="Z:/picture/008/save_picture_872088.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Qiyu Swordfish Browser 1.0.7.0 [En/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872038.jpg" />
+  <img src="Z:/picture/008/save_picture_872038.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Maxthon Cloud Browser 4.9.2.400 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871975.jpg" />
+  <img src="Z:/picture/008/save_picture_871975.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AnyMP4 Blu-ray Ripper 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871968.jpg" />
+  <img src="Z:/picture/008/save_picture_871968.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Download Master 6.8.1.1509 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871964.jpg" />
+  <img src="Z:/picture/008/save_picture_871964.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ AnyMP4 DVD Converter 6.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871963.jpg" />
+  <img src="Z:/picture/008/save_picture_871963.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cyberfox 45.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871886.jpg" />
+  <img src="Z:/picture/008/save_picture_871886.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinScan2PDF 3.13 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871880.jpg" />
+  <img src="Z:/picture/008/save_picture_871880.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Telegram Desktop 0.9.32 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871870.jpg" />
+  <img src="Z:/picture/008/save_picture_871870.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Cyberfox 45.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871868.jpg" />
+  <img src="Z:/picture/008/save_picture_871868.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Faasoft Audio Converter 5.2.23.5604 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871867.jpg" />
+  <img src="Z:/picture/008/save_picture_871867.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NewFileTime 2.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871768.jpg" />
+  <img src="Z:/picture/008/save_picture_871768.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Download Master 6.8.1.1509 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871764.jpg" />
+  <img src="Z:/picture/008/save_picture_871764.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Faasoft Video Converter 5.3.22.5834 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871760.jpg" />
+  <img src="Z:/picture/008/save_picture_871760.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1542454   (243529) от 07.04.2022
+
+Звуковые библиотеки - Film Masters - Interstellar Movie Trailer Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью готовые звуковые эффекты для ваших постановок. 100% оригинальный контент от профессионалов звуковой индустрии.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:097EF53F967E7E7849AE90682ADB0693425CF60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545124   (240826) от 18.04.2022
+
+Звуковые библиотеки -  Native Instruments - Session Bassist Prime Bass [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240826.jpg" />
+</div>
+
+
+###  Подробнее
+
+PRIME BASS обеспечивает классическое звучание одного из самых культовых электрических басов в мире, запечатленное на оригинальной цельнокорпусной бас-гитаре 1981 года выпуска, изготовленной в США. Благодаря обилию риффов, петель и мелодий, сочиненных и исполненных профессиональными сессионными музыкантами, PRIME BASS предлагает все необходимое для создания проникновенных (   Читать дальше...   )Формат: Kontakt: NKSN, NKI, NKR, NICNT, NKC, NKX, NKA; OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576775   (235003) от 15.09.2022
+
+Звуковые библиотеки - Triune Digital - Monster SFX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте дополнительное напряжение в своем фильме с помощью этого увлекательного материала из пакета Triune Digital Monster SFX .Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577089   (234621) от 17.09.2022
 
 Звуковые библиотеки - Video Presets - 3400+ Cinematic Sound Effects [For Filmmakers] [WAV]
@@ -6,7 +84,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234621.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231563.jpg" />
+  <img src="Z:/picture/005/save_picture_231563.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230310.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227140.jpg" />
+  <img src="Z:/picture/005/save_picture_227140.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226957.jpg" />
+  <img src="Z:/picture/005/save_picture_226957.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225626.jpg" />
+  <img src="Z:/picture/005/save_picture_225626.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223306.jpg" />
+  <img src="Z:/picture/005/save_picture_223306.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217506.jpg" />
+  <img src="Z:/picture/005/save_picture_217506.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217287.jpg" />
+  <img src="Z:/picture/005/save_picture_217287.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217205.jpg" />
+  <img src="Z:/picture/005/save_picture_217205.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ NNM Club Sound Cleaner's - Clean Music Tracks [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215885.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213598.jpg" />
+  <img src="Z:/picture/005/save_picture_213598.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213566.jpg" />
 </div>
 
 
@@ -358,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213475.jpg" />
 </div>
 
 
@@ -384,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213451.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212830.jpg" />
+  <img src="Z:/picture/005/save_picture_212830.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212645.jpg" />
+  <img src="Z:/picture/005/save_picture_212645.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212616.jpg" />
+  <img src="Z:/picture/005/save_picture_212616.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212533.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212265.jpg" />
+  <img src="Z:/picture/005/save_picture_212265.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212248.jpg" />
 </div>
 
 
@@ -571,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212176.jpg" />
 </div>
 
 
@@ -597,7 +675,7 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part Two [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210029.jpg" />
+  <img src="Z:/picture/005/save_picture_210029.jpg" />
 </div>
 
 
@@ -608,86 +686,6 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part Two [MP3]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:309167515A14C628D7CD7C4ED080B6C9A1F60E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582634   (206209) от 10.10.2022
-
-Звуковые библиотеки - Universe Video Pro - 2000+ Cinematic Sound Effects [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206209.jpg" />
-</div>
-
-
-###  Подробнее
-
-2000+ Cinematic Sound Effects  - 29 уникальных категорий звуков в одном паке!!! От Автора: "Звуковые эффекты являются важным аспектом в процессе редактирования видео. Это обязательная библиотека звуковых эффектов для кинематографистов. Она включает в себя более 2000 удивительных оригинальных звуков, которые были разработаны, чтобы помочь вам создавать потрясающие (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8979F8913B38762D2FB8695BE9FE82C9A8FFBEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830686   (205638) от 27.10.2025
-
-Звуковые библиотеки - BOOM Library - Cyber Weapons [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека BOOM с гордостью представляет CYBER WEAPONS — библиотеку звуковых эффектов нового поколения для футуристического, современного и научно-фантастического оружия. От небольших лазеров, предназначенных для пистолетов, до разрушающих планету лучей — этот комплект предлагает полный выбор.
-Создавайте собственные творения с помощью набора Construction Kit, содержащего (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584082   (205130) от 17.10.2022
-
-Звуковые библиотеки - Video Presets - 290+ Royalty Free Background Music Tracks [WAV, MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205130.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Автора: - "Нам потребовалось немало времени, чтобы создать этот универсальный звуковой пакет Royalty Free, который сэкономит вам много времени и денег.
-Вы еще не убедились? Давайте поговорим о возможных типах видео, в которых вы можете его использовать: YouTube, телевидении, Facebook, Instagram, в веб-рекламе, свадебных и романтических видео, мотивационных (   Читать дальше...   )Формат: WAV, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A214A952B57BC26588F14CD021591BC7DDB835F
 ```
 
 https://mybot314.ru/tekegram_catalog/

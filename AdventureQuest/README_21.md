@@ -1,3 +1,82 @@
+###  Публикация: 1011972   (795178) от 29.04.2016
+
+The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795178.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Detail – криминальный интерактивный приключенческий нуарный детектив, события которого разворачиваются в современном американском городке. Это город, в котором все завит от случая, а в хороший день даже может восторжествовать справедливость. Игра расскажет о преступности и борьбе с ней с двух разных точек зрения – доброго полицейского и профессионального уголовника. (   Читать дальше...   )Тип издания: LicenseРазработчик: Rival GamesЖанр: AdventureЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52F5D726A651AD64687CE63DCB12562EFBA3CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012149   (795155) от 29.04.2016
+
+Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grizzly Valley - реалистичный симулятор выживания в заснеженной канадской глубинке, куда вы поехали навестить свою сестру!
+Перед отправкой вам предстоит собрать необходимые для путешествия вещи, от которых будет зависеть ваша жизнь, когда вы окажетесь в не очень комфортных условиях.Тип издания: RepackРазработчик: KiddyЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68731357633D718F4F386AF76FAE79A12646CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509296   (794680) от 12.11.2021
+
+890B (2021) [Multi] (1.2.3) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794680.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем Земля стала непригодной для жизни из-за сильного загрязнения, и теперь вам предстоит найти решение для спасения человечества. Возьмите на себя роль Ноя, ученого, которому поручено найти новую планету с условиями, аналогичными нашим. Развивайте исследовательскую лабораторию, находите полезные предметы, решайте разнообразные головоломки и принимайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Nerd Games, Artax GamesЖанр: КвестЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99646500B4FC231F9A3DDA109F855B42F25E543C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200842   (794656) от 22.01.2018
 
 The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
@@ -6,7 +85,7 @@ The Fall of Lazarus (2017) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794656.jpg" />
+  <img src="Z:/picture/008/save_picture_794656.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Slice of Sea (2021) [Ru/Multi] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794613.jpg" />
+  <img src="Z:/picture/008/save_picture_794613.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ PLAY WITH ME (2018) [En/Pl] (1.20.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794524.jpg" />
+  <img src="Z:/picture/008/save_picture_794524.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Rusty Lake Paradise (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794514.jpg" />
+  <img src="Z:/picture/008/save_picture_794514.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794347.jpg" />
+  <img src="Z:/picture/008/save_picture_794347.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ N.E.R.O.: Nothing Ever Remains Obscure (2016) [Ru/Multi] (5.3.2.14600335) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794293.jpg" />
+  <img src="Z:/picture/008/save_picture_794293.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ Motherland (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793637.jpg" />
+  <img src="Z:/picture/008/save_picture_793637.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ Pilot Brothers: Trilogy / Братья Пилоты: Трилогия (1997-2004
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793493.jpg" />
+  <img src="Z:/picture/008/save_picture_793493.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Vesta (2018) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793492.jpg" />
+  <img src="Z:/picture/008/save_picture_793492.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ Paradigm / Парадигма (2017) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793026.jpg" />
+  <img src="Z:/picture/008/save_picture_793026.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ Subnautica (2018) [Ru/Multi] (59783) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792594.jpg" />
+  <img src="Z:/picture/008/save_picture_792594.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ The Quiet Apocalypse (2021) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792560.jpg" />
+  <img src="Z:/picture/008/save_picture_792560.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ Shantae and the Seven Sirens (2020) [Ru/Multi] (701355) License GOG (обнов�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792298.jpg" />
+  <img src="Z:/picture/008/save_picture_792298.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_792289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792289.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ Sparklite (2019) [Multi] (1.6.8) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791867.jpg" />
+  <img src="Z:/picture/008/save_picture_791867.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ Nerved (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791745.jpg" />
+  <img src="Z:/picture/008/save_picture_791745.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790871.jpg" />
+  <img src="Z:/picture/008/save_picture_790871.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790310.jpg" />
+  <img src="Z:/picture/008/save_picture_790310.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ American Hero (2021) [En] (0.0.30) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789146.jpg" />
+  <img src="Z:/picture/008/save_picture_789146.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ Catherine Classic (2019) [Multi] (1.0.1151) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788852.jpg" />
+  <img src="Z:/picture/008/save_picture_788852.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788749.jpg" />
+  <img src="Z:/picture/008/save_picture_788749.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788743.jpg" />
+  <img src="Z:/picture/008/save_picture_788743.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788526.jpg" />
+  <img src="Z:/picture/008/save_picture_788526.jpg" />
 </div>
 
 
@@ -589,84 +668,6 @@ Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:695C10A57D9EA125CAB85B4485596FD8DEEA44D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276176   (788393) от 15.01.2019
-
-Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познайте все прелести и ужасы любви вместе с Винсентом, который оказался перед нелёгким выбором: жениться на своей давней подруге Катерине или переехать к отпадной блондинке, в чьей постели он только что проснулся — и которую зовут Катриной! Но берегитесь! Одно неверное решение может стоить вам жизни. Этот уникальный гибрид приключенческого боевика и головоломки (   Читать дальше...   )Тип издания: RepackРазработчик: ATLUSЖанр: Adventure, Novel, Action, PuzzleЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8EAD31713C5DFC314D3E2BBC139BE8DBBEF02B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511748   (788287) от 22.11.2021
-
-Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая приключенческая игра, созданная Дугласом Адамсом, автором серии книг «Автостопом по галактике». Некая развитая цивилизация построила в самом центре нашей галактики самый большой и красивый космический корабль в истории – звездолет «Титаник». Его роскошное внутренне убранство напоминает и отель «Ритц», и Крайслер-билдинг, и гробницу Тутанхамона, и Венецию. (   Читать дальше...   )Тип издания: LicenseРазработчик: The Digital VillageЖанр: Приключение, Квест, ФантастикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B3FF833E493C92B9D781B35B4A321B55B5DF8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511754   (788278) от 22.11.2021
-
-The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгадайте мрачную тайну, раскрыть которую под силу лишь медиуму. Исследуйте реальный мир и мир духов одновременно. Используйте свои возможности ясновидения, чтобы решать загадки, связывающие два мира, открывать зловещие тайны и пережить встречи с Пастью – чудовищем, порожденным ужасной трагедией.Тип издания: LicenseРазработчик: Bloober TeamЖанр: Квест (От третьего лица), Хоррор (Психология)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07883FA1C72AA58DF5D84DB99D19BD033134DDEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

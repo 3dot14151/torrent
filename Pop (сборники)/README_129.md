@@ -1,3 +1,177 @@
+###  Публикация: 1808267   (10483) от 24.07.2025
+
+VA - Italo Electro Disco (2025) [MP3|320 Kbps] <Italo-Disco, Electro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Richard - Walking In The Neon (Dub Mix) (8:58)
+02. International Music System - Nonline (Charlie Remix) (5:30)
+03. The Creatures - Machine's Drama (6:56)
+04. Marzio Dance - Adventure (Dub Version) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 02:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFED4D18B4EE1721A4C859E781CC3008CC4D4E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813284   (6952) от 19.08.2025
+
+Reyvi - Favorites Collection (2025) [MP3|320 Kbps] <Euro-Disco, New Italo Disco Style>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You Broke Me
+02 - Don’t Let Go
+03 - Midnight Calls
+04 - Ton Absence(   Читать дальше...   )Жанр: Euro-Disco, New Italo Disco StyleПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD68A43E6BC1D9FEE3B159A072F2C77C5C75F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764679   (5225) от 30.08.2025
+
+Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Keeps Beating (After The Thunder 2012)
+02. Always (Good Love 2019)
+03. Always On My Mind (Obsession 2008)
+04. Отпусти и Лети (Love Is 2021)(   Читать дальше...   )Жанр: Soul, PopПродолжительность: 05:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814229   (4303) от 05.09.2025
+
+Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amore
+02 - Te Busco
+03 - Amore Mio
+04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817596   (3309) от 11.09.2025
+
+Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heartbeat
+ 02 - Why Did You Say Goodbye
+ 03 - My Love
+ 04 - L’amour Nous(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817789   (2647) от 15.09.2025
+
+Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ogni Momento Con Te (Version 2)
+ 02 - Per Sempre, Amore Mio
+ 03 - L’amore È Morto
+ 04 - Ti Amo(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817722   (2646) от 15.09.2025
 
 Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
@@ -6,7 +180,7 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2646.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2644.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2630.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2618.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2612.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Romantic Dreams - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Disco, Ital
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2000.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ Yenra - Compilation (2025) [MP3|320 Kbps] <Electronic, Vocal, Disco, Euro-Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1974.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1973.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1184.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1182.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Elect
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1170.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1138.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_989.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 12 (2022) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_906.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ Reyvi - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_802.jpg" />
 </div>
 
 

@@ -1,3 +1,138 @@
+###  Публикация: 1052120   (528995) от 13.09.2016
+
+GIF Brewery 3 - Video to GIF Creator 3.0.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528995.jpg" />
+</div>
+
+
+###  Подробнее
+
+GIF Brewery 3 — лучший помощник в создании анимаций
+Крупный апдейт принес GIF Brewery много новых функций, среди которых запись видео с экрана Mac или iOS непосредственно из приложения, а также предварительный просмотр перед созданием гифки. Самым главным изменением стал отказ от фреймворка QuickTime и переход на AV Foundation Framework
+
+GIF Brewery 3 получила новый (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 сентября 2016Разработчик: Hello, Resolven AppsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D69D3DB569705FF621D2423C0B39CF55C106F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558851   (528934) от 22.06.2022
+
+Auto Refresh Page 1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auto Refresh Page — это расширение для браузера, которое автоматически обновляет и перезагружает любую страницу или вкладку через заданное количество секунд. Просто введите количество секунд между обновлениями страницы и нажмите кнопку «Старт». Автоматическое обновление веб-страниц. Автообновление и монитор страниц с заданными временными интервалами.Тип издания: macOS SoftwareРелиз состоялся: 21.06.2022Разработчик: © 2021 HashtapПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B6B8E2B687CAFC732460B466A0B6FCE03660ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558807   (528863) от 22.06.2022
+
+SnippetsLab 2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528863.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты (фрагменты кода), легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и улучшена совместимость с macOS Monterey.Тип издания: macOS SoftwareРелиз состоялся: 22.06.2022Разработчик: © 2015-2022 Renfei SongПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2AF132885056307DDEB14DB8AEC5CB45BB410AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558980   (527839) от 23.06.2022
+
+xScope 4 v4.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527839.jpg" />
+</div>
+
+
+###  Подробнее
+
+xScope — cоздан специально для дизайнеров и разработчиков. Приложение представляет собой мощный набор из десяти конфигурируемых инструментов, которые идеально подходят для измерения, проверки и тестирования на экране графики и разнообразных макетов. Инструменты xScope можно вызывать с помощью плавающей над рабочим столом инструментальной панели, строки меню и/или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.06.2022Разработчик: © 2022 The Iconfactory and ARTIS SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E27A1D2A0CBB423EB882E9A62E26BF5A2D4139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559051   (527829) от 23.06.2022
+
+Do Your Data Recovery Pro 8.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_527829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Do Your Data Recovery Professional – инструмент для быстрого восстановления удаленных или недоступных файлов.
+Do Your Data Recovery Professional – это простой в управлении и мощный инструмент для быстрого восстановления удаленных или недоступных файлов. Программа вернет утерянную информацию с ПК, ноутбука, жесткого диска, цифрового устройства, накопителя и т.д
+Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.06.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: OS X 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA783E24D97B0AF3EAD38101049B5FFC489DA9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559025   (527804) от 23.06.2022
 
 Webcam Setting 1.2.1 [En]
@@ -6,7 +141,7 @@ Webcam Setting 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527804.jpg" />
+  <img src="Z:/picture/008/save_picture_527804.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ InstaBro | Instagram Browser 5.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527802.jpg" />
+  <img src="Z:/picture/008/save_picture_527802.jpg" />
 </div>
 
 
@@ -59,7 +194,7 @@ Iris Pro 0.8.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527598.jpg" />
+  <img src="Z:/picture/008/save_picture_527598.jpg" />
 </div>
 
 
@@ -88,7 +223,7 @@ Layouts for Keynote 2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527367.jpg" />
+  <img src="Z:/picture/008/save_picture_527367.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ Themes for iBooks Author 4.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527359.jpg" />
+  <img src="Z:/picture/008/save_picture_527359.jpg" />
 </div>
 
 
@@ -142,7 +277,7 @@ Qbserve 1.89 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527229.jpg" />
+  <img src="Z:/picture/008/save_picture_527229.jpg" />
 </div>
 
 
@@ -170,7 +305,7 @@ DFind - Fast File Search for macOS 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527227.jpg" />
+  <img src="Z:/picture/008/save_picture_527227.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ DSync - File Synchronizer 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527189.jpg" />
+  <img src="Z:/picture/008/save_picture_527189.jpg" />
 </div>
 
 
@@ -224,7 +359,7 @@ JPEGmini Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526971.jpg" />
+  <img src="Z:/picture/008/save_picture_526971.jpg" />
 </div>
 
 
@@ -252,7 +387,7 @@ Mail Designer Pro 3 v3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526942.jpg" />
+  <img src="Z:/picture/008/save_picture_526942.jpg" />
 </div>
 
 
@@ -280,7 +415,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526290.jpg" />
+  <img src="Z:/picture/008/save_picture_526290.jpg" />
 </div>
 
 
@@ -306,7 +441,7 @@ Spot Maps 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526072.jpg" />
+  <img src="Z:/picture/008/save_picture_526072.jpg" />
 </div>
 
 
@@ -334,7 +469,7 @@ Things 2.8.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526002.jpg" />
+  <img src="Z:/picture/008/save_picture_526002.jpg" />
 </div>
 
 
@@ -362,7 +497,7 @@ Jaksta Deluxe 2.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525819.jpg" />
+  <img src="Z:/picture/008/save_picture_525819.jpg" />
 </div>
 
 
@@ -390,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525517.jpg" />
+  <img src="Z:/picture/008/save_picture_525517.jpg" />
 </div>
 
 
@@ -418,7 +553,7 @@ MetaTV 1.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525172.jpg" />
+  <img src="Z:/picture/008/save_picture_525172.jpg" />
 </div>
 
 
@@ -446,7 +581,7 @@ Proxie: HTTP debugging proxy 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525171.jpg" />
+  <img src="Z:/picture/008/save_picture_525171.jpg" />
 </div>
 
 
@@ -475,7 +610,7 @@ Periodic Table Explorer 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524758.jpg" />
+  <img src="Z:/picture/008/save_picture_524758.jpg" />
 </div>
 
 
@@ -504,7 +639,7 @@ FileAssistant 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524497.jpg" />
+  <img src="Z:/picture/008/save_picture_524497.jpg" />
 </div>
 
 
@@ -532,7 +667,7 @@ DoYourData AppUninser Pro 5.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524422.jpg" />
+  <img src="Z:/picture/008/save_picture_524422.jpg" />
 </div>
 
 
@@ -558,7 +693,7 @@ Corporate Packs for Pages 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524279.jpg" />
+  <img src="Z:/picture/008/save_picture_524279.jpg" />
 </div>
 
 
@@ -571,141 +706,6 @@ Corporate Packs for Pages 2.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988A8A24FFB3A89DD013768861026B43E7410B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463809   (524145) от 25.06.2022
-
-Translate Tab 2.0.17 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис online перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2021Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD07E84154FB82357E37ECECFE7F45B877895D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313404   (523641) от 09.07.2019
-
-WinZip Pro 7.0.4521 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523641.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinZip — мощный архиватор, который поможет легко и удобно сжимать и шифровать любые файлы, экономя место на диске и оптимизируя почтовые вложения. Архивация файлов не только позволяет уменьшить занимаемое файлами пространство, но и позволит отправлять архивы с комплектами документов по e-mail.
-WinZip предоставляет пользователям лучшие характеристики и функции WinZip (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2019Разработчик: WinZipПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61F08C5CD919A9204486636545AC761CA3C8BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559745   (523547) от 26.06.2022
-
-inMusic Brands BFD3 for Mac 3.4.4 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523547.jpg" />
-</div>
-
-
-###  Подробнее
-
-BFD3 создан для великолепного музыкального воспроизведения и предлагает столько глубины звучания, сколько вам нужно. Просматривайте целые пресеты, быстро компилируйте пользовательские наборы или формируйте любой звук барабана, который вы хотите, перенастраивая, демпфируя и обрабатывая несколько микрофонов с помощью мощного внутреннего механизма микширования. Встроенная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2022Разработчик: © 2021 inMusic Brands Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99BB15EC21A941FE6698896B80FF44576F59B57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928075   (523288) от 15.08.2015
-
-Screens 3.6.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screens VNC - Удалённый доступ к вашему компьютеру
-Находясь на другом конце страны, города или офиса, удобно создать быстрое подключение и решить задачу на другом компьютере, помочь  друзьям и сотрудникам с вопросами настройки, установки приложений и помощи в различных вопросах. Screens 3 является приложением от команды Edovia, представленное в 2011 году. Клиент для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14  августа 2015Разработчик: Bryan Edovia Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E24993BCCF51009DAABE7595B29CE34377E9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928040   (523210) от 15.08.2015
-
-DM1 - The Drum Machine 2.0.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523210.jpg" />
-</div>
-
-
-###  Подробнее
-
-DM1 - The Drum Machine - лучшая драм-машина для Mac.
-DM1 мощная "винтажная" драм-машина. Она превращает ваш Mac в веселую и творческую машину создания ударных ритмов. Легкая и быстрая в использовании, с 99 превосходными наборами ударных и красивой  графикой, DM1 была разработана для классного развлечения.
-
-В мире музыкального софта на настольных компьютерах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: Jul 31, 2015Разработчик: Fingerlab SARLПоддерживаемая ОС: OS X 10.9  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0876AB28AD7F3A59F29AAF3934E19563D9AC3B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

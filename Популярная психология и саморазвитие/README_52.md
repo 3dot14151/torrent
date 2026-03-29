@@ -1,3 +1,82 @@
+###  Публикация: 1037368   (611795) от 25.07.2016
+
+Дмитрий Волков | Бостонский зомби. Д. Деннет и его теория сознания (2012) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сознание - одно из самых загадочных явлений в природе; уже сотни лет оно занимает умы философов. Но среди их умозаключений до сих пор не было ни одного полностью удовлетворительного. Только в последние десятилетия наметился значимый прогресс в вопросе изучения природы сознания. В связи с открытиями в нейрофизиологии, когнитивистике, конструировании искусственного (   Читать дальше...   )Жанр: Психология, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B5A2418BD8DA26763552F0BC00F13ACC5FE98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296279   (611743) от 17.04.2019
+
+Гретхен Рубин | Сильные слабости. Как превратить свои минусы в плюсы и стать счастливой (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите научиться понимать себя и других? Избавиться от стресса, добиться поставленных целей и наконец-то найти общий язык с близкими?
+Тогда эта книга – ваше руководство к действию! Автор подробно описывает революционную схему четырех типов личностей – тенденций. Принадлежность к тому или иному типу определяется очень просто: в зависимости от реакции человека на (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469F9395EAEB3A2421F88FD4F178C50822674E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296322   (611742) от 17.04.2019
+
+Эдгар Шейн | Помощь. Как ее предлагать, оказывать и принимать (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас неоднократно обращался за помощью, предлагал ее или принимал. Ситуации помощи пронизывают все сферы нашей жизни. На практических примерах автор разъясняет, как правильно выстроить этот процесс и избежать ошибок.Жанр: Социальная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF515DDDF44C32802C4A5D1191C624783901CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296156   (611646) от 17.04.2019
 
 Трэвис Лэнгли (составитель) | «Игра престолов» и психология. Душа темна и полна ужасов (антология) (2019) [FB2]
@@ -6,7 +85,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611646.jpg" />
+  <img src="Z:/picture/008/save_picture_611646.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610996.jpg" />
+  <img src="Z:/picture/008/save_picture_610996.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610401.jpg" />
+  <img src="Z:/picture/008/save_picture_610401.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610021.jpg" />
+  <img src="Z:/picture/008/save_picture_610021.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609922.jpg" />
+  <img src="Z:/picture/008/save_picture_609922.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609788.jpg" />
+  <img src="Z:/picture/008/save_picture_609788.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608756.jpg" />
+  <img src="Z:/picture/008/save_picture_608756.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608477.jpg" />
+  <img src="Z:/picture/008/save_picture_608477.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608445.jpg" />
+  <img src="Z:/picture/008/save_picture_608445.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608366.jpg" />
+  <img src="Z:/picture/008/save_picture_608366.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608356.jpg" />
+  <img src="Z:/picture/008/save_picture_608356.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608330.jpg" />
+  <img src="Z:/picture/008/save_picture_608330.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608049.jpg" />
+  <img src="Z:/picture/008/save_picture_608049.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606853.jpg" />
+  <img src="Z:/picture/008/save_picture_606853.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606842.jpg" />
+  <img src="Z:/picture/008/save_picture_606842.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606183.jpg" />
+  <img src="Z:/picture/008/save_picture_606183.jpg" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604702.jpg" />
+  <img src="Z:/picture/008/save_picture_604702.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604604.jpg" />
+  <img src="Z:/picture/008/save_picture_604604.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604602.jpg" />
+  <img src="Z:/picture/008/save_picture_604602.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604095.jpg" />
+  <img src="Z:/picture/008/save_picture_604095.jpg" />
 </div>
 
 
@@ -539,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604022.jpg" />
+  <img src="Z:/picture/008/save_picture_604022.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603538.jpg" />
+  <img src="Z:/picture/008/save_picture_603538.jpg" />
 </div>
 
 
@@ -591,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603524.jpg" />
+  <img src="Z:/picture/008/save_picture_603524.jpg" />
 </div>
 
 
@@ -602,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E53DB54872E1705AD65B91B595258A35BF4119B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297765   (603049) от 24.04.2019
-
-Андрей Курпатов | Скажи депрессии: НЕТ! Универсальные правила (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как врачи и обещали, XXI век уже стал веком депрессии. Многие сейчас жалуются на раздражительность, ощущение нехватки сил, отсутствие перспектив, прокрастинацию, но, к сожалению, даже не догадываются, что это симптомы депрессии. А чтобы врага победить, его нужно знать в лицо! Как узнать, что ты или твои близкие страдают депрессией? Как победить депрессию и вернуться (   Читать дальше...   )Жанр: Социальная психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C04EA8BB05EE853CBCA3136A95C45C5C2E79EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148860   (602877) от 08.07.2017
-
-Уильям Роберт Миллер, Стивен Роллник | Мотивационное консультирование. Как помочь людям измениться (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602877.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Большинство людей, которые хотят измениться, испытывают двойственность по отношению к перемене. Они видят причины измениться и причины не меняться. Они одновременно хотят измениться и не хотят этого. Такова человеческая природа. Мотивационное консультирование – психологический метод, который формирует у человека желание изменить что-то в своей жизни. (   Читать дальше...   )Жанр: Классики психологииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2282ECBBE06CBA95D48175245A2A328486651B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297853   (602603) от 25.04.2019
-
-Андрей Курпатов | Исправь своё детство. Универсальные правила (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все наши психологические проблемы и комплексы родом из детства. Отношения с родителями стали нашим первым опытом взаимодействия с миром, и кому-то с этим повезло, а кому-то нет. К сожалению, если что-то в этом опыте пошло не так, последствия этой ошибки могут преследовать нас всю жизнь. Как исправить своё детство, и рассказывает эта книга. Вы никогда не задумывались (   Читать дальше...   )Жанр: Социальная психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EE6A5F7F4E073268BC52997170503F33376527
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1678772   (143906) от 22.11.2023
+
+XnView MP for Mac 1.6.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143906.jpg" />
+</div>
+
+
+###  Подробнее
+
+XnViewMP (или XnView) — неплохой кроссплатформенный, бесплатный просмотрщик с легкими редакторскими зачатками. Как программа просмотра фотографий и графики он вполне хорош: поддерживает все мыслимые форматы (включая RAW), умеет сортировать по огромному количеству параметров, отображает EXIF, метаданные и гистограмму снимка.
+При просмотре можно задать пользовательские (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2023Разработчик: © 2013-2023 XnSoftПоддерживаемая ОС: macOS 10.12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939E586ED0F5755E94D775B1DCB09A6D61F1D51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348681   (143222) от 28.12.2019
 
 Polarr Photo Editor Pro 5.10.8 [Multi/Ru]
@@ -6,7 +33,7 @@ Polarr Photo Editor Pro 5.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143222.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ ON1 Photo RAW 2024 v.18.0.4.14762  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143209.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ JixiPix Premium Pack 1.2.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142395.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ GraphicConverter 11 v11.5.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142341.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ WidsMob Viewer 2.10 (1266)[Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141116.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Fashion Art 1.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140839.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ JixiPix Pastello Pro 6.0.98 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140391.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Picview - Image Photo Browser for Mac 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140234.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ SILKYPIX Developer Studio Pro 11 for Mac v.11.1.12.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138233.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ PrintLab Studio 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135373.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ JixiPix Chromatic Edges 1.0.31 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135344.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Resize Sense - Flexible batch image processing 2.3.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135325.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Dynaper - Dynamic Wallpapers 1.5.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135321.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ JixiPix Watercolor Studio Pro 1.4.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135295.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ Logo Art for Mac 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135273.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ StopMotion for Mac 3.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135265.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ Super-AI Photo Enlarger for Mac 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135232.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ VectorStyler for Mac 1.1.111 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134890.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Goldie for Mac 2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134587.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ batchCONVERTER for Mac 2.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134375.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133949.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ PhotoFoundry for Mac 1.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133911.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133892.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Aperture Update 3.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133880.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ Capture One 23 Enterprise 16.3.2.32 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133833.jpg" />
 </div>
 
 
@@ -656,32 +683,6 @@ Capture One 23 Enterprise — решение для редактирования
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9CEE6F03C1C95351DBED296E5A07770C5ED9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680612   (133820) от 30.11.2023
-
-Pixea Plus for Mac 5.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixea Plus - это приложение для просмотра изображений на Mac с приятным минималистичным современным пользовательским интерфейсом. Pixea отлично работает с JPEG, HEIC, PSD, RAW, WEBP, PNG, GIF и многими другими форматами. Обеспечивает базовую обработку изображения, включая переворот и поворот, показывает гистограмму цвета, EXIF ​​и другую информацию. Поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2023Разработчик: © 2020-2023 ImageTasks Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4436ABAF7138B4BB52A80F11CABD8F524BF3B0B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,396 @@
+###  Публикация: 1218227   (724894) от 08.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #3 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Props, Interiors, Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A95F6F9398B4FC54769DF4440C97F31689D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218183   (724766) от 08.04.2018
+
+Шаблоны - Creative Market - SAVE 35% Spring Frame Mockup Bundle - 2355883 [PSD, JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ориентирование на портрет и пейзаж есть 4 разных цветочных рамки, поэтому вы можете максимально использовать их! В качестве сладкого бонуса вы получаете также 20 цветочных изображений, и многие из них имеют много незаполненного пространства, так что их можно персонализировать и использовать в блогах, веб-сайтах, социальных сетях и т. д...Формат: PSD, JPG, PNGРазрешение файлов: 4256x2832
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC98C8D16DB8EFD32C33E5F252E50B8140FD47E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218247   (724764) от 08.04.2018
+
+3D модели - Hum3D - Peterbilt 379 Tractor Truck 1987 3D model [Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724764.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D модель Peterbilt 379 Tractor Truck 1987Формат: Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14BCB88150B8B2B2514C84DEE9867B0935D4099D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242633   (724317) от 24.02.2019
+
+Сборники - ABC's Lowercase Clip art - alphabet collection [AI, PNG, EPS, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочный алфавит латиницей в векторе и не только. Бесплатно для личного пользования.Формат: AI, PNG, EPS, PDFРазрешение файлов: 5000 x 7717
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39721C7C482C4ED63807A79A9E9F5D3C40AD72D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023449   (724104) от 05.06.2016
+
+Экшены - GraphicRiver - Modern Art Effect Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Art Effect - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D697C329C647F7F5D8F9042CFFE827424F25DE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023608   (723967) от 05.06.2016
+
+Экшены - GraphicRiver - Floral Breeze [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Floral Breeze - экшен для Вашего творчества.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1583EE46083AF09ECA199ABC955A45C87F89FEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023626   (723962) от 05.06.2016
+
+Экшены - GraphicRiver - Transparent Vector Outline Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transparent Vector Outline - экшен от Charles Brown для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B306B34240C3A1E57536F50731ECF80F76BFFE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023638   (723847) от 05.06.2016
+
+Экшены - GraphicRiver - Burning Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BE3E55BB7F341F840A80B52D409DABEA5F5784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023446   (723834) от 05.06.2016
+
+Экшены - GraphicRiver - Smoke Photoshop Action - 14414419 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smoke - экшен для Вашего творчества.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693578273547264553B06D699663952973D5C6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023436   (723832) от 05.06.2016
+
+Экшены - GraphicRiver - HDR Oil Painting Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723832.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDR Oil Painting - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD80F8C164D612CB883001290E8F2F21ADEBB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023455   (723739) от 05.06.2016
+
+Экшены - GraphicRiver - Norman Evolution Creation Kit [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norman Evolution Creation Kit - превосходный экшен от Charles Brown для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDD97F0E13DBD9C413E53B3940C39663000D770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023394   (723443) от 05.06.2016
+
+Футажи - VideoHive - Ink PACK - 759537 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink PACK - Этот пакет включает в себя 7 капель чернил. Все они имеют альфа-канал (прозрачный фон), так что вам нужно только импортировать их в свой проект и сделать некоторые коррекции цвета, если это необходимо.Формат: MOVРазрешение файлов: 750х800 - 800х1000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A56A8511AABFDFC298CA9A4FF9A2BA632086D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023408   (723345) от 05.06.2016
+
+Футажи - VideoHive - Glitter Particles Backgrounds Pack [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitter Particles Backgrounds Pack - 5 гламурных и блестящих анимированных фона, которые могут быть использованы в любом проекте моды, танцевального клуба или специальных акций.Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A4ED762BA64342E694AF7284EC629684FBF136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218550   (723292) от 09.04.2018
+
+Векторный клипарт - Animals on the Farm 22 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Животные на ферме
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF531DAF32FA060AEA9F4119463BF63AAC74170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218442   (723110) от 09.04.2018
+
+Растровый клипарт - Creative Market - Collection of red roses - 2246244 [PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_723110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все изображения изначально были созданы с нуля в графическом редакторе Corel Painter с помощью планшета. Оригинальные работы над прозрачными слоями представлены в PNG и PSD-файлах.
+Может использоваться для обложек, веб-сайтов, плакатов, вывесок, керамических и текстильных полотен, канцелярской живописи и любого другого дизайна. Все зависит от вас! Я надеюсь, что (   Читать дальше...   )Формат: PNG, PSDРазрешение файлов: 3817x5000-5000x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BC763131591EE7A828B5BEB7384425B2BA314A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 668255   (723072) от 15.06.2013
 
 Футажи - Artbeats - White Puffy Clouds HD [MOV]
@@ -6,7 +399,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723072.jpg" />
+  <img src="Z:/picture/008/save_picture_723072.jpg" />
 </div>
 
 
@@ -32,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723070.jpg" />
+  <img src="Z:/picture/008/save_picture_723070.jpg" />
 </div>
 
 
@@ -58,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723022.jpg" />
+  <img src="Z:/picture/008/save_picture_723022.jpg" />
 </div>
 
 
@@ -84,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723013.jpg" />
+  <img src="Z:/picture/008/save_picture_723013.jpg" />
 </div>
 
 
@@ -110,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722724.jpg" />
+  <img src="Z:/picture/008/save_picture_722724.jpg" />
 </div>
 
 
@@ -136,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722555.jpg" />
+  <img src="Z:/picture/008/save_picture_722555.jpg" />
 </div>
 
 
@@ -162,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722448.jpg" />
+  <img src="Z:/picture/008/save_picture_722448.jpg" />
 </div>
 
 
@@ -189,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722020.jpg" />
+  <img src="Z:/picture/008/save_picture_722020.jpg" />
 </div>
 
 
@@ -218,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721821.jpg" />
+  <img src="Z:/picture/008/save_picture_721821.jpg" />
 </div>
 
 
@@ -244,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721640.jpg" />
+  <img src="Z:/picture/008/save_picture_721640.jpg" />
 </div>
 
 
@@ -272,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721545.jpg" />
+  <img src="Z:/picture/008/save_picture_721545.jpg" />
 </div>
 
 
@@ -285,406 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AF586D6EBCD9803582657CBD511DE649A710FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218554   (721538) от 10.04.2018
-
-Векторный клипарт - Vector Landscapes Nature Collection #2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Природа
-50 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BA2C16EDE5D109488F82E489ED85DBB82FDC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218744   (721394) от 10.04.2018
-
-Векторный клипарт - Vector Spring Collection #2 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Весна
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130A494B9B33C31E49580C6E59FFDAD93F36D5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285516   (720853) от 26.02.2019
-
-Шрифты - Creative Market - Magz Slab - 3263459 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A01C710E28D0A832303102CE8785A6C0D169AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285525   (720809) от 26.02.2019
-
-Шрифты - FontBundles - PN Spotlight - 147966 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F60F04304A01E86A176871CC47FBE08AF6C2434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285520   (720805) от 26.02.2019
-
-Шрифты - Creative Market - Fortuin Typeface - 353360 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1B4F1E5B94308B2B04411AB99659411BE0E5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285534   (720803) от 26.02.2019
-
-Шрифты - Creative Fabrica - Attracted Monday [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE02182F8486B06F2BF785AF96E85CFB67EACC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285532   (720801) от 26.02.2019
-
-Шрифты - Creative Market - NH Rail - Extra Wide Slab - 3484998 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276AC6EA642E9ED0C592B46CBA66336743BE4E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285517   (720777) от 26.02.2019
-
-Шрифты - Brush Kencur Font [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEEC7039E627F23A19B1C1BBA2AFF8A434327BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285511   (720775) от 26.02.2019
-
-Шрифты - De Luxious Font [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE8C377DC13BE8B87F0CBFAAE4FF22921585597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285528   (720773) от 26.02.2019
-
-Шрифты - Azura Font [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D991248AF4C6BB6F4881F400B92C3DDDEBCC02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218746   (719533) от 11.04.2018
-
-Векторный клипарт - Vector Berry Collection #9 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Ягоды
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E37C99D491C9CEAEAF6317757001F7DB6B03545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218752   (719524) от 11.04.2018
-
-Векторный клипарт - Creative Football Backgrounds 37 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Творческие футбольные фоны
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C1CBE8AE1B9864445DB02EABA91B4037E9FB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218749   (719516) от 11.04.2018
-
-Векторный клипарт - Ornamental Floral Frames 50 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные цветочные рамки
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57667CE1185A761FC5F92F269487B794C3867FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218765   (719225) от 11.04.2018
-
-3D модели - Daz 3D - Сборник 3D моделей #6 [DUF, EXE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Animation, Clothing, People, Props, Robots.Формат: DUF, EXE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E2BE1ECC6A47EF03A22B6CE62B4EFE688A1709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669431   (718934) от 17.06.2013
-
-Футажи - Artbeats - Monster Waves HD [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте теплый всплеск волн окена, как они скручиваются и опрокидываются прямо перед вашими глазами.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F002211B799FF9320976664994961513D5D7DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

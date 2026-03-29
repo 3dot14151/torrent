@@ -1,3 +1,235 @@
+###  Публикация: 1763223   (102831) от 30.11.2024
+
+Something Else! - Soul Jazz (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filthy McNasty (4:56)
+02. Too Blue (7:55)
+03. Mean Greens (4:05)
+04. The Chicken (4:57)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A0B111D84E9A672D73767855F7C991F9204398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763411   (102808) от 01.12.2024
+
+Elvis Costello - Spike (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Alternative Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 ...This Town...
+A2 Let Him Dangle
+A3 Deep Dark Truthful Mirror(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9669553188DE403F62B7E93EDADA183970C98ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763822   (102780) от 03.12.2024
+
+Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Wave, Darksynth, EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stronger (Gunship Remix) [4:48]
+02 - Never Right (HORSKH Remix) [2:44]
+03 - In my Veins (Matteo Tura Remix) [4:24]
+04 - By Fire (Toutant Remix) [2:49](   Читать дальше...   )Жанр: Dark Wave, Darksynth, EBMПродолжительность: 00:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDD10E6D86CAC40F5BCFABE78BF3C5E3ABEC608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764142   (102774) от 05.12.2024
+
+Intronaut - Studio Albums (7 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intronaut — американская прогрессив-метал-группа из города Лос-Анджелес, штат Калифорния.
+Их стиль можно охарактеризовать как прогрессив-метал с элементами психоделии, дэт-метала, джаза, индийских, африканских и афро-латинских ритмов.2006 - Null (EP)
+2006 - Void
+2008 - Prehistoricisms
+2010 - Valley Of Smoke(   Читать дальше...   )Жанр: Progressive/Post-MetalПродолжительность: 05:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24516BABB9C0A37BD1719C80AFEAA642EC8848D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764035   (102761) от 05.12.2024
+
+Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nocturne [1:54]
+02 - Sciomancy and Sortilege [7:31]
+03 - Through Mirrors Beyond [6:25]
+04 - Of Hexcraft and Laws Three-fold [6:57](   Читать дальше...   )Жанр: Symphonic Black Metal, Melodic Black MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD87B08C88DCB07BB8DFD9BFA4FC0CA1E7E61C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764162   (102753) от 05.12.2024
+
+Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frames of Humanity (04:06)
+ 02. Legacy of the World (03:55)
+ 03. The Day We Obscured the Sun (04:20)
+ 04. The Seed (04:41)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764170   (102745) от 05.12.2024
+
+Asterise - Tale of a Wandering Soul (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (01:09)
+ 02 - Twisted Ferryman (05:26)
+ 03 - Into Fantasy (05:33)
+ 04 - Raven (06:27)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5C610B36321BE5FD926C510C0E32E86A1F1D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764304   (102721) от 06.12.2024
+
+My Silent Wake - Studio Albums (13 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Doom Metal; Dark Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102721.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Silent Wake - группа из Северного Сомерсета, Великобритания. Образована в 2005 году.2006 - Shadow Of Sorrow
+2007 - The Anatomy Of Melancholy
+2008 - A Garland Of TearsЖанр: Gothic/Death/Doom Metal; Dark AmbientПродолжительность: 13:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF6D4F5C3B0363AE2BAAC6A8813793B441936A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764553   (102711) от 07.12.2024
 
 Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +238,7 @@ Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Nig
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102711.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102707.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102701.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Native James - Confessions Of A Sinner (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101717.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Vladar - The Angel of the Abyss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101716.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Sexual Music Collection - Sedutopia: Love-Making Jazz, Intimate Vibes (2024) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101568.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ The Rolling Stones - Welcome To Shepherds Bush (Live) (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101561.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Above & Beyond - Tranquility Base Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101559.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Sexual Music Collection, Soft Jazz Mood - Endless Amour: Twilight Glow (2024) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101557.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Laufey - A Night At The Symphony: Hollywood Bowl (Live at the Hollywood Bowl) (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101544.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Babbba - Witty affair (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101541.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024 Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101536.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Tori Amos - Diving Deep Live (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101531.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Brazen Abbot - Bad Religion (1997) Remastered, 2024, Frontiers Records s.r.l. [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101526.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ The Old Dead Tree - Second Thoughts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101525.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ King King Kings - Can't Keep from Crying (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101521.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Powell-Payne - Voilà (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101520.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101513.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9837E34E0B885FA76128198683C0A2D04D57795A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764728   (101509) от 08.12.2024
-
-The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilling in a Winter Night (3:14)
-02. Psychology of Love (3:59)
-03. A Winter Night in Norway (3:50)
-04. A Winter's Tale (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1304E1BEFBC95539F56D044DCB5B40B5BAC802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764671   (101502) от 08.12.2024
-
-Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo Woman (4:05)
-02. Love Me Right (2:13)
-03. Love Ain't Nothin' but the Blues (3:43)
-04. Keep it to your Darn Self (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2724CFF845BB9D9BC217380B7C8D22ACBC5D2DCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764664   (101493) от 08.12.2024
-
-Herm Solo and the Prompts - Düsterherz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Glass (4:33)
-02. These Walls (3:31)
-03. Frustriert (3:33)
-04. Information Overflow (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226497EAABBF6483460EC4FDEC3399EBE70A93EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764730   (101490) от 08.12.2024
-
-Whiskey Nips - Whiskey Nips (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Stranger To Frustration (4:32)
-02. Old Fashioned Romeo (4:24)
-03. Mamma Just Got Married (4:30)
-04. Superficial (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA7188B47BFB2294B61D1D3C94E7F1B8F0EE932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764665   (101482) от 08.12.2024
-
-Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Fire (5:27)
-02. Civilization Zero (3:54)
-03. Bloodfeud (5:14)
-04. Chained and Bound (3:52)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF815916BB1C12CDC737E1DFE09939192FC96A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764661   (101481) от 08.12.2024
-
-Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work (3:07)
-02. Baby Wanna Be Right (4:29)
-03. Headshaker (5:17)
-04. Luisa (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B062B4114EF684690B66D743D54D6727D75A95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764656   (101480) от 08.12.2024
-
-Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm of Memories (4:34)
-02. No Drone Zone (4:05)
-03. Hard Days, Long Nights (3:58)
-04. Survive (3:23)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5C8249E79312AF2F363746D55A9DA99108210A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764711   (101479) от 08.12.2024
-
-Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chaos Within (1:12)
-02. Barricades (3:27)
-03. Particles (2:51)
-04. Digital Dreamer (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC6586A644344FFE467949521D06915F144FA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

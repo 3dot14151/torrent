@@ -1,3 +1,31 @@
+###  Публикация: 1524161   (245141) от 31.03.2022
+
+Gensou Sangokushi: Tengen Reishinki | Fantasia Sango: Realm of Legends | Фантазия о Троецарствии: Духовность небес [2022, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия в аниме развиваются в Китае, а именно в эпоху Троецарствия. Это самый кровопролитный период империи. Три императора безустанно воевали межсобой, втягивая в войны горожан и крестьян. Вымирали целые города от эпидемий, возникающих из-за антисанитарии, нехватки продовольствий. Китай был вторым адом на Земле.
+
+Не успели войны утихнуть, как на человечество обрушивается (   Читать дальше...   )Производство: Студия Geek ToysЖанр: приключенияРежиссер: Матитани СюнсукэПеревод: 1-9 официальный (wakanim); 10-12 AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF761FD8AE0CED9ADD1B594BD579B31DA206B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623110   (243833) от 31.03.2023
 
 Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
@@ -6,7 +34,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243833.jpg" />
+  <img src="Z:/picture/004/save_picture_243833.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Eiga Bakuten!! | Сальто назад! (фильм) [2022, Movie] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243789.jpg" />
+  <img src="Z:/picture/005/save_picture_243789.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Watashi ni Tenshi ga Maiorita! Precious Friends | Ангел спустился 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242426.jpg" />
+  <img src="Z:/picture/005/save_picture_242426.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | Повелитель Рагнарёк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242416.jpg" />
+  <img src="Z:/picture/005/save_picture_242416.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ Kiss Dum: Engage Planet | Немой поцелуй: Обручённая пла
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241934.jpg" />
+  <img src="Z:/picture/005/save_picture_241934.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ Salaryman's Club | Ryman's Club | Клуб белых воротничков [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241057.jpg" />
+  <img src="Z:/picture/004/save_picture_241057.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Тому мне
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239387.jpg" />
+  <img src="Z:/picture/005/save_picture_239387.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ Boku ga Aishita Subete no Kimi e | To Every You I've Loved Before | Каждом
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239063.jpg" />
+  <img src="Z:/picture/005/save_picture_239063.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ Ame-iro Cocoa Series: Ame-con!! | Какао цвета дождя: Аме-ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238917.jpg" />
+  <img src="Z:/picture/005/save_picture_238917.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237461.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ Fate/strange Fake: Whispers of Dawn | Судьба/странная поддел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234578.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234525.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY: Ледяная импери
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234106.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ Kumichou Musume to Sewagakari | The Yakuza's Guide to Babysitting | Дочка �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233676.jpg" />
+  <img src="Z:/picture/005/save_picture_233676.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233203.jpg" />
+  <img src="Z:/picture/004/save_picture_233203.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ Bai Yao Pu 3 | Manual of Hundred Demons 3 | Руководство сотен д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231547.jpg" />
+  <img src="Z:/picture/005/save_picture_231547.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ Estab-Life: Great Escape | Утверждение в жизни [2022, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231502.jpg" />
+  <img src="Z:/picture/005/save_picture_231502.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ Yatogame-chan Kansatsu Nikki Yonsatsume | Заметки Ятогамэ [ТВ-4]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230303.jpg" />
+  <img src="Z:/picture/005/save_picture_230303.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229525.jpg" />
+  <img src="Z:/picture/004/save_picture_229525.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ One Piece: Strong World / Ван Пис: Фильм десятый [2009] BDrip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227900.jpg" />
+  <img src="Z:/picture/005/save_picture_227900.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Slap Up Party: Arad Senki | Крутая компания: Арадские пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225374.jpg" />
+  <img src="Z:/picture/005/save_picture_225374.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Nanatsu no Taizai Movie 2 Hikari ni Norowareshi Mono-tachi | The Seven Deadly Si
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225262.jpg" />
+  <img src="Z:/picture/005/save_picture_225262.jpg" />
 </div>
 
 
@@ -591,7 +619,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223101.jpg" />
+  <img src="Z:/picture/005/save_picture_223101.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ Levius | Левиус [2019, ONA, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221143.jpg" />
+  <img src="Z:/picture/005/save_picture_221143.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217899.jpg" />
 </div>
 
 
@@ -658,32 +686,6 @@ Ninja Collection / Коллекция ниндзя [2020, TV, 13] WEBRip 720p ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23A054E2E267494E257FA0E158D3FB4DC4E20DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060688   (217339) от 19.12.2016
-
-Bungou Stray Dogs (2016) | Великий из бродячих псов [ТВ-2] [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217339.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПродолжениеЖанр: приключения, мистика, сэйнэнРежиссер: Игараси Такуя / Igarashi Takuya / 五十嵐卓哉Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB48DE772BA51F464178056F0D11CA1F5557147
 ```
 
 https://mybot314.ru/tekegram_catalog/

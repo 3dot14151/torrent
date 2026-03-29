@@ -6,7 +6,7 @@ PlistEdit Pro 1.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883497.jpg" />
+  <img src="Z:/picture/005/save_picture_883497.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MediBang Paint Pro 25.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883494.jpg" />
+  <img src="Z:/picture/005/save_picture_883494.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MKVToolNix 45.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883485.jpg" />
+  <img src="Z:/picture/005/save_picture_883485.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883448.jpg" />
+  <img src="Z:/picture/005/save_picture_883448.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bigasoft Video Downloader Pro 3.13.7.6249 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883435.jpg" />
+  <img src="Z:/picture/005/save_picture_883435.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883434.jpg" />
+  <img src="Z:/picture/008/save_picture_883434.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Deep Purple - Colour Collection (2007) [FLAC|Lossless]<Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883432.jpg" />
+  <img src="Z:/picture/008/save_picture_883432.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883429.jpg" />
+  <img src="Z:/picture/005/save_picture_883429.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883418.jpg" />
+  <img src="Z:/picture/005/save_picture_883418.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ SlimComputer 1.0.4 [English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883414.jpg" />
+  <img src="Z:/picture/009/save_picture_883414.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ HandBrake 1.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883395.jpg" />
+  <img src="Z:/picture/005/save_picture_883395.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ SamDrivers 20.3 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883394.jpg" />
+  <img src="Z:/picture/005/save_picture_883394.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ inPixio Photo Editor 10.1.7389 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883392.jpg" />
+  <img src="Z:/picture/005/save_picture_883392.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883362.jpg" />
+  <img src="Z:/picture/005/save_picture_883362.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_883360.jpg" />
+  <img src="Z:/picture/009/save_picture_883360.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883349.jpg" />
+  <img src="Z:/picture/005/save_picture_883349.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Butterfly - Organic Synthesis Episode 011 (07.04.2013) [MP3|320 кб/с]<IDM, Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883332.jpg" />
+  <img src="Z:/picture/008/save_picture_883332.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ LRTimelapse Pro 4.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883313.jpg" />
+  <img src="Z:/picture/005/save_picture_883313.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Auslogics Driver Updater 1.24.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883294.jpg" />
+  <img src="Z:/picture/005/save_picture_883294.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ YoWindow Unlimited Edition 4 Build 103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883287.jpg" />
+  <img src="Z:/picture/005/save_picture_883287.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Movavi Screen Capture 4 v4.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883267.jpg" />
+  <img src="Z:/picture/005/save_picture_883267.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883227.jpg" />
+  <img src="Z:/picture/005/save_picture_883227.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883211.jpg" />
+  <img src="Z:/picture/005/save_picture_883211.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883209.jpg" />
+  <img src="Z:/picture/005/save_picture_883209.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883203.jpg" />
+  <img src="Z:/picture/005/save_picture_883203.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883200.jpg" />
+  <img src="Z:/picture/005/save_picture_883200.jpg" />
 </div>
 
 

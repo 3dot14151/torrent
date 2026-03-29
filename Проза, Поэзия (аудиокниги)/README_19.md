@@ -1,3 +1,29 @@
+###  Публикация: 1106136   (873390) от 19.02.2017
+
+Олег Рой | Белый квадрат. Лепесток сакуры (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_873390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в японском плену, Виктор Афанасьевич Спиридонов впервые вышел на белый квадрат татами и постиг основы борьбы, которой посвятит всю свою жизнь. Тогда же он встретил свою любовь, которой суждено будет вернуться к нему в трех обличьях. Благороднейший человек, он пройдет через горнило войны и революции, найдет и потеряет свою любовь, изведает счастье и горечь, (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 08:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8B4AFFF2E41FA39041B441F31C9D079522810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106250   (871568) от 20.02.2017
 
 Мо Янь | Страна вина (2014) [MP3]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871568.jpg" />
+  <img src="Z:/picture/008/save_picture_871568.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871184.jpg" />
+  <img src="Z:/picture/008/save_picture_871184.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870376.jpg" />
+  <img src="Z:/picture/008/save_picture_870376.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869940.jpg" />
+  <img src="Z:/picture/008/save_picture_869940.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869686.jpg" />
+  <img src="Z:/picture/008/save_picture_869686.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869086.jpg" />
+  <img src="Z:/picture/008/save_picture_869086.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868580.jpg" />
+  <img src="Z:/picture/008/save_picture_868580.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868236.jpg" />
+  <img src="Z:/picture/008/save_picture_868236.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868126.jpg" />
+  <img src="Z:/picture/008/save_picture_868126.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867271.jpg" />
+  <img src="Z:/picture/008/save_picture_867271.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866797.jpg" />
+  <img src="Z:/picture/008/save_picture_866797.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866688.jpg" />
+  <img src="Z:/picture/008/save_picture_866688.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866583.jpg" />
+  <img src="Z:/picture/008/save_picture_866583.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866354.jpg" />
+  <img src="Z:/picture/008/save_picture_866354.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864904.jpg" />
+  <img src="Z:/picture/008/save_picture_864904.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864263.jpg" />
+  <img src="Z:/picture/008/save_picture_864263.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864005.jpg" />
+  <img src="Z:/picture/008/save_picture_864005.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863998.jpg" />
+  <img src="Z:/picture/008/save_picture_863998.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863930.jpg" />
+  <img src="Z:/picture/008/save_picture_863930.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863072.jpg" />
+  <img src="Z:/picture/008/save_picture_863072.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862955.jpg" />
+  <img src="Z:/picture/008/save_picture_862955.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862860.jpg" />
+  <img src="Z:/picture/008/save_picture_862860.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862850.jpg" />
+  <img src="Z:/picture/008/save_picture_862850.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862845.jpg" />
+  <img src="Z:/picture/008/save_picture_862845.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862842.jpg" />
+  <img src="Z:/picture/008/save_picture_862842.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4DDD9786E16930C1DD47E68B60F63F78091E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999782   (862542) от 23.03.2016
-
-Сергей Довлатов | Наши (2016) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцать глав «Наших» создавались Довлатовым в начале 1980-х годов как самостоятельные рассказы. Герои — реальные люди, отсюда и один из вариантов названия будущей книги — «Семейный альбом», в которой звучит «негромкая музыка здравого смысла» (И. Бродский), помогающая нам сохранять достоинство в самых невероятных жизненных ситуациях. Рассказы из сборника «Наши», (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 03:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2F1E8ECEE4E1DF76C9CE69B63F5C73D0F2DA42
 ```
 
 https://mybot314.ru/tekegram_catalog/

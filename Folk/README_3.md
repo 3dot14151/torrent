@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623012.jpg" />
+  <img src="Z:/picture/005/save_picture_623012.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622863.jpg" />
+  <img src="Z:/picture/008/save_picture_622863.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622856.jpg" />
+  <img src="Z:/picture/008/save_picture_622856.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622801.jpg" />
+  <img src="Z:/picture/008/save_picture_622801.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Country Forever (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622376.jpg" />
+  <img src="Z:/picture/008/save_picture_622376.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621005.jpg" />
+  <img src="Z:/picture/008/save_picture_621005.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620973.jpg" />
+  <img src="Z:/picture/008/save_picture_620973.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA-Higher Plain Drifting - The Enchanting Sound of North America (2000) [MP3|320
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617210.jpg" />
+  <img src="Z:/picture/008/save_picture_617210.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611234.jpg" />
+  <img src="Z:/picture/008/save_picture_611234.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Nicolae Botgros si Orchestra Lautarii / Николай Ботгрос и Орк�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610729.jpg" />
+  <img src="Z:/picture/008/save_picture_610729.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Now That's What I Call Country Vol 12 (2019) (2019) [MP3|320 Kbps] <Country
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610254.jpg" />
+  <img src="Z:/picture/008/save_picture_610254.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607089.jpg" />
+  <img src="Z:/picture/008/save_picture_607089.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603095.jpg" />
+  <img src="Z:/picture/008/save_picture_603095.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|3
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599532.jpg" />
+  <img src="Z:/picture/008/save_picture_599532.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599521.jpg" />
+  <img src="Z:/picture/008/save_picture_599521.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595959.jpg" />
+  <img src="Z:/picture/008/save_picture_595959.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , West
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595585.jpg" />
+  <img src="Z:/picture/008/save_picture_595585.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594731.jpg" />
+  <img src="Z:/picture/008/save_picture_594731.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593906.jpg" />
+  <img src="Z:/picture/008/save_picture_593906.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Blackwater - Earth Rhythms Spirit Of The Drum (2006) [MP3|320 кб/с]<Native Am
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592385.jpg" />
+  <img src="Z:/picture/008/save_picture_592385.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Indios de America - Indios de America (2004) [MP3|160 кб/с]<Native american, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589947.jpg" />
+  <img src="Z:/picture/008/save_picture_589947.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Amaru Tribe - Between Two Worlds (2022) [MP3|320 Kbps] <Folktronica, World, Folk
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587674.jpg" />
+  <img src="Z:/picture/008/save_picture_587674.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
+  <img src="Z:/picture/008/save_picture_585859.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Na
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580131.jpg" />
+  <img src="Z:/picture/008/save_picture_580131.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564895.jpg" />
+  <img src="Z:/picture/008/save_picture_564895.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559644.jpg" />
+  <img src="Z:/picture/008/save_picture_559644.jpg" />
 </div>
 
 

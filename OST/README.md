@@ -7,7 +7,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056800.jpg" />
+  <img src="Z:/picture/005/save_picture_1056800.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043899.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Atomic Heart - Vol.1 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038483.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029347.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029337.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025415.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024200.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024056.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020444.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019728.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000892.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999059.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996457.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989888.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989883.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989850.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989837.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989829.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989774.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989392.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986039.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981529.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980540.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980515.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980356.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980258.jpg" />
 </div>
 
 

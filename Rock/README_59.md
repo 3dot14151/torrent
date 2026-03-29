@@ -1,3 +1,32 @@
+###  Публикация: 1168467   (408781) от 24.09.2017
+
+Flash And The Pan - 6 Albums (1978-1992) CD Collection [MP3|320 Kbps] <Electronic, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_408781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная, с мировым именем, но не получившая большую известность у нас в СССР, рок-группа из Австралии со своим запоминающимся, неповторимым и своеобразным вкусом звучания.Список альбомов:
+1978 - Flash and the Pan
+1980 - Lights in the Night
+1982 - Headlines(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 04:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3164E6D6F2F9B3FA71F4B99ADDE8752AD3AD7C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413557   (408432) от 04.10.2020
 
 Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +35,7 @@ Genesis - Radio Sessions 1970-1972 (2020) Live, Compilation [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408432.jpg" />
+  <img src="Z:/picture/008/save_picture_408432.jpg" />
 </div>
 
 
@@ -37,7 +66,7 @@ Albert Hammond - In Symphony (2016) [MP3|320 Kbps] <Pop Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408380.jpg" />
+  <img src="Z:/picture/008/save_picture_408380.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Lost in Kiev - Motions (2012) [MP3|320 кб/с]<Post-Rock / Post-Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408232.jpg" />
+  <img src="Z:/picture/008/save_picture_408232.jpg" />
 </div>
 
 
@@ -98,7 +127,7 @@ Slade - Cum On Feel The Hitz - The Best Of Slade (2020) Compilation [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407989.jpg" />
+  <img src="Z:/picture/008/save_picture_407989.jpg" />
 </div>
 
 
@@ -127,7 +156,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona [Japanese Edition] (1988) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407691.jpg" />
+  <img src="Z:/picture/008/save_picture_407691.jpg" />
 </div>
 
 
@@ -156,7 +185,7 @@ Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407266.jpg" />
+  <img src="Z:/picture/008/save_picture_407266.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404447.jpg" />
+  <img src="Z:/picture/008/save_picture_404447.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404060.jpg" />
+  <img src="Z:/picture/008/save_picture_404060.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Moody Blues - Collected [3 CD] (2007) [MP3|320 кб/с]<Progressive Rock | Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403776.jpg" />
+  <img src="Z:/picture/008/save_picture_403776.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ VA - Rock Classics - The Collection: The Ultimate Rock Anthems (2017) 4CD [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403021.jpg" />
+  <img src="Z:/picture/008/save_picture_403021.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ Chris Rea - Road Songs For Lovers (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401211.jpg" />
+  <img src="Z:/picture/008/save_picture_401211.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Sweet Crisis - Live At The Junction Cambridge (2017) [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399736.jpg" />
+  <img src="Z:/picture/008/save_picture_399736.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Miriam Hobbs - Can't Stop The Girl (2017) [MP3|320 Kbps] <Rock, Contemporary Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399724.jpg" />
+  <img src="Z:/picture/008/save_picture_399724.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Kitty, Daisy & Lewis - Superscope (2017) [MP3|320 Kbps] <Rockabilly, Rock & Roll
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399615.jpg" />
+  <img src="Z:/picture/008/save_picture_399615.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Karma To Burn - Slight Reprise (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398972.jpg" />
+  <img src="Z:/picture/008/save_picture_398972.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ Niagara - 5 альбомов (1986-2002) [MP3|256 кб/с]<Rock, Poprock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398866.jpg" />
+  <img src="Z:/picture/008/save_picture_398866.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ Skanskа Mоrd - Pаths Tо Chаron (2012) [MP3|320 кб/с]<Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398300.jpg" />
+  <img src="Z:/picture/008/save_picture_398300.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ Fernando Noronha & Black Soul - Bring It (2006) [MP3|320 кб/с]<Rock, Blues-Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396888.jpg" />
+  <img src="Z:/picture/008/save_picture_396888.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ The Rolling Stones - Sticky Fingers Live At The Fonda Theatre 2015 (2017) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395638.jpg" />
+  <img src="Z:/picture/008/save_picture_395638.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394159.jpg" />
+  <img src="Z:/picture/008/save_picture_394159.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Prime Time - Love and Hate (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393985.jpg" />
+  <img src="Z:/picture/008/save_picture_393985.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393230.jpg" />
+  <img src="Z:/picture/008/save_picture_393230.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Somali Yacht Club - Sandsongs (2011) [MP3|320 кб/с]<Stoner Psychedelic Rock /
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391937.jpg" />
+  <img src="Z:/picture/008/save_picture_391937.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ Unheilig - Lichter der Stadt Live (2012) [MP3|320 кб/с]<Gothic/Synth Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391931.jpg" />
+  <img src="Z:/picture/008/save_picture_391931.jpg" />
 </div>
 
 
@@ -726,7 +755,7 @@ Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390880.jpg" />
+  <img src="Z:/picture/008/save_picture_390880.jpg" />
 </div>
 
 
@@ -746,35 +775,6 @@ Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E09AEED2B3B9CC95E08270AAFDEE589A1F6186C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173360   (390411) от 11.10.2017
-
-The Voice of Deep Purple - The Gillan Years (2017) 3CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds And Rain (04:00)
-02. Evil Eye (04:10)
-03. She Took My Breath Away (04:33)
-04. Dislocated (03:22)(   Читать дальше...   )Жанр: RockПродолжительность: 02:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75AD491651EEA2485BA74832A11ECE4C2579C31
 ```
 
 https://mybot314.ru/tekegram_catalog/

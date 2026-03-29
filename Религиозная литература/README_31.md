@@ -1,3 +1,83 @@
+###  Публикация: 1273504   (795051) от 05.01.2019
+
+А. Б. Вербицкий, В. В. Броунштейн (сост.) | Знатные люди Страны Советов о религии (1939) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высказывания о религии знатных людей нашей страны: депутатов Верховных Советов СССР и союзных республик, героев Советского Союза, ученых, стахановцев социалистической промышленности и сельского хозяйства, врачей, артистов и др.
+
+Книга раскрывает антинаучную и реакционную сущность всякой религии: христианской, мусульманской, иудейской и других, мешающих строительству (   Читать дальше...   )Жанр: История, политология, религиоведение, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274177   (795041) от 05.01.2019
+
+А.В. Крамер | Раскол русской Церкви в середине XVII века (2011) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга А.В.Крамера "Причины, начало и последствия раскола русской Церкви в середине XVII в." была издана в 2005 году. Ее содержание точно соответствует названию. Наибольший интерес в ней вызывают размышления автора о последствиях раскола. Многие из этих последствий не ушли в прошлое и участвуют в формировании образа жизни в России и в наше время, что должно (   Читать дальше...   )Жанр: Монография, история РоссииФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71C993DBD158CD45FB35F6D44DBB0135477AE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274180   (795040) от 05.01.2019
+
+Лилия Юсуфжановна Тугушева, Александр Леонович Хосроев | Хуастванифт (Манихейское покаяние в грехах) (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795040.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлена публикация тюркской версии манихейского сочинения «Хуастванифт», осуществленная на основе рукописи из рукописного собрания Санкт-Петербургского филиала Института востоковедения РАН. Рукопись на бумаге, датируемая Х-XI вв и переписанная на территории Восточного Туркестана, донесла до нас в относительно полном виде одно из важнейших манихейских (   Читать дальше...   )Жанр: МанихействоФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB533ECAEB6DF3838A588848A66C1686F42C82E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509405   (794957) от 12.11.2021
 
 Свято-Елисаветинский женский монастырь (изд.) | Всенощное бдение. Смысл и порядок богослужения (2019) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794957.jpg" />
+  <img src="Z:/picture/008/save_picture_794957.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ A. Стульцев | Учебный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794889.jpg" />
+  <img src="Z:/picture/008/save_picture_794889.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794127.jpg" />
+  <img src="Z:/picture/008/save_picture_794127.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794125.jpg" />
+  <img src="Z:/picture/008/save_picture_794125.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794074.jpg" />
+  <img src="Z:/picture/008/save_picture_794074.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793015.jpg" />
+  <img src="Z:/picture/008/save_picture_793015.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792957.jpg" />
+  <img src="Z:/picture/008/save_picture_792957.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792894.jpg" />
+  <img src="Z:/picture/008/save_picture_792894.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792870.jpg" />
+  <img src="Z:/picture/008/save_picture_792870.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792817.jpg" />
+  <img src="Z:/picture/008/save_picture_792817.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792815.jpg" />
+  <img src="Z:/picture/008/save_picture_792815.jpg" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792635.jpg" />
+  <img src="Z:/picture/008/save_picture_792635.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792630.jpg" />
+  <img src="Z:/picture/008/save_picture_792630.jpg" />
 </div>
 
 
@@ -355,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792224.jpg" />
+  <img src="Z:/picture/008/save_picture_792224.jpg" />
 </div>
 
 
@@ -383,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792222.jpg" />
+  <img src="Z:/picture/008/save_picture_792222.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792148.jpg" />
+  <img src="Z:/picture/008/save_picture_792148.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791535.jpg" />
+  <img src="Z:/picture/008/save_picture_791535.jpg" />
 </div>
 
 
@@ -465,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791014.jpg" />
+  <img src="Z:/picture/008/save_picture_791014.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791013.jpg" />
+  <img src="Z:/picture/008/save_picture_791013.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790862.jpg" />
+  <img src="Z:/picture/008/save_picture_790862.jpg" />
 </div>
 
 
@@ -543,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790540.jpg" />
+  <img src="Z:/picture/008/save_picture_790540.jpg" />
 </div>
 
 
@@ -569,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790464.jpg" />
+  <img src="Z:/picture/008/save_picture_790464.jpg" />
 </div>
 
 
@@ -595,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789940.jpg" />
+  <img src="Z:/picture/008/save_picture_789940.jpg" />
 </div>
 
 
@@ -609,88 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D57C344A40506BBB8F804116C7E5A829993E59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202539   (789913) от 29.01.2018
-
-"Ковчег" (изд.) | Как научиться терпеть недостатки ближних (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас терпеть недостатки ближних, а также обиды, оскорбления, грубость и клевету.
-
-Терпение есть та плодородная земля, на которой произрастает всякая добродетель. Вспомните евангельскую притчу о сеявшем семя на поле своем: «. .. иное упало при до­роге ... иное упало на камень ... иное упало между тернием ... а иное упало на добрую землю» (Лк. 8, 5-8). (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51169AE6C034E068D78C9DCE68F760AE715847EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817133   (789300) от 20.11.2021
-
-М. И. Одинцов | Государство и церковь [История взаимоотношений. 1917-1938 гг.] (1991) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня осуждены и преодолеваются грубые нарушения, произвол и беззаконие в отношении религиозных организаций, допущенные во второй половине 20-x гг. и в 30-ые гг., создаются условия для реализации в жизни общества принципа свободы совести. Эта брошюра - попытка на основе документальных материалов, многие из которых вводятся в научный оборот впервые, воспроизвести (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C3F4B8994BE2172E425BA9531E7B5D8D6B419D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511306   (789249) от 20.11.2021
-
-Священник Даниил Сысоев | Инструкция для бессмертных или что делать, если Вы всё-таки умерли... (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном мире человеку сложно жить без помощи и поддержки. Возникают многочисленные вопросы и недоумения: кто на них ответит? Страх и уныние терзают измученную грехами и суетой душу: кто исцелит?
-
-Для православного человека путь к решению всех проблем ведёт в храм Божий к священнику, который призван помогать и врачевать. Священник Даниил Сысоев — был один из (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952F7AC34F774449D8121F29AD38D63CEC517AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

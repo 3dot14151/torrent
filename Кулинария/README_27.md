@@ -1,3 +1,31 @@
+###  Публикация: 1286937   (708972) от 04.03.2019
+
+Дарья Близнюк | Светлый день. Пасхальные рецепты для уютного семейного праздника (2019) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свой пасхальный стол по-настоящему волшебным! Украсьте его нежнейшей медовой пасхой (или ореховой?), шоколадным куличом, воздушной бриошью и другими невероятными лакомствами!
+
+А вашим помощником и вдохновителем станет Дарья Близнюк (@zhabcka), умелый кулинар, фуд-блогер и замечательный фотограф.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12233B3E48F0C172B97C3E6115490E4F0F175CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131287   (708582) от 05.05.2017
 
 Светлана Першина (авт.-сост.) | Пирожки (2017) [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708582.jpg" />
+  <img src="Z:/picture/008/save_picture_708582.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707799.jpg" />
+  <img src="Z:/picture/008/save_picture_707799.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705981.jpg" />
+  <img src="Z:/picture/008/save_picture_705981.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705774.jpg" />
+  <img src="Z:/picture/008/save_picture_705774.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704097.jpg" />
+  <img src="Z:/picture/008/save_picture_704097.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703299.jpg" />
+  <img src="Z:/picture/008/save_picture_703299.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700995.jpg" />
+  <img src="Z:/picture/008/save_picture_700995.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699277.jpg" />
+  <img src="Z:/picture/008/save_picture_699277.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699085.jpg" />
+  <img src="Z:/picture/008/save_picture_699085.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698542.jpg" />
+  <img src="Z:/picture/008/save_picture_698542.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690211.jpg" />
+  <img src="Z:/picture/008/save_picture_690211.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688579.jpg" />
+  <img src="Z:/picture/008/save_picture_688579.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688386.jpg" />
+  <img src="Z:/picture/008/save_picture_688386.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688183.jpg" />
+  <img src="Z:/picture/008/save_picture_688183.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688170.jpg" />
+  <img src="Z:/picture/008/save_picture_688170.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688146.jpg" />
+  <img src="Z:/picture/008/save_picture_688146.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688142.jpg" />
+  <img src="Z:/picture/008/save_picture_688142.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687618.jpg" />
+  <img src="Z:/picture/008/save_picture_687618.jpg" />
 </div>
 
 
@@ -484,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686184.jpg" />
+  <img src="Z:/picture/008/save_picture_686184.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686005.jpg" />
+  <img src="Z:/picture/008/save_picture_686005.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683719.jpg" />
+  <img src="Z:/picture/008/save_picture_683719.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683454.jpg" />
+  <img src="Z:/picture/008/save_picture_683454.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683390.jpg" />
+  <img src="Z:/picture/008/save_picture_683390.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683314.jpg" />
+  <img src="Z:/picture/008/save_picture_683314.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682894.jpg" />
+  <img src="Z:/picture/008/save_picture_682894.jpg" />
 </div>
 
 
@@ -656,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49F9FF0254BBDE9C9E82D198E274CE2AA451CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508739   (679559) от 10.06.2012
-
-Алина Калинина | Фарши, начинки, паштеты, соусы [2011] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679559.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предложены рецепты различных фаршей, паштетов, начинок для фаршированных мясных и рыбных продуктов, овощей и изделий из теста. Также представлен широкий выбор разнообразных, простых в приготовлении и экономных соусов для домашней кухни.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5A20EE909198CB5948DAF33AF608C1B1A75D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

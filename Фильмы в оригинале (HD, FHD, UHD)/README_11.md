@@ -1,3 +1,108 @@
+###  Публикация: 1503303   (820698) от 18.10.2021
+
+Дюна / Dune (2021) HDRip [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary Entertainment, Villeneuve FilmsЖанр: фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: отсутствуетСубтитры: русские (Full), английские (Forced, Full)Продолжительность: 02:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A6A33B446920A98A6CC21B3F5CB7116CCE0280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196779   (820629) от 04.01.2018
+
+Вопрос веры / A Question of Faith  (2017) BDRip [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о нескольких людях, на которых обрушивается трагедия, трудность или горе. Но всё это подталкивает их к тому, чтобы каждый из них открыл для себя Бога, любовь и милосердие.Производство: США / Silver Lining EntertainmentЖанр: драмаРежиссер: Кеван ОттоАктеры: Ричард Т. Джонс, Ким Филдс, Си Томас Хауэлл, Рене О’Коннор, Грегори Алан Уильямс, Т.С. Сталлингс, Джэси Веласкес, Эмбер Томпсон, Карен Валеро, Донна Биско, Джефф РоузПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64B8E6ACF43E00F8B93696B985FDFEE8CCFA1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116808   (820549) от 21.03.2017
+
+Месть: История любви / Vengeance: A Love Story (2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мать-одиночку насилуют, а суд уверен, что она сама во всем виновата, лишь один человек может восстановить справедливость…Производство: США, Patriot Pictures, Martini FilmsЖанр: ТриллерРежиссер: Джонни МартинАктеры: Николас Кейдж, Дон Джонсон, Дебора Кара Ангер, Анна Хатчисон, Джошуа Микель, Кара Мишель Уайлдер, Талита Бейтман, Майкл Пападжон, Николь Барре, Елена Санчес ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEE39347597841F641EAEE227587512BCCF2EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196808   (820515) от 04.01.2018
+
+Эксперимент «Офис» 2 / Mayhem  (2017) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820515.jpg" />
+</div>
+
+
+###  Подробнее
+
+На человечество обрушился вирус ID7. Заражённые не могут себя контролировать. На 8 часов они оказываются во власти инстинктов: ярости, похоти, страха.
+Дерек упорно работал, чтобы добиться высокого положения в крупной фирме. Босс его подставил и уволил с позором. Именно в этот момент в офис попадает вирус ID7. Прекрасный шанс оторваться и восстановить справедливость.Производство: США / Circle of Confusion, Royal Viking EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Джо ЛинчАктеры: Стивен Ян, Самара Уивинг, Стивен Брэнд, Кэролайн Чикези, Керри Фокс, Даллас Робертс, Марк Фрост, Клер Левин, Андре Эриксен, Никола Кент, Люси Чаппель, Олья ХрустичПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72853A57339FDBAB4922999B5AECAA1819C73FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117104   (820435) от 21.03.2017
 
 Женщины ХХ века / 20th Century Women  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820435.jpg" />
+  <img src="Z:/picture/008/save_picture_820435.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820319.jpg" />
+  <img src="Z:/picture/008/save_picture_820319.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818570.jpg" />
+  <img src="Z:/picture/008/save_picture_818570.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818566.jpg" />
+  <img src="Z:/picture/008/save_picture_818566.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818560.jpg" />
+  <img src="Z:/picture/008/save_picture_818560.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817000.jpg" />
+  <img src="Z:/picture/008/save_picture_817000.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816881.jpg" />
+  <img src="Z:/picture/008/save_picture_816881.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816532.jpg" />
+  <img src="Z:/picture/008/save_picture_816532.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815695.jpg" />
+  <img src="Z:/picture/008/save_picture_815695.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815511.jpg" />
+  <img src="Z:/picture/008/save_picture_815511.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815058.jpg" />
+  <img src="Z:/picture/008/save_picture_815058.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814639.jpg" />
+  <img src="Z:/picture/008/save_picture_814639.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814635.jpg" />
+  <img src="Z:/picture/008/save_picture_814635.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814630.jpg" />
+  <img src="Z:/picture/008/save_picture_814630.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814574.jpg" />
+  <img src="Z:/picture/008/save_picture_814574.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814566.jpg" />
+  <img src="Z:/picture/008/save_picture_814566.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814496.jpg" />
+  <img src="Z:/picture/008/save_picture_814496.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813683.jpg" />
+  <img src="Z:/picture/008/save_picture_813683.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813670.jpg" />
+  <img src="Z:/picture/008/save_picture_813670.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813071.jpg" />
+  <img src="Z:/picture/008/save_picture_813071.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812756.jpg" />
+  <img src="Z:/picture/008/save_picture_812756.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812755.jpg" />
+  <img src="Z:/picture/008/save_picture_812755.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0736BFFCE029A0185EA95424C5B0C0D6CF8F0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198027   (811618) от 09.01.2018
-
-1+Эверест / L'ascension / The Climb (2017) WEB-DL [H.264/1080p-LQ] [FRA / EN, DAN, FIN, NOR, SWE Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811618.jpg" />
-</div>
-
-
-###  Подробнее
-
-История темнокожего француза Сами, который находит беспроигрышный путь к сердцу прекрасной возлюбленной — вверх по Эвересту. Невзирая на отсутствие опыта, он взбирается на вершину мира, привлекая внимание не только своей подруги, но и всей Франции.Производство: Франция, DACP, France 2 Cinéma, Mars FilmsЖанр: Приключения, Комедия, МелодрамаРежиссер: Людовик БернардАктеры: Ахмед Силла, Алис Белаиди, Кевин Рази, Николас Ваншыцкий, Waly Dia, Маймуна Гуйе, Денис М’Пунга, Фадила Белкебла, Мусса Мааскри, Умеш Таманг ...Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские (отдельным файлом), Датские, Финские, Норвежские, ШведскиеПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ACDD4F4769C255411CF0F839A40FF4FF09E2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197975   (811617) от 09.01.2018
-
-Счастливого дня смерти / Happy Death Day  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый в универе мечтал попасть на её день рождения, но праздник был безнадежно испорчен незнакомцем в маске, убившим виновницу торжества. Однако судьба преподнесла имениннице леденящий душу подарок - бесконечный запас жизней. И теперь у девушки появился шанс вычислить своего убийцу, ведь этот день будет повторяться снова и снова...Производство: США / Blumhouse Productions, Digital Riot Media, Vesuvius ProductionsЖанр: ужасы, триллер, детектив, комедияРежиссер: Кристофер ЛэндонАктеры: Джессика Рот, Израэль Бруссар, Руби Модин, Лаура Клифтон, Джейсон Бэйл, Роб Мелло, Рэйчел Мэттьюз, Рэмси Андерсон, Брэйди Льюис, Фи Ву, Тени Интриаго, Блейн КернПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C0B7FE36C0A53C0EF8D67C1D089C11E005C879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198032   (811451) от 09.01.2018
-
-Цепной пёс / Bullet Head  (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже у самого верного дела возможны разные варианты завершения. Матерые преступники, пытаясь по наводке обчистить полицейский склад, оказываются в ловушке с разъяренным сторожевым псом по кличке ДеНиро. Счастливый финал кажется все более призрачным...Производство: Болгария, США / Millennium Media, Nu Boyana Film Studios, Principato-Young Entertainment, Sunset Junction EntertainmentЖанр: триллер, драма, криминалРежиссер: Пол СолетАктеры: Эдриан Броуди, Антонио Бандерас, Джон Малкович, Рори Калкин, Александра Дину, Кристина Сеговиа, Ори Феффер, Оуэн Дэвис, Велизар Бинев, Джош Этье, Кит Д. Эванс, Джейсон ФренсисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D7C3170883C7BCFDE4B3E7A38A8C54C13F749E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197969   (811296) от 09.01.2018
-
-Пила 8 / Jigsaw (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811296.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, Канада / Serendipity Productions, Twisted Pictures, A Bigger BoatЖанр: Криминал, Ужасы, ТриллерРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3627E4742308155435E502BF75FF2A13D8DBE6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

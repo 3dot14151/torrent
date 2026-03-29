@@ -1,3 +1,29 @@
+###  Публикация: 1506177   (800760) от 30.10.2021
+
+Mahoromatic: Motto Utsukushii Mono | Mahoromatic: Something More Beautiful | Махороматик: Еще больше прекрасного! [2002, TV, 14 из 14] BDRip 1070p 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Махоро, Сугуру и его одноклассниками продолжают развиваться. Между тем, ещё одна девушка-андроид появляется в их жизни и привязывается к Махоро. А количество дней до полной разрядки Махоро неуклонно уменьшается...Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: приключения, комедия, романтика, эттиРежиссер: Ямага ХироюкиПеревод: Pika4YЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 14 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62F04AA73BA339EBE38DB0080DAA1C35F19B95E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506182   (800759) от 30.10.2021
 
 Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С возвращением! [2009, Special, 2 из 2] BDRip 1078p 10-bit raw+rus+eng
@@ -6,7 +32,7 @@ Mahoromatic: Tadaima Okaeri | Mahoromatic: I'm Home | Махороматик: С
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800759.jpg" />
+  <img src="Z:/picture/008/save_picture_800759.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Mahoromatic Natsu no TV Special: Ecchi na no wa Ikenai to Omoimasu | Mahoromatic
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800758.jpg" />
+  <img src="Z:/picture/008/save_picture_800758.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mahoromatic: Automatic Maiden | Махороматик: Автоматическ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800757.jpg" />
+  <img src="Z:/picture/008/save_picture_800757.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Rewrite: Moon and Terra / Перезапись: Луна и Земля [2017, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799954.jpg" />
+  <img src="Z:/picture/008/save_picture_799954.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Trickster / Обманщик [2016, TV, 24] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799953.jpg" />
+  <img src="Z:/picture/008/save_picture_799953.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Kyou Kara Maou! R | Kyo Kara Maoh! R | God? Save Our King R | King From Now On! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799831.jpg" />
+  <img src="Z:/picture/008/save_picture_799831.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Kyou Kara Maou! 3rd Series | Kyo Kara Maoh! 3rd Series | God? Save Our King 3rd 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799827.jpg" />
+  <img src="Z:/picture/008/save_picture_799827.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Kyou Kara Maou! | Kyo Kara Maoh! | God? Save Our King | King From Now On! | От
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799826.jpg" />
+  <img src="Z:/picture/008/save_picture_799826.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Mujaki no Rakuen | Paradise of Innocence | Невинный рай [2014-2016, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798203.jpg" />
+  <img src="Z:/picture/008/save_picture_798203.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Human Lost: Ningen Shikkaku | No Longer Human | Human Lost: Исповедь н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797677.jpg" />
+  <img src="Z:/picture/008/save_picture_797677.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797262.jpg" />
+  <img src="Z:/picture/008/save_picture_797262.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797167.jpg" />
+  <img src="Z:/picture/008/save_picture_797167.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Bosco daiboken | Bosco Adventure | Приключения Боско [1986, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797166.jpg" />
+  <img src="Z:/picture/008/save_picture_797166.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Goblin Slayer | Убийца Гоблинов [2018, TV, 12 ep] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797061.jpg" />
+  <img src="Z:/picture/008/save_picture_797061.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Sword Art Online II | Мастера Меча Онлайн II [ТВ-2] [2014, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796472.jpg" />
+  <img src="Z:/picture/008/save_picture_796472.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Kureopatora | Cleopatra | Клеопатра, королева секса [1970]
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795996.jpg" />
+  <img src="Z:/picture/008/save_picture_795996.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Goblin Slayer / Убийца гоблинов [2018, TV, 12 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794689.jpg" />
+  <img src="Z:/picture/008/save_picture_794689.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Just Because! / А просто так! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794505.jpg" />
+  <img src="Z:/picture/008/save_picture_794505.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Fate/Apocrypha / Судьба/Апокриф [2017, TV, 25 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794504.jpg" />
+  <img src="Z:/picture/008/save_picture_794504.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Lord El-Melloi II Sei no Jikenbo: Rail Zeppelin Grace Note - Hakamori to Neko to
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792708.jpg" />
+  <img src="Z:/picture/008/save_picture_792708.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Kimi no Na wa | Твоё Имя [2016, Movie] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792280.jpg" />
+  <img src="Z:/picture/008/save_picture_792280.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Jashin-chan Dropkick [TV-1] | Dropkick on My Devil! | Пинок с наскок
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791994.jpg" />
+  <img src="Z:/picture/008/save_picture_791994.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ The Rolling Girls | Девчонки-путешественницы | Девча
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791871.jpg" />
+  <img src="Z:/picture/008/save_picture_791871.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791729.jpg" />
+  <img src="Z:/picture/008/save_picture_791729.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790571.jpg" />
+  <img src="Z:/picture/008/save_picture_790571.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Seishun Buta Yarou wa Yumemiru Shoujo no Yume o Minai | Эта глупая св
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BB6CBD33E12EA5CFC06D98E03C3B951BEB51D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202395   (790227) от 28.01.2018
-
-Highlander: The Search for Vengeance | Горец: В поисках мести [2007, Movie] WEBRip 480i rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптическое анимэ, рассказывающее о бесконечных странствиях Колина МакЛауда, одержимого единственной целью — отомстить своему врагу Марку Октавию за гибель любимой женщины много веков назад.Производство: Япония, Madhouse StudiosЖанр: Приключения, фантастикаРежиссер: Ёсиаки Кавадзири, Хироси ХамадзакиЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE59FB964F4954DEDA42AEA7C20DC23EEE4D1FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

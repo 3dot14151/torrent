@@ -6,7 +6,7 @@ V.A. - Ambient №1 Fantasy (1996) [MP3|320 kbps]<Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750800.jpg" />
+  <img src="Z:/picture/005/save_picture_750800.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750798.jpg" />
+  <img src="Z:/picture/005/save_picture_750798.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ BBC. Ночное Небо. Посланник к Меркурию / The Sky at 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750750.jpg" />
+  <img src="Z:/picture/008/save_picture_750750.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Franzis Focus Projects Pro 4.42.02821 RePack (& Portable) by elchupacabra  [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750736.jpg" />
+  <img src="Z:/picture/008/save_picture_750736.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750735.jpg" />
+  <img src="Z:/picture/008/save_picture_750735.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.4/dlc) License PLAZA [HD Texture 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750729.jpg" />
+  <img src="Z:/picture/008/save_picture_750729.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Charles Web Debugging Proxy 4.2.1 Repack by megapro17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750723.jpg" />
+  <img src="Z:/picture/008/save_picture_750723.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ SSE Setup 8.5 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750720.jpg" />
+  <img src="Z:/picture/008/save_picture_750720.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750627.jpg" />
+  <img src="Z:/picture/008/save_picture_750627.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750610.jpg" />
+  <img src="Z:/picture/005/save_picture_750610.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750609.jpg" />
+  <img src="Z:/picture/005/save_picture_750609.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ KeePass 2.15 + Portable [Английский + Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750504.jpg" />
+  <img src="Z:/picture/005/save_picture_750504.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750422.jpg" />
+  <img src="Z:/picture/008/save_picture_750422.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750346.jpg" />
+  <img src="Z:/picture/008/save_picture_750346.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750345.jpg" />
+  <img src="Z:/picture/008/save_picture_750345.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750344.jpg" />
+  <img src="Z:/picture/008/save_picture_750344.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750343.jpg" />
+  <img src="Z:/picture/008/save_picture_750343.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750341.jpg" />
+  <img src="Z:/picture/008/save_picture_750341.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750336.jpg" />
+  <img src="Z:/picture/008/save_picture_750336.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750334.jpg" />
+  <img src="Z:/picture/008/save_picture_750334.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Trance Will Never Die (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750333.jpg" />
+  <img src="Z:/picture/008/save_picture_750333.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750325.jpg" />
+  <img src="Z:/picture/005/save_picture_750325.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750315.jpg" />
+  <img src="Z:/picture/005/save_picture_750315.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750281.jpg" />
+  <img src="Z:/picture/008/save_picture_750281.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BookMacster 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750272.jpg" />
+  <img src="Z:/picture/008/save_picture_750272.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Default Folder X 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750260.jpg" />
+  <img src="Z:/picture/008/save_picture_750260.jpg" />
 </div>
 
 

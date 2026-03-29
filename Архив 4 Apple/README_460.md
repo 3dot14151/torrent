@@ -1,3 +1,111 @@
+###  Публикация: 1424012   (295951) от 15.11.2020
+
+Mach Desktop HD 3 v3.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вам наскучила статичная картинка на рабочем столе, то Mach Desktop поможет нарядить десктоп с помощью встроенных видеообоев, QuickTime-роликов и даже Веб-страниц. Mach Desktop предлагает двадцать отличных видеообоев Quartz Compositions и семь QuickTime-видеороликов для рабочего стола. Множество настроек позволяют задать в качестве фона предустановленную заставку, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: Mach SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7BE1D411F7B7554E7D84A1B2A31FA9AB02DF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424151   (295948) от 15.11.2020
+
+PhoneRescue for iOS 4.1.0.20201020 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295948.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943C3A83259BCE0B514A73B7CF40394D0516564F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424146   (295815) от 15.11.2020
+
+AnyTrans 8.8.0.20201109 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295815.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A7EA831D7A61DA72911E1E186B378D1E6E5126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424098   (295788) от 15.11.2020
+
+CrossOver 20.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет CrossOver основан на программном коде коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
+
+Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CodeWeaversПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40CFE837004EBBA2A36F15671C732D1FF21BB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079437   (295767) от 03.12.2016
 
 Screenium 3.1.3 [Multi/Ru]
@@ -6,7 +114,7 @@ Screenium 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295767.jpg" />
+  <img src="Z:/picture/008/save_picture_295767.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ PhotoScape X Pro 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295446.jpg" />
+  <img src="Z:/picture/008/save_picture_295446.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Doo - Get Things Done 2.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295196.jpg" />
+  <img src="Z:/picture/008/save_picture_295196.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ Uninstaller sensei 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295186.jpg" />
+  <img src="Z:/picture/008/save_picture_295186.jpg" />
 </div>
 
 
@@ -117,7 +225,7 @@ Downie 3.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295055.jpg" />
+  <img src="Z:/picture/008/save_picture_295055.jpg" />
 </div>
 
 
@@ -146,7 +254,7 @@ Grids for Instagram 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295013.jpg" />
+  <img src="Z:/picture/008/save_picture_295013.jpg" />
 </div>
 
 
@@ -175,7 +283,7 @@ Macgo Mac Blu-ray Player Pro 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295010.jpg" />
+  <img src="Z:/picture/008/save_picture_295010.jpg" />
 </div>
 
 
@@ -201,7 +309,7 @@ Alfred 4 Powerpack 4.0.6 (1121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294977.jpg" />
+  <img src="Z:/picture/008/save_picture_294977.jpg" />
 </div>
 
 
@@ -230,7 +338,7 @@ ExactScan Pro 19.10.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294974.jpg" />
+  <img src="Z:/picture/008/save_picture_294974.jpg" />
 </div>
 
 
@@ -256,7 +364,7 @@ Progressive Downloader 4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294973.jpg" />
+  <img src="Z:/picture/008/save_picture_294973.jpg" />
 </div>
 
 
@@ -285,7 +393,7 @@ Paste 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294972.jpg" />
+  <img src="Z:/picture/008/save_picture_294972.jpg" />
 </div>
 
 
@@ -311,7 +419,7 @@ Perfect Horizon Full 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294971.jpg" />
+  <img src="Z:/picture/008/save_picture_294971.jpg" />
 </div>
 
 
@@ -339,7 +447,7 @@ OCRKit Pro 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294970.jpg" />
+  <img src="Z:/picture/008/save_picture_294970.jpg" />
 </div>
 
 
@@ -367,7 +475,7 @@ iSkysoft DVD Creator 6.0.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294969.jpg" />
+  <img src="Z:/picture/008/save_picture_294969.jpg" />
 </div>
 
 
@@ -395,7 +503,7 @@ Carbon Copy Cloner 4.1.6 (4255) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294935.jpg" />
+  <img src="Z:/picture/008/save_picture_294935.jpg" />
 </div>
 
 
@@ -424,7 +532,7 @@ Recompress 19.10.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294883.jpg" />
+  <img src="Z:/picture/008/save_picture_294883.jpg" />
 </div>
 
 
@@ -452,7 +560,7 @@ Hype 4 Pro v4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294882.jpg" />
+  <img src="Z:/picture/008/save_picture_294882.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ Wifiner 1.3.182 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294880.jpg" />
+  <img src="Z:/picture/008/save_picture_294880.jpg" />
 </div>
 
 
@@ -507,7 +615,7 @@ WiFi Signal 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294873.jpg" />
+  <img src="Z:/picture/008/save_picture_294873.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ FontExplorer X Pro 7 v7.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294782.jpg" />
+  <img src="Z:/picture/008/save_picture_294782.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ ForkLift 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294781.jpg" />
+  <img src="Z:/picture/008/save_picture_294781.jpg" />
 </div>
 
 
@@ -589,7 +697,7 @@ Pixellu SmartAlbums 2 v2.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294599.jpg" />
+  <img src="Z:/picture/008/save_picture_294599.jpg" />
 </div>
 
 
@@ -600,114 +708,6 @@ SmartAlbums является революционным программным �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78F70C1216E6B77806C8487F4D0707C966452217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262485   (294457) от 15.11.2018
-
-Adobe Photoshop CC 2019 v20.0.1 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93294BBC081DFFBEFC7D255E7E77A408BD7FA3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334512   (294354) от 29.10.2019
-
-Paragon NTFS for Mac 15.5.71 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon NTFS for macOS - самыый-самый быстрый в мире низкоуровневый драйвер файловой системы с поддержкой MacOS Sierra, специально разработанный для решения проблем взаимодействия между Windows и Mac OS X, обеспечивающий полный доступ на чтение/запись к любой версии файловой системы NTFS в среде macOS.
-
-Paragon NTFS for macOS - единственный на рынке продукт, предоставляющий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2019Разработчик: ParagonПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC11E25FA253A4F2F6C408C61739E96B981A149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962309   (294270) от 04.12.2015
-
-Parallels Desktop for Mac Business Edition 11.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
-С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 декабря 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA5390F2EC1EFF57BF4056DA4FEE0F152E3BDB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079757   (294261) от 04.12.2016
-
-WebVideoHunter 5.6.8 (232) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загружайте видео на Ваш компьютер! WebVideoHunter (ранее известный как YouTubeHunter)
-Это занимает всего несколько секунд, чтобы найти и скачать видео с YouTube, Vimeo, DailyMotion, VEVO и др. YouTubeHunter загружает в видео в 15 раз быстрее, чем просмотр в реальном времени и поддерживает одновременные загрузки. YouTubeHunter имеет встроенные возможности поиска и (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2016Разработчик: YouTubeHunterПоддерживаемая ОС: Mac OS X 10.5 +Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104603276EBC129149DFB3A507282E59CE677767
 ```
 
 https://mybot314.ru/tekegram_catalog/

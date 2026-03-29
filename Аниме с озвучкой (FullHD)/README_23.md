@@ -1,3 +1,31 @@
+###  Публикация: 1569161   (210745) от 11.08.2022
+
+Детективное агентство Хаматора [ТВ-2] | Хаматора: Ответ | Reply Hamatora | Re: Hamatora [2014, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210745.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, облаченная шоком и тайной, продолжается. Казалось бы, инцидент в Иокогаме мог стать причиной закрытия «Хаматоры», но наши герои не сдаются. Еще быстрее, еще сильнее, еще интереснее! Так, и только так! За эти 3 месяца восстание стихло, герои постепенно вернулись к обычной жизни, Хадзимэ стала частью «Minimum Holder PI duo», работая теперь от имени Найса. (   Читать дальше...   )Производство: Япония / Студия LercheЖанр: Приключения, детектив, мистикаРежиссер: Киси СэйдзиЯзык озвучки: Русский двухголосый закадровый, Японский
+- (внешним файлом) Eladiel & Zendos (жен & муж) (Onibaku)Субтитры: Русские (софтсаб полные/надписи)
+- (внешним файлом) (YakuSub Studio): Nika_Elrik (перевод), Doflein (редакция), Helge (оформление)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C56075E559F394B45F400F6EF6DD1A3BFDD10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569141   (210739) от 11.08.2022
 
 Детективное агентство Хаматора [ТВ-1] | Хаматора | Hamatora The Animation [2014, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
@@ -6,7 +34,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210739.jpg" />
+  <img src="Z:/picture/005/save_picture_210739.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210652.jpg" />
+  <img src="Z:/picture/005/save_picture_210652.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210232.jpg" />
+  <img src="Z:/picture/005/save_picture_210232.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210123.jpg" />
+  <img src="Z:/picture/005/save_picture_210123.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210117.jpg" />
+  <img src="Z:/picture/005/save_picture_210117.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210017.jpg" />
+  <img src="Z:/picture/005/save_picture_210017.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210004.jpg" />
+  <img src="Z:/picture/005/save_picture_210004.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209910.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209703.jpg" />
+  <img src="Z:/picture/005/save_picture_209703.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209561.jpg" />
+  <img src="Z:/picture/005/save_picture_209561.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209254.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209173.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209093.jpg" />
+  <img src="Z:/picture/005/save_picture_209093.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208895.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208727.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208344.jpg" />
 </div>
 
 
@@ -437,7 +465,7 @@ Grisaia: Phantom Trigger The Animation | Грисайя: Призрачный с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208181.jpg" />
 </div>
 
 
@@ -463,7 +491,7 @@ Oooku | Ooku: The Inner Chambers | Ооку: Внутренние покои [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207951.jpg" />
 </div>
 
 
@@ -489,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207872.jpg" />
+  <img src="Z:/picture/005/save_picture_207872.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207828.jpg" />
+  <img src="Z:/picture/005/save_picture_207828.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207713.jpg" />
+  <img src="Z:/picture/005/save_picture_207713.jpg" />
 </div>
 
 
@@ -567,7 +595,7 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207659.jpg" />
+  <img src="Z:/picture/005/save_picture_207659.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207646.jpg" />
+  <img src="Z:/picture/005/save_picture_207646.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207517.jpg" />
+  <img src="Z:/picture/005/save_picture_207517.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207502.jpg" />
+  <img src="Z:/picture/005/save_picture_207502.jpg" />
 </div>
 
 
@@ -662,32 +690,6 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5100F8B86BC8D7132E908FB6ADD2E0581BADE9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649950   (207468) от 01.08.2023
-
-Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби [ТВ-1] [2018, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия P.A. Works представляет сериал про девушек-лошадок по мотивам игры Uma Musume Pretty Derby («Девушки-лошадки: Милое дерби») от компании Cygames. Игра рассказывает о девочках-лошадках, которые умеют быстро бегать, мечтают стать айдолами и принять участие в национальном спортивном шоу Twinkle Series. А игрок исполняет роль тренера и учителя в Тренировочном Центре (   Читать дальше...   )Производство: студия P.A. Works / ピーエーワークスЖанр: повседневность, спортРежиссер: Ойкава КэйЯзык озвучки: Японский, русский (KANSAI)Субтитры: Русские (nnm-club^anime, SugoiSubs)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4754A601006FDDC2AB1E5C1857B86E304EE15F
 ```
 
 https://mybot314.ru/tekegram_catalog/

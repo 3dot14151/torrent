@@ -6,7 +6,7 @@ Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossle
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014805.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Le Concert des Nations - L'Orchestre du Roi Soleil Symphonies, Ouvertures & Airs
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013206.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Shostakovich Edition / Дм.Шостакович - Собрание сочине
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010383.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Giacomo Scinardo - Yiruma: Piano Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Cla
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010321.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Handel - Te Deum de Dettingen (Jean-Francois Paillard) (1989) [FLAC|Lossless|ima
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008004.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Maria CALLAS - Callas - The Complete Studio Recordings (1949-1969) [APE|271-649 
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007060.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Escala - Escala (2009) [FLAC|Lossless]<Instrumental, Classical, Pop>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004406.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Lola Astanova - The Popular Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004323.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003687.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002927.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002013.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ VA - Classical Chillout: 14 Calm and Relaxing Modern Classical Pieces (2020) [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000719.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) [MP3|256 к�
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000380.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ VA - 50 Golden Piano Favorites (3 CD Box) (1994) [FLAC|Lossless]<Instrumental, E
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000126.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Pyotr Ilyich Tchaikovsky-Symphony No. 5, Francesca da Rimini Riccardo Muti & The
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999319.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Richard Wagner – Der fliegende Hollander Berliner Philharmoniker: conductor He
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999291.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wolfgang Amadeus Mozart–Requiem Mass in D minor KV 626: BBC Symphony Orchestra
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998789.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998581.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD2 [MP3|224
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997164.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Antonio Lucio Vivaldi-New Discoveries Modo Antiquo Federico Maria Sardelli (2008
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996922.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996829.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Wolfgang Amadeus Mozart–Complete Church Sonatas Wiener Akademie organ conducto
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996684.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Wolfgang Amadeus Mozart–The Violin Concertos Philharmonia Orchestra violin Tho
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996423.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ VA-Charles Ives Symphony No 4 and No 2 (1999) [FLAC|Lossless]<Classical>
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996129.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Telemann, Albinoni, J.S. Bach, J-J. Mouret, Handel, Yon - Music for Trumpet and 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996061.jpg" />
 </div>
 
 
@@ -787,7 +787,7 @@ Wolfgang Amadeus Mozart–Mass C-Dur K.317, Exsultate K.165, Vesperae solennes K
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995786.jpg" />
 </div>
 
 

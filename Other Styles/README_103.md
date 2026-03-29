@@ -1,3 +1,61 @@
+###  Публикация: 1317935   (497678) от 04.08.2019
+
+Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful
+02. I Told You So
+03. Girl You Confuse My Mind
+04. Me and My Old Car(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935945   (497520) от 10.09.2015
+
+VA - Arabesque the Beautyness of India and Asia (2015) [MP3|320 кб/с]<Lounge, Easy Listening, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Lorenzito - Cika (feat. Mario)
+02. Nizam Kharda - One Love (feat. The Choir of Hyderabad)
+03. Northbound - Holy Road
+04. Graddus - Novbahor(   Читать дальше...   )Жанр: Lounge, Easy Listening, New Age, WorldПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1DEB0425ECA008F415C15FB6C1DF64D67AAA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543115   (496433) от 05.09.2012
 
 Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
@@ -6,7 +64,7 @@ Doudou - The Love Of Piano (2011) [MP3|320 кб/с]<New age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496433.jpg" />
+  <img src="Z:/picture/008/save_picture_496433.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ Richard Sharp - Bathtime Relaxation (2008) [MP3|320 кб/с]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496339.jpg" />
+  <img src="Z:/picture/008/save_picture_496339.jpg" />
 </div>
 
 
@@ -76,7 +134,7 @@ WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
+  <img src="Z:/picture/008/save_picture_496086.jpg" />
 </div>
 
 
@@ -111,7 +169,7 @@ Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495301.jpg" />
+  <img src="Z:/picture/008/save_picture_495301.jpg" />
 </div>
 
 
@@ -140,7 +198,7 @@ Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494267.jpg" />
+  <img src="Z:/picture/008/save_picture_494267.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ VA - Ska Anthems - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Jamaican
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493966.jpg" />
+  <img src="Z:/picture/008/save_picture_493966.jpg" />
 </div>
 
 
@@ -201,7 +259,7 @@ Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493898.jpg" />
+  <img src="Z:/picture/008/save_picture_493898.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493694.jpg" />
+  <img src="Z:/picture/008/save_picture_493694.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493411.jpg" />
+  <img src="Z:/picture/008/save_picture_493411.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492711.jpg" />
+  <img src="Z:/picture/008/save_picture_492711.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492485.jpg" />
+  <img src="Z:/picture/008/save_picture_492485.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492265.jpg" />
+  <img src="Z:/picture/008/save_picture_492265.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Lynn Tredeau - Fellowship of Solitude (2018) [MP3|320 Kbps] <Instrumental, Piano
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492107.jpg" />
+  <img src="Z:/picture/008/save_picture_492107.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Pilgrimage (Simon Cloquet & Eric Calvi) - 9 Songs of Ecstasy (1997) [APE|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491463.jpg" />
+  <img src="Z:/picture/008/save_picture_491463.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490886.jpg" />
+  <img src="Z:/picture/008/save_picture_490886.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490757.jpg" />
+  <img src="Z:/picture/008/save_picture_490757.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490629.jpg" />
+  <img src="Z:/picture/008/save_picture_490629.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490338.jpg" />
+  <img src="Z:/picture/008/save_picture_490338.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490180.jpg" />
+  <img src="Z:/picture/008/save_picture_490180.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490071.jpg" />
+  <img src="Z:/picture/008/save_picture_490071.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, N
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489897.jpg" />
+  <img src="Z:/picture/008/save_picture_489897.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ David Hollandsworth - Edge of Forever (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488360.jpg" />
+  <img src="Z:/picture/008/save_picture_488360.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488259.jpg" />
+  <img src="Z:/picture/008/save_picture_488259.jpg" />
 </div>
 
 
@@ -709,7 +767,7 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487953.jpg" />
+  <img src="Z:/picture/008/save_picture_487953.jpg" />
 </div>
 
 
@@ -723,64 +781,6 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B89640AF4DE6BA94869AF10880847526F95522A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159114   (487892) от 18.08.2017
-
-Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Massaggio di coppia
-02.  Momenti di assoluto relax
-03.  Ritrovare armonia e complicita
-04.  Onde oceaniche(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055355   (487872) от 22.09.2016
-
-Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Call to Prayer (02:19)
-02. Emitting Light (13:05)
-03. Mother of Souls (10:49)
-04. Eagle's Sight (02:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
 ```
 
 https://mybot314.ru/tekegram_catalog/

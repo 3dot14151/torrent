@@ -6,7 +6,7 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14743.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14731.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14717.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14712.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14710.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Meta
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14434.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14415.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14411.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14407.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14406.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14399.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13890.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13279.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13278.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13265.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13263.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13260.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13254.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13253.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13245.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12961.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12950.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matado
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12946.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12943.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12941.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ TagScanner 6.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860162.jpg" />
+  <img src="Z:/picture/008/save_picture_860162.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EssentialPIM Pro Business Edition 8.66.1 RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860149.jpg" />
+  <img src="Z:/picture/008/save_picture_860149.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Internet Download Manager 6.37 Build 9 (17.04.2020) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860145.jpg" />
+  <img src="Z:/picture/008/save_picture_860145.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Easy2Boot 1.90 + RMPrepUSB 2.1.734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860117.jpg" />
+  <img src="Z:/picture/008/save_picture_860117.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860116.jpg" />
+  <img src="Z:/picture/008/save_picture_860116.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent Pro 3.4.9 Build 43388 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860103.jpg" />
+  <img src="Z:/picture/008/save_picture_860103.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Skype 8.59.0.77 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860047.jpg" />
+  <img src="Z:/picture/008/save_picture_860047.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Balabolka 2.15.0.740 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860044.jpg" />
+  <img src="Z:/picture/008/save_picture_860044.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bandizip 7.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860039.jpg" />
+  <img src="Z:/picture/008/save_picture_860039.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860038.jpg" />
+  <img src="Z:/picture/008/save_picture_860038.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Internet Download Manager 6.37 Build 10 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860036.jpg" />
+  <img src="Z:/picture/008/save_picture_860036.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Readiris Corporate 17.3 Build 76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859965.jpg" />
+  <img src="Z:/picture/008/save_picture_859965.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ V-Ray Next 4.20.01 for SketchUp 2016-2020 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859960.jpg" />
+  <img src="Z:/picture/008/save_picture_859960.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v5.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859953.jpg" />
+  <img src="Z:/picture/008/save_picture_859953.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ LibreOffice 3.3 [English/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_859870.jpg" />
+  <img src="Z:/picture/009/save_picture_859870.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Auslogics BoostSpeed 11.4.0.3 DC 15.04.2020 RePack (& Portable) by KpoJIuK [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859855.jpg" />
+  <img src="Z:/picture/008/save_picture_859855.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Total Commander 9.51 MAX-Pack 2020.04.16 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859851.jpg" />
+  <img src="Z:/picture/008/save_picture_859851.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WYSIWYG Web Builder 15.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859846.jpg" />
+  <img src="Z:/picture/008/save_picture_859846.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859845.jpg" />
+  <img src="Z:/picture/008/save_picture_859845.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 1909 (Build 18363.778) (60in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859744.jpg" />
+  <img src="Z:/picture/008/save_picture_859744.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Adobe Illustrator 2020 24.1.2.408 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859740.jpg" />
+  <img src="Z:/picture/008/save_picture_859740.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Edge 94.0.992.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859546.jpg" />
+  <img src="Z:/picture/008/save_picture_859546.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Opera 79.0.4143.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859544.jpg" />
+  <img src="Z:/picture/008/save_picture_859544.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Mp3tag 3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859541.jpg" />
+  <img src="Z:/picture/008/save_picture_859541.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.87 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859531.jpg" />
+  <img src="Z:/picture/008/save_picture_859531.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ MAGIX Video Pro X13 19.0.1.121 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859523.jpg" />
+  <img src="Z:/picture/008/save_picture_859523.jpg" />
 </div>
 
 

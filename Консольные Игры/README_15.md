@@ -6,7 +6,7 @@ Aliens vs. Predator / Чужие против Хищника [PS3] [EUR] [Ru] [3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819513.jpg" />
+  <img src="Z:/picture/008/save_picture_819513.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818835.jpg" />
+  <img src="Z:/picture/008/save_picture_818835.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ UFC Personal Trainer: The Ultimate Fitness System (2011) [PS3] [EUR] 3.65 [Cobra
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818715.jpg" />
+  <img src="Z:/picture/008/save_picture_818715.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818596.jpg" />
+  <img src="Z:/picture/008/save_picture_818596.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ The LEGO Movie Videogame (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818517.jpg" />
+  <img src="Z:/picture/008/save_picture_818517.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Need for Speed: ProStreet (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818288.jpg" />
+  <img src="Z:/picture/008/save_picture_818288.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ SBK Generations (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817165.jpg" />
+  <img src="Z:/picture/008/save_picture_817165.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/E
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816869.jpg" />
+  <img src="Z:/picture/008/save_picture_816869.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Trine 2 / Trine 2. Триединство (2011) [PS3] [USA] 3.55 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816850.jpg" />
+  <img src="Z:/picture/008/save_picture_816850.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bladestorm: Nightmare (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816431.jpg" />
+  <img src="Z:/picture/008/save_picture_816431.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Jeep Thrills [Wii] [NTSC] [Eng] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815215.jpg" />
+  <img src="Z:/picture/008/save_picture_815215.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ One Piece: Unlimited Cruise 1: The Treasure Beneath the Waves [Wii] [PAL] [Multi
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815070.jpg" />
+  <img src="Z:/picture/008/save_picture_815070.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Ripened Tingle's Balloon Trip of Love (2009) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815001.jpg" />
+  <img src="Z:/picture/008/save_picture_815001.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Duck Dynasty (2014) [PS3] [USA] 4.60 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814399.jpg" />
+  <img src="Z:/picture/008/save_picture_814399.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Drakan: The Ancients' Gates [PS2] [PAL] [Multi5] (2002)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811107.jpg" />
+  <img src="Z:/picture/008/save_picture_811107.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Marvel vs. Capcom 3: Fate of Two Worlds [XBOX360] [Region Free] [ENG] [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810005.jpg" />
+  <img src="Z:/picture/008/save_picture_810005.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Assassin’s Creed Chronicles: Trilogy (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [Lic
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809408.jpg" />
+  <img src="Z:/picture/008/save_picture_809408.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Masquerade: The Baubles of Doom (2016) [Xbox360] [RegionFree] 16537 [FreeBoot] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809102.jpg" />
+  <img src="Z:/picture/008/save_picture_809102.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ UEFA EURO 2016: Pro Evolution Soccer / UEFA EURO 2016: PES (2016) [PS3] [EUR] 3.
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808982.jpg" />
+  <img src="Z:/picture/008/save_picture_808982.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Child of Light Complete Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807631.jpg" />
+  <img src="Z:/picture/008/save_picture_807631.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Grey's Anatomy: The Video Game [Wii] [PAL] [Multi 3] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805091.jpg" />
+  <img src="Z:/picture/008/save_picture_805091.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Family Guy Back to the Multiverse (2012) [PS3] [EUR] [4.25] [Cobra ODE / E3 ODE 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804665.jpg" />
+  <img src="Z:/picture/008/save_picture_804665.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Skylanders: Giants (2012) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801723.jpg" />
+  <img src="Z:/picture/008/save_picture_801723.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ LittleBigPlanet - Marvel Super Hero Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801412.jpg" />
+  <img src="Z:/picture/008/save_picture_801412.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ The Legend of Zelda: Skyward Sword HD (2021) [Switch] [USA] 11.0.0 [NSZ] [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801302.jpg" />
+  <img src="Z:/picture/008/save_picture_801302.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Raw Danger! (2007) [PS2] [NTSC] PS2 [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801063.jpg" />
+  <img src="Z:/picture/008/save_picture_801063.jpg" />
 </div>
 
 

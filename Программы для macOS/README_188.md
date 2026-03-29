@@ -1,3 +1,134 @@
+###  Публикация: 1704990   (63802) от 06.03.2024
+
+iA Writer 7.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2010–2024 Information Architects GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4563AEC5DA7E0AC8962C8500180756FE082A30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704800   (63789) от 06.03.2024
+
+Remote Desktop Manager Enterprise Edition 2024.1.5.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remote Desktop Manager – это приложение для контроля за удаленными соединениями. С программой Remote Desktop Manager вы сможете добавить, редактировать, удалить, систематизировать или быстро найти удаленное соединение. Утилита совместима с Microsoft Remote Desktop или с Terminal Services, очень простая в использовании, но в то же время достаточно мощная и эффективная. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 DevolutionsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34F396342B9F8FE8CD53CE22017B353DEE9F5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701822   (63762) от 07.03.2024
+
+Pixelmator Pro 3.5.7 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2017-2024 Pixelmator TeamПоддерживаемая ОС: macOS 11.0Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628B64806795E9541C9767E664016A5481D26F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705178   (63748) от 07.03.2024
+
+ForkLift 4 v.4.1.1 U2B fix [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63748.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492E740170B0E48AD3F800E06A11567F60E377D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705044   (63726) от 07.03.2024
+
+Bundle for MS Office Templates for Mac 7.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для MS Office предоставляет вам более 35 000 уникальных дизайнов документов Word, шаблоны электронных таблиц Excel, лучшие в своем классе темы слайдов Powerpoint, а также более 2000 изображений и графики для иллюстрации вашего контента. Все шаблоны доступны в американских и международных форматах бумаги. Пакет для MS Office можно загрузить бесплатно, в каждой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2024Разработчик: © 2024 Graphic NodeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A14E83A30448FD502087368FCF564934A4900AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705013   (63685) от 07.03.2024
 
 HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
@@ -6,7 +137,7 @@ HitPaw Video Converter for Mac 4.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63685.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63652.jpg" />
 </div>
 
 
@@ -61,7 +192,7 @@ Capture One 23 Pro 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63618.jpg" />
 </div>
 
 
@@ -88,7 +219,7 @@ Capture One 23 Enterprise 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63609.jpg" />
 </div>
 
 
@@ -115,7 +246,7 @@ Navicat Premium 16.3.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63592.jpg" />
 </div>
 
 
@@ -141,7 +272,7 @@ DCommander 3 Premium for Mac v.3.9.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63493.jpg" />
 </div>
 
 
@@ -168,7 +299,7 @@ Aiseesoft iPhone Unlocker for Mac 2.0.38 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63295.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ Clearview X 3.5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63287.jpg" />
 </div>
 
 
@@ -220,7 +351,7 @@ DearMob iPhone Manager 6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63269.jpg" />
 </div>
 
 
@@ -247,7 +378,7 @@ BetterDisplay Pro for Mac 2.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63239.jpg" />
 </div>
 
 
@@ -273,7 +404,7 @@ Ableton Live Suite 11 v.11.3.22 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63210.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ Cisdem Video Converter 7.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63203.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ Shottr for Mac 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63177.jpg" />
 </div>
 
 
@@ -352,7 +483,7 @@ TG Pro (Temperature Gauge Pro) 2.92 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63097.jpg" />
 </div>
 
 
@@ -379,7 +510,7 @@ Rhinoceros 8 v.8.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63089.jpg" />
 </div>
 
 
@@ -406,7 +537,7 @@ BetterTouchTool 4.443 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63074.jpg" />
 </div>
 
 
@@ -432,7 +563,7 @@ TechTool Pro 19 v.19.0.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63057.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ PDF Expert 3.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63050.jpg" />
 </div>
 
 
@@ -486,7 +617,7 @@ PDF Reader Pro 3.3.1.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63003.jpg" />
 </div>
 
 
@@ -512,7 +643,7 @@ BoltAI 1.15.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62972.jpg" />
 </div>
 
 
@@ -539,7 +670,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62955.jpg" />
 </div>
 
 
@@ -551,139 +682,6 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BDB90B3F153FE3EAAA757170A86476B7378D77E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706938   (62953) от 14.03.2024
-
-Audio Hijack 4.3.2 U2B [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2024 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 11.0 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD4019E855F6E337F24556B018DF9313D3F5156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707044   (62937) от 15.03.2024
-
-Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop 19 для Mac — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
-Parallels Desktop Business (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2022 Parallels International GmbHПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C78F1EF95D15053D8A36C84A63589420C25961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707590   (62675) от 17.03.2024
-
-FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62675.jpg" />
-</div>
-
-
-###  Подробнее
-
-FonesGo WhatsApp Transfer - это лучшее приложение для передачи, резервного копирования и восстановления WhatsApp на MacТип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D990FCE8AE562CA8C08CED63C79B7C47134D44F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707630   (62673) от 17.03.2024
-
-FxFactory Pro 8.0.14 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62673.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2024Разработчик: © 2024 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9582A70C6CC07B851A1FA45994FEA45D31625EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707788   (62549) от 18.03.2024
-
-Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Charts Viewer — это простой в использовании инструмент для просмотра файлов рабочей области диаграмм. Благодаря дружественному графическому интерфейсу пользователя (GUI) программа Navicat Charts Viewer позволяет перемещаться по рабочим пространствам, созданным с помощью функции Navicat Charts или Navicat Charts Creator. Вы можете получить доступ к локальным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E187F221872B124FE1F8D3FCA5621ADB4257E9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

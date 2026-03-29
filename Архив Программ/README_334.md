@@ -6,7 +6,7 @@ Auslogics Driver Updater 1.24.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883294.jpg" />
+  <img src="Z:/picture/005/save_picture_883294.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YoWindow Unlimited Edition 4 Build 103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883287.jpg" />
+  <img src="Z:/picture/005/save_picture_883287.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glary Utilities Pro 5.69.0.90 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883199.jpg" />
+  <img src="Z:/picture/005/save_picture_883199.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883194.jpg" />
+  <img src="Z:/picture/005/save_picture_883194.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883193.jpg" />
+  <img src="Z:/picture/005/save_picture_883193.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Readiris Corporate 16.0.22 Build 9591 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883178.jpg" />
+  <img src="Z:/picture/005/save_picture_883178.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 8.1 40in1 (x86/x64) +/- Office 2019 by Eagle123 (03.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883145.jpg" />
+  <img src="Z:/picture/005/save_picture_883145.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883097.jpg" />
+  <img src="Z:/picture/005/save_picture_883097.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v5.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883069.jpg" />
+  <img src="Z:/picture/005/save_picture_883069.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SamDrivers 20.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883061.jpg" />
+  <img src="Z:/picture/005/save_picture_883061.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dism++ 10.1.21.4 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883056.jpg" />
+  <img src="Z:/picture/005/save_picture_883056.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ CorelDRAW Graphics Suite 2020 22.0.0.412 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883015.jpg" />
+  <img src="Z:/picture/005/save_picture_883015.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Paragon Hard Disk Manager Advanced 17.13.1 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882998.jpg" />
+  <img src="Z:/picture/005/save_picture_882998.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Readiris Pro 16.0.2 Build 9592 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882895.jpg" />
+  <img src="Z:/picture/005/save_picture_882895.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Transmission Remote GUI 5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882887.jpg" />
+  <img src="Z:/picture/005/save_picture_882887.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Microsoft Windows and Office ISO Download Tool 4.17 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882877.jpg" />
+  <img src="Z:/picture/005/save_picture_882877.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ WinRAR 4.00 Beta 7 (x86+x64) [2011, RUS] RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882870.jpg" />
+  <img src="Z:/picture/008/save_picture_882870.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ CorelCAD 2017.0 Build 17.0.0.1335 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882760.jpg" />
+  <img src="Z:/picture/005/save_picture_882760.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Avira Scout 2016.03.04.00436b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882729.jpg" />
+  <img src="Z:/picture/005/save_picture_882729.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ AOL Shield 1.0.20.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882576.jpg" />
+  <img src="Z:/picture/005/save_picture_882576.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Baidu Browser 43.23.1000.467 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882559.jpg" />
+  <img src="Z:/picture/005/save_picture_882559.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Q-Dir 6.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882513.jpg" />
+  <img src="Z:/picture/005/save_picture_882513.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ AeroWallpaperChanger - автоматическая смена обоев в Win
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882442.jpg" />
+  <img src="Z:/picture/005/save_picture_882442.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ ThunderSoft Video to GIF Converter 3.4.0 Repack & Portable by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882311.jpg" />
+  <img src="Z:/picture/005/save_picture_882311.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Total HTML Converter 4.1.92 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882310.jpg" />
+  <img src="Z:/picture/005/save_picture_882310.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ XYplorer 16.40 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882308.jpg" />
+  <img src="Z:/picture/005/save_picture_882308.jpg" />
 </div>
 
 

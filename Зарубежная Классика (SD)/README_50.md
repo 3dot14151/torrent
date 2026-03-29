@@ -1,3 +1,82 @@
+###  Публикация: 1029338   (651253) от 04.07.2016
+
+Троянская война / La guerra di Troia (1961) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651253.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 лет минуло с того скорбного дня, когда Парис, герой Трои, похитил Елену Прекрасную, жену Менелая, царя Спарты. Поклявшись отомстить, цари всех греческих городов, смелые сыны этой солнцеобильной земли, осадили город Трою. За его высокими, неприступными стенами Парис и держал свою ценную добычу — Елену Прекрасную. Силы Трои были на исходе — Гектор, сын царя Приама (   Читать дальше...   )Производство: Италия, Франция, Югославия / CICC, Europa Cinematografica, Les Films Modernes (I)Жанр: Драма, Приключения, ВоенныйРежиссер: Джорджио ФеррониАктеры: Стив Ривз, Джон Дрю Бэрримор, Жюльет Майниель, Эди Вессель, Лидия Альфонси, Уорнер Бентивенья, Лучана Анджолилло, Артуро ДоминичиПеревод: Многоголосый закадровый, профессиональный (DVD Магия)Продолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460E349F8177BC0C8E620EA8CB793A7BB1EBC9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902205   (651099) от 05.06.2015
+
+Тише... тише, милая Шарлотта / Hush...Hush, Sweet Charlotte (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шарлотта Холлис — немолодая затворница, которую мучают ужасные воспоминания и страшные галлюцинации. Она живёт в луизианской глуши, в старом особняке, где тридцать семь лет тому назад был убит и обезглавлен её жених, и в убийстве многие подозревали именно её. Теперь же поместье собираются снести (прокладывается новая трасса), и Шарлотта просит кузину Мириам, живущую (   Читать дальше...   )Производство: СШАЖанр: Триллер, детектив, мистикаРежиссер: Роберт ОлдричАктеры: Бетт Дэвис, Оливия Де Хэвиллэнд, Джозеф Коттен, Агнес Мурхед, Сесил Келлауэй, Виктор Буоно, Мэри Астор, Уэсли Эдди, Уильям Кэмпбелл, Брюс Дерн, Фрэнк Фергюсон, Джордж Кеннеди, Дэйв Уиллок, Мишель Пети, Джон Меджна и др.Перевод: Профессиональный многоголосый закадровый - Петербург 5 каналФормат: AVIПродолжительность: 02:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C64FD15DF4C4B0A95319E671C6D7A10F520BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345092   (650945) от 02.06.2011
+
+В джазе только девушки / Some Like It Hot (1959) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация рассказа Роберта Торена и Майкла Логана.
+Чикаго, 1929 год. Двое джазовых музыкантов, саксофонист Джо (Тони Кёртис) и контрабасист Джерри (Джек Леммон), оказываются ненужными свидетелями для банды чикагских мафиози во главе с Коломбо (Джордж Рафт) по прозвищу «Белые Гетры». Чтобы избежать гибели от рук гангстеров, они пытаются устроиться в гастролирующий (   Читать дальше...   )Производство: США / MGM, The Mirisch Corporation, Ashton ProductionsЖанр: комедия, мелодрама, приключения, музыкаРежиссер: Билли УайлдерАктеры: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Э. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Э. СтоунПеревод: Многоголосый профессиональный (многоголосый закадровый (с Blu-ray) / дублированный (советский, к/с «им. Максима Горького») с вставками дубляжа (ОРТ, «Первый канал») в отдельные фрагменты, вырезанные при кинопрокате в СССР - отдельно)Субтитры: нетПродолжительность: 02:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873F3504779D35A59EBB0140297A732B34CFE3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291389   (650249) от 27.03.2019
 
 Гран при / Grand Prix (1966) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650249.jpg" />
+  <img src="Z:/picture/008/save_picture_650249.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649418.jpg" />
+  <img src="Z:/picture/008/save_picture_649418.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649406.jpg" />
+  <img src="Z:/picture/008/save_picture_649406.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649235.jpg" />
+  <img src="Z:/picture/008/save_picture_649235.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649152.jpg" />
+  <img src="Z:/picture/008/save_picture_649152.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649138.jpg" />
+  <img src="Z:/picture/008/save_picture_649138.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649122.jpg" />
+  <img src="Z:/picture/008/save_picture_649122.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648978.jpg" />
+  <img src="Z:/picture/005/save_picture_648978.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648357.jpg" />
+  <img src="Z:/picture/008/save_picture_648357.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647403.jpg" />
+  <img src="Z:/picture/008/save_picture_647403.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_647245.jpg" />
+  <img src="Z:/picture/005/save_picture_647245.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646756.jpg" />
+  <img src="Z:/picture/008/save_picture_646756.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645810.jpg" />
+  <img src="Z:/picture/008/save_picture_645810.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645678.jpg" />
+  <img src="Z:/picture/008/save_picture_645678.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645361.jpg" />
+  <img src="Z:/picture/008/save_picture_645361.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645327.jpg" />
+  <img src="Z:/picture/008/save_picture_645327.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645209.jpg" />
+  <img src="Z:/picture/008/save_picture_645209.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645071.jpg" />
+  <img src="Z:/picture/005/save_picture_645071.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644667.jpg" />
+  <img src="Z:/picture/008/save_picture_644667.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644606.jpg" />
+  <img src="Z:/picture/008/save_picture_644606.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644221.jpg" />
+  <img src="Z:/picture/008/save_picture_644221.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643902.jpg" />
+  <img src="Z:/picture/008/save_picture_643902.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643676.jpg" />
+  <img src="Z:/picture/008/save_picture_643676.jpg" />
 </div>
 
 
@@ -598,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE6B84ABEE2EB60833233A6C16D3F14D066C98B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030467   (643668) от 08.07.2016
-
-Дьявол в 4 часа / The Devil at 4 O'Clock (1961) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самолет, перевозящий на Таити троих осужденных для отбытия срока, неожиданно совершает аварийную посадку на другом острове. С учетом сложившихся обстоятельств, заключенных отправляют работать в госпиталь для прокаженных детей.
- Один из них — Гарри — вполне доволен таким положением дел: лучше работать, чем сидеть в заточении. Но вскоре на острове происходит извержение (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: Триллер, Драма, ПриключенияРежиссер: Мервин ЛеРойАктеры: Спенсер Трэйси, Фрэнк Синатра, Кервин Мэтьюз, Жан-Пьер Омон, Грегуар Аслан, Александр Скурби, Барбара Луна, Кэти Льюис, Берни Хэмилтон, Мартин БрандтПеревод: Многоголосый закадровый (Первый канал)Субтитры: ОтсутствуютПродолжительность: 02:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EBC1C57D3868822FDBFE07583D855235E525DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030192   (643539) от 08.07.2016
-
-Отсеченная голова / A Severed Head (1970) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643539.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Айрис Мердок. Мартин любит Антонию, свою жену, и Джорджи, свою любовницу. Антония любит Мартина, а также их общего друга психоаналитика Палмера Андерсона. Приезд экстравагантной Онор Клейн и талантливого скульптора Александра еще более запутывает и без того сложный клубок взаимоотношений, приближая ситуацию к неожиданной развязке…Производство: ВеликобританияЖанр: Комедия, экранизацияРежиссер: Дик КлементАктеры: Ли Ремик, Ричард Аттенборо, Иэн Холм, Клер Блум, Дженни Линден, Клайв Ревилл, Энн Фёрбэнк, Розамунд Гринвуд, Констанс Лорни, Роберт Гиллеспи ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60129EF0C3B15D0AED6CD66187F4EFFDA64E385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903924   (643347) от 09.06.2015
-
-Фальшивый предатель / The Counterfeit Traitor (1962) DVB
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по книге Александра Кляйна "Мнимый предатель", которая была основана на реальных событиях. Эрик Эриксон, шведский бизнесмен, вынужден согласиться работать на разведку Союзников во время своих деловых поездок в нацистскую Германию. Снимали фильм в Стокгольме, Копенгагене, Гамбурге и Берлине, т.е. там, где реально происходили эти события. Актеров (   Читать дальше...   )Производство: США, Perlsea CompanyЖанр: Триллер, Драма, ВоенныйРежиссер: Джордж СитонАктеры: Уильям Холден, Лилли Пальмер, Хью Гриффит, Карл Раддац, Эрнст Шрёдер, Шарль Ренье, Ингрид ван Берген, Вольфганг Прайсс, Вернер Петерс, Эрика БеерПеревод: Многоголосый закадровыйПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89095DDDE065123CFE9D556E70D8CC7DEFB8EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

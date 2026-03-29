@@ -1,3 +1,86 @@
+###  Публикация: 1797513   (66816) от 16.05.2025
+
+МузЛофт-Дети / МузLoft. Любава Соляная (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любава Соляная. Про финансовую грамотность и дуэт с Лазаревым.
+Если вас удивляет или веселит фамилия этой талантливой девочки, то обязательно смотрите выпуск, она всё про неё расскажет. А ещё споет такой разнообразный набор песен, что понравится абсолютно каждому.Производство: Россия | Y-GenerationУчастники: Любава СолянаяПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E277C684F542AC7C898C5C655FA5C95A7D40CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797512   (66810) от 16.05.2025
+
+МузЛофт-подкаст / МузLoft. Dabro (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dabro. Первый конфликт в истории Музлофт.
+Таких жарких споров и дебатов в истории нашей программы ещё не было. Может именно вы рассудите кто прав в споре наших музыкантов и братьев из Казани.Производство: Россия | Y-GenerationУчастники: DabroПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E833B7B793304E3693DC943BA2DD3945ED9DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795505   (66806) от 16.05.2025
+
+Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в рамках фестиваля "Highfield" 19 августа 2016 года в Лейпциге на сцене "Blue Stage".01. Ten seconds before sunrise / Ace
+02. Oi
+03. Riot
+04. One (Always hardcore)(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Jens TheleУчастники: H.P. Baxxter, Michael Simon, Phil SpeiserПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD6FD1CEF64602A18469AE12D052CD73D70222D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797688   (66794) от 17.05.2025
 
 Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [hand made upscale AI]
@@ -6,7 +89,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66794.jpg" />
 </div>
 
 
@@ -35,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66750.jpg" />
 </div>
 
 
@@ -64,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66487.jpg" />
 </div>
 
 
@@ -91,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66303.jpg" />
 </div>
 
 
@@ -120,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65305.jpg" />
 </div>
 
 
@@ -147,7 +230,7 @@ NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64512.jpg" />
 </div>
 
 
@@ -177,7 +260,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63887.jpg" />
 </div>
 
 
@@ -207,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61197.jpg" />
 </div>
 
 
@@ -236,7 +319,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60593.jpg" />
 </div>
 
 
@@ -265,7 +348,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60574.jpg" />
 </div>
 
 
@@ -294,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60453.jpg" />
 </div>
 
 
@@ -323,7 +406,7 @@ Lovebites: Heavy Metal Never Dies (2021) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60138.jpg" />
 </div>
 
 
@@ -349,7 +432,7 @@ Elton John and Bernie Taupin: The Library of Congress Gershwin Prize for Popular
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59706.jpg" />
 </div>
 
 
@@ -375,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59696.jpg" />
 </div>
 
 
@@ -404,7 +487,7 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59685.jpg" />
 </div>
 
 
@@ -433,7 +516,7 @@ The Offspring - Live in Lollapalooza Brazil (2024) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59627.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59626.jpg" />
 </div>
 
 
@@ -488,7 +571,7 @@ Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59614.jpg" />
 </div>
 
 
@@ -517,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59526.jpg" />
 </div>
 
 
@@ -543,7 +626,7 @@ The Black Keys - Live from the KROQ Helpful Honda Sound Space (2024) HDTV [H.264
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59501.jpg" />
 </div>
 
 
@@ -572,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58877.jpg" />
 </div>
 
 
@@ -602,7 +685,7 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58048.jpg" />
 </div>
 
 
@@ -633,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57720.jpg" />
 </div>
 
 
@@ -644,93 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576CDDDE27C38E1A1CEACE63253785F3FA08969A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720863   (57509) от 05.05.2024
-
-Квартирник у Маргулиса. Виталий Гогунский (04.05.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актер, певец и продюсер Виталий Гогунский проявил интерес к музыке еще в детстве, когда решил заниматься в музыкальной школе по классу фортепиано. В дальнейшем он даже был признан лучшим пианистом областного конкурса в своей возрастной категории. Виталий участвовал и побеждал в музыкальных шоу, а также выступал композитором песен в телевизионных проектах. В этот (   Читать дальше...   )00:00:06 Вечно молодым
-00:06:31 Без правил
-00:13:15 Огнем бенгальским
-00:20:16 Останься(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790559   (57456) от 06.05.2024
-
-Кипелов - X лет: Крокус Сити Холл 1.12.2012 (2013) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57456.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 декабря 2012 года в концертном зале «Крокус Сити Холл» группа «Кипелов» отметила свое 10-летие со своими лучшими песнями за десять лет истории группы. Каждый концерт - это особенное, оригинальное шоу, и даже сложно представить, насколько грандиозен размах юбилейного концерта в Москве! Но это не главное. Главное - это музыка и у вас есть возможность прикоснуться (   Читать дальше...   )01. Интро
-02. Жить вопреки
-03. Еще повоюем
-04. Вавилон(   Читать дальше...   )Производство: Россия / Навигатор РекордсЖанр: Heavy MetalСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722573   (56790) от 12.05.2024
-
-Квартирник у Маргулиса. Игорь Растеряев (11.05.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артист Игорь Растеряев стал популярным в 2010-м, когда вышла композиция «Комбайнеры», в 2011 году выпустил дебютный альбом «Русская дорога». Растеряева можно назвать уникальным исполнителем, его творчество любят и ценят представили самых разных музыкальных жанров и слушатели разных возрастов.00:00:04 Русская дорога
-00:05:10 Ленинградская песня
-00:12:18 Георгиевская ленточка
-00:20:22 Дядька(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
 ```
 
 https://mybot314.ru/tekegram_catalog/

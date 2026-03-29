@@ -1,3 +1,29 @@
+###  Публикация: 904009   (656296) от 01.06.2015
+
+Александр Тамоников | Цикл «Донбасс» [3 книги] (2015) [FB2, EPUB]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_656296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поселок Степановка в Луганской области заняли украинские военные. Эта местность идеально подходит для размещения дальнобойной артиллерии, и ополченцы понимают, что такое соседство может привести к катастрофическим последствиям. В поселок срочно выдвигается отряд отставного капитана ВДВ Алексея Стригуна. Бойцам приказано уничтожить противника и взять пару «языков». (   Читать дальше...   )Жанр: Боевики: ПрочееФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D2DE0E2DCA2EE7E72F3ADB0185A358AD3C60B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515699   (656105) от 26.06.2012
 
 Журнал | Кулинарные советы моей свекрови № 5 (220) [2012] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656105.jpg" />
+  <img src="Z:/picture/008/save_picture_656105.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656014.jpg" />
+  <img src="Z:/picture/008/save_picture_656014.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655832.jpg" />
+  <img src="Z:/picture/008/save_picture_655832.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655757.jpg" />
+  <img src="Z:/picture/008/save_picture_655757.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655604.jpg" />
+  <img src="Z:/picture/008/save_picture_655604.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655516.jpg" />
+  <img src="Z:/picture/008/save_picture_655516.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655478.jpg" />
+  <img src="Z:/picture/008/save_picture_655478.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655292.jpg" />
+  <img src="Z:/picture/008/save_picture_655292.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655087.jpg" />
+  <img src="Z:/picture/008/save_picture_655087.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654854.jpg" />
+  <img src="Z:/picture/008/save_picture_654854.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654816.jpg" />
+  <img src="Z:/picture/008/save_picture_654816.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654500.jpg" />
+  <img src="Z:/picture/008/save_picture_654500.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654385.jpg" />
+  <img src="Z:/picture/008/save_picture_654385.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654321.jpg" />
+  <img src="Z:/picture/008/save_picture_654321.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654277.jpg" />
+  <img src="Z:/picture/008/save_picture_654277.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654275.jpg" />
+  <img src="Z:/picture/008/save_picture_654275.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654164.jpg" />
+  <img src="Z:/picture/008/save_picture_654164.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654135.jpg" />
+  <img src="Z:/picture/008/save_picture_654135.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653836.jpg" />
+  <img src="Z:/picture/008/save_picture_653836.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653828.jpg" />
+  <img src="Z:/picture/008/save_picture_653828.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653820.jpg" />
+  <img src="Z:/picture/008/save_picture_653820.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653527.jpg" />
+  <img src="Z:/picture/008/save_picture_653527.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653316.jpg" />
+  <img src="Z:/picture/008/save_picture_653316.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653285.jpg" />
+  <img src="Z:/picture/008/save_picture_653285.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652870.jpg" />
+  <img src="Z:/picture/008/save_picture_652870.jpg" />
 </div>
 
 
@@ -674,33 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6584B919DA404CE91EFB1173568329BB8DC33ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514678   (652853) от 28.06.2012
-
-Специалист | Курс 6422A Внедрение и поддержка Windows Server 2008 Hyper - V [2011] PCRec
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hyper-V — технология доступная в Windows Server 2008 R2, позволяет реализовать виртуализацию, то есть возможность одновременного запуска нескольких "гостевых" операционных систем.
-Внедрение виртуализации позволяет быстро и просто консолидировать существующие серверные нагрузки и сократить тем самым расходы на их поддержку. Виртуализация поможет решить проблему (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 06:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CCC238A0087C9B6A196FCFE277D54E350CCCB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

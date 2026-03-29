@@ -6,7 +6,7 @@ Mike Oldfield - 9 Albums Deluxe Edition (1973-1984) 2009-2016 / Mercury, Univers
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777772.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mariza - Mundo (2015) [FLAC|Lossless|tracks  + .cue] <Folk, World, Country, Fado
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776376.jpg" />
+  <img src="Z:/picture/008/save_picture_776376.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-p
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
+  <img src="Z:/picture/008/save_picture_769371.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classic
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768467.jpg" />
+  <img src="Z:/picture/008/save_picture_768467.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767036.jpg" />
+  <img src="Z:/picture/008/save_picture_767036.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Потанцуем (2002) 3 CD [FLAC|Lossless|tracks] <Instrumental, Dance>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732824.jpg" />
+  <img src="Z:/picture/008/save_picture_732824.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Loung
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722852.jpg" />
+  <img src="Z:/picture/008/save_picture_722852.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pepe & Celin Romero - Famous Spanish Dances (1982) [FLAC|Lossless|tracks + .cue]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720826.jpg" />
+  <img src="Z:/picture/008/save_picture_720826.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Vittorio Del Monaco - Histoires D'amour (1991) (2CD) [FLAC|Lossless|image + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718753.jpg" />
+  <img src="Z:/picture/008/save_picture_718753.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Diving Dreams - The Coral Sea (2005) [APE|Lossless|image + .cue] <New Age, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718734.jpg" />
+  <img src="Z:/picture/008/save_picture_718734.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718731.jpg" />
+  <img src="Z:/picture/008/save_picture_718731.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717091.jpg" />
+  <img src="Z:/picture/008/save_picture_717091.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714825.jpg" />
+  <img src="Z:/picture/008/save_picture_714825.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708949.jpg" />
+  <img src="Z:/picture/008/save_picture_708949.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jupiter Panic - Earth-like (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, So
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707843.jpg" />
+  <img src="Z:/picture/008/save_picture_707843.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Pasadena Roof Orchestra - Breakaway (1991) [FLAC|Lossless|image + .cue] <Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707521.jpg" />
+  <img src="Z:/picture/008/save_picture_707521.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Super Instrumental 25 (Vol. 23-25) (1996) [FLAC|Lossless|image, tracks + .c
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706993.jpg" />
+  <img src="Z:/picture/008/save_picture_706993.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696585.jpg" />
+  <img src="Z:/picture/008/save_picture_696585.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689100.jpg" />
+  <img src="Z:/picture/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677200.jpg" />
+  <img src="Z:/picture/005/save_picture_677200.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677062.jpg" />
+  <img src="Z:/picture/005/save_picture_677062.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676899.jpg" />
+  <img src="Z:/picture/005/save_picture_676899.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672202.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+  <img src="Z:/picture/005/save_picture_670651.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrument
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668470.jpg" />
+  <img src="Z:/picture/005/save_picture_668470.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667225.jpg" />
+  <img src="Z:/picture/005/save_picture_667225.jpg" />
 </div>
 
 

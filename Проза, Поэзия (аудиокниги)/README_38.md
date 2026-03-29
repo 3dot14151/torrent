@@ -1,3 +1,31 @@
+###  Публикация: 1023462   (722361) от 06.06.2016
+
+Владимир Маканин | Отставший (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон мучит старика — моего отца (мама умерла, отец одинок, и когда я приезжаю его проведать, он с подробностями рассказывает мне мучающий его сон. Если я не приезжаю, он звонит и рассказывает мне сон по телефону. То жалобно, то гневно).
+Помочь ему в его снах я не могу — это ясно. Но ведь могу слушать.
+Отец рассказывает, как он выбегает за ворота, натягивая на голову (   Читать дальше...   )Жанр: ПовестьПродолжительность: 04:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38F99FEE511F93E20EDFB5721A8B4D5D01C4F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023594   (721916) от 06.06.2016
 
 Халед Хоссейни | Бегущий за ветром (2015) [MP3]
@@ -6,7 +34,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721916.jpg" />
+  <img src="Z:/picture/008/save_picture_721916.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720955.jpg" />
+  <img src="Z:/picture/008/save_picture_720955.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720672.jpg" />
+  <img src="Z:/picture/008/save_picture_720672.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720650.jpg" />
+  <img src="Z:/picture/008/save_picture_720650.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720560.jpg" />
+  <img src="Z:/picture/008/save_picture_720560.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720539.jpg" />
+  <img src="Z:/picture/008/save_picture_720539.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720317.jpg" />
+  <img src="Z:/picture/008/save_picture_720317.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720175.jpg" />
+  <img src="Z:/picture/008/save_picture_720175.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720058.jpg" />
+  <img src="Z:/picture/008/save_picture_720058.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717103.jpg" />
+  <img src="Z:/picture/008/save_picture_717103.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717001.jpg" />
+  <img src="Z:/picture/005/save_picture_717001.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716941.jpg" />
+  <img src="Z:/picture/008/save_picture_716941.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716794.jpg" />
+  <img src="Z:/picture/008/save_picture_716794.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716656.jpg" />
+  <img src="Z:/picture/008/save_picture_716656.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716541.jpg" />
+  <img src="Z:/picture/008/save_picture_716541.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716512.jpg" />
+  <img src="Z:/picture/008/save_picture_716512.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716510.jpg" />
+  <img src="Z:/picture/008/save_picture_716510.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715188.jpg" />
+  <img src="Z:/picture/008/save_picture_715188.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714420.jpg" />
+  <img src="Z:/picture/008/save_picture_714420.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714135.jpg" />
+  <img src="Z:/picture/008/save_picture_714135.jpg" />
 </div>
 
 
@@ -535,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714021.jpg" />
+  <img src="Z:/picture/008/save_picture_714021.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713327.jpg" />
+  <img src="Z:/picture/008/save_picture_713327.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712710.jpg" />
+  <img src="Z:/picture/008/save_picture_712710.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712559.jpg" />
+  <img src="Z:/picture/008/save_picture_712559.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712434.jpg" />
+  <img src="Z:/picture/008/save_picture_712434.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ XII век. Эпоха крестовых походов… Мартин – в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DCD8A00875A366532BE67F81862538A04DD418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130764   (712364) от 03.05.2017
-
-Дина Рубина | Холодная весна в Провансе (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Рубина приехала в Израиль уже состоявшимся серьезным прозаиком. Именно трудности вхождения в новую реальность и связанное с этим одиночество человека там, где даже «камни сохранили величие», стали темами ее творчества на несколько лет... «Солнце склонялось к вечеру, когда он вышел из дома с мольбертом и ушел в поля. Там, прислонив мольберт к стогу сена, достал (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333A909333F77B15F39262932197C13F49444A57
 ```
 
 https://mybot314.ru/tekegram_catalog/

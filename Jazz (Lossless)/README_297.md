@@ -1,3 +1,132 @@
+###  Публикация: 1679688   (135357) от 26.11.2023
+
+Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions [4:38]
+02. Consciousness [11:56]
+03. Passata on Guitar [2:52]
+04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679491   (135262) от 26.11.2023
+
+Judy Garland - Classic Duets (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hear Music / The Sweetest Sounds / Strike Up The Band [00:03:27]
+02. Get Happy / Happy Days Are Here Again [00:02:27]
+03. Hooray For Love / After You've Gone / By Myself / So Wonderful / How About You? / Lover Come Back/ You And The Night And The Music /It All Depends On You [00:05:37]
+04. Let There Be Love / You're Nobody Till Somebody Loves You [00:02:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87F11436D8948B9449C8EFFEE9ABA498745AE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593100   (135217) от 23.12.2012
+
+Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_135217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Swear  [04:24]
+02. Every Breath You Take  [03:57]
+03. I'd Like to Teach the World to Sing  [02:56]
+04. Reality  [05:10]
+05. Especially for You  [04:03]
+06. Have I Told You Lately  [04:54]
+07. Memory  [04:42]
+08. Eternal Flame  [03:22]
+09. Somewhere Out There  [04:32]
+10. All I Ask of You  [04:25](   Читать дальше...   )Жанр: Jazz, Audiophile Female VoicesФормат: XRCD2Продолжительность: 01:00:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584034   (135201) от 23.12.2012
+
+Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossover Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_135201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квартет всех звёзд Fourplay образовался в 1991 году, после совместного участия музыкантов в записи альбома Боба Джеймса Grand Piano Canyon, и с тех пор всегда находился на вершине джазовых чатов, заработав репутацию “современной джазовой супергруппы из Америки”.
+На текущий момент в активе группы тринадцать студийных альбомов - двенадцать титульных и один сборник.Список альбомов:
+Fourplay (1991)
+Between The Sheets (1993)
+Elixir (1995)
+The Best Of Fourplay (1997)
+4 (1998)
+Snowbound (1999)
+Heartfelt (2002)
+Journey (2004)
+X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jazz, Jazz-PopПродолжительность: 12:46:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679961   (134989) от 27.11.2023
 
 VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +135,7 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134989.jpg" />
 </div>
 
 
@@ -35,7 +164,7 @@ VA - Soft Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134968.jpg" />
 </div>
 
 
@@ -64,7 +193,7 @@ VA - Just jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134957.jpg" />
 </div>
 
 
@@ -93,7 +222,7 @@ Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_134804.jpg" />
+  <img src="Z:/picture/005/save_picture_134804.jpg" />
 </div>
 
 
@@ -128,7 +257,7 @@ Arturo O'Farrill - Legacies (2023) Blue Note [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134633.jpg" />
 </div>
 
 
@@ -157,7 +286,7 @@ VA - New Year's Eve Jazz 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134571.jpg" />
 </div>
 
 
@@ -186,7 +315,7 @@ Gigi Gryce & Donald Byrd - Jazz Lab (1957) 2010, Jubilee [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134379.jpg" />
 </div>
 
 
@@ -215,7 +344,7 @@ Cal Tjader - Gozame! Pero Ya... (1980) 1987, Concord Picante [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134371.jpg" />
 </div>
 
 
@@ -244,7 +373,7 @@ Herb Ellis / Ray Brown Sextet - Hot Tracks (1976) 1990, Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134365.jpg" />
 </div>
 
 
@@ -273,7 +402,7 @@ Shakatak - Eyes of the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134275.jpg" />
 </div>
 
 
@@ -302,7 +431,7 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134227.jpg" />
 </div>
 
 
@@ -337,7 +466,7 @@ Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134209.jpg" />
 </div>
 
 
@@ -366,7 +495,7 @@ The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133979.jpg" />
 </div>
 
 
@@ -395,7 +524,7 @@ Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133974.jpg" />
 </div>
 
 
@@ -424,7 +553,7 @@ Paquito D'Rivera & Louie Ramirez - A Tribute To Cal Tjader (1986) 2004, Yemaya R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133970.jpg" />
 </div>
 
 
@@ -453,7 +582,7 @@ Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133750.jpg" />
 </div>
 
 
@@ -488,7 +617,7 @@ Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133722.jpg" />
 </div>
 
 
@@ -523,7 +652,7 @@ Dorothy Ashby - The Fantastic Jazz Harp of Dorothy Ashby (1965) 2016, Spellbound
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133544.jpg" />
 </div>
 
 
@@ -552,7 +681,7 @@ Count Basie - Basie's Beat (1965, 1967) 2020, Universal [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133541.jpg" />
 </div>
 
 
@@ -581,7 +710,7 @@ Herb Ellis - Man With The Guitar (1965) 2021, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133533.jpg" />
 </div>
 
 
@@ -610,7 +739,7 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133453.jpg" />
 </div>
 
 
@@ -639,7 +768,7 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133198.jpg" />
 </div>
 
 
@@ -659,128 +788,6 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681183   (133194) от 02.12.2023
-
-John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarum [6:43]
-02. Gateway [7:17]
-03. Soulscape [3:03]
-04. Magical Space [4:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EC856655BC387580D6AF929B28A4995ECD50D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594918   (133191) от 27.12.2012
-
-Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O Holy Night [01:48]
-02. It Came Upon A Midnight Clear [03:20]
-03. Hark! The Herald Angel Sings [01:49]
-04. Away In A Manger [02:13]
-05. Joy To The World [01:40]
-06. The First Noel [01:50]
-07. Silent Night [02:51]
-08. O Come All Ye Faithful [02:45]
-09. Sleep, My Little Jesus [02:17]
-10. Angels We Have Heard On High [01:46](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681184   (133181) от 02.12.2023
-
-VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Parker - Solitude (2:54)
-02. Stan Getz - Don't Worry 'Bout Me (2:37)
-03. Fats Navarro - Maternity (Lard Pot) (3:02)
-04. Allen Eager - Donald Jay (2:33)(   Читать дальше...   )Жанр: BopПродолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681120   (133095) от 02.12.2023
-
-Kenny G - Innocence (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acapella Lullaby (2:04)
-02. Rock-a-Bye Baby (3:25)
-03. A Mother’s Lullaby (3:17)
-04. Nocturne Op. 9 No. 2 (2:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C594527BD2964AA6C1389751E14EF75EECA647F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

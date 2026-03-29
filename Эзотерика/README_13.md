@@ -1,3 +1,29 @@
+###  Публикация: 1037372   (613248) от 24.07.2016
+
+Андрей Глазков | Одно дыхание. Медитация для занятых людей (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613248.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Умение правильно расслабляться и восстанавливаться – это великое мастерство, которое помогает отдыхать душой и телом и набираться сил. Работа, тренировки, бытовые хлопоты, даже общение – все это пусть незаметно, но утомляет, забирает энергию. Техника «Одно дыхание», разработанная Андреем Глазковым – специалистом по медитации, – создана для тех, кто не (   Читать дальше...   )Жанр: Эзотерика. МедитацияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4A0B71E96F00879F01FCFA2C0265D712277F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912207   (612513) от 25.06.2015
 
 Михаил Серяков | Одиссея варяжской Руси (2015) [DJVU]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612513.jpg" />
+  <img src="Z:/picture/008/save_picture_612513.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612509.jpg" />
+  <img src="Z:/picture/008/save_picture_612509.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610556.jpg" />
+  <img src="Z:/picture/008/save_picture_610556.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610075.jpg" />
+  <img src="Z:/picture/008/save_picture_610075.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609342.jpg" />
+  <img src="Z:/picture/008/save_picture_609342.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608778.jpg" />
+  <img src="Z:/picture/008/save_picture_608778.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608594.jpg" />
+  <img src="Z:/picture/008/save_picture_608594.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608580.jpg" />
+  <img src="Z:/picture/008/save_picture_608580.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608448.jpg" />
+  <img src="Z:/picture/008/save_picture_608448.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608238.jpg" />
+  <img src="Z:/picture/008/save_picture_608238.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608087.jpg" />
+  <img src="Z:/picture/008/save_picture_608087.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607791.jpg" />
+  <img src="Z:/picture/008/save_picture_607791.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607410.jpg" />
+  <img src="Z:/picture/008/save_picture_607410.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605127.jpg" />
+  <img src="Z:/picture/008/save_picture_605127.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604019.jpg" />
+  <img src="Z:/picture/008/save_picture_604019.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603067.jpg" />
+  <img src="Z:/picture/008/save_picture_603067.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601686.jpg" />
+  <img src="Z:/picture/008/save_picture_601686.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601588.jpg" />
+  <img src="Z:/picture/008/save_picture_601588.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601219.jpg" />
+  <img src="Z:/picture/008/save_picture_601219.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600876.jpg" />
+  <img src="Z:/picture/008/save_picture_600876.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600831.jpg" />
+  <img src="Z:/picture/008/save_picture_600831.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600271.jpg" />
+  <img src="Z:/picture/008/save_picture_600271.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600268.jpg" />
+  <img src="Z:/picture/008/save_picture_600268.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600079.jpg" />
+  <img src="Z:/picture/008/save_picture_600079.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599044.jpg" />
+  <img src="Z:/picture/008/save_picture_599044.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBABE3E179ADEF34A810720AE2E06D86704F3A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914585   (597886) от 02.07.2015
-
-Сан Лайт | Энергия мысли. Искусство созидательного мышления (2012) [FB2, EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597886.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены принципы и методы созидательного мышления, благодаря которым вы можете преобразить свою жизнь и быстро достичь поразительных результатов во всех своих начинаниях. Мысль – это огромная сила, с ее помощью созданы все окружающие вас богатства цивилизации. Управление мыслью принесет вам удачу, процветание и гармонию, а также позволит насладиться (   Читать дальше...   )Жанр: Руководства, Эзотерика, СамосовершенствованиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9197DBD3783A8FEB504B05AF39FEC7C4ED0571BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

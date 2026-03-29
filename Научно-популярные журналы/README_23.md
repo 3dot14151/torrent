@@ -1,3 +1,55 @@
+###  Публикация: 1153097   (561614) от 25.07.2017
+
+Журнал | Небосвод №8 (август 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Небосвод" расскажет Вам новости из мира астрономии. В журнале Вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будите в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE9FE2816177A528C5B4A19D1C9F62BCD3603D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044836   (561546) от 22.08.2016
+
+Журнал | Вестник НПО имени С.А. Лавочкина №3 (33) (2016) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561546.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вестник НПО имени С.А. Лавочкина» - ежеквартальный научно-технический журнал. Журнал является расширенным средством публикации решений научно-технических задач в области создания автоматических космических аппаратов, космических комплексов и систем, полученных учеными и специалистами, работающими в научно-исследовательских институтах и в промышленности, занимающихся (   Читать дальше...   )Жанр: Научно-технический журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A964574A777EA4C17731746049398F6EA8554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045294   (561263) от 22.08.2016
 
 Журнал | Техника - молодежи №7-8 (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561263.jpg" />
+  <img src="Z:/picture/008/save_picture_561263.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559986.jpg" />
+  <img src="Z:/picture/008/save_picture_559986.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556278.jpg" />
+  <img src="Z:/picture/008/save_picture_556278.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554409.jpg" />
+  <img src="Z:/picture/008/save_picture_554409.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552756.jpg" />
+  <img src="Z:/picture/008/save_picture_552756.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551843.jpg" />
+  <img src="Z:/picture/008/save_picture_551843.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549724.jpg" />
+  <img src="Z:/picture/008/save_picture_549724.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548409.jpg" />
+  <img src="Z:/picture/008/save_picture_548409.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548156.jpg" />
+  <img src="Z:/picture/008/save_picture_548156.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548083.jpg" />
+  <img src="Z:/picture/008/save_picture_548083.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547962.jpg" />
+  <img src="Z:/picture/008/save_picture_547962.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547923.jpg" />
+  <img src="Z:/picture/008/save_picture_547923.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547918.jpg" />
+  <img src="Z:/picture/008/save_picture_547918.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546378.jpg" />
+  <img src="Z:/picture/008/save_picture_546378.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545646.jpg" />
+  <img src="Z:/picture/008/save_picture_545646.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544676.jpg" />
+  <img src="Z:/picture/008/save_picture_544676.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542995.jpg" />
+  <img src="Z:/picture/008/save_picture_542995.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542659.jpg" />
+  <img src="Z:/picture/008/save_picture_542659.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541320.jpg" />
+  <img src="Z:/picture/008/save_picture_541320.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539168.jpg" />
+  <img src="Z:/picture/008/save_picture_539168.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538161.jpg" />
+  <img src="Z:/picture/008/save_picture_538161.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537078.jpg" />
+  <img src="Z:/picture/008/save_picture_537078.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536862.jpg" />
+  <img src="Z:/picture/008/save_picture_536862.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535083.jpg" />
+  <img src="Z:/picture/008/save_picture_535083.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ National Geographic - уникальный научно-популярный г�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4321CB7E21F42C75DB1171D69D275705B9B80A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926624   (533509) от 10.08.2015
-
-Журнал | Наука из первых рук №3 (63) (август 2015) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-популярный иллюстрированный журнал широкого профиля. Девизом журнала стали слова Леонардо да Винчи: «Естественное желание хороших людей – добывать знания», поэтому читательская аудитория практически не имеет ограничений, и журнал можно рекомендовать для семейного чтения. Авторы журнала – ведущие российские и зарубежные ученые. Тематика журнала охватывает практически (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E414EE0E88ABF3352E7BCDFABF4C92707672BD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155484   (533212) от 03.08.2017
-
-Журнал | Наука и жизнь №8 (август 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533212.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наука и жизнь" - ежемесячный научно-популярный иллюстрированный журнал широкого профиля. Издание ориентировано на массового читателя. Освещает важнейшие проблемы науки и техники, публикует научно-художественные и научно-фантастические произведения, занимательные задачи, игры. Главная цель: популяризация научных знаний.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74DBB44F26E43299CE5FFC9730176C406BFE8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1582536   (320972) от 10.10.2022
+
+Ты супер! (2022) WEBRip [H.264/1080p] (сезон 6, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый полуфинал международного вокального шоу «Ты супер!».
+Волнительный день для всех — в полуфинальных поединках ребят ждет испытание совсем другого уровня: все они подготовили сложные и невероятно красивые номера, настоящие концертные выступления с декорациями, балетом и спецэффектами — зажигательные и трогательные, пронзительные и гротескные, драйвовые и очень (   Читать дальше...   )Ты супер! Выпуск 6, 1-й полуфиналПроизводство: Россия | «ВайТ Медиа»Жанр: Тв шоу, музыкальный конкурсЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3312E367A961FB775C4719461B311A1AAA8E258B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259567   (318654) от 04.11.2018
+
+Танцы (2018.11.03) WEB-DLRip [H.264/720p-LQ] (сезон 5, выпуск 13)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый сезон станет самым необычным и интригующим - впервые в истории в нем будет сразу три наставника! Отбирать участников будут Мигель, Татьяна Денисова и вернувшийся в проект Егор Дружинин. Новый сезон соберет в себе все лучшее, что было в проекте, продолжит развивать танцевальную культуру, искать таланты по всей стране и показывать зрителям запредельные танцы! (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020C4FB32CE3455C62835C523CF4AF3655A2C553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182525   (316783) от 10.11.2017
 
 Голос (2017.11.10) HDTVRip (сезон 6, выпуск 11)
@@ -6,7 +59,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316783.jpg" />
+  <img src="Z:/picture/008/save_picture_316783.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316401.jpg" />
+  <img src="Z:/picture/008/save_picture_316401.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316264.jpg" />
+  <img src="Z:/picture/008/save_picture_316264.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314720.jpg" />
+  <img src="Z:/picture/008/save_picture_314720.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313992.jpg" />
+  <img src="Z:/picture/008/save_picture_313992.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313643.jpg" />
+  <img src="Z:/picture/008/save_picture_313643.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312739.jpg" />
+  <img src="Z:/picture/008/save_picture_312739.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312702.jpg" />
+  <img src="Z:/picture/008/save_picture_312702.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312467.jpg" />
+  <img src="Z:/picture/008/save_picture_312467.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312461.jpg" />
+  <img src="Z:/picture/008/save_picture_312461.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312194.jpg" />
+  <img src="Z:/picture/008/save_picture_312194.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311914.jpg" />
+  <img src="Z:/picture/008/save_picture_311914.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311735.jpg" />
+  <img src="Z:/picture/008/save_picture_311735.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311731.jpg" />
+  <img src="Z:/picture/008/save_picture_311731.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311379.jpg" />
+  <img src="Z:/picture/008/save_picture_311379.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311373.jpg" />
+  <img src="Z:/picture/008/save_picture_311373.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310438.jpg" />
+  <img src="Z:/picture/008/save_picture_310438.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310066.jpg" />
+  <img src="Z:/picture/008/save_picture_310066.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309632.jpg" />
+  <img src="Z:/picture/008/save_picture_309632.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309447.jpg" />
+  <img src="Z:/picture/008/save_picture_309447.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309067.jpg" />
+  <img src="Z:/picture/008/save_picture_309067.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308882.jpg" />
+  <img src="Z:/picture/008/save_picture_308882.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308729.jpg" />
+  <img src="Z:/picture/008/save_picture_308729.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308718.jpg" />
+  <img src="Z:/picture/008/save_picture_308718.jpg" />
 </div>
 
 
@@ -616,63 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F17C94756B66FC857EF81F5ABD2A2A381CC656A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422515   (308684) от 09.11.2020
-
-Ты супер! (08.11.2020) WEBRip [H.264/1080p-LQ] (сезон 4, выпуск 8)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308684.jpg" />
-</div>
-
-
-###  Подробнее
-
-На НТВ стартовал четвертый сезон международного вокального конкурса «Ты супер!» для детей, оставшихся без попечения родителей. Талантливые ребята со сложной судьбой выходят на большую сцену, чтобы проявить себя и заявить о себе на весь мир.
-Все участники проекта «Ты супер!» — уникальные, талантливые, яркие, красивые — настоящие маленькие звездочки, чьи истории трогают (   Читать дальше...   )00:00:00 «Ты супер!». Четвертый сезон. Третий полуфинал
-00:08:28 «Самая лучшая» — Арина Машарова, 11 лет, Удмуртия
-00:19:03 «Опера №2» — Антон Пирогов, 13 лет, г. Москва
-00:22:24 Участники прошлых сезонов «Ты супер!» Евгений Бойцов и Настя Субботина пришли поддержать Антона из Москвы(   Читать дальше...   )Производство: Россия | «НТВ»Жанр: Тв шоу, музыкаСубтитры: ОтсутствуютПродолжительность: 01:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE8EFF5DDDEE362F2013262986162917DBA9CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960565   (307831) от 28.11.2015
-
-Главная сцена. Сезон 2. Выпуск 10 (2015.11.28) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307831.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главная сцена" – это крупнейшая музыкальная академия, цель которой – поиск современных талантливых артистов, способных стать новыми звездами российской эстрады.
-В новом сезоне задача для конкурсантов усложняется: участники проекта будут исполнять песни только на русском языке, с первого выхода они должны доказать, что готовы стать настоящей звездой российской (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97397EDA4FF20A1D6DF0DA7B2468532D051942C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Pale Moon 28.12.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721067.jpg" />
+  <img src="Z:/picture/008/save_picture_721067.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VueScan Pro 9.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721061.jpg" />
+  <img src="Z:/picture/008/save_picture_721061.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe XD 31.2.12.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721057.jpg" />
+  <img src="Z:/picture/008/save_picture_721057.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Serif Affinity Photo 1.8.4.693 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721056.jpg" />
+  <img src="Z:/picture/008/save_picture_721056.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ OCCT 6.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721055.jpg" />
+  <img src="Z:/picture/008/save_picture_721055.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Blackmagic Design Fusion Studio 16.2 (build 22) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721053.jpg" />
+  <img src="Z:/picture/008/save_picture_721053.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kaspersky Lab Products Remover 1.0.1309 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721048.jpg" />
+  <img src="Z:/picture/008/save_picture_721048.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adguard 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721046.jpg" />
+  <img src="Z:/picture/008/save_picture_721046.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Compressor 4.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721043.jpg" />
+  <img src="Z:/picture/008/save_picture_721043.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721042.jpg" />
+  <img src="Z:/picture/008/save_picture_721042.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721029.jpg" />
+  <img src="Z:/picture/008/save_picture_721029.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721028.jpg" />
+  <img src="Z:/picture/005/save_picture_721028.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ WinUtilities Pro 15.48 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720952.jpg" />
+  <img src="Z:/picture/008/save_picture_720952.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ GoodSync Enterprise 10.9.25.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720950.jpg" />
+  <img src="Z:/picture/008/save_picture_720950.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Scapple 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720949.jpg" />
+  <img src="Z:/picture/008/save_picture_720949.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Autorun Organizer 3.08 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720942.jpg" />
+  <img src="Z:/picture/008/save_picture_720942.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Charles Web Debugging Proxy 4.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720938.jpg" />
+  <img src="Z:/picture/008/save_picture_720938.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Skype 8.63.0.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720935.jpg" />
+  <img src="Z:/picture/008/save_picture_720935.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Reg Organizer 8.50 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720933.jpg" />
+  <img src="Z:/picture/008/save_picture_720933.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720898.jpg" />
+  <img src="Z:/picture/008/save_picture_720898.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Paste 2.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720867.jpg" />
+  <img src="Z:/picture/008/save_picture_720867.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Movavi Screen Recorder 10.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720866.jpg" />
+  <img src="Z:/picture/008/save_picture_720866.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Skype 8.40.0.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720860.jpg" />
+  <img src="Z:/picture/008/save_picture_720860.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720857.jpg" />
+  <img src="Z:/picture/008/save_picture_720857.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Opera 58.0.3135.79 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720856.jpg" />
+  <img src="Z:/picture/008/save_picture_720856.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Light Image Resizer 5.1.4.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720851.jpg" />
+  <img src="Z:/picture/008/save_picture_720851.jpg" />
 </div>
 
 

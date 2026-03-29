@@ -1,3 +1,82 @@
+###  Публикация: 1200505   (792659) от 24.01.2018
+
+Великолепный / Le magnifique (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Мерлен — писатель криминальных рассказов. С точностью часового механизма он каждый месяц пишет новый роман для своего редактора Шаррона. Каждая история рассказывает об одном и том же герое — Бобе Сен-Клере, влиятельном и лихом секретном агенте.Производство: Франция, Италия / Cerito Films, Les Films Ariane, Mondex FilmsЖанр: Комедия, Мелодрама, БоевикРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Жаклин Биссет, Витторио Каприоли, Ганс Мейер, Моник Тарбес, Марио Давид, Бруно Гарсен, Раймон Жером, Жан ЛефеврПеревод: Дублированный (СССР, "Ленфильм", на вырезанные советским кинопрокатом фрагменты - профессиональный двуголосый, закадровый)Субтитры: Русский, Французский, Английский, ЧешскийПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD125E94460A996D3B6FEF08B40BEFE9A1A94F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122689   (792374) от 07.04.2017
+
+Хладнокровный Люк / Cool Hand Luke (1967) HDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды ночью Люк, выпив, решил развлечься и свинтил газовым ключом дюжину монетоприемников на автостоянке, за что и получил два года ремонтно-строительных работ на дорогах в южных штатах.
+За свой упрямый и упорный характер Люк получил от сокамерников уважительное прозвище Люк Хладнокровный, а с ним и ненависть надзирателей лагеря за стремление к свободе и непокорный (   Читать дальше...   )Производство: СШАЖанр: Драма, криминал, экранизацияРежиссер: Стюарт РозенбергАктеры: Пол Ньюман, Джордж Кеннеди, Дж.Д. Кэннон, Лу Антонио, Роберт Дривас, Стразер Мартин, Джо Ван Флит, Клифтон Джеймс, Морган Вудворд, Люк Аскью ...Перевод: Профессиональный двуголосый (CP Digital)Субтитры: Русские, английскиеПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3BFE5897BE45748AA6637A1121C716503F3F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131349   (792299) от 31.05.2020
+
+Однажды на Диком Западе / C'era una volta il West (1968) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая вдова отказывается продать ферму дельцу, задумавшему проложить по этой земле железную дорогу, и тогда он заказывает ее убийство, нанимая лучшего на Диком Западе стрелка. На защиту красавицы встают известный бандит Шайен и таинственный бродяга. Трое сильных мужчин сойдутся в смертельном хороводе, выхода из которого может и не быть.Производство: Италия, США / Finanzia San Marco, Paramount Pictures, Rafran CinematograficaЖанр: Драма, ВестернРежиссер: Серджио ЛеонеАктеры: Чарльз Бронсон, Клаудия Кардинале, Генри Фонда, Джейсон Робардс, Габриэле Ферцетти, Паоло Стоппа, Вуди Строуд, Джек Элам, Кинен Уинн, Фрэнк ВулфПеревод: Многоголосый, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 02:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AF69F0991C34DFE19DA69241C2C24215B82D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510104   (792089) от 15.11.2021
 
 Человек из Колорадо / The Man from Colorado (1948) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792089.jpg" />
+  <img src="Z:/picture/008/save_picture_792089.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791988.jpg" />
+  <img src="Z:/picture/008/save_picture_791988.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791609.jpg" />
+  <img src="Z:/picture/008/save_picture_791609.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791422.jpg" />
+  <img src="Z:/picture/008/save_picture_791422.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791183.jpg" />
+  <img src="Z:/picture/008/save_picture_791183.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790797.jpg" />
+  <img src="Z:/picture/008/save_picture_790797.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790579.jpg" />
+  <img src="Z:/picture/008/save_picture_790579.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790326.jpg" />
+  <img src="Z:/picture/008/save_picture_790326.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790305.jpg" />
+  <img src="Z:/picture/008/save_picture_790305.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789883.jpg" />
+  <img src="Z:/picture/008/save_picture_789883.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789831.jpg" />
+  <img src="Z:/picture/008/save_picture_789831.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789644.jpg" />
+  <img src="Z:/picture/008/save_picture_789644.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789496.jpg" />
+  <img src="Z:/picture/008/save_picture_789496.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789246.jpg" />
+  <img src="Z:/picture/008/save_picture_789246.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789152.jpg" />
+  <img src="Z:/picture/008/save_picture_789152.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789019.jpg" />
+  <img src="Z:/picture/008/save_picture_789019.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788631.jpg" />
+  <img src="Z:/picture/008/save_picture_788631.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788289.jpg" />
+  <img src="Z:/picture/008/save_picture_788289.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788126.jpg" />
+  <img src="Z:/picture/008/save_picture_788126.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788070.jpg" />
+  <img src="Z:/picture/008/save_picture_788070.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786314.jpg" />
+  <img src="Z:/picture/008/save_picture_786314.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785860.jpg" />
+  <img src="Z:/picture/008/save_picture_785860.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785570.jpg" />
+  <img src="Z:/picture/008/save_picture_785570.jpg" />
 </div>
 
 
@@ -591,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B2E416BB663D33C54F5BC14C58533DCC89C345A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202971   (784871) от 05.02.2018
-
-Веские доказательства / Les bonnes causes (1963) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по одноименному роману Жана Лаборда.
-Интрига этой истории закручена вокруг загадочной смерти и завещания Поля Дюпре. Загадки следуют одна за другой: месье Дюпре умирает после укола, сделанного его любовницей — медсестрой Джиной Бианки (Вирна Лизи), в пользу которой он переписал завещание, тем самым лишив наследства жену — мадам Дюпре (Марина Влади). Жена (   Читать дальше...   )Производство: Франция, Италия / Flora Film S.r.l., Méditerrannée Cinéma Production, Mizar FilmsЖанр: Детектив, ДрамаРежиссер: Кристиан-ЖакАктеры: Марина Влади, Бурвиль, Вирна Лизи, Пьер Брассёр, Умберто Орсини, Мони Дальмес, Жак Моно, Яков Мойклэр, Жан-Луп Филипп, Робер ВидалинПеревод: Дублированный, МногоголосыйСубтитры: отсутствуютПродолжительность: 01:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D430C73FE002724A95E7D9486F34316CE770178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204112   (784869) от 05.02.2018
-
-Война Спутников / War of the Satellites (1958) WEB-DLRIP [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не долго радовалось человечество успеху космических полетов. Неведомый барьер разрушает все спутники землян. Вскоре приходит ультиматум от властителей туманности Гана, в котором говорится, что Земля взята в карантин силовым полем, что бы не допустить выход людей за пределы родной планеты. Ответным ходом ООН, стал проект Сигма, разработанный доктором Ван Пандером...Производство: Allied Artists Pictures, Santa Cruz Productions Inc, СШАЖанр: ФантастикаРежиссер: Роджер КорманАктеры: Дик Миллер, Сюсан Кэбот, Ричард Дивон, Эрик Синклер, Роберт ШейнПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BD57653661B4254B587539100F9A9DC04C17EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380903   (784698) от 09.06.2020
-
-Гамбит / Gambit (1966) DVDRip [H.264]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Дин планирует совершить ограбление века, но его план будет неосуществим без участия европейской интриганки и красавицы Николь. Причем для выполнения преступного замысла Дину нужна именно красота Николь и ее способность к перевоплощениям. Объект кражи очень необычен - это бесценный, хорошо охраняемый музейный раритет. Сообщникам придется очень постараться, чтобы (   Читать дальше...   )Производство: США / Universal PicturesЖанр: триллер, комедия, криминалРежиссер: Рональд НимАктеры: Ширли МакЛэйн, Майкл Кейн, Херберт Лом, Роджер С. Кармел, Арнольд Мосс, Джон Эбботт, Ричард Ангарола, Морис Марсак, Джо Абдулла, Томми АндреПеревод: Многоголосый профессиональный (R5)Субтитры: ОтсутствуютПродолжительность: 01:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4CC3A845C3669D31046E25D0177AF561674A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

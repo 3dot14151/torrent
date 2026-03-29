@@ -1,3 +1,116 @@
+###  Публикация: 1042157   (580580) от 11.08.2016
+
+PhotoMill X (aka Reformator) 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580580.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMill X  – групповая обработка фотографий
+PhotoMill X (aka Reformator) помогает Вам преобразовать большую часть изображений в самые популярные форматы изображения, дать Вашим файлам значащие имена, сделать ватермарку с текстом и изображением, изменить цвет фотографии (яркость/насыщенность/и т.д.)., изменить параметры геометрии (масштаб/кадрирование/и т.д.).
+
+Удалите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: Gwinno Software IncПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E127032ED209A892AEBAAE9AF82FE5A6D4F496A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041695   (580520) от 11.08.2016
+
+Contexts 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Contexts - это радикально быстрее и проще переключение окон.  Contexts очень простое в использовании приложение, которое обеспечивает быстрый доступ к окну из панели в стиле Dock. Утилита работает с несколькими мониторами, показывает счетчики на значках, имеет ярлыки для переупорядочивания групп и окон и др.
+
+Приложение Contexts предоставляет 4 различных способа переключения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 августа 2016Разработчик: Usman KhalidПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CF30589B17BF84DFC10F7D47E9965ACD947EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042007   (580393) от 11.08.2016
+
+1Password 6.3.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
+
+Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: AgileBits Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD49CC2C7A4FC3E2803274EAF7A0E490FE72291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302559   (580366) от 16.05.2019
+
+Deckset 2.0 v2.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поистине если человеку лень что-либо делать, он готов сделать все что угодно, чтобы не делать то, что ему не хочется делать. Яркий пример — программа Deckset, которая позволяет создавать симпатичные презентации… на основе простого текста.
+
+Если вы знакомы с языком разметки Markdown, то суть работы в Deckset вам будет понятна. То есть вы просто составляете текстовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2019Разработчик: Unsigned Integer UGПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ABE3617B3A80FA0E7B0331DA6F9BF3AA7E8F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302364   (580318) от 16.05.2019
 
 Amadine 1.0.0 [Multi/Ru]
@@ -6,7 +119,7 @@ Amadine 1.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580318.jpg" />
+  <img src="Z:/picture/008/save_picture_580318.jpg" />
 </div>
 
 
@@ -34,7 +147,7 @@ Focus Professional 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580310.jpg" />
+  <img src="Z:/picture/008/save_picture_580310.jpg" />
 </div>
 
 
@@ -62,7 +175,7 @@ Permute 3 v3.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580307.jpg" />
+  <img src="Z:/picture/008/save_picture_580307.jpg" />
 </div>
 
 
@@ -88,7 +201,7 @@ Image2icon v2.9.2 Pro [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580304.jpg" />
+  <img src="Z:/picture/008/save_picture_580304.jpg" />
 </div>
 
 
@@ -117,7 +230,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580163.jpg" />
+  <img src="Z:/picture/008/save_picture_580163.jpg" />
 </div>
 
 
@@ -143,7 +256,7 @@ Fantastical 2 v2.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579987.jpg" />
+  <img src="Z:/picture/008/save_picture_579987.jpg" />
 </div>
 
 
@@ -172,7 +285,7 @@ AirServer 7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579958.jpg" />
+  <img src="Z:/picture/008/save_picture_579958.jpg" />
 </div>
 
 
@@ -198,7 +311,7 @@ xScope 4.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579811.jpg" />
+  <img src="Z:/picture/008/save_picture_579811.jpg" />
 </div>
 
 
@@ -225,7 +338,7 @@ Cookie 5.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579607.jpg" />
+  <img src="Z:/picture/008/save_picture_579607.jpg" />
 </div>
 
 
@@ -254,7 +367,7 @@ Paws for Trello 1.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579595.jpg" />
+  <img src="Z:/picture/008/save_picture_579595.jpg" />
 </div>
 
 
@@ -283,7 +396,7 @@ Roadmap Planner - Strategic Planner, Product Ideas Accounting 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579536.jpg" />
+  <img src="Z:/picture/008/save_picture_579536.jpg" />
 </div>
 
 
@@ -311,7 +424,7 @@ Tidy Up 4.1.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579535.jpg" />
+  <img src="Z:/picture/008/save_picture_579535.jpg" />
 </div>
 
 
@@ -339,7 +452,7 @@ Polarr Photo Editor 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579530.jpg" />
+  <img src="Z:/picture/008/save_picture_579530.jpg" />
 </div>
 
 
@@ -368,7 +481,7 @@ VueScan Pro 9.5.54 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579419.jpg" />
+  <img src="Z:/picture/008/save_picture_579419.jpg" />
 </div>
 
 
@@ -394,7 +507,7 @@ MacFamilyTree 8.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579408.jpg" />
+  <img src="Z:/picture/008/save_picture_579408.jpg" />
 </div>
 
 
@@ -423,7 +536,7 @@ Corel Painter 2017 (16.0.0.400) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579241.jpg" />
+  <img src="Z:/picture/008/save_picture_579241.jpg" />
 </div>
 
 
@@ -450,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579191.jpg" />
+  <img src="Z:/picture/008/save_picture_579191.jpg" />
 </div>
 
 
@@ -477,7 +590,7 @@ ExpanDrive 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579000.jpg" />
+  <img src="Z:/picture/008/save_picture_579000.jpg" />
 </div>
 
 
@@ -506,7 +619,7 @@ Beamer 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578746.jpg" />
+  <img src="Z:/picture/008/save_picture_578746.jpg" />
 </div>
 
 
@@ -534,7 +647,7 @@ Poedit Pro 1.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578600.jpg" />
+  <img src="Z:/picture/008/save_picture_578600.jpg" />
 </div>
 
 
@@ -561,7 +674,7 @@ Sip Pro 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578402.jpg" />
+  <img src="Z:/picture/008/save_picture_578402.jpg" />
 </div>
 
 
@@ -589,7 +702,7 @@ Hydra 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578392.jpg" />
+  <img src="Z:/picture/008/save_picture_578392.jpg" />
 </div>
 
 
@@ -600,118 +713,6 @@ Hydra предлагает инновационную технологию фо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F05D16894D6338BA0C74B6C115BCC0BF04ACBE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042692   (578208) от 13.08.2016
-
-iFlicks 2 v2.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks 2! Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
-
-iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29.07.2016Разработчик: Jendrik BertramПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644CC54D3982BDA4FAA27096E1D112262FAF85EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042725   (578199) от 13.08.2016
-
-FruitJuice - Active Battery Health and Monitoring 2.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578199.jpg" />
-</div>
-
-
-###  Подробнее
-
-FruitJuice - правильный уход за батареей MacBook
-FruitJuice - приложение тесно интегрированное с онлайн сервисом, которые совместно помогут максимизировать жизненный цикл батарем вашего Macbook и максимально эффективно увеличить время автономной работы, в точном соответствии с рекомендациями компании Apple . Приложение отслеживает состояние батареи в режиме реального (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11.08.2016Разработчик: The Battery Project, LLCПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD7DE4E23CEF5042E838388553DBD6AEC447370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042653   (578197) от 13.08.2016
-
-Spy Cam 3.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежная система видео наблюдения для вашего Mac.
-Spy Cam превращает ваш Mac в систему наблюдения которая записывает видео ролики со звуком. Вы можете сохранять клипы, чтобы просмотреть их позже, либо автоматически загрузить их на Dropbox, чтобы посмотреть что происходит удаленно!
-
-Spy Cam простое в использование приложение, которое использует встроенные в ваш Mac (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20.07.2016Разработчик: ZipZapMacПоддерживаемая ОС: OS X 10.7 и вышеЯзык интерфейса: Русский, английский, итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0958DA47EEAA7957CE87AA9005897CF407A22A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233694   (578181) от 01.07.2018
-
-1Password 7.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password– менеджер паролей и прочих важных данных. Программа может хранить данные кредитных карт, пароли, секретные тексты, умеет автоматически заполнять вебформы и интегрироваться в большое число браузеров.
-
-Программа автоматически сохраняет все пароли, которые вы вводите в браузере при посещении различных сервисов (каждый раз, естественно, спрашивая у вас разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AgileBits Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085A4F39370C96C0A6C7CEB38243EBEE4AD9D636
 ```
 
 https://mybot314.ru/tekegram_catalog/

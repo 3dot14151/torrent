@@ -1,3 +1,137 @@
+###  Публикация: 1036756   (613569) от 24.07.2016
+
+Ларри Гастингс | Убирая ГБИ из Питона: Гилектомия (2016) HDTV
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613569.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сколько реально избавиться от ГБИ (GIL) в Питоне, чего это будет стоить и как это можно сделать. Обо всём этом, а также о проекте «Гилектомия» в подробностях рассказывает один из разработчиков интерпретатора CPython.Жанр: ПрограммированиеПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036749   (613565) от 24.07.2016
+
+Дэвид Бизли | Познавая ГБИ Питона (2010) WEBRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613565.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГБИ — глобальная блокировка интерпретатора Питона (GIL) — популярная тема для разговоров разработчиков, интересующихся нитями и конкурентностью. И хотя многие знают, что ГБИ ограничивает возможность использования нескольких ядер, далеко не каждый осведомлён о деталях её внутренней реализации.
+
+Выступление приоткроет перед вами внутреннее устройство ГБИ. В меню: детали (   Читать дальше...   )Жанр: Программирование, pythonПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0729B003F3276E5497AFDAC1801317634F13A1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 236110   (611935) от 14.06.2018
+
+google | Сборник видеоуроков по Python [2006-2008] [EN] CamRip+PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611935.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релиз входят двухдневный курс по Python автора Nick Parlante для сотрудников google и отдельные видеоуроки разных авторов для Google Code University. Уроки предназначены тем, кто немного умеет программировать на каком-либо языке. Для освоения предлагаемого материала достаточно знать, что такое "переменная" или "if операция" и нет необходимости (   Читать дальше...   )Жанр: PythonПродолжительность: 19:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48993A4D52C861318B8BFD98AC7862752546CD58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492248   (611291) от 14.07.2014
+
+Специалист | Linux (Ubuntu). Уровень 2. Программирование в Linux на C/C++ [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционная система Linux давно занимает лидирующие позиции в программном обеспечении суперкомпьютеров, она занимает второе место в сегменте интернет-серверов и стремительно набирает популярность в корпоративном сегменте. Этому способствуют главные преимущества Linux по сравнению с коммерческими операционными системами — высокая экономическая эффективность, мобильность, (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 16:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA5C073C0B095F9B65EF57470D51C96ADD23C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146639   (610995) от 01.07.2017
+
+Азамат Ушанов | Мастерская видео-продажников (2010) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеокурс «Мастерская видео-продажников» шаг за шагом покажет Вам, как создавать видео-продажники для Ваших сайтов за 24 часа, которые будут так же результативны, как и продающие тексты, написанные профессиональными копирайтерами.
+
+В курсе есть абсолютно все, чтобы легко и спокойно создать потрясающее коммерческое предложение в видео-формате для Вашего веб-сайта, (   Читать дальше...   )Производство: РоссияЖанр: ОбучающееПродолжительность: 2:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A111D172483C9078752C15A9A44DA973E6E44C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296714   (609801) от 18.04.2019
 
 Udemy | Фундаментальный курс по основам C# .NET (2018) PCRec [H.264/720p-LQ]
@@ -6,7 +140,7 @@ Udemy | Фундаментальный курс по основам C# .NET (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609801.jpg" />
+  <img src="Z:/picture/008/save_picture_609801.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608180.jpg" />
+  <img src="Z:/picture/008/save_picture_608180.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Udemy | Игры со спрайтами на C# (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608058.jpg" />
+  <img src="Z:/picture/008/save_picture_608058.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607272.jpg" />
+  <img src="Z:/picture/008/save_picture_607272.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ Lynda.com | Использование регулярных выражений (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607261.jpg" />
+  <img src="Z:/picture/008/save_picture_607261.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607182.jpg" />
+  <img src="Z:/picture/008/save_picture_607182.jpg" />
 </div>
 
 
@@ -169,7 +303,7 @@ Udemy | Java. Клиент-серверное приложение. Многоп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605997.jpg" />
+  <img src="Z:/picture/008/save_picture_605997.jpg" />
 </div>
 
 
@@ -195,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605041.jpg" />
+  <img src="Z:/picture/008/save_picture_605041.jpg" />
 </div>
 
 
@@ -221,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604622.jpg" />
+  <img src="Z:/picture/008/save_picture_604622.jpg" />
 </div>
 
 
@@ -248,7 +382,7 @@ Udemy, Serhii K | Practical OpenGL and GLSL shaders fundamentals with C++ (2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604240.jpg" />
+  <img src="Z:/picture/008/save_picture_604240.jpg" />
 </div>
 
 
@@ -276,7 +410,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599251.jpg" />
+  <img src="Z:/picture/008/save_picture_599251.jpg" />
 </div>
 
 
@@ -302,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597295.jpg" />
+  <img src="Z:/picture/008/save_picture_597295.jpg" />
 </div>
 
 
@@ -331,7 +465,7 @@ Javascript.Ninja | Базовый React (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593589.jpg" />
+  <img src="Z:/picture/008/save_picture_593589.jpg" />
 </div>
 
 
@@ -357,7 +491,7 @@ Udemy, Михаил Непомнящий | Компетенция Верстал
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593099.jpg" />
+  <img src="Z:/picture/008/save_picture_593099.jpg" />
 </div>
 
 
@@ -383,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592823.jpg" />
+  <img src="Z:/picture/008/save_picture_592823.jpg" />
 </div>
 
 
@@ -409,7 +543,7 @@ Udemy, YouRa Allakhverdov | Современный JavaScript - с Нуля до
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592719.jpg" />
+  <img src="Z:/picture/008/save_picture_592719.jpg" />
 </div>
 
 
@@ -438,7 +572,7 @@ Udemy, Basar Buyukkahraman | Spring Boot and React with Test Driven Development 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592566.jpg" />
+  <img src="Z:/picture/008/save_picture_592566.jpg" />
 </div>
 
 
@@ -464,7 +598,7 @@ Udemy, Михаил Непомнящий | Redux для управления с�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592555.jpg" />
+  <img src="Z:/picture/008/save_picture_592555.jpg" />
 </div>
 
 
@@ -491,7 +625,7 @@ Udemy, Михаил Непомнящий | React с нуля для начина
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592551.jpg" />
+  <img src="Z:/picture/008/save_picture_592551.jpg" />
 </div>
 
 
@@ -517,7 +651,7 @@ Udemy, Alex Marshal | Автоматизация тестирования Java +
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592550.jpg" />
+  <img src="Z:/picture/008/save_picture_592550.jpg" />
 </div>
 
 
@@ -544,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592167.jpg" />
+  <img src="Z:/picture/008/save_picture_592167.jpg" />
 </div>
 
 
@@ -558,140 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:938E09494BB1E74B6D8472046D0AFCF40E2BA1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550499   (592027) от 11.05.2022
-
-Udemy, Oleksandr Kocherhin | Практический курс по Lodash (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592027.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы научимся писать на Javascript используя популярную библиотеку для транформации данных - Lodash. Javascript не имеет достаточно функций и не все из них гибкие, чтобы покрыть все наши потребности, поэтому нам необходим Lodash, чтобы писать эффективный и кроссбраузерный код. Весь код будет написан с помощью небольших чистых функций, которые легко поддерживать, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 04:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385D55CA38A5B9AE075FFDAB2F4D19A9D289C84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550687   (591505) от 12.05.2022
-
-Udemy, Bogdan Stashchuk | The World of Computer Networking. Your CCNA starts here (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591505.jpg" />
-</div>
-
-
-###  Подробнее
-
-У меня есть сертификат CCIE (Cisco Certified Internetwork Expert), который является самым узнаваемым сертификатом компьютерных сетей в мире, и я много знаю о компьютерных сетях. В этом курсе я делюсь своими знаниями о КЛЮЧЕВЫХ и САМЫХ ВАЖНЫХ функциях компьютерных сетей. Нет устаревшей информации! Также я лично обучил сотни студентов на занятиях, потому что в течение (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 14:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495AED4DDD97DF882FA73EDC9FCFDF4BDB302A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916028   (591255) от 07.07.2015
-
-Geekbrains | Серьезный PHP (2014) PCRec [H.264]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591255.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы ощутите могущество PHP и узнаете, как с его помощью решать большой круг серьезных задач. Данный набор уроков рекомендуется к изучению всем начинающим (Junior) PHP-программистам, которые хотят поднять свой класс как минимум до уровня Middle. Общая длительность материалов курса - около 20 часов.Жанр: Программирование, PHPПродолжительность: 20:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D7C7F26B20B85A35A447D26B32A95BB94A7EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551007   (591052) от 13.05.2022
-
-Udemy, Nick Sereda | Разработка приложений с Flutter 2.0 и Dart для IOS и Android (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в на курс по созданию мобильных приложений с Flutter и Dart.
-Flutter - это новый framework от Google по кросс-платформенной разработке мобильных приложений (т.е. для IOS и Android), что означает что разработчики создают приложения для Android и iOS с помощью одной кодовой базы! Это означает, что вместо того, чтобы изучать Objective-C или Swift для (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 15:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0598BC5740A73F2C35C5BEBE94736E1CA03CB2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916255   (590794) от 08.07.2015
-
-Учебный центр 1C | Разработка мобильных приложений в системе 1С Предприятие 8.3 (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цели и задачи курса:
-
-    сформировать представление о возможностях и назначении мобильной платформы "1С:Предприятие 8";
-    освоить приемы разработки мобильных приложений с использованием "1С:Предприятие 8";(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 25:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B8BFF14676ED49C0E07C29FC8A8BD821BC07E
 ```
 
 https://mybot314.ru/tekegram_catalog/

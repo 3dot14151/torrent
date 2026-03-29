@@ -1,3 +1,107 @@
+###  Публикация: 1100210   (837849) от 11.03.2017
+
+Африканские охотники / Africa's Hunters. (2017) HDTVRip [H.264/1080p] (1 сезон, серия 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикая природа, которая заставляет своих детищ сражаться за выживание, используя самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутанная. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Телекомпания: National Geographic ChannelЖанр: Документальный, фаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A515459263D14A89518297FDD01E18F467369073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379669   (837382) от 30.04.2020
+
+BBC. Тайный командующий. Военный стратег Ирана / Shadow Commander: Iran’s Military Mastermind (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иранский военачальник, командир элитного подразделения иранской армии, Касем Сулеймани, сейчас находится на пике своего могущества – его почитают на Востоке, его боятся на Западе. На протяжении 20-ти лет он играл ключевую роль в самых значимых событиях на Ближнем Востоке. Этот фильм посвящен его личной истории – истории превращения юноши из рабочего класса в главного (   Читать дальше...   )Производство: Великобритания, BBC TwoЖанр: Документальный, расследование, историяРежиссер: Саша Джоэль АхиллиПеревод: Двуголосый закадровый, профессиональный (BBC News Русская служба)Субтитры: отсутствуютПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58253218C936D19E518CA7CBA9A285F7EE56EAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233169   (836690) от 02.04.2014
+
+BBC: Мир природы: Львы пустыни / Natural World: Desert Lions (2007) DVDRip [113 серия]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Намиб - древнейшая пустыня на земле. Безжалостная и непрощающая, постичь её нелегко. Изменчивые воды Берега скелетов закрывают доступ к пустыне по всей её длине. Неудивительно, что Намиб так хорошо хранит свои секреты. Когда-то здесь жили львы. Однако они были подобны призракам, их редко кто видел. Потом, более двадцати лет назад, они куда-то исчезли. И сегодня один (   Читать дальше...   )Жанр: ДокументальныйПеревод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310144   (835759) от 19.03.2011
+
+DV: Из истории великих научных открытий / Great Moments in Science and Technology (Meilensteine der Naturwissenschaft und Technik) (1992) SATRip [21-30 выпуски]
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835759.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сериале “Из истории великих научных открытий» зрители узнают о научной и политической подоплеке некоторых великих изобретений и открытий. В интригующей передаче «Из истории великих научных открытий» вы изнутри увидите научный и социально-политический фундамент наиболее удивительных мировых изобретений и открытий. При помощи компьютерной анимации, драматических постановок и впечатляющих исторических документов, воплощены в жизнь и объяснены истории пионеров науки, их методов и предметов исследований: от первых шагов в поле исследования, их дальнейшего развития и до сегодняшнего дня. Узнайте или познакомьтесь заново с изобретениями, открытиями и учеными, которые заложили фундамент науки, которую мы знаем сегодня.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10x~ 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F684DECC0190B94447BB8D8643126210619740E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310088   (835750) от 19.03.2011
 
 DV: Из истории великих научных открытий / Great Moments in Science and Technology (Meilensteine der Naturwissenschaft und Technik) (1992) SATRip [11-20 выпуски]
@@ -6,7 +110,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835750.jpg" />
+  <img src="Z:/picture/008/save_picture_835750.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ DV: История письменности / The Written Word (2005) SATRip (с
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835689.jpg" />
+  <img src="Z:/picture/008/save_picture_835689.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Техногеника. Лефортовский тоннель (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835105.jpg" />
+  <img src="Z:/picture/008/save_picture_835105.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834503.jpg" />
+  <img src="Z:/picture/008/save_picture_834503.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery. Гигантские чудовища: Громадный потро�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833917.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ History Channel: Письменный код (История письменно�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833716.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832939.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832422.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832296.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832293.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831752.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831732.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831367.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ NG. Линии Наска: Погребенные секреты. Древние
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831120.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830588.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830510.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830197.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830077.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829879.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829795.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829779.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Animal Planet. Логово крокодилов-убийц / Lair of the Killer
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829697.jpg" />
 </div>
 
 
@@ -567,111 +671,6 @@ Animal Planet. Логово крокодилов-убийц / Lair of the Killer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1CA461E9473EB6A75D214BE21F1176CD22F497A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 207124   (829565) от 16.03.2017
-
-NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (1991) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о новом оружии, с помощью которого Гитлер надеялся выиграть войну. Было ли оно эффективным или же в нем были технические дефекты?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381129   (829185) от 05.05.2020
-
-NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1080p] (сезон 2, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его зовут Хэйзен Одел и он - инструктор по выживанию и проводник по дикой местности. Он жил и обучался в разных племенах по всему миру, благодаря чему он  овладел удивительными методами выживания в природе, свойственных коренному населению. Теперь он путешествует по самым удаленным уголкам планеты, чтобы подвергнуть суровым испытаниям свои знания, навыки и выносливость (   Читать дальше...   )Производство: Великобритания, Icon Films, National Geographic Channel InternationalЖанр: Документальный, приключения, экстримРежиссер: Саймон Мюриэль, Алекс Паркинсон, Бен Саутуэлл, Алистэр Смит, Хонор ПитерсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BE77F76F15079E1E4B1CD9633732A789DD0A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506184   (828481) от 11.04.2016
-
-Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/1080i] (3 серии из 3)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Равнина Серенгети, восточная Африка, время здесь делится не только на день и ночь, но и на периоды ливневых дождей и обжигающей засухи. Животные обитающие в этих экстремальных условиях, также смертоносны как и климат. Это мир туманных высокогорий, широких долин и бескрайних саванн, и борьба за выживание здесь не прекращается ни на минуту! В это серии Вы увидите степную (   Читать дальше...   )Жанр: документальныйПеревод: Профессиональный одноголосыйСубтитры: Голландские вшитыеПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F3181E27BAD3DE436EF186B926E5CD64A4BE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312724   (828273) от 23.03.2011
-
-BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый 4-х серийный документальный фильм о природе красивейших островов Карибского моря и их необычных обитателях с комментариями Николая Дроздова.
-Эти волшебные острова находятся в Карибском море между Северной и Южной Америкой. Любой из островов Карибского бассейна — райское место для отдыха: белоснежные песчаные пляжи и изумрудные лагуны с коралловыми рифами (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, Познавательный, ПриродаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4x ~00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968F006F26B6D6892CBFBE6BD07A7A2582292F05
 ```
 
 https://mybot314.ru/tekegram_catalog/

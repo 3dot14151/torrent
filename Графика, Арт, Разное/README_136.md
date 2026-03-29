@@ -1,3 +1,29 @@
+###  Публикация: 1604906   (203833) от 19.01.2023
+
+Фотография - ArtStation - Grafit Studio - 500+ Vampire Queen Costume Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_203833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот набор включает более 500 эталонных изображений в высоком разрешении с персонажами в стиле готических вампиров. Пакет включает в себя портреты крупным планом, поворотные позы, снятые с использованием вращающейся платформы, а также несколько более динамичных движений со складками в движении. Это будет отличный инструмент для художников, работающих над иллюстрациями, (   Читать дальше...   )Формат: JPGРазрешение файлов: 2448x3900 - 5472x3648
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D3A594FEF14DB1A8DCC3FCBB4A2B164AE182D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604905   (203827) от 19.01.2023
 
 Фотография - ArtStation - Grafit Studio - 1000+ Lady Knight Reference Pictures [JPG]
@@ -6,7 +32,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203827.jpg" />
+  <img src="Z:/picture/004/save_picture_203827.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203818.jpg" />
+  <img src="Z:/picture/004/save_picture_203818.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203812.jpg" />
+  <img src="Z:/picture/004/save_picture_203812.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203481.jpg" />
+  <img src="Z:/picture/004/save_picture_203481.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203379.jpg" />
+  <img src="Z:/picture/004/save_picture_203379.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203377.jpg" />
+  <img src="Z:/picture/004/save_picture_203377.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202971.jpg" />
+  <img src="Z:/picture/004/save_picture_202971.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202631.jpg" />
+  <img src="Z:/picture/004/save_picture_202631.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202627.jpg" />
+  <img src="Z:/picture/004/save_picture_202627.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202432.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Wallpapers - BING Wallpapers (November 2021 - October 2024) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202419.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202130.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202037.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201953.jpg" />
+  <img src="Z:/picture/005/save_picture_201953.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200441.jpg" />
+  <img src="Z:/picture/005/save_picture_200441.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200145.jpg" />
+  <img src="Z:/picture/005/save_picture_200145.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199664.jpg" />
+  <img src="Z:/picture/005/save_picture_199664.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198558.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198544.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198542.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198497.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198482.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198428.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198416.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198316.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1ED0F08A011709B4178774D53D5E50195AFD4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633839   (198283) от 17.05.2023
-
-Иконки - 3D Cyber Security Icon [BLEND, PNG, GLTF, OBJ, FBX]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшите свое мобильное приложение, UI/UX и проекты веб-дизайна с помощью 3D-иконок «Значки кибербезопасности», добавив в свой дизайн уникальный и привлекательный элемент.Формат: BLEND, PNG, GLTF, OBJ, FBXРазрешение файлов: 2000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5832134D157920C832C22C8C20878C182C980FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

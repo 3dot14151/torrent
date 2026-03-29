@@ -6,7 +6,7 @@ Aythar - Best Moments (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Psyb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866620.jpg" />
+  <img src="Z:/picture/008/save_picture_866620.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ CoolUtils Total Image Converter 5.1.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866616.jpg" />
+  <img src="Z:/picture/008/save_picture_866616.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866611.jpg" />
+  <img src="Z:/picture/008/save_picture_866611.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Free Studio 6.6.4.317 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866608.jpg" />
+  <img src="Z:/picture/008/save_picture_866608.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866605.jpg" />
+  <img src="Z:/picture/008/save_picture_866605.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tipard Blu-ray Converter for Mac 10.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866597.jpg" />
+  <img src="Z:/picture/008/save_picture_866597.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WinX DVD Ripper for Mac 6.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866595.jpg" />
+  <img src="Z:/picture/008/save_picture_866595.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ DSLR Assistant 3.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866593.jpg" />
+  <img src="Z:/picture/008/save_picture_866593.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Sketch 77 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866592.jpg" />
+  <img src="Z:/picture/008/save_picture_866592.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866588.jpg" />
+  <img src="Z:/picture/008/save_picture_866588.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866586.jpg" />
+  <img src="Z:/picture/008/save_picture_866586.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Nova 7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866585.jpg" />
+  <img src="Z:/picture/008/save_picture_866585.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866584.jpg" />
+  <img src="Z:/picture/008/save_picture_866584.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ TunePat Apple Music Converter 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866581.jpg" />
+  <img src="Z:/picture/008/save_picture_866581.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Vivaldi 4.2.2406.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866577.jpg" />
+  <img src="Z:/picture/008/save_picture_866577.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866571.jpg" />
+  <img src="Z:/picture/008/save_picture_866571.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Downie 2.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866567.jpg" />
+  <img src="Z:/picture/008/save_picture_866567.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866563.jpg" />
+  <img src="Z:/picture/008/save_picture_866563.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866551.jpg" />
+  <img src="Z:/picture/008/save_picture_866551.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Intelligent Manners & Command Strange - Joy (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866510.jpg" />
+  <img src="Z:/picture/008/save_picture_866510.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ AdwCleaner 5.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866509.jpg" />
+  <img src="Z:/picture/008/save_picture_866509.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866506.jpg" />
+  <img src="Z:/picture/008/save_picture_866506.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866505.jpg" />
+  <img src="Z:/picture/008/save_picture_866505.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Comic Life 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866503.jpg" />
+  <img src="Z:/picture/008/save_picture_866503.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Fred V & Grafix - Ultraviolet (2016) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866502.jpg" />
+  <img src="Z:/picture/008/save_picture_866502.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Wise Disk Cleaner 9.21.639 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866500.jpg" />
+  <img src="Z:/picture/008/save_picture_866500.jpg" />
 </div>
 
 

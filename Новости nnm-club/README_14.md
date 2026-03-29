@@ -1,3 +1,107 @@
+###  Публикация: 1471837   (1014567) от 23.05.2021
+
+Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Enterprise LTSC v1809 17763.1935, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 05.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC30E9B7E6A7ED353A6800403B9878D29B045605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384398   (1014564) от 23.05.2021
+
+Смешарики. Новый сезон (2020-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-49 из 52) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений любимых круглых героев в формате 2D. Это трогательные ироничные сюжеты о жизни, близкие и понятные детям и взрослым. Любопытные до всего нового Смешарики будут попадать в неожиданные ситуации или создавать их сами, в характерах персонажей зрители традиционно узнают себя.Производство: Россия | Студия компьютерной анимации "Петербург" / «Рики»Жанр: Мультсериал, Анимация, ДетскийРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 00:06:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07741B6D0F69500C005C615671ADAD57567C6EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174399   (1013900) от 27.05.2021
+
+The Evil Within 2 (2017) [Ru/Multi] (1.05/upd4/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детище Шинджи Миками, The Evil Within 2 - новое слово в жанре survival horror. Детектив Кастелланос потерял в жизни все. Чтобы спасти дочь, он должен спуститься в полные кошмаров глубины STEM.Тип издания: RepackРазработчик: Tango GameworksЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C3FF73A06AC56D78A21D56A4437CAFCC8A1506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214019   (1013735) от 28.05.2021
+
+SYNTHETIK: Legion Rising (2018) [Ru/Multi] (26.1/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013735.jpg" />
+</div>
+
+
+###  Подробнее
+
+SYNTHETIK - это беспощадный шутер-рогалик в мире, захваченном машинами. Мощное оружие, апгрейды, населённые роботами уровни и тонны веселья ждут героя. Убей их всех, и пусть рефлексы тебя не подведут! 1985 г., в производстве роботов лидирует Kaida Corporation. Сбросив оковы многолетнего гнёта, ИИ корпорации создаёт "Легион машин" и начинает истреблять людей. (   Читать дальше...   )Тип издания: RepackРазработчик: Flow Fire GamesЖанр: Action (Shooter), RoguelikeЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CA276F654888EFF6B968CB2AD073EFE22BC215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480489   (1013733) от 28.05.2021
 
 Зона Тюремный роман (2006) DVDRip (серии 1-50 из 50)
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013733.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013477.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013415.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013145.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Google получала информацию о местоположении п�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1012960.jpg" />
+  <img src="Z:/picture/005/save_picture_1012960.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012677.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012603.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.0/dlc) License PLAZA [Delu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012596.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012594.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012479.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012361.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012032.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Adobe Photoshop 2021 22.4.2.242 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011860.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011601.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Adobe Photoshop 2021 22.4.2.242 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011548.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011543.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Hades (2020) [Ru/Multi] (1.38100) EGS-Rip InsaneRamZes (обновляемая)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011361.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011262.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Before We Leave (2020) [Ru/Multi] (1.0241) EGS-Rip InsaneRamZes
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011180.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011018.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011016.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010534.jpg" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18556104BBEE53743375A3D01FE1DD1CFF76A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478107   (1010254) от 19.06.2021
-
-Opera 77.0.4054.90 Portable by JolyAnderson [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera – веб-браузер, разрабатываемый компанией Opera Software, особенностью которого является поддержка встроенного VPN-клиента, блокировщика рекламы, возможность менять внешний вид, кастомизировать вкладку быстрого доступа и многое другое.
-Вашему вниманию предоставляется Portable версия Opera.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD5F76ACE62B5A34A8CF83E175233FB7087D01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478151   (1009759) от 22.06.2021
-
-Яхта стоимостью $700.000.000 – новейший корабль для исследования климата
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте о суперяхте Джеффа Безоса. Судно для исследования климата Earth 300 настолько велико, что может посрамить даже Титаник.Спроектированная длиной 300 метров и увенчанное 13-этажной «научной сферой», Earth 300 была задумана военно-морским архитектором Иваном Саласом Джефферсоном (основателем Iddes Yachts) как факелоносец мировой науки. Судно оснащено 22 современными (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438026   (1009615) от 23.06.2021
-
-Обыкновенный фашизм (1965) DVDRip [H.264] [10-bit] (части 1-2 из 2)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-монолог, фильм-исследование. Но исследование не фашизма в целом и тем более не детальный анализ всех его чудовищных массовых преступлений. Нет, это исследование природы фашизма, той питательной среды, на которой вызрели его споры. Исследование не одного только «фюрера», хотя и его тоже, ибо, словами Генриха Манна, «Свет никогда не узнал бы, до какой грязной (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноСубтитры: НетПродолжительность: 02:10:07 (01:08:02+01:02:05)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D15B2DE902AB2A72F162BC14D3E75E8643B4F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479544   (1009499) от 24.06.2021
-
-Opera 77.0.4054.146 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB15446C935697F3B0D6CD0AB8D8633335EC547
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1409702   (442692) от 18.09.2020
+
+Иван Лалиашвили | Создание мегаполиса в Blender 2.82 / Megacity Blender 2.82 (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мой полный курс по созданию мегаполиса в Blender и Photoshop.
+В курсе опписан весь процесс создания сложных сцен. Он будет очень полезен и прост для начинающих. И я надеюсь, что некоторые продвинутые пользователи Blender тоже найдут что-нибудь интересное.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A88C916E17287ABA891F04CCA645B7BC960FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570359   (442586) от 17.08.2022
 
 Gumroad, Tom Newbury | Creating a Realistic Human Eye in CG (2015) PCRec [EN, RU]
@@ -6,7 +33,7 @@ Gumroad, Tom Newbury | Creating a Realistic Human Eye in CG (2015) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442586.jpg" />
+  <img src="Z:/picture/008/save_picture_442586.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442567.jpg" />
+  <img src="Z:/picture/008/save_picture_442567.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ SideFX, Krishna Bala | Staggered Fracture (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440500.jpg" />
+  <img src="Z:/picture/008/save_picture_440500.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ SideFX, Robert Magee | Smashing Wine Glass (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440488.jpg" />
+  <img src="Z:/picture/008/save_picture_440488.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ SideFX, Simon Verstraete | Realtime FX with Niagara (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440348.jpg" />
+  <img src="Z:/picture/008/save_picture_440348.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ CGcircuit, Chad Vernon | Applied 3d Math (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440344.jpg" />
+  <img src="Z:/picture/008/save_picture_440344.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ CGcircuit, Florian Bard | Disintegration Effect II - The Skull (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440220.jpg" />
+  <img src="Z:/picture/008/save_picture_440220.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Pluralsight, Beau Garcia | Practical Houdini Math Tips (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440214.jpg" />
+  <img src="Z:/picture/008/save_picture_440214.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ SideFX, Rob Stauffer | Solaris in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440213.jpg" />
+  <img src="Z:/picture/008/save_picture_440213.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Blender Bros, Josh Gambrell, Ponte Ryuurui | Hard Surface Modeling in Blender 3 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439656.jpg" />
+  <img src="Z:/picture/008/save_picture_439656.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438087.jpg" />
+  <img src="Z:/picture/008/save_picture_438087.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Ryan Hawkins | Фотоколлажирование на основе рефер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438071.jpg" />
+  <img src="Z:/picture/008/save_picture_438071.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438059.jpg" />
+  <img src="Z:/picture/008/save_picture_438059.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Yiihuu, Picasso Horse | TV Channel Packaging Creative Design (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438022.jpg" />
+  <img src="Z:/picture/008/save_picture_438022.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ Ashish Dani | Mетт - пейнтинг зимнего пейзажа с эле
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437913.jpg" />
+  <img src="Z:/picture/008/save_picture_437913.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ Udemy | Моделирование и текстурирование ассет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437909.jpg" />
+  <img src="Z:/picture/008/save_picture_437909.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ Sam Nielson | Освещение иллюстраций и концепт-арт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437730.jpg" />
+  <img src="Z:/picture/008/save_picture_437730.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435804.jpg" />
+  <img src="Z:/picture/008/save_picture_435804.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ Allan McKay​ | FumeFX Essentials (2008) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433854.jpg" />
+  <img src="Z:/picture/008/save_picture_433854.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433478.jpg" />
+  <img src="Z:/picture/008/save_picture_433478.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433308.jpg" />
+  <img src="Z:/picture/008/save_picture_433308.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Gumroad, Pierrick Picaut | Искусство эффективного ригг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433279.jpg" />
+  <img src="Z:/picture/008/save_picture_433279.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ Gumroad, Cane Townsend | Hard Surface in ZBrush (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431250.jpg" />
+  <img src="Z:/picture/008/save_picture_431250.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430838.jpg" />
+  <img src="Z:/picture/008/save_picture_430838.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429336.jpg" />
+  <img src="Z:/picture/008/save_picture_429336.jpg" />
 </div>
 
 
@@ -655,35 +682,6 @@ Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D948B891D7ECDC9E1C34B244DC7BA341356C8786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571896   (427216) от 24.08.2022
-
-Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRip [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уроки по лепке одежды в Zbrush.
-
-Вы изучите:
-Советы и приемы в ZBrush, чтобы ваша одежда выглядела живой и поношенной(   Читать дальше...   )Производство: ArtstationЖанр: 3D графикаЯзык озвучки: АнглийскийПродолжительность: 07:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D7900F1908D494062A4BBDD3B964D7252D86AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

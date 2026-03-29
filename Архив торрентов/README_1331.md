@@ -6,7 +6,7 @@ DJ Nike Twist - TranceWave 140 @ GTI Radio (19.05.2016) [MP3|320 кб/с] <Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754097.jpg" />
+  <img src="Z:/picture/008/save_picture_754097.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ OCRKit 16.5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754094.jpg" />
+  <img src="Z:/picture/008/save_picture_754094.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754093.jpg" />
+  <img src="Z:/picture/005/save_picture_754093.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754073.jpg" />
+  <img src="Z:/picture/005/save_picture_754073.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754062.jpg" />
+  <img src="Z:/picture/005/save_picture_754062.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754019.jpg" />
+  <img src="Z:/picture/005/save_picture_754019.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754017.jpg" />
+  <img src="Z:/picture/008/save_picture_754017.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754005.jpg" />
+  <img src="Z:/picture/008/save_picture_754005.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - EDM Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance,  Uplifting
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754004.jpg" />
+  <img src="Z:/picture/008/save_picture_754004.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Furuba / Fruits Basket / Корзинка фруктов [2001, TV, 26 сери�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753985.jpg" />
+  <img src="Z:/picture/008/save_picture_753985.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Hard Drive Inspector 3.89 Build 403 Pro [Rus/Multi] [UnaTTended Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753984.jpg" />
+  <img src="Z:/picture/005/save_picture_753984.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753968.jpg" />
+  <img src="Z:/picture/008/save_picture_753968.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ XMedia Recode 3.3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753956.jpg" />
+  <img src="Z:/picture/008/save_picture_753956.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753951.jpg" />
+  <img src="Z:/picture/008/save_picture_753951.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753949.jpg" />
+  <img src="Z:/picture/008/save_picture_753949.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ DesktopOK 4.35 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753948.jpg" />
+  <img src="Z:/picture/008/save_picture_753948.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753947.jpg" />
+  <img src="Z:/picture/008/save_picture_753947.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Unclutter 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753944.jpg" />
+  <img src="Z:/picture/008/save_picture_753944.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753942.jpg" />
+  <img src="Z:/picture/008/save_picture_753942.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Alfred Powerpack 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753894.jpg" />
+  <img src="Z:/picture/008/save_picture_753894.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ PicPick 4.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753892.jpg" />
+  <img src="Z:/picture/008/save_picture_753892.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753882.jpg" />
+  <img src="Z:/picture/008/save_picture_753882.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Wave Blazer 1.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753873.jpg" />
+  <img src="Z:/picture/005/save_picture_753873.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Internet Download Manager 6.25 Build 18 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753803.jpg" />
+  <img src="Z:/picture/008/save_picture_753803.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dawn of Ashes - The Antinomian (2020) [MP3|320 Kbps] <Industrial Metal, Melodic 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753802.jpg" />
+  <img src="Z:/picture/008/save_picture_753802.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Slimjet 10.0.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753796.jpg" />
+  <img src="Z:/picture/008/save_picture_753796.jpg" />
 </div>
 
 

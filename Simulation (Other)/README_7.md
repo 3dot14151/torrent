@@ -1,3 +1,29 @@
+###  Публикация: 1286485   (712734) от 02.03.2019
+
+Pure Farming 2018 (2018) [Ru/Multi] (1.4.0/dlc) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поставьте новейшие технологии и современные лицензированные машины на службу земледелию! Путешествуйте по Европе, Азии и Америке и ухаживайте за растениями, характерными для этих регионов, будь то конопля, кофе или оливки. Исследуйте все аспекты земледелия в трех уникальных игровых режимах, подходящих и опытным игрокам в симуляторы, и новичкам.Тип издания: RepackРазработчик: Ice FlamesЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF815925FF86C50074F0E4C379E3573AE62DF267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465317   (712413) от 20.06.2013
 
 Лучшие симуляторы подводных лодок (P) [Ru/En] 2001 - 2007
@@ -6,7 +32,7 @@
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712413.jpg" />
+  <img src="Z:/picture/008/save_picture_712413.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Synergia (2020) [Multi] (1.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710583.jpg" />
+  <img src="Z:/picture/008/save_picture_710583.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Frostpunk (2018) [Ru/Multi] (1.3.3 HF) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710352.jpg" />
+  <img src="Z:/picture/008/save_picture_710352.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710155.jpg" />
+  <img src="Z:/picture/008/save_picture_710155.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ XScreamKaraoke / Вы орете великолепно (2021) [Ru/En] (2.10) Li
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708636.jpg" />
+  <img src="Z:/picture/008/save_picture_708636.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.01) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707672.jpg" />
+  <img src="Z:/picture/008/save_picture_707672.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0.20180416.1) Repack Covfefe
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703973.jpg" />
+  <img src="Z:/picture/008/save_picture_703973.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ City Bus Simulator 2018 (2018) [En] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702104.jpg" />
+  <img src="Z:/picture/008/save_picture_702104.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ice Lakes (2016) [En/Fi] (1.2) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701596.jpg" />
+  <img src="Z:/picture/008/save_picture_701596.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20200813/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699120.jpg" />
+  <img src="Z:/picture/008/save_picture_699120.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Everything (2017) [En] (1.06.01) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698247.jpg" />
+  <img src="Z:/picture/008/save_picture_698247.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Tavern Tycoon - Dragon's Hangover (2019) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693414.jpg" />
+  <img src="Z:/picture/008/save_picture_693414.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Frostpunk (2018) [Ru/Multi] (1.6/dlc) License HOODLUM
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690320.jpg" />
+  <img src="Z:/picture/008/save_picture_690320.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Woodcutter Simulator 2012 (L) [Multi3/-] 2012 | PROPHET
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680457.jpg" />
+  <img src="Z:/picture/008/save_picture_680457.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Objects in Space (2019) [En] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679829.jpg" />
+  <img src="Z:/picture/008/save_picture_679829.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677797.jpg" />
+  <img src="Z:/picture/008/save_picture_677797.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Stardew Valley (2016) [Ru/Multi] (1.2.30) SteamRip R.G. Origins
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676474.jpg" />
+  <img src="Z:/picture/008/save_picture_676474.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ The Legacy (2025) [Ru/Multi] (0.5206) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675928.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Party Hard 2 (2018) [Ru/Multi] (1.1.002r) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675748.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.0/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671313.jpg" />
+  <img src="Z:/picture/008/save_picture_671313.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ ICED (2017) [Ru/Multi] (23.05.2017) Repack VseTop
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668826.jpg" />
+  <img src="Z:/picture/008/save_picture_668826.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Cold Waters (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656577.jpg" />
+  <img src="Z:/picture/008/save_picture_656577.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Fernbus Simulator (2016) [Ru/En] (1.14.12800/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656446.jpg" />
+  <img src="Z:/picture/008/save_picture_656446.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644261.jpg" />
+  <img src="Z:/picture/008/save_picture_644261.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ ABZU (2016) [Ru/Multi] (1.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644189.jpg" />
+  <img src="Z:/picture/008/save_picture_644189.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ ABZÛ — это красочное приключение в подводном
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8726139F97B99B2108209424C419B11A37B7759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293041   (640640) от 01.04.2019
-
-Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уиндсторм пережил пожар. И даже юная Мика не может помочь ему. Та как у Ари нет никакого опыта в верховой езде, то она быстро завязывает дружбу с Уиндстормом. Мистер Каан учит девочку правильному уходу за лошадьми, а еще вырабатывает у неё правильную осанку при езде на лошади. Ари научится ездить так же быстро, как и её предшественница.Тип издания: LicenseРазработчик: Aesir InteractiveЖанр: Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352DE537545C5848831609C05B8ABB7B39253AD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564594.jpg" />
+  <img src="Z:/picture/008/save_picture_564594.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562947.jpg" />
+  <img src="Z:/picture/008/save_picture_562947.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561847.jpg" />
+  <img src="Z:/picture/008/save_picture_561847.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561563.jpg" />
+  <img src="Z:/picture/008/save_picture_561563.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560078.jpg" />
+  <img src="Z:/picture/008/save_picture_560078.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560076.jpg" />
+  <img src="Z:/picture/008/save_picture_560076.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557477.jpg" />
+  <img src="Z:/picture/008/save_picture_557477.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555337.jpg" />
+  <img src="Z:/picture/008/save_picture_555337.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555173.jpg" />
+  <img src="Z:/picture/008/save_picture_555173.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554182.jpg" />
+  <img src="Z:/picture/008/save_picture_554182.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552750.jpg" />
+  <img src="Z:/picture/008/save_picture_552750.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Stranger Things / Очень странные дела (Original Series Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
+  <img src="Z:/picture/008/save_picture_552701.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551851.jpg" />
+  <img src="Z:/picture/008/save_picture_551851.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544847.jpg" />
+  <img src="Z:/picture/008/save_picture_544847.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542043.jpg" />
+  <img src="Z:/picture/008/save_picture_542043.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538839.jpg" />
+  <img src="Z:/picture/008/save_picture_538839.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536387.jpg" />
+  <img src="Z:/picture/008/save_picture_536387.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536318.jpg" />
+  <img src="Z:/picture/008/save_picture_536318.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535582.jpg" />
+  <img src="Z:/picture/008/save_picture_535582.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
+  <img src="Z:/picture/008/save_picture_535158.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532734.jpg" />
+  <img src="Z:/picture/008/save_picture_532734.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Лег�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532546.jpg" />
+  <img src="Z:/picture/008/save_picture_532546.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531779.jpg" />
+  <img src="Z:/picture/008/save_picture_531779.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530825.jpg" />
+  <img src="Z:/picture/008/save_picture_530825.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
+  <img src="Z:/picture/008/save_picture_530816.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530814.jpg" />
+  <img src="Z:/picture/008/save_picture_530814.jpg" />
 </div>
 
 

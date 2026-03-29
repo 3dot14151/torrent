@@ -1,3 +1,292 @@
+###  Публикация: 1520499   (140147) от 29.12.2021
+
+Media Player Classic - Black Edition (MPC-BE) 1.6.0 Build 6767 Stable + Portable + Standalone Filters [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic - BE – универсальный проигрыватель аудио и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema», со своими нововведениями и оптимизацией.
+
+Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D7184F54937B6DE472AB3EDFBE11BB61AB4886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195839   (140133) от 30.12.2017
+
+Telegram Desktop 1.2.6 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4339C18D863D9C85C5049DE43434927CDEBE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195782   (140123) от 30.12.2017
+
+Wise Care 365 Pro 4.7.7.460 Final RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A744351815037FE28FEF67B87C219407EC96DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272797   (140103) от 29.12.2018
+
+Daum PotPlayer 1.7.16291 Stable RePack (& portable) by 7sh3 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29969539CE2D5457EA308AAD3959A2B4A68E800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195850   (140092) от 30.12.2017
+
+Download Master 6.15.1.1585 RePack (&Portable) by KpoJIuK  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, Белорусский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63B656896636277A72B203D89B39F53EA487E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520775   (140050) от 29.12.2021
+
+Realtek Ethernet Driver 11.3.1022 / 10.054 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сетевые драйверы Realtek предназначены для корректного определения сетевой карты, ее правильной работы с операционной системой и программами, а также обеспечения совместимости с другим оборудованием. Программное обеспечение Realtek Ethernet Family Controller Software содержит все необходимые драйверы и компоненты, необходимые для правильной работы сетевой карты. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E2EF5850F2BFDA1A4A54855B34804A42417D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970438   (140043) от 30.12.2015
+
+Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis Disk Director 12 — это набор мощных инструментов для оптимизации использования дисковых ресурсов и защиты данных. С его помощью можно создавать разделы дисков и управлять ими, чтобы хранить различные файловые или операционные системы на одном диске, быстро восстанавливать потерянные или удаленные данные, сокращать время создания резервных копий образов и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF16959AB9B6F9568D9B1504628E58216D5BBF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195748   (140025) от 30.12.2017
+
+4K Video Downloader 4.4.1.2245 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140025.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Paste Url".Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C5A736A1B3D139E2C7F775ED3B5D6B949EF62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520582   (140008) от 29.12.2021
+
+UnHackMe 13.20.2021.1207 Giveaway Edition RePack by Umbrella Corporation [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140008.jpg" />
+</div>
+
+
+###  Подробнее
+
+UnHackMe – антируткит и антишпион, который позволяет обнаруживать и удалять руткиты, перенаправления поиска в браузере, программы скрытия вредоносных следов, потенциально-нежелательные приложения и рекламное ПО, шпионские программы.Язык интерфейса: Русский, Английский, и другие ...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FAD47788C674E0D5FD3203B0128202FFEAD118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520583   (139974) от 29.12.2021
+
+Universal Media Creation Tool 22.12.2021 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Media Creation Tool – мощный инструмент по установке и обновлению до Windows 11, минуя проверку TPM 2.0, Secure Boot, UEFI и поколения процессора.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29278A2E4DA2C0905E9CAB6C2537B90A44C0F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679235   (139936) от 24.11.2023
+
+CudaText 1.202.1.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139936.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112929F30CB523112F944483BBE5E52F55BD5C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970369   (139915) от 30.12.2015
 
 Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [Ru]
@@ -6,7 +295,7 @@ Acronis Disk Director 12 Build 12.0.3270 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139915.jpg" />
 </div>
 
 
@@ -32,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139907.jpg" />
 </div>
 
 
@@ -58,7 +347,7 @@ DU Meter 7.20 Build 4761 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139893.jpg" />
 </div>
 
 
@@ -84,7 +373,7 @@ HWiNFO 7.67 Build 5275 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139889.jpg" />
 </div>
 
 
@@ -110,7 +399,7 @@ USB Raptor 0.18.85.710 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139887.jpg" />
 </div>
 
 
@@ -137,7 +426,7 @@ Extreme Picture Finder 3.46.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139860.jpg" />
 </div>
 
 
@@ -163,7 +452,7 @@ PDF24 Creator 11.15.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139833.jpg" />
 </div>
 
 
@@ -190,7 +479,7 @@ AIMP 4.60.2167 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139827.jpg" />
 </div>
 
 
@@ -216,7 +505,7 @@ DriverPack Solution 17.7.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139818.jpg" />
 </div>
 
 
@@ -242,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139779.jpg" />
 </div>
 
 
@@ -269,7 +558,7 @@ Zoner Photo Studio X 19.2309.2.507 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139778.jpg" />
 </div>
 
 
@@ -295,7 +584,7 @@ ScrollNavigator 5.13.3 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139745.jpg" />
 </div>
 
 
@@ -321,7 +610,7 @@ Mirillis Action! 4.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139715.jpg" />
 </div>
 
 
@@ -348,7 +637,7 @@ Ungoogled Chromium 119.0.6045.159-1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139692.jpg" />
 </div>
 
 
@@ -374,7 +663,7 @@ System Mechanic 16.5.1.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139687.jpg" />
 </div>
 
 
@@ -385,296 +674,6 @@ System Mechanic - пакет утилит, предназначенный для
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:680E38B4CAD1657FEA242A82B1509B9D06004B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679226   (139686) от 24.11.2023
-
-HandBrake 1.7.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139686.jpg" />
-</div>
-
-
-###  Подробнее
-
-HandBrake - бесплатный видео конвертер с открытым исходным кодом, который позволяет кодировать видеофайлы из DVD или любого видео формата в MPEG-4 или H.264. Содержит широкий набор пресетов, при помощи которых можно быстро преобразовать видео для дальнейшего просмотра на различных мобильных устройствах, как например Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1954961818BDF33D833BBEE4F2BFEF5ADA9B68C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349100   (139593) от 30.12.2019
-
-TweakPower 1.082 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139593.jpg" />
-</div>
-
-
-###  Подробнее
-
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B453D5C072BB0CC8E98DCBA3F88CAFC4E14BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679028   (139569) от 24.11.2023
-
-LibreOffice 7.6.3.2 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139569.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50723F8F9B9AEDB31724CB61DB47E908390FB934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272972   (139529) от 30.12.2018
-
-BestReminder v2018.12.29.11 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F37806CC8BACCCEA74A41AE22807EA005D63D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349020   (139498) от 30.12.2019
-
-Media Player Classic Home Cinema 1.9.0 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2045ADEC03AA07848D4807DA5E7CA0C80A5F1506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968753   (139459) от 31.12.2015
-
-Антивирусные базы Qihoo 360 (Bitdefender) от 2015.12.23 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139459.jpg" />
-</div>
-
-
-###  Подробнее
-
-360 Total Security и 360 Total Security Essential - бесплатные антивирусы с облачной и проактивной защитой - 360 Cloud и QVM II, а также дополнительными локальным движком Bitdefender для эффективной онлайн и оффлайн защиты от всех угроз.
-Антивирусные базы 360 Total Security для Windows позволяют обновлять локальные движок Bitdefender на компьютерах, не подключенных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31BC64A887583001BC65CCEAE8592A300D1005B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349097   (139435) от 30.12.2019
-
-ClipGrab 3.8.8 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139435.jpg" />
-</div>
-
-
-###  Подробнее
-
-ClipGrab - программа для скачивания и конвертирования видео, независимо от браузера, может качать и конвертировать видео практически со всех популярных видео-сервисов: YouTube, Vimeo, Dailymotion, CollegeHumor, MyVideo, Sevenload, Clipfish, MySpass, Tudou... Позволяет полученное видео сразу преобразовать в MPEG4, WMV, OGG Theora, MP3 и OGG Vorbis или оставить в оригинальном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64DF1063477EFC86D2252088FED32E9E126C70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679171   (139422) от 24.11.2023
-
-KMPlayer 2023.11.24.16 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139422.jpg" />
-</div>
-
-
-###  Подробнее
-
-The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C249BDB8A2E1B9F32A3516BBEDE4FF3AB7DE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679272   (139414) от 24.11.2023
-
-DxO PhotoLab Elite 7.1.0 build 94 RePack by KpoJIuK [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения с наилучшим качеством и без усилий. DxO PhotoLab предоставляет полный набор интеллектуальных вспомогательных исправлений, которые вы можете вручную подстроить в любое время. Управляйте всеми аспектами ваших фотографий: эффективно удаляйте шум, избавляйтесь от ограничений света, восстанавливайте детали цвета, применяйте сложные (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A71F23FEBF0D12FF5BD1A6EC8301D72A714011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273040   (139387) от 30.12.2018
-
-Slimjet 21.0.8.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B11C28B99CB61179E0AFCB0929D038065EB6195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349095   (139374) от 30.12.2019
-
-MediaHuman YouTube Downloader 3.9.9.30 (2912) RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139374.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A3FE40B0E9B4D476BEB6F5052B926DDF7C86EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 1277790   (775092) от 22.01.2019
+
+ТимерТау - Иди за мной (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как воздух
+02. Твари
+03. Иди за мной
+04. Стюардессы(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2500186102185CADF0F7C20EA56C57CBEF3845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277820   (775086) от 22.01.2019
+
+TattooIN (Татуин) - Татуин (2017) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уеду
+02. Хабиби
+03. В песках Татуина
+04. Разные(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECAC0A10A1497A5489687D8C43FB11FD5D2A46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277818   (775017) от 22.01.2019
+
+TattooIN (Татуин) - Маленький фрагмент вселенной (2018) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё, кроме любви
+02. До свидания, Земля
+03. Думай о хорошем
+04. Точка невозврата(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DA7B1CCEC8268335F0E3A8B769CC751BF89AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201497   (774340) от 17.05.2010
+
+Парк Горького/ Gorky Park - Grand Collections (2002) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moscow calling (5:09)
+2.  Stranger (4:51)
+3.  Stare (4:58)
+4.  Two candles (5:03)
+5.  Politics of Love (4:10)
+6.  Ocean (3:55)
+7.  Welcome to the Gorky Park (4:24)
+8.  California promise (3:57)
+9.  Tell me why (3:27)
+10.  All roads (5:13)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 201722   (774262) от 17.05.2010
 
 Чёрный Кофе - The Best Of Чёрный Кофе (1999) [MP3|320 kbps]<Rock>
@@ -6,7 +128,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774262.jpg" />
+  <img src="Z:/picture/008/save_picture_774262.jpg" />
 </div>
 
 
@@ -41,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774014.jpg" />
+  <img src="Z:/picture/008/save_picture_774014.jpg" />
 </div>
 
 
@@ -67,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773450.jpg" />
+  <img src="Z:/picture/008/save_picture_773450.jpg" />
 </div>
 
 
@@ -96,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773197.jpg" />
+  <img src="Z:/picture/008/save_picture_773197.jpg" />
 </div>
 
 
@@ -125,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773082.jpg" />
+  <img src="Z:/picture/008/save_picture_773082.jpg" />
 </div>
 
 
@@ -154,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772231.jpg" />
+  <img src="Z:/picture/008/save_picture_772231.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771760.jpg" />
+  <img src="Z:/picture/008/save_picture_771760.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ Lumen - Забытое и найденное (2018) [MP3|320 Kbps] <Alternative 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771624.jpg" />
+  <img src="Z:/picture/008/save_picture_771624.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771582.jpg" />
+  <img src="Z:/picture/008/save_picture_771582.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771344.jpg" />
+  <img src="Z:/picture/008/save_picture_771344.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771162.jpg" />
+  <img src="Z:/picture/005/save_picture_771162.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_770667.jpg" />
+  <img src="Z:/picture/005/save_picture_770667.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770276.jpg" />
+  <img src="Z:/picture/008/save_picture_770276.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770144.jpg" />
+  <img src="Z:/picture/008/save_picture_770144.jpg" />
 </div>
 
 
@@ -412,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770141.jpg" />
+  <img src="Z:/picture/008/save_picture_770141.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ Jane Air - Unreleased'n'Live (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769622.jpg" />
+  <img src="Z:/picture/008/save_picture_769622.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769559.jpg" />
+  <img src="Z:/picture/008/save_picture_769559.jpg" />
 </div>
 
 
@@ -499,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769378.jpg" />
+  <img src="Z:/picture/008/save_picture_769378.jpg" />
 </div>
 
 
@@ -528,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769197.jpg" />
+  <img src="Z:/picture/008/save_picture_769197.jpg" />
 </div>
 
 
@@ -557,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769182.jpg" />
+  <img src="Z:/picture/008/save_picture_769182.jpg" />
 </div>
 
 
@@ -586,7 +708,7 @@ Markscheider Kunst - FREEDOM (2020) [MP3|320 Kbps] <Ska>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769101.jpg" />
+  <img src="Z:/picture/008/save_picture_769101.jpg" />
 </div>
 
 
@@ -615,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769099.jpg" />
+  <img src="Z:/picture/008/save_picture_769099.jpg" />
 </div>
 
 
@@ -629,121 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2FAD4F2BD8DB30C7EE307CD670BEC26E51F3843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125269   (768713) от 14.04.2017
-
-Легион - Двойная звезда (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танец огня
-02. Танго снов
-03. Смотри в небеса
-04. Сантьяго(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB170E84FC8F0C52A519ECAFC371767D62CF714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125437   (768675) от 14.04.2017
-
-Нуки (Слот) - Ау (2017) EP [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Продолжаем движение
-2. Временная
-3. АуЖанр: Alternative RockПродолжительность: 00:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C9B31BF7BF8E6AED74D47FAF3373EB292F4886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278597   (768459) от 26.01.2019
-
-Ландыши - 69 девок (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полустационар
-02. 69 девок
-03. 33 квадратных быдла
-04. Мойва(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E241E5F6872BA2E2550F3D37DDBDF1AF8A2303FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278747   (768353) от 26.01.2019
-
-Digimortal - Создатель (2019) [MP3|320 Kbps] <Industrial Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768353.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интродукция
-2. Перемирие завершено
-3. Система
-4. Новая эра(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4379B7708B795A994A4173B25186B592AF515650
 ```
 
 https://mybot314.ru/tekegram_catalog/

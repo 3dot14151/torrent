@@ -1,3 +1,29 @@
+###  Публикация: 1371142   (893247) от 29.03.2020
+
+Солдатки (29.03.2020) WEB-DL [H.264/1080p-LQ] (выпуск 1)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893247.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой серии 12 участниц, которые, вопреки своим ожиданиям, попали в реальную армию, сталкиваются с новыми испытаниями, преодолевают их, учатся военным дисциплинам и пытаются стать настоящим коллективом. «Солдатки» – это не просто реалити-шоу. Это первый проект, снятый в боевой воинской части. Съемка ведется без купюр, со множества камер, жизнь казармы видна как (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638F3FB19BF4487DE88280FAE192D8C786E53A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102279   (891409) от 09.02.2017
 
 Вечерний Ургант (2017.02.08) SATRip
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891409.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891297.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889583.jpg" />
+  <img src="Z:/picture/005/save_picture_889583.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889458.jpg" />
+  <img src="Z:/picture/005/save_picture_889458.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888242.jpg" />
+  <img src="Z:/picture/005/save_picture_888242.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886525.jpg" />
+  <img src="Z:/picture/005/save_picture_886525.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885979.jpg" />
+  <img src="Z:/picture/005/save_picture_885979.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885902.jpg" />
+  <img src="Z:/picture/005/save_picture_885902.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885893.jpg" />
+  <img src="Z:/picture/005/save_picture_885893.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884712.jpg" />
+  <img src="Z:/picture/005/save_picture_884712.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884709.jpg" />
+  <img src="Z:/picture/005/save_picture_884709.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884703.jpg" />
+  <img src="Z:/picture/005/save_picture_884703.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883490.jpg" />
+  <img src="Z:/picture/005/save_picture_883490.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882584.jpg" />
+  <img src="Z:/picture/005/save_picture_882584.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881873.jpg" />
+  <img src="Z:/picture/005/save_picture_881873.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881819.jpg" />
+  <img src="Z:/picture/005/save_picture_881819.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881818.jpg" />
+  <img src="Z:/picture/005/save_picture_881818.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880831.jpg" />
+  <img src="Z:/picture/005/save_picture_880831.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880190.jpg" />
+  <img src="Z:/picture/005/save_picture_880190.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878294.jpg" />
+  <img src="Z:/picture/005/save_picture_878294.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878290.jpg" />
+  <img src="Z:/picture/005/save_picture_878290.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877687.jpg" />
+  <img src="Z:/picture/005/save_picture_877687.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877565.jpg" />
+  <img src="Z:/picture/005/save_picture_877565.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876556.jpg" />
+  <img src="Z:/picture/005/save_picture_876556.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875826.jpg" />
+  <img src="Z:/picture/005/save_picture_875826.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:296C60085A15C4D727CD4366B9896895E8E1114F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105350   (875084) от 18.02.2017
-
-Магаззино (2017) WEBRip [H.264] (сезон 4, выпуск 3)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий Александр Молочко встает на тропу войны с грязью на прилавках, просроченными продуктами и недобросовестными продавцами. Он проверяет соблюдения правил торговли и санитарных норм в тех местах, куда люди ежедневно приходят покупать продукты питания. Это и крупные сетевые магазины с высокой проходимостью, и городские рынки, магазины шаговой доступности. "Магаззино" (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТВ-ШоуПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAB2F4E610EAFF6D5F710EC7B23D336D988A96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

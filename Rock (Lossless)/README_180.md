@@ -1,3 +1,148 @@
+###  Публикация: 1764685   (101495) от 08.12.2024
+
+Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Believe (4:48)
+02. I Don't Want (4:43)
+03. Music Is The One (4:30)
+04. Into Me Forever (3:34)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764777   (101489) от 08.12.2024
+
+Cory Marks - Sorry For Nothing (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Make My) Country Rock (feat. Sully Erna of Godsmack, Travis Tritt, and Mick Mars)
+02. Guilty (feat. DL of Bad Wolves)
+03. Whiskey For Sale
+04. Sorry For Nothing(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057DC426656B990512D904536099BFA1A8086673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764695   (101487) от 08.12.2024
+
+Neon Rider - Destination Unknown (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination Unknown (0:51)
+02. Neon Rider (5:04)
+03. Feel The Magic (5:22)
+04. Unleash The Fire (4:32)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8040530D5F9D15EE86256BD926403749D6011E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764796   (101468) от 09.12.2024
+
+Pat Benatar - Gravity’s Rainbow (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pictures of a Gone World (0:33)
+02. Everybody Lay Down (4:20)
+03. Somebody's Baby (4:26)
+04. Ties That Bind (3:38)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCF053CB205BCD7348F51535AC0EE3EC1A2676D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765066   (101459) от 11.12.2024
+
+Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning of the Hike [00:04:52]
+02. Among the MacKays [00:05:54]
+03. Folk of Cold [00:07:56]
+04. Poem of an Iceberg [00:06:34](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD476E642DF005FDFB5DE7F49633240289291D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765065   (101449) от 11.12.2024
 
 Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ Chicago - Back Home (Live) (1983) Remastered, 2024, Cult Legends [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101449.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ John Popper - Zygote (1999) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101445.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Offspring - Supercharged: Worldwide in '25 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101435.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101395.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Heart 2 Heart - Alley Of Dreams (2024) [FLAC|Lossless|image + .cue] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101310.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Pleasureland - Pleasureland (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101308.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Atom Stone - Take Me To The Fire (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101307.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Daytona - Garder La Flamme (2024) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101306.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101303.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101300.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Guten Morgen Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101190.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Rock Overdose (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101189.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Rock Women & Girls (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101179.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101168.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Bruce Springsteen - The Live Series: Songs Under Cover Vol. 3 (2024) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101149.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Tedeschi Trucks Band And Leon Russell - Present: Mad Dogs & Englishmen Revisited
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101057.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100771.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Los Lobos - Earthquake Relief Concert 1989 (Live) (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100603.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Queen - Innuendo (1991) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100561.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Robert Lamm - Living Proof (2012) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99375.jpg" />
+  <img src="Z:/picture/005/save_picture_99375.jpg" />
 </div>
 
 
@@ -602,169 +747,6 @@ Robert Lamm - Living Proof (2012) [APE|Lossless]<Rock>
 08. I Confess
 09. Liquid Sky (feat. Zosia) (bonus track)
 10. On The Equinox (JVE remix) (bound track)Жанр: RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479065   (99018) от 08.04.2012
-
-Ten Years After - Ten Years After (1967) [APE|Lossless]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99018.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "I Want to Know" (Mc Leod) - 2:14
-2. "I Can't Keep from Crying, Sometimes" (Kooper) - 5:25
-3. "Adventures of a Young Organ" (Lee, Churchill) - 2:36
-4. "Spoonful" (Willie Dixon) - 6:07
-5. "Losing the Dogs" (Lee, Dudgeon) - 3:07
-6. "Feel It for Me" (Lee) - 2:42
-7. "Love Until I Die" (Lee) - 2:08
-8. "Don't Want You, Woman" (Lee) - 2:39
-9. "Help Me" - (Bass, Dixon, Williamson) - 9:51Жанр: Blues RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479530   (98867) от 07.04.2012
-
-Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_98867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agony
- 02. The Hungry Eyes
- 03. The Omen
- 04. Dead Dog's Howl
- 05. Nightmare
- 06. Fetish Dream
- 07. Mircalla
- 08. Winter
- 09. Dreamworld
- 10. Burn The Witch(   Читать дальше...   )Жанр: GothicПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468425   (97023) от 17.03.2012
-
-Children Of Nova - Impossible Landscape (2012) [FLAC|Lossless]<Progressive Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_97023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erratic (3:45)
- 02. Kaleido (4:17)
- 03. Impossible Landscape (3:32)
- 04. Moments of Clarity (4:29)
- 05. Feel Alive (4:08)
- 06. First Signs (3:49)
- 07. What Do You See? (3:05)
- 08. The Troubled Soul (2:26)
- 09. This Graceful Tragedy (3:34)
- 10. Silhouette (3:39)(   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821935   (91181) от 04.10.2025
-
-Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91181.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Roll With The Punches
-02. Make Up Your Mind
-03. Never Ever Let You Go(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D821735A8A5AC60DF98A3E482E8C4F17FA414B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484794   (89903) от 21.04.2012
-
-Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, MasterSound/ ) USA [Limited Edition] [FLAC|Lossless]<Progressive rock, Psychedelic rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (Part 1-5) (13:36)
-02. Welcome To The Machine (7:25)
-03. Have A Cigar (5:24)
-04. Wish You Were Here (5:19)
-05. Shine On You Crazy Diamond (Part 6-9) (12:26)Жанр: Progressive rock, Psychedelic rockПродолжительность: 00:44:11
 
 ## Скачать торент
 ```bash

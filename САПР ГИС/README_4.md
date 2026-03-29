@@ -1,3 +1,58 @@
+###  Публикация: 1610635   (207900) от 08.02.2023
+
+Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа позволяет переводить растровые изображение в вектор.
+Автоматическое преобразование ваших проектов в вектор, совместимое практически со всеми приложениями CAD и CNC. Интеллектуальная автоматическая трассировка позволяет конвертировать проекты в несколько кликов, экономя бесконечное количество часов по сравнению с ручной трассировкой.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0C3CEA873B13538821887A767897E7EA30914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612705   (207219) от 16.02.2023
+
+Keysight Genesys 2023 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Genesys - программное обеспечение для проектирования ВЧ и СВЧ устройств
+
+Программное обеспечение Genesys компании Keysight представляет собой доступное по цене, простое в использовании, высокопроизводительное средство проектирования, предназначенное для разработчиков ВЧ и СВЧ плат и модулей. Экономическую эффективность пакета могут подтвердить более 5000 пользователей. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84CCE1A0A10E6D57FCDD73125021A4FA9D442C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653195   (206264) от 15.08.2023
 
 Mentor Graphics ModelSim 2020.4 [En]
@@ -6,7 +61,7 @@ Mentor Graphics ModelSim 2020.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206264.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Mentor Graphics QuestaSim 2021.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206189.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202189.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ CADopia Pro 22 v.21.2.1.3514 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201603.jpg" />
+  <img src="Z:/picture/005/save_picture_201603.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ LeoCAD 23.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201035.jpg" />
+  <img src="Z:/picture/005/save_picture_201035.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ AWR Design Environment 17.02R Build 17492 Rev2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200711.jpg" />
+  <img src="Z:/picture/005/save_picture_200711.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ Pulsonix 10.5 build 7883 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200707.jpg" />
+  <img src="Z:/picture/005/save_picture_200707.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ Altium CircuitStudio 1.1.0 build 44421 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200672.jpg" />
+  <img src="Z:/picture/005/save_picture_200672.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ NI Circuit Design Suite 14.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200639.jpg" />
+  <img src="Z:/picture/005/save_picture_200639.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ Micro-Cap 12.2.0.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200496.jpg" />
+  <img src="Z:/picture/005/save_picture_200496.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ SIMetrix/SIMPLIS 8.40 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200390.jpg" />
+  <img src="Z:/picture/005/save_picture_200390.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Simulia Abaqus 6.13-1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200380.jpg" />
+  <img src="Z:/picture/005/save_picture_200380.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ OrCAD Capture PSpice Lite 17.2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200273.jpg" />
+  <img src="Z:/picture/005/save_picture_200273.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ VectorWorks Design Suite 2023 SP4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198385.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ IronCAD 2023 v25.0 Product Update 1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195924.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ Autodesk DWG TrueView 2024 (x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195595.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ Siemens Simcenter FloEFD 2021.2.1 Build 5446 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195535.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ QuarkXPress 2023 v19.2.1.55827 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195279.jpg" />
 </div>
 
 
@@ -481,7 +536,7 @@ Autodesk ObjectARX for AutoCAD + Wizards 2013-2024 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195209.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ LibreCAD 2.2.0.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195060.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ Keysight Advanced Design System 2024 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194371.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ LTspice 17.1.10 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193983.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ ZWSim EM 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193203.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ ZWSim Structural 2022 SP3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193186.jpg" />
 </div>
 
 
@@ -626,60 +681,6 @@ ZWSim Structural — это структурный симулятор, объе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78677663FA5A0B7BBDB53133DBD5955FABCF5B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587020   (193166) от 29.10.2022
-
-CADbro 2023 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193166.jpg" />
-</div>
-
-
-###  Подробнее
-
-CADbro - полнофункциональный и экономичный просмотрщик 3D-моделей различных форматов c функциями анализа, проверки, редактирования модели и добавления комментариев, инструментами автоматического исправления геометрии и подготовки дизайна пресс-форм. CADbro позволяет проводить эффективную совместную работу над проектом различным отделам организации, таким как инженерные, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EEE97B5E19A65DE9B257DF6E3DA5CC50888A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587246   (192873) от 30.10.2022
-
-ZWMeshWorks 2022 SP3 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192873.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZWMeshWorks, платформа CAE от ZWSOFT с готовыми пред и постпроцессорами, была выпущена для разработчиков решателей, позволяя им интегрировать свои многодисциплинарные решатели и обеспечивая гибкую настройку программного обеспечения CAE.
-
-Благодаря возможностям моделирования благодаря ядру Overdrive, передовым технологиям построения сетки и полным функциям предварительной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DC12F135EA92AE6A6B5E1B45C67091976DA478
 ```
 
 https://mybot314.ru/tekegram_catalog/

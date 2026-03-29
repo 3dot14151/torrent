@@ -1,3 +1,55 @@
+###  Публикация: 1363894   (924920) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вариация официальных exe-патчей для Warcraft ROC/TFT 1.00-1.27b. Предназначены для копирования файлов с заменой.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F93C0966FAFCB03B2C8B220BCBE0C0CBDB8BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363895   (924909) от 10.03.2020
+
+WarCraft III/3: Reign of Chaos + The Frozen Throne (2002) [Ru/En] (1.00-1.27b) Unofficial [Patches]
+
+>>Win Старые Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вариация официальных exe-патчей для Warcraft ROC/TFT 1.00-1.27b. Предназначены для запуска через программу WarCraft Version Switcher.Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: Стратегия в реальном времени, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1F4359B6DE4297328ED14A1CBE2D1298F2B8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096088   (921937) от 22.01.2017
 
 Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
@@ -6,7 +58,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921937.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Area 51 Dilogy / Зона 51 Дилогия (2005-2007) [Ru/En] (1.1/1.2) Repack
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920124.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ SWAT 3: Tactical (1999) [En] (2.1) License GOG [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915125.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914996.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911914.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Police Quest: SWAT 2 (1998) [En] (1.0.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911789.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Star Wars Episode I: Jedi Power Battles (2000) [En] (1.0.4/4.1) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911604.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911590.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905978.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904786.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904245.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903342.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903337.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903333.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903330.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902643.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902642.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898952.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898689.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895036.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891995.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494083   (890531) от 06.09.2021
-
-King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы когда-либо играли в Age of Empires 2, то должны помнить замечательный вступительный ролик к этой игре: ночь, замок, дрова, потрескивающие в камине, и два короля за массивным столом, которые, изредка прихлёбывая горячий пунш, ведут между собой «поединок умов», играя в шахматы в виде замечательных резных фигур. Теперь и у вас есть возможность сыграть в нечто (   Читать дальше...   )Тип издания: LicenseРазработчик: ImagitecЖанр: Стратегия, Пошаговая, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD9BC1859F56C443F8F08B1E5458041EA312A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371278   (889717) от 31.03.2020
-
-Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Resurrection разворачивается в промежутке между первой и второй играми на территории Нью Мексико. Разработчики обещают карту, сравнимую по размерам с оригинальной Fallout, однако сдобренную куда большим количеством квестов и вариантов их решения. Resurrrection берёт за основу именно первую игру культовой серии, делая ставку на мрачную атмосферу безысходности (   Читать дальше...   )Тип издания: RepackРазработчик: Black Isle StudiosЖанр: RPGЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ECEB5CEA6112D63AEC75F7DC76CFA9233BA587
 ```
 
 https://mybot314.ru/tekegram_catalog/

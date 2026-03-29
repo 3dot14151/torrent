@@ -6,7 +6,7 @@ The Marcia Blaine School For Girls - Halfway Into The Woods (2007) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762661.jpg" />
+  <img src="Z:/picture/008/save_picture_762661.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ TapinRadio Pro 1.72.6 Portable by PortableAppC (12.05.2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762636.jpg" />
+  <img src="Z:/picture/008/save_picture_762636.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762628.jpg" />
+  <img src="Z:/picture/008/save_picture_762628.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Glary Utilities Pro 5.51.0.71 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762625.jpg" />
+  <img src="Z:/picture/008/save_picture_762625.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ MediaInfo 0.7.73 Final Portable (32-64 bit) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762601.jpg" />
+  <img src="Z:/picture/008/save_picture_762601.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Vivaldi 1.0.151.7 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762583.jpg" />
+  <img src="Z:/picture/008/save_picture_762583.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Zoner Photo Studio Professional 17 Build 9 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762574.jpg" />
+  <img src="Z:/picture/008/save_picture_762574.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762562.jpg" />
+  <img src="Z:/picture/008/save_picture_762562.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762553.jpg" />
+  <img src="Z:/picture/008/save_picture_762553.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ UC Browser 5.6.12265.1017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762550.jpg" />
+  <img src="Z:/picture/008/save_picture_762550.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Actual Window Manager 8.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762549.jpg" />
+  <img src="Z:/picture/008/save_picture_762549.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Paragon System Upgrade Utilities 2010 Free / Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762538.jpg" />
+  <img src="Z:/picture/008/save_picture_762538.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Total Uninstall Pro 6.13.0 Portable by PortableXapps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762521.jpg" />
+  <img src="Z:/picture/008/save_picture_762521.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Total Uninstall Ultimate 6.13.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762520.jpg" />
+  <img src="Z:/picture/008/save_picture_762520.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ XMedia Recode 3.2.2.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762518.jpg" />
+  <img src="Z:/picture/008/save_picture_762518.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Zoner Photo Studio Professional 17 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762508.jpg" />
+  <img src="Z:/picture/008/save_picture_762508.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Photo Mechanic 5.0 (17338) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762478.jpg" />
+  <img src="Z:/picture/008/save_picture_762478.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Red Giant Shooter Suite 13.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762477.jpg" />
+  <img src="Z:/picture/008/save_picture_762477.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Chief Architect Premier X8 18.2.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762475.jpg" />
+  <img src="Z:/picture/008/save_picture_762475.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Rainmeter 3.3.2 Build 2609 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762474.jpg" />
+  <img src="Z:/picture/008/save_picture_762474.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762472.jpg" />
+  <img src="Z:/picture/008/save_picture_762472.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762470.jpg" />
+  <img src="Z:/picture/008/save_picture_762470.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762467.jpg" />
+  <img src="Z:/picture/008/save_picture_762467.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ ChrisPC Win Experience Index 4.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762466.jpg" />
+  <img src="Z:/picture/008/save_picture_762466.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762465.jpg" />
+  <img src="Z:/picture/008/save_picture_762465.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Heroes Chronicles: Warlords of the Wasteland / Хроники героев: Во
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762458.jpg" />
+  <img src="Z:/picture/008/save_picture_762458.jpg" />
 </div>
 
 

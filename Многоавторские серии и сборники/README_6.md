@@ -1,3 +1,109 @@
+###  Публикация: 1357750   (972930) от 04.02.2020
+
+Книжная серия | Netflix: официальное издание Stranger Things.Очень странные дела [3 книги] (2019 - 2020) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственная лаборатория. Зловещий ученый.
+Если вы думаете, что уже знаете все о матери Одиннадцать, Кали и докторе Бреннере, то приготовьтесь: история повернется Обратной стороной в этом захватывающем приквеле культового сериала «Очень странные дела».
+В 1969 году умы молодежи США заняты высадкой на Луну и войной во Вьетнаме. Студентке колледжа Индианы Терри Айвз (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Мистика, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B395D2347C215BA025A9055415C0A074844D731D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336990   (972764) от 04.02.2020
+
+Книжная серия | Звезды интеллектуальной фантастики [5 книг] (2018 - 2020) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книжная серия, от издательства Эксмо. В ней издаются, как ранее не переводившиеся у нас произведения, так и романы, в новом переводе.Жанр: Фантастика, Фэнтези, Научная фантастика, Героическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9168AD4627E606A93576876A0E308D3A3875D98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504899   (971670) от 12.02.2013
+
+Книжная серия "Обитаемый остров" (14 книг) [2011-2012] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Стругацких "Обитаемый остров" - это новая серия книг, в которых идет развитие темы основного произведения но уже другими авторами.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73225EC208DCFC4C60E5CFB0FC553045265F2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357854   (971643) от 05.02.2020
+
+Книжная серия | «Сотня / 100» [12 книг] (2014-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально это была персональная серия американской писательницы Кэсс Морган, в которой издавался цикл «Сотня», обложки книг которого стилизованы под постер к одноименному сериалу. Затем серия расширилась и на другие фантастические романы (необязательно на космическую тематику), опубликованные в похожем оформлении — первым был издан роман «Точка вымирания» Пола Энтони (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Зарубежная фантастика, Космическая фантастика, Научная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28A83CB61779A276600A2264D8E5B987D358F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 843966   (971483) от 15.01.2016
 
 Книжная серия | Русская фантастика [322 книги. Обновляемая] (2003-2016) [FB2]
@@ -6,7 +112,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971483.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969333.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966396.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966245.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965991.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965896.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_962687.jpg" />
+  <img src="Z:/picture/005/save_picture_962687.jpg" />
 </div>
 
 
@@ -198,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961669.jpg" />
 </div>
 
 
@@ -224,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961175.jpg" />
 </div>
 
 
@@ -251,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959381.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954802.jpg" />
 </div>
 
 
@@ -308,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954257.jpg" />
 </div>
 
 
@@ -334,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953281.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949713.jpg" />
 </div>
 
 
@@ -389,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948967.jpg" />
 </div>
 
 
@@ -416,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943877.jpg" />
 </div>
 
 
@@ -442,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941474.jpg" />
 </div>
 
 
@@ -469,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940965.jpg" />
 </div>
 
 
@@ -495,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939429.jpg" />
 </div>
 
 
@@ -523,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938583.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936473.jpg" />
 </div>
 
 
@@ -579,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934827.jpg" />
 </div>
 
 
@@ -591,116 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952C5ED602721712F8DBB136BE2C7C60946A5B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506769   (934383) от 11.03.2013
-
-Книжная серия "Библиотека Мужского клуба" (20 томов) [2005 – 2010] [FB2, PDF, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека Мужского клуба - серия динамичных и веселых книжек издательства Крылов, смесь фэнтези и детектива. В ней выходили произведения авторов - Сергея Панарина, Александра Быкова, Ирины Пушкаревой и других. У Панарина в этой серии вышли три цикла - Волшебная самоволка, Тамбовский квартет и Харри Проглоттер.Формат: FB2 (18 томов), PDF (1 том), DJVU (1 том)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85EFE97407206739B20938011D2F210963199931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986881   (928764) от 15.02.2016
-
-Книжная серия | Силы специальных операций [3 книги] (2015-2016) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая серия издательства «Эксмо» посвященная подразделениям специального назначения. Пока в серии издаются книги только Сергея Зверева.
-
-Военный инструктор Олег Моджерин, прибывший в Африку для обучения местных солдат, по досадной ошибке был похищен мафией, промышляющей скупкой редкоземельных металлов. Офицера держат в плену, пытаясь выяснить, куда он спрятал деньги (   Читать дальше...   )Жанр: Военный боевик, СпецназФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F664385CF3861EB0D88158B951E7A9C59B1C876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544666   (925353) от 26.01.2015
-
-Книжная серия | Летописи Владигора [9 книг] (1996-2000) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крупный цикл славянско-героического фэнтези — Летописи Владигора, начало которым положил своими романами «Владигор», «Тайна Владигора» и «Меч Владигора» Леонид Бутяков. Наверное, именно заглавного героя этого сериала — языческого князя, хранителя времени — можно со всеми вытекающими назвать русским Конаном.
-  Судьба не баловала его, и если возносила на княжеский трон, то лишь затем, чтобы потом низвергнуть в трюм пиратской галеры. Он не был великим воином, хотя меча его опасались многие. Его не считали волшебником, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622EDCB1E94FB58EF99644711349F368D46D42CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958720   (923644) от 21.01.2017
-
-Книжная серия | Другие миры [24 книги. Обновляемая] (2015-2017) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Другие миры - новая серия отечественной фантастики о поисках любви в других мирах.
-Как сказал Евгений Петросян: «Вас ждут непередаваемые очучения!»
-
-Лорд Элвин,маг из Братства Стражей, привык к могуществу и безнаказанности. Встреча с обычной человеческой девушкой станет для него началом пути потерь и обретений.(   Читать дальше...   )Жанр: Юмористическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF160B013EF75C2E34A6243538A4D27EB49304A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

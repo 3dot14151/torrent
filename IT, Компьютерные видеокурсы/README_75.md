@@ -1,3 +1,144 @@
+###  Публикация: 492243   (248378) от 06.05.2012
+
+Специалист | M6451 Планирование, развертывание и управление Microsoft System Center Configuration Manager 2007 [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248378.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом пятидневном курсе Вы овладеете знаниями и навыками, необходимыми для планирования, внедрения и управления Microsoft System Center Configuration Manager 2007 R3.
+
+На курсе особое внимание уделяется планированию и реализации сайтов и клиентов, конфигурации процесса развёртывания программного обеспечения и операционных систем и управлению обновлениями программного обеспечения. В ходе обучение Вы также рассмотрите средства удаленной работы и другие возможности SCCM.
+
+System Center Configuration Manager (SCCM), ранее Systems Management Server (SMS), представляет собой продукт Microsoft для управления большими группами Windows-систем.
+ Configuration Manager обеспечивает инвентаризацию и контроль использования оборудования и программного обеспечения, управление обновлениями, распространение программного обеспечения, развертывание операционных систем, а также защиту доступа к сети.
+
+Данный курс предназначен для ИТ-специалистов с опытом работы по поддержке большого количества рабочих станций  и серверов под управлением (   Читать дальше...   )Жанр: АдминистрированиеПродолжительность: 18:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492231   (248377) от 06.05.2012
+
+Специалист | М6423 Кластерные решения на базе Windows Server 2008 R2 [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами стоит задача внедрения и управления кластеризацией в Windows Server 2008 R2? На данном курсе Вы освоите построение и обслуживание отказоустойчивых кластеров и кластеров балансировки сетевой нагрузки. По окончании курса Вы научитесь создавать отказоустойчивые кластеры, управлять ими, настраивать кластерные ресурсы и роли сервера, проводить мониторинг отказоустойчивых кластеров и многое другое.Жанр: АдминистрированиеПродолжительность: 10:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2C43071D9A28B57EC2C788FFBE307B896A04AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638741   (247679) от 09.06.2023
+
+Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете учебную программу, которая подготовит вас к работе в качестве разработчика на C++, или, может быть, вы хотите разработать свои собственные инди-игры, типичная вводная учебная программа по C++ не подготовит вас к работе в отрасли должным образом.
+Изучения концепций C++ изолированно путем написания простых консольных приложений недостаточно — вы должны (   Читать дальше...   )Производство: UdemyЖанр: Программирование, C++, Unreal EngineЯзык озвучки: Русский (отдельным файлом)Продолжительность: 58:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1BD84828631BA6DC4952D410774618D3278DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640180   (247543) от 16.06.2023
+
+Slurm (Слёрм), Всеволод Севостьянов, Павел Селиванов, Виктор Попов и др. | DevOps Upgrade (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебная программа для администраторов и разработчиков, которые хотят стать девопс-инженерами.
+Повысить свой профессиональный уровень. Обычно на такие изменения уходит год.Крепко погрузитесь в методологию девопс
+Научитесь использовать Git, Docker, Kubernetes
+Познакомитесь с практиками CI/CD, логирования, мониторинга(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 69:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B67B9CB5A7E96BF245154687A5B6BF9F6C5311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458006   (247542) от 16.06.2023
+
+Udemy, Антон Ларичев | NestJS - с нуля, современный backend на TypeScript и Node JS (2021) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247542.jpg" />
+</div>
+
+
+###  Подробнее
+
+NestJS - это быстро растущий Node.js фреймворк, который позволяет командам легко разрабатывать поддерживаемые, легко тестируемые и масштабируемые приложения благодаря TypeScript и его архитектуре. Он вдохновлен такими популярными framework как Angular, React или Vue, которые выводят разработку приложений на совершенно новый уровень. Для него уже созданы сотни сторонних (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 09:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32350379A0B724E9C3B94ACB7B9421543EDE816C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640261   (247532) от 17.06.2023
 
 Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL [EN]
@@ -6,7 +147,7 @@ Udemy, Sean Bradley | Zabbix 6 Application and Network Monitoring (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247532.jpg" />
+  <img src="Z:/picture/004/save_picture_247532.jpg" />
 </div>
 
 
@@ -34,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247525.jpg" />
+  <img src="Z:/picture/004/save_picture_247525.jpg" />
 </div>
 
 
@@ -61,7 +202,7 @@ Udemy, Jonas Schmedtmann | The Ultimate React Course 2023: React, Redux & More  
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247431.jpg" />
+  <img src="Z:/picture/004/save_picture_247431.jpg" />
 </div>
 
 
@@ -90,7 +231,7 @@ Udemy, Ardit Sulce | Python Mega Course: Learn Python in 60 Days, Build 20 Apps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247409.jpg" />
+  <img src="Z:/picture/004/save_picture_247409.jpg" />
 </div>
 
 
@@ -116,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247322.jpg" />
+  <img src="Z:/picture/004/save_picture_247322.jpg" />
 </div>
 
 
@@ -145,7 +286,7 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247151.jpg" />
+  <img src="Z:/picture/004/save_picture_247151.jpg" />
 </div>
 
 
@@ -171,7 +312,7 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247023.jpg" />
+  <img src="Z:/picture/004/save_picture_247023.jpg" />
 </div>
 
 
@@ -198,7 +339,7 @@ PurpleSchool, Stepik, Антон Ларичев | HTML и CSS - полный к�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246978.jpg" />
+  <img src="Z:/picture/004/save_picture_246978.jpg" />
 </div>
 
 
@@ -224,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246928.jpg" />
 </div>
 
 
@@ -253,7 +394,7 @@ Udemy, Stanislav Gorchakov | Автоматизированный Telegram-ка�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246925.jpg" />
+  <img src="Z:/picture/004/save_picture_246925.jpg" />
 </div>
 
 
@@ -281,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246910.jpg" />
+  <img src="Z:/picture/004/save_picture_246910.jpg" />
 </div>
 
 
@@ -310,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246708.jpg" />
+  <img src="Z:/picture/004/save_picture_246708.jpg" />
 </div>
 
 
@@ -340,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246704.jpg" />
+  <img src="Z:/picture/004/save_picture_246704.jpg" />
 </div>
 
 
@@ -366,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246678.jpg" />
+  <img src="Z:/picture/004/save_picture_246678.jpg" />
 </div>
 
 
@@ -394,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246651.jpg" />
 </div>
 
 
@@ -429,7 +570,7 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246356.jpg" />
+  <img src="Z:/picture/004/save_picture_246356.jpg" />
 </div>
 
 
@@ -455,7 +596,7 @@ it-black, Виктор Черемных | Администрирование б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246352.jpg" />
+  <img src="Z:/picture/004/save_picture_246352.jpg" />
 </div>
 
 
@@ -483,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246189.jpg" />
 </div>
 
 
@@ -512,7 +653,7 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244496.jpg" />
+  <img src="Z:/picture/004/save_picture_244496.jpg" />
 </div>
 
 
@@ -541,7 +682,7 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244295.jpg" />
 </div>
 
 
@@ -568,7 +709,7 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244078.jpg" />
 </div>
 
 
@@ -579,146 +720,6 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567821   (243660) от 04.08.2022
-
-Никита Строков | Адекватный директ (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243660.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе я расскажу, как:
-
-Запускать рабочие рекламные кампании за 5-6 дней
-Вести кампании и сокращать цену заявки в 2-5 раз(   Читать дальше...   )Жанр: Яндекс ДиректЯзык озвучки: РусскийПродолжительность: 19:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572911   (238425) от 29.08.2022
-
-Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Bootcamp  (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы гарантируем вам, что это самый полный и актуальный курс Cyber Security Bootcamp, который вы можете найти. Вы изучите и освоите самые современные инструменты и лучшие практики, чтобы вас могли нанять в качестве инженера и эксперта по кибербезопасности в таких ролях, как: аналитик реагирования на инциденты, аналитик рисков, пентестер и криминалист!Производство: Zero To Mastery Academy (ZTM)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 10:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9551CDA462B5CFBA1F3E62957A5142744F7EF9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548762   (236966) от 06.05.2022
-
-Дмитрий Лаврик | React. Интенсивный курс для программистов (2022) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучить философию и дух компонентного подхода современных javascript-фреймворков, научиться использовать React для решения практических задач.
-Для новичков React сложнее, чем Vue.js. Но вакансий и заказов на фрилансе на нём больше.
-Для прохождения данного курса необходимо нормальное владение javascript, в том числе, понимание ООП, контекста, замыканий и стандарта (   Читать дальше...   )Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 15:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C2929D964E8AB2CA172E0AF4C214EC089F317A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549717   (236910) от 07.05.2022
-
-Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое No-code - это современный тренд в запуске IT-продуктов, который позволяет создавать мобильные и веб приложения с помощью специальных сервисов-конструкторов вместо написания кода. Благодаря No-code подходу можно самому создать MVP без навыков программирования, за 2—4 недели и с вложениями до 100$.
-
-Как вы экономите и зарабатываете больше благодаря работе (   Читать дальше...   )Производство: Cyberband AcademyЖанр: No-CodeЯзык озвучки: РусскийПродолжительность: 143:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E973AF63200C29B053AEFE59534226C9286CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549478   (236838) от 07.05.2022
-
-DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236838.jpg" />
-</div>
-
-
-###  Подробнее
-
-DesignCourse построен таким образом, чтобы предоставить начинающим дизайнерам необходимую основу для создания красивых пользовательских интерфейсов.
-Основы. Понимание и применение основных основ дизайна пользовательского интерфейса послужит вам фундаментом.
-Дизайн компонентов. Начните с основ дизайна компонентов.
-Дизайн макета. Как только вы поймете основы дизайна (   Читать дальше...   )Производство: DesignCourseЖанр: Веб-дизайн, UI/UXЯзык озвучки: АнглийскийПродолжительность: 16:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EED2F7AEFBBC6231C9104BE33C27E72B2C76701
 ```
 
 https://mybot314.ru/tekegram_catalog/

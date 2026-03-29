@@ -1,3 +1,218 @@
+###  Публикация: 1739212   (48786) от 26.07.2024
+
+NIUBI Partition Editor Technician 9.9.8 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48786.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE396ACACDDF51D73D4B3F0F99F9DE0A2E5589F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739161   (48780) от 26.07.2024
+
+Macrorit Partition Expert 8.2.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD9CDA393D81D0E7FEA98D45BD229AF050C1C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743349   (46718) от 15.08.2024
+
+AOMEI Partition Assistant Technician Edition 10.4.2 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46718.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOMEI Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2E40A28512C633347E845055BA55C7E4D64654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751641   (42343) от 26.09.2024
+
+QuickMemoryTestOK 4.82 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42343.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickMemoryTestOK - небольшая, но эффективная утилита для быстрой проверки оперативной памяти на наличие ошибок.
+
+По словам разработчика, утилита также может быть использована для изучения поведения ПК при большом использовании памяти и определения того, является ли это причиной системных ошибок. Присутствует возможность выполнять индивидуальные тесты и отслеживать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A864961FBCDAAF9946EE496FB685FF893E26D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751884   (42258) от 27.09.2024
+
+AMD Ryzen Master 2.13.1.3097 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42258.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMD Ryzen Master - официальная утилита от AMD, с помощью которой можно разгонять процессоры AMD Razen, а также тонко настраивать параметры процессора, оперативной памяти и встроенной графики. Так как каждый процессор AMD Ryzen имеет разблокированный на заводе множитель, вы можете настраивать его производительность используя утилиту AMD Ryzen Master.
+
+Утилита AMD (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2D8BA173DABFD1AEBDF53DE2FC0FE34E072C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753159   (41565) от 03.10.2024
+
+IObit Smart Defrag Pro 10.1.0.419 Portable by 7997 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB291387A9FED2D0AA44FA46B5C80BC164C52BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753171   (41510) от 04.10.2024
+
+O&O Defrag Professional 29.0 Build 11110 RePack by KpoJIuK [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41510.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
+При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D4FB9C0CDDE4F224D5FDD5FFF31D4BE1828019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755883   (39971) от 18.10.2024
+
+NIUBI Partition Editor 10.0.0 Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39971.jpg" />
+</div>
+
+
+###  Подробнее
+
+NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
+В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBC67EA263BA5369BEA3D8EE5A0EE8B0CBAB6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760995   (37015) от 17.11.2024
 
 Macrorit Partition Expert 8.3.0 Pro / Technician / Server / Unlimited Edition RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +221,7 @@ Macrorit Partition Expert 8.3.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37015.jpg" />
 </div>
 
 
@@ -32,7 +247,7 @@ NIUBI Partition Editor 10.0.9 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36878.jpg" />
 </div>
 
 
@@ -59,7 +274,7 @@ Auslogics Disk Defrag Pro 12.0.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34481.jpg" />
 </div>
 
 
@@ -85,7 +300,7 @@ AMD Ryzen Master 2.14.2.3341 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34345.jpg" />
 </div>
 
 
@@ -113,7 +328,7 @@ NIUBI Partition Editor 10.1.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33791.jpg" />
 </div>
 
 
@@ -140,7 +355,7 @@ HDD Low Level Format Tool 4.50 RePack (& Portable)  by KpoJIuK [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33113.jpg" />
 </div>
 
 
@@ -166,7 +381,7 @@ NIUBI Partition Editor 10.2.0 Pro / Server / Unlimited / Technician Edition RePa
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30995.jpg" />
 </div>
 
 
@@ -193,7 +408,7 @@ Macrorit Partition Expert 8.6.0 Pro / Technician / Server / Unlimited Edition Re
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30374.jpg" />
 </div>
 
 
@@ -219,7 +434,7 @@ Macrorit Disk Scanner 7.1.0 Pro / Unlimited / Technician Edition RePack (& Porta
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30361.jpg" />
 </div>
 
 
@@ -245,7 +460,7 @@ Auslogics SSD Optimizer Pro 2.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30087.jpg" />
 </div>
 
 
@@ -271,7 +486,7 @@ Macrorit Partition Extender 2.6.0 Unlimited Edition RePack (& Portable) by elchu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29290.jpg" />
 </div>
 
 
@@ -297,7 +512,7 @@ Macrorit Disk Scanner 7.1.0 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29265.jpg" />
 </div>
 
 
@@ -323,7 +538,7 @@ Active@ Disk Editor 25.0.7 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29254.jpg" />
 </div>
 
 
@@ -349,7 +564,7 @@ DiskSavvy Pro/Ultimate/Server/Enterprise 17.3.14 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29173.jpg" />
 </div>
 
 
@@ -375,7 +590,7 @@ Memtest86+ 7.20 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28736.jpg" />
 </div>
 
 
@@ -401,7 +616,7 @@ MemTest86 11.2 Build 1000 Free [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28701.jpg" />
 </div>
 
 
@@ -427,7 +642,7 @@ IM-Magic Partition Resizer 7.5.1 Professional |Server | Unlimited Edition RePack
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28697.jpg" />
 </div>
 
 
@@ -453,7 +668,7 @@ Hard Disk Sentinel PRO 6.30 Build 13191 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24429.jpg" />
 </div>
 
 
@@ -464,215 +679,6 @@ Hard Disk Sentinel — отличная программа для монитор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A1F0E9AFD70C366B321F07BB8598EC8C26B207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785823   (24421) от 17.03.2025
-
-Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584C16BA08AA1295FFD1937DBE9F6055A6FA6E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785918   (24313) от 18.03.2025
-
-Hard Disk Sentinel Pro 6.30 Build 13391 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9E87BDAA59B825A2E5EC9F937171035189A142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786292   (24067) от 20.03.2025
-
-ChrisPC Win Experience Index 7.25.0318 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24067.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChrisPC Win Experience Index - бесплатная утилита, с помощью которой можно самостоятельно измерить системный индекс производительности в Windows (в последних версиях Windows разработчики отказались от графической формы этого инструмента).
-Значительно расширяет возможности стандартного индекса. Обладает простым понятным интерфейсом, быстро устанавливается и не требует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69871DEA44953EEA735005401AAF213ABC8E8E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790296   (22107) от 08.04.2025
-
-AIDA64 Extreme / Engineer / Business / Network Audit 7.65.7400 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22107.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029024A708A96E8123145D8452E0F0FB27697321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796745   (18548) от 12.05.2025
-
-IObit Smart Defrag Pro 10.4.0.441 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55E00A775A2F9761326DDE0BD46214BDC643D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799414   (16725) от 27.05.2025
-
-Hard Disk Sentinel PRO 6.30.1 Build 13402 Beta [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F988E27C4D1666D66B96DE99E7E86EAD2A3E3D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800674   (15585) от 05.06.2025
-
-Kingston SSD Manager 1.5.5.5 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingston SSD Manager — это приложение, предоставляющее пользователям возможность контроля и управления различными параметрами твердотельных накопителей Kingston.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505B2041E795DEB692201421D3F8E3ED52456DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802990   (14019) от 20.06.2025
-
-CrystalDiskMark 9.0.1 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14019.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskMark - утилита для сравнительного анализа (тестирования) быстродействия жестких дисков и других накопителей, позволяет измерить скорость различных операций, а именно копирования и записи блоков, заданных пользователем, на определенных разделах физических накопителей. После непродолжительного тестирования будет выдана средняя скорость чтения и записи на (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30924B90607B5FBD460FAD261C59F8B657AFA302
 ```
 
 https://mybot314.ru/tekegram_catalog/

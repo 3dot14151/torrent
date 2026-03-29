@@ -1,3 +1,81 @@
+###  Публикация: 1139283   (660917) от 01.06.2017
+
+RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: SteamRipРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAC10C991580DB5F772146C448FAA06DF4761FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225346   (660609) от 15.05.2018
+
+Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темный Рыцарь возвращается в Batman: The Telltale Series! Да, у нас нет лишней пары миллиардов долларов, но все мы немного бэтмены: боимся сумасшедших клоунов, любим котят и быстрые машины. Но еще больше общего у нас с Брюсом Уэйном – человеком в маске (или он и есть маска?): его детство уничтожено, его мир разрушен, и все-таки он пытается сделать свой родной город (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCB7E61451310523F9B8040D49AF0232B630066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139521   (659812) от 02.06.2017
+
+RiME (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури. Вы встретите диких животных, обнаружите заброшенные руины, и увидите гигантскую башню, которая так и манит подойти поближе. (   Читать дальше...   )Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Adventure, Action, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139818   (658556) от 03.06.2017
 
 Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
@@ -6,7 +84,7 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658556.jpg" />
+  <img src="Z:/picture/008/save_picture_658556.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658551.jpg" />
+  <img src="Z:/picture/008/save_picture_658551.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658473.jpg" />
+  <img src="Z:/picture/008/save_picture_658473.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657429.jpg" />
+  <img src="Z:/picture/008/save_picture_657429.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656467.jpg" />
+  <img src="Z:/picture/008/save_picture_656467.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656466.jpg" />
+  <img src="Z:/picture/008/save_picture_656466.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656441.jpg" />
+  <img src="Z:/picture/008/save_picture_656441.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654492.jpg" />
+  <img src="Z:/picture/008/save_picture_654492.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653490.jpg" />
+  <img src="Z:/picture/008/save_picture_653490.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653151.jpg" />
+  <img src="Z:/picture/008/save_picture_653151.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651888.jpg" />
+  <img src="Z:/picture/008/save_picture_651888.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651878.jpg" />
+  <img src="Z:/picture/008/save_picture_651878.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651369.jpg" />
+  <img src="Z:/picture/008/save_picture_651369.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651117.jpg" />
+  <img src="Z:/picture/008/save_picture_651117.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650646.jpg" />
+  <img src="Z:/picture/008/save_picture_650646.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650123.jpg" />
+  <img src="Z:/picture/008/save_picture_650123.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Copoka (2016) [En] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649008.jpg" />
+  <img src="Z:/picture/008/save_picture_649008.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ We. The Revolution (2019) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648182.jpg" />
+  <img src="Z:/picture/008/save_picture_648182.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646313.jpg" />
+  <img src="Z:/picture/008/save_picture_646313.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644380.jpg" />
+  <img src="Z:/picture/008/save_picture_644380.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644333.jpg" />
+  <img src="Z:/picture/008/save_picture_644333.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642600.jpg" />
+  <img src="Z:/picture/008/save_picture_642600.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639361.jpg" />
+  <img src="Z:/picture/008/save_picture_639361.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA2CE5EBE8B5187B57FFEC6F46D9E35AEEF7BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293420   (636985) от 03.04.2019
-
-House of Evil (2017) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636985.jpg" />
-</div>
-
-
-###  Подробнее
-
-House of Evil — survival horror с видом от первого лица, в котором вы можете проверить свои нервы на прочность. События происходят в особняке, который существует в действительности. Главный герой - обычный обыватель, его жена - экзорцист, после необычного телефонного разговора главный герой не может дозвониться супруге и решает отправиться на ее поиски, судьба приведет (   Читать дальше...   )Тип издания: RepackРазработчик: Trokhin ViktorЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E95CE9F9C7C206EBD33693550DB70FB698EDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293351   (636901) от 03.04.2019
-
-Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1910 год. Кажется, что время в залитом робким весенним солнцем сонном портовом поселении Иллсмут в Новой Англии остановилось. Но в тихом омуте черти водятся... Обманчивое спокойствие этой деревушки скрывает ужасную тайну. События прошлого не утратили своего влияния на настоящее. Связано ли возвращение кометы Галлея с Великими Древними, ввергавшими когда-то страну (   Читать дальше...   )Тип издания: LicenseРазработчик: Infogrames Europe SAЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0AB3157D88B434CDB7C656D322B482F04BABC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542439   (636662) от 07.04.2022
-
-Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый писатель Себастьян Хашер пропал вместе со всей своей семьей. Встревожившись, его редактор отправил помощника в дом писателя на поиски, но тот так и не вернулся. Эти исчезновения запускают цепочку событий, раскрывающих нечто ужасное: причиной всему оказывается безымянное тёмное существо, известное как Присутствие.Тип издания: LicenseРазработчик: Protocol GamesЖанр: Adventure, Survival HorrorЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C204C573B5AE0E51B2A5C9897097E1B10DC480
 ```
 
 https://mybot314.ru/tekegram_catalog/

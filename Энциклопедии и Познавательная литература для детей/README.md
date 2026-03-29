@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1860937   (1062267) от 
+
+Олег Рой | Арктика (2026) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к удивительному путешествию в самый холодный и загадочный край нашей планеты – Арктику! Юные исследователи Ваня и Варя живут среди бескрайних снегов и северного сияния вместе со своей умной собакой Арктикой, которая не только умеет говорить, но и знает все тайны этого сурового края.
+
+Вместе с этой неразлучной тройкой читателей ждёт захватывающее приключение: (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Детям о природе, Освоение Арктики, Природа и животные, Природа России, Русский СеверИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954546BD0AA5F602495C06E10CB304D5C15FFBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860609   (1061894) от 
+
+Ксения Кармацкая | Сквозь джунгли химии. Школьный курс нескучно и понятно (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061894.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сквозь джунгли химии» – иллюстрированный путеводитель по школьному курсу химии от популярного блогера Ксении Кармацкой. Вы научитесь разбираться в темах, которые раньше казались скучными и трудными, и сдавать все экзамены только на «5».Жанр: Биология и химия, Общая химияИздательство: Бомбора (Эксмо)Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB30331684DF7F1B3ABF41D91E39E5EC2DD33D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860287   (1061680) от 
 
 Франческо Томазинелли | Самолеты. От «воздушного винта» Леонардо да Винчи до невидимого самолёта (2025) [PDF]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061680.jpg" />
+  <img src="Z:/picture/005/save_picture_1061680.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061246.jpg" />
+  <img src="Z:/picture/005/save_picture_1061246.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060801.jpg" />
+  <img src="Z:/picture/005/save_picture_1060801.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060800.jpg" />
+  <img src="Z:/picture/005/save_picture_1060800.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057566.jpg" />
+  <img src="Z:/picture/005/save_picture_1057566.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056212.jpg" />
+  <img src="Z:/picture/005/save_picture_1056212.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056126.jpg" />
+  <img src="Z:/picture/005/save_picture_1056126.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056125.jpg" />
+  <img src="Z:/picture/005/save_picture_1056125.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055033.jpg" />
+  <img src="Z:/picture/005/save_picture_1055033.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055032.jpg" />
+  <img src="Z:/picture/005/save_picture_1055032.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054308.jpg" />
+  <img src="Z:/picture/005/save_picture_1054308.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054061.jpg" />
+  <img src="Z:/picture/005/save_picture_1054061.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052807.jpg" />
+  <img src="Z:/picture/005/save_picture_1052807.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052608.jpg" />
+  <img src="Z:/picture/005/save_picture_1052608.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051711.jpg" />
+  <img src="Z:/picture/005/save_picture_1051711.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049302.jpg" />
+  <img src="Z:/picture/008/save_picture_1049302.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049175.jpg" />
+  <img src="Z:/picture/008/save_picture_1049175.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049009.jpg" />
+  <img src="Z:/picture/008/save_picture_1049009.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048245.jpg" />
+  <img src="Z:/picture/008/save_picture_1048245.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048001.jpg" />
+  <img src="Z:/picture/008/save_picture_1048001.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045254.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045180.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042202.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042177.jpg" />
 </div>
 
 
@@ -621,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3CF29DF5DC2BA8EC0A60B076CCFF8DF17291FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384305   (1041939) от 05.01.2021
-
-Н.С. Иванова | Секреты моей мамы. Энциклопедия взрослых тайн для девочек (2008) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты стоишь на пороге взрослой, самостоятельной жизни, которая постепенно раскрывает перед тобой свои тайны. Одни из них ты узнаешь из книг, другие - из кинофильмов, третьи - из бесед с друзьями, старшими сестрами или братьями. Однако есть такие секреты, которые лучше обсуждать с самым дорогим и близким человеком - мамой. Если по каким-то причинам ты стесняешься задать (   Читать дальше...   )Жанр: Воспитание, психология, познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4894923C6FDF20978466AF8004B9339B630372F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607134   (1041932) от 05.01.2021
-
-Росмэн | Энциклопедия для самых маленьких (2004) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта красочно иллюстрированная энциклопедия познакомит малышей с основными предметами и вещами, которые окружают их в повседневной жизни. Даст первые представления о растениях и животных, космосе, нашей планете.
-
-Основной принцип построения этой книжки – это картинки из самых разных сфер нашей жизни и названия рядом с ними. На страницах энциклопедии малыш увидит, (   Читать дальше...   )Жанр: ЭнциклопедияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C369A8A3D01269AA8FE3E584B128BC42ECEED4F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

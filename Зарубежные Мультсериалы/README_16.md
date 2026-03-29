@@ -1,3 +1,56 @@
+###  Публикация: 889472   (747421) от 18.04.2015
+
+Чаггингтон: Веселые паровозики / Chuggington (2008-2011) DVDRip [H.264] (Сезон 1-3, Серии 1-92)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чаггингтон – необычный веселый городок, население которого состоит из паровозиков. все транспортные средства дружат между собой, радуются жизни и постоянно открывают в своей жизни что-то новое.
+В центре городка Чаггингтон находится депо – место, где постоянно собираются важные паровозы, чтобы осуществлять доставку грузов. пытаются освоить это дело три маленьких веселых (   Читать дальше...   )Производство: Великобритания / LudorumЖанр: Мультфильм, СемейныйРежиссер: Сара Болл / Sarah Ball, Сяо-дун Сюй / Xiao-dong XuАктеры: Бриджид Хэррингтон, Тони Террачьяно, Морган Овертон, Имоджен Бэйли, Мария Дарлинг, Чарли Джордж, Энди Найман, Пол Патинг, Изабелла Пальмиери, Тревор УайтПеревод: Профессиональный (дублированный)Продолжительность: Серия по ~00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F14B5F437955500E6904B79494C97160A330233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664840   (747228) от 04.06.2013
+
+Адские соседи / Соседи из Ада / Neighbors from Hell (2010) HDTVRip (1 сезон, 1-10 серии)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747228.jpg" />
+</div>
+
+
+###  Подробнее
+
+До Сатаны доходит слух об изобретении Petromundo, огромным глобальным конгломератом, бура, способного досверлить до центра планеты, где можно обнаружить место его обитания. Его Темнейшество в ярости посылает на поверхность своего самого лучшего демона Бальтазара со всей его семьей, который обладает энциклопедическими знаниями о человеческой жизни благодаря любви (   Читать дальше...   )Жанр: Комедия, Рисованная анимацияРежиссер: Джон Райс, Рэймонд С. ПерсиПерсонажи: Роберт Париджи, Пэм Брэйди, Марианн Гарджер,Пол Александр, Пол МендельсонПеревод: Многоголосый закадровый, 2х2Формат: AVIПродолжительность: 10 x 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6E58CF2849AF648A8BF6C81525A1E29E6B5285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596719   (747018) от 04.06.2013
 
 Симпсоны / The Simpsons (2012-2013) WEB-DL [H.264/720p-LQ] (24 сезон, серии 1-22 из 22)
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747018.jpg" />
+  <img src="Z:/picture/008/save_picture_747018.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745998.jpg" />
+  <img src="Z:/picture/008/save_picture_745998.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745908.jpg" />
+  <img src="Z:/picture/005/save_picture_745908.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745795.jpg" />
+  <img src="Z:/picture/008/save_picture_745795.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745756.jpg" />
+  <img src="Z:/picture/008/save_picture_745756.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744798.jpg" />
+  <img src="Z:/picture/008/save_picture_744798.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744499.jpg" />
+  <img src="Z:/picture/008/save_picture_744499.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744214.jpg" />
+  <img src="Z:/picture/008/save_picture_744214.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742773.jpg" />
+  <img src="Z:/picture/008/save_picture_742773.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742771.jpg" />
+  <img src="Z:/picture/008/save_picture_742771.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742768.jpg" />
+  <img src="Z:/picture/008/save_picture_742768.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742108.jpg" />
+  <img src="Z:/picture/008/save_picture_742108.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742106.jpg" />
+  <img src="Z:/picture/008/save_picture_742106.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742105.jpg" />
+  <img src="Z:/picture/008/save_picture_742105.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741617.jpg" />
+  <img src="Z:/picture/008/save_picture_741617.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741287.jpg" />
+  <img src="Z:/picture/008/save_picture_741287.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740590.jpg" />
+  <img src="Z:/picture/008/save_picture_740590.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739480.jpg" />
+  <img src="Z:/picture/008/save_picture_739480.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738876.jpg" />
+  <img src="Z:/picture/008/save_picture_738876.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737853.jpg" />
+  <img src="Z:/picture/008/save_picture_737853.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737727.jpg" />
+  <img src="Z:/picture/008/save_picture_737727.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736370.jpg" />
+  <img src="Z:/picture/008/save_picture_736370.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736029.jpg" />
+  <img src="Z:/picture/008/save_picture_736029.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734890.jpg" />
+  <img src="Z:/picture/008/save_picture_734890.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFFB797CB29E79085D559963BCE972F6605F214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649216   (733109) от 24.05.2014
-
-Монстры против Пришельцев / Monsters vs. Aliens (2013) WEB-DLRip (серия 1-52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733109.jpg" />
-</div>
-
-
-###  Подробнее
-
-После последней вылазки Монстров, всё тихо и спокойно в зоне 50 с чём-то. До тех пор пока не прибыл пришелец по имени Ковертон. Он впечатляет президента США и обещает мирное сосуществование. Но Монстры, генерал Воякер и президент не догадываются, что Ковертон работает на злую инопланетную организацию, которая хочет захватить Землю.Жанр: Мультфильм, фантастика, комедия, семейный, приключениеПеревод: Дублированный - NickelodeonЯзык субтитров: ОтсутствуютПродолжительность: Каждая серия ~ 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B2C170CA6EA5E30F6AC325B0AB4B6735993B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135128   (732252) от 08.06.2013
-
-Воины-скелеты / Skeleton Warriors (1994) VHSRip (S1, E13)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_732252.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти короля, мудрого и доброго правителя далекой планеты, младший брат поддался на предательские уговоры коварного Барона Дарка, служившего ранее отцу, и выступил против старшего. Он помог ему завладеть половиной кристалла Звезды Света, который давал силу и энергию королевству Луменсити. После схватки Барон и его приспешники превратились в живые, неуязвимые (   Читать дальше...   )Жанр: Мультсериал, Приключения, Фантастика, ФэнтезиРежиссер: Виктор Дал ЧелФормат: AVI (XviD)Продолжительность: 13 х ~00:21:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

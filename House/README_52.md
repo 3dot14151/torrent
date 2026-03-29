@@ -1,3 +1,119 @@
+###  Публикация: 948142   (411601) от 20.10.2015
+
+Lorenzo Chiabotti - Adnur EP (2015) [MP3|320 кб/с]<Electronic, House, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411601.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Lorenzo Chiabotti - L'Appeso
+A2. Lorenzo Chiabotti - Adnur
+B1. Lorenzo Chiabotti - Cursor (Archie Hamilton's Cursory Glance)
+B2. Lorenzo Chiabotti - CursorЖанр: Electronic, House, Minimal, Tech HouseПродолжительность: 00:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C1DBDC29055F74B0B168EBC708222851FBB48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947731   (411484) от 20.10.2015
+
+VA - Ibiza 2015: Essential Funky House Vol. 2 (2015) [MP3|320 кб/с]<House, Club, Funky House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tzesar - Alike in Your World (06:20)
+02. DeejMd - 4U (06:10)
+03. Sean Biddle - Free Your Mind (06:35)
+04. Tzesar - Makes Me Lovin' U (05:30)(   Читать дальше...   )Жанр: House, Club, Funky HouseПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A035EE23DC79A25BDB8852BA8C53E75B36158B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168165   (410609) от 23.09.2017
+
+VA - The Sound of Kingside 2017 (Compilation) [MP3|320 Kbps] <Progressive House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Vox - Together
+02. Denis Goldin - Heartbeat
+03. Loris Buono - Tribe
+04. Mark Vox, Robbie Mirello - Ayani(   Читать дальше...   )Жанр: Progressive House, Big RoomПродолжительность: 01:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913B6554CFD8A6925D82F178AF93ABA4C3456B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413269   (409849) от 03.10.2020
+
+VA - Classic Workout Songs (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Boots - Remedy (Kaskade Radio Edit)
+02. William Orbit - Barber's Adagio for Strings (Ferry Corsten Remix)
+03. Flo Rida - Good Feeling (Bingo Players Remix)
+04. Hard-Fi - Hard to Beat (Ashley Beedle Mix)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8000C9C00BE73A17EFF7F5BDD49DC37B65C23C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067090   (408388) от 28.10.2016
 
 VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
@@ -6,7 +122,7 @@ VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408388.jpg" />
+  <img src="Z:/picture/008/save_picture_408388.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - World Club Tour Amsterdam: The Amsterdam Club Sound Collection (2012) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407504.jpg" />
+  <img src="Z:/picture/008/save_picture_407504.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.05 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406809.jpg" />
+  <img src="Z:/picture/008/save_picture_406809.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.04 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406807.jpg" />
+  <img src="Z:/picture/008/save_picture_406807.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ VA - Dancefloor FG Ete Summer 2012 (2012) [MP3|~245 кб/с (V0)]<House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406721.jpg" />
+  <img src="Z:/picture/008/save_picture_406721.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ Dave Ross - Dance Machine (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406424.jpg" />
+  <img src="Z:/picture/008/save_picture_406424.jpg" />
 </div>
 
 
@@ -198,7 +314,7 @@ VA - Disco Sensation (2012) [MP3|320 кб/с]<Funky, Club House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406182.jpg" />
+  <img src="Z:/picture/008/save_picture_406182.jpg" />
 </div>
 
 
@@ -233,7 +349,7 @@ VA - Dessous Classics Volume 2 (2012) [MP3|320 кб/с]<Deep House, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405969.jpg" />
+  <img src="Z:/picture/008/save_picture_405969.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ VA - For New Music Lovers & Dancers (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405057.jpg" />
+  <img src="Z:/picture/008/save_picture_405057.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ VA - Fashion In Profession Vol 1 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405055.jpg" />
+  <img src="Z:/picture/008/save_picture_405055.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - Ocean Deep Ibiza: The Exquisite Deep House Collection By Eva Pacifico (2012
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402993.jpg" />
+  <img src="Z:/picture/008/save_picture_402993.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398686.jpg" />
+  <img src="Z:/picture/008/save_picture_398686.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398128.jpg" />
+  <img src="Z:/picture/008/save_picture_398128.jpg" />
 </div>
 
 
@@ -425,7 +541,7 @@ DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397770.jpg" />
+  <img src="Z:/picture/008/save_picture_397770.jpg" />
 </div>
 
 
@@ -454,7 +570,7 @@ VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396148.jpg" />
+  <img src="Z:/picture/008/save_picture_396148.jpg" />
 </div>
 
 
@@ -489,7 +605,7 @@ VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395085.jpg" />
+  <img src="Z:/picture/008/save_picture_395085.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ Yotto - North (EP) - 2017 [MP3|320 Kbps] <Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394778.jpg" />
+  <img src="Z:/picture/008/save_picture_394778.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394715.jpg" />
+  <img src="Z:/picture/008/save_picture_394715.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393963.jpg" />
+  <img src="Z:/picture/008/save_picture_393963.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ VA - Deep Flavors (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392092.jpg" />
+  <img src="Z:/picture/008/save_picture_392092.jpg" />
 </div>
 
 
@@ -640,7 +756,7 @@ VA - New York Fashion House (A Finest House Selection) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392090.jpg" />
+  <img src="Z:/picture/008/save_picture_392090.jpg" />
 </div>
 
 
@@ -669,7 +785,7 @@ Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Prog
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392037.jpg" />
+  <img src="Z:/picture/008/save_picture_392037.jpg" />
 </div>
 
 
@@ -683,128 +799,6 @@ Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490A33A5E40668888C65E3FDEB5EF4CB7AD02082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173306   (390617) от 11.10.2017
-
-VA - Sunshine Live Vol.61 (2017) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - You Are  2:58
-02.  Felix Jaehn - Hot2Touch  2:41
-03.  Frank Knebel - Magic (Alex Preston Remix) (feat. Jillian Edwards)  3:15
-04.  Micar - Burden Down  3:14(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 06:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02117A4BC3E95BC973443279F4912B00F73977C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570826   (390265) от 05.11.2012
-
-VA - House With Sax Appeal Vol.1 (2010) [MP3|320 кб/с]<Deep House, Sax House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physics - That's Saxism
-02. Pepe Link Ft. Isis 'Apache' Montero - Jammin' (Original Mix)
-03. Eddie Matos - I Feel It (Original Mix)
-04. Physics - When It Breaks
-05. Eddie Matos - Give Me All That Jazz (Original Mix)
-06. Mateo & Matos Ft. Dirty Turk - Talkin' About (Old Skool Jazz Mix)
-07. Soulbasics Ft. Kyla Sexton - Out of Time (Instrumental Mix)
-08. Monodeluxe Ft. Paola - Follow (Nu Jazz Mix)
-09. Soularis ft. Mandy Edge - I Told You (Jay J Shifted Up Dub)
-10. East West Affair Ft. Jono McNeil - The World In My Eyes (Tucci In Celio Dub)(   Читать дальше...   )Жанр: Deep House, Sax HouseПродолжительность: 01:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5670EC4198CDCB7E88343FE2EF169C06CB105ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173791   (388979) от 13.10.2017
-
-VA - Roger Shah Presents High Noon At Salinas - Beach Grooves Vol.1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  High Noon At Salinas - In The Beginning There Was Sand (Extended Mix)  6:10
-02.  Sunlounger, High Noon At Salinas - High Noon Sunlounging (Extended Mix)  7:14
-03.  High Noon At Salinas, Noah Shah - Tarida (Extended Mix)  7:00
-04.  High Noon At Salinas, Leilani - Hale Kula (Extended Mix)  7:26(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E98CA00CB579DA42B50B12D02F14CEFEE0D612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174001   (387537) от 14.10.2017
-
-VA - Keep It up Workout, Vol. 1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Emeriq - Put It Out
-02. 02. DJ Scaldia & Ali Tcheelab - Bones And Candy
-03. Sugar Vibe - Neon
-04. Andrea Di Maso - Only You(   Читать дальше...   )Жанр: HouseПродолжительность: 03:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39F74143FE528CF022C475192112A6EA9C97FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

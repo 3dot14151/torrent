@@ -6,7 +6,7 @@ Sound Apparel - Magnum Opus Vol. 2 (Greatest Hits-Remastered) (2017)<Trance,Upli
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800296.jpg" />
+  <img src="Z:/picture/008/save_picture_800296.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796878.jpg" />
+  <img src="Z:/picture/008/save_picture_796878.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Global DJ Broadcast: Top 20 January (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795595.jpg" />
+  <img src="Z:/picture/008/save_picture_795595.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Dream Dance Vol.86 (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressiv
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794096.jpg" />
+  <img src="Z:/picture/008/save_picture_794096.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793915.jpg" />
+  <img src="Z:/picture/008/save_picture_793915.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Activa - Origins (2021) [FLAC|Lossless|WEB|tracks|image] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791521.jpg" />
+  <img src="Z:/picture/008/save_picture_791521.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791468.jpg" />
+  <img src="Z:/picture/008/save_picture_791468.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791467.jpg" />
+  <img src="Z:/picture/008/save_picture_791467.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshir
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791464.jpg" />
+  <img src="Z:/picture/008/save_picture_791464.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sash! - The Best Of (2008) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Elect
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791196.jpg" />
+  <img src="Z:/picture/008/save_picture_791196.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - A State of Trance: Year Mix (Mixed by Armin van Buuren)2CD (2018) [FLAC|Los
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791008.jpg" />
+  <img src="Z:/picture/008/save_picture_791008.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Above & Beyond - Common Ground (2018) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790900.jpg" />
+  <img src="Z:/picture/008/save_picture_790900.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Modulation - Sky (2004) Maxi-Single [FLAC|Lossless|tracks + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790488.jpg" />
+  <img src="Z:/picture/008/save_picture_790488.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Craig Connelly - A Sharper Edge (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786569.jpg" />
+  <img src="Z:/picture/008/save_picture_786569.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784358.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Mat Zo Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783669.jpg" />
+  <img src="Z:/picture/008/save_picture_783669.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Russian Trance 2020 [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783356.jpg" />
+  <img src="Z:/picture/008/save_picture_783356.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ferry Corsten - Blueprint (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782498.jpg" />
+  <img src="Z:/picture/008/save_picture_782498.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Magnetik - Body Language (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks]
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781297.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Markus Schulz - Watch the World (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777943.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|W
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775019.jpg" />
+  <img src="Z:/picture/008/save_picture_775019.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773527.jpg" />
+  <img src="Z:/picture/008/save_picture_773527.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773451.jpg" />
+  <img src="Z:/picture/008/save_picture_773451.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773317.jpg" />
+  <img src="Z:/picture/008/save_picture_773317.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Sunny Lax Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769212.jpg" />
+  <img src="Z:/picture/008/save_picture_769212.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767839.jpg" />
+  <img src="Z:/picture/008/save_picture_767839.jpg" />
 </div>
 
 

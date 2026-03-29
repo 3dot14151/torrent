@@ -6,7 +6,7 @@ Soft4Boost Document Converter 4.8.1.511 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844955.jpg" />
+  <img src="Z:/picture/008/save_picture_844955.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced Renamer 3.75 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844947.jpg" />
+  <img src="Z:/picture/008/save_picture_844947.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ClickTeam Install Creator Pro 2.0.43 Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844936.jpg" />
+  <img src="Z:/picture/008/save_picture_844936.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ICQ 10.0 build 12027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844916.jpg" />
+  <img src="Z:/picture/008/save_picture_844916.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Air Explorer Pro 1.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844905.jpg" />
+  <img src="Z:/picture/008/save_picture_844905.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cyberfox 52.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844866.jpg" />
+  <img src="Z:/picture/008/save_picture_844866.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Media Player Codec Pack 4.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844862.jpg" />
+  <img src="Z:/picture/008/save_picture_844862.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ K-Lite Codec Pack Update 12.0.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844829.jpg" />
+  <img src="Z:/picture/008/save_picture_844829.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Mirillis Action! 1.30.2.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844827.jpg" />
+  <img src="Z:/picture/008/save_picture_844827.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Tipard HD Video Converter 7.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844821.jpg" />
+  <img src="Z:/picture/008/save_picture_844821.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AVG Internet Security 2016 16.61.7538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844819.jpg" />
+  <img src="Z:/picture/008/save_picture_844819.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AVG AntiVirus 2016 16.61.7538 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844818.jpg" />
+  <img src="Z:/picture/008/save_picture_844818.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Multi Commander 6.0 Build 2118 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844816.jpg" />
+  <img src="Z:/picture/008/save_picture_844816.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ JRiver Media Center 26.0.69 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844792.jpg" />
+  <img src="Z:/picture/008/save_picture_844792.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Hirschmann Industrial HiVision 06.0.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844738.jpg" />
+  <img src="Z:/picture/008/save_picture_844738.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Ashampoo Photo Optimizer 6.0.20.138 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844736.jpg" />
+  <img src="Z:/picture/008/save_picture_844736.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ JPEXS Free Flash Decompiler 11.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844727.jpg" />
+  <img src="Z:/picture/008/save_picture_844727.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Soft4Boost Secure Eraser 4.4.1.539 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844674.jpg" />
+  <img src="Z:/picture/008/save_picture_844674.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844669.jpg" />
+  <img src="Z:/picture/008/save_picture_844669.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinTools.net Premium 16.3.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844666.jpg" />
+  <img src="Z:/picture/008/save_picture_844666.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Xilisoft Video Converter Ultimate 7.8.14 Build 20160322 RePack (& Portable) by e
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844664.jpg" />
+  <img src="Z:/picture/008/save_picture_844664.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Apowersoft Video Download Capture 5.1.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844656.jpg" />
+  <img src="Z:/picture/008/save_picture_844656.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ uTorrent 3.4.6 Build 42094 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844651.jpg" />
+  <img src="Z:/picture/008/save_picture_844651.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Internet Download Manager 6.37 Build 11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844647.jpg" />
+  <img src="Z:/picture/008/save_picture_844647.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ BELOFF [dp] 2020.04.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844645.jpg" />
+  <img src="Z:/picture/008/save_picture_844645.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Topaz Mask AI 1.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844642.jpg" />
+  <img src="Z:/picture/008/save_picture_844642.jpg" />
 </div>
 
 

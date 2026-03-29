@@ -6,7 +6,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592831.jpg" />
+  <img src="Z:/picture/008/save_picture_592831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583882.jpg" />
+  <img src="Z:/picture/008/save_picture_583882.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537776.jpg" />
+  <img src="Z:/picture/008/save_picture_537776.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534833.jpg" />
+  <img src="Z:/picture/008/save_picture_534833.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527251.jpg" />
+  <img src="Z:/picture/008/save_picture_527251.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413005.jpg" />
+  <img src="Z:/picture/008/save_picture_413005.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410758.jpg" />
+  <img src="Z:/picture/008/save_picture_410758.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390225.jpg" />
+  <img src="Z:/picture/008/save_picture_390225.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Motion Array - Rock City - Film Opener - 292941 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378217.jpg" />
+  <img src="Z:/picture/008/save_picture_378217.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378049.jpg" />
+  <img src="Z:/picture/008/save_picture_378049.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VideoHive - Traveler's Sketchbook - Instagram Stories Pack -  24352947 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373991.jpg" />
+  <img src="Z:/picture/008/save_picture_373991.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VideoHive - Time - 804913 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372723.jpg" />
+  <img src="Z:/picture/008/save_picture_372723.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VideoHive - Photo Animator V6.0 - 12972961 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369504.jpg" />
+  <img src="Z:/picture/008/save_picture_369504.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366952.jpg" />
+  <img src="Z:/picture/008/save_picture_366952.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ VideoHive - Wordica - 110912 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365950.jpg" />
+  <img src="Z:/picture/008/save_picture_365950.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349236.jpg" />
+  <img src="Z:/picture/008/save_picture_349236.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349234.jpg" />
+  <img src="Z:/picture/008/save_picture_349234.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344623.jpg" />
+  <img src="Z:/picture/008/save_picture_344623.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344376.jpg" />
+  <img src="Z:/picture/008/save_picture_344376.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333375.jpg" />
+  <img src="Z:/picture/008/save_picture_333375.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325219.jpg" />
+  <img src="Z:/picture/008/save_picture_325219.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318558.jpg" />
+  <img src="Z:/picture/008/save_picture_318558.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318446.jpg" />
+  <img src="Z:/picture/008/save_picture_318446.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305976.jpg" />
+  <img src="Z:/picture/008/save_picture_305976.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VideoHive - Holiday Photo Booth - 24827850 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300459.jpg" />
+  <img src="Z:/picture/008/save_picture_300459.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297565.jpg" />
+  <img src="Z:/picture/008/save_picture_297565.jpg" />
 </div>
 
 

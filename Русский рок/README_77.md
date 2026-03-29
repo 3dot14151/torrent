@@ -1,3 +1,119 @@
+###  Публикация: 1188013   (275831) от 01.12.2017
+
+Тараканы! - Много шума из ничего: альбом (2017) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дом-666
+02. Львиный рёв
+03. Stacy Hairy (feat. Иван Глобин & Дарья Глобина)
+04. Позор российского панк-рока (Инфа 100%) (feat. Порнофильмы & Андрей Шморгун)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B1BB7C579EFC3BC93B33A0377743B23891730C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188237   (275824) от 01.12.2017
+
+Distemper - Мир, разделённый пополам (2017) [MP3|320 Kbps] <Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дрогнул мир монотонный
+02. Мы у жизни не просим прощения
+03. Буря
+04. Самое лучшее время(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C8FEC77F3368B1E27FBB036EF8C9D8AF166B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188014   (275647) от 01.12.2017
+
+Аквариум feat. Kyiv Virtuosi - Symphonia БГ (2017) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увертюра / Сирин, Алконост, Гамаюн (Live)
+2. Дело мастера Бо (Live)
+3. Из хрустального захолустья (Live)
+4. Навигатор (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DF843DD5841FAD2FD03CF82F0435AE999F3C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188064   (275527) от 01.12.2017
+
+The Hatters - Forever Young Forever Drunk (2017) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FYFD (Forever Young, Forever Drunk)
+02. Кайфмэн
+03. F*сk You
+04. Мама(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFBA814990B506EE0A640AC7A217148D4DBDCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337427   (274903) от 10.11.2019
 
 Margenta - Вентиль-провокация (2019) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +122,7 @@ Margenta - Вентиль-провокация (2019) [MP3|320 Kbps] <Heavy Meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274903.jpg" />
+  <img src="Z:/picture/008/save_picture_274903.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273694.jpg" />
+  <img src="Z:/picture/008/save_picture_273694.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273170.jpg" />
+  <img src="Z:/picture/008/save_picture_273170.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272922.jpg" />
+  <img src="Z:/picture/008/save_picture_272922.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272737.jpg" />
+  <img src="Z:/picture/008/save_picture_272737.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272226.jpg" />
+  <img src="Z:/picture/008/save_picture_272226.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ The Matrixx - Сингл (2018) Single [MP3|320 Kbps] <Neo-Post-Gothic, Alternat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272052.jpg" />
+  <img src="Z:/picture/008/save_picture_272052.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ VA - Улица Свободных - Тараканы! (2018) Parts 1 & 2 [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272034.jpg" />
+  <img src="Z:/picture/008/save_picture_272034.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271881.jpg" />
+  <img src="Z:/picture/008/save_picture_271881.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271773.jpg" />
+  <img src="Z:/picture/008/save_picture_271773.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271576.jpg" />
+  <img src="Z:/picture/008/save_picture_271576.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271224.jpg" />
+  <img src="Z:/picture/008/save_picture_271224.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271012.jpg" />
+  <img src="Z:/picture/008/save_picture_271012.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270969.jpg" />
+  <img src="Z:/picture/008/save_picture_270969.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270396.jpg" />
+  <img src="Z:/picture/008/save_picture_270396.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270325.jpg" />
+  <img src="Z:/picture/008/save_picture_270325.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269157.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269149.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268655.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267958.jpg" />
+  <img src="Z:/picture/008/save_picture_267958.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267862.jpg" />
+  <img src="Z:/picture/008/save_picture_267862.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267721.jpg" />
+  <img src="Z:/picture/008/save_picture_267721.jpg" />
 </div>
 
 
@@ -627,119 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0F1DA9DA7F58A297EBFD404B21C04831EDBFB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190814   (267045) от 10.12.2017
-
-ТАйМСКВЕР - Скафандр и бабочка (2017) [MP3|320 Kbps] <Alternative Rock, Electronic Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крошечное солнце
-02. Тени
-03. Реквием
-04. Из вечносолнечного льда(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Modern RockПродолжительность: 00:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F32F78A35CEC55A064B70797A355110FF54F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201232   (266948) от 18.11.2019
-
-Мэd Dог / Mad Dog / Мэд Дог - 7 Альбомов, 1 Сингл (1997-2018) [MP3|320 Kbps] <Alternative, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266948.jpg" />
-</div>
-
-
-###  Подробнее
-
-МЭD DОГ культовая группа Российской рок-сцены. Группа основана в феврале 1995-го года Дмитрием «Снэйком» Хакимовым, музыкантом и продюсером, известным по работе с такими группами как НАИВ, Агата Кристи, Блондинка КсЮ, The Matrixx и т.д. Первый концерт состоялся 20 февраля 1995-го года в клубе «In toyo», и этот концерт считается Днём Рождения группы. Стилистически (   Читать дальше...   )1997 - Mad Dog
-1999 - 6.3.0.
-2000 - Избранное 1995-97
-2001 - На Заре(   Читать дальше...   )Жанр: Alternative, Post-GrungeПродолжительность: 05:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DB98DEE746D2D96B5B992F279EA003275570A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276856   (266636) от 30.12.2010
-
-Ленинград - Все Хиты (2CD) (2010) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC3AE23A228DB6E697162A42E61615529172512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190880   (265981) от 11.12.2017
-
-Оптимальный вариант - Песни из садов Диониса (2017) [MP3|320 Kbps] <Art Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лень в садах – I (03:13)
-02. Пихтовый танец (04:10)
-03. Сандалии (04:03)
-04. Бравурный хор: Вакханки и Пан (02:36)(   Читать дальше...   )Жанр: Art Rock, Folk RockПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A74EA4E0FFA514A84EB9D193A8EAFA89AD4CBDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

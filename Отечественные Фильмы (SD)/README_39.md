@@ -1,3 +1,29 @@
+###  Публикация: 1200416   (796269) от 20.01.2018
+
+Вера (2016) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пережив жестокую трагедию, Вера пытается начать новую жизнь. Но прошлое вновь оживает, когда к ней в фонд приходит тот самый врач.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Тамара ЮмаеваАктеры: Елена Ксенофонтова, Дмитрий Миллер, Ирина Лосева, Мирабелла Обада, Константин Спичкин, Екатерина Ерохина, Артем Жуков, Анна АлексееваСубтитры: ОтсутствуютПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5492E4D09557302AA85B730023E1EFEEA53B71D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011513   (795853) от 28.04.2016
 
 Помню – не помню! (2016) WEB-DLRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795853.jpg" />
+  <img src="Z:/picture/008/save_picture_795853.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795751.jpg" />
+  <img src="Z:/picture/008/save_picture_795751.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795196.jpg" />
+  <img src="Z:/picture/008/save_picture_795196.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795150.jpg" />
+  <img src="Z:/picture/008/save_picture_795150.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795141.jpg" />
+  <img src="Z:/picture/008/save_picture_795141.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794750.jpg" />
+  <img src="Z:/picture/008/save_picture_794750.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794552.jpg" />
+  <img src="Z:/picture/008/save_picture_794552.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794510.jpg" />
+  <img src="Z:/picture/008/save_picture_794510.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794384.jpg" />
+  <img src="Z:/picture/008/save_picture_794384.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794115.jpg" />
+  <img src="Z:/picture/008/save_picture_794115.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793942.jpg" />
+  <img src="Z:/picture/008/save_picture_793942.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793888.jpg" />
+  <img src="Z:/picture/008/save_picture_793888.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793781.jpg" />
+  <img src="Z:/picture/008/save_picture_793781.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793487.jpg" />
+  <img src="Z:/picture/008/save_picture_793487.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793384.jpg" />
+  <img src="Z:/picture/008/save_picture_793384.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793215.jpg" />
+  <img src="Z:/picture/008/save_picture_793215.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792548.jpg" />
+  <img src="Z:/picture/008/save_picture_792548.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791987.jpg" />
+  <img src="Z:/picture/008/save_picture_791987.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791605.jpg" />
+  <img src="Z:/picture/008/save_picture_791605.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791603.jpg" />
+  <img src="Z:/picture/008/save_picture_791603.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791599.jpg" />
+  <img src="Z:/picture/008/save_picture_791599.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791545.jpg" />
+  <img src="Z:/picture/008/save_picture_791545.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791478.jpg" />
+  <img src="Z:/picture/008/save_picture_791478.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791475.jpg" />
+  <img src="Z:/picture/008/save_picture_791475.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790962.jpg" />
+  <img src="Z:/picture/008/save_picture_790962.jpg" />
 </div>
 
 
@@ -643,33 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05E8F7E7157F07F03EBE23A5494D679E9467653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 428422   (790957) от 10.01.2019
-
-Как живете, Караси? (1991) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по повести Евгения Козловского «Как живете?..»
-Отставной полковник КГБ, собрав на своей даче картотеку людей, сотрудничавших в прежние годы с Комитетом, снова вызывает их, перестроившихся, к себе и заставляет выполнять определенные поручения. Но и на него находятся акулы покрупнее — представители мафии, догадавшиеся, какой куш можно теперь содрать с бывших (   Читать дальше...   )Жанр: Трагикомичная историяРежиссер: Михаил Швейцер (Золотой теленок, Мертвые души, Крейцерова Соната) Софья Милькина (Время вперед, Крейцерова Соната).Актеры: Николай Пастухов (...полковник Картошкин), Евгений Евстигнеев (...диссидент), Валерий Золотухин (...Дмитрий Никитич Тищенко), Александр Калягин (...«человечек»), Леонид Куравлев (...самое высокое начальство), Евгений Миронов (...Никита), Анна Назарьева (...Машенька), Марина Кондратьева, Инна Выходцева, Андрей Харыбин, Владимир Привалов, Павел Семенихин (...столяр), (   Читать дальше...   )Продолжительность: 01:03:15+00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F28B542FC9515AD7A3DD2587BE161583F03FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

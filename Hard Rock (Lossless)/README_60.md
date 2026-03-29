@@ -1,3 +1,63 @@
+###  Публикация: 1188462   (274718) от 02.12.2017
+
+McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Yourself  (06:16) 
+02. Bad Boys  (04:05) 
+03. Anytime  (05:45) 
+04. Get Down To Bizness  (04:23) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC0A7D3A47FB8CCE4227D2118F7C86602D7A7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274019   (273490) от 23.12.2010
+
+Rainbow - 10 SHM-CD (Japanese Press 2008)[Limited Release] (1975-1986/2008) [FLAC|Lossless]<Hard Rock / Heavy Metal / AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Difficult To Cure    11:18
+02. Stone Cold    04:28
+03. Power    04:28
+04. Man On The Silver Mountain    08:19
+05. Long Live Rock 'N' Roll    07:11
+06. Weiss Heim    05:12Жанр: Hard Rock / Heavy Metal / AORПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188520   (272372) от 04.12.2017
 
 Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
@@ -6,7 +66,7 @@ Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272372.jpg" />
+  <img src="Z:/picture/008/save_picture_272372.jpg" />
 </div>
 
 
@@ -35,7 +95,7 @@ Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272371.jpg" />
+  <img src="Z:/picture/008/save_picture_272371.jpg" />
 </div>
 
 
@@ -64,7 +124,7 @@ Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269989.jpg" />
 </div>
 
 
@@ -93,7 +153,7 @@ The Doors - 20 albums, 10 Box Sets, 102 CD (1966-2019) Discography [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269307.jpg" />
 </div>
 
 
@@ -122,7 +182,7 @@ Empyray - Discography (2007-2009) [FLAC|Lossless] <Hard'n'Heavy, Oriental Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268333.jpg" />
 </div>
 
 
@@ -148,7 +208,7 @@ Crash - Crash (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268218.jpg" />
+  <img src="Z:/picture/008/save_picture_268218.jpg" />
 </div>
 
 
@@ -177,7 +237,7 @@ Lover Under Cover - 2 альбома Collection (2012-2014) [FLAC|Lossless|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267124.jpg" />
+  <img src="Z:/picture/008/save_picture_267124.jpg" />
 </div>
 
 
@@ -206,7 +266,7 @@ Mikael Erlandsson - 5 альбомов Collection (1995-2002) [FLAC|Lossless|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267120.jpg" />
+  <img src="Z:/picture/008/save_picture_267120.jpg" />
 </div>
 
 
@@ -235,7 +295,7 @@ Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265337.jpg" />
 </div>
 
 
@@ -264,7 +324,7 @@ W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264672.jpg" />
 </div>
 
 
@@ -293,7 +353,7 @@ AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264501.jpg" />
 </div>
 
 
@@ -322,7 +382,7 @@ Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264278.jpg" />
 </div>
 
 
@@ -351,7 +411,7 @@ Theocracy - 3 Альбома Collection (2003-2011) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264021.jpg" />
 </div>
 
 
@@ -381,7 +441,7 @@ Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264020.jpg" />
 </div>
 
 
@@ -410,7 +470,7 @@ Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263627.jpg" />
 </div>
 
 
@@ -438,7 +498,7 @@ Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263623.jpg" />
 </div>
 
 
@@ -466,7 +526,7 @@ Aftermath - Natural Destruction (2003) [FLAC|Lossless|image + .cue] <Technical P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263608.jpg" />
 </div>
 
 
@@ -495,7 +555,7 @@ Deep Purple - Gold - Greatest Hits (2009) 3CD Set, Compilation, Deluxe Edition [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262578.jpg" />
 </div>
 
 
@@ -524,7 +584,7 @@ Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262127.jpg" />
 </div>
 
 
@@ -553,7 +613,7 @@ AC/DC - Highway to Hell (1979) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262082.jpg" />
 </div>
 
 
@@ -582,7 +642,7 @@ Queen - Live At Wembley Stadium (1990) 2 x CD, SHM-CD, Reissue, 2024, EMI, Limit
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261487.jpg" />
 </div>
 
 
@@ -611,7 +671,7 @@ Midnite City - Bite The Bullet (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261353.jpg" />
+  <img src="Z:/picture/005/save_picture_261353.jpg" />
 </div>
 
 
@@ -640,7 +700,7 @@ Queen - Live Killers (1979) Japanese Edition, 2 x CD, SHM-CD, Reissue, Remastere
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260793.jpg" />
 </div>
 
 
@@ -669,7 +729,7 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260777.jpg" />
 </div>
 
 
@@ -683,76 +743,6 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D5E1D3114F8E37A7912C08C6B45A6F00AC3DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501434   (259804) от 31.05.2012
-
-The Itch - Spreading Like Wildfire (2012) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling Me Back (3:05)
-02. Action (3:43)
-03. The Catalyst (4:24)
-04. Propaganda (3:56)
-05. No Friend Of Mine (5:06)
-06. Pain (3:02)
-07. Bring In The Wine (3:09)
-08. Sold My Soul (3:19)
-09. Mother (2:56)
-10. If You Could See (5:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502344   (259803) от 31.05.2012
-
-Deep Jimi And The Zep Creams - Funky Dinosaur (1992) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haia Gurusah (3:28)
-02. Whales and Snow (4:49)
-03. Illusions (3:12)
-04. Why? (5:10)
-05. I'm Dying (3:51)
-06. Moans (4:39)
-07. Meet Me Up There (5:31)
-08. The Outlet (0:25)
-09. God! (4:38)
-10. Alive and Livin' (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

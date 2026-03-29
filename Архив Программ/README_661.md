@@ -6,7 +6,7 @@ NetLimiter Pro 4.0.68.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716849.jpg" />
+  <img src="Z:/picture/008/save_picture_716849.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SupRemo 4.1.3.2348 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716848.jpg" />
+  <img src="Z:/picture/008/save_picture_716848.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ K-Lite Codec Pack 15.6.5 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716847.jpg" />
+  <img src="Z:/picture/008/save_picture_716847.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Opera 29.0.1795.47 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716835.jpg" />
+  <img src="Z:/picture/008/save_picture_716835.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CoolUtils PDF Combine 6.1.0.144 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716824.jpg" />
+  <img src="Z:/picture/008/save_picture_716824.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Twinkstar 4.11.2000.1901 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716819.jpg" />
+  <img src="Z:/picture/008/save_picture_716819.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SRWare Iron 72.0.3750.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716817.jpg" />
+  <img src="Z:/picture/008/save_picture_716817.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PotPlayer 200730 (1.7.21280) + bonus (780+ skins KpoJIuK collection) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716713.jpg" />
+  <img src="Z:/picture/008/save_picture_716713.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Microsoft Windows 10 Core + Pro + Enterprise Technical Preview 10.0.10061 (esd) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716705.jpg" />
+  <img src="Z:/picture/008/save_picture_716705.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AVG PC Tuneup 2015 15.0.1001.471 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716703.jpg" />
+  <img src="Z:/picture/008/save_picture_716703.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GPU-Z 2.17.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716682.jpg" />
+  <img src="Z:/picture/008/save_picture_716682.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Loaris Trojan Remover 3.0.80.215 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716671.jpg" />
+  <img src="Z:/picture/008/save_picture_716671.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wise Data Recovery 4.13.217 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716670.jpg" />
+  <img src="Z:/picture/008/save_picture_716670.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Visual C++ 2017 Redistributable 14.20.27404.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716668.jpg" />
+  <img src="Z:/picture/008/save_picture_716668.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Movavi Slideshow Maker 5.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716567.jpg" />
+  <img src="Z:/picture/008/save_picture_716567.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ PopChar 8.4.0.2932 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716566.jpg" />
+  <img src="Z:/picture/008/save_picture_716566.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Pano2VR Pro 6.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716564.jpg" />
+  <img src="Z:/picture/008/save_picture_716564.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Total Commander 8.51a LitePack | PowerPack | ExtremePack 2015.4 Final + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716530.jpg" />
+  <img src="Z:/picture/008/save_picture_716530.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Opera GX 83.0.4254.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716505.jpg" />
+  <img src="Z:/picture/008/save_picture_716505.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ K-Lite Codec Pack Update 16.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716502.jpg" />
+  <img src="Z:/picture/008/save_picture_716502.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Firefox Browser 97.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716496.jpg" />
+  <img src="Z:/picture/008/save_picture_716496.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v4.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716458.jpg" />
+  <img src="Z:/picture/008/save_picture_716458.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Avira Phantom VPN Pro 2.19.3.24127 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716441.jpg" />
+  <img src="Z:/picture/008/save_picture_716441.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 28.02.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716429.jpg" />
+  <img src="Z:/picture/008/save_picture_716429.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ oCam 391.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716411.jpg" />
+  <img src="Z:/picture/008/save_picture_716411.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Process Lasso Pro 9.0.0.326 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716409.jpg" />
+  <img src="Z:/picture/008/save_picture_716409.jpg" />
 </div>
 
 

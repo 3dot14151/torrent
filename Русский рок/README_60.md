@@ -1,3 +1,125 @@
+###  Публикация: 946765   (424718) от 14.10.2015
+
+F.P.G. - Сквозь ненависть (2015) [MP3|320 кб/с]<Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весть
+ 02. Холодное
+ 03. Свети
+ 04. Со мной(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5E3608FC2495CAB076472974E0CE4059D21818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250528   (424475) от 28.09.2018
+
+Би-2 - Горизонт событий @ ВТБ Арена (2018) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424475.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лётчик
+2. Чёрное солнце
+3. Тема века
+4. Детство(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7750AF2DB32AD8D9C75F740A3EF040A639836B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064931   (423791) от 21.10.2016
+
+МодеМ - Дисконнект (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный проект вокалиста и сооснователя группы СЛОТ Игоря «Кэша» Лобанова. Музыка МодеМа далека от альтернативного рока (сам Кэш определяет стилистику дебютного альбома как «электро-софт-рок»), но возможно именно поэтому альбом может быть особенно интересен поклонникам СЛОТа, которые смогут услышать Игоря в совершенно ином качестве. Ну, а о качестве лирики автора (   Читать дальше...   )01. Акт
+02. Полярник
+03. Слоны
+04. Дисконнект(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE422597242EC0E0C4A4FACDE956C0BEF0F026B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554737   (423217) от 06.10.2012
+
+Пикник - Певец декаданса (2012) [MP3|320 kbps] <Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Декаданс (04:23)
+02. Игла (04:30)
+03. За пижоном пижон (03:49)
+04. Вплети меня в свое кружево (04:18)
+05. Клоун беспощадный (04:42)
+06. Гильотины сечение, веревки петля (04:34)
+07. Трилогия (02:12)
+08. Инкогнито (03:20)
+09. Прикосновение (05:08)
+10. Звезда Декаданс (03:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FE63F671591736F9AA0B4268F47E154D3CB129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324648   (422921) от 10.09.2019
 
 VA - Без меня. Трибьют Егора Летова (2019) [MP3|320 Kbps] <Punk Rock, Indie Rock, Hip-Hop>
@@ -6,7 +128,7 @@ VA - Без меня. Трибьют Егора Летова (2019) [MP3|320 Kbp
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422921.jpg" />
+  <img src="Z:/picture/008/save_picture_422921.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422886.jpg" />
+  <img src="Z:/picture/008/save_picture_422886.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421231.jpg" />
+  <img src="Z:/picture/005/save_picture_421231.jpg" />
 </div>
 
 
@@ -99,7 +221,7 @@ Imperial Age - New World (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421032.jpg" />
+  <img src="Z:/picture/008/save_picture_421032.jpg" />
 </div>
 
 
@@ -128,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420817.jpg" />
+  <img src="Z:/picture/008/save_picture_420817.jpg" />
 </div>
 
 
@@ -154,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420383.jpg" />
+  <img src="Z:/picture/008/save_picture_420383.jpg" />
 </div>
 
 
@@ -183,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420207.jpg" />
+  <img src="Z:/picture/008/save_picture_420207.jpg" />
 </div>
 
 
@@ -212,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420155.jpg" />
+  <img src="Z:/picture/008/save_picture_420155.jpg" />
 </div>
 
 
@@ -241,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419510.jpg" />
+  <img src="Z:/picture/008/save_picture_419510.jpg" />
 </div>
 
 
@@ -270,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419457.jpg" />
+  <img src="Z:/picture/008/save_picture_419457.jpg" />
 </div>
 
 
@@ -299,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418045.jpg" />
+  <img src="Z:/picture/008/save_picture_418045.jpg" />
 </div>
 
 
@@ -328,7 +450,7 @@ Deform - Мрачное Видение (2018) Maxi-Single [MP3|320 Kbps] <Altern
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417921.jpg" />
+  <img src="Z:/picture/008/save_picture_417921.jpg" />
 </div>
 
 
@@ -357,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417849.jpg" />
+  <img src="Z:/picture/008/save_picture_417849.jpg" />
 </div>
 
 
@@ -386,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417117.jpg" />
+  <img src="Z:/picture/008/save_picture_417117.jpg" />
 </div>
 
 
@@ -415,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417093.jpg" />
+  <img src="Z:/picture/008/save_picture_417093.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ Salvation For Me - Memories (2022) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416867.jpg" />
+  <img src="Z:/picture/008/save_picture_416867.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416490.jpg" />
+  <img src="Z:/picture/008/save_picture_416490.jpg" />
 </div>
 
 
@@ -499,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416350.jpg" />
+  <img src="Z:/picture/008/save_picture_416350.jpg" />
 </div>
 
 
@@ -526,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416121.jpg" />
+  <img src="Z:/picture/008/save_picture_416121.jpg" />
 </div>
 
 
@@ -555,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415876.jpg" />
+  <img src="Z:/picture/008/save_picture_415876.jpg" />
 </div>
 
 
@@ -584,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415830.jpg" />
+  <img src="Z:/picture/008/save_picture_415830.jpg" />
 </div>
 
 
@@ -613,7 +735,7 @@ Otto Dix - Анимус (2015) [MP3|320 кб/с]<Darkwave>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415732.jpg" />
+  <img src="Z:/picture/008/save_picture_415732.jpg" />
 </div>
 
 
@@ -627,119 +749,6 @@ Otto Dix - Анимус (2015) [MP3|320 кб/с]<Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9AE905572122348EF5E5AC402AD8E6496AA13D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251729   (415509) от 02.10.2018
-
-Большой Ногами - Песни 2017-2018 (2018) [MP3|320 Kbps] <Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Франкенштейн
-02. Соседи
-03. Кит
-04. Проводник(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548487128D7D2AF7CBB50C606F187D74B80FC7A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251744   (415504) от 02.10.2018
-
-Радиограмма - Запах земли после дождя (2018) [MP3|320 Kbps] <Art Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер горек
-02. Дым
-03. Осеннее равноденствие
-04. Без слов(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E497F1B68C4F00F0E1861245244B27BA0CA156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129246   (415067) от 02.10.2018
-
-Кипелов - Косово Поле (2017) Single [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маргарита Пушкина: «Идея написать песню о битве на Косовом Поле появилась давно, но никак не могла оформиться окончательно. Наверное, года два или три мысли бродили в голове, подбирались нужные слова. Картина кровавой битвы в 1389 году между сербами и боснийцами с одной стороны, и турками-османами с другой впечатляла... Кроме того, рассказав о тех далеких временах, (   Читать дальше...   )1. Косово полеЖанр: Heavy MetalПродолжительность: 00:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F876F519B0D6398B165F04E6418456A40F57EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573173   (414914) от 30.08.2022
-
-Ayoki - 8 Relises (2018-2022) [MP3|320 Kbps] <Alt. Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда исчезнет шанс [00:03:19]
-02. Живой [00:03:07]
-03. Наследие [00:03:54]
-04. День и ночь ждать [00:04:32](   Читать дальше...   )Жанр: Alt. Metal, Female VocalПродолжительность: 8 CD, 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6B585ACA77D85EAFE9F925C4C7DFB23A8F27F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

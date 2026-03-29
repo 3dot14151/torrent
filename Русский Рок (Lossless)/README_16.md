@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799214.jpg" />
+  <img src="Z:/picture/008/save_picture_799214.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799207.jpg" />
+  <img src="Z:/picture/008/save_picture_799207.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799205.jpg" />
+  <img src="Z:/picture/008/save_picture_799205.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798835.jpg" />
+  <img src="Z:/picture/008/save_picture_798835.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798822.jpg" />
+  <img src="Z:/picture/008/save_picture_798822.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ KUZMIN Absolute Band - Я - твой рокенрол (2020) [FLAC|Lossless|WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797767.jpg" />
+  <img src="Z:/picture/008/save_picture_797767.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797527.jpg" />
+  <img src="Z:/picture/008/save_picture_797527.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797442.jpg" />
+  <img src="Z:/picture/008/save_picture_797442.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796806.jpg" />
+  <img src="Z:/picture/008/save_picture_796806.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796802.jpg" />
+  <img src="Z:/picture/008/save_picture_796802.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
+  <img src="Z:/picture/008/save_picture_795483.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794832.jpg" />
+  <img src="Z:/picture/008/save_picture_794832.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793545.jpg" />
+  <img src="Z:/picture/008/save_picture_793545.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793182.jpg" />
+  <img src="Z:/picture/008/save_picture_793182.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792808.jpg" />
+  <img src="Z:/picture/008/save_picture_792808.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792638.jpg" />
+  <img src="Z:/picture/008/save_picture_792638.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792295.jpg" />
+  <img src="Z:/picture/008/save_picture_792295.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Kauan - Kaiho (2017) [FLAC|Lossless|tracks + .cue] <Post Rock, Folk, Ambient, Do
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792270.jpg" />
+  <img src="Z:/picture/008/save_picture_792270.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kauan - Kaiho (Instrumental Version) (2018) [FLAC|Lossless|Web-DL|tracks] <Post 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792254.jpg" />
+  <img src="Z:/picture/008/save_picture_792254.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Kauan - Sorni Nai (2015) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Folk,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792252.jpg" />
+  <img src="Z:/picture/008/save_picture_792252.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Margenta - Маги И Маглы (2021) 2xCD [FLAC|Lossless|image + .cue] <Heav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792084.jpg" />
+  <img src="Z:/picture/008/save_picture_792084.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791704.jpg" />
+  <img src="Z:/picture/008/save_picture_791704.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791701.jpg" />
+  <img src="Z:/picture/008/save_picture_791701.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Margenta - Алый Король (2020) [FLAC|Lossless|image + .cue] <Heavy meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789418.jpg" />
+  <img src="Z:/picture/008/save_picture_789418.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789302.jpg" />
+  <img src="Z:/picture/008/save_picture_789302.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788963.jpg" />
+  <img src="Z:/picture/008/save_picture_788963.jpg" />
 </div>
 
 

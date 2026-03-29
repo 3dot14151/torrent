@@ -6,7 +6,7 @@ FBackup 9.4.448 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789767.jpg" />
+  <img src="Z:/picture/008/save_picture_789767.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789764.jpg" />
+  <img src="Z:/picture/008/save_picture_789764.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Synapse Audio - DUNE 3.0.4 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789760.jpg" />
+  <img src="Z:/picture/008/save_picture_789760.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ SeaMonkey 2.53.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789743.jpg" />
+  <img src="Z:/picture/008/save_picture_789743.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cockos REAPER 6.42 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789740.jpg" />
+  <img src="Z:/picture/008/save_picture_789740.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789734.jpg" />
+  <img src="Z:/picture/008/save_picture_789734.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Celemony - Melodyne Studio 4 4.2.1.003 STANDALONE, VST, VST3, RTAS, AAX (x86/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789730.jpg" />
+  <img src="Z:/picture/008/save_picture_789730.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Download Master 6.22.1.1677 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789707.jpg" />
+  <img src="Z:/picture/008/save_picture_789707.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows and Office Genuine ISO Verifier 11.10.23.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789697.jpg" />
+  <img src="Z:/picture/008/save_picture_789697.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mozilla FireFox 94.0.2.7991 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789683.jpg" />
+  <img src="Z:/picture/008/save_picture_789683.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VueScan Pro 9.6.25 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789664.jpg" />
+  <img src="Z:/picture/008/save_picture_789664.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wise Program Uninstaller 2.6.1.148 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789652.jpg" />
+  <img src="Z:/picture/008/save_picture_789652.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Davinci Resolve Studio 17.4.2 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789637.jpg" />
+  <img src="Z:/picture/008/save_picture_789637.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AnyDesk 7.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789636.jpg" />
+  <img src="Z:/picture/008/save_picture_789636.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ GOM Player Plus 2.3.71.5335 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789635.jpg" />
+  <img src="Z:/picture/008/save_picture_789635.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Navicat Premium 12 v12.1.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789623.jpg" />
+  <img src="Z:/picture/008/save_picture_789623.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ O&O Defrag Professional 25.1 Build 7305 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789607.jpg" />
+  <img src="Z:/picture/008/save_picture_789607.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.6 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789595.jpg" />
+  <img src="Z:/picture/008/save_picture_789595.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.2 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789573.jpg" />
+  <img src="Z:/picture/008/save_picture_789573.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ TeamViewer 15.22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789572.jpg" />
+  <img src="Z:/picture/008/save_picture_789572.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789564.jpg" />
+  <img src="Z:/picture/008/save_picture_789564.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe InDesign 2022 17.0.1.105 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789555.jpg" />
+  <img src="Z:/picture/008/save_picture_789555.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Visual Studio 2022 Enterprise 17.0.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789553.jpg" />
+  <img src="Z:/picture/008/save_picture_789553.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Parallels Desktop Business Edition 17.1.0 + Toolbox 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789552.jpg" />
+  <img src="Z:/picture/008/save_picture_789552.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ omrr - Devils For My Darling (2017) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789534.jpg" />
+  <img src="Z:/picture/008/save_picture_789534.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Karsten Pflum - Sleep Concert (2017) Hymen Records [FLAC|Lossless|WEB-DL|tracks]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789533.jpg" />
+  <img src="Z:/picture/008/save_picture_789533.jpg" />
 </div>
 
 

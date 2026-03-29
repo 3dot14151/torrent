@@ -6,7 +6,7 @@ Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Mod
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792250.jpg" />
+  <img src="Z:/picture/008/save_picture_792250.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792238.jpg" />
+  <img src="Z:/picture/008/save_picture_792238.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792170.jpg" />
+  <img src="Z:/picture/008/save_picture_792170.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Discover Celtic Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792113.jpg" />
+  <img src="Z:/picture/008/save_picture_792113.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792099.jpg" />
+  <img src="Z:/picture/008/save_picture_792099.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Krzysztof Kowal & Grzegorz Michalak - 112 Operator Soundtrack (2020) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791834.jpg" />
+  <img src="Z:/picture/008/save_picture_791834.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Aco
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791807.jpg" />
+  <img src="Z:/picture/008/save_picture_791807.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791560.jpg" />
+  <img src="Z:/picture/008/save_picture_791560.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
+  <img src="Z:/picture/008/save_picture_791557.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791509.jpg" />
+  <img src="Z:/picture/008/save_picture_791509.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791441.jpg" />
+  <img src="Z:/picture/008/save_picture_791441.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791120.jpg" />
+  <img src="Z:/picture/008/save_picture_791120.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medita
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791117.jpg" />
+  <img src="Z:/picture/008/save_picture_791117.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791096.jpg" />
+  <img src="Z:/picture/008/save_picture_791096.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790970.jpg" />
+  <img src="Z:/picture/008/save_picture_790970.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790969.jpg" />
+  <img src="Z:/picture/008/save_picture_790969.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790939.jpg" />
+  <img src="Z:/picture/008/save_picture_790939.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790799.jpg" />
+  <img src="Z:/picture/008/save_picture_790799.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790672.jpg" />
+  <img src="Z:/picture/008/save_picture_790672.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790623.jpg" />
+  <img src="Z:/picture/008/save_picture_790623.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrum
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790342.jpg" />
+  <img src="Z:/picture/008/save_picture_790342.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790341.jpg" />
+  <img src="Z:/picture/008/save_picture_790341.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Gu
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790332.jpg" />
+  <img src="Z:/picture/008/save_picture_790332.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790119.jpg" />
+  <img src="Z:/picture/008/save_picture_790119.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789983.jpg" />
+  <img src="Z:/picture/008/save_picture_789983.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789859.jpg" />
+  <img src="Z:/picture/008/save_picture_789859.jpg" />
 </div>
 
 

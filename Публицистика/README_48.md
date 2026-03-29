@@ -1,3 +1,83 @@
+###  Публикация: 932530   (509084) от 29.08.2015
+
+Виктор Ульяненко | Китай: версия 2.0. Разрушение легенды (2014) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай все чаще упоминается в новостях, разговорах и анекдотах – интерес к стране растет с каждым днем. Какова же она, Поднебесная XXI века? Каковы особенности психологии и поведения ее жителей? Какими должны быть этика и тактика построения успешных взаимоотношений? Что делать, если вы в Китае или если китаец – ваш гость?
+
+Новая книга Виктора Ульяненко, специалиста (   Читать дальше...   )Жанр: Культурология, ПублицистикаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435EF59BD716DF53C366763F2DAAC2889A956B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932429   (509002) от 29.08.2015
+
+Игорь Прокопенко | Великие тайны великих людей (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая таинственная цепь событий связывает знаменитых предсказателей древности и новейшего времени, от Нострадамуса и Парацельса до Кейси и Ванги? Так ли однозначны фигуры Сталина и Жукова и о каких фактах из биографий полководцев история стыдливо умалчивала до недавнего времени? Как бонзы Третьего рейха были связаны с разведками европейских стран? Раскрыты ли загадки (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB66FF4508C4CD6F4EA3A83CFC7B7CDEBC8B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316092   (508711) от 23.07.2019
+
+Сергей Сергеев | Русская нация, или Рассказ об истории её отсутствия (2017) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга, ставшая завершением многолетних исследований автора, не является очередной историей России. Это именно история русской нации. Поэтому читателю, думающему почерпнуть здесь элементарные сведения об отечественном прошлом, лучше обратиться к другим работам, благо их множество. Судя по электронному каталогу Российской государственной библиотеки, на (   Читать дальше...   )Жанр: Публицистика, История РоссииФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC03844236E22024F9C088EB35C8630B51DCD032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316171   (507748) от 24.07.2019
 
 Е. М. Полуян-Верецкая (ред.) | Право на труд. Сборник статей (1937) [DJVU]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507748.jpg" />
+  <img src="Z:/picture/008/save_picture_507748.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507167.jpg" />
+  <img src="Z:/picture/008/save_picture_507167.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505909.jpg" />
+  <img src="Z:/picture/008/save_picture_505909.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505894.jpg" />
+  <img src="Z:/picture/008/save_picture_505894.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505776.jpg" />
+  <img src="Z:/picture/008/save_picture_505776.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504513.jpg" />
+  <img src="Z:/picture/008/save_picture_504513.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504508.jpg" />
+  <img src="Z:/picture/008/save_picture_504508.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504507.jpg" />
+  <img src="Z:/picture/008/save_picture_504507.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504473.jpg" />
+  <img src="Z:/picture/008/save_picture_504473.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504470.jpg" />
+  <img src="Z:/picture/008/save_picture_504470.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504466.jpg" />
+  <img src="Z:/picture/008/save_picture_504466.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504408.jpg" />
+  <img src="Z:/picture/008/save_picture_504408.jpg" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503521.jpg" />
+  <img src="Z:/picture/008/save_picture_503521.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503282.jpg" />
+  <img src="Z:/picture/008/save_picture_503282.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501300.jpg" />
+  <img src="Z:/picture/008/save_picture_501300.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501146.jpg" />
+  <img src="Z:/picture/008/save_picture_501146.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500627.jpg" />
+  <img src="Z:/picture/008/save_picture_500627.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500582.jpg" />
+  <img src="Z:/picture/008/save_picture_500582.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500543.jpg" />
+  <img src="Z:/picture/008/save_picture_500543.jpg" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500517.jpg" />
+  <img src="Z:/picture/008/save_picture_500517.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499305.jpg" />
+  <img src="Z:/picture/008/save_picture_499305.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499009.jpg" />
+  <img src="Z:/picture/008/save_picture_499009.jpg" />
 </div>
 
 
@@ -590,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498898.jpg" />
+  <img src="Z:/picture/008/save_picture_498898.jpg" />
 </div>
 
 
@@ -602,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7561B85EB298789A97C0615F2B118B32E5D72C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317744   (498388) от 03.08.2019
-
-Дэвид Гранн | Убийцы цветочной луны (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Племени осейджей повезло уцелеть, когда белые колонизовали Америку. И еще им повезло очутиться на богатых нефтью землях Оклахомы. На старте нефтяной лихорадки двадцатых пресса наперебой сообщала о сказочном обогащении «краснокожих миллионеров». На этом везение индейцев закончилось, потому что их стали методично убивать: по одному и целыми семьями. Справиться с криминальным (   Читать дальше...   )Жанр: Документальная литература, ПублицистикаПеревод: Евгений МордашевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E8A23E813B81E449ACEA4A9D6D1FCB0EACEC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317965   (497748) от 04.08.2019
-
-Валери Плейм Уилсон | Игра без правил. Как я была секретным агентом и как меня предал Белый дом (2012) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497748.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 июля 2003 года секретный агент ЦРУ Валери Плейм Уилсон неожиданно для себя прославилась: в газете «Вашингтон пост» черным по белому было напечатано ее полное имя и раскрыто место службы. Разразился громкий скандал, которому вскоре присвоили имя «Плеймгейт», по аналогии с печально знаменитыми Уотергейтом и Ирангейтом. По «странному» стечению обстоятельств, утечка (   Читать дальше...   )Жанр: Биографии и Мемуары, Военное дело, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE26D0B54155FFFD4DFBAF5E18A82FFC191D2549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317971   (497741) от 04.08.2019
-
-Джон Максвелл Кутзее | Толстой, Беккет, Флобер и другие. 23 очерка о мировой литературе (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Максвелл Кутзее – первый писатель, который дважды был награжден Букеровской премией – в 1983 году за роман «Жизнь и время Михаэла К.» и в 1999 году за роман «Бесчестье». В 2003 году он удостоился Нобелевской премии по литературе. «Описывая слабости и недостатки людей, писатель обнаруживает божественную искру в человеческом существе», – говорилось в заявлении (   Читать дальше...   )Жанр: Критика, Литературоведение, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2524811E3DCF262A32E5B723213A3D132C04D066
 ```
 
 https://mybot314.ru/tekegram_catalog/

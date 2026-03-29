@@ -6,7 +6,7 @@ Ontborg - Following the Steps of Damnation (2023) [MP3|320 Kbps] <Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231899.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Undead Killer - Awakening of the Undead Killers (2017) [MP3|320 Kbps] <Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231779.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231772.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231759.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231730.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eria d'Or - Trinity (2017) 3CD, compilation [MP3|320 Kbps] <Atmospheric Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231707.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Thomas Carlsen's Transmission - A Brave Horizon (2023) [Mp3|320 kbps] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231692.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Frenzy - Lethal Protector (2016) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231622.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Undead Killer - Killer Unleashed (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231612.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [MP3|320 Kbps] <Melodic Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231597.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Fynal Stand - Tribulation Saint (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231560.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hellbearer - For Those About to Bear Hell (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231552.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Critical Defiance - No Life Forms (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231450.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Spiritual Void - Wayfare (2023) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231421.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ MotorTrinken - Cyborgmotorcycle (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231411.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Critical Defiance - Misconception (2019) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231404.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Painkiller - Pain and Destruction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231382.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ MotorTrinken - Involution (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231372.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ SOG - Man Demonic (2023) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231296.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Contortionist - Retrospective Live From Atlanta (2023) 3CD Box Set [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231283.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Exelerate - EO (2014) EP [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231278.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Exelerate - Exelerate (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231264.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Desolator - Resurgency & Desolator - Dark Revival - Mass Human Pyre (2011) Split
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231187.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231168.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231162.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231157.jpg" />
 </div>
 
 

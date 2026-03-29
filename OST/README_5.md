@@ -6,7 +6,7 @@ Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827730.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826905.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826145.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Need For Speed Underground,  Underground 2, Most Wanted, Carbon, Pro Street, Und
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823826.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822615.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820920.jpg" />
+  <img src="Z:/picture/008/save_picture_820920.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819323.jpg" />
+  <img src="Z:/picture/008/save_picture_819323.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818944.jpg" />
+  <img src="Z:/picture/008/save_picture_818944.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817440.jpg" />
+  <img src="Z:/picture/008/save_picture_817440.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815336.jpg" />
+  <img src="Z:/picture/008/save_picture_815336.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814918.jpg" />
+  <img src="Z:/picture/008/save_picture_814918.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814761.jpg" />
+  <img src="Z:/picture/008/save_picture_814761.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
+  <img src="Z:/picture/008/save_picture_812013.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811083.jpg" />
+  <img src="Z:/picture/008/save_picture_811083.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Bill Brown, Mikael Sandgren - Command & Conquer: Generals+Command & Conquer: Gen
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810939.jpg" />
+  <img src="Z:/picture/008/save_picture_810939.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Seaso
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806178.jpg" />
+  <img src="Z:/picture/008/save_picture_806178.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805742.jpg" />
+  <img src="Z:/picture/008/save_picture_805742.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805611.jpg" />
+  <img src="Z:/picture/008/save_picture_805611.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805602.jpg" />
+  <img src="Z:/picture/008/save_picture_805602.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805601.jpg" />
+  <img src="Z:/picture/008/save_picture_805601.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805489.jpg" />
+  <img src="Z:/picture/008/save_picture_805489.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805370.jpg" />
+  <img src="Z:/picture/008/save_picture_805370.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805364.jpg" />
+  <img src="Z:/picture/008/save_picture_805364.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805242.jpg" />
+  <img src="Z:/picture/008/save_picture_805242.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805123.jpg" />
+  <img src="Z:/picture/008/save_picture_805123.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805013.jpg" />
+  <img src="Z:/picture/008/save_picture_805013.jpg" />
 </div>
 
 

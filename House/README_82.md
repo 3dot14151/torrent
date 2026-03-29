@@ -1,3 +1,119 @@
+###  Публикация: 1793677   (67457) от 25.04.2025
+
+VA - Chilled Beach Songs (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonize - Show Me Love (Original Mix) (05:10)
+02. Ilnurg - Mind (Original Mix) (03:03)
+03. V.O.P․ & BALLESTER - Tell Me That (Original Mix) (02:43)
+04. sælent - Metamorphosis (Original Mix) (02:41)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6661102D3F215570E03BF4B2D4446FB2AF3A6F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794455   (67243) от 29.04.2025
+
+VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jakliu - Don't Forget [03:44]
+02. Deodar - Initiate [07:12]
+03. Sigooma - Vegas Breakfast Nuts [07:06]
+04. Pat H - Roots of the Bonsai Tree [07:04](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796750   (66940) от 12.05.2025
+
+York - Infinite (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Farewell To The Moon (Lukas Midub Chillout Mix) (03:21)
+02. York - Bigger Than Us (feat. Chris Howard - Extended Mix) (05:35)
+03. York, Sarah De Warren & Solr - The Shore (Extended Mix) (06:26)
+04. York - True North (feat. Diandra Faye - Soty & Seven24 Remix) (03:02)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D64F8F651BED47A75AB16524AC80C583E2AD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796851   (66938) от 12.05.2025
+
+VA - Sounds Like Summer, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Never Forget (03:25)
+02. Scot & Millfield - It's a Fine Day (Original Radio Edit) (03:42)
+03. Living Room - Strand (04:29)
+04. Chillhanger - Take Me Away (Radio Edit) (03:16)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D68CB4D93A756008A07C3873015B5C0C614F981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796954   (66907) от 13.05.2025
 
 VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -6,7 +122,7 @@ VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66907.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66906.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Deep House Touch 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66720.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, D
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66586.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66516.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66485.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Best Dance Music Summer 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66402.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Sounds Like Summer, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66285.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Nothing But... Late Night Deep House, Vol. 02 (2025) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66201.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66052.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66051.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66049.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65863.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65816.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Black Hole House Music 07-25 (2025) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65375.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Milk & Sugar Summer Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65112.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Deep House Ibiza: Sunset Mix 2025 (2025) [MP3|320 Kbps] <House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64974.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Bikini Machines, Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64837.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64674.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - 25 Years Of Anjuna Mixed By Dom Donnelly (2025) [MP3|320 Kbps] <Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64652.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Rimini Summer Party, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melod
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64651.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Me
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64648.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11893E96DB42E8A289F2CB07573E05C3BC8AB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810085   (64587) от 02.08.2025
-
-VA - Summer Music House Furia 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nowakowski & Faraon - Always There 04:46
-02. Faraon - Aurora 05:28
-03. Alex Denver, Nowakowski & Kristianov - Call Me (Kristianov-Remix) 04:02
-04. Faraon - Cold Heart 04:52(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EF8D0071B61083CE200933D78AEEB6F707CAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709340   (61923) от 24.03.2024
-
-VA - Exx Underground Miami 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic, Indie Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Nejtrino & Anza - Fade To Grey (Normtone Remix) (04:38)
-02. Davrin & Airsand - Tata (Original mix) (06:16)
-03. Alon Halperin & Wayward Brothers - Furious (Original mix)) (04:43)
-04. Yocon - Mwaki (Original mix) (06:57)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Electronic, Indie DanceПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC4EF212B5C123D9F9291FBB787E33D619B979E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717999   (58772) от 23.04.2024
-
-VA - Spring Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadir Çetin & Merara - Up All Night (02:34)
-02. Tury; Pawoh & N@OM1 - Lovely (02:24)
-03. Alperen Ocak & SaifLove - Creepin' (I Don't Wanna Know) (02:54)
-04. Umur Anil Gokdag, TwoRule & Liwia - Everything I Wanted (03:11)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B188DBC72781203B08B97AE9322EA3C0373B07F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718044   (58765) от 23.04.2024
-
-VA - Deep-House Heaven, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soap Bubbles - Plan (04:26)
-02. Allume - Lord Island (03:40)
-03. Miguel Alcobia - Berlin Sunset (09:19)
-04. Jakobii - Floating (06:12)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444099AE2B702C4B6279DF892CECBD8C3EA2FE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

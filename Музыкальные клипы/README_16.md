@@ -1,3 +1,90 @@
+###  Публикация: 1223986   (667962) от 08.05.2018
+
+Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sexy Car Chag Rock Mix для этого лета !! Просто лучшее! Наслаждайтесь и ВКЛЮЧИТЕ ЗВУК! Отличное сочетание музыки драйва, чтобы быть счастливым и расслабиться на шоссе. Сексуальные девушки! Винтажные и спортивные автомобили!Жанр: Pop, RockПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00F134045436C7D656788E058C1B2CE39A474DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511266   (667212) от 16.06.2012
+
+DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0CA9C3934377F632DD84EC28829E5162F7F2B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511827   (665981) от 17.06.2012
+
+Сборник видеоклипов Millenium Dance 7 - (2012) DVDRipH.264
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elena Gheorghe - Midnight Sun
+02 Dina Gabri - Naughty Boy
+03 Corina feat.JJ - No Sleepin
+04 Juan Magan - Mariah
+05 September - Cry For You
+06 Ida Corr - What Goes Around Comes Around
+07 Taio Cruz - Break Your Heart
+08 Alexandra Stan - Lollipop
+09 Radio Killer - Lonely Heart
+10 Milk and Sugar vs Vaya Con Dios - Hey Nah Neh Nah(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138176   (661920) от 31.05.2017
 
 Сборник клипов - Philizz "Back To The 90s" (episode 1) (2017) WEB-DLRip [720p]
@@ -6,7 +93,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661920.jpg" />
+  <img src="Z:/picture/008/save_picture_661920.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ Abel Almena feat Bearlin. Maybe Im Right (2012) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660496.jpg" />
+  <img src="Z:/picture/008/save_picture_660496.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660453.jpg" />
+  <img src="Z:/picture/008/save_picture_660453.jpg" />
 </div>
 
 
@@ -88,7 +175,7 @@ VA - Official UK Top 40 Video Chart (30-05-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657478.jpg" />
+  <img src="Z:/picture/008/save_picture_657478.jpg" />
 </div>
 
 
@@ -117,7 +204,7 @@ DVJ Bazuka - Summer Love (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656622.jpg" />
+  <img src="Z:/picture/008/save_picture_656622.jpg" />
 </div>
 
 
@@ -143,7 +230,7 @@ Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651227.jpg" />
+  <img src="Z:/picture/008/save_picture_651227.jpg" />
 </div>
 
 
@@ -169,7 +256,7 @@ Ru.Music - Сборники Видеоклипов (Февраль 2010 - Июн
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648906.jpg" />
+  <img src="Z:/picture/008/save_picture_648906.jpg" />
 </div>
 
 
@@ -201,7 +288,7 @@ Motörhead Videography / Motorhead Видеография (29 клипов) (198
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637650.jpg" />
+  <img src="Z:/picture/008/save_picture_637650.jpg" />
 </div>
 
 
@@ -232,7 +319,7 @@ Ocean Drive feat. Aylar - Some People (2010) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632610.jpg" />
+  <img src="Z:/picture/008/save_picture_632610.jpg" />
 </div>
 
 
@@ -258,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631623.jpg" />
+  <img src="Z:/picture/008/save_picture_631623.jpg" />
 </div>
 
 
@@ -284,7 +371,7 @@ Ferry Corsten - Radio Crash (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631038.jpg" />
+  <img src="Z:/picture/008/save_picture_631038.jpg" />
 </div>
 
 
@@ -310,7 +397,7 @@ Mr Sam & Andy Duguid vs. Pat Benatar - Invincible (2010) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630903.jpg" />
+  <img src="Z:/picture/008/save_picture_630903.jpg" />
 </div>
 
 
@@ -336,7 +423,7 @@ Chicane vs Natasha Bedingfield - Bruised Water (2009) [720p]HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630894.jpg" />
+  <img src="Z:/picture/008/save_picture_630894.jpg" />
 </div>
 
 
@@ -362,7 +449,7 @@ ATB - Humanity (Airplay Mix) (2005)   [H.264]HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630891.jpg" />
+  <img src="Z:/picture/008/save_picture_630891.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ ATB - Let You Go (Reworked) (2005) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630780.jpg" />
+  <img src="Z:/picture/008/save_picture_630780.jpg" />
 </div>
 
 
@@ -414,7 +501,7 @@ Dannii Minogue - Who Do You Love Now (feat Riva) (2001) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630642.jpg" />
+  <img src="Z:/picture/008/save_picture_630642.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Kylie Minogue - The One (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630634.jpg" />
+  <img src="Z:/picture/008/save_picture_630634.jpg" />
 </div>
 
 
@@ -466,7 +553,7 @@ Kylie Minogue - In My Arms (2008) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630447.jpg" />
+  <img src="Z:/picture/008/save_picture_630447.jpg" />
 </div>
 
 
@@ -492,7 +579,7 @@ Kylie Minogue - Can't Get You Out Of My Head (2001) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630429.jpg" />
+  <img src="Z:/picture/008/save_picture_630429.jpg" />
 </div>
 
 
@@ -518,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629995.jpg" />
+  <img src="Z:/picture/008/save_picture_629995.jpg" />
 </div>
 
 
@@ -545,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629931.jpg" />
+  <img src="Z:/picture/008/save_picture_629931.jpg" />
 </div>
 
 
@@ -575,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629620.jpg" />
+  <img src="Z:/picture/008/save_picture_629620.jpg" />
 </div>
 
 
@@ -604,7 +691,7 @@ Chicane - Saltwater (2000) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628610.jpg" />
+  <img src="Z:/picture/008/save_picture_628610.jpg" />
 </div>
 
 
@@ -615,87 +702,6 @@ Chicane - SaltwaterЖанр: TranceРежиссер: нетАктеры: нет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCD4C47E2475809C9E90D0CB180B68A16CA2684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682059   (628542) от 24.07.2013
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628542.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta Vs Keith Thomspon - Break 4 Love (Official Video)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540E96509B2F2D119C002E2EDD1E2E54A9902447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682051   (628538) от 24.07.2013
-
-David Vendetta - Love To Love You Baby (2007) HDTVRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628538.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Vendetta - Love To Love You Baby (Official Clip)Жанр: TranceРежиссер: нетАктеры: нетПеревод: ОтсутствуетПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EF568739269F4CD7EADF2F80FD93F7CBE38785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034983   (628296) от 16.07.2016
-
-Сборник - Bollywood Summermix (2016) BDRip 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летний сборник клипов из индийских фильмов01. Bajirao Mastani (Priyanka Chopra)
-02. Bahubali (Tamanna Bhatia)
-03. Krishnam Vande Jagadgurum
-04. Arinthum Ariyamalum (Sameksha)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан, Каджол, Варун Дхаван, Крити Санон и др.Перевод: ОтсутствуетПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D91D6C26AC779C7E69FE52A5D62A9D9B3EE37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

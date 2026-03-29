@@ -1,3 +1,110 @@
+###  Публикация: 1228337   (637242) от 31.05.2018
+
+Winclone Pro 7 v7.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone. Или как проще всего клонировать Windows на Mac..
+По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50DA142A8010DE4D44EBDC784CCCBA54BD0855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542459   (637114) от 07.04.2022
+
+Screegle - Clean Screen Sharing 2.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screegle позволяет вам поделиться любым окном, которое вы хотите, поверх чистого фонового изображения рабочего стола. Screegle - это совместное использование экрана для профессионалов. Ваши коллеги, команда, клиенты или студенты видят чистую, не загроможденную версию вашего рабочего стола, которая содержит только окна, какие вы явно выбрали, и ничего больше. Больше (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.04.2022Разработчик: © 2022 © AppBlit LLCПоддерживаемая ОС: macOS 14.0+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF6298EB54E939FC1E35D65CE04BA6E49DA25BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542463   (637113) от 07.04.2022
+
+Invisor - Media File Inspector 3.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisor – Инспектор файлов мультимедиа
+Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
+Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.04.2022Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44716837200E41AAA865B599F1C5CDF52910D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542631   (637108) от 07.04.2022
+
+4K Video Downloader 4.20.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.04.2022Разработчик: © 2022 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41233BB8016A899DFCA5790C9047471FA8D4ACAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228425   (637091) от 31.05.2018
 
 Sublime Text 3.1.1 (3176) [En]
@@ -6,7 +113,7 @@ Sublime Text 3.1.1 (3176) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637091.jpg" />
+  <img src="Z:/picture/008/save_picture_637091.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ WidsMob Panorama 4.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636959.jpg" />
+  <img src="Z:/picture/008/save_picture_636959.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Day One 2 Journal + Notes 2.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636270.jpg" />
+  <img src="Z:/picture/008/save_picture_636270.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Serial Box 06-2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635943.jpg" />
+  <img src="Z:/picture/008/save_picture_635943.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ Path Finder 8.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635833.jpg" />
+  <img src="Z:/picture/008/save_picture_635833.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635830.jpg" />
+  <img src="Z:/picture/008/save_picture_635830.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ SQLPro for SQLite 2022.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635455.jpg" />
+  <img src="Z:/picture/008/save_picture_635455.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ Valentina Studio Pro 12.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635449.jpg" />
+  <img src="Z:/picture/008/save_picture_635449.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ PatterNodes 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635394.jpg" />
+  <img src="Z:/picture/008/save_picture_635394.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ NCH DrawPad Pro 8.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635338.jpg" />
+  <img src="Z:/picture/008/save_picture_635338.jpg" />
 </div>
 
 
@@ -277,7 +384,7 @@ Export for iTunes 3.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635331.jpg" />
+  <img src="Z:/picture/008/save_picture_635331.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635274.jpg" />
+  <img src="Z:/picture/008/save_picture_635274.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ Vellum 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635248.jpg" />
+  <img src="Z:/picture/008/save_picture_635248.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Magnet 2.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635162.jpg" />
+  <img src="Z:/picture/008/save_picture_635162.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635141.jpg" />
+  <img src="Z:/picture/008/save_picture_635141.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ One Chat - All in one Messenger 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635106.jpg" />
+  <img src="Z:/picture/008/save_picture_635106.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ Forecast Bar 2.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635103.jpg" />
+  <img src="Z:/picture/008/save_picture_635103.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ Duplicate Photos Fixer Pro 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635047.jpg" />
+  <img src="Z:/picture/008/save_picture_635047.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ Fileloupe - Media Browser 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634363.jpg" />
+  <img src="Z:/picture/008/save_picture_634363.jpg" />
 </div>
 
 
@@ -521,7 +628,7 @@ Hazel 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634358.jpg" />
+  <img src="Z:/picture/008/save_picture_634358.jpg" />
 </div>
 
 
@@ -547,7 +654,7 @@ FileAssistant 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634304.jpg" />
+  <img src="Z:/picture/008/save_picture_634304.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ AirFoil 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634233.jpg" />
+  <img src="Z:/picture/008/save_picture_634233.jpg" />
 </div>
 
 
@@ -587,114 +694,6 @@ AirFoil 5.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6859263A7E7DFCB32FD598CF122E37C22B46373C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033978   (634231) от 13.07.2016
-
-MAMP & MAMP PRO 3.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любому веб-разработчику в процессе создания того или иного сайта необходимо проверять его работоспособность. Делать это удобнее всего на локальном веб-сервере, поднятом на своем компьютере. Преимущества этого способа в том, что нет ограничений ни на размер сайта, ни на использование процессорного времени или оперативной памяти сервера, а главное – то, что любое сохранение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 июля 2016Разработчик: Appsolute GmbH.Поддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB69F025639AEAD6EB5605996D788B1464644AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801560   (634183) от 02.07.2014
-
-Apple Final Cut Pro X 10.1.2,  Motion 5.1.1 & Compressor 4.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-
-Motion. Анимация для Final Cut
-Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 июня 2014Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.9.2 +Язык интерфейса: Английский, Китайский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628C1512A2F63BAF4352FD8B6DCA1D2D78D72B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034292   (634042) от 13.07.2016
-
-Remotix VNC & RDP 4.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
-Туннелирование SSH, VNC и RDP. Синхронизация буфера обмена: картинки, RTF, HTML. Удаленный доступ к Mac OS X, Windows и Linux. Не нужна установка ПО на удаленный компьютер. Поддержка Apple Screen Sharing, RDP и VNC. Доступ к Мак через интернет через Back to My Mac. Передача (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июля 2016Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355119E7CC64E951F65255EF126774AB8F51FCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542981   (633830) от 09.04.2022
-
-Any RecScreen 2.0.71 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any RecScreen - это простая в использовании утилита записи экрана для Mac, которая позволяет записывать происходящее на  мониторе в полноэкранном режиме или в настраиваемой области. Вы можете записать веб-камеру для создания видео «картинка в картинке», добавив веб-камеру в область записи. Также может быть записан звук в ваших видео с микрофона или системного звука (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.04.2022Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE2600342388F6474C772FD997A064F407EE3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

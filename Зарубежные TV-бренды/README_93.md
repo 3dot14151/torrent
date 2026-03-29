@@ -1,3 +1,108 @@
+###  Публикация: 1180279   (341948) от 03.11.2017
+
+NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный рассказ о самых поразительных гигантах которые жили на планете Земля.
+Этот интересный и весьма незаурядный документальный фильм привлекает внимание в первую очередь тем, что действительно масштабирование в эволюции шло гигантскими шагами. В фильме показывают, что до того как миром стали править люди, земля была планетой гигантов. Змеи длиной с автобус, (   Читать дальше...   )Производство: США, Produced By Blink Films UK LTD For National Geographic ChannelЖанр: Документальный, познавательный, палеонтологияРежиссер: Оливер ТвинчПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91172C0AE57EE892990878F1E3A64ED46D1412DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953221   (341796) от 07.11.2015
+
+Discovery. Путешествие в неизвестность с Эдом Стаффордом / Ed Stafford: Into the Unknown (2015) HDTVRip (cезон 1, серии 3-? )
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эд Стаффорд прошел пешком вдоль Амазонки, выживал в самых диких местах планеты без снаряжения и даже без одежды, а теперь он отправится в новое экстремальное путешествие, чтобы разгадать шесть удивительных тайн нашей планеты, одна из которых спрятана в горах Восточной Сибири! Маршруты нового проекта «Путешествие в неизвестность с Эдом Стаффордом» созданы на основе (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, приключения, экстрим, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B222928D03F2FA559DCC99C69FDAB2B95E3B6678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953227   (341688) от 07.11.2015
+
+Discovery: Путешествие в неизвестность с Эдом Стаффордом / Ed Stafford: Into the Unknown (2015) HDTV [H.264/720p-LQ] (cезон 1, серии 3-? )
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эд Стаффорд прошел пешком вдоль Амазонки, выживал в самых диких местах планеты без снаряжения и даже без одежды, а теперь он отправится в новое экстремальное путешествие, чтобы разгадать шесть удивительных тайн нашей планеты, одна из которых спрятана в горах Восточной Сибири! Маршруты нового проекта «Путешествие в неизвестность с Эдом Стаффордом» созданы на основе (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, приключения, экстрим, природаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F788D2DE79A111A9375A5E2B0C2975917574FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419298   (341638) от 27.10.2020
+
+Тайные города / An Art Lovers' Guide (2017) DVB (сезон 1, серии 5 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341638.jpg" />
+</div>
+
+
+###  Подробнее
+
+От парящих башен до шедевров живописи, от народных гуляний до современного искусства. У каждого великого города свои уникальные и знаменитые сокровища, и, конечно, свои тайны, история и характер. А куда бы хотели отправится вы? В этих программах Янина Рамирес и Алистер Сук рассказывают о городах, покоривших их своей красотой, архитектурой и удивительной историей. (   Читать дальше...   )Производство: Великобритания, BBC StudiosЖанр: Документальный, путешествия, архитектура, искусствоРежиссер: Колин РотбартПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C9A3206402ECA30F3F077B4BCBD10650845FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419150   (341631) от 27.10.2020
 
 NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264/1080i] [hand made 50fps]
@@ -6,7 +111,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341631.jpg" />
+  <img src="Z:/picture/008/save_picture_341631.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341626.jpg" />
+  <img src="Z:/picture/008/save_picture_341626.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341002.jpg" />
+  <img src="Z:/picture/008/save_picture_341002.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340902.jpg" />
+  <img src="Z:/picture/008/save_picture_340902.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340900.jpg" />
+  <img src="Z:/picture/008/save_picture_340900.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NGW. Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340847.jpg" />
+  <img src="Z:/picture/008/save_picture_340847.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340788.jpg" />
+  <img src="Z:/picture/008/save_picture_340788.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340726.jpg" />
+  <img src="Z:/picture/008/save_picture_340726.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340519.jpg" />
+  <img src="Z:/picture/008/save_picture_340519.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340511.jpg" />
+  <img src="Z:/picture/008/save_picture_340511.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340217.jpg" />
+  <img src="Z:/picture/008/save_picture_340217.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340085.jpg" />
+  <img src="Z:/picture/008/save_picture_340085.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ Discovery: Наука сексуальной привлекательности 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339769.jpg" />
+  <img src="Z:/picture/008/save_picture_339769.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339701.jpg" />
+  <img src="Z:/picture/008/save_picture_339701.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339589.jpg" />
+  <img src="Z:/picture/008/save_picture_339589.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339395.jpg" />
+  <img src="Z:/picture/008/save_picture_339395.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339393.jpg" />
+  <img src="Z:/picture/008/save_picture_339393.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339354.jpg" />
+  <img src="Z:/picture/008/save_picture_339354.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338697.jpg" />
+  <img src="Z:/picture/008/save_picture_338697.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338467.jpg" />
+  <img src="Z:/picture/008/save_picture_338467.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338207.jpg" />
+  <img src="Z:/picture/008/save_picture_338207.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337617.jpg" />
+  <img src="Z:/picture/008/save_picture_337617.jpg" />
 </div>
 
 
@@ -567,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DC215CE21664F31AA529E426A527D5E31ABEC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 627244   (337467) от 19.11.2016
-
-Discovery: Как это сделано ? / How it's made? (2012) SATRip [Сезон 19: серии 1-13]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам интересно, как делают привычные, обыденные вещи? Discovery Channel представляет новые серии фильма "Как это работает", который приглашает зрителей за кулисы производства самых обычных предметов начиная с хоккейных шайб и ручных пил и кончая буровыми долотами и замороженной картошкой фри. Передача " Как это работает" показывает, как делают (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 13 x ~ 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF28C9D1C08B2A9FC1BD561202BDEEEBA92948E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143940   (336775) от 05.11.2017
-
-Discovery: Речные монстры / River monsters (2017) HDTVRip [H.264/720p-LQ] (Сезон 9, серии 1-9 из 9) [PR]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336775.jpg" />
-</div>
-
-
-###  Подробнее
-
-После восьми сезонов биолог и рыбак-экстремал Джереми Уэйд решил повесить на гвоздь свою удочку в финальных эпизодах Речных Монстров. Благодаря Речным Монстрам мы увидели как Уэйд проводит всю жизнь в поисках опаснейших водных обитателей, среди которых и хищники, и жертвы, легендарные и мифические. Начиная с 2008 г. на удочку Уэйда попадались одни из самых редких, (   Читать дальше...   )Производство: США, Icon Films, Global Entertainment, Discovery Channel HDЖанр: Документальный, рыбалка, путешествия, география, природа, приключенияРежиссер: Барни Ревилл, Доминик Уэстон, Шарлотта ДжонсПеревод: Одноголосый закадровый, любительский (NEON Studio)Субтитры: отсутствуютПродолжительность: серии x ~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC267B5B23455078B3AE05FBE90E8850DB4E31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180506   (336764) от 05.11.2017
-
-Discovery: Как устроена Вселенная / How the Universe Works (2016-2017) WEBRip [H.264] (Сезон 5, серии 2-9 из 9)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канал "Discovery" представляет вашему вниманию передачу «Как устроена Вселенная». Она расскажет вам теорию о том как образовалась Вселенная, галактики, солнечные системы, планеты, звезды и т. д. Это величайшая история о том, как из маленькой точки появилась целая Вселенная, а потом начали появляться звезды, планеты и, конечно же, наша Земля. На самом деле, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADC5B95E447846A357964EEBAF9489CF1AA2FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330928   (336378) от 12.10.2019
-
-BBC: Поразительные чудеса мира / Weird Wonders of the World (2016) HDTV [H.264/1080i] (Сезон 2, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский натуралист Крис Пэкхем, исследует самые странные природные явления:
-Как солнце изменило пейзаж классической музыки? Что общего у коз и пауков? Может ли шелк паука помочь нам создать пуленепробиваемую кожу? «Поразительные чудеса света» - это увлекательное путешествие, для поиска ответов на некоторые из самых странных вопросов на планете. С помощью ведущих (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Андреа БаффериПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD700CF057DFD2B45FB804E4C58EEDBAABF9E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

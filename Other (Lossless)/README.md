@@ -7,7 +7,7 @@ Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061238.jpg" />
+  <img src="Z:/picture/005/save_picture_1061238.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050748.jpg" />
+  <img src="Z:/picture/005/save_picture_1050748.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050661.jpg" />
+  <img src="Z:/picture/008/save_picture_1050661.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030590.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030589.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030581.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030578.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030401.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030368.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Ins
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030357.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030334.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030107.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030098.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029932.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Best of Paul Mauriat 10 CD
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027979.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026120.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Deep Forest - 15 альбомов (1992-2020) [FLAC|Lossless|image + .cue|tracks
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025688.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010005.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006219.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002263.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <Ne
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001252.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000731.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993423.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989089.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Hariprasad Chaurasia - Целительная музыка для Ayurveda (2005
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985265.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Dale Cooper Quartet and the Dictaphones - Parole De Navarre (2006) [FLAC|Lossles
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967578.jpg" />
 </div>
 
 

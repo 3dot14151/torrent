@@ -1,3 +1,119 @@
+###  Публикация: 1478861   (1010025) от 21.06.2021
+
+Lyambiko - Out Of This Mood (2002) Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Some Other Time [6:54]
+02. If I Were A Bell [5:19]
+03. Chega De Saudade [3:36]
+04. Afro Blue [7:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE290A32E72CC4E0A1011DD451F561CF9D0E29AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479339   (1009601) от 24.06.2021
+
+Alain Jean-Marie - Afterblue: Jazz In Paris (1998, 1999) 2CD, 2009, Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009601.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Afterblue:
+01. Some Other Spring [6:17]
+02. Ghost of Yesterday [5:06]
+03. Where Are You [6:15](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 01:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C4AE52970039A1F7EB5DB8E46DD3B857F0F8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479625   (1009569) от 24.06.2021
+
+Nicki Parrott - If You Could Read My Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can See Clearly Now (5:48)
+02. Jolene (4:19)
+03. If You Could Read My Mind (4:42)
+04. Vincent (4:37)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EF1618D8A606846D1EBE369A6921D93A9FE95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479694   (1009464) от 25.06.2021
+
+Stan Getz - Communications '72 (2007) Gitanes Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Communications '72 [3:41]
+02. Outhouse blues [5:17]
+03. Now you've gon [4:37]
+04. Back to Bach [3:35](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBC6F9F19DAAFF112F5CB090E5126C8664C0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479961   (1009344) от 26.06.2021
 
 Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz Funk, Groove, Soul>
@@ -6,7 +122,7 @@ Amos Hoffman, Edwin G. Hamilton - Stories (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009344.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Johnny Hartman - There Goes My Heart (1947 - 1952) 2004, Proper Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008861.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Harry James & His Orchestra (1991) LaserLight [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008591.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Harry James - The Hits Of Harry James (1989) Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008589.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Les Brown - The Les Brown Story (1959) 1989, Capitol Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008475.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bob Crosby And His Orchestra - 1938 (1990) Circle [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008335.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Billy May And His Orchestra - Sorta-May / Sorta-Dixie (1996) Creative World [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008039.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ P.J. Perry & Doug Riley - Come Sunday: Songs of Spirituality (2004) Justin Time 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007919.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dave Brubeck - In Berlin (1964) 1999, SME Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007788.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Dave Brubeck Quartet - Time Outtakes (1959) 2020, Brubeck Editions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007785.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Sai Ghose Trio - E-Motion (2004) [FLAC|Lossless|tracks + .cue] <Mainstream J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007633.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Swingrowers - Hybrid (2021) [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007623.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Frank Marocco Groups - Brazilian Waltz (1988) Discovery Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007620.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Stephane Grappelli - Live In Warsaw '91 (1994) Jukebox Collection [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007316.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Stephane Grappelli - 85 And Still Swinging (1993) Angel Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007315.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Stephane Grappelli & Joe Venuti - Venupelli Blues (1969) 1986, Charly [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007272.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jack Sheldon - Quartet & Quintet featuring Zoot Sims And Joe Maini (1954, 1955) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007176.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Summer Lounge Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007162.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Scott Robinson - Tenormore (2019) [FLAC|Lossless|tracks + .cue] <Swing, Bop, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007033.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Woody Herman - Brand New (1971) 2000, Original Jazz Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007027.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007021.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007020.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B5DCFD6430A2FF77E9E43E955E18763E2872A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483213   (1007019) от 12.07.2021
-
-Gary Smith - My Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Romance (4:38)
-02. Everything's Just About You (4:38)
-03. Am I Blue (3:04)
-04. It's a Good Day (3:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0A026B464B6641B10FD695BC66545ECA5F7B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483203   (1006966) от 12.07.2021
-
-Brian Simpson - All That Matters (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Many Ways (4:07)
-02. What I'm Waiting For (4:13)
-03. Mystical (4:32)
-04. Sunlit Sea (5:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208260BBFAC76E92167AD3D325E916ED06590039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483358   (1006919) от 13.07.2021
-
-David Lahm - Jazz Takes On Joni Mitchell (1999) Arkadia Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Love [7:04]
-02. Song for Sharon [6:45]
-03. Edith & The Kingpin [6:14]
-04. Coyote [5:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E540BA1AC00F0DF5628877D2A68F65225BF878E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483694   (1006670) от 15.07.2021
-
-Johnny Holiday - Sings (1954) 2004, Contemporary Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Your Lover Has Gone [2:40]
-02. Stardust [5:04]
-03. By Myself [3:32]
-04. It's a Blue World [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEC93AFCC54C16FEB4B759CCF5296FA31AB0FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

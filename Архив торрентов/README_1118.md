@@ -6,7 +6,7 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2018) [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794935.jpg" />
+  <img src="Z:/picture/008/save_picture_794935.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ubuntu*Pack GNOME Classic 18.04 (декабрь 2018) [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794929.jpg" />
+  <img src="Z:/picture/008/save_picture_794929.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Transmit 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794928.jpg" />
+  <img src="Z:/picture/008/save_picture_794928.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alien Skin Exposure X4 Bundle 4.0.5.135 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794927.jpg" />
+  <img src="Z:/picture/008/save_picture_794927.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MassTube Plus 12.9.8.351 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794924.jpg" />
+  <img src="Z:/picture/008/save_picture_794924.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wise Memory Optimizer 3.6.4.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794921.jpg" />
+  <img src="Z:/picture/008/save_picture_794921.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794920.jpg" />
+  <img src="Z:/picture/008/save_picture_794920.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ UninstallPKG 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794910.jpg" />
+  <img src="Z:/picture/008/save_picture_794910.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cyberfox 52.6.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794909.jpg" />
+  <img src="Z:/picture/008/save_picture_794909.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Aiseesoft Screen Recorder 1.1.28 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794908.jpg" />
+  <img src="Z:/picture/008/save_picture_794908.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ InstaBro | Instagram Browser 5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794904.jpg" />
+  <img src="Z:/picture/008/save_picture_794904.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794902.jpg" />
+  <img src="Z:/picture/008/save_picture_794902.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ TechSmith Snagit 2021.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794901.jpg" />
+  <img src="Z:/picture/008/save_picture_794901.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ K-Lite Codec Pack Update 13.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794898.jpg" />
+  <img src="Z:/picture/008/save_picture_794898.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AllDup 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794881.jpg" />
+  <img src="Z:/picture/008/save_picture_794881.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BandLab - Cakewalk 2021.11 (Build 018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794880.jpg" />
+  <img src="Z:/picture/008/save_picture_794880.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794879.jpg" />
+  <img src="Z:/picture/008/save_picture_794879.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794878.jpg" />
+  <img src="Z:/picture/008/save_picture_794878.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794877.jpg" />
+  <img src="Z:/picture/008/save_picture_794877.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794876.jpg" />
+  <img src="Z:/picture/008/save_picture_794876.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794875.jpg" />
+  <img src="Z:/picture/008/save_picture_794875.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Ubuntu*Pack 18.04 MATE (декабрь 2018) [i386 + amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794864.jpg" />
+  <img src="Z:/picture/008/save_picture_794864.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2018) [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794857.jpg" />
+  <img src="Z:/picture/008/save_picture_794857.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794856.jpg" />
+  <img src="Z:/picture/008/save_picture_794856.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2018) [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794854.jpg" />
+  <img src="Z:/picture/008/save_picture_794854.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ubuntu*Pack Unity 18.04 (декабрь 2018) [amd64] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794851.jpg" />
+  <img src="Z:/picture/008/save_picture_794851.jpg" />
 </div>
 
 

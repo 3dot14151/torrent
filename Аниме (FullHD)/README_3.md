@@ -1,3 +1,161 @@
+###  Публикация: 1433182   (1022842) от 03.04.2021
+
+Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Атака титанов. Последний сезон [ТВ-4, часть 1] [2020, TV, 16 серий] WEB-DL 1080p 10-bit AAC raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минуло четыре года с тех пор, как члены Разведкорпуса достигли моря. Из дневников Гриши Йегера люди узнали, что всё это время противостояли не только титанам, но и другой нации.
+
+За морем Марлия заканчивает длительную войну с войсками Средневосточного Альянса. Нация, всегда полагавшаяся на титанов в войне, осознает, что постепенно теряет первенство в военном противостоянии (   Читать дальше...   )Производство: Япония, студия MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 16 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32D6AC7A57C034FA9FAA092A76B7B15CCC61481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390134   (1022840) от 03.04.2021
+
+Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Tensei Shiteshimatta... | Моя реинкарнация в отомэ-игре в качестве главной злодейки [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дочь знатного рода Клас, Катарина, получила камнем по лбу и вспомнила прошлую жизнь. Оказывается, она родилась в мире отомэ-игры Fortune Lover, которую обожала в своей прошлой инкарнации. Только вот… переродилась девушка в злодейку, что только и знает, как строить козни главной героине! Лучшая концовка Катарины — изгнание, худшая — смерть! И теперь ей предстоит сделать (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, фентезиРежиссер: Иноэ КэйсукэПеревод: CrunchyRoll; SovetRomantica; YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA658E710DF8C533F59AA6849239664B9D9833F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460223   (1022742) от 04.04.2021
+
+Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Красавица: Унеси меня на Луну [2020, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя «Наса» значит «Звёздная ночь», но произносится как «НАСА». Поэтому Наса Юдзаки старается соответствовать своему странному имени, всегда стремясь ввысь. Но в одну снежную ночь, в день сдачи экзаменов в старшую школу, он теряет бдительность, засмотревшись на красивую девушку, и его сбивает грузовик. Девушка по имени Цукаса спасает его, и Наса использует этот момент, (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A658FF75879A57BDB7C2F447896D5675B05466EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460825   (1022144) от 07.04.2021
+
+Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi Hanamichi! | Слэм-данк (фильм второй) [1994, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот короткометражный фильм является дополнением к сериалу, в нем рассказывается об четвертом матче отборочного круга национального чемпионата Японии среди старших школ. В самом сериале, в 36 серии, был сообщен только результат матча.Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Арисако ТосихикоПеревод: tetsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4358F7D8A87B13D9432706BC1354F7A3C49AC72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460826   (1022143) от 07.04.2021
+
+Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк (фильм третий) [1995, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот короткометражный фильм является дополнением к сериалу. Тренер Анзай, после первого поражения в отборочных играх национального чемпионата Японии, для восстановления духа команды Сехоку, принимает предложение от только что сформированной команды Рекуфу о тренировочном матче.Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Какудо ХироюкиПеревод: tetsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C235251F5BFE1C8FFD83D3EE5DED4703E1C654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460823   (1022142) от 07.04.2021
+
+Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот короткометражный фильм является дополнением к сериалу, действие происходит после тренировочного матча с командой Рёнан. В нем команда Сакураги Ханамичи проводит тренировочный матч со школой Такезоно.Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Нисидзава НобутакаПеревод: tetsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590BE055589A34E72731DADAC86FB57270404E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460827   (1022141) от 07.04.2021
 
 Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Слэм-данк (фильм четвертый) [1995, Movie] BDRip 1080p 10-bit raw
@@ -6,7 +164,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022141.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022140.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021471.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021235.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021188.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020804.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020779.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двулична
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020480.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020457.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020349.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020347.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019898.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019309.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018404.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018374.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018167.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018087.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018077.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018052.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018044.jpg" />
 </div>
 
 
@@ -517,164 +675,6 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C33DC50F0FB9D28A347852EC89836CE510ED16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467023   (1018040) от 02.05.2021
-
-Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: Осознание - Страж перерождения [2017, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокая девушка по имени Кардия жила в заброшенном особняке на окраине Лондона, сокрытая от всего мира и связанная обещанием со своим отцом. Её тело таит в себе опасный яд, способный заставить расплавиться и сгнить всё, что коснётся её кожи, из-за этого местные прозвали девушку «чудовищем». Два года назад отец Кардии пропал, напоследок наказав ей никогда не влюбляться (   Читать дальше...   )Производство: Студия M.S.C. / エム・エス・シーЖанр: приключения, романтикаРежиссер: Ямамото ХидэёПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D832AEE01DA735EB9CF5FABD921AB5767DC9417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467271   (1017895) от 03.05.2021
-
-Great Pretender | Великий притворщик [2020, Web, 23 из 23] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не будет преувеличением сказать, что Масато Эдамура, вероятно, величайший в Японии мошенник. На пару с подельником Кудо он решает провернуть аферу в Асакусе и обмануть некоего Француза, однако в итоге оказывается обманут сам. Ведь Француз, которого они так неудачно пытались обдурить, оказался не кем-нибудь, а самим Лораном Тьерри — человеком такого высокого уровня, (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA9233470D4AFA9ED642BBB3F05C4CA9AE142BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467087   (1017860) от 03.05.2021
-
-Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021, Web, 12 из 12] WEBRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017860.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах шестнадцатилетней Юри Хондзё только что незнакомому мужчине раскроили топором голову. В ужасе девушка понимает, что теперь её очередь и странный убийца в маске направляется к ней. Юри, которая ещё секунду назад находилась в родной школе, даже предположить не может, где она очутилась и каким образом. Ясно одно — нужно спасаться. Выбежав в ближайшую дверь, (   Читать дальше...   )Производство: Zero-GЖанр: Триллер, фантастикаРежиссер: Таката МасахироСубтитры: Русские, АнглийскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D17A8604C5342E228A6A68A3DC3D8B31B3507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467492   (1017365) от 06.05.2021
-
-Yasuke | Ясукэ [2021, ONA, 6 из 6] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой лодочник, прежде известный под прозвищем Черный самурай, берет под крыло девочку с загадочными способностями, и ему приходится снова выйти на тропу войны. © NetflixПроизводство: MAPPAЖанр: Приключения, фэнтезиРежиссер: Лешон Томас и Такэси СатоСубтитры: РусскиеПродолжительность: 6 серий по 30 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4B1E69C7DBD5F86387C706FA038E261042819C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468062   (1017357) от 06.05.2021
-
-Kono Minikuku mo Utsukushii Sekai | This Ugly yet Beautiful World | Этот ужасный и прекрасный мир [2004, TV, 12 из 12] BDRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученик старшей японской школы Такэру Такэмото подрабатывает курьером, доставляя различные товары на своём мотоцикле. Когда однажды во время работы он подвозил своего лучшего друга Рё Ниномию, над ними пролетел странный светящейся объект, который затем упал в лесу. На месте падения они обнаружили обнажённую девушку, которой дали имя «Хикари» (Свет). Друзья не успели (   Читать дальше...   )Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: романтика, фантастика, комедия, эттиРежиссер: Саэки СёдзиПеревод: A.k.M., КириллЯзык озвучки: японский, английскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7B94DD2CBC449E52CE172366598D2F6282FF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468324   (1017266) от 07.05.2021
-
-Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017266.jpg" />
-</div>
-
-
-###  Подробнее
-
-История происходит за 500 лет до истории Сайюки. Ребенок-еретик с золотыми глазами попадает на Небеса. Он неохотно передан на попечение второстепенного божества по имени Конзэн, племянника Милосердной Богини Канзеон Босацу.
-
-Конзен в конце концов дает ребенку имя «Гоку». Гоку подружился с двумя другими второстепенными богами, маршалом Тенпу и генералом Кенреном из (   Читать дальше...   )Производство: Студия Anpro / アンプロЖанр: приключения, мистикаРежиссер: Кудзуя НаоюкиПеревод: Xellos Slayer; KasandraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. + SP по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68A1E54775695BC936C6D09DBB779D4E4DF935A
 ```
 
 https://mybot314.ru/tekegram_catalog/

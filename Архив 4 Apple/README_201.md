@@ -6,7 +6,7 @@ iStat Menus 6 v6.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788771.jpg" />
+  <img src="Z:/picture/008/save_picture_788771.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SpamSieve 2.29.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788674.jpg" />
+  <img src="Z:/picture/008/save_picture_788674.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VirusKiller Antivirus (ранее Endurance Antivirus) 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788651.jpg" />
+  <img src="Z:/picture/008/save_picture_788651.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Hands Off! 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788640.jpg" />
+  <img src="Z:/picture/008/save_picture_788640.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ RapidWeaver 8 8.1 Final Candidate 6 (build 20560b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788623.jpg" />
+  <img src="Z:/picture/008/save_picture_788623.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Chaos Control: GTD organizer | To-Do List 1.4.7 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788622.jpg" />
+  <img src="Z:/picture/008/save_picture_788622.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Feeder 3 v3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788619.jpg" />
+  <img src="Z:/picture/008/save_picture_788619.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Cookie 5 v5.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788618.jpg" />
+  <img src="Z:/picture/008/save_picture_788618.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VoodooPad 5 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788612.jpg" />
+  <img src="Z:/picture/008/save_picture_788612.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Memory Cleaner - Freeup space 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788584.jpg" />
+  <img src="Z:/picture/008/save_picture_788584.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ System Toolkit 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788422.jpg" />
+  <img src="Z:/picture/008/save_picture_788422.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ GoodNotes 5 v5.7.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788419.jpg" />
+  <img src="Z:/picture/008/save_picture_788419.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Stats 2.6.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788417.jpg" />
+  <img src="Z:/picture/008/save_picture_788417.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ TinkerTool System 7 v7.71 + TinkerTool 8.3  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788416.jpg" />
+  <img src="Z:/picture/008/save_picture_788416.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Easy New File 5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788412.jpg" />
+  <img src="Z:/picture/008/save_picture_788412.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ News Explorer 1.8.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788401.jpg" />
+  <img src="Z:/picture/008/save_picture_788401.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Screens 4 v4.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788400.jpg" />
+  <img src="Z:/picture/008/save_picture_788400.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ KeyCue 9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788399.jpg" />
+  <img src="Z:/picture/008/save_picture_788399.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ WiFi Scanner 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788378.jpg" />
+  <img src="Z:/picture/008/save_picture_788378.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Easy Data Transform 1.22.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788375.jpg" />
+  <img src="Z:/picture/008/save_picture_788375.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ MacClean 3 v3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788366.jpg" />
+  <img src="Z:/picture/008/save_picture_788366.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ VueScan Pro 9.7.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788307.jpg" />
+  <img src="Z:/picture/008/save_picture_788307.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ KCNcrew Pack 01-15-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788234.jpg" />
+  <img src="Z:/picture/008/save_picture_788234.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Money Pro 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788230.jpg" />
+  <img src="Z:/picture/008/save_picture_788230.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Serial Box 02.2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788213.jpg" />
+  <img src="Z:/picture/008/save_picture_788213.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Carbon Copy Cloner 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788208.jpg" />
+  <img src="Z:/picture/008/save_picture_788208.jpg" />
 </div>
 
 

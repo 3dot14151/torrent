@@ -1,3 +1,61 @@
+###  Публикация: 1612536   (1039514) от 18.02.2023
+
+VA - Trance 2023 | Trance Music | Trance Top 100 [MP3|320 Kbps] <Trance, Progressive, Uplifting Trance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Cosmic Gate - REFLEXION (ASOT 2023 Anthem) (Extended Mix) [5:34]
+002. Gaia - Tuvan (AVIRA Extended Remix) [7:19]
+003. Ben Nicky x Distorted Dreams - Adagio For Strings (Extended Mix) [4:14]
+004. Luminn vs. Yoshi & Razner - Out Of The Cage (Extended Mix) [7:23](   Читать дальше...   )Жанр: Trance, Progressive, Uplifting Trance, ElectronicПродолжительность: 10:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD2F85276B0F5E7B2F155AAE9D71FCB63C100D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440904   (1038290) от 19.01.2021
+
+VA - Hard Dance Motion (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038290.jpg" />
+</div>
+
+
+###  Подробнее
+
+С треками сборника "Hard Dance Motion" Вы можете наслаждаться духом настоящего андерграунда. Стиль прогрессивного хардстайла, который соединил в себе всё самое лучшее из техно и клубного хауса остаётся и поныне одним из самых популярных направлений электронной музыки.001. Kors K - Outro
+002. Cygnus X - Superstring
+003. Mystical Mind - Desire (Radio Edit)
+004. Starfall - Believe(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36328CFD426552D01F07BF70B1276FC23BABB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440905   (1038275) от 19.01.2021
 
 VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
@@ -6,7 +64,7 @@ VA - EDM Free Style (2021) [MP3|320 Kbps] <Electro, Dance, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038275.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Vocal Chillout: Move With The Beat Vol.02 (2021) [MP3|320 Kbps] <Vocal Chil
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038259.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038061.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beatport Trance: Electro Sound Pack #180-1 (2021) [MP3|320 Kbps] <Trance, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038060.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Uplifting Trance: Sound Pack #182-1 (2021) [MP3|320 Kbps] <Uplifti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038055.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Beatport Techno Minimal: Sound Pack #178-1 (2021) [MP3|320 Kbps] <Techno, M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038054.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Beatport Electro House: Sound Pack #221 (2021) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037492.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Deep House: Sound Pack #222 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037487.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beyond The Airwaves: EDM Essentials Hits (2021) [MP3|320 Kbps] <Electro, Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037453.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Beatport Progressive Trance: Sound pack #224 (2021) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036956.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Min
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036946.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Chillout Electronic: Relax Set (2021) [MP3|320 Kbps] <Chillout, Ambient, Ch
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036894.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Electro Dance: Sound Pack #225 (2021) [MP3|320 Kbps] <EDM, Club, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036626.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Minimal Harmony: Mixed Sound (2021) [MP3|320 Kbps] <Techno, Minimal, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036346.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Beatport Electronic: Sound Pack #226 (2021) [MP3|320 Kbps] <Synth, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036339.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Drum And Bass: Live In Moment (2023) [MP3|320 Kbps] <DnB, Bassline, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035832.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Beatport Tech House: Electro Sound Pack #227 (2021) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035773.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Beatport Hardstyle: Electro Sound Pack #228 (2021) [MP3|320 Kbps] <Hard Dan
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035771.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035763.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035753.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Beatport Chill House: Electro Sound Pack #230 (2021) [MP3|320 Kbps] <Chill 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035752.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - pure Melodic house (2021) [MP3|320 Kbps] <Melodic house, Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035726.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Record Super Chart 04.03.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035525.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Beatport Tech House: Electro Sound Pack # 233 (2021) [MP3|320 Kbps] <Tech H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035225.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Beatport Tech House: Electro Sound Pack # 233 (2021) [MP3|320 Kbps] <Tech H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21DF2219CB58675FCD113509FC4C547249DE5F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443662   (1035186) от 30.01.2021
-
-VA - HGM Vocal Trance Mix Vol.03 (2021) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем поклонникам музыки в стиле транса представляем очередной 3-й релиз от House Garden Music. В суматохе нашего времени это музыкальное вдохновение в царстве света и надежды. 55 треков, полных призывного тепла, позволяют обратиться к тому, что необходимо и объединяет нас в жизни.01. Adip Kiyoi & Anhydrite - Love Will Heal You
-02. Seven Lions - Higher Love
-03. Kate Miles & Norni - Silver Lining
-04. Erik Hakansson - Weightless(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 04:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA5A91EE57FD1D1103A771E7D1B1F66A4A5BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444154   (1034961) от 31.01.2021
-
-VA - Beatport Trance: Electro Sound Pack #235 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034961.jpg" />
-</div>
-
-
-###  Подробнее
-
-С большим удовольствием рекомендуем этот 235-й релиз от Beatport почитателям прогрессивного транса. Многие современные исполнители не могут пройти мимо этого замечательного стиля, они вдохновляются старыми хитами, создают новые хиты, двигая в народ и распространяя по планете эту популярную музыку.001. Metta & Glyde - Renaissance
-002. Alexander Komarov - The Moment
-003. Bryan Kearney - From The Inside
-004. James Dust - Daylight(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 14:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF903BC3F2DC5E1DE80548C1131CD7563A8DB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

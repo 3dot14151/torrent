@@ -1,3 +1,90 @@
+###  Публикация: 1513094   (227742) от 27.11.2021
+
+Thy Flesh Consumed - Unrepentant (2009) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siege Engine of Unreligion [3:50]
+02. The Disciplined Scorn [3:54]
+03. Blood Drenched Creation [5:27]
+04. The Demolition of Thought [4:31](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BD65213812D64A1BD34CB58B6EBD2FFE512384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583589   (227740) от 16.10.2022
+
+Acid Witch - Rot Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gather Each Witch [00:02:11]
+02. Rot Among Us [00:04:00]
+03. The Sleeper [00:03:55]
+04. Psychedeathic Swampnosis [00:03:37](   Читать дальше...   )Жанр: Psychedelic Doom Metal, Death MetalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262DF9712604C90F0F136A1C3A19DEEA71902C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513026   (227732) от 27.11.2021
+
+Unleashed - No Sign Of Life (2021) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The King Lost His Crown
+02. The Shepherd Has Left The Flock
+03. Where Can You Flee?
+04. You Are The Warrior!(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CD3975BE1E82FA084176704868A0343B638031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649770   (227729) от 30.07.2023
 
 Flight - Echoes Of Journeys Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Flight - Echoes Of Journeys Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227729.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Battery - Armed with Rage (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227725.jpg" />
+  <img src="Z:/picture/005/save_picture_227725.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ohth (Óð) - None Shall Escape Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Extr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227724.jpg" />
+  <img src="Z:/picture/005/save_picture_227724.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Arch Blade - Kill The Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227716.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Hexed - Pagans Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227667.jpg" />
+  <img src="Z:/picture/005/save_picture_227667.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Eternity's End - Unyielding (2018) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227540.jpg" />
+  <img src="Z:/picture/005/save_picture_227540.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Emigrate - The Persistence Of Memory (2021) [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227443.jpg" />
+  <img src="Z:/picture/005/save_picture_227443.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Lacuna Coil - Comalies XX (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227364.jpg" />
+  <img src="Z:/picture/005/save_picture_227364.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Epica - Kingdom of Heaven Part 3 - The Antediluvian Universe - Omega Alive (2021
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227302.jpg" />
+  <img src="Z:/picture/005/save_picture_227302.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Nightmarer - Cacophony of Terror (2018) [FLAC|Lossless|WEB-DL|tracks] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226959.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Lonewolf - Raised On Metal (2017) [FLAC|Lossless|image + .cue] <Speed Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226954.jpg" />
+  <img src="Z:/picture/005/save_picture_226954.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Occulsed - Crepitation of Phlegethon (2021) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226907.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Olkoth - At the Eye of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226899.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Ensanguinate - Eldritch Anatomy (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226897.jpg" />
+  <img src="Z:/picture/005/save_picture_226897.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Inmundus - Primordia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226888.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Trick Or Treat - Re-Animated (2018) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226882.jpg" />
+  <img src="Z:/picture/005/save_picture_226882.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Occulsed - Parturition of Adulteration (2022) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226880.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Seal Fur Peeling - Daggers Predacious (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226850.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Contempt - The Secret Around Us (2002) Reissued, 2005 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226597.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Underdark - In The Name Of Chaos (2010) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226586.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Cadaver Mutilator - Murder Death Kill (2013) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226581.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Birth Asphyxia - Human Obelisk (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226518.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226475.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0772F82D96CD66404AEC40D4874FE83C7CD507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965355   (226471) от 14.12.2015
-
-Stormzone - Seven Sins (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bathsheba (06:46)
-02. Another Rainy Night (04:15)
-03. Your Time Has Come (05:00)
-04. The One That Got Away (04:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0032B29359F30A30C569C672085A456C9622079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650271   (226468) от 01.08.2023
-
-Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom Metal, Blackened>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summoned From Moribund Delusions [00:06:24]
-02. Reflected In Perpetual Waves Of Despair [00:05:18]
-03. Swollen Corpse Adoration [00:05:54]
-04. Desecrated Guts [00:05:09](   Читать дальше...   )Жанр: Death Metal, Doom Metal, BlackenedПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC9F03A524FA8F45D7D721EA0648C4DA951D1A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649945   (226460) от 01.08.2023
-
-The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Or Fail [00:03:36]
-02. Relocate [00:04:02]
-03. Animal X [00:03:26]
-04. No Limits [00:05:02](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A3D78C17E3F6277326E56B54D28D589B8F152F
 ```
 
 https://mybot314.ru/tekegram_catalog/

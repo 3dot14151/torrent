@@ -1,3 +1,119 @@
+###  Публикация: 1012995   (777996) от 03.05.2016
+
+Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Back Home
+02. Joers Tune
+03. Someday Werll All Be Free
+04. Butterfly(   Читать дальше...   )Жанр: FusionПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA9B39D8D293607CE81ED2A84DF3603397A945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012999   (777992) от 03.05.2016
+
+Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Me Blues
+02. Full Circle
+03. Sneaky Pete
+04. Saturday Night In The Village(   Читать дальше...   )Жанр: Bop, Post BopПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A44B1DA36FB91CFFF75FF02E401AA33FE972AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013123   (777990) от 03.05.2016
+
+Natalia M. King - Bluezzin T'il Dawn (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traces In The Sand
+02. Don't Explain
+03. Insatiable
+04. This Time Around(   Читать дальше...   )Жанр: Vocal Jazz, BluesПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15DD8D867A9F2693D15EFE1C224CEC616C5C9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211229   (777900) от 06.03.2018
+
+Hal Galper - Wild Bird (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Convocation [07:12]
+02. Wild Bird [08:13]
+03. Change Up [05:18]
+04. This Moment [11:54](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD022D5C411F4FDBBDB68AF84E2E556B2F14BDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211228   (777899) от 06.03.2018
 
 Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -6,7 +122,7 @@ Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777899.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jimmy Rosenberg - Trio (2004) Hot Club Records [FLAC|Lossless|tracks + .cue] <Gy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777898.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Cees Slinger, Clifford Jordan, Philly Joe Jones, Isla Eckinger - Sling Shot! (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777677.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Buster Williams Trio - Tokudo (Japan Edition) (1989) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777676.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777657.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Howard McGhee - Dusty Blue (1960) 1999, Bethlehem [APE|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_777595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_777595.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jimmy Rosenberg - Portrait of Jimmy Rosenberg (1999) Hot Club Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777594.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jimmy Rosenberg & Stian Carstensen - Rose Room (2005) Hot Club Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777593.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Jerry Gonzalez - Rumba Para Monk (1989) 2001, Sunnyside Communications [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777591.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Brian Culbertson - Colors of Love (2018) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777475.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777341.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Michel Donato - Maree Bass...e (1995) Label Bleu [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777286.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Brother Jack McDuff - Hot Barbeque & Live! (1963, 1965) 1993, BGP Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777285.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Thomas Morris - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777284.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777281.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Fred Hersch - Solo (2015) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776970.jpg" />
+  <img src="Z:/picture/008/save_picture_776970.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776967.jpg" />
+  <img src="Z:/picture/008/save_picture_776967.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776964.jpg" />
+  <img src="Z:/picture/008/save_picture_776964.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Teddy Wilson - & His All-Stars Vol. 1 (1935-1939) Remaster, 2014, Sony Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776961.jpg" />
+  <img src="Z:/picture/008/save_picture_776961.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776958.jpg" />
+  <img src="Z:/picture/008/save_picture_776958.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776949.jpg" />
+  <img src="Z:/picture/008/save_picture_776949.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776940.jpg" />
+  <img src="Z:/picture/008/save_picture_776940.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64F3BD2FCE28EB3195164D447FA63897CDD5485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014024   (776927) от 06.05.2016
-
-VA - Smooth Jazz Vocal Grooves (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Cole - So Good 4:16
-02. Lin Rountree - Givin' You Love 4:02
-03. James Vargas - Say You Will 5:34
-04. Nicholas Cole - When I Think of You 4:16(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A376C4C76108142FC7C284FFFAA4094C75E81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013685   (776923) от 06.05.2016
-
-Allan Holdsworth - One City Night (1995) [FLAC|Lossless|tracks] <Jazz, Fusion, Free Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funnels (06:24)
-02. Looking Glass (08:50)
-03. Auhkukah (05:49)
-04. Low Levels, High Stakes (07:12)(   Читать дальше...   )Жанр: Jazz, Fusion, Free Jazz, Contemporary JazzПродолжительность: 01:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4352A0A157D669C15C3076EBD853BD70C35E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211900   (776912) от 09.03.2018
-
-Jimmy Owens - The Monk Project (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Mississippi [05:41]
-02. Well You Needn't [06:48]
-03. Blue Monk [08:41]
-04. Stuffy Turkey [06:55](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EB36931230A8BA438E4A36830BBE6492ADCB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211898   (776911) от 09.03.2018
-
-Lou Levy Trio - A Most Musical Fella (1956, 1957) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night And Day [04:16]
-02. Angel Eyes [04:07]
-03. Lou's Blues [03:48]
-04. Yesterdays [06:19](   Читать дальше...   )Жанр: Cool, Hard Bop, Piano JazzПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A643B35809656A90226E9C5298E2C82E2B79763
 ```
 
 https://mybot314.ru/tekegram_catalog/

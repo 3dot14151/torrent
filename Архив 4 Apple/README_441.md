@@ -1,3 +1,110 @@
+###  Публикация: 957645   (326596) от 18.11.2015
+
+Blocs 1.5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2015Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6167ED6EBB5C1D13EE4A013CAF7AA885E13607CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957795   (326590) от 18.11.2015
+
+Path Finder 7.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: CocoatechПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15112CFFD3E2CC290CC95DB6E25A8EDF293C4CA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957649   (326468) от 18.11.2015
+
+On1 Photo 10 (10.0.0.2241) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326468.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo 10 — набор мощных приложений от известной компании onOne Software, представленный в едином пакете. Включает в себя 6 автономных программ и плагинов для Adobe Photoshop, Lightroom и др.. Он предназначен для профессиональных и продвинутых фотографов и просто любителей фотографии, который предоставит интуитивно понятные инструменты для применения фотографических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2015Разработчик: ON1, Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8D303A866344E7E994D90CCA71B48A83E41402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957634   (326307) от 18.11.2015
+
+SketchUp Pro 2016 (16.0.19913) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326307.jpg" />
+</div>
+
+
+###  Подробнее
+
+SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2015Разработчик: Trimble Navigation LimitedПоддерживаемая ОС: Mac OS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D6CC18BBF7703E671649C4E3895BABC2E80A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957879   (325787) от 19.11.2015
 
 Alfred Powerpack 2.8.1 [En]
@@ -6,7 +113,7 @@ Alfred Powerpack 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325787.jpg" />
+  <img src="Z:/picture/008/save_picture_325787.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325738.jpg" />
+  <img src="Z:/picture/008/save_picture_325738.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Adele - 25 (2015) [AAC|256 кб/с]<Indie, Pop>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325691.jpg" />
+  <img src="Z:/picture/008/save_picture_325691.jpg" />
 </div>
 
 
@@ -89,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325534.jpg" />
+  <img src="Z:/picture/008/save_picture_325534.jpg" />
 </div>
 
 
@@ -116,7 +223,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325403.jpg" />
+  <img src="Z:/picture/008/save_picture_325403.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ Vectorworks 2015 20.0.0 (234280) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325217.jpg" />
+  <img src="Z:/picture/008/save_picture_325217.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ ChronoSync 4.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324925.jpg" />
+  <img src="Z:/picture/008/save_picture_324925.jpg" />
 </div>
 
 
@@ -199,7 +306,7 @@ Beamer 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324879.jpg" />
+  <img src="Z:/picture/008/save_picture_324879.jpg" />
 </div>
 
 
@@ -227,7 +334,7 @@ CodeRunner 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324833.jpg" />
+  <img src="Z:/picture/008/save_picture_324833.jpg" />
 </div>
 
 
@@ -256,7 +363,7 @@ CleanMyMac 3.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324706.jpg" />
+  <img src="Z:/picture/008/save_picture_324706.jpg" />
 </div>
 
 
@@ -285,7 +392,7 @@ Vector Magic Desktop Edition 1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324436.jpg" />
+  <img src="Z:/picture/008/save_picture_324436.jpg" />
 </div>
 
 
@@ -312,7 +419,7 @@ ChronoSync 4.8.2 & ChronoAgent 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323838.jpg" />
+  <img src="Z:/picture/008/save_picture_323838.jpg" />
 </div>
 
 
@@ -341,7 +448,7 @@ Invisible 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323833.jpg" />
+  <img src="Z:/picture/008/save_picture_323833.jpg" />
 </div>
 
 
@@ -369,7 +476,7 @@ PeakHour 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323724.jpg" />
+  <img src="Z:/picture/008/save_picture_323724.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ Fax Templates for Pages 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323715.jpg" />
+  <img src="Z:/picture/008/save_picture_323715.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ iMazing 2.12.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323685.jpg" />
+  <img src="Z:/picture/008/save_picture_323685.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ Airmail 3 v3.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323624.jpg" />
+  <img src="Z:/picture/008/save_picture_323624.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Certificates Templates for Pages 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323595.jpg" />
+  <img src="Z:/picture/008/save_picture_323595.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Flyers Templates for Pages 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323591.jpg" />
+  <img src="Z:/picture/008/save_picture_323591.jpg" />
 </div>
 
 
@@ -536,7 +643,7 @@ Postbox 5.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323574.jpg" />
+  <img src="Z:/picture/008/save_picture_323574.jpg" />
 </div>
 
 
@@ -563,7 +670,7 @@ Duplicate Photos Fixer Pro 2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323531.jpg" />
+  <img src="Z:/picture/008/save_picture_323531.jpg" />
 </div>
 
 
@@ -591,7 +698,7 @@ ScreenFlow 8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323408.jpg" />
+  <img src="Z:/picture/008/save_picture_323408.jpg" />
 </div>
 
 
@@ -605,114 +712,6 @@ ScreenFlow - создаем свои скринкасты
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E94075B18C269C82D799B9F1DACB88A7311950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259114   (323243) от 02.11.2018
-
-Luminar 2018 v1.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar первый в мире редактор фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет вас сделать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6FC6E17BC42F0035744187954EFA27D30BC5ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181585   (323192) от 07.11.2017
-
-Path Finder 7.6.2 (1729) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов, управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2017Разработчик: CocoatechПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4818BE97B2C46600A6F4C9EC01EADD9CC2B29918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421073   (322319) от 03.11.2020
-
-Grid 1.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и простой способ упорядочить окна на вашем Mac. Grid позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: MacgridПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B098A513D9364B1A9EFC9C795CAF951F51B17252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421091   (322314) от 03.11.2020
-
-Slidepad 1.0.38 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322314.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BA4C814854C033878507A8F58E42DE68861645
 ```
 
 https://mybot314.ru/tekegram_catalog/

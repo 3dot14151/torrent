@@ -1,3 +1,32 @@
+###  Публикация: 1608930   (1043247) от 03.02.2023
+
+Nightwish - Wishmaster (2000) Reissue, 2004, Back On Black [OGG Vorbis|700 Kbps] <Rock, Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Is My Sin
+02. The Kinslayer
+03. Come Cover Me
+04. Wanderlust(   Читать дальше...   )Жанр: Rock, Symphonic Metal, Power MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E60B228345DFC08C5BA36E397F9D1D6A9CDA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609805   (1043131) от 04.02.2023
 
 Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Classic Rock>
@@ -6,7 +35,7 @@ Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Cl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043131.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043081.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Transatlantic - The Final Flight Live At L'Olympia (2023) 3xCD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042937.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Chris Turner - Rock 'n' Roll Man (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042809.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ RanestRane - The Wall (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042801.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Rome Pro(G)ject - IV - Beaten Paths Different Ways (2020) [MP3|320 Kbps] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042561.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Magick Brother & Mystic Sister - Magick Brother & Mystic Sister (2020) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042556.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Groundhogs - Split (1971) 50th Anniversary Edition, Reissue, 2020, Fire Reco
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042243.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Adam Nitti - The World Is Loud (2021) [MP3|320 Kbps] <Progressive Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042057.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dorian Wilde - I Am Ready For Love (2020) [MP3|320 Kbps] <Progressive Rock, Inst
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042055.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042051.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Larkin Poe - Self Made Man (2020) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041964.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ IQ - IQ40 – Forty Years Of Prog Nonsense Archive Collection (2023) 2 CD, [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041924.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Batmobile - Brace for Impact (2023) [MP3|320 Kbps] <Psychobilly, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041923.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Shivalila - Meditations On The Kali Yuga (2023) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041922.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gepetto - Evolutive Songs (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041504.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041500.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Neon Heart - Temporaria (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock, Kra
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041499.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Stewart Clark - Let's Go There (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041498.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Rock Classics Rock Legends Rock Anthems (2021) Explicit [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041101.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Exodus to Infinity - Archetype Asylum (2021) [MP3|320 Kbps] <Progressive Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040926.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Cleophuzz - 3 Releases (2018-2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040878.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040875.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040840.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Stoned Matter - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040636.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Stoned Matter - 2 Albums (2020-2023) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0431C83D0B6E93AED03B1D3C33C7BEAAC88CA4BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612083   (1040561) от 14.02.2023
-
-The Three-Body Problem - Light Gave Way (2023) [MP3|320 Kbps] <Progressive Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming 03:46
-02. Light Gave Way To Her 04:20
-03. The Crested Ibis 02:50
-04. Writing Letters 04:59(   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1F5EB96446310D23CC6AAB35D7186E72F0B477
 ```
 
 https://mybot314.ru/tekegram_catalog/

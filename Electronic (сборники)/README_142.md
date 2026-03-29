@@ -1,3 +1,61 @@
+###  Публикация: 1061077   (450992) от 09.10.2016
+
+VA - 100% Hits! Forward Now Remixes (2016) [MP3|320 Kbps] <House, Future House, Funky и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. FTampa - Make Some Noise (Original Mix)  4:45
+002. PH Electro - Back Home (Summer Festival Edit)  3:35
+003. Tera & Player N Skillz feat. Amanda Wilson & Pitbull - Scared (Michael Mind Project Mix)  5:06
+004. The Chainsmokers feat. sirenXX - Kanye (Riggi & Piros Remix  4:26(   Читать дальше...   )Жанр: House, Future House, Funky и другиеПродолжительность: 10:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6E7A550806DADD5F4DEECD66CD51F3C2C7CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322145   (450637) от 28.08.2019
+
+VA - Drum City Sound Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rafau Etamski - One Kiss
+002. Nostre - Stay With Me
+003. Black Barrel - Shake
+004. Units Beatz - Deformatio Of Planets(   Читать дальше...   )Жанр: Drum And Bass, Dubstep, Bass ElectroПродолжительность: 08:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05CA8EF81CA11B431E4ABA910C5918B08B07A58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552190   (450582) от 25.09.2012
 
 Dj Parafich - Pumping Romantica (2012) [MP3|192 кб/с]<Pumping House, Hard Bass, Speed Garage>
@@ -6,7 +64,7 @@ Dj Parafich - Pumping Romantica (2012) [MP3|192 кб/с]<Pumping House, Hard Bas
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450582.jpg" />
+  <img src="Z:/picture/008/save_picture_450582.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ Instrumental Core - The New Era (2012) [MP3|320 кб/с]<Dubstep, Instrumental, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450577.jpg" />
+  <img src="Z:/picture/008/save_picture_450577.jpg" />
 </div>
 
 
@@ -76,7 +134,7 @@ VA - Bass Killer 13 (2017) [MP3|320 Kbps] <Big Room, Dubstep, Electro House, Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450232.jpg" />
+  <img src="Z:/picture/008/save_picture_450232.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ VA - Global Player 2015, Lounge Edition, Vol. 2 (2015) [MP3|320 кб/с]<Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449688.jpg" />
+  <img src="Z:/picture/008/save_picture_449688.jpg" />
 </div>
 
 
@@ -133,7 +191,7 @@ VA - Ultimate Future Other Styles House (2016) [MP3|239~320 Kbps] <House, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449294.jpg" />
+  <img src="Z:/picture/008/save_picture_449294.jpg" />
 </div>
 
 
@@ -162,7 +220,7 @@ VA - Bass Future Welcome Sounds (2016) [MP3|247~320 Kbps] <House, Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449167.jpg" />
+  <img src="Z:/picture/008/save_picture_449167.jpg" />
 </div>
 
 
@@ -191,7 +249,7 @@ VA - 160 Future House & Wonders EDM (2016) [MP3|320 Kbps] <House, Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449164.jpg" />
+  <img src="Z:/picture/008/save_picture_449164.jpg" />
 </div>
 
 
@@ -220,7 +278,7 @@ VA - Oriental Deep (2022) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449106.jpg" />
+  <img src="Z:/picture/008/save_picture_449106.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ VA - BacauHouseMafia Vol.13 (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449008.jpg" />
+  <img src="Z:/picture/008/save_picture_449008.jpg" />
 </div>
 
 
@@ -278,7 +336,7 @@ VA - Deep House Collection Vol.92 (2016) [MP3|320 Kbps] <Deep House, Club House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448854.jpg" />
+  <img src="Z:/picture/008/save_picture_448854.jpg" />
 </div>
 
 
@@ -307,7 +365,7 @@ VA - Electro House Pool Party (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448659.jpg" />
+  <img src="Z:/picture/008/save_picture_448659.jpg" />
 </div>
 
 
@@ -336,7 +394,7 @@ VA - Empire Records: 100% Goa (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448561.jpg" />
+  <img src="Z:/picture/008/save_picture_448561.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ VA - Workout Mix vol.6 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448521.jpg" />
+  <img src="Z:/picture/008/save_picture_448521.jpg" />
 </div>
 
 
@@ -394,7 +452,7 @@ VA - Disco Space Travels (2018) vol. 2 [MP3|320 Kbps] <Electronic, Space Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448477.jpg" />
+  <img src="Z:/picture/008/save_picture_448477.jpg" />
 </div>
 
 
@@ -423,7 +481,7 @@ VA - Digital Tech House (2017) [MP3|320 Kbps] <Tech House, Minimal Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448422.jpg" />
+  <img src="Z:/picture/008/save_picture_448422.jpg" />
 </div>
 
 
@@ -452,7 +510,7 @@ VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446763.jpg" />
+  <img src="Z:/picture/008/save_picture_446763.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Loun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446750.jpg" />
+  <img src="Z:/picture/008/save_picture_446750.jpg" />
 </div>
 
 
@@ -510,7 +568,7 @@ VA - Dub step from evolinte vol.12 (2011) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446705.jpg" />
+  <img src="Z:/picture/008/save_picture_446705.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ VA - Deep House Collection Vol.185 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445937.jpg" />
+  <img src="Z:/picture/008/save_picture_445937.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ VA - Best Of Lounge & Ambient (2014) [MP3|320 кб/с]<Lounge, Ambient, Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445456.jpg" />
+  <img src="Z:/picture/008/save_picture_445456.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ VA - Feeling Good Vol 2 Positive Chill Grooves (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445336.jpg" />
+  <img src="Z:/picture/008/save_picture_445336.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ VA - Feeling Good Vol 1 Positive Chill Grooves (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445335.jpg" />
+  <img src="Z:/picture/008/save_picture_445335.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ Dj Parafich - Pumping (Scouse) Romantica vol. 15 (2015) [MP3|192 кб/с]<Pumpin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445333.jpg" />
+  <img src="Z:/picture/008/save_picture_445333.jpg" />
 </div>
 
 
@@ -690,7 +748,7 @@ VA - Vocal Trance Collection Vol. 138 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445213.jpg" />
+  <img src="Z:/picture/008/save_picture_445213.jpg" />
 </div>
 
 
@@ -704,64 +762,6 @@ VA - Vocal Trance Collection Vol. 138 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB1B222508AFFB3E67CE7A89E4E937FD3C47A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062040   (444776) от 12.10.2016
-
-VA - Beatport Trance Pack  (12.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Against The Wind (Braulio Stefield Remix)  7:36
-02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix)  5:40
-03. Denis Kenzo & Angel Falls - Run Away (Original Mix)  6:06
-04. Francisco Echeverria - Galapagos (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 06:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2E0CEFB263216BF024E41C35A9349225738D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062057   (444774) от 12.10.2016
-
-VA - Sound 155 Version Relentless (2016) [MP3|236~320 Kbps] <House,  Electro, Bigroom, UK Garage, Funky, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary G. feat. Ricardo Munoz - You & I (Bodybangers Radio Edit)  3:23
-002. Bodybangers Feat. Tony T. - Break My Stride (Extended Mix)  4:05
-003. Finger & Kadel - Kalinka (Club Mix Edit)  3:16
-004. Firebeatz - Wonderful  5:37(   Читать дальше...   )Жанр: House,  Electro, Bigroom, UK Garage, Funky, Progressive, ClubПродолжительность: 13:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F441162ACE7E0C58FEB69B928385B5EB53CF4F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

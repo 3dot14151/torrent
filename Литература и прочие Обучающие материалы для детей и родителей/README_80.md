@@ -1,3 +1,135 @@
+###  Публикация: 1362877   (946397) от 25.02.2020
+
+Гарет Мур | Шерлок Холмс. Головоломки великого сыщика: коллекция головоломок, загадок, ребусов (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание книги
+Хотите весело и с пользой провести время? Тогда эта книга для вас! «Шерлок Холмс. Головоломки великого сыщика» – это больше ста увлекательных сюжетных головоломок, загадок и ребусов, объединенных знаменитыми персонажами Артура Конан Дойла.
+Разгадывайте головоломки, достойные великого сыщика!Жанр: Головоломки, ДосугФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F638C1E737054CB4B40F3ECFFF306F89B7554FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090647   (946101) от 07.01.2017
+
+Куддус Мухаммади | Как металл затанцевал (1962) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихотворение для детей младшего школьного возраста Мухаммади Куддус с иллюстрациями Узбякова Юрия.Жанр: СтихиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC3C39565610E8A1BFB12535D5A97A2CC9829DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090652   (946079) от 07.01.2017
+
+Максим Зверев | Белый марал (1961) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для детей дошкольного и младшего школьного возраста Зверева Максима Дмитриевича с иллюстрациями Никольского Георгия Евлампиевича.Жанр: Детская прозаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354EB459B524692DC951697A0AC4A16427A94C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090646   (946075) от 07.01.2017
+
+Низами Гянджеви | Волшебное кольцо (1962) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихотворение для детей младшего школьного возраста Гянджеви Низами (обработка для детей: Абдуллы Шаика) с иллюстрациями Народного художника Азербайджанской ССР Власова Михаила Александровича.Жанр: Стихи, СказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDB03A25E398BEE4C8564C865A3C31455741A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090930   (945989) от 07.01.2017
+
+Г. Юрмин | Светофор (1976) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы, очерки, стихи о работниках ГАИ, об истории городского транспорта, о различных видах транспорта и законах дорожного движения. В этой книге вы часто будете встречать незнакомые слова — названия отдельных частей автомобиля, новые для вас технические термины. Разобраться в них вам поможет наш «Автомобильный словарик», который приведён в конце книги. Почаще (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B3E9290B86D83E2D8E9C96CD89F71B163C9FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090594   (945859) от 07.01.2017
 
 С.С. Клейненберг, В.М. Белькович | Дельфины – мифы и действительность (1967) [DJVU]
@@ -6,7 +138,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945859.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945688.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945671.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945601.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945563.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944579.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944539.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944480.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944479.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944379.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944276.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944223.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944170.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944078.jpg" />
 </div>
 
 
@@ -374,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943948.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943947.jpg" />
 </div>
 
 
@@ -428,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943940.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943935.jpg" />
 </div>
 
 
@@ -480,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943932.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943409.jpg" />
 </div>
 
 
@@ -536,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943158.jpg" />
 </div>
 
 
@@ -548,142 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8733EABBE855913E98091B3909B20C5DA7A3C4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091560   (943144) от 09.01.2017
-
-Юрий Разумовский | Наперегонки (1959) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворение для детей о лыжной гонке.Жанр: Детская проза, СтихиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C530758C9BC8FA4F7EBEF9FA7BBDE9B9F52FA72F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091570   (942624) от 09.01.2017
-
-Светлана Шишкова | Буквограмма. В школу с радостью. Коррекция и развитие письменной и устной речи. От 5 до 14 лет (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы ищете проверенное пособие, которое поможет вашему ребенку быстро развить навыки чтения и письма? Десятки тысяч родителей уже воспользовались удивительной методикой, которая получила название «Буквограмма»! И она действительно помогла: дети не только быстро освоили навыки чтения, но и полюбили это занятие!
-
-Эта книга поможет родителям, воспитателям, учителям и (   Читать дальше...   )Жанр: Обучение, развитиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E44B26A26CE63965D31E344038CEE5E301E74B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626605   (942523) от 06.03.2013
-
-"Азбука-классика" | Книжная серия "Очень прикольная книга" (29 книг) [2002-2012] [FB2, PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия открылась смешными и трогательными повестями Ингвара Амбьернсена о веселых приключениях двух друзей - хитрого кота Роберто и простодушного пса Самсона, которые знамениты во всем мире не меньше, чем кот Матроскин и пес Шарик в России. Их полные юмора отношения и увлекательные похождения завоевали не только детские сердца.
-Теперь в серии выходят и другие веселые книжки, но их главной особенностью остается огромное количество замечательных цветных иллюстраций. Эти забавные картинки можно с удовольствием рассматривать и в одиночку, и всей семьей, находя в них каждый раз новые поводы для улыбки.Формат: FB2 (17 книг), PDF (6 книг), DJVU (6 книг)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B75F5391CE598E57EAA8893D81936D92078683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363485   (942518) от 28.02.2020
-
-Д.Д. Эверест | Арчи Грин и переписанная магия (2020) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Арчи Грин».
-Арчи Грину предстоит написать магию. В самом прямом смысле - сесть за стол, взять перо, обмакнуть его в чернила и начать писать на страницах старинного гримуара. Дело в том, что книжные чары держатся, пока не выцветут чернила. Но даже волшебство подвластно времени, и уже едва можно разобрать, что начертано в великой Книге заклинаний. (   Читать дальше...   )Жанр: Фантастика для детей, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5F466B83739D890D201055A55E8FD985A5C36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983725   (942357) от 07.02.2016
-
-Иван Полуянов | Дочь солдата (1966) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942357.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дочь солдата» — повесть о девочке Верке, обыкновенной девочке с необычной судьбой.
-Совсем маленькой ее нашли советские солдаты в фашистском лагере смерти. Они дали ей имя, а днем ее рождения стал день спасения из лагеря. Кто ее мать, кто отец? Никто этого не знает…
-Но Верка не сирота. Ее воспитывают добрые и отзывчивые люди — старый коммунист Николай Иванович, считающий (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:054D078A9DC13212C75A31B0FBA374455DBB8C78
 ```
 
 https://mybot314.ru/tekegram_catalog/

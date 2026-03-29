@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880167.jpg" />
+  <img src="Z:/picture/005/save_picture_880167.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FinePrint Software (FinePrint 10.22 / pdfFactory Pro 7.22) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880151.jpg" />
+  <img src="Z:/picture/005/save_picture_880151.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ HDCleaner 1.290 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880150.jpg" />
+  <img src="Z:/picture/005/save_picture_880150.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ mp3DirectCut 2.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880149.jpg" />
+  <img src="Z:/picture/005/save_picture_880149.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Mozilla Firefox Quantum ESR 68.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880142.jpg" />
+  <img src="Z:/picture/005/save_picture_880142.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ mp3DirectCut 2.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880141.jpg" />
+  <img src="Z:/picture/005/save_picture_880141.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viber 12.7.1.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880134.jpg" />
+  <img src="Z:/picture/005/save_picture_880134.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Redacted 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880110.jpg" />
+  <img src="Z:/picture/005/save_picture_880110.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880082.jpg" />
+  <img src="Z:/picture/005/save_picture_880082.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880078.jpg" />
+  <img src="Z:/picture/005/save_picture_880078.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ WhatsApp 0.4.2088 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880071.jpg" />
+  <img src="Z:/picture/005/save_picture_880071.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Bat! Professional Edition 7.4.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880068.jpg" />
+  <img src="Z:/picture/005/save_picture_880068.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bud Freeman - Chicago (1962) 1984, Japan, Remastering [WavPack|192/32|image + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880065.jpg" />
+  <img src="Z:/picture/005/save_picture_880065.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880052.jpg" />
+  <img src="Z:/picture/005/save_picture_880052.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880041.jpg" />
+  <img src="Z:/picture/005/save_picture_880041.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Firefox Browser 75.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880040.jpg" />
+  <img src="Z:/picture/005/save_picture_880040.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Balabolka 2.15.0.738 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879974.jpg" />
+  <img src="Z:/picture/005/save_picture_879974.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879967.jpg" />
+  <img src="Z:/picture/005/save_picture_879967.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879960.jpg" />
+  <img src="Z:/picture/005/save_picture_879960.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ InstaBro | Browser for Instagram 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879954.jpg" />
+  <img src="Z:/picture/005/save_picture_879954.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Rainlendar Pro 2.15.4 Build 166 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879951.jpg" />
+  <img src="Z:/picture/005/save_picture_879951.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879948.jpg" />
+  <img src="Z:/picture/005/save_picture_879948.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879937.jpg" />
+  <img src="Z:/picture/005/save_picture_879937.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Jump Desktop (Remote Desktop) - RDP/VNC 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879928.jpg" />
+  <img src="Z:/picture/005/save_picture_879928.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879924.jpg" />
+  <img src="Z:/picture/005/save_picture_879924.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ WhatsApp 0.4.2088 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879895.jpg" />
+  <img src="Z:/picture/005/save_picture_879895.jpg" />
 </div>
 
 

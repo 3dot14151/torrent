@@ -1,3 +1,107 @@
+###  Публикация: 1703625   (114906) от 01.03.2024
+
+WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114906.jpg" />
+</div>
+
+
+###  Подробнее
+
+WRATH: Aeon of Ruin – шутер от первого лица, созданный на движке первого Quake от создателей Макса Пейна, Дюка Нюкема и других подобных эпичных игр. Данный игровой процесс только для сильных духом, ведь количество монстров и стрельбы просто зашкаливает! Бегайте и прыгайте по зловещим уровням, чтобы сражаться с многочисленными противниками из самого разнообразного (   Читать дальше...   )Тип издания: RepackРазработчик: KillPixel Games, Slipgate IronworksЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704157   (114574) от 03.03.2024
+
+Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hospital of the Undead погружает вас в леденящую душу борьбу за выживание от первого лица. Вы очнулись в дезориентированном состоянии, оказавшись запертым в стенах больницы, кишащей нежитью. Ваша цель ясна: сбежать. Но добиться свободы оказывается не так-то просто. Больница, окутанная мраком, превращается в лабиринт с запертыми дверями и таящимися угрозами. Чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: HassaanAsifЖанр: Action, FPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710504   (112672) от 27.03.2024
+
+Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fi da Puti Samurai погружает геймеров в перестрелки, происходящие в сеттинге ретро-футуристического киберпанка. Юзеры будут передвигаться по карте от первого лица и стрелять по приближающимся врагам на арене. В процессе прохождения, игрокам придется посещать процедурно сгенерированные локации городов. Получится путешествовать между разными регионами, отбиваясь от (   Читать дальше...   )Тип издания: RepackРазработчик: Zanardi and LizaЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E80B41476197702B6E5376DE329A302BDAE56D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822976   (104418) от 09.10.2025
+
+Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadlink – научно-фантастический шутер с видом от первого лица, события которой разворачиваются в мире далекого будущего. Все локации оформлены в стиле киберпанка, а сам мир представлен классической антиутопией. Все большее могущество набрали мегакорпорации, которые укрепили свою экономическую силу и проводят множество теневых сделок, приносящие миллиарды. Главный (   Читать дальше...   )Тип издания: LicenseРазработчик: Gruby EntertainmentЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2744E75EF707DBFF643096E41FB932D146016D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488351   (101688) от 27.04.2012
 
 Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
@@ -6,7 +110,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100808.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91303.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89964.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87910.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87079.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86236.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85191.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84806.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84010.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84006.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83397.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80222.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70609.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ Roboquest - это динамичный рогалик от первого ли�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474815   (62728) от 17.03.2024
-
-AMID EVIL (2019) [En] (2628/dlc) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олдскульный шутер от первого лица. AMID EVIL - это духовный наследник знаменитой серии Heretic, дебютная часть которой была создана Raven Software и издана id Software в 1994 году. В новинке нас тоже ждёт экскурсия по псевдосредневековому фэнтезийному миру и сражения с ордами монстров и демонов.Тип издания: LicenseРазработчик: IndefatigableЖанр: Шутеры, Экшны, FPPЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FDA35CBA863F337B7D379A23CAA44D4773B85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708286   (62385) от 20.03.2024
-
-Dishonored: Death of the Outsider (2017) [Ru/En] (1.145.0.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самостоятельное приключение Dishonored: Death of the Outsider использует фирменный игровой процесс и художественный стиль Dishonored 2 и наследует все характерные черты игр знаменитой серии: убийственные боевые приемы, уникальный дизайн уровней и увлекательное повествование, реагирующее на каждый сделанный вами выбор. Ваша цель – Чужой, подобное богам могущественное (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CDEC59C1A5FC6F0B16E33D88D74ED37565BE083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703626   (61684) от 27.03.2024
-
-WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.1.2) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61684.jpg" />
-</div>
-
-
-###  Подробнее
-
-WRATH: Aeon of Ruin – шутер от первого лица, созданный на движке первого Quake от создателей Макса Пейна, Дюка Нюкема и других подобных эпичных игр. Данный игровой процесс только для сильных духом, ведь количество монстров и стрельбы просто зашкаливает! Бегайте и прыгайте по зловещим уровням, чтобы сражаться с многочисленными противниками из самого разнообразного (   Читать дальше...   )Тип издания: LicenseРазработчик: KillPixel Games, Slipgate IronworksЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081EC79B4418D486886529F388237C55E10D3D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710505   (61625) от 27.03.2024
-
-Fida Puti Samurai (2022) [En] (1.0b) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fi da Puti Samurai погружает геймеров в перестрелки, происходящие в сеттинге ретро-футуристического киберпанка. Юзеры будут передвигаться по карте от первого лица и стрелять по приближающимся врагам на арене. В процессе прохождения, игрокам придется посещать процедурно сгенерированные локации городов. Получится путешествовать между разными регионами, отбиваясь от (   Читать дальше...   )Тип издания: SceneРазработчик: Zanardi and LizaЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FD83CBEFC7751553828A5DDC6FBC8C20C263D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

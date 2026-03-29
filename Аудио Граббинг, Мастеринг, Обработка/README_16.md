@@ -1,3 +1,109 @@
+###  Публикация: 1168052   (412291) от 22.09.2017
+
+Cool Record Edit Deluxe 9.8.0 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cool Record Edit — звуковой редактор, который поможет вам перевести ваши пленки, пластинки, живые концерты, интернет-радио и любые источники звука на ваш жесткий диск. Имеется множество фильтров и большое количество различных звуковых эффектов. Всего лишь выберите источник звука, требуемое качество записи, громкость и начинайте запись. Редактор позволяет выполнять (   Читать дальше...   )Язык интерфейса: Английский, русский (после русификации)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4151AA13D1EBA1568DEE6692DD6BFED3A7B5DB5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948258   (410708) от 20.10.2015
+
+Sound Normalizer 6.9 Portable by Baltagy [Multi/Ru]
+
+>>След.
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sound Normalizer - улучшает и восстанавливает громкость Mp3, Mp4, Ogg, FLAC, APE, AAC и Wav (PCM, DSP, GSM, IMA ADPCM, MS ADPCM, AC3, MP3, MP2, OGG, A-LAW, u-LAW) файлов и уменьшает их размер без потери ID3, Mp4, Ogg и FLAC тегов. Это достигается за счёт проверки и нормализации уровня громкости файлов отдельно по каждому каналу (Левый, Правый), а также встроенных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8BA68C96F63BF353965486A10B252EF0D17C1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325776   (410222) от 16.09.2019
+
+QuikQuak - Pitchwheel 5.0.3 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pitchwheel - эффект, изменяющий тональность в реальном времени, корректирует высоту звука без изменения его длины.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137E779B529A0D5E8F8A7AAA3D265C70C6E1EE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574183   (407389) от 03.09.2022
+
+Auburn Sounds - Graillon 2 2.6.0 VST, VST 3, AAX (x86/x64) RePack by BTCR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graillon - это вокальный чейнджер, который открывает целый мир возможностей прямо в вашем DAW благодаря тщательно продуманным функциям:
+Pitch-Tracking Modulation, уникальная для Graillon, изменяет тип динамиков, генерирует горловые звуки, создает припевы, издает звуки октавера, обогащает голос, делая его более мужественным.
+Pitch Shifter точно транспонирует голос (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6C8DABC00FFC24D14F00909C33D8F005B96E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 560102   (406848) от 14.10.2012
 
 Steinberg WaveLab LE 7.2.1 (build 600) [Англ.]
@@ -6,7 +112,7 @@ Steinberg WaveLab LE 7.2.1 (build 600) [Англ.]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406848.jpg" />
+  <img src="Z:/picture/005/save_picture_406848.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ MusicLab - RealGuitar 3.0.0 R2R [English]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406265.jpg" />
+  <img src="Z:/picture/005/save_picture_406265.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ SyncerSoft Urban Nexus 1.0 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404160.jpg" />
+  <img src="Z:/picture/008/save_picture_404160.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ CoolUtils Total Audio Converter 5.3.0.235 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387403.jpg" />
+  <img src="Z:/picture/008/save_picture_387403.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ iZotope - Vocal Doubler 1.00 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385228.jpg" />
+  <img src="Z:/picture/008/save_picture_385228.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ AudioEase - Altiverb 7 XL v7.2.8 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384168.jpg" />
+  <img src="Z:/picture/008/save_picture_384168.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Glitchmachines - Hysteresis 1.3.0 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383758.jpg" />
+  <img src="Z:/picture/008/save_picture_383758.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Unfiltered Audio - Needlepoint 1.0.0 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383754.jpg" />
+  <img src="Z:/picture/008/save_picture_383754.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Accusonus - Regroover Pro 1.7.8.2 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383381.jpg" />
+  <img src="Z:/picture/008/save_picture_383381.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ WAVDSP - Fusion Intelligence 1.0.0  VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379346.jpg" />
+  <img src="Z:/picture/008/save_picture_379346.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ W.A Production - InstaChord 2 2.0.4  VSTi, VSTi3, AAX (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379239.jpg" />
+  <img src="Z:/picture/008/save_picture_379239.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ Slate Digital Verbsuite Classics v1.0.3.2 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377717.jpg" />
+  <img src="Z:/picture/008/save_picture_377717.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ Adam Monroe Music - Rotary Organ 1.3 VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376616.jpg" />
+  <img src="Z:/picture/008/save_picture_376616.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ Arturia - Piano V2 2.1.1.1786 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374739.jpg" />
+  <img src="Z:/picture/008/save_picture_374739.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ W. A Production - Mutant Reverb v1.0.1 VST, VST3, AAX, x86 x64 Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374389.jpg" />
+  <img src="Z:/picture/008/save_picture_374389.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ Native Instruments - Traktor Scratch Pro 2.10.0.13 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374100.jpg" />
+  <img src="Z:/picture/008/save_picture_374100.jpg" />
 </div>
 
 
@@ -431,7 +537,7 @@ MediaHuman Audio Converter 1.9.7 (2802) RePack (& Portable) by TryRooM [Multi/Ru
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373660.jpg" />
+  <img src="Z:/picture/008/save_picture_373660.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ Dymai Sound - Proclethya 1.0.9 VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373239.jpg" />
+  <img src="Z:/picture/008/save_picture_373239.jpg" />
 </div>
 
 
@@ -483,7 +589,7 @@ Sugar Bytes - DrumComputer 1.2.7 VSTi, VSTi 3 (X64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373069.jpg" />
+  <img src="Z:/picture/008/save_picture_373069.jpg" />
 </div>
 
 
@@ -509,7 +615,7 @@ Arturia - ARP 2600 V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372999.jpg" />
+  <img src="Z:/picture/008/save_picture_372999.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ Arturia - Buchla Easel V 1.2.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372997.jpg" />
+  <img src="Z:/picture/008/save_picture_372997.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ Arturia - DX7 V 1.2.1.1797 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372995.jpg" />
+  <img src="Z:/picture/008/save_picture_372995.jpg" />
 </div>
 
 
@@ -575,110 +681,6 @@ Arturia - DX7 V 1.2.1.1797 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51FF13A53C653C176740F4FED16E14C46FFBE9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069866   (370763) от 05.11.2016
-
-Nero SoundTrax 14.0.0060 RePack by MKN [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero SoundTrax - многофункциональное полупрофесиональное приложение, предназначенное для записи, обработки, микширования и редактирования аудио дорожек, оцифровки музыки, создания собственных саундтреков. В программе имеются разнообразные шаблоны, инструменты, эффекты, поддержка VST-плагинов и DirectX-модулей, возможность экспорта файлов в различные аудио-форматы (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB1E0CF80459C4208F0D770581E3C3FE14532B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254868   (370681) от 15.10.2018
-
-Arturia - SEM V2 2.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [EN]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arturia Oberheim SEM V – это программная эмуляция одного из самых известных синтезаторов марки Oberheim, – SEM. В виртуальной модели прекрасно сочетаются в точности воспроизведённые с помощью технологии TAE теплые музыкальные тона с полным набором инновационных функций: полифония, MIDI-клавиатура, арпеджио и новыми параметрами для создания дорожек. Интуитивно понятный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8185694284DF21ADD641B60EE96DB5B6DEFC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254882   (370678) от 15.10.2018
-
-Arturia - Modular V3 3.3.1.1782 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [EN]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arturia, в партнерстве с Dr. Bob Moog, представляет синтезатор, с которого, собственно, все и началось... Эта огромная модульная система показала, что электроника может быть музыкальной, поэтому она является катализатором для каждого синтезатора, который мы видим сегодня. Мы возродили вздымающийся модульный синтезатор, который доминировал в мире музыки с 1960-х годов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61566162B4D37B42F8B9082D5DC176AFA6C2897E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254883   (370674) от 15.10.2018
-
-Arturia - Synclavier V 2.0.1.1815 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by VR [EN]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный Синклавир представляет собой цифровой синтезатор, совмещающий в себе несколько вариантов синтеза: аддитивный, FM, а также так называемый Timbre Frame — по факту это технология ресинтеза, основанная на объединении произвольных микросемплов в цепочку, в произвольной же последовательности. Синклавир создавался фактически как компьютер на базе 16-битного (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD459EAF9A6114880A640A9667849F511AF5737C
 ```
 
 https://mybot314.ru/tekegram_catalog/

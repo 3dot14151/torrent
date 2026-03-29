@@ -1,3 +1,164 @@
+###  Публикация: 1186811   (284240) от 26.11.2017
+
+Квартирник на НТВ у Маргулиса. Градусы (25.11.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284240.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла группа "Градусы". Музыканты рассказали о том, кем им приходилось работать, чтобы выжить в Москве, объяснили, почему их коллектив носит такое название, а также исполнили любимые хиты: "Режиссер", "Научиться бы не париться", "Голая" и другие.Производство: Жанр: КонцертПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8121A6D8914E698AFAB7115E3817FDEC8E963EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335705   (284071) от 04.11.2019
+
+Небесные странники (Попрыгунья) (2014) WEBRip [H.264/720p-LQ] «Ленком»
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему люди не летают, как птицы? Почему вопросы, которые волновали их еще в V веке до нашей эры, так перекликаются с веком сегодняшним?..
+Подданные царя Удода – птицы, следуя приказу своего повелителя, летят на землю, превращаясь в людей. Они попадают прямиком в гости к той самой чеховской Попрыгунье – легкомысленной бездельнице, абсолютно пустой даме, не замечающей (   Читать дальше...   )Производство: РоссияЖанр: трагикомедия, спектакльРежиссер: Игорь ФокинАктеры: Сергей Дьячковский, Александра Захарова, Александр Балуев, Наталья Заякина, Виктор Раков, Иван Агапов, Анна Якунина, Сергей Степанченко, Алиса Сапегина, Дмитрий Гизбрехт, Геннадий Козлов, Виталий Боровик, Игорь Коняхин, Иван Лешук, Кирилл Петров, Алексей Поляков, Алексей СкуратовСубтитры: отсутствуютПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00234ECEC8FEA7D6B049DDAA38927871CB6A0E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186589   (284045) от 26.11.2017
+
+Joe Cocker - Cry Me A River (2008) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Кокер — английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «Now That The Magic Has Gone», «N`oubliez jamais». Кавалер Ордена Британской Империи. На диске концерт в Metropol, Берлин, 31 октября 1980 (   Читать дальше...   )01. Cry Me A River
+02. Can't Say No
+03. Feelin' Alright
+04. Look What You’ve Done(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:34:02+00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82969D0CD5DCCA75FD490543BE69AD4C2E5E62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967950   (283918) от 04.11.2019
+
+Вновь я посетил... (1982) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихотворения Александра Сергеевича ПУШКИНА.Производство: СССР, Творческое объединение "Экран", Гостелерадио СССРЖанр: Литературные чтения, поэзияРежиссер: Александр ПрошкинАктеры: Иннокентий СмоктуновскийПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE32FF7FC4722F95A974F4BD3A68F703C7DBAD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081246   (283636) от 09.12.2016
+
+Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важной вехой в истории «Пинк Флойд» стал этот фильм-концерт без зрителей, снятый в амфитеатре итальянского города Помпеи. Живописный пейзаж Везувия, застывшая лава, классическая архитектура руин подчеркивает вневременную окраску музыки, принадлежащую как прошлому, так и будущему.Производство: Бельгия, Германия (ФРГ), Франция  | Bayerischer Rundfunk (BR), Office de Radiodiffusion Télévision Française (ORTF), RM Productions Fernseh-und Filmgesellschaft mbH,  Television FrançaiseЖанр: Psychedelic RockРежиссер: Adrian MabenПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4FC984BFF4FFD1D29ED6533A473BA7746D277E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335950   (283483) от 04.11.2019
+
+Малыш и К. (2014) WEBRip [H.264/720p-LQ] Театр "ОКОЛО дома Станиславского"
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_283483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Московского Драматического Театра "ОКОЛО дома Станиславского", "Малыш и К."
+Известный всем с детства сюжет о добром Малыше и его друге Карлсоне, который живет на крыше. Сюжет развивается в комнате Малыша, но многоликость действия не заставляет зрителей скучать. Тут и погоня за ворами Рулле и Филле, которые стремятся поймать (   Читать дальше...   )Производство: Россия | «Студия 2В»Жанр: комедия, спектакльРежиссер: Ольга МузалеваАктеры: Ольга Бешуля, Алексей Сидоров, Элен Касьяник, Владимир Храбров, Александр Орав, Алексей Шендрик, Юрий ПавловСубтитры: отсутствуютПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3F302A9B3989EB2E1EEF2BF836B2CCD4EA50C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 319265   (283478) от 04.11.2019
 
 На полпути к вершине (1979) VHSRip (МОССОВЕТ)
@@ -6,7 +167,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283478.jpg" />
+  <img src="Z:/picture/008/save_picture_283478.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283472.jpg" />
+  <img src="Z:/picture/008/save_picture_283472.jpg" />
 </div>
 
 
@@ -59,7 +220,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283470.jpg" />
+  <img src="Z:/picture/008/save_picture_283470.jpg" />
 </div>
 
 
@@ -89,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282171.jpg" />
+  <img src="Z:/picture/008/save_picture_282171.jpg" />
 </div>
 
 
@@ -118,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282100.jpg" />
+  <img src="Z:/picture/008/save_picture_282100.jpg" />
 </div>
 
 
@@ -145,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282094.jpg" />
+  <img src="Z:/picture/008/save_picture_282094.jpg" />
 </div>
 
 
@@ -172,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282093.jpg" />
+  <img src="Z:/picture/008/save_picture_282093.jpg" />
 </div>
 
 
@@ -199,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282058.jpg" />
+  <img src="Z:/picture/008/save_picture_282058.jpg" />
 </div>
 
 
@@ -225,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282030.jpg" />
+  <img src="Z:/picture/008/save_picture_282030.jpg" />
 </div>
 
 
@@ -254,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281953.jpg" />
+  <img src="Z:/picture/008/save_picture_281953.jpg" />
 </div>
 
 
@@ -281,7 +442,7 @@ Nightwish - Showtime, Storytime (2013) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281367.jpg" />
+  <img src="Z:/picture/008/save_picture_281367.jpg" />
 </div>
 
 
@@ -310,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280588.jpg" />
+  <img src="Z:/picture/008/save_picture_280588.jpg" />
 </div>
 
 
@@ -337,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280458.jpg" />
+  <img src="Z:/picture/008/save_picture_280458.jpg" />
 </div>
 
 
@@ -364,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280432.jpg" />
+  <img src="Z:/picture/008/save_picture_280432.jpg" />
 </div>
 
 
@@ -390,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280431.jpg" />
+  <img src="Z:/picture/008/save_picture_280431.jpg" />
 </div>
 
 
@@ -416,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280417.jpg" />
+  <img src="Z:/picture/008/save_picture_280417.jpg" />
 </div>
 
 
@@ -442,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280337.jpg" />
+  <img src="Z:/picture/008/save_picture_280337.jpg" />
 </div>
 
 
@@ -468,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280180.jpg" />
+  <img src="Z:/picture/008/save_picture_280180.jpg" />
 </div>
 
 
@@ -495,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280025.jpg" />
+  <img src="Z:/picture/008/save_picture_280025.jpg" />
 </div>
 
 
@@ -521,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279972.jpg" />
+  <img src="Z:/picture/008/save_picture_279972.jpg" />
 </div>
 
 
@@ -532,174 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0830AB57DF959872936EE0D7692C7D6CC976F078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222580   (278700) от 07.11.2019
-
-Старинный детектив (1982) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278700.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказов Эдгара По "Похищенное письмо" и Чарльза Диккенса "Пойман с поличным".
-Наблюдательность, умение логически мыслить, интуиция - все эти качества помогли главным героям раскрыть запутанные дела.Производство: СССРЖанр: ДетективРежиссер: Павел РезниковАктеры: Сергей Юрский, Юрий Богатырев, Всеволод Ларионов, Тамара Чернова, Александр Шворин. Андрей Харитонов, Ирина ПономареваСубтитры: отсутствуютПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8F5027CA7F5E10084A71927C4F7794599338F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082351   (278630) от 12.12.2016
-
-Легенды Ретро FM (2016) SATRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера международного музыкального фестиваля "Легенды Ретро FM-2016".Съёмка 10.12.2016г.Жанр: КонцертПродолжительность: 03:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295EBC3DD4C66CA2C6F7C6C47AB2F05C54952EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336503   (278582) от 07.11.2019
-
-Hymn: Sarah Brightman in Concert (2018) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара Брайтман, одна из самых успешных сопрано-певиц современности, показала новую программу HYMN: Sarah Brightman In Concert Tour.
-Пронизанный духовной тематикой концерт HYMN – это вдохновляющая коллекция песен с участием оркестра и хора. Возвышенный тон всему концерту задает заглавная композиция, песня британской прог-роковой группы Barclay James Harvest. В нем (   Читать дальше...   )Производство: Великобритания, Sky Arts HDЖанр: Pop, classical, crossoverПеревод: Не требуетсяЯзык озвучки: АнглийскийСубтитры: нетПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69361EB40A18C6A2C45B430783B119F4A75A5835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187681   (278470) от 29.11.2017
-
-Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278470.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-061 Nicole Kidman & Ewan McGregor - Come What May
-062 Elize - Hot Stuff
-063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: MKVПродолжительность: 03:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC93F865F4C9D30FA99E2F3590C9FBE23FF9D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081362   (278171) от 12.12.2016
-
-Сборник клипов - Philizz "Video Yearmix" (2016) HDTV [AVC/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Video Yearmix 2016" - фирменный видеомикс от голландского ви-джея Philizz. Почти два часа мировых музыкальных хитов в двух частях! Высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Добро пожаловать в мир лучшей танцевальной музыки 2016 года!
-- Разбивка по трекам отсутствует.Part 1:
-Shawn Mendes – Mercy
-Pitbull ft. Enrique Iglesias – Messin’ Around
-Pink – Just Like Fire(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C348D79DF57AC4E0EDA1544FD2AE41CFB95C8557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187842   (277070) от 30.11.2017
-
-Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunder - британская команда, играющая мелодичный хард-блюз-рок, альбомы которой в начале 90-х в чартах были вполне конкурентоспособными с опусами "Whitesnake" и "Def Leppard". Подборка видео и концертных записей раннего творчества группы, как нельзя лучше передает атмосферу эпохи 90-х.THE VIDEOS:
-01. She's So Fine
-02. Dirty Love
-03. Backstreet Symphony(   Читать дальше...   )Производство: Великобритания, EMIЖанр: Хард-рокСубтитры: Английские, французские, немецкие, испанские, голландскиеПродолжительность: 01:07:23+00:50:11+00:23:32+00:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F8544B5539FEDBBAF4F161CBBCB898819EB922
 ```
 
 https://mybot314.ru/tekegram_catalog/

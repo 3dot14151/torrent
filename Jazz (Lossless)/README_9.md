@@ -1,3 +1,119 @@
+###  Публикация: 1446685   (1032593) от 10.02.2021
+
+Mildred Bailey - 1945 - 1947 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Foolish Things [3:12]
+02. I've Got the World on a String [2:59]
+03. Can't Help Lovin' That Man [3:05]
+04. Summertime [2:53](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCFFEA00A65ABB26EA3808E8A08757F9BACF8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446677   (1032592) от 10.02.2021
+
+Mary Lou Williams - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies [2:24]
+02. Caravan [2:34]
+03. Yesterdays [2:18]
+04. Lullaby of the Leaves [3:46](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D90B9AF4B8BEFC0F509A35307C5066CD039952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446687   (1032550) от 10.02.2021
+
+Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzin' Babies Blues [2:44]
+02. 12th Street Rag [2:53]
+03. New Orleans Shags [3:21]
+04. Spanish Shawl [3:25](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D33971EEE4D7F6C0C88C8DA3A3EF10CCEAB480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446937   (1032345) от 11.02.2021
+
+Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [3:38]
+02. In Summer (Estate) [5:36]
+03. A Song for All Ages [4:54]
+04. Softly, as in a Morning Sunrise [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446944   (1032343) от 11.02.2021
 
 Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
@@ -6,7 +122,7 @@ Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixiel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032343.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032337.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dino Saluzzi - Albores (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032311.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Julie London - For The Night People (1966) 2010, Toshiba-EMI [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032307.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Malcolm Strachan - Point Of No Return (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032144.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Roseanna Vitro - Live At The Kennedy Center (2006) Challenge Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032130.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jamhunters - Climate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032122.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Les Sabler - Flying High (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032118.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Jelly-Roll Morton - 1926 - 1928 (1991) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031935.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Charlie Christian - On the Air (2009) [FLAC|Lossless|tracks + .cue] <Bop, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031934.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Charlie Christian & The Benny Goodman Sextet - The Radio Broadcasts (1939 - 1941
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031933.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sonny Rollins Trio - Live in Munich (1965) 2011, Domino Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031932.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Charlie Christian - Jazz Guitar Hero (1939 - 1941) 2010, Grammercy Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031929.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dave Brubeck - Greatest Hits (1967) 1987, CBS [FLAC|Lossless|tracks + .cue] <Coo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031903.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ George Kawaguchi's The Big Four - Jazz At The Torys (1957) 2012, King Record [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031680.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Lorraine Desmarais - Street Beat Suite (2023) Analekta [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031677.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Louis Jordan - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031618.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Erskine Hawkins - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031411.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Erskine Hawkins - 1940 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031410.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Django Reinhardt - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031406.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Django Reinhardt - 1937 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031404.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dakh Daughters - Make Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Fo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031396.jpg" />
 </div>
 
 
@@ -629,123 +745,6 @@ Dakh Daughters - Make Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E9EFEE945D1E59D33EB6ED3D8D548317C96FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447942   (1031379) от 15.02.2021
-
-Chick Corea - Plays (2020) Concord Jazz, 2 CD, Live [FLAC|Lossless|tracks + .cue] <Jazz, Neo-Classical, Fortepiano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031379.jpg" />
-</div>
-
-
-###  Подробнее
-
-9 февраля 2021 г. умер один из величайших джазовых пианистов современности Chick Corea. Он 60 раз (!) номинировался на Грэмми и 22 раза был удостоен этого Оскара среди музыкантов. Именно поэтому я позволил себе отойти от привычного шаблона оформления раздач.
-Этот двойной альбом последний (прижизненный). Самым трогательным является то, что это запись живого исполнения (   Читать дальше...   )CD1:
-01. Chick Talks Mozart and Gershwin  (2:13)
-02. Mozart: Piano Sonata in F, KV332 (2nd Part - Adagio)  (4:18)
-03. Someone to Watch over Me  (7:40)(   Читать дальше...   )Релиз состоялся: 11 сентября 2020 годаЖанр: Jazz, Neo-Classical, FortepianoПродолжительность: 01:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659AC1AD02DCEE525390A930A3CA252A3EE53B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448056   (1031210) от 16.02.2021
-
-Charlie Christian - The Genius Of The Electric Guitar (1939 - 1941) 4CD, 2002, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031210.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Flying Home [3:13]
-02. Rose Room [2:47]
-03. Stardust [3:14](   Читать дальше...   )Жанр: Swing, Big Band, Guitar JazzПродолжительность: 05:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FA684E05F61AFEE5CA084B41C2A7677D0602E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448225   (1031207) от 16.02.2021
-
-Orquestra Was - Forever's A Long, Long Time (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Once Upon A Time In Detroit (01:55)
-02 I Ain't Got Nothin' But Time (08:27)
-03 Never Again (Will I Knock On Your Door) (03:52)
-04 Excuse Me, Colonel, Could I Borrow Your Newpaper? (04:56)(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E064C2BA779AA491CA6FCBC9826F776479414D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448265   (1030971) от 17.02.2021
-
-Jazz Q - Zneni a Sneni (Znění a Snění) (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swinguj co to dá radí jana koubková (04:55)
-02. Jinokraj (06:27)
-03. Chce se mi spát (05:23)
-04. Co říkáš joe? (07:19)(   Читать дальше...   )Жанр: Jazz-PopПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF497181A3A7653516A2AA845DE879AF44B9AE34
 ```
 
 https://mybot314.ru/tekegram_catalog/

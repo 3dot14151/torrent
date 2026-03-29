@@ -1,3 +1,37 @@
+###  Публикация: 615647   (975772) от 09.02.2013
+
+А. Ковтик | Бокс. Уроки профессионала для начинающих [2008] DVDRip[H264]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бокс – это сложный и опасный вид спортивных единоборств. Он требует от бойца физической силы и выносливости, превосходной реакции и координации, отточенной техники. Навыки боксера оказываются чрезвычайно эффективными и в экстремальных ситуациях, когда необходимо постоять за себя, за своих близких, за справедливость.
+Уроки ведет Александр Ковтик – мастер спорта международного класса, судья международной категории, тренер высшей категории. Достиг значительных высот в профессиональном боксе, кикбоксинге, муай тай, сань да: провел 157 боев, в 139 из них одержал победу. Чемпион Европы, трехкратный чемпион СНГ, шестикратный чемпион Беларуси. Автор более 40 публикаций по методике обучения спортивным единоборствам.
+На DVD представлены уроки:
+Все виды ударов.
+Все виды защиты
+Связки и серии
+Бой с тенью
+Работа в парах
+Работа в парах и на снарядахЖанр: СпортПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9618114D9633841AA8AEBE11C8E72F62E3BE2A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616806   (974737) от 10.02.2013
 
 СоюзСпортФильм | Обучающие фильмы по Вольной борьбе [1980-1989] VHSRip
@@ -6,7 +40,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974737.jpg" />
 </div>
 
 
@@ -41,7 +75,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974645.jpg" />
 </div>
 
 
@@ -71,7 +105,7 @@ Musketier Media | 102 позы в сексе (2010) DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974079.jpg" />
 </div>
 
 
@@ -97,7 +131,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973258.jpg" />
 </div>
 
 
@@ -130,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973242.jpg" />
 </div>
 
 
@@ -161,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973182.jpg" />
 </div>
 
 
@@ -196,7 +230,7 @@ Universal Pictures UK | Шаг вперед - Официальная трени�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973179.jpg" />
 </div>
 
 
@@ -226,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970473.jpg" />
 </div>
 
 
@@ -255,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970372.jpg" />
 </div>
 
 
@@ -283,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960683.jpg" />
 </div>
 
 
@@ -311,7 +345,7 @@ Paul Katami | P90X Live - Lower  Upper Strength Workout (2016) HDTVRip [H.264/10
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953606.jpg" />
 </div>
 
 
@@ -337,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953005.jpg" />
 </div>
 
 
@@ -363,7 +397,7 @@ Power Music Group RX | Boot (2016) HDTVRip [H.264/720, 1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951706.jpg" />
 </div>
 
 
@@ -390,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951353.jpg" />
 </div>
 
 
@@ -416,7 +450,7 @@ Sсоtt Sоnnоn | 6 Dеgrее Flоw (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948527.jpg" />
 </div>
 
 
@@ -442,7 +476,7 @@ DailyBurn | DB15 (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945673.jpg" />
 </div>
 
 
@@ -468,7 +502,7 @@ Les Mills | COMBAT - Ultimate Warrior Kit (2012) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944001.jpg" />
 </div>
 
 
@@ -494,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940291.jpg" />
 </div>
 
 
@@ -522,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936356.jpg" />
 </div>
 
 
@@ -549,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936131.jpg" />
 </div>
 
 
@@ -577,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935862.jpg" />
 </div>
 
 
@@ -603,7 +637,7 @@ Mike Donavanik | Extreme Burn 14 Day Challenge (2016) HDTVRip [H.264/720p-LQ] [E
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934851.jpg" />
 </div>
 
 
@@ -629,7 +663,7 @@ Nancy Hanson | Коллекция Джейн Фонда - тренировка �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_934814.jpg" />
+  <img src="Z:/picture/009/save_picture_934814.jpg" />
 </div>
 
 
@@ -656,7 +690,7 @@ Jillian Michaels | 10 Minute Body Transformation (2016) HDTVRip [H.264/720p-LQ] 
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930016.jpg" />
 </div>
 
 
@@ -682,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928691.jpg" />
 </div>
 
 
@@ -696,34 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E924AE31AE47287C33896E9FCC6D3E08795CF903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365888   (919739) от 13.03.2020
-
-Александр Шишонин | Секреты здоровых суставов и позвоночника (2018) DVDRip [H.264]
-
->>След.
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Методика, готовая прийти в каждый дом! Немного усилий и дисциплины — и Вы сможете самостоятельно
-победить заболевания,даже если проживаете в местности,жутко удаленной от современных медучреждений!
-Бытует мнение, что наши суставы, в том числе и позвоночник, стареют и изнашиваются. Кто-то даже утверждает, что после 50 лет суставы разрушаются и их невозможно восстановить, (   Читать дальше...   )Производство: Академия компьютерных знанийЖанр: Медицина, гимнастика, здоровьеПродолжительность: ~3:23:42 суммарного времени
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAA0EFE5824F9365D5F3105C4DF0094A88674E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

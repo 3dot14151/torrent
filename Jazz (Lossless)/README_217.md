@@ -1,3 +1,119 @@
+###  Публикация: 1076082   (316586) от 24.11.2016
+
+Reinhard Flatischler - Mega Drums (1990) veraBra Records[APE|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Transformation [10:29]
+ 02.Ektalpuri [05:11]
+ 03.Worldcomparsa [03:34]
+ 04.Whales in tibet [07:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBD35FFA28D426223AFAD96054A9F32267F941A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076075   (316582) от 24.11.2016
+
+Phil Woods - Round Trip (1969) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Round Trip [02:59]
+ 02.Here's That Rainy Day [04:01]
+ 03.Love Song For A Dead Che [02:51]
+ 04.I'm All Smiles [03:10](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6B96E7E4EABA721393778247C63EC3D2E21B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076077   (316580) от 24.11.2016
+
+Red Rodney & Ira Sullivan - Spirit Within (1981) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sophisticated Yenta [05:56]
+ 02.King Of France [05:22]
+ 03.Spirit Within [07:47]
+ 04.Island Song [06:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FAE41147A351061978CED454D8116D4BC524B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259888   (316403) от 05.11.2018
+
+Smooth Jazz All Stars - Tribute To Pink Floyd (2011) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comfortably Numb
+02. Another Brick in the Wall
+03. Hey You
+04. Wish You Were Here(   Читать дальше...   )Жанр: Smooth Jazz, Pop JazzПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB7B4A9743A2269046615849CD7CC4B6C819F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421821   (315617) от 06.11.2020
 
 The Basie Bunch - Cool Too (1954 - 1958) 1999, Vanguard [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -6,7 +122,7 @@ The Basie Bunch - Cool Too (1954 - 1958) 1999, Vanguard [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315617.jpg" />
+  <img src="Z:/picture/008/save_picture_315617.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jackie McLean - The Complete Jubilee Sessions (1955 - 1957) 2007, Lone Hill Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315549.jpg" />
+  <img src="Z:/picture/008/save_picture_315549.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Basie Bunch - Too Marvelous For Words (1956 - 1958) 1999, Vanguard [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315528.jpg" />
+  <img src="Z:/picture/008/save_picture_315528.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jazz In Pink - Joy! (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315427.jpg" />
+  <img src="Z:/picture/008/save_picture_315427.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jeff Kashiwa - Fly Away (2017) Coastal Access Music [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315177.jpg" />
+  <img src="Z:/picture/008/save_picture_315177.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Stan Getz - The Master (1975) 2017, Sony Music [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315109.jpg" />
+  <img src="Z:/picture/008/save_picture_315109.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315094.jpg" />
+  <img src="Z:/picture/008/save_picture_315094.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Sa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314685.jpg" />
+  <img src="Z:/picture/008/save_picture_314685.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Keith Jarrett - La Fenice (2018) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314576.jpg" />
+  <img src="Z:/picture/008/save_picture_314576.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314526.jpg" />
+  <img src="Z:/picture/008/save_picture_314526.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Eddie Condon - Jam Session Coast-To-Coast (1953) 2005, Membran Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314458.jpg" />
+  <img src="Z:/picture/008/save_picture_314458.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Spitfire Sisters - Who Buys Cds Anymore? (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314304.jpg" />
+  <img src="Z:/picture/008/save_picture_314304.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Club Des Belugas - Fishing For Zebras (2014) [FLAC|Lossless|WEB-DL]<Nu Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313813.jpg" />
+  <img src="Z:/picture/008/save_picture_313813.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sonny Rollins - Solid (1954) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313699.jpg" />
+  <img src="Z:/picture/008/save_picture_313699.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Karen Souza - Hotel Souza (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313605.jpg" />
+  <img src="Z:/picture/008/save_picture_313605.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Mose Allison - Middle Class White Boy (1982) 2013, Warner Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312793.jpg" />
+  <img src="Z:/picture/008/save_picture_312793.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Johnny Coles Quartet - The Warm Sound (1961) 2016, Sony Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312792.jpg" />
+  <img src="Z:/picture/008/save_picture_312792.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Stan Kenton - The Complete Capitol Studio Recordings Of Stan Kenton 1943-47 (199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312784.jpg" />
+  <img src="Z:/picture/008/save_picture_312784.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Steve Grossman - Live At Cafe Praga (1990) 2015, Timeless Records[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312642.jpg" />
+  <img src="Z:/picture/008/save_picture_312642.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sonny Rollins - Way Out West (1957) 2000, Fantasy[FLAC|tracks+.cue]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312641.jpg" />
+  <img src="Z:/picture/008/save_picture_312641.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Vaya Con Dios - Vaya Con Dios (1988) [FLAC|tracks+.cue]<Soft Rock, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312544.jpg" />
+  <img src="Z:/picture/008/save_picture_312544.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ The J.J. Johnson Sextet - Really Livin' (1959) Remaster, 2015, Sony Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312329.jpg" />
+  <img src="Z:/picture/008/save_picture_312329.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ The J.J. Johnson Sextet - Really Livin' (1959) Remaster, 2015, Sony Music[FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4877BF2071C108DE035685895A233668A9DD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076464   (312324) от 26.11.2016
-
-Rolf Kuhn Quintett - Solarius (1964) 2012, Amiga Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Minor Impressions [07:56]
- 02.Solarius [06:17]
- 03.Sie gleicht wohl einem Rosenstock [06:25]
- 04.Mountain Jump [06:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E133DC459CCEB3D88FDC7F41CD6FBA75D808DAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076789   (312322) от 26.11.2016
-
-Art Blakey And The Jazz Messengers - Not Yet (1988) 2005, JazzIt[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenji's Mood [09:41]
-02. For Heaven Sake [07:25]
-03. Not Yet [06:48]
-04. I'll Never Be The Same [03:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DB1E2BE619188F8B8B2A23DEFFDA56A49CC9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959851   (312267) от 26.11.2015
-
-Touch And Go - I Find You Very Attractive (1999) [FLAC|tracks+.cue]<Latin, Jazzdance, Big Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight To...Number One (3:05)
-02. Big Beat (3:11)
-03. Ecoutez, Repetez (4:36)
-04. Would You...? (3:10)(   Читать дальше...   )Жанр: Latin, Jazzdance, Big BeatПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A8E76FEB3AC1193801DFA457B7B88672DD0F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260317   (312190) от 07.11.2018
-
-Artie Shaw - The Artie Shaw Story (1936 - 1954) 4CD, 2005, Proper Box [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312190.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Free Wheeling:
-01. The Japanese Sandman [2:31]
-02. One Two, Button Your Shoe [2:50]
-03. There's Frost On The Moon [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1DE68BB76D3FB82EA5CAF28AAA8609FD38AE97
 ```
 
 https://mybot314.ru/tekegram_catalog/

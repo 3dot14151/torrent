@@ -1,3 +1,29 @@
+###  Публикация: 1367413   (748035) от 14.07.2020
+
+NNM-Club Unmarked Team - Чистые музыкальные треки с AudioJungle часть 9
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию очередную часть музыкальной коллекции в количестве 100 треков, которые были размещены авторами на ресурсе AudioJungle без watermark. Большое спасибо энтузиастам из группы Unmarked Team, которые смогли их отыскать и поделиться со всеми. Обращаем внимание, что отсутствие watermark не дает права на коммерческое использование треков.Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF4F12178B13AA3F37C500EAF9C47B04D7AAAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396480   (746849) от 15.07.2020
 
 Звуковые библиотеки - SoundMorph - Future Weapons 3 [WAV]
@@ -6,7 +32,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746849.jpg" />
+  <img src="Z:/picture/008/save_picture_746849.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746846.jpg" />
+  <img src="Z:/picture/008/save_picture_746846.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746843.jpg" />
+  <img src="Z:/picture/008/save_picture_746843.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746836.jpg" />
+  <img src="Z:/picture/008/save_picture_746836.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746758.jpg" />
+  <img src="Z:/picture/008/save_picture_746758.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746757.jpg" />
+  <img src="Z:/picture/008/save_picture_746757.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2021 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746252.jpg" />
+  <img src="Z:/picture/008/save_picture_746252.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745505.jpg" />
+  <img src="Z:/picture/008/save_picture_745505.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745434.jpg" />
+  <img src="Z:/picture/008/save_picture_745434.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744069.jpg" />
+  <img src="Z:/picture/008/save_picture_744069.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744068.jpg" />
+  <img src="Z:/picture/008/save_picture_744068.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744021.jpg" />
+  <img src="Z:/picture/008/save_picture_744021.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744020.jpg" />
+  <img src="Z:/picture/008/save_picture_744020.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744012.jpg" />
+  <img src="Z:/picture/008/save_picture_744012.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ NNM-Club Sound Cleaner Collection from Teacher
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743402.jpg" />
+  <img src="Z:/picture/008/save_picture_743402.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742629.jpg" />
+  <img src="Z:/picture/008/save_picture_742629.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742606.jpg" />
+  <img src="Z:/picture/008/save_picture_742606.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742598.jpg" />
+  <img src="Z:/picture/008/save_picture_742598.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741294.jpg" />
+  <img src="Z:/picture/008/save_picture_741294.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741289.jpg" />
+  <img src="Z:/picture/008/save_picture_741289.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_740430.jpg" />
+  <img src="Z:/picture/005/save_picture_740430.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740420.jpg" />
+  <img src="Z:/picture/008/save_picture_740420.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740414.jpg" />
+  <img src="Z:/picture/008/save_picture_740414.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740411.jpg" />
+  <img src="Z:/picture/008/save_picture_740411.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739710.jpg" />
+  <img src="Z:/picture/008/save_picture_739710.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9421FDBDC85AAD3C7E9D15228D0C6640E0BD712F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785302   (739143) от 10.05.2014
-
-VideoCopilot - MotionPulse BlackBox & Shockwave [WAV, MOV]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739143.jpg" />
-</div>
-
-
-###  Подробнее
-
-MotionPulse включает более 2000 составных звуковых эффектов (FX) в 25 категориях. Просто безумные многослойные звуковые FX для трейлеров фильмов, видео дизайна, специальных эффектов, готовые в любой момент захватить чьё-то внимание и встряхнуть зрителя! Это не стандартная коллекция звуковых эффектов, включающая шаги и крики, а специально созданная звуковая коллекция (   Читать дальше...   )Формат: WAV, MOV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876D04C451AC6B6348B124C1F333D3489A6A06C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

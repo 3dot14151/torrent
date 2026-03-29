@@ -1,192 +1,31 @@
-###  Публикация: 1031981   (649687) от 05.07.2016
+###  Публикация: 516230   (651946) от 29.06.2012
 
-PharaOm - Under The Sun Of Goa (2013) [MP3|320 Kbps] <Goa>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Under The Sun Of Goa
-02 - Full Obsidian Eyes
-03 - Ispahan Garden
-04 - Shine Like Gold(   Читать дальше...   )Жанр: GoaПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57B755D2EFE032124637716E2A79F65B0A3279F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031933   (649686) от 05.07.2016
-
-Oliveira - Stellar Communication (2016) Troll N´ Roll Records [MP3|320 Kbps] <Full-On, Goa, Morning>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Oliveira vs Varanta - Stellar Communication
-02 - Oliveira - Hypnosis
-03 - Toxic Anger Syndrome - Trollskogen (Oliveira Remix)Жанр: Full-On, Goa, MorningПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C738A59FD390B9E57862737728ACDF716D61066A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031734   (649685) от 05.07.2016
-
-Георгий Блок | Московляне (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о полных напряженного драматизма событиях XI—XII столетий на Руси в героические и противоречивые времена правления легендарных князей Владимира Мономаха, Юрия Долгорукого, Андрея Боголюбского.Жанр: Историческая повестьПродолжительность: 11:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AB335D7306A7D9C2964AA939C4F0425F6D8310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031829   (649684) от 05.07.2016
-
-VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castlebed - Cold Moves (3:49)
-02. Dormidontov - Home (6:37)
-03. Anthony Chocco - You Are (Beach & Martini Mix) (4:03)
-04. Don Major - At Sunset (3:34)(   Читать дальше...   )Производство: KarmagrooveЖанр: Deep House, Breaks, СhillПродолжительность: 02:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AB362F2E6A56062520243FB7109B36F1528160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031990   (649683) от 05.07.2016
-
-Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colours (6:23)
-02. Ibiza Blue (5:04)
-03. The Ocean (5:13)
-04. Amoralea (5:58)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031701   (649682) от 05.07.2016
-
-Надежда Птушкина | Неугомонная бабушка, или Пока она умирала (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добрая, веселая и романтичная история о том, как неожиданно маленькая семья, состоящая из престарелой авторитарной матери и дочери, посвятившей свою жизнь уходу за ней, в ущерб личному счастью, в конце концов становится совершенно счастливой. Любимый многими фильм "Приходи на меня посмотреть" поставлен по мотивам этой пьесы.Жанр: Комедия, мелодрамаПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159597BFF0374D017D0D0ED6B429ADBF94306644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031817   (649681) от 05.07.2016
-
-Be'lakor - Vessels (2016) [MP3|320 Kbps] <Melodic Death Metal>
+Shadowicon - Empire In Ruins (2011) [MP3|320 кб/с]<Symphonic Power Metal, Female Vocals>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649681.jpg" />
+  <img src="Z:/picture/008/save_picture_651946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Luma
-2. An Ember's Arc
-3. Withering Strands
-4. Roots To Sever(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:55:09
+01. Before The Storm (02:56)
+02. On The Ides Of March (05:23)
+03. A New Chapter (02:44)
+04. Lex Titia (05:41)
+05. Endless Shades Of Pain (03:35)
+06. Eastbound (05:55)
+07. King Of Kings (04:04)
+08. The Alliance (04:49)
+09. Battle Of Actium (10:21)
+10. Deceptive Dreams (04:29)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:16:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F848E24C1BC9C5303594EA53A1033441EE57C8FB
+magnet:?xt=urn:btih:B55BB3B172E4BF0AD35E9A1CE670D183A7E7823F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,251 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031750   (649680) от 05.07.2016
+###  Публикация: 516548   (651945) от 29.06.2012
 
-VA - TOP 100 Club Tracks (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hardwell And Blasterjaxx -  Going Crazy (Radio Edit) 3:06
-002. Klubbheads -  Klubbhopping (Radio Edit) 3:20
-003. Moby -  Go (Hardwell Remix Edit) 4:28
-004. Mike Vegas -  Superstar (Danilo Eboli Remix) 4:34(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C119EF6B5483024254D9E9F75F39A503482E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032024   (649679) от 05.07.2016
-
-В теме. Не НАТО пугать! (05.07.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649679.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В теме» - информационно-аналитическая программа. Известные политологи - о самых актуальных событиях и тенденциях в мире.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B415BBC513205D7CEA158C2127C42E0B621FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031889   (649678) от 05.07.2016
-
-Баскетбол. НБА. Плей-офф 2016. Финал. 7-я игра. Голден Стэйт Уорриорз (Окленд) - Кливленд Кавальерс (Кливленд) (19.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649678.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 июня 2016, понедельник. 03:00 МСК
-Финал. 7-й матч
-Стадион:  Оракл-Арена (Окленд, США) , 19596 зрителей (100 % при вместимости 19596)
-Судьи:  Дэн Кроуфорд (Чикаго, США); Майк Кэллахан (Филадельфия, США); Монти МакКатчен (Сан-Анджело, США)(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Донской, Виктор Шестопалов)Продолжительность: 02:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F62855B95F34C0401B5979784A38DB789B3CB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031899   (649677) от 05.07.2016
-
-Terry Oldfield & Soraya - Namaste (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste [00:05:39]
-02. Always Perfect [00:06:02]
-03. Celtic Blessing [00:06:18]
-04. Into Your Hands [00:08:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6414683AF6430A962E6C1D1B7EA9335DEC77CF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031838   (649676) от 05.07.2016
-
-VA - German Top 100 Single Charts (11.07.2016) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Forster -  Wir sind gros 3:27
-002. Justin Timberlake -  Can't Stop The Feeling 3:56
-003. Sia -  Cheap Thrills 3:45
-004. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C9D4FDAF706FEDD6BE233619E1CF48FF845576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031927   (649675) от 05.07.2016
-
-David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From the Depths
-02. When We Were Together
-03. Fly With Me
-04. The Song of Wisdom(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AF899CDEA15BD7B1A1E9FFF59A5D55A01AF509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031789   (649674) от 05.07.2016
-
-Анна Анисимова | Невидимый слон (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649674.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой удивительно светлой и трогающей сердце книжке, казалось бы, не происходит ничего особенного. Просто девочка очень радостно и тепло рассказывает о своей жизни. О том, как дома вместе с мамой играла в прятки и готовила торт к приходу гостей. О том, как с папой ходила в музей, услышала там про слона и даже потрогала его бивни, а после чистила пол, и думала, что (   Читать дальше...   )Жанр: Литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04C0D16557A4B8FB352EB01C9380CC2844DB4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031995   (649673) от 05.07.2016
-
-Вести.Doc. Донбасс. Право на жизнь (05.07.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55334D25518553D354489507DF657CF911BED007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031797   (649672) от 05.07.2016
-
-VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
+VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649672.jpg" />
+  <img src="Z:/picture/008/save_picture_651945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-Пpодолжительность: 01:11:56
-
- 1. Sigala Feat. John Newman & Nile Rodgers – Give Me Your Love(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:43:24
+001. Michel Telo – Ai Se Eu Te Pego (Nosa)
+002. Sara Oks & Иван Кит - Бой Без Правил
+003. Maroon 5 - One More Night
+004. Neoclubber - Ночь Жаркого Лета
+005. David Guetta Feat. Sia - Titanium
+006. MainstreaM One - Под Тёмными Очками
+007. Fly Project - Back In My Life (Radio Edit)
+008. Varda - Я Тебе Не Верю
+009. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+010. Размер Project - My Moscow Love(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:07:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
+magnet:?xt=urn:btih:6333D5B855B7B001E9FC393A0ECAF0F4E871EA03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,25 +68,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031080   (649671) от 05.07.2016
+###  Публикация: 516708   (651943) от 29.06.2012
 
-Иван Тургенев | Великие исполнители [Том 15] (2012) [MP3]
+VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649671.jpg" />
+  <img src="Z:/picture/008/save_picture_651943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Страницы повести Ивана Тургенева «Первая любовь» читает Василий Лановой. Запись1980 года.Жанр: Аудиоспектакль, отечественная классикаПродолжительность: 01:10:51
+01.Poshout feat. Ange - Beside (Sunset Extended)
+02.Allure feat. Emma Hewitt - Stay Forever (Extended Mix)
+03.ATB feat. Ramona Nerra - Never Give Up (Clubmix)
+04.Tenishia feat. Jan Johnston - As It Should (tyDi Remix)
+05.Will Holland feat. Jeza - Every Heartbeat (Beat Service Remix)
+06.Cosmic Gate & J'something - Over The Rainbow (Extended Mix)
+07.Xtigma feat. Sarah Russell - Take Your Hand (Summer Remix)
+08.Ignas feat. Julie Thompson - Hold On (Original Mix)
+09.Sean Tyas - Lekta (Original Mix)
+10.Mark Bester - Colors Of Summer (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F17D8DFEE9EB3BC8F22CFBAD9463B6C4228D0C7
+magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,88 +103,91 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031978   (649670) от 05.07.2016
+###  Публикация: 516522   (651941) от 29.06.2012
 
-Simonopetras - Psaltirion Terpinon - Hymns From The Psalter (1990) [MP3|320 Kbps] <Вокал, Хоровое пение>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come Let Us Rejoice, Ps 94    04:59
-02.  O Lord, Our Lord, Ps 8    06:34
-03.  The Lord Is My Shephard, Ps 22    05:46
-04.  O Sing To The Lord A New Song, Ps 97    05:43(   Читать дальше...   )Жанр: Вокал, Хоровое пениеПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D872FE75A615DC475E9D0B3134A67950383E707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031633   (649669) от 05.07.2016
-
-SOTO - Divak (2016) Jeff Scott Soto's Band [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divak (Intro)
-02. Weight Of The World
-03. Freakshow
-04. Paranoia(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912D892AAAE2EF411FC90E117596F1A8E6D4F398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214365   (649637) от 05.07.2010
-
-Letum - Два альбома (2001, 2006) [MP3|320 kbps]<Dark Ambient, Industrial>
+VA - Trance In Motion Vol.119 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649637.jpg" />
+  <img src="Z:/picture/008/save_picture_651941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dark Ambient, IndustrialПродолжительность: 00:55:47
-01 - Solititation
-02 - Attempt (Failure)
-03 - Broken
-04 - Betrayed
-05 - Staring At Nothing
-06 - Shadow
-07 - Silence
-08 - Dissolving
-09 - Communion(   Читать дальше...   )
+01.BT - Flaming June (Laptop Symphony Rework)
+02.Joop feat. Tiffany Johnston - Just One Night (Original Mix)
+03.Andain - Turn Up The Sound (tyDi Remix)
+04.Beat Service - Fortuna (Original Mix)
+05.Neev Kennedy - A Bridge (DNS Project Remix)
+06.Sied Van Riel & Erik Arbores - In Ur Face (Original Mix) (Electronic Family Anthem 2012)
+07.Arty - Open Space (Original Mix)
+08.Audien - The Reach (Original Mix)
+09.Paul Oakenfold feat. J Hart - Surrender (Protoculture Remix)
+10.Running Man presents Inca - Signs (Ozo Effy Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1065F6708BF4A2F0B829E1161F3630F27628E8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516682   (651939) от 29.06.2012
+
+Armin Van Buuren - A State Of Trance 567 (2012) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andain - Turn Up The Sound (Xtigma Remix)
+ 02. Denis Kenzo featuring Sveta B. - Lullaby Lonely
+ 03. Norin & Rad - Retrograde
+ 04. Above & Beyond feat. Richard Bedford - On My Way To Heaven (Tomas Heredia At Sunrise Mix)
+ 05. Luigi Lusini & Starchasers feat. Molly Bancroft - All I Want
+ 06. Markus Schulz feat. Adina Butar - Caught (Club Mix)
+ 07. Tritonal & Kaeno - Azuca
+ 08. Roger Shah feat. Carla Werner - One Love
+ 09. Nitrous Oxide & Dan Stone - Nautica
+ 10. Gelardi - Deira(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92EADE6F1310EA5C3FC4E18A48246BBFFACFBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516746   (651937) от 29.06.2012
+
+Mozilla Firefox 14.0 Beta 10 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_651937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения возможностей подключением плагинов (а выпущено их великое множество).Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -565,135 +199,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 799096   (649628) от 24.06.2014
+###  Публикация: 516384   (651935) от 29.06.2012
 
-Кухня (2012-2014) DVDRip, WEB-DLRip (Сезон 1-3, серии 1-60)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649628.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Во все времена еда была рядом с людьми. Она искушает, вдохновляет, восхищает, отвращает. Но человек не может без еды, а значит тот, кто создает еду, может управлять миром…». Так думал Максим Лавров, когда шел осуществлять свою мечту — устраиваться поваром в один из самых дорогих ресторанов столицы.
-
-Мечта сбылась, вот только на деле все вышло не так вкусно. Шеф-повар (   Читать дальше...   )Производство: YBW-Group, Yellow, Black & White, СТСЖанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Дмитрий Назаров, Марк Богатырев, Дмитрий Нагиев, Юлия Такшина, Елена Подкаминская, Марина Могилевская, Сергей Лавыгин, Никита Тарасов, Виктор Хориняк, Сергей Епишев, Ольга Кузьмина, Екатерина Кузнецова (IV), Михаил Тарабукин, Виктория Лукина, Елена Чернявская, Виталий Щанников, Сергей Беляев, Роман Индык, Евгения Храповицкая, Серафима НизовскаяПеревод: Не требуетсяСубтитры: НетПродолжительность: 60 x ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9BD353ECBAF23C52D55AB0F76B313E2F5B6DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794495   (649625) от 24.06.2014
-
-VideoHive – Spray Your Graffiti - 6639346 [AEP]
-
->>След.
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, тут и объяснять не надо для чего можно использовать проект... но попробую в двух словах:
-рисуем на стене графитти, логотип любимого клуба или что еще позволит ваша фантазия.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499D3298EC0BA1D247C6BDAD862E007E550F7645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412294   (649609) от 24.06.2014
-
-Специалист | HTML и CSS. Уровень 1. Создание сайтов по стандартам W3C и переход на HTML 5 и СSS 3 [2011] PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649609.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML и CSS — основные языки разметки и стилей, с помощью которых разрабатываются веб-страницы. На курсе Вы изучите основы языка разметки HTML, способы применения CSS, основы построения сайтов для сети Интернет. Вы получите необходимые навыки для построения сайтов с помощью статических страниц в сети Интернет. Успешное обучение на этом курсе даст Вам прочную базу (   Читать дальше...   )Жанр: Web-дизайнПродолжительность: 23:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF58F72F6E7C78C8129E96AE54C8F53948A0795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905725   (649603) от 06.06.2015
-
-Вести в субботу с Сергеем Брилевым (06.06.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сквозное вещание с утра до вечера. Актуальные новости. Главные действующие лица недели. Интервью и комментарииТелекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501FDCBAC46A5EA4D2D2824C50F4CA2384BEBE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905747   (649602) от 06.06.2015
-
-VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<House, Funky, Deep, Electronica, Minimal>
+VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649602.jpg" />
+  <img src="Z:/picture/008/save_picture_651935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. KiNK - Cloud Generator (Original Mix) [07:11]
-02. Stephan Bodzin - Singularity [07:02]
-03. Trulyors - Expeditions (Grandmoms Hands Remix) [06:36]
-04. Recondite - Serak (Original Mix) [07:28](   Читать дальше...   )Жанр: House, Funky, Deep, Electronica, MinimalПродолжительность: 06:10:25
+01. Aura Dione - Friends
+ 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
+ 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
+ 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
+ 05. Avicii - Levels
+ 06. Global Deejays - Hardcore vibes (Radio Edit)
+ 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+ 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
+ 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
+ 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE2360A37FA409EA208E8AC8A9921A8094FDC9C4
+magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,28 +234,535 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 905487   (649601) от 06.06.2015
+###  Публикация: 905349   (651933) от 05.06.2015
 
-Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
+В теме. Баррели риска (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Политолог Борис Блохин рассуждает о том, как будут колебаться цены на нефть после стартовавшего недавно в Вене саммита стран экспортеров нефти (ОПЕК).Телекомпания: Москва ДоверияЖанр: ДокументальныйПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61B75F33BC7B2CE2D9B69F74B1FC4F59EBEEAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905255   (651932) от 05.06.2015
+
+Metal Inc. - Traces of the Past (2015) [MP3|320 кб/с]<Heavy Metal / Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise up!
+02. Deceiver
+03. Follow Me
+04. The Cost(   Читать дальше...   )Жанр: Heavy Metal / ThrashПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EAFEEC0F557CE29B28F9FB1586BDDD2A0AC4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905090   (651931) от 05.06.2015
+
+The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649601.jpg" />
+  <img src="Z:/picture/008/save_picture_651931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lover's Leap 13:53
-02. The Romantic 04:40
-03. The Stranger 03:36
-04. The Big Time I 03:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:47
+1. Number One (3:11)
+2. Blacked Out Windows (2:28)
+3. Keys to the Kingdom (3:41)
+4. The Winning Side (3:44)(   Читать дальше...   )Жанр: Blues Rock, GarageПродолжительность: 00:34:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
+magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905289   (651930) от 05.06.2015
+
+Sigh - Graveward (2015) [FLAC|tracks+.cue]<Avant-garde, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaedit Nos Pestis
+02. Graveward
+03. The Tombfiller
+04. The Forlorn(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4322B9633305D9AC46A32C9441002035CE0F29B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905025   (651929) от 05.06.2015
+
+No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dismantled & Twisted 05:26
+02. So They Say 04:35
+03. Debate and Rhyme 06:56
+04. Killing Me 06:27(   Читать дальше...   )Жанр: Heavy/Crossover ProgПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA54C6FAFFDD6EB0A43FE50B6CDDA6E9C403FEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905337   (651928) от 05.06.2015
+
+Линия защиты. Полонский. Сорванная башня (2015.06.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Полонский - кто он на самом деле? Эксцентричный предприниматель? Талантливый мошенник? Или потерявший берега богач? Взлет и падение строительной империи самого скандального бизнесмена России: от собственного государства на далеких островах до камеры-одиночки в московском СИЗО! Почему его удалось вернуть на родину только сейчас? "Полонский. Сорванная башня" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7791643923A2AB5F3BAAE59CA1BF41BBEF06C980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905098   (651927) от 05.06.2015
+
+Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Control Systems (17:24)
+2. Inevitable Collateral (10:39)
+3. Desire (6:50)
+4. Importance Of Downtime (17:46)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD3B6976F8979E461A3EBE44A1F9FED416E611C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905162   (651926) от 05.06.2015
+
+Crow's Claw - Fair Judgement (2015) [MP3|320 кб/с]<Instrumental Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inchlings Of The Shining Needle
+02. Hartmann’s Youkai Girl
+03. Lonesome Werewolf
+04. Night Falls(   Читать дальше...   )Жанр: Instrumental Power MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597DF7F34892B61A57F21C12D08A175B434D3F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905247   (651925) от 05.06.2015
+
+Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Nowhere Pt.I (11:42)
+02. In Harm's Way (10:54)
+03. Somewhere In The Darkness (6:57)
+04. Fortress Of Silence (10:33)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904904   (651924) от 05.06.2015
+
+В. Н. Шевченко | Н. Бухарин как теоретик исторического материализма (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бухарин Н. И. (1888—1938) — профессиональный революционер и видный партийный деятель первых лет Советской власти. В брошюре раскрываются достоинства и недостатки книги Н. Бухарина «Теория исторического материализма» (1921), явившейся первым систематическим изложением марксистской социологии, анализируется тесная связь ее с другими крупными работами автора — «Азбукой (   Читать дальше...   )Жанр: история, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A333933987A84AA2EB59C030B18AFBD26CB388E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904835   (651923) от 05.06.2015
+
+Kris Dollimore - All Grown Up (2015) [MP3|320 кб/с]<Acoustic Blues, Roots>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Grown Up (5:49)
+02. Sometimes You Need To Feel The Pain (4:22)
+03. Evil People (5:05)
+04. Easy (4:32)(   Читать дальше...   )Жанр: Acoustic Blues, RootsПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6A59E5A02336E93BB08F4D931322C89894FF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905020   (651922) от 05.06.2015
+
+Hell-Us. - Monster Piece (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Nasty
+02. Mr. Rusty
+03. My Tomb
+04. Under The Knife(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A2C3FEBB235AF07D051663631BABD6E7C48EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905249   (651920) от 05.06.2015
+
+Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synesthesia (6:00)
+02. The Chosen One (5:14)
+03. Outer Space (4:22)
+04. Space Out (part 1) (1:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905252   (651919) от 05.06.2015
+
+Lux Purus - Chaos Creates (2015) [MP3|320 кб/с]<Symphonic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. At The Edge Of The World (05:32)
+2. Raised By The Wolves (05:57)
+3. The Seven Seals (04:21)
+4. Prophecy Of The Seventh Generation (08:04)(   Читать дальше...   )Жанр: Symphonic Power Metal, Female VocalПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E0EE6033F8E6C5E155151ED12F8DC420442EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905167   (651918) от 05.06.2015
+
+Arion - Arion (2015) [MP3|320 кб/с]<Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Road
+02. Gods of Old
+03. Caught in a Dream
+04. Tentalon(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF22A03CF4DEF78D85D09DBF40C070216E276CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905178   (651917) от 05.06.2015
+
+Вечерний Ургант. Сезон №7. Выпуск №70 (2015.06.02) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2110C4E3E7EF3677F1B54EAA3F59D2DC47162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905163   (651916) от 05.06.2015
+
+S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tragedy
+02. Heroes
+03. Crash And Burn
+04. Never Say Goodbye(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09924069307269701CC05340B982BAEC0611103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905286   (651915) от 05.06.2015
+
+Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard Rock, Garage, Heavy Psychedelic, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7x7
+02. Heartquake
+03. Lioneyes
+04. Counting Backwards(   Читать дальше...   )Жанр: Hard Rock, Garage, Heavy Psychedelic, StonerПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CFBDD4F01A8DE2D3A4D578A9CE2251DC20F82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905179   (651914) от 05.06.2015
+
+Вечерний Ургант. Сезон №7. Выпуск №71 (2015.06.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_651914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуПродолжительность: ~ 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399AFB5ECA7FE80A80C84B31E32CCC53B5F86616
 ```
 
 https://mybot314.ru/tekegram_catalog/

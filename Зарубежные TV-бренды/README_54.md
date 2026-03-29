@@ -1,3 +1,107 @@
+###  Публикация: 1140791   (634761) от 18.06.2017
+
+Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] (сезон 1, эпизоды 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон много веков был опасным городом. Сюда, будто магнитом, притягивало убийц. О Джеке-потрошителе писали во всех газетах но он был далеко не единственным. Убийство повсюду. Страх смерти обуял весь город. В этой программе мы узнаем о самых известных, самых загадочных лондонских убийствах. Интриги и страсть, коварные убийства и новейшие достижения технологий, рассказы (   Читать дальше...   )Производство: Великобритания, 3DD Production in association with UKTVЖанр: Документальный, криминалистика, историяРежиссер: Дэниел КончерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:44:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BEF543408413123C5DEEC47CC77AE56D0F6011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520009   (634700) от 07.07.2012
+
+DV: Невероятное вокруг нас. Волны, которые греют [6 из 28] / Totally Phenomenal. Waves that warm (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB58305A35C32D5C5C65331EEEB939BECC0BBDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520034   (634699) от 07.07.2012
+
+DV: Невероятное вокруг нас. Рождение и жизнь ветра [7 из 28] / Totally Phenomenal. Pretty windy (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AA788B9DDDA5E12D1A1DF29EF80A8B78BC3FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228668   (634016) от 02.06.2018
+
+NGW: Прирождённые монстры. Тигровая змея / Natural born monsters (2015) HDTV [H.264/1080i-LQ] (Сезон 1, эпизод 1)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шон Дуган отправляется в Австралию, чтобы развеять миф о гигантской морской змее и показать смертельно опасную тигровую.Производство: США, Karga Seven Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: B.J. GolnickПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763D9998238D8FBFC8372ACDD51C2D66C0074098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228672   (633923) от 02.06.2018
 
 NGW: Прирождённые монстры. Бразильский паук / Natural born monsters (2015) HDTV [H.264/1080i-LQ] (Сезон 1, эпизод 2)
@@ -6,7 +110,7 @@ NGW: Прирождённые монстры. Бразильский паук / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633923.jpg" />
+  <img src="Z:/picture/008/save_picture_633923.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTVRip [Сезон 1, С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633765.jpg" />
+  <img src="Z:/picture/008/save_picture_633765.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery: Без промаха / Gunslingers (2007) HDTV [H.264/720p-LQ] [Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633760.jpg" />
+  <img src="Z:/picture/008/save_picture_633760.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Самый разрушительный тайфун / Megastorm: Wor
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633759.jpg" />
+  <img src="Z:/picture/008/save_picture_633759.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633755.jpg" />
+  <img src="Z:/picture/008/save_picture_633755.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633528.jpg" />
+  <img src="Z:/picture/008/save_picture_633528.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery: Подлинная жизнь Тутанхамона / King Tut Unwra
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633496.jpg" />
+  <img src="Z:/picture/008/save_picture_633496.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Код / The Code (2011) WEB-DL [H.264/1080p-LQ] (серии 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633346.jpg" />
+  <img src="Z:/picture/008/save_picture_633346.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633301.jpg" />
+  <img src="Z:/picture/008/save_picture_633301.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632864.jpg" />
+  <img src="Z:/picture/008/save_picture_632864.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ National Geographic: Острова. Исландия / Islands. Island (2011) S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632163.jpg" />
+  <img src="Z:/picture/008/save_picture_632163.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ National Geographic: Острова. Занзибар / Islands. Zanzibar (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632158.jpg" />
+  <img src="Z:/picture/008/save_picture_632158.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ National Geographic: Острова. Куба / Islands. Cuba (2011) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632155.jpg" />
+  <img src="Z:/picture/008/save_picture_632155.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Discovery. Экстремальные коллекционеры / Extreme Colle
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632009.jpg" />
+  <img src="Z:/picture/008/save_picture_632009.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NG. Секреты Шамбалы. В поисках священных пеще
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631724.jpg" />
+  <img src="Z:/picture/008/save_picture_631724.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ BBC: Большие птицы с Дэвидом Аттенборо / BBC Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631694.jpg" />
+  <img src="Z:/picture/008/save_picture_631694.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ Discovery. Билли скупает Бруклин / Billy Buys Brooklyn (2021)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631222.jpg" />
+  <img src="Z:/picture/008/save_picture_631222.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631106.jpg" />
+  <img src="Z:/picture/008/save_picture_631106.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NGW: Дикая Турция / Turkey's Harsh Paradise (2015) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629964.jpg" />
+  <img src="Z:/picture/008/save_picture_629964.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NGW: Гигантские плотоядные летучие мыши / Giant C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629959.jpg" />
+  <img src="Z:/picture/008/save_picture_629959.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NG. Дикая Канада: У кромки льда / Wild Canada. Ice Edge (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629623.jpg" />
+  <img src="Z:/picture/008/save_picture_629623.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ Animal Planet. Суровая Арктика / Wildest Arctic (2012) HDTVRip [H.
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629466.jpg" />
+  <img src="Z:/picture/008/save_picture_629466.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ Animal Planet. Суровая Арктика / Wildest Arctic (2012) HDTVRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CA9C6A600F8626B64F4FBA0001193B93C54554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908754   (629324) от 16.06.2015
-
-BBC. Человеческая Вселенная / Human Universe (2014) BDRip [H.264/720p-LQ] (Сезон 1, серия 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Брайан Кокс задаст самые важные вопросы какие только мы можем задать. Одни ли мы? Почему мы здесь? Какое наше будущее? Присоединитесь к нему в потрясающем торжестве жизни человека, как он исследует свои истоки, наше место и нашу судьбу во Вселенной.Жанр: Документальный, научно-познавательныйАктеры: Брайан КоксПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: АнглийскиеПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4571EED6FF1475E5C975F71143E8E38AAE4F21E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142816   (629146) от 21.06.2017
-
-Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] (сезон 2, эпизоды 1-5 из 5)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон много веков был опасным городом. Сюда, будто магнитом, притягивало убийц. О Джеке-потрошителе писали во всех газетах но он был далеко не единственным. Убийство повсюду. Страх смерти обуял весь город. В этой программе мы узнаем о самых известных, самых загадочных лондонских убийствах. Интриги и страсть, коварные убийства и новейшие достижения технологий, рассказы (   Читать дальше...   )Производство: Великобритания, 3DD Production in association with UKTVЖанр: Документальный, криминалистика, историяРежиссер: Дэниел КончерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93CC74CB72EC71141B0BA99F56E604C5E52E44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034328   (628433) от 16.07.2016
-
-Discovery: Необъяснимое. Специальные материалы / The Unexplained Files (2013, 2014) SATRip (7 серий)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена таинственным историям, до сегодняшнего дня не имевшим правдоподобного объяснения. Авторы этого проекта исследуют удивительные факты, которым мистики спешат придать потусторонние черты и над которыми посмеиваются скептики. Создатели программы придерживаются золотой середины. Конечно, они не идут на поводу у мистиков, но и не спешат утверждать: (   Читать дальше...   )Телекомпания: Discovery Communications LLCЖанр: Документальный, научно-познавательныйРежиссер: Тим Конрад, Нат Шарман.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 7 x ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0EEB36C59A7AEA9B7FD30A1228429982D7A32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672346   (628420) от 16.07.2016
-
-NG. Тайны древности. Секретный код соборов / Ancient Secrets. Catherdrals Decoded (2012) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_628420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канал National Geographic исследует древние секреты самых известных в мире необычных и загадочных построек, волнующих умы легенд, отыскивает исторические свидетельства и пытается объяснить загадки с помощью новых теорий и достижений современной науки.
-Исследования экспертов помогут нам отделить правду от мифов, а также нарисовать картины древней жизни, которые создали (   Читать дальше...   )Жанр: Документальный, научно-познавательный, историяПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:44:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

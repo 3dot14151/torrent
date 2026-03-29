@@ -1,3 +1,61 @@
+###  Публикация: 1557218   (542830) от 14.06.2022
+
+Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on Baby [00:04:01]
+02. Love Crusader [00:03:01]
+03. Love on a Distance [00:02:39]
+04. Hold on to Love [00:04:16](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B54998AF59FBA6DD9A57DA1C8EA610FB6257AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557256   (542703) от 14.06.2022
+
+Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Your Skin [03:23]
+02. Toe the Line [03:52]
+03. Flatline [03:26]
+04. Voices [04:00](   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E647D4B661D6B47CAD4D4408EF44BDF73DDCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557111   (542698) от 14.06.2022
 
 Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
@@ -6,7 +64,7 @@ Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542698.jpg" />
+  <img src="Z:/picture/008/save_picture_542698.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Alice Cooper - Paranormal (2017) 2CD, Deluхе Editiоn [FLAC|Lossless|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542518.jpg" />
+  <img src="Z:/picture/008/save_picture_542518.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ WhoCares (Ian Gillan & Tony Iommi) - WhoCares (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541935.jpg" />
+  <img src="Z:/picture/008/save_picture_541935.jpg" />
 </div>
 
 
@@ -97,7 +155,7 @@ Sideburn - Fired Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541137.jpg" />
+  <img src="Z:/picture/008/save_picture_541137.jpg" />
 </div>
 
 
@@ -126,7 +184,7 @@ Rough Cutt - Anthology (2008) 2 x CD, Compilation, Reissue, 2015, Deadline Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541124.jpg" />
+  <img src="Z:/picture/008/save_picture_541124.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ Ian Gillan - The best of (1992) [FLAC|Lossless|image + .cue] <Hard rock, Classic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538957.jpg" />
+  <img src="Z:/picture/008/save_picture_538957.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ Federal Charm - Federal Charm (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538938.jpg" />
+  <img src="Z:/picture/008/save_picture_538938.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Ritchie Blackmore's Rainbow - Stranger In Us All (1995) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538830.jpg" />
+  <img src="Z:/picture/008/save_picture_538830.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Steve Marriott - Marriott (1976) Reissue, Remastered, 2007, Universal [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537452.jpg" />
+  <img src="Z:/picture/008/save_picture_537452.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ Lazarus Dream - Lifeline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537451.jpg" />
+  <img src="Z:/picture/008/save_picture_537451.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ VA - The Singles Album (1986) 2xCD, Reissue, 2021, Music For Nations [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537372.jpg" />
+  <img src="Z:/picture/008/save_picture_537372.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ Michael Sweet - One Sided War (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536586.jpg" />
+  <img src="Z:/picture/008/save_picture_536586.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Humble Pie - Smokin' (1972) Reisue, 1990, A&M Records [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536575.jpg" />
+  <img src="Z:/picture/008/save_picture_536575.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Charm City Devils - Let's Rock'N'Roll / Sin (2009, 2012) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536371.jpg" />
+  <img src="Z:/picture/008/save_picture_536371.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Edge Of Forever - Native Soul (2019) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535682.jpg" />
+  <img src="Z:/picture/008/save_picture_535682.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Joe Satriani - Crystal Planet (1998) [FLAC|image+.cue]<Instrumental Rock, Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535467.jpg" />
+  <img src="Z:/picture/008/save_picture_535467.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ Rainbow - Difficult To Cure (1981) Platinum SHM-CD /2013, Polidor/[FLAC|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535367.jpg" />
+  <img src="Z:/picture/008/save_picture_535367.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ TUFF - The History of Tuff (2001) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535247.jpg" />
+  <img src="Z:/picture/008/save_picture_535247.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Lawdy - Outlaw Invasion (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535003.jpg" />
+  <img src="Z:/picture/008/save_picture_535003.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ M.ill.ion - Back on Track (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533755.jpg" />
+  <img src="Z:/picture/008/save_picture_533755.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Rian - Out Of The Darkness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533646.jpg" />
+  <img src="Z:/picture/008/save_picture_533646.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Jeff Scott Soto - Complicated (2022) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533643.jpg" />
+  <img src="Z:/picture/008/save_picture_533643.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Y&T - Yesterday And Today Live (1991) Japan [APE|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532675.jpg" />
+  <img src="Z:/picture/008/save_picture_532675.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Crystal Ball - Discography: 13 albums, 16CD (1999-2022) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531652.jpg" />
+  <img src="Z:/picture/008/save_picture_531652.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Crystal Ball - Discography: 13 albums, 16CD (1999-2022) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED5B2EC835E52F282C1C70A191D35F33B9E04819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051984   (530993) от 12.09.2016
-
-Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Need you to Understand (3:51)
- 02.3000 Beats (3:58)
- 03.I Want Out (3:12)
- 04.Number One (4:40)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F026C7EC9D33026A7A03D863C628C287AFB02A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051924   (530892) от 12.09.2016
-
-Palace - Master Of The Universe (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Master Of The Universe (4:43)
- 02.Cool Runnin' (3:57)
- 03.Man Behind The Gun (4:45)
- 04.Part Of Me (4:03)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600D807F367975B887935EAC1981329E293C6783
 ```
 
 https://mybot314.ru/tekegram_catalog/

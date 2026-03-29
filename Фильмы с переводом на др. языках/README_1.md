@@ -1,3 +1,29 @@
+###  Публикация: 1507983   (798071) от 06.11.2021
+
+Главный герой / Free Guy (2021) BDRip [H.264/720p] [UKR, EN / UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798071.jpg" />
+</div>
+
+
+###  Подробнее
+
+У сотрудника крупного банка всё идёт по накатанной, пока однажды он не выясняет, что окружающий его мир — это часть огромной видеоигры, а сам он в ней — всего лишь второстепенный персонаж. Хватит ли у него духу переписать свой код, обратить на себя внимание прекрасной девушки и, наконец, спасти мир? Одним словом, получится ли из него главный герой?Производство: США, Канада / 20th Century Studios, Berlanti Productions, 21 Laps EntertainmentЖанр: фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Шон ЛевиАктеры: Райан Рейнольдс, Джоди Комер, Лил Рел Ховери, Джо Кири, Уткарш Амбудкар, Тайка Вайтити, Аарон В Рид, Бритни Олдфорд, Камилль Костек, Марк ЛайнерПеревод: Дублированный (Лицензия)Язык озвучки: украинский, английскийСубтитры: украинские (Forced, Full), английские (Forced, Full)Продолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771AF2961F779A3F8D7EF99B1D727EC71C8801E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017436   (758831) от 18.05.2016
 
 Секс и ложь в Син-сити / Sex and Lies in Sin City (2008) DVDRip [FR / EN Sub]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758831.jpg" />
+  <img src="Z:/picture/008/save_picture_758831.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747817.jpg" />
+  <img src="Z:/picture/008/save_picture_747817.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747705.jpg" />
+  <img src="Z:/picture/008/save_picture_747705.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746204.jpg" />
+  <img src="Z:/picture/008/save_picture_746204.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746199.jpg" />
+  <img src="Z:/picture/008/save_picture_746199.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735616.jpg" />
+  <img src="Z:/picture/008/save_picture_735616.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735590.jpg" />
+  <img src="Z:/picture/008/save_picture_735590.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730760.jpg" />
+  <img src="Z:/picture/008/save_picture_730760.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730736.jpg" />
+  <img src="Z:/picture/008/save_picture_730736.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730727.jpg" />
+  <img src="Z:/picture/008/save_picture_730727.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730608.jpg" />
+  <img src="Z:/picture/008/save_picture_730608.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729715.jpg" />
+  <img src="Z:/picture/008/save_picture_729715.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729691.jpg" />
+  <img src="Z:/picture/008/save_picture_729691.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ King’s Man: Начало / The King's Man (2021) HDRip [UKR / UKR Sub]
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710897.jpg" />
+  <img src="Z:/picture/008/save_picture_710897.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710698.jpg" />
+  <img src="Z:/picture/008/save_picture_710698.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p] [UKR, EN 
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710572.jpg" />
+  <img src="Z:/picture/008/save_picture_710572.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708736.jpg" />
+  <img src="Z:/picture/008/save_picture_708736.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708647.jpg" />
+  <img src="Z:/picture/008/save_picture_708647.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708630.jpg" />
+  <img src="Z:/picture/008/save_picture_708630.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699798.jpg" />
+  <img src="Z:/picture/005/save_picture_699798.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688182.jpg" />
+  <img src="Z:/picture/008/save_picture_688182.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683610.jpg" />
+  <img src="Z:/picture/008/save_picture_683610.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671105.jpg" />
+  <img src="Z:/picture/008/save_picture_671105.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667620.jpg" />
+  <img src="Z:/picture/008/save_picture_667620.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667609.jpg" />
+  <img src="Z:/picture/008/save_picture_667609.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59166F44C58E0B09788335CF72DF48AEB60A940F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292726   (644700) от 30.03.2019
-
-Кинчем / Kincsem (2017) WEBRip [H.264/1080p-LQ] [UKR, FRE]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644700.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о борьбе в высших слоях общества Австрийской империи, просуществовавшей до 1867 года и позднее переродившейся в Австро-Венгрию. В центре событий — непримиримая борьба между венгерским аристократом Эрнё Блашковичем и офицером австрийской армии Отто фон Эттингеном. Блашковичу принадлежит легендарная скаковая лошадь по кличке Кинчем (в переводе с венгерского (   Читать дальше...   )Производство: Венгрия / Café Film, DRP, 	SKYFILM Studio Ltd.Жанр: Драма, Мелодрама, Приключения, ИсторияРежиссер: Габор ХерендиАктеры: Эрвин Надь, Андреа Петрик, Тибор Гашпар, Йожеф Дьябронка, Тамаш Керестеш, Эрнё Фекете, Петер Шерер, Зольтан Ратоти, Лехель Ковач, Залан МакранчиЯзык озвучки: Украинский, французскийСубтитры: ОтсутствуютПродолжительность: 01:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C24E1FBF3DBF94043CF539D2F061EF777D681
 ```
 
 https://mybot314.ru/tekegram_catalog/

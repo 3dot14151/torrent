@@ -1,3 +1,119 @@
+###  Публикация: 1708074   (113135) от 19.03.2024
+
+Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jazzybelle's Shuffle 08:05
+02 - Mount Olive 08:56
+03 - I'm Confessin' that I Love You 06:19
+04 - Boogaloo Hullabaloo 09:41(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351CA41D045ED9FFE047329FD3C2B788C97C563C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708028   (113129) от 19.03.2024
+
+Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Swuffle
+02. Cool Breeze
+03. Isipisi
+04. Um Beijo(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D105C1BB45ECD0B00D209EF85BA846B7906C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708072   (113127) от 19.03.2024
+
+Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Haynes [4:13]
+02. Airto [6:11]
+03. Elvin Suite [12:17]
+04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708063   (113121) от 19.03.2024
+
+The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcements by Willis Conover and Art Farmer [1:16]
+02. It Ain't Necessarily So [7:25]
+03. The Portrait [4:28]
+04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708307   (113092) от 20.03.2024
 
 VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113092.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113090.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113081.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113065.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113062.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113051.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113050.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113048.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113009.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113008.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113007.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112899.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112884.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112861.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Bea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112857.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112856.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112809.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112808.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112807.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112799.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Ultimate Chill Lounge Pleasure Relaxing Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112797.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112780.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CA80F84A6CD2964A7C829E3E425E40149D8522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710264   (112716) от 26.03.2024
-
-Antonio Sanchez - Live In New York At Jazz Standard (2008) 2CD, 2010, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Will Be Better (Once People Get Here) [13:36]
-02. Did You Get It [17:53]
-03. The Forgotten Ones [7:35]
-04. Challenge Within [20:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 02:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C23132ACAEB3C14BC1E6111AD12FCF8887B24FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710494   (112642) от 27.03.2024
-
-Ramsey Lewis - Sky Islands (1993) GRP Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julia [5:21]
-02. Apres Vous [4:15]
-03. Who Are You [7:22]
-04. Suavecito [4:55](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5E703C8DB01416BAEAA70F30402DCCEA776FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710798   (112567) от 28.03.2024
-
-Anita O'Day - Big Band At Carnegie Hall (1985) 2009, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus One [3:45]
-02. Honeysuckle Rose [3:49]
-03. Sweet Georgia Brown [5:11]
-04. Four Brothers/P Town [4:10](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A28FF6B0466BE1FE38F6DA54EBD5CC6A51FC48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710801   (112566) от 28.03.2024
-
-Jimmy Rosenberg - The One And Only (1998) Hot Club Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [3:25]
-02. Coquette [3:33]
-03. I'm in the Mood for Love [7:13]
-04. It Don't Mean a Thing [3:08](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DFD54935687B3977F39A37FF958EFB7F8961B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

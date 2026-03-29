@@ -1,3 +1,235 @@
+###  Публикация: 1753798   (103797) от 06.10.2024
+
+VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Wisteria - Grafton Street (4:23)
+02. The Boneshakers - Big Legged Man (4:25)
+03. JJ Soul Band - At the Mall (2:53)
+04. Suzanne's Band - Back to Brown (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B8941FE4EF7CE2CA05608B146C0FABB50A764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753793   (103790) от 06.10.2024
+
+VA - Blues In My Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Charles - Hallelujah I Love Her So (5:31)
+02. Champion Jack Dupree - Junker's Blues (3:13)
+03. Bonnie Raitt - Love Me like a Man (2008 Remaster) (3:12)
+04. Clarence Carter - Part Time Love (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDF5DB3D6733F4C26CFD9989AC8CC846AD33515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753802   (103786) от 06.10.2024
+
+VA - Sexy Money on a Friday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vilhjálmur Guðjónsson - Einstak (3:37)
+02. Charlie John - Over My Head (2:58)
+03. Social Gravy - Try Me (3:41)
+04. Eivør Pálsdóttir - Enduring Love (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BFB8719902F137D5D027CCEA33425A7339F850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753771   (103781) от 06.10.2024
+
+Dennis Herrera - Four (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Feel It (3:25)
+02. All Said and Done (5:28)
+03. Long Time Comin' (4:52)
+04. Blues and Roll (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165FB0066BDAE4862BAE20F8B3D3898D0B03CE39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753783   (103779) от 06.10.2024
+
+Harlem Lake - The Mirrored Mask (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carry On (3:09)
+02. Fooled Again (3:09)
+03. To Tell You I'm Sorry (5:01)
+04. Beggars Can't Choose (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B93B6E4D9A7C3EDB051E6DB865FF0A63FCD942B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753790   (103778) от 06.10.2024
+
+Travis Bowlin - Hooks & Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Four Fever (3:27)
+02. Just Saw My Baby (4:23)
+03. Leaving Again (4:18)
+04. Thicknessity (3:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D244F022E71DC5BAE97D19AAA6F49BD22ECCAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753787   (103775) от 06.10.2024
+
+Lemon Pepper Hangover - Lemon Pepper Hangover (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Summer (3:19)
+02. Left Hand Pipe (3:37)
+03. Drinkin' again (2:57)
+04. 1984 (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F32AEDC4AE4B2FDAC87B81D644825DF3F935CA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753795   (103767) от 06.10.2024
+
+VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. t.Roy & The Smoking Section - Cute Little Thang (2:57)
+02. Chicken House Purple - That I Was Back Then (3:25)
+03. Suzanne's Band - Kick It to the Curb (2:52)
+04. Laura Vida - I Sing My Own Kind of Blues (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6CBA2AF6B13A4F09173ECEB5D0FBA5F8F32751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753797   (103764) от 06.10.2024
 
 VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +238,7 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103764.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103722.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Funk'N'Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103681.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Pat Fulgoni - The Pat Fulgoni Blues Experience (2024) [FLAC|Lossless|WEB-DL|trac
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103657.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103602.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103601.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103600.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103599.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Bl
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103598.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103597.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ BoomChank - GobabyGO! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103596.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Big Creek Slim - Going to Germany (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103527.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Rosie's Smokehouse Deluxe - Welcome To The Smokehouse (2024) [FLAC|Lossless|WEB-
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103525.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Matt Charles - Highland Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmo
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103184.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Bubba Coon - Tthe Fool (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103181.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Jersey Julie Band - Multiball (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103180.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Jim Keays - Caledonia (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103179.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103177.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F88E228B9177C90758DC5717BAB110A0021E515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760377   (103176) от 13.11.2024
-
-North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Then (2:59)
-02. Caesar Jingle (Live) (2:28)
-03. Easy Street (A Song for the Homeless) (4:17)
-04. Good Times (Wild Women and Lovers) (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D441786038A8A86BEE21D64C6A59C3DB345ED8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760359   (103175) от 13.11.2024
-
-Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Your Fool (3:06)
-02. Chicago Bound (3:08)
-03. The Jealous Kind (3:32)
-04. Change It (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E814F6A08F2C7783362D914F2C6D06E6E801044E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760785   (103152) от 16.11.2024
-
-Rochelle & the Sidewinders - Soul Kiss (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinner's Tale (4:43)
-02. Soul Kiss (4:30)
-03. Backseat Driver (4:03)
-04. Maybe Tomorrow (5:07)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FE6775551B13FDE45DE4F414017823F00FB10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760879   (103148) от 16.11.2024
-
-Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trolls in my head (3:02)
-02. Don't you lie to me (2:29)
-03. A change is gonna come (4:52)
-04. Reelin' and rockin' (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C0825E92C30D90097549617BE891DCDA640973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760791   (103146) от 16.11.2024
-
-Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better (3:35)
-02. Business (5:51)
-03. Mojo (3:33)
-04. Fat Daddy (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FA8A6611C41D2820B92C70F5CA8990C5573A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760880   (103142) от 16.11.2024
-
-Kenny 'Blues Boss' Wayne - Ooh Yeah! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooh Yeah! (2:53)
-02. Whatcha Gonna Do Now? (4:28)
-03. Baby, I'm Your Man (2:24)
-04. Sailing With The Sunset (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760789   (103133) от 16.11.2024
-
-Blues Rock Generations - Blues Rock Generations No.5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key to the Highway (3:34)
-02. Going Down (3:40)
-03. I'm Your Hoochie Coochie Man (4:54)
-04. Drive (6:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A737285C504CE4334EFFF2D5FB5DCCA913A3974F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760948   (103126) от 17.11.2024
-
-Solon Fishbone - Better Late (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luciano Leães - Going Back Home (3:44)
-02. Crazy Times (3:32)
-03. Fly Away (4:54)
-04. Mama & Papa (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBF6212EC180FB73B635FEFE203977253152999
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Odd Echoes, Vol. 3 (2020) [AAC|~339 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766181.jpg" />
+  <img src="Z:/picture/008/save_picture_766181.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766072.jpg" />
+  <img src="Z:/picture/008/save_picture_766072.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766039.jpg" />
+  <img src="Z:/picture/008/save_picture_766039.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765867.jpg" />
+  <img src="Z:/picture/008/save_picture_765867.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765742.jpg" />
+  <img src="Z:/picture/008/save_picture_765742.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765664.jpg" />
+  <img src="Z:/picture/008/save_picture_765664.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Monada Gems: Mentis Excessus (2021) [AAC|~330 Kbps] <Organic House, Deep Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765389.jpg" />
+  <img src="Z:/picture/008/save_picture_765389.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ VA - Aurea 5 (2021) [AAC|~317 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765388.jpg" />
+  <img src="Z:/picture/008/save_picture_765388.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ VA - Aurea 3 (2020) [AAC|~321 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765387.jpg" />
+  <img src="Z:/picture/008/save_picture_765387.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ VA - Aurea 2 (2020) [AAC|~318 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765386.jpg" />
+  <img src="Z:/picture/008/save_picture_765386.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ VA - Parousia 2 (2019) [AAC|~311 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765385.jpg" />
+  <img src="Z:/picture/008/save_picture_765385.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Aurea 4 (2021) [AAC|~307 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765384.jpg" />
+  <img src="Z:/picture/008/save_picture_765384.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ VA - Odd Echoes, Vol. 5 (2021) [AAC|~341 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765383.jpg" />
+  <img src="Z:/picture/008/save_picture_765383.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Lost & Found Reflections 2021 (2021) [AAC|~344 Kbps] <House, Progressive Ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765382.jpg" />
+  <img src="Z:/picture/008/save_picture_765382.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Monada Gems: Sonus Terrarum (2021) [AAC|~308 Kbps] <Organic House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765381.jpg" />
+  <img src="Z:/picture/008/save_picture_765381.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Parousia 4 (2021) [AAC|~325 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765380.jpg" />
+  <img src="Z:/picture/008/save_picture_765380.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Parousia 3 (2020) [AAC|~326 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765379.jpg" />
+  <img src="Z:/picture/008/save_picture_765379.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Aurea (2019) [AAC|~311 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765378.jpg" />
+  <img src="Z:/picture/008/save_picture_765378.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ VA - Parousia (2018) [AAC|~333 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765377.jpg" />
+  <img src="Z:/picture/008/save_picture_765377.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765344.jpg" />
+  <img src="Z:/picture/008/save_picture_765344.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765340.jpg" />
+  <img src="Z:/picture/008/save_picture_765340.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - Monada Gems: Tranquillus (2021) [AAC|~313 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765303.jpg" />
+  <img src="Z:/picture/008/save_picture_765303.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765281.jpg" />
+  <img src="Z:/picture/008/save_picture_765281.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765250.jpg" />
+  <img src="Z:/picture/008/save_picture_765250.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764824.jpg" />
+  <img src="Z:/picture/008/save_picture_764824.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764823.jpg" />
+  <img src="Z:/picture/008/save_picture_764823.jpg" />
 </div>
 
 

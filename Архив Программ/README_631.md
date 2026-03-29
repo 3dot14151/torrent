@@ -6,7 +6,7 @@ WhatsApp 2.2031.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732904.jpg" />
+  <img src="Z:/picture/008/save_picture_732904.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FinePrint Software (FinePrint 10.35 / pdfFactory Pro 7.35) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732877.jpg" />
+  <img src="Z:/picture/008/save_picture_732877.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Calibre 4.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732876.jpg" />
+  <img src="Z:/picture/008/save_picture_732876.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VueScan Pro 9.7.29 + OCR Languages [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732871.jpg" />
+  <img src="Z:/picture/008/save_picture_732871.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Privacy Eraser Free 5.20.0 Build 4150 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732711.jpg" />
+  <img src="Z:/picture/008/save_picture_732711.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ SUMo Pro 5.14.10.518 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732696.jpg" />
+  <img src="Z:/picture/008/save_picture_732696.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Black Salt Audio All Plug-Ins 1.1.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732690.jpg" />
+  <img src="Z:/picture/008/save_picture_732690.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Yum Audio Everything Bundle 1.2.1 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732689.jpg" />
+  <img src="Z:/picture/008/save_picture_732689.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Muramasa Audio - MorphVerb 2.1 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732686.jpg" />
+  <img src="Z:/picture/008/save_picture_732686.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Inkscape 1.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732670.jpg" />
+  <img src="Z:/picture/008/save_picture_732670.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Don't Sleep 8.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732664.jpg" />
+  <img src="Z:/picture/008/save_picture_732664.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ UnHackMe 13.30.2022.0111 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732661.jpg" />
+  <img src="Z:/picture/008/save_picture_732661.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Advanced Installer 19.1 RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732659.jpg" />
+  <img src="Z:/picture/008/save_picture_732659.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ LibreOffice 7.3.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732657.jpg" />
+  <img src="Z:/picture/008/save_picture_732657.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Sandboxie 5.55.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732562.jpg" />
+  <img src="Z:/picture/008/save_picture_732562.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ GeoGebra 6.0.687.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732536.jpg" />
+  <img src="Z:/picture/008/save_picture_732536.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Firefox Browser ESR 91.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732527.jpg" />
+  <img src="Z:/picture/008/save_picture_732527.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Comodo Dragon 97.0.4692.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732525.jpg" />
+  <img src="Z:/picture/008/save_picture_732525.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Punto Switcher 4.2.5 Build 1238 RePack (& portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732497.jpg" />
+  <img src="Z:/picture/008/save_picture_732497.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Firefox Browser 97.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732492.jpg" />
+  <img src="Z:/picture/008/save_picture_732492.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ LogViewPlus 2.5.51 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732489.jpg" />
+  <img src="Z:/picture/008/save_picture_732489.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732478.jpg" />
+  <img src="Z:/picture/008/save_picture_732478.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ WinTools.net Premium 16.5.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732457.jpg" />
+  <img src="Z:/picture/008/save_picture_732457.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Spotify 1.1.78.765 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732439.jpg" />
+  <img src="Z:/picture/008/save_picture_732439.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Display Driver Uninstaller 16.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732434.jpg" />
+  <img src="Z:/picture/008/save_picture_732434.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Mail.Ru Облако 15.06.0175 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732423.jpg" />
+  <img src="Z:/picture/008/save_picture_732423.jpg" />
 </div>
 
 

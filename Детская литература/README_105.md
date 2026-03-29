@@ -1,3 +1,29 @@
+###  Публикация: 1043973   (568926) от 18.08.2016
+
+Константин Паустовский | Заботливый цветок (1988) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего школьного возрастаЖанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EABC64B2FD4C2908B99643294C1E720950AFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555529   (568915) от 04.06.2022
 
 Гилберт Форд | Дружба с призраком (2022) [FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568915.jpg" />
+  <img src="Z:/picture/008/save_picture_568915.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568910.jpg" />
+  <img src="Z:/picture/008/save_picture_568910.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568113.jpg" />
+  <img src="Z:/picture/008/save_picture_568113.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567495.jpg" />
+  <img src="Z:/picture/008/save_picture_567495.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567489.jpg" />
+  <img src="Z:/picture/008/save_picture_567489.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567481.jpg" />
+  <img src="Z:/picture/008/save_picture_567481.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567302.jpg" />
+  <img src="Z:/picture/008/save_picture_567302.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566194.jpg" />
+  <img src="Z:/picture/008/save_picture_566194.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565658.jpg" />
+  <img src="Z:/picture/008/save_picture_565658.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565507.jpg" />
+  <img src="Z:/picture/008/save_picture_565507.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565495.jpg" />
+  <img src="Z:/picture/008/save_picture_565495.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565163.jpg" />
+  <img src="Z:/picture/008/save_picture_565163.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564615.jpg" />
+  <img src="Z:/picture/008/save_picture_564615.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563462.jpg" />
+  <img src="Z:/picture/008/save_picture_563462.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562854.jpg" />
+  <img src="Z:/picture/008/save_picture_562854.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562852.jpg" />
+  <img src="Z:/picture/008/save_picture_562852.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562837.jpg" />
+  <img src="Z:/picture/008/save_picture_562837.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562695.jpg" />
+  <img src="Z:/picture/008/save_picture_562695.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562093.jpg" />
+  <img src="Z:/picture/008/save_picture_562093.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561817.jpg" />
+  <img src="Z:/picture/008/save_picture_561817.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561530.jpg" />
+  <img src="Z:/picture/008/save_picture_561530.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561238.jpg" />
+  <img src="Z:/picture/008/save_picture_561238.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561041.jpg" />
+  <img src="Z:/picture/008/save_picture_561041.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561035.jpg" />
+  <img src="Z:/picture/008/save_picture_561035.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560981.jpg" />
+  <img src="Z:/picture/008/save_picture_560981.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7287B43BEC4278F636243CB6259874A142147570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305007   (560074) от 28.05.2019
-
-Вадим Селин | Девочка-лето (2010) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полина так долго ждала этой встречи! Мечтала о ней с тех пор, как самый лучший парень, с которым она познакомилась на пляже, уехал в родной город. Но вот наступили осенние каникулы, девчонка села в поезд и отправилась к Марату. Как же он обрадуется неожиданному свиданию! Великолепное настроение Полины не испортили даже слова гадалки, ехавшей с ней в одном купе. Та (   Читать дальше...   )Жанр: Детская литература, для девочекФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08481D2511EFCC27EF175178C6887B43082C1354
 ```
 
 https://mybot314.ru/tekegram_catalog/

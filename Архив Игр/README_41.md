@@ -6,7 +6,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530143.jpg" />
+  <img src="Z:/picture/008/save_picture_530143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Legends of Pegasus [En] (RePack/1.0) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530135.jpg" />
+  <img src="Z:/picture/008/save_picture_530135.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ We Happy Few (2016) [En/Fr] (29664) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530099.jpg" />
+  <img src="Z:/picture/008/save_picture_530099.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Brutal Legend (2013) [Multi] (1.0) SteamRip R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529811.jpg" />
+  <img src="Z:/picture/008/save_picture_529811.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) RePack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529805.jpg" />
+  <img src="Z:/picture/008/save_picture_529805.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Dungeons 2 (2015) [Ru/Multi] (1.4.0.206-d5e6057e6b93/upd 4/dlc) Repack R.G. Ме
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529325.jpg" />
+  <img src="Z:/picture/008/save_picture_529325.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Нов
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529046.jpg" />
+  <img src="Z:/picture/008/save_picture_529046.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ SimplePlanes (2015) [En] (1.5.3.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527041.jpg" />
+  <img src="Z:/picture/008/save_picture_527041.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526862.jpg" />
+  <img src="Z:/picture/008/save_picture_526862.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.00.19037/dlc) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525118.jpg" />
+  <img src="Z:/picture/008/save_picture_525118.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ We Happy Few (2018) [Ru/Multi] (1.1.69866) Repack Covfefe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523473.jpg" />
+  <img src="Z:/picture/008/save_picture_523473.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.05/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523433.jpg" />
+  <img src="Z:/picture/008/save_picture_523433.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ BRAWL (2015) [En/Multi] License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523036.jpg" />
+  <img src="Z:/picture/008/save_picture_523036.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ CASE 2: Animatronics Survival (2018) [Ru/Multi] (0.21) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521995.jpg" />
+  <img src="Z:/picture/008/save_picture_521995.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Total War: THREE KINGDOMS (2019) [Ru] (1.1.0/dlc) SteamRip InsaneRamZes
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521986.jpg" />
+  <img src="Z:/picture/008/save_picture_521986.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Earth Seeker [Wii] [NTSC-J] [JAP] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521929.jpg" />
+  <img src="Z:/picture/008/save_picture_521929.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Rocket League (2015) [En/Multi] (1.05) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521261.jpg" />
+  <img src="Z:/picture/008/save_picture_521261.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Long Dark (2014) [Ru/Multi] (v.257 Sandbox Alpha) Repack SALAT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521244.jpg" />
+  <img src="Z:/picture/008/save_picture_521244.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Borderlands: Game of the Year Edition [En/Multi5] (L/Steam-Rip/1.4.2.4) 2010 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520721.jpg" />
+  <img src="Z:/picture/008/save_picture_520721.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520694.jpg" />
+  <img src="Z:/picture/008/save_picture_520694.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Exanima (2015) [En] (0.7.0.6d) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519885.jpg" />
+  <img src="Z:/picture/008/save_picture_519885.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Gauntlet (2014) [Ru/En] (2.1/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519245.jpg" />
+  <img src="Z:/picture/008/save_picture_519245.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Middle-earth: Shadow of Mordor / Средиземье: Тени Мордора (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519133.jpg" />
+  <img src="Z:/picture/008/save_picture_519133.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Trine Collection [Ru/En/Multi12] (L/Steam-Rip) 2009-2011 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518982.jpg" />
+  <img src="Z:/picture/008/save_picture_518982.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Orcs Must Die! 2 [Ru] (RePack/1.0.0.264/DLC) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518808.jpg" />
+  <img src="Z:/picture/008/save_picture_518808.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack/1.00.2) 2012 | R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518741.jpg" />
+  <img src="Z:/picture/008/save_picture_518741.jpg" />
 </div>
 
 

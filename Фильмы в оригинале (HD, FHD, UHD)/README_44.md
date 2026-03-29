@@ -1,3 +1,107 @@
+###  Публикация: 953881   (346088) от 05.11.2015
+
+Человек-муравей / Ant-Man  (2015) WEBRip [H.264/1080p-LQ] [EN]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: США, Marvel Studios, Big Talk Productions and Marvel Enterprises.Жанр: фантастика, боевик, комедия, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди Грир, Энтони Маки, Вуд ХаррисПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E205BD7AAFF582CA4E2F54C667F469AFED96403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578497   (345521) от 23.09.2022
+
+Лу / Lou (2022) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время бури похищена маленькая девочка. Чтобы ее найти, загадочная и нелюдимая соседка расстается со спокойной жизнью и выходит на сражение со стихией и своим темным прошлым.Производство: США / Bad RobotЖанр: боевик, криминалРежиссер: Анна ФерстерАктеры: Джерни Смоллетт, Логан Маршалл-Грин, Эллисон Дженни, Марси Т. Хаус, Грейстон Холт, Jaycie Dotin, Мэтт Крэйвен, Тоби Левинс, Ридли Аша Бейтман, Роман МитичянПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH) и др.Продолжительность: 01:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483EE0A07701E18B4AA209B2D0A9B073CAFEEB01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257541   (345194) от 26.10.2018
+
+Тёмные отражения / The Darkest Minds  (2018) BDRemux [H.264/1080p] [EN / EN and other Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345194.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как неизвестная болезнь убивает 98% американских детей, 2% выживших, у которых обнаруживаются суперспособности, отправляют в специальные лагеря. 16-летняя девушка сбегает из такого лагеря и присоединяется к группе других подростков, которые скрываются от правительства.Производство: США / 21 Laps EntertainmentЖанр: фантастика, триллерРежиссер: Дженнифер ЮАктеры: Амандла Стенберг, Мэнди Мур, Брэдли Уитфорд, Харрис Дикинсон, Патрик Гибсон, Скайлан Брукс, Мия Чех, Гвендолин Кристи, Уэйд Уильямс, Марк О’Брайэн, Уоллес Лэнгэм, Голден БруксПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английский, Арабский, Болгарский , Китайский, Хорватский, Чешский, Французский, Греческий, Иврит, Хинди, Венгерский, Исландский, Корейский, Малайский, Польский, Португальский, Румынский, Испанский, Сербский, Словацкий, Словенский, Тайский, ТурецкийПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35ED86F5A18C101D740B2E4A24DBEAB7CC5CA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257349   (344735) от 26.10.2018
+
+Шпион, который меня кинул / The Spy Who Dumped Me  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одри и Морган, лучшие подруги из Лос-Анджелеса, неожиданно оказываются в эпицентре международного заговора, когда бывший Одри заявляется к ней с толпой идущих по следу кровожадных убийц. Удивляясь сами себе, девушки берутся за нелегкое дело спасения мира. Их ждет полная опасностей - и киллеров - шпионская гонка по всей Европе, где на пути им встречается очень подозрительный, (   Читать дальше...   )Производство: США, Канада / BRON Studios, Imagine Entertainment, Lionsgate, Studio Babelsberg Motion PicturesЖанр: боевик, комедия, приключенияРежиссер: Сюзанна ФогельАктеры: Мила Кунис, Кейт МакКиннон, Сэм Хьюэн, Джастин Теру, Джиллиан Андерсон, Хасан Минхадж, Иванна Сахно, Фред Меламед, Бланка Дьёрфи-Тот, Вильма Сечи, Лолли Адефоп, Дастин Демри-БёрнсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A4D550DC11443B64CD4AE2D08B6517010E63FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073243   (344487) от 16.11.2016
 
 Сноуден / Snowden (2016) WEB-DL [H.264/1080p-LQ] [EN]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344487.jpg" />
+  <img src="Z:/picture/008/save_picture_344487.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343386.jpg" />
+  <img src="Z:/picture/008/save_picture_343386.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342933.jpg" />
+  <img src="Z:/picture/008/save_picture_342933.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342924.jpg" />
+  <img src="Z:/picture/008/save_picture_342924.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342664.jpg" />
+  <img src="Z:/picture/008/save_picture_342664.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341828.jpg" />
+  <img src="Z:/picture/008/save_picture_341828.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341671.jpg" />
+  <img src="Z:/picture/008/save_picture_341671.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341620.jpg" />
+  <img src="Z:/picture/008/save_picture_341620.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339280.jpg" />
+  <img src="Z:/picture/008/save_picture_339280.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338337.jpg" />
+  <img src="Z:/picture/008/save_picture_338337.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338336.jpg" />
+  <img src="Z:/picture/008/save_picture_338336.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338239.jpg" />
+  <img src="Z:/picture/008/save_picture_338239.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337024.jpg" />
+  <img src="Z:/picture/008/save_picture_337024.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335994.jpg" />
+  <img src="Z:/picture/008/save_picture_335994.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334941.jpg" />
+  <img src="Z:/picture/008/save_picture_334941.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334769.jpg" />
+  <img src="Z:/picture/008/save_picture_334769.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334116.jpg" />
+  <img src="Z:/picture/008/save_picture_334116.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334058.jpg" />
+  <img src="Z:/picture/008/save_picture_334058.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332404.jpg" />
+  <img src="Z:/picture/008/save_picture_332404.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330972.jpg" />
+  <img src="Z:/picture/008/save_picture_330972.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326524.jpg" />
+  <img src="Z:/picture/008/save_picture_326524.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326463.jpg" />
+  <img src="Z:/picture/008/save_picture_326463.jpg" />
 </div>
 
 
@@ -564,112 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:051FD6567FAC9A51332E6F88596740C4EDC51446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958032   (325550) от 19.11.2015
-
-Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США / TSG Entertainment, Temple Hill Entertainment, Gotham Group, TheЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ки Хонг Ли, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F32C9351E7424AD36ACBBB0F5C3A9312A18F542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582016   (325284) от 07.10.2022
-
-Джиперс Криперс: Возрожденный / Jeepers Creepers: Reborn (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Решив отправиться со своим парнем на Horror Hound Festival, Лейн не испытывает радости. По мере приближения события девушку начинают мучить предчувствия и тревожные видения. В разгар фестиваля Лейн уже уверена, что происходит нечто сверхъестественное, и она находится в эпицентре ужасающего события.Производство: Великобритания, Финляндия, США / Screen Media, Black Hangar Studios , Orwo StudiosЖанр: ужасыРежиссер: Тимо ВуоренсолаАктеры: Сидни Крейвен, Имран Адамс, Питер Брук, Жарро Бенжамен, Оушен Наварро, Ди Уоллес-Стоун, Гэри Грэм, Мэтт Баркли, Джорджия Гудман, Александр ХэлсэллПеревод: отсутствуетСубтитры: английские (full, SDH)Продолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A289188ADF84109C1625C621D559624C55989282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958113   (324709) от 20.11.2015
-
-Перевозчик: Наследие / The Transporter Refueled  (2015) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Мартин - самый высококвалифицированный перевозчик, которого только можно нанять за деньги. Ставки выше, технологии поднялись на более высокий уровень, но правила те же: никогда не изменять условия сделки, никаких имен и никогда не открывать груз.
-Когда Фрэнка нанимает хитроумная красотка Анна и ее три очаровательные сообщницы, он быстро выясняет, что его водят (   Читать дальше...   )Производство: Франция, Китай, Бельгия, Belga Films, Canal+, Cine, EuropaCorp, Fundamental Films, Orange Cinema Series, Tele Monte Carlo (TMC), TF1, TF1 Films ProductionЖанр: боевик, триллер, криминалРежиссер: Камиль ДеламаррАктеры: Эд Скрейн, Рэй Стивенсон, Лоан Шабаноль, Габриэлла Райт, Татьяна Пайкович, Венься Ю, Радивойе Буквич, Ноэми Ленуар, Юрий Колокольников, Ленн Кудрявицки, Самир Гесми, Анатоль ТаубманПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D121C8C6BD8729B13066AD4558DAD45DAF88B692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958356   (324631) от 20.11.2015
-
-Перевозчик: Наследие / The Transporter Refueled  (2015) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Мартин - самый высококвалифицированный перевозчик, которого только можно нанять за деньги. Ставки выше, технологии поднялись на более высокий уровень, но правила те же: никогда не изменять условия сделки, никаких имен и никогда не открывать груз.
-Когда Фрэнка нанимает хитроумная красотка Анна и ее три очаровательные сообщницы, он быстро выясняет, что его водят (   Читать дальше...   )Производство: Франция, Китай, Бельгия, Belga Films, Canal+, Cine, EuropaCorp, Fundamental Films, Orange Cinema Series, Tele Monte Carlo (TMC), TF1, TF1 Films ProductionЖанр: боевик, триллер, криминалРежиссер: Камиль ДеламаррАктеры: Эд Скрейн, Рэй Стивенсон, Лоан Шабаноль, Габриэлла Райт, Татьяна Пайкович, Венься Ю, Радивойе Буквич, Ноэми Ленуар, Юрий Колокольников, Ленн Кудрявицки, Самир Гесми, Анатоль ТаубманПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937A76EF050693A0F19EC90C4AC6DA79F0644314
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ iTubeDownloader 6.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791062.jpg" />
+  <img src="Z:/picture/008/save_picture_791062.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Artstudio Pro 3.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790868.jpg" />
+  <img src="Z:/picture/008/save_picture_790868.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ ToothFairy 2.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790867.jpg" />
+  <img src="Z:/picture/008/save_picture_790867.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ NXPowerLite Desktop 9 v9.1.0 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790864.jpg" />
+  <img src="Z:/picture/008/save_picture_790864.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Boom 2 v1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790859.jpg" />
+  <img src="Z:/picture/008/save_picture_790859.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ SSDReporter 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790832.jpg" />
+  <img src="Z:/picture/008/save_picture_790832.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Typeface Pro 3 v3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790814.jpg" />
+  <img src="Z:/picture/008/save_picture_790814.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Cockos REAPER 6.42 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790812.jpg" />
+  <img src="Z:/picture/008/save_picture_790812.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Picture Instruments Preset Converter Pro 1.1.0 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790806.jpg" />
+  <img src="Z:/picture/008/save_picture_790806.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Stats 2.6.19 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790801.jpg" />
+  <img src="Z:/picture/008/save_picture_790801.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Wondershare Recoverit 10.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790766.jpg" />
+  <img src="Z:/picture/008/save_picture_790766.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft Office LTSC for Mac 2021 v16.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790707.jpg" />
+  <img src="Z:/picture/008/save_picture_790707.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ iA Writer 5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790683.jpg" />
+  <img src="Z:/picture/008/save_picture_790683.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ AnyMP4 Data Recovery 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790679.jpg" />
+  <img src="Z:/picture/008/save_picture_790679.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ SSH Config Editor Pro 1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790669.jpg" />
+  <img src="Z:/picture/008/save_picture_790669.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Carbon Copy Cloner 5 v5.1.18 (build 6009) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790665.jpg" />
+  <img src="Z:/picture/008/save_picture_790665.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Celemony Melodyne Studio 5 v5.0.1.003 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790653.jpg" />
+  <img src="Z:/picture/008/save_picture_790653.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ iMazing 2.11.6 (build 13688) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790624.jpg" />
+  <img src="Z:/picture/008/save_picture_790624.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Macgo Mac Blu-ray Player Pro 3.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790541.jpg" />
+  <img src="Z:/picture/008/save_picture_790541.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Renamer 5.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790514.jpg" />
+  <img src="Z:/picture/008/save_picture_790514.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ PullTube 0.11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790496.jpg" />
+  <img src="Z:/picture/008/save_picture_790496.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Wondershare Filmora 9.0.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790485.jpg" />
+  <img src="Z:/picture/008/save_picture_790485.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ LaunchBar 6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790483.jpg" />
+  <img src="Z:/picture/008/save_picture_790483.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Movavi Screen Recorder 5 v5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790417.jpg" />
+  <img src="Z:/picture/008/save_picture_790417.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Black Out 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790404.jpg" />
+  <img src="Z:/picture/008/save_picture_790404.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ URL Manager Pro 5.8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790403.jpg" />
+  <img src="Z:/picture/008/save_picture_790403.jpg" />
 </div>
 
 

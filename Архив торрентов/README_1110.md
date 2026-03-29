@@ -6,7 +6,7 @@ Yate 5 v5.1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795983.jpg" />
+  <img src="Z:/picture/008/save_picture_795983.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hype 4 Pro v4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795982.jpg" />
+  <img src="Z:/picture/008/save_picture_795982.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Path Finder 9.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795981.jpg" />
+  <img src="Z:/picture/008/save_picture_795981.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ TinkerTool System 6 v.689 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795974.jpg" />
+  <img src="Z:/picture/008/save_picture_795974.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Downie 4.0.12 (Build 4111) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795973.jpg" />
+  <img src="Z:/picture/008/save_picture_795973.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Smooze 1.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795972.jpg" />
+  <img src="Z:/picture/008/save_picture_795972.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ CrystalDiskInfo 6.8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795971.jpg" />
+  <img src="Z:/picture/008/save_picture_795971.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795961.jpg" />
+  <img src="Z:/picture/008/save_picture_795961.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795953.jpg" />
+  <img src="Z:/picture/008/save_picture_795953.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795947.jpg" />
+  <img src="Z:/picture/008/save_picture_795947.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795946.jpg" />
+  <img src="Z:/picture/008/save_picture_795946.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795939.jpg" />
+  <img src="Z:/picture/008/save_picture_795939.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Privacy Eraser Free 4.62.0 Build 3442 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795925.jpg" />
+  <img src="Z:/picture/008/save_picture_795925.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ultra Mood - AXA (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795924.jpg" />
+  <img src="Z:/picture/008/save_picture_795924.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Opera GX 68.0.3618.142 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795915.jpg" />
+  <img src="Z:/picture/008/save_picture_795915.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ IObit Smart Defrag Pro 6.5.5.102 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795913.jpg" />
+  <img src="Z:/picture/008/save_picture_795913.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795911.jpg" />
+  <img src="Z:/picture/008/save_picture_795911.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Slimjet 26.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795909.jpg" />
+  <img src="Z:/picture/008/save_picture_795909.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Q-Dir 8.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795908.jpg" />
+  <img src="Z:/picture/008/save_picture_795908.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ EASEUS Partition Master 11.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795905.jpg" />
+  <img src="Z:/picture/008/save_picture_795905.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Blackmagic Design Fusion Studio 8.0 Build 18 + Edit Connection Repack TeamVR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795901.jpg" />
+  <img src="Z:/picture/008/save_picture_795901.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795900.jpg" />
+  <img src="Z:/picture/008/save_picture_795900.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 Portable by PortableWare
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795899.jpg" />
+  <img src="Z:/picture/008/save_picture_795899.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ PTE AV Studio Pro 10.0.10 Build 8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795883.jpg" />
+  <img src="Z:/picture/008/save_picture_795883.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Rhinoceros 6 v6.26.20147 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795882.jpg" />
+  <img src="Z:/picture/008/save_picture_795882.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Celemony Melodyne Studio 5 v5.0.0.048 STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795878.jpg" />
+  <img src="Z:/picture/008/save_picture_795878.jpg" />
 </div>
 
 

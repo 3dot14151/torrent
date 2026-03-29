@@ -1,3 +1,81 @@
+###  Публикация: 1297419   (604018) от 22.04.2019
+
+Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clocker - игра-головоломка о ВРЕМЕНИ. В этой игре повествуется история между отцом и дочерью, используя технику двойных главных героев. Управляйте двумя отдельными персонажами по одному, и вы будете постепенно разгадаете головоломки, продвигаясь по временной шкале и находя приключения. В игре представлены уникальные временные механизмы, художественный рисованный (   Читать дальше...   )Тип издания: RepackРазработчик: Wild Kid GamesЖанр: Adventure, Puzzle, RPG, 2DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A24BBFCB79837267F14F7789FF1EF7C2D4C2BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231752   (603641) от 20.06.2018
+
+КГБ в смокинге (2009) [Ru] (1.0) License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая журналистка Катя Мальцева и подумать не могла, что окажется важным звеном в тщательно подготовленной операции КГБ. Несколько невероятных совпадений - и вот она уже в кабинете всемогущего Андропова! Личный разговор закончился весьма неожиданно. Девушка отправляется в невообразимо далёкие для советского человека страны по ту сторону "железного занавеса". (   Читать дальше...   )Тип издания: LicenseРазработчик: Madia EntertainmentЖанр: Adventure, Point-and-clickЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D5A702F9F5B21FEA8A79669B06B442200AD12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148948   (602801) от 08.07.2017
+
+Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - молодой и очень непредсказуемый парень по имени Бен, и вы необычный человек, ведь ваша работа - изгонять демонов из тех, кто подвергся их воздействию. Иначе говоря, вы есть экзорцист. Да, работа непростая и очень опасная, но к любой работе можно найти здравый подход и даже относиться к ней с юмором. Вас пригласили в один старинный особняк для того, чтобы расследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Wraith StudioЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000761   (602799) от 08.07.2017
 
 Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
@@ -6,7 +84,7 @@ Paws: Pitter (2016) [Ru/Multi] (1.2/dlc) License GOG [Patter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602799.jpg" />
+  <img src="Z:/picture/008/save_picture_602799.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tunnels of Despair (2018) [Ru/Multi] (1.06) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602695.jpg" />
+  <img src="Z:/picture/008/save_picture_602695.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Stanley Parable (2022) [Ru/Multi] (1.04) Repack Other s [Ultra Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602267.jpg" />
+  <img src="Z:/picture/008/save_picture_602267.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ SIMULACRA (2017) [En] (1.0.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602103.jpg" />
+  <img src="Z:/picture/008/save_picture_602103.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601557.jpg" />
+  <img src="Z:/picture/008/save_picture_601557.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601555.jpg" />
+  <img src="Z:/picture/008/save_picture_601555.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ VALKYRIE DRIVE -BHIKKHUNI- (2017) [En/Jp] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600893.jpg" />
+  <img src="Z:/picture/008/save_picture_600893.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Reflecting Fate (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599560.jpg" />
+  <img src="Z:/picture/008/save_picture_599560.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Eyes of Ara (2016) [En] (1.0.01) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595596.jpg" />
+  <img src="Z:/picture/008/save_picture_595596.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Eyes of Ara (2016) [En] (1.0.01) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595591.jpg" />
+  <img src="Z:/picture/008/save_picture_595591.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Captain Morgane And The Golden Turtle [Multi5/+] (RePack) 2012 l Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595321.jpg" />
+  <img src="Z:/picture/008/save_picture_595321.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Rising Islands (2016) [Ru/Multi] (1.010) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594201.jpg" />
+  <img src="Z:/picture/008/save_picture_594201.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Slap Village (2016) [En/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594155.jpg" />
+  <img src="Z:/picture/008/save_picture_594155.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Slap Village (2016) [En/Multi] (1.0) Repack Other s [Chapter 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594115.jpg" />
+  <img src="Z:/picture/008/save_picture_594115.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Close to the Sun (2019) [Ru/Multi] (108) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593442.jpg" />
+  <img src="Z:/picture/008/save_picture_593442.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ AER Memories of Old (2017) [Ru/Multi] (1.0.4.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592830.jpg" />
+  <img src="Z:/picture/008/save_picture_592830.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Layers of Fear: Inheritance (2016) [Ru/Multi] (1.1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588093.jpg" />
+  <img src="Z:/picture/008/save_picture_588093.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Subject (2018) [En] (2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587899.jpg" />
+  <img src="Z:/picture/008/save_picture_587899.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Lorelai (2019) [En] (1.0.4/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587838.jpg" />
+  <img src="Z:/picture/008/save_picture_587838.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Pneuma: Breath of Life (2015) [Ru] (1.0.0.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587613.jpg" />
+  <img src="Z:/picture/008/save_picture_587613.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Half Dead (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587118.jpg" />
+  <img src="Z:/picture/008/save_picture_587118.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Near Death (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587067.jpg" />
+  <img src="Z:/picture/008/save_picture_587067.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ AR-K: The Great Escape (2015) [En/Sp] License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585592.jpg" />
+  <img src="Z:/picture/008/save_picture_585592.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ AR-K: The Great Escape (2015) [En/Sp] License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF48C3326722500F2457AEA56D4F2B53938B6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533185   (585519) от 22.05.2022
-
-Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шерлок Холмс, ещё не величайший в мире сыщик, а дерзкий и сообразительный юнец с большими амбициями. Возможность проявить себя появляется, когда старая рана вынуждает Холмса вернуться на берега Средиземного моря, где умерла его мать. Но за беспечным шумом городских улиц звучит тревожный мотив. Преступность, коррупция, извращённое чувство справедливости - лишь некоторые (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Головоломка, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353C27456D5B11A8121C83D24DDF9C41B0792142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301462   (585027) от 11.05.2019
-
-The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркий свет прорезает ночное небо. Ветер бушует за тонкими стенами вашей деревянной хижины. Вдалеке воет волк. Оглядев скудные запасы в рюкзаке, вы со вздохом вспоминаете дни до таинственного отключения электричества. Сколько еще вы сможете выжить? Встречайте The Long Dark с ее новым взглядом на выживание и исследование - то, что Wired magazine назвал «вишенка на (   Читать дальше...   )Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75A8847155ECE4A46104EEC93CD715C11CFCBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246445   (584910) от 11.05.2019
-
-The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B284224A06DA0C74875A538BF531A0D37754BED6
 ```
 
 https://mybot314.ru/tekegram_catalog/

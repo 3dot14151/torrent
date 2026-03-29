@@ -1,3 +1,81 @@
+###  Публикация: 1690681   (123849) от 08.01.2024
+
+About a Boy (2023) [En] (1.01) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123849.jpg" />
+</div>
+
+
+###  Подробнее
+
+About a Boy – приключенческий квест с набором головоломок "укажи и щелкни", который перенесет вас в мрачное будущем. История игры вращается вокруг маленького мальчика, которому суждено исследовать темный и пустынный город, лишенный человеческой жизни, какой мы ее знаем. Действие игры происходит в далеком будущем и представляет мир, в котором человечество (   Читать дальше...   )Тип издания: LicenseРазработчик: Return 0 Game StudioЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F35C8FAA8BD3607397FE602F4AB752B6229376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690614   (123845) от 08.01.2024
+
+The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [Multi] (1.02/dlc) License GOG [18+]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123845.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ditzy Demons Are in Love With Me – двухмерная визуальная новелла, выполненная в японском стиле, что отображено в внешности персонажей, и в общей стилистике окружающих пейзажей. Проект представляет собой симулятор свиданий с разнообразными девушками, каждую из них объединяет то, что они милейшие демонические существа самых разных рас. Протагонистом, от лица которого (   Читать дальше...   )Тип издания: LicenseРазработчик: SMILEЖанр: Симулятор, Визуальные новеллыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BA709C3BCB389A5080FA665C62B9F4B6FCC63C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690712   (123838) от 08.01.2024
+
+So Blonde (2008) [En] (1.0) Scene Reloaded
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блондинка в шоке. Бермудские страсти – это игра в жанре point-and-click adventure. На роль главной героини была выбрана Санни Блонд. Она вобрала в себя все стереотипы про избалованных девушек из богатых семей. 17-летнюю барышню не беспокоит ничего кроме собственной внешности. Данная адвенчура также известна под названием So Blonde. По сюжету однажды папа и мама решили (   Читать дальше...   )Тип издания: SceneРазработчик: WizarboxЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691155   (123460) от 11.01.2024
 
 Aquarium (2023) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123460.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123337.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123234.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123232.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Retreat to Enen (2022) [En] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123011.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122666.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Progeria: Vae Victis (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122643.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Baldr Sky (2019) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122586.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Viewfinder (2023) [Ru/Multi] (20231024) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122282.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Source (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120878.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120701.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ A Night at the Watermill (2024) [Multi] (1.0.794) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120572.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120565.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Lil' Guardsman (2024) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120550.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120392.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120333.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120220.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120202.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119575.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119397.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Shards of Chaos (2024) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119394.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Boxes: Lost Fragments (2024) [Ru/Multi] (13337283) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119390.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Last Worker (2023) [Ru/Multi] (1.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119249.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Last Worker является атмосферным проектом, пре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551871   (119054) от 06.02.2024
-
-Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аманэ - обычная женщина, живущая в одном из крупнейших городов Японии, который с каждым днем ​​становится все опаснее. Люди исчезают, особенно молодые женщины, и, прежде чем она узнает об этом, она обнаруживает причину: их похищают опасные монстры, называемые чудовищами. Монстры нападают на нее однажды ночью по дороге домой, и как только она вот-вот встретит (   Читать дальше...   )Тип издания: LicenseРазработчик: Shimobashira WorkshopЖанр: Ролевая игра, Приключение, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697343   (118971) от 06.02.2024
-
-Not Another Weekend (2021) [Multi] (1.10) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Not Another Weekend - это приключенческая игра в формате point-and-click с забавным сюжетом и увлекательным геймплеем. Ваша работа крайне нестандартна, ведь в ваши обязанности входит зачистка отелей от… шумных гостей. Отправляйтесь на рабочее место и выполните свои обязательства весьма нестандартным образом, каждый раз ищя новый способ навести порядок и побороть (   Читать дальше...   )Тип издания: LicenseРазработчик: Animatic Vision, Dead Blue FriendsЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD64B8FCE28E832F41C49BBDF8AC99532A30F2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697537   (118866) от 07.02.2024
-
-Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бату, мучимый повторяющимися кошмарами о неизвестной деревне, обнаруживает, что его жизнь переворачивается с ног на голову из-за загадочного письма, оставленного у его двери однажды. В письме содержится мрачное сообщение: "Хотите освободиться от ваших кошмаров? Мы ждем вас...".Тип издания: RepackРазработчик: Batuhan Gündüz, Latif GüngörЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: ТурецкийЯзык субтитров: Русский, Турецкий, Английский, Французский и другиеЯзык интерфейса: Русский, Турецкий, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 ```
 
 https://mybot314.ru/tekegram_catalog/

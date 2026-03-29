@@ -1,3 +1,90 @@
+###  Публикация: 1295781   (617096) от 14.04.2019
+
+Hexis - XII (2017) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Derelictus (1:02)
+ 02. Nefarius (4:27)
+ 03. Famelicus (3:50)
+ 04. Miseria (2:05)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D5D007CA7E665E26F6F30E7930BD01EF237864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295782   (617094) от 14.04.2019
+
+Bastions - Verses (2012) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seagulls (1:07)
+ 02. Monument (2:25)
+ 03. We Will All Sink (2:14)
+ 04. Fathoms (1:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2396C7D4E8BCD4D5CAEA58924C0086F94DB68F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295778   (617091) от 14.04.2019
+
+36 Crazyfists - Lanterns (2017) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Eater (4:18)
+ 02. Wars to Walk Away From (3:44)
+ 03. Better to Burn (3:59)
+ 04. Damaged Under Sun (3:05)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCEAA68405E0755049FA1AFAF5DCFC09266BD7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295792   (617090) от 14.04.2019
 
 Sunn O))) - Life Metal (2019) [FLAC|Lossless|tracks + .cue] <Drone metal, Avant-garde>
@@ -6,7 +93,7 @@ Sunn O))) - Life Metal (2019) [FLAC|Lossless|tracks + .cue] <Drone metal, Avant-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617090.jpg" />
+  <img src="Z:/picture/008/save_picture_617090.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Desert Gatan - Mental War (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616723.jpg" />
+  <img src="Z:/picture/008/save_picture_616723.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Weedevil - The Return (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616719.jpg" />
+  <img src="Z:/picture/008/save_picture_616719.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Simple Lies - Millennial Zombies (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616715.jpg" />
+  <img src="Z:/picture/008/save_picture_616715.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616671.jpg" />
+  <img src="Z:/picture/008/save_picture_616671.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Golgotha Opera Metal - Los Enigmas de un Hombre en Su Muerte (2022) 2CD, Acto 1-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616660.jpg" />
+  <img src="Z:/picture/008/save_picture_616660.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Loudness - Best Of Loudness 8688 (2001) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616498.jpg" />
+  <img src="Z:/picture/008/save_picture_616498.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Far Beyond - Songs Of Hope And Sorrow (2009) EP [FLAC|Lossless|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615751.jpg" />
+  <img src="Z:/picture/008/save_picture_615751.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ The Embodied - The Embodied (2011) [FLAC|Lossless]<Modern Melodic Death/Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615497.jpg" />
+  <img src="Z:/picture/005/save_picture_615497.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Voidhammer - The Voidhammer (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615007.jpg" />
+  <img src="Z:/picture/008/save_picture_615007.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Unleash The Archers - Apex (2017) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614649.jpg" />
+  <img src="Z:/picture/008/save_picture_614649.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Wyvern - The Red Flame of Pain (1990) [FLAC|image+ cue]<Power/Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614593.jpg" />
+  <img src="Z:/picture/008/save_picture_614593.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ In The Woods... - Cease the Day (2018) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613581.jpg" />
+  <img src="Z:/picture/008/save_picture_613581.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Accuser - Taken By The Throat (1995) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613580.jpg" />
+  <img src="Z:/picture/008/save_picture_613580.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Burning Witches - Hexenhammer (2018) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613444.jpg" />
+  <img src="Z:/picture/008/save_picture_613444.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Cripper - Antagonist (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_613421.jpg" />
+  <img src="Z:/picture/005/save_picture_613421.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Rhapsody of Fire - The Eighth Mountain (2019) [FLAC|Lossless|tracks + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613382.jpg" />
+  <img src="Z:/picture/008/save_picture_613382.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Nocturnal Alliance - Death Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613177.jpg" />
+  <img src="Z:/picture/008/save_picture_613177.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Stainless Steel - Red Heat Within (2002) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612806.jpg" />
+  <img src="Z:/picture/008/save_picture_612806.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Pyramaze - Disciples Of The Sun (2015) [FLAC|Lossless]<Heavy Metal / Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612587.jpg" />
+  <img src="Z:/picture/008/save_picture_612587.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Periphery - Periphery (2010) Reissue 2012, 2CD [FLAC|Lossless|tracks+.cue]<Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612223.jpg" />
+  <img src="Z:/picture/008/save_picture_612223.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611682.jpg" />
+  <img src="Z:/picture/005/save_picture_611682.jpg" />
 </div>
 
 
@@ -651,7 +738,7 @@ Stalker - Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611241.jpg" />
+  <img src="Z:/picture/008/save_picture_611241.jpg" />
 </div>
 
 
@@ -665,99 +752,6 @@ Stalker - Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC81CEF1A267C56AA67E47E926DDC740090BC23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504978   (611121) от 02.08.2013
-
-Oomph! - Des Wahnsinns Fette Beute (Deluxe Edition) (2012) [FLAC|Lossless]<Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Unzerstorbar (3:41)
-02 – Zwei Schritte Vor (4:23)
-03 – Such Mich Find Mich (3:31)
-04 – Bis Der Spiegel Zerbricht (3:36)
-05 – Die Geister Die Ich Rief (3:06)
-06 – Bonobo (4:00)
-07 – Deine Eltern (4:03)
-08 – Kleinstadtboy (4:01)
-09 – Regen (4:14)
-10 – Kosmonaut (4:01)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912464   (610981) от 26.06.2015
-
-Scavanger - Between the Devil and the Sea (2011) [FLAC|image +cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Rebirth
-03. The Last Judgement
-04. Stalker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A770422030624572F27EBBF62229962DA2639A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912467   (610883) от 26.06.2015
-
-Reflection - The Fire Still Burns... (1999) [FLAC|image +cue]<Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn the Witch
-02. Reflection
-03. The Wings of Fate
-04. The Wheel of Fortune(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CDD9F901579139DE65C93A0F6862ADD747CA81
 ```
 
 https://mybot314.ru/tekegram_catalog/

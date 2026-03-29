@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776437.jpg" />
+  <img src="Z:/picture/008/save_picture_776437.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Beautiful Songs For You Vol.10 (2018) [MP3|320 Kbps] <Romantic Ballads>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776436.jpg" />
+  <img src="Z:/picture/008/save_picture_776436.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ MKV2MP4 1.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776433.jpg" />
+  <img src="Z:/picture/008/save_picture_776433.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Beautiful Songs For You Vol.11 (2018) [MP3|320 Kbps] <Romantic Ballads>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776424.jpg" />
+  <img src="Z:/picture/008/save_picture_776424.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Calibre 3.19.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776422.jpg" />
+  <img src="Z:/picture/008/save_picture_776422.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776420.jpg" />
+  <img src="Z:/picture/008/save_picture_776420.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776406.jpg" />
+  <img src="Z:/picture/008/save_picture_776406.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776397.jpg" />
+  <img src="Z:/picture/008/save_picture_776397.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Auslogics Registry Cleaner 7.0.5.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776393.jpg" />
+  <img src="Z:/picture/008/save_picture_776393.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ PDF Shaper Professional 8.2 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776389.jpg" />
+  <img src="Z:/picture/008/save_picture_776389.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776375.jpg" />
+  <img src="Z:/picture/008/save_picture_776375.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776360.jpg" />
+  <img src="Z:/picture/008/save_picture_776360.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ KeePass Password Safe 2.33 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776359.jpg" />
+  <img src="Z:/picture/008/save_picture_776359.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776357.jpg" />
+  <img src="Z:/picture/008/save_picture_776357.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Icecream PDF Split & Merge PRO 3.45 Portable by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776356.jpg" />
+  <img src="Z:/picture/008/save_picture_776356.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Sandboxie 5.24 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776352.jpg" />
+  <img src="Z:/picture/008/save_picture_776352.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776346.jpg" />
+  <img src="Z:/picture/008/save_picture_776346.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776345.jpg" />
+  <img src="Z:/picture/008/save_picture_776345.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.3.1) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776341.jpg" />
+  <img src="Z:/picture/008/save_picture_776341.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776340.jpg" />
+  <img src="Z:/picture/008/save_picture_776340.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Any Video Converter Professional 5.9.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776333.jpg" />
+  <img src="Z:/picture/008/save_picture_776333.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Greg Zaal | CG Masters - Character Creation Volume 3.5 Cycles Convert (2016) PCR
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776329.jpg" />
+  <img src="Z:/picture/008/save_picture_776329.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ iMazing 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776324.jpg" />
+  <img src="Z:/picture/008/save_picture_776324.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776313.jpg" />
+  <img src="Z:/picture/008/save_picture_776313.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Format Factory 4.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776308.jpg" />
+  <img src="Z:/picture/008/save_picture_776308.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ NETGATE Spy Emergency 21.0.105.0 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776294.jpg" />
+  <img src="Z:/picture/008/save_picture_776294.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1579160   (338402) от 26.09.2022
+
+PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) License
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гул трибун, мощные прожекторы, кричалки болельщиков... – всё это футбол, такой, какой он есть в реальности. Это бизнес, которым кто-то управляет. Не хочешь попробовать себя на этом поприще? Полный контроль над любимым футбольным клубом, разве ты не мечтал об этом с детства? Заключай контракты, покупай и продавай игроков, улучшай свой стадион, закупай оборудование (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaelco MultimediaЖанр: Спорт, СтратегииЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181260   (334768) от 06.11.2017
+
+NBA 2K18 (2017) [En] (1.0) License CODEX
+
+>>След.
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди симуляторов баскетбола, эта игра является самой технически современной, и альтернативы ей практически нет, не считая NBA от EA Sports, но тут уже чистая вкусовщина. На этот раз разработчики приготовили для поклонников баскетбола новую графику, улучшенную анимацию спортсменов, более естественные движения, новые приёмыТип издания: LicenseРазработчик: Visual ConceptsЖанр: Sport (Basketball), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732082A7F38B26DA6930C827FF40CB275D1914E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258692   (322541) от 09.10.2022
 
 Mutant Football League (2018) [En] (1.8.0/dlc) License GOG [Dynasty Edition]
@@ -6,7 +58,7 @@ Mutant Football League (2018) [En] (1.8.0/dlc) License GOG [Dynasty Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322541.jpg" />
+  <img src="Z:/picture/008/save_picture_322541.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Football Manager 2019 (2018) [Ru/Multi] (19.1.1/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311059.jpg" />
+  <img src="Z:/picture/008/save_picture_311059.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Football Manager 2019 (2018) [Ru/Multi] (19.1.1) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311057.jpg" />
+  <img src="Z:/picture/008/save_picture_311057.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309010.jpg" />
+  <img src="Z:/picture/008/save_picture_309010.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Handball 16 (2015) [Multi] (1.0.0.2) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306653.jpg" />
+  <img src="Z:/picture/008/save_picture_306653.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ NBA 2K15 (2014) [En/Ml] (1.0/u2) Repack R.G. Games
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285808.jpg" />
+  <img src="Z:/picture/008/save_picture_285808.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pro Evolution Soccer 2019 (2018) [Ru/Multi] (1.0) License CPY
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276074.jpg" />
+  <img src="Z:/picture/008/save_picture_276074.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ NBA 2K19 (2018) [Multi] (1.05) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276066.jpg" />
+  <img src="Z:/picture/008/save_picture_276066.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Pro Evolution Soccer 2019 (2018) [Ru/En] (1.02.00) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275936.jpg" />
+  <img src="Z:/picture/008/save_picture_275936.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275426.jpg" />
+  <img src="Z:/picture/008/save_picture_275426.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273991.jpg" />
+  <img src="Z:/picture/008/save_picture_273991.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273100.jpg" />
+  <img src="Z:/picture/008/save_picture_273100.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.2.0.0/dlc) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261549.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.3.101.1763.0303/dlc) Repack F
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260077.jpg" />
+  <img src="Z:/picture/005/save_picture_260077.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256395.jpg" />
+  <img src="Z:/picture/005/save_picture_256395.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Zaccaria Pinball (2016) [Ru/Multi] (1.0/dlc) Repack FitGirl [Platinum Pack]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255924.jpg" />
+  <img src="Z:/picture/005/save_picture_255924.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack Let'sРlay
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252292.jpg" />
+  <img src="Z:/picture/004/save_picture_252292.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Tour de France 2023 (2023) [Multi] (1.00.04.703) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247695.jpg" />
+  <img src="Z:/picture/004/save_picture_247695.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223662.jpg" />
+  <img src="Z:/picture/005/save_picture_223662.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Cabela's Big Game Hunter: Pro Hunts (2014) [En] (1.0) License RELOADED
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219640.jpg" />
+  <img src="Z:/picture/005/save_picture_219640.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Cabela's Hunting Expeditions (2012) [En] (1.00 Hotfix) License SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217958.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Cabela's Big Game Hunter (2008) [En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215890.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Cabela's Outdoor Adventures (2009) [Ru/En] (1.0) Unofficial
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215707.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211583.jpg" />
+  <img src="Z:/picture/005/save_picture_211583.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B294577C84DC94E54EBC66965961BB288AF9FA1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643468   (210124) от 01.07.2023
-
-theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210124.jpg" />
-</div>
-
-
-###  Подробнее
-
-theHunter: Call of the Wild – наиболее реалистичный на сегодняшний день симулятор охоты. Окунитесь в яркий мир дикой природы и познакомьтесь с его многочисленными обитателями: от изящных оленей до внушительных зубров, от бесчисленных птичьих стай до мелких лесных букашек.Тип издания: SceneРазработчик: Expansive WorldsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC00276500C866CEE81FA8EBA1ED96F9E6EEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637801   (207113) от 05.08.2023
-
-Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tennis Manager 2023 - это проработанный спортивный симулятор, где вы не просто возглавите собственную академию теннисистов, но и будете нести ответственность за свою команду не только на корте, но и за его пределами. Возьмите на себя ответственность и пройдите путь от начинающего тренера до менеджера №1 о чьем величии знает весь мир. С умом формирует группы спортсменов, (   Читать дальше...   )Тип издания: LicenseРазработчик: Rebound CGЖанр: Спорт, Симулятор, МенеджментЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

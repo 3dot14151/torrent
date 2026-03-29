@@ -1,3 +1,55 @@
+###  Публикация: 1507319   (798330) от 04.11.2021
+
+Microsoft Windows 10 Enterprise LTSC 2019 Release by StartSoft 06-07-08 2021 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры Windows 10 Enterprise LTSС 2019 с архитектурой разрядности x64 bit. В ее состав входят три загрузочных образа ISO, два из которых предназначены для записи на флешку размером от 8 Гигабайт, а один на флешку размером от 16 Гигабайт и выше. Установочные файлы дистрибутива содержимого загрузочной флешки, любого из образов, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31C89BBEA2A71094102C5D562705C9B6F0C88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122938   (792998) от 06.04.2017
+
+Microsoft Windows 10 Multiple Editions 10.0.15063.0 Version 1703 (Updated March 2017) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6989E9E1EABF7D86CF7D9653C160C8D43DB082D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274582   (792000) от 08.01.2019
 
 Windows 8.1 with Bing (SL, Core, Pro) Dallas_page 6.3.9600.17031.AMD64FRE.WINBLUE_GDR.140221-1952 [Ru]
@@ -6,7 +58,7 @@ Windows 8.1 with Bing (SL, Core, Pro) Dallas_page 6.3.9600.17031.AMD64FRE.WINBLU
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792000.jpg" />
+  <img src="Z:/picture/008/save_picture_792000.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791251.jpg" />
+  <img src="Z:/picture/008/save_picture_791251.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791228.jpg" />
+  <img src="Z:/picture/008/save_picture_791228.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790770.jpg" />
+  <img src="Z:/picture/008/save_picture_790770.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790763.jpg" />
+  <img src="Z:/picture/008/save_picture_790763.jpg" />
 </div>
 
 
@@ -146,7 +198,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790742.jpg" />
+  <img src="Z:/picture/008/save_picture_790742.jpg" />
 </div>
 
 
@@ -175,7 +227,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790733.jpg" />
+  <img src="Z:/picture/008/save_picture_790733.jpg" />
 </div>
 
 
@@ -204,7 +256,7 @@ Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790730.jpg" />
+  <img src="Z:/picture/008/save_picture_790730.jpg" />
 </div>
 
 
@@ -230,7 +282,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790729.jpg" />
+  <img src="Z:/picture/008/save_picture_790729.jpg" />
 </div>
 
 
@@ -259,7 +311,7 @@ Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790718.jpg" />
+  <img src="Z:/picture/008/save_picture_790718.jpg" />
 </div>
 
 
@@ -285,7 +337,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790716.jpg" />
+  <img src="Z:/picture/008/save_picture_790716.jpg" />
 </div>
 
 
@@ -311,7 +363,7 @@ Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные о�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790705.jpg" />
+  <img src="Z:/picture/008/save_picture_790705.jpg" />
 </div>
 
 
@@ -337,7 +389,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22000.318] (Updated November 2021) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790699.jpg" />
+  <img src="Z:/picture/008/save_picture_790699.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_790697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790697.jpg" />
 </div>
 
 
@@ -392,7 +444,7 @@ Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790693.jpg" />
+  <img src="Z:/picture/008/save_picture_790693.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790689.jpg" />
+  <img src="Z:/picture/008/save_picture_790689.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790106.jpg" />
+  <img src="Z:/picture/008/save_picture_790106.jpg" />
 </div>
 
 
@@ -471,7 +523,7 @@ Microsoft Windows 10.0.17763.253 Version 1809 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786921.jpg" />
+  <img src="Z:/picture/008/save_picture_786921.jpg" />
 </div>
 
 
@@ -499,7 +551,7 @@ Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786919.jpg" />
+  <img src="Z:/picture/008/save_picture_786919.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786902.jpg" />
+  <img src="Z:/picture/008/save_picture_786902.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ Microsoft Windows 10 Enterprise 10.0.15063.0 Version 1703 (Updated March 2017) -
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786417.jpg" />
+  <img src="Z:/picture/008/save_picture_786417.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Microsoft Windows 10 Education 10.0.15063.0 Version 1703 (Updated March 2017) - 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786246.jpg" />
+  <img src="Z:/picture/008/save_picture_786246.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Microsoft Windows 10 Home Single Language 10.0.15063.0 Version 1703 (Updated Mar
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786234.jpg" />
+  <img src="Z:/picture/008/save_picture_786234.jpg" />
 </div>
 
 
@@ -633,7 +685,7 @@ Microsoft Windows 10.0.17763.1282 Version 1809 (June 2020 Update) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782234.jpg" />
 </div>
 
 
@@ -645,60 +697,6 @@ Microsoft Windows 10.0.17763.1282 Version 1809 (June 2020 Update) - Оригин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49CC19DEE4468DD43E199546CE1D71C2576F8653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390743   (782233) от 17.06.2020
-
-Microsoft Windows 10.0.18362.900 Version 1903 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.900.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37331C9BC5A9BB72ED2FCCC01288125D1B8141F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390745   (782227) от 17.06.2020
-
-Microsoft Windows 10.0.18363.900 Version 1909 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.900.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA5A8C4D70FE503D1E8BBA49E159A13C9CBFBDCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

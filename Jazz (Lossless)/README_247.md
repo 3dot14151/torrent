@@ -1,3 +1,119 @@
+###  Публикация: 1119640   (241305) от 29.03.2017
+
+Dave Brubeck Quartet - Complete 1958 Berlin Concert (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241305.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Duke
+2. Take the "A" Train
+3. Two Part Contention
+4. One Moment Worth Years(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EE919D8451165A0D0F829A0D58A4C53DE6DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630332   (241302) от 30.04.2023
+
+Michael Davis - Hip-Bone Big Band (2016) Hip-Bone Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butter Ball [5:27]
+02. Zaq Attack [5:20]
+03. Zona [7:00]
+04. Walk Like the Guv [6:52](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E836F7A6086767D1836CCC7DB48CB793489833ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630329   (241294) от 30.04.2023
+
+Cedar Walton, Ron Carter, Billy Higgins - Sweet Basil Trio: My Funny Valentine (1991) 1995, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [15:40]
+02. Just in Time [11:35]
+03. Detour Ahead [10:03]
+04. Memories of You [8:48](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3A6F3F7166F2EB2B728115619C0A2E2C5D91BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625971   (241278) от 12.04.2023
+
+VA - Best of Winter Relaxing Warm Jazzy Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. eJazz Artistry -- Fantasy (5:00)
+02. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
+03. Konstantin Klashtorni -- Irresistible (4:13)
+04. Konstantin Klashtorni -- Humble and Kind (4:07)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691BA74D6BF65033410FF9FF82CB8960B4594B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386699   (241277) от 30.05.2020
 
 The Jazz Renegades - A Summer To Remember (1988) Re-Elect the President [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -6,7 +122,7 @@ The Jazz Renegades - A Summer To Remember (1988) Re-Elect the President [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241277.jpg" />
+  <img src="Z:/picture/004/save_picture_241277.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ornette Coleman - Blue Note Best Jazz Collection, Vol. 32 (2013) EMI Music Japan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241274.jpg" />
+  <img src="Z:/picture/004/save_picture_241274.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Barney Kessel, Shelly Manne, Ray Brown - The Poll Winners (1957) 1986, Contempor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241270.jpg" />
+  <img src="Z:/picture/004/save_picture_241270.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Eric Dolphy - Blue Note Best Jazz Collection, Vol. 59 (2014) EMI Music Japan [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241265.jpg" />
+  <img src="Z:/picture/004/save_picture_241265.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Paul Motian - On Broadway, Vol. 3 (1991) 2004, Winter & Winter [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241259.jpg" />
+  <img src="Z:/picture/004/save_picture_241259.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Easy Going Light Jazz Instrumentals to Chill and Relax (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241236.jpg" />
+  <img src="Z:/picture/004/save_picture_241236.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Michael Davis & Bill Reichenbach - Bonetown (1999) Hip-Bone Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241229.jpg" />
+  <img src="Z:/picture/004/save_picture_241229.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Cleo Laine - Portrait Of A Song Stylist (1989) The Harmony Collection [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241224.jpg" />
+  <img src="Z:/picture/004/save_picture_241224.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Sensual Rhythm and Romance Jazzy Chilly Instrumentals (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241207.jpg" />
+  <img src="Z:/picture/004/save_picture_241207.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Red Norvo - Wigwammin' (1938) 1996, Hep Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241204.jpg" />
+  <img src="Z:/picture/004/save_picture_241204.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Jazz: i grandi classici (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241200.jpg" />
+  <img src="Z:/picture/004/save_picture_241200.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Armin Marmolejo - Boarding Pass (1994) 1997, Igmod [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241195.jpg" />
+  <img src="Z:/picture/004/save_picture_241195.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Red Nichols - Wail Of The Winds (1939 - 1940) 1998, Hep Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241184.jpg" />
+  <img src="Z:/picture/004/save_picture_241184.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ McCoy Tyner - Best Of Big Band (1991, 1993) 2002, Dreyfus Jazz [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241169.jpg" />
+  <img src="Z:/picture/004/save_picture_241169.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ McCoy Tyner - Supertrios (1977) 1989, Milestone [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241149.jpg" />
+  <img src="Z:/picture/004/save_picture_241149.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Best of Romantic Chilly Smooth Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241139.jpg" />
+  <img src="Z:/picture/004/save_picture_241139.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Dave Brubeck - The Very Best (2000) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241137.jpg" />
+  <img src="Z:/picture/004/save_picture_241137.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Fugu Quintet - Interweavement (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241076.jpg" />
+  <img src="Z:/picture/004/save_picture_241076.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nat King Cole - BD Jazz (1940 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240983.jpg" />
+  <img src="Z:/picture/004/save_picture_240983.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Albert Ayler - The First Recordings, Vol. 2 (1962) 1990, DIW [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240978.jpg" />
+  <img src="Z:/picture/004/save_picture_240978.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Johnny Hodges - The Best Of The Verve Years (1959 - 1964) 4CD, 2019, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240796.jpg" />
+  <img src="Z:/picture/004/save_picture_240796.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bennie Moten - Band Box Shuffle (1929 - 1932) 2CD, 2000, Hep Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240792.jpg" />
+  <img src="Z:/picture/004/save_picture_240792.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B1B832DBA2504C8ED4A8C6BD2A7DCF6A82D8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636451   (240781) от 30.05.2023
-
-Keiko Lee - Sings Super Standards (2002) Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way [5:01]
-02. Sentimental Journey [4:33]
-03. Quiet Nights of Quiet Stars (Corcovado) [5:23]
-04. Tea for Two [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CAB535B07B7996C28240725B815B8E5F98127A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625900   (240754) от 12.04.2023
-
-Jay Migliori - Smile (1996) Cexton Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile [4:52]
-02. Bluesology [6:46]
-03. Lunatic Waltz [10:26]
-04. Bad Girl [4:35](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05FA97072A9C73E20A8E5CD76AE40FA4EAC6EF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406883   (240722) от 05.09.2020
-
-Tony Coe, Gerard Presencer, Brian Lemon, Dave Green - Dreams (2001) Zephyr Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrap Your Troubles in Dreams [5:28]
-02. Ghost of a Chance [6:13]
-03. It Had to Be You [4:00]
-04. Don't Blame Me [5:12](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, CoolПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0463E41FECAD5723B620C7E40DE6DF04FA4E676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406889   (240701) от 05.09.2020
-
-Tony Coe & Roger Kellaway - British-American Blue (1978) 2000, Between the Lines [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carona Glass and Lady Maggie [4:09]
-02. Friend in the Mirror [2:37]
-03. The Caverns of Volere [4:49]
-04. Conversations with Sparza [4:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Contemporary JazzПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3716AD1216B0269789ED8B93267E01B95DADF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

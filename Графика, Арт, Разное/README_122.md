@@ -1,3 +1,29 @@
+###  Публикация: 1263541   (287809) от 19.11.2018
+
+Обои - Ultra HD 3840x2160 Wallpaper Pack 356 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287809.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9FBEB81F1D34D1A737B246A1627ED40713E356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186314   (287615) от 24.11.2017
 
 Картинки - Сборник разнообразных обоев HD #136 [JPG, PNG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287615.jpg" />
+  <img src="Z:/picture/008/save_picture_287615.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287323.jpg" />
+  <img src="Z:/picture/008/save_picture_287323.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287316.jpg" />
+  <img src="Z:/picture/008/save_picture_287316.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287315.jpg" />
+  <img src="Z:/picture/008/save_picture_287315.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287136.jpg" />
+  <img src="Z:/picture/008/save_picture_287136.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286982.jpg" />
+  <img src="Z:/picture/008/save_picture_286982.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Desktop Wallpapers Full HD. Part (513) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286005.jpg" />
+  <img src="Z:/picture/008/save_picture_286005.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (272) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285998.jpg" />
+  <img src="Z:/picture/008/save_picture_285998.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (277) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285995.jpg" />
+  <img src="Z:/picture/008/save_picture_285995.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (271) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285991.jpg" />
+  <img src="Z:/picture/008/save_picture_285991.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Desktop Wallpapers Full HD. Part (520) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285982.jpg" />
+  <img src="Z:/picture/008/save_picture_285982.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Desktop Wallpapers Full HD. Part (518) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285978.jpg" />
+  <img src="Z:/picture/008/save_picture_285978.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (276) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285973.jpg" />
+  <img src="Z:/picture/008/save_picture_285973.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (273) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285844.jpg" />
+  <img src="Z:/picture/008/save_picture_285844.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (275) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285843.jpg" />
+  <img src="Z:/picture/008/save_picture_285843.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (270) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285842.jpg" />
+  <img src="Z:/picture/008/save_picture_285842.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (274) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285841.jpg" />
+  <img src="Z:/picture/008/save_picture_285841.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Desktop Wallpapers Full HD. Part (519) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285838.jpg" />
+  <img src="Z:/picture/008/save_picture_285838.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (278) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285833.jpg" />
+  <img src="Z:/picture/008/save_picture_285833.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Desktop Wallpapers Full HD. Part (514) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285832.jpg" />
+  <img src="Z:/picture/008/save_picture_285832.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (279) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285827.jpg" />
+  <img src="Z:/picture/008/save_picture_285827.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (282) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285821.jpg" />
+  <img src="Z:/picture/008/save_picture_285821.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Desktop Wallpapers (4K) Ultra HD. Part (281) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285811.jpg" />
+  <img src="Z:/picture/008/save_picture_285811.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285527.jpg" />
+  <img src="Z:/picture/008/save_picture_285527.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285487.jpg" />
+  <img src="Z:/picture/008/save_picture_285487.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE1A4603E0E9AEAB62853DFB1EFF20AE1F1C4423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963851   (285326) от 09.12.2015
-
-Обои - Best Wallpapers Mixed 186 2560x1600 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на разные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F423F00D9539BFC34159F9AB44B8B02F68CFADF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

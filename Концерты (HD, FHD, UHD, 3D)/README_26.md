@@ -1,3 +1,85 @@
+###  Публикация: 1058711   (465880) от 02.10.2016
+
+Blind Guardian (2016) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Blind Guardian на рок-фестивале  "Rock Hard Festival" в мае 2016!Производство: Германия / WDR ChannelЖанр: МузыкаПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E680D5E3EEDABAAD8CDE7C958D3EC48C067DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161520   (465360) от 29.08.2017
+
+Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
+Релиз от1. Intro
+2. Starlight
+3. Living For Tonite
+4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7825D2D74C59B99740A251DDD3488AE2DCCB867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320985   (465127) от 21.08.2019
+
+Макс Барских - Шоу Семь (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкант представил альбом абсолютных суперхитов и закрепил за собой звание главного хитмейкера страны. Пять треков с еще не вышедшего альбома были самыми ожидаемыми, ведь подобного из украинских артистов еще никто не делал. Главная задача состояла в том, чтобы установить контакт со зрителем, сделать из них определенную фокус-группу и получить фид-бэк во время того, (   Читать дальше...   )Производство: Украина / Secret Service EAЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3CB3485FAC44D35DCBC870DEBEED73C6195F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940651   (464602) от 26.09.2015
 
 Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
@@ -6,7 +88,7 @@ Krokus - Live At Baloise Session (2014) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464602.jpg" />
+  <img src="Z:/picture/008/save_picture_464602.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ Supertramp - Live In Paris '79 (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464290.jpg" />
+  <img src="Z:/picture/008/save_picture_464290.jpg" />
 </div>
 
 
@@ -64,7 +146,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463239.jpg" />
+  <img src="Z:/picture/008/save_picture_463239.jpg" />
 </div>
 
 
@@ -94,7 +176,7 @@ Rammstein - In Amerika (Disc 1) (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462045.jpg" />
+  <img src="Z:/picture/008/save_picture_462045.jpg" />
 </div>
 
 
@@ -123,7 +205,7 @@ Madonna - MDNA World Tour (2012) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462042.jpg" />
+  <img src="Z:/picture/008/save_picture_462042.jpg" />
 </div>
 
 
@@ -151,7 +233,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461869.jpg" />
+  <img src="Z:/picture/008/save_picture_461869.jpg" />
 </div>
 
 
@@ -177,7 +259,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461767.jpg" />
+  <img src="Z:/picture/008/save_picture_461767.jpg" />
 </div>
 
 
@@ -206,7 +288,7 @@ Rammstein - In Amerika (Disc 1) (2015)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461682.jpg" />
+  <img src="Z:/picture/008/save_picture_461682.jpg" />
 </div>
 
 
@@ -235,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461676.jpg" />
+  <img src="Z:/picture/008/save_picture_461676.jpg" />
 </div>
 
 
@@ -264,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461419.jpg" />
+  <img src="Z:/picture/008/save_picture_461419.jpg" />
 </div>
 
 
@@ -290,7 +372,7 @@ VA - Rockin'1000: Stade de France, Paris (2019) WEB-DLRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459772.jpg" />
+  <img src="Z:/picture/008/save_picture_459772.jpg" />
 </div>
 
 
@@ -319,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456558.jpg" />
+  <img src="Z:/picture/008/save_picture_456558.jpg" />
 </div>
 
 
@@ -346,7 +428,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455158.jpg" />
+  <img src="Z:/picture/008/save_picture_455158.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454721.jpg" />
+  <img src="Z:/picture/008/save_picture_454721.jpg" />
 </div>
 
 
@@ -404,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453283.jpg" />
+  <img src="Z:/picture/008/save_picture_453283.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453100.jpg" />
+  <img src="Z:/picture/008/save_picture_453100.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451185.jpg" />
+  <img src="Z:/picture/008/save_picture_451185.jpg" />
 </div>
 
 
@@ -488,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451085.jpg" />
+  <img src="Z:/picture/008/save_picture_451085.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447722.jpg" />
+  <img src="Z:/picture/008/save_picture_447722.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446910.jpg" />
+  <img src="Z:/picture/008/save_picture_446910.jpg" />
 </div>
 
 
@@ -569,7 +651,7 @@ Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446721.jpg" />
+  <img src="Z:/picture/005/save_picture_446721.jpg" />
 </div>
 
 
@@ -598,7 +680,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446177.jpg" />
+  <img src="Z:/picture/008/save_picture_446177.jpg" />
 </div>
 
 
@@ -627,7 +709,7 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443834.jpg" />
+  <img src="Z:/picture/008/save_picture_443834.jpg" />
 </div>
 
 
@@ -638,91 +720,6 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5E2151C929EBED444A7078E2D028BEF318F2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 447926   (443699) от 19.09.2018
-
-Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2012) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
-Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Johann and Joseph Strauss: "Vaterländischer Marsch (Fatherland March)"
-Johann Strauss: "Rathausball-Tänze (City Hall Ball Dances)", Waltz, op. 438
-Johann Strauss: "Entweder – oder! (Either - Or!)", Fast Polka, op. 403
-Johann Strauss: "Tritsch-Tratsch (Chit-Chat)", Polka, op. 214(   Читать дальше...   )Производство: SONY MasterworksЖанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CF3E26D0D5C652F00E324A1B0768E3C8493049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409174   (442682) от 18.09.2020
-
-Ария - Классическая Ария (2015) HDRip [H.265/1080p] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442682.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Классическая Ария» – это запись аншлагового концерта группы при участии симфонического оркестра «Глобалис» под управлением шведского дирижера Ульфа Ваденбрандта, записанный на видео 29 ноября 2015 года в Москве в концертном зале «Stadium Live».01. Интро
-02. Игра с огнём
-03. Ангельская пыль
-04. Чёрная легенда(   Читать дальше...   )Производство: М2БАЖанр: Heavy metalПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BA69804866B77E4FFFDB29F6E9E7A7EC563011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322967   (442213) от 01.09.2019
-
-Квартирник НТВ у Маргулиса. Леонид Агутин (31.08.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442213.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришел заслуженный артист России, певец и композитор Леонид Агутин. Первый его сольный альбом «Босоногий мальчик», вышедший в 1994 году, мгновенно поднял артиста на вершину музыкального Олимпа. Второй альбом «Декамерон» укрепил интерес к его творчеству. Мастер сцены по сей день остается в списке самых востребованных звезд отечественного (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A06285C59352F734AA8AE061AC8C0D2C991FBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1580970   (329057) от 03.10.2022
+
+The Red Rodney Quintet - Red Alert! (1990) Continuum Recording [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_329057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Case of Fire [5:08]
+02. Sweet Soul [3:52]
+03. Hope [6:24]
+04. Island Girl [4:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93C9192581E2FED0797798974920438B4715008D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260126   (328772) от 22.11.2010
+
+Bill Evans - The Complete Bill Evans On Verve [Box set 18 CD] (1997) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 00:45:05
+01. The Dolphin - Before
+02. The Dolphin - After
+03. Comrade Conrad(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413091   (328692) от 23.11.2011
+
+Nicki Parrott and Ken Peplowski - Like A Lover (2011) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon (5:42)
+02. Everything I Love (3:52)
+03. Hey There (4:35)
+04. Sway / Whatever Lola Wants (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957043   (327668) от 17.11.2015
+
+Dave Pike & Charles McPherson - Bluebird (1988) 2015, Timeless Records[FLAC|tracks+.cue]<Timeless Records / Solid Records>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Scrapple From The Apple [07:32]
+ 02.Embraceable You [06:26]
+ 03.Visa [06:10]
+ 04.Old Folks [09:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB1049ECA0583EB90A5C9E75B4340D4979B8F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957396   (327658) от 17.11.2015
 
 Tony Bennett & Bill Charlap - The Silver Lining: The Songs Of Jerome Kern (2015) Columbia[FLAC|tracks+.cue]<Vocal Jazz>
@@ -6,7 +122,7 @@ Tony Bennett & Bill Charlap - The Silver Lining: The Songs Of Jerome Kern (2015)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327658.jpg" />
+  <img src="Z:/picture/008/save_picture_327658.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Louis Armstrong - The Complete Town Hall Concert (1983) 2014, Sony Music[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327654.jpg" />
+  <img src="Z:/picture/008/save_picture_327654.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Miles Davis Quintet with John Coltrane - The 1960 German Concerts (2010) Jazz Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327653.jpg" />
+  <img src="Z:/picture/008/save_picture_327653.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Brian Landrus Orchestra - Generations (2017) BlueLand Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327293.jpg" />
+  <img src="Z:/picture/008/save_picture_327293.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kai Winding - Seven Classic Albums (1955 - 1962) 4CD, 2015, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327291.jpg" />
+  <img src="Z:/picture/008/save_picture_327291.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Larry Coryell - New High (2000) HighNote[FLAC|tracks+.cue]<Post-Bop, Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326805.jpg" />
+  <img src="Z:/picture/008/save_picture_326805.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Kenny Burrell - 12•15•78 (1978) 2CD, 1999, 32 Jazz[FLAC|tracks+.cue]<Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326782.jpg" />
+  <img src="Z:/picture/008/save_picture_326782.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Marlena Shaw - Anthology (2000) Soulb[FLAC|image+.cue]<Vocal Jazz, Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325844.jpg" />
+  <img src="Z:/picture/008/save_picture_325844.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325587.jpg" />
+  <img src="Z:/picture/008/save_picture_325587.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Yehudi Menuhin & Stephane Grappelli - Menuhin And Grappelli Play Gershwin (1973 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325370.jpg" />
+  <img src="Z:/picture/008/save_picture_325370.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kenny G - Greatest Hits (2CD) (2009) [APE|Lossless]<Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325234.jpg" />
+  <img src="Z:/picture/008/save_picture_325234.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Shelli LaTorre - Full Circle (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324040.jpg" />
+  <img src="Z:/picture/008/save_picture_324040.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Claudia Franco - Soul Dance (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324036.jpg" />
+  <img src="Z:/picture/008/save_picture_324036.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Claudia Koval - With Heart and Soul (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324030.jpg" />
+  <img src="Z:/picture/008/save_picture_324030.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Nina Bradlin - Stardust (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324029.jpg" />
+  <img src="Z:/picture/008/save_picture_324029.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Stan Getz - Cool Bebop (1945-1949) 2000, Jazz Archives[WavPack|image+.cue]<Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324028.jpg" />
+  <img src="Z:/picture/008/save_picture_324028.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Arnett Cobb with the Red Garland Trio - Sizzling & Blue And Sentimental (1960) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323994.jpg" />
+  <img src="Z:/picture/008/save_picture_323994.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Oscar Peterson - Time After Time (1986) 2000, Pablo Records[FLAC|tracks+.cue]<Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323983.jpg" />
+  <img src="Z:/picture/008/save_picture_323983.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Lettuce - Crush (2015) [FLAC|tracks|WEB-DL]<Funk, Jazz Fusion, Jam Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323960.jpg" />
+  <img src="Z:/picture/008/save_picture_323960.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323841.jpg" />
+  <img src="Z:/picture/008/save_picture_323841.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Teddy Wilson - Classic Jazz Archive: The Gentleman Of Swing (1934 - 1938) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323835.jpg" />
+  <img src="Z:/picture/008/save_picture_323835.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Paul Smith - Cool And Sparkling (1991) [APE|Lossless|image + .cue] <Bop, Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323719.jpg" />
+  <img src="Z:/picture/008/save_picture_323719.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Paul Smith - Cool And Sparkling (1991) [APE|Lossless|image + .cue] <Bop, Cool>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46365A945A5B36C6AA453C6046037A84485AC03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074617   (323718) от 21.11.2016
-
-Paul Shapiro - It's in the Twilight (2006) [FLAC|Lossless|image + .cue] <Klezmer Jazz, Classic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Rolls Away the Darkness
-02. Children of Abraham
-03. The Sun Keeps Coming Up
-04. Lecha Dodi Twilight(   Читать дальше...   )Жанр: Klezmer Jazz, Classic JazzПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FFB2455D1A2F149236DB2B19F5A235E74FD5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074630   (323599) от 21.11.2016
-
-Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push To Start (3:50)
-02. Moment Of Truth (4:32)
-03. Don't Wanna Let You Go (4:23)
-04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582350   (323590) от 09.10.2022
-
-Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12! [5:03]
-02. I Got It Bad [4:18]
-03. I Never Knew [6:43]
-04. Our Delight [5:31](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D0321A87A05E7E1BC3EC456B6C21DD6F65A6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259188   (323405) от 02.11.2018
-
-Patti Austin - For Ella (2002) Playboy Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close for Comfort [3:59]
-02. Honeysuckle Rose [4:14]
-03. You'll Have to Swing It (Mr. Paganini) [4:23]
-04. Our Love Is Here to Stay [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADA9263BC773079169F551133C9B30F395D62F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

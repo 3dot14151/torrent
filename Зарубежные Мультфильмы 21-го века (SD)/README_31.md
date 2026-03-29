@@ -1,3 +1,109 @@
+###  Публикация: 1052269   (528004) от 14.09.2016
+
+Эрми и друзья: Поучительные истории о страхах / Hermie & Friends (2002) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вебстер - страшный паук. "Большой и страшный! С кучей ног! Паук лохматый, гнался за нами! Его надо прогнать", - такие крики раздались на уютной и мирной полянке, когда грозный паук-паучище Вебстер появился там однажды утром. Как же обитателям полянки и их гостю победить страх, и кто поможет им в этом?
+Страшная гонка. Гусеничный ползофон! Величайшая гонка (   Читать дальше...   )Производство: Ирландия, США, Dean River ProductionsЖанр: СказкаРежиссер: Деметра ГионисПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11C042771A7C9F9FD9F250F703D8ABF50EFF798D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927017   (524804) от 13.08.2015
+
+Безграничный Бэтмен: Хаос / Batman Unlimited: Monster Mayhem (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из Бэтмена, Найтвинга, Киборга и Зеленой Стрелы противостоит Соломону Гранди, Глиноликому, Страшиле и Серебряной Банши. Возглавит шайку негодяев, конечно же, ДжокерПроизводство: США | DC Comics, DC Entertainment, Warner Bros. AnimationЖанр: мультфильм, боевик, приключенияРежиссер: Батч ЛукичПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497C911DA44B7DA54001C967CF75C3861E7C37D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927712   (523815) от 14.08.2015
+
+Луни Тюнз: Кролик в бегах / Looney Tunes: Rabbit Run (2015) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультфильма начинается в центральной Мексике. В штабе петуха Фоггорна Леггорна черепаха Сесил наблюдает за объектом – редчайшим цветком флоро оккульто, который расцветает раз в 200 лет и служит величайшим в мире оружием. Леггорн собирается провести спецоперацию по захвату магического цветка, но в самый ответственный момент кто-то похищает растениеПроизводство: США |  Warner Bros. AnimationЖанр: мультфильмРежиссер: Джефф СьергейПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F21368B8B94B08686BFC296D823B38A32A6F18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313636   (522117) от 11.07.2019
+
+Теркель в беде / Terkel I Knibe (2004) DVDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой мультика — обыкновенный подросток Теркель, с брекетами на зубах и своими заморочками в голове, он воспитывается в довольно странной семье — его мама не достает сигарету изо рта, а папа — все время читает газету и произносит только слово «Нет!», а младшая сестра Фиона — очень нервная и склонная к травматизму девочка.
+Сюжет развивается на фоне отношений (   Читать дальше...   )Производство: ДанияЖанр: Для взрослых, мюзикл, триллер, драма, мелодрама, комедия, детектив, чёрный юмор.Режиссер: Крестен Вестбьерг Андерсен, Торбьорн Кристофферсен, Стефан ФьелдмаркПеревод: Профессиональный многоголосый, авторский одноголосый.Субтитры: НетПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EAC86C6C386DBF8223D3D067EBE767C75876A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533911   (520790) от 12.08.2012
 
 Каена: Пророчество / Kaena: La prophetie (2003) [H.264] DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520790.jpg" />
+  <img src="Z:/picture/008/save_picture_520790.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520318.jpg" />
+  <img src="Z:/picture/008/save_picture_520318.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518980.jpg" />
+  <img src="Z:/picture/008/save_picture_518980.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516759.jpg" />
+  <img src="Z:/picture/008/save_picture_516759.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516595.jpg" />
+  <img src="Z:/picture/008/save_picture_516595.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516494.jpg" />
+  <img src="Z:/picture/008/save_picture_516494.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515515.jpg" />
+  <img src="Z:/picture/008/save_picture_515515.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515422.jpg" />
+  <img src="Z:/picture/008/save_picture_515422.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513961.jpg" />
+  <img src="Z:/picture/008/save_picture_513961.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513711.jpg" />
+  <img src="Z:/picture/008/save_picture_513711.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512581.jpg" />
+  <img src="Z:/picture/008/save_picture_512581.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512356.jpg" />
+  <img src="Z:/picture/008/save_picture_512356.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512054.jpg" />
+  <img src="Z:/picture/008/save_picture_512054.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511619.jpg" />
+  <img src="Z:/picture/008/save_picture_511619.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510310.jpg" />
+  <img src="Z:/picture/008/save_picture_510310.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509412.jpg" />
+  <img src="Z:/picture/008/save_picture_509412.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508105.jpg" />
+  <img src="Z:/picture/008/save_picture_508105.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501897.jpg" />
+  <img src="Z:/picture/008/save_picture_501897.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500267.jpg" />
+  <img src="Z:/picture/008/save_picture_500267.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495804.jpg" />
+  <img src="Z:/picture/008/save_picture_495804.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495318.jpg" />
+  <img src="Z:/picture/008/save_picture_495318.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495226.jpg" />
+  <img src="Z:/picture/008/save_picture_495226.jpg" />
 </div>
 
 
@@ -567,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5913D97C5807BFBDCAA2DFEF070F82AF934FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381461   (495198) от 31.08.2011
-
-Планета сокровищ / Treasure Planet (2002) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495198.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Джим Хоукинс отправляется на поиски таинственной Планеты Сокровищ в компании настоящих космических пиратов. Под руководством корабельного кока, киборга Джона Сильвера, он становится умелым «космоплавателем» и не раз спасает космический галеон от самых серьезных опасностей: черных дыр, взрывов сверхновых и космических штормов.
-
-Но главное испытание поджидает юного героя впереди — предательство близкого друга, который вместе с командой матросов пытается обманом захватить все сокровища и скрыться…Жанр: мультфильм, фантастика, мелодрама, приключения, семейный, ...Режиссер: Рон Клементс, Джон МаскерАктеры: Брайан Мюррей, Джозеф Гордон-Левитт, Эмма Томпсон, Дэвид Хайд Пирс, Мартин Шорт, Патрик МакГуэн, Роско Ли Браун, Лори Меткаф, Майкл Уинкотт, Дэйн А. ДэвисПеревод: ДублированныйПродолжительность: 01:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB20F06F0D62D79CD03BE88BA394EDDA5600EE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543970   (493000) от 06.09.2012
-
-Золушка: Полный вперед! / Cendrillon au Far West (2012) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе, что всем известная история Золушки, превращается в анимационную комедию, да еще и снятую в 3D! Вам интересно? А если представить, что Золушка живет в волшебной стране, по которой путешествует русский принц со своей тётей? Еще интереснее? Вас ждут невероятные приключения, похищения и погони, большая дружба, настоящая любовь и… выбитый зуб! И никто, ни злая мачеха со своими дочками, ни разбойники-пираты не смогут помешать Золушке и Принцу обрести свое счастье!Жанр: МультфильмРежиссер: Паскаль ЭрольдПеревод: ДублированныйПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EB3CD75FD576636041AC33DA1DCCF3ECBA2EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543960   (492909) от 06.09.2012
-
-Золушка: Полный вперед! / Cendrillon au Far West (2012) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе, что всем известная история Золушки, превращается в анимационную комедию, да еще и снятую в 3D! Вам интересно? А если представить, что Золушка живет в волшебной стране, по которой путешествует русский принц со своей тётей? Еще интереснее? Вас ждут невероятные приключения, похищения и погони, большая дружба, настоящая любовь и… выбитый зуб! И никто, (   Читать дальше...   )Производство: ФранцияЖанр: МультфильмРежиссер: Паскаль ЭрольдПеревод: Дублированный |Субтитры: ОтсутствуютПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912BD2895B78EFEA9E0FB5FEADB4E36C481D125C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318662   (492293) от 07.08.2019
-
-Королевский корги / The Queen's Corgi (2019) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая порода собак у очень богатых и влиятельных людей — это корги. Маленькие собачки полностью погружены в жизнь своих больших хозяев. Спасаясь от политических интриг, любимец Британской Королевы вынужден покинуть Букингемский дворец. Теперь ему предстоит не только познакомиться с тайной жизнью улиц Лондона, но и доказать, что он настоящий Королевский Корги…Производство: Бельгия / Belga Productions, nWave PicturesЖанр: Мультфильм, комедия, семейныйРежиссер: Винсент Кестелут, Бен СтассенПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E9290F2C0D2BC0771763C32DAB7DD4DB2DA5D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

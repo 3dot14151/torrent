@@ -1,3 +1,299 @@
+###  Публикация: 1719438   (58153) от 29.04.2024
+
+Screenpresso Pro 2.1.25 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screenpresso - легкий в использовании инструмент для создания скриншотов со встроенным редактором изображений и возможностью размещения готовых изображений в сети Интернет. С помощью программы можно делать снимки всего экрана, его части, конкретного окна (в том числе и с прокруткой), а также осуществлять захват видео высокого разрешения, с сохранением в форматы MP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED142F6B748D28199D175CF61D9E2B2CFC00488F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719419   (58149) от 29.04.2024
+
+JRiver Media Center 32.0.42  RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58149.jpg" />
+</div>
+
+
+###  Подробнее
+
+JRiver Media Center — мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E29F95969DDA03A37D9B19DF71BB286BFC386B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719507   (58131) от 29.04.2024
+
+Aurora DSP - Rhino 1.6.0 STANDALONE, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный гитарный плагин, способный принять вызов. От нежных, чистых тонов до самой тяжелой стены звука, заполняющей весь микс. Rhino предлагает проверенную формулу, содержащую все необходимое для достижения широкого спектра гитарного звука, и все это в одном плагине.
+7 разделов для практически неограниченного диапазона звуков. Каждый раздел можно расширить, открыв (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128928AF814E42416A25265BED74A9C9C1B1C83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719364   (58130) от 29.04.2024
+
+Topaz Gigapixel AI 7.1.2 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
+Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A605009AB1CE050CB7957000FC4A70A348749BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717136   (58100) от 30.04.2024
+
+Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 04.2024
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58100.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (22H2) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E142836D482A7C93D448CED11DE6C5471109B680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719644   (58093) от 30.04.2024
+
+Windows 10 (v22h2) x64 HSL/PRO by KulHunter v17 (esd) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
+updated_april_2024_x64_dvd_9a92dc89.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C51F21C44A201FB718BAD85B5192EF03D570B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719767   (58084) от 30.04.2024
+
+Антивирусная утилита AVZ 5.93 (20.04.2024) (Неофициальная) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58084.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
+Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
+По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC4BD3285918459BC02951E177BE7B6FAD4924D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719814   (58076) от 30.04.2024
+
+CrystalDiskInfo & CrystalMark & Mark Retro 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58076.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D186110D6664A962F502002C11B81BF76EBD82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719743   (58075) от 30.04.2024
+
+Foxit PDF Reader 2024.2.0.25138 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit PDF Reader - профессиональное приложение для чтения PDF-файлов. Foxit PDF Reader обладает всеми необходимыми функциями для полноценного просмотра PDF-файлов. Программа поможет выбрать и скопировать содержание текста с файлов PDF, произвести поиск по тексту, оперативно распечатать документ. Есть поддержка Javascript и плагинов.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CE59292BA990F1D290316CB10C4DC337F45529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719618   (58074) от 30.04.2024
+
+CrystalDiskInfo 9.3.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58074.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D511A8CE74D82B1F3626BD1288595B77E5BE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719652   (58069) от 30.04.2024
+
+Windows 10 (v22h2) x64 PRO by KulHunter v17 (esd) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
+updated_april_2024_x64_dvd_9a92dc89.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865ACF020F5462990EC3E9B22ADD299CDECC143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719784   (58061) от 30.04.2024
 
 Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
@@ -6,7 +302,7 @@ Adobe Illustrator 2024 28.5.0.132 + Plug-ins (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58061.jpg" />
 </div>
 
 
@@ -33,7 +329,7 @@ TechSmith Snagit 2024.1.2 build 2333 (x64) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58056.jpg" />
 </div>
 
 
@@ -59,7 +355,7 @@ VCap Downloader 0.1.21.6023 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58054.jpg" />
 </div>
 
 
@@ -85,7 +381,7 @@ Adobe Acrobat Pro 2024.002.20687 (x32) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58047.jpg" />
 </div>
 
 
@@ -111,7 +407,7 @@ Vit Registry Fix Pro 14.9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58043.jpg" />
 </div>
 
 
@@ -137,7 +433,7 @@ PDF-XChange Editor Plus 10.3.0.386 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58042.jpg" />
 </div>
 
 
@@ -163,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58040.jpg" />
 </div>
 
 
@@ -189,7 +485,7 @@ CyberLink AudioDirector Ultra 14.4.4024.0 (x64) Portable by 7997 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58033.jpg" />
 </div>
 
 
@@ -215,7 +511,7 @@ Ant Download Manager Pro 2.11.4  Build 87517 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58031.jpg" />
 </div>
 
 
@@ -241,7 +537,7 @@ Ashampoo Music Studio 10.0.2.2 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58027.jpg" />
 </div>
 
 
@@ -268,7 +564,7 @@ Wondershare PDFelement 10.3.12.2738 RePack by elchupacabra + OCR Plugin [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58022.jpg" />
 </div>
 
 
@@ -294,7 +590,7 @@ Fast Video Cutter Joiner 4.6.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58019.jpg" />
 </div>
 
 
@@ -320,7 +616,7 @@ AOMEI Partition Assistant Technician Edition 10.4.0 (x64) Portable by 7997 [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58018.jpg" />
 </div>
 
 
@@ -346,7 +642,7 @@ DefenderKiller 12.0 Portable by Vlado [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58011.jpg" />
 </div>
 
 
@@ -372,7 +668,7 @@ v2rayN 6.43 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58009.jpg" />
 </div>
 
 
@@ -383,292 +679,6 @@ v2rayN — это универсальный инструмент VPN и про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9110A90E7026D1BDAD404771387D972C6D69F983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720049   (57984) от 01.05.2024
-
-StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57984.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC1EFB831B5D799A1521872C0C3E010915DB233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720045   (57973) от 01.05.2024
-
-StartAllBack 3.7.9 build 4907 (DC-01-05-2024) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57973.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C41F898CC5138D0EF840A0A6A2A9FA1FF3334F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720028   (57971) от 01.05.2024
-
-Auslogics Driver Updater 1.26.0.1 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4364AEA71C0BFFC18E883AD43753A39178036C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719845   (57969) от 01.05.2024
-
-Adobe Substance 3D Modeler 2024 1.9.0.18 (x64) Portable by 7997 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Substance 3D Modeler - программное обеспечение для визуального 3D-моделирования, предназначенное как для экспертов в области 3D, так и для разработчиков визуальных эффектов и для графических дизайнеров. Adobe Substance 3D Modeler использует пространственные данные из физического мира, позволяя создавать модель так же, как и в реальной мастерской. Независимо (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE774A2D7880F3D5156DBE08B8EBA3FC5EE3EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720034   (57967) от 01.05.2024
-
-CyberLink PowerDirector 2024 Ultimate 22.4.2829.0 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57967.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Английский, немецкий, французский и др. (Русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EF1D3E0727D23B53402B27458CDB7F8D80A996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719947   (57960) от 01.05.2024
-
-Auslogics BoostSpeed 13.0.0.7 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0358E9258C815205DDC50F069F03D0A827CE9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720040   (57958) от 01.05.2024
-
-StartAllBack 3.7.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57958.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE37D86AAE8B6D91DE306A44378DD5F07BACD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719850   (57954) от 01.05.2024
-
-Topaz Video AI 5.0.3 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B29E1B0E1190789CD6D8973AEE29C3501EABFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720036   (57943) от 01.05.2024
-
-Fast Screen Recorder 2.0.0.2 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Screen Recorder — это программное обеспечение для записи действий на экране вашего компьютера, таких как важная видеоконференция, видеоуроки, образовательная деятельность. Если вы геймер, вы можете записывать все моменты своей игры, в которые вы играете, после чего вы можете поделиться ими с друзьями.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2030F8C755FBA4884CCC511B0F7E3144194380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720043   (57935) от 01.05.2024
-
-DVDFab StreamFab 6.1.7.5 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57935.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B581B60477973D0F1BD9800B478A693BC2BDC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719839   (57931) от 01.05.2024
-
-High-Logic FontCreator Professional 15.0.0.2974 Portable by 7997 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57931.jpg" />
-</div>
-
-
-###  Подробнее
-
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40AA4C4B5E6F3E84779BBF5E5D60EAB88268F41
 ```
 
 https://mybot314.ru/tekegram_catalog/

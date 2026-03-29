@@ -1,3 +1,29 @@
+###  Публикация: 1238228   (277510) от 25.11.2018
+
+Ghosts Room v1.2 [Ru/En] Лучшие фильмы ужасов в одном приложении
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghosts Room - это приложение, которое позволяет просматривать десятки фильмов ужасов прямо на своем мобильном устройстве Android и полностью бесплатно. В коллекции собраны по возможности лучшие подборки фильмов, плюс приложение оптимизировано для наименьшего потребления вашего интернет трафика.Тип издания: FreeРелиз состоялся: 26.07.2018Разработчик: ShostBoxПоддерживаемая ОС: Android: 4.1 и вышеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0037901C0F2AE43BFC1634DB8EBD78C2C887CF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082531   (277246) от 13.12.2016
 
 GuitarTapp PRO - Tabs & Chords 2.9.3 [En]
@@ -6,7 +32,7 @@ GuitarTapp PRO - Tabs & Chords 2.9.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277246.jpg" />
+  <img src="Z:/picture/008/save_picture_277246.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ YAATA SMS Premium 1.26.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277038.jpg" />
+  <img src="Z:/picture/008/save_picture_277038.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275917.jpg" />
+  <img src="Z:/picture/008/save_picture_275917.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Pop Art Studio Pro 2.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275798.jpg" />
+  <img src="Z:/picture/008/save_picture_275798.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ MMA Спартанские тренировки Pro 1.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275492.jpg" />
+  <img src="Z:/picture/008/save_picture_275492.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Our Budget Book Pro 5.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274724.jpg" />
+  <img src="Z:/picture/008/save_picture_274724.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Zoner Mobile Security 1.6.0+ Tablet [Rus] - Антивирус
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274195.jpg" />
+  <img src="Z:/picture/008/save_picture_274195.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274052.jpg" />
+  <img src="Z:/picture/008/save_picture_274052.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273550.jpg" />
+  <img src="Z:/picture/008/save_picture_273550.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273478.jpg" />
+  <img src="Z:/picture/008/save_picture_273478.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Flick Fishing 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273344.jpg" />
+  <img src="Z:/picture/008/save_picture_273344.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Micopi+ 5.2.74+ [Ru] - Создание уникального графичес�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273291.jpg" />
+  <img src="Z:/picture/008/save_picture_273291.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273246.jpg" />
+  <img src="Z:/picture/008/save_picture_273246.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Runtastic Heart Rate PRO 2.4 [Ru/Multi] - Пульсомер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273078.jpg" />
+  <img src="Z:/picture/008/save_picture_273078.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273009.jpg" />
+  <img src="Z:/picture/008/save_picture_273009.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Total Fitness PRO 7.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272457.jpg" />
+  <img src="Z:/picture/008/save_picture_272457.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Instant Fitness : 100 workouts Pro 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272395.jpg" />
+  <img src="Z:/picture/008/save_picture_272395.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Starting Strength Official Pro 1.14 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272394.jpg" />
+  <img src="Z:/picture/008/save_picture_272394.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Fitness Point Pro 2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272319.jpg" />
+  <img src="Z:/picture/008/save_picture_272319.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Computer File Explorer 1.3 build 71 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272318.jpg" />
+  <img src="Z:/picture/008/save_picture_272318.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ GymGuide Pro 2.5.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272317.jpg" />
+  <img src="Z:/picture/008/save_picture_272317.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ Abs Workouts & Exercises Pro 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272315.jpg" />
+  <img src="Z:/picture/008/save_picture_272315.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271135.jpg" />
+  <img src="Z:/picture/008/save_picture_271135.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Crayon physics with truck v1.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269936.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267467.jpg" />
+  <img src="Z:/picture/008/save_picture_267467.jpg" />
 </div>
 
 
@@ -665,34 +691,6 @@ iGO Here (NavTeq) Америка, Канада, Мексика 2018.Q1 (.fbl, .f
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AABF030CD8A57A8B2BF23152FC29E78A1E52C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267252   (266571) от 06.12.2018
-
-Triple Triad 1.4.0 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triple Triad является популярной карточной игрой в Final Fantasy VIII.
-
-В соответствии с Final Fantasy VIII Ultimania карточная игра была создана человеком по имени Орлан, который модифицировал гадальные карты для использования в игре, и дал официальное название "Triple Triad".  В Triple Triad первоначально играли среди солдат, но вскоре игра распространилась (   Читать дальше...   )Релиз состоялся: 23.11.2018Разработчик: SnakeULTIMATEПоддерживаемая ОС: Android 4.1 и вышеЖанр: Карточная играЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB22B2B0C1471DB71E2237F6509815BE4F9FB640
 ```
 
 https://mybot314.ru/tekegram_catalog/

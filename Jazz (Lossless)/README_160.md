@@ -1,3 +1,119 @@
+###  Публикация: 1313847   (522358) от 11.07.2019
+
+John McLean & Clark Sommers Band - Parts Unknown (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie Roundabout [8:23]
+02. Labor Day [5:31]
+03. Time Window [8:43]
+04. Parts Unknown [5:31](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7EDC345AD80657B218956EA9DC41F95D7575E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241094   (522202) от 15.08.2018
+
+Alexis French - The Cut (2014) Rattle [FLAC|Lossless|tracks + .cue] <Post-Bop, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Schroon [5:14]
+02. Metro [10:36]
+03. Parc La Fontaine Blues and Greens [9:38]
+04. Aylmer [8:19](   Читать дальше...   )Жанр: Post-Bop, Trumpet JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2714366E1BB3656A93025976D2B6EB051B9716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313842   (522174) от 11.07.2019
+
+Tommy Dorsey And His Orchestra Featuring Jimmy Dorsey - Three Classic Albums Plus (1954 - 1956) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522174.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nevada [3:28]
+02. Yesterdays [3:16]
+03. It's Started All Over Again [3:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6435E7D842C824493E85B419FA6365D386759D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928811   (521796) от 17.08.2015
+
+Willem Breuker Kollektief - Bob's Gallery (1988) /BV Haast Records/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenade For a Wealthy Widow [02:42]
+02. Bob's Gallery [22:52]
+03. Morribreuk [03:31]
+04. Jazz II (from 'Thanks, your Majesty') [08:10](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772124C257BE89AEB7FED6B1D2558E14EFA9C47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928720   (521707) от 17.08.2015
 
 Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<Jazz, Hard Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Tommy Flanagan - Confirmation (1977/1978) /2005, Landy Star/[FLAC|tracks+.cue]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521707.jpg" />
+  <img src="Z:/picture/008/save_picture_521707.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Orrin Evans And The Captain Black Big Band - Presence (2018) Smoke Sessions Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521432.jpg" />
+  <img src="Z:/picture/008/save_picture_521432.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Queen Bee And The Honeylovers - Asheville (2019) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521429.jpg" />
+  <img src="Z:/picture/008/save_picture_521429.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Andrew McCormack - First Light (2014) Edition Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521274.jpg" />
+  <img src="Z:/picture/008/save_picture_521274.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Adrian Cunningham & His Friends - Play Lerner & Loewe (2019) Arbors Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520984.jpg" />
+  <img src="Z:/picture/008/save_picture_520984.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Buddy DeFranco - Mr. Lucky (1981) 1997, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520893.jpg" />
+  <img src="Z:/picture/008/save_picture_520893.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ CeCe Gable - More Than A Song (2020) New York Jazz Project [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520884.jpg" />
+  <img src="Z:/picture/008/save_picture_520884.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Pal Thowsen - Carnival (1981) Remastered, 2022, Norske Albumklassikere [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520750.jpg" />
+  <img src="Z:/picture/008/save_picture_520750.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ David Benoit - A Midnight Rendezvous (2022) [FLAC|Lossless|tracks+.cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520739.jpg" />
+  <img src="Z:/picture/008/save_picture_520739.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520640.jpg" />
+  <img src="Z:/picture/008/save_picture_520640.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dave Brubeck - The New Brubeck Quartet Live At Montreux (1977) /1989, Tomato/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520639.jpg" />
+  <img src="Z:/picture/008/save_picture_520639.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Nat King Cole - The Trouble With Me Is You (1944) /1989, ORO/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520634.jpg" />
+  <img src="Z:/picture/008/save_picture_520634.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Harlan Leonard - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520403.jpg" />
+  <img src="Z:/picture/008/save_picture_520403.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ V.A. - Jazz Ambient Del Mar (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Nu Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519781.jpg" />
+  <img src="Z:/picture/008/save_picture_519781.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chris Botti - 14 albums (1995-2009) [FLAC|Lossless] <Smooth Jazz, Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519652.jpg" />
+  <img src="Z:/picture/008/save_picture_519652.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ Stephan Kurmann Strings - Strings (1989) /TCB Records/[FLAC|tracks+.cue]<Jazz, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519615.jpg" />
+  <img src="Z:/picture/008/save_picture_519615.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ Lester Young - Neenah (1938-1959) 3CD /2014, Le Chant Du Monde/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519610.jpg" />
+  <img src="Z:/picture/008/save_picture_519610.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ Marcio Faraco - Cajueiro (2014) [FLAC|tracks]<Vocal Jazz, World Fusion, Bossa No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519607.jpg" />
+  <img src="Z:/picture/008/save_picture_519607.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ Miroslav Vitous - Majesty Music (2015) 1976, Wounded Bird Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519449.jpg" />
+  <img src="Z:/picture/008/save_picture_519449.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519279.jpg" />
+  <img src="Z:/picture/008/save_picture_519279.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ Annie Ross - Four Classic Albums Plus (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519183.jpg" />
+  <img src="Z:/picture/008/save_picture_519183.jpg" />
 </div>
 
 
@@ -623,7 +739,7 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518874.jpg" />
+  <img src="Z:/picture/008/save_picture_518874.jpg" />
 </div>
 
 
@@ -637,122 +753,6 @@ Cousin Joe - The Complete Recordings, Vol.1 (1945 - 1947) 1995, Blue Moon [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5F7B7261B5615EDE8D125F9D179DB2A5324269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929609   (518524) от 20.08.2015
-
-Bob Wilber & Kenny Davern - Summit Reunion (1990) /Chiaroscuro Records/ [FLAC|image+.cue]<Jazz, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [05:39]
-02. Love Come Back To Me [06:11]
-03. St. Louis Blues [11:25]
-04. Black And Blue [04:57](   Читать дальше...   )Жанр: Jazz, Swing, Mainstream JazzПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED44BF41CE43A2BAE625F2CA2074AB0969BB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929613   (518523) от 20.08.2015
-
-Benny Bailey Quintet - While My Lady Sleeps (1990) /Gemini/ [FLAC|image+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vino, Oh Vino! [05:51]
-02. Serenade To A Planet [07:52]
-03. Expectation [06:46]
-04. H&T Blues [06:06](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C0A3A2997A96BA1904BC9BB55282E679F6EDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929676   (518519) от 20.08.2015
-
-Chuck Mangione Quintet - Recuerdo (1962) /1990, Jazzland/ [FLAC|tracks+.cue]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recuerdo [05:35]
-02. Big Foot [04:26]
-03. I Had The Craziest Dream [06:24]
-04. Solar [04:20](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B581992A7ED29353C9B4931FA5D056D697C33EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929474   (518512) от 20.08.2015
-
-Heather Powell - A Haze of Grays and Blue (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unexpected
-02. Black And White Thinking
-03. Remember The Love
-04. Blue Light(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF01F6C217CF67CD5853AD8E9A1524285B550319
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1232093   (882271) от 11.09.2021
+
+Kuni - 4 albums (1986-2011) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди поклонников жанра Hard'n'Heavy имя KUNI (зовут товарища: Kuni Takeuchi 20.01.64 Tokyo) довольно известно, он владелец собственного лэйбла "Big M.F.". Этот музыкант играет уже давно и вместе с известными европейскими музыкантами. У KUNI выпущен диск Lookin' For Action, в котором участвовал известный вокалист Jeff Scott Soto. Японцы любят и понимают (   Читать дальше...   )--------------------------
+
+01. Untouchable (3:00)
+02. Tear it Down (3:51)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 02:39:34 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17559ECE5F4E268AC0CD9FB8A05B282E9AC1FD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277592   (882265) от 11.09.2021
+
+China - 7 albums, 9 CD (1988-2014) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть слушателей не смущает "восточное" название этой группы и иероглифы на обложках ее альбомов – мелодик-рок-бэнд "China" родом из Швейцарии. В конце 80-х и начале 90-х коллектив был популярен не только у себя дома, что доказывалось попаданием в горячую десятку, но и за границей (в Англии, Германии и Японии "китайские" пластинки присутствовали (   Читать дальше...   )--------------------------
+
+01. The Great Wall (1:35)
+02. Dead Lights (4:42)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Glam Rock |Продолжительность: 07:50:42 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F52DB9558DEF98AF4CDB0DCBE0FFE03748D6D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104069   (881900) от 14.02.2017
 
 Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Velocity - Impact (1997) [APE|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881900.jpg" />
+  <img src="Z:/picture/005/save_picture_881900.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Stephen Pearcy - Smash (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881869.jpg" />
+  <img src="Z:/picture/005/save_picture_881869.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blacksmith - Once Upon A Star (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880818.jpg" />
+  <img src="Z:/picture/005/save_picture_880818.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Girlschool - The Collection (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879282.jpg" />
+  <img src="Z:/picture/005/save_picture_879282.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ UFO - A Conspiracy Of Stars [Limited edition] (2015) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879105.jpg" />
+  <img src="Z:/picture/005/save_picture_879105.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Wild Horses (featuring Brian Robertson) - 4 albums (1980-2014) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878504.jpg" />
+  <img src="Z:/picture/005/save_picture_878504.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Vandallus - 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875978.jpg" />
+  <img src="Z:/picture/005/save_picture_875978.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Stormbringer - Stormbringer (1983) Reissue, 1994, Self-Released[FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875973.jpg" />
+  <img src="Z:/picture/005/save_picture_875973.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Barry Goudreau (Boston, Ernie And The Automatics, Orion The Hunter, RTZ, Cosmo) 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875849.jpg" />
+  <img src="Z:/picture/005/save_picture_875849.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875072.jpg" />
+  <img src="Z:/picture/005/save_picture_875072.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Voltage - Travellin' Men (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873752.jpg" />
+  <img src="Z:/picture/008/save_picture_873752.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Brett Ellis - 4 Album (2014 - 2016) [FLAC|Lossless|image + .cue] <Hard Rock, Cla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873517.jpg" />
+  <img src="Z:/picture/008/save_picture_873517.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Vega - Anarchy And Unity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873373.jpg" />
+  <img src="Z:/picture/008/save_picture_873373.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873366.jpg" />
+  <img src="Z:/picture/008/save_picture_873366.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Spitfire - Do Or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873358.jpg" />
+  <img src="Z:/picture/008/save_picture_873358.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ One Desire - Midnight Empire (2020) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872691.jpg" />
+  <img src="Z:/picture/008/save_picture_872691.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Brazen Abbot - Guilty As Sin (2003) [FLAC|Lossless]<Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872454.jpg" />
+  <img src="Z:/picture/008/save_picture_872454.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Spiritual Beggars - Sunrise To Sundown (2016) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872042.jpg" />
+  <img src="Z:/picture/008/save_picture_872042.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Tony Carey - The Boystown Tapes (1999) [FLAC|Lossless|image + .cue]<Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871565.jpg" />
+  <img src="Z:/picture/008/save_picture_871565.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ George Lynch - Seamless (2021) [FLAC|Lossless|image + .cue] <Instrumental Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871536.jpg" />
+  <img src="Z:/picture/008/save_picture_871536.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Ozzy Osbourne - No More Tears (1991) 30th Anniversary Edition, 2021, [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871233.jpg" />
+  <img src="Z:/picture/008/save_picture_871233.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ King Zebra - Survivors (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871231.jpg" />
+  <img src="Z:/picture/008/save_picture_871231.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Distant Cry - Distant Cry (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870078.jpg" />
+  <img src="Z:/picture/008/save_picture_870078.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Quartz - Fear No Evil (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870058.jpg" />
+  <img src="Z:/picture/008/save_picture_870058.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Quartz - Fear No Evil (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A6A4BD52282656E09D293E9F3ACCF01804FD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106879   (870054) от 21.02.2017
-
-Wild Adriatic - Feel (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Appleton (3:41)
-02. Runnin Thru (3:33)
-03. Come Back Baby (4:21)
-04. Cruel Lovin' (3:27)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE5B83DCAABE005E1D8EBB22BB6DBEA64675865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496799   (869934) от 19.09.2021
-
-Duckwalk Chuck - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Fired Up
-02. It's Only Rock'n'roll
-03. Motor Madness
-04. Ghost Town(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FC93D596D938B9AF6D27E7535732DA96CE769E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1699624   (117712) от 14.02.2024
+
+VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Cooper - School's Out [03:30]
+02. T. Rex - 20th Century Boy [03:41]
+03. Elton John - Saturday Night’s Alright (For Fighting) (Remastered) [04:55]
+04. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22F435DAE6C03DA1E9EEED707CAFD3280D6C248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699884   (116924) от 18.02.2024
+
+VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Floyd - Embryo [10:22]
+02. Yes - Starship Trooper: a. Life Seeker, b. Disillusion, c. Wurm [09:27]
+03. Frank Zappa, The Mothers of Invention - Inca Roads [08:45]
+04. Aphrodite's Child - The Four Horsemen [05:53](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 06:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700802   (116899) от 18.02.2024
+
+VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Children Of Bodom - In Your Face
+002. Blackbriar - The Evergreen
+003. Visions Of Atlantis - Pirates Will Return
+004. Restless Spirit - Brutalized(   Читать дальше...   )Жанр: Metal, Death, BlackПродолжительность: 10:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DBA5F679A25F76E4B5848312E45F3659FEA319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702326   (115720) от 25.02.2024
+
+Extreme - Collection (2024) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Extreme - одна из любимых команд. Винил альбома Pornograffitti - 1990 года, с самой юности хранится у меня дома. Именно этот пласт был у многих в начале и середине 90х. На нём нет никаких данных об издателе. Скорее всего, кто то из барыг - делюганов, нашлёпал их огромную партию и распихал по Союзу. Сам альбом очень круто сделан. Мощная, напористая, немного хулиганская (   Читать дальше...   )01. Decadence Dance
+02. Li'l Jack Horny
+03. When I'm President
+04. Get The Funk Out(   Читать дальше...   )Жанр: RockПродолжительность: 06:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C780DD2CBE691B7430BC1A9A96D5031D4580F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702505   (114762) от 02.03.2024
+
+VA - Best Rock Ballads 60-90s (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114762.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gary Moore - Empty Rooms [04:15]
+002. Scorpions - Wind Of Change [05:13]
+003. Queen - The Show Must Go On [04:24]
+004. Foreigner - I Want to Know What Love Is (2008 Remaster) [05:01](   Читать дальше...   )Жанр: Rock, Hard Rock, BalladПродолжительность: 11:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703989   (114670) от 02.03.2024
 
 VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
@@ -6,7 +151,7 @@ VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114670.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Robert Plant - Voice Of Rock - Compilation (1967-2025) [MP3|320 Kbps] <Blues roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112330.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111491.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110775.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Blues Saraceno - Compilation (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109927.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109848.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109834.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109786.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103991.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102816.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102529.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100645.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100624.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100619.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94570.jpg" />
 </div>
 
 
@@ -444,7 +589,7 @@ VA - Лучшие тяжёлые русскоязычные баллады (1983
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82326.jpg" />
 </div>
 
 
@@ -479,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76990.jpg" />
 </div>
 
 
@@ -514,7 +659,7 @@ blur - Compilation (1991-2023) [MP3|320 Kbps] <Britpop, Indie rock, Art rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70447.jpg" />
 </div>
 
 
@@ -543,7 +688,7 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70219.jpg" />
 </div>
 
 
@@ -572,7 +717,7 @@ Gamma Ray - Compilation (1990-2021) [MP3|320 Kbps] <Power metal, Speed metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70028.jpg" />
 </div>
 
 
@@ -601,7 +746,7 @@ Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69747.jpg" />
 </div>
 
 
@@ -615,151 +760,6 @@ Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789529   (68234) от 05.04.2025
-
-Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kong At The Gates (Famous Monsters 1999)
-02. Where Do They Go (The Devil's Rain 2011)
-03. Where Eagles Dare (Night Of The Living Dead EP 1979)
-04. Scream (Famous Monsters 1999)(   Читать дальше...   )Жанр: Punk rock,  Horror punkПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723C2CB16ECB79F71524DE68FEA7C0D665C913E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795976   (66935) от 12.05.2025
-
-Black Stone Cherry - Compilation (2003-2025) [MP3|320 Kbps] <Hard rock, Southern rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me & Mary Jane (Magic Mountain | 2014)
-02. Out Of Pocket (Screamin' At The Sky | 2023)
-03. Sunrise (Folklore & Superstition | 2008)
-04. Stop Runnin' (Black Stone Cherry | 2006)(   Читать дальше...   )Жанр: Hard rock, Southern rockПродолжительность: 04:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B428F615AA4AE1E468392810ED0ED4D1B0A3D890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808647   (64944) от 25.07.2025
-
-Tomoyasu Hotei - Compilation (1988-2025) [MP3|320 Kbps] <Rock, Miscellaneous>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Battle Without Honor Or Humanity (OST Shin Jinginaki Tatakai | 2000)
-002. Doberman (Doberman | 2003)
-003. Frozen Memories (Electric Samurai | 2004)
-004. Medusa (New Beginnings | 2014)(   Читать дальше...   )Жанр: Rock, MiscellaneousПродолжительность: 08:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9048FCEF53FC8CA084FB119EF3049B4BE4D8C70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808775   (64847) от 27.07.2025
-
-Joe Lynn Turner - Voice Of Rock - Compilation (1977-2025) [MP3|320 Kbps] <Hard rock, Art rock, Glam metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow Your Heart (& Vitalij Kuprij) (Revenge | 2007)
-02. Hellraiser (Bat Head Soup-A Tribute To Ozzy | 2000)
-03. Down & Dirty (& Akira Kajiyama) (Fire Without Flame | 2006)
-04. Mirror Mirror (& Def Leppard & Icarus Witch) (Songs For The Lost | 2007)(   Читать дальше...   )Жанр: Hard rock, Art rock, Glam metalПродолжительность: 20:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E22E419685EA118E6BE8F90D5FFA6AA0C94C070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707632   (62637) от 17.03.2024
-
-VA - Rock & Blues Rock compilation part 65 (2024) [MP3|320 Kbps] <Rock & Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trixie Whitley - Pieces
-02. Medicine Head - Alibi
-03. Geordie - Little Boy
-04. Trixie Whitley - Closer(   Читать дальше...   )Жанр: Rock & Blues RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9623A9838993F3E3F79985ECCC2BFC657E80AE64
 ```
 
 https://mybot314.ru/tekegram_catalog/

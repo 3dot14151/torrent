@@ -1,3 +1,162 @@
+###  Публикация: 1086591   (149831) от 25.12.2016
+
+Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149831.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Японии много благородных воров, но даже среди них Кайто Кид или Малыш был известен ловкостью и неуловимостью. И вот легендарный Кайто Кид явился снова и крадет исключительно крупные драгоценности, мелочь его не интересует. Полицейские и частные детективы многое бы отдали за раскрытие личности звезды преступного мира, а на деле все просто: нынешний Малыш – 17-летний (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: приключения, комедияРежиссер: Кудо СусумуЯзык субтитров: Русский (отключаемый)Продолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC87D5DA81580138E473751B61F257A960EED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271456   (149189) от 23.12.2018
+
+Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвращение и покажи трусики [2018, OVA, 6 из 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аниме для людей с довольно специфическим фетишем.Производство: Студия Uwan PicturesЖанр: эттиРежиссер: Фукасэ СаяПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E41A51549DDCF34064DE613C3D2C8C783DB151E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501384   (146901) от 25.12.2021
+
+Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Чёрной компании" [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киндзи — обычный современный бездельник, для которого рабочая этика или трудолюбие — пустые слова. Но однажды всё меняется: он обнаруживает себя в фэнтезийном мире, но не таком, где героя-попаданца ждут с распростёртыми объятиями. Вместо этого он оказывается под пятой злобной горнодобывающей компании, и ему предстоит на собственной шкуре уяснять значение словосочетания (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, фэнтезиРежиссер: Минато МирайПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C287F506741409EC6EADFBBC45EFED22582552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331052   (146813) от 25.12.2019
+
+Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицина бессильна! [ТВ-3] [2019, TV, 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон истории, где сестра регулярно молотит своего тупого брата.
+
+Первый сезон
+Второй сезонПроизводство: совместное Япония-Китай (Imagineer, Fanworks, China Wit Media Co, Tencent Punguin Pictures)Жанр: комедия, повседневностьРежиссер: РарэкоПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC478403202B57E3376B993114183B44446EC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470624   (146648) от 25.12.2021
+
+Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что? [2021, TV, 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я, главная героиня, была обычной школьницей, но неожиданно переродилась в монстра-паука в другом мире. Да ещё и очутилась в подземелье, полном монстров. Мне, вооружённой только смекалкой и безграничным оптимизмом, приходится побеждать монстров намного сильнее себя с помощью ловушек из паутины... Так начинается история выживания одной очень упорной девушки, которая (   Читать дальше...   )Производство: студия Millepensee / ミルパンセЖанр: приключения, комедия, фэнтезиРежиссер: Итагаки СинПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A109AD9939FF799FCB5520702B9195101E0F744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494160   (146640) от 25.12.2021
+
+Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы будут высланы! [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайное общество «Кисараги» — корпорация, которую знают по всей Земле — объявило себя организацией зла и стало творить повсюду свои тёмные делишки. Оно расправилось с героями и практически завоевало мир. Но что делать с комбатантами, верными агентами, когда мир падёт к ногам? В надежде предотвратить глобальные увольнения главы «Кисараги» решают действовать смело и (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, комедия, фэнтезиРежиссер: Акаги ХироакиПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A11D817D2C53E52C73BFC615AAF048EEE44966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435109   (146000) от 27.12.2020
 
 Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
@@ -6,7 +165,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145516.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145222.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145060.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145019.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143705.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141783.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139225.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138766.jpg" />
 </div>
 
 
@@ -271,7 +430,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -297,7 +456,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138117.jpg" />
 </div>
 
 
@@ -323,7 +482,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138067.jpg" />
 </div>
 
 
@@ -349,7 +508,7 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137982.jpg" />
 </div>
 
 
@@ -375,7 +534,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137834.jpg" />
 </div>
 
 
@@ -401,7 +560,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -427,7 +586,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137586.jpg" />
 </div>
 
 
@@ -453,7 +612,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136601.jpg" />
 </div>
 
 
@@ -479,7 +638,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135550.jpg" />
+  <img src="Z:/picture/005/save_picture_135550.jpg" />
 </div>
 
 
@@ -507,7 +666,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132814.jpg" />
 </div>
 
 
@@ -518,164 +677,6 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0D83A4F1C860CABC18A2DF07503F50993573C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595114   (131210) от 30.12.2012
-
-Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кота после долгого отсутствия вернулся в приокеанский город, в котором живёт его двоюродная сестра и подруга детства Юка. Кота собирается учиться в местном колледже. И Юка, с ранних лет неравнодушная к нему, естественно, поступает туда же. Её семья предоставила парню жильё в здании бывшей небольшой гостиницы, при условии, что тот будет за ней присматривать и прибирать комнаты. Когда вечером пара прогуливалась по пляжу, из воды им навстречу вышла нагая девушка с огненными волосами и маленькими рожками, которая (   Читать дальше...   )Жанр: драма, фантастика, ужасы, эттиРежиссер: Камбэ МаморуПродолжительность: 00:25 x14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345040   (130986) от 08.12.2023
-
-Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [1995, TV, 29 из 29] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв Основу, мир Цефира погружается в хаос. Миры, расположенные неподалёку, преследуя каждый свою цель, стремятся захватить разрушающийся мир, а неведомая сила, средоточие зла, используя момент, собирается вообще уничтожить вселенную. И лишь легендарные Рыцари-маги могут восстановить былое равновесие.Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 29 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345039   (130971) от 08.12.2023
-
-Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV, 20 из 20] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три восьмиклассницы – Хикару, Юми и Фу – были на экскурсии в Токийской телебашне. Неожиданно странная сила захватила девочек и увлекла их в загадочный мир. Там их встретил таинственный учитель Клеф, который наспех объяснил пришелицам, что те перенеслись на Сефиро по воле принцессы Эмералд. Принцесса – душа этого мира, его правительница и магическая заступница – оказалась (   Читать дальше...   )Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Станислав ФроловЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 20 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824110   (128582) от 14.10.2025
-
-Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять столетий назад владыка тьмы Вельтоль правил Бессмертным королевством, но пал от руки героя. Теперь ему пришло время вернуться к жизни. Год 2099, цивилизация достигла небывалого технологического развития, и Вельтоль оказывается в футуристическом городе с небоскрёбами и неоновыми вывесками. Владыка тьмы может быть пережитком прошлого, но это не значит, что ему (   Читать дальше...   )Производство: Студия J.C. Staff, ЯпонияЖанр: приключения, фэнтезиРежиссер: Кай ХасакоПеревод: CrunchyRoll, Anilibria, SanaeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B868C0EE9C6AFA99DFE7EE209A14F5BF753226DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683631   (128451) от 11.12.2023
-
-Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Тамахи обеспокоена появлением у неё слуховых галлюцинаций и звона в ушах. В один из летних дней, когда девушка вместе со своими друзьями возвращалась из школы домой, она заметила какое-то движение у многоквартирного дома. Ребята подбежали к месту предполагаемого падения, однако никого там не нашли. Шокированной Тамахи показалось, что она услышала (   Читать дальше...   )Производство: ЯпонияЖанр: фэнтези, ужасы, детективРежиссер: Саку СакамотоПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 47 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F92C25B03F5DE6E73C429C95A59C82442C416A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823580   (125844) от 11.10.2025
-
-Mashin Eiyuuden Wataru: Nana Tamashii no Ryuujinmaru | Маленькие спасатели: Семь душ Рюдзиммару [2020, Web, 9 из 9] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125844.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гора Сукай в опасности, и Ватару снова здесь, чтобы спасти ее. Однако Рюджинмару был разбит на куски во время битвы с таинственным врагом «Добазудар»!
-Ватару впал в отчаяние, но внезапно он услышал голос Рюджинмару. Рюджинмару все еще жив! Затем Ватару видит видение горы Сокай, перевёрнутой вверх ногами.
-Это место называется «гора Мусокай», «мечта дракона» и находится (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фэнтезиРежиссер: Кодзина ХиросиПеревод: hokuto_sanЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 9 эп. по 20 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B370A0694117ED97DCACBF42667B4E202E53532E
 ```
 
 https://mybot314.ru/tekegram_catalog/

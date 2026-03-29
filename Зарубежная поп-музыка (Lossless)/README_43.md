@@ -1,3 +1,207 @@
+###  Публикация: 1296001   (615132) от 15.04.2019
+
+VA - 100 Greatest Chilled Pop (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental / Jess Glynne / Macklemore / Dan Caplen : These Days (feat. Jess Glynne, Macklemore & Dan Caplen) [00:03:31]
+02. Fleetwood Mac : Everywhere (2017 Remaster) [00:03:46]
+03. Dua Lipa : Be The One [00:03:22]
+04. All Saints : Pure Shores [00:04:28](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B758D16310C90C433D7805893F7C8B3458E65D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545405   (614904) от 19.04.2022
+
+Michael Ball - The Musicals (1996) [FLAC|Lossless|image + .cue] <Vocal, Musical, Soundtrack>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ask Of You (Phantom Of The Opera)
+02. Something's Coming (West Side Story)
+03. Losing My Mind (Follies)
+04. Memory (Cats)(   Читать дальше...   )Жанр: Vocal, Musical, SoundtrackПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7DDB4E98D19D197F7CB62513D2DA90D76A9158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230688   (613869) от 13.06.2018
+
+VA - Top Of The Pops '1976 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодняшним релизом продолжаю небольшую (пока) серию путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1:
+01. ABBA - Dancing Queen   (3:50)
+02. Billy Ocean - Love Really Hurts Without You   (3:00)
+03. Tavares - Don't Take Away The Music   (3:40)(   Читать дальше...   )Жанр: 1970s, pop, rockПродолжительность: 03:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFF959756E49A42AB79F49E508DC9609E23C5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037401   (613767) от 24.07.2016
+
+Helene Fischer - Best Of (2010) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Hier Bis Unendlich [03:46]
+02. Du Faengst Mich Auf Und Laesst Mich Fliegen [04:01]
+03. Feuer Am Horizont [03:52]
+04. Ich Glaub' Dir Hundert Luegen [03:22](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738E3761121C25D61B84C7941A6F72A655B4BA46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296310   (613364) от 16.04.2019
+
+Richard Marx - The Ultimate Collection (2016) Universal Music [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Here Waiting (4:26)
+ 02. Hazard (5:17)
+ 03. Should've Known Better (4:10)
+ 04. Endless Summer Nights (4:31)(   Читать дальше...   )Жанр: Pop, Pop-Rock, BalladПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76647B5E1FE3B5CEE36065C7C6CE20DA4F9AEFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037437   (612122) от 25.07.2016
+
+Roosevelt - Roosevelt (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Wait Up
+03. Night Moves
+04. Belong(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4AC8A854B58D369C2D9DCE4FFEE596ED003FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037672   (611671) от 25.07.2016
+
+VA - BRAVO Hits 94 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_611671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Timberlake - Can't Stop The Feeling! (Original Song From DreamWorks Animation's "Trolls") (3:56)
+02. Imany - Don't Be So Shy (Filatov & Karas Remix) (3:10)
+03. Kungs & Cookin' On 3 Burners - This Girl (3:15)
+04. Drake feat. Wizkid & Kyla - One Dance (2:54)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55341564D631E12BD3238A0B43B9F66BB76E9D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 804873   (611601) от 14.07.2014
 
 Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
@@ -6,7 +210,7 @@ Alizee - Blonde (2014) [FLAC|Lossless] <Pop, Electronic, French Pop, Dancepop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611601.jpg" />
+  <img src="Z:/picture/008/save_picture_611601.jpg" />
 </div>
 
 
@@ -35,7 +239,7 @@ Belinda Carlisle - The Anthology (2014) Compilation, 3CD [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610997.jpg" />
+  <img src="Z:/picture/008/save_picture_610997.jpg" />
 </div>
 
 
@@ -64,7 +268,7 @@ VA - Hits 2012 (2012) [FLAC|Lossless]<Pop, Rok, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609244.jpg" />
+  <img src="Z:/picture/005/save_picture_609244.jpg" />
 </div>
 
 
@@ -93,7 +297,7 @@ Savage Garden - The Singles (2015) [FLAC|tracks+.cue]<Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606934.jpg" />
+  <img src="Z:/picture/008/save_picture_606934.jpg" />
 </div>
 
 
@@ -122,7 +326,7 @@ Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606798.jpg" />
+  <img src="Z:/picture/008/save_picture_606798.jpg" />
 </div>
 
 
@@ -151,7 +355,7 @@ Mariah Carey - #1's (1998) Compilation, 2022, Columbia - Legacy [FLAC 2.0|44.1/2
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606105.jpg" />
+  <img src="Z:/picture/008/save_picture_606105.jpg" />
 </div>
 
 
@@ -180,7 +384,7 @@ VA - Top Of The Pops '1977 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605081.jpg" />
+  <img src="Z:/picture/008/save_picture_605081.jpg" />
 </div>
 
 
@@ -210,7 +414,7 @@ HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alter
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604923.jpg" />
+  <img src="Z:/picture/008/save_picture_604923.jpg" />
 </div>
 
 
@@ -239,7 +443,7 @@ Bee Gees - Odessa (1969) Deluxe Edition, 2017 [FLAC|Lossless|WEB-DL|tracks] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604736.jpg" />
+  <img src="Z:/picture/008/save_picture_604736.jpg" />
 </div>
 
 
@@ -268,7 +472,7 @@ Patrick Lindner - Die kleinen Dinge des Lebens (1990) [FLAC|Lossless|image + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604471.jpg" />
+  <img src="Z:/picture/008/save_picture_604471.jpg" />
 </div>
 
 
@@ -297,7 +501,7 @@ Lucius - Second Nature (2022) [FLAC|Lossless|tracks + .cue] <Disco, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604419.jpg" />
+  <img src="Z:/picture/008/save_picture_604419.jpg" />
 </div>
 
 
@@ -326,7 +530,7 @@ VA - Romantic Serenade (2001) [FLAC|Lossless|image + .cue] <Traditional Pop, Voc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604314.jpg" />
+  <img src="Z:/picture/008/save_picture_604314.jpg" />
 </div>
 
 
@@ -355,7 +559,7 @@ Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604245.jpg" />
+  <img src="Z:/picture/008/save_picture_604245.jpg" />
 </div>
 
 
@@ -384,7 +588,7 @@ Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604057.jpg" />
+  <img src="Z:/picture/008/save_picture_604057.jpg" />
 </div>
 
 
@@ -413,7 +617,7 @@ Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
+  <img src="Z:/picture/008/save_picture_603495.jpg" />
 </div>
 
 
@@ -442,7 +646,7 @@ Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603386.jpg" />
+  <img src="Z:/picture/008/save_picture_603386.jpg" />
 </div>
 
 
@@ -471,7 +675,7 @@ VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
+  <img src="Z:/picture/008/save_picture_603308.jpg" />
 </div>
 
 
@@ -500,7 +704,7 @@ Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603093.jpg" />
+  <img src="Z:/picture/008/save_picture_603093.jpg" />
 </div>
 
 
@@ -529,7 +733,7 @@ Madonna - The Confessions Tour (2007) CD [FLAC|Lossless|tracks + .cue] <Dance-Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602640.jpg" />
+  <img src="Z:/picture/008/save_picture_602640.jpg" />
 </div>
 
 
@@ -543,209 +747,6 @@ Madonna - The Confessions Tour (2007) CD [FLAC|Lossless|tracks + .cue] <Dance-Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C209666C220F3F43FB80BF1D542815889FAA4B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298497   (601915) от 27.04.2019
-
-Rúzsa Magdolna (Ruzsa Magdolna) - Lélekcirkusz (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A bohóc (2:41)
-02. Lélekcirkusz (1:24)
-03. Széldal (3:39)
-04. Nekem nem szabad (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEFA911B93050D3F113DB0D2E8C9E2170A5AA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298930   (601586) от 29.04.2019
-
-P!nk (Pink) - Hurts 2B Human (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustle (2:56)
-02. (Hey Why) Miss You Sometime (3:23)
-03. Walk Me Home (2:59)
-04. My Attic (3:02)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259404185668B16B6942DAE48335BD5228BF0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548103   (600896) от 01.05.2022
-
-VA - Pure Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauren Spencer-Smith - Fingers Crossed
-02. Becky Hill - Remember (Acoustic)
-03. Vanessa Carlton - A Thousand Miles (Acoustic)
-04. Us The Duo - Better Together(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC4A2DAB0937BEAFB75A5AC23F1641CE53AFB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298760   (600753) от 30.04.2019
-
-Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handmade Heaven (03:29)
-02. Superstar (03:53)
-03. Orange Trees (03:07)
-04. Baby (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A49B9DE11FC4DC38351E27148EF8C8E662BB2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149659   (600242) от 11.07.2017
-
-Will Tura - The Real... Will Tura (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Eenzaam zonder jou
-02. Draai dan 797204
-03. Je liegt(   Читать дальше...   )Жанр: PopПродолжительность: 03:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9831A7F131613CE87ADFC5C145EC804115A250A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149671   (600218) от 11.07.2017
-
-Billy Ocean - The Real... Billy Ocean (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Love Really Hurts Without You
-02. L.O.D. (Love on Delivery)
-03. Cream On The Top(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 03:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB5B5C1B9C6A0FE2104AD57601B3D5844541712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299345   (600041) от 01.05.2019
-
-Вика Антонова - Качели (2007) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Николя
-02, Точки
-03. Грустное кино
-04. Прощай(   Читать дальше...   )Жанр: РорПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECD7B1F78A4883262BE3B334489B0BC78DB7ED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

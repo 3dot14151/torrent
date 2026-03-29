@@ -6,7 +6,7 @@ MAGIX Vegas Pro 18.0 Build 284 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699245.jpg" />
+  <img src="Z:/picture/008/save_picture_699245.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ One Commander 3.4.38.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699209.jpg" />
+  <img src="Z:/picture/008/save_picture_699209.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ StartAllBack 3.3.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699203.jpg" />
+  <img src="Z:/picture/008/save_picture_699203.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wondershare UniConverter 13.6.0.140 (х64) Repack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699194.jpg" />
+  <img src="Z:/picture/008/save_picture_699194.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ uTorrent Stable 3.5.5 (build 45146) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699154.jpg" />
+  <img src="Z:/picture/008/save_picture_699154.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.08.13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699126.jpg" />
+  <img src="Z:/picture/008/save_picture_699126.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Movavi Video Editor Plus 22.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699064.jpg" />
+  <img src="Z:/picture/008/save_picture_699064.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Viber 17.0.0.0 RePack (Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699063.jpg" />
+  <img src="Z:/picture/008/save_picture_699063.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Nero Recode 4.10.10600.4.100 RePack by MKN [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699038.jpg" />
+  <img src="Z:/picture/005/save_picture_699038.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Daum PotPlayer 1.7.17508 Stable RePack (& portable) by 7sh3 (08.03.2019) [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699008.jpg" />
+  <img src="Z:/picture/008/save_picture_699008.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Bandicam 2.2.1.785 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698950.jpg" />
+  <img src="Z:/picture/008/save_picture_698950.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ESET NOD32 Internet Security 12.1.31.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698923.jpg" />
+  <img src="Z:/picture/008/save_picture_698923.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Zbrush 2019 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698904.jpg" />
+  <img src="Z:/picture/008/save_picture_698904.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ iZotope - RX 7 Audio Editor Advanced 7.01.315 STANDALONE, VST, VST3, AAX RePack 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698903.jpg" />
+  <img src="Z:/picture/008/save_picture_698903.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ DjVuLibre DjView 4.10.1 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698843.jpg" />
+  <img src="Z:/picture/008/save_picture_698843.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Re-Loader 1.3 RC 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698838.jpg" />
+  <img src="Z:/picture/008/save_picture_698838.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Screenshot Captor 4.21.1 Portable by Kopejkin [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698690.jpg" />
+  <img src="Z:/picture/008/save_picture_698690.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Nero Burning ROM 2015 16.0.02700 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698676.jpg" />
+  <img src="Z:/picture/008/save_picture_698676.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Acronis Backup 11.5.43956 with Universal Restore [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698669.jpg" />
+  <img src="Z:/picture/008/save_picture_698669.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Cowboy WPI Spring StartSoft 15-2015-May [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698666.jpg" />
+  <img src="Z:/picture/008/save_picture_698666.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Advanced Installer 14.8 Build 281f49a4fb RePack by Alex Zaguzin [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698515.jpg" />
+  <img src="Z:/picture/008/save_picture_698515.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Light Image Resizer 5.1.3.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698506.jpg" />
+  <img src="Z:/picture/008/save_picture_698506.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Athentech Perfectly Clear + Essentials 3.5.7.1172 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698505.jpg" />
+  <img src="Z:/picture/008/save_picture_698505.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Jihosoft File Recovery 8.0.9 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698496.jpg" />
+  <img src="Z:/picture/008/save_picture_698496.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ XMedia Recode 3.3.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698470.jpg" />
+  <img src="Z:/picture/008/save_picture_698470.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Wondershare Filmora 8.6.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698407.jpg" />
+  <img src="Z:/picture/008/save_picture_698407.jpg" />
 </div>
 
 

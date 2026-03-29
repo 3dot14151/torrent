@@ -1,3 +1,81 @@
+###  Публикация: 1499444   (847354) от 02.10.2021
+
+Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное сочетание детективной новеллы с управлением бизнесом, выполненное в нуар-комиксовой графике. Сыграйте в бизнес-менеджер и погрузитесь в мрачную историю интригующего альтернативного Нео-Лондона. Coffee Noir - бизнес-симулятор с двумерной графикой, налаживанием сделок, организацией контрактов, подрядов и производства, сочетающийся с детективной историей (   Читать дальше...   )Тип издания: LicenseРазработчик: DOJI, NAOS SoftwareЖанр: Detective, Strategy, Management, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2192E1E3994F80DC4844B89435E071E7493BED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379921   (835605) от 01.05.2020
+
+Kingdom Two Crowns (2018) [Ru/Multi] (1.1.2r10007/dlc) License PLAZA [Royal Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Two Crowns является новым этапом развития этой известной и увлекательной микростратегии. В новом режиме кампании монархам придется отстраивать королевство, способное выстоять до тех пор, пока не будет найден способ расправиться с Жадностью раз и навсегда. Нанимайте новые типы боевых единиц и разрабатывайте новые технологии для укрепления обороны. Исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Noio, CoatsinkЖанр: Strategy (Manage, Busin, Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A59CA52D2E3AAEDD17EA201E293E5D13CD6F22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114456   (832784) от 14.03.2017
+
+Lula: The Sexy Empire (1998) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в эротическую индустрию! Это ваша мечта. Вы директор международного эротического холдинга, со своими кино- и аудиостудиями, офисом для кастинга, маркетинговым отделом и так далее! Но все когда-то начинали с низов. Вы живете в маленьком заспанном городке посреди пустыни со своей привлекательной подругой. Хуже того: вы практически на мели, а еще на (   Читать дальше...   )Тип издания: LicenseРазработчик: Interactive StripЖанр: Стратегия, Экономика, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975977   (829978) от 10.04.2016
 
 Fear Equation (2016) [En] (2.0.1) License GOG
@@ -6,7 +84,7 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829978.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826215.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sheltered (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824513.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824324.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Game Tycoon 2 (2016) [En/Multi] (1.05) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816721.jpg" />
+  <img src="Z:/picture/008/save_picture_816721.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815241.jpg" />
+  <img src="Z:/picture/008/save_picture_815241.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810935.jpg" />
+  <img src="Z:/picture/008/save_picture_810935.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) License PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799711.jpg" />
+  <img src="Z:/picture/008/save_picture_799711.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797908.jpg" />
+  <img src="Z:/picture/008/save_picture_797908.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797347.jpg" />
+  <img src="Z:/picture/008/save_picture_797347.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Villagers (2016) [Ru/Multi] (1.030) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796558.jpg" />
+  <img src="Z:/picture/008/save_picture_796558.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793261.jpg" />
+  <img src="Z:/picture/008/save_picture_793261.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/upd 6b/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793212.jpg" />
+  <img src="Z:/picture/008/save_picture_793212.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ SPORE™ Collection (2008) [Ru/En] (1.3.0.22/3.1.0.22/dlc) Repack R.G. Меха�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790775.jpg" />
+  <img src="Z:/picture/008/save_picture_790775.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ SimCasino (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788738.jpg" />
+  <img src="Z:/picture/008/save_picture_788738.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788725.jpg" />
+  <img src="Z:/picture/008/save_picture_788725.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784717.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782585.jpg" />
+  <img src="Z:/picture/008/save_picture_782585.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Barn Finders (2020) [Ru/Multi] (1.0.0.16128) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782185.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781547.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763894.jpg" />
+  <img src="Z:/picture/008/save_picture_763894.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Spore - Complete Pack (2009) [Ru/En] (1.2.0.2818/3.0.0.2818) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760486.jpg" />
+  <img src="Z:/picture/008/save_picture_760486.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Valhalla Hills (2015) [Ru/Multi] (1.05.17/dlc) License GOG [Two-Horned Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754974.jpg" />
+  <img src="Z:/picture/008/save_picture_754974.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Valhalla Hills (2015) [Ru/Multi] (1.05.17/dlc) License GOG [Two-Horned Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B21C93548E3FFDE25D71D33748C3B0263F10F3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523856   (747773) от 13.01.2022
-
-Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747773.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Mars Horizon вы берёте под свой контроль крупное космическое агентство, ведя его от начала космической программы до высадки астронавтов на Марс. Проведите своё агентство через космическую гонку и напишите собственную альтернативную историю космических путешествий — любое из агентств может первым оказаться на Луне, если вы сделаете правильный выбор. Вы отвечаете (   Читать дальше...   )Тип издания: RepackРазработчик: Auroch DigitalЖанр: Simulator, Strategy, Managerial, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1A60BD65DAE455122762574FD17B775A2DF8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019682   (745916) от 25.05.2016
-
-Industry Giant 2 / Промышленный Гигант II (2015) [Ru] (2.3.3.0) Repack / Mod Evengard [HD Remake]
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экономический бум, крах на бирже, нефтяные кризисы, подъемы, триумфы... Теперь Вы можете стать самой большой силой промышленности! Начните в 1900 году с небольших денег, но больших амбиций и принимая правильные решения, Вы можете создать огромную деловую империю. Принимайте критические решения, относительно более чем 200 товаров которые Вы должны произвести, где (   Читать дальше...   )Тип издания: Repack / ModРазработчик: Fancy Bytes, ReactorЖанр: Strategy (Manage, Busin.), IsometricЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D999DCC2B44D3772BF00F35D4ABB1C70AD4550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526097   (738622) от 23.01.2022
-
-The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738622.jpg" />
-</div>
-
-
-###  Подробнее
-
-После поражения в безнадежной битве с засухой и таинственного исчезновения женщин храбрый народ отправляется в море. Выжившим нужна ваша помощь в самом важном деле – дальнейшем выживании. Необходимо наладить производство пищи и строительных материалов, ведь от этого зависит эффективность работы будущих кораблестроителей, лесников, пивоваров и разведчиков. Стройте (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Byte StudioЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Французский, ПольскийЯзык субтитров: Английский, Испанский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Испанский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA912D16E845F2D9012765F974E9ED59F865AFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

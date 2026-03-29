@@ -1,3 +1,87 @@
+###  Публикация: 327132   (721372) от 23.04.2011
+
+Верка Сердючка полная видеоколлекция / Verka Serduchka complete the video collection (2011) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721372.jpg" />
+</div>
+
+
+###  Подробнее
+
+В представленном DVD альбоме самые известные и любимые песни Верки Сердючки. Среди них «Я попала на любовь», «Я только с мороза», «Чита дрита» и другие песни. Альбом включает караоке самых любимых песен.Жанр: Музыкальное видео / КараокеПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2156DC26B89B3E1BAA1160C9405348D2EB5E92AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285251   (720705) от 26.02.2019
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью переделал выпущенный ранее сборник Вся сила энергия и мощь понастоящему крутой музыки! Это 1я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal - Intro
+01. Thunder - She's So Fine
+02. Sebastian Bach - Tunnelvision
+03. Pantera  - Mouth For War(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529D74141A97B571785F01820837DDD93263774B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669765   (717497) от 18.06.2013
+
+VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717497.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD.1.
+Продолжительность: 01:01:23 
+
+00. Intro(   Читать дальше...   )Жанр: Музыка, Hard RockПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BE91100491833E1E75F5AFF0FA6BD4ECDF5252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669592   (717388) от 18.06.2013
 
 Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
@@ -6,7 +90,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717388.jpg" />
+  <img src="Z:/picture/008/save_picture_717388.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717386.jpg" />
+  <img src="Z:/picture/008/save_picture_717386.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713563.jpg" />
+  <img src="Z:/picture/008/save_picture_713563.jpg" />
 </div>
 
 
@@ -89,7 +173,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710865.jpg" />
+  <img src="Z:/picture/008/save_picture_710865.jpg" />
 </div>
 
 
@@ -115,7 +199,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710863.jpg" />
+  <img src="Z:/picture/008/save_picture_710863.jpg" />
 </div>
 
 
@@ -141,7 +225,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710701.jpg" />
+  <img src="Z:/picture/008/save_picture_710701.jpg" />
 </div>
 
 
@@ -167,7 +251,7 @@ VH1 All Classics Hits (2005) 10xDVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709212.jpg" />
+  <img src="Z:/picture/008/save_picture_709212.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708721.jpg" />
+  <img src="Z:/picture/008/save_picture_708721.jpg" />
 </div>
 
 
@@ -222,7 +306,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705582.jpg" />
+  <img src="Z:/picture/008/save_picture_705582.jpg" />
 </div>
 
 
@@ -251,7 +335,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703392.jpg" />
+  <img src="Z:/picture/008/save_picture_703392.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702674.jpg" />
+  <img src="Z:/picture/008/save_picture_702674.jpg" />
 </div>
 
 
@@ -305,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702539.jpg" />
+  <img src="Z:/picture/008/save_picture_702539.jpg" />
 </div>
 
 
@@ -334,7 +418,7 @@ Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699693.jpg" />
+  <img src="Z:/picture/008/save_picture_699693.jpg" />
 </div>
 
 
@@ -360,7 +444,7 @@ Scorpions - The Best Is Yet To Come - Live in Prague (2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699526.jpg" />
+  <img src="Z:/picture/008/save_picture_699526.jpg" />
 </div>
 
 
@@ -386,7 +470,7 @@ Lady Gaga - Judas (2011) HDTVRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695625.jpg" />
+  <img src="Z:/picture/008/save_picture_695625.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685990.jpg" />
+  <img src="Z:/picture/008/save_picture_685990.jpg" />
 </div>
 
 
@@ -438,7 +522,7 @@ Evanescence - Live at Verizon Arena (2012) HDTVRip 720p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683179.jpg" />
+  <img src="Z:/picture/008/save_picture_683179.jpg" />
 </div>
 
 
@@ -464,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678568.jpg" />
+  <img src="Z:/picture/008/save_picture_678568.jpg" />
 </div>
 
 
@@ -490,7 +574,7 @@ Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676544.jpg" />
+  <img src="Z:/picture/008/save_picture_676544.jpg" />
 </div>
 
 
@@ -516,7 +600,7 @@ DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676508.jpg" />
+  <img src="Z:/picture/008/save_picture_676508.jpg" />
 </div>
 
 
@@ -542,7 +626,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672568.jpg" />
 </div>
 
 
@@ -568,7 +652,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670648.jpg" />
+  <img src="Z:/picture/008/save_picture_670648.jpg" />
 </div>
 
 
@@ -594,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670309.jpg" />
+  <img src="Z:/picture/008/save_picture_670309.jpg" />
 </div>
 
 
@@ -605,93 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F71292376DA6106D268D5AC74221666AD9C6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223986   (667962) от 08.05.2018
-
-Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sexy Car Chag Rock Mix для этого лета !! Просто лучшее! Наслаждайтесь и ВКЛЮЧИТЕ ЗВУК! Отличное сочетание музыки драйва, чтобы быть счастливым и расслабиться на шоссе. Сексуальные девушки! Винтажные и спортивные автомобили!Жанр: Pop, RockПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00F134045436C7D656788E058C1B2CE39A474DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511266   (667212) от 16.06.2012
-
-DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CA9C3934377F632DD84EC28829E5162F7F2B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511827   (665981) от 17.06.2012
-
-Сборник видеоклипов Millenium Dance 7 - (2012) DVDRipH.264
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Elena Gheorghe - Midnight Sun
-02 Dina Gabri - Naughty Boy
-03 Corina feat.JJ - No Sleepin
-04 Juan Magan - Mariah
-05 September - Cry For You
-06 Ida Corr - What Goes Around Comes Around
-07 Taio Cruz - Break Your Heart
-08 Alexandra Stan - Lollipop
-09 Radio Killer - Lonely Heart
-10 Milk and Sugar vs Vaya Con Dios - Hey Nah Neh Nah(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B350FE17C4CC4FD371681B1BB6C123D6D3EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

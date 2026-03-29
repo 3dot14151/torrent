@@ -6,7 +6,7 @@ Telegram Desktop 3.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766018.jpg" />
+  <img src="Z:/picture/008/save_picture_766018.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ LDPlayer 4.0.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766014.jpg" />
+  <img src="Z:/picture/008/save_picture_766014.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Wireshark 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766013.jpg" />
+  <img src="Z:/picture/008/save_picture_766013.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Notepad++ 8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766009.jpg" />
+  <img src="Z:/picture/008/save_picture_766009.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ TreeSize Professional 8.2.1.1622 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766008.jpg" />
+  <img src="Z:/picture/008/save_picture_766008.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ StartIsBack++ 2.0.5 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765988.jpg" />
+  <img src="Z:/picture/008/save_picture_765988.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PhotoFiltre Studio X 10.14.1 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765981.jpg" />
+  <img src="Z:/picture/008/save_picture_765981.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765976.jpg" />
+  <img src="Z:/picture/008/save_picture_765976.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Advanced SystemCare Pro 13.6.0.291 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_765972.jpg" />
+  <img src="Z:/picture/005/save_picture_765972.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MAGIX Movie Edit Pro 2019 Premium 18.0.2.233 (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765963.jpg" />
+  <img src="Z:/picture/008/save_picture_765963.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Bluebeam Revu eXtreme 2018.3.4 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765957.jpg" />
+  <img src="Z:/picture/008/save_picture_765957.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Run-Command 3.21 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765955.jpg" />
+  <img src="Z:/picture/008/save_picture_765955.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Volume2 1.1.7.449 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765930.jpg" />
+  <img src="Z:/picture/008/save_picture_765930.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Guitar Pro 6.1.9 r11686 + Soundbanks r370 full RePack by Egor179 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765922.jpg" />
+  <img src="Z:/picture/008/save_picture_765922.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Maxthon Browser 6.1.3.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765921.jpg" />
+  <img src="Z:/picture/008/save_picture_765921.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Iridium Browser 2021.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765905.jpg" />
+  <img src="Z:/picture/008/save_picture_765905.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Movavi Video Editor Plus 2020 20.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765888.jpg" />
+  <img src="Z:/picture/008/save_picture_765888.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Windows 10 Pro 2004 x64 Rus by OneSmiLe [19041.330]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765887.jpg" />
+  <img src="Z:/picture/008/save_picture_765887.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ FL Studio Producer Edition 20.7.1.1773 Signature Bundle [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765881.jpg" />
+  <img src="Z:/picture/008/save_picture_765881.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ RadioBOSS Advanced 5.8.2.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765871.jpg" />
+  <img src="Z:/picture/008/save_picture_765871.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VirtualBox 6.0.4 Build 128413 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765868.jpg" />
+  <img src="Z:/picture/008/save_picture_765868.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ PDF-XChange Editor Plus 7.0.328.2 + Portable RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765864.jpg" />
+  <img src="Z:/picture/008/save_picture_765864.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe Illustrator CC 2019 23.0.2.565 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765863.jpg" />
+  <img src="Z:/picture/008/save_picture_765863.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Windows 7 SP1 (9in1) (х86-x64) by ivandubskoj 14.01.2019 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765830.jpg" />
+  <img src="Z:/picture/008/save_picture_765830.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Windows 7 Professional SP1 VL (x64) Elgujakviso Edition v.28.01.19 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765821.jpg" />
+  <img src="Z:/picture/008/save_picture_765821.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ MInstAll v.31.12.2021 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765787.jpg" />
+  <img src="Z:/picture/008/save_picture_765787.jpg" />
 </div>
 
 

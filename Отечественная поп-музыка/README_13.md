@@ -1,3 +1,119 @@
+###  Публикация: 909445   (628350) от 17.06.2015
+
+Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По венам моим - океаны (04:22)
+02. With u (При уч. Кот Балу) (03:45)
+03. Стоп мысли (04:38)
+04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294606   (628245) от 08.04.2019
+
+VA - Танцы со вкусом (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вика Воронина - Угги (3:24)
+02. Мари Краймбрери - Полюби меня пьяную (3:04)
+03. Александр Шоуа - Как жаль (4:00)
+04. Витас - 7-й элемент (Седьмой элемент) (4:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B2AA9281314943439FDA0DABA1152A530D19CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909428   (628206) от 17.06.2015
+
+Mania - Рассвет (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (02:44)
+02. Рассвет (02:24)
+03. Серым облакам (02:46)
+04. Отец (02:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F87DF9383CC590AD3A3E1073B245785490A03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294602   (627874) от 08.04.2019
+
+VA - Новые хиты: Весна 2018 (2018) [MP3|320 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дмитрий Прянов, Екатерина Семёнова - Пересечёмся (3:28)
+02. Надежда Кадышева и Золотое кольцо - Чёрное море (2:22)
+03. Иван Ильичёв - Последнее письмо (3:52)
+04. Ирина Круг - Знаю, это ты (3:53)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A4328D7EB6F940B97A6DFF3D6D99AF7B9223D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294815   (625715) от 09.04.2019
 
 Фактор 2 - Письма (2019) [MP3|320 Kbps] <Pop>
@@ -6,7 +122,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625715.jpg" />
+  <img src="Z:/picture/008/save_picture_625715.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623837.jpg" />
+  <img src="Z:/picture/008/save_picture_623837.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621890.jpg" />
+  <img src="Z:/picture/008/save_picture_621890.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
+  <img src="Z:/picture/008/save_picture_620762.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620759.jpg" />
+  <img src="Z:/picture/008/save_picture_620759.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620483.jpg" />
+  <img src="Z:/picture/008/save_picture_620483.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618607.jpg" />
+  <img src="Z:/picture/008/save_picture_618607.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618604.jpg" />
+  <img src="Z:/picture/008/save_picture_618604.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618437.jpg" />
+  <img src="Z:/picture/008/save_picture_618437.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618338.jpg" />
+  <img src="Z:/picture/008/save_picture_618338.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616282.jpg" />
+  <img src="Z:/picture/008/save_picture_616282.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614947.jpg" />
+  <img src="Z:/picture/008/save_picture_614947.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614013.jpg" />
+  <img src="Z:/picture/008/save_picture_614013.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ XENA - Ксенофаризм (2015) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612576.jpg" />
+  <img src="Z:/picture/008/save_picture_612576.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612467.jpg" />
+  <img src="Z:/picture/008/save_picture_612467.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611229.jpg" />
+  <img src="Z:/picture/008/save_picture_611229.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609053.jpg" />
+  <img src="Z:/picture/008/save_picture_609053.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608918.jpg" />
+  <img src="Z:/picture/008/save_picture_608918.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607935.jpg" />
+  <img src="Z:/picture/008/save_picture_607935.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VLNY - Откровения (2014) [MP3|320 Kbps] <Indie Pop, Dream Pop, Acousti
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599526.jpg" />
+  <img src="Z:/picture/008/save_picture_599526.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VLNY - Помни (2015) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599407.jpg" />
+  <img src="Z:/picture/008/save_picture_599407.jpg" />
 </div>
 
 
@@ -645,7 +761,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599064.jpg" />
+  <img src="Z:/picture/008/save_picture_599064.jpg" />
 </div>
 
 
@@ -659,140 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943DA3C2C86CDFCFBE379BB220B68C81243B5A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526319   (599052) от 23.07.2012
-
-Алёна Винницкая - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100 Лет Назад
- 02. Ветер Перемен
- 03. Видишь, Я Жива (Измученное Сердце)
- 04. Все Будет Хорошо
- 05. Давай Забудем Все
- 06. Золушка
- 07. Музыка Рок
- 08. Рассвет
- 09. Тайну Разгадаю
- 10. 007(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526005   (598803) от 23.07.2012
-
-Непара - The Best (2012) [MP3|320 кб/с]<Рор>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бай-бай
-02. Бог тебя выдумал
-03. Вздох-взгляд
-04. Где ты была
-05. Её звали Америка
-06. Письмо
-07. Плакала
-08. Плач и смотри
-09. Подарю тебе пол мира
-10. Сезонная(   Читать дальше...   )Жанр: РорПродолжительность: 02:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA18F4875BA5E68132569F2258ED01FFE23CF0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526425   (596881) от 24.07.2012
-
-Профессор Лебединский - Лучшее (2CD) (2011) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без тебя
-02. Беса ме мучо
-03. Резиновая моя
-04. Лашате ми кантаре
-05. Лица желтые
-06. Калямба - балямба
-07. Учат в школе
-08. Зато меня любят таксисты
-09. Лай - лай - лай
-10. Зачем , Герасим?(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F65998A83351748BE493A5A6B4A6049468A81BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549310   (593954) от 06.05.2022
-
-O.C.A - Ночной дожор (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бездна
-2. Зайки
-3. 7 нот
-4. Море(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AE871AF500CED2047B0D0DF93BB15ED437D44F
 ```
 
 https://mybot314.ru/tekegram_catalog/

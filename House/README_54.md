@@ -1,3 +1,116 @@
+###  Публикация: 575947   (366432) от 16.11.2012
+
+Dinka - Lotus (2012) [MP3|320 кб/с]<Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotus (Original Mix) (07:17)
+02. Lotus (Soundprank Remix) (07:33)
+03. Lotus (Johan Vilborg Remix) (07:29)Жанр: Progressive House, TranceПродолжительность: 00:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286995176FCF4D7B708CE0779911A63791329055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575942   (366308) от 16.11.2012
+
+Example - Close Enemies (The Remixes) (2012) [MP3|320 кб/с]<Dance, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Enemies (Joker Remix) (4:06)
+02. Close Enemies (Dyro Remix) (4:19)
+03. Close Enemies (Nathan C Remix) (6:33)
+04. Close Enemies (Rollz Remix) (5:13)Жанр: Dance, HouseПродолжительность: 00:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD42C30902A3D725832FE2C1B6AAAA25F5F9855D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575945   (366303) от 16.11.2012
+
+David Guetta Feat. Taped Rai - Just One Last Time (Promo CDR) (2012) [MP3|~245 кб/с (V0)]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One Last Time (Extended) (05:43)
+02. Just One Last Time (Hard Rock Sofa Big Room Mix) (06:43)
+03. Just One Last Time (Tiesto Remix) (07:08)
+04. Just One Last Time (Hard Rock Sofa Remix) (06:59)
+05. Just One Last Time (Deniz Koyu Remix) (06:41)Жанр: Electro HouseПродолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA74D669E3F7244958FF2158DEB1E3CF44BDB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574619   (365298) от 16.11.2012
+
+Avicii - 28 Релизов (2008-2012) [MP3|320 кб/с]<Progressive House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive House, TranceПродолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9902F3FD43E4B00A887F2A605A219FF95BA939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070734   (364772) от 08.11.2016
 
 VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
@@ -6,7 +119,7 @@ VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364772.jpg" />
+  <img src="Z:/picture/008/save_picture_364772.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364770.jpg" />
+  <img src="Z:/picture/008/save_picture_364770.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364768.jpg" />
+  <img src="Z:/picture/008/save_picture_364768.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364762.jpg" />
+  <img src="Z:/picture/008/save_picture_364762.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364674.jpg" />
+  <img src="Z:/picture/008/save_picture_364674.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364673.jpg" />
+  <img src="Z:/picture/008/save_picture_364673.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364670.jpg" />
+  <img src="Z:/picture/008/save_picture_364670.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364668.jpg" />
+  <img src="Z:/picture/008/save_picture_364668.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364663.jpg" />
+  <img src="Z:/picture/008/save_picture_364663.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364361.jpg" />
+  <img src="Z:/picture/008/save_picture_364361.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364273.jpg" />
+  <img src="Z:/picture/008/save_picture_364273.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363747.jpg" />
+  <img src="Z:/picture/008/save_picture_363747.jpg" />
 </div>
 
 
@@ -360,7 +473,7 @@ VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362317.jpg" />
+  <img src="Z:/picture/008/save_picture_362317.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362133.jpg" />
+  <img src="Z:/picture/008/save_picture_362133.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362040.jpg" />
+  <img src="Z:/picture/008/save_picture_362040.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ VA - Dubai Deep House (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362039.jpg" />
+  <img src="Z:/picture/008/save_picture_362039.jpg" />
 </div>
 
 
@@ -473,7 +586,7 @@ VA - New York City: Deep House Rhythms (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362029.jpg" />
+  <img src="Z:/picture/008/save_picture_362029.jpg" />
 </div>
 
 
@@ -502,7 +615,7 @@ VA - Getting Deep Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362024.jpg" />
+  <img src="Z:/picture/008/save_picture_362024.jpg" />
 </div>
 
 
@@ -531,7 +644,7 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361949.jpg" />
+  <img src="Z:/picture/008/save_picture_361949.jpg" />
 </div>
 
 
@@ -560,7 +673,7 @@ VA - Under The Surface Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361937.jpg" />
+  <img src="Z:/picture/008/save_picture_361937.jpg" />
 </div>
 
 
@@ -589,7 +702,7 @@ VA - Vocal Melodic House (2022) [MP3|320 Kbps] <Euro Dance, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359617.jpg" />
+  <img src="Z:/picture/008/save_picture_359617.jpg" />
 </div>
 
 
@@ -618,7 +731,7 @@ VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359139.jpg" />
+  <img src="Z:/picture/008/save_picture_359139.jpg" />
 </div>
 
 
@@ -632,122 +745,6 @@ VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DBEB9516121323EB2C987657FCB8146DBAA7E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256003   (359135) от 20.10.2018
-
-VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tosch feat. Christina - Somewhere Over The Rainbow (Steve Cypress Remix) 4:43
-02. Felicia Uwaje - A Deeper Love (Akira Yamamoto Radio Edit) 3:19
-03. Chris Excess feat. Lexine - It Feels So Good (Radio Version) 3:29
-04. Jason Prince - Careless Whisper (Klubkidz Radio Edit) 4:06(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5677BFD876ABB71080838B789350CD7482572572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071696   (357363) от 11.11.2016
-
-VA - Soul House Deluxe - Luxury Melodies (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mazelo Nostra - Boogie Nights 05:03
-02. Stargazer - La Vie Est Belle 04:05
-03. Fuminori Kagajo - Angel (Feat. Selina Campbell) 07:28
-04. Mazelo Nostra - Jazz Cantina 04:16(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24977B1669147A79C40AEB0EAD9168B3B61EA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072187   (354886) от 12.11.2016
-
-VA - Last Night Compilation (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ensaime & Houseplay - Since I've Met You (04:43)
-02. Sub 20 - Emotion (Funky Judge Remix) (04:59)
-03. Davidc - Deep Thought (05:17)
-04. Ciro Sannino - Back Home (06:27)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7FA206E0D04D7943FB3C6D61148041961A157F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256683   (354427) от 22.10.2018
-
-VA - ADE Afterhours Volume 01 (2018) [MP3|320 Kbps] <Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354427.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Rehulka - The First Tones (Symphonic Intro)
-002. Gux Jimenez & HALL & ZANFA - Atemporal (Original Mix)
-003. Soda Sphere - Fireworks (Miroslav Vrlik Remix)
-004. Melchi - In Her Memory (Serge Landar Remix)(   Читать дальше...   )Жанр: Progressive House,TranceПродолжительность: 18:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D317BEE022203536B7071CCE542713D5812C26
 ```
 
 https://mybot314.ru/tekegram_catalog/

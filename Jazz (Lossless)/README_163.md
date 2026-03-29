@@ -1,3 +1,119 @@
+###  Публикация: 21674   (510606) от 27.08.2015
+
+Miles Davis (1953 - 2006) 32 альбома [FLAC, APE, WV|tracks+.cue, image+.cue]<Jazz>
+
+>>След.
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_510606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miles Davis девять раз становился победителем премии Грэмми. Он целых три поколения  был главной силой в мире джаза, и как трубач и как руководитель джаз-оркестра. Miles Davis считается одним из лучших музыкантов своего времени. На протяжении всей своей жизни, он был у руля меняющейся концепции джаза. Более того, он собственно и менял стили джаза, а многие потом следовали (   Читать дальше...   )Перечень альбомов:
+1953 - At Last!
+1954 - Walkin'
+1955 - Quintet and Sextet(   Читать дальше...   )Жанр: JazzПродолжительность: 37:24:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932070   (510331) от 28.08.2015
+
+Roland Kirk - Introducing (1960) /1990, Chess Records/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Call [08:46]
+02. Soul Station [05:31]
+03. Our Waltz [04:54]
+04. Our Love Is Here To Stay [04:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257CBD108B74871ADC86AC04A4FD5B41DC1885AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932224   (510279) от 28.08.2015
+
+Marc Ribot - Live At The Village Vanguard (2012) /2014, Pi Recordings/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dearly Beloved [15:07]
+02. The Wizard [08:00]
+03. Old Man River [06:38]
+04. Bells [19:10](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EEB177C50114CC5EB5F92BAF14943FE8B9EC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932114   (510277) от 28.08.2015
+
+The Dirty Dozen Brass Band - The New Orleans Album (1990) /Columbia/[APE|tracks+.cue]<New Orleans Brass Bands, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Straight [05:24]
+02. When I'm Walking (Let me Walk) [03:13]
+03. Hannibal [06:35]
+04. Don't You Feel My Leg [04:21](   Читать дальше...   )Жанр: New Orleans Brass Bands, FunkПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B68E8A8A9AD0CEA1A719083CF44F997A64C729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932420   (509554) от 29.08.2015
 
 Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Post-Bop>
@@ -6,7 +122,7 @@ Bruno Angelini - Instant Sharings (2015) [FLAC|tracks+.cue]<Contemporary Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509554.jpg" />
+  <img src="Z:/picture/008/save_picture_509554.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Lew Tabackin Quartet - Desert Lady (1990) /Concord Jazz/[FLAC|tracks+.cue]<H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509553.jpg" />
+  <img src="Z:/picture/008/save_picture_509553.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Marie Seferian Quartett - Mille Nuits (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509551.jpg" />
+  <img src="Z:/picture/008/save_picture_509551.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ted Curson - Quicksand (1974) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509549.jpg" />
+  <img src="Z:/picture/008/save_picture_509549.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Coltrane - First Meditations (for quartet) (1965) /2015, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509545.jpg" />
+  <img src="Z:/picture/008/save_picture_509545.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Clark Terry - Three Classic Albums (1958 - 1960) 2CD, 2011, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509289.jpg" />
+  <img src="Z:/picture/008/save_picture_509289.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mound City Blue Blowers - 1935 - 1936 (1996) Classics [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508908.jpg" />
+  <img src="Z:/picture/008/save_picture_508908.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Blue Mitchell - Out Of The Blue (1958) /1991, Riverside/[FLAC|tracks+.cue]<Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508398.jpg" />
+  <img src="Z:/picture/008/save_picture_508398.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Patton - That Certain Feeling (1968) /2014, Universal/[FLAC|tracks+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508397.jpg" />
+  <img src="Z:/picture/008/save_picture_508397.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Clark Terry with Thelonious Monk - In Orbit (1958) /1987, Riverside/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508396.jpg" />
+  <img src="Z:/picture/008/save_picture_508396.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Akua Dixon - Akua Dixon (2014) [FLAC|Lossless|WEB-DL]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508393.jpg" />
+  <img src="Z:/picture/008/save_picture_508393.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ E.J. Strickland Quintet - The Undying Spirit (2015) [FLAC|tracks|WEB-DL]<Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508390.jpg" />
+  <img src="Z:/picture/008/save_picture_508390.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Anita Baker - The Song'stress (1983) /1991, Elektra/[FLAC|tracks+.cue]<Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508325.jpg" />
+  <img src="Z:/picture/008/save_picture_508325.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sarah Maclaine - The Heart Of Me (2015) [FLAC| image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508318.jpg" />
+  <img src="Z:/picture/008/save_picture_508318.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hugh Coltman - Shadows Songs Of Nat King Cole (2015) [FLAC|tracks|WEB-DL]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508315.jpg" />
+  <img src="Z:/picture/008/save_picture_508315.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Halie Loren - Butterfly Blue (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508166.jpg" />
+  <img src="Z:/picture/008/save_picture_508166.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Clark Terry & Max Roach - Friendship (2002) Village Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507803.jpg" />
+  <img src="Z:/picture/008/save_picture_507803.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507260.jpg" />
+  <img src="Z:/picture/008/save_picture_507260.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507256.jpg" />
+  <img src="Z:/picture/008/save_picture_507256.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507254.jpg" />
+  <img src="Z:/picture/008/save_picture_507254.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507250.jpg" />
+  <img src="Z:/picture/008/save_picture_507250.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507242.jpg" />
+  <img src="Z:/picture/008/save_picture_507242.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C2705B8502688EC20CE0ABB9359ED05F761693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562918   (507130) от 11.07.2022
-
-Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Groove
-02. See the Light
-03. A Reason to Smile
-04. Soul Expression(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EAE5E3D4296AE8EDDAE7A1E1C98AF3C9CDBB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562885   (507118) от 11.07.2022
-
-Sidney Bechet - 1923 - 1936 (1991) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down On The Levee Blues [3:37]
-02. Lonesome Woman's Blues [3:07]
-03. Got The Bench, Got The Park [3:14]
-04. In A Cafe On The Road To Calais [2:50](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED18A679D583EB0E796AEE7799CAD4F311FA29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316360   (506925) от 25.07.2019
-
-Frank Foster - Well Water (1977) 2007, Piadrum Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Spring [7:19]
-02. Cecilia Is Love [9:51]
-03. Simone [9:11]
-04. There'll Be a Time [6:12](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588468E993BB21C4D4CBF3B2F5D3309B1D6D0CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316362   (506924) от 25.07.2019
-
-Skip Wilkins - Solo: Recorded Live in Concert at Lafayette College (2007) Dreambox Media [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peau Douce [4:03]
-02. It Was Bound to Happen [3:37]
-03. Skylark [5:51]
-04. Nardis [4:39](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64036EA7B1229CA97D5C5975C2668DAE5FB725B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

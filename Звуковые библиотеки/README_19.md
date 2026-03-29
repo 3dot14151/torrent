@@ -1,3 +1,83 @@
+###  Публикация: 1582634   (206209) от 10.10.2022
+
+Звуковые библиотеки - Universe Video Pro - 2000+ Cinematic Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206209.jpg" />
+</div>
+
+
+###  Подробнее
+
+2000+ Cinematic Sound Effects  - 29 уникальных категорий звуков в одном паке!!! От Автора: "Звуковые эффекты являются важным аспектом в процессе редактирования видео. Это обязательная библиотека звуковых эффектов для кинематографистов. Она включает в себя более 2000 удивительных оригинальных звуков, которые были разработаны, чтобы помочь вам создавать потрясающие (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8979F8913B38762D2FB8695BE9FE82C9A8FFBEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830686   (205638) от 27.10.2025
+
+Звуковые библиотеки - BOOM Library - Cyber Weapons [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека BOOM с гордостью представляет CYBER WEAPONS — библиотеку звуковых эффектов нового поколения для футуристического, современного и научно-фантастического оружия. От небольших лазеров, предназначенных для пистолетов, до разрушающих планету лучей — этот комплект предлагает полный выбор.
+Создавайте собственные творения с помощью набора Construction Kit, содержащего (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A3088434A2EBFCFBBD10FE4CC876D244D84DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584082   (205130) от 17.10.2022
+
+Звуковые библиотеки - Video Presets - 290+ Royalty Free Background Music Tracks [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_205130.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Автора: - "Нам потребовалось немало времени, чтобы создать этот универсальный звуковой пакет Royalty Free, который сэкономит вам много времени и денег.
+Вы еще не убедились? Давайте поговорим о возможных типах видео, в которых вы можете его использовать: YouTube, телевидении, Facebook, Instagram, в веб-рекламе, свадебных и романтических видео, мотивационных (   Читать дальше...   )Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A214A952B57BC26588F14CD021591BC7DDB835F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585326   (204981) от 21.10.2022
 
 Звуковые библиотеки - Lens Distortions - Sound Design Tracks™ [WAV]
@@ -6,7 +86,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204981.jpg" />
+  <img src="Z:/picture/004/save_picture_204981.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203420.jpg" />
+  <img src="Z:/picture/004/save_picture_203420.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202451.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202412.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202188.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200848.jpg" />
+  <img src="Z:/picture/005/save_picture_200848.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198843.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193340.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193328.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188813.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187952.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187951.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187945.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187048.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186373.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186111.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185896.jpg" />
+  <img src="Z:/picture/004/save_picture_185896.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184917.jpg" />
+  <img src="Z:/picture/004/save_picture_184917.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ Toontrack - EZDrummer EZX's & Midi COMPLETE COLLECTION (2007-2020) by Massageth 
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181726.jpg" />
+  <img src="Z:/picture/005/save_picture_181726.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181289.jpg" />
+  <img src="Z:/picture/005/save_picture_181289.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179101.jpg" />
+  <img src="Z:/picture/005/save_picture_179101.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177554.jpg" />
+  <img src="Z:/picture/005/save_picture_177554.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177257.jpg" />
+  <img src="Z:/picture/004/save_picture_177257.jpg" />
 </div>
 
 
@@ -597,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644ADBB17BEAF5C5397290EE0AA53D2CF8D4994B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100718   (177096) от 05.12.2020
-
-Звуковые библиотеки - OwnHammer - Collections [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кастомизированный набор библиотек и коллекций импульсов гитарных кабинетов от OwnHammer. Системные требования: DAW и плагины для обработки импульсов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CDC8EAFFC0CFD37491967DCF0AA57E68EE7956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079716   (177029) от 05.12.2020
-
-Звуковые библиотеки - OwnHammer - Impulse Response Libraries [WAV]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор кастомизированных библиотек Single Cabinet IR Libraries от OwnHammer.
-Системные требования: DAW и плагины для обработки импульсов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCECC6880B0E05D3B5E32020EE8985305615EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428100   (176679) от 06.12.2020
-
-Звуковые библиотеки - Toontrack - Metal EBX v1.0.1 [OBW, MIDI]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal EBX - это расширение для EZbass, разработанное для предоставления широкой палитры тонов для металла. Сочетая в себе детали, ясность и исключительную мощь в форме безупречно выраженных низких частот, этот инструмент проверяет все характеристики, необходимые для прохождения трека брутального дэт-метала на бешеной скорости, как и ритмичный прогрессивный пассаж, (   Читать дальше...   )Формат: OBW, MIDI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5945E199F8023F2339C30D14288332A9FE96FB32
 ```
 
 https://mybot314.ru/tekegram_catalog/

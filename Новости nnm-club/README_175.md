@@ -1,3 +1,162 @@
+###  Публикация: 550474   (437764) от 30.09.2012
+
+Рекомендуемый торрент-клиент для Android. Сделаем ещё лучше всем клубом! [ОБСУЖДЕНИЕ, РАЗРАБОТКА]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья!
+Автор одного из лучших, на наш взгляд, торрент-клиентов под Android OS любезно согласился сделать его вариант, учитывающий кое какую специфику и дизайн проекта NNM-Club.ru.Приглашаю всех нынешних и будущих владельцев Android смартфонов и планшетов, заинтересованных принять участие в обсуждении необходимых функций для этого торрент-клиента, его настроек и всего прочего, а автор по мере свободного времени постарается доработать и реализовать нужные и полезные финкции, учтет разумные аргументированные замечания и предложения, высказанные в вежливой форме.
+Этот клиент и будет основным рекомендуемым для использования с трекером nnm-club.me
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410210   (437567) от 20.09.2020
+
+Symantec Endpoint Protection 14.3 MP1 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symantec Endpoint Protection – антивирусная программа, в которой присутствует firewall и несколько степеней защиты. Утилита предлагает защиту от вирусов, от файлов, которые пока не известны антивирусу, интернет угроз, атак нулевого дня, не допускает вторжений. Symantec Endpoint Protection функционирует на основе технологии Insight, гарантирует абсолютную системную (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA0BC4B980A3EFF1351E2E89D2696FD8BF825591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331216   (437543) от 20.09.2020
+
+Sword Art Online: Alicization 2 / Sword Art Online: Alicization - War of Underworld / Мастера меча онлайн: Алисизация - Война в Подмирье [2019, TV, 23] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло полгода с того дня, когда два элитных курсанта и один рыцарь единства одолели Первосвященницу Администратор. После битвы Алиса вернулась на родину, в деревню Рулид. Под одной с ней крышей живёт Кирито, потерявший лучшего друга, руку и душу. Алиса самоотверженно ухаживает за ним, но в ней больше не осталось рыцарской решимости. — Скажи, Кирито... Что мне делать? (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Оно МанабуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 23 серии по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE1D44B68C29EF142666B8CD561202ABDA5D493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408152   (437538) от 20.09.2020
+
+Мулан / Mulan (2020) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изданный императором Китая указ о призыве на службу в армии одного мужчины из каждой семьи для защиты страны от северных захватчиков вдохновляет Мулан, старшую дочь почетного воина, занять в войсках место больного отца. Маскируясь под мужчину, девушка подвергается испытаниям на каждом шагу, проявляя свои внутреннюю силу и истинный потенциал. Мулан ждет эпичное путешествие, (   Читать дальше...   )Производство: США, Канада, Гонконг / Walt Disney Pictures, Jason T. Reed Productions, Good Fear ContentЖанр: драма, боевик, фэнтезиРежиссер: Ники КароАктеры: Лю Ифэй, Донни Йен, Гун Ли, Джет Ли, Джейсон Скотт Ли, Йосон Ань, Ци Ма, Розалинд Чао, Чжэн Пэйпэй, Сюзанна ТаПеревод: Профессиональный многоголосый,авторскийСубтитры: Русские (Full (FOCS), английскиеПродолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D57BE45D6CCBAC61D84B4A11A6209D159B42FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570489   (437476) от 19.08.2022
+
+Microsoft® Windows® 10 Professional VL x86-x64 21H2 RU by OVGorskiy 08.2022
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437476.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинальных русских образов новой версии операционной системы Windows 10 Pro VL x86-x64 (21H2) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) в 2-х разных образах (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C002E6524DDE27D1EFF4D0161EB4DAB775B64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945027   (437125) от 08.10.2015
+
+Nero 2016 Platinum 17.0.02300 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновационное и надежное программное обеспечение Nero 2016 Platinum предоставит вам испытанный, всеобъемлющий и мощный пакет дополнительных новых функций для прожига, копирования, создания, обработки, воспроизведения, передачи, извлечения и преобразования мультимедийных файлов. С результатами высшего качества и практически на любом устройстве!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4B9F6E91DED670D1A569F6FAD29B90E8C984F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944650   (437116) от 08.10.2015
 
 Свадьба Дженни / Jenny's Wedding (2015) WEB-DLRip
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437116.jpg" />
+  <img src="Z:/picture/008/save_picture_437116.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437105.jpg" />
+  <img src="Z:/picture/008/save_picture_437105.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Windows 7 Ultimate SP1 Lite v.6.18 by naifle (x86-x64) (2018) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436826.jpg" />
+  <img src="Z:/picture/008/save_picture_436826.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436385.jpg" />
+  <img src="Z:/picture/008/save_picture_436385.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ TechSmith Camtasia Studio 9.0.0 Build 1306 RePack by KpoJIuK [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436294.jpg" />
+  <img src="Z:/picture/008/save_picture_436294.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436285.jpg" />
+  <img src="Z:/picture/008/save_picture_436285.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436284.jpg" />
+  <img src="Z:/picture/008/save_picture_436284.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436263.jpg" />
+  <img src="Z:/picture/008/save_picture_436263.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ Driver Genius Professional 11.0.0.1136 DC23.09.2012 Portable by moRaLIst [Рус
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435700.jpg" />
+  <img src="Z:/picture/008/save_picture_435700.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435484.jpg" />
+  <img src="Z:/picture/005/save_picture_435484.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ DogLinux Debian 11 Bullseye 2022.08.20 [x86, amd64] LiveUSB
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435332.jpg" />
+  <img src="Z:/picture/008/save_picture_435332.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ Ubuntu 12.04.1 OEM (октябрь 2012) [i386 + amd64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435125.jpg" />
+  <img src="Z:/picture/005/save_picture_435125.jpg" />
 </div>
 
 
@@ -328,7 +487,7 @@ Doom 3 BFG Edition (2012) [Ru] (1.14) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435080.jpg" />
+  <img src="Z:/picture/008/save_picture_435080.jpg" />
 </div>
 
 
@@ -354,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434932.jpg" />
+  <img src="Z:/picture/008/save_picture_434932.jpg" />
 </div>
 
 
@@ -380,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434931.jpg" />
+  <img src="Z:/picture/005/save_picture_434931.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434922.jpg" />
+  <img src="Z:/picture/008/save_picture_434922.jpg" />
 </div>
 
 
@@ -432,7 +591,7 @@ Video Copilot Element - Element 3D 2.2.2.2140 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434915.jpg" />
+  <img src="Z:/picture/008/save_picture_434915.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434569.jpg" />
+  <img src="Z:/picture/008/save_picture_434569.jpg" />
 </div>
 
 
@@ -484,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434568.jpg" />
+  <img src="Z:/picture/008/save_picture_434568.jpg" />
 </div>
 
 
@@ -512,7 +671,7 @@ Windows XP Twilight Angel Edition 2011.09
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434302.jpg" />
+  <img src="Z:/picture/005/save_picture_434302.jpg" />
 </div>
 
 
@@ -523,163 +682,6 @@ Windows XP Twilight Angel Edition 2011.09
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037170   (434158) от 12.09.2017
-
-State of Decay: Year One (2015) [Ru/Multi] (1.0.15.11.3.5751/dlc) Repack Other s [Survival Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики тщательно поработали над тем, чтобы сделать State of Decay и дополнения Breakdown и Lifeline еще лучше: теперь игроки смогут насладиться всеми прелестями формата полной высокой четкости (1080p). Новые задания и оружие, бонусный контент, а также целый ряд доработок, в том числе улучшенные световые и анимационные эффекты, новые текстуры и переработанная (   Читать дальше...   )Тип издания: RepackРазработчик: Undead LabsЖанр: Action, Shooter, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3104674E0821EA56D10FE7CEA624B74D2C5ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245119   (434108) от 13.10.2010
-
-[Repack] Medal of Honor. Расширенное издание / Medal of Honor. Limited Edition [Ru] 2010 | z10yded
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этим бойцам нет равных. Они — профессионалы — лучшие из лучших. Сколько их — точно неизвестно, но вряд ли больше нескольких сотен. Они подчиняются непосредственно командованию вооруженных сил США. Их направляют только в самые горячие точки и поручают задания, успешно выполнить которые не под силу никому другому. Они — элитные солдаты Tier 1 Operators. Представленная в Medal of Honor одиночная кампания разработана в тесном сотрудничестве с ветеранами и действующими членами подразделения Tier 1. В ее основу положены реальные события, о которых рассказали их участники. Именно благодаря этим людям авторы Medal of Honor смогли точно воссоздать атмосферу современной войны. В роли элитного бойца Tier 1 в составе одного из подразделений армии США игроку предстоит сражаться с силами «Талибана» и «Аль-Каиды» на суровой афганской земле. Многопользовательский режим Medal of Honor разработан всемирно известной студией DICE, создавшей знаменитую серию Battlefield. В этих жестоких сражениях каждому игроку придется бороться за (   Читать дальше...   )Тип издания: RepackРазработчик: EA Los Angeles / DICEЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: ENGЯзык интерфейса: русский, английский,польский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062991   (434018) от 16.10.2016
-
-Набор обновлений UpdatePack7R2 16.10.16 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE126DF09BC9A6E0449C97148BBAF9B05ED95F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063390   (434015) от 16.10.2016
-
-Red Comrades 2: For the Great Justice. Reloaded / Петька и Василий Иванович 2: Судный день. Перезагрузка (2016) [Ru/En] (1.0) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия. 1917-й год.
-Раненый комдив Чапаев пытается вплавь перебраться через реку Урал, но вражеская шальная пуля настигает его в самый неподходящий момент. Казалось бы, надежды на спасение уже нет. Но внезапно транспортный луч из космоса доставляет Василия Ивановича на корабль инопланетян. После серии невероятных опытов, о которых Чапаев с радостью бы забыл, в тело (   Читать дальше...   )Тип издания: RepackРазработчик: Buka DevelopmentЖанр: Adventure, Quest, Point-and-clickЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF15A90AEEEFAE4108CE3835E6E0706D7E2C9FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342252   (433250) от 21.08.2022
-
-Chris Rea - 6 альбомов (1979-1992) [FLAC/APE 2.0 24/96|tracks/image (VinylRip)] <Pop/Blues/Soft Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристофер (Крис) Энтон Ри (Christopher Anton Rea) 4 марта 1951, Мидлсбро, Северный Йоркшир, Англия) — певец, музыкант, актёр. Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, и со следующим альбомом «Auberge» (1991).Жанр: Pop/Blues/Soft RockПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5409CD6DE0644AF89224DF825A9BD6D795BAA785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380749   (433236) от 21.08.2022
-
-Snappy Driver Installer Origin R747 / Драйверпаки 22081 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snappy Driver Installer Origin (SDI Origin) - главная ветвь портативной программы SDI для установки и обновления драйверов, не требующей подключения к интернету. SDIO является лидером среди программ этого класса по точности подбора драйверов и скорости работы. При ранжировании драйверов отдает приоритет более подходящим драйверам (невзирая на наличие более новых (   Читать дальше...   )Язык интерфейса: Русский, Английский и ещё 33 языка.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64AA1A8CA8E368E8006B628803701318851405C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 1009569   (807191) от 22.04.2016
+
+Opera Developer 38.0.2205.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_807191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera developer обновляется несколько раз в неделю и позволяет узнать, какие особенности и функции появятся в новых продуктах.
+Будьте осторожны! Ранние версии предназначены для разработчиков, создателей расширений и пользователей, которые хотят как можно скорее оценить новый продукт.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F58BA677C8D4344130AEAD37051159C3480605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009366   (807032) от 22.04.2016
+
+Замена термопасты на жидкий металл
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_807032.jpg" />
+</div>
+
+
+###  Подробнее
+
+CoolLaboratory Liquid ProЗдравствуйте, дорогие мои читатели!
+Сегодня я расскажу вам о применении жидкого металла CoolLaboratoryLiquid Pro в качестве термоинтерфейса на примере своего основного ПК.
+Как вам уже известно, что я сделал выравнивание со шлифованием,- Mirror glassy mod(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009202   (807014) от 22.04.2016
+
+Сын Саула / Saul fia (2015) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_807014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аушвиц, 1944 год. Саул Аусландер — еврейский пленный и член зондеркоманды. Его работа — сопровождать в недолгий путь узников, которые прибывают в лагерь беспрестанно. Потом — зачищать следы их присутствия и ждать новых. Среди тысяч людей, проходящих через газовую камеру, один выживает на считанные минуты. Саул узнает в нем своего сына и решает во что бы то ни стало (   Читать дальше...   )Производство: ВенгрияЖанр: Триллер, Драма, ВоенныйРежиссер: Ласло НемешАктеры: Геза Рёриг, Левенте Молнар, Урс Рехн, Тодд Шармон, Ежи Валцак, Шандор Жотер, Марцин Чарнецки, Левенте ОрбанПеревод: Двуголосый закадровыйПродолжительность: 01:46:55Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB930070E9F94DD5620F69E7EFEE51B1F1090D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119547   (806652) от 28.03.2017
+
+Mozilla Firefox 52.0.2 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_806652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119141   (806643) от 28.03.2017
 
 Мираж - Снова вместе (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806643.jpg" />
+  <img src="Z:/picture/008/save_picture_806643.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806638.jpg" />
+  <img src="Z:/picture/008/save_picture_806638.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806556.jpg" />
+  <img src="Z:/picture/008/save_picture_806556.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Крест Анжи: Танец ангел
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806464.jpg" />
+  <img src="Z:/picture/008/save_picture_806464.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806459.jpg" />
+  <img src="Z:/picture/008/save_picture_806459.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ War for the Overworld (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806454.jpg" />
+  <img src="Z:/picture/008/save_picture_806454.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_805863.jpg" />
+  <img src="Z:/picture/005/save_picture_805863.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805738.jpg" />
+  <img src="Z:/picture/008/save_picture_805738.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805734.jpg" />
+  <img src="Z:/picture/008/save_picture_805734.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (7575778) License 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805686.jpg" />
+  <img src="Z:/picture/008/save_picture_805686.jpg" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805685.jpg" />
+  <img src="Z:/picture/008/save_picture_805685.jpg" />
 </div>
 
 
@@ -295,7 +402,7 @@ Windows 7-10 Pro х86-x64 by g0dl1ke 20.05.15 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805590.jpg" />
+  <img src="Z:/picture/008/save_picture_805590.jpg" />
 </div>
 
 
@@ -321,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805577.jpg" />
+  <img src="Z:/picture/008/save_picture_805577.jpg" />
 </div>
 
 
@@ -347,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805113.jpg" />
+  <img src="Z:/picture/008/save_picture_805113.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ The KMPlayer 4.0.7.1 RePack by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805110.jpg" />
+  <img src="Z:/picture/008/save_picture_805110.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805106.jpg" />
+  <img src="Z:/picture/008/save_picture_805106.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ White Noise v6.1.2 Pro / Full [Ru/En] - будильник с релаксиру
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805104.jpg" />
+  <img src="Z:/picture/008/save_picture_805104.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805101.jpg" />
+  <img src="Z:/picture/008/save_picture_805101.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804933.jpg" />
+  <img src="Z:/picture/008/save_picture_804933.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_804899.jpg" />
+  <img src="Z:/picture/005/save_picture_804899.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804868.jpg" />
+  <img src="Z:/picture/008/save_picture_804868.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ XviD4PSP 7.0.373 DAILY Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804578.jpg" />
+  <img src="Z:/picture/008/save_picture_804578.jpg" />
 </div>
 
 
@@ -567,116 +674,6 @@ XviD4PSP - универсальный пакетный аудио/видео к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D012943A396E5B3303C0AB715F19916F272C5E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120065   (804572) от 29.03.2017
-
-SIGERSHADERS Corona Material Presets Pro 2.0.2 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804572.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Siger Studio’s SIGERSHADERS Corona Material Presets Pro - это объёмная коллекция материалов для 3ds Max + Corona, включающая в себя User Library material manager.
-Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стёкло и т.д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F309CDD4467B017CF2216367B658B3908F2345F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118215   (804567) от 29.03.2017
-
-Александр Сераков | Adobe Illustrator. Базовый курс (2016) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804567.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы освоите инструменты самого популярного редактора векторной графики, научитесь применять их в дизайне, иллюстрации и откроете для себя новые пространства творческой реализации.
-
-Курс начинается с простых инструментов, которые дают представление о традиционных подходах к работе с векторной графикой. Постепенно задачи усложняются и мы переходим к новым (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 14:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6618195ECB369EBE623BC580F589C1858567754B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505078   (803855) от 27.10.2021
-
-Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.282]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aeafe964
-Удалены все модерн приложения, кроме Edge
-Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879896C97E4D1DDB3C57AD4A6E1069BB8E9CE2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504426   (803849) от 27.10.2021
-
-Дюна / Dune: Part One (2021) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия /  Warner Bros, Legendary Entertainment, Villeneuve FilmsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, HDRezka Studio), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A88811F4643F2A3943E99512BABD7B32CFF2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

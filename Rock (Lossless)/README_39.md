@@ -1,3 +1,150 @@
+###  Публикация: 1118877   (809457) от 27.03.2017
+
+Regicide - Break the Silence (2006) [FLAC|Lossless|tracks + .cue] <Folk Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Dove (03:40)
+02. The Hanger-On (03:41)
+03. Pirates (05:34)
+04. Nothing in Here (03:56)(   Читать дальше...   )Жанр: Folk Rock, Goth RockПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C2952E695FA9C978286F5E3E6EC96D63C0C111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118809   (809452) от 27.03.2017
+
+Peter Hammill & Gary Lucas - Other World (2014) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809452.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Other World» - это альбом английского певца Peter Hammill и американского гитариста Gary Lucas. Он был выпущен 3 февраля 2014 года под лейблом «Esoteric Recordings».
+
+Peter Hammill – певец, композитор и основатель прогрессив-рок-группы «Van der Graaf Generator». Наиболее известен своими вокальными данными. Его основные музыкальные инструменты – гитара и фортепиано. (   Читать дальше...   )01. Spinning Coins (2:55)
+02. Some Kind Of Fracas (5:15)
+03. Of Kith & Kin (5:30)
+04. Cash (2:57)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251FA248AC20FE87BBA15184DC5B2D930A554CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118909   (809450) от 27.03.2017
+
+Six Organs of Admittance - Burning the Threshold (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Avant-garde, Experimental, Folk Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Six Organs of Admittance - это псевдоним, под которым чаще всего выступает Бен Чейсни - один из главных людей в современном псих-фолке, неутомимый и разносторонний музыкант, поигравший в бесчисленном количестве групп и коллабораций с известными фолковыми людьми. В Six Organs of Admittance Бен одинаково хорошо демонстрирует свои таланты к фолковым экспериментам и (   Читать дальше...   )01. Things As They Are (4:25)
+02. Adoration Song (5:28)
+03. Reservoir (2:34)
+04. Under Fixed Stars (5:39)(   Читать дальше...   )Жанр: Rock, Avant-garde, Experimental, Folk PsychedelicПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F49A6CA84D943CC3170512AAF04119DCBC06F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119151   (809304) от 27.03.2017
+
+Heron Oblivion - Heron Oblivion (2016) [FLAC|Lossless|tracks + .cue] <Rock, Grunge, Psychedelic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beneath Fields (7:30)
+02. Oriar (4:12)
+03. Sudden Lament (3:51)
+04. Rama (10:29)(   Читать дальше...   )Жанр: Rock, Grunge, Psychedelic, FolkПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0BD01F25BA423C5AD36F7DABB153E2A14C2941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119070   (809134) от 27.03.2017
+
+The Orwells - Terrible Human Beings (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, Indy-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инди-рокеры из Чикаго The Orwells отучивались в старших классах последний год, когда к ним пришло предложение от Лос-Анджелесского блоггера Джастина Гейджа подписаться на его лейбл Autumn Tone, куда незадолго до этого, The Orwells отправляли свое видео в надежде засветиться на сайте Гейджа. Но то был год 2011. А история чикагских рокеров началась в 2009, когда кузены (   Читать дальше...   )01. They Put a Body in the Bayou (3:09)
+02. Fry (2:03)
+03. Creatures (2:31)
+04. Vacation (2:51)(   Читать дальше...   )Жанр: Rock, Indie-RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205AE72C6ED5E5515E626A8B40498977B68AD9AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119195   (809030) от 27.03.2017
 
 The Alan Parsons Project - The Best Of The Alan Parsons Project - Vol. 2 (1987) Compilation [FLAC|Lossless|image + .cue] <Prog Rock>
@@ -6,7 +153,7 @@ The Alan Parsons Project - The Best Of The Alan Parsons Project - Vol. 2 (1987) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809030.jpg" />
+  <img src="Z:/picture/008/save_picture_809030.jpg" />
 </div>
 
 
@@ -35,7 +182,7 @@ Steve Hackett - The Night Siren (2017) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809028.jpg" />
+  <img src="Z:/picture/008/save_picture_809028.jpg" />
 </div>
 
 
@@ -65,7 +212,7 @@ Freddie Mercury and Montserrat Caballe - Barcelona (1988) Remaster, 1992, Polydo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808937.jpg" />
+  <img src="Z:/picture/008/save_picture_808937.jpg" />
 </div>
 
 
@@ -94,7 +241,7 @@ Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808334.jpg" />
+  <img src="Z:/picture/008/save_picture_808334.jpg" />
 </div>
 
 
@@ -123,7 +270,7 @@ Choco (ex. Eloy) - Bubbles In Your Brain? (2014) [FLAC|Lossless|image + .cue]<Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808121.jpg" />
+  <img src="Z:/picture/008/save_picture_808121.jpg" />
 </div>
 
 
@@ -149,7 +296,7 @@ Ol' 55 - Take It Greasy (1976) Reissue, 1991, Mushroom [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807348.jpg" />
+  <img src="Z:/picture/008/save_picture_807348.jpg" />
 </div>
 
 
@@ -178,7 +325,7 @@ Billy Swan - I Can Help (1974) Reissue, 1985, Epic [FLAC|Lossless|tracks] <Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807342.jpg" />
+  <img src="Z:/picture/008/save_picture_807342.jpg" />
 </div>
 
 
@@ -207,7 +354,7 @@ Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807339.jpg" />
+  <img src="Z:/picture/008/save_picture_807339.jpg" />
 </div>
 
 
@@ -236,7 +383,7 @@ The Mavericks - Brand New Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Americ
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807338.jpg" />
+  <img src="Z:/picture/008/save_picture_807338.jpg" />
 </div>
 
 
@@ -265,7 +412,7 @@ Joe Satriani - What Happens Next (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ins
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806194.jpg" />
+  <img src="Z:/picture/008/save_picture_806194.jpg" />
 </div>
 
 
@@ -294,7 +441,7 @@ Mark Knopfler - The Studio Albums 1996-2007 (2021) 6CD box-set, Reissue, Remaste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806147.jpg" />
+  <img src="Z:/picture/008/save_picture_806147.jpg" />
 </div>
 
 
@@ -323,7 +470,7 @@ Phil Collins - Testify (2002) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805981.jpg" />
+  <img src="Z:/picture/008/save_picture_805981.jpg" />
 </div>
 
 
@@ -352,7 +499,7 @@ Phil Collins - No Jacket Required (1985) 2CD Deluxe Edition, 2016, Atlantic [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805979.jpg" />
+  <img src="Z:/picture/008/save_picture_805979.jpg" />
 </div>
 
 
@@ -381,7 +528,7 @@ Jethro Tull - The String Quartets (2017) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805257.jpg" />
+  <img src="Z:/picture/008/save_picture_805257.jpg" />
 </div>
 
 
@@ -410,7 +557,7 @@ VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805253.jpg" />
+  <img src="Z:/picture/008/save_picture_805253.jpg" />
 </div>
 
 
@@ -439,7 +586,7 @@ Rod Stewart: Original Album Series (1980-91) 5CD Box Set, 2010, WEA [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805151.jpg" />
+  <img src="Z:/picture/008/save_picture_805151.jpg" />
 </div>
 
 
@@ -468,7 +615,7 @@ Wu Tenglers - Burning Century (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804609.jpg" />
+  <img src="Z:/picture/008/save_picture_804609.jpg" />
 </div>
 
 
@@ -497,7 +644,7 @@ Gruff - Swamp Tales (2021) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804608.jpg" />
+  <img src="Z:/picture/008/save_picture_804608.jpg" />
 </div>
 
 
@@ -526,7 +673,7 @@ Freeloader - Freeloader II (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804558.jpg" />
+  <img src="Z:/picture/008/save_picture_804558.jpg" />
 </div>
 
 
@@ -555,7 +702,7 @@ Seeg - Echoes (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804557.jpg" />
+  <img src="Z:/picture/008/save_picture_804557.jpg" />
 </div>
 
 
@@ -584,7 +731,7 @@ Aaron and the Lord - Aaron and the Lord (2021) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804552.jpg" />
+  <img src="Z:/picture/008/save_picture_804552.jpg" />
 </div>
 
 
@@ -598,151 +745,6 @@ Aaron and the Lord - Aaron and the Lord (2021) [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AC5568B5FE86A98AA44F7A6B11599A817092B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505401   (804541) от 27.10.2021
-
-The Barettas - All Is Fair In Love And Rock & Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alley (00:02:49)
-02 - Smoke-Filled Baretta (00:03:59)
-03 - Crooked Hearts (00:02:11)
-04 - I Bet You Look Good on the Dance Floor (00:02:56)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEE86850D83DDA57ECC70188C498F2404496D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505262   (804540) от 27.10.2021
-
-September Son - Risen (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Desert Song (00:05:23)
-02 - Lost At Sea (00:07:41)
-03 - Beep Beep (00:04:11)
-04 - Thunder (00:06:13)(   Читать дальше...   )Жанр: Psychedelic, Desert RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D05DA35F94FAC22F9C794C2D9D1E351E5B0C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198728   (804232) от 13.01.2018
-
-Pink Floyd - Wish Yоu Were Неre (1975) Reissue, Remastered, 2017, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (Parts 1-5) (13:33)
- 02. Welcome to the Machine (7:32)
- 03. Have a Cigar (5:08)
- 04. Wish You Were Here (5:35)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CEE0DB07353A377295107F53C77FFF41714FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120191   (803554) от 30.03.2017
-
-Simone Cozzetto - Wide Eyes (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby (Part 1) (2:07)
-02. Awakening (7:48)
-03. Lost In The Night (3:43)
-04. Intermezzo I (0:41)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25D05FB7660FDB1CF36EB794CC3C7136F3801DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120084   (803551) от 30.03.2017
-
-VA - These Dreams - Rock Classics (1997) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is A Highway (Tom Cochrane) (4:28)
-02. The Joker (Steve Miller Band) (4:26)
-03. Band On The Run (Paul McCartney & Wings) (5:12)
-04. We're An American Band (Grand Funk Railroad) (3:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0787954051183EB5638B12C5DB061806E0430E
 ```
 
 https://mybot314.ru/tekegram_catalog/

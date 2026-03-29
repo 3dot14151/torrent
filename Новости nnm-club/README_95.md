@@ -1,3 +1,107 @@
+###  Публикация: 665804   (742676) от 07.06.2013
+
+Самогонщики (1961) BDRip [1080p] [hand made 60fps]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трус, Балбес и Бывалый решают поставить на широкую ногу изготовление самогона — и снова фиаско…Жанр: Короткометражный, КомедияРежиссер: Леонид ГайдайАктеры: Евгений Моргунов, Георгий Вицин, Юрий Никулин, Владимир ПицекПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E47B6E7754ACCD9BE0F895FE1BD9FE24E53896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396167   (742353) от 18.07.2020
+
+Контрольный список / Watch List (2019) HDTVRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях рассказывает о безнаказанных убийствах на Филиппинах. Летом 2016 года в Маниле избранный президент Родриго Дутерте начал кампанию против торговли наркотиками под названием "Операция Токханг ( Убить Всех)" пообещав избирателям расправиться с наркоторговлей и криминалом. Теперь он претворяет страшное обещание в жизнь, охота (   Читать дальше...   )Производство: Филиппины, США, Канада / Bron Studios, Reality EntertainmentЖанр: Триллер, драма, криминалРежиссер: Бен РекхиАктеры: Артур Акуна, Алессандра де Росси, Джейк Макапагал, Джесс Мендоза, Анхели Баяни, Тимоти Мабалот, Микко Лауренте, Лу Велосо ...Перевод: Любительский одноголосый (datynet)Субтитры: ОтсутствуютПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC109F3E97E06186FE21A6F4350855FAAA6F70DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414193   (741875) от 17.01.2022
+
+Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741875.jpg" />
+</div>
+
+
+###  Подробнее
+
+RESIDENT EVIL 3 – полностью обновленный ремейк хоррор-экшена Resident Evil 3: Nemesis, в котором вам вновь предстоит выступить в роли Джилл Валентайн и попытаться выбраться из города Раккун-сити, чтобы сбежать от безжалостного Немезиса. В RESIDENT EVIL 3 вас ждет графика высокого разрешения, обновленные механики геймплеяТип издания: RepackРазработчик: CAPCOMЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1CA949B854F67E1B2B7781FD3CE5735B062385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779401   (741872) от 17.01.2022
+
+Владимир Козин и Игорь Екимов | Сам себе электрик. Блок профи (2013) [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите научиться самостоятельно исправлять неполадки в электропроводке, не вызывая электриков? Этот обучающий видеокурс научит Вас этому. Основная задача этого видеокурса – углубиться в технологии и уже оперировать сложными системами.Жанр: Обучающий видеокурсФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09B23A58BC7444D1F8854BCCF4361444CAC5648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394211   (741853) от 14.02.2019
 
 Pink Floyd - Discovery Box, 16 Studio Album (1967-1994) 2011, EMI Music Group, Remaster, BoxSet, 16CD [FLAC (tracks + .cue)|Lossless]<Psychedelic Rock>
@@ -6,7 +110,7 @@ Pink Floyd - Discovery Box, 16 Studio Album (1967-1994) 2011, EMI Music Group, R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741853.jpg" />
+  <img src="Z:/picture/008/save_picture_741853.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741852.jpg" />
+  <img src="Z:/picture/008/save_picture_741852.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741850.jpg" />
+  <img src="Z:/picture/008/save_picture_741850.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741845.jpg" />
+  <img src="Z:/picture/008/save_picture_741845.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_741783.jpg" />
+  <img src="Z:/picture/005/save_picture_741783.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ KMS Tools 01.04.2018 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741606.jpg" />
+  <img src="Z:/picture/008/save_picture_741606.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_741559.jpg" />
+  <img src="Z:/picture/005/save_picture_741559.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Adobe Illustrator CC 2015.2.1 19.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741487.jpg" />
+  <img src="Z:/picture/008/save_picture_741487.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Alcohol 120% 2.0.3.7612 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741402.jpg" />
+  <img src="Z:/picture/008/save_picture_741402.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 07.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741091.jpg" />
+  <img src="Z:/picture/008/save_picture_741091.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740654.jpg" />
+  <img src="Z:/picture/008/save_picture_740654.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740623.jpg" />
+  <img src="Z:/picture/008/save_picture_740623.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740619.jpg" />
+  <img src="Z:/picture/008/save_picture_740619.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Facebook: если вы наш пользователь, ваши данные �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_740579.jpg" />
+  <img src="Z:/picture/005/save_picture_740579.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ ESET Internet Security 11.1.42.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740537.jpg" />
+  <img src="Z:/picture/008/save_picture_740537.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740485.jpg" />
+  <img src="Z:/picture/008/save_picture_740485.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ KMS Tools Portable 08.04.2017 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740478.jpg" />
+  <img src="Z:/picture/008/save_picture_740478.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ KMS Tools Portable 15.02.2019 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740005.jpg" />
+  <img src="Z:/picture/008/save_picture_740005.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/Multi] (1.3.59.0) Repack Other s [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739920.jpg" />
+  <img src="Z:/picture/008/save_picture_739920.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739432.jpg" />
+  <img src="Z:/picture/008/save_picture_739432.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739429.jpg" />
+  <img src="Z:/picture/008/save_picture_739429.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738855.jpg" />
+  <img src="Z:/picture/008/save_picture_738855.jpg" />
 </div>
 
 
@@ -567,116 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F53ED92EEAAAB180A3184AE71F6C434C64AD3861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522355   (738290) от 24.01.2022
-
-sPlan 8.0 (DC 13.01.2022г) Portable by Lin1980 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738290.jpg" />
-</div>
-
-
-###  Подробнее
-
-sPlan - если Вам нужно программное обеспечение для быстрого и простого проектирования ваших схем? Тогда нет причин пройти мимо sPlan! Независимо от того, хотите ли вы просто набросать небольшую схему, или это более крупный проект, состоящий из множества отдельных листов.
-
-С новой версией sPlan 8.0 появилось множество новых и усовершенствованных функций, которые помогут (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0477DF35BCD940F624A06A5074D12551F01431E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313470   (738289) от 24.01.2022
-
-Пространство / Экспансия / The Expanse (2015-2020) BDRip, WEB-DLRip (сезон 1-6, серии 1-62 из 62) Alexfilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, триллер, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Кэс Анвар, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Фрэнки Адамс, Томас Джейн, Шон Дойл, Флоренс Ванида Фэйвр, Чад Л. Коулмэн и др.Перевод: Многоголосый  закадровый, профессиональный - AlexfilmЯзык озвучки: РусскийСубтитры: русские, английскиеПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA6756814413D7E979D0C642CEF33A2AC6A9226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526546   (738000) от 25.01.2022
-
-Свежее обновление Windows 11 заставляет работать в браузере Edge и поисковике Bing
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_738000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторое время назад Microsoft приступила к распространению очередного обновления для Windows 11. Оказалось, что помимо ряда исправлений установка патча изменяет некоторые настройки операционной системы, делая Edge и Bing браузером и поисковиком по умолчанию.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485008   (737975) от 25.01.2022
-
-Кар-Мэн - Вокруг Света (1990) со вставками Студия Gala [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Synth-Pop, Electro-Pop, Disco, Dance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737975.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:04] 01. Кар-Мэн - Чио-Чио-Сан (с вставкой интро Gala)
-[4:20] 02. Кар-Мэн - Эй, ухнем
-[4:59] 03. Кар-Мэн - Дели (с вставкой интро Gala)
-[3:59] 04. Кар-Мэн - Знойный Истамбул(   Читать дальше...   )Жанр: Synth-Pop, Electro-Pop, Disco, DanceПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7413F89296E54E6986879705B0EEA1A1B01AC1E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

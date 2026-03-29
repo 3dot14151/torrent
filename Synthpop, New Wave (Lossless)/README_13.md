@@ -1,3 +1,32 @@
+###  Публикация: 1235149   (564085) от 09.07.2018
+
+Nickolay Fedorenko - Eco (2015) [FLAC|Lossless|image + .cue] <Electronic, Synth-Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eco
+02. 1000 Silver Moons
+03. Summer dance
+04. Winter dance(   Читать дальше...   )Жанр: Electronic, Synth-PopПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23703F15C1F9FF520DBDED6C6ED4A574DFB09073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304530   (561990) от 27.05.2019
 
 Tamaryn - Dreaming the Dark (Limited Edition) (2019) [FLAC|Lossless|image + .cue] <Synthpop, Dream Pop, Ethereal Wave>
@@ -6,7 +35,7 @@ Tamaryn - Dreaming the Dark (Limited Edition) (2019) [FLAC|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561990.jpg" />
+  <img src="Z:/picture/008/save_picture_561990.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Jan Hammer - Beyond The Mind's Eye (1993) [FLAC|Lossless|image + .cue] <Downtemp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561529.jpg" />
+  <img src="Z:/picture/008/save_picture_561529.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556448.jpg" />
+  <img src="Z:/picture/008/save_picture_556448.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Blaqk Audio - Only Things We Love (2019) [FLAC|Lossless|tracks + .cue] <Synth Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556445.jpg" />
+  <img src="Z:/picture/008/save_picture_556445.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Northern Lite - Old School Baby (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554055.jpg" />
+  <img src="Z:/picture/008/save_picture_554055.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Space Holidays Vol. 7 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Spac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554022.jpg" />
+  <img src="Z:/picture/008/save_picture_554022.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Natalie Cole - Good To Be Back (1989) [FLAC|Lossless|image + .cue] <Acid Jazz, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551800.jpg" />
+  <img src="Z:/picture/008/save_picture_551800.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Binary Park - Nothing (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550630.jpg" />
+  <img src="Z:/picture/008/save_picture_550630.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Hot Chip - A Bath Full of Ecstasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549526.jpg" />
+  <img src="Z:/picture/008/save_picture_549526.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ CJ Burnett - Moonlit City (2017) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548878.jpg" />
+  <img src="Z:/picture/008/save_picture_548878.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Patience - Dizzy Spells (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop,  Synth-
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546891.jpg" />
+  <img src="Z:/picture/008/save_picture_546891.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Johnny Jewel - Windswept (2017) [FLAC|Lossless|WEB|tracks] <Electronic, Soundtra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542784.jpg" />
+  <img src="Z:/picture/008/save_picture_542784.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nickolay Fedorenko - Magic Universe (2015) [FLAC|Lossless|image + .cue] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542437.jpg" />
+  <img src="Z:/picture/008/save_picture_542437.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539071.jpg" />
+  <img src="Z:/picture/008/save_picture_539071.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Jan Hammer - Seasons, Pt. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth-Pop, Ins
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538595.jpg" />
+  <img src="Z:/picture/008/save_picture_538595.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532563.jpg" />
+  <img src="Z:/picture/008/save_picture_532563.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ And One - Full CD Discography (1990-2014) 39 Releases / 48CD [FLAC|Lossless]<EBM
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531310.jpg" />
+  <img src="Z:/picture/008/save_picture_531310.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Summer In Space Vol. 5 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523488.jpg" />
+  <img src="Z:/picture/008/save_picture_523488.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Thought Beings - Explorers (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522353.jpg" />
+  <img src="Z:/picture/008/save_picture_522353.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Kiez Beats: Synthwave, Vol. 5 (Retro Dreams) (2018) [FLAC|Lossless|WEB-DL|t
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522175.jpg" />
+  <img src="Z:/picture/008/save_picture_522175.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Kiez Beats: Synthwave, Vol. 6 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522124.jpg" />
+  <img src="Z:/picture/008/save_picture_522124.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dance With The Dead - Loved To Death (2018) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518115.jpg" />
+  <img src="Z:/picture/008/save_picture_518115.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ A Flock Of Seagulls - Inflight - The Extended Essentials (2019) Remix [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517137.jpg" />
+  <img src="Z:/picture/008/save_picture_517137.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Alphaville - So8os (Soeighties) Presents - Curated By Blank & Jones (2014) [FLAC
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516194.jpg" />
+  <img src="Z:/picture/008/save_picture_516194.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Drab Majesty - Modern Mirror (2019) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516050.jpg" />
+  <img src="Z:/picture/008/save_picture_516050.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Drab Majesty - Modern Mirror (2019) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D73326840ABAEB43210B6A128022A94EDE950681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315255   (513897) от 19.07.2019
-
-BELLATRIX - Cosmic Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacepop, Spacesynth, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulse (7:59)
-02. Cosmic Dust (6:59)
-03. Cyber Angel (7:18)
-04. Highway To The Unknown (6:31)(   Читать дальше...   )Жанр: Spacepop, Spacesynth, DiscoПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26536CF740474E75A6C4FC0F498EDE5C9DF29DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

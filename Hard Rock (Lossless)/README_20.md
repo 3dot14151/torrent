@@ -1,3 +1,61 @@
+###  Публикация: 1106879   (870054) от 21.02.2017
+
+Wild Adriatic - Feel (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Appleton (3:41)
+02. Runnin Thru (3:33)
+03. Come Back Baby (4:21)
+04. Cruel Lovin' (3:27)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE5B83DCAABE005E1D8EBB22BB6DBEA64675865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496799   (869934) от 19.09.2021
+
+Duckwalk Chuck - Fired Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Fired Up
+02. It's Only Rock'n'roll
+03. Motor Madness
+04. Ghost Town(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FC93D596D938B9AF6D27E7535732DA96CE769E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497012   (868260) от 20.09.2021
 
 Takeaway Thieves - 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
@@ -6,7 +64,7 @@ Takeaway Thieves - 9 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868260.jpg" />
+  <img src="Z:/picture/008/save_picture_868260.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ten Eyed Man - From Beneath A Pallid Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866664.jpg" />
+  <img src="Z:/picture/008/save_picture_866664.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Save The World - One (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866663.jpg" />
+  <img src="Z:/picture/008/save_picture_866663.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ The Treatment - Generation Me (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866618.jpg" />
+  <img src="Z:/picture/008/save_picture_866618.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Night Ranger - ATBPO (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866599.jpg" />
+  <img src="Z:/picture/008/save_picture_866599.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Save The World - Two (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866596.jpg" />
+  <img src="Z:/picture/008/save_picture_866596.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Storm At Sunrise - Discography: 2 albums (1999-2001) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866340.jpg" />
+  <img src="Z:/picture/008/save_picture_866340.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Thunder - Rip It Up (2017) [FLAC|lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866229.jpg" />
+  <img src="Z:/picture/008/save_picture_866229.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Leaf Hound, Black Cat Bones (pre. Leaf Hound) - 3 albums, 6 CD (1969-2007) [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863442.jpg" />
+  <img src="Z:/picture/008/save_picture_863442.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Peak Theory - Shattered (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863164.jpg" />
+  <img src="Z:/picture/008/save_picture_863164.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Europe - War Of Kings [Deluxe Version] (2015) [FLAC|Lossless|WEB-DL]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862838.jpg" />
+  <img src="Z:/picture/008/save_picture_862838.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Danny Danzi - Tribulations (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861368.jpg" />
+  <img src="Z:/picture/008/save_picture_861368.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Inglorious - Heroine (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861367.jpg" />
+  <img src="Z:/picture/008/save_picture_861367.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ All For The King - Let There Be Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861363.jpg" />
+  <img src="Z:/picture/008/save_picture_861363.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Mad Invasion - Edge Of The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861180.jpg" />
+  <img src="Z:/picture/008/save_picture_861180.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860995.jpg" />
+  <img src="Z:/picture/008/save_picture_860995.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859778.jpg" />
+  <img src="Z:/picture/008/save_picture_859778.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Brothers In Arms - Sunset And Clark (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859772.jpg" />
+  <img src="Z:/picture/008/save_picture_859772.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Dream Police - Dream Police (1990) Remastered, 1992, Epic, Japanese Edition [APE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859321.jpg" />
+  <img src="Z:/picture/008/save_picture_859321.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Casanova - All Beauty Must Die (2004) Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857923.jpg" />
+  <img src="Z:/picture/008/save_picture_857923.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Mick Jagger - Mick Jagger and Friends (2006) Live bootleg [FLAC|Lossless|tracks 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857436.jpg" />
+  <img src="Z:/picture/008/save_picture_857436.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Aerosmith - The Millennium Collection: The Best of Aerosmith (2007) [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857184.jpg" />
+  <img src="Z:/picture/008/save_picture_857184.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Scorpions - World Wide Live (2015) 50th Anniversary Deluxe [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857175.jpg" />
+  <img src="Z:/picture/008/save_picture_857175.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ War & Peace - The Walls Have Eyes (2004) эксклюзив [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856170.jpg" />
+  <img src="Z:/picture/008/save_picture_856170.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ War & Peace - The Walls Have Eyes (2004) эксклюзив [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05C655C54CF93BEBBF14C305C1F65FC927C543BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109947   (855476) от 01.03.2017
-
-Kingdom Come - Balladesque: The Pearls (1998) Compilation [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Should Have Know (4:33)
- 02. Can't Let Go (6:30)
- 03. Twilight Cruiser (6:39)
- 04. Cold Groumd (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29232C49785DAE4CAE91DEDCF39ED98FCC53C88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647967   (854569) от 24.04.2013
-
-Whitesnake - Made In Japan (2013) [FLAC|Lossless]<Hard rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Will Set You Free (5:06)
-02. Steal Your Heart Away (6:39)
-03. Fare Thee Well (Acoustic Version) (4:47)
-04. One Of These Days (Acoustic Version) (4:16)(   Читать дальше...   )Жанр: Hard rock, RockПродолжительность: 41:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

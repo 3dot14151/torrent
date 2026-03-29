@@ -1,3 +1,110 @@
+###  Публикация: 1256938   (350136) от 24.10.2018
+
+Deliver 2.6.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliver - это комплексное решение для отправки файлов через Интернет и локальные сети с уведомлением по электронной почте. Он поддерживает FTP, SFTP, Amazon S3 и другие основные сервисы, а также предлагает автоматические уведомления о доставке электронной почты, сжатие, доставку по нескольким направлениям и многое другое. Сообщения уведомления основаны на переменных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Zevrix SolutionsПоддерживаемая ОС: macOS 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCB824EA4425953E4ADD5DABABCF14C4A5C2F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578095   (350059) от 21.09.2022
+
+FoneDog Toolkit – iOS Data Recovery 2.1.66 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565FF407EFEF9CA1E5AC7B26727D2A140077AE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256834   (350055) от 24.10.2018
+
+Fenêtre 0.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2018Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.9.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5048C95F5C3D05F512AB3E194A678A76BC55605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256874   (350052) от 24.10.2018
+
+ColorWell 7.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350052.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре OS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезный инструмент в любом наборе инструментов хорошего веб-дизайнера, и его можно легко настроить для работы на панели инструментов и открыть глобальную горячую клавишу.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42F2EA00D2A716ED635974C7AFBEBAEA85ED976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256801   (350033) от 24.10.2018
 
 Duplicate Photos Fixer Pro 2.7 [En]
@@ -6,7 +113,7 @@ Duplicate Photos Fixer Pro 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350033.jpg" />
+  <img src="Z:/picture/008/save_picture_350033.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Simple Recorder PRO 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350026.jpg" />
+  <img src="Z:/picture/008/save_picture_350026.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ DxO PhotoLab 5 ELITE Edition 5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350017.jpg" />
+  <img src="Z:/picture/008/save_picture_350017.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ PaintCode 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349989.jpg" />
+  <img src="Z:/picture/008/save_picture_349989.jpg" />
 </div>
 
 
@@ -115,7 +222,7 @@ Sync Folders Pro 3.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349946.jpg" />
+  <img src="Z:/picture/008/save_picture_349946.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ Mac FoneLab for iOS 10.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349944.jpg" />
+  <img src="Z:/picture/008/save_picture_349944.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ DxO PureRAW 2 for Mac v.2.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349869.jpg" />
+  <img src="Z:/picture/008/save_picture_349869.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ Adguard 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349739.jpg" />
+  <img src="Z:/picture/008/save_picture_349739.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ Return of the Obra Dinn (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349637.jpg" />
+  <img src="Z:/picture/008/save_picture_349637.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ Adobe - Premiere Pro CC 2019 13.1.4.2 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349505.jpg" />
+  <img src="Z:/picture/008/save_picture_349505.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ Grid 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349412.jpg" />
+  <img src="Z:/picture/008/save_picture_349412.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ Forecast Bar - Weather, Radar and Alerts 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349344.jpg" />
+  <img src="Z:/picture/008/save_picture_349344.jpg" />
 </div>
 
 
@@ -333,7 +440,7 @@ Translatium - translator 7.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349219.jpg" />
+  <img src="Z:/picture/008/save_picture_349219.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ File Juicer 4.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349213.jpg" />
+  <img src="Z:/picture/008/save_picture_349213.jpg" />
 </div>
 
 
@@ -387,7 +494,7 @@ SecuritySpy 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349205.jpg" />
+  <img src="Z:/picture/008/save_picture_349205.jpg" />
 </div>
 
 
@@ -415,7 +522,7 @@ Sketch 3.4.1 (15681) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349157.jpg" />
+  <img src="Z:/picture/008/save_picture_349157.jpg" />
 </div>
 
 
@@ -442,7 +549,7 @@ Adobe InCopy 2021 v16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349122.jpg" />
+  <img src="Z:/picture/008/save_picture_349122.jpg" />
 </div>
 
 
@@ -469,7 +576,7 @@ Pacifist 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349045.jpg" />
+  <img src="Z:/picture/008/save_picture_349045.jpg" />
 </div>
 
 
@@ -498,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348998.jpg" />
+  <img src="Z:/picture/008/save_picture_348998.jpg" />
 </div>
 
 
@@ -524,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348987.jpg" />
+  <img src="Z:/picture/008/save_picture_348987.jpg" />
 </div>
 
 
@@ -550,7 +657,7 @@ Wondershare Filmora Х v10.0.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348953.jpg" />
+  <img src="Z:/picture/008/save_picture_348953.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348834.jpg" />
+  <img src="Z:/picture/008/save_picture_348834.jpg" />
 </div>
 
 
@@ -587,112 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B064FA37540703C032E816C5492759CD1085EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418354   (348807) от 24.10.2020
-
-Adobe XD 34.0.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEA97A2E44451FCED01CE0F2871F2A690824942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418315   (348803) от 24.10.2020
-
-Adobe Audition 2020 v13.0.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition 2020 представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838D00867E1D8DF84EEF7438293570BA06C4086A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179294   (348769) от 31.10.2017
-
-Color Finale Pro 1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Color Finale - плагин цветокоррекции от Color Grading Central для программы монтажа Final Cut Pro X, который заставит пользователей думать, стоит ли использовать стороннее приложение для цветокоррекции или же все сделать в FCP X. Плагин имеет очень много профессиональных инструментов.   Color Finale - позволяет превратить Ваши кадры в буйство ярких красок и сделать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Color Grading CentralПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939074E9CACCCBB9A77AFAE089C8BD87E28BDC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418305   (348534) от 24.10.2020
-
-Adobe After Effects 2020 17.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
-
-Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AE7B4AB97916D4D9595D4C6F7467FCAC08E4BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

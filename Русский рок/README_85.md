@@ -1,3 +1,119 @@
+###  Публикация: 1650002   (227814) от 30.07.2023
+
+Anzhela Vopit - Атрибуты Восторга (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Деад принцесс [00:03:05]
+02 - Не кури [00:03:33]
+03 - Никто [00:04:34]
+04 - Мантра [00:04:03](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3512B4FF40FE4FAAE8259B939458B681CD4583FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650114   (227687) от 30.07.2023
+
+ГхЛхДхМхР - 7 Albums (2020-2023) [MP3|320 Kbps] <Hardcore, Crust Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+ГхЛхДхМхР - 2020 - Infernum
+ГхЛхДхМхР - 2020 - Карцер
+ГхЛхДхМхР - 2021 - Agonia(   Читать дальше...   )Жанр: Hardcore, Crust PunkПродолжительность: 7CD, 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4338E4AA4F590A44EFFBE775A5C1558F93BDFC82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650103   (227656) от 30.07.2023
+
+Вова Синий и Братья По Разуму - Те самые песни (1993) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я одна [00:02:44]
+02 - Унылый Париж [00:02:04]
+03 - День рождения [00:02:21]
+04 - Рок-н-ролл [00:02:33](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47441E870A182D0990CCBA3D90FD01C78ADE279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513032   (227588) от 27.11.2021
+
+Обе две - Мне это не подходит (2021) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227588.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 3 по 50
+2. Хрусталь
+3. Кавказ
+4. Ты мне говоришь пока (из фильма «Джетлаг»)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBB4A1CFCEC962FC53C9E2706E31BB9AD5E5C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513031   (227363) от 27.11.2021
 
 Пётр Налич - Песни пиратов (2021) [MP3|320 Kbps] <Indie Pop>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227363.jpg" />
+  <img src="Z:/picture/005/save_picture_227363.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226920.jpg" />
+  <img src="Z:/picture/005/save_picture_226920.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ MotoClub A.A. - MotoWar (2022) [MP3|320 Kbps] <Heavy Metal, Humour>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226914.jpg" />
+  <img src="Z:/picture/005/save_picture_226914.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Knee - Тафофилия (2022) [MP3|320 Kbps] <Nu-Metalcore, Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226874.jpg" />
+  <img src="Z:/picture/005/save_picture_226874.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Bryndin (Брындин) - 4 Albums (2018-2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226834.jpg" />
+  <img src="Z:/picture/005/save_picture_226834.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_226768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226768.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226650.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226211.jpg" />
+  <img src="Z:/picture/005/save_picture_226211.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226022.jpg" />
+  <img src="Z:/picture/005/save_picture_226022.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225775.jpg" />
+  <img src="Z:/picture/005/save_picture_225775.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225722.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Stun Silence - Мотылёк (2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225563.jpg" />
+  <img src="Z:/picture/005/save_picture_225563.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225551.jpg" />
+  <img src="Z:/picture/005/save_picture_225551.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225092.jpg" />
+  <img src="Z:/picture/005/save_picture_225092.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224675.jpg" />
+  <img src="Z:/picture/005/save_picture_224675.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224670.jpg" />
+  <img src="Z:/picture/005/save_picture_224670.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Louna - Panopticon (2018) [MP3|320 Kbps] <Alternative Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224664.jpg" />
+  <img src="Z:/picture/005/save_picture_224664.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224413.jpg" />
+  <img src="Z:/picture/005/save_picture_224413.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224400.jpg" />
+  <img src="Z:/picture/005/save_picture_224400.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224318.jpg" />
+  <img src="Z:/picture/005/save_picture_224318.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223951.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223841.jpg" />
+  <img src="Z:/picture/005/save_picture_223841.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E3E64109050996B14C76054C9B53DC3CEE41AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584351   (223710) от 20.10.2022
-
-Grey Punks - 6 Albums (2010-2022) [MP3|320 Kbps] <Ska Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы хотим танцевать [00:04:36]
-02. Инстаграм-модель [00:03:09]
-03. Немножко наебали [00:03:11]
-04. Всё не то [00:02:23](   Читать дальше...   )Жанр: Ska Punk-RockПродолжительность: 6 CD, 03:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27E59E662D8E821CFE3EEBC1B0360E58C6071A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585056   (222993) от 21.10.2022
-
-Follow The Sunrise - 2 Albums (2019-2022) [MP3|320 Kbps] <Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane [00:03:19]
-02. Живой [00:03:44]
-03. Emptiness [00:03:36]
-04. Время [00:03:25](   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 2 CD, 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1523239CD961A3B5DA3429FA31C4CD7D3AD0FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585279   (222809) от 21.10.2022
-
-ФОСФЕН - Мир Пофигизма (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:01:26]
-02 - Держава [00:04:27]
-03 - Мир Пофигизма [00:03:32]
-04 - Мгновенье [00:04:39](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD956F68671F2853AF8AAF05D59B1C91A862A33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425402   (222795) от 20.11.2020
-
-ИНАЧЕ - Ничего больше не случится! (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222795.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Неформат
-2. Не сходите с ума!
-3. Убей в себе! (feat. Антон «Пух» Павлов)
-4. Мы(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDEB73AD524CB7C65C413637098242D4247411FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

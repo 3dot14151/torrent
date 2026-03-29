@@ -1,3 +1,160 @@
+###  Публикация: 1293401   (636765) от 03.04.2019
+
+DAEMON Tools Lite 10.10.0.798 Unlocked [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daemon Tools - компактный, но мощный эмулятор CD/DVD-приводов - позволяет эмулировать абсолютно любой образ диска, сделанный утилитой для копирования дисков (например, CloneCD). Точно так же в этот эмулятор можно "вставить" скопированные на винчестер аудио-CD или DVD-диски.Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42688D40CC2EA598E7AE8D7FA8E2BE763EBD952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542070   (636661) от 07.04.2022
+
+Закрыта крупнейшая русскоязычная платформа для торговли наркотиками и крадеными данными Hydra Market
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_636661.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Генпрокуратура Франкфурта-на-Майне, Центральное управление по борьбе с интернет-преступностью и федеральная уголовная полиция сообщили об аресте серверов крупнейшей в мире даркнет-площадки «Гидра» (Hydra Market). Речь идёт о крупнейшей площадки для торговли наркотиками и крадеными данные.Германия вела расследование против Hydra Market с августа 2021 года при содействии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143195   (636531) от 17.06.2017
+
+Avira Phantom VPN Pro 2.8.2.29275 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8292F447330A843B47BC8E07518CA382B08E9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143430   (636525) от 17.06.2017
+
+Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4549.1000 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B503E2905F23BA7042C9D2A55E1A962BA3DDF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143234   (636522) от 17.06.2017
+
+Лекарство от здоровья / A Cure for Wellness (2016) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой амбициозный сотрудник отправляется в затерянный в швейцарских Альпах оздоровительный центр, чтобы вернуть оттуда руководителя своей компании. Но по прибытии он понимает, что чудодейственные процедуры спа-салона вовсе не те, чем кажутся. В то время как парень начинает распутывать страшные тайны этого места, его здравый ум проходит настоящую проверку на прочность. (   Читать дальше...   )Производство: Германия, США / Blind Wink ProductionsЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Гор ВербинскиАктеры: Дэйн ДеХаан, Джейсон Айзекс, Миа Гот, Иво Нанди, Адриан Шиллер, Селия Имри, Гарри Гронер, Томас Норстрем, Ашок Манданна, Магнус КрепперПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C90F75156B92B26221FDF64F437A45356EE0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073941   (636520) от 17.06.2017
+
+Tyranny (2016) [Ru/En] (1.1.0.0023/dlc) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636520.jpg" />
+</div>
+
+
+###  Подробнее
+
+После великой войны добра и зла, завершившейся победой сил мрака под предводительством Владыки Кайроса, начинаются события Tyranny. Не знающие жалости войска Владыки подчинили себе земли. Его обитателям остается лишь попытаться выжить в этом новом, навсегда изменившемся мире... даже если согласия нет и среди самых преданных воинов Кароса, Архонтов.Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247B7CFAD07E40711EAB07D406262DBD0889ACEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142837   (636519) от 17.06.2017
 
 WPI x86-x64 by OVGorskiy® 06.2017 1DVD [Ru]
@@ -6,7 +163,7 @@ WPI x86-x64 by OVGorskiy® 06.2017 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636519.jpg" />
+  <img src="Z:/picture/008/save_picture_636519.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636242.jpg" />
+  <img src="Z:/picture/005/save_picture_636242.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635539.jpg" />
+  <img src="Z:/picture/008/save_picture_635539.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Krai Mira / Край Мира (2016) [Ru/En] (1.1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635533.jpg" />
+  <img src="Z:/picture/008/save_picture_635533.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635110.jpg" />
+  <img src="Z:/picture/008/save_picture_635110.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ Apocalyptica - 8albums + 19singles (1996-2015) [MP3|320kbps] <Cello Metal>
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635005.jpg" />
+  <img src="Z:/picture/008/save_picture_635005.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635000.jpg" />
+  <img src="Z:/picture/008/save_picture_635000.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ Adobe Creative Cloud Collection Июнь 2015 For Windows [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634993.jpg" />
+  <img src="Z:/picture/008/save_picture_634993.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ Fable Anniversary (2014) [Ru/En] (1.0.867695/dlc) Repack R.G. Games [HD]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634992.jpg" />
+  <img src="Z:/picture/008/save_picture_634992.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634990.jpg" />
+  <img src="Z:/picture/008/save_picture_634990.jpg" />
 </div>
 
 
@@ -272,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634808.jpg" />
+  <img src="Z:/picture/008/save_picture_634808.jpg" />
 </div>
 
 
@@ -298,7 +455,7 @@ Borderlands Game of the Year Enhanced (2019) [Multi] (1.0) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634806.jpg" />
+  <img src="Z:/picture/008/save_picture_634806.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634801.jpg" />
+  <img src="Z:/picture/008/save_picture_634801.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ Hearts of Iron IV / Hearts of Iron 4 (2016) [Ru/Multi] (1.6.2/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634799.jpg" />
+  <img src="Z:/picture/008/save_picture_634799.jpg" />
 </div>
 
 
@@ -376,7 +533,7 @@ Debian GNU/Linux 9.0 + nonfree Stretch [amd64] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634753.jpg" />
+  <img src="Z:/picture/008/save_picture_634753.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ Total War: Warhammer (2016) [Ru/Multi] (1.6.0/dlc) License STEAMPUNKS
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634576.jpg" />
+  <img src="Z:/picture/008/save_picture_634576.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ Total War: Warhammer (2016) [Ru/En] (1.6.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634569.jpg" />
+  <img src="Z:/picture/008/save_picture_634569.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634568.jpg" />
+  <img src="Z:/picture/008/save_picture_634568.jpg" />
 </div>
 
 
@@ -481,7 +638,7 @@ Sony PlayStation 2 (2017) [PS2] [NTSC-U] [License] [Redump 20170613] (#-I)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634567.jpg" />
+  <img src="Z:/picture/008/save_picture_634567.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634156.jpg" />
+  <img src="Z:/picture/008/save_picture_634156.jpg" />
 </div>
 
 
@@ -520,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D71848B86FD10EF56CE14788E7E5311B898A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034240   (633799) от 13.07.2016
-
-Movavi Video Converter 16.2.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Converter - программа для конвертации видео и аудио файлов. Конвертируйте, сохраняйте видео для iPod, iPhone, PSP, Zune, КПК, MP4 - плееров и сотовых телефонов. Загружайте онлайн - видео,записывайте DVD. Программа подойдет пользователю с любыми навыками в работе с видео, программа предлагает как готовые настройки популярных форматов для новичков, так (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492021C3A67AC978FC3ADB94150CBA9203729A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954368   (633793) от 13.07.2016
-
-Lineage 2: Helios (2015) [Ru] (3.0.08.07.01) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lineage 2 - легендарная онлайн игра, проверенная временем, собравшая более 6 миллионов пользователей из разных стран, одна из самых популярных в мире массовых ролевых онлайн-игр. Проект, пользующийся небывалым успехом, стал примером для подражания, но ни один клон не завоевал стольких поклонников.Тип издания: LicenseРазработчик: NCSoftЖанр: 3rd Person, MMORPG, Fantasy, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F8C0C47429EE2E91CC321B5870870C097148E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908436   (633207) от 14.06.2015
-
-KMSAuto Lite 1.1.8 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633207.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Lite - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013. Возможна активация Office 2010 VL на Windows XP. Переключатели открывают доступ к установке GVLK ключей и настройке планировщика задач. Программе НЕ требуются никакие версии .NET Framework.Язык интерфейса: Русский, Английский, Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B53E81015A019FB0331D16522FBC0098FBFC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293833   (633095) от 05.04.2019
-
-Мумия возрождается / Mummy Reborn (2019) WEB-DLRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда группа подростков, которым отчаянно нужны деньги, решают ограбить местный антикварный магазин, они находят старый деревянный гроб, в котором лежит мумия и древний амулет. Но они не догадываются, что мумия проклята, и пойдет на все, чтобы вернуть амулет истинному хозяину. Воришки должны поторопиться, чтобы вернуть мумию на место и спасти мир, пока не стало слишком (   Читать дальше...   )Производство: Великобритания / Proportion ProductionsЖанр: ПриключенияРежиссер: Дэн АлленАктеры: Бекка Хирани, Тара МакГоурэн, Рита Сиддики, Тиффани-Эллен Робинсон, Джорджия Вуд, Джитендра Рай, Шарлин Дюрран, Крис Кэй, Херонимо Сехми, Клодин-Элен АморПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:19:54Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE05D7C04878270F6EA1FB5A7E8501A87DD795B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293586   (633094) от 05.04.2019
-
-Кладбище домашних животных / Pet Graveyard (2019) WEB-DLRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мрачный Жнец в сопровождении своего питомца преследует группу подростков, которые провели эксперимент, чтобы увидеться со своими умершими близкими людьми.Производство: Великобритания / Millman Productions, Proportion ProductionsЖанр: Ужасы, ТриллерРежиссер: Ребекка МэтьюзАктеры: Рита Сиддики, Эндрю Холлингворт, Клэр-Мария Фокс, Херонимо Семи, Майк Келсон, Кейт Милнер Эванс, Хэтти Уиллоу, Дэвид Коттер, Джессика Отуол, Кейт ЛушПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:38:45Реклама: Присутствуют вставки голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F1E7B6198D1E53F82DB12020F38D1C9D5C7364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293898   (633093) от 05.04.2019
-
-Simplify3D 4.1.2 [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышло очередное обновление популярного слайсера Simplify3D - специальная программа, предназначенная для подготовки моделей к 3D-печати, обладающая огромным функционалом для получения наилучшего качества печати. Больше не нужно иметь много приложений для различных задач. С помощью Simplify3D Вы сможете импортировать и эскпортировать модели, нарезать, слайсить, и отправлять (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169EDDE53D7BF3CCB649210FAB2F7B99CC765B16
 ```
 
 https://mybot314.ru/tekegram_catalog/

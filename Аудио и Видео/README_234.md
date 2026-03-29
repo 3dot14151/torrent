@@ -6,7 +6,7 @@ VA - The Perfect Soulful Vol.2 (Chillout Your Mind) (2021) [AAC|~299 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237812.jpg" />
+  <img src="Z:/picture/004/save_picture_237812.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Fifty Shades of Lounge - 50 Smooth & Sexy Chill Tunes 4 Erotic Moments (201
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237806.jpg" />
+  <img src="Z:/picture/004/save_picture_237806.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Beautiful Metamorphosis, Vol. 1 (2021) [AAC|~307 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237800.jpg" />
+  <img src="Z:/picture/004/save_picture_237800.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Smooth Jazz n Chill 2 (2017) [AAC|~344 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237793.jpg" />
+  <img src="Z:/picture/004/save_picture_237793.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237785.jpg" />
+  <img src="Z:/picture/004/save_picture_237785.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Mome
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237775.jpg" />
+  <img src="Z:/picture/004/save_picture_237775.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237769.jpg" />
+  <img src="Z:/picture/004/save_picture_237769.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Epica - Omega (2021) [AAC|~345 Kbps] <Symphonic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237760.jpg" />
+  <img src="Z:/picture/004/save_picture_237760.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Fireplace Chill, Vol. 4 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237752.jpg" />
+  <img src="Z:/picture/004/save_picture_237752.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Fireplace Chill, Vol. 3 (2020) [AAC|~320 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237745.jpg" />
+  <img src="Z:/picture/004/save_picture_237745.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Imaginature - Imaginature (2021) [AAC|~346 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237737.jpg" />
+  <img src="Z:/picture/004/save_picture_237737.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Los Angeles Beach Lounge, Vol. 4 (2021) [AAC|~326 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237730.jpg" />
+  <img src="Z:/picture/004/save_picture_237730.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237721.jpg" />
+  <img src="Z:/picture/004/save_picture_237721.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237702.jpg" />
+  <img src="Z:/picture/004/save_picture_237702.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237692.jpg" />
+  <img src="Z:/picture/004/save_picture_237692.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237685.jpg" />
+  <img src="Z:/picture/004/save_picture_237685.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Lounge Chill Out Chapter, Vol. 2 (2021) [AAC|~329 Kbps] <Chill Out, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237668.jpg" />
+  <img src="Z:/picture/004/save_picture_237668.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Lounge Remixes (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237660.jpg" />
+  <img src="Z:/picture/004/save_picture_237660.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Relaxing Jazzy Beats (Abstract Electronic Chill Jazz Vibes) (2021) [AAC|~33
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237611.jpg" />
+  <img src="Z:/picture/004/save_picture_237611.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - 0815 Lo-Fi Chill Hop (2019) [AAC|~264 Kbps] <Jazzy, Chillhop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237598.jpg" />
+  <img src="Z:/picture/004/save_picture_237598.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - What About Lounge, Vol. 2 (2021) [AAC|~320 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237588.jpg" />
+  <img src="Z:/picture/004/save_picture_237588.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 5 (2019) [AAC|~293 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237578.jpg" />
+  <img src="Z:/picture/004/save_picture_237578.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Röyksopp & Robyn - Do It Again (2014) [AAC|~331 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237572.jpg" />
+  <img src="Z:/picture/004/save_picture_237572.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Café Deluxe Chillout - Nu Brazil / Lounge (2014) [AAC|~326 Kbps] <Easy Lis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237564.jpg" />
+  <img src="Z:/picture/004/save_picture_237564.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 4 (2018) [AAC|~302 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237556.jpg" />
+  <img src="Z:/picture/004/save_picture_237556.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Café Deluxe Chillout - Nu Jazz / Lounge, Vol. 6 (2020) [AAC|~284 Kbps] <Ea
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237548.jpg" />
+  <img src="Z:/picture/004/save_picture_237548.jpg" />
 </div>
 
 

@@ -1,3 +1,167 @@
+###  Публикация: 588823   (152776) от 14.12.2012
+
+Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968489   (152540) от 24.12.2015
+
+VA - Зимний марафон № 214: Дискотека Уходящего Года (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (23.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+02. Azary and Kleo ft С.Ибрагимов, Д.Шарапова, З.Омарова, Kental, Alldavai - С Новым Годом, Казахстан! (Премьера!) (00:03:15)
+03. Carly Rae Jepsen ft. Josh Ramsay - Sour Candy (Official Video) (00:03:06)
+04. Dj Kan and Миша Марвин ft. Тимати - Ну Что За Дела (Премьера!) (00:03:20)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518792   (152256) от 21.12.2021
+
+Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом известной группы Gregorian в сопровождении великолепных видов природы, старинных замков и убранства средневековых соборов.Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589156   (152049) от 14.12.2012
+
+Top Of The Pops 70s (vol.3) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. T.Rex (feat. Elton John) – "Get It On"
+2. Slade – "Coz I Luv You"
+3. Gary Glitter – "Rock & Roll Part 2"
+4. David Bowie – "Starman"(   Читать дальше...   )Жанр: Музыка, Glam Rock, RockПродолжительность: 01:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAB02754E1747B42CC5D0175CA9DD0AA9634088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194723   (151383) от 27.12.2017
+
+Пётр Чайковский - Евгений Онегин / Piotr Tchaikovski - Eugene Oneguine (2007) BDRip [H.264/720p] (Metropolitan Opera)
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151383.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Евгений Онегин» - опера (лирические сцены) в трех действиях; либретто П.И. Чайковского и К.С. Шиловского по одноименному роману в стихах А.С. Пушкина.
+Первая постановка состоялась в Москве в Малом театре 17 (29) марта 1879 года, силами учащихся Московской консерватории под управлением Н. Рубинштейна. Официальная премьера: Москва, Большой театр, 11 (23) января 1881 (   Читать дальше...   )Производство: США, Metropolitan OperaЖанр: Опера, драмаРежиссер: Питер Макклинток, Брайан ЛарджАктеры: Дмитрий Хворостовский, Рене Флеминг, Рамон Варгас, Елена Заремба, Светлана Волкова, Лариса Шевченко, Сергей Алексашкин, Кейт Миллер, Жан-Пол Фушекорт, Ричард БернстейнСубтитры: Английские, немецкие, французские, итальянские, испанскиеПродолжительность: 02:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F56C4451713B9E60051F19BF33015483F561692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130762   (151199) от 23.12.2019
+
+Соло для часов с боем (1974) DVDRip [H.264] (2 части) [МХАТ им. М. Горького]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151199.jpg" />
+</div>
+
+
+###  Подробнее
+
+По пьесе Освальда Заградника (перевод Ю. Айхальда).
+Молодой человек собирался жениться. Где они будут жить, если не в старом дедушкином доме? Ненужные вещи можно выбросить, а дедушку попросить пожить на кухне или вообще переселить в дом престарелых - ведь там неплохо живут его друзья. Но дедушке этот дом дорог не потому, что здесь живут его вещи, а потому, что сюда (   Читать дальше...   )Производство: СССР / МХАТ им. М. Горького, ТО "Экран"Жанр: Телеспектакль, драма, мелодрамаРежиссер: Олег Ефремов (I), Анатолий Васильев (I), Леонид ПчёлкинАктеры: Михаил Яншин, Алексей Грибов, Ольга Андровская, Марк Прудкин, Виктор Станицын, Всеволод Абдулов, Ирина МирошниченкоСубтитры: отсутствуютПродолжительность: 01:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E718B8E3185BED405FA7F5495EA07915B5E0322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004090   (150894) от 23.12.2019
 
 Иисус Христос – Суперзвезда / Jesus Christ Superstar (1973) HDTVRip [H.264/720p-LQ] [Русскоязычная версия]
@@ -6,7 +170,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150894.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150361.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149205.jpg" />
 </div>
 
 
@@ -90,7 +254,7 @@ Hammerfall - Gates Of Dalhalla (2012) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149185.jpg" />
 </div>
 
 
@@ -122,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149098.jpg" />
 </div>
 
 
@@ -151,7 +315,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148897.jpg" />
 </div>
 
 
@@ -186,7 +350,7 @@ Within Temptation - Black Symphony (2008) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148835.jpg" />
 </div>
 
 
@@ -218,7 +382,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148699.jpg" />
 </div>
 
 
@@ -244,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148527.jpg" />
 </div>
 
 
@@ -270,7 +434,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148345.jpg" />
 </div>
 
 
@@ -300,7 +464,7 @@ VA - Download Festival 2012 (Part1) (2012) HDTVRip [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148165.jpg" />
 </div>
 
 
@@ -326,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148031.jpg" />
 </div>
 
 
@@ -352,7 +516,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148001.jpg" />
 </div>
 
 
@@ -387,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147959.jpg" />
 </div>
 
 
@@ -416,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147953.jpg" />
 </div>
 
 
@@ -445,7 +609,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147922.jpg" />
 </div>
 
 
@@ -471,7 +635,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -506,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147359.jpg" />
 </div>
 
 
@@ -533,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147202.jpg" />
 </div>
 
 
@@ -562,7 +726,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146933.jpg" />
 </div>
 
 
@@ -577,174 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:990E073E644D0722708C1EDBCBFFFE55814F930A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608888   (146767) от 25.12.2019
-
-Игорь Растеряев - Концерт в Рязани (2012) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146767.jpg" />
-</div>
-
-
-###  Подробнее
-
-По состоянию на начало мая 2012 года первоначальный ролик на YouTube просмотрен более 3,5 миллиона раз, став одним из наиболее успешных видео в Рунете (в 2010 году вошёл в десятку самых просматриваемых роликов в России). Всего же видеоролики с песнями в исполнении Растеряева («Русская дорога», «Казачья песня», «Ромашки», «Раковка», «Георгиевская ленточка» и др.) (   Читать дальше...   )01. Русская дорога
-02. Казачья песня
-03. Поступления в театральный институт(история)
-04. Комбайнеры(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A194640B3729F5CB835E5A8211263F1AB9AFF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519753   (146589) от 25.12.2021
-
-The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (2021) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный Blu-ray Ханса Циммера под названием ''World of Hans Zimmer: Hollywood in Vienna'' был записан в 2018 году в классическом концертном зале Вены, по случаю вручения композитору 10-й премии Макса Штайнера за достижения в области киноискусства. Прозвучали известные оркестровые композиции из фильмов, частично специально переделанные им, совместно с Венским симфоническим (   Читать дальше...   )Производство: Германия / DWTC BalgavyЖанр: Musical ScoreРежиссер: Питер РэбинджерАктеры: Martin Gellner, Lisa Gerrard, Valentina Nafornita, Pedro Eustache, Luis Ribeiro, Eliane Correa, Rusanda Panfili, ORF Vienna Radio Symphony Orchestra, Neue Wiener StimmenПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086670   (146490) от 27.12.2016
-
-Игра. Концерт Николая Баскова. (2016) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зрителей ждет не имеющее аналогов по размаху театрализованное представление! Уникальные декорации, эксклюзивные костюмы, специальные постановка для каждого номера. Новые песни, полюбившиеся хиты и шедевры мировой классики!01.	Я не одинок
-02.	Обниму тебя
-03.	Я подарю тебе любовь
-04.	Сохранив любовь (дуэт с Валерией)(   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B9302CCEE92AB5449EE883C6BA43CFE258B371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519793   (146406) от 25.12.2021
-
-Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный концерт группы Metallica, посвященный 40-летию группы, был снят в течение двух ночей, 17 и 19 декабря 2021 года.Производство: США / Amazon StudiosЖанр: Thrash MetalРежиссер: Narumi InatsuguСубтитры: английские (полные)Продолжительность: 04:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2DEDCF5160185F79EA15DD728AA748728E9F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086667   (146338) от 27.12.2016
-
-Игра. Концерт Николая Баскова. (2016) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зрителей ждет не имеющее аналогов по размаху театрализованное представление! Уникальные декорации, эксклюзивные костюмы, специальные постановка для каждого номера. Новые песни, полюбившиеся хиты и шедевры мировой классики!01.	Я не одинок
-02.	Обниму тебя
-03.	Я подарю тебе любовь
-04.	Сохранив любовь (дуэт с Валерией)(   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7B4AAF817CC12AB6EC532A3E2037F4377B2F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087408   (146232) от 27.12.2016
-
-Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Metallica в BBC Radio 1 Maida Vale Studio, London, UK 17 ноября 2016г.1. Atlas, Rise!
-2. Moth Into Flame
-3. Harvester Of Sorrow
-4. Hardwired(   Читать дальше...   )Жанр: Студийный концертПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364B04D59BFD06A41931B3DD010D4DD7A8A133C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

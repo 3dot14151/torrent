@@ -1,3 +1,81 @@
+###  Публикация: 630514   (927987) от 15.03.2013
+
+Мулан 2 / Mulan II (2004) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое увлекательное путешествие с уже знакомыми героями - отважной китайской воительницей Мулан и ее верным другом Ли Шанем. На сей раз им, храбрым победителям монгольских орд, предстоит самая ответственная миссия в жизни. Это... свадьба. Но, прежде чем Мулан и Ли Шань поженятся, они должны позаботиться и о чужом счастье, доставив трех китайских принцесс их женихам. (   Читать дальше...   )Жанр: мультфильм, мюзикл, боевик, комедия, семейныйРежиссер: Даррел Руни / Darrell Rooney, Линн Сауферлэнд / Lynne SoutherlandПерсонажи: Минг-На (Mulan, озвучка), Б.Д. Вонг (Shang, озвучка), Марк Моусли (Mushu, озвучка), Люси Лью (Mei, озвучка), Харви Фирштейн (Yao, озвучка), Сандра О (Ting Ting, озвучка), Гедде Ватанабэ (Ling, озвучка), Лорен Том (Su, озвучка), Джерри Тондо (Chien-Po, озвучка), Пэт Морита (The Emperor, озвучка), Джордж Такей (First Ancestor, озвучка), Джун Форэй (Grandmother Fa, (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E53804240E9A2E6F39C4B297F44662A6796BA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755357   (927750) от 10.02.2014
+
+Лига справедливости: Война / Justice League: War (2014) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие герои мира решают создать Лигу Справедливости, чтобы остановить инопланетное вторжение на Землю.Производство: США, DC Entertainment, Warner Bros. Animation, DC ComicsЖанр: Фантастика, Фэнтези, Боевик, Приключения, МультфильмРежиссер: Джей ОливаПерсонажи: Шон Эстин, Зак Каллисон, Кристофер Горам, Джастин Кирк, Мишель Монахэн, Шемар Мур, Джейсон О’Мара, Алан Тьюдик, Стивен Блум, Ди Брэдли БейкерПеревод: Многоголосый закадровый (профессиональный)Субтитры: ОтсутствуютПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBF9BDD4FA848E77F683572E09493FE2D3DCBD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 754876   (927747) от 10.02.2014
+
+Облачно... 2: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США / Columbia Pictures, Sony Pictures Animation, Sony Pictures ImageworksЖанр: Мультфильм, фантастика, фэнтези, комедия, семейныйПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FE30CA67379940866708310BFB1DCA244E1E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754746   (927739) от 10.02.2014
 
 Феи: Тайна зимнего леса / Secret of the Wings (2012) BDRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927739.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926878.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926703.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926262.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924441.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924217.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921396.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920232.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919766.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918723.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917840.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917789.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917636.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917626.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916164.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914793.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914295.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914135.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912984.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912250.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911804.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911537.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911056.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4556234B7476ABDC3D683D67774CD09E354CCD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491574   (910108) от 25.08.2021
-
-Щенячий патруль в кино / PAW Patrol: The Movie (2021) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда злодей Хамдингер становится мэром города Приключений, бесстрашные щенки бросают ему вызов. Райдера с друзьями ждут опасности и веселье, тайны прошлого и новые знакомства — так, к патрулю присоединяется находчивая такса Либерти. Вооружившись новыми гаджетами, смекалкой и дружбой, команда хвостатых героев готова противостоять Хамдингеру и спасти жителей города (   Читать дальше...   )Производство: Канада, США, Spin Master Entertainment, Nickelodeon Movies, Paramount AnimationЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Кэллан БрункерАктеры: Иэн Армитедж, Марсаи Мартин, Рон Пардо, Яра Шахиди, Ким Кардашьян Уэст, Рэндолл Пак, Дэкс Шепард, Тайлер Перри, Джимми Киммел, Уилл БрисбинПеревод: Двуголосый любительский (Pazl Voice // tnx. Kino.Pub)Субтитры: отсутствуютПродолжительность: 01:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0872882D21CB340C3903F1D5679192ED163E6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759516   (908591) от 21.02.2014
-
-Лига Справедливости: в Ловушке Времени / JLA Adventures: Trapped in Time (2014) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайший злодей всех времён Лекс Лютор, побежден Лигой Справедливости. Он погребён в безжизненной ледяной пустыне. Но наступил 31-ый век. Время мира и спокойствия. А Каратэ-Киду не терпится вступить в Легион Супергероев. Находясь в музее с Венерой, он случайно освобождает замороженного в глыбе льда Лекса Лютора. Оказавшись в будущем в полном одиночестве в его руки (   Читать дальше...   )Производство: США | DC Comics, DC Entertainment, Warner Bros. AnimationЖанр: Мультфильм, фантастика, фэнтези, боевик, приключения, комиксРежиссер: Джанкарло ВолпПеревод: Многоголосый закадровый, любительскийПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D519794AEF2417589E888DAA728C546570E5E69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635908   (907362) от 27.03.2013
-
-Вэлиант: Пернатый спецназ / Valiant (2005) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907362.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фронтах Второй мировой сражаются все. В том числе и птицы из Королевского голубиного управления. Их работа опасна, но престижна. И юный голубь Валиант больше всего на свете хочет стать членом этой команды. Однажды Валианту везет - ему доверяют переправить секретный документ от французского сопротивления к британскому командованию. От скорости и предприимчивости (   Читать дальше...   )Жанр: Мультфильм, комедия, приключения, семейный, военныйРежиссер: Гари ЧэпманПерсонажи: Юэн МакГрегор (Valiant, озвучка), Рики Джервэйс (Bugsy, озвучка), Тим Карри (Von Talon, озвучка), Джим Бродбент (Sergeant, озвучка), Хью Лори (Gutsy, озвучка), Джон Клиз (Mercury, озвучка), Джон Хёрт (Felix, озвучка), Пип Торренс (Lofty, озвучка), Рик Майял (Cufflingk, озвучка), Оливия Уильямс (Victoria, озвучка), Джонатан Росс (Big Thug, озвучка), Брайан Лонсдэйл (   Читать дальше...   )Перевод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDE3FD7BE25A9A3A278F36AE85866BC0D4AABD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

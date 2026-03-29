@@ -1,3 +1,135 @@
+###  Публикация: 1691592   (123074) от 13.01.2024
+
+Clipsy: Clipboard Manager 2.1 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clipsy записывает в буфер обмена историю скопированного текста, изображений, ссылок, снимков экрана и т. д. И позволяет вызывать / вставлять их в любое время и прямо у вас под рукой. Незаметно запускается из строки меню, позволяя быстро найти фрагмент текста, который вы так долго искали.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2717603073BE008BE600E99850BF485DA761CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691598   (123073) от 13.01.2024
+
+EzyCal: Time & Date 2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123073.jpg" />
+</div>
+
+
+###  Подробнее
+
+EzyCal - это продуктивный график строки состояния на целый год.
+Это система дней для социальных, религиозных, коммерческих или административных организаций
+Это григорианский календарь с событиями на доступном языке и созданием приложения для напоминаний, с дружественным интерфейсом, простой в использовании.Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017- 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6C8B9A488C1E2C779F7B630ECB280ECCA42E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691683   (123071) от 13.01.2024
+
+Butler 4.4.8 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Butler – менеджер, который дает доступ к приложениям и документам всех типов, в удобной системе меню, горячих клавиш, интерактивных углов, или управлением при помощи аббревиатур. Программа изучает предпочтения пользователя и запоминает, какие аббревиатуры сопоставляются с программами (например, "abo" для запуска Address Book). Также менеджер поможет организовывать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.01.2024Разработчик: © 2003 - 2024 Many TricksПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D00A298C99590B84DD35BB0AD84303105BF0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691618   (123066) от 13.01.2024
+
+TransData: Internet Data Speed 3.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение TransData - показывает скорость передачи данных в «Интернете». Если у вас есть вопросы, указанные выше, то на вашем компьютере должно быть установлено приложение TransData. Посмотрите скорость передачи данных по сети с вашего персонального компьютера. Эта утилита добавляет скорость передачи данных с помощью значка и скорости передачи в Кбит/с или Мбит/с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A35F0FFC073A1AC3A4FFA9D28399DDBF909954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691626   (123060) от 13.01.2024
+
+iON: Internet Status 5.7 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите статус подключения вашего интернет-соединения прямо из строки меню. Эта утилита добавляет аккуратный цвет (зеленый/красный) значок в строке меню, который позволяет узнать статус соединения - (внешний/внутренний IP, скорость загрузки и т.д.).Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D43163591E0EC8757EB3B4EB1669D37841E372E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691976   (122938) от 14.01.2024
 
 Speedio: Internet Speed Test 3.9 [Multi]
@@ -6,7 +138,7 @@ Speedio: Internet Speed Test 3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122938.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122909.jpg" />
 </div>
 
 
@@ -62,7 +194,7 @@ MacPilot 15 v.15.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122907.jpg" />
 </div>
 
 
@@ -89,7 +221,7 @@ Tagr 5.6.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122896.jpg" />
 </div>
 
 
@@ -116,7 +248,7 @@ Little Snitch 5.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122871.jpg" />
 </div>
 
 
@@ -143,7 +275,7 @@ Yandex Music Unofficial for Mac 1.8.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122801.jpg" />
 </div>
 
 
@@ -172,7 +304,7 @@ Pro Audio Converter 1.9.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122762.jpg" />
 </div>
 
 
@@ -200,7 +332,7 @@ Disk Xray 4.1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122749.jpg" />
 </div>
 
 
@@ -229,7 +361,7 @@ Ethernet Status - LAN Status  5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122737.jpg" />
 </div>
 
 
@@ -255,7 +387,7 @@ MP3 Encoder 2.18.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122731.jpg" />
 </div>
 
 
@@ -281,7 +413,7 @@ OnlySwitch 2.4.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122717.jpg" />
 </div>
 
 
@@ -307,7 +439,7 @@ SpamSieve 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122703.jpg" />
 </div>
 
 
@@ -334,7 +466,7 @@ Eon Timer 2.9.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122701.jpg" />
 </div>
 
 
@@ -360,7 +492,7 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122589.jpg" />
 </div>
 
 
@@ -386,7 +518,7 @@ DxO PureRAW 3 for Mac v.3.9.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122575.jpg" />
 </div>
 
 
@@ -413,7 +545,7 @@ HitPaw Video Enhancer for Mac 3.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122541.jpg" />
 </div>
 
 
@@ -439,7 +571,7 @@ MetaImage for Mac 2.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122517.jpg" />
 </div>
 
 
@@ -466,7 +598,7 @@ Lyn 2.3.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122381.jpg" />
 </div>
 
 
@@ -492,7 +624,7 @@ FontLab 8 v.8.3.0.8766.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122369.jpg" />
 </div>
 
 
@@ -519,7 +651,7 @@ PDF Checkpoint 1.9.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122368.jpg" />
 </div>
 
 
@@ -545,7 +677,7 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122359.jpg" />
 </div>
 
 
@@ -556,136 +688,6 @@ Chain - Study & Workout Timer 10.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C6E45D0CA098EAC8D12D4D5970816D3576C947E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692537   (122353) от 17.01.2024
-
-Battery Indicator for Mac 2.17.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 Sindre SorhusПоддерживаемая ОС: macOS 14.1 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1D8325C07B377E1A549B456D642FB058411AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692721   (122342) от 17.01.2024
-
-Wattagio 1.13.1 [Multi/Rus]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2022Разработчик: © Volodymyr NehodovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BADFEFDA7543AE11A53EAB79830258121ED1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692566   (122340) от 17.01.2024
-
-PaintCode 3 v.3.5.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.05.2022Разработчик: © 2022 PixelCutПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E28D5D74F05B9642027B0935B746B410AD424E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692750   (122332) от 17.01.2024
-
-GM CHM Reader Pro for Mac 2.5.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122332.jpg" />
-</div>
-
-
-###  Подробнее
-
-GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692561   (122331) от 17.01.2024
-
-Color Folder - Custom Icons for Mac 3.8 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122331.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Color Folder вы сможете задать любой внешний вид выбранной вами папкиТип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2022 elimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

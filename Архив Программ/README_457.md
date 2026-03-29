@@ -6,7 +6,7 @@ Sigil 1.8.0 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804362.jpg" />
+  <img src="Z:/picture/008/save_picture_804362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GoodSync Enterprise 11.9.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804349.jpg" />
+  <img src="Z:/picture/008/save_picture_804349.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804303.jpg" />
+  <img src="Z:/picture/008/save_picture_804303.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804299.jpg" />
+  <img src="Z:/picture/008/save_picture_804299.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Torch Browser 69.2.0.1706 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804274.jpg" />
+  <img src="Z:/picture/008/save_picture_804274.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ WinNTSetup 5.0.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804260.jpg" />
+  <img src="Z:/picture/008/save_picture_804260.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Opera 80.0.4170.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804257.jpg" />
+  <img src="Z:/picture/008/save_picture_804257.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Spectrasonics Omnisphere Software 2.8.0d & Patches 2.8.0c (x64) Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804253.jpg" />
+  <img src="Z:/picture/008/save_picture_804253.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AutoRuns 14.06 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804241.jpg" />
+  <img src="Z:/picture/008/save_picture_804241.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804234.jpg" />
+  <img src="Z:/picture/008/save_picture_804234.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Leawo Prof. Media 7.8.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804233.jpg" />
+  <img src="Z:/picture/008/save_picture_804233.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804228.jpg" />
+  <img src="Z:/picture/008/save_picture_804228.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ProcessKO 4.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804225.jpg" />
+  <img src="Z:/picture/008/save_picture_804225.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804186.jpg" />
+  <img src="Z:/picture/008/save_picture_804186.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Insofta Cover Commander 6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804177.jpg" />
+  <img src="Z:/picture/008/save_picture_804177.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Free Download Manager 6.9.1.2947 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804166.jpg" />
+  <img src="Z:/picture/008/save_picture_804166.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ AllDup 4.4.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804165.jpg" />
+  <img src="Z:/picture/008/save_picture_804165.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ BELOFF [dp] 2021.10.3
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804124.jpg" />
+  <img src="Z:/picture/008/save_picture_804124.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ NetLimiter Pro 4.1.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804121.jpg" />
+  <img src="Z:/picture/008/save_picture_804121.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Anvir Task Manager 9.2.2 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804116.jpg" />
+  <img src="Z:/picture/008/save_picture_804116.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804101.jpg" />
+  <img src="Z:/picture/008/save_picture_804101.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804098.jpg" />
+  <img src="Z:/picture/008/save_picture_804098.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ XMedia Recode 3.3.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804094.jpg" />
+  <img src="Z:/picture/008/save_picture_804094.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ USDownloader 1.3.5.9 Portable (23.04.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804080.jpg" />
+  <img src="Z:/picture/008/save_picture_804080.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Opera 68.0.3618.125 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804051.jpg" />
+  <img src="Z:/picture/008/save_picture_804051.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Windows 11 PC Health Check 3.1.210929003-s2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804013.jpg" />
+  <img src="Z:/picture/008/save_picture_804013.jpg" />
 </div>
 
 

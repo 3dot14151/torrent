@@ -1,3 +1,90 @@
+###  Публикация: 1155408   (533615) от 03.08.2017
+
+Vanden Plas - The Seraphic Clockwork (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frequency (6:17)
+02. Holes In The Sky (5:26)
+03. Scar Of An Angel (7:27)
+04. Sound Of Blood (6:47)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296A29E80105D41185A0122B018C069E06179E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155421   (533609) от 03.08.2017
+
+Vanden Plas - The Seraphic Live Works (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Postcard to God (9:00)
+2. Rush of Silence (10:52)
+3. Holes in the Sky (5:41)
+4. Far off Grace (8:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB6CFC00D6CC9F8EFB8F1ACA64B0A0D9065F348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155494   (533529) от 03.08.2017
+
+Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533529.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sun of the Night (5:15)
+2. Patchworks (4:59)
+3. Uncreation (5:41)
+4. Add Reality (6:17)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961FA9E06BC9153FF39AAAC0666B01BA4C7F83D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239869   (533361) от 08.08.2018
 
 Nocturnal Rites - Shadowland (2002) Japan [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Nocturnal Rites - Shadowland (2002) Japan [FLAC|Lossless|image + .cue] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533361.jpg" />
+  <img src="Z:/picture/008/save_picture_533361.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Accept - The Rise Of Chaos (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533131.jpg" />
+  <img src="Z:/picture/008/save_picture_533131.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Boudika - The Dark Side (2014) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532924.jpg" />
+  <img src="Z:/picture/008/save_picture_532924.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ PIG - The Gospel (2016) [FLAC|Lossless|tracks + .cue] <Industrial>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532802.jpg" />
+  <img src="Z:/picture/008/save_picture_532802.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Altar - Youth Against Christ (1994) [WavPack|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532792.jpg" />
+  <img src="Z:/picture/008/save_picture_532792.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Behemoth - The Return of the Northern Moon (1993) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532786.jpg" />
+  <img src="Z:/picture/008/save_picture_532786.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Behemoth - Slaves Shall Serve (2005) EP [FLAC|Lossless|tracks + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532782.jpg" />
+  <img src="Z:/picture/008/save_picture_532782.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Behemoth - Demigod (2004) [FLAC|Lossless|tracks + .cue] <Death Metal, Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532780.jpg" />
+  <img src="Z:/picture/008/save_picture_532780.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ KMFDM - Rocks - Milestones Reloaded (2016) [FLAC|Lossless|tracks + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532705.jpg" />
+  <img src="Z:/picture/008/save_picture_532705.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Kataklysm - In the Arms of Devastation (2006) Deluxe Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532703.jpg" />
+  <img src="Z:/picture/008/save_picture_532703.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Behemoth - Zos Kia Cultus (Here and Beyond) (2002) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532690.jpg" />
+  <img src="Z:/picture/008/save_picture_532690.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Behemoth - Evangelia Heretika (2010) Live album [FLAC|Lossless|tracks + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532673.jpg" />
+  <img src="Z:/picture/008/save_picture_532673.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Behemoth - Sventevith (Storming Near the Baltic) (1995) [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532668.jpg" />
+  <img src="Z:/picture/008/save_picture_532668.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Behemoth - Conjuration (2003) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532667.jpg" />
+  <img src="Z:/picture/008/save_picture_532667.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Hate - Morphosis (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532045.jpg" />
+  <img src="Z:/picture/008/save_picture_532045.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kreator - Hate Uber Alles (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531775.jpg" />
+  <img src="Z:/picture/008/save_picture_531775.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Vanden Plas - Christ 0 (2006) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531690.jpg" />
+  <img src="Z:/picture/008/save_picture_531690.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Abydos - Abydos (2004) [FLAC|Lossless|image + .cue] <Progressive Metal, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531689.jpg" />
+  <img src="Z:/picture/008/save_picture_531689.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Nakkiga - Belebeltzeta (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531400.jpg" />
+  <img src="Z:/picture/008/save_picture_531400.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Cauldron - Aker (2001) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531399.jpg" />
+  <img src="Z:/picture/008/save_picture_531399.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ In Loving Memory - Negation Of Life (2011) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531388.jpg" />
+  <img src="Z:/picture/008/save_picture_531388.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Pagan Rites - Survival Of The Antichrist Nation (2020) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530170.jpg" />
+  <img src="Z:/picture/008/save_picture_530170.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Oxidize - Stand up for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529979.jpg" />
+  <img src="Z:/picture/008/save_picture_529979.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Oxidize - Stand up for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7486B450BC0FB7AB170141713E802AE7A1E1A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155752   (529781) от 05.08.2017
-
-Vanden Plas - Far Off Grace (1999) Reissue, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can See (4:01)
-02. Far Off Grace (7:03)
-03. Into The Sun (6:33)
-04. Where Is The Man (6:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D78D7528086738A9B42ED8FB1EC9F979F18C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312889   (529162) от 06.07.2019
-
-Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix Rising
-02. D.N.A. (Demon and Angel) (feat. Elize Ryd of Amaranthe)
-03. Zero Gravity
-04. Fast Radio Burst(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB6B0815874A651176C88511481DF4F5753E549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558498   (528798) от 22.06.2022
-
-Nordicwinter - Le dernier adieu (2021) [FLAC|Lossless|WEB-DL|tracks] <Depressive Black metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le corbillard (7:57)
-02. La Nuit (5:38)
-03. Adieu (5:16)
-04. Je n’ai plus que les os (7:17)(   Читать дальше...   )Жанр: Depressive Black metalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066ED20F00D3C2ED15460281FD61816A0CF9729D
 ```
 
 https://mybot314.ru/tekegram_catalog/

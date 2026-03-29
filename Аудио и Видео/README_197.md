@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372405.jpg" />
+  <img src="Z:/picture/008/save_picture_372405.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372336.jpg" />
+  <img src="Z:/picture/008/save_picture_372336.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372250.jpg" />
+  <img src="Z:/picture/008/save_picture_372250.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Carla Bruni - Carla Bruni (2020) [AAC|~279 Kbps] <Chanson, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372132.jpg" />
+  <img src="Z:/picture/008/save_picture_372132.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Suede - Beautiful Ones: The Best of Suede 1992-2018 (2020) [AAC|~341 Kbps] <Pop,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372017.jpg" />
+  <img src="Z:/picture/008/save_picture_372017.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372013.jpg" />
+  <img src="Z:/picture/008/save_picture_372013.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372005.jpg" />
+  <img src="Z:/picture/008/save_picture_372005.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Leonid Agutin - La Vida Cosmopolita (2020) [AAC|~352 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372001.jpg" />
+  <img src="Z:/picture/008/save_picture_372001.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371922.jpg" />
+  <img src="Z:/picture/008/save_picture_371922.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371915.jpg" />
+  <img src="Z:/picture/008/save_picture_371915.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371905.jpg" />
+  <img src="Z:/picture/008/save_picture_371905.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371762.jpg" />
+  <img src="Z:/picture/008/save_picture_371762.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371742.jpg" />
+  <img src="Z:/picture/008/save_picture_371742.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371463.jpg" />
+  <img src="Z:/picture/008/save_picture_371463.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370872.jpg" />
+  <img src="Z:/picture/008/save_picture_370872.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DLRip [576p] iPad
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370679.jpg" />
+  <img src="Z:/picture/008/save_picture_370679.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mamma Mia! 2 / Mamma Mia! Here We Go Again (2018) WEB-DLRip [480p] iPod
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370677.jpg" />
+  <img src="Z:/picture/008/save_picture_370677.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370377.jpg" />
+  <img src="Z:/picture/008/save_picture_370377.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370168.jpg" />
+  <img src="Z:/picture/008/save_picture_370168.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370108.jpg" />
+  <img src="Z:/picture/008/save_picture_370108.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370103.jpg" />
+  <img src="Z:/picture/008/save_picture_370103.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370081.jpg" />
+  <img src="Z:/picture/008/save_picture_370081.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370072.jpg" />
+  <img src="Z:/picture/008/save_picture_370072.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369961.jpg" />
+  <img src="Z:/picture/008/save_picture_369961.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369864.jpg" />
+  <img src="Z:/picture/008/save_picture_369864.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369862.jpg" />
+  <img src="Z:/picture/008/save_picture_369862.jpg" />
 </div>
 
 

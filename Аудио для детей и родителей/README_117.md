@@ -1,3 +1,87 @@
+###  Публикация: 1736488   (50234) от 12.07.2024
+
+Елена Камбурова - Дрема. Колыбельные песни (1997) [MP3|320 Kbps] <Bard, Vocal>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Спи, моя радость, усни [00:04:07]
+02 - Колыбельная Светланы [00:03:41]
+03 - Зеленая карета [00:03:40]
+04 - Старая лестница [00:03:39](   Читать дальше...   )Жанр: Bard, VocalПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D23E371D33E4F5684EB8051B75B277CC168E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736511   (50231) от 12.07.2024
+
+Нина Дашевская | Я не тормоз (2020) [MP3, Ирина Евдокимова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный человек так бежит, когда на поезд опаздывает. А для Игната — нормальная скорость. Самое то, на роликах или на самокате. Так лучше ощущаешь связь с миром, а в нем всё интересно: и люди, и город, и музыка, и книги... да всё. И мыслей об этом у Игната полно. Своих, ни у кого не занятых. Только вот делиться он ими не любит, да и не с кем — кто же за ним поспеет? (   Читать дальше...   )Жанр: детская проза, повестиИздательство: СамокатПродолжительность: 04:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4BD878F569ACF18EA17430E6C26C56A52B5DCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304179   (50195) от 13.07.2024
+
+Фрэнсис Бёрнетт | Маленькая принцесса (2009) [MP3, Наталья Михеева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшее - детям.
+Фрэнсис Элиза Бёрнетт (1849–1924), англо-американская писательница.
+Каждая девочка мечтает стать принцессой...
+А знаешь ли ты, что значит быть настоящей принцессой?(   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, повестьИздательство: АудиокнигаПродолжительность: 06:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BA7BC3AE5FE1B390D825C9A4CB87B7927B5FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 304181   (50161) от 13.07.2024
 
 Фрэнсис Бёрнетт | Маленький лорд Фаунтлерой (2004) [MP3, Ольга Вяликова]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50161.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50160.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48697.jpg" />
 </div>
 
 
@@ -89,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48533.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48410.jpg" />
 </div>
 
 
@@ -145,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48361.jpg" />
 </div>
 
 
@@ -173,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48331.jpg" />
 </div>
 
 
@@ -202,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48234.jpg" />
 </div>
 
 
@@ -228,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48223.jpg" />
 </div>
 
 
@@ -254,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47814.jpg" />
 </div>
 
 
@@ -281,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47813.jpg" />
 </div>
 
 
@@ -307,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47804.jpg" />
 </div>
 
 
@@ -334,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47789.jpg" />
 </div>
 
 
@@ -361,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47784.jpg" />
 </div>
 
 
@@ -388,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47778.jpg" />
 </div>
 
 
@@ -415,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47731.jpg" />
 </div>
 
 
@@ -443,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47385.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47349.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47317.jpg" />
 </div>
 
 
@@ -522,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47234.jpg" />
 </div>
 
 
@@ -548,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46942.jpg" />
 </div>
 
 
@@ -575,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46787.jpg" />
 </div>
 
 
@@ -602,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46767.jpg" />
 </div>
 
 
@@ -616,88 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E326E4A095D0906C01B3ECD3063A1C26B47695E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415964   (46656) от 16.08.2024
-
-Роберт Льюис Стивенсон | Остров сокровищ (Инсценировка) (2006) [MP3, Сергей Герасенков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Льюис Стивенсон (1850—1894) — шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
-«Пятнадцать человек на сундук мертвеца! Йо-хо-хо, и бутылка рому!» Кто же не знает наизусть эту пиратскую песенку? А кто откажется отправиться на поиски сокровищ с одноногим Джоном Сильвером (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романПродолжительность: 04:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C260A70680F46BC76F7F73DE994E002092D183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419249   (46158) от 21.08.2024
-
-Илья Литвак | Музыкальные сказки. Морозко (2010) [MP3, Маргарита Удальцова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Добрым детям. Музыкальные сказки.
-Великолепные инсценировки знаменитых сказок в исполнении профессиональных актеров, с музыкой и песнями, понравятся детям и помогут привить им интерес к литературе. Ребёнок сможет не только слушать любимые сказки, но и подпевать любимым героям!
-На диске представлены детские музыкальные сказки Ильи Литвака.Жанр: Детская литература, музыкальная сказкаВ ролях: Маргарита Удальцова, Илья Литвак и др.Издательство: РМГ РекордзПродолжительность: 04:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B478F3EBE9CF220ECB1B2ECF47C1097A9BA169F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419252   (46155) от 21.08.2024
-
-Илья Литвак | Музыкальные сказки. Сказки о Тридевятом Царстве (2010) [MP3, Илья Литвак, Марина Моисеева и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Добрым детям.
-«Сказки о тридевятом царстве» – это сборник, в котором главные герои переходят из одной сказки в другую, сначала вырастая из детей в могучих богатырей, а после смерти продолжают участвовать в действии, уже будучи небесными воинами. В сказочной форме отражается эпос разных народов, окружающих Русь («Тридевятое царство»). Представители этих (   Читать дальше...   )Жанр: Русская литература, музыкальная сказкаВ ролях: Илья Литвак, Марина Моисеева, Отец Софроний, Игорь Петров и др.Издательство: РМГ РекордзПродолжительность: 07:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931CBE78FBCB851845CB063DFEADA9F4204E2BDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

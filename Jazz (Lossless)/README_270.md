@@ -1,3 +1,118 @@
+###  Публикация: 1587272   (192977) от 30.10.2022
+
+Bing Crosby - The CBS Radio Recordings (1954 - 1956) 7CD, 2009, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192977.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. If I Give My Heart to You [3:25]
+02. Mandy [1:41]
+03. Count Your Blessings Instead of Sheep [2:55](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 06:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720FB9E5897C301DD56050865AC1129994E842A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587522   (192711) от 31.10.2022
+
+Woody Herman - The Complete Capitol Recordings Of Woody Herman (1948 - 1956) 6CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_192711.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. That's Right [3:05]
+02. Lemon Drop [2:53]
+03. I Got It Bad (And That Ain't Good) [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B0D58413E18020FD3E1EC500B7A65A46ED1B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657507   (192460) от 04.09.2023
+
+Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Parker's Last Supper [7:14]
+02. Hymn from the Inferno [12:03]
+03. What It Is [17:59]Жанр: Hard Bop, Post-BopПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3441770B435BFBEDE69E8EF0960CD9AA96DC4191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657616   (192456) от 04.09.2023
+
+Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighea [5:15]
+02. Never Before Never Again [4:12]
+03. Filigrane [5:20]
+04. What Is This Thing Called Love [5:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C8BD61945ECFA7D725B68D8A63B642C324C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587734   (192398) от 01.11.2022
 
 Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -6,7 +121,7 @@ Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192398.jpg" />
+  <img src="Z:/picture/004/save_picture_192398.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192122.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191946.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Jack Teagarden - The Complete Capitol Fifties Jack Teagarden Sessions (1955 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191856.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Julius Rodriguez - Let Sound Tell All (2022) [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191848.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Jimmie Lunceford - The Complete Jimmie Lunceford Decca Sessions (1934 - 1945) 7C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191650.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191636.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191422.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191419.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191412.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191014.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Andre Ceccarelli, Pierre-Alain Goualch, Diego Imbert - Porgy & Bess (2021) Trebi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190906.jpg" />
+  <img src="Z:/picture/004/save_picture_190906.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Sidney Bechet - 1938 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190677.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190674.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190644.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Bunny Berigan - The Complete Brunswick, Parlophone And Vocalion Bunny Berigan Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190406.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Paul Marinaro - Not Quite Yet (2022) 122 Myrtle Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190382.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Rickie Lee Jones - Pieces of Treasure (2023) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190167.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Laufey - Bewitched (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190125.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Scott Hamilton - Live At Brecon Jazz Festival (1995) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190046.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Najee - The Best Of (1998) Compilation [FLAC|Lossless|image + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190029.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ Trinkle Jazz Ensemble - Red, Hot & Blue Cole (2021) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190021.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ Trinkle Jazz Ensemble - Red, Hot & Blue Cole (2021) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D842D8C56C7DDC97AE65A84E431896AA38B8EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660296   (189848) от 12.09.2023
-
-Fred Hersch Trio '97 - At The Village Vanguard (2018) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy to Love [9:50]
-02. My Funny Valentine [10:06]
-03. Three Little Words [6:00]
-04. Evanessence [5:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E194A8E55B54353B0113DA0E5B91AD3CE75EC317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659522   (189823) от 12.09.2023
-
-McCoy Tyner - The Best Of: The Blue Note Years (1967 - 1995) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion Dance [8:48]
-02. Search for Peace [6:33]
-03. Man from Tanganyika [6:54]
-04. Peresina [10:23](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87404C063816A19BD5F2D4678A3419D0A7FBFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660299   (189817) от 12.09.2023
-
-Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ntyilo, Ntyilo [4:28]
-02. Nature Boy [5:04]
-03. My Ship [4:12]
-04. The Very Thought of You [5:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3724508611365949EB4EEC2F7AD0D31F178C76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589826   (189778) от 11.11.2022
-
-John Sneider - The Scrapper (2020) Cellar Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Scrapper [6:37]
-02. Critterbug [6:51]
-03. When Light Breaks [6:01]
-04. Mindfield [7:17](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0914A60C8DC643364178D5F69B5C0EEC3D531DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

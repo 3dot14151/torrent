@@ -1,3 +1,31 @@
+###  Публикация: 956661   (327659) от 17.11.2015
+
+Ю. В. Воронцов | Операция «Брейнуошинг» (1971) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_327659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена исследованию средств массовой коммуникации Соединенных Штатов Америки, показу их пагубного воздействия на широкие слои населения этой страны, особенно молодежь, изощренной научно разработанной системе «брейнуошинг» - «промывание мозгов» - дезинформации читателей, радиослушателей, телезрителей, просто учащихся.
+
+Автор книги, доктор философских (   Читать дальше...   )Жанр: История, политология, психология, социология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957285   (327632) от 17.11.2015
 
 С. Я. Шейнман-Топштейн | Платон и ведийская философия (1978) [DJVU, PDF]
@@ -6,7 +34,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327632.jpg" />
+  <img src="Z:/picture/008/save_picture_327632.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327630.jpg" />
+  <img src="Z:/picture/008/save_picture_327630.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327609.jpg" />
+  <img src="Z:/picture/008/save_picture_327609.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327606.jpg" />
+  <img src="Z:/picture/008/save_picture_327606.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327595.jpg" />
+  <img src="Z:/picture/008/save_picture_327595.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327553.jpg" />
+  <img src="Z:/picture/008/save_picture_327553.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327300.jpg" />
+  <img src="Z:/picture/008/save_picture_327300.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ Katie Derham | The classical music book: big ideas simply explained (2018) [EPUB
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326242.jpg" />
+  <img src="Z:/picture/008/save_picture_326242.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325876.jpg" />
+  <img src="Z:/picture/008/save_picture_325876.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325875.jpg" />
+  <img src="Z:/picture/008/save_picture_325875.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325874.jpg" />
+  <img src="Z:/picture/008/save_picture_325874.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325831.jpg" />
+  <img src="Z:/picture/008/save_picture_325831.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325829.jpg" />
+  <img src="Z:/picture/008/save_picture_325829.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324958.jpg" />
+  <img src="Z:/picture/008/save_picture_324958.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323952.jpg" />
+  <img src="Z:/picture/008/save_picture_323952.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323538.jpg" />
+  <img src="Z:/picture/008/save_picture_323538.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323366.jpg" />
+  <img src="Z:/picture/008/save_picture_323366.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322018.jpg" />
+  <img src="Z:/picture/008/save_picture_322018.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321973.jpg" />
+  <img src="Z:/picture/008/save_picture_321973.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321968.jpg" />
+  <img src="Z:/picture/008/save_picture_321968.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321870.jpg" />
+  <img src="Z:/picture/008/save_picture_321870.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321850.jpg" />
+  <img src="Z:/picture/008/save_picture_321850.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321446.jpg" />
+  <img src="Z:/picture/008/save_picture_321446.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321280.jpg" />
+  <img src="Z:/picture/008/save_picture_321280.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320804.jpg" />
+  <img src="Z:/picture/008/save_picture_320804.jpg" />
 </div>
 
 
@@ -647,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87350F29EFACEF3CB6B112701D59DC11D3B8A573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075058   (320799) от 22.11.2016
-
-Е. А. Ножин | Основы советского ораторского искусства (1973) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга дает систематическое представление о советском ораторском искусстве как прикладной и теоретической дисциплине. В основе ее — учет данных языкознания, философии, логики, психологии, а также анализ ораторской практики выдающихся ораторов.Жанр: История, философия, искусство, психология, филология, риторика, логикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A68D8B698A71A6011F478213DFF75AD7CB7DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

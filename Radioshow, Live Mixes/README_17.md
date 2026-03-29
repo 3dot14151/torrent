@@ -1,3 +1,61 @@
+###  Публикация: 1536592   (244113) от 12.03.2022
+
+Timmy Trumpet - Live @ kineticFIELD, EDC Mexico (2022-02-27) [MP3|320 Kbps] <Big Room, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Freaks w/ID - ID
+02. Tiësto & DallasK - Show Me (Timmy Trumpet Remix)
+03. Nirvana - Smells Like Teen Spirit w/ID - ID w/Megan Thee Stallion - Body (Acappella)
+04. GTA & TJR - Mic Check w/Greazy Puzzy Fuckerz & D-Fence - Virgin (Kick Edit) w/Timmy Trumpet - Freaks (Acappella)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E5CFB70182409AB5010A95CB54C35695582F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536421   (244099) от 12.03.2022
+
+Otto Knows - Tomorrowland Friendship Mix (2022-03-10) [MP3|320 Kbps] <Progressive House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audion - Mouth To Mouth
+02. Chris Lorenzo ft. High Jinx - California Dreamin'
+03. Super Flu - Go
+04. Moojo - Healing(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D23E59B76CBD4E1A2B2D2B00214F3DEEC7D265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456121   (243369) от 21.03.2021
 
 Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room, Dance, Electro Pop>
@@ -6,7 +64,7 @@ Kosling - Live @ Fireland Festival,France (2021-03-19) [MP3|320 Kbps] <Big Room,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243369.jpg" />
+  <img src="Z:/picture/004/save_picture_243369.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Armin van Buuren - A State Of Trance 1117 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242549.jpg" />
+  <img src="Z:/picture/005/save_picture_242549.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Armin van Buuren - A State Of Trance 1121 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242437.jpg" />
+  <img src="Z:/picture/005/save_picture_242437.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242147.jpg" />
+  <img src="Z:/picture/004/save_picture_242147.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242069.jpg" />
+  <img src="Z:/picture/004/save_picture_242069.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241772.jpg" />
+  <img src="Z:/picture/004/save_picture_241772.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Armin van Buuren - A State Of Trance 1122 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241663.jpg" />
+  <img src="Z:/picture/005/save_picture_241663.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Armin van Buuren - A State Of Trance 1118 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241439.jpg" />
+  <img src="Z:/picture/004/save_picture_241439.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Rencontre Nocturne - Journey to Paradise Again (2022) [MP3|320 Kbps] <Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241226.jpg" />
+  <img src="Z:/picture/004/save_picture_241226.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Kryder & DEADLINE - Kryteria Radio 286 (2021-04-14) [MP3|192 Kbps] <House, Progr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240850.jpg" />
+  <img src="Z:/picture/004/save_picture_240850.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ VA - Armin van Buuren - A State Of Trance 1116 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240844.jpg" />
+  <img src="Z:/picture/004/save_picture_240844.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239358.jpg" />
+  <img src="Z:/picture/004/save_picture_239358.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239017.jpg" />
+  <img src="Z:/picture/004/save_picture_239017.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238404.jpg" />
+  <img src="Z:/picture/004/save_picture_238404.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238213.jpg" />
+  <img src="Z:/picture/004/save_picture_238213.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Armin van Buuren - A State Of Trance 1125 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237633.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Armin van Buuren - A State Of Trance 1119 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236373.jpg" />
+  <img src="Z:/picture/005/save_picture_236373.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Nicky Romero & Tim van Werd & Timmo Hendriks - Protocol Radio 500 (2022-03-10) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235122.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Armin van Buuren - A State Of Trance 1120 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234573.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Armin van Buuren - A State Of Trance 1128 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232998.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Armin van Buuren - A State Of Trance 1126 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232796.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Armin van Buuren - A State Of Trance 1129 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231886.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231775.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230911.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1130 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6B9B053A523A3FDD388482B590DE187A39C4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649537   (229130) от 28.07.2023
-
-VA - Armin van Buuren - A State Of Trance 1131 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Ferry Corsten - Follow You (FLASHOVER)
-02.	Ferry Corsten - Voeman (FLASHOVER)
-03.	Ferry Corsten & Betsie Larkin - Not Coming Down (FLASHOVER)
-04.	Ferry Corsten & Ciaran McAuley - Mo Chara (FLASHOVER)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D65529CD48572141CCB33E53B7027A6E1CD7466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 402814   (227912) от 18.12.2013
-
-Tiesto - Club Life 001-350 (2007 - 2013) [MP3|128-320 kbps]<Trance, House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1:
-01.	Club Life - Intro (00:31)
-02.	Tiësto feat. Anastacia - What Can We Do (A Deeper Love) (Third Party Remix)	(06:10)
-03.	Nicky Romero - Toulouse	(04:58)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Electro House, HouseПродолжительность: 663:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D69D0239906360522DDF5A45249207AA3B0C6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

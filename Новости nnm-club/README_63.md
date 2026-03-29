@@ -1,3 +1,107 @@
+###  Публикация: 1113266   (837487) от 11.03.2017
+
+Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Тайвань, Мальта, Канада / Regency Enterprises, Ubisoft, New Regency Pictures, Ubisoft Motion Pictures DMC Film Kennedy/Marshall Company, The RatPac Entertainment, Alpha Pictures, CatchPlay, Monarchy Enterprises S.a.r.l., Helicopter Film, Services Latina PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси Дэвис ...Перевод: Дублированный (Line)Субтитры: Русские (Full), Английские (Forced, Full)Продолжительность: 01:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F38B8ADB87DDF65D77DCED9CCA557F2A3B9677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309281   (837324) от 18.03.2011
+
+Интервью Лукашенко для Вашингтон Пост (2011) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Показано по российскому национальному телевидению 05 марта 2011 г. После чего сайт телеканала "Мир" на территории США был заблокирован.Жанр: Телепередача, ДокументальныйПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2B4B4E564EC773A34DDA1B3A35F63FC334F8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607509   (837252) от 03.05.2013
+
+Последователи / The Following (Сезон 1 полный (15)) (2013) WEB-DLRip (Кубик В Кубе)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный антигерой - Джо Кэрол, бывший профессор колледжа, который преподавал работы Эдгара По и параллельно убивал молодых женщин во славу романтизма, пока не был пойман. С того момента он провел множество часов за компьютером в тюремной библиотеке, создавая социальную сеть из убийц-подражателей, которые исполняют любую его команду. Сериал начинается с того момента, (   Читать дальше...   )Производство: США, FoxЖанр: Триллер, драма, криминалРежиссер: Маркос СигаАктеры: Кевин Бейкон, Джеймс Пьюрфой, Шон Эшмор, Кайл Кэтлетт, Натали Зиа, Энни Пэррис, Нико Торторелла и др.Перевод: Профессиональный двухголосый закадровый - Кубик В КубеПродолжительность: ~ 00:45:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379809   (837228) от 30.04.2020
+
+F-Secure Freedome VPN 2.34.6377 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837228.jpg" />
+</div>
+
+
+###  Подробнее
+
+F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96D38655C758F7C2F35010B782A30785A1D2A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879371   (836794) от 18.03.2015
 
 P-51: Истребитель драконов / P-51 Dragon Fighter (2014) HDRip [Line]
@@ -6,7 +110,7 @@ P-51: Истребитель драконов / P-51 Dragon Fighter (2014) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836794.jpg" />
+  <img src="Z:/picture/008/save_picture_836794.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836791.jpg" />
+  <img src="Z:/picture/008/save_picture_836791.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Vivaldi 1.0.435.42 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836144.jpg" />
+  <img src="Z:/picture/008/save_picture_836144.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835844.jpg" />
+  <img src="Z:/picture/008/save_picture_835844.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ AVG PC Tuneup 16.32.2.3320 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835754.jpg" />
+  <img src="Z:/picture/008/save_picture_835754.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835740.jpg" />
+  <img src="Z:/picture/008/save_picture_835740.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835738.jpg" />
+  <img src="Z:/picture/008/save_picture_835738.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835526.jpg" />
+  <img src="Z:/picture/008/save_picture_835526.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Autodesk Inventor Professional 2014 Build 170 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835474.jpg" />
+  <img src="Z:/picture/008/save_picture_835474.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835451.jpg" />
+  <img src="Z:/picture/008/save_picture_835451.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Paradise (2006) [Ru] (1.1) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835149.jpg" />
+  <img src="Z:/picture/008/save_picture_835149.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834879.jpg" />
+  <img src="Z:/picture/005/save_picture_834879.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834499.jpg" />
+  <img src="Z:/picture/008/save_picture_834499.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_834165.jpg" />
+  <img src="Z:/picture/005/save_picture_834165.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834067.jpg" />
+  <img src="Z:/picture/008/save_picture_834067.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Company of Heroes (2013) [Ru/En] (2.700.0) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834063.jpg" />
+  <img src="Z:/picture/008/save_picture_834063.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ D-Frag! / Д-Фраг [2014, TV, 12] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_834044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834044.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833959.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Comodo Internet Security Premium 8.2.0.5005 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833916.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Alcohol 120% 2.0.3.8806 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833689.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Samorost 3 (2016) [Ru/Multi] (1.1.281) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833682.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833676.jpg" />
 </div>
 
 
@@ -572,112 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64C7B7CD77ECE30744A9EDE2E209449E9345D3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 195002   (833558) от 23.04.2010
-
-Как я провёл этим летом (2010) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начальник полярной станции Сергей и молодой стажер Павел — одни на острове в Северном ледовитом океане. Подходит к концу их вахта. Впервые за много лет Сергей окажется на материке, где его дожидается семья. Окончится летняя практика Павла, а он не испытал и сотой доли тех приключений, на которые рассчитывал, отправляясь в Заполярье.
-
-Единственный канал общения с (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Алексей ПопогребскийАктеры: Григорий Добрыгин, Сергей ПускепалисПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194304   (833556) от 23.04.2010
-
-Return to Mysterious Island 2: Mina's Fate / Возвращение на таинственный остров 2 (2009) [Ru] (1.04) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: LicenseРазработчик: Kheops StudioЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 311309   (833246) от 20.03.2011
-
-[RePack] Total War: Shogun 2 [Ru] 2011 | R.G.R3PacK
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XVI столетия. Феодальная Япония, некогда находившаяся под властью императора, раздроблена и поделена между множеством враждующих кланов. В роли даймё — лидера одного из них — игроку предстоит воевать, решать разноплановые хозяйственные вопросы и вести тонкую дипломатическую игру, чтобы добиться главной цели: прекратить междоусобные распри и объединить страну под своим началом, став правителем всей Японии.Тип издания: RePackЖанр: Strategy (Real-time / Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE855F6D590522DB741766AE117DB4A644123DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491874   (833064) от 11.10.2021
-
-Myst (2021) [Multi] (1.5.3) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Мист – поразительно красивый остров, поросший зловещими тайнами и окутанный интригами. Отправляйтесь на остров Мист и в другие потрясающие, длительно бездействующие места, называемые "Эпохами", и начните разгадывать тайну, в которую Вас втянули. Постепенно узнавая, что же произошло на острове, Вы обнаружите, что играете ключевую роль (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Adventure, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB16E841B33FC359C28BBA0D8D9DDDE00189F4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

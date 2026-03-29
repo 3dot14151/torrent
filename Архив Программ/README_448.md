@@ -6,7 +6,7 @@ R-Studio 7.6 Build 156767 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810861.jpg" />
+  <img src="Z:/picture/008/save_picture_810861.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810819.jpg" />
+  <img src="Z:/picture/008/save_picture_810819.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ WebDrive Enterprise 2017 Build 4562 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810816.jpg" />
+  <img src="Z:/picture/008/save_picture_810816.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810787.jpg" />
+  <img src="Z:/picture/008/save_picture_810787.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Itoo Forest Pack Pro 5.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810636.jpg" />
+  <img src="Z:/picture/008/save_picture_810636.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ The Bat! Professional 6.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810622.jpg" />
+  <img src="Z:/picture/008/save_picture_810622.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Zillya! Антивирус Бесплатный 2.0.1075.0 [Ru/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810574.jpg" />
+  <img src="Z:/picture/008/save_picture_810574.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ashampoo Burning Studio 15.0.4.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810531.jpg" />
+  <img src="Z:/picture/008/save_picture_810531.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ApowerREC 1.5.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810343.jpg" />
+  <img src="Z:/picture/008/save_picture_810343.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ D16 Group - SilverLine Collection 10.2021 VST, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810207.jpg" />
+  <img src="Z:/picture/008/save_picture_810207.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ISO Workshop 10.6 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810205.jpg" />
+  <img src="Z:/picture/008/save_picture_810205.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810203.jpg" />
+  <img src="Z:/picture/008/save_picture_810203.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Reg Organizer 8.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810201.jpg" />
+  <img src="Z:/picture/008/save_picture_810201.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Slimjet 26.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810118.jpg" />
+  <img src="Z:/picture/008/save_picture_810118.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Slimjet 17.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810113.jpg" />
+  <img src="Z:/picture/008/save_picture_810113.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ K-Lite Codec Pack Update 15.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810099.jpg" />
+  <img src="Z:/picture/008/save_picture_810099.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Aiseesoft Video Converter Ultimate 10.3.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810070.jpg" />
+  <img src="Z:/picture/008/save_picture_810070.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ OCCT 9.1.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810065.jpg" />
+  <img src="Z:/picture/008/save_picture_810065.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Maxthon Cloud Browser 4.9.3.100 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810052.jpg" />
+  <img src="Z:/picture/008/save_picture_810052.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Q-Dir 6.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810036.jpg" />
+  <img src="Z:/picture/008/save_picture_810036.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dashcam Viewer 3.4.1 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809965.jpg" />
+  <img src="Z:/picture/008/save_picture_809965.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Emurasoft EmEditor Professional 19.8.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809957.jpg" />
+  <img src="Z:/picture/008/save_picture_809957.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ WinToUSB Technician 6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809917.jpg" />
+  <img src="Z:/picture/008/save_picture_809917.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Ashampoo Snap 9.0.0 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809901.jpg" />
+  <img src="Z:/picture/008/save_picture_809901.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Glarysoft Malware Hunter 1.8.0.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809894.jpg" />
+  <img src="Z:/picture/008/save_picture_809894.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ FigrCollage Professional Edition 2.5.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809848.jpg" />
+  <img src="Z:/picture/008/save_picture_809848.jpg" />
 </div>
 
 

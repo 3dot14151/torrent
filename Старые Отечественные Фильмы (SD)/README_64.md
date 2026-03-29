@@ -1,3 +1,55 @@
+###  Публикация: 1191502   (264120) от 14.12.2017
+
+Зима в раю (1990) DVDRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_264120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восемнадцатилетняя Катя, снимавшаяся в массовке фильма, остается на зиму в Ялте. Она поселяется у пожилого плотника Воркуты, жена которого умерла, а взрослые сыновья покинули родной дом. Воркута начинает чувствовать ответственность за судьбу девушки…Производство: СССРЖанр: ДрамаРежиссер: Александр БланкАктеры: Юрий Стосков, Оксана Фандера, Лариса Павлова, Михаил Янушкевич, Татьяна Распутина, Александр Негреба, Владислав Демченко, Алексей КоняшинСубтитры: ОтсутствуютПродолжительность: 01:24:38 + 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C8EC61D47F6CB3FCEDFC40B672FF5A5CD48C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268349   (263126) от 25.11.2019
+
+Странная женщина (1977) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия, поступки и переживания Жени Шевелевой кажутся странными даже близким ей людям. У нее отличная семья: преуспевающий муж, сын-подросток. Однако сама Женя чувствует, что в ее жизни нет главного - любви. Подобные семейные отношения начинают тяготить Женю, все труднее ей мириться с этим. Она верит в большую романтическую любовь. Шевелеву любит талантливый ученый (   Читать дальше...   )Жанр: ДрамаРежиссер: Юлий Райзман.Актеры: Ирина Купченко, Юрий Подсолонко, Василий Лановой, Олег Вавилов, Антонина Богданова, Татьяна Говорова, Валерий Тодоровский, Светлана Коркошко и др.Продолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55F8FB9EDC160327D6F5F76A877B7CAEE3DDF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 666810   (262785) от 26.11.2019
 
 Хозяйка детского дома (1983) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262785.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262762.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261732.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260802.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260084.jpg" />
+  <img src="Z:/picture/005/save_picture_260084.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259914.jpg" />
+  <img src="Z:/picture/005/save_picture_259914.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258344.jpg" />
+  <img src="Z:/picture/005/save_picture_258344.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257248.jpg" />
+  <img src="Z:/picture/005/save_picture_257248.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255534.jpg" />
+  <img src="Z:/picture/005/save_picture_255534.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255255.jpg" />
+  <img src="Z:/picture/005/save_picture_255255.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255150.jpg" />
+  <img src="Z:/picture/005/save_picture_255150.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254529.jpg" />
+  <img src="Z:/picture/005/save_picture_254529.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252224.jpg" />
+  <img src="Z:/picture/004/save_picture_252224.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250977.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250861.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250619.jpg" />
+  <img src="Z:/picture/004/save_picture_250619.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250505.jpg" />
+  <img src="Z:/picture/004/save_picture_250505.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250123.jpg" />
+  <img src="Z:/picture/004/save_picture_250123.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249487.jpg" />
+  <img src="Z:/picture/004/save_picture_249487.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249452.jpg" />
+  <img src="Z:/picture/004/save_picture_249452.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248876.jpg" />
+  <img src="Z:/picture/004/save_picture_248876.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248018.jpg" />
+  <img src="Z:/picture/004/save_picture_248018.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246586.jpg" />
+  <img src="Z:/picture/005/save_picture_246586.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246375.jpg" />
+  <img src="Z:/picture/004/save_picture_246375.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C985063FB8FE42386E468DEF58BA2740FD9A9E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566099   (245355) от 27.07.2022
-
-Инопланетянка (1984) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетянка посетила Землю, и в нее влюбился скромный изобретатель Блинков. Его любовь пробудила в ней новые эмоции и чувства. Смирившись с тем, что Блинков не сможет жить в другом мире, она с грустью покидает Землю в одиночестве.Производство: СССР / Киностудия им. М. ГорькогоЖанр: Фантастика, комедияРежиссер: Яков СегельАктеры: Лилия Алешникова, Владимир Носик, Людмила Шагалова, Виктор Шульгин, Андрей Юренев, Ольга Маркина, Наталья Казначеева, Марина Тарасова, Елена Тонунц, Манефа СоболевскаяСубтитры: ОтсутствуютПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC205E22421186F748A88068DF3BB075057B6B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621313   (244790) от 24.03.2023
-
-Обочина (1978) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслужив в армии, Ленька Парасочка вернулся в родной город и устроился в автопарк, решив пойти по стопам отца. В первый же рабочий день он подвозит девушку, даже не подозревая как сильно изменится его жизнь после этой встречи.Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Вячеслав НикифоровАктеры: Майя Булгакова, Владимир Самойлов, Евгений Шутов, Анатолий Жигарь, Людмила Дребнёва, Александр Кашперов, Елена Ковалева, Евгения Кравченко, Т. Лагун, Виктор МирошниченкоСубтитры: отсутствуютПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDD0E58834AEB47531B6DF4B0E90535D58C01E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

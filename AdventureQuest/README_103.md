@@ -1,3 +1,81 @@
+###  Публикация: 1790424   (21980) от 09.04.2025
+
+LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за Лейлу и пройдите через все этапы ее жизни, раскрывая ключевые моменты ее судьбы. Разгадывайте головоломки, наполненные фрагментами ее повествования, чтобы понять мотивы решений Лейлы. Погружаясь в ее психику и эмоциональный пейзаж, вы обнаружите отражение своей личности в жизненном пути этой, казалось бы, обыденной женщины.Тип издания: RepackРазработчик: Ubik StudiosЖанр: ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DA4DF70EA02C3352F6D174FD4778EE0DBD5B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790688   (21906) от 10.04.2025
+
+The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за 26-летнюю Рейчел, заядлую девушку-хайкера в поисках новых приключений. В этот раз, ваше внимание привлекает одна интересная реклама о сдачи походного домика в аренду. Что начинается с расслабленного подъёма к уютному пристанищу, довольно быстро переходит к настоящему кошмару. От жутких встреч с подозрительными персонажами до таинственных и леденящих (   Читать дальше...   )Тип издания: RepackРазработчик: KorvinrularЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Бразильский Португальский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790626   (21883) от 10.04.2025
+
+South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791010   (21787) от 11.04.2025
 
 The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZen
@@ -6,7 +84,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21787.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21772.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.4.1637/dlc) Repack FitGirl [Deluxe Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21681.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Venus Vacation PRISM: DEAD OR ALIVE Xtreme (2025) [Multi] (1.02/dlc) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21595.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21094.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ CAPTURED (2024) [Ru/Multi] (1.2.1.0.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21028.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Myst (2021) [Ru/Multi] (3.0.4) Repack Let'sРlay [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21019.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20871.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Biped (2020) [Ru/Multi] (2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20861.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0 Build 8682/dlc) Repack Ot
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20613.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17717270/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20543.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Post Trauma (2025) [Multi] (1.04) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20522.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Lushfoil Photography Sim (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20515.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Brassheart (2025) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20495.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Fort Solis (2023) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20454.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Shivah (2013) [En] (3.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20435.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20351.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.37915) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20330.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20326.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ South of Midnight (2025) [Ru/Multi] (1.2.0 185 531) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42065530C951CAE36AEBB9D594A57D22257726C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793561   (20304) от 25.04.2025
-
-The Empty Desk (2025) [Ru/Multi] (1.0.04) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20304.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Empty Desk - первая глава серии Detective Bennett: Solved Cases - психологический триллер с элементами повествовательного приключения и налётом ужаса. Игрок погружается в историю, основанную на реальных преступлениях, исследуя последствия для сознания, застрявшего в цикле повторений и эмоционального выгорания. В этом первом эпизоде опытному детективу Томасу Х. (   Читать дальше...   )Тип издания: RepackРазработчик: CheesecakeGamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819BA89678AB9BEB31F58C39A1A6940B581028B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793566   (20298) от 25.04.2025
-
-Firewatch (2016) [Ru/Multi] (1.12) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20298.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации - (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1686744D6D2E8AE082D9461AC918989B7057C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771178   (20256) от 26.04.2025
-
-Riven (2024) [Ru/Multi] (1.7.1) Repack Let'sРlay [The Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущенная легендарной инди-студией Cyan Worlds в 1997 году игра Riven моментально стала хитом — и в 2024 году ключевые члены команды разработки оригинальной версии любовно переосмыслили свое творение, чтобы подарить поклонникам новый взгляд на хорошо знакомую вселенную Myst. Я знаю, что он делает. Он следит за тобой». Вас ждет Ривен — прекрасный и загадочный мир (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2AEA7CC6B5FC1FBBB3F5441D6FB980707DC7B83
 ```
 
 https://mybot314.ru/tekegram_catalog/

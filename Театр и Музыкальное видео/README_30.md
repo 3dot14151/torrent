@@ -1,3 +1,175 @@
+###  Публикация: 1495130   (884230) от 10.09.2021
+
+The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884230.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 год. Начало Битломании. "БИТЛЗ" дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
+A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился (   Читать дальше...   )Производство: Великобритания / A Walter Shenson Production, Proscenium Films Ltd.Жанр: мюзикл, комедияРежиссер: Ричард ЛестерАктеры: The Beatles, Джон Леннон, Пол МакКартни, Джордж Харрисон, Ринго Старр, Уилфрид Брэмбелл, Норман Россингтон, Джон Джанкин, Виктор Спинетти, Анна КуэйлПеревод: Одноголосый профессиональныйЯзык озвучки: Английский, РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6E6E9B0D50F417600111F151B28EB3A094E03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995422   (884207) от 11.03.2016
+
+Coldplay: Призрачные истории / Coldplay: Ghost Stories (2014) HDTV [H.264/1080i] [En]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Stories (в пер. с англ. Призрачные истории) — шестой студийный альбом британской группы Coldplay, вышедший 16 мая 2014 года в Европе (на лейбле Parlophone) и 19 мая в Северной Америке (на лейбле Atlantic Records). Альбом записывался в период с 2013 по 2014 год на домашних студиях в Лондоне и Лос-Анджелесе. В продюсировании альбома принимали участие Авичи, Тимбалэнд, (   Читать дальше...   )1.	«Always in My Head»	Coldplay, Пол Эпворт, Дэниел Грин, Рик Симпсон	3:36
+2.	«Magic»	Coldplay, Эпворт, Грин, Симпсон	4:45
+3.	«Ink»	Coldplay, Эпворт, Грин, Симпсон	3:48
+4.	«True Love»	Coldplay, Эпворт, Грин, Симпсон	4:05(   Читать дальше...   )Производство: Великобритания, JA DigitalЖанр: КонцертРежиссер: Пол ДагдейлАктеры: Гай Берриман, Тодд Блад, Джон Баклэнд, Уилл Чемпион, Chris MartinПеревод: ОтсутствуетПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C25C94CBECEE1DB4C0A41B788AD5421B49E642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372669   (883628) от 04.04.2020
+
+Testament - Children Of The Next Level (2020) WEBRip [VP9/2160p-LQ] <Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Testament - Children Of The Next Level (2160) PCMПроизводство: Nuclear BlastЖанр: Thrash, Heavy MetalПродолжительность: 00:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8265FC9DCCB4E9CA444D1A61FDABD9EC1CFF02CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372777   (883626) от 04.04.2020
+
+Hocico - 6 Music Videos (2008-2019) WEBRip [VP9/H.264/2160p/1080p/480p-LQ] <EBM, Dark Electro>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883626.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2008 Hocico - Drowning - Banned (480)
+002 2009 Hocico - Born To Be (Hated) (Metetelo Por El Culo) (480)
+003 2011 Hocico - Bite Me! (1080)
+004 2015 Hocico - Bienvenido A La Maldad (1080)(   Читать дальше...   )Производство: Out Of LineЖанр: Aggrotech, EBM, Dark Electro, Electro-IndustrialПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9B8DF6AE67E058A3E5362ADD4324810DB1B6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298549   (883262) от 20.02.2011
+
+Big Love Show. Грандиозный концерт ко Дню всех Влюбленных (2011.02.14) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздник, который приведет в чувство и заставит забыть обо всем, кроме любви и музыки.
+  Love Radio подарит москвичам ко дню влюбленных грандиозный концерт самой модной музыки - "BIG LOVE SHOW"!
+  Это настоящее событие для всей современной молодежи.
+(   Читать дальше...   )01.Макsим - Не отдам
+02.Dan Balan - Chica Bomb
+03.23:45 - Друг без друга
+04.Leonid Rudenko - Real life(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F372F9205977949393B1A2D62DDE07E149D798B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103951   (883204) от 13.02.2017
+
+Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная британская группа была сформирована в 1977 году в Шеффилде (Йоркшир) Питом Уиллисом  под названием «Atomic Mass». Когда Джо Эллиотт присоединился к ним, команда сменила название на «Def Leppard». Эллиотт также являлся автором логотипа группы — он вспомнил свой плакат, нарисованный на школьной лекции по пластике.1. Let's Go 5:01
+2. Animal 4:03
+3. Let It Go 5:36
+4. Dangerous 3:39(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Heavy Metal, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83D893EEE4A5D7F6F40E53145393125B09EDCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103938   (883182) от 13.02.2017
 
 Студия 80, Siberian Heat, Elen Cora (2016) DVD9 [Custom]
@@ -6,7 +178,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883182.jpg" />
+  <img src="Z:/picture/005/save_picture_883182.jpg" />
 </div>
 
 
@@ -32,7 +204,7 @@ Big Love Show 2017. Грандиозный концерт ко Дню всех �
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882997.jpg" />
+  <img src="Z:/picture/005/save_picture_882997.jpg" />
 </div>
 
 
@@ -60,7 +232,7 @@ Max Raabe & Palast Orchester - Heute Nacht oder Nie (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881764.jpg" />
+  <img src="Z:/picture/005/save_picture_881764.jpg" />
 </div>
 
 
@@ -89,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881182.jpg" />
+  <img src="Z:/picture/005/save_picture_881182.jpg" />
 </div>
 
 
@@ -115,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881060.jpg" />
+  <img src="Z:/picture/005/save_picture_881060.jpg" />
 </div>
 
 
@@ -141,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881048.jpg" />
+  <img src="Z:/picture/005/save_picture_881048.jpg" />
 </div>
 
 
@@ -170,7 +342,7 @@ Sarah Brightman - Angel (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881012.jpg" />
+  <img src="Z:/picture/008/save_picture_881012.jpg" />
 </div>
 
 
@@ -196,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880802.jpg" />
+  <img src="Z:/picture/008/save_picture_880802.jpg" />
 </div>
 
 
@@ -225,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880669.jpg" />
+  <img src="Z:/picture/005/save_picture_880669.jpg" />
 </div>
 
 
@@ -251,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880639.jpg" />
+  <img src="Z:/picture/005/save_picture_880639.jpg" />
 </div>
 
 
@@ -280,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880537.jpg" />
+  <img src="Z:/picture/005/save_picture_880537.jpg" />
 </div>
 
 
@@ -306,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880337.jpg" />
+  <img src="Z:/picture/005/save_picture_880337.jpg" />
 </div>
 
 
@@ -334,7 +506,7 @@ Eternal Delyria - 6 Music Videos (2014-2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880231.jpg" />
+  <img src="Z:/picture/005/save_picture_880231.jpg" />
 </div>
 
 
@@ -363,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880217.jpg" />
+  <img src="Z:/picture/005/save_picture_880217.jpg" />
 </div>
 
 
@@ -389,7 +561,7 @@ Babooshka (Александр Константинов) - Православны
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880139.jpg" />
+  <img src="Z:/picture/005/save_picture_880139.jpg" />
 </div>
 
 
@@ -415,7 +587,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879644.jpg" />
+  <img src="Z:/picture/005/save_picture_879644.jpg" />
 </div>
 
 
@@ -445,7 +617,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877893.jpg" />
+  <img src="Z:/picture/005/save_picture_877893.jpg" />
 </div>
 
 
@@ -475,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877667.jpg" />
+  <img src="Z:/picture/005/save_picture_877667.jpg" />
 </div>
 
 
@@ -504,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877550.jpg" />
+  <img src="Z:/picture/005/save_picture_877550.jpg" />
 </div>
 
 
@@ -530,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877063.jpg" />
+  <img src="Z:/picture/005/save_picture_877063.jpg" />
 </div>
 
 
@@ -541,175 +713,6 @@ Lo-Fi. Качество многих клипов (особенно россий
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A97DE3F4896393B827DF25616A3FE5E4C96D38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373749   (876708) от 08.04.2020
-
-Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish Pirate Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Napalm RecordsЖанр: Scottish Pirate MetalПродолжительность: 00:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:381A29048D189599F81DF0D5E2AF68D8198FAF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373770   (876619) от 08.04.2020
-
-ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <Nu-Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2001 ILL NINO - God Save Us DVDRip
-002 2001 ILL NINO - Unreal DVDSRip
-003 2001 ILL NINO - What Comes Around DVDRip
-004 2003 ILL NINO - How Can I Live  DVDRip(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8153C1938D383EA8F86D67E88D424363F51366F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373709   (876612) от 08.04.2020
-
-Юлия Чичерина - Фонтан счастья/Рынок-лабиринт (2020) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Юлия Чичерина - Фонтан счастья
-Манасаровар — озеро живой воды, считается источником жизни, максимальная глубина 90 метровЖанр: Альтернативный РокПродолжительность: 00:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768A4D3BC1BCABEA64C3BA2F61A9D3A7E287B3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299864   (875943) от 24.02.2011
-
-Праздничный парад звезд (2011.02.23) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничный концерт в честь дня защитника отечества.01.Ансамбль песни и пляски им Александрова - "Родная армия"
-02.Лев Лещенко и Дискотека Авария - "Идёт солдат по городу"
-03.Иосиф Кобзон и Ансамбль песни и пляски им Александрова - "Пора в путь-дорогу"
-04.Николай Басков и Марина Девятова - "Маруся"(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59FF8162D5189F319E5A7A99B118168D4168A535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643200   (875637) от 13.04.2013
-
-Mariza - Concerto em Lisboa / Live at Lisbon  (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loucura [04:40]
-02. Medo [03:13]
-03. Maria Lisboa [03:14]
-04. Montras [03:40](   Читать дальше...   )Жанр: FadoПродолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A74263F85040D619BA0C81CA3C3A3A2C422FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300133   (875521) от 24.02.2011
-
-Юбилейный концерт группы Любэ  (23.02.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже  20  лет  композиции в исполнении группы занимают лидирующие строчки российских хит-парадов и становятся по-настоящему народными хитами. "Любэ" для России - это как "The Beatles" для Великобритании", - заявил известный режиссер Никита Михалков.01. А заря
-02. Батька Махно
-03. Клетки
-04. Дуся-Агрегат (гр.Моральный кодекс)(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A832DAC8FAC518F03F3F81771FD5913DFE1F2A32
 ```
 
 https://mybot314.ru/tekegram_catalog/

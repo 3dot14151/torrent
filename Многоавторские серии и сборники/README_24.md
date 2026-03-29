@@ -1,3 +1,112 @@
+###  Публикация: 429129   (266220) от 29.12.2011
+
+Библиотека «Старинная классическая литература» [1962 - 2005] [FB2]
+
+>>След.
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами литературные памятники древности. Народные легенды, мифы, эпос, рассуждения философов о смысле жизни и бытия, беллетристика, стихи и так далее. Крайне трудно отнести данную литературу к какому-либо жанру. Просто старинная литература – наша с вами история в строках и словах древних авторов. Предоставленный в сборнике материал будет более чем полезен и интересен (   Читать дальше...   )Издательство: Алетея, Наука, АСТ, Художественная литература, Феникс, РАНФормат: FB2Качество: ebook (изначально компьютерное)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817DBC980114276D4997296EC3963EB986689627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 313347   (264540) от 21.11.2019
+
+"Azbooka. The best" Серия из 49 книг (2005-2009) [fb2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книжная серия "Azbooka.The best" издавалась в 2005-2009 годах (о продолжении пока неизвестно).
+В серии неплохие книги, одно непонятно: что хочет сказать издательство английским названием серии? Не хватает русских букв?
+В серию включены произведения разных жанров, таких как детектив, криминал, фантастика.Жанр: Детектив, криминал, фантастикаФормат: fb2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38545ED2716491A9EB5F8EBDC211A3D77FFEA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809435   (263635) от 15.12.2017
+
+Книжная серия | Иностранный детектив (Шедевры детектива №1) [55 книг. Обновляемая] (2013-2018) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шедевры детектива № 1 - серия зарубежных остросюжетных книг, в которой нам обещают печатать только шедевры.
+И ведь выполняют обещание - на каждой обложке четко и ясно пишут: "Шедевры детектива № 1".
+
+(   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89E69059E10C4A6B416EA5731A4A705A43A32B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838691   (261338) от 23.11.2025
+
+Книжная серия | Личность в истории [7 книг] (2023-2025) [FB2, EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Читателям предоставляется возможность, ознакомится с весьма интересной серией книг о людях, получивших известность в результате своей деятельности в политике, психологии, медицине, эзотерике...Жанр: Популярно об историиИздательство: АСТФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE3F9DC5563C7A7E43C3A3BC1B80BC710A069A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505143   (261058) от 03.06.2012
 
 Книжная серия | Спецназ ГРУ (91 книга) [2002-2012] [FB2]
@@ -6,7 +115,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261058.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261033.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260951.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260824.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260604.jpg" />
+  <img src="Z:/picture/005/save_picture_260604.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260556.jpg" />
+  <img src="Z:/picture/005/save_picture_260556.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260553.jpg" />
+  <img src="Z:/picture/005/save_picture_260553.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260548.jpg" />
+  <img src="Z:/picture/005/save_picture_260548.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260112.jpg" />
+  <img src="Z:/picture/005/save_picture_260112.jpg" />
 </div>
 
 
@@ -244,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259907.jpg" />
+  <img src="Z:/picture/005/save_picture_259907.jpg" />
 </div>
 
 
@@ -273,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259447.jpg" />
+  <img src="Z:/picture/005/save_picture_259447.jpg" />
 </div>
 
 
@@ -299,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259231.jpg" />
+  <img src="Z:/picture/005/save_picture_259231.jpg" />
 </div>
 
 
@@ -328,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258916.jpg" />
+  <img src="Z:/picture/005/save_picture_258916.jpg" />
 </div>
 
 
@@ -354,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258211.jpg" />
+  <img src="Z:/picture/005/save_picture_258211.jpg" />
 </div>
 
 
@@ -380,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258116.jpg" />
+  <img src="Z:/picture/005/save_picture_258116.jpg" />
 </div>
 
 
@@ -409,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258107.jpg" />
+  <img src="Z:/picture/005/save_picture_258107.jpg" />
 </div>
 
 
@@ -436,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258051.jpg" />
+  <img src="Z:/picture/005/save_picture_258051.jpg" />
 </div>
 
 
@@ -464,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257657.jpg" />
+  <img src="Z:/picture/005/save_picture_257657.jpg" />
 </div>
 
 
@@ -491,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257291.jpg" />
+  <img src="Z:/picture/005/save_picture_257291.jpg" />
 </div>
 
 
@@ -519,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257205.jpg" />
+  <img src="Z:/picture/005/save_picture_257205.jpg" />
 </div>
 
 
@@ -545,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257192.jpg" />
+  <img src="Z:/picture/005/save_picture_257192.jpg" />
 </div>
 
 
@@ -572,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256858.jpg" />
+  <img src="Z:/picture/005/save_picture_256858.jpg" />
 </div>
 
 
@@ -583,114 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9544E44EBF0BB2C477F32F6F83362D3FD606FF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837286   (256720) от 16.11.2025
-
-Книжная серия | Медицинский атлас (2009-2025) [PDF, FB2, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Годами поколения студентов убеждали нас, что читатель лучше вникает в суть анатомии и физиологии, когда осознает связь между структурой и функцией, которую она выполняет. Принципы комплексного изучения анатомии и физиологии, актуальное освещение спорных аспектов медицины, качественные иллюстрации и понятная микрографика - все это делает книги серии "Медицинский (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: ЭксмоФормат: PDF, FB2, DJVUКачество: Изначально электронное (ebook), Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9ED663EC57E5547540F72615599FEA04AF946B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499339   (256502) от 21.05.2012
-
-Книжная серия | Путешествия. Приключения. Фантастика (74 книги) [1957-1970] [RTF, FB2, DJVU, PDF]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествия. Приключения. Фантастика - замечательная серия середины прошлого века, включающая в себя огромное количество интересных приключенческих книг.
-Здесь и путешествия по диким, неизведанным местам, охота на животных-людоедов, исследования подводных и подземных глубин, художественные приключенческие и фантастические произведения. И это при том, что серия является букинистической.
-Здесь представлена серия издательств Географгиз и Мысль. Характерная особенность серии - земной шар, опоясанный тремя ленточками с надписями серии.1957-1970Жанр: Фантастика. ПриключениеФормат: RTF, FB2, DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B073D3D5CE2AB9F600E251BF341F5D19F2535C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499322   (256481) от 21.05.2012
-
-Ежегодники Фантастика (Молодая гвардия) (30 книг) [1962-1991] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодники Фантастика - сборники фантастических произведений, которые выпускались издательством «Молодая гвардия» в период с 1962 по 1991 годЖанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A060E530FCC4A371F5FB62DD774F1AF933D243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499240   (256400) от 21.05.2012
-
-Книжная серия | "CPFantastika" [2011-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256400.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPFantastika - серия фантастических триллеров от «Центрполиграфа». В ней выходят романы как молодых, так и уже довольно известных авторов, в том числе и награжденные различными премиями. Все произведения публикуются на русском языке впервые.
- Художественный редактор серии - И.А. Озерова
- Отвественный редактор — Л.И. Глебовская2011-2012Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A155200E53A0CF96BB46E7560439DDE931F016
 ```
 
 https://mybot314.ru/tekegram_catalog/

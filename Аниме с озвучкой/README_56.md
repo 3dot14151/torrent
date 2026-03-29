@@ -1,3 +1,29 @@
+###  Публикация: 1690408   (61025) от 02.04.2024
+
+Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [2024, TV, 12 из 12] WEBRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад по всему миру стали открываться некие «врата», ведущие в подземелья с монстрами, противостоять которым оказалось не под силу даже военным. Однако если успеть вовремя победить босса подземелья, то врата пропадут, не открывшись, и мирные люди не пострадают. Сразиться с боссом способны только избранные — люди, получившие особые силы, чтобы бороться (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: Экшен, приключения, фэнтезиРежиссер: Сюнсукэ НакадзюЯзык озвучки: Японский и русский (AniMaunt)Субтитры: ОтсутствуютПродолжительность: 13 x ~ 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B4301F2B195AE099E93DED75159E9AE48EB06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690579   (61023) от 02.04.2024
 
 Магия и мускулы [ТВ-2] | Mashle: Kami Shinkakusha Kouho Senbatsu Shiken Hen | Mashle: Magic and Muscles - The Divine Visionary Candidate Exam Arc [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61023.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61000.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60634.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60502.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Sousou no Frieren | Sousou no Frieren | Фрирен, провожающая в 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60276.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59878.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59866.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59652.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59582.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59168.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58254.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58252.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58073.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58063.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57714.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56991.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56922.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55166.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54859.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54443.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54417.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54269.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53769.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53499.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53346.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642538   (53241) от 15.06.2024
-
-Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории о странной парочке, расследующей дела о духах, ёкаях, призраках и прочей паранормальщине. Котоко Иванага, эксцентричная девушка и по совместительству богиня мудрости, и её парень Куро Сакурагава, обладающий неуязвимостью и даром предвидения, возвращаются на экраны, чтобы вновь с головой окунуться в увлекательные расследования загадочных происшествий, (   Читать дальше...   )Производство: Brains BaseЖанр: детектив, фэнтезиРежиссер: Гото КэйдзиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BA6AF2800065E2707A034DB50D5504BA03A3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

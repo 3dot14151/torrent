@@ -6,7 +6,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Объединенный Пак 2 (2014) [
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281835.jpg" />
+  <img src="Z:/picture/008/save_picture_281835.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Worms 3d (2003) [Ru] [macOS WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280023.jpg" />
+  <img src="Z:/picture/008/save_picture_280023.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278593.jpg" />
+  <img src="Z:/picture/008/save_picture_278593.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ S.T.A.L.K.E.R.: Call of Pripyat (Mod AtmosFear 3) (2009) [Multi/Ru] [macOS WineS
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278175.jpg" />
+  <img src="Z:/picture/008/save_picture_278175.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Call of Duty 2 (2005) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278109.jpg" />
+  <img src="Z:/picture/008/save_picture_278109.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (License GOG) (2007) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276673.jpg" />
+  <img src="Z:/picture/008/save_picture_276673.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ S.T.A.L.K.E.R.: Call of Pripyat (License GOG) (2009) [Multi/Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276667.jpg" />
+  <img src="Z:/picture/008/save_picture_276667.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Sniper Elite (2005) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275476.jpg" />
+  <img src="Z:/picture/008/save_picture_275476.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Project Hospital v.1.0.14611 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275142.jpg" />
+  <img src="Z:/picture/008/save_picture_275142.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Aliens: Colonial Marines (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274490.jpg" />
+  <img src="Z:/picture/008/save_picture_274490.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Wolfenstein 2 (2009) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274226.jpg" />
+  <img src="Z:/picture/008/save_picture_274226.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Kinder Games для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274179.jpg" />
+  <img src="Z:/picture/008/save_picture_274179.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Brothers in Arms: Hell’s Highway v1.0 (2008) [Ru] [macOS Cider]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274028.jpg" />
+  <img src="Z:/picture/008/save_picture_274028.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273378.jpg" />
+  <img src="Z:/picture/008/save_picture_273378.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru] [macOS WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273169.jpg" />
+  <img src="Z:/picture/008/save_picture_273169.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Undertale  (2016) [Ru] [macOS WineSkin]
 >>Casual Games, Other для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273082.jpg" />
+  <img src="Z:/picture/008/save_picture_273082.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Spintires Mudrunner (2017) [Ru] [macOS WineSkin]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272953.jpg" />
+  <img src="Z:/picture/008/save_picture_272953.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ TerraTech v.1.0.1 (2018) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270813.jpg" />
+  <img src="Z:/picture/008/save_picture_270813.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ X3 Terran War Pack (2008 - 2011) [Multi/Ru] [macOS Native port]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269949.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Sparklite (2019) [Multi] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268905.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Leisure Suit Larry - Wet Dreams Don't Dry (2018) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268678.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Beholder (2016) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265639.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ APE OUT (2019) [Multi/Ru] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265326.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ American Truck Simulator v1.16.2 (2016) [Multi/Ru] [macOS Native game]
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264806.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing, Simulation, Sports для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_264800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_264800.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Driftland: The Magic Revival (2019) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264241.jpg" />
 </div>
 
 

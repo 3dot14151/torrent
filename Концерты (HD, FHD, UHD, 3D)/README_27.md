@@ -1,3 +1,88 @@
+###  Публикация: 447926   (443699) от 19.09.2018
+
+Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2012) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
+Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Johann and Joseph Strauss: "Vaterländischer Marsch (Fatherland March)"
+Johann Strauss: "Rathausball-Tänze (City Hall Ball Dances)", Waltz, op. 438
+Johann Strauss: "Entweder – oder! (Either - Or!)", Fast Polka, op. 403
+Johann Strauss: "Tritsch-Tratsch (Chit-Chat)", Polka, op. 214(   Читать дальше...   )Производство: SONY MasterworksЖанр: Классика, концерт Большого Симфонического оркестраПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CF3E26D0D5C652F00E324A1B0768E3C8493049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409174   (442682) от 18.09.2020
+
+Ария - Классическая Ария (2015) HDRip [H.265/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442682.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Классическая Ария» – это запись аншлагового концерта группы при участии симфонического оркестра «Глобалис» под управлением шведского дирижера Ульфа Ваденбрандта, записанный на видео 29 ноября 2015 года в Москве в концертном зале «Stadium Live».01. Интро
+02. Игра с огнём
+03. Ангельская пыль
+04. Чёрная легенда(   Читать дальше...   )Производство: М2БАЖанр: Heavy metalПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BA69804866B77E4FFFDB29F6E9E7A7EC563011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322967   (442213) от 01.09.2019
+
+Квартирник НТВ у Маргулиса. Леонид Агутин (31.08.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442213.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришел заслуженный артист России, певец и композитор Леонид Агутин. Первый его сольный альбом «Босоногий мальчик», вышедший в 1994 году, мгновенно поднял артиста на вершину музыкального Олимпа. Второй альбом «Декамерон» укрепил интерес к его творчеству. Мастер сцены по сей день остается в списке самых востребованных звезд отечественного (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A06285C59352F734AA8AE061AC8C0D2C991FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410181   (438343) от 20.09.2020
 
 Квартирник НТВ у Маргулиса. Группа Куртки Кобейна (19.09.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +91,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438343.jpg" />
+  <img src="Z:/picture/008/save_picture_438343.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438150.jpg" />
+  <img src="Z:/picture/008/save_picture_438150.jpg" />
 </div>
 
 
@@ -67,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436372.jpg" />
+  <img src="Z:/picture/008/save_picture_436372.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ Santana - Hymns for Peace, Live at Montreux (2004) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436037.jpg" />
+  <img src="Z:/picture/008/save_picture_436037.jpg" />
 </div>
 
 
@@ -128,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435711.jpg" />
+  <img src="Z:/picture/008/save_picture_435711.jpg" />
 </div>
 
 
@@ -154,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431958.jpg" />
+  <img src="Z:/picture/008/save_picture_431958.jpg" />
 </div>
 
 
@@ -180,7 +265,7 @@ Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430966.jpg" />
+  <img src="Z:/picture/008/save_picture_430966.jpg" />
 </div>
 
 
@@ -209,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427406.jpg" />
+  <img src="Z:/picture/008/save_picture_427406.jpg" />
 </div>
 
 
@@ -235,7 +320,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423499.jpg" />
+  <img src="Z:/picture/008/save_picture_423499.jpg" />
 </div>
 
 
@@ -264,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422965.jpg" />
+  <img src="Z:/picture/008/save_picture_422965.jpg" />
 </div>
 
 
@@ -290,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419964.jpg" />
+  <img src="Z:/picture/008/save_picture_419964.jpg" />
 </div>
 
 
@@ -316,7 +401,7 @@ Scorpions - Live in Munich (2012) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415858.jpg" />
+  <img src="Z:/picture/008/save_picture_415858.jpg" />
 </div>
 
 
@@ -342,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412249.jpg" />
+  <img src="Z:/picture/008/save_picture_412249.jpg" />
 </div>
 
 
@@ -368,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408728.jpg" />
+  <img src="Z:/picture/008/save_picture_408728.jpg" />
 </div>
 
 
@@ -394,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408193.jpg" />
+  <img src="Z:/picture/008/save_picture_408193.jpg" />
 </div>
 
 
@@ -420,7 +505,7 @@ The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399824.jpg" />
+  <img src="Z:/picture/008/save_picture_399824.jpg" />
 </div>
 
 
@@ -455,7 +540,7 @@ Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397403.jpg" />
+  <img src="Z:/picture/008/save_picture_397403.jpg" />
 </div>
 
 
@@ -484,7 +569,7 @@ Status Quo: Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390899.jpg" />
+  <img src="Z:/picture/008/save_picture_390899.jpg" />
 </div>
 
 
@@ -513,7 +598,7 @@ Black Country Communion - Live Over Europe (2011) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388237.jpg" />
+  <img src="Z:/picture/008/save_picture_388237.jpg" />
 </div>
 
 
@@ -542,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387629.jpg" />
+  <img src="Z:/picture/008/save_picture_387629.jpg" />
 </div>
 
 
@@ -571,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387586.jpg" />
+  <img src="Z:/picture/008/save_picture_387586.jpg" />
 </div>
 
 
@@ -597,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385075.jpg" />
+  <img src="Z:/picture/008/save_picture_385075.jpg" />
 </div>
 
 
@@ -623,7 +708,7 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384123.jpg" />
+  <img src="Z:/picture/008/save_picture_384123.jpg" />
 </div>
 
 
@@ -634,92 +719,6 @@ Dio - Holy Diver Live (2010) [1080i] Blu-Ray
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B1FE38ACCCE01D296D05A3240B86EDA5EFCDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720052   (381335) от 07.11.2013
-
-Dream Theater - Live at Luna Park (2013) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bridges in the Sky
-02. 6:00
-03. The Dark Eternal Night
-04. This Is the Life(   Читать дальше...   )Жанр: Progressive MetalПеревод: ОтсутствуетПродолжительность: 02:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5A1280B798ABE34F863E52497767C44C2DBF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326858   (380647) от 22.09.2019
-
-Квартирник НТВ у Маргулиса. Владимир Кузьмин (21.09.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гость Евгения Маргулиса — народный артист России, вокалист и автор песен Владимир Кузьмин. Его карьера началась в легендарных «Самоцветах», но небывалый успех и популярность принесли ему группы «Карнавал» и «Динамик». Знаменитый рок-музыкант выпустил 30 студийных альбомов и является автором более 300 композиций. В уютной студии «Квартирника» народный артист поделился (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD501D8897E930947976F9CE4BC9A1EEA2D678B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573284   (379956) от 10.11.2012
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) Blu-ray [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_379956.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods. . .Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, США | Eagle Rock EntertainmentЖанр: RockСубтитры: Английские, Французские, Немецкий, Испанские, Итальянский, Португальский
-
-За предоставленный материал большое спасибоПродолжительность: 01:31:08 + 00:26:53 (Бонусы)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

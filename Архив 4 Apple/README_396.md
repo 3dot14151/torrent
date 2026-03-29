@@ -1,3 +1,109 @@
+###  Публикация: 1573427   (412653) от 31.08.2022
+
+DVD-Cloner 2022 v.9.40.732 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412653.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD-Cloner - это небольшая утилита, при помощи которой вы сможете создать полностью идентичную копию вашего DVD-диска (например, с фильмом), в том числе и диска с защитой, и записать ее на другой диск. Программа проста в обращении, не требует тонкой настройки, поддерживает работу с большинством DVD-RW устройств и позволяет создавать копии фильмов с качеством, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2002-2022 OpenCloner™ Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8AC74F5793903F9C6AB222984C19203B84A124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573419   (412536) от 31.08.2022
+
+Softorino YouTube Converter PRO for Mac 5.0.87 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Softorino YouTube Converter — почти YouTube Red, только бесплатно
+YouTube на iPhone и iPad без рекламы, с поддержкой офлайн-просмотра да ещё и даром. Думаете, это невозможно? А вот и не угадали!
+SYC 2 устанавливает совершенно новый уровень для загрузчиков видео, музыки и рингтонов. Он включает в себя: новый быстродействующий движок, поддержку для каждого устройства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 Softorino Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4396B4D2406904C6AD642C81A26F52989DDBD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573414   (412533) от 31.08.2022
+
+System Toolkit 5.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412533.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A122F15401AAD229D84C631E3029C1D194221F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573355   (412524) от 31.08.2022
+
+QLab 5 v.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412524.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2022Разработчик: © 2022 Figure 53, LLC.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE87DBF65E1B1E757673DA32B41786982A41CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167924   (412467) от 22.09.2017
 
 Adguard 1.5.0 [Multi/Ru]
@@ -6,7 +112,7 @@ Adguard 1.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412467.jpg" />
+  <img src="Z:/picture/008/save_picture_412467.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Claquette - Animated Screenshots 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412396.jpg" />
+  <img src="Z:/picture/008/save_picture_412396.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Rumpus PRO 8.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412390.jpg" />
+  <img src="Z:/picture/008/save_picture_412390.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ iTrash 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412378.jpg" />
+  <img src="Z:/picture/008/save_picture_412378.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Calendar 366 Plus 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412246.jpg" />
+  <img src="Z:/picture/008/save_picture_412246.jpg" />
 </div>
 
 
@@ -143,7 +249,7 @@ SQLPro for Postgres - PostgreSQL database manager 1.0.92 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412243.jpg" />
+  <img src="Z:/picture/008/save_picture_412243.jpg" />
 </div>
 
 
@@ -172,7 +278,7 @@ SQLPro for SQLite - database and coredata manager 1.104 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412236.jpg" />
+  <img src="Z:/picture/008/save_picture_412236.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ Yummy FTP Pro 1.11.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412232.jpg" />
+  <img src="Z:/picture/008/save_picture_412232.jpg" />
 </div>
 
 
@@ -230,7 +336,7 @@ Fresh 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412230.jpg" />
+  <img src="Z:/picture/008/save_picture_412230.jpg" />
 </div>
 
 
@@ -259,7 +365,7 @@ SQLPro for MySQL - GUI Database management studio 1.0.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412088.jpg" />
+  <img src="Z:/picture/008/save_picture_412088.jpg" />
 </div>
 
 
@@ -288,7 +394,7 @@ Duplicate File Finder Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412079.jpg" />
+  <img src="Z:/picture/008/save_picture_412079.jpg" />
 </div>
 
 
@@ -317,7 +423,7 @@ Wondershare Video Converter Ultimate 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412077.jpg" />
+  <img src="Z:/picture/008/save_picture_412077.jpg" />
 </div>
 
 
@@ -343,7 +449,7 @@ Shortcut Bar 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412075.jpg" />
+  <img src="Z:/picture/008/save_picture_412075.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ Swift Publisher 4.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412072.jpg" />
+  <img src="Z:/picture/008/save_picture_412072.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ Keyboard Maestro 7.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411928.jpg" />
+  <img src="Z:/picture/008/save_picture_411928.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ Shimo 4.1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411906.jpg" />
+  <img src="Z:/picture/008/save_picture_411906.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ Commander One Pro Pack  - FTP клиент, RAR/7zip архиватор 1.7.4 [M
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411794.jpg" />
+  <img src="Z:/picture/008/save_picture_411794.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Tuxera NTFS 2014 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411627.jpg" />
+  <img src="Z:/picture/008/save_picture_411627.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411533.jpg" />
+  <img src="Z:/picture/008/save_picture_411533.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ BusyCal 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411307.jpg" />
+  <img src="Z:/picture/008/save_picture_411307.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ A Better Finder Rename 10.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411306.jpg" />
+  <img src="Z:/picture/008/save_picture_411306.jpg" />
 </div>
 
 
@@ -590,7 +696,7 @@ Postbox 6.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411172.jpg" />
+  <img src="Z:/picture/008/save_picture_411172.jpg" />
 </div>
 
 
@@ -601,118 +707,6 @@ Postbox является почтовым клиентом, в основу со
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC0CFDF244ABC888F1EE42AB0DB4EB5467DF5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252175   (411166) от 04.10.2018
-
-Mirror for LG TV 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров LG
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ LG. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ LG с 2012 и позже.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2018Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B702A9E7C53145449914D49F5D4E58D16BA5C47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252180   (411161) от 04.10.2018
-
-Resolutionator 1.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменение разрешения быстрее, чем Т-1000 меняет формы!
-Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
-
-Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.10.2018Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2287686A5959DDB08C3ED232D600A40635D605B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948630   (411110) от 20.10.2015
-
-Path Finder 7.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 октября 2015Разработчик: CocoatechПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AFBA37D7606C57E6F8EB46D48D3627E7B8F7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948588   (411103) от 20.10.2015
-
-Ableton Live Suite 9.2.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ableton Live Suite - это один из самых популярных секвенсоров на рынке. Ableton Suite содержит в себе 9 инструментов от Ableton, включая синтезаторы, сэмплер, электрические и акустические барабаны, а также многочисленные сэмпл-инструменты.
-
-Это признанное во всем мире программное обеспечение, которое хорошо подходит как для студийной работы , так и работы в реальном (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 17 октября 2015Разработчик: AbletonПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D065B9875DDCA6644171F28BAE87C6F2D9BBFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

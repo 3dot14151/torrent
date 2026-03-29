@@ -1,3 +1,81 @@
+###  Публикация: 1372195   (886668) от 02.04.2020
+
+Семейка Аддамс / The Addams Family (2019) DVD9
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Папа любит долгие прогулки в ненастную погоду. Мама считает, что черный цвет самый яркий. У детей кладбище — любимая площадка для игр. Бабушка выпивает пару капель яда перед сном. Вы все еще думаете, что ваши родственники странные? Знакомьтесь — семейка Аддамс.Производство: Канада, США / Metro-Goldwyn-Mayer (MGM), Universal Pictures, Bron StudiosЖанр: Мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BC71790D85BA1D3522D5568E02DB524E08DE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372168   (886665) от 02.04.2020
+
+Эверест / Abominable (2019) DVD9
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: США, Китай / Universal Pictures, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017324C628035C64C08486FB25AA4B0B2AC81C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372179   (886649) от 02.04.2020
+
+Эверест / Abominable (2019) DVD5 [Custom]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: США, Китай / Universal Pictures, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06EBB7443D3F8DDF742171B2C4C2E650C572F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640636   (886633) от 07.04.2013
 
 Макс и его компания / Max & Co (2007) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886633.jpg" />
+  <img src="Z:/picture/005/save_picture_886633.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885478.jpg" />
+  <img src="Z:/picture/005/save_picture_885478.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882334.jpg" />
+  <img src="Z:/picture/005/save_picture_882334.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882251.jpg" />
+  <img src="Z:/picture/005/save_picture_882251.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881771.jpg" />
+  <img src="Z:/picture/005/save_picture_881771.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880385.jpg" />
+  <img src="Z:/picture/008/save_picture_880385.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876695.jpg" />
+  <img src="Z:/picture/005/save_picture_876695.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874706.jpg" />
+  <img src="Z:/picture/005/save_picture_874706.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874682.jpg" />
+  <img src="Z:/picture/005/save_picture_874682.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874523.jpg" />
+  <img src="Z:/picture/005/save_picture_874523.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872744.jpg" />
+  <img src="Z:/picture/008/save_picture_872744.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872742.jpg" />
+  <img src="Z:/picture/008/save_picture_872742.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872605.jpg" />
+  <img src="Z:/picture/008/save_picture_872605.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872587.jpg" />
+  <img src="Z:/picture/008/save_picture_872587.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872516.jpg" />
+  <img src="Z:/picture/008/save_picture_872516.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871709.jpg" />
+  <img src="Z:/picture/008/save_picture_871709.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870139.jpg" />
+  <img src="Z:/picture/008/save_picture_870139.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869242.jpg" />
+  <img src="Z:/picture/008/save_picture_869242.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867596.jpg" />
+  <img src="Z:/picture/008/save_picture_867596.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867510.jpg" />
+  <img src="Z:/picture/008/save_picture_867510.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867048.jpg" />
+  <img src="Z:/picture/008/save_picture_867048.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866850.jpg" />
+  <img src="Z:/picture/008/save_picture_866850.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866140.jpg" />
+  <img src="Z:/picture/008/save_picture_866140.jpg" />
 </div>
 
 
@@ -592,86 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D1881501FC4543A7376D6381A2D8F18C02B0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999220   (866113) от 21.03.2016
-
-Ледниковый Период: Погоня за яйцами / Ice Age: The Great Egg-Scape (2016) HDRip [H.264] [MP4|960х544]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скрэт, Мэнни, Сид, Диего и другие доисторические герои Ледникового Периода в совершенно новом уморительном анимационном приключении! Новый бизнес Сида по высиживанию яиц успешно развивается, но когда подлый кролик –пират Сквинт крадет яйца, Мэнни, Диего и остальные отправляются в бесстрашную спасательную операцию , которой суждено стать первой в истории погоней за (   Читать дальше...   )Производство: СШАЖанр: Анимация, Приключения, КороткометражныйРежиссер: Рикардо КертисАктеры: Блейк Андерсон Лили Эстефан Сет Грин Габриэль Иглесиас Дэнис Лири Джон Легуизамо Джош Пек Куин Латифа Рэй Романо Шонн Уильям СкоттПеревод: Дублированный (iTunes)Продолжительность: 00:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB12F5535653B469F70D34F393780CE1F28F2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874220   (864308) от 02.03.2015
-
-7-ой гном / Der 7bte Zwerg (2014) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864308.jpg" />
-</div>
-
-
-###  Подробнее
-
-В замке Фантабулараса большой переполох: принцесса Роза празднует свой 18-й день рождения. Приняты самые строгие меры безопасности, ведь злобная Колдунья Делламорта, которая прокляла Розу на ее крестинах, не позволит проклятию раствориться в воздухе.
-Семеро гномов — Умник, Рыжик, Ворчун, Соня, Силач, Бодряк и Бобо — ничего не знают об этом, когда отправляются на (   Читать дальше...   )Производство: Германия, Animationsfabrik Hamburg, Erfttal FilmЖанр: Мультфильм, Приключения, СемейныйРежиссер: Борис АльиновичАктеры: Джошуа Грэхэм,  Мэтт Гилберт,  Эл Пэрриш,  Джофф Мэй,  Джо Март,  Камерон Элвин,  Дэниэл Велбат,  Дов Грэй,  Кевин Моррис,  Криста КлэхейнПеревод: Дублированный (Лицензия R5)Субтитры: ОтсутствуютПродолжительность: 01:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662E687DEDF309BA00D78540DEB64E28D29E9CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767751   (863378) от 18.03.2014
-
-Господин Иллюминатор / Mr Hublot (2013) HDTVRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько же всего уже было снято на тему любви и дружбы между животным и человеком, однообразности нашей жизни если в ней нет чувств. Но ни смотря на это можно все еще найти стоящие внимания работы. Эта — одна из них.
-Главный герой, довольно колоритный сам по себе персонаж, живет в таком же колоритном мире — мире будущего: везде механизация и роботизация проникла (   Читать дальше...   )Производство: Люксембург, ФранцияЖанр: компьютерная анимацияРежиссер: Александр Эспигарес, Лорен УитцПеревод: не требуется (немой)Субтитры: ОтсутствуютПродолжительность: 00:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFC877D5492C6E9EFDCAEC7A7B2053277BD640C
 ```
 
 https://mybot314.ru/tekegram_catalog/

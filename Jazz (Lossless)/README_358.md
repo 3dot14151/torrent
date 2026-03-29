@@ -1,3 +1,119 @@
+###  Публикация: 1807436   (65158) от 19.07.2025
+
+VA - Jazz Verano (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Louis Armstrong - Summertime (4:56)
+02.  John Legend - Summertime Blue (3:30)
+03.  Samara Joy - Flor de Lis (Upside Down) (5:37)
+04.  Jeff Goldblum & The Mildred Snitzer Orchestra - In The Wee Small Hours Of The Morning (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCDBE9BB7EFD08EFC47A91E3513B7CDCDF676F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807434   (65155) от 19.07.2025
+
+VA - Happy & Jazzy Summer Instrumentals, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hank Hehmsoth - A New Day (4:44)
+02.  Ghost Jazz Trio - Spanish Seas (4:09)
+03.  Lee B Holloway - Into the Horizon (4:26)
+04.  Manfred Dreilich - God Rest Ye Merry Gentlemen (3:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E6445B14C576B65D0B8CDCF9D6E7B4314E325A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807439   (65151) от 19.07.2025
+
+VA - Latin Jazz House Summer Mix (Poolside Cocktails & Sunset Grooves) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tito Valdez - Tumbe (Alessio Collina Hill Paradise Mix) (7:20)
+02.  Ana Flora - Mas Que Nada (4:16)
+03.  Café Safado - Māo Pra Cima (3:34)
+04.  Black & Brown - Cool Affair (Eric Kupper Remix) (7:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E2BE443A4A9F18C16BE2F561415787C4F43878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807684   (65087) от 21.07.2025
+
+Joe Gordon - Lookin' Good! (1961) 2009, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terra Firma Irma [7:47]
+02. A Song for Richard [5:05]
+03. Non-Viennese Waltz Blues [4:15]
+04. You're the Only Girl in the Next World for Me [4:05](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D721EA7C9A8B112D012CBC3293AE89669032AA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808009   (65037) от 22.07.2025
 
 Grant Green - Four Classic Albums (1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Guitar Jazz>
@@ -6,7 +122,7 @@ Grant Green - Four Classic Albums (1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65037.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64996.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Roberto Restuccia - Hand 2 Heart (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64979.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Anita O'Day - The Lady Is A Tramp (1952, 1957) 1991, Polygram [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64937.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jerome Richardson - Midnight Oil (1961) 2009, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64926.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charlie Haden Quartet West - In Angel City (1988) Verve Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64757.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Jazz & House Summer Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64703.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Las Mejores Canciones de Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64701.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Chillout Jazz Del Mar Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Chi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64696.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Under The Umbrella (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64695.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Summer Chill Mood (Warm & Elegant Relaxing Instrumentals, Vol. 1) (2025) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64694.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Natale Jazz 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64691.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Chill Mood (I want a quiet summer !) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64679.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Donald Byrd - Four Classic Albums (1955, 1956) 2CD, 2014, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64635.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sidney Bechet - Four Classic Albums: Third Set (1955 - 1958) 2CD, 2022, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64633.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Frank Sinatra - Platinum (2023) 2xCD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63303.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Wynton Marsalis - Jump Start And Jazz:Two Ballets by Wynton Marsalis (1993, 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63277.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Duke Ellington - The Pianist (1974) /2003,  [FLAC|lossless]<Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61668.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61205.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61172.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58864.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57925.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Bobby Watson - Back Home In Kansas City (2022) Smoke Sessions Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86A400E31DC3485BC4D0936EBB88B39991735111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719474   (57924) от 01.05.2024
-
-Judy Wexler - What I See (2013) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Is Another Day [6:30]
-02. The Moon Is Made of Gold [3:16]
-03. Convince Me [4:17]
-04. They Say It's Spring [4:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C49944DD508EFB17197C5DFC00F1345711F2757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939726   (56884) от 11.05.2024
-
-Spyro Gyra - Catching The Sun (1980) 1994, BMG Music [FLAC|image+.cue]<Smooth, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Catching The Sun [04:44]
-02.Cockatoo [04:08]
-03.Autumn Of Our Love [05:13]
-04.Laser Material [05:03](   Читать дальше...   )Жанр: Smooth, Jazz-PopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EA06C666821BB1CEECFA54A85FC03D22049824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722962   (56667) от 13.05.2024
-
-VA - Jazz Covers Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flora Martinez - Take My Breath Away (3:30)
-02. The Cooltrane Quartet, Nenei - What a Difference a Day Makes (3:25)
-03. The Cooltrane Quartet - Sing It Back (2:48)
-04. George White Group - I Love You (3:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AE53875293217C9299B59E852CC27D289F48C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723419   (56462) от 15.05.2024
-
-VA - Nightfall: Piano in the Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Relax Academy - Nighttime Nocturnes (2:46)
-02. Piano Jazz Background Music Masters - Moonlit Melodies (4:46)
-03. Piano Bar Music Oasis - Midnight Musings (5:11)
-04. Jazz Relax Academy - Evening Mood (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07EEA6ED0845B8DAFE6D04EC5DEA161FAE4D82B
 ```
 
 https://mybot314.ru/tekegram_catalog/

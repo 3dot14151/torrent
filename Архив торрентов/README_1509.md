@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709499.jpg" />
+  <img src="Z:/picture/008/save_picture_709499.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Хатынь: Tacet, Sed Loquitur (2006) [FLAC|Lossless]<Ambient, Neofolk, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709482.jpg" />
+  <img src="Z:/picture/005/save_picture_709482.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709470.jpg" />
+  <img src="Z:/picture/008/save_picture_709470.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709445.jpg" />
+  <img src="Z:/picture/008/save_picture_709445.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709438.jpg" />
+  <img src="Z:/picture/008/save_picture_709438.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AIMP 4.02 Build 1725 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709429.jpg" />
+  <img src="Z:/picture/008/save_picture_709429.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ GOM Player 2.3.3 Build 5254 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709423.jpg" />
+  <img src="Z:/picture/008/save_picture_709423.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709420.jpg" />
+  <img src="Z:/picture/008/save_picture_709420.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709418.jpg" />
+  <img src="Z:/picture/008/save_picture_709418.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709397.jpg" />
+  <img src="Z:/picture/008/save_picture_709397.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709371.jpg" />
+  <img src="Z:/picture/005/save_picture_709371.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Windows 10 Manager 1.1.4 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709317.jpg" />
+  <img src="Z:/picture/008/save_picture_709317.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Mp3tag 2.70 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709294.jpg" />
+  <img src="Z:/picture/008/save_picture_709294.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HDCleaner 1.301 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709281.jpg" />
+  <img src="Z:/picture/008/save_picture_709281.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709280.jpg" />
+  <img src="Z:/picture/008/save_picture_709280.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - In Search Of Sunrise 16 (Mixed by Markus Schulz & Giuseppe Ottaviani & Sunl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709277.jpg" />
+  <img src="Z:/picture/008/save_picture_709277.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ App Cleaner & Uninstaller Pro 7.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709273.jpg" />
+  <img src="Z:/picture/008/save_picture_709273.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709237.jpg" />
+  <img src="Z:/picture/008/save_picture_709237.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Autodesk AutoCAD Mechanical 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709198.jpg" />
+  <img src="Z:/picture/008/save_picture_709198.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709197.jpg" />
+  <img src="Z:/picture/008/save_picture_709197.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Autodesk AutoCAD Civil 3D 2017 HF3 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709194.jpg" />
+  <img src="Z:/picture/008/save_picture_709194.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Super Mario Brawl 3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709193.jpg" />
+  <img src="Z:/picture/008/save_picture_709193.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Angry Birds в кино / Angry Birds (2016) TC [Line]
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709186.jpg" />
+  <img src="Z:/picture/008/save_picture_709186.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14361 (esd) [Ru] + 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709185.jpg" />
+  <img src="Z:/picture/008/save_picture_709185.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ TweakPower  1.151 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709170.jpg" />
+  <img src="Z:/picture/008/save_picture_709170.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ AnyDVD & AnyDVD HD 7.6.0.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709165.jpg" />
+  <img src="Z:/picture/008/save_picture_709165.jpg" />
 </div>
 
 

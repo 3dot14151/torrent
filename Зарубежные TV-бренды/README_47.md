@@ -1,3 +1,107 @@
+###  Публикация: 1222140   (689315) от 27.04.2018
+
+NGW: Фантастические существа Мадагаскара / Madagaskar's: Fantastic Creatures (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_689315.jpg" />
+</div>
+
+
+###  Подробнее
+
+После отсоединения от Африки 160 млн. лет назад животные в поисках спасения попали на Мадагаскар, где креативности эволюции не было предела.Производство: Великобритания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Колин КоллесПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AADE738CA1BA9E46852E45F4CD48CE17A3F380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134208   (688876) от 15.05.2017
+
+BBC: Невидимые города Италии / Italy's Invisible Cities (2017) SATRip [H.264] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в долгое, приятное путешествие, постепенно узнавая Италию изнутри - ее великую историю, непревзойденное искусство, исключительную природу.Производство: Великобритания, ВВСЖанр: Документальный, научно-популярный, история, исследованияРежиссер: Харви ЛиллиПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:46+00:49:28+00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596F2B3A6393F7623A42FEFDE0928E0EFDC6CA4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684304   (688500) от 23.06.2016
+
+Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер самолёты (2012) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688500.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, научно-познавательный, техникаРежиссер: Элйес ГабельПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A3239A159269430AEB68479626E5BDB184EE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535081   (688217) от 05.03.2022
+
+Discovery: Встреча с инопланетянами / Alien Encounters (2012-2014) WEB-DLRip (сезон 1-3, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_688217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о гипотетическом контакте человечества с инопланетянами, а также о научных исследованиях и возможных вариантах дальнейшего развития событий.Телекомпания: Karga Seven Pictures, Discovery Science ChannelЖанр: Документальный, фантастикаРежиссер: Эмре Сахин, Клинт ЛилосПеревод: Одноголосый профессиональный (Кириллица)Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A4838071C9B469BA9DC2E14B6376A27130F2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281052   (687825) от 15.03.2019
 
 Загадочные исчезновения / Mysteries of the Missing (2017) HDTV [H.264/1080i-LQ] (сезон 1, серия 1-5 из 8) (Обновляемая)
@@ -6,7 +110,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687825.jpg" />
+  <img src="Z:/picture/008/save_picture_687825.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687353.jpg" />
+  <img src="Z:/picture/008/save_picture_687353.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687251.jpg" />
+  <img src="Z:/picture/008/save_picture_687251.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687011.jpg" />
+  <img src="Z:/picture/008/save_picture_687011.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Discovery. Тело человека: Грани возможного / Human Bo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686895.jpg" />
+  <img src="Z:/picture/008/save_picture_686895.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ NG. Осушить океан: глубокое погружение. Сокро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686238.jpg" />
+  <img src="Z:/picture/008/save_picture_686238.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685472.jpg" />
+  <img src="Z:/picture/008/save_picture_685472.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685171.jpg" />
+  <img src="Z:/picture/008/save_picture_685171.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685158.jpg" />
+  <img src="Z:/picture/008/save_picture_685158.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685157.jpg" />
+  <img src="Z:/picture/008/save_picture_685157.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685054.jpg" />
+  <img src="Z:/picture/008/save_picture_685054.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685048.jpg" />
+  <img src="Z:/picture/008/save_picture_685048.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685033.jpg" />
+  <img src="Z:/picture/008/save_picture_685033.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684945.jpg" />
+  <img src="Z:/picture/008/save_picture_684945.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683909.jpg" />
+  <img src="Z:/picture/008/save_picture_683909.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery: Техногеника. БТА. Телескоп-гигант (2017) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682815.jpg" />
+  <img src="Z:/picture/008/save_picture_682815.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Discovery: Техногеника. Рекордные локомотивы (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682809.jpg" />
+  <img src="Z:/picture/008/save_picture_682809.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery: Техногеника. Луноходы и марсоходы (2017)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682808.jpg" />
+  <img src="Z:/picture/008/save_picture_682808.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682338.jpg" />
+  <img src="Z:/picture/008/save_picture_682338.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Discovery. Как работают машины / Machines: How They Work (2016)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681799.jpg" />
+  <img src="Z:/picture/008/save_picture_681799.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681681.jpg" />
+  <img src="Z:/picture/008/save_picture_681681.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680819.jpg" />
+  <img src="Z:/picture/008/save_picture_680819.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31B390445E34CD739390D7818D75657518ADBA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029622   (680247) от 27.06.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.264/720p] (Сезон 16, эпизод 01) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680247.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514B3F84F57E1D3E2D9EBF8C2506E4490DC6F158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029621   (680140) от 27.06.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 01) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680140.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B115E285695C51776C2A131932396FE878EACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029623   (680077) от 27.06.2016
-
-Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H.264/1080i-LQ] (Сезон 16, эпизод 01) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680077.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B75F34140AE9389048D45DBA4CEBD4AAAC12672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508733   (679627) от 10.06.2012
-
-Discovery: Спортивные арены Чемпионата Европы 2012 [2 серии] / Behind The Scenes - Euro 2012 (2012) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа «Спортивные арены чемпионата 2012» появится в эфире Discovery Channel в преддверии главного спортивного события этого лета – Чемпионата Европы по футболу-2012. Благодаря этой программе зрители увидят, какую работу пришлось проделать строителям, дизайнерам, инженерам и другим специалистам, чтобы подготовить долгожданное футбольное действо.
-Съемочная группа Discovery Channel посетила основные спортивные арены, где развернется футбольное первенство Европы – пять современных стадионов были построены специально к турниру, а еще три подверглись существенной реконструкции, превратившись в первоклассные футбольные площадки, готовые к приему тысяч зрителей. Так, в Варшаве за два с небольшим года был возведен Национальный стадион на 58500 мест, где состоится матч открытия, а Национальный спортивный комплекс «Олимпийский» в Киеве после реконструкции получил статус «элит». Здесь созданы максимально комфортные условия как для футболистов, так и для зрителей: к примеру, трибуны оснащены уникальным мембранным козырьком, (   Читать дальше...   )Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 2x~00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D802B0EAE69D0BBE84C8E9C2DB2F5BE4445243
 ```
 
 https://mybot314.ru/tekegram_catalog/

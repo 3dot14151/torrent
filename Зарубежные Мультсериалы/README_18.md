@@ -1,3 +1,56 @@
+###  Публикация: 1023805   (717364) от 08.06.2016
+
+Лего Рыцари Нексо / Lego Nexo Knights (2015) WEB-DL [H.264/1080p-LQ] (10 серий из 10) [UKR]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы окунетесь в параллельный мир Средневековья, мир передовых технологий, роботов и рыцарей будущего. В Найтонии царил лад и покой, подданные любили короля и восславляли его. Но в один миг тучи над королевством сгустились – королевский шут тро нашел Книгу Монстров и обратился на темную сторону зла. Эта книга несла в себе страшную силу, в ней от первой странички до (   Читать дальше...   )Производство: Дания, M2 EntertainmentЖанр: Детский, Приключения, ФэнтезиРежиссер: Питер ГриффитсПеревод: ДублированныйОзвучка: ТК Плюс ПлюсПродолжительность: 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F48279C345AF9D603182CD890E53C2BD0F0337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024312   (717237) от 08.06.2016
+
+Щенячий патруль / PAW Patrol (2015 - 2016) HDTVRip (Сезон 3, Серии 1-5 из ?)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зик Райдер — озорной десятилетний мальчик, талантливый не по годам. Он отлично разбирается в электронике и технике и умело с ней обращается. Его жизнь насыщена и полна бесстрашных приключений. Вместе с шестью веселыми и храбрыми щенятами он создал отважную команду под названием «Щенячий патруль».
+Сообща они выполняют спасательные миссии: с удовольствием помогают (   Читать дальше...   )Производство: Канада, СШАЖанр: Детский, ПриключенияРежиссер: Джэми УитниПерсонажи: Деван Коэн, Кристиан Дистефано, Каллан Холли, Alex Thorne, Гейдж Манро, Джули Лемье, Max Calinescu, Дрю Дэвис...Перевод: ДублированныйПродолжительность: серия по ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2C10DD57EE83FE1FBB06190E55580A15E9C711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669546   (716625) от 18.06.2013
 
 Мой Маленький Пони: Дружба Это Чудо / My Little Pony: Friendship Is Magic (2012) WEB-DLRip [H.264/1080p-HQ] (сезон 3, серии 1-13 из 13)
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716625.jpg" />
+  <img src="Z:/picture/008/save_picture_716625.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716568.jpg" />
+  <img src="Z:/picture/008/save_picture_716568.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716553.jpg" />
+  <img src="Z:/picture/008/save_picture_716553.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715543.jpg" />
+  <img src="Z:/picture/008/save_picture_715543.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714592.jpg" />
+  <img src="Z:/picture/008/save_picture_714592.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714209.jpg" />
+  <img src="Z:/picture/008/save_picture_714209.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713125.jpg" />
+  <img src="Z:/picture/008/save_picture_713125.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712281.jpg" />
+  <img src="Z:/picture/008/save_picture_712281.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710906.jpg" />
+  <img src="Z:/picture/005/save_picture_710906.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710084.jpg" />
+  <img src="Z:/picture/008/save_picture_710084.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708335.jpg" />
+  <img src="Z:/picture/008/save_picture_708335.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707818.jpg" />
+  <img src="Z:/picture/008/save_picture_707818.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707743.jpg" />
+  <img src="Z:/picture/008/save_picture_707743.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702979.jpg" />
+  <img src="Z:/picture/008/save_picture_702979.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700861.jpg" />
+  <img src="Z:/picture/005/save_picture_700861.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698910.jpg" />
+  <img src="Z:/picture/008/save_picture_698910.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698194.jpg" />
+  <img src="Z:/picture/008/save_picture_698194.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697824.jpg" />
+  <img src="Z:/picture/008/save_picture_697824.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697737.jpg" />
+  <img src="Z:/picture/008/save_picture_697737.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697611.jpg" />
+  <img src="Z:/picture/008/save_picture_697611.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697550.jpg" />
+  <img src="Z:/picture/008/save_picture_697550.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697057.jpg" />
+  <img src="Z:/picture/008/save_picture_697057.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696359.jpg" />
+  <img src="Z:/picture/008/save_picture_696359.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695516.jpg" />
+  <img src="Z:/picture/008/save_picture_695516.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81BC2C3ACA211E926C9C797E943B0098058AF4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795670   (689771) от 12.06.2014
-
-Школа вампиров / Die schule der kleinen vampire (2006-2008) WEB-DLRip (Сезон 01-03, Серии 01-78 из 78)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в школу для молодых вампиров «Фон Хоррикус».
-Сюда слетаются молодые бессмертные студенты со всех уголков планеты, чтобы отточить свое мастерство, научиться новым приемам трансформации в летучих мышей и другим видам настоящего вампирского искусства.
-В этой школе учится симпатичный вампир по имени Оскар. Только вы узнаете его большой секрет — Оскар (   Читать дальше...   )Производство: Германия / Hahn Film AGЖанр: Мультсериал, Семейный, Детский, ПриключенияРежиссер: Саймон Уорд-Хорнер, Роберт Оркрайт, Энтони ПауэрПерсонажи: Харви Фридман, Марианна Грэффэм, Шон Лоутон, Криста Льюис, Клэйтон Немроу, Джефф Баррелл, Манон Кайл…Перевод: Профессиональный (Дублированный)Продолжительность: Серия по ~ 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D194F3F6C503E8D10284F8A735FC6935FEEFAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535036   (686026) от 06.03.2022
-
-Аквамен: Король Атлантиды / Aquaman: King of Atlantis (2021) (Cерии 1-3 из 3) WEBRip [H.264/1080p] TVShows (Dub)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал начинается с первого дня работы Аквамена в качестве короля Атлантиды, и ему предстоит многое наверстать. К счастью, у него есть два королевских советника, которые поддерживают его: Вулко, ученый, и Мера, управляющая водой принцесса-воин. Имея дело с недобросовестными обитателями поверхности, древним злом и собственным сводным братом, который хочет свергнуть (   Читать дальше...   )Производство: США, DC Entertainment, Warner Bros. Animation, HBO MaxЖанр: Рисованная анимация, Приключения, Минисериал, ФэнтезиРежиссер: Кит Пакиз, Боб Хейни, Джефф Джонс, Пол НоррисАктеры: Купер Эндрюс, Гиллиан Джейкобс, Томас Леннон, Дэна Снайдер, Эндрю Моргадо, Крис Джай АлексПеревод: Дублированный (TVShows)Субтитры: АнглийскийПродолжительность: 3 серии по ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C869CA8041B79551EE512ECE6BB7EE1087204835
 ```
 
 https://mybot314.ru/tekegram_catalog/

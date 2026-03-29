@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816009.jpg" />
+  <img src="Z:/picture/008/save_picture_816009.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera GX 80.0.4170.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815972.jpg" />
+  <img src="Z:/picture/008/save_picture_815972.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815970.jpg" />
+  <img src="Z:/picture/008/save_picture_815970.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Notepad++ 8.1.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815962.jpg" />
+  <img src="Z:/picture/008/save_picture_815962.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Q-Dir 9.95 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815960.jpg" />
+  <img src="Z:/picture/008/save_picture_815960.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Lonely Guest & Tricky - Lonely Guest (2021) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815958.jpg" />
+  <img src="Z:/picture/008/save_picture_815958.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ AllDup 4.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815956.jpg" />
+  <img src="Z:/picture/008/save_picture_815956.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Chromium 95.0.4638.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815952.jpg" />
+  <img src="Z:/picture/008/save_picture_815952.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Emurasoft EmEditor Professional 21.1.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815945.jpg" />
+  <img src="Z:/picture/008/save_picture_815945.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Group Home - Livin' Proof (1995) [FLAC|Lossless|tracks + .cue] <Hip Hop, Thug Ra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815931.jpg" />
+  <img src="Z:/picture/008/save_picture_815931.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Blaqk Audio - Material (2016) [MP3|320 кб/с] <Synthpop, Electronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815927.jpg" />
+  <img src="Z:/picture/008/save_picture_815927.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815921.jpg" />
+  <img src="Z:/picture/008/save_picture_815921.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815920.jpg" />
+  <img src="Z:/picture/008/save_picture_815920.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Mind The Gap #130 (2018) Gonzo Circus [FLAC|Lossless|tracks+.cue] <Ambient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815914.jpg" />
+  <img src="Z:/picture/008/save_picture_815914.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Dash 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815910.jpg" />
+  <img src="Z:/picture/008/save_picture_815910.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Opera 80.0.4170.63 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815886.jpg" />
+  <img src="Z:/picture/008/save_picture_815886.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Internet Download Manager 6.39 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815884.jpg" />
+  <img src="Z:/picture/008/save_picture_815884.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ AIMP 5.00 Build 2338 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815880.jpg" />
+  <img src="Z:/picture/008/save_picture_815880.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Waterfox Current G4.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815874.jpg" />
+  <img src="Z:/picture/008/save_picture_815874.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ jv16 PowerTools 7.0.0.1288 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815870.jpg" />
+  <img src="Z:/picture/008/save_picture_815870.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ LDPlayer 4.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815868.jpg" />
+  <img src="Z:/picture/008/save_picture_815868.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Acoustica Premium Edition 7.3.15 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815866.jpg" />
+  <img src="Z:/picture/008/save_picture_815866.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Kaspersky Lab Products Remover 1.0.1803.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815858.jpg" />
+  <img src="Z:/picture/008/save_picture_815858.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ AIMP 5.00 Build 2338 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815850.jpg" />
+  <img src="Z:/picture/008/save_picture_815850.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Riot - ThunderSteel (1988) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815825.jpg" />
+  <img src="Z:/picture/008/save_picture_815825.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815823.jpg" />
+  <img src="Z:/picture/008/save_picture_815823.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 562272   (404021) от 22.10.2012
+
+[Wallpapers] Нравятся! Сотня № 078 (1920х1080-2560х1600)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Большое спасибо неизвестным авторам этих работ.
+Хотя на вкус и цвет...Разрешение файлов: от 1920х1080 до 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCE1CFFD21448D8607EAF70C6BBD3C0371F5F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562271   (403962) от 22.10.2012
 
 [Wallpapers] Нравятся! Сотня № 077 (1920х1080-2560х1600)
@@ -6,7 +34,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403962.jpg" />
+  <img src="Z:/picture/008/save_picture_403962.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403934.jpg" />
+  <img src="Z:/picture/008/save_picture_403934.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403930.jpg" />
+  <img src="Z:/picture/008/save_picture_403930.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403608.jpg" />
+  <img src="Z:/picture/008/save_picture_403608.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403019.jpg" />
+  <img src="Z:/picture/008/save_picture_403019.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Space Wallpapers (19.10.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403001.jpg" />
+  <img src="Z:/picture/008/save_picture_403001.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402857.jpg" />
+  <img src="Z:/picture/008/save_picture_402857.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402479.jpg" />
+  <img src="Z:/picture/008/save_picture_402479.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402366.jpg" />
+  <img src="Z:/picture/008/save_picture_402366.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402049.jpg" />
+  <img src="Z:/picture/008/save_picture_402049.jpg" />
 </div>
 
 
@@ -281,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401322.jpg" />
+  <img src="Z:/picture/008/save_picture_401322.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Desktop Wallpapers (24.10.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401284.jpg" />
+  <img src="Z:/picture/008/save_picture_401284.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401276.jpg" />
+  <img src="Z:/picture/008/save_picture_401276.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ Best HD Wallpapers Pack (24.10.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401193.jpg" />
+  <img src="Z:/picture/008/save_picture_401193.jpg" />
 </div>
 
 
@@ -389,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401114.jpg" />
+  <img src="Z:/picture/008/save_picture_401114.jpg" />
 </div>
 
 
@@ -419,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401007.jpg" />
+  <img src="Z:/picture/008/save_picture_401007.jpg" />
 </div>
 
 
@@ -445,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400973.jpg" />
+  <img src="Z:/picture/008/save_picture_400973.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400911.jpg" />
+  <img src="Z:/picture/008/save_picture_400911.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400380.jpg" />
+  <img src="Z:/picture/008/save_picture_400380.jpg" />
 </div>
 
 
@@ -523,7 +551,7 @@ Nature HD Wallpapers (26.10.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400065.jpg" />
+  <img src="Z:/picture/008/save_picture_400065.jpg" />
 </div>
 
 
@@ -549,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399368.jpg" />
+  <img src="Z:/picture/008/save_picture_399368.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395939.jpg" />
+  <img src="Z:/picture/008/save_picture_395939.jpg" />
 </div>
 
 
@@ -601,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395914.jpg" />
+  <img src="Z:/picture/008/save_picture_395914.jpg" />
 </div>
 
 
@@ -627,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395910.jpg" />
+  <img src="Z:/picture/008/save_picture_395910.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395898.jpg" />
+  <img src="Z:/picture/008/save_picture_395898.jpg" />
 </div>
 
 
@@ -672,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9333B5A3C107316E40BC9615F7BB466A58C0DF63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567173   (395894) от 30.10.2012
-
-[Рисованая графика]Artworks by Robert Longo
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картины, нарисованные древесным углем. Художник Роберт Лонго (Robert Longo).Роберт Лонго (род. 7 января 1953 г.) – всемирно известный американский художник. Живет со своей женой Барбарой и тремя их сыновьями в Нью-Йорке. В 2005 году был награжден премией Goslar Kaiser Ring – одной из самых престижных премий в области современного искусства. Его работа с изображением волны - Untitled (Skull Island), 2005 - была продана в октябре 2007 года на аукционе Christie’s в Лондоне за $392 тыс. Предыдущий ценовой рекорд на его произведения был установлен на Sotheby’s в Нью-Йорке в сентябре 2007 года: рельефная композиция «Corporate Wars: Walls of Influence» (1982) была продана за $205 тыс. при эстимейте в $70 000-$90 000.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D02055D261D47B98DAA705702CFEDD42A26092
 ```
 
 https://mybot314.ru/tekegram_catalog/

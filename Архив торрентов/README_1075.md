@@ -6,7 +6,7 @@ KCNcrew Pack 15.01.2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801096.jpg" />
+  <img src="Z:/picture/008/save_picture_801096.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ HyperSnap 8.16.00 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801092.jpg" />
+  <img src="Z:/picture/008/save_picture_801092.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nox App Player 3.8.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801078.jpg" />
+  <img src="Z:/picture/008/save_picture_801078.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801069.jpg" />
+  <img src="Z:/picture/008/save_picture_801069.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801067.jpg" />
+  <img src="Z:/picture/008/save_picture_801067.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Affinity Publisher 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801058.jpg" />
+  <img src="Z:/picture/008/save_picture_801058.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viwizard Audio Converter for Mac 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801057.jpg" />
+  <img src="Z:/picture/008/save_picture_801057.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Bartender 4 v4.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801055.jpg" />
+  <img src="Z:/picture/008/save_picture_801055.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Acoustica Premium Edition 7.3.19 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801054.jpg" />
+  <img src="Z:/picture/008/save_picture_801054.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Default Folder X 5.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801050.jpg" />
+  <img src="Z:/picture/008/save_picture_801050.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Acon Digital Acoustica Premium Edition 7.3.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801049.jpg" />
+  <img src="Z:/picture/008/save_picture_801049.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ iZotope - RX 9 Audio Editor Advanced v9.1.0 STANDALONE, VST, VST3, AAX [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801047.jpg" />
+  <img src="Z:/picture/008/save_picture_801047.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ reaConverter Pro 7.680 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801044.jpg" />
+  <img src="Z:/picture/008/save_picture_801044.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ViWizard Audible AA / AAX Converter for Mac 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801039.jpg" />
+  <img src="Z:/picture/008/save_picture_801039.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ GPU-Z 2.6.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801033.jpg" />
+  <img src="Z:/picture/008/save_picture_801033.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FileZilla 3.30.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801031.jpg" />
+  <img src="Z:/picture/008/save_picture_801031.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ RightFont 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801030.jpg" />
+  <img src="Z:/picture/008/save_picture_801030.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Cent Browser 3.1.5.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801020.jpg" />
+  <img src="Z:/picture/008/save_picture_801020.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Darksiders Warmastered Edition (2016) [Ru/Multi] (1.0.2617) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801018.jpg" />
+  <img src="Z:/picture/008/save_picture_801018.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801001.jpg" />
+  <img src="Z:/picture/008/save_picture_801001.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Sublime Merge Dev Build 20011 Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800997.jpg" />
+  <img src="Z:/picture/008/save_picture_800997.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ iA Writer 5.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800996.jpg" />
+  <img src="Z:/picture/008/save_picture_800996.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800994.jpg" />
+  <img src="Z:/picture/008/save_picture_800994.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Dropshare 5.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800993.jpg" />
+  <img src="Z:/picture/008/save_picture_800993.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Principle 5.11 (build 5023) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800992.jpg" />
+  <img src="Z:/picture/008/save_picture_800992.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Audirvana 3.5.35 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800987.jpg" />
+  <img src="Z:/picture/008/save_picture_800987.jpg" />
 </div>
 
 

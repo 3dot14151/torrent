@@ -1,3 +1,61 @@
+###  Публикация: 1532248   (714743) от 19.02.2022
+
+VA - Urban Night: Electro House Session (2022) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иконы танцевальной музыки и выдающиеся музыкальные продюсеры объединили свои усилия для создания насыщенной энергией танцевальной сессии под названием "Urban Night". Массивный набор лонгплея включает в себя готовые к фестивалю 120 треков, охватывающие пульсирующие синтезаторы, мощные барабаны, бесстрашные басы и многое другое!001. Satoshi Fumi - Monday Trip
+002. Sam Thomas - How It Used To Feel
+003. Juah - Leaving Berlin
+004. Emuser - Save You(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 12:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961C8E93FD5D024F7F30591271BEEC0F07E54BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532424   (714741) от 19.02.2022
+
+VA - Funky House Bass Winter (2022) [MP3|320 Kbps] <House, Funky, Groove>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Crown - Feel Alive (Dub Mix)
+02. Phill Steiner - Disco Stab (Original Mix)
+03. House Shifters - Twerk It (Dub Mix)
+04. David Fuldner - I Like It (Original Mix)(   Читать дальше...   )Жанр: House, Funky, GrooveПродолжительность: 01:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218C390668F68640709EABDEC5ECDA39B36BB0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532233   (714630) от 19.02.2022
 
 VA - Synth of Waves 10 (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -6,7 +64,7 @@ VA - Synth of Waves 10 (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714630.jpg" />
+  <img src="Z:/picture/008/save_picture_714630.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Relax Synthwave: Art Sound Mix (2022) [MP3|320 Kbps] <Synthwave, Electronic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714527.jpg" />
+  <img src="Z:/picture/008/save_picture_714527.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - In The Dark: Synthspace Mixtape (2022) [MP3|320 Kbps] <Synthspace, Synthwav
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714472.jpg" />
+  <img src="Z:/picture/008/save_picture_714472.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ aQuaLuna - Classic Mix (1994 - 1999) [MP3|256 Kbps] <Acid Hard, Goa, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714419.jpg" />
+  <img src="Z:/picture/008/save_picture_714419.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Synthwave Drive (4CD) от DON Music (2017) [MP3|320 Kbps] <Synthwave, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714328.jpg" />
+  <img src="Z:/picture/008/save_picture_714328.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Nu Collection: Cool Tunes, Electronic and Chill Tracks (2016) [MP3|320 кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714317.jpg" />
+  <img src="Z:/picture/008/save_picture_714317.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Kontor Top of the Clubs (2018.02) (2018) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713897.jpg" />
+  <img src="Z:/picture/008/save_picture_713897.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - A State Of Deep [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Progressive Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713896.jpg" />
+  <img src="Z:/picture/008/save_picture_713896.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713504.jpg" />
+  <img src="Z:/picture/008/save_picture_713504.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713344.jpg" />
+  <img src="Z:/picture/008/save_picture_713344.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713323.jpg" />
+  <img src="Z:/picture/008/save_picture_713323.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Tropical Vibes vol. 7 (2018 - 2019) [MP3|320 Kbps] <Tropical House, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713106.jpg" />
+  <img src="Z:/picture/008/save_picture_713106.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Empire Records - Recccord 3 (2019) [MP3|320 Kbps] <Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713005.jpg" />
+  <img src="Z:/picture/008/save_picture_713005.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Transform Uplifting Melodic Reality: Superwave (2019) [MP3|320 Kbps] <Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712888.jpg" />
+  <img src="Z:/picture/008/save_picture_712888.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Feel The Paradise: Uplifting Trance Mix (2022) [MP3|320 Kbps] <Uplifting, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712832.jpg" />
+  <img src="Z:/picture/008/save_picture_712832.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 004 (2017) [MP3|320 Kbps] <Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712783.jpg" />
+  <img src="Z:/picture/008/save_picture_712783.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Record Super Chart 19.02.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712697.jpg" />
+  <img src="Z:/picture/008/save_picture_712697.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Trance Traveling 88 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712674.jpg" />
+  <img src="Z:/picture/008/save_picture_712674.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712467.jpg" />
+  <img src="Z:/picture/008/save_picture_712467.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712292.jpg" />
+  <img src="Z:/picture/008/save_picture_712292.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712226.jpg" />
+  <img src="Z:/picture/008/save_picture_712226.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Easter Chill Out: Pure Lounge Music for Easy Listening (2016) [MP3|320 кб
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712225.jpg" />
+  <img src="Z:/picture/008/save_picture_712225.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - FLASHBACK! MIXED BY FERRYS (2014) [MP3|320 кб/с] <Electronic, House, Eur
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712217.jpg" />
+  <img src="Z:/picture/008/save_picture_712217.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712213.jpg" />
+  <img src="Z:/picture/008/save_picture_712213.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7DC0C0CD5A4C5025EAB588AFB0627B3DF9A4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025289   (712195) от 11.06.2016
-
-VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
-02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
-03. Geck-O - Sorry Not Sorry [3:16]
-04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025073   (712193) от 11.06.2016
-
-VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Nothing - Summer of Love - Singled Out Mix
-02. Ms. Jones and the Fireflies - 5am - Lana in the Video Sadness Cut
-03. Deep Sound Employees - Follow - Beach Cafe Mix
-04. Heartless Surfer Crew - Skip the Beat - Olly Got a Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
 ```
 
 https://mybot314.ru/tekegram_catalog/

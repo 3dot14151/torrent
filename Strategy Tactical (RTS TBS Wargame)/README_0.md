@@ -6,7 +6,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550862.jpg" />
+  <img src="Z:/picture/008/save_picture_550862.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550730.jpg" />
+  <img src="Z:/picture/008/save_picture_550730.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546261.jpg" />
+  <img src="Z:/picture/008/save_picture_546261.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546099.jpg" />
+  <img src="Z:/picture/008/save_picture_546099.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SpellForce: The Order Of Dawn [En/Ru] (L/1.38) 2003
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537398.jpg" />
+  <img src="Z:/picture/008/save_picture_537398.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536088.jpg" />
+  <img src="Z:/picture/008/save_picture_536088.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529464.jpg" />
+  <img src="Z:/picture/008/save_picture_529464.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528399.jpg" />
+  <img src="Z:/picture/008/save_picture_528399.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519858.jpg" />
+  <img src="Z:/picture/008/save_picture_519858.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449982.jpg" />
+  <img src="Z:/picture/008/save_picture_449982.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430388.jpg" />
+  <img src="Z:/picture/008/save_picture_430388.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411174.jpg" />
+  <img src="Z:/picture/008/save_picture_411174.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395504.jpg" />
+  <img src="Z:/picture/008/save_picture_395504.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Blitzkrieg GZM / Блицкриг GZM (2012) [Ru] (1.2/7.77.3) Repack/Mod Sprut
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350537.jpg" />
+  <img src="Z:/picture/008/save_picture_350537.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Etherlords / Демиурги (2001) [Ru/En] (1.07/1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346870.jpg" />
+  <img src="Z:/picture/008/save_picture_346870.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Magic Chronicle (2003) [En] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301772.jpg" />
+  <img src="Z:/picture/008/save_picture_301772.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Original War (2001) [Ru/Multi] (1.10b) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291395.jpg" />
+  <img src="Z:/picture/008/save_picture_291395.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Warrior Kings (2002) [En] (1.4) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263700.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Strike Squad [En] (RePack) 1993 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260849.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Battle Isle 2220: Shadow of the Emperor (RePack) [En] 1995 | RG Games (Pilotus)
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258579.jpg" />
+  <img src="Z:/picture/005/save_picture_258579.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Heroes of Might and Magic (1996) [Multi] (1.5 editor fix) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249063.jpg" />
+  <img src="Z:/picture/004/save_picture_249063.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Heroes of Might and Magic II (2) (1996) [Multi] (1.01/dlc) License GOG [Gold]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249062.jpg" />
+  <img src="Z:/picture/004/save_picture_249062.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236415.jpg" />
+  <img src="Z:/picture/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Etherlords 2 / Демиурги 2 HD (2003) [Ru] (1.03) Repack BAPK
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207469.jpg" />
+  <img src="Z:/picture/005/save_picture_207469.jpg" />
 </div>
 
 

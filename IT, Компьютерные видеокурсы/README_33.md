@@ -1,3 +1,141 @@
+###  Публикация: 1479295   (872457) от 17.09.2021
+
+Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 1] (2015-2021) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_872457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка видеокурсов и других материалов по программированию и администрированию 1С за 2015-2021 года.
+В состав первой части подборки входят:
+1C Предприятие для программистов
+КонфигурированиеПроизводство: Верный старт в 1C и др.Жанр: 1С, программирование, администрированиеПродолжительность: ~00:10:00 видеоурок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5DD0FBE6B588957611ADF39BDA3868C4512C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089362   (870688) от 20.02.2017
+
+Geekbrains | Wordpress для профессионалов. Разработка темы оформления (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание сайта происходит в несколько этапов. После дизайна всех страниц сайта и верстки HTML макета необходимо выполнить ряд задач, без которых запуск сайта и его дальнейшее продвижение просто невозможны: создание разделов, наполнение контентом страниц сайта, настройка ключевых слов и параметров оптимизации, изменение и добавление новых материалов на сайт, администрирование (   Читать дальше...   )Производство: GeekbrainsЖанр: ВидеокурсПродолжительность: 16:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235043E922E80710C708D68ECC8770A977F97036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496775   (869364) от 19.09.2021
+
+Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869364.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе подготовки к экзамену LPIC-1 вы получите все необходимое для сдачи обоих экзаменов.
+На мастер-классе администратора Linux LPIC-1 вы получите более 27 часов видеоматериалов, 4 словаря, 2 рабочих тетради с почти 60 практическими задачами и 180 вопросами с несколькими вариантами ответов, которые также задаются на экзаменах. Конечно, курс охватывает текущую (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 27:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9317598A118E7D6864C6C0D5524BA71C58EEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496913   (867583) от 20.09.2021
+
+Институт прикладной автоматизации и программирования | Администрирование Linux (LPIC 1-3) (2014) WEB-DL
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_867583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Администрирование Linux (LPIC 1)
+Если организация, в которой вы работаете, серьезно задумывается о возможности перехода на платформу Linux, а вам не приходилось сталкиваться с работой по администрированию linux и предстоит администрирование linux с нуля, то курс Администрирование linux (LPIC1) будет для вас более чем актуален. Данный курс разработан на основе программ (   Читать дальше...   )Производство: Институт прикладной автоматизации и программированияЖанр: Администрирование, LinuxПродолжительность: 56:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3F8D1DC3F88AEA81FFB659A4B2CA411724FA77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497188   (865936) от 21.09.2021
+
+PythonYoga | Python/Django + React QR Digital Menu Builder (2021) WEB-DL [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделано для ресторанов, кафе, пабов и отелей. Ваши клиенты могут делать заказы со своего стола или со своего дивана дома.
+Почему QR-код для меню?
+COVID-19
+Экономьте на расходах на печать(   Читать дальше...   )Производство: PythonYogaЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497421   (864445) от 22.09.2021
 
 Pluralsight | Учебный курсы Pluralsight (2013-2021) PCRec [EN / EN Sub]
@@ -6,7 +144,7 @@ Pluralsight | Учебный курсы Pluralsight (2013-2021) PCRec [EN / EN S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864445.jpg" />
+  <img src="Z:/picture/008/save_picture_864445.jpg" />
 </div>
 
 
@@ -34,7 +172,7 @@ Udemy, Илья Фофанов | Программирование на C#: от 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864281.jpg" />
+  <img src="Z:/picture/008/save_picture_864281.jpg" />
 </div>
 
 
@@ -61,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862628.jpg" />
+  <img src="Z:/picture/008/save_picture_862628.jpg" />
 </div>
 
 
@@ -90,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862514.jpg" />
+  <img src="Z:/picture/008/save_picture_862514.jpg" />
 </div>
 
 
@@ -118,7 +256,7 @@ Geekbrains | Java. Практическое применение (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861826.jpg" />
+  <img src="Z:/picture/008/save_picture_861826.jpg" />
 </div>
 
 
@@ -146,7 +284,7 @@ Edwin Diaz, Coding Faculty Solutions | PHP for Beginners - Become a PHP Master -
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859972.jpg" />
+  <img src="Z:/picture/008/save_picture_859972.jpg" />
 </div>
 
 
@@ -172,7 +310,7 @@ ITVDN | iOS Developer (2015-2020) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859961.jpg" />
+  <img src="Z:/picture/008/save_picture_859961.jpg" />
 </div>
 
 
@@ -198,7 +336,7 @@ Jose Portilla | Complete Python Bootcamp: Go from zero to hero in Python 3 (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859863.jpg" />
+  <img src="Z:/picture/008/save_picture_859863.jpg" />
 </div>
 
 
@@ -226,7 +364,7 @@ Udemy, Anna Kuzina | Парсинг сайтов. Scrapy, Splash, Selenium, requ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859238.jpg" />
+  <img src="Z:/picture/008/save_picture_859238.jpg" />
 </div>
 
 
@@ -254,7 +392,7 @@ Skillbox, Павел Елисеев | Профессия Архитектор П
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859230.jpg" />
+  <img src="Z:/picture/008/save_picture_859230.jpg" />
 </div>
 
 
@@ -282,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857408.jpg" />
+  <img src="Z:/picture/008/save_picture_857408.jpg" />
 </div>
 
 
@@ -309,7 +447,7 @@ ProfIT | PHP. Уровень 2. Профессиональное програм�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856821.jpg" />
+  <img src="Z:/picture/008/save_picture_856821.jpg" />
 </div>
 
 
@@ -337,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856809.jpg" />
+  <img src="Z:/picture/008/save_picture_856809.jpg" />
 </div>
 
 
@@ -363,7 +501,7 @@ ITVDN | Видео курс Python Essential (2016) [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856797.jpg" />
+  <img src="Z:/picture/008/save_picture_856797.jpg" />
 </div>
 
 
@@ -389,7 +527,7 @@ ITVDN | Database Developer (2015-2019) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856336.jpg" />
+  <img src="Z:/picture/008/save_picture_856336.jpg" />
 </div>
 
 
@@ -417,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855347.jpg" />
+  <img src="Z:/picture/008/save_picture_855347.jpg" />
 </div>
 
 
@@ -443,7 +581,7 @@ Udemy | PHP OOP: Object Oriented Programming for beginners + Project Course Driv
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854602.jpg" />
+  <img src="Z:/picture/008/save_picture_854602.jpg" />
 </div>
 
 
@@ -471,7 +609,7 @@ CONTENTED | VR-разработчик. Разработки VR-приложен�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854584.jpg" />
+  <img src="Z:/picture/008/save_picture_854584.jpg" />
 </div>
 
 
@@ -497,7 +635,7 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853516.jpg" />
+  <img src="Z:/picture/008/save_picture_853516.jpg" />
 </div>
 
 
@@ -526,7 +664,7 @@ ITVDN | PHP Developer (2015-2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852900.jpg" />
+  <img src="Z:/picture/008/save_picture_852900.jpg" />
 </div>
 
 
@@ -552,7 +690,7 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852778.jpg" />
+  <img src="Z:/picture/008/save_picture_852778.jpg" />
 </div>
 
 
@@ -563,142 +701,6 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2223012944B786E010E48A7B66F15567CC80863A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375373   (852774) от 21.04.2020
-
-ITVDN | Python Developer (2015-2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python - это высокоуровневый язык программирования общего назначения, ориентированный на повышение производительности и читаемости кода.
-
-На сегодняшний день Python является одним из самых популярных языков программирования со стремительно растущим охватом сфер применения. Последние 5 лет он входит в ТОП-10 самых востребованных технологий на рынке IT.Производство: ITVDNЖанр: Программирование, PythonЯзык озвучки: РусскийПродолжительность: 78:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373656   (852772) от 21.04.2020
-
-ITVDN | Frontend Developer (2015-2020) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы в душе дизайнер, но любите программирование и верите, что будущее за internet-технологиями, для вас интересной будет специальность Frontend-разработчика, так как она требует некоторых творческих способностей и глубокой практической подготовки по web-программированию.Производство: ITVDNЖанр: Программирование, Frontend DeveloperЯзык озвучки: РусскийПродолжительность: 185:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0769769E1FF62D709EFC31B7A81ED59F05A74069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001841   (851716) от 29.03.2016
-
-Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс обучения Ruby on Rails с нуля. Книга + видео курс.
-Цель этой книги состоит в том, чтобы стать лучшим ответом на вопрос: “Если я хочу изучить веб-разработку на Ruby on Rails, с чего я должен начать?” К тому времени, когда вы завершите Ruby on Rails Tutorial, вы будете иметь все навыки, необходимые для разработки и разворачивания своих собственных веб-приложений (   Читать дальше...   )Жанр: Программирование, Ruby on RailsПродолжительность: 19:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABB87D3C1251A7875FAD12D203057042B62E7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001517   (851610) от 29.03.2016
-
-Специалист | Microsoft Excel 2013/2010. Уровень 3. Анализ и визуализация данных (2014) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя обучение на этом курсе, Вы повысите свой «словарный запас» встроенных функций MS Excel в рамках категории «Ссылки и массивы», а в совокупности с формулами массивов перед Вами откроются новые возможности обработки данных. Вы научитесь создавать нестандартные сложные диаграммы, которые помогут визуализировать данные, сделать их запоминающимися и легкими в управлении.Жанр: MS ExcelПродолжительность: 11:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128B0FBE79B55F357267E8479AF7B9DD842A8978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001711   (851609) от 29.03.2016
-
-LoftSchool | Комплексное обучение разработке на Android (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851609.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕМУ ВЫ НАУЧИТЕСЬ, ПРОЙДЯ КУРС:
-
-Создавать современные мобильные Android-приложения используя лучшие передовые инструменты и технологии.
-(   Читать дальше...   )Жанр: Android, Java, Git, SQLite и т.д.Продолжительность: 29:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

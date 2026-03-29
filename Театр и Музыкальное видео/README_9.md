@@ -1,3 +1,167 @@
+###  Публикация: 606776   (994037) от 24.01.2013
+
+Мастер и Кипелов - Концерт в клубе "Вояж" (1995) VHSRip [H264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игры не для нас
+02. Тореро
+03. Мечты
+04. Без тебя(   Читать дальше...   )Жанр: Концерт, Hard Rock, Heavy MetalПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4462753AFD1D48BCD69EBE0B6A65DCE9801831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608232   (993983) от 24.01.2013
+
+Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F770213C624E07B409C58831D3E3F9A0389BB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430635   (993615) от 02.01.2012
+
+Первый Новогодний вечер с Максимом Галкиным и Николаем Басковым (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год наступил! Впереди еще много выходных дней, а значит... продолжаем праздновать!
+Первые вечера нового 2012 года лучше всего провести в теплой компании с Максимом Галкиным и Николаем Басковым. Тем более что к ним в гости уже пришли Владимир Зеленский, Лолита, Ани Лорак, Дима Билан, Юрий Аскаров, Пьер Нарцисс, Владимир Данилец, Анна Семенович, Ефим Шифрин, (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD53D0ED1F0C499F7320658AB2FF4CF66A01E1C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430629   (993575) от 02.01.2012
+
+Ээхх, разгуляй (2012.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993575.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ээхх, Разгуляй!» — не просто шоу, а настоящий музыкальный марафон: грандиозное действо, сделанное по последнему слову техники со спецэффектами, видеоинсталляциями, номерами танцоров и акробатов, полное юмора и музыкальных сюрпризов.
+
+В этом году перед зрителями выступят самые яркие исполнители жанра шансон, а песенный репертуар состоит сплошь из хитов. В концерте (   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0585B87DDD27D086854ADC6AFBC3927B96A15310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430571   (993562) от 02.01.2012
+
+20 лучших песен 2011 года (2012.01.01) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993562.jpg" />
+</div>
+
+
+###  Подробнее
+
+В концерте прозвучат 20 самых лучших песен 2011 года. Первый канал и Национальный музыкальный портал "Красная звезда" собрали самых любимых артистов на одной сцене.
+
+Всеми любимая Ёлка, очаровательная Нюша, неподражаемый Дима Билан, группа "Градусы", стремительно ворвавшийся в чарты Артур Пирожков, трогательная певица Максим, эпатажная группа (   Читать дальше...   )Телекомпания: Жанр: КонцертПродолжительность: ~ 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11DCD5B493F82E3EFDBB4BD3EBE0AC5605E12E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352346   (993278) от 16.01.2020
+
+Весёлая Месса (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Глухов даёт развернутое интервью о своей группе, о Российской Национал-большевистской партии, революции и религии. Ему аккомпанируют музыкальные группы: Группа 418  и Тотальный Геноцид. В конце бабушка из АХСМСЗ даёт стриптиз!Производство: Смерчь-ИнфоЖанр: Chanson, Post-PunkПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C664D1164C1972C2043EF4BE132FEE04F5F49AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352242   (993219) от 16.01.2020
 
 Чёрный огонек (2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +170,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993219.jpg" />
 </div>
 
 
@@ -33,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993218.jpg" />
 </div>
 
 
@@ -62,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993151.jpg" />
 </div>
 
 
@@ -91,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993065.jpg" />
 </div>
 
 
@@ -121,7 +285,7 @@ Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992790.jpg" />
 </div>
 
 
@@ -147,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992565.jpg" />
 </div>
 
 
@@ -176,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992322.jpg" />
 </div>
 
 
@@ -202,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991733.jpg" />
 </div>
 
 
@@ -231,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991390.jpg" />
 </div>
 
 
@@ -260,7 +424,7 @@ David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991231.jpg" />
 </div>
 
 
@@ -286,7 +450,7 @@ Inna - Endless (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991229.jpg" />
 </div>
 
 
@@ -312,7 +476,7 @@ Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991157.jpg" />
 </div>
 
 
@@ -338,7 +502,7 @@ Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991153.jpg" />
 </div>
 
 
@@ -364,7 +528,7 @@ Linkin Park - Burn It Down (2012) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991112.jpg" />
 </div>
 
 
@@ -390,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990862.jpg" />
 </div>
 
 
@@ -420,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990828.jpg" />
 </div>
 
 
@@ -449,7 +613,7 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990343.jpg" />
 </div>
 
 
@@ -475,7 +639,7 @@ Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990253.jpg" />
 </div>
 
 
@@ -501,7 +665,7 @@ Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990225.jpg" />
 </div>
 
 
@@ -527,7 +691,7 @@ John Fogerty- Comin down The Road The Concert At Royal Albert Hall (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990204.jpg" />
 </div>
 
 
@@ -547,168 +711,6 @@ John Fogerty - американский певец, песенник и гита
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97127438F67D03F6531CE065FA9790929310786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610263   (990073) от 29.01.2013
-
-Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69B99EEF19938C5562DA4292E5E6E1BFBAF309E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432811   (989866) от 07.01.2012
-
-Blackmore's Night Live In Germany (1998) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Shadow Of The Moon
-02.The Clock Ticks On
-03.Play Ministrel Play
-04.Ministrel Hall(   Читать дальше...   )Жанр: Концерт, Folk-RockПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF7A5024B97B5FCCD7D8512FC6EFB778A6AB182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163001   (989306) от 04.01.2010
-
-Scorpions - Acoustica (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock balladsРежиссер: Руди Долезал/Rudi Dolezal, Ханна Роззахер/Hannes RossacherПеревод: ОригинальныйСубтитры: НемецкиеПродолжительность: 01:53:04 (+ бонус – 00:13:40)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610865   (989230) от 30.01.2013
-
-BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, ElectroПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3F5B74880FAF7514FB816B934E46B36BC256EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351791   (988865) от 21.01.2020
-
-Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклипы Lindemann (2015-2019)
-2015 -  Lindemann - Fish On (00:05:17)
-2015 -  Lindemann - Praise Abort (00:05:13)
-2018 -  Lindemann - Mathematik ft. Haftbefehl (00:04:06)(   Читать дальше...   )Жанр: Industrial Ural MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FE287C3553A80C3AAC43C461FAF655DD97F39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444348   (988699) от 21.01.2020
-
-Идеальное убийство / Московский театр Сатиры (2010) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странная история произошла в офисе - уборщица миссис Пайпер нашла труп, а затем он исчез. Миссис Пайпер берется за расследование: находит множество улик, количество трупов увеличивается, подозреваются все.Жанр: иронический детектив, спектакльРежиссер: Андрей ЖитинкинПродолжительность: 02:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCD88CA1B2A39F65A988F4979305638C2BE93A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861022   (1062171) от 
+
+Magisteria, Дмитрий Бугай | Хайдеггер. Диалог с древними греками (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мартин Хайдеггер — одна из самых важных фигур в философской мысли XX века. С его именем и деятельностью во многом связан поворот, определивший то, что сейчас обычно называется «континентальной философией». Хайдеггер в каком-то смысле является отцом-основателем континентальной философии. В одной немецкой книге о нём было сказано, что он Парменид континентальной философии: (   Читать дальше...   )Производство: MagisteriaЖанр: видеоурок, лекция, саморазвитие, философияЯзык озвучки: русскийПродолжительность: 01:05:39Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EE6CCA2F5BBA06FE912106FAC3FF0B04D9A922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858706   (1060556) от 12.03.2026
 
 vabrain, Вячеслав Дубынин | Мозг против ИИ: есть ли у нас шансы? (2026) PCRec [RU]
@@ -7,7 +33,7 @@ vabrain, Вячеслав Дубынин | Мозг против ИИ: есть 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060556.jpg" />
+  <img src="Z:/picture/005/save_picture_1060556.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Magisteria, Анна Пожидаева | Античная мифология в
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060207.jpg" />
+  <img src="Z:/picture/009/save_picture_1060207.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059176.jpg" />
+  <img src="Z:/picture/005/save_picture_1059176.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059010.jpg" />
+  <img src="Z:/picture/005/save_picture_1059010.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Magisteria, Дмитрий Бугай | Бог философов и учёны�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058834.jpg" />
+  <img src="Z:/picture/005/save_picture_1058834.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058250.jpg" />
+  <img src="Z:/picture/005/save_picture_1058250.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058249.jpg" />
+  <img src="Z:/picture/005/save_picture_1058249.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058248.jpg" />
+  <img src="Z:/picture/005/save_picture_1058248.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058247.jpg" />
+  <img src="Z:/picture/005/save_picture_1058247.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058066.jpg" />
+  <img src="Z:/picture/005/save_picture_1058066.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058065.jpg" />
+  <img src="Z:/picture/005/save_picture_1058065.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056959.jpg" />
+  <img src="Z:/picture/005/save_picture_1056959.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055356.jpg" />
+  <img src="Z:/picture/005/save_picture_1055356.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054085.jpg" />
+  <img src="Z:/picture/005/save_picture_1054085.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044455.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040714.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040325.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040272.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040214.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040209.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Chess.com | Achieving Full Board Awareness and Nirvana / Шахматы всле
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039987.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Masterclass | Кевин Спейси учит актерскому мастер
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039980.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039694.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Dustin Hoffman | Уроки актёрского мастерства от Да�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039443.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039437.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89C85279E1F0978852890E3CD45FFCE6B871FDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476229   (1039428) от 14.01.2021
-
-Порядок полной разборки и сборки ПМ (2011) SATRip
-
->>След.
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пистолет конструкции Н.Ф. Макарова (1914-1988) принят на вооружение в 1951 г. и серийно производился на Ижевском механическом заводе с 1954 г. Его конструкция скопирована с пистолета Вальтера ПП обр. 1929 г. Автоматика пистолета работает по принципу использования отдачи свободного затвора при неподвижном стволе. Пистолет довольно компактен, имеет меньшие, по сравнению (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 00:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8BEA872EC25A5BDF79EF066E8D61710727DA3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

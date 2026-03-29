@@ -1,3 +1,29 @@
+###  Публикация: 1583094   (314230) от 13.10.2022
+
+Ты - моё сокровище / Naegen neomu sojunghan neo / My Lovely Angel (2021) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волей случая холостой мужчина, который думает только о деньгах, становится опекуном маленькой девочки с нарушениями слуха и зрения.Производство: Южная Корея, Fine StoryЖанр: драма, семейныйРежиссер: Квон Сон-мо, Ли Чхан-вонАктеры: Чин Гу, Чон Со-ён, Чан Юн-джон, Кан Щин-иль, Чан Хе-джин, О Юн-су, Чан Сон-юль, Ким Джон-гу, Пан Ын-джонПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EC033849678CABC5C7B6F1040EA8EB35C2314E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076552   (313108) от 25.11.2016
 
 Старый телохранитель / Wo de te gong ye ye (2016) HDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313108.jpg" />
+  <img src="Z:/picture/008/save_picture_313108.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313007.jpg" />
+  <img src="Z:/picture/008/save_picture_313007.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312636.jpg" />
+  <img src="Z:/picture/008/save_picture_312636.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312200.jpg" />
+  <img src="Z:/picture/008/save_picture_312200.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311417.jpg" />
+  <img src="Z:/picture/008/save_picture_311417.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311122.jpg" />
+  <img src="Z:/picture/008/save_picture_311122.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311119.jpg" />
+  <img src="Z:/picture/005/save_picture_311119.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310930.jpg" />
+  <img src="Z:/picture/008/save_picture_310930.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310928.jpg" />
+  <img src="Z:/picture/008/save_picture_310928.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310495.jpg" />
+  <img src="Z:/picture/008/save_picture_310495.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309687.jpg" />
+  <img src="Z:/picture/008/save_picture_309687.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309614.jpg" />
+  <img src="Z:/picture/008/save_picture_309614.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309028.jpg" />
+  <img src="Z:/picture/008/save_picture_309028.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307235.jpg" />
+  <img src="Z:/picture/008/save_picture_307235.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306032.jpg" />
+  <img src="Z:/picture/008/save_picture_306032.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305909.jpg" />
+  <img src="Z:/picture/008/save_picture_305909.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304169.jpg" />
+  <img src="Z:/picture/008/save_picture_304169.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301923.jpg" />
+  <img src="Z:/picture/008/save_picture_301923.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301774.jpg" />
+  <img src="Z:/picture/008/save_picture_301774.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295569.jpg" />
+  <img src="Z:/picture/008/save_picture_295569.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292652.jpg" />
+  <img src="Z:/picture/008/save_picture_292652.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292521.jpg" />
+  <img src="Z:/picture/008/save_picture_292521.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292519.jpg" />
+  <img src="Z:/picture/008/save_picture_292519.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290551.jpg" />
+  <img src="Z:/picture/008/save_picture_290551.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289657.jpg" />
+  <img src="Z:/picture/008/save_picture_289657.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64C5FFA4B6BE24EADFAAA82D9E735E077F3A5DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733510   (287179) от 12.12.2013
-
-Восточные кондоры / Eastern condors / Dung fong tuk ying (1987) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда американцы покидали Вьетнам, был оставлен секретный запас ракет и стратегического оружия, который не обнаружила вьетнамская армия. В 1976 году полковник армии США Лам получает задание уничтожить склад, прежде чем ракеты попадут в руки врага. Он набирает команду из китайских и вьетнамских заключенных. Всем, кто уцелеет, обещана свобода. После десантирования (   Читать дальше...   )Производство: ГонконгЖанр: Боевик, Драма, ВоенныйРежиссер: Саммо Хунг Кам-БоАктеры: Саммо Хунг Кам-Бо, Юэнь Бяо, Джойс Годензи, Лунг Чан, Квок Кеунг, Чеун-Лам, Кар Лок, Чм Ян, Чинг-Инг, Лан Гуанг, Анджело Мао, Джеймс Тиен, Ван Юэн, Юэнь Ву-Пинг, Лэм Чинг-Инг, Дик Вэй, Кори ЮэнПеревод: Одноголосый закадровый (Александр Кашкин)Продолжительность: 01:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B3469D9DEFEACD1AFA645583FB4254C1F8A0BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Tenorshare Any Data Recovery Pro 6.0.0.0 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716040.jpg" />
+  <img src="Z:/picture/008/save_picture_716040.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soft Organizer 5.10 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716028.jpg" />
+  <img src="Z:/picture/008/save_picture_716028.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ProduKey 1.90 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715973.jpg" />
+  <img src="Z:/picture/008/save_picture_715973.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adguard 6.2.356.1877 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715971.jpg" />
+  <img src="Z:/picture/008/save_picture_715971.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soft Organizer 5.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715952.jpg" />
+  <img src="Z:/picture/008/save_picture_715952.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715951.jpg" />
+  <img src="Z:/picture/008/save_picture_715951.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ pdfFactory Pro 5.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715945.jpg" />
+  <img src="Z:/picture/008/save_picture_715945.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox 47.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715943.jpg" />
+  <img src="Z:/picture/008/save_picture_715943.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VSO ConvertXToDVD 4.1.17.362 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715929.jpg" />
+  <img src="Z:/picture/005/save_picture_715929.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2013 SP1 Select Edition 15.0.4919.1002 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715865.jpg" />
+  <img src="Z:/picture/008/save_picture_715865.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Windows 10 PE (x86/x64) v.4.9.2 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715860.jpg" />
+  <img src="Z:/picture/008/save_picture_715860.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Wise Registry Cleaner Pro 9.5.5.625 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715851.jpg" />
+  <img src="Z:/picture/008/save_picture_715851.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AudioGrail 7.11.0.214 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715849.jpg" />
+  <img src="Z:/picture/008/save_picture_715849.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ ActivePresenter Professional Edition 7.2.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715845.jpg" />
+  <img src="Z:/picture/008/save_picture_715845.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Display Driver Uninstaller 16.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715841.jpg" />
+  <img src="Z:/picture/008/save_picture_715841.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Aiseesoft Video Converter Ultimate 9.0.20 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715838.jpg" />
+  <img src="Z:/picture/008/save_picture_715838.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ TeamViewer 12.0.77242 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715761.jpg" />
+  <img src="Z:/picture/008/save_picture_715761.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.10.25017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715757.jpg" />
+  <img src="Z:/picture/008/save_picture_715757.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715738.jpg" />
+  <img src="Z:/picture/008/save_picture_715738.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ PrivaZer 3.0.45 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715737.jpg" />
+  <img src="Z:/picture/008/save_picture_715737.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PrivaZer 3.0.45 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715736.jpg" />
+  <img src="Z:/picture/008/save_picture_715736.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Comodo Dragon 50.14.22.465 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715717.jpg" />
+  <img src="Z:/picture/008/save_picture_715717.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FinePrint 8.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715709.jpg" />
+  <img src="Z:/picture/008/save_picture_715709.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Dism++ 10.1.5.9 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715636.jpg" />
+  <img src="Z:/picture/008/save_picture_715636.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ WizTree 3.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715624.jpg" />
+  <img src="Z:/picture/008/save_picture_715624.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Advanced Installer 13.0 Build 70330 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715614.jpg" />
+  <img src="Z:/picture/008/save_picture_715614.jpg" />
 </div>
 
 

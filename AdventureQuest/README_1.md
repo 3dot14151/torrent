@@ -1,3 +1,81 @@
+###  Публикация: 1848500   (1052659) от 17.01.2026
+
+Письма войны / Letters of War (2025) [Ru/Multi] (1.3.5) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Письма войны - приключенческая драмa, вдохновлённая реальной историей и являющаяся духовной наследницей Valiant Hearts: The Great War. Помогите британскому плотнику не потерять связь с дочерью во время Второй мировой. Свяжите их судьбы с помощью писем.Тип издания: RepackРазработчик: Wood Cabin GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0779BBD2EA0B5551A1A9506992A838C1A57D8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847623   (1052280) от 13.01.2026
+
+Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosium, InfogramesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847371   (1052072) от 11.01.2026
+
+Keeper (2025) [Ru/Multi] (1218000) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Keeper от Ли Петти и Double Fine Productions - это красивое приключение за гранью реальности, рассказанное без слов. Где-то посреди затерянного моря стоит остров, на котором в тени далекой горы дремлет забытый маяк. Но когда увядающие лозы разрастаются и обретают форму, он пробуждается, чувствуя, что его что-то гонит вперед. Так начинается история о необычной (   Читать дальше...   )Тип издания: RepackРазработчик: Double Fine ProductionsЖанр: Приключенческие игрыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7F9750BC01BD6E4BCF39F2A48AC237F46E4FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847387   (1052054) от 12.01.2026
 
 Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
@@ -6,7 +84,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052054.jpg" />
+  <img src="Z:/picture/005/save_picture_1052054.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Not an Aim Trainer (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051989.jpg" />
+  <img src="Z:/picture/005/save_picture_1051989.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Island Notes (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051976.jpg" />
+  <img src="Z:/picture/005/save_picture_1051976.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Flushed (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051935.jpg" />
+  <img src="Z:/picture/005/save_picture_1051935.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Chiral (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051934.jpg" />
+  <img src="Z:/picture/005/save_picture_1051934.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Onirism (2025) [Ru/Multi] (Build 21313783) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051624.jpg" />
+  <img src="Z:/picture/005/save_picture_1051624.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Emissary Zero (2025) [Ru/Multi] (1.2.3) Scene Tenoke [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051618.jpg" />
+  <img src="Z:/picture/005/save_picture_1051618.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Isopod: A Webbed Spin-off (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051456.jpg" />
+  <img src="Z:/picture/005/save_picture_1051456.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ DREAMOUT (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051356.jpg" />
+  <img src="Z:/picture/005/save_picture_1051356.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Scarred (2025) [Multi] (1.25) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050982.jpg" />
+  <img src="Z:/picture/005/save_picture_1050982.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050795.jpg" />
+  <img src="Z:/picture/005/save_picture_1050795.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (1.0)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050794.jpg" />
+  <img src="Z:/picture/005/save_picture_1050794.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 21053667) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050525.jpg" />
+  <img src="Z:/picture/005/save_picture_1050525.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Bendy and the Dark Revival (2022) [Ru/Multi] (1.0.4.0332) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050496.jpg" />
+  <img src="Z:/picture/005/save_picture_1050496.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050366.jpg" />
+  <img src="Z:/picture/005/save_picture_1050366.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050210.jpg" />
+  <img src="Z:/picture/005/save_picture_1050210.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The House in Fata Morgana (2016) [Ru/Multi] (1.3it) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049861.jpg" />
+  <img src="Z:/picture/005/save_picture_1049861.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Fuzz Dungeon (2021) [En] (1.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049848.jpg" />
+  <img src="Z:/picture/005/save_picture_1049848.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ JEF (2020) [En] (1.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049833.jpg" />
+  <img src="Z:/picture/005/save_picture_1049833.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Rue Valley (2025) [Ru/Multi] (1.1.0v11/dlc) Repack Necros [Digital Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049797.jpg" />
+  <img src="Z:/picture/005/save_picture_1049797.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Heroes of Loot 2 (2016) [En] (1.5.2b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049641.jpg" />
+  <img src="Z:/picture/005/save_picture_1049641.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Panicore (2024) [Ru/Multi] (1.3) Repack FitGirl [Supporter Pack]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049438.jpg" />
+  <img src="Z:/picture/008/save_picture_1049438.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Panicore (2024) [Ru/Multi] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049437.jpg" />
+  <img src="Z:/picture/008/save_picture_1049437.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Panicore бросает вас в кошмар в роли городских и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0734C74EAA6B7342BE208ABCC59D00E4C1007FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843429   (1049409) от 20.12.2025
-
-Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uncanny Tales - эпизодический хоррор, где самое страшное прячется не в монстрах или мистике, а в самих людях. Каждая история - это новый пугающий эпизод, вдохновлённый реальными страхами и жуткими ситуациями из жизни. Uncanny Tales: 1992 - Второй эпизод серии. Антон, 14-летний подросток, вместе с родителями переезжает в небольшой провинциальный город. Времени на (   Читать дальше...   )Тип издания: RepackРазработчик: VYASTUDIOЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75720674CF1C084075AEF137022C4FAFE66EB082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843485   (1049395) от 20.12.2025
-
-Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карио Ито прибывает в деревню, дабы навестить родственников, но это светлое место из воспоминаний очернили ужасные существа, бродящие по улицам в поисках свежей плоти. Героине предстоит пробиться к истине сквозь паутину кошмаров, использовать с умом окружение, перемещаясь между реальным миром и потусторонним Отражением. Наслаждайтесь сочетанием ретро-графики и современного (   Читать дальше...   )Тип издания: RepackРазработчик: Spectra teamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C04874CA3750D13711A3A001B31B12E887E90A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843482   (1049394) от 20.12.2025
-
-Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049394.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Mourningwood Lodge уединённая вилла становится местом проведения древнего, зловещего ритуала. Игрок берёт на себя роль наследника секты Фансянь Дао, оказавшись втянутым в продуманный заговор. Обвинённому в убийстве главному герою предстоит объединиться с другими обитателями, чтобы выжить и найти путь к спасению. Основная задача - сорвать церемонию, продвигаясь (   Читать дальше...   )Тип издания: SceneРазработчик: MYSTERY CROWN, 火蜥蜴文化Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D07178653C47D291066E31EFDEFD1752669ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

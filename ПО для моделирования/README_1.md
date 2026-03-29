@@ -1,3 +1,83 @@
+###  Публикация: 972119   (982631) от 05.01.2016
+
+MakeHuman 1.0.2 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982631.jpg" />
+</div>
+
+
+###  Подробнее
+
+MakeHuman (МэйкХуман) — программный пакет с открытым исходным кодом, предназначен для прототипирования фотореалистичных гуманоидных персонажей, которые в дальнейшем используются в 3D графике. Название MakeHuman — это производное от двух слов «Make» и «Human», в переводе с английского Make — делать, Human — человек, получаем дословно «Make Human» — «Делать Людей».Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9321D78A484C12834111DD2A2484A736EB56AEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359516   (963948) от 12.02.2020
+
+Aviz Studio ATiles Pro 2.62 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963948.jpg" />
+</div>
+
+
+###  Подробнее
+
+ATiles - это скрипт для создания кровли крыши, плитки пола, кирпичных стен, заборов и многое другое. В комплекте со скриптом идут некоторые модели покрытия, но так же имеется возможность использовать для "размножения" и собственную модель (к примеру черепицы...).Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70185AB8E4BF1616562474E1CDF8A4099373A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979657   (958098) от 27.01.2016
+
+Planetside Terragen 3.3.03.0 Pro Plus Animation [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terragen — программа ландшафтного моделирования и анимации, позволяющая создавать фотореалистичные пейзажи. Существуют как бесплатная, так и коммерческая версии программы. Бесплатная версия имеет некоторые ограничения по сравнению с коммерческой.
+
+Программа позволяет генерировать и модифицировать ландшафт как двухмерную карту высот. Ввиду того, что карта высот генерируется (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A535F31CF65E4E829794B0526E1023AF4A6CB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363073   (945058) от 26.02.2020
 
 V-RayMtl Converter 3 3.97 [En]
@@ -6,7 +86,7 @@ V-RayMtl Converter 3 3.97 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945058.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Quick Stitch v1.0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888131.jpg" />
+  <img src="Z:/picture/005/save_picture_888131.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Soulburn scripts pack v.112 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884202.jpg" />
+  <img src="Z:/picture/005/save_picture_884202.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ V-ray 5.10.22 Cinema 4D R20-R24 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883731.jpg" />
+  <img src="Z:/picture/005/save_picture_883731.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ FD UVToolkit 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876424.jpg" />
+  <img src="Z:/picture/005/save_picture_876424.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Noise Scape v.2 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874096.jpg" />
+  <img src="Z:/picture/008/save_picture_874096.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ Motion Drop 1.5 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868536.jpg" />
+  <img src="Z:/picture/008/save_picture_868536.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ WTools3D LWCAD v2018.31 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868525.jpg" />
+  <img src="Z:/picture/008/save_picture_868525.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ City Rig 2.13 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868523.jpg" />
+  <img src="Z:/picture/008/save_picture_868523.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Aurora 3D Animation Maker 16.01070843 Portable by PortableAppС [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862069.jpg" />
+  <img src="Z:/picture/008/save_picture_862069.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ Aurora 3D Animation Maker 16.03230029 RePack & Portable (x86) by FoXtrot [Multi/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860407.jpg" />
+  <img src="Z:/picture/008/save_picture_860407.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ Vertex Normal Tool v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858356.jpg" />
+  <img src="Z:/picture/008/save_picture_858356.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ NextLimit RealFlow 3.1.1.0026 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844121.jpg" />
+  <img src="Z:/picture/008/save_picture_844121.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ X-Particles 2.1 Build 08 Pro [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818701.jpg" />
+  <img src="Z:/picture/008/save_picture_818701.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ IKMAX v1.0b for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816932.jpg" />
+  <img src="Z:/picture/008/save_picture_816932.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ HDR Light Studio 5.4.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812559.jpg" />
+  <img src="Z:/picture/008/save_picture_812559.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ Autodesk Entertainment Creation Suite Ultimate 2016 (x64) [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812501.jpg" />
+  <img src="Z:/picture/008/save_picture_812501.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ Simulation Lab Software SimLab Composer 8 8.2.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811441.jpg" />
+  <img src="Z:/picture/008/save_picture_811441.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ Folding Title GENERATOR 1-0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808653.jpg" />
+  <img src="Z:/picture/008/save_picture_808653.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ Vectric Aspire 8.517 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799969.jpg" />
+  <img src="Z:/picture/008/save_picture_799969.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ Toporizer 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797737.jpg" />
+  <img src="Z:/picture/008/save_picture_797737.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ Quixel Suite 2.3.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792603.jpg" />
+  <img src="Z:/picture/008/save_picture_792603.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ UVlayout Professional 2.09.04 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786900.jpg" />
+  <img src="Z:/picture/008/save_picture_786900.jpg" />
 </div>
 
 
@@ -593,85 +673,6 @@ UVLayout - это самостоятельное приложение для с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D4D043BBA04A43E8865253D1B902D55C8E82B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122853   (786424) от 07.04.2017
-
-ArCon Eleco Professional 2012.01 [De]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа ArCon Eleco +2012 предназначена для профессионального дизайна, проектирования и трехмерной визуализации.
-ArCon представляет собой ультрасовременный инструмент для строительства, и поэтому он так популярен среди тех, кто хочет создать, усовершенствовать либо изменить окружающее пространство. Ведь теперь можно увидеть конечный результат уже на стадии проектирования, (   Читать дальше...   )Язык интерфейса: Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505CC0425EF32FC79CECB075341223BCF41253C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205567   (783426) от 10.02.2018
-
-NewTek Lightwave 3D 2018.0.1 Build 3064 + Content [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783426.jpg" />
-</div>
-
-
-###  Подробнее
-
-LightWave 3D сочетает в себе продвинутую визуализацию с мощным, интуитивно понятным моделированием и средствами анимации . Инструменты, которые могут стоить больших затрат в других профессиональных 3D приложениях, здесь уже входят в комплект поставки. LightWave используются во всем мире, как полное 3D решение для производства художественного фильма и телевизионных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E30B3CEBD7E4CF489757E29AEF71AA3E3133A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206213   (782405) от 13.02.2018
-
-Next Limit RealFlow 10.1.2.0162 + Plugins [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782405.jpg" />
-</div>
-
-
-###  Подробнее
-
-RealFlow - это отраслевой стандарт для моделирования жидкости, быстрый и простой в использовании, он совместим со всеми основными 3D платформами для создания как безупречно крупных потоков, так и мелких потоков жидкостей быстро и легко! Программа лидер на мировом рынке в создании жидкостей и их анимации.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3705606E7A540580055640DEC372DB1EA00240
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Macrorit Partition Expert 5.8.5 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798669.jpg" />
+  <img src="Z:/picture/008/save_picture_798669.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infix PDF Editor Pro 7.3.2 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798658.jpg" />
+  <img src="Z:/picture/008/save_picture_798658.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Softperfect Network Scanner 7.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798653.jpg" />
+  <img src="Z:/picture/008/save_picture_798653.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skype 8.78.0.159 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798634.jpg" />
+  <img src="Z:/picture/008/save_picture_798634.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chromium 95.0.4638.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798628.jpg" />
+  <img src="Z:/picture/008/save_picture_798628.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798627.jpg" />
+  <img src="Z:/picture/008/save_picture_798627.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798625.jpg" />
+  <img src="Z:/picture/008/save_picture_798625.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ AVS Video Software 11.9.6.12 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798623.jpg" />
+  <img src="Z:/picture/008/save_picture_798623.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bongiovi Acoustics DPS Audio Enhancer 2.2.1.1 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798621.jpg" />
+  <img src="Z:/picture/008/save_picture_798621.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ R.saver 8.17 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798594.jpg" />
+  <img src="Z:/picture/008/save_picture_798594.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ MediaHuman YouTube Downloader 3.9.9.62 (0111) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798586.jpg" />
+  <img src="Z:/picture/008/save_picture_798586.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AOMEI Partition Assistant Technician Edition 9.5.0 RePack by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798538.jpg" />
+  <img src="Z:/picture/008/save_picture_798538.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Adobe Illustrator 2022 26.0.1.731 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798499.jpg" />
+  <img src="Z:/picture/008/save_picture_798499.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Opera GX 80.0.4170.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798484.jpg" />
+  <img src="Z:/picture/008/save_picture_798484.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PrivaZer 4.0.33 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798466.jpg" />
+  <img src="Z:/picture/008/save_picture_798466.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Waterfox Current G4.0.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798451.jpg" />
+  <img src="Z:/picture/008/save_picture_798451.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ RogueKiller Anti-Malware 15.1.2 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798448.jpg" />
+  <img src="Z:/picture/008/save_picture_798448.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ WizTree 4.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798433.jpg" />
+  <img src="Z:/picture/008/save_picture_798433.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ NIUBI Partition Editor 7.6.5 Professional / Technician / Server / Enterprise Edi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798431.jpg" />
+  <img src="Z:/picture/008/save_picture_798431.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PrivaZer 4.0.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798429.jpg" />
+  <img src="Z:/picture/008/save_picture_798429.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Firefox Browser 94.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798428.jpg" />
+  <img src="Z:/picture/008/save_picture_798428.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PC Cleaner Pro 8.1.0.18 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798417.jpg" />
+  <img src="Z:/picture/008/save_picture_798417.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2189 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798416.jpg" />
+  <img src="Z:/picture/008/save_picture_798416.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Opera 81.0.4196.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798410.jpg" />
+  <img src="Z:/picture/008/save_picture_798410.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Whale Browser 2.11.126.23 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798409.jpg" />
+  <img src="Z:/picture/008/save_picture_798409.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ O&O DiskImage Professional Edition 17.0 Build 424 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798387.jpg" />
+  <img src="Z:/picture/008/save_picture_798387.jpg" />
 </div>
 
 

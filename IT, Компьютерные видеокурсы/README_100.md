@@ -1,3 +1,138 @@
+###  Публикация: 1086587   (141505) от 29.12.2016
+
+Специалист | Язык программирования C# 6.0 (2016) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования C# - один из самых востребованных и динамично развивающихся языков программирования в отрасли IT, который используется для разработки приложений на платформе Microsoft .Net.
+
+Окончив авторский курс «Язык программирования C# 6.0», Вы освоите объектно-ориентированный язык программирования C# 6.0, научитесь использовать интегрированную среду разработки (   Читать дальше...   )Жанр: Программирование, C#Продолжительность: 17:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9077F5BD9E251CF924C6B22829E342BFE6D83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678900   (141398) от 23.11.2023
+
+Amigoscode, Nelson | Microservices and Distributed Systems Updated 3 (2022) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микросервисы и распределенные системы. Создание и развертывание микросервисов с нуля.
+Будьте на шаг впереди отрасли с помощью микросервисной архитектуры
+Изучите самые передовые подходы к созданию масштабируемых и надежных систем.
+(   Читать дальше...   )Производство: AmigoscodeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:28:25Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B76C8D7ABF59C7995A877A80112DBD40DA6B85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678988   (141375) от 23.11.2023
+
+George Moller | 100+ React Infographics (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усильте свой путь во фронтенд с 100+ информативными инфографиками для создания исключительных веб-приложений! Инфографики по React и видео-анимации научат вас за несколько минут тому, чему большинство книг научат вас несколько дней! Вы получите более 40 видео-анимаций в высоком разрешении, а также красивый PDF с более чем 100 невероятно наглядными инфографиками. (   Читать дальше...   )Производство: GumroadЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC855918B54539F0E8F81C5B49990F2E8BE435C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195506   (141244) от 29.12.2017
+
+Роман Якобчук | Продвинутый курс по React.JS (2017) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс рассчитан на людей с опытом работы на React. Здесь мы будем учиться использовать экосистему React для решения стандартных задач: testing, drag-n-drop, lazy-loading, grids, forms и т.д. Разберем продвинутые варианты композиции редюсеров и работы с сайд-эффектами в Redux, будем работать с redux-saga. Изучим альтернативные подходы к слою бизнес-логики, детально (   Читать дальше...   )Производство: javascript.ruЖанр: Программирование, JavaScript, React.jsПродолжительность: 13:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048BDE20EA386400CAD566B59506C14B40D91816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678862   (141237) от 23.11.2023
+
+JUG Ru Group | PiterPy 2023. Конференция для тех, кто пишет на Python и использует его в работе (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики, дата-инженеры, дата-аналитики, ML-инженеры, тестировщики и тимлиды обсуждали новые подходы в работе на Python и экосистему вокруг него. Участники конференции дискутировали о производительности, управлении зависимостями, новых инструментах и фреймворках. Кроме технических докладов в программе были дискуссии, интервью и воркшопы.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 32:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03790CA8ADB7C5CB9ECAD41AF6958DA12F0FB261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195327   (141209) от 29.12.2017
 
 Нетология | Node, AngularJS и MongoDB: разработка полноценных веб-приложений (2017) PCRec [H.264/720p-LQ]
@@ -6,7 +141,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141209.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ Udemy | Высокая доступность Exchange Server (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140999.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ Udemy, Dmytro Mezhenskyi | Производительный бэкэнд GraphQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140951.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ Udemy | Поиск и устранение неисправностей Exchange
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140858.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ Udemy, Dmitry Soshnikov | Алгоритмы Синтаксического Ан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140803.jpg" />
 </div>
 
 
@@ -137,7 +272,7 @@ Udemy | Администрирование Azure Active Directory (2019) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140608.jpg" />
 </div>
 
 
@@ -163,7 +298,7 @@ Udemy | Настройка и управление Windows Server 2016 S2D (2018
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140428.jpg" />
 </div>
 
 
@@ -189,7 +324,7 @@ Udemy, Brad Traversy и др. | 50 проектов за 50 дней - HTML, CSS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140261.jpg" />
 </div>
 
 
@@ -218,7 +353,7 @@ Geekbrains | Frontend-разработчик. Часть 3 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140078.jpg" />
 </div>
 
 
@@ -246,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139989.jpg" />
 </div>
 
 
@@ -274,7 +409,7 @@ CodeWithMosh, Mosh Hamedani | Complete Python Mastery (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139892.jpg" />
 </div>
 
 
@@ -302,7 +437,7 @@ OTUS, Алексей Воронец | Scala-разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139839.jpg" />
 </div>
 
 
@@ -328,7 +463,7 @@ FrontendMasters, Erik Reinert | Enterprise Cloud Infrastructure (2023) WEB-DL [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139592.jpg" />
 </div>
 
 
@@ -356,7 +491,7 @@ Udemy, Hussein Nasser | Discovering Backend Bottlenecks: Unlocking Peak Performa
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139484.jpg" />
 </div>
 
 
@@ -383,7 +518,7 @@ JUG Ru Group | VideoTech 2023. Конференция по технология�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139466.jpg" />
 </div>
 
 
@@ -409,7 +544,7 @@ Infostart | Tech Event (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139313.jpg" />
 </div>
 
 
@@ -438,7 +573,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый Jav
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139240.jpg" />
 </div>
 
 
@@ -464,7 +599,7 @@ TalkPython, Christopher Trudeau | HTMX + Django: Modern Python Web Apps, Hold th
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139116.jpg" />
 </div>
 
 
@@ -491,7 +626,7 @@ Udemy, Mumshad Mannambeth | Linux Foundation Certified Systems Administrator - L
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139002.jpg" />
 </div>
 
 
@@ -517,7 +652,7 @@ Swiftbook, Кирилл Леонов | Профессия Middle iOS-разра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138875.jpg" />
 </div>
 
 
@@ -543,7 +678,7 @@ itgid | React. Lite Level (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138856.jpg" />
 </div>
 
 
@@ -555,138 +690,6 @@ itgid | React. Lite Level (2019) PCRec [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E436276CB2AB2C46257887DC7C40D1C418B060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349127   (138834) от 30.12.2019
-
-MonsterLessons | React Hooks - Пишем Реальный Проект с Нуля (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы создадим клон сайта Medium используя React и React hooks. Этот курс полностью сфокусирован на быстром и глубоком погружении в создание реального приложения с Реакт и хуками. Мы начнем с нуля и шаг за шагом дойдем до законченного приложения. Мы глубоко разберемся как структурировать приложение, создавать переиспользуемые и понятные хуки и компоненты (   Читать дальше...   )Производство: Александр КочергинЖанр: Программирование, ReactПродолжительность: 07:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEECF73B4DCE647308913BB94DC1ECE3CDF97B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349129   (138645) от 30.12.2019
-
-Udemy| Создание административной панели на React.js + PHP (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс направлен на практическое изучение того, как создать административную панель для статических сайтов в виде web приложения. Вы получите весь материал для работы и мы вместе будем создавать реальный fullstack (frontend + backend) проект шаг за шагом. Как итог курса - у вас будет готовый продукт, который можно использовать в своей работе, предлагать заказчикам (   Читать дальше...   )Производство: UdemyЖанр: Программирование, React.js, PHPПродолжительность: 08:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1249BB4F73B2E93F4115091E7187DB4D7CBAA4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349103   (138617) от 30.12.2019
-
-Сергей Черненко | Python для SEO специалиста (2018-2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс Python для SEO специалиста - это курс программирования с практическим уклоном на решение SEO задач. Курс включает базовые и продвинутые темы. На данный курс можно записаться как снуля так и имея базовые знания в программировании, но вам обязательно нужно быть сеошником. После прохождения курса вы сможете реализовать любую свою идею самостоятельно: написать парсер, (   Читать дальше...   )Жанр: Программирование, SEO, PythonПродолжительность: 75:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A1099047DC9FFA3CF39CFD8E516EE7C8F1620D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349088   (138589) от 30.12.2019
-
-HTML Academy | Профессиональный онлайн-курс JavaScript [Уровень 3] (ноябрь 2019) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138589.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь делать настоящие проекты, такие же по уровню сложности, как в индустрии. И будете делать их правильно, чтобы после обучения выдавать результат высокого уровня, за который компании готовы платить.Производство: Игорь Алексеенко, Александр СушкоЖанр: Программирование, JavaScript, ReactПродолжительность: 18:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679422   (137581) от 25.11.2023
-
-Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объединение технологий с некоторыми нишевыми областями — верный способ выделиться из толпы!
-Если вы имеете опыт работы с ГИС и думаете, что сможете добиться успеха в своей карьере, изучив веб-разработку ГИС, этот курс для вас.
-Не волнуйтесь, даже если вы не имеете опыта работы с CS: я рассмотрел все: от базовых HTML-страниц до создания полноценного отраслевого стандартного (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 ```
 
 https://mybot314.ru/tekegram_catalog/

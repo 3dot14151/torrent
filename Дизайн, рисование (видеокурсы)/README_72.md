@@ -1,3 +1,32 @@
+###  Публикация: 1647532   (195537) от 19.07.2023
+
+KkartSchool, Карина Кино | Акварельная иллюстрация (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря этому невероятно красивому и эстетичному курсу вы научитесь с нуля работать акварелью и в стиле «Смешанная техника».
+
+Этот курс настолько красивый, что вам захочется смотреть и пересматривать его, как любимый сериал.
+(   Читать дальше...   )Производство: KkartSchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 06:16:45Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF882DFA5499B4B45518C8387A4B889234A1C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647516   (195525) от 19.07.2023
 
 Granich.Design, Вадим Гранич | Графдизайн Копирайтинга. Тариф Видеоформат (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Granich.Design, Вадим Гранич | Графдизайн Копирайт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195525.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195510.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195508.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195507.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195495.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Vertexschool, Emiel Sleegers | Creating Cinematic Environments in Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195482.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195476.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ Digital Art Club, Роман Brumel | Анатомия. Легко! И без б
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195468.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ SmartUP, Кирилл Дёмин | Нейросети для соцсетей (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195467.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Hudozhnik Online, Дарья Куцаева, Екатерина Бердюгин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195439.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195431.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ Domestika, Giorgio Macellari | Motion Design with Unreal Engine 5 (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195422.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195417.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ The Gnomon Workshop, Madhav Shyam | Introduction to Ziva VFX - Volume 1 (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195416.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ The Gnomon Workshop, Miguel Perez Senent | Large-Scale Water Fx In Houdini (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195394.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ The Gnomon Workshop, Giovani Magana | Creating Assets & Architecture for Game En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195382.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Cloudlessons, Елена Минакова, Стас Новиков, Андрей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195363.jpg" />
 </div>
 
 
@@ -460,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195338.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195335.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ The Gnomon Workshop, Rodrigo Brea | Stylized Environment Creation for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195331.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Learnsquared, Ash Thorp | HUD Design (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195324.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Kaplanschool, Алексей Жалибо | Линейный скетчинг 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195321.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ KkartSchool, Карина Кино | Создание паттерна (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195312.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Learnsquared, Tim Zarki | Industrial Design Foundations (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195300.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Blender Bros | Rendering University - Platinum (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195223.jpg" />
 </div>
 
 
@@ -672,34 +701,6 @@ Blender Bros | Rendering University - Platinum (2022) WEB-DL [EN / EN Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21864594B7793E1F401E5DD8F10A0E1891D2A30F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649423   (195181) от 27.07.2023
-
-Hudozhnik Online, Полина Абдулаева | Создание комикса (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь рассказывать истории в картинках! Курс о создании комикса от Полины Абдулаевой подойдет людям с разным уровнем подготовки. На занятиях вы научитесь рисовать персонажей и окружение, обложки и развороты, узнаете приемы, которые позволяют управлять вниманием зрителя.
-
-Программа состоит из подробной теоретической части и практических заданий, вдохновленных (   Читать дальше...   )Производство: Hudozhnik OnlineЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 19:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111C60493DE1DBE96B8EEE1EE5B69E223DA3C563
 ```
 
 https://mybot314.ru/tekegram_catalog/

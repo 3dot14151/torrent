@@ -1,3 +1,109 @@
+###  Публикация: 1573051   (417250) от 29.08.2022
+
+Hides 5.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте производительность с помощью HidesТип издания: macOS SoftwareРелиз состоялся: 27.08.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C848B3EE8B88AC6316F54EC91B322AA20F110F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572991   (417249) от 29.08.2022
+
+Smart Converter Pro 3 v.3.1.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
+Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2022Разработчик: © 2022 Systemic Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439F98909B9B93FBCA59EDF9B99E6544D20510DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167436   (417197) от 20.09.2017
+
+Hands Off! 3.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D21F6CC2D34B185418B30E854093772B4DF8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573041   (417123) от 29.08.2022
+
+Wattagio 1.13 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 26.08.2022Разработчик: © Volodymyr NehodovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37FFA55EBBFCD2D73E9B2131ABA9C634A382A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573048   (417116) от 29.08.2022
 
 BBEdit 14.5.2 [En]
@@ -6,7 +112,7 @@ BBEdit 14.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417116.jpg" />
+  <img src="Z:/picture/008/save_picture_417116.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Elmedia Player Pro 8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417115.jpg" />
+  <img src="Z:/picture/008/save_picture_417115.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Ethernet Status - LAN Status  5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417111.jpg" />
+  <img src="Z:/picture/008/save_picture_417111.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ OmniPlayer Pro - Media Player 2.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417100.jpg" />
+  <img src="Z:/picture/008/save_picture_417100.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ SiteSucker Pro 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417099.jpg" />
+  <img src="Z:/picture/008/save_picture_417099.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Find Any File (FAF) 2.3.3b17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417095.jpg" />
+  <img src="Z:/picture/008/save_picture_417095.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Copied 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417039.jpg" />
+  <img src="Z:/picture/008/save_picture_417039.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ iMazing 2.4.2 (7986) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417020.jpg" />
+  <img src="Z:/picture/008/save_picture_417020.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Alfred PowerPack 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416904.jpg" />
+  <img src="Z:/picture/008/save_picture_416904.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ Athentech Perfectly Clear Complete 3.8.0.1665 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416903.jpg" />
+  <img src="Z:/picture/008/save_picture_416903.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ Alfred Powerpack 4.0.4.1110 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416901.jpg" />
+  <img src="Z:/picture/008/save_picture_416901.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ Music Tag Editor Pro 7.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416886.jpg" />
+  <img src="Z:/picture/008/save_picture_416886.jpg" />
 </div>
 
 
@@ -332,7 +438,7 @@ Infuse PRO 7 v.7.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416885.jpg" />
+  <img src="Z:/picture/008/save_picture_416885.jpg" />
 </div>
 
 
@@ -358,7 +464,7 @@ QLab 4 v.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416879.jpg" />
+  <img src="Z:/picture/008/save_picture_416879.jpg" />
 </div>
 
 
@@ -384,7 +490,7 @@ Adobe InCopy 2022 17.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416877.jpg" />
+  <img src="Z:/picture/008/save_picture_416877.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ PhotoSweeper Х 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416741.jpg" />
+  <img src="Z:/picture/008/save_picture_416741.jpg" />
 </div>
 
 
@@ -437,7 +543,7 @@ Geekbench 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416728.jpg" />
+  <img src="Z:/picture/008/save_picture_416728.jpg" />
 </div>
 
 
@@ -466,7 +572,7 @@ Grids for Instagram 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416726.jpg" />
+  <img src="Z:/picture/008/save_picture_416726.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ Wondershare Filmora 11 v.11.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416695.jpg" />
+  <img src="Z:/picture/008/save_picture_416695.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ TG Pro (Temperature Gauge Pro) 2.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416691.jpg" />
+  <img src="Z:/picture/008/save_picture_416691.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ MediaHuman Youtube Downloader for Mac 3.9.9.74 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416687.jpg" />
+  <img src="Z:/picture/008/save_picture_416687.jpg" />
 </div>
 
 
@@ -575,7 +681,7 @@ TechSmith Camtasia 2022 Studio 2022.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416685.jpg" />
+  <img src="Z:/picture/008/save_picture_416685.jpg" />
 </div>
 
 
@@ -586,118 +692,6 @@ Camtasia for Mac — эффективное приложение для созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3376D9F548E56B5DD9CCDC94A6963DD90B4E3A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573058   (416681) от 29.08.2022
-
-Wondershare PDFelement Pro OCR 9.0.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416681.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.08.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458D46D075A96C7F9A27BDC53E932C44365D4B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065921   (416621) от 24.10.2016
-
-Flowstate 1.22 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flowstate: текстовый редактор, который заставит вас писать
-Все слышали и наверняка пробовали различные дзен-редакторы с минималистичным интерфейсом, приятной фоновой музычкой и всякими distraction-free-штуками.
-
-Приложение Flowstate исповедует совершенно иную философию и меняет пряник на кнут. Чтобы заставить вас писать, оно просто берёт и удаляет весь напечатанный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 сентября 2016Разработчик: Overman, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB407C14ACBD87F4AAE5D2C9592806B929C0CB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325194   (416565) от 13.09.2019
-
-Carbon Copy Cloner 5.1.11 (5795) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA59AC213209850540BA8F717A9E393E39347349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325163   (416563) от 13.09.2019
-
-DxO PhotoLab 2 ELITE Edition 2.3.1.43 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D99731CD70F0E50952F81EB487AF28EC7C9C56A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1506099   (801744) от 29.10.2021
+
+PhotosRevive 2.0.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801744.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54C4EE85CF3F9911CDCB3ADF219F40E6A87D6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384703   (801483) от 21.05.2020
 
 Sketch 66.1 [En]
@@ -6,7 +32,7 @@ Sketch 66.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801483.jpg" />
+  <img src="Z:/picture/008/save_picture_801483.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Sketch 78.1 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801107.jpg" />
+  <img src="Z:/picture/008/save_picture_801107.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Aurora HDR 2019 1.0.1 fix [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798272.jpg" />
+  <img src="Z:/picture/008/save_picture_798272.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ TinyPNG and TinyJPG: Photoshop Plugin for Mac 2.5.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798227.jpg" />
+  <img src="Z:/picture/008/save_picture_798227.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.1 CR2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798133.jpg" />
+  <img src="Z:/picture/008/save_picture_798133.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ ACDSee Photo Studio 7 v7.1.2020 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797953.jpg" />
+  <img src="Z:/picture/008/save_picture_797953.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ External Editors For Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797009.jpg" />
+  <img src="Z:/picture/008/save_picture_797009.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ HitPaw Watermark Remover 1.2.1 fix [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796864.jpg" />
+  <img src="Z:/picture/008/save_picture_796864.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ On1 Photo 10.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796841.jpg" />
+  <img src="Z:/picture/008/save_picture_796841.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ColorSquid 1.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796321.jpg" />
+  <img src="Z:/picture/008/save_picture_796321.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ FILTERiT 4.6.3 plug-in for Adobe Illustrator [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796039.jpg" />
+  <img src="Z:/picture/008/save_picture_796039.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Xtream Path 1.6.3.2 plug-in for Adobe Illustrator [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795894.jpg" />
+  <img src="Z:/picture/008/save_picture_795894.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Aegisub 3.2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795877.jpg" />
+  <img src="Z:/picture/008/save_picture_795877.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Smart Shooter 4 v4.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795839.jpg" />
+  <img src="Z:/picture/008/save_picture_795839.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ DesiGN Brochures Templates 3.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792995.jpg" />
+  <img src="Z:/picture/008/save_picture_792995.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ LilyView 1.5.1 fix [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792768.jpg" />
+  <img src="Z:/picture/008/save_picture_792768.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Artstudio Pro 3.2.15 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792259.jpg" />
+  <img src="Z:/picture/008/save_picture_792259.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Watermark Plus 1.5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792142.jpg" />
+  <img src="Z:/picture/008/save_picture_792142.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Wondershare Photo Cutter 1.0.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791531.jpg" />
+  <img src="Z:/picture/008/save_picture_791531.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Metakine Decompose 1.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791334.jpg" />
+  <img src="Z:/picture/008/save_picture_791334.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Picture Instruments Image 2 LUT Pro 1.5.0 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790755.jpg" />
+  <img src="Z:/picture/008/save_picture_790755.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Logoist 4 v4.2.1 fix [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790333.jpg" />
+  <img src="Z:/picture/008/save_picture_790333.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ FotoJet Photo Editor 1.0.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788384.jpg" />
+  <img src="Z:/picture/008/save_picture_788384.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ FotoJet Designer 1.2.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788380.jpg" />
+  <img src="Z:/picture/008/save_picture_788380.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ FxFactory Pro 7.2.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788350.jpg" />
+  <img src="Z:/picture/008/save_picture_788350.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ FxFactory Pro включает  фильтры, генераторы и пере
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5C55E7200A1327250C27C151AEF58868859E732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512072   (787856) от 23.11.2021
-
-Pixelmator Classic 3.9.9 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2021Разработчик: © 2021 Pixelmator Team LtdПоддерживаемая ОС: macOS 10.14.4+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89328205975CDEA97CF53D2B52D215CE4EE53A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

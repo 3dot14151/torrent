@@ -1,3 +1,29 @@
+###  Публикация: 1790379   (13485) от 25.06.2025
+
+Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи Щиундзи [2025, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13485.jpg" />
+</div>
+
+
+###  Подробнее
+
+В богатой семье Щиундзи два сына и пять дочерей, и все как на подбор красивы и умны. Старший сын Арата с детства был жертвой капризов своих сестричек, что, впрочем, не мешает ему любить и ценить свою семью превыше чего бы то ни было. Но когда младшенькой исполняется пятнадцать, отец открывает им шокирующую правду: они не кровные родственники.Жанр: комедия, романтика.Режиссер: Камицубо РёкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DECD44D0D702F3720721FEA8DA4D02971A82DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736002   (13418) от 26.06.2025
 
 Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | KimiSen 2 | Последнее поле брани между тобой и мной [ТВ-2] [2024, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13418.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13403.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13399.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13236.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13209.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13206.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13200.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13189.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Classic Stars | Звёзды классики [2025, TV, 13 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13172.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Kuroshitsuji: Midori no Majo Hen | Black Butler: Emerald Witch Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13093.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Vigilante: Boku no Hero Academia Illegals | My Hero Academia: Vigilantes | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12999.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Shirohiyo | Я белый свин-аристократ, ко мне верну�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12997.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12614.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Kaijuu 8-gou: Hoshina no Kyuujitsu | Kaiju No. 8: Hoshina's Day Off | Кайдз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12229.jpg" />
 </div>
 
 

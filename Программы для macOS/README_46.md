@@ -1,3 +1,137 @@
+###  Публикация: 1274995   (791666) от 09.01.2019
+
+iPasscode Unlocker 1.1.0 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791666.jpg" />
+</div>
+
+
+###  Подробнее
+
+iPasscode Unlocker - небольшая утилита, которая поможет вам в том случае, когда вы забыли пароль от заблокированного экрана iPhone/iPad/iPod, причем независимо от того, это цифровой код (4 или 6 значный), отпечаток пальца или Face ID. Приложение совместимо почти со всеми устройствами на iOS, включая последний iPhone XS(Max)/XR и iOS12.
+
+Три простых шага и ваш iPhone (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.01.2019Разработчик: JoyshareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693F6A69BC82E64B74AF66AD05FBA3EE8EA9175B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510439   (791589) от 16.11.2021
+
+Alfred 4 Powerpack 4.6.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5945A779C46357F806B83BFA5B536FB9EA668A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510498   (791586) от 16.11.2021
+
+Net Radar 1.3 fix [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Net Radar отслеживает состояние вашего VPN-соединения и показывает текущее географическое положение публичного IP-адреса вашего интернет-соединения в строке меню.
+Net Radar отслеживает подключение к VPN на двух уровнях, внутренне и внешне. Внутренне - Net Радар отслеживает начало и конец VPN соединений. После каждого изменения, Net-радар проверяет статус VPN извне (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 28.11.2020Разработчик: BetamagicПоддерживаемая ОС: macOS X 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBF485E468D27EFB56E52B859E329644510176B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510474   (791531) от 16.11.2021
+
+Wondershare Photo Cutter 1.0.7 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективное средство для удаления фона, позволяющее вырезать объекты всего за несколько кликов.Тип издания: macOS SoftwareРелиз состоялся: 21.09.2018Разработчик: © 2018 WondershareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C7A5D85737B3E2812307DD0659A6D90D63E305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387594   (791334) от 02.06.2020
+
+Metakine Decompose 1.2.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Decompose - это приложение, позволяющее легко и безошибочно извлекать элементы из изображений, чтобы использовать их для создания своих фото. Это идеальный инструмент для создания изображений для веб-страниц, газет и журналов или просто для ваших собственных творений. Извлеченные объекты сохраняются в виде «прозрачных» файлов TIFF. Возможно также корректировать цвета, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B246077A6BB9B7202C858AF85C6AB79B9482590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510603   (790804) от 17.11.2021
 
 ePlayer Pro 5.2.6 [En]
@@ -6,7 +140,7 @@ ePlayer Pro 5.2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790804.jpg" />
+  <img src="Z:/picture/008/save_picture_790804.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ iFlicks 3 v.3.8.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790768.jpg" />
+  <img src="Z:/picture/008/save_picture_790768.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ Picture Instruments Image 2 LUT Pro 1.5.0 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790755.jpg" />
+  <img src="Z:/picture/008/save_picture_790755.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ Command-Tab Plus 1.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790484.jpg" />
+  <img src="Z:/picture/008/save_picture_790484.jpg" />
 </div>
 
 
@@ -113,7 +247,7 @@ Contexts 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790476.jpg" />
+  <img src="Z:/picture/008/save_picture_790476.jpg" />
 </div>
 
 
@@ -141,7 +275,7 @@ Bartender 4 v4.1.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790402.jpg" />
+  <img src="Z:/picture/008/save_picture_790402.jpg" />
 </div>
 
 
@@ -168,7 +302,7 @@ Kite Compositor 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790392.jpg" />
+  <img src="Z:/picture/008/save_picture_790392.jpg" />
 </div>
 
 
@@ -195,7 +329,7 @@ CleverFiles Duplicates Finder 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790344.jpg" />
+  <img src="Z:/picture/008/save_picture_790344.jpg" />
 </div>
 
 
@@ -222,7 +356,7 @@ Logoist 4 v4.2.1 fix [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790333.jpg" />
+  <img src="Z:/picture/008/save_picture_790333.jpg" />
 </div>
 
 
@@ -249,7 +383,7 @@ Logic Pro X 10.4.4 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790258.jpg" />
+  <img src="Z:/picture/008/save_picture_790258.jpg" />
 </div>
 
 
@@ -275,7 +409,7 @@ Folx Pro 5 v5.26 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790116.jpg" />
+  <img src="Z:/picture/008/save_picture_790116.jpg" />
 </div>
 
 
@@ -303,7 +437,7 @@ Shredo 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789851.jpg" />
+  <img src="Z:/picture/008/save_picture_789851.jpg" />
 </div>
 
 
@@ -332,7 +466,7 @@ Default Folder X 5.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789845.jpg" />
+  <img src="Z:/picture/008/save_picture_789845.jpg" />
 </div>
 
 
@@ -358,7 +492,7 @@ SteerMouse 5.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789728.jpg" />
+  <img src="Z:/picture/008/save_picture_789728.jpg" />
 </div>
 
 
@@ -384,7 +518,7 @@ Endurance 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789415.jpg" />
+  <img src="Z:/picture/008/save_picture_789415.jpg" />
 </div>
 
 
@@ -412,7 +546,7 @@ Awesome Mails Pro 3 v3.21 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789042.jpg" />
+  <img src="Z:/picture/008/save_picture_789042.jpg" />
 </div>
 
 
@@ -440,7 +574,7 @@ Network Speed Monitor 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789036.jpg" />
+  <img src="Z:/picture/008/save_picture_789036.jpg" />
 </div>
 
 
@@ -469,7 +603,7 @@ PCKeygen Wrapper 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788865.jpg" />
+  <img src="Z:/picture/008/save_picture_788865.jpg" />
 </div>
 
 
@@ -495,7 +629,7 @@ cDock 4 v4.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788840.jpg" />
+  <img src="Z:/picture/008/save_picture_788840.jpg" />
 </div>
 
 
@@ -522,7 +656,7 @@ Fantastical 2 v2.5.16 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788832.jpg" />
+  <img src="Z:/picture/008/save_picture_788832.jpg" />
 </div>
 
 
@@ -549,7 +683,7 @@ Tipard Mac Video Converter Ultimate 9.1.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788596.jpg" />
+  <img src="Z:/picture/008/save_picture_788596.jpg" />
 </div>
 
 
@@ -560,138 +694,6 @@ Tipard Mac Video Converter Ultimate 9.1.28 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27282FAEF91E2FBD7A588BAD15955B9E972F7BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511848   (788384) от 22.11.2021
-
-FotoJet Photo Editor 1.0.7 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788384.jpg" />
-</div>
-
-
-###  Подробнее
-
-FotoJet Photo Editor позволяет каждому в кратчайшие сроки стать экспертом в области редактирования фотографий. Он позволяет не только легко редактировать фотографии и применять потрясающие фильтры, но также добавлять наложения, рамки, текст, клипарты и т. д.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667E9CEAA430EC7E2308C242FFD6FCA535DE744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511761   (788382) от 22.11.2021
-
-MonitorControl 4.0.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте яркостью дисплея на Mac, как если бы это был собственный дисплей Apple. Используйте клавиши Apple Keyboard или настраиваемые сочетания клавиш.
-Лучшее в своем роде приложение, совершенно бесплатное, с открытым исходным кодом.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Joni Van RoostПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B033314369683E24264E3B15BB595EB8214F5927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511841   (788380) от 22.11.2021
-
-FotoJet Designer 1.2.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощное, но простое в использовании приложение для графического дизайна для mac OS X. FotoJet Designer делает графический дизайн проще, чем когда-либо. Благодаря 900 шаблонам, тысячам ресурсов и мощным инструментам редактирования вы можете создавать профессиональные проекты. Не обладая профессиональными навыками, любой может создать уникальный дизайн, например графику (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4175A0D5F1873B7D7C425D7D7E3A2C953CD1A5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511707   (788363) от 22.11.2021
-
-SwitchGlass 1.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788363.jpg" />
-</div>
-
-
-###  Подробнее
-
-SwitchGlass это новый проект Джона Сиракузы который приносит выделенный переключатель приложений Mac со многими вариантами настройки.Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: © 2021 Hypercritical LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9A07BD4C1A25E6D9F67DF1BB7BAC8706EAD94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511789   (788350) от 22.11.2021
-
-FxFactory Pro 7.2.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788350.jpg" />
-</div>
-
-
-###  Подробнее
-
-FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
-Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 Noise Industries, LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C55E7200A1327250C27C151AEF58868859E732
 ```
 
 https://mybot314.ru/tekegram_catalog/

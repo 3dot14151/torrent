@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612138.jpg" />
+  <img src="Z:/picture/008/save_picture_612138.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611909.jpg" />
+  <img src="Z:/picture/008/save_picture_611909.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611312.jpg" />
+  <img src="Z:/picture/008/save_picture_611312.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610553.jpg" />
+  <img src="Z:/picture/008/save_picture_610553.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comedy Баттл. Последний сезон. Выпуск №13  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610506.jpg" />
+  <img src="Z:/picture/008/save_picture_610506.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610304.jpg" />
+  <img src="Z:/picture/008/save_picture_610304.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Comedy Баттл (2019.04.15) WEB-DLRip (сезон 9, выпуск 13)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610054.jpg" />
+  <img src="Z:/picture/008/save_picture_610054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609442.jpg" />
+  <img src="Z:/picture/008/save_picture_609442.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609018.jpg" />
+  <img src="Z:/picture/008/save_picture_609018.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608901.jpg" />
+  <img src="Z:/picture/008/save_picture_608901.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608593.jpg" />
+  <img src="Z:/picture/008/save_picture_608593.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Comedy Баттл. Последний сезон. Выпуск №13  / Коме
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608583.jpg" />
+  <img src="Z:/picture/008/save_picture_608583.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608440.jpg" />
+  <img src="Z:/picture/008/save_picture_608440.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606495.jpg" />
+  <img src="Z:/picture/008/save_picture_606495.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606073.jpg" />
+  <img src="Z:/picture/008/save_picture_606073.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605786.jpg" />
+  <img src="Z:/picture/008/save_picture_605786.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602972.jpg" />
+  <img src="Z:/picture/008/save_picture_602972.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602965.jpg" />
+  <img src="Z:/picture/008/save_picture_602965.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602956.jpg" />
+  <img src="Z:/picture/008/save_picture_602956.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Comedy Баттл (2019.04.26) WEB-DLRip (сезон 9, выпуск 15)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601831.jpg" />
+  <img src="Z:/picture/008/save_picture_601831.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599143.jpg" />
+  <img src="Z:/picture/008/save_picture_599143.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599138.jpg" />
+  <img src="Z:/picture/008/save_picture_599138.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597498.jpg" />
+  <img src="Z:/picture/008/save_picture_597498.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597485.jpg" />
+  <img src="Z:/picture/008/save_picture_597485.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597381.jpg" />
+  <img src="Z:/picture/008/save_picture_597381.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596501.jpg" />
+  <img src="Z:/picture/008/save_picture_596501.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1690350   (17645) от 21.05.2025
+
+Сергей Моряхин | Вождение без страха и заблуждений (2023) WEB-DL [AD] [RU]
+
+>>Автомобили
+>>Автомобильные обуч.видео
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избавитесь от многих страхов при обучении вождении автомобиля и будете уверенно чувствовать себя за рулем
+Для кого этот курс:
+    ✅Для тех, у кого есть различные страхи перед началом обучения на права.
+    ✅Для тех, кто еще учится в автошколе и боится самого вождения, своего автоинструктора, экзамена ГИБДД, инспектора и т.д.(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 02:28:14Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251D43170D53AF561B2BBEFC7A0534FAE6C5CA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810919   (16717) от 07.08.2025
 
 Журнал | 5 Колесо №8 (382) (август 2025) [PDF]
@@ -6,7 +35,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16717.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15932.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15574.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12853.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12133.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6680.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5351.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4078.jpg" />
 </div>
 
 

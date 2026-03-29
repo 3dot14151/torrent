@@ -6,7 +6,7 @@ Highlights School | МК Обработка детских фотографий 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277227.jpg" />
+  <img src="Z:/picture/008/save_picture_277227.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Highlights School | МК Обработка кожи и волос (2013) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275881.jpg" />
+  <img src="Z:/picture/008/save_picture_275881.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270011.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268622.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265903.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262160.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262155.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255152.jpg" />
+  <img src="Z:/picture/005/save_picture_255152.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254520.jpg" />
+  <img src="Z:/picture/005/save_picture_254520.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254511.jpg" />
+  <img src="Z:/picture/005/save_picture_254511.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Skillshare, Tortor Smith | Stop Motion Cooking: How To Cut Anything (Even Batter
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233724.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232677.jpg" />
+  <img src="Z:/picture/005/save_picture_232677.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Meg Bitton | CLASSIC PHOTOSHOP EDITS VOLUME III (2019) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230492.jpg" />
+  <img src="Z:/picture/005/save_picture_230492.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230401.jpg" />
+  <img src="Z:/picture/005/save_picture_230401.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Liveclasses, Саша Чалдрян | Основы коллажа (2019) WEB-DL
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230399.jpg" />
+  <img src="Z:/picture/005/save_picture_230399.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Skillshare, Alan Ayoubi | After Effects Motion Graphic Beast (2020) WEB-DL [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230272.jpg" />
+  <img src="Z:/picture/005/save_picture_230272.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Motion Design School, Iaroslav Kononov | UI Animation Essentials (2019) WEB-DL [
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230254.jpg" />
+  <img src="Z:/picture/005/save_picture_230254.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222151.jpg" />
+  <img src="Z:/picture/005/save_picture_222151.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Parker Walbeck | Become a Full Time Filmmaker (2016) PCRec [H.264/1080p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222017.jpg" />
+  <img src="Z:/picture/005/save_picture_222017.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Profileschool | Природные шедевры мастеров (2014) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218604.jpg" />
+  <img src="Z:/picture/005/save_picture_218604.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214763.jpg" />
+  <img src="Z:/picture/005/save_picture_214763.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Liveclasses, Андрей Журавлев | Повышение резкости
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213305.jpg" />
+  <img src="Z:/picture/005/save_picture_213305.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212954.jpg" />
+  <img src="Z:/picture/005/save_picture_212954.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211733.jpg" />
+  <img src="Z:/picture/005/save_picture_211733.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208750.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208739.jpg" />
 </div>
 
 

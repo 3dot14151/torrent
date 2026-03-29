@@ -1,3 +1,159 @@
+###  Публикация: 1067452   (386227) от 29.10.2016
+
+Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_386227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайти Манацу вырос на острове Танэгасима, в сердце японской космической программы. После гибели отца-астронавта мальчик уехал с острова и вернулся уже 17-летним подростком. Гуляя по знакомым до боли местам, парень заглянул в заброшенный ангар, где, как и положено, встретил свою судьбу. Теперь Дайти – пилот боевого робота и лидер команды защиты Земли, состоящей из (   Читать дальше...   )Жанр: приключения, фантастика, меха, романтикаРежиссер: Игараси Такуя / Igarashi Takuya / 五十嵐卓哉Продолжительность: 25 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B7DB91516B8177BBC4D39AC784A2FF1C4B7711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719411   (385639) от 05.11.2013
+
+Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на утесе [2008, MV] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Сосукэ – моряк, мать – социальный работник, а сам он – маленький мальчик из дома на утесе. Однажды утром он находит в море удивительную рыбешку: у нее человеческое лицо и красные плавнички, она любит колбасу и умеет колдовать. Сосукэ называет свою находку «Поньо» и решает беречь и защищать. Откуда ему знать, что он выловил дочь морской владычицы и тем обрек (   Читать дальше...   )Жанр: сказка, приключения, повседневностьРежиссер: Миядзаки ХаяоСубтитры: •Продолжительность: 101 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFE57FBB0574876DE576D9979C0EE517146C45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414564   (385505) от 08.10.2020
+
+Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? OVA [2019, OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чино выбрана для сольной партии на концерте. Чино просит Ризе помочь ей привыкнуть к пению на глазах у других, и поэтому они устраивают караоке-турнир. Но пока Чино тренируется, все слишком взволнованы предстоящим событием, заставляя Чино нервничать.Производство: Production doAЖанр: комедия, повседневностьРежиссер: Hashimoto HiroyukiПеревод: ХельшиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A25EF89688F82EB9704B073F65B3D832139ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414561   (385504) от 08.10.2020
+
+Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали? (спэшл) [2017, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_385504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кокоа навещает свою семью в горах спустя некоторое время после того, как ее сестра Мокко написала ей письмо, чтобы она скорее вернулась. Ее друзьям придется провести неделю в городе без нее, в то время как Кокоа проводит время с семьей, которую она давно не видела. Но Чино, самопровозглашенная младшая сестра Кокоа, хочет вместе с Какао и всеми ее друзьями посмотреть (   Читать дальше...   )Производство: Студия Production doAЖанр: комедия, повседневностьРежиссер: Hashimoto HiroyukiПеревод: iazЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D3831BFCBA70F40D17CA527B494ECB9D3E23B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944178   (384258) от 30.10.2016
+
+Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружки! [2015, TV, 12 эп] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_384258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В средней школе Нанамори продолжаются приключения четырех девчонок, основавших «Клуб развлечений»! Кёко Тосино, заводила компании, продолжает рисовать додзинси, сходить с ума от аниме-идола Миракурун и ставить всю школу на уши, несмотря на голос здравого смысла в лице лучшей подруги Юй Фунами. Новичок Тинацу Ёсикава, отлично вписавшаяся в группу, твердо отбивается (   Читать дальше...   )Производство: Жанр: комедия, повседневностьРежиссер: Хата ХироюкиПеревод: 1) GMC; 2) Усатый НяЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 00:25 x12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF88AE308FBF9E186E92EA11838BCFA29212038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067451   (384159) от 30.10.2016
+
+One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_384159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во вселенной комиксов никто не удивляется монстрам, злодеям и безумным ученым. Они как явления природы – неприятно, конечно, но что поделаешь? Главное, чтобы хватало героев для защиты простых людей, а дальше – как повезет. И надо же такому случиться, что Сайтама - сильнейший из героев Зет-Сити – на борца за мир и справедливость вообще не похож: лысый, невысокий, (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Нацумэ Синго / Natsume Shingo / 夏目真悟Продолжительность: 12 серии по 25 мин + 6 спэшлов по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534FC964361753F71BBB4FB5CA3693FC275E109C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574973   (381552) от 07.09.2022
 
 18if | Измерение 18 [2017, TV, 13 эп.] BDRip 1080p 10-bit raw
@@ -6,7 +162,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381552.jpg" />
+  <img src="Z:/picture/008/save_picture_381552.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381538.jpg" />
+  <img src="Z:/picture/008/save_picture_381538.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381534.jpg" />
+  <img src="Z:/picture/008/save_picture_381534.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381464.jpg" />
+  <img src="Z:/picture/008/save_picture_381464.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381457.jpg" />
+  <img src="Z:/picture/008/save_picture_381457.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381448.jpg" />
+  <img src="Z:/picture/008/save_picture_381448.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381414.jpg" />
+  <img src="Z:/picture/008/save_picture_381414.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380799.jpg" />
+  <img src="Z:/picture/008/save_picture_380799.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379748.jpg" />
+  <img src="Z:/picture/008/save_picture_379748.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378643.jpg" />
+  <img src="Z:/picture/008/save_picture_378643.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378642.jpg" />
+  <img src="Z:/picture/008/save_picture_378642.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376925.jpg" />
+  <img src="Z:/picture/008/save_picture_376925.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Under the Dog | Побитые псы [2016, OVA] BD-rip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376259.jpg" />
+  <img src="Z:/picture/008/save_picture_376259.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ Ranma Nibun No Ichi: Nettohen / Ranma 1/2 / Ранма пополам [1993-1996
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372470.jpg" />
+  <img src="Z:/picture/008/save_picture_372470.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368006.jpg" />
+  <img src="Z:/picture/008/save_picture_368006.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367865.jpg" />
+  <img src="Z:/picture/008/save_picture_367865.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367662.jpg" />
+  <img src="Z:/picture/008/save_picture_367662.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367658.jpg" />
+  <img src="Z:/picture/008/save_picture_367658.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367342.jpg" />
+  <img src="Z:/picture/008/save_picture_367342.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366495.jpg" />
+  <img src="Z:/picture/008/save_picture_366495.jpg" />
 </div>
 
 
@@ -516,162 +672,6 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8F328C09970BE272AC03146B55E144D1A955113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070399   (366418) от 07.11.2016
-
-Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о Коконоцу, который отнюдь не горит желанием наследовать конфетный магазин в глухой провинции, как того хочет его отец. Хотару, души не чающая в маленьких кондитерских, как-то объявляется в заведении Коконоцу и, узнав ситуацию, начинает регулярно наведываться с единственной целью — убедить парня изменить решение.Жанр: комедия, повседневностьРежиссер: Такаянаги Сигэхито / Takayanagi Shigehito / 高柳滋仁Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841205EF2F6D59E224BEF99B8684EB53BD5BA0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328198   (366022) от 29.09.2019
-
-Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [2019, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боуида Харуто - заядлый отаку, который не интересуется 3D (реальными) девушками. Однажды он купил фигуру своей любимой аниме-героини Ноны, но внезапно Нона начала двигаться! Бешеная семейная жизнь между одним отаку и одним роботом вот-вот начнется!Производство: студия Studio A-CATЖанр: комедияРежиссер: Мотонага КэйтароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9B223A869DFDB512913E79F298E6647BCF1F1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328324   (365545) от 29.09.2019
-
-Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365545.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования (если это можно так назвать) три школьницы: Юа, Рен и Хоми, каждая из которых любит носить колготки разной толщины, от совсем прозрачных до весьма плотных. © KG-PortalПроизводство: студия Yokohama Animation Lab / 横浜アニメーションラボЖанр: комедия, этти, повседневностьРежиссер: Огава ЮкиПеревод: ZeroЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 SP по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFDF66738A39CADA510B502F37DA3D774464829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328325   (365540) от 29.09.2019
-
-Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насекомыми [2018, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм ​​рассказывает об огромном многоквартирном доме, известном как обитель духов. Восемнадцатилетняя студентка по имени Рин решает посетить это мистическое место. Когда Рин раскрывает правду об этом здании, она оказывается вовлечена в странные события. © shikimoriЖанр: мистика, ужасыРежиссер: Сакамото СакуПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 75 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A23687BBF31A277337EE9F1269B1410F4C9F1023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286530   (365529) от 29.09.2019
-
-Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волшебства [ТВ-3] [2018, TV, 26 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365529.jpg" />
-</div>
-
-
-###  Подробнее
-
-На востоке от столицы Японии Токио располагается большой город Академград. Назван он так потому, что 80 процентов его жителей - это студенты и школьники, а всего живёт там свыше двух миллионов человек. В реальности этого аниме существуют не только обычные люди, но и обладатели сверхспособностей, и дети, имеющие какую-то суперсилу, обучаются именно в Академграде. (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, комедияРежиссер: Нисикиори ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7E75CBCB323A71C38D6047AD156C28D4C96944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722225   (364619) от 14.11.2013
-
-Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-Лаганн [2007, TV, 27] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни лет люди живут в глубоких пещерах, в постоянном страхе перед землетрясениями и обвалами. В одной из таких подземных деревень живет мальчик Симон и его «духовный наставник» — молодой парень Камина. Камина верит, что наверху есть другой мир, без стен и потолков; его мечта — попасть туда. Но его мечты остаются пустыми фантазиями, пока в один прекрасный день Симон (   Читать дальше...   )Жанр: приключения, фантастика, меха, драмаРежиссер: Имайси ХироюкиСубтитры: •Продолжительность: 27 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1956034360466557DE187AB53632A1DD5E192FB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

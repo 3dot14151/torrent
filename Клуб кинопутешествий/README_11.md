@@ -1,3 +1,55 @@
+###  Публикация: 840953   (839761) от 05.04.2016
+
+Водный мир Хорватии / Aquatic Treasures of Croatia (2012) HDTVRip [H.264/720p] (1-4 серия из 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы отправимся в удивительное путешествие по самым красивым заповедникам и паркам Хорватии: национальный парк «Плитвицкие озёра», а также природные парки Ластово и Копачки Рит. Заповедники и парки Хорватии поражают, в первую очередь, буйством красок и оттенков, и разнообразием флоры и фауны. Мы посетим различные территории и увидим, как изменяется климат в зависимости (   Читать дальше...   )Телекомпания: HRTЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 4 x ~ 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E4D373660A01D25F3A3C21DA12DE7E999C7502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836567   (839638) от 05.04.2016
+
+Джунгли: Волшебство другого мира / The Jungle: Magic of Another World (2012) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы отправитесь в увлекательное путешествие в джунгли Коста-Рики и попадете в волшебный мир, который еще никогда раньше не видели.Телекомпания: KSMЖанр: Документальный, природаРежиссер: Аттила ТенкиПеревод: Одноголосый закадровый (профессиональный)Язык субтитров: русскийПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F608D392C4E4265ABC1236DA82591904FFFDA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004055   (839634) от 05.04.2016
 
 Орел и решка. Кругосветка (2016.04.04) SATRip (сезон 12: Уганда)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839634.jpg" />
+  <img src="Z:/picture/008/save_picture_839634.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836708.jpg" />
+  <img src="Z:/picture/008/save_picture_836708.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836706.jpg" />
+  <img src="Z:/picture/008/save_picture_836706.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836603.jpg" />
+  <img src="Z:/picture/008/save_picture_836603.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836567.jpg" />
+  <img src="Z:/picture/008/save_picture_836567.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836547.jpg" />
+  <img src="Z:/picture/008/save_picture_836547.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836473.jpg" />
+  <img src="Z:/picture/008/save_picture_836473.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836464.jpg" />
+  <img src="Z:/picture/008/save_picture_836464.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836459.jpg" />
+  <img src="Z:/picture/008/save_picture_836459.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ NG. Япония: между небом и землей / Japan: Between Earth A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836404.jpg" />
+  <img src="Z:/picture/008/save_picture_836404.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836110.jpg" />
+  <img src="Z:/picture/008/save_picture_836110.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836106.jpg" />
+  <img src="Z:/picture/008/save_picture_836106.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834441.jpg" />
+  <img src="Z:/picture/008/save_picture_834441.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831600.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830760.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830622.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829074.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826750.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826716.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826711.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824867.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824749.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824680.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824649.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C344554553D10177321F95FBE6F41CB3190AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380884   (824596) от 08.05.2020
-
-Прогулки по Дрездену, Германия / Dresden, Deutschland (2019) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражный фильм по основным достопримечательностям Дрездена в Германии.
-//
-Ein Kurzfilm über die Hauptattraktionen der Stadt Dresden in Deutschland.Производство: Германия, РоссияЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381310   (824592) от 08.05.2020
-
-Прогулки по Кисловодску (видеоэкскурсия) / Walks in Kislovodsk (2017) CamRip [H.264/1080p] [PR]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражная видеоэкскурсия «Прогулки по Кисловодску» даёт возможность зрителю увидеть красивые места, которые можно посетить в городе Кисловодске.Производство: Россия, КисловодскЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A683B199C22F909C86E181828C6066BD270F54C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

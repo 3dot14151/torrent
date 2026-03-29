@@ -1,3 +1,90 @@
+###  Публикация: 1809776   (64632) от 01.08.2025
+
+Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teleshoot 0:49
+02. Worldmachine 3:39
+03. Teleshoot 0:12
+04. Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E561AEB00061A00034C63224FC4C8179D312EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809755   (64630) от 01.08.2025
+
+Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tear You To Shreds (04:37)
+ 02. Penetrator (04:07)
+ 03. Cry Havoc (05:02)
+ 04. Under The Tower (06:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810068   (64553) от 02.08.2025
+
+Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usil (10:16)
+ 02. Turms (08:37)
+ 03. Turan (03:48)
+ 04. Tiur (09:31)(   Читать дальше...   )Жанр: Post-Metal, InstrumentalПродолжительность: 01:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59A4FF1A503F4AC639A117E146F1557A74B237A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821509   (64013) от 02.10.2025
 
 Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Dirkschneider & The Old Gang - Babylon (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64013.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Warmen - Band Of Brothers (2025) [FLAC|Lossless|image + .cue] <Melodic Death, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63926.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sepultura - Discography(1986-2009)[APE,FLAC|Lossless] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62729.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ No Remorse No Retreat - To Glory We Ride (2008) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61963.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Domine - Champion Eternal (1997) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61794.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Bruce Dickinson - 12 Albums, 15 Singles, 77 CD (1989-2024) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61138.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Saxon - 45 Albums, 3 Box Set, 97 CD (1979-2024) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60945.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Judas Priest (Glenn Tipton / KK's Priest) - 60 albums, 4 Box-set, 236 CD (1974-2
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60938.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Rage - Afterlifelines (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60137.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Savage - Loose 'N Lethal (1983) Reissue, Remastered, 2008, Krescendo Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59139.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Within Temptation - The Artone Sessions (2024) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58872.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Rage - The Millennium Years (2001-2003) Box Set, 6 x CD, Compilation, 2021, Dr. 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58769.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Metallica - Metallica (1991) Reissue, 2007, Vertigo [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58654.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Accept - 55 albums, 2 Box-sets, 97 CD (1979-2024) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58400.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Zakk Wylde & Black Label Society - 21 albums, 1 single, 37 CD (1994-2024) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58281.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Cypecore - Make Me Real (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57932.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Rage - Afterlifelines (2024) 2CD Japan release [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57930.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Accept - Russian Roulette (1986) Reissue, Remastered, 2014, Hear No Evil Recordi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57500.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Def Leppard - Pyromania (1983) 4 x CD, 40th Anniversary, Reissue, Remastered, Vi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57290.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Gloom - дискография: 3 альбома (2006-2020) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57085.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Kerry King - From Hell I Rise (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56033.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Metallica - Metallica (1991) Reissue, Remastered, 2021, Blackened Recordings [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55320.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Headless Ghost - King Of Pain (2024) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54985.jpg" />
 </div>
 
 
@@ -660,93 +747,6 @@ The Headless Ghost - King Of Pain (2024) [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B78A6ECC5E75A63DF4606462377AB9A45ACDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669739   (54662) от 01.06.2024
-
-Raven Wundis - In Shadows Summons Divinity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Shadows Summons Divinity [01:26:59]
-1) Vision of Collapsing Stars
-2) Fragments of Rebirth
-3) A Glimpse of Being(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, JazzПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B25768EA3EEF90B99703A9B2D83ADB05E45D350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573460   (54571) от 02.06.2024
-
-Machine Head - Of Kingdom and Crown (2022) Scene, Limited, Special Edition[FLAC|Lossless|tracks] <Groove, Thrash Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slaughter the martyr (10:26)
-02. Choke on the ashes of your hate (4:06)
-03. Become the firestorm (5:00)
-04. Overdose (0:58)(   Читать дальше...   )Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87FDE3DCC46DBE1D55ED4535BF7F730E7FAB2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728344   (54164) от 06.06.2024
-
-Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride the Lightning (06:47)
-02. St. Anger (04:18)
-03. The Unforgiven II (04:05)
-04. Blackened (feat. Dave Lombardo) (05:58)(   Читать дальше...   )Жанр: Symphonic, Cello MetalПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F476915D3D1592AA31CE0092B9D834798E1657
 ```
 
 https://mybot314.ru/tekegram_catalog/

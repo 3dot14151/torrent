@@ -6,7 +6,7 @@ The Smoothies - January Cozy Nights (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32095.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ S.U.P. - Anomaly (1995) Limited Edition, Reissue, 2016, Overpowered Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31990.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mutagenic Host - The Diseased Machine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31988.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31915.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31898.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31897.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31894.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31889.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31886.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31884.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31883.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ringo Starr - Look Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31488.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Tremonti - The End Will Show Us How (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31473.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31458.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31370.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31363.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31139.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31060.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Soulstance and Lo Greco Bros - The Cinematic Sound Of Soulstance (2025) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31057.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wlodek Gulgowski - Soundcheck (1976) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31056.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Essence - Caverns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31053.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Last Sentinel - Eternal Blade Chronicles (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31052.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Last Sentinel - Riftborn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31050.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31043.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30932.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Carl Allen - Tippin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30848.jpg" />
 </div>
 
 

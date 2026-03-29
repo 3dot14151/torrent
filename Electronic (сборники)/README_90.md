@@ -1,3 +1,61 @@
+###  Публикация: 1029831   (678612) от 28.06.2016
+
+VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
+02. Digital Department -  Enzox 6:54
+03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
+04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029816   (678611) от 28.06.2016
+
+VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
+02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
+03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
+04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029544   (678608) от 28.06.2016
 
 VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
@@ -6,7 +64,7 @@ VA - Ultimate Workout Dance Player (2016) [MP3|256 кб/с] <Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678608.jpg" />
+  <img src="Z:/picture/008/save_picture_678608.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678605.jpg" />
+  <img src="Z:/picture/008/save_picture_678605.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678604.jpg" />
+  <img src="Z:/picture/008/save_picture_678604.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678603.jpg" />
+  <img src="Z:/picture/008/save_picture_678603.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, So
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678602.jpg" />
+  <img src="Z:/picture/008/save_picture_678602.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Hot Party Summer (2016) [MP3|320 Kbps] <Latin, Electronic, Dancehall>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678601.jpg" />
+  <img src="Z:/picture/008/save_picture_678601.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - 150 In Style Trance Melodic Showing (2016) [MP3|320 Kbps] <Trance, Upliftin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678597.jpg" />
+  <img src="Z:/picture/008/save_picture_678597.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 1 (2016) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678596.jpg" />
+  <img src="Z:/picture/008/save_picture_678596.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Turbo Dance. Mix Music (2016) [MP3|233-320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678595.jpg" />
+  <img src="Z:/picture/008/save_picture_678595.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - YR Best Chillout vol.42 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678480.jpg" />
+  <img src="Z:/picture/008/save_picture_678480.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Club Dance Ambience vol.75 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678471.jpg" />
+  <img src="Z:/picture/008/save_picture_678471.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ DJ Nurlanus - Summer Dance Mix 5 (2016) [MP3|320 Kbps] <House, Dance Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678467.jpg" />
+  <img src="Z:/picture/008/save_picture_678467.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - YR Best Chillout Vol.41 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678371.jpg" />
+  <img src="Z:/picture/008/save_picture_678371.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ VA - YR Best Chillout Vol.40 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Baleari
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678357.jpg" />
+  <img src="Z:/picture/008/save_picture_678357.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ VA - Inferno Techno Electronics (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678355.jpg" />
+  <img src="Z:/picture/008/save_picture_678355.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ VA - Diskoteka Club Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678329.jpg" />
+  <img src="Z:/picture/008/save_picture_678329.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Psy Trance Workout Music - Top 100 Burn Remixes 6hr DJ Mix (2016) [MP3|320 Kbps]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678328.jpg" />
+  <img src="Z:/picture/008/save_picture_678328.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ VA - Nude Mix #4 (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678324.jpg" />
+  <img src="Z:/picture/008/save_picture_678324.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678252.jpg" />
+  <img src="Z:/picture/008/save_picture_678252.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678238.jpg" />
+  <img src="Z:/picture/008/save_picture_678238.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678210.jpg" />
+  <img src="Z:/picture/008/save_picture_678210.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ VA - Coastlines 100 Workout Hits (2018) [MP3|320 Kbps] <Electro, Indie, Reggae>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677385.jpg" />
+  <img src="Z:/picture/008/save_picture_677385.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - The First Protocol: Global Clubbing Trance (2017) [MP3|320 Kbps] <Trance, P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677280.jpg" />
+  <img src="Z:/picture/008/save_picture_677280.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Record Super Chart #487 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676841.jpg" />
+  <img src="Z:/picture/008/save_picture_676841.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ VA - Record Super Chart #487 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909C0C10C7A7E875F99CC837DC6365F7C268FB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029978   (676789) от 29.06.2016
-
-VA - Deep Without Speed Vol.1 (Relaxed Deep House Tunes) (2016) [MP3|320 Kbps] <Downtempo, Electronics, Deep Groove>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boogeyman - I`ve Got This Secret 09:09
-02. Miguel Alcobia - Ericeira 10:02
-03. Dr. Beat - Show Me The Stars 09:45
-04. Alex Naevecke - Underwater Love (Part 1) 04:10(   Читать дальше...   )Жанр: Downtempo, Electronics, Deep GrooveПродолжительность: 03:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876E78BAD20F37915305615B1AE7479FEBA0FB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029925   (676786) от 29.06.2016
-
-VA - European EDM Set July (2016) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676786.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arsonnic - Poet (Original Mix)
-002. Turbotronic - Hot Body (Original Mix)
-003. Clubhunter - Me & You (Turbotronic Mix)
-004. Zimrah - Live Without You (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 09:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAFB599EDB91ACFF6B2E65485C64C0E0BB43136
 ```
 
 https://mybot314.ru/tekegram_catalog/

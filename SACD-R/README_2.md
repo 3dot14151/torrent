@@ -6,7 +6,7 @@ The White Stripes - Elephant (2003) SACD, Reissue, Remastered, 2023, Analogue Pr
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123550.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nils Lofgren - Acoustic live (1997) SACD, Remastered, 2016, Analogue Productions
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123537.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Warren Zevon - Excitable Boy (1978) SACD, Reissue, Remastered, 2023, Mobile Fide
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123526.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Al Di Meola - Flesh on Flesh (2002) [DSD 2.0, DST 5.1 1bit/2822,4kHz |SACD-R] <J
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118184.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115217.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Peter Frampton - Frampton (1975) SACD, Remastered, 2023, Intervention Records [D
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106304.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Creedence Clearwater Revival - Compilation (2006) [DSD 2.0 1bit/2822,4kHz |SACD-
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84216.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Rossini & Hoffmeister - Quartets with Double Bass, Vol. 2 (2018) [DSD 2.0, DST 5
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71088.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Billy Joel - Piano Man. 50th Anniversary Deluxe Edition (1973) Japanese Edition,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63711.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Genesis - Selling England By The Pound (1973) SACD, Remastered, 2024, Analogue P
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62109.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity So
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61012.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Paul Mauriat - Windy & You Don't Know Me (1986-1990) SACD, 2023, Vocalion [DST64
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58046.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53668.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53089.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53029.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Yes - The Yes Album (1971) Reissue, Remastered, 2024, Analogue Productions  [DSD
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47745.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Annalisa - E Poi Siamo Finiti Nel Vortice (2023)  [DSD64 2.0|1bit/2822,4kHz |SAC
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37656.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Queen - Greatest Hits II (1991) /2013 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36429.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23851.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Depeche Mode - SACD Anthology (1981-2005) [DSD 5.1, 2.0 1bit/2822,4kHz |SACD-R]<
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11046.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Holst, Grieg - Herbert von Karajan, Vienna Philharmonic - The Planets, Peer Gynt
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5953.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fi
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4847.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Pharoah Sanders - Karma (1969) SHM-SACD, Japanese Edition, Reissue, Remastered, 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3291.jpg" />
 </div>
 
 

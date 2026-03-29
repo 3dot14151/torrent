@@ -1,3 +1,148 @@
+###  Публикация: 1719417   (110554) от 29.04.2024
+
+Cos - Viva Boma (1976) Japanese Edition, SHM-CD, Reissue, Remastered, 2010, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perhaps Next Record
+02. Viva Boma
+03. Nog Verder
+04. Boehme(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D213C04D78F4A9C0A70F5D72577CE14CC76E0536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719632   (110517) от 30.04.2024
+
+Lynyrd Skynyrd - Fyfty (2023) 4xCD, Compilation, Super Deluxe [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110517.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Comin’ Home (5:32)
+02. I Ain’t The One (3:55)
+03. Gimme Three Steps (4:29)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 04:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5171772EB7AADBC7874D22BFC970720FECC4910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719481   (110513) от 30.04.2024
+
+Matney & Stevie Salas - The Red Neck & The Red Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel Saint [00:03:11]
+02. All Fired Up [00:03:00]
+03. Big Daddy [00:02:32]
+04. All She Wrote [00:02:42](   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CC2FA1F887F5100D1378B43F543B287818B817
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719873   (110487) от 01.05.2024
+
+Amon Duul II - Yeti (1970) Japanese Edition, Reissue, Remastered, 2005, Belle Antique [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soap Shop Rock: A. Burning Sister
+02. Soap Shop Rock: B. Halluzination Guillotine
+03. Soap Shop Rock: C. Gulp a Sonata
+04. Soap Shop Rock: D. Flesh-Coloured Anti-Aircraft Alarm(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1904BA50363A58F4ADE3487066CB8F35208D082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719679   (110485) от 01.05.2024
+
+Apenheart - Realizer (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift of the Dawn [00:05:23]
+02. Backed by the Wind [00:05:50]
+03. Better [00:04:52]
+04. Changing of the Guard [00:04:25](   Читать дальше...   )Жанр: Progressive Rock, Jazz RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E314F9C6997F05421B18B1A0FE087B90C57A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719535   (110477) от 01.05.2024
 
 The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
@@ -6,7 +151,7 @@ The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110477.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ FM - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110383.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Benke Bunker Band - Rulla Hatt (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110229.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Alicate - Heaven Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110223.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Warhorse - The Recordings: 1970-1972 (2024) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110121.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ MaidaVale - Sun Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110096.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Matt Page - Apocalypse Garden (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110020.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ George Harrison - Brainwashed (2002) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109896.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ VA - Top 20 Best Pop Rock Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109814.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ VA - British Rock Hits Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109801.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ VA - Modern Rock Mavericks (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109784.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ VA - Global Rock Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109755.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109727.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109618.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Maragda - Tyrants (2024) [FLAC|Lossless|WEB-DL|tracks] <progressive rock, psych,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109575.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ ManDoki Soulmates - A Memory Of Our Future (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109568.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ U2 - Last Night On Earth (1997) Remastered, 2024, UMC [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109528.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Collective Soul - Here To Eternity (2024) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109453.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109434.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ The Neal Morse Band - Innocence & Danger (2021) [FLAC|Lossless|tracks + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109423.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109406.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ Corey Taylor - CMF2B... or Not 2B (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:191B7D66E730445E280597BBA7C88459F56BF4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723968   (109377) от 17.05.2024
-
-Jeff Kollman - 2023 A.D. (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2023 A.D. (1:22)
-02. Tribal Scream (5:23)
-03. Tongs & Thongs (feat. Chad Smith) (3:53)
-04. Layers (4:02)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BDFB07078EF9B172456763EC3A52758AA73D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723862   (109350) от 18.05.2024
-
-Halestorm - Live At Wembley (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Miss the Misery (5:23)
-02. Love Bites (So Do I) (3:15)
-03. I Get Off (8:20)
-04. Wicked Ways (3:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CF38BFAD5B46C774BC4DD649EC57AE998D0A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724179   (109305) от 18.05.2024
-
-Ayreon - 01011001 - Live Beneath The Waves (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109305.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. March Of The Machines (2:46)
-02. Age of Shadows (10:27)
-03. Comatose (4:23)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4AAE31FFBDF971B1C447CF99323DF2F01505D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724319   (109258) от 19.05.2024
-
-Agusa - Noir (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic Rock, Prog Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunnelseende
-02. Skottet i parken
-03. Ljusglimtar
-04. Den forsvunne brevbararen(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Prog FolkПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D253509790458ED5AE0B96371C84D98800FCEF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724484   (109218) от 20.05.2024
-
-The Things - Coloured Heaven (1984) Remastered, 2024, Teen Sound [FLAC|Lossless|WEB-DL|tracks] <Psychedelic pop rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes of a Child [00:03:22]
-02. I Won’t Be There [00:02:24]
-03. It’s Not That Way [00:03:50]
-04. She Came out of the Sky [00:03:32](   Читать дальше...   )Жанр: Psychedelic pop rock, Garage RockПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD315CB2A5CEFED2886F9B2B1440944C43C549E
 ```
 
 https://mybot314.ru/tekegram_catalog/

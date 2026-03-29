@@ -1,3 +1,29 @@
+###  Публикация: 1047427   (372702) от 04.11.2016
+
+Штамм / The Strain (2016) WEB-DL / WEBRip [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) BaibaKo [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372702.jpg" />
+</div>
+
+
+###  Подробнее
+
+В аэропорту Нью-Йорка экстренно приземляется самолет, полный мертвецов. Для выяснения обстоятельств их смерти на борт направляются ученые, возглавляемые лучшим городским эпидемиологом Эфраимом Гудвезером. В ходе исследований становится ясно, что пассажиры заражены вирусом вампиризма, который грозит перерасти в масштабную эпидемию, способную погубить все человечество. (   Читать дальше...   )Производство: США / MiradaЖанр: Ужасы, фантастика, драмаРежиссер: Гильермо дель Торо, Дэвид Семел, Кит ГордонАктеры: Дэвид Брэдли, Энн Бетанкорт, Николай Вич, Педро Мигель Арсе, Дрю Нельсон, Джо Веркилло, Джим Уотсон, Алекс Пэкстон, Джонатан Поттс, Рихард Заммель и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка / Автор перевода: Алексей Кузнецов, Олекса Мельник, Лира Грим и Светлана Доманова / vipere, Фиона Кудреватых и Ольга ПашковаПродолжительность: ~00:43:00 серияРеклама: присутствуют голосовые и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149892B3C795D1CFC2CD0BFFDD9CE916D6C9A496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415967   (371757) от 14.10.2020
 
 Хельдт / Heldt (2014) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-12 из 12) ViruseProject [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371757.jpg" />
+  <img src="Z:/picture/008/save_picture_371757.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371587.jpg" />
+  <img src="Z:/picture/008/save_picture_371587.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371318.jpg" />
+  <img src="Z:/picture/008/save_picture_371318.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371306.jpg" />
+  <img src="Z:/picture/008/save_picture_371306.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369309.jpg" />
+  <img src="Z:/picture/008/save_picture_369309.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365106.jpg" />
+  <img src="Z:/picture/008/save_picture_365106.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364974.jpg" />
+  <img src="Z:/picture/008/save_picture_364974.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363851.jpg" />
+  <img src="Z:/picture/008/save_picture_363851.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362577.jpg" />
+  <img src="Z:/picture/008/save_picture_362577.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362460.jpg" />
+  <img src="Z:/picture/008/save_picture_362460.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360450.jpg" />
+  <img src="Z:/picture/008/save_picture_360450.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360447.jpg" />
+  <img src="Z:/picture/008/save_picture_360447.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360443.jpg" />
+  <img src="Z:/picture/008/save_picture_360443.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360215.jpg" />
+  <img src="Z:/picture/008/save_picture_360215.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359988.jpg" />
+  <img src="Z:/picture/008/save_picture_359988.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359984.jpg" />
+  <img src="Z:/picture/008/save_picture_359984.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359971.jpg" />
+  <img src="Z:/picture/008/save_picture_359971.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359863.jpg" />
+  <img src="Z:/picture/008/save_picture_359863.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359720.jpg" />
+  <img src="Z:/picture/008/save_picture_359720.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359712.jpg" />
+  <img src="Z:/picture/008/save_picture_359712.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357825.jpg" />
+  <img src="Z:/picture/008/save_picture_357825.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357795.jpg" />
+  <img src="Z:/picture/008/save_picture_357795.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357535.jpg" />
+  <img src="Z:/picture/008/save_picture_357535.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357374.jpg" />
+  <img src="Z:/picture/008/save_picture_357374.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357325.jpg" />
+  <img src="Z:/picture/008/save_picture_357325.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DBEC8B80B3796793686681C5DC09D6D5CE164FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404376   (357324) от 20.10.2020
-
-Страна Лавкрафта / Lovecraft Country (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) Gears Media [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357324.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-летний ветеран Корейской войны Аттикус вместе с подругой детства и дядей отправляется в путешествие по Штатам на поиски отца. На пути он встретится не только с расистами, но и с настоящими монстрами.Производство: США / Bad Robot, Monkeypaw Productions, Warner Bros. TelevisionЖанр: Ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Дэниэл Сакхайм, Ян Деманж, Шерил ДьюнайАктеры: Джонатан Мэйджерс, Джерни Смоллетт, Кортни Б. Вэнс, Майкл Кеннет Уильямс, Чейз Браун, Онжаню Эллис, Маркус А. Гриффин мл., Эбби Ли, Вунми Моссаку, Джада Харрис и др.Перевод: Двуголосый профессиональный (Gears Media)Продолжительность: ~01:10:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD35323E829B5966E2C42D481F50CEEF893FC2DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

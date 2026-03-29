@@ -1,3 +1,107 @@
+###  Публикация: 1096693   (916888) от 25.01.2017
+
+NVIDIA GeForce Desktop 378.49 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916888.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09413F3E7B6DBA819B9637CF082A952FBC7CE22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096926   (916751) от 25.01.2017
+
+Image Uploader 1.3.2 build 4510 alpha + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7205BAA75D04451AAC1C6407A17F658EB9E025B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365805   (916638) от 15.03.2020
+
+Разрабы / Devs (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 8) HDRezka (Обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — компьютерный инженер Лили Чан. Она работает в передовой технологической компании Amaya, расположенной в Сан-Франциско, и подозревает, что руководство фирмы виновно в смерти её парня. В попытке найти следы преступления она натыкается на секретное подразделение, которым заведует загадочный Форест.Производство: США / DNA Films, FX Productions, Scott Rudin ProductionsЖанр: фантастика, триллер, драмаРежиссер: Алекс ГарлендАктеры: Соноя Мидзуно, Ник Офферман, Элисон Пилл, Зэк Гренье, Кэйли Спэни, Стивен Хендерсон, Карл Глусман, Джефферсон Холл и др.Перевод: Многоголосый профессиональный (HDRezka Studio)Продолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C538AA671AA867901D211943B34C979A72BD056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366323   (916635) от 15.03.2020
+
+Цвет из иных миров / Color Out of Space (2019) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фермер Нэйтан Гарднер с женой и тремя детьми живёт в отдалении от цивилизации. Однажды рядом с его домом падает метеорит, на следующий же день исчезает, и теперь вокруг места падения разрастаются необычные цветы, а телевидение и мобильная связь работают с помехами. Приехавший проверить местную воду гидролог уверен, что пить её не стоит, но члены семьи Гарднер не (   Читать дальше...   )Производство: США, Малайзия, Португалия | SpectreVision, ACE Pictures Entertainment, ...Жанр: Ужасы, фантастикаРежиссер: Ричард СтэнлиАктеры: Николас Кейдж, Джоэли Ричардсон, Мадлен Артур, Эллиот Найт, Томми Чонг, Брендан Мейер, Джулиан Хиллиард, Джош С. Уоллер, К’Орианка Килчер, Мелисса НирманПеревод: Дублированный | iTunesСубтитры: Русские (forced, full FOCS ненормативная лексика), английскиеПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCE459147D306F32E650B961EB5CA80FC68179F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 632498   (916543) от 21.08.2021
 
 Photo Studio PRO v2.5.6.6 [Ru/Multi]
@@ -6,7 +110,7 @@ Photo Studio PRO v2.5.6.6 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916543.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ USB Disk Security 6.0.0.126 Eng/Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916421.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916407.jpg" />
 </div>
 
 
@@ -90,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916402.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916335.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ Virtual Audio Cable 4.10 RePack [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915927.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Aliens vs. Predator [Ru/En] (RePack/2.27/DLC) 2010 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915923.jpg" />
 </div>
 
 
@@ -196,7 +300,7 @@ Cent Browser 2.3.7.50 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915120.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Max Payne (2001) [Ru] (1.05) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914990.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Doom 3 (2004) [Ru/En] (1.3.1/dlc) Repack R.G. Механики [Gold Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914989.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914960.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914775.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914773.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель (2011) [Ru/En] (1.1.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914563.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914553.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ Cumulative Update KB3216755 for Windows 10 Final [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913542.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913375.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Windows 10 Pro 1909 b18363.720 x64 by SanLex (edition 2020-03-16) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913325.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM March 2020 by Generation2 (Multi-7/Ru)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913316.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913312.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ TeamViewer 15.3.8497 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913304.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913253.jpg" />
 </div>
 
 
@@ -573,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990017   (913247) от 24.02.2016
-
-Снимок телескопа Hubble - галактика NGC 4889, содержащая одну из самых больших черных дыр в известной нам части Вселенной
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический телескоп Hubble (Hubble Space Telescope) сделал новый снимок эллиптической галактики NGC 4889. Во внешнем облике этой галактики нет ничего особо выдающегося. Однако, эта галактика примечательна тем, что в ее центре находится одна из самых больших обнаруженных учеными-астрономами в доступной для изучения части Вселенной гигантских черных дыр, которую, к сожалению, уже невозможно увидеть даже при помощи самых мощных астрономических инструментов.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989393   (912811) от 24.02.2016
-
-Не верю, я – робот?! / OMG, I m a Robot! (2015) HDTVRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дани, инфантильный молодой человек, тяжело переживая уход подруги, решает покончить с собой, но внезапно обнаруживает, что он — робот…Производство: ИзраильЖанр: Фантастика, КомедияРежиссер: Таль Голдберг, Галь ЖелезнякАктеры: Йотам Ишай, Хили Ялон, Цахи Град, Дрор Керен, Инна Беккельман, Роб Шнайдер, Нели ТагарПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Павел Морозов aka PashaUpЯзык субтитров: ИвритПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825FBDF30D99E5F5713737730AD127B15B8D2FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977615   (912806) от 24.02.2016
-
-Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.3/dlc) SteamRip Let'sРlay
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homeworld: Deserts of Kharak - стратегия в реальном времени, которая является приквелом к серии Homeworld. Игра предлагает отправиться в экспедицию и разузнать тайны пустыни Харака. Сюжет крутиться вокруг девушки по имени Рейчел С-Джет, являющейся опытной исследовательницей. В распоряжении игроков окажется множество военной техники, включая небольшие штурмовые машины, (   Читать дальше...   )Тип издания: SteamRipРазработчик: Blackbird InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD79662FDC870CC5BFE627D605D2D3F41629FBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979511   (912804) от 24.02.2016
-
-Секретные материалы / The X-Files (2016) WEB-DLRip [H.264] (сезон 10, серии 1-6 из 6) ТВ3, Кравец
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фокс Малдер и Дана Скалли снова вместе. На них выходит ведущий интернет-канала Тэд О'Малли, специализирующийся на расследовании государственных секретов. По словам О'Малли, он близок к раскрытию международного заговора, скрывающего от населения всю правду об инопланетянах. Малдер готов поверить О'Малли, Скалли как всегда скептична, но, как минимум, готова выслушать (   Читать дальше...   )Производство: США / 20th Century Fox Television, Ten Thirteen ProductionsЖанр: фантастика, триллер, драма, детективРежиссер: Крис Картер, Дэрин Морган, Глен МорганАктеры: Дэвид Духовны, Джиллиан Андерсон, Митч Пиледжи, Уильям Б. Дэвис, Робби Амелл, Том Брэйдвуд, Дин Хэглунд, Брюс Харвуд, Джоэл МакХэйл, Лорен Эмброуз и др.Перевод: Дублированный (ТВ3), многоголосый закадровый, профессиональный (Кравец)Субтитры: отсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF64026E9CBE77631A93572EFC5C3F00BBC367A
 ```
 
 https://mybot314.ru/tekegram_catalog/

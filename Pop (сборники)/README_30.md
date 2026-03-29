@@ -1,3 +1,61 @@
+###  Публикация: 1275752   (789452) от 13.01.2019
+
+VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Hugel, Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275807   (789334) от 13.01.2019
+
+VA - Ukrainian Hits Vol.5 (Romantic) (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наталія Могилевська - Вільний Птах (Серед Гір) (3:53)
+02. ТіК & Ірина Білик - Не Цілуй (3:44)
+03. The Hardkiss - Прірва (2:55)
+04. Тіна Кароль - Шукай Мене (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B533FF8B292271299E430CB75DAF9C482DF57F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511126   (789250) от 20.11.2021
 
 VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +64,7 @@ VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789250.jpg" />
+  <img src="Z:/picture/008/save_picture_789250.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789059.jpg" />
+  <img src="Z:/picture/008/save_picture_789059.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789031.jpg" />
+  <img src="Z:/picture/008/save_picture_789031.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - German Top 100 Single Charts 19.11.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788850.jpg" />
+  <img src="Z:/picture/008/save_picture_788850.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - German Top 100 Single Charts 02.02.2018 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788644.jpg" />
+  <img src="Z:/picture/008/save_picture_788644.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - NRJ Urban Latino Hits Only (2018) [MP3|320 Kbps] <Pop, Latin Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788598.jpg" />
+  <img src="Z:/picture/008/save_picture_788598.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - German Top 100 Single Charts 21.01.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788589.jpg" />
+  <img src="Z:/picture/008/save_picture_788589.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
+  <img src="Z:/picture/008/save_picture_788222.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ukrainian Hits Vol. 4 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788074.jpg" />
+  <img src="Z:/picture/008/save_picture_788074.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Annett Louisan - Engel (2017) Rammstein Cover Lyrics [MP3|320 Kbps] <Pop music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787872.jpg" />
+  <img src="Z:/picture/008/save_picture_787872.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Лидеры чартов танцевальных FM станций 9 (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787664.jpg" />
+  <img src="Z:/picture/008/save_picture_787664.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Зайцев.нет Лучшие новинки Января 2019 [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787182.jpg" />
+  <img src="Z:/picture/008/save_picture_787182.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Лучшие треки 2018 года от Zaycev.fm (2019) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787167.jpg" />
+  <img src="Z:/picture/008/save_picture_787167.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - German Top 50 Official Dance Charts 18.01.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787021.jpg" />
+  <img src="Z:/picture/008/save_picture_787021.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786585.jpg" />
+  <img src="Z:/picture/008/save_picture_786585.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Высшая лига. Весна (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786412.jpg" />
+  <img src="Z:/picture/008/save_picture_786412.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - На волне позитива. Часть № 8 (2017) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786410.jpg" />
+  <img src="Z:/picture/008/save_picture_786410.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Музыкальный подарок выпуск № 4 (2017) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786406.jpg" />
+  <img src="Z:/picture/008/save_picture_786406.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Популярные весенние новинки (2017) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
+  <img src="Z:/picture/008/save_picture_786401.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
+  <img src="Z:/picture/008/save_picture_786397.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786218.jpg" />
+  <img src="Z:/picture/008/save_picture_786218.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786215.jpg" />
+  <img src="Z:/picture/008/save_picture_786215.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
+  <img src="Z:/picture/008/save_picture_786214.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786213.jpg" />
+  <img src="Z:/picture/008/save_picture_786213.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123575   (786205) от 09.04.2017
-
-VA - Музыкальный презент на Europa Plus. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786205.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Черешня - Градус Любви 3:50
-002. Ustinova - Ночь Поет 3:16
-003. Дискотека Авария - Моя Любовь 3:08
-004. Davlad - Прости 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE53F797C728B84C391DF5D8ED740F87219F5B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123546   (786204) от 09.04.2017
-
-VA - Лучшая дискотека на Europa Plus. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dato - Если Это Не Любовь 4:27
-002. Fargo - Взаимные Лайки 3:50
-003. Султан (Sultan) - Она Моя 3:34
-004. Восемь По Гринвичу - Родились Побеждать 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B82688375EC03EE5BC1DF71A5434C9960A246B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1317600   (351656) от 05.10.2019
+
+Spintires: The Original Game (2014) [Ru/Multi] (1.3.7/dlc) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spintires®: The Original Game — уникальный симулятор от компании Oovee® Game Studios с реалистичной графикой и отличной физикой взаимодействия колес техники с поверхностью. Игра, изначально являющаяся демонстрацией физического движка Havok, была создана для конкурса Havok Physics Innovation Contest (от компании Intel). Вам предстоит управлять грузовиками по бездорожью (   Читать дальше...   )Тип издания: LicenseРазработчик: Oovee® Game StudiosЖанр: Simulator, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919B9FD45222AB9EC35957A1C044E7727F039483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317443   (351651) от 05.10.2019
 
 Oxygen Not Included (2019) [Ru/Multi] (372041) License CODEX
@@ -6,7 +32,7 @@ Oxygen Not Included (2019) [Ru/Multi] (372041) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351651.jpg" />
+  <img src="Z:/picture/008/save_picture_351651.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tony Hawk's Pro Skater HD [Ru/En/Multi5] (Lossless Repack/1.0.8788.0) 2012 | R.G
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344847.jpg" />
+  <img src="Z:/picture/008/save_picture_344847.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341838.jpg" />
+  <img src="Z:/picture/008/save_picture_341838.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Train Simulator 2019 (2018) [Ru/Multi] (65.6f) Repack Other s [32 & 64-bit Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337984.jpg" />
+  <img src="Z:/picture/008/save_picture_337984.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Construction Simulator 2015 (2014) [Ru/Multi] (11.11.2015) License SKIDROW [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329863.jpg" />
+  <img src="Z:/picture/008/save_picture_329863.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Police Helicopter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308962.jpg" />
+  <img src="Z:/picture/008/save_picture_308962.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Thief Simulator (2018) [Ru/Multi] (1.02) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306911.jpg" />
+  <img src="Z:/picture/008/save_picture_306911.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Malzbie's Pinball Collection (2017) [Multi] (1.9.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303145.jpg" />
+  <img src="Z:/picture/008/save_picture_303145.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.10.2.468/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302812.jpg" />
+  <img src="Z:/picture/008/save_picture_302812.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/6/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301674.jpg" />
+  <img src="Z:/picture/008/save_picture_301674.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10715/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298399.jpg" />
+  <img src="Z:/picture/008/save_picture_298399.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Farming Simulator 19 (2018) [Ru/Multi] (1.1.0.0/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285446.jpg" />
+  <img src="Z:/picture/008/save_picture_285446.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285422.jpg" />
+  <img src="Z:/picture/008/save_picture_285422.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279139.jpg" />
+  <img src="Z:/picture/008/save_picture_279139.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ TIS-100 (2015) [En] (11.27.2017) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276706.jpg" />
+  <img src="Z:/picture/008/save_picture_276706.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275618.jpg" />
+  <img src="Z:/picture/008/save_picture_275618.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Project Hospital (2018) [Ru/Multi] (1.0.14611) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272881.jpg" />
+  <img src="Z:/picture/008/save_picture_272881.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ PRO FISHING SIMULATOR (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272855.jpg" />
+  <img src="Z:/picture/008/save_picture_272855.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ PC Building Simulator (2019) [Ru/En] (1.5.2/dlc) Repack Sceef
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272359.jpg" />
+  <img src="Z:/picture/008/save_picture_272359.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Domina (2018) [En] (1.2.11) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269755.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269299.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Two Point Hospital (2018) [Ru/Multi] (1.9.24446/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266566.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Dawn of Man (2019) [Ru/Multi] (1.3.3) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262569.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.0.2_457676/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261675.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ DAVE THE DIVER (2023) [Ru/Multi] (1.0.5.1749/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261669.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ Dave the Diver - это казуальная приключенческая RPG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C39FD203B49100C3B3E65A3A08B2065E3CA4A0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838283   (259828) от 21.11.2025
-
-Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundle]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259828.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре-симуляторе космических колоний «Кислород не включен» вы обнаружите, что недостаток кислорода, тепла и средств к существованию является постоянной угрозой выживанию вашей колонии. Проведите колонистов через опасности подземной жизни астероидов и наблюдайте, как их население растет, пока они станут не просто выживать, но процветать. И убедитесь, что вы не забыли (   Читать дальше...   )Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Инди, СимуляторыЯзык озвучки: Русский, Английский, Китайский (упрощенный), КорейскийЯзык интерфейса: Русский, Английский, Китайский (упрощенный), Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C7B17CBABB28CA0E8D615473C1A7DB1C00080A
 ```
 
 https://mybot314.ru/tekegram_catalog/

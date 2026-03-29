@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779864.jpg" />
+  <img src="Z:/picture/008/save_picture_779864.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Red Giant Shooter Suite 13.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779856.jpg" />
+  <img src="Z:/picture/008/save_picture_779856.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779849.jpg" />
+  <img src="Z:/picture/008/save_picture_779849.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779846.jpg" />
+  <img src="Z:/picture/008/save_picture_779846.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Skype 8.16.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779840.jpg" />
+  <img src="Z:/picture/008/save_picture_779840.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779831.jpg" />
+  <img src="Z:/picture/008/save_picture_779831.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779825.jpg" />
+  <img src="Z:/picture/008/save_picture_779825.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ VA - Errormatic Vol​.​1 (2018) Clean Error [FLAC|Lossless|WEB-DL|tracks] <Ab
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779819.jpg" />
+  <img src="Z:/picture/008/save_picture_779819.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Corey Nolen & Ashley Spurling - Not All Roses (2018) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779814.jpg" />
+  <img src="Z:/picture/008/save_picture_779814.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Adrena Line - Live @ Club Level (3 Urodziny duetu DJ Gacki & DJ Pavlik ) (2018) 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779813.jpg" />
+  <img src="Z:/picture/008/save_picture_779813.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Navicat Premium 12.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779788.jpg" />
+  <img src="Z:/picture/008/save_picture_779788.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Auslogics Disk Defrag Free 8.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779785.jpg" />
+  <img src="Z:/picture/008/save_picture_779785.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Calibre 3.18.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779784.jpg" />
+  <img src="Z:/picture/008/save_picture_779784.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Quiet Soul Nights (2018) [MP3|320 Kbps] <R&B, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779778.jpg" />
+  <img src="Z:/picture/008/save_picture_779778.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Viber 8.3.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779775.jpg" />
+  <img src="Z:/picture/008/save_picture_779775.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Google Chrome 64.0.3282.186 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779773.jpg" />
+  <img src="Z:/picture/008/save_picture_779773.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ GPU-Z 2.8.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779772.jpg" />
+  <img src="Z:/picture/008/save_picture_779772.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Victoria Monet - Life After Love Pt. 1 (2018) [MP3|320 Kbps] <RnB, Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779765.jpg" />
+  <img src="Z:/picture/008/save_picture_779765.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ TG Pro (Temperature Gauge Pro) 2.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779762.jpg" />
+  <img src="Z:/picture/008/save_picture_779762.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Movavi Video Suite 17.2.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779754.jpg" />
+  <img src="Z:/picture/008/save_picture_779754.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ ProduKey 1.92 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779752.jpg" />
+  <img src="Z:/picture/008/save_picture_779752.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ CompactGUI 2.5.1 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779751.jpg" />
+  <img src="Z:/picture/008/save_picture_779751.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ FastStone Capture 8.8 Final RePack (& portable) by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779745.jpg" />
+  <img src="Z:/picture/008/save_picture_779745.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779743.jpg" />
+  <img src="Z:/picture/008/save_picture_779743.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ mp3DirectCut 2.24 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779739.jpg" />
+  <img src="Z:/picture/008/save_picture_779739.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ SamDrivers 18.2 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779735.jpg" />
+  <img src="Z:/picture/008/save_picture_779735.jpg" />
 </div>
 
 

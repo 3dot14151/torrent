@@ -1,3 +1,82 @@
+###  Публикация: 1452873   (1025357) от 20.03.2021
+
+Расследования авиакатастроф. Спецвыпуски / Air Crash Investigation (2021) HDTV [H.264/1080i] (1-10 серии из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Производство: Канада, Cineflix Productions, National GeographicЖанр: документальный, история, реальное ТВ, драма, криминалРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Двуголосый профессиональныйПродолжительность: серии по ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116D977811891B97A352B02A53B7334917AC3D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159308   (1024828) от 23.03.2021
+
+NGW: Удивительные большероты / Incredible Gulpers (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дикой природе можно встретить большеротых существ, они без проблем могут проглотить еду целиком и зачастую живьём.
+Они все разных форм и размеров. Но у них есть две общие черты: гигантская пасть и чудовищный аппетит. Это - животные большероты. У одних обжор есть зубы, а другим они ни к чему. Завидущие глаза и ненасытные утробы не знакомы с правилами столового этикета. (   Читать дальше...   )Производство: США, Earth Touch and SN/SI Networks L.L.CЖанр: Документальный, природа, флора, фаунаРежиссер: Ванесса ЛукасПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459445   (1022909) от 03.04.2021
+
+NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [H.264/1080i] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные мощные суперкары - это удивительный симбиоз искусства и науки. Сериал "Производство суперкаров" познакомит вас с процессом их производства, проникнув за кулисы нескольких из самых легендарных автомобильных брендов, чтобы вы смогли узнать секреты инжиниринга и ключевые решения, которые способствовали успеху этих технологических чудес на рынке.Производство: США, Cry Havoc Productions Inc.Жанр: Документальный, суперкары, технологии.Перевод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1CA17E93A40E211D6CBCD3846D5254088E3C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325642   (1022873) от 03.04.2021
 
 Мастера боя: Самозащита / Fight masters: Self defense (2007) SATRip
@@ -6,7 +85,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022873.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016207.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011739.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010273.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010094.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ NG: Последствия: Когда Земля перестанет вращ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009071.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007239.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006852.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006717.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006465.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006244.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006086.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005986.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005577.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005567.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005167.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005067.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002502.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996000.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995813.jpg" />
 </div>
 
 
@@ -527,7 +606,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992975.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987402.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982027.jpg" />
 </div>
 
 
@@ -591,86 +670,6 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AB48C5CB721E68756A11D1EA66074A39DACC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614215   (981301) от 05.02.2013
-
-NG: Снежный барс Афганистана / NG: Snow Leopard of Afghanistan (2012) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общество охраны дикой природы совместно с National Geographic объединяются для того, чтобы сделать то, что никому ранее не удавалось: с помощью специальных ошейников и приспособлений изучить жизнь неуловимого и удивительно красивого животного – снежного барса Афганистана. Горная экспедиция общества охраны дикой природы в зону войны – это настоящий вызов здравому смыслу. Кроме того, регион, в котором обирают снежные барсы является лавиноопасным регионом, с возможному неожиданными снежными буранами и резкими перепадами температур. Команда, путешествующая из Кабула в дом снежного барса в горах на северо-востоке Афганистана, сталкивается с множеством проблем. Неисправное и потерянное оборудование, резкое изменение погоды и угроза нападения талибов могут стать причинами задержек и помешать исследователям найти снежного барса. Тем не менее, они находят снежного барса – первого в истории афганского барса, которого удалось поймать и с помощью специального оборудования начать исследование его жизни, которое позволит собрать (   Читать дальше...   )Жанр: Документальный, фаунаПеревод: ДублированныйПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355763   (980894) от 28.01.2020
-
-NG. Мухи и пиявки (мерзкие существа) / Flies and leeches (2004) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они представляют собой мерзких и грязных созданий и их никто не любит. Но у них есть своя ниша в нашей жизни, и они живут рядом с нами. И людям ничего не остается, как признать этот факт и попытаться использовать их для своих нужд. Документальное повествование посвящено мухам и пиявкам, их жизни, использования для людей в области медицины и криминалистики.Производство: США, Explorer, National GeographicЖанр: Документальный, научно-популярный, фаунаРежиссер: Джеф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974303   (976701) от 11.01.2016
-
-National Geographic: Сканеры древнего мира. Египетские пирамиды / Time scanners. Egyptian pyramids (2013) HDTVRip [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976701.jpg" />
-</div>
-
-
-###  Подробнее
-
-В документальном фильме «Сканеры древнего мира» используется передовая технология трехмерного лазерного сканирования, которая позволяет раскрыть секреты самых примечательных построек мира.
-Команда едет в Египет узнать о том, как пирамиды превратились из простых глинобитных построек в самые величественные сооружения Древнего мира.Телекомпания: National GeographicЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
-Студия АРК-ТВ, Игорь ТарадайкинПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C76B0F99CD5A44BE367637E0D1BD576B499FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888581.jpg" />
+  <img src="Z:/picture/005/save_picture_888581.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888298.jpg" />
+  <img src="Z:/picture/005/save_picture_888298.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Oystein Sevag - Space For A Crowded World (2012) [FLAC|Lossless|image + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888275.jpg" />
+  <img src="Z:/picture/005/save_picture_888275.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888198.jpg" />
+  <img src="Z:/picture/005/save_picture_888198.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888174.jpg" />
+  <img src="Z:/picture/005/save_picture_888174.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Relax With... 11 альбомов (1993-1997) [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888094.jpg" />
+  <img src="Z:/picture/005/save_picture_888094.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888049.jpg" />
+  <img src="Z:/picture/005/save_picture_888049.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887981.jpg" />
+  <img src="Z:/picture/005/save_picture_887981.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887976.jpg" />
+  <img src="Z:/picture/005/save_picture_887976.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887788.jpg" />
+  <img src="Z:/picture/005/save_picture_887788.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887713.jpg" />
+  <img src="Z:/picture/005/save_picture_887713.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Dark
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886921.jpg" />
+  <img src="Z:/picture/005/save_picture_886921.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885982.jpg" />
+  <img src="Z:/picture/005/save_picture_885982.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental,
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885967.jpg" />
+  <img src="Z:/picture/005/save_picture_885967.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885959.jpg" />
+  <img src="Z:/picture/005/save_picture_885959.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885955.jpg" />
+  <img src="Z:/picture/005/save_picture_885955.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885936.jpg" />
+  <img src="Z:/picture/005/save_picture_885936.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885933.jpg" />
+  <img src="Z:/picture/005/save_picture_885933.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Atom Music Audio - Continuum (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885932.jpg" />
+  <img src="Z:/picture/005/save_picture_885932.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Atom Music Audio - Codebreaker (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885924.jpg" />
+  <img src="Z:/picture/005/save_picture_885924.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Forndom - 1 album, 1 EP (2015-2016) [MP3|320 Kbps] <Dark Folk, Dark Ambient, Nor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885682.jpg" />
+  <img src="Z:/picture/005/save_picture_885682.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885382.jpg" />
+  <img src="Z:/picture/005/save_picture_885382.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884612.jpg" />
+  <img src="Z:/picture/005/save_picture_884612.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Acoustic Heroes - Relaxing Piano Sounds (Acoustic Bar and Lounge Music) (2014) [
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884406.jpg" />
+  <img src="Z:/picture/005/save_picture_884406.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884258.jpg" />
+  <img src="Z:/picture/005/save_picture_884258.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Pict
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883190.jpg" />
+  <img src="Z:/picture/005/save_picture_883190.jpg" />
 </div>
 
 

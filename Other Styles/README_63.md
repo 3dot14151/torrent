@@ -6,7 +6,7 @@ Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713039.jpg" />
+  <img src="Z:/picture/008/save_picture_713039.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712685.jpg" />
+  <img src="Z:/picture/008/save_picture_712685.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712678.jpg" />
+  <img src="Z:/picture/008/save_picture_712678.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712277.jpg" />
+  <img src="Z:/picture/008/save_picture_712277.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Pure... Country (2010) Box Set, 4 CD [FLAC|Lossless]<Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711938.jpg" />
+  <img src="Z:/picture/008/save_picture_711938.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711832.jpg" />
+  <img src="Z:/picture/008/save_picture_711832.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711311.jpg" />
+  <img src="Z:/picture/008/save_picture_711311.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711297.jpg" />
+  <img src="Z:/picture/008/save_picture_711297.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711283.jpg" />
+  <img src="Z:/picture/008/save_picture_711283.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711206.jpg" />
+  <img src="Z:/picture/008/save_picture_711206.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711188.jpg" />
+  <img src="Z:/picture/008/save_picture_711188.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711138.jpg" />
+  <img src="Z:/picture/008/save_picture_711138.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709083.jpg" />
+  <img src="Z:/picture/008/save_picture_709083.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sam Taylor - Ketteiban Sam Taylor Natsumero Best (2016) 2CD [MP3|320 Kbps] <Inst
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708971.jpg" />
+  <img src="Z:/picture/008/save_picture_708971.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708949.jpg" />
+  <img src="Z:/picture/008/save_picture_708949.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708917.jpg" />
+  <img src="Z:/picture/008/save_picture_708917.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708908.jpg" />
+  <img src="Z:/picture/008/save_picture_708908.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708561.jpg" />
+  <img src="Z:/picture/008/save_picture_708561.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708203.jpg" />
+  <img src="Z:/picture/008/save_picture_708203.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708123.jpg" />
+  <img src="Z:/picture/008/save_picture_708123.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708113.jpg" />
+  <img src="Z:/picture/008/save_picture_708113.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708021.jpg" />
+  <img src="Z:/picture/008/save_picture_708021.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Eni
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708018.jpg" />
+  <img src="Z:/picture/008/save_picture_708018.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, M
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707998.jpg" />
+  <img src="Z:/picture/008/save_picture_707998.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707946.jpg" />
+  <img src="Z:/picture/008/save_picture_707946.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707940.jpg" />
+  <img src="Z:/picture/008/save_picture_707940.jpg" />
 </div>
 
 

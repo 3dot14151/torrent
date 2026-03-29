@@ -1,3 +1,83 @@
+###  Публикация: 1808633   (10385) от 25.07.2025
+
+PrintMyFonts 24.8.31 Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10385.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrintMyFonts - программа для печати и экспорта шрифтов. Когда у вас в системе большое количество шрифтов (а чаще всего, при длительном использовании компьютера даже обычным пользователем, эта цифра ближе к 300), то ориентироваться среди них становится не очень просто.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D32AE1FD4B45F434FBD0E7C47F01E52E20FE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808668   (10270) от 26.07.2025
+
+PageEdit 2.5.0 (x64) [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10270.jpg" />
+</div>
+
+
+###  Подробнее
+
+PageEdit изначально разрабатывался как замена функции «Просмотр книги», которая была в старых версиях Sigil. Однако его также можно использовать как визуальный XHTML-редактор общего назначения.
+
+Это полностью бесплатное программное обеспечение с открытым исходным кодом написано и поддерживается исключительно добровольцами. В команду разработчиков PageEdit входят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D69DE765DD8AB1B72FB8B376381AFB720313DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808659   (10267) от 26.07.2025
+
+Sigil 2.6.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigil — программа представляет собой мощный редактор электронных книг в формате EPUB, позволяющий не только редактировать, но также создавать собственные электронные книги с собственным дизайном. Множество полезных функций, возможность настройки параметров конфигурации приложения делают данное программное обеспечение достаточно эффективным при работе с электронными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADEFCB05E4F0487ABB44870633F6A8AB77F107A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811604   (8710) от 10.08.2025
 
 Zettlr 3.6.0 [Multi/Ru]
@@ -6,7 +86,7 @@ Zettlr 3.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8710.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4957.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Lively Wallpaper 2.2.0.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4354.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ MSActBackUp 1.2.9 Portable by Ratiborus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3052.jpg" />
 </div>
 
 

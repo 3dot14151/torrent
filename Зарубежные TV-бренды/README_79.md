@@ -1,3 +1,107 @@
+###  Публикация: 1056824   (479308) от 26.09.2016
+
+NG: Осушение океана: Вторая мировая война / Drain the Ocean WWII (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что лежит на дне океанов и морей? Вторая мировая война оставила большое количество кораблей и подводных лодок, которые покоятся на морском дне. Если бы океаны были осушены, какие тайны раскрыло бы каждое судно? С помощью новых 3D реконструкций мы увидим: линкор «Аризона» затонувший в Перл-Харборе; гибель которого потрясла Америку; нацистский суперлинкор «Бисмарк» (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, флот, война, историяРежиссер: Майк СлиПеревод: ДублированныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7FE4EE66A7A4D93C540F465B0A9E95E8AD93F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056832   (479185) от 26.09.2016
+
+NG: Осушение океана: Вторая мировая война / Drain the Ocean WWII (2016) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что лежит на дне океанов и морей? Вторая мировая война оставила большое количество кораблей и подводных лодок, которые покоятся на морском дне. Если бы океаны были осушены, какие тайны раскрыло бы каждое судно? С помощью новых 3D реконструкций мы увидим: линкор «Аризона» затонувший в Перл-Харборе; гибель которого потрясла Америку; нацистский суперлинкор «Бисмарк» (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, флот, война, историяРежиссер: Майк СлиПеревод: ДублированныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D19D0662183DE4FC8B24DA8EB93E3944F43F787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701087   (478586) от 17.09.2013
+
+BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вкус — самое приятное и терпимое из наших чувств. Причины, по которым нам нравится та или иная еда намного удивительнее, чем мы думали. Экспериментатор из Флориды пытается вырастить томаты, которые сочнее, вкуснее и слаще тех, что можно купить в магазине. Он нашел способ сделать овощи слаще без добавления сахара. Причем благодаря тому, что происходит в нашей голове. (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярныйРежиссер: Никола СтоклиПеревод: Профессиональный многоголосый закадровый (ст. "Марафон")Субтитры: Английские (отключаемые)Продолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00ED7C3F3590FE4A88E87C9B50137F073004EDC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244728   (477730) от 03.09.2018
+
+History Channel: Великая Марсианская война 1913-1917 / The Great Martian War 1913 - 1917 (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псевдодокументальный фильм от History Channel рассказывает воображаемую историю о катастрофических событиях и немыслимых ужасах 1913-17 гг., когда человечество противостояло инопланетному вторжению…Телекомпания: History ChannelЖанр: документальный, фантастика, драма, военныйРежиссер: Майк СлиПеревод: голос рассказчика - дубляж, интервью - многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3DDB7EA0F7EDC76CE4BEE730F04B9B1A732872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319802   (477007) от 15.08.2019
 
 BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Ancient God of Ecstasy (2018) IPTVRip [H.264]
@@ -6,7 +110,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477007.jpg" />
+  <img src="Z:/picture/008/save_picture_477007.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477002.jpg" />
+  <img src="Z:/picture/008/save_picture_477002.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476815.jpg" />
+  <img src="Z:/picture/008/save_picture_476815.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476803.jpg" />
+  <img src="Z:/picture/008/save_picture_476803.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476674.jpg" />
+  <img src="Z:/picture/008/save_picture_476674.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DV: Радость победы / The Joy of Winning (2018) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476673.jpg" />
+  <img src="Z:/picture/008/save_picture_476673.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476664.jpg" />
+  <img src="Z:/picture/008/save_picture_476664.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NGW: Удивительные слоны (Душа гиганта) / Soul of the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476173.jpg" />
+  <img src="Z:/picture/008/save_picture_476173.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476156.jpg" />
+  <img src="Z:/picture/008/save_picture_476156.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ PBS Nova: Великая тайна математики / The Great Math Myster
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475606.jpg" />
+  <img src="Z:/picture/008/save_picture_475606.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474967.jpg" />
+  <img src="Z:/picture/008/save_picture_474967.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Загадки истории: Королева-девственница / H
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474196.jpg" />
+  <img src="Z:/picture/008/save_picture_474196.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473514.jpg" />
+  <img src="Z:/picture/008/save_picture_473514.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG: Женщина, воспитанная обезьянами / Woman Raised b
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472919.jpg" />
+  <img src="Z:/picture/008/save_picture_472919.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NGW: Анаконда. Королева змей / Anaconda. Queen of the serpen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472881.jpg" />
+  <img src="Z:/picture/008/save_picture_472881.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471923.jpg" />
+  <img src="Z:/picture/008/save_picture_471923.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471914.jpg" />
+  <img src="Z:/picture/008/save_picture_471914.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471795.jpg" />
+  <img src="Z:/picture/008/save_picture_471795.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471658.jpg" />
+  <img src="Z:/picture/008/save_picture_471658.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471134.jpg" />
+  <img src="Z:/picture/008/save_picture_471134.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470979.jpg" />
+  <img src="Z:/picture/008/save_picture_470979.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470954.jpg" />
+  <img src="Z:/picture/008/save_picture_470954.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43CFD77A07B5D22529DF7BCD17D819C5879951FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320507   (470911) от 18.08.2019
-
-NG: Миссия Сатурн (Внутри колец Сатурна) / Mission Saturn (2014) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470911.jpg" />
-</div>
-
-
-###  Подробнее
-
-На прекрасной планете Сатурн, более чем в миллиарде километров от Земли, космический аппарат стоимостью 3 млрд $, движется навстречу гибели. Это не авария, а жертва, призванная уберечь то, что позволила открыть эта миссия, включая спутник, на котором есть все необходимые для зарождения жизни компоненты. Мы не имеем права загрязнять мир, где может развиться жизнь (   Читать дальше...   )Производство: Канада, Exploration production Inc. in association with Discovery Channel and National GeographicЖанр: Документальный, научно-популярный, космосРежиссер: Шелли ЭйрсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5ACBF1590FB5069FCFF378AF1C9A6F7C462A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058056   (470828) от 30.09.2016
-
-NG: Титаник. Заключительное слово с Джеймсом Кэмероном / Titanic. The Final Word with James Cameron (2012) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470828.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Айсберг!!! Прямо по курсу..." - эту часть истории о Титанике мы все знаем. Но что происходило с кораблем после того, как он скрылся под водой? Титаник - превосходная, не решенная загадка. Что происходило в последние минуты с кораблем? Как он развалился? Как он утонул? Как достиг дна? Почему он затонул так быстро? Можно ли было спасти больше людей? Впервые (   Читать дальше...   )Телекомпания: США, Market Road Films, Earthship Productions, National Geographic TelevisionЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3A8205F38CF860348FD417510F28A22995B963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320433   (470795) от 18.08.2019
-
-NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/720p-LQ] (серии 4 из 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470795.jpg" />
-</div>
-
-
-###  Подробнее
-
-За пределами привычной нам реальности скрывается другой невероятный мир, противоречащий многим нашим представлениям о вселенной. Физик и известный писатель Брайан Грин, приглашает вас в путешествие, раздвигающее рамки человеческого плана. Почему в нашей вселенной не происходят события в обратном порядке? Ведь законы физики вполне это допускают.Производство: США, Великобритания, Франция, National Geographic Channel, NOVA Production by The Film Posse, ARTE FranceЖанр: Документальный, познавательный, научно-популярныйРежиссер: Грэхам Джадд, Сейбин СтритерПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D782ADEEC622AFED95A89133FA75560CE7E8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058136   (470706) от 30.09.2016
-
-Discovery: Один день в Освенциме / One Day In Auschwitz (2015) HDTVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плохое всегда хочется забыть. Однако есть события, о которых мы обязаны помнить, чтобы они больше никогда не повторились. К дню памяти жертв Холокоста Discovery Channel покажет программу «Один день в Освенциме», где об одном из самых страшных фашистских концентрационных лагерей расскажет его бывшая узница – Китти Хорт-Мокстон. Китти не побоялась вернуться туда, где (   Читать дальше...   )Телекомпания: США, USC Shoah Foundation & Discovery Networks InternationalЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0509ED0A35BE481C26ED79C15DDACD91CF7E7C1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1325589   (412435) от 15.09.2019
+
+В.В. Касьянов | Социология (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основные понятия социологической теории: общество, социальная структура, социальный институт, социальное взаимодействие, социальные изменения. Значительное внимание в нем уделяется применению социологических идей в журналистике, анализируется опыт и проблемы формирования современного медиасоциума, описываются важные аспекты социологических исследований (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9372B1994058FC95D2B3F1B888EC1ED5CB35065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325449   (412267) от 15.09.2019
+
+Ю.Н. Дементьев и др. | Электропривод типовых производственных механизмов (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412267.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены вопросы проектирования, разработки имитационных моделей в среде MATLAB–Simulink, настройки систем управления и компьютерного экспериментального исследования асинхронного частотно-регулируемого электропривода общепромышленного назначения. Представлен пакет моделей электропривода типовых производственных механизмов в среде MATLAB и пакет программ (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936AE40E7E4DFCF18E00315DE973F6E5583E9A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325588   (412252) от 15.09.2019
 
 Л.И. Малинин, В.Ю. Нейман | Теория электрических цепей (2018) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412252.jpg" />
+  <img src="Z:/picture/008/save_picture_412252.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411956.jpg" />
+  <img src="Z:/picture/008/save_picture_411956.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411267.jpg" />
+  <img src="Z:/picture/008/save_picture_411267.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410494.jpg" />
+  <img src="Z:/picture/008/save_picture_410494.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410336.jpg" />
+  <img src="Z:/picture/008/save_picture_410336.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410089.jpg" />
+  <img src="Z:/picture/008/save_picture_410089.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410007.jpg" />
+  <img src="Z:/picture/008/save_picture_410007.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408731.jpg" />
+  <img src="Z:/picture/008/save_picture_408731.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408685.jpg" />
+  <img src="Z:/picture/008/save_picture_408685.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408662.jpg" />
+  <img src="Z:/picture/008/save_picture_408662.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408195.jpg" />
+  <img src="Z:/picture/008/save_picture_408195.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408046.jpg" />
+  <img src="Z:/picture/008/save_picture_408046.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407288.jpg" />
+  <img src="Z:/picture/008/save_picture_407288.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407248.jpg" />
+  <img src="Z:/picture/008/save_picture_407248.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407206.jpg" />
+  <img src="Z:/picture/008/save_picture_407206.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407203.jpg" />
+  <img src="Z:/picture/008/save_picture_407203.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407162.jpg" />
+  <img src="Z:/picture/008/save_picture_407162.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407093.jpg" />
+  <img src="Z:/picture/008/save_picture_407093.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406951.jpg" />
+  <img src="Z:/picture/008/save_picture_406951.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406096.jpg" />
+  <img src="Z:/picture/008/save_picture_406096.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403944.jpg" />
+  <img src="Z:/picture/008/save_picture_403944.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403883.jpg" />
+  <img src="Z:/picture/008/save_picture_403883.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403502.jpg" />
+  <img src="Z:/picture/008/save_picture_403502.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402412.jpg" />
+  <img src="Z:/picture/008/save_picture_402412.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D8583A685B8191EDE8CF3599A979241E41CB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169754   (402409) от 28.09.2017
-
-С.В. Гаркуша и др. | Вредители и болезни овоще-бахчевых культур и картофеля в Краснодарском крае (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издается в рамках краевой целевой программы «Развитие сельского хозяйства и регулирование рынков сельскохозяйственной продукции, сырья и продовольствия в Краснодарском крае» на 2008-2012 годы по решению отраслевого экспертного научно-технического совета департамента сельского хозяйства и перерабатывающей промышленности Краснодарского края по подпрограмме «Растениеводство», (   Читать дальше...   )Жанр: Сельское хозяйство, Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337F9752B42BD1EE37DB48E2A2091024D809DD23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565199   (401111) от 25.10.2012
-
-Г.И.Гладов | Конструкции многоцелевых гусеничных и колесных машин [2010] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены общее устройство, назначение, принцип действия, а также конструктивные особенности механизмов, систем и агрегатов многоцелевых гусеничных и колесных машин, в том числе автомобильных поездов и амфибийных машин.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A65E3D8642B28DF5ADAC29A8E87189E6F372DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

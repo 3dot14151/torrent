@@ -6,7 +6,7 @@ Udon no Kuni no Kiniro Kemari | Udon no Kuni no Kin`iro Kemari | Poco's Udon Wor
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863913.jpg" />
+  <img src="Z:/picture/008/save_picture_863913.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Yuuri!!! on Ice | Yuri!!! on Ice | Юрий на льду [2016, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863799.jpg" />
+  <img src="Z:/picture/008/save_picture_863799.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hatsukoi Monster / First Love Monster / Монстр первой любви [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863796.jpg" />
+  <img src="Z:/picture/008/save_picture_863796.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Long Riders! | Марафонцы [2016, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863791.jpg" />
+  <img src="Z:/picture/008/save_picture_863791.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drug Store / Размеренна
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862623.jpg" />
+  <img src="Z:/picture/008/save_picture_862623.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Путешес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862508.jpg" />
+  <img src="Z:/picture/008/save_picture_862508.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Bang Dream! 3rd Season | Ура мечте! (ТВ-3) [2020, TV, 13 эп.] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861685.jpg" />
+  <img src="Z:/picture/008/save_picture_861685.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860889.jpg" />
+  <img src="Z:/picture/008/save_picture_860889.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Prince of Stride: Alternative / Принц страйда: Альтернати�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860418.jpg" />
+  <img src="Z:/picture/008/save_picture_860418.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Infinite Dendrogram / Бесконечная Дендрограм [2020, TV, 13]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859734.jpg" />
+  <img src="Z:/picture/008/save_picture_859734.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bokutachi no Remake / Remake Our Life! / Ремейк нашей жизни [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859241.jpg" />
+  <img src="Z:/picture/008/save_picture_859241.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jaku-chara Tomozaki-kun / Bottom-tier Character Tomozaki / Низкоуровн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859237.jpg" />
+  <img src="Z:/picture/008/save_picture_859237.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859236.jpg" />
+  <img src="Z:/picture/008/save_picture_859236.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859234.jpg" />
+  <img src="Z:/picture/008/save_picture_859234.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Yowamushi Pedal: Grande Road | Трусливый Велосипедист 2 [TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858621.jpg" />
+  <img src="Z:/picture/008/save_picture_858621.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857510.jpg" />
+  <img src="Z:/picture/008/save_picture_857510.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Blue Reflection Ray | Синее отражение. Луч [2021, TV, 24 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857416.jpg" />
+  <img src="Z:/picture/008/save_picture_857416.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855705.jpg" />
+  <img src="Z:/picture/008/save_picture_855705.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Deatte 5 Byou de Battle | Battle in 5 Seconds After Meeting | Битва чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855701.jpg" />
+  <img src="Z:/picture/008/save_picture_855701.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Heavy Object | Тяжёлый объект [2015, TV, 24 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854982.jpg" />
+  <img src="Z:/picture/008/save_picture_854982.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Koutetsujou no Kabaneri: Unato Kessen / Kabaneri of the Iron Fortress: The Battl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854688.jpg" />
+  <img src="Z:/picture/008/save_picture_854688.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853993.jpg" />
+  <img src="Z:/picture/008/save_picture_853993.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki / How a Realist Hero Rebuilt the Kingdo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853984.jpg" />
+  <img src="Z:/picture/008/save_picture_853984.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 из 25] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853380.jpg" />
+  <img src="Z:/picture/008/save_picture_853380.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Kidou Senshi Gundam: Tekketsu no Orphans / Mobile Suit Gundam: Iron-Blooded Orph
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853372.jpg" />
+  <img src="Z:/picture/008/save_picture_853372.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ God Eater | Пожиратель Богов [2015, TV, 13 эп.] WEB-DLRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853369.jpg" />
+  <img src="Z:/picture/008/save_picture_853369.jpg" />
 </div>
 
 

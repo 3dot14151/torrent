@@ -1,3 +1,107 @@
+###  Публикация: 1197425   (814861) от 07.01.2018
+
+AAct Network v1.0.1 Portable by Ratiborus [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814861.jpg" />
+</div>
+
+
+###  Подробнее
+
+AAct - KMS-активатор для операционных систем Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2 а также Office 2010, 2013, 2016. Возможна активация Office 2010 VL на Windows XP. Программа написана с применением оригинальных технологий и реализует другую, отличную от обычной, идеологию конструирования подобных программных средств. Программе (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FAC81DCA7A65C321E48B54FB078DBAF385A265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197417   (814852) от 07.01.2018
+
+KMS Tools Portable 07.01.2018 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814852.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FF4FC928FC060CFE227B27A13D47276F93B810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194015   (814850) от 07.01.2018
+
+TNod User & Password Finder 1.6.4.0 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814850.jpg" />
+</div>
+
+
+###  Подробнее
+
+TNOD User & Password Finder – это программа, которая при каждом запуске системы или по требованию пользователя, ныряет в интернет и ищет ключи для ESET NOD32 Smart Security и ESET NOD32 Antivirus всех версий 2.5.x, 2.7.x, 3.x, 4.x, 5.x, 6.x, 7.x, 8.x, 9.x, 10.x y 11.0; и автоматически вставляет их. Также в программе есть возможность сохранить найденные ключи (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1FA405F1FA23216E6BF7E436E8AF24498F31C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008446   (814816) от 18.04.2016
+
+Проекты - VideoHive - The Journey of Memories - 3101820 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114A7E460A8D35CEF671E85A42F3ADCE8B3D0BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 316127   (814721) от 30.03.2011
 
 [Lossless RePack] Need for Speed: Hot Pursuit - Limited Edition v1.0.4.0 [Ru/En] 2010 | RG Packers
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814721.jpg" />
+  <img src="Z:/picture/008/save_picture_814721.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Autodesk AutoCAD Architecture 2017 HF1 x86-x64 RUS-ENG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814697.jpg" />
+  <img src="Z:/picture/008/save_picture_814697.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ SAMOLIOTIK (2016) [Ru/En] (1.0) Rip Unleashed
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814694.jpg" />
+  <img src="Z:/picture/008/save_picture_814694.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814692.jpg" />
+  <img src="Z:/picture/008/save_picture_814692.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814688.jpg" />
+  <img src="Z:/picture/008/save_picture_814688.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814687.jpg" />
+  <img src="Z:/picture/008/save_picture_814687.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814419.jpg" />
+  <img src="Z:/picture/008/save_picture_814419.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Geekbrains | Системное администрирование. Введен
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814305.jpg" />
+  <img src="Z:/picture/008/save_picture_814305.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813053.jpg" />
+  <img src="Z:/picture/008/save_picture_813053.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Arma 3/III (2013) [Ru/En] (1.56.134627/upd42/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812790.jpg" />
+  <img src="Z:/picture/008/save_picture_812790.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/4) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812788.jpg" />
+  <img src="Z:/picture/008/save_picture_812788.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812547.jpg" />
+  <img src="Z:/picture/008/save_picture_812547.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812537.jpg" />
+  <img src="Z:/picture/008/save_picture_812537.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Naruto Shippuuden / Наруто: Ураганные хроники [2007 - 2017
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812536.jpg" />
+  <img src="Z:/picture/008/save_picture_812536.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812515.jpg" />
+  <img src="Z:/picture/008/save_picture_812515.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812428.jpg" />
+  <img src="Z:/picture/008/save_picture_812428.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Microsoft  Windows 7 Ultimate Ru x86-x64 SP1 NL3 by OVGorskiy 10.2021 2DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811515.jpg" />
+  <img src="Z:/picture/008/save_picture_811515.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Udemy, Дмитрий . | Основы программирования на Jav
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811513.jpg" />
+  <img src="Z:/picture/008/save_picture_811513.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Windows 10 (60in2) Sergei Strelec x86/x64 2004 (build 19041.264) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811129.jpg" />
+  <img src="Z:/picture/008/save_picture_811129.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ LEGO Star Wars 3: The Clone Wars [Ru] (RePack) 2011 | R.G.Repacker`s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810944.jpg" />
+  <img src="Z:/picture/008/save_picture_810944.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810933.jpg" />
+  <img src="Z:/picture/008/save_picture_810933.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Pinnacle Studio Ultimate 19.5.0 + Bonus Content [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810925.jpg" />
+  <img src="Z:/picture/008/save_picture_810925.jpg" />
 </div>
 
 
@@ -571,114 +675,6 @@ Pinnacle Studio Ultimate 19.5.0 + Bonus Content [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCE2859F4DF2F6DE71DFC10EB74BCB4945185C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118182   (810565) от 26.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форс., стилизованные, хардсаб), Русские, Английские (полные)Продолжительность: 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0EC4ED77C33F176627EF2142AD06A8197E1F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937486   (810553) от 26.03.2017
-
-Книжная серия | Межавторский цикл «Пограничье» [9 книг. Обновляемая] (2013-2017) [FB2, EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Центрум. Центральный мир вселенной, окруженный лепестками других миров, среди которых и наша Земля.
-
-Когда-то Центрум был велик и силен, но катастрофа отбросила его в прошлое.
-(   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B760FC840B5D534B16457C8E988FB206ADBEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864224   (810488) от 01.04.2015
-
-Черные паруса / Black Sails (2015) HDTVRip [H.264/720p-LQ] (Сезон 2, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1715 год. Золотой век — вершина пиратства в Карибском море. Остров бывшей британской колонии Нью-Провиденс является территорией беззакония, контролируемый самыми известными пиратскими капитанами в истории. Самым грозным из них является капитан Флинт.Но британский флот возвращается в эти воды, угрожая уничтожить Флинта и его команду. Движимый глубокими, сложными, (   Читать дальше...   )Производство: США, ЮАРЖанр: Драма, приключенияРежиссер: Нил Маршалл, Сэм Миллер, Т.Дж. СкоттАктеры: Тоби Стивенс, Ханна Нью, Люк Арнольд, Зэк Макгоун, Тоби Шмитц, Клара Пэджет, Марк Райан, Хаким Кае-Казим, Дилан Скьюс, Шон Майкл и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmОзвучка / Автор перевода: Студия «LostFilm»
-ВНИМАНИЕ! В сериале присутствуют сцены сексуального характера и ненормативная лексика!Продолжительность: ~ 00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D68FBF1442218047787161C7D4B7E862F4D67A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504249   (809473) от 24.10.2021
-
-Петровы в гриппе (2021) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петровы — самая обычная семья. Он — автослесарь, она — библиотекарь, у них есть сын, но вместе они не живут. Казалось бы, ничего особенного. Но повседневная реальность взрывается в тот момент, когда семья заболевает гриппом, и жизнь наполняется безумием, фантастикой и сюрреализмом.Производство: Россия, Франция, Швейцария, Германия, Фонд «Кинопрайм», Bord Cadre Films, CharadesЖанр: драма, фантастикаРежиссер: Кирилл СеребренниковАктеры: Семён Серзин, Чулпан Хаматова, Юлия Пересильд, Юрий Колокольников, Юра Борисов, Иван Дорн, Александр Ильин мл., Сергей Дрейден, Тимофей Трибунцев, Владислав СемилетковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B712E26627AE63CB1F9A1FC21079D722556271F
 ```
 
 https://mybot314.ru/tekegram_catalog/

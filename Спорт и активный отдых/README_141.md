@@ -1,3 +1,197 @@
+###  Публикация: 1671620   (171138) от 25.10.2023
+
+Хоккей. НХЛ 2023-2024. Даллас Старз - Питтсбург Пингвинз (24.10.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171138.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2023, среда. 02:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 209 зрителей (92% при вместимости 18 673)
+Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E627C6EF3BF9625C103AB251CF8F28E7334939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671625   (171134) от 25.10.2023
+
+Хоккей. НХЛ 2023-2024. Торонто Мэйпл Лифс - Вашингтон Кэпиталз (24.10.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171134.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2023, среда. 01:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 16 641 зритель (90% при вместимости 18 573)
+Линейный: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: TSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C958AB94A2AA20AB313771732794CF8496148F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826659   (170963) от 19.10.2025
+
+MotoGP. Этап 19 из 22. Гран-при Австралии. Гонка (19.10.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170963.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 октября 2025 воскресенье 07:00 МСК этап 19 Филлип-Айленд. Гран-при Австралии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1DDEAC45207D1C3F91E2B2060ACA77A728ACB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826685   (170961) от 19.10.2025
+
+НХЛ 2025-2026. Питтсбург Пингвинз - Сан-Хосе Шаркс (18.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170961.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2025 пятница 05:00 МСК. Стадион: Крипто.ком-Арена (Лос-Анджелес, США) вместимость: 18867.
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5793F7C470E6E24EAB2598317320A9F83077C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430560   (170891) от 10.12.2020
+
+Дзюдо. Чемпионат Европы 2020. Прага (Чехия). День 3. Финальные схватки (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Чемпионат Европы по дзюдо 2020 года. Прага (Чехия)
+21 ноября 2020 года
+День 3. Финальные схватки:(   Читать дальше...   )Телекомпания: Матч! Боец HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC622B38307C0AE9495DE28D6484CAF0E67EC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430537   (170868) от 10.12.2020
+
+Дзюдо. Чемпионат Европы 2020. Прага (Чехия). День 1. Финальные схватки (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по дзюдо 2020 года. Прага (Чехия)
+19 ноября 2020 года
+День 1. Финальные схватки:
+Женщины — Весовая категория: до 48, до 52, до 57 кг.(   Читать дальше...   )Телекомпания: Матч! Боец HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E23E92088F2C6578CBAABCB437C3109E3654B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430555   (170865) от 10.12.2020
+
+Дзюдо. Чемпионат Европы 2020. Прага (Чехия). День 2. Финальные схватки (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Чемпионат Европы по дзюдо 2020 года. Прага (Чехия)
+Пятница 20 ноября 2020 года
+День 2. Финальные схватки:(   Читать дальше...   )Телекомпания: Матч! Боец HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1197C0C561BAD3524B3300B70E77BCD6CBC766B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430428   (170841) от 10.12.2020
 
 Футбол. Лига Чемпионов 2020-2021. 6-й тур. Обзор матчей (9.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +200,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170841.jpg" />
 </div>
 
 
@@ -32,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170749.jpg" />
 </div>
 
 
@@ -58,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170722.jpg" />
 </div>
 
 
@@ -84,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170689.jpg" />
 </div>
 
 
@@ -113,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170683.jpg" />
 </div>
 
 
@@ -142,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170658.jpg" />
 </div>
 
 
@@ -171,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170585.jpg" />
 </div>
 
 
@@ -200,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170555.jpg" />
 </div>
 
 
@@ -229,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170447.jpg" />
 </div>
 
 
@@ -255,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170417.jpg" />
 </div>
 
 
@@ -281,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170308.jpg" />
 </div>
 
 
@@ -307,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170001.jpg" />
 </div>
 
 
@@ -334,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169999.jpg" />
 </div>
 
 
@@ -361,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169979.jpg" />
 </div>
 
 
@@ -390,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169971.jpg" />
 </div>
 
 
@@ -418,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169966.jpg" />
 </div>
 
 
@@ -447,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169792.jpg" />
 </div>
 
 
@@ -476,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169755.jpg" />
 </div>
 
 
@@ -503,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты мира
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169752.jpg" />
 </div>
 
 
@@ -517,194 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520949EA77AFF2558F043D50D544B4C3887FEF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344531   (169709) от 11.12.2019
-
-Лига Чемпионов 2019-2020. 6-й тур. Обзор матчей (10.12.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2019-2020. 6-й тур. 1-й день. Обзор матчей (10.12.2019)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D17F1DD86F62275D181CEEF5A3D3E4586E7D6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672359   (169476) от 28.10.2023
-
-MotoGP. Этап 17. Гран-при Тайланда. Квалификация (28.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169476.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 октября 2023, суббота. 06:50 МСК. Этап 17 Бурирам. Гран-при Тайланда. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11908A9A07304B7AFFC84F4AAAC4C4B80FA17A0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430935   (169397) от 11.12.2020
-
-Формула 1. Сезон 2020. Этап 17. Гран-при Абу Даби. Свободная практика 1 (11.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Абу-Даби . Свободная практика 1
-Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)
-11 декабря 2020, пятница. 12:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB38898A23DAEE6669A857098FAE7BD3ED36BCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430936   (169395) от 11.12.2020
-
-Формула 1. Сезон 2020. Этап 17. Гран-при Абу Даби. Свободная практика 2 (11.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Абу-Даби . Свободная практика 2
-Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)
-11 декабря 2020, пятница. 16:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7201A0C3320B54CACE7F358987AD1843122F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596677   (169387) от 11.12.2022
-
-Хоккей. НХЛ 2022-2023. Баффало Сэйбрз - Питтсбург Пингвинз (10.12.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169387.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2022, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 414 зрителей (99% при вместимости 18 673)
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Картер Сандлак (Лондон, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4140CD0E4FAAE74D64FBF99AAD93E6C72ECD0ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672453   (169276) от 28.10.2023
-
-MotoGP. Этап 17. Гран-при Тайланда. Спринт (28.10.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169276.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 октября 2023, суббота. 11:00 МСК. Этап 17 Бурирам. Гран-при Тайланда. Спринт (13 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6637DDAB3529D2491FD10EF25363F6E00B55E11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596668   (169136) от 11.12.2022
-
-Хоккей. НХЛ 2022-2023. Миннесота Уайлд - Ванкувер Кэнакс (10.12.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169136.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 декабря 2022, воскресенье. 06:00 МСК. Стадион: Роджерс-Арена (Ванкувер, Канада), 18 526 зрителей (98% при вместимости 18 910)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8ED656344D22A01238DC9FB78E99C46A326373
 ```
 
 https://mybot314.ru/tekegram_catalog/

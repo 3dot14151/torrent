@@ -1,3 +1,81 @@
+###  Публикация: 927548   (524843) от 13.08.2015
+
+Копи царя Соломона / King Solomon's Mines (1985) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец главной героини отправляется на поиски бриллиантовых копей царя Соломона и пропадает без вести. Очаровательная Джесси Хьюстон затевает рискованное сафари для его спасения. Кто же будет ее проводником? Легендарный солдат удачи, известный как Куотермейн. Чтобы добраться до сокровищ и опередить кровожадного соперника, им приходится преодолеть множество препятствий: (   Читать дальше...   )Производство: США / CannonЖанр: Боевик, Комедия, Мелодрама, ПриключенияРежиссер: Дж. Ли ТомпсонАктеры: Ричард Чемберлен, Шэрон Стоун, Херберт Лом, Джон Рис-Дэвис, Кен Гампу, Джун Бузелези, Сэм Уильямс, Шайке Офир, Мик Лесли, Винсент Ван Дер Бил, Боб Грир, Оливер Тенгенде, Невилл Томас, Роки Грин, Кэлвин Джонс, Стэнли Норрис, Эндрю УэлиПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: АнглийскиеПродолжительность: 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606712776C63E20C74AB469FFBFDD3657E619A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556628   (524308) от 25.06.2022
+
+Отныне и навек / Now and forever (1934) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основан на рассказе "Честь Брайта" Джека Киркленда и Мелвилла Бейкера. Молодая пара мошенников Джерри Дэй и его красивая жена Тони ведут беспечный образ жизни. Проживая в дорогих отелях и путешествуя по миру, они выдают себя за состоятельных людей и всяческими уловками находят деньги на свою праздную жизнь. Тони давно просит Джерри завязать с преступными (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, мелодрама, мюзиклРежиссер: Генри ХэтэуэйАктеры: Гэри Купер, Кэрол Ломбард, Ширли Темпл, Гай Стэндинг, Шарлотта Гранивиль"Дэнни", Гилберт Эмери, Генри Колкер, Тецу Комай, Эгон Бречер, Люк ЧанПеревод: профессиональный многоголосый (Светла)Субтитры: английскиеПродолжительность: 01:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71178C9F720FDDA49168FE7FDCCC7D952B3646A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053749   (524184) от 18.09.2016
+
+Отважные противники / Ride, Vaquero! (1953) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524184.jpg" />
+</div>
+
+
+###  Подробнее
+
+После окончания гражданской войны грубый и неотесанный месиканский бандит Хосе Эскуада и его правая рука, загадочный человек со стальными глазами по прозвищу Рио предупреждают поселенцев деревни, что они могут потерять свои земли. Только у одного человека, кажется, есть храбрость, чтобы противостоять злодеям: Король поселенцев Камерон, у которого был уже сожжен один (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Драма, ВестернРежиссер: Джон ФэрроуАктеры: Роберт Тейлор, Ава Гарднер, Ховард Кил, Энтони Куинн, Курт Казнар, Тед де Корсия, Чарлита, Джек Элам, Уолтер Болдуин, Джо ДомингесПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9008D723112F1987209BA1AB226B83BD09880B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 58966   (524103) от 25.06.2022
 
 Козырной туз / I quattro dell'Ave Maria (1968) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524103.jpg" />
+  <img src="Z:/picture/008/save_picture_524103.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523825.jpg" />
+  <img src="Z:/picture/008/save_picture_523825.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523521.jpg" />
+  <img src="Z:/picture/008/save_picture_523521.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523235.jpg" />
+  <img src="Z:/picture/008/save_picture_523235.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522450.jpg" />
+  <img src="Z:/picture/008/save_picture_522450.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522223.jpg" />
+  <img src="Z:/picture/008/save_picture_522223.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521913.jpg" />
+  <img src="Z:/picture/008/save_picture_521913.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521622.jpg" />
+  <img src="Z:/picture/008/save_picture_521622.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521458.jpg" />
+  <img src="Z:/picture/008/save_picture_521458.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521019.jpg" />
+  <img src="Z:/picture/008/save_picture_521019.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520661.jpg" />
+  <img src="Z:/picture/008/save_picture_520661.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520414.jpg" />
+  <img src="Z:/picture/008/save_picture_520414.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519929.jpg" />
+  <img src="Z:/picture/008/save_picture_519929.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519706.jpg" />
+  <img src="Z:/picture/008/save_picture_519706.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519662.jpg" />
+  <img src="Z:/picture/008/save_picture_519662.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519244.jpg" />
+  <img src="Z:/picture/008/save_picture_519244.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518395.jpg" />
+  <img src="Z:/picture/008/save_picture_518395.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518337.jpg" />
+  <img src="Z:/picture/008/save_picture_518337.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517308.jpg" />
+  <img src="Z:/picture/008/save_picture_517308.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516412.jpg" />
+  <img src="Z:/picture/008/save_picture_516412.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516271.jpg" />
+  <img src="Z:/picture/008/save_picture_516271.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516196.jpg" />
+  <img src="Z:/picture/008/save_picture_516196.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516084.jpg" />
+  <img src="Z:/picture/008/save_picture_516084.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64836B8E1ADD8F478A0054679A4DB714EC99072F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 8391   (515895) от 22.08.2015
-
-Собор Парижской богоматери / Notre Dame de Paris (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_515895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классическая экранизация романа Виктора Гюго привлекает прежде всего декорациями и скрупулезным воссозданием эпохи царствования Людовика ХI, пышными костюмами и проникновенной игрой Джины Лоллобриджиды в роли Эсмеральды в апогее своей красоты и славы.
-На площади Собора Парижской богоматери танцует прекрасная цыганка Эсмеральда, привлекая священника Клода Фролло. (   Читать дальше...   )Производство: Франция, ИталияЖанр: Драма, История, УжасыРежиссер: Жан ДеланнуаАктеры: Джина Лоллобриджида, Энтони Куинн, Жан Дане, Ален Кюни, Робер Ирш, Даниэль Дюмон, Филипп Клэй, Морис Сарфати, Жан Тиссье, Валентайн ТессьерПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314123   (515879) от 17.07.2019
-
-Навеки дорогая / Forever, Darling (1956) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сьюзен и Лоренцо женаты уже более пяти лет, и они начинают отдаляться друг от друга. Тогда в жизни Сьюзен появляется ангел-хранитель, чтобы помочь ей сохранить брак.Производство: США / Zanra ProductionsЖанр: Фэнтези, КомедияРежиссер: Александр ХоллАктеры: Люсиль Болл, Дези Арназ, Джеймс Мейсон, Луи Кэлхерн, Джон Эмери, Джон Хойт, Натали Шафер, Мэйбл Альбертсон, Ральф Думке, Нэнси КалпПеревод: Одноголосый любительский, Игорь КлушинСубтитры: АнглийскиеПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8004FA49A9760A64C7DAEA4BA9CCEE8A62442B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558445   (515587) от 04.07.2022
-
-Голубые небеса / Blue Skies (1946) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на рассказе Ирвинга Берлина. Танцовщик и певец Джед Поттер оглядывается назад на любовный треугольник, длившийся много лет, в котором он играл роль «третьего лишнего». Он был влюблён в актрису Мэри О'Хара, а она любила импульсивного владельца ночного клуба Джонни Адамса, который был не постоянен в своих привязанностях и нигде не задерживался надолго...Производство: США, Paramount PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Виктор Шерцингер, Стюарт ХейслерАктеры: Бинг Кросби, Фред Астер, Джоан Колфилд, Билли Де Волф, Ольга Сан Хуан, Михаил Разумный, Фрэнк Фэйлен, Виктория Хорн, Кэролин ГраймсПеревод: профессиональный многоголосыйСубтитры: английскиеПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6A2EFB3BA08D049777280D9372697BDB907246
 ```
 
 https://mybot314.ru/tekegram_catalog/

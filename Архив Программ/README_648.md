@@ -6,7 +6,7 @@ RadioBOSS Advanced 5.4.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723519.jpg" />
+  <img src="Z:/picture/008/save_picture_723519.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Loaris Trojan Remover 2.0.3 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723514.jpg" />
+  <img src="Z:/picture/008/save_picture_723514.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ oCam Screen Recorder 107.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723507.jpg" />
+  <img src="Z:/picture/008/save_picture_723507.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ XMedia Recode 3.2.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723501.jpg" />
+  <img src="Z:/picture/008/save_picture_723501.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ SynWrite 6.17.2045 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723495.jpg" />
+  <img src="Z:/picture/008/save_picture_723495.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 1.0.161.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723494.jpg" />
+  <img src="Z:/picture/008/save_picture_723494.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DivX Pro 10.6.0 Retail (веб-установщик) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723434.jpg" />
+  <img src="Z:/picture/008/save_picture_723434.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Auto Shutdown 1.45.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723424.jpg" />
+  <img src="Z:/picture/008/save_picture_723424.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VLC Media Player 2.2.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723336.jpg" />
+  <img src="Z:/picture/008/save_picture_723336.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ DVDFab 9.1.9.8 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723326.jpg" />
+  <img src="Z:/picture/008/save_picture_723326.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tipard Blu-ray Converter 9.2.18 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723291.jpg" />
+  <img src="Z:/picture/008/save_picture_723291.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FileZilla 3.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723225.jpg" />
+  <img src="Z:/picture/008/save_picture_723225.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PrintMyFonts 18.3.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723216.jpg" />
+  <img src="Z:/picture/008/save_picture_723216.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Opera Mail 1.0 build 1040 + Portable + PortableApps [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723184.jpg" />
+  <img src="Z:/picture/005/save_picture_723184.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AIMP 3.60 Build 1492 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723145.jpg" />
+  <img src="Z:/picture/008/save_picture_723145.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Avira System Speedup 1.6.3.768 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723144.jpg" />
+  <img src="Z:/picture/008/save_picture_723144.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Wiztree 3.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723126.jpg" />
+  <img src="Z:/picture/008/save_picture_723126.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Wise Care 365 Pro 4.8.3.465 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723121.jpg" />
+  <img src="Z:/picture/008/save_picture_723121.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Aiseesoft Blu-ray Player 6.6.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723108.jpg" />
+  <img src="Z:/picture/008/save_picture_723108.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Skype 7.4.0.102 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723040.jpg" />
+  <img src="Z:/picture/008/save_picture_723040.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Viber 8.6.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723021.jpg" />
+  <img src="Z:/picture/008/save_picture_723021.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ JRiver Media Center 26.0.103 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722960.jpg" />
+  <img src="Z:/picture/008/save_picture_722960.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ BurnAware Professional 13.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722957.jpg" />
+  <img src="Z:/picture/008/save_picture_722957.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ XMedia Recode 3.5.1.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722956.jpg" />
+  <img src="Z:/picture/008/save_picture_722956.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Kaspersky Rescue Disk 2018 18.0.11.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722922.jpg" />
+  <img src="Z:/picture/008/save_picture_722922.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ TweakPower 1.107 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722863.jpg" />
+  <img src="Z:/picture/008/save_picture_722863.jpg" />
 </div>
 
 

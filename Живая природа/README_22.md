@@ -1,3 +1,56 @@
+###  Публикация: 356761   (548483) от 22.06.2019
+
+Планета деревьев 2 / Planete des Arbres 2 (2010) HDTVRip [H.264] (серии 1-9)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548483.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире насчитывается 100000 видов деревьев. О многих из них мы знаем с детства. Лист дуба, липы или еловая ветвь знакомы каждому. Но не все знают об удивительных фактах, которые раскрывает эта замечательная программа, посвящённая самым красивым и полезным для человека деревьям Европы и тропического пояса.Производство: Франция, Beta ProdЖанр: Документальный, природа, флора, фаунаРежиссер: Николя ГруоПеревод: Двуголосый закадровый, профессиональный (ТПО Ред Медиа)Субтитры: отсутствуютПродолжительность: серии x ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B227A5FB94589EE3F9022A91EA7F8125CD54225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047544   (548075) от 31.08.2016
+
+Покорение небес с Дэвидом Аттенборо / David Attenborough's Conquest of the Skies  (2014) BDRip [H.264/720p] (серия 1)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые летающие / The First to FlyСпособность летать является одним из величайших достижений природы. В наши дни более ста миллиардов существ парят в небе: начиная от крошечной, питающейся нектаром колибри до защищённых бронёй жуков, причудливых крылатых ящериц и летучих мышей и птиц.
+В этом сериале Дэвид Аттенборо путешествует во времени, чтобы разгадать удивительную историю летающих животных длиною (   Читать дальше...   )Жанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (студия «Омикрон»)Продолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B0677517F5831FFBF54F50742EDFB6319FF38B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834090   (547994) от 31.08.2016
 
 Микро Монстры с Дэвидом Аттенборо / Micro Monsters with David Attenborough (2013) BDRip [H.264/1080p] (1-6 серия из 6)
@@ -6,7 +59,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547994.jpg" />
+  <img src="Z:/picture/008/save_picture_547994.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546153.jpg" />
+  <img src="Z:/picture/008/save_picture_546153.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546027.jpg" />
+  <img src="Z:/picture/008/save_picture_546027.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545983.jpg" />
+  <img src="Z:/picture/008/save_picture_545983.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545145.jpg" />
+  <img src="Z:/picture/008/save_picture_545145.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544216.jpg" />
+  <img src="Z:/picture/008/save_picture_544216.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540933.jpg" />
+  <img src="Z:/picture/008/save_picture_540933.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538853.jpg" />
+  <img src="Z:/picture/008/save_picture_538853.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537854.jpg" />
+  <img src="Z:/picture/008/save_picture_537854.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533215.jpg" />
+  <img src="Z:/picture/008/save_picture_533215.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532106.jpg" />
+  <img src="Z:/picture/008/save_picture_532106.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531640.jpg" />
+  <img src="Z:/picture/008/save_picture_531640.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530176.jpg" />
+  <img src="Z:/picture/008/save_picture_530176.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529837.jpg" />
+  <img src="Z:/picture/008/save_picture_529837.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529561.jpg" />
+  <img src="Z:/picture/008/save_picture_529561.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526038.jpg" />
+  <img src="Z:/picture/008/save_picture_526038.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524606.jpg" />
+  <img src="Z:/picture/008/save_picture_524606.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521145.jpg" />
+  <img src="Z:/picture/008/save_picture_521145.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521141.jpg" />
+  <img src="Z:/picture/008/save_picture_521141.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519367.jpg" />
+  <img src="Z:/picture/008/save_picture_519367.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519354.jpg" />
+  <img src="Z:/picture/008/save_picture_519354.jpg" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519203.jpg" />
+  <img src="Z:/picture/008/save_picture_519203.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519193.jpg" />
+  <img src="Z:/picture/008/save_picture_519193.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519069.jpg" />
+  <img src="Z:/picture/008/save_picture_519069.jpg" />
 </div>
 
 
@@ -617,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2F0BDBF4321EA09375ED212335A3630D0E7C569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561408   (515585) от 04.07.2022
-
-Дикие гризли Юкона / Yukon's Wild Grizzlies (2021) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдоль Арктического круга в северном Юконе Канады гризли добывают себе пропитание в беспощадной среде, пытаясь набрать достаточный вес, чтобы пережить долгую зимнюю спячку в своих берлогах...Производство: Канада, Omnifilm EntertainmentЖанр: документальный, познавательный, природаРежиссер: Фил ТипаниПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: серии по ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBEBD75571878361F69431936B051AA344B697B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930568   (515147) от 23.08.2015
-
-Nat Geo Wild: Дикая Тасмания. Страна Дьявола / Wild Tasmania (2000) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тасмания находится всего лишь в 240 километрах от цивилизованного и благополучного Австралийского континента. Но это совсем другой мир, загадочный, дикий, населенный животными, в существование которых сложно поверить.Телекомпания: ABC (American Broadcasting Companies) / Kane Productions InternationalЖанр: Документальный, видовой, природа,  фауна, флора,Режиссер: William LarkinПеревод: Одноголосый закадровый, профессиональный
-озвучено на студии "Велес", текст читал Олег БеловПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBAA384ACF0A9B77E971200108842E1530C5B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

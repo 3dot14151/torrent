@@ -1,3 +1,90 @@
+###  Публикация: 1715956   (111428) от 13.04.2024
+
+I Am - Eternal Steel (2022) [FLAC|Lossless|image + .cue] <Death, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Primal Wave (03:16)
+02. Surrender to the Blade (03:23)
+03. The Iron Gate (04:05)
+04. Eternal Steel (03:24)(   Читать дальше...   )Жанр: Death, Groove MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A921DDE470EFA36D34A5911A168E0F2A1827D1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716143   (111402) от 14.04.2024
+
+Castle Rat - Into The Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dagger Dragger
+02 – Feed The Dream
+03 – Resurrector
+04 – Red Sands(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716161   (111397) от 14.04.2024
+
+Black Sabbath - Paris 1970 (Live) (1970) Re-Recorded, 2024, The Media Champ[FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Paranoid (Live)
+02 – Hand Of Doom (Live)
+03 – Iron Man (Live)
+04 – Black Sabbath (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E2945DB409EDC5EFB8C9F3F9D57A3272646EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716012   (111394) от 14.04.2024
 
 Tyr - Battle Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Progressive Metal, Viking Metal>
@@ -6,7 +93,7 @@ Tyr - Battle Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111394.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Aborted - Vault of Horrors (2024) [FLAC|Lossless|image + .cue] <Brutal Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111382.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Aequorea - Departure (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111381.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Love Sex Machine - Asexual Anger (2016) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111373.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Aequorea - Tellurian (2014) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111363.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Aequorea - Dim (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111362.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Deviated Instinct - As the Crow Flies (2024) [FLAC|Lossless|WEB-DL|tracks] <Crus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111340.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Evolucija - The World is Full of Wrath (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111331.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Daevar - Amber Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Psych>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111310.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111294.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ DVNE - Voidkind (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111277.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111233.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111232.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111231.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111230.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111227.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Attacker - The God Particle (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111225.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ In Vain - Solemn (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death-Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111224.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Deviated Instinct - Welcome To The Orgy (2006) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111200.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Nocturna - Of Sorcery And Darkness (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111183.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Korpiklaani - Rankarumpu (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111177.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Bongripper - Empty (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111142.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111113.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717696   (111111) от 21.04.2024
-
-Angel Witch - Angel Witch (1980) Reissue, Remastered, Universal [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Witch 3:22
-02. Atlantis 3:41
-03. White Witch 4:46
-04. Confused 2:51(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0420A6FE2EBE316B9FE98D7F6670CCC978790D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717707   (111076) от 22.04.2024
-
-Deviated Instinct - Liberty Crawls to the Sanctuary of Slaves (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Crust Punk, Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blunt Instrument [5:32]
-02 - Architect of Misery [4:00]
-03 - Thorn in Your Flesh [4:57]
-04 - Blandscape Slavebait [5:23](   Читать дальше...   )Жанр: Crust Punk, Death Metal, Punk, Thrash Metal, MetalПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D4831A61A4E255D2909F330BFB644CA0F2C48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717818   (111074) от 22.04.2024
-
-Deviated Instinct - Husk (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Crust Punk, Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brave New Herd [4:31]
-02 - We Harvest Just Shadows [4:02]
-03 - None Shall Mourn [6:50]
-04 - Longpig Crawling [6:00]Жанр: Crust Punk, Death Metal, Thrash MetalПродолжительность: 00:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113B274BB2D9AD5B09DAD2A8A4F75BFB6A8B659A
 ```
 
 https://mybot314.ru/tekegram_catalog/

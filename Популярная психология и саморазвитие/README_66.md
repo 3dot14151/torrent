@@ -1,3 +1,83 @@
+###  Публикация: 1243626   (489631) от 28.08.2018
+
+Константин Довлатов | Ж*па: инструкция по выходу (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите перестать жить, как во сне, и научиться управлять собственной жизнью? Хотите научиться ставить перед собой грандиозные цели и достигать их? Хотите реализовать все свои заветные мечты? Тогда открывайте эту книгу – и гарантируем: ваша жизнь уже никогда не будет прежней.
+
+Эта книга – уникальный авторский тренинг, который уже помог тысячам людей воплотить в жизнь (   Читать дальше...   )Жанр: Практическая психология, Психологические тренинги, Саморазвитие / личностный ростФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5923A90CBEB8C3FF8D2AEEA2307C6EA6A81AA0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937321   (489570) от 14.09.2015
+
+Януш Вишневский, Збигнев Издебский | Интим. Разговоры не только о любви (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_489570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Януш Вишневский и врач-сексолог Збигнев Издебский ведут долгий, подробный разговор о сексе как о важной составляющей жизни каждого взрослого человека. Более чем откровенно они обсуждают природу и химию женской и мужской сексуальности, интимные мечты и желания, сексуальные переживания и предубеждения, одним словом – то сокровенное, что происходит за дверями спален. (   Читать дальше...   )Жанр: Эротика, Секс, Зарубежная прикладная и научно-популярная литература, Секс и семейная психология, Зарубежная психологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E1A517379D04C6C645A1E4C4318E0EA9050871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404843   (487023) от 28.08.2020
+
+Стефан Гарнье | Живи как кот (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коты издавна были объектом нашего обожания, и всё это время мы пытались понять их характер, повадки, привычки, особенности и причуды. Есть какая-то магия в их способности сохранять спокойствие и быть счастливыми – качества, которые мы определённо можем взять себе на заметку. «Примерив» их образ жизни, мы можем взглянуть на мир другими глазами, открыть новые возможности (   Читать дальше...   )Жанр: Домашние животные, Зарубежная деловая литература, Личная эффективностьПеревод: Л. Г. ТретьякФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947C3C8016F29A303DA805F2BCEB5A959F72F2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159101   (485910) от 19.08.2017
 
 Лиза Питеркина | Даосские секреты женской сексуальности (2017) [FB2, EPUB]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485910.jpg" />
+  <img src="Z:/picture/008/save_picture_485910.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485906.jpg" />
+  <img src="Z:/picture/008/save_picture_485906.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485801.jpg" />
+  <img src="Z:/picture/008/save_picture_485801.jpg" />
 </div>
 
 
@@ -91,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485774.jpg" />
+  <img src="Z:/picture/008/save_picture_485774.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485666.jpg" />
+  <img src="Z:/picture/008/save_picture_485666.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485665.jpg" />
+  <img src="Z:/picture/008/save_picture_485665.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485572.jpg" />
+  <img src="Z:/picture/008/save_picture_485572.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485561.jpg" />
+  <img src="Z:/picture/008/save_picture_485561.jpg" />
 </div>
 
 
@@ -224,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485359.jpg" />
+  <img src="Z:/picture/008/save_picture_485359.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484899.jpg" />
+  <img src="Z:/picture/008/save_picture_484899.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484816.jpg" />
+  <img src="Z:/picture/008/save_picture_484816.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483850.jpg" />
+  <img src="Z:/picture/008/save_picture_483850.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483816.jpg" />
+  <img src="Z:/picture/008/save_picture_483816.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483657.jpg" />
+  <img src="Z:/picture/008/save_picture_483657.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483081.jpg" />
+  <img src="Z:/picture/008/save_picture_483081.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481915.jpg" />
+  <img src="Z:/picture/008/save_picture_481915.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481867.jpg" />
+  <img src="Z:/picture/008/save_picture_481867.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481435.jpg" />
+  <img src="Z:/picture/008/save_picture_481435.jpg" />
 </div>
 
 
@@ -490,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481255.jpg" />
+  <img src="Z:/picture/008/save_picture_481255.jpg" />
 </div>
 
 
@@ -516,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481128.jpg" />
+  <img src="Z:/picture/008/save_picture_481128.jpg" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481095.jpg" />
+  <img src="Z:/picture/008/save_picture_481095.jpg" />
 </div>
 
 
@@ -568,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480789.jpg" />
+  <img src="Z:/picture/008/save_picture_480789.jpg" />
 </div>
 
 
@@ -596,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479702.jpg" />
+  <img src="Z:/picture/008/save_picture_479702.jpg" />
 </div>
 
 
@@ -607,84 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D3EF751F170E544BF589C3F2B22C83393446BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939227   (477904) от 20.09.2015
-
-Александр Компаньонов, Алик Газизов | Как влюбить в себя мужчину (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способы достичь сексуальности, улучшив выработку женских феромонов, различаются в соответствии с возрастом женщины и группой крови. Настоящая книга-пособие предназначена для женщин от 29 до 40 лет с первой группой крови. Метод создан коллективом врачей под руководством врача высшей категории Газизова Р. Р. (стаж работы в медицинской сфере – более 30 лет).Жанр: Самосовершенствование, Личностный ростФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F06AA45FC6C8AB53205F96B3E90CF926E4B8FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159953   (477697) от 23.08.2017
-
-Десмонд Моррис | Голая обезьяна [сборник] (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477697.jpg" />
-</div>
-
-
-###  Подробнее
-
-В авторский сборник одного из самых популярных и оригинальных современных ученых, знаменитого британского зоолога Десмонда Морриса, вошли главные труды, принесшие ему мировую известность: скандальная «Голая обезьяна» – ярчайший символ эпохи шестидесятых, оказавшая значительное влияние на формирование взглядов западного социума и выдержавшая более двадцати переизданий, (   Читать дальше...   )Жанр: Зарубежная психологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7DAE8269DD19491695FB8C669BC88987136562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939230   (477667) от 20.09.2015
-
-Евгений Жовнерчук | Шизофреники повсюду, или Как отличить причуды от болезни (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Жовнерчук – доктор медицинских наук, врач: психиатр, психотерапевт, нарколог, психофизиолог – своей книгой не пытается напугать читателя. А наоборот, он ответит на вопросы, волнующие почти каждого. Если человек шизофреник, означает ли это, что он психбольной и совсем никчемный? Как вести себя с шизофреником? Когда шизофреник становится опасным? Как не вступить (   Читать дальше...   )Жанр: Социальная психология, Психотерапия и консультированиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C08D4F78D99B42333329221720C111B3612964F
 ```
 
 https://mybot314.ru/tekegram_catalog/

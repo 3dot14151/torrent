@@ -1,3 +1,119 @@
+###  Публикация: 1291553   (668914) от 25.03.2019
+
+Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When [4:38]
+02. Lucky 13 [4:47]
+03. Suzanne [6:13]
+04. Born to Be Blue [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088B98558D92FCBD1568921BA51FA9B78F4FE2F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291557   (668912) от 25.03.2019
+
+The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walking Stomp [5:23]
+02. The Legendary Profile [6:45]
+03. Willow Weep for Me [7:38]
+04. The Cylinder [5:33](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE79A8C4BB84EFEF6B6288859057E0A2AED62D69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291554   (668911) от 25.03.2019
+
+Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherokee [9:01]
+02. All the Things You Are [6:11]
+03. Lover Man [4:08]
+04. Special Club [3:37](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E188ECD5289FCDDFF9C14DD3CCAA7E064AB22D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031222   (668777) от 03.07.2016
+
+Duke Ellington - The Best Of (1987) [APE|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Back Blues
+02. Where's the Music?
+03. Rubber Bottom
+04. Jump for Joy(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461744431006995C1C149F6824F365A65DFECC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224101   (668246) от 08.05.2018
 
 Jack Teagarden - 1940 - 1941 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -6,7 +122,7 @@ Jack Teagarden - 1940 - 1941 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668246.jpg" />
+  <img src="Z:/picture/008/save_picture_668246.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Johnny Lytle - The Loop & New And Groovy (1965, 1966) 1990, BGP [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668191.jpg" />
+  <img src="Z:/picture/008/save_picture_668191.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lucia Minetti - Jazz Nature (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668187.jpg" />
+  <img src="Z:/picture/008/save_picture_668187.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Humphrey Lyttelton - The Best Of Humphrey Lyttelton (1951 - 1957) 3CD, 2003, EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667999.jpg" />
+  <img src="Z:/picture/008/save_picture_667999.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667996.jpg" />
+  <img src="Z:/picture/008/save_picture_667996.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667990.jpg" />
+  <img src="Z:/picture/008/save_picture_667990.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667942.jpg" />
+  <img src="Z:/picture/008/save_picture_667942.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Quincy Jones - Q's Jook Joint (1995) [FLAC|Lossless|image + .cue] <RnB, Swing, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667884.jpg" />
+  <img src="Z:/picture/008/save_picture_667884.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667828.jpg" />
+  <img src="Z:/picture/008/save_picture_667828.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667289.jpg" />
+  <img src="Z:/picture/005/save_picture_667289.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Miles Davis & Sonny Rollins - The Classic Prestige Sessions, 1951-1956 (2009) 2C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667186.jpg" />
+  <img src="Z:/picture/008/save_picture_667186.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Elton Dean's Ninesense - Live At The BBC (2003) Hux Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666838.jpg" />
+  <img src="Z:/picture/008/save_picture_666838.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Eero Koivistoinen Quartet - Labyrinth (1977) 2002, Love Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666837.jpg" />
+  <img src="Z:/picture/008/save_picture_666837.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Harold Mabern Trio - Fantasy (2005) Venus Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666788.jpg" />
+  <img src="Z:/picture/008/save_picture_666788.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Emmet Cohen Featuring Ron Carter - Masters Legacy Series Volume 2 (2018) Cellar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666066.jpg" />
+  <img src="Z:/picture/008/save_picture_666066.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Alice Babs - Swingflickan: Originalinspelningar fran aren 1939-1944 (2004) Naxos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665724.jpg" />
+  <img src="Z:/picture/008/save_picture_665724.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Alice Babs - Illusion (1966) 2007, Vax Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665723.jpg" />
+  <img src="Z:/picture/008/save_picture_665723.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Erik Friedlander - Block Ice & Propane (2007) [FLAC|Lossless|image + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665718.jpg" />
+  <img src="Z:/picture/008/save_picture_665718.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665717.jpg" />
+  <img src="Z:/picture/008/save_picture_665717.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665711.jpg" />
+  <img src="Z:/picture/008/save_picture_665711.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665709.jpg" />
+  <img src="Z:/picture/008/save_picture_665709.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665604.jpg" />
+  <img src="Z:/picture/008/save_picture_665604.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72B89B4CB696FA9AED946835A2ABBF4ADD4818AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537902   (665586) от 18.03.2022
-
-Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:12]
-02. Blue Monk [8:51]
-03. For Dancers Only [9:06]
-04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224634   (664894) от 11.05.2018
-
-Helen Merrill - Parole E Musica (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notte E Giorno [01:05]
-02. Night and Day [03:07]
-03. Accade Tutto A Me [01:19]
-04. Everything Happens to Me [02:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9505C805EF6D47E704A45ECC800FDDF1BEDE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138241   (664564) от 29.05.2017
-
-Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for the Dreamer [03:54]
-02. Hodgy [02:34]
-03. My Ship [05:27]
-04. Flow Gently, Sweet Afton [04:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138439   (664558) от 29.05.2017
-
-Alice Babs - What a Joy (2014) 2CD, Prophone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664558.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Swing it, magistern [02:53]
-02. Jag har en liten Radiola [02:44]
-03. Stigbergsgatan 8 [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
 ```
 
 https://mybot314.ru/tekegram_catalog/

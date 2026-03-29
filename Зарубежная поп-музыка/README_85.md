@@ -1,3 +1,32 @@
+###  Публикация: 1730986   (107822) от 18.06.2024
+
+VA - DJ Hits Vol. 65 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snap! & Einstein - The Power '96
+02. Mr. President - Coco Jamboo
+03. Los Del Rio - Maria, Maria (Pura Carroceria)
+04. Klubbheads - Klubbhopping(   Читать дальше...   )Жанр: Electronic, Euro House, Euro DanceПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841CD42D58AE8530813EA6107A107AC46845524F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731000   (107821) от 18.06.2024
 
 VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro Dance>
@@ -6,7 +35,7 @@ VA - DJ Hits Vol. 66 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107821.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - DJ Hits Vol. 59 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107795.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - DJ Hits Vol. 61 (1996) [OGG Vobis|480 Kbps] <Electronic, Euro House, Euro D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107794.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - DJ Hits Vol. 60 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107793.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - DJ Hits Vol. 62 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107790.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107780.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - DJ Hits Vol. 77 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107778.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - DJ Hits Vol. 67 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Techn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107775.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - DJ Hits Vol. 87 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107771.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - DJ Hits Vol. 78 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107748.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - DJ Hits Vol. 81 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107747.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - DJ Hits Vol. 80 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107743.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - DJ Hits Vol. 82 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107742.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - DJ Hits Vol. 91 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107552.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - DJ Hits '98 Volume 4 (1998) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107521.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - DJ Hits Vol. 100 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107483.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - DJ Hits Vol. 105 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107464.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - DJ Hits Vol. 110 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107451.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - DJ Hits Vol. 111 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107410.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - DJ Hits Vol. 112 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107391.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Paris France Transit - 2 Albums (1982, 1983) 3LP [MP3|320 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107254.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - 100 Hits - The 70s (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107251.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107217.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - DJ Hits Vol. 124 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107209.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107207.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - DJ Hits Vol. 131 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51210676BB2E95E817BA0C0B97AE4A67336270A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734246   (107157) от 02.07.2024
-
-VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ex-It - I want it all
-02. Spice Girls - Say you'll be there
-03. Robin Cook - I want let the sun go down on me
-04. N-Sync - I want you back(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791BBA62932960F83E09C42AD66B03FC17787837
 ```
 
 https://mybot314.ru/tekegram_catalog/

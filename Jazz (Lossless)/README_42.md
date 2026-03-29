@@ -1,3 +1,119 @@
+###  Публикация: 993573   (896018) от 05.03.2016
+
+Open Sky Unit - Open Sky Unit (2002) [APE|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Sky
+02. At Man
+03. Valerie
+04. Sunshine Star(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5568F45D484DE184D61062A5A75CEFD41097CA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993454   (896004) от 05.03.2016
+
+Sonny Criss - This Is Criss! (1966) Remaster, 2008, Concord[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Coffee [07:53]
+ 02.Days Of Wine And Roses [03:21]
+ 03.When Sunny Gets Blue [05:42]
+ 04.Greasy [02:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFA0FFA00B54CE1A3630120A6D2D4501E72CC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993581   (895987) от 05.03.2016
+
+Oran Etkin - Gathering Light (2014) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, World Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gambang Suling
+02. Taxi Dance
+03. Shirim Ad Kan
+04. Gratitude(   Читать дальше...   )Жанр: Contemporary Jazz, World Fusion, Post-BopПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF988E86EEE60C8C08DFE54223225D68CD298EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993557   (895959) от 05.03.2016
+
+Orchestre National de Jazz - Franck Tortiller - Electrique (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture part 1
+02. Ouverture part 2
+03. Landscape
+04. Electrique - part 1(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA659BF654E75FCA18A84094FDF31FD5C521868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993578   (895914) от 05.03.2016
 
 Opus 5 - Progression (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporary Jazz>
@@ -6,7 +122,7 @@ Opus 5 - Progression (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Bop, Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895914.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sam Morrison - Dune (1976) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895911.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Helen Humes - 1945 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895701.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jazz Funk Soul (Chuck Loeb, Everette Harp, Jeff Lorber) - More Serious Business 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895682.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ OneFloorDown - Unraveled (2011) [FLAC|Lossless|image + .cue] <Nu Jazz, Smoth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895675.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Harry Allen & Dave Blenkhorn - Under A Blanket Of Blue (2020) GAC Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895588.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Oscar Peterson & Jon Faddis - 1975 (2000) Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895299.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Andrew Hill - Grass Roots (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894341.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Charles Lloyd - Wild Man Dance (2015) Blue Note Records[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894321.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Art Blakey & The Jazz Messengers - Oh-By The Way (1982) Remaster, 2015,Solid Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894314.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ronnie Foster - Sweet Revival (1972) Remaster, 2013, EMI Music[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894307.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Thisbe Vos - Sophistication (2011) [FLAC|Lossless|image + .cue] <Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894086.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Buddy DeFranco (De Franco) Meets The Oscar Peterson Quartet - Hark 1985 (1995) O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893758.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Henry Mancini - Moon River (2009) [FLAC|Lossless|image + .cue] <Pop-jazz, Easy L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893691.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Wallace Roney - Verses (1987) [FLAC|Lossless|tracks + .cue] <Jazz / Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893227.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Donny Most - D Most Mostly Swinging (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893223.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Blue BeBop: The Originators Of Modern Jazz (1948-1953) 1996, Blue Note[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893217.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Art Ensemble Of Chicago - Fanfare For The Warriors (1973) 1998, Koch Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893208.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Ingrid Lucia and the Flying Neutrinos - Hotel Child (2000) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893205.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Tom Scott - Reed My Lips (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893144.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893141.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893132.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B79425A571D0299A2E223DD45BA6DFCAC68E8667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101574   (893127) от 08.02.2017
-
-Sergio Mendes - Brasileiro (1992) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin, Latin Jazz, Samba>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fanfarra (Cabua-le-le) 4:01
-02. Magalenha 3:37
-03. Indiado 4:16
-04. What Is This? 4:44(   Читать дальше...   )Жанр: Bossa Nova, Latin, Latin Jazz, SambaПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3E5B4CEEC6226410FE68201FB54436CF3A337D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493888   (892414) от 05.09.2021
-
-Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Turn (5:14)
-02. The Funk Starts Here (feat. Jan Beiling) (4:39)
-03. Happy Feelings (feat. Kevin Iszard) (4:38)
-04. Home Grooves (feat. Kirt Dallaway) (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C02808C1F3CBC71FA71CC6E0881D794CCEC076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371214   (892127) от 30.03.2020
-
-The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad To The East [4:08]
-02. Laurentide Waltz [5:21]
-03. Place St. Henri [3:58]
-04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994139   (891664) от 07.03.2016
-
-Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stella By Starlight [02:54]
- 02.Ill Wind [02:55]
- 03.Stormy Weather [03:43]
- 04.Out Of Nowhere [03:50](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA24586614BF297231F959FE620EF080928652D
 ```
 
 https://mybot314.ru/tekegram_catalog/

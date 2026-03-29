@@ -1,3 +1,29 @@
+###  Публикация: 1016116   (771074) от 13.05.2016
+
+Дитмар Поль, Джим Вагнер | Ножи для самообороны. Практическое пособие (2010) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный эксперт в области холодного оружия Дитмар Поль и многоопытный инструктор по рукопашному бою из США Джим Вагнер дают широкий обзор по теме: нож при самообороне. История и развитие, технология и материалы, использование и уход, тренировка и приемы борьбы, отражение нападения и способы защиты. Не обойден стороной и такой важнейший момент, как психология - (   Читать дальше...   )Жанр: СамооборонаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E695AA567F5A21990098EF26E8553062A96F77EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016925   (769466) от 15.05.2016
 
 Ака Касьян | Мощный электрошокер АКА-22М своими руками (2016) [PDF]
@@ -6,7 +32,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769466.jpg" />
+  <img src="Z:/picture/008/save_picture_769466.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766915.jpg" />
+  <img src="Z:/picture/008/save_picture_766915.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765212.jpg" />
+  <img src="Z:/picture/008/save_picture_765212.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765020.jpg" />
+  <img src="Z:/picture/008/save_picture_765020.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764117.jpg" />
+  <img src="Z:/picture/008/save_picture_764117.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761734.jpg" />
+  <img src="Z:/picture/008/save_picture_761734.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756910.jpg" />
+  <img src="Z:/picture/008/save_picture_756910.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756006.jpg" />
+  <img src="Z:/picture/008/save_picture_756006.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755417.jpg" />
+  <img src="Z:/picture/008/save_picture_755417.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753464.jpg" />
+  <img src="Z:/picture/008/save_picture_753464.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750820.jpg" />
+  <img src="Z:/picture/008/save_picture_750820.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747711.jpg" />
+  <img src="Z:/picture/008/save_picture_747711.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747425.jpg" />
+  <img src="Z:/picture/008/save_picture_747425.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745304.jpg" />
+  <img src="Z:/picture/008/save_picture_745304.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743319.jpg" />
+  <img src="Z:/picture/008/save_picture_743319.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740975.jpg" />
+  <img src="Z:/picture/008/save_picture_740975.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739564.jpg" />
+  <img src="Z:/picture/008/save_picture_739564.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739449.jpg" />
+  <img src="Z:/picture/008/save_picture_739449.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739438.jpg" />
+  <img src="Z:/picture/008/save_picture_739438.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736837.jpg" />
+  <img src="Z:/picture/008/save_picture_736837.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732513.jpg" />
+  <img src="Z:/picture/008/save_picture_732513.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732507.jpg" />
+  <img src="Z:/picture/008/save_picture_732507.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731523.jpg" />
+  <img src="Z:/picture/008/save_picture_731523.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731307.jpg" />
+  <img src="Z:/picture/008/save_picture_731307.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730739.jpg" />
+  <img src="Z:/picture/008/save_picture_730739.jpg" />
 </div>
 
 
@@ -662,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62AF9179FA2FB9941193F97CC448F659E68FE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022815   (727695) от 03.06.2016
-
-Анатолий Голубев | Живущие дважды (1972) [FB2]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги, известный журналист Анатолий Голубев, побывал во многих странах мира. В своей новой книге он знакомит читателя с жизнью зарубежных профессионалов-велогонщиков.
-Трагедия спортсмена в западном мире! На убедительных примерах рассказывает автор о махинациях зарубежных заправил спорта, о спортсменах-профессионалах, приносящих огромные прибыли своим хозяевам. (   Читать дальше...   )Жанр: Детская проза, спортФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86699FF5E7E75C7C91C50C210EBD7A66CCC38C0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

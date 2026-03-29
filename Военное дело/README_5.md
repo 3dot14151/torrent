@@ -1,3 +1,29 @@
+###  Публикация: 313718   (710598) от 09.08.2020
+
+08.08.08. Война в прямом эфире (2008) TVRip
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этого фильма – показать, как готовилось PR и медийное обеспечение грузинской агрессии. Кто создавал информационное прикрытие и как западные телеканалы, декларирующие объективность, склонили общественное мнение против России.Жанр: Документальный, ТелепередачаПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F53A3885BEF9F41C4DE3C5FBFCF075206BC13B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894090   (708952) от 01.05.2015
 
 Танки: гонка технологий (2009) TVRip
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708952.jpg" />
+  <img src="Z:/picture/008/save_picture_708952.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707018.jpg" />
+  <img src="Z:/picture/008/save_picture_707018.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706621.jpg" />
+  <img src="Z:/picture/008/save_picture_706621.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703693.jpg" />
+  <img src="Z:/picture/008/save_picture_703693.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703580.jpg" />
+  <img src="Z:/picture/008/save_picture_703580.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702559.jpg" />
+  <img src="Z:/picture/008/save_picture_702559.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701169.jpg" />
+  <img src="Z:/picture/008/save_picture_701169.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700452.jpg" />
+  <img src="Z:/picture/008/save_picture_700452.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698514.jpg" />
+  <img src="Z:/picture/008/save_picture_698514.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698428.jpg" />
+  <img src="Z:/picture/008/save_picture_698428.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680817.jpg" />
+  <img src="Z:/picture/008/save_picture_680817.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661106.jpg" />
+  <img src="Z:/picture/008/save_picture_661106.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660417.jpg" />
+  <img src="Z:/picture/008/save_picture_660417.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660058.jpg" />
+  <img src="Z:/picture/008/save_picture_660058.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657643.jpg" />
+  <img src="Z:/picture/008/save_picture_657643.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656369.jpg" />
+  <img src="Z:/picture/008/save_picture_656369.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649482.jpg" />
+  <img src="Z:/picture/008/save_picture_649482.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648130.jpg" />
+  <img src="Z:/picture/008/save_picture_648130.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647326.jpg" />
+  <img src="Z:/picture/008/save_picture_647326.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645695.jpg" />
+  <img src="Z:/picture/008/save_picture_645695.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644730.jpg" />
+  <img src="Z:/picture/008/save_picture_644730.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639773.jpg" />
+  <img src="Z:/picture/008/save_picture_639773.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633761.jpg" />
+  <img src="Z:/picture/008/save_picture_633761.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633478.jpg" />
+  <img src="Z:/picture/008/save_picture_633478.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629892.jpg" />
+  <img src="Z:/picture/008/save_picture_629892.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6288D5358F6C35215BFB42F5DBE2A098CCB5BA60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036221   (622667) от 19.07.2016
-
-Наш человек в Ватикане (2016) DVB
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о судьбе удивительного человека, проживавшего в 13 странах мира и носившего более 20 чужих имен, фамилий и псевдонимов. Факты и легенды из жизни советского разведчика Иосифа Григулевича.Телекомпания: Россия, ФГУП ТТЦ "Останкино"Жанр: Документальный, РазведкаПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC2B5E45C2438E4045FE6A78CD3B8F254C0E4F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

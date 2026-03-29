@@ -1,3 +1,108 @@
+###  Публикация: 142336   (571336) от 27.07.2015
+
+BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_571336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами документальный сериал, который рассказывает об удивительных способностях нашего тела. Мы проникнем вглубь нашего организма и впервые покажем, как каждая клетка, каждый нерв, каждый орган борется за то, чтобы мы жили. С помощью нанотехнологий, электронных микроскопов и современной компьютерной графики вы сможете увидеть полную картину процессов, которые (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 6 x ~ 00:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 12743   (571210) от 27.07.2015
+
+BBC: Освенцим (Аушвиц). Окончательное решение (Взгляд на нацизм изнутри) / Auschwitz. Inside The Nazi State (2005) [DVDRip]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_571210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освенцим, известный также под немецкими названиями Аушвиц или полностью концентрационный лагерь Аушвиц-Биркенау (польск. Oswiecim, нем. Auschwitz) - комплекс немецких концлагерей, располагавшийся в 1940—1945 на юге Польши, около города Освенцим, в 60 км к западу от Кракова. Над входом в Освенцим висел лозунг: «Arbeit macht frei» («Труд освобождает»).
+Вся шокирующая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234358   (570902) от 05.07.2018
+
+NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Африканский слон - самое большое наземное млекопитающее, а Ботсвана - это место, где их больше, чем где-бы то ни было на земле.Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB88319EFF2DD1046120E002F7A1EF4DCE57CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234349   (570759) от 05.07.2018
+
+NGW: Прекрасная Америка: Величественный Северо-Запад. В стране гигантских секвой / The Mighty Northwest (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Страну Гигантов, в которой самые высокие деревья в мире возвышаются над калифорнийским побережьем.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, природа, фауна, флораПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CCF0A4020AB649BB739E12DC1F456C4988C358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234462   (570631) от 05.07.2018
 
 NGW: Прекрасная Америка. На границе с дикой природой. В Аппалачах / America's wild frontier. Into the Appalachians (2017) HDTV [H.264/1080i-LQ]
@@ -6,7 +111,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570631.jpg" />
+  <img src="Z:/picture/008/save_picture_570631.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570627.jpg" />
+  <img src="Z:/picture/008/save_picture_570627.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570507.jpg" />
+  <img src="Z:/picture/008/save_picture_570507.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569789.jpg" />
+  <img src="Z:/picture/008/save_picture_569789.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ BBC: Борьба за выживание / BBC: The Trials of Life (1990) 4 х 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569729.jpg" />
+  <img src="Z:/picture/008/save_picture_569729.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ BBC: Древний Египет: Великое открытие / BBC: Egypt (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_569555.jpg" />
+  <img src="Z:/picture/005/save_picture_569555.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568680.jpg" />
+  <img src="Z:/picture/008/save_picture_568680.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568675.jpg" />
+  <img src="Z:/picture/008/save_picture_568675.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Animal Planet: Дикая (Суровая) Арктика (1-4 серии) / Wil
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568267.jpg" />
+  <img src="Z:/picture/008/save_picture_568267.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ BBC: Планеты / BBC: Planets (1999)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567815.jpg" />
+  <img src="Z:/picture/005/save_picture_567815.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567025.jpg" />
+  <img src="Z:/picture/008/save_picture_567025.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566993.jpg" />
+  <img src="Z:/picture/008/save_picture_566993.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Discovery: Искривление времени / Time Warp (2008) BDRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566730.jpg" />
+  <img src="Z:/picture/008/save_picture_566730.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566684.jpg" />
+  <img src="Z:/picture/008/save_picture_566684.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ NG: Секреты Шамбалы. В поисках священных пеще
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566372.jpg" />
+  <img src="Z:/picture/008/save_picture_566372.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ BBC: Мир природы. Маршруты песочника / Natural World.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565756.jpg" />
+  <img src="Z:/picture/008/save_picture_565756.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ NGW: В мире дикой природы. Долина смерти / Into The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565736.jpg" />
+  <img src="Z:/picture/008/save_picture_565736.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ NG: Кладбище воинов. Флотилия проклятых / Warrior
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565734.jpg" />
+  <img src="Z:/picture/008/save_picture_565734.jpg" />
 </div>
 
 
@@ -479,7 +584,7 @@ Discovery: Мегамир. Мексика / Megaworld. Mexico (2011) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565727.jpg" />
+  <img src="Z:/picture/008/save_picture_565727.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565691.jpg" />
+  <img src="Z:/picture/008/save_picture_565691.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ BBC: Моцарт в Лондоне / Mozar in London (Lucy Worsley: Mozart's Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565404.jpg" />
+  <img src="Z:/picture/008/save_picture_565404.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ NG: С точки зрения науки: Великое оледенение /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563820.jpg" />
+  <img src="Z:/picture/008/save_picture_563820.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ NG: С точки зрения науки: Великое оледенение /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C481429F62625AB285896FA5490E97A631FA3EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235195   (563637) от 09.07.2018
-
-BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [Custom]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один обыкновенный и впечатляющий день из жизни разных представителей дикой природы: от неприметных насекомых до царственных хищников. Чем занимаются от рассвета до заката жители джунглей и ледников, морей и пустынь? Они выходят на охоту, борются за выживание, растят детенышей и втягиваются в круговорот удивительных приключений.Производство: Великобритания, BBC Earth Film ProductionsЖанр: Документальный, научно-популярный, семейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: Дублированный (Николай Дроздов) (Лицензия BD RUS)Субтитры: Русские, английские, испанские, французскиеПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E2C22179E25DBBA8EF33F0F7DAEBC3548C8189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304477   (563566) от 26.05.2019
-
-NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Серии: 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арктика во всей её красоте. Мы познакомимся с жизнью животных, которые пытаются выжить в этих невероятных местах обитания.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Поппи РиддлПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 3 x ~00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E16B196443C54A320489E1C99DE597D63561D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304488   (563138) от 26.05.2019
-
-Паразиты: кто нами управляет? (2019) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принято считать, что глобальными процессами в политике, экономике и других важных сферах управляют мировые элиты. Это так только отчасти. Последние исследования доказывают, что есть силы гораздо более могущественные. Человеком управляют паразиты! Его характером, психикой, эмоциями, мыслями, интересами, здоровьем. Но, может быть, нас и вовсе контролируют внеземные (   Читать дальше...   )Производство: Россия, Рен ТВЖанр: Документальный, познавательный, научно-популярныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7768D86BDC7D567C6C45BC27E0EE14B1E8BBC5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292477   (563137) от 26.05.2019
-
-NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/1080p-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многим животным предстоят большие трудности и борьба за выживание после ухода последних лучей солнца...Производство: США, Nat Geo Wild, Skybound EntertainmentЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E70A08A56D61E3F33EF98DD051616BE9D2008C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

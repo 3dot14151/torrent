@@ -6,7 +6,7 @@ HitFilm 4 Pro 4.0.5103 build 5403 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889036.jpg" />
+  <img src="Z:/picture/005/save_picture_889036.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VideoNet 9.0 SP4 Build 9.0.4.40146 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889032.jpg" />
+  <img src="Z:/picture/005/save_picture_889032.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NetBalancer 10.3.2.2806 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888991.jpg" />
+  <img src="Z:/picture/005/save_picture_888991.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888990.jpg" />
+  <img src="Z:/picture/005/save_picture_888990.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wondershare Data Recovery 5.0.8.5 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888979.jpg" />
+  <img src="Z:/picture/005/save_picture_888979.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Wise Care 365 Pro 4.55.430 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888971.jpg" />
+  <img src="Z:/picture/005/save_picture_888971.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888969.jpg" />
+  <img src="Z:/picture/005/save_picture_888969.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ O&O DiskImage Professional 16.5 Build 243 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888964.jpg" />
+  <img src="Z:/picture/005/save_picture_888964.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Bigasoft Total Video Converter 5.1.1.6250 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888950.jpg" />
+  <img src="Z:/picture/005/save_picture_888950.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Kingdom Wars 2: Battles (2016) [Ru/Multi] (1.0) Repack by bosenok
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888942.jpg" />
+  <img src="Z:/picture/005/save_picture_888942.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Maxthon Browser MX5 5.0.2.1600 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888935.jpg" />
+  <img src="Z:/picture/005/save_picture_888935.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ XnView Classic 2.50.1 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888933.jpg" />
+  <img src="Z:/picture/005/save_picture_888933.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Call of Duty: Ghosts (2013) [Ru] (3.15.1.0.0.702660/upd20) Rip xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888927.jpg" />
+  <img src="Z:/picture/005/save_picture_888927.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ GraphEditPlus 1.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888918.jpg" />
+  <img src="Z:/picture/005/save_picture_888918.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888904.jpg" />
+  <img src="Z:/picture/005/save_picture_888904.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ GoldWave 6.26 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888903.jpg" />
+  <img src="Z:/picture/005/save_picture_888903.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888882.jpg" />
+  <img src="Z:/picture/005/save_picture_888882.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Lubuntu 13.04 beta 2 (легкий дистрибутив) [i386, amd64] (2xCD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888834.jpg" />
+  <img src="Z:/picture/005/save_picture_888834.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888832.jpg" />
+  <img src="Z:/picture/005/save_picture_888832.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SpeedyFox 2.0.20 Build 117 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888822.jpg" />
+  <img src="Z:/picture/005/save_picture_888822.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ UltraUXThemePatcher 4.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888817.jpg" />
+  <img src="Z:/picture/005/save_picture_888817.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Bigasoft Total Video Converter 5.1.1.6250 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888760.jpg" />
+  <img src="Z:/picture/005/save_picture_888760.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888749.jpg" />
+  <img src="Z:/picture/005/save_picture_888749.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_888738.jpg" />
+  <img src="Z:/picture/009/save_picture_888738.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Teddy Killerz – Big Blow (2014) EP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888736.jpg" />
+  <img src="Z:/picture/005/save_picture_888736.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Sundaze - Saturnia (2020) Melusine Records [FLAC|Lossless|WEB-DL|tracks] <Psybie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888693.jpg" />
+  <img src="Z:/picture/005/save_picture_888693.jpg" />
 </div>
 
 

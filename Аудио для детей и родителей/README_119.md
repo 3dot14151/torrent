@@ -1,3 +1,83 @@
+###  Публикация: 1757113   (39286) от 25.10.2024
+
+Аллан Рексворд | Закулисье. Алмаз Сердца (2024) [MP3, Михаил Прокопов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Могло показаться, что безликие больше не угрожают человечеству, но так ли это на самом деле? Марк отказывается верить, что всё закончилось, и пытается противостоять своему отцу, который является тайным агентом компании «А-Синк». Когда Кнут пропадает, парень вынужден снова отправиться в опасное путешествие по мрачному измерению Закулисья, чтобы спасти свою семью. (   Читать дальше...   )Жанр: Детская литература, ФэнтезиИздательство: ЭксмоПродолжительность: 05:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9156B4721D4C42B1D821D0E458FA700D67DBB74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610666   (39098) от 27.10.2024
+
+Александр Волков | Семь подземных королей (2023) [MP3, Совушка Сонюшка]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39098.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Волшебной стране есть пещера, в которой живут Подземные рудокопы. А правят ими семь королей. По очереди. Но вот источник, благодаря которому сохранялась строгая очередность, разрушен и в Стране Подземных рудокопов паника и хаос. В это же время там из-за обвала оказывается запертой Элли вместе со своим двоюродным братом Фредом.Жанр: внеклассное чтение, детские приключения, сказкиИздательство: Нигде не купишьПродолжительность: 5:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CF261EEAFEE833003226EAD7D4BCC1DF8F203A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728066   (39075) от 27.10.2024
+
+Александр Пушкин | Сказки А.С. Пушкина (1995) [MP3, Олег Табаков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Живая сказка.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Наше первое знакомство со сказкой происходит в детстве когда затаив дыхание, мы слушаем, как мама читает нам о Золотой рыбке, Царе Салтане и Спящей царевне. Вместе (   Читать дальше...   )Жанр: Русская литература, классика, сказкаИздательство: Два жирафа, Мост-ВПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6705307F588A0651BA21B67792F0977CE30000F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757356   (39068) от 27.10.2024
 
 Peter James - Baby Dreams (Сладких снов) (2008) [WavPack|Lossless|image + .cue] <Easy listening>
@@ -6,7 +86,7 @@ Peter James - Baby Dreams (Сладких снов) (2008) [WavPack|Lossless|ima
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39068.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38783.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37288.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36625.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36571.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36567.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36561.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36446.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35406.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35006.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33976.jpg" />
 </div>
 
 
@@ -305,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33136.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31919.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30841.jpg" />
 </div>
 
 
@@ -387,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29896.jpg" />
 </div>
 
 
@@ -414,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29588.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28194.jpg" />
 </div>
 
 
@@ -467,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27127.jpg" />
 </div>
 
 
@@ -494,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27124.jpg" />
 </div>
 
 
@@ -521,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25990.jpg" />
 </div>
 
 
@@ -549,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24989.jpg" />
 </div>
 
 
@@ -576,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24871.jpg" />
 </div>
 
 
@@ -604,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24827.jpg" />
 </div>
 
 
@@ -616,90 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F992D783D641E98A2F95B4D7CCF4AFB3A5FAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 206463   (23594) от 25.03.2025
-
-VA - Мелодии для успокоения и пробуждения малыша / Melodias para bebes (2002) [MP3|320 kbps]<классика>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caricatura 00:04:15
-02. Mi primera palabra 00:02:24
-03. La tristeza del bosque 00:04:46
-04. Balbucea meu bebe, Balbucea 00:04:50(   Читать дальше...   )Жанр: КлассикаФормат: MP3Продолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F209DE8E614715A35F9B97265E64720CB2813F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789843   (22269) от 06.04.2025
-
-Томас Фелан | Магия на 1-2-3. Как перестать срываться на ребенка и начать общаться спокойно и с удовольствием (2019) [MP3, Андрей Леонов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера ваш ребенок был забавным и милым карапузом, а сегодня дом превратился в место военных действий: малыш капризничает, упрямится и совсем не слушается. Даже у самых прекрасных и любящих мам и пап в таких условиях опускаются руки. Томас Фелан, доктор философии и клинический психолог, двадцать лет исследовал вопросы детской дисциплины и проводил консультации (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияИздательство: БОМБОРАПродолжительность: 06:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE72BEBC782806FF6EF1F14B80CCA6FF14C1F98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790526   (21956) от 09.04.2025
-
-Дмитрий Мамин-Сибиряк | Лесная сказка. О том, как жила-была последняя Муха (2024) [MP3, Вадим Бочанов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель. В своих произведениях он проникновенно и правдиво отразил дух русского народа, его вековую судьбу, национальные его особенности – мощь, размах, трудолюбие, любовь к жизни, жизнерадостность.
-
- Дмитрий Мамин-Сибиряк на NoNaMe ClubЖанр: Русская литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F554EBAFDB62F8CE1179DBC53705B43B2358FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

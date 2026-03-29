@@ -6,7 +6,7 @@ Shantanu Baruah, Shaurya Baruah | App Development Using iOS iCloud (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204135.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204132.jpg" />
+  <img src="Z:/picture/004/save_picture_204132.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mark J. Price | C# 11 and .NET 7 – Modern Cross-Platform Development Fundament
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203802.jpg" />
+  <img src="Z:/picture/004/save_picture_203802.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203430.jpg" />
+  <img src="Z:/picture/004/save_picture_203430.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203359.jpg" />
+  <img src="Z:/picture/004/save_picture_203359.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203147.jpg" />
+  <img src="Z:/picture/004/save_picture_203147.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203080.jpg" />
+  <img src="Z:/picture/004/save_picture_203080.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203020.jpg" />
+  <img src="Z:/picture/004/save_picture_203020.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202719.jpg" />
+  <img src="Z:/picture/004/save_picture_202719.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202685.jpg" />
+  <img src="Z:/picture/004/save_picture_202685.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202615.jpg" />
+  <img src="Z:/picture/004/save_picture_202615.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202337.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202333.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202325.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201993.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sandeep Rawat | CI/CD Pipeline with Docker and Jenkins (2023) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201690.jpg" />
+  <img src="Z:/picture/005/save_picture_201690.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Nanik Tolaram, Nick Glynn | Full-Stack Web Development with Go (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201551.jpg" />
+  <img src="Z:/picture/005/save_picture_201551.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201427.jpg" />
+  <img src="Z:/picture/005/save_picture_201427.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201425.jpg" />
+  <img src="Z:/picture/005/save_picture_201425.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Sourabh Mishra | Practical Highcharts with Angular, 2nd Edition (2023) [PDF] [EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201416.jpg" />
+  <img src="Z:/picture/005/save_picture_201416.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201390.jpg" />
+  <img src="Z:/picture/005/save_picture_201390.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201373.jpg" />
+  <img src="Z:/picture/005/save_picture_201373.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Maxwell Flitton | Rust Web Programming - Second Edition (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201340.jpg" />
+  <img src="Z:/picture/005/save_picture_201340.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Alex Nuijten,  Patrick Barel | Modern Oracle Database Programming (2023) [PDF] [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201193.jpg" />
+  <img src="Z:/picture/005/save_picture_201193.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201121.jpg" />
+  <img src="Z:/picture/005/save_picture_201121.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Sarah Guthals | GitHub For Dummies, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201075.jpg" />
+  <img src="Z:/picture/005/save_picture_201075.jpg" />
 </div>
 
 

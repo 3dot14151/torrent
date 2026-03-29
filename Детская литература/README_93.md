@@ -1,3 +1,29 @@
+###  Публикация: 1295255   (613369) от 16.04.2019
+
+Константин Волков | Звезда утренняя (1957) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастическая повесть К. Волкова «Звезда утренняя» рассказывает о подготовке и проведении научной экспедиции советских ученых на планету Венеру, о пережитых ими исключительных приключениях, об их мужестве и находчивости, позволивших найти выход из самых безнадежных и трагических обстоятельств.Жанр: фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF8EA6C79B67DDC35775C1719BE555B047D017D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545570   (613274) от 20.04.2022
 
 Русская народная сказка | Петушок и бобовое зёрнышко (1982) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613274.jpg" />
+  <img src="Z:/picture/008/save_picture_613274.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613272.jpg" />
+  <img src="Z:/picture/008/save_picture_613272.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612988.jpg" />
+  <img src="Z:/picture/008/save_picture_612988.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612986.jpg" />
+  <img src="Z:/picture/008/save_picture_612986.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612847.jpg" />
+  <img src="Z:/picture/008/save_picture_612847.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612801.jpg" />
+  <img src="Z:/picture/008/save_picture_612801.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612389.jpg" />
+  <img src="Z:/picture/008/save_picture_612389.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612275.jpg" />
+  <img src="Z:/picture/008/save_picture_612275.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611793.jpg" />
+  <img src="Z:/picture/008/save_picture_611793.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611540.jpg" />
+  <img src="Z:/picture/008/save_picture_611540.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611203.jpg" />
+  <img src="Z:/picture/008/save_picture_611203.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610888.jpg" />
+  <img src="Z:/picture/008/save_picture_610888.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610884.jpg" />
+  <img src="Z:/picture/008/save_picture_610884.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610882.jpg" />
+  <img src="Z:/picture/008/save_picture_610882.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610760.jpg" />
+  <img src="Z:/picture/008/save_picture_610760.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610549.jpg" />
+  <img src="Z:/picture/008/save_picture_610549.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610325.jpg" />
+  <img src="Z:/picture/008/save_picture_610325.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610298.jpg" />
+  <img src="Z:/picture/008/save_picture_610298.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609738.jpg" />
+  <img src="Z:/picture/008/save_picture_609738.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609737.jpg" />
+  <img src="Z:/picture/008/save_picture_609737.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609732.jpg" />
+  <img src="Z:/picture/008/save_picture_609732.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609730.jpg" />
+  <img src="Z:/picture/008/save_picture_609730.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609615.jpg" />
+  <img src="Z:/picture/008/save_picture_609615.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609600.jpg" />
+  <img src="Z:/picture/008/save_picture_609600.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609499.jpg" />
+  <img src="Z:/picture/008/save_picture_609499.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2BC5CCC710396C2E582F72F4B393C5F77DE17EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912545   (609450) от 27.06.2015
-
-Игорь Всеволожский | Амурские ребята (1940) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609450.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора.
-Многие из людей, о которых написано в этой книге, существовали и существуют. Мною лишь изменены имена.
-В 1936 году я жил на Дальнем Востоке, на Амуре, на базе Амурской Краснознаменной флотилии. Была суровая амурская зима, Амур застыл, корабли стояли вмерзшими в лед, но на кораблях не прекращалась работа. В любую минуту грозные орудия мониторов и канонерских (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821AC76C748460DB31F746B98A5444E2A931BABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

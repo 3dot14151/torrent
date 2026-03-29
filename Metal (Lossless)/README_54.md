@@ -1,3 +1,90 @@
+###  Публикация: 1099624   (903406) от 02.02.2017
+
+Mors Principium Est - Embers Of A Dying World (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis 01:35
+02. Reclaim The Sun 04:39
+03. Masquerade 05:04
+04. Into The Dark 05:06(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCCBE911BA2AD7D567A44ACC8439DD2905FB6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099635   (903294) от 02.02.2017
+
+Hobbs' Angel Of Death - Heaven Bled (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Mostro Di Firenzi 04:41
+02. Walk My Path 05:19
+03. Final Feast 03:56
+04. Suicide 03:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145F814FF001072977D907E04C09C871DB15DF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992196   (902809) от 01.03.2016
+
+Sinbreed - Master Creator (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creation Of Reality
+02. Across The Great Divides
+03. Behind A Mask
+04. Moonlit Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E599A54098DEA3380B2A649542CDD14CCC0E6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992033   (902759) от 01.03.2016
 
 Textures - Phenotype (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Metalcore>
@@ -6,7 +93,7 @@ Textures - Phenotype (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902759.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Omnium Gatherum - Grey Heavens (2016) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902753.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lost Society - Braindead (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902622.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Limuria - Limuria (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902479.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Massive Fire - The Anunnaki (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902478.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ GloryHammer - Tales From The Kingdom Of Fife (2013) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902409.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ At Vance - Ride The Sky (2009) Japanese Edition [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902408.jpg" />
 </div>
 
 
@@ -212,7 +299,7 @@ MaYaN - Dhyana (2018) 2xCD, Limited Edition [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902407.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Killswitch Engage - Killswitch Engage (2000) [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902108.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Under Silence - Memories Lost In Time (2010) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901808.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ At Vance - VII (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_900869.jpg" />
+  <img src="Z:/picture/008/save_picture_900869.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ U.D.O. - Steelfactory (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900814.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Sepultura - SepulQuarta (2021) [FLAC|Lossless|image + .cue] <Groove Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900787.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Infected Rain - Asylum (2011) [FLAC|Lossless|image + .cue] <Nu Metal, Metalcore,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900436.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Infected Rain - Embrace Eternity (2014) [FLAC|Lossless|tracks + .cue] <Nu Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900430.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Lorihen (Lörihen) - Bajo La Cruz (2007) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899991.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Rachel Mother Goose - Tokiwa No Sai (2017) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899846.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Astarte - Quod Superius Sicut Inferius (2002) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899754.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Faithful Breath - 2 Studio Albums (1984-1985) 2xCD [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899021.jpg" />
 </div>
 
 
@@ -561,7 +648,7 @@ GloryHammer - Legends From Beyond The Galactic Terrorvortex (2019) 2xCD [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899004.jpg" />
 </div>
 
 
@@ -590,7 +677,7 @@ Accept - Too Mean To Die (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898769.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ Infected Rain - 86 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898546.jpg" />
 </div>
 
 
@@ -648,7 +735,7 @@ Infected Rain - Endorphin (2019) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898542.jpg" />
 </div>
 
 
@@ -662,90 +749,6 @@ Infected Rain - Endorphin (2019) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F09E4A2B46890A141E8D9F41462A9F1AF980F429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493123   (897542) от 02.09.2021
-
-Infiltration - Point Blank Termination (2020) [FLAC|Lossless|image + .cue] <Death Metal, Deathcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plunged Into Decimation (4:07)
-02. Missing In Bodycount (4:26)
-03. Sniper's Creed (3:37)
-04. Collateral Damage (5:11)(   Читать дальше...   )Жанр: Death Metal, Deathcore, Groove MetalПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6732D4E0F0A73F4032EAB5D621A0D684BD7938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101072   (897441) от 05.02.2017
-
-Nightwish - Vehicle of Spirit (Live) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Symphonic MetalПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8E5E3CFAE040166483C9A5973EFAB71CCD796C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652321   (897421) от 02.09.2021
-
-Thyrane - Travesty Of Heavenly Essence (2005) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Parasites Of submission [03:43]
-02.  Decay Of Christian Empire [04:55]
-03.  Travesty Of Heavenly Essence [03:43]
-04.  Nox Diaboli (Devil.s Night) [04:17](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E801B01658F552C683D5AABEA6707D51699705B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

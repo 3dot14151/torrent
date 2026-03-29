@@ -1,3 +1,90 @@
+###  Публикация: 1564718   (498633) от 20.07.2022
+
+LVME - The Blazing Iniquity (2019) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Third Flame Of Disorder (10:37)
+02 - Unveiling Saar (9:56)
+03 - The Fiery Sword (11:13)
+04 - Perdition's Clay (11:24)Жанр: Black MetalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD2B3F886AE4C8ECEEE51B45BAC9C6B54CC4752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564724   (498630) от 20.07.2022
+
+Magnus - Scarlet Slaughterer (1989) Nuclear War Now! Productions, 2021  [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498630.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trash Attack (02:42)
+2. Tomb (04:22)
+3. Pharisee (04:08)
+4. Confession (04:00)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5343ECE3ADB1F1E9015D4E0895030A502335DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318184   (497813) от 04.08.2019
+
+Distorted Harmony - Chain Reaction (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time She Smiles (6:49)
+02. Children of Red (5:13)
+03. Misguided (8:33)
+04. Nothing (But the Rain) (2:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E578E7C062F920FCCA063A9E816056FE2E9137F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317998   (497811) от 04.08.2019
 
 Yatrogeny - Taedium Vitae (2004) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Melodic Death Metal>
@@ -6,7 +93,7 @@ Yatrogeny - Taedium Vitae (2004) [FLAC|Lossless|image + .cue] <Melodic Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497811.jpg" />
+  <img src="Z:/picture/008/save_picture_497811.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Besatt - Triumph of Antichrist (2007) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497795.jpg" />
+  <img src="Z:/picture/008/save_picture_497795.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Black Capricorn - Cult Of Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497792.jpg" />
+  <img src="Z:/picture/008/save_picture_497792.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Lucid Grave - Cosmic Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497791.jpg" />
+  <img src="Z:/picture/008/save_picture_497791.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Supasonic Fuzz - Cobracadabra (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497789.jpg" />
+  <img src="Z:/picture/008/save_picture_497789.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sons of Arrakis - Volume I (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497788.jpg" />
+  <img src="Z:/picture/008/save_picture_497788.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Malicious Onslaught - Rebellious Mayhem (1992) [FLAC|Lossless|tracks] <Death, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497781.jpg" />
+  <img src="Z:/picture/008/save_picture_497781.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Maul - Seraphic Punishment (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497780.jpg" />
+  <img src="Z:/picture/008/save_picture_497780.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Molder - Engrossed In Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497738.jpg" />
+  <img src="Z:/picture/008/save_picture_497738.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Blackslash - No Steel No Future (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497730.jpg" />
+  <img src="Z:/picture/008/save_picture_497730.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Mordeth - Animicide (2001) [FLAC|Lossless|image + .cue] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496807.jpg" />
+  <img src="Z:/picture/008/save_picture_496807.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Morpheus Descends - The Horror Of The Truth (1997) EP [FLAC|Lossless|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496803.jpg" />
+  <img src="Z:/picture/008/save_picture_496803.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ With the Dead - With the Dead (2015) [FLAC|Lossless|tracks + .cue] <Doom, Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496756.jpg" />
+  <img src="Z:/picture/008/save_picture_496756.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Marlugubre - Maladie (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496752.jpg" />
+  <img src="Z:/picture/008/save_picture_496752.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ With the Dead - Love from with the Dead (2017) Japan Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496751.jpg" />
+  <img src="Z:/picture/008/save_picture_496751.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Oddland - Origin (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496677.jpg" />
+  <img src="Z:/picture/008/save_picture_496677.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Psycrence - A Frail Deception (2014) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496674.jpg" />
+  <img src="Z:/picture/008/save_picture_496674.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Stratovarius - Дискография (26 альбомов) (1989-2009) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496614.jpg" />
+  <img src="Z:/picture/008/save_picture_496614.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Striker - Armed To The Teeth (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496330.jpg" />
+  <img src="Z:/picture/008/save_picture_496330.jpg" />
 </div>
 
 
@@ -559,7 +646,7 @@ Ektomorf - Black Flag (Limited Edition) (2012) Scene [FLAC|Lossless]<Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496326.jpg" />
+  <img src="Z:/picture/008/save_picture_496326.jpg" />
 </div>
 
 
@@ -594,7 +681,7 @@ Slayer - Repentless (2015) [FLAC|Lossless|WEB-DL]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496286.jpg" />
+  <img src="Z:/picture/008/save_picture_496286.jpg" />
 </div>
 
 
@@ -623,7 +710,7 @@ Slayer - Repentless (2015) Limited Edition [FLAC|image+.cue]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496156.jpg" />
+  <img src="Z:/picture/008/save_picture_496156.jpg" />
 </div>
 
 
@@ -652,7 +739,7 @@ Stratovarius - Eternal (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496154.jpg" />
+  <img src="Z:/picture/008/save_picture_496154.jpg" />
 </div>
 
 
@@ -666,97 +753,6 @@ Stratovarius - Eternal (2015) [FLAC|image+.cue]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0B6258D5608C8FBAB7476F47B0374C72CDB62E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543425   (495598) от 05.09.2012
-
-Eluveitie - The Early Years (2012) [FLAC|Lossless]<Folk Metal/Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495598.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1: Vên (Re-recorded)
-01. Verja Urit An Bitus (2:17)
-02. Uis Elvetie (4:00)
-03. Oro (1:28)
-04. Lament (4:06)
-05. Druid (6:05)
-06. Divico (3:39)
-07. Jezaig (4:55)Жанр: Folk Metal/Melodic Death MetalПродолжительность: 00:26:30+00:50:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565224   (494781) от 23.07.2022
-
-Organic Infest - Penitence (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penitence (01:10)
-02. Carnal Waste (03:28)
-03. Suppurative Waste (06:16)
-04. Execrable Butchery (03:52)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525E8A2A8F9EF43A09F0F896297C9F90BF1F9190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565250   (494778) от 23.07.2022
-
-Ossuary Insane - Demonize The Flesh (1998) [FLAC|Lossless|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen to the Pits (04:15)
-02. Inverted in Darkness (05:09)
-03. Summoned to Death (03:02)
-04. Imprecari (05:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF2412F19778AFF921437154859E9B902D30B1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1360595   (242729) от 15.02.2020
+
+Натан Эйдельман | Последний летописец, или Две жизни Николая Карамзина (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известнейшего писателя, публициста, литературоведа Н. Я. Эйдельмана посвящена главному труду Н. М. Карамзина - "Истории государства Российского". В начале XIX века Россия стояла перед настоятельной необходимостью широких преобразований в жизни государства. "Республиканец в душе и верный подданный царя русского", как писал о себе Карамзин, (   Читать дальше...   )Жанр: История, исторические наукиПродолжительность: 14:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3191D2FD9A6955D698FFFFEAADAAC29D3B489744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108186   (241851) от 25.02.2017
+
+Леонид Волынский | Лицо времени: Книга о русских художниках (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой книги — замечательные русские художники: Крамской, Перов, Саврасов, Репин, Суриков, Ярошенко, Поленов, Левитан, Серов...
+Читатель узнает о знаменитом «бунте четырнадцати» в Петербургской Академии художеств, о «коммуне Крамского», о возникновении Товарищества передвижных выставок, об истории создания многих картин — обо всем том, что составило одну из самых (   Читать дальше...   )Жанр: История искуссстваПродолжительность: 10:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9C80812FDB893377A2F8BED42E867EFFDE271E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625777   (241023) от 11.04.2023
+
+Конн Иггульден | Греческие войны (Книга 1). Врата Афин (2023) [MP3, Станислав Федорчук]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_241023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарий Великий, царь царей, вел на Грецию огромную армию. На пути у персов, многократно уступая им численно, встало войско свободных афинян. В неравном сражении победа осталась за греками.
+
+Но люди быстро забывают, что за свободу заплачено кровью. Спустя десять лет афинское общество расколото, правители погрязли в интригах. И уже новая персидская армия, мощнее первой, (   Читать дальше...   )Жанр: Историческая литература, Исторические приключенияПродолжительность: 15:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6166842EF83939ED234602656E920E56F1A92432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632074   (240647) от 09.05.2023
 
 Симона Вилар | Светорада (Книга 1). Светорада Золотая (2023) [MP3, Наталья Беляева]
@@ -6,7 +87,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240647.jpg" />
+  <img src="Z:/picture/004/save_picture_240647.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238082.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236746.jpg" />
+  <img src="Z:/picture/005/save_picture_236746.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236690.jpg" />
+  <img src="Z:/picture/005/save_picture_236690.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235718.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233643.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232964.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232081.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231316.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230858.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229226.jpg" />
+  <img src="Z:/picture/004/save_picture_229226.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228697.jpg" />
+  <img src="Z:/picture/005/save_picture_228697.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228548.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227660.jpg" />
+  <img src="Z:/picture/005/save_picture_227660.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226295.jpg" />
+  <img src="Z:/picture/005/save_picture_226295.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225987.jpg" />
+  <img src="Z:/picture/005/save_picture_225987.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225898.jpg" />
+  <img src="Z:/picture/005/save_picture_225898.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224851.jpg" />
+  <img src="Z:/picture/005/save_picture_224851.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223995.jpg" />
+  <img src="Z:/picture/005/save_picture_223995.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222499.jpg" />
+  <img src="Z:/picture/005/save_picture_222499.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221353.jpg" />
+  <img src="Z:/picture/005/save_picture_221353.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221345.jpg" />
+  <img src="Z:/picture/005/save_picture_221345.jpg" />
 </div>
 
 
@@ -586,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220879.jpg" />
+  <img src="Z:/picture/005/save_picture_220879.jpg" />
 </div>
 
 
@@ -597,85 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C67B4DC2DCA7DFA56ADF3EB440C388ACA4689EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964104   (220878) от 01.12.2021
-
-Владимир Карпов | Маршал Жуков, его соратники и противники в дни войны и мира (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного писателя Владимира Карпова, долгие годы занимавшегося сбором и анализом документов и материалов, хранящихся в отечественных и зарубежных архивах, представляет собой монументальное и величественное полотно, в центре которого - Георгий Константинович Жуков. Автор исследует его взаимоотношения с И.В.Сталиным как Верховным Главнокомандующим, с другими (   Читать дальше...   )Жанр: Военная проза, БиографияПродолжительность: 23:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEEA3A9A9E0B090C2BB29D148D3F6E66150CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084016   (218659) от 19.12.2016
-
-Анатолий Макаров | Александр Вертинский (2016) [MP3, Марина Толоконская]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218659.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Он не притворялся ни мессией, ни трибуном, он не был ни «буревестником», ни «горланом». Миф Александра Вертинского пережил государства, революции, войны. Пьеро пел об обманутой и обманувшей любви, о выдуманных городах и несуществующих странах. Давно уже нет царской России, подарившей мировой культуре большого артиста. Давно нет уже Советского Союза, куда он стремился (   Читать дальше...   )Жанр: ЖЗЛ, биографии и мемуарыИздательство: Нигде не купишьПродолжительность: 12:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12D9F10550ED12E1841EB6E43328A7C9F3E016F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652351   (217644) от 11.08.2023
-
-Владимир Першанин | Штрафники, разведчики, пехота. «Окопная правда» Великой Отечественной (2019) [MP3, Александр Макшанцев]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга от автора бестселлеров «Смертное поле» и «Командир штрафной роты»! Страшная правда о Великой Отечественной. Война глазами фронтовиков – простых пехотинцев, разведчиков, артиллеристов, штрафников.
-«Героев этой книги объединяет одно – все они были в эпицентре войны, на ее острие. Сейчас им уже за восемьдесят. Им нет нужды рисоваться. Они рассказывали мне (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: ЛитРес: чтецПродолжительность: 07:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1955303C87E3A168B72E11E2DFE1BDD3480888C
 ```
 
 https://mybot314.ru/tekegram_catalog/

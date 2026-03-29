@@ -1,3 +1,81 @@
+###  Публикация: 1229926   (620965) от 09.06.2018
+
+О.В. Косик | «Кто нас разлучит от любви Божией?» Книга о священноисповеднике епископе Афанасии Ковровском : с приложением полного текста службы Всем святым, в земле Русской просиявшим (2017) [PDF,  ...
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620965.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русь, Святая Русь, храни веру Православную...» — эти слова из стихиры службы Всем святым, в земле Русской просиявшим, не оставят равнодушным ни одного верующего человека. Составитель этой службы — епископ Ковровский Афанасий (Сахаров) — один из великих святителей нашего времени, которого не миновала ни одна из бурь, обрушившихся на Церковь в XX веке. Соратник патриарха (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6391EEB97C30EC3F1976DF36DA25ED683FA20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230024   (620773) от 09.06.2018
+
+Александр Павлович Лопухин | Толковая Библия [7 Томов] (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется богословский труд, комментарий на все книги Святого Писания Ветхого и Нового Завета под редакцией профессора-библеиста Александра Павловича Лопухина.Жанр: БиблеистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423788C7AB49E752570A7A7BEA8757E7E72E6CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910706   (620365) от 21.06.2015
+
+Бахаулла | Китаб-и Икан (2001) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отечественному читателю впервые предлагается академический перевод с персидского языка на русский одного из основополагающих Писаний религии Ба-хаи — `Китаб-и Йкан`. Зародившись в XIX в., эта религия уступает по географической распространенности в мире лишь христианству. Общины Бахаи имелись в царской России и в СССР, где прекратили свое существование к 1938 г., (   Читать дальше...   )Жанр: Религиоведение, История религийПеревод: Ю. А. ИоаннесянФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B340F2E095B6F05D53E03E9EEE4CE5EEE20DC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909725   (620234) от 21.06.2015
 
 Андрей Мартьянов, Елена Хаецкая | Верования дохристианской Европы (2014) [FB2]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620234.jpg" />
+  <img src="Z:/picture/008/save_picture_620234.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620110.jpg" />
+  <img src="Z:/picture/008/save_picture_620110.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619996.jpg" />
+  <img src="Z:/picture/008/save_picture_619996.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619990.jpg" />
+  <img src="Z:/picture/008/save_picture_619990.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619983.jpg" />
+  <img src="Z:/picture/008/save_picture_619983.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619982.jpg" />
+  <img src="Z:/picture/008/save_picture_619982.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619970.jpg" />
+  <img src="Z:/picture/008/save_picture_619970.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619807.jpg" />
+  <img src="Z:/picture/008/save_picture_619807.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619741.jpg" />
+  <img src="Z:/picture/008/save_picture_619741.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619155.jpg" />
+  <img src="Z:/picture/008/save_picture_619155.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618400.jpg" />
+  <img src="Z:/picture/008/save_picture_618400.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618226.jpg" />
+  <img src="Z:/picture/008/save_picture_618226.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618154.jpg" />
+  <img src="Z:/picture/008/save_picture_618154.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618090.jpg" />
+  <img src="Z:/picture/008/save_picture_618090.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618082.jpg" />
+  <img src="Z:/picture/008/save_picture_618082.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617976.jpg" />
+  <img src="Z:/picture/008/save_picture_617976.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617048.jpg" />
+  <img src="Z:/picture/008/save_picture_617048.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617027.jpg" />
+  <img src="Z:/picture/008/save_picture_617027.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616539.jpg" />
+  <img src="Z:/picture/008/save_picture_616539.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616438.jpg" />
+  <img src="Z:/picture/008/save_picture_616438.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616317.jpg" />
+  <img src="Z:/picture/008/save_picture_616317.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616194.jpg" />
+  <img src="Z:/picture/008/save_picture_616194.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615941.jpg" />
+  <img src="Z:/picture/008/save_picture_615941.jpg" />
 </div>
 
 
@@ -601,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB2DDCE15EC605E50CCD22EAA51D0900715F98E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911010   (615854) от 23.06.2015
-
-Фолио (изд.) | Еврейские притчи (2014) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615854.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны яркие и запоминающиеся еврейские притчи – философские и занимательные, веселые и печальные.
-
-К раввину Леви пришел молодой человек и горестно спросил:
-– Учитель! Скажите мне, почему меня никто не любит, особенно девушки?(   Читать дальше...   )Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEBD59577796E8946AB599DA6182BCF934B6315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036734   (615672) от 23.07.2016
-
-Дж. С. Тримингэм | Суфийские ордены в исламе (1989) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование современного английского востоковеда Дж. С. Тримингэма посвящено весьма интересному и важному вопросу о ста­новлении, формах организации и дальнейшем развитии суфийских ми­стических братств — «орденов». Автор привлек к работе колоссальный оригинальный материал, так что работа может служить также спра­вочным пособием.Жанр: История, религиоведение, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B89B6906480ECEC883FCEBA3606EFF7974D00D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037231   (615581) от 23.07.2016
-
-А.Б. Ковельман, У. Гершович (ред.) | Образ и символ в иудейской, христианской и мусульманской традиции (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник является результатом изысканий исследовательской группы, работавшей в Еврейском музее и Центре толерантности. Он создан по итогам конференции, проведенной совместно ЕМЦТ и ИСАА МГУ имени М. В. Ломоносова 2–3 марта 2014 г. Исследовательская группа занималась различными аспектами развития культур, порожденных тремя аврамическими религиями. Задачи группы (   Читать дальше...   )Жанр: Религоведение, искуствоведениеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410363767E8C3734EFCB21AE39BD4DBCFF9C9CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

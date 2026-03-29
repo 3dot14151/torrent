@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060319.jpg" />
+  <img src="Z:/picture/005/save_picture_1060319.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059679.jpg" />
+  <img src="Z:/picture/009/save_picture_1059679.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059583.jpg" />
+  <img src="Z:/picture/009/save_picture_1059583.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059579.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059578.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059577.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059575.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059549.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058865.jpg" />
+  <img src="Z:/picture/005/save_picture_1058865.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058852.jpg" />
+  <img src="Z:/picture/005/save_picture_1058852.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058828.jpg" />
+  <img src="Z:/picture/005/save_picture_1058828.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058825.jpg" />
+  <img src="Z:/picture/005/save_picture_1058825.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058824.jpg" />
+  <img src="Z:/picture/005/save_picture_1058824.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Dr. Emma Blake | The Ultimate Men’s Vitality Bundle [5] (2025) [PDF]
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058602.jpg" />
+  <img src="Z:/picture/005/save_picture_1058602.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058396.jpg" />
+  <img src="Z:/picture/005/save_picture_1058396.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057167.jpg" />
+  <img src="Z:/picture/005/save_picture_1057167.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055924.jpg" />
+  <img src="Z:/picture/005/save_picture_1055924.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055923.jpg" />
+  <img src="Z:/picture/005/save_picture_1055923.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Melissa B. Miller, Andrea M. Prinzi, Kyle G. Rodino и др. | Cases in Medical 
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054604.jpg" />
+  <img src="Z:/picture/005/save_picture_1054604.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054552.jpg" />
+  <img src="Z:/picture/005/save_picture_1054552.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5t
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054471.jpg" />
+  <img src="Z:/picture/005/save_picture_1054471.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054291.jpg" />
+  <img src="Z:/picture/005/save_picture_1054291.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054289.jpg" />
+  <img src="Z:/picture/005/save_picture_1054289.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connec
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054280.jpg" />
+  <img src="Z:/picture/005/save_picture_1054280.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054162.jpg" />
+  <img src="Z:/picture/005/save_picture_1054162.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabricati
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054041.jpg" />
+  <img src="Z:/picture/005/save_picture_1054041.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1030030   (673806) от 30.06.2016
+
+Эндрю Кин | Ничего личного. Как социальные сети, поисковые системы и спецслужбы используют наши персональные данные для собственной выгоды (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цитата
+"Я обновляюсь, следовательно, я существую".
+Эндрю Кин
+(   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DDFBB2B1AD4FBFE339A980EBABBCFA0D10A70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030010   (673674) от 30.06.2016
 
 Дэниел Гоулман и др. | Личная эффективность (2016) [EPUB]
@@ -6,7 +35,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673674.jpg" />
+  <img src="Z:/picture/008/save_picture_673674.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672301.jpg" />
 </div>
 
 
@@ -60,13 +89,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670354.jpg" />
+  <img src="Z:/picture/008/save_picture_670354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿Компания Airbnb изменила способы путешествия, заставила весь мир переосмыслить свое отношение к окружающему пространству и незнакомым людям. Показав рекордные темпы роста, она разрушила представления о том, как нужно руководить компанией. Эта книга о том, как три простых парня вошли в историю бизнеса и стали вдохновляющим примером для обладателей смелых идей, (   Читать дальше...   )Жанр: Инновации в бизнесе, Истории успеха, Креатив/идеиФормат: FB2
+Компания Airbnb изменила способы путешествия, заставила весь мир переосмыслить свое отношение к окружающему пространству и незнакомым людям. Показав рекордные темпы роста, она разрушила представления о том, как нужно руководить компанией. Эта книга о том, как три простых парня вошли в историю бизнеса и стали вдохновляющим примером для обладателей смелых идей, (   Читать дальше...   )Жанр: Инновации в бизнесе, Истории успеха, Креатив/идеиФормат: FB2
 
 ## Скачать торент
 ```bash
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667574.jpg" />
+  <img src="Z:/picture/008/save_picture_667574.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667570.jpg" />
+  <img src="Z:/picture/008/save_picture_667570.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667499.jpg" />
+  <img src="Z:/picture/008/save_picture_667499.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665142.jpg" />
+  <img src="Z:/picture/008/save_picture_665142.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665000.jpg" />
+  <img src="Z:/picture/008/save_picture_665000.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664719.jpg" />
+  <img src="Z:/picture/008/save_picture_664719.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664715.jpg" />
+  <img src="Z:/picture/008/save_picture_664715.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663696.jpg" />
+  <img src="Z:/picture/008/save_picture_663696.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662946.jpg" />
+  <img src="Z:/picture/008/save_picture_662946.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659838.jpg" />
+  <img src="Z:/picture/008/save_picture_659838.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658513.jpg" />
+  <img src="Z:/picture/008/save_picture_658513.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656556.jpg" />
+  <img src="Z:/picture/008/save_picture_656556.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656232.jpg" />
+  <img src="Z:/picture/008/save_picture_656232.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656214.jpg" />
+  <img src="Z:/picture/008/save_picture_656214.jpg" />
 </div>
 
 
@@ -459,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655556.jpg" />
+  <img src="Z:/picture/008/save_picture_655556.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654202.jpg" />
+  <img src="Z:/picture/008/save_picture_654202.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651210.jpg" />
+  <img src="Z:/picture/008/save_picture_651210.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651207.jpg" />
+  <img src="Z:/picture/008/save_picture_651207.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650931.jpg" />
+  <img src="Z:/picture/008/save_picture_650931.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650712.jpg" />
+  <img src="Z:/picture/008/save_picture_650712.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650047.jpg" />
+  <img src="Z:/picture/008/save_picture_650047.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650044.jpg" />
+  <img src="Z:/picture/008/save_picture_650044.jpg" />
 </div>
 
 
@@ -657,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C5135C6A100875057C8831475FD334B66BD24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905701   (648956) от 06.06.2015
-
-Филип Грейвс | Клиентология. Чего на самом деле хотят ваши покупатели (2013) [PDF, DOC, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648956.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предложена новая методология оценки и понимания поведения потребителей. Применив ее, умные компании смогут значительно заработать, не потратив ни рубля на традиционные маркетинговые исследования. В основе методологии лежат современные открытия в области социологии, психологии и поведенческой экономики. Десятки примеров помогут вам уточнить свои идеи и придумать (   Читать дальше...   )Жанр: БизнесФормат: PDF, DOC, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA92B3EAA7E095517C952A25141854EBD42807F
 ```
 
 https://mybot314.ru/tekegram_catalog/

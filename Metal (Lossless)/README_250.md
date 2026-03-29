@@ -1,3 +1,90 @@
+###  Публикация: 1649905   (228030) от 30.07.2023
+
+Ashtar - Wandering Through Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Gloom [00:08:34]
+02. The Submerged Empire [00:06:34]
+03. Deep Space and High Waters [00:06:15]
+04. Voices (Collide Again) [00:03:49](   Читать дальше...   )Жанр: Doom Metal, Black MetalПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD499208694B0464B6CE0FAA297022891794ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649780   (228022) от 30.07.2023
+
+Infection Code - Intimacy (2007) [FLAC|Lossless|image + .cue] <Industrial, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (E)motionless
+02. Sweet Taste Of Sickness
+03. Bleeding
+04. A Perfect Failure(   Читать дальше...   )Жанр: Industrial, Thrash MetalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC06AB9D6125FD7ED4EA850EB54A87AAFABA240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424546   (228020) от 17.11.2020
+
+BPMD - American Made (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_228020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wang Dang Sweet Poontang (Ted Nugent cover)
+02. Toys In The Attic (Aerosmith cover)
+03. Evil (Cactus cover)
+04. Beer Drinkers & Hell Raisers (ZZ Top cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E7D19B25AE56146C4E7C3AF06EAEB140672E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649922   (228004) от 30.07.2023
 
 Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
@@ -6,7 +93,7 @@ Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228004.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Allen/Olzon - Army Of Dreamers (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227979.jpg" />
+  <img src="Z:/picture/005/save_picture_227979.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Nephenzy Chaos Order - Pure Black Disease (2003) [APE|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227961.jpg" />
+  <img src="Z:/picture/005/save_picture_227961.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Range Of Mutilated - Beheaded Or Melted (2013) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227951.jpg" />
+  <img src="Z:/picture/005/save_picture_227951.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Mutoid Man - Mutants (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227948.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Eibon - Eibon (2008) EP [FLAC|Lossless|image + .cue] <Sludge Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227940.jpg" />
+  <img src="Z:/picture/005/save_picture_227940.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227938.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Nordheim - Refill (2013) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227929.jpg" />
+  <img src="Z:/picture/005/save_picture_227929.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227926.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Nocturnal Graves - ...from the Bloodline of Cain (2013) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227921.jpg" />
+  <img src="Z:/picture/005/save_picture_227921.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Bonded - Into Blackness (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227913.jpg" />
+  <img src="Z:/picture/005/save_picture_227913.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227907.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Edain - Of Those Who Worship Fire (2013) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227905.jpg" />
+  <img src="Z:/picture/005/save_picture_227905.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Dogs Of Neptune - Zero (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227875.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Uncle Acid and the Deadbeats - Slaughter On First Avenue (Live) (2023) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227861.jpg" />
 </div>
 
 
@@ -439,7 +526,7 @@ Illyria - Take Me Somewhere Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227845.jpg" />
+  <img src="Z:/picture/005/save_picture_227845.jpg" />
 </div>
 
 
@@ -468,7 +555,7 @@ Edain - Through Thought And Time (2009) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227843.jpg" />
+  <img src="Z:/picture/005/save_picture_227843.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Sempiternal Deathreign - The Spooky Gloom (1989) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227837.jpg" />
+  <img src="Z:/picture/005/save_picture_227837.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Thy Flesh Consumed - End of Blind Obedience (2004) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227826.jpg" />
+  <img src="Z:/picture/005/save_picture_227826.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Non Serviam - The Witches Sabbath (2000) [APE|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227810.jpg" />
+  <img src="Z:/picture/005/save_picture_227810.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Cirith Ungol - Forever Black (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227764.jpg" />
+  <img src="Z:/picture/005/save_picture_227764.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Thy Flesh Consumed - Pacified by Oceans of Blood (2006) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227760.jpg" />
+  <img src="Z:/picture/005/save_picture_227760.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Tsatthoggua - Hosanna Bizarre (1996) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227748.jpg" />
+  <img src="Z:/picture/005/save_picture_227748.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Tsatthoggua - Hosanna Bizarre (1996) [APE|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6EC69CDCC45DA6BCFE06B7CEE96A91E5F4B0609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513094   (227742) от 27.11.2021
-
-Thy Flesh Consumed - Unrepentant (2009) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siege Engine of Unreligion [3:50]
-02. The Disciplined Scorn [3:54]
-03. Blood Drenched Creation [5:27]
-04. The Demolition of Thought [4:31](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BD65213812D64A1BD34CB58B6EBD2FFE512384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583589   (227740) от 16.10.2022
-
-Acid Witch - Rot Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gather Each Witch [00:02:11]
-02. Rot Among Us [00:04:00]
-03. The Sleeper [00:03:55]
-04. Psychedeathic Swampnosis [00:03:37](   Читать дальше...   )Жанр: Psychedelic Doom Metal, Death MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262DF9712604C90F0F136A1C3A19DEEA71902C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513026   (227732) от 27.11.2021
-
-Unleashed - No Sign Of Life (2021) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The King Lost His Crown
-02. The Shepherd Has Left The Flock
-03. Where Can You Flee?
-04. You Are The Warrior!(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CD3975BE1E82FA084176704868A0343B638031
 ```
 
 https://mybot314.ru/tekegram_catalog/

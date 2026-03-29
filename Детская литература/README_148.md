@@ -1,3 +1,29 @@
+###  Публикация: 730124   (304866) от 04.12.2013
+
+Михаил Демиденко | Приключения Альберта Козлова (1971) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиографический роман о военном детстве.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B57B59FE753FCD2CBD9BCDF61864274BBB8AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730398   (304865) от 04.12.2013
 
 Ах Сигуте | Амвросий, Муркис и Ангел (2011) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304865.jpg" />
+  <img src="Z:/picture/008/save_picture_304865.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304684.jpg" />
+  <img src="Z:/picture/008/save_picture_304684.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304677.jpg" />
+  <img src="Z:/picture/008/save_picture_304677.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304674.jpg" />
+  <img src="Z:/picture/008/save_picture_304674.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304672.jpg" />
+  <img src="Z:/picture/008/save_picture_304672.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304332.jpg" />
+  <img src="Z:/picture/008/save_picture_304332.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304315.jpg" />
+  <img src="Z:/picture/008/save_picture_304315.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303547.jpg" />
+  <img src="Z:/picture/008/save_picture_303547.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303546.jpg" />
+  <img src="Z:/picture/008/save_picture_303546.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303517.jpg" />
+  <img src="Z:/picture/008/save_picture_303517.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303516.jpg" />
+  <img src="Z:/picture/008/save_picture_303516.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303514.jpg" />
+  <img src="Z:/picture/008/save_picture_303514.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303491.jpg" />
+  <img src="Z:/picture/008/save_picture_303491.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303484.jpg" />
+  <img src="Z:/picture/008/save_picture_303484.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303453.jpg" />
+  <img src="Z:/picture/008/save_picture_303453.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303438.jpg" />
+  <img src="Z:/picture/008/save_picture_303438.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303437.jpg" />
+  <img src="Z:/picture/008/save_picture_303437.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303408.jpg" />
+  <img src="Z:/picture/008/save_picture_303408.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303315.jpg" />
+  <img src="Z:/picture/008/save_picture_303315.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303311.jpg" />
+  <img src="Z:/picture/008/save_picture_303311.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303310.jpg" />
+  <img src="Z:/picture/008/save_picture_303310.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303308.jpg" />
+  <img src="Z:/picture/008/save_picture_303308.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303307.jpg" />
+  <img src="Z:/picture/008/save_picture_303307.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303305.jpg" />
+  <img src="Z:/picture/008/save_picture_303305.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303304.jpg" />
+  <img src="Z:/picture/008/save_picture_303304.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F5FFCDA6D3E8AE988791B4603BD3D31420672F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730704   (303303) от 05.12.2013
-
-Василий Юксерн | Атаманыч (1966) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть марийского писателя Василия Юксерна (Василий Степанович Столяров) рассказывает о заключительном этапе Великой Отечественной войны — разгроме советскими войсками японской военщины.
-Действие развертывается на Сахалине. Главный герой повести, четырнадцатилетний Миша — Атаманыч, сын погибшего в боях против гитлеровцев советского офицера, становится разведчиком Советской Армии и оказывается участником важных событий. Он помогает задержать японского шпиона, смело сражается, вместе с бойцами разведвзвода ходит на трудные и опасные операции…Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95B13331002AEF940FE705442087A61D7FE5A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

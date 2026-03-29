@@ -1,3 +1,31 @@
+###  Публикация: 1295780   (617095) от 14.04.2019
+
+Haunts - A Lack of Empathy (2017) EP [FLAC|Lossless|tracks + .cue] <Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creep Pulse (6:28)
+ 02. No Glory, No Steam, No Fire (9:54)
+ 03. Crux (12:23)Жанр: Post RockПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CAFA90B390AE89E2F3C2AF8A7A359132D70218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545109   (614912) от 19.04.2022
 
 Cancer Bats - Psychic Jailbreak (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Southern Rock>
@@ -6,7 +34,7 @@ Cancer Bats - Psychic Jailbreak (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614912.jpg" />
+  <img src="Z:/picture/008/save_picture_614912.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Hands Off Gretel - I Want The World (2019) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613378.jpg" />
+  <img src="Z:/picture/008/save_picture_613378.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Lisa Germano - Geek the Girl (1994) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608722.jpg" />
+  <img src="Z:/picture/008/save_picture_608722.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Cage The Elephant - Social Cues (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608533.jpg" />
+  <img src="Z:/picture/008/save_picture_608533.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ The Tallest Man on Earth - I Love You. It's a Fever Dream. (2019) [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608532.jpg" />
+  <img src="Z:/picture/008/save_picture_608532.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ Slinky Droids - The SlinkyDroids Project (2016) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605058.jpg" />
+  <img src="Z:/picture/008/save_picture_605058.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ Gogol Bordello - Pura Vida Conspiracy (2013) [FLAC|Lossless|tracks + .cue] <Gyps
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604907.jpg" />
+  <img src="Z:/picture/008/save_picture_604907.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603760.jpg" />
+  <img src="Z:/picture/008/save_picture_603760.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603697.jpg" />
+  <img src="Z:/picture/008/save_picture_603697.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ The White Stripes - Elephant (2003) [FLAC|Lossless|tracks + .cue] <Rock & Roll, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603689.jpg" />
+  <img src="Z:/picture/008/save_picture_603689.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Anna Wise - The Feminine: Act II (2017) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603487.jpg" />
+  <img src="Z:/picture/008/save_picture_603487.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Karen O - Crush Songs (2014) Limited Edition [FLAC|Lossless|tracks + .cue] <Lo-F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603113.jpg" />
+  <img src="Z:/picture/008/save_picture_603113.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ The Durutti Column - Tempus Fugit (2004) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602677.jpg" />
+  <img src="Z:/picture/008/save_picture_602677.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Royal Bliss - Royal Bliss (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602649.jpg" />
+  <img src="Z:/picture/008/save_picture_602649.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Haim - Something to Tell You (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock,  
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602517.jpg" />
+  <img src="Z:/picture/008/save_picture_602517.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Band of Skulls - Love Is All You Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601916.jpg" />
+  <img src="Z:/picture/008/save_picture_601916.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Steve Mason - About the Light (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601637.jpg" />
+  <img src="Z:/picture/008/save_picture_601637.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Du Blonde - Lung Bread for Daddy (2019) [FLAC|Lossless|tracks + .cue] <Indie Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601632.jpg" />
+  <img src="Z:/picture/008/save_picture_601632.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ King Gizzard And The Lizard Wizard - Fishing for Fishies (2019) [FLAC|Lossless|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601611.jpg" />
+  <img src="Z:/picture/008/save_picture_601611.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ The Cranberries - In The End (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601571.jpg" />
+  <img src="Z:/picture/008/save_picture_601571.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ RAT BOY - Internationally Unknown (2019) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600152.jpg" />
+  <img src="Z:/picture/008/save_picture_600152.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ Kaada and Patton - Bacteria Cult (2016) [FLAC|Lossless|tracks + .cue] <Experimen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598070.jpg" />
+  <img src="Z:/picture/008/save_picture_598070.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ Frank Carter & The Rattlesnakes - End of Suffering (2019) [FLAC|Lossless|WEB-DL|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596176.jpg" />
+  <img src="Z:/picture/008/save_picture_596176.jpg" />
 </div>
 
 
@@ -673,7 +701,7 @@ Bad Religion - Age of Unreason (2019) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596084.jpg" />
+  <img src="Z:/picture/008/save_picture_596084.jpg" />
 </div>
 
 
@@ -702,7 +730,7 @@ Deftones - Gore (2016) [FLAC|Lossless|image + .cue] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595537.jpg" />
+  <img src="Z:/picture/008/save_picture_595537.jpg" />
 </div>
 
 
@@ -716,35 +744,6 @@ Deftones - Gore (2016) [FLAC|Lossless|image + .cue] <Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D06499FE42A2BBE3BC5DF3D78908C495E9C669A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299966   (595059) от 04.05.2019
-
-The Mountain Goats - In League With Dragons (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Done Bleeding (4:38)
-02. Younger (5:52)
-03. Passaic 1975 (3:55)
-04. Clemency for the Wizard King (2:47)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AE7B98EF1547075A328BDABE625A290CB70701
 ```
 
 https://mybot314.ru/tekegram_catalog/

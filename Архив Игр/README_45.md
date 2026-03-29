@@ -6,7 +6,7 @@ The Expendables 2. Videogame [En] (RePack/1.0) 2012 l {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504294.jpg" />
+  <img src="Z:/picture/008/save_picture_504294.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iron Brigade [En] (RePack/1.0) 2012 | AVG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504276.jpg" />
+  <img src="Z:/picture/008/save_picture_504276.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deponia [Ru] (Repack/1.2.0.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504215.jpg" />
+  <img src="Z:/picture/008/save_picture_504215.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Jagged Alliance: Crossfire / Jagged Alliance: Перестрелка [Ru] (RePac
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504214.jpg" />
+  <img src="Z:/picture/008/save_picture_504214.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Dark Souls: Prepare To Die Edition [Ru] (Repack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504209.jpg" />
+  <img src="Z:/picture/008/save_picture_504209.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Galaxy on Fire 2. Full HD [Ru] (RePack/1.0) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504075.jpg" />
+  <img src="Z:/picture/008/save_picture_504075.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Fallout: New Vegas Ultimate Edition [Ru] (RePack/1.4.0.525) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504036.jpg" />
+  <img src="Z:/picture/008/save_picture_504036.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Need For Speed: Most Wanted / Muscle [Ru/En] (RePack/Mod) | R.G. Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503454.jpg" />
+  <img src="Z:/picture/008/save_picture_503454.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Need For Speed: Shift + DLC: Ferrari + Exotic [Ru] (RePack/1.01/1.02) 2009 | evi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503449.jpg" />
+  <img src="Z:/picture/008/save_picture_503449.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503313.jpg" />
+  <img src="Z:/picture/008/save_picture_503313.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Legends of Pegasus [En/Ge] (RePack/1.0.0.4115) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503067.jpg" />
+  <img src="Z:/picture/008/save_picture_503067.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Maestia: Rise Of Keledus [Ru] (L) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503060.jpg" />
+  <img src="Z:/picture/008/save_picture_503060.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ Hitman: Sniper Challenge [Ru] (Repack) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503058.jpg" />
+  <img src="Z:/picture/008/save_picture_503058.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Darksiders II: Death Lives - Limited Edition [Ru] (Repack/1.0.u2) 2012 | R.G. Wo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502988.jpg" />
+  <img src="Z:/picture/008/save_picture_502988.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Damage Inc. Pacific Squadron WWII [En] [Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502105.jpg" />
+  <img src="Z:/picture/008/save_picture_502105.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Mass Effect 3 [Ru] (Lossless Repack/1.03.5427.46/3 DLC) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502021.jpg" />
+  <img src="Z:/picture/008/save_picture_502021.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Mass Effect 3 [Ru] (RePack/1.3.5427.46/4 DLC) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501960.jpg" />
+  <img src="Z:/picture/008/save_picture_501960.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501952.jpg" />
+  <img src="Z:/picture/008/save_picture_501952.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ World of Tanks (2010) [Ru] (0.9.10) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501935.jpg" />
+  <img src="Z:/picture/008/save_picture_501935.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ X Rebirth (2013) [Ru/En] (3.60/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500934.jpg" />
+  <img src="Z:/picture/008/save_picture_500934.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Transformers: Fall of Cybertron [En] (Rip/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500866.jpg" />
+  <img src="Z:/picture/008/save_picture_500866.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ I am alive [XBOX 360] [ENG] [Freeboot/JTAG] [XBLA] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500827.jpg" />
+  <img src="Z:/picture/008/save_picture_500827.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ I Am Alive [En] (L) 2012 | R.G. GameWorks [без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499356.jpg" />
+  <img src="Z:/picture/008/save_picture_499356.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ This War of Mine (2014) [Ru/Multi] (1.3.2/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499023.jpg" />
+  <img src="Z:/picture/008/save_picture_499023.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Alan Wake Дилогия [Ru] (Repack) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498997.jpg" />
+  <img src="Z:/picture/008/save_picture_498997.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Darksiders II: Death Lives [Ru] (Repack/Upd.2) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498848.jpg" />
+  <img src="Z:/picture/008/save_picture_498848.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1635517   (252023) от 26.05.2023
+
+Star Trek: Resurgence (2023) [Multi] (1.0) Repack DjDI
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Trek: Resurgence - интерактивная новелла, события которой развиваются после окончания сериала Звёздный путь: Следующее поколение. В центре истории два главных героя: девушка-офицер по имени Джарой Райдек и рядовой Картер Диаз. Они оба служат на звездолете U.S.S. Resolute (Решительный). Героям предстоит отправиться сквозь всю галактику, чтобы разгадать тайну (   Читать дальше...   )Тип издания: RepackРазработчик: Dramatic LabsЖанр: Action, NarrationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, ФранцузскийЯзык интерфейса: Английский, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEE4D098E120D5EAC70C04998A38039C1846D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539781   (251852) от 01.06.2023
+
+TUNIC (2022) [Ru/Multi] (1.0-t1513-b45) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуй земли, полные легенд, древних сил и яростных монстров. В изометрическом экшене TUNIC тебе предстоит большое путешествие в роли маленького лисёнка. Ты просыпаешься среди руин, и все, что у тебя есть, - это любопытство. Сражайся с чудовищами, собирай волшебные предметы и раскрывай древние тайны.Тип издания: LicenseРазработчик: ISOMETRICORP Games Ltd.Жанр: Action, Adventure, ExplorationЯзык субтитров: Русский, Английский, Датский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Датский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF20BFD277730BAC8B881FB8E286154DC626ACD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637574   (251765) от 04.06.2023
+
+STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь  в увлекательное подводное приключение в классическом жанре point-and-click. Исследуйте игровой мир в роли трех персонажей одновременно. Перенеситесь в таинственный мир BONE TOTEM, скрытый глубоко под поверхностью волн, благодаря атмосферной изометрической графике.Тип издания: RepackРазработчик: THE BROTHERHOODЖанр: Adventure (Point & Click, Horror), Puzzle, Isometric, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAA2194B630820661096DC01F36D6AAD830B613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412598   (251240) от 06.11.2025
 
 The Sojourn (2020) [Ru/Multi] (1.2) License GOG
@@ -6,7 +84,7 @@ The Sojourn (2020) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251240.jpg" />
+  <img src="Z:/picture/004/save_picture_251240.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250678.jpg" />
+  <img src="Z:/picture/004/save_picture_250678.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nine Sols (2024) [Ru/Multi] (202511032357.953572b8.0) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250586.jpg" />
+  <img src="Z:/picture/004/save_picture_250586.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Subnautica (2018) [Ru/Multi] (83031) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249369.jpg" />
+  <img src="Z:/picture/004/save_picture_249369.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Morrok (2023) [Ru/Multi] (Build 11369620) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247798.jpg" />
+  <img src="Z:/picture/004/save_picture_247798.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ A Light in the Dark / Yeguang (2018) [Ru/Multi] (1.2.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247761.jpg" />
+  <img src="Z:/picture/004/save_picture_247761.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Beautiful Desolation (2020) [Ru/Multi] (1.0.7.3 C) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247674.jpg" />
+  <img src="Z:/picture/004/save_picture_247674.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247671.jpg" />
+  <img src="Z:/picture/004/save_picture_247671.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Captain (2021) [Multi] (1.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247662.jpg" />
+  <img src="Z:/picture/004/save_picture_247662.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Entropy Centre (2022) [Ru/Multi] (1.1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247447.jpg" />
+  <img src="Z:/picture/004/save_picture_247447.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247405.jpg" />
+  <img src="Z:/picture/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247373.jpg" />
+  <img src="Z:/picture/004/save_picture_247373.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247371.jpg" />
+  <img src="Z:/picture/004/save_picture_247371.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Dave the Diver (2023) [Multi] (u1.0.0.933) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247288.jpg" />
+  <img src="Z:/picture/004/save_picture_247288.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Bookwalker: Thief of Tales (2023) [Ru/Multi] (23.6.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247273.jpg" />
+  <img src="Z:/picture/004/save_picture_247273.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247061.jpg" />
+  <img src="Z:/picture/004/save_picture_247061.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246990.jpg" />
+  <img src="Z:/picture/004/save_picture_246990.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246786.jpg" />
+  <img src="Z:/picture/004/save_picture_246786.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246740.jpg" />
+  <img src="Z:/picture/004/save_picture_246740.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246723.jpg" />
+  <img src="Z:/picture/004/save_picture_246723.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ SKYHILL (2015) [Ru/Multi] (1.1.20) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246321.jpg" />
+  <img src="Z:/picture/004/save_picture_246321.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Resident Evil (Biohazard) HD Remaster (2020) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246247.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246192.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Hollowbody бросает вас с головой в мрачный мир те
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A387651F894B48B708FE50A43FE3D0B56EE996B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540017   (245498) от 29.03.2022
-
-A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245498.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Musical Story - это ритмическая игра в стиле 70-х. Исследуйте память Габриэла, который пытается справиться с ситуаций с помощью своих музыкальных воспоминаний. Это дебютная игра независимых французских разработчиков Glee-Cheese Studio. Над игрой работал Чарльз Барден (геймдизайн и музыка), Максим Константиниан (программирование), Валентин Дюклу (музыки и интеграция), (   Читать дальше...   )Тип издания: LicenseРазработчик: Glee-Cheese StudioЖанр: Приключение, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540560   (245153) от 30.03.2022
-
-Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Expedition Zero — survival horror про аномальную зону в лесах крайнего севера. Раскройте тайны пропавшей экспедиции и ужасающего лесного монстра. Исследуйте проклятый лес и заброшенный исследовательский лагерь. Тебя ждёт нехватка ресурсов и экстремальные погодные условия. Используй для выживания всё, что сможешь найти. Сможешь покинуть зону или раскрыть её тайны?Тип издания: RepackРазработчик: Enigmatic MachinesЖанр: Adventure (Survival horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540948   (244766) от 01.04.2022
-
-Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы видите там, в окружающей нас бесконечной вселенной? И кто эти странные неземные существа, которые как бесплотные призраки возникают рядом, когда ваши пути на короткое время пересекаются? Реальны они или это просто плод вашего воображения? Glitchhikers: The Spaces Between – это игра о мыслях, которые возникают у вас на пути от одного места назначения к другому, (   Читать дальше...   )Тип издания: LicenseРазработчик: Silverstring Media Inc.Жанр: Приключение, КвестЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806215.jpg" />
+  <img src="Z:/picture/008/save_picture_806215.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806214.jpg" />
+  <img src="Z:/picture/008/save_picture_806214.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806211.jpg" />
+  <img src="Z:/picture/008/save_picture_806211.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Trance 2016 Vol.2 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806209.jpg" />
+  <img src="Z:/picture/008/save_picture_806209.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ VA - Uplifting Trance Essentials  Vol. 9 (2016) [MP3|320 кб/с] <Trance, Uplif
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806207.jpg" />
+  <img src="Z:/picture/008/save_picture_806207.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VA - Balearic Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806206.jpg" />
+  <img src="Z:/picture/008/save_picture_806206.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806205.jpg" />
+  <img src="Z:/picture/008/save_picture_806205.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Permute 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806204.jpg" />
+  <img src="Z:/picture/008/save_picture_806204.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Riot - Inishmore (1997) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806203.jpg" />
+  <img src="Z:/picture/008/save_picture_806203.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ SecuritySpy 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806195.jpg" />
+  <img src="Z:/picture/008/save_picture_806195.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ SSDReporter 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806187.jpg" />
+  <img src="Z:/picture/008/save_picture_806187.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ KLS Backup 2017 Professional 9.0.2.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806184.jpg" />
+  <img src="Z:/picture/008/save_picture_806184.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ GraphicConverter 11 v11.2.1 (build 4400) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806171.jpg" />
+  <img src="Z:/picture/008/save_picture_806171.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Wondershare PDFelement Pro 7.6.3.3091 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806162.jpg" />
+  <img src="Z:/picture/008/save_picture_806162.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ WinScan2PDF 5.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806157.jpg" />
+  <img src="Z:/picture/008/save_picture_806157.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806152.jpg" />
+  <img src="Z:/picture/008/save_picture_806152.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Serif Affinity Photo 1.10.3.1191 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806151.jpg" />
+  <img src="Z:/picture/008/save_picture_806151.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Boilsoft Video Joiner 9.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806149.jpg" />
+  <img src="Z:/picture/008/save_picture_806149.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ ByClick Downloader Premium 2.3.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806146.jpg" />
+  <img src="Z:/picture/008/save_picture_806146.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Revo Uninstaller Free 2.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806143.jpg" />
+  <img src="Z:/picture/008/save_picture_806143.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Topaz DeNoise AI 3.3.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806138.jpg" />
+  <img src="Z:/picture/008/save_picture_806138.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806127.jpg" />
+  <img src="Z:/picture/008/save_picture_806127.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Transcendence Vocal Trance Vol.1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806114.jpg" />
+  <img src="Z:/picture/008/save_picture_806114.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ BBEdit 11.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806113.jpg" />
+  <img src="Z:/picture/008/save_picture_806113.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Syncopix - Benevolence (2016) [MP3|320 кб/с] <Drum & Bass, Liquid funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806102.jpg" />
+  <img src="Z:/picture/008/save_picture_806102.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806101.jpg" />
+  <img src="Z:/picture/008/save_picture_806101.jpg" />
 </div>
 
 

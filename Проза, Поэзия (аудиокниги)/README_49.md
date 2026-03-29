@@ -1,3 +1,57 @@
+###  Публикация: 1038135   (606587) от 28.07.2016
+
+Сергей Алексеев | Игры с хищником [Авторский релиз] (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_606587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед уходом в отставку Президент выбирает преемника. Все кандидаты достойны, но не лежит к ним душа. И вот, когда уже почти не осталось времени на сомнения, истинный преемник находится. Но придя к власти, тот забывает обещания, данные человеку, который вручил ему эту власть...
+Экс-президент анализирует ситуацию. Он вспоминает деда-чудотворца, охоту за мистическими (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 09:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7032178F48653AD445EB583B53A21A4696126216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148000   (605738) от 04.07.2017
+
+Елена Боровицкая и др. | Вечер короткого рассказа (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я вообще не понимаю, почему и перед кем я должен оправдываться. Никому я ничего не должен. А я все оправдаться пытаюсь. Уже и друзей общих не осталось тут, в нашем с ней городе, — кто эмигрировал, кто переехал. Да и не знал никто, что происходит на самом деле. И как объяснить, если сам не понимаю, как же я, вроде бы незлой человек, такой сволочью себя показал…
+Я (   Читать дальше...   )Жанр: Современная русская прозаПродолжительность: 03:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EBE1C5D460D5B6795A9B9631D2FD8B5E602D98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231553   (605161) от 18.06.2018
 
 Александр Покровский | Пес. Книга историй [Сборник] (2018) [MP3]
@@ -6,7 +60,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605161.jpg" />
+  <img src="Z:/picture/008/save_picture_605161.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605050.jpg" />
+  <img src="Z:/picture/008/save_picture_605050.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604832.jpg" />
+  <img src="Z:/picture/008/save_picture_604832.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603911.jpg" />
+  <img src="Z:/picture/008/save_picture_603911.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603430.jpg" />
+  <img src="Z:/picture/008/save_picture_603430.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602964.jpg" />
+  <img src="Z:/picture/008/save_picture_602964.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602548.jpg" />
+  <img src="Z:/picture/008/save_picture_602548.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602534.jpg" />
+  <img src="Z:/picture/008/save_picture_602534.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602474.jpg" />
+  <img src="Z:/picture/008/save_picture_602474.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602336.jpg" />
+  <img src="Z:/picture/008/save_picture_602336.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602211.jpg" />
+  <img src="Z:/picture/008/save_picture_602211.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602036.jpg" />
+  <img src="Z:/picture/008/save_picture_602036.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601917.jpg" />
+  <img src="Z:/picture/008/save_picture_601917.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601102.jpg" />
+  <img src="Z:/picture/008/save_picture_601102.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600423.jpg" />
+  <img src="Z:/picture/008/save_picture_600423.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600305.jpg" />
+  <img src="Z:/picture/008/save_picture_600305.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600304.jpg" />
+  <img src="Z:/picture/008/save_picture_600304.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600300.jpg" />
+  <img src="Z:/picture/008/save_picture_600300.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600061.jpg" />
+  <img src="Z:/picture/008/save_picture_600061.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598528.jpg" />
+  <img src="Z:/picture/008/save_picture_598528.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598526.jpg" />
+  <img src="Z:/picture/008/save_picture_598526.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598363.jpg" />
+  <img src="Z:/picture/008/save_picture_598363.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598218.jpg" />
+  <img src="Z:/picture/008/save_picture_598218.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598195.jpg" />
+  <img src="Z:/picture/008/save_picture_598195.jpg" />
 </div>
 
 
@@ -630,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8347799FDD254F4451D0D602028D7C95B0487BD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038759   (598037) от 31.07.2016
-
-Роберт Бёрнс | Джон - Ячменное зерно (2016) [MP3, Елизавета Крупина]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598037.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Джон Ячменное Зерно» – сборник шотландского поэта, фольклориста, автора многочисленных стихотворений и поэм Р. Бернса (1759 – 1796). *** В нем собраны стихотворные произведения автора, среди которых «Песнь бедняка», «Прежде всего» и известная баллада «Джон Ячменное Зерно», в основе которой лежат народные поверья о веселых духах. Эта бунтарская жизнерадостность шотландского (   Читать дальше...   )Жанр: поэзияИздательство: Нигде не купишьПродолжительность: 02:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3800A8E05404AFA677B677CD9A32A89E37726FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548620   (597907) от 03.05.2022
-
-Виктор Пелевин | Жизнь насекомых (2019) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прозу Пелевина пытались истолковать как фантастическую и постмодернистскую, но в целом определить четкие жанровые рамки его творчества - задача непосильная, и "Жизнь насекомых" - лишнее тому подтверждение.
-Действие романа разворачивается в небольшом курортном городке неподалеку от Феодосии. Автор помещает своих героев в условия постоянных социальных бурь (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53F8C3AC0329445350358F34427BC8A744B6B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1562723   (212342) от 20.07.2022
+
+Кабаре / Cabaret (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская певица Салли Боулз развлекает Берлин эпохи Веймарской республики на подмостках кабаре Kit-Kat club. За дверями клуба — политический и экономический хаос, восхождение к власти нацистов, еврейские погромы. Внутри — вечный праздник. Перемены в относительно беззаботную жизнь Салли вносят встреча с Брайаном — англичанином, подрабатывающим уроками, которые (   Читать дальше...   )Производство: США / ABC Pictures Corporation, Allied Artists Pictures Corporation, Bavaria Film, Feuer and Martin Production, AЖанр: Драма,МюзиклРежиссер: Боб ФоссиАктеры: Лайза Миннелли, Майкл Йорк, Хельмут Грим, Джоэл Грей, Фриц Веппер, Мариза Беренсон, Элизабет Нойман-Виртель, Хелен Вита, Сигрид фон Рихтхофен, Герд ВесперманнПеревод: Многоголосый профессиональный, двуголосый профессиональный, одноголосый профессиональный, авторскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424E15D1E8D8E898F8D11DDEF70ED190138B5CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563307   (212328) от 21.07.2022
+
+Огневая мощь / Firepower (1979) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212328.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах Адель Таски погибает в собственной конторе её муж, обнаруживший преступные махинации с лекарствами некоего Карла Стегнера, третьего по богатству человека в мире. Как ни странно, именно от него вдова получает предложение о помощи и защите. Одновременно она просит полицию, чтобы для поисков и захвата Стегнера, скрывающегося где-то на островах Карибского бассейна, (   Читать дальше...   )Производство: Великобритания / ITC Entertainment, ITC Films, Scimitar ProductionsЖанр: Боевик, Триллер, Драма, Криминал, ПриключенияРежиссер: Майкл УиннерАктеры: Софи Лорен, Джеймс Коберн, О. Джей Симпсон, Илай Уоллак, Энтони Франчоза, Джордж Гриззард, Винсент Гардения, Фред Статмен, Ричард Кэлдикот, Франк Сингино, Фред Статмен, Виктор МэтьюрПеревод: Многоголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7882CE82DA71B10B0A267A11998201089E9F879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831368   (212107) от 29.10.2025
+
+Сказочное приключение Марко Поло / La fabuleuse aventure de Marco Polo (1965) HDRip [АVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Марко едет в Китай, чтобы участвовать в освободительной борьбе Хана Кублая против мятежников, возглавляемых его собственным сыном. Участники сражений впервые применяют новое изобретение — порох.Производство: Франция, Италия, Афганистан, Египет, Югославия / CFS Avala Film, Cine Custodia Film AG Zuerich, Italaf KaboulЖанр: приключения, биографияАктеры: Хорст Буххольц, Грегуар Аслан, Робер Оссейн, Эльза Мартинелли, Аким Тамирофф, Омар Шариф, Энтони Куинн, Орсон Уэллс, Массимо Джиротти, Фолько ЛюллиПеревод: Авторский (Сергей Кузнецов)Язык озвучки: Русский, Французский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7B3508CB60AA06403C9C6BCB7B87C04D514201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640220   (211285) от 16.06.2023
 
 Красная река / Red River (1948) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211285.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211184.jpg" />
+  <img src="Z:/picture/005/save_picture_211184.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210842.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210321.jpg" />
+  <img src="Z:/picture/005/save_picture_210321.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210240.jpg" />
+  <img src="Z:/picture/005/save_picture_210240.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210164.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210142.jpg" />
+  <img src="Z:/picture/005/save_picture_210142.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210052.jpg" />
+  <img src="Z:/picture/005/save_picture_210052.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209871.jpg" />
+  <img src="Z:/picture/005/save_picture_209871.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209818.jpg" />
+  <img src="Z:/picture/005/save_picture_209818.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209665.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209590.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209520.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209495.jpg" />
+  <img src="Z:/picture/005/save_picture_209495.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209286.jpg" />
+  <img src="Z:/picture/005/save_picture_209286.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209264.jpg" />
+  <img src="Z:/picture/005/save_picture_209264.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209261.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209249.jpg" />
+  <img src="Z:/picture/005/save_picture_209249.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209061.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209015.jpg" />
+  <img src="Z:/picture/005/save_picture_209015.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208982.jpg" />
+  <img src="Z:/picture/005/save_picture_208982.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208765.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208616.jpg" />
 </div>
 
 
@@ -591,86 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40E2FC17508CE5D43FB446419B0326E07D0D4B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605528   (208524) от 01.02.2023
-
-Белое рабство / White Savage (1943) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208524.jpg" />
-</div>
-
-
-###  Подробнее
-
-На отдаленный остров Темпл в Тихом океане, где правит принцесса Тахия, закрыт доступ для чужеземцев. Туземцы поклоняются морскому богу Тангоруа, дно бассейна, возле посвященного ему храма, украшено драгоценными камнями. Многие белые уже заплатили своей жизнью за попытку нарушить покой идола. Лишь немецкий колонист в близлежащем портовом городке Коро знает об их ценности. (   Читать дальше...   )Производство: США / Universal PicturesЖанр: ПриключенияРежиссер: Артур ЛюбинАктеры: Мария Монтес, Джон Холл, Сабу, Томас Гомес, Сидни Толер, Пол Гилфойл, Турхан Бей, Дон Терри, Констанс Парди, Аль КикумеПеревод: Одноголосый любительский, KolobroadСубтитры: Английские (SDH)Продолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B351E3EE5AA4150986457FBA9F33086ADE4032EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646386   (208391) от 21.07.2023
-
-Вторая истина / La seconde verite (1966) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный адвокат Пьер Монто встречает женщину своей жизни. Натали молода, беззаботна и невероятно красива.
-Поначалу им кажется, что они счастливы. Но вскоре Пьер вспоминает о супружеском долге. Натали теряет голову от ревности. Происходит бурное объяснение.
-Но результатом вспышки становится не расставание, а убийство. Убит бывший возлюбленный Натали, молодой соперник (   Читать дальше...   )Производство: Франция, Италия / Agnes Delahaie Productions, Explorer Films, Valoria FilmsЖанр: драма, детективРежиссер: Кристиан-ЖакАктеры: Мишель Мерсье, Робер Оссейн, Паскаль де Буассон, Жак Кастело, Жан-Пьер Даррас, Раймон Жером, Фернан Гио, Пьер-Луи, Жан Мико, Малка РибовскаПеревод: Дублированный, киностудия «Союзмультфильм»Язык озвучки: Русский, французскийСубтитры: АнглийскиеПродолжительность: 01:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E33EA32397A492D7F0724BE27B2DB1CBEEC0DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646692   (208382) от 20.07.2023
-
-Настоящий и ложный / Il vero e il falso (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луиза, скромная учительница, была осуждена за убийство любовницы мужа, Клаудио. После освобождения из тюрьмы за хорошее поведение, она обнаруживает, что женщина жива и живет с Клаудио. Луиза решает на самом деле убить ту, чья поддельная смерть отправила её в тюрьму. Возникает почти философский вопрос: можно ли быть дважды осужденным за одно преступление…Производство: Италия / Euro International Film (EIA), Explorer Film '58Жанр: драма, криминалРежиссер: Эрипрандо ВисконтиАктеры: Теренс Хилл, Мартин Болсам, Паола Питагора, Адальберто Мария Мерли, Ширли Корригэн, Мария Тереза Албани, Рита Калдерони, Калисто Калисти, Этторе Джери, Пьеро ГерлиниПеревод: Двуголосый профессиональный, студия "Дубляж 1"Язык озвучки: Русский, итальянскийСубтитры: ИтальянскиеПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EECAF56FC71F15FEC1B34D0C768E5A6465BFD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 720052   (381335) от 07.11.2013
+
+Dream Theater - Live at Luna Park (2013) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridges in the Sky
+02. 6:00
+03. The Dark Eternal Night
+04. This Is the Life(   Читать дальше...   )Жанр: Progressive MetalПеревод: ОтсутствуетПродолжительность: 02:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5A1280B798ABE34F863E52497767C44C2DBF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326858   (380647) от 22.09.2019
+
+Квартирник НТВ у Маргулиса. Владимир Кузьмин (21.09.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_380647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гость Евгения Маргулиса — народный артист России, вокалист и автор песен Владимир Кузьмин. Его карьера началась в легендарных «Самоцветах», но небывалый успех и популярность принесли ему группы «Карнавал» и «Динамик». Знаменитый рок-музыкант выпустил 30 студийных альбомов и является автором более 300 композиций. В уютной студии «Квартирника» народный артист поделился (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD501D8897E930947976F9CE4BC9A1EEA2D678B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573284   (379956) от 10.11.2012
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) Blu-ray [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_379956.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )01. One Vision
+02. Tie Your Mother Down
+03. In the Lap of the Gods. . .Revisited
+04. Seven Seas of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, США | Eagle Rock EntertainmentЖанр: RockСубтитры: Английские, Французские, Немецкий, Испанские, Итальянский, Португальский
+
+За предоставленный материал большое спасибоПродолжительность: 01:31:08 + 00:26:53 (Бонусы)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949060   (379152) от 22.10.2015
 
 U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
@@ -6,7 +92,7 @@ U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379152.jpg" />
+  <img src="Z:/picture/008/save_picture_379152.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378415.jpg" />
+  <img src="Z:/picture/008/save_picture_378415.jpg" />
 </div>
 
 
@@ -61,7 +147,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375706.jpg" />
+  <img src="Z:/picture/008/save_picture_375706.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375566.jpg" />
+  <img src="Z:/picture/008/save_picture_375566.jpg" />
 </div>
 
 
@@ -116,7 +202,7 @@ Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374350.jpg" />
+  <img src="Z:/picture/008/save_picture_374350.jpg" />
 </div>
 
 
@@ -145,7 +231,7 @@ Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373919.jpg" />
+  <img src="Z:/picture/008/save_picture_373919.jpg" />
 </div>
 
 
@@ -171,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373060.jpg" />
+  <img src="Z:/picture/008/save_picture_373060.jpg" />
 </div>
 
 
@@ -200,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372255.jpg" />
+  <img src="Z:/picture/008/save_picture_372255.jpg" />
 </div>
 
 
@@ -226,7 +312,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370097.jpg" />
+  <img src="Z:/picture/008/save_picture_370097.jpg" />
 </div>
 
 
@@ -255,7 +341,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_369932.jpg" />
+  <img src="Z:/picture/005/save_picture_369932.jpg" />
 </div>
 
 
@@ -290,7 +376,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369117.jpg" />
+  <img src="Z:/picture/008/save_picture_369117.jpg" />
 </div>
 
 
@@ -316,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367924.jpg" />
+  <img src="Z:/picture/008/save_picture_367924.jpg" />
 </div>
 
 
@@ -347,7 +433,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366936.jpg" />
+  <img src="Z:/picture/008/save_picture_366936.jpg" />
 </div>
 
 
@@ -376,7 +462,7 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365146.jpg" />
+  <img src="Z:/picture/005/save_picture_365146.jpg" />
 </div>
 
 
@@ -412,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363376.jpg" />
+  <img src="Z:/picture/008/save_picture_363376.jpg" />
 </div>
 
 
@@ -439,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362730.jpg" />
+  <img src="Z:/picture/008/save_picture_362730.jpg" />
 </div>
 
 
@@ -465,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359780.jpg" />
+  <img src="Z:/picture/005/save_picture_359780.jpg" />
 </div>
 
 
@@ -494,7 +580,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357552.jpg" />
+  <img src="Z:/picture/008/save_picture_357552.jpg" />
 </div>
 
 
@@ -520,7 +606,7 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357004.jpg" />
+  <img src="Z:/picture/005/save_picture_357004.jpg" />
 </div>
 
 
@@ -547,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356891.jpg" />
+  <img src="Z:/picture/008/save_picture_356891.jpg" />
 </div>
 
 
@@ -576,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356675.jpg" />
+  <img src="Z:/picture/008/save_picture_356675.jpg" />
 </div>
 
 
@@ -602,7 +688,7 @@ Gregorian - Live! Masters of Chant  Final Chapter Tour (2016) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356382.jpg" />
+  <img src="Z:/picture/008/save_picture_356382.jpg" />
 </div>
 
 
@@ -632,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356161.jpg" />
+  <img src="Z:/picture/008/save_picture_356161.jpg" />
 </div>
 
 
@@ -647,93 +733,6 @@ ID
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177761   (355931) от 28.10.2017
-
-Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
-2. Rise Up
-3. More Than Meets The Eye
-4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178133   (355640) от 28.10.2017
-
-Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Kreator на Wacken Open Air в 2014 году, вошедшее в состав специального издания альбома Gods Of Violence на DVD и Blu-Ray01. Mars Mantra
-02. Phantom Antichrist
-03. From Flood Into Fire
-04. Warcurse(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0566A4843182D902D037F1BEF090A6E8326BF885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178581   (353693) от 29.10.2017
-
-Anthrax - Chile On Hell 2013 (2014) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Anthrax В Teatro Caupolican (Сантьяго, Чили) 10 мая 2013 года. Выпущен на DVD/Blu-Ray 16 сентября 2014.01. Among The Living
-02. Caught In A Mosh
-03. I Am The Law
-04. Chile On Hell(   Читать дальше...   )Производство: Megaforce Records (USA)Жанр: Thrash Metal/Heavy MetalПродолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB627656308B7C283F9B52D90F022C79504352B
 ```
 
 https://mybot314.ru/tekegram_catalog/

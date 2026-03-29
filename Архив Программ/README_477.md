@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797399.jpg" />
+  <img src="Z:/picture/008/save_picture_797399.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Honeyview 5.41 Build 5915 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797389.jpg" />
+  <img src="Z:/picture/008/save_picture_797389.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Auslogics BoostSpeed 10.0.2.0 DC 10.01.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797374.jpg" />
+  <img src="Z:/picture/008/save_picture_797374.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797354.jpg" />
+  <img src="Z:/picture/008/save_picture_797354.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIMP 5.00 build 2342 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797334.jpg" />
+  <img src="Z:/picture/008/save_picture_797334.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Easy Duplicate Finder 7.13.0.29 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797330.jpg" />
+  <img src="Z:/picture/008/save_picture_797330.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797322.jpg" />
+  <img src="Z:/picture/008/save_picture_797322.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Winyl 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797316.jpg" />
+  <img src="Z:/picture/008/save_picture_797316.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Autodesk AutoCAD Civil 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797287.jpg" />
+  <img src="Z:/picture/008/save_picture_797287.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Windows 10 Manager 1.1.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797284.jpg" />
+  <img src="Z:/picture/008/save_picture_797284.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CCleaner 5.17.5590 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797234.jpg" />
+  <img src="Z:/picture/008/save_picture_797234.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ocenaudio 3.7.16 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797190.jpg" />
+  <img src="Z:/picture/008/save_picture_797190.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Macrium Reflect 8.0.6353 Free Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797179.jpg" />
+  <img src="Z:/picture/008/save_picture_797179.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MInstAll v.07.11.2021 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797169.jpg" />
+  <img src="Z:/picture/008/save_picture_797169.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Media Player Classic Home Cinema 1.9.3 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797156.jpg" />
+  <img src="Z:/picture/008/save_picture_797156.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ PrivaZer 4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797153.jpg" />
+  <img src="Z:/picture/008/save_picture_797153.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CoolUtils Total Movie Converter 4.1.0.38 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797152.jpg" />
+  <img src="Z:/picture/008/save_picture_797152.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ CCleaner Browser 81.0.4133.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797135.jpg" />
+  <img src="Z:/picture/008/save_picture_797135.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Ashampoo WinOptimizer 18.00.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797133.jpg" />
+  <img src="Z:/picture/008/save_picture_797133.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 65 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797128.jpg" />
+  <img src="Z:/picture/008/save_picture_797128.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ System Ninja 3.2.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797125.jpg" />
+  <img src="Z:/picture/008/save_picture_797125.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows 10 Manager 3.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797123.jpg" />
+  <img src="Z:/picture/008/save_picture_797123.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ IObit Malware Fighter PRO (акция comss) 7.7.0.5874 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797120.jpg" />
+  <img src="Z:/picture/008/save_picture_797120.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ O&O SafeErase Professional 15.4 Build 66 RePack by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797117.jpg" />
+  <img src="Z:/picture/008/save_picture_797117.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Wondershare Filmora 9.4.7.4 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797116.jpg" />
+  <img src="Z:/picture/008/save_picture_797116.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Kerish Doctor 2020 4.80 DC 25.05.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797114.jpg" />
+  <img src="Z:/picture/008/save_picture_797114.jpg" />
 </div>
 
 

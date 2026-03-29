@@ -1,3 +1,59 @@
+###  Публикация: 1367747   (908804) от 20.03.2020
+
+А.В. Астахов, Ю.М. Широков | Курс физики [3 книги] (1977-1983) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник физики для втузов. Написан на основе программы преподавания в МГИ (Московском горном институте). Ориентирован на трёхсеместровый курс общей физики.
+Из предисловия: «Основная цель курса заключается в изложении физики как единой науки, опирающейся на небольшое число фундаментальных законов, обобщающих колоссальное множество опытных фактов.
+В современных условиях (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4258A04C5D79580C64E9D7E1CF79BF4F52CF2D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491828   (907040) от 27.08.2021
+
+Г.И. Атабеков | Теоретические основы электротехники (1966) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс "Теоретические основы электротехники" состоит из трех частей: ч. I "Линейные электрические цепи", ч. II "Нелинейные цепи" и ч. III "Электромагнитное поле".
+Содержание курса соответствует программе Министерства высшего и среднего специального образования СССР по одноименной дисциплине.
+В первой части, написанной Г.И. Атабековым, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43B6ECB8E83DDE45BD3ADA4B53A86AA80503270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098600   (906908) от 31.01.2017
 
 Е.Н. Котова, Т.Ю. Паниковская | Электромагнитные переходные процессы в электрических системах (2014) [PDF]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906908.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906897.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906868.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905112.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903971.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903801.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_903258.jpg" />
+  <img src="Z:/picture/008/save_picture_903258.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902499.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902381.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901192.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900817.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900696.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897668.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897407.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895346.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895338.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893863.jpg" />
 </div>
 
 
@@ -455,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893657.jpg" />
 </div>
 
 
@@ -481,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893501.jpg" />
 </div>
 
 
@@ -507,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893459.jpg" />
 </div>
 
 
@@ -533,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893405.jpg" />
 </div>
 
 
@@ -559,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891881.jpg" />
 </div>
 
 
@@ -585,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891785.jpg" />
 </div>
 
 
@@ -611,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891560.jpg" />
 </div>
 
 
@@ -622,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9BC114B606AADF84D52BF42D944F56EFC34E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993829   (891469) от 07.03.2016
-
-В.А. Кузовкин | Теоретическая электротехника (2005) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены общие методы исследования электротехнических устройств. Показан подход к построению моделей электротехнических приборов на базе анализа явлений, заложенных в основу их функционирования. Приведена классификация и показаны условия упрощения электродинамических моделей и перехода к эквивалентным схемам. Представлены основные методы расчета нелинейных и линейных (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4657707F07C496B1BA7C139EB6070E3C756539E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993813   (891048) от 07.03.2016
-
-Н.А. Сторчак и др. | Моделирование трехмерных объектов в среде Компас-3D (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложен теоретический материал, приводятся сведения, необходимые для построения трехмерных моделей деталей с помощью пакета программ Компас - 3D. Приведены варианты заданий.Жанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE1FA3AE41226564D5E0634359D9B1EFE8E13EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

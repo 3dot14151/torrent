@@ -1,3 +1,61 @@
+###  Публикация: 1565180   (496702) от 22.07.2022
+
+Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Being Deep
+02. Spin
+03. Around
+04. Ni Dos Ni Agua(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E04D27B5B0D61342BC62F895DB8C1F650FC22D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565164   (496701) от 22.07.2022
+
+Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_496701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Loser
+02. Face In The Crowd
+03. Afterlife
+04. Love And Hate(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8503618B5A24AA45F700042E50A370893EB573E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936241   (496069) от 11.09.2015
 
 Lez Zeppelin - Lez Zeppelin (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
@@ -6,7 +64,7 @@ Lez Zeppelin - Lez Zeppelin (2007) [FLAC|Lossless]<Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496069.jpg" />
+  <img src="Z:/picture/008/save_picture_496069.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Kiss - Destroyer (Resurrected) (1976/2012) [FLAC|Lossless]<Hard Rock/Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495485.jpg" />
+  <img src="Z:/picture/008/save_picture_495485.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ VA - Classic Rock Presents: ZZ Top & The Best Of The Year So Far (2012) [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495224.jpg" />
+  <img src="Z:/picture/008/save_picture_495224.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ Lonerider - Attitude (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494996.jpg" />
+  <img src="Z:/picture/008/save_picture_494996.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ Iconic - Second Skin (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494986.jpg" />
+  <img src="Z:/picture/008/save_picture_494986.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494913.jpg" />
+  <img src="Z:/picture/008/save_picture_494913.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494912.jpg" />
+  <img src="Z:/picture/008/save_picture_494912.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494910.jpg" />
+  <img src="Z:/picture/008/save_picture_494910.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ Rage N' Rox - Love On The Rox (1989) Reissue, 2022, FnA Records [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494787.jpg" />
+  <img src="Z:/picture/008/save_picture_494787.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Cold Truth - Cold Truth (2003) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494424.jpg" />
+  <img src="Z:/picture/008/save_picture_494424.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ Cry Of Love - 2 Albums (1992, 1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494105.jpg" />
+  <img src="Z:/picture/008/save_picture_494105.jpg" />
 </div>
 
 
@@ -335,7 +393,7 @@ Deep Purple - Johnny's Band (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493548.jpg" />
+  <img src="Z:/picture/008/save_picture_493548.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493349.jpg" />
+  <img src="Z:/picture/008/save_picture_493349.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493341.jpg" />
+  <img src="Z:/picture/008/save_picture_493341.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492491.jpg" />
+  <img src="Z:/picture/008/save_picture_492491.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492443.jpg" />
+  <img src="Z:/picture/008/save_picture_492443.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ AC/DC - High Voltage (1976) Reissue, Remastered, 2003, Epic [FLAC|Lossless|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492324.jpg" />
+  <img src="Z:/picture/008/save_picture_492324.jpg" />
 </div>
 
 
@@ -510,7 +568,7 @@ AC/DC - Highway To Hell (1979) Remastered, Reissue, 2003, Epic [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492316.jpg" />
+  <img src="Z:/picture/008/save_picture_492316.jpg" />
 </div>
 
 
@@ -539,7 +597,7 @@ Perfect Plan - All Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491109.jpg" />
+  <img src="Z:/picture/008/save_picture_491109.jpg" />
 </div>
 
 
@@ -568,7 +626,7 @@ Sturm und Drang - 3 Albums (2007-2013) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490106.jpg" />
+  <img src="Z:/picture/008/save_picture_490106.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Tower Of Babel - Lake Of Fire (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487895.jpg" />
+  <img src="Z:/picture/008/save_picture_487895.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Ramos - My Many Sides (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485725.jpg" />
+  <img src="Z:/picture/008/save_picture_485725.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Helldorados - Helldorados (2012) [FLAC|Lossless]<Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485249.jpg" />
+  <img src="Z:/picture/008/save_picture_485249.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484421.jpg" />
+  <img src="Z:/picture/008/save_picture_484421.jpg" />
 </div>
 
 
@@ -705,70 +763,6 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC1A7A4D40C5803EFF74E33AF357CDC55A206503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384476   (482671) от 06.09.2011
-
-Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [FLAC|Lossless]<Hard Rock, Progressive Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way Or Another (4:39)
-02. Weep In Silence (5:06)
-03. Misty Eyes (4:15)
-04. Midnight (5:40)
-05. Can't Keep A Good Band Down (3:38)
-06. Woman Of The World (3:08)
-07. Footprints In the Snow (3:56)
-08. Can't Stop Singing (3:20)
-09. Make A Little Love (3:27)
-10. Confession (2:08)Жанр: Hard Rock, Progressive Rock, Heavy MetalПродолжительность: 05:14:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566502   (482429) от 29.07.2022
-
-Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galacticus
-02. Vagabond Rise
-03. Here Be Dragons
-04. Firefly(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07E4735B2DB6AD76F5BCA7BA94F2D5379D9C970
 ```
 
 https://mybot314.ru/tekegram_catalog/

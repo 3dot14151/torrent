@@ -1,3 +1,177 @@
+###  Публикация: 1064207   (426553) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Колорадо Эвеланш — Питтсбург Пингвинз (17.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426553.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 октября 2016, вторник. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Пи-Пи-Джи Пейнтс Арена (Питтсбург, США), 18431 зритель (99 % при вместимости 18656)(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282BC0709D679F5C06D02907B40909E46032CEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063965   (426552) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Каролина Харрикейнз — Ванкувер Кэнакс (16.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426552.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2016, понедельник. 05:00 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Роджерс-Арена (Ванкувер, Канада), 17832 зрителя (95 % при вместимости 18860)(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6F59F1FC3333CD0483C65FCD48E7D3B20C1467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063958   (426551) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Баффало Сэйбрз — Эдмонтон Ойлерз (16.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426551.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2016, понедельник. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18347 зрителей (98 % при вместимости 18641)(   Читать дальше...   )Телекомпания: SportsNetЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C53894710E2702A1B138FCBEBBF3B6EA63AA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063941   (426404) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Филадельфия Флайерз — Аризона Койотс (15.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426404.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 октября 2016, воскресенье. 04:00 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Хила Ривер-Арена (Глендейл, США), 17123 зрителя (96 % при вместимости 17799)(   Читать дальше...   )Телекомпания: CSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED71424E7331A5A0614D7E3AA21AAB519D83AF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064419   (426403) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Сан-Хосе Шаркс — Нью-Йорк Айлендерс (18.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426403.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 октября 2016, среда. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Барклайс-центр (Нью-Йорк, США), 10772 зрителя (68 % при вместимости 15795)(   Читать дальше...   )Телекомпания: CSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4304E7F8EFBB4BFAAB94E29BD61EE4C65F4BFF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064203   (426402) от 20.10.2016
+
+Хоккей. НХЛ 2016-2017. Сан-Хосе Шаркс - Нью-Йорк Рейнджерс (17.10.2016) WEB-DL [H.264/720p-LQ][EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426402.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 октября 2016, вторник. 02:05 МСК
+НХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США), 18200 зрителей (100 % при вместимости 18200)(   Читать дальше...   )Телекомпания: MSGЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9493E3127149CA679E49944678E8C5A23768C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554373   (426219) от 05.10.2012
 
 Бокс. Александр Поветкин - Хасим Рахман (2012) HDTVRip [H.264/720p-LQ]
@@ -6,7 +180,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426219.jpg" />
+  <img src="Z:/picture/008/save_picture_426219.jpg" />
 </div>
 
 
@@ -32,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426216.jpg" />
+  <img src="Z:/picture/008/save_picture_426216.jpg" />
 </div>
 
 
@@ -58,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425356.jpg" />
+  <img src="Z:/picture/008/save_picture_425356.jpg" />
 </div>
 
 
@@ -84,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425354.jpg" />
+  <img src="Z:/picture/008/save_picture_425354.jpg" />
 </div>
 
 
@@ -110,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425292.jpg" />
+  <img src="Z:/picture/008/save_picture_425292.jpg" />
 </div>
 
 
@@ -136,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425269.jpg" />
+  <img src="Z:/picture/008/save_picture_425269.jpg" />
 </div>
 
 
@@ -162,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425268.jpg" />
+  <img src="Z:/picture/008/save_picture_425268.jpg" />
 </div>
 
 
@@ -188,7 +362,7 @@ GOALактика (2015) IPTV [H.264/1080p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425262.jpg" />
+  <img src="Z:/picture/008/save_picture_425262.jpg" />
 </div>
 
 
@@ -214,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425191.jpg" />
+  <img src="Z:/picture/008/save_picture_425191.jpg" />
 </div>
 
 
@@ -240,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424744.jpg" />
+  <img src="Z:/picture/008/save_picture_424744.jpg" />
 </div>
 
 
@@ -269,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424743.jpg" />
+  <img src="Z:/picture/008/save_picture_424743.jpg" />
 </div>
 
 
@@ -298,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424738.jpg" />
+  <img src="Z:/picture/008/save_picture_424738.jpg" />
 </div>
 
 
@@ -327,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424589.jpg" />
+  <img src="Z:/picture/008/save_picture_424589.jpg" />
 </div>
 
 
@@ -353,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424492.jpg" />
+  <img src="Z:/picture/008/save_picture_424492.jpg" />
 </div>
 
 
@@ -379,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424410.jpg" />
+  <img src="Z:/picture/005/save_picture_424410.jpg" />
 </div>
 
 
@@ -408,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424397.jpg" />
+  <img src="Z:/picture/008/save_picture_424397.jpg" />
 </div>
 
 
@@ -437,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424380.jpg" />
+  <img src="Z:/picture/008/save_picture_424380.jpg" />
 </div>
 
 
@@ -463,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424235.jpg" />
+  <img src="Z:/picture/005/save_picture_424235.jpg" />
 </div>
 
 
@@ -489,7 +663,7 @@ BBC. Наблюдая звёзды / Horizon. Seeing Stars (2011) HDTVRip [720p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423942.jpg" />
+  <img src="Z:/picture/008/save_picture_423942.jpg" />
 </div>
 
 
@@ -515,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423901.jpg" />
+  <img src="Z:/picture/008/save_picture_423901.jpg" />
 </div>
 
 
@@ -529,168 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98343636EB17F17BA49B6F6D4DC86AFCCAACDE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412015   (423322) от 27.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 3-й тур. Монако — Нант (2020) WEB-DLRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-13 сентября 2020, воскресенье. 18:00 МСК
-3-й тур
-Монако (Монако) — Нант (Нант)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E841EC8FBA70B48AF997AD0127F86F1CED48927E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412021   (423163) от 27.09.2020
-
-Футбол. Лига 1. Чемпионат Франции 2020-2021. 3-й тур. ПСЖ — Марсель (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции по футболу (Лига 1) 2020-2021.
-13 сентября 2020, воскресенье. 22:00 МСК
-3-й тур
-ПСЖ (Париж) — Марсель (Марсель)(   Читать дальше...   )Телекомпания: Матч ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC7631B42327D29A3EA630C7811409E57B39EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411863   (423089) от 27.09.2020
-
-Австралийский Чемпионат суперкаров. Этап 9. Бэнд. Гонка 1-3 / Virgin Australia Supercars Championship. Repco SuperSprint The Bend. Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2020 года — Этап 9.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:24:11 + 01:23:13 + 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B75E9FD21FECBF5564981560E4E3F77EF97BBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946913   (422805) от 15.10.2015
-
-Обзор. Чемпионат Европы 2016. Отборочный турнир. 10 тур. 3-й день. Обзор тура. (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор отборочных матчей ЕВРО 2016, Итоги 10 тура.Телекомпания: Спорт 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F78B5B804DB3B8E1FF175AE49AADCC5D4F78F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947050   (422803) от 15.10.2015
-
-Время покажет с Петром Толстым (15.10.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422803.jpg" />
-</div>
-
-
-###  Подробнее
-
-С лета 2015 года у граждан РФ появился новый платеж - в Фонд капитального ремонта. В среднем по стране, 20 процентов граждан отдают деньги на то, чтобы когда-нибудь их дом был капитально отремонтирован. При этом соцсети пестрят советами, как уйти от платежей, и тысячи возмущенных собственников подписывают многочисленные петиции. На Фонды  капремонта уже подают судебные (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD2D56ADEFB5714E607023064E0DD6C59060DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946916   (422802) от 15.10.2015
-
-Международная панорама. Эфир от 14.10.2015 (2015) IPTV HD [AVC/1080p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обсуждение завершившегося отборочного турнира к Евро-2016.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8C9331981E8BF0E61ACE9F815CF73B6DFA959D
 ```
 
 https://mybot314.ru/tekegram_catalog/

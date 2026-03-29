@@ -6,7 +6,7 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860702.jpg" />
+  <img src="Z:/picture/008/save_picture_860702.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jarrod Alonge - Beating a Dead Horse (2015) Deluxe Edition [MP3|320 Kbps] <Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860693.jpg" />
+  <img src="Z:/picture/008/save_picture_860693.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Asking Alexandria - The Black (2016) [MP3|320 кб/с] <Post Hardcore, Metalcore
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860650.jpg" />
+  <img src="Z:/picture/008/save_picture_860650.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Infrared - No Peace (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859364.jpg" />
+  <img src="Z:/picture/008/save_picture_859364.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Endless - The Truth, The Chaos, The Insanity (2016) [MP3|320 кб/с] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859333.jpg" />
+  <img src="Z:/picture/008/save_picture_859333.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eternity's End - The Fire Within (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859315.jpg" />
+  <img src="Z:/picture/008/save_picture_859315.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Metal Church - XI (2016) [MP3|320 кб/с] <Heavy Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859266.jpg" />
+  <img src="Z:/picture/008/save_picture_859266.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859203.jpg" />
+  <img src="Z:/picture/008/save_picture_859203.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Moonspell - Night Eternal (2008) Reissue, 2019, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859032.jpg" />
+  <img src="Z:/picture/008/save_picture_859032.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859022.jpg" />
+  <img src="Z:/picture/008/save_picture_859022.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Blind The Huntsmen - White Eyes (2017) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857454.jpg" />
+  <img src="Z:/picture/008/save_picture_857454.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nox Vorago - Al Chem (2017) [MP3|320 Kbps] <Progressive Metal, Sympho Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857437.jpg" />
+  <img src="Z:/picture/008/save_picture_857437.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855817.jpg" />
+  <img src="Z:/picture/008/save_picture_855817.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855198.jpg" />
+  <img src="Z:/picture/008/save_picture_855198.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blaze Bayley - Endure and Survive (Infinite Entanglement Part II) (2017) [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853773.jpg" />
+  <img src="Z:/picture/008/save_picture_853773.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Bloodbound - War Of Dragons (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853736.jpg" />
+  <img src="Z:/picture/008/save_picture_853736.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Majesty - Rebels (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853719.jpg" />
+  <img src="Z:/picture/008/save_picture_853719.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Within The Ruins - 5 Albums + 1 EP (2009-2017) [MP3|320 кб/с]<Technical, Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853681.jpg" />
+  <img src="Z:/picture/008/save_picture_853681.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ I Am Abomination - Passion of the Heist II (2020) [MP3|320 Kbps] <Post-Hardcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853671.jpg" />
+  <img src="Z:/picture/008/save_picture_853671.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Glass Hammer - Dreaming City (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853669.jpg" />
+  <img src="Z:/picture/008/save_picture_853669.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bungler - The Nature Of Being New (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852280.jpg" />
+  <img src="Z:/picture/008/save_picture_852280.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Vitja - Digital Love (2017) [MP3|320 Kbps] <Metalcore, Progressive>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852268.jpg" />
+  <img src="Z:/picture/008/save_picture_852268.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Warbiff - Pig's Parliament (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852172.jpg" />
+  <img src="Z:/picture/008/save_picture_852172.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Trayce - Miragem (2017) [MP3|320 Kbps] <Nu Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852170.jpg" />
+  <img src="Z:/picture/008/save_picture_852170.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Our Hollow, Our Home - Hartsick (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852161.jpg" />
+  <img src="Z:/picture/008/save_picture_852161.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Within The Ruins - Halfway Human (2017) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852030.jpg" />
+  <img src="Z:/picture/008/save_picture_852030.jpg" />
 </div>
 
 

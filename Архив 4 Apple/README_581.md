@@ -1,3 +1,109 @@
+###  Публикация: 1427341   (183501) от 28.11.2020
+
+Twitterrific 5 v5.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twitterrific - самый дружелюбный, мощный и современный клиент для Twitter. Twitterrific делает Twitter забавой.
+Twitterrific - Простой в использовании, Истинная поддержка нескольких учетных записей / нескольких окон, Быстро и легко просматривать сообщения, сообщения и избранное, Временная синхронизация позиции чтения на всех платформах через iCloud, Общесистемные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: The IconfactoryПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751AA8C565CEF0B33C2D0415DE507B2A0FDAC8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427593   (183369) от 28.11.2020
+
+Sensei 1.3.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2020Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FF2ABA18783FF75089825802CCD6FA2F78755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427573   (183308) от 28.11.2020
+
+TechSmith Camtasia 2020 Studio v2020.0.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F794716C0AC954AF24CB21054BEAD747573143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427442   (183282) от 28.11.2020
+
+Wondershare Recoverit 9.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA58690DF706A1320F1EDD51CAC4735ED407D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427575   (183228) от 28.11.2020
 
 FontExplorer X Pro 7 v7.2.5 [Multi]
@@ -6,7 +112,7 @@ FontExplorer X Pro 7 v7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183228.jpg" />
+  <img src="Z:/picture/004/save_picture_183228.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ Movavi Picverse 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183186.jpg" />
+  <img src="Z:/picture/004/save_picture_183186.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Downie 4 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182495.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Sensei 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182486.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ EdgeView 2 v2.903 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182476.jpg" />
+  <img src="Z:/picture/005/save_picture_182476.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Mirror for Sony TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182444.jpg" />
+  <img src="Z:/picture/005/save_picture_182444.jpg" />
 </div>
 
 
@@ -169,7 +275,7 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182394.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ Keka 1.2.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182386.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ X Lossless Decoder XLD 20201123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182291.jpg" />
+  <img src="Z:/picture/005/save_picture_182291.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182123.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ Boom 3D 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182027.jpg" />
+  <img src="Z:/picture/005/save_picture_182027.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ TablePlus 3.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181955.jpg" />
+  <img src="Z:/picture/005/save_picture_181955.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ Receipts 1.9.10b7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181680.jpg" />
+  <img src="Z:/picture/005/save_picture_181680.jpg" />
 </div>
 
 
@@ -357,7 +463,7 @@ Smultron 12.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181676.jpg" />
+  <img src="Z:/picture/005/save_picture_181676.jpg" />
 </div>
 
 
@@ -386,7 +492,7 @@ Privatus 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181672.jpg" />
+  <img src="Z:/picture/005/save_picture_181672.jpg" />
 </div>
 
 
@@ -412,7 +518,7 @@ PatterNodes 2 v2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181669.jpg" />
+  <img src="Z:/picture/005/save_picture_181669.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ Workspaces 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181666.jpg" />
+  <img src="Z:/picture/005/save_picture_181666.jpg" />
 </div>
 
 
@@ -466,7 +572,7 @@ iCollections 6 v6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181657.jpg" />
+  <img src="Z:/picture/005/save_picture_181657.jpg" />
 </div>
 
 
@@ -492,7 +598,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181653.jpg" />
+  <img src="Z:/picture/005/save_picture_181653.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ Drop - Color Picker 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181650.jpg" />
+  <img src="Z:/picture/005/save_picture_181650.jpg" />
 </div>
 
 
@@ -547,7 +653,7 @@ A Better Finder Rename 11 v11.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181627.jpg" />
+  <img src="Z:/picture/005/save_picture_181627.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ Usher 2.0 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181621.jpg" />
+  <img src="Z:/picture/005/save_picture_181621.jpg" />
 </div>
 
 
@@ -586,117 +692,6 @@ Usher - Отличное средство для создания и веден�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:140A64F07EF7AA805252D7D6C11332D6FD612CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428022   (181612) от 30.11.2020
-
-Dato 2.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 10.15.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA97B57169E8571E264DF78C03A22FC7618B70FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428037   (181598) от 30.11.2020
-
-MenuBar Stats 3 v3.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181598.jpg" />
-</div>
-
-
-###  Подробнее
-
-MenuBar Stats - системный монитор, очистка памяти и здоровье батареи.
-Каждый модуль можно увидеть в строке меню. Каждый модуль может быть объединен в 1 окне, или в отдельном окне.
-
-Вы можете отобразить краткую информацию или максимум подробной информации, включая графики, топ-процессы и многое другое. Получать уведомления для вашего здоровья или батареи от других (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2020Разработчик: Fabrice LeyneПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42452D467850AB85D31E0195B3D86169C8944944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427950   (181592) от 30.11.2020
-
-Mountain Duck 4.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
-
-В приложении реализована поддержка всех основных протоколов для подключения к любому серверу.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2020Разработчик: David KocherПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F383A1D9E197B055D0331DD76C1489BFFF59AD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428035   (181578) от 30.11.2020
-
-JPEG Jackal 2.0.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь JPEG Jackal! JPEG Jackal простой, но мощный и быстрый инструмент для домашнего и профессионального использования, который поможет вам оптимизировать размер изображений и сэкономить дисковое пространство. Он использует специальный алгоритм сжатия, чтобы дать вам самое лучшее качество в формате JPEG.Тип издания: OS X SoftwareРелиз состоялся: 25.11.2020Разработчик: Pavel KosykhПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E162136B2DAAEA91CF2F61000BE5D5AEAC67F0EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ QQ Browser 9.3.1.7336.400 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834579.jpg" />
+  <img src="Z:/picture/008/save_picture_834579.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Atrocity - Gemini (2000) Limited Edition [FLAC|Lossless|tracks] <Rock, Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834573.jpg" />
+  <img src="Z:/picture/008/save_picture_834573.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Citrio 48.0.2564.270 (5784.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834569.jpg" />
+  <img src="Z:/picture/008/save_picture_834569.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ BetterTouchTool 1.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834562.jpg" />
+  <img src="Z:/picture/008/save_picture_834562.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Internet Download Manager 6.37 Build 14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834535.jpg" />
+  <img src="Z:/picture/008/save_picture_834535.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ BlueStacks App Player 4.200.0.1072 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834531.jpg" />
+  <img src="Z:/picture/008/save_picture_834531.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834523.jpg" />
+  <img src="Z:/picture/008/save_picture_834523.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834516.jpg" />
+  <img src="Z:/picture/008/save_picture_834516.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ KMSAuto Lite 1.3.1 DC 11.03.2017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834511.jpg" />
+  <img src="Z:/picture/008/save_picture_834511.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Invisible 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834457.jpg" />
+  <img src="Z:/picture/008/save_picture_834457.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ KeyCue 8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834456.jpg" />
+  <img src="Z:/picture/008/save_picture_834456.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ L o W (L ö W) - Discography 7 Releases (2011-2016) [FLAC|Lossless|WEB-DL|tracks
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834449.jpg" />
+  <img src="Z:/picture/008/save_picture_834449.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ FocusList: daily planner & focus timer 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834447.jpg" />
+  <img src="Z:/picture/008/save_picture_834447.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Priime Styles 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834445.jpg" />
+  <img src="Z:/picture/008/save_picture_834445.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834443.jpg" />
+  <img src="Z:/picture/008/save_picture_834443.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ iMazing 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834439.jpg" />
+  <img src="Z:/picture/008/save_picture_834439.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834437.jpg" />
+  <img src="Z:/picture/008/save_picture_834437.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834435.jpg" />
+  <img src="Z:/picture/008/save_picture_834435.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ MindNode 2.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834432.jpg" />
+  <img src="Z:/picture/008/save_picture_834432.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834398.jpg" />
+  <img src="Z:/picture/008/save_picture_834398.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ BrowsingHistoryView 1.86 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834370.jpg" />
+  <img src="Z:/picture/008/save_picture_834370.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ PicPick 4.1.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834368.jpg" />
+  <img src="Z:/picture/008/save_picture_834368.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ URL Extractor 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834367.jpg" />
+  <img src="Z:/picture/008/save_picture_834367.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ ForstWolfin (ForstWölfin) - Wald (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Du
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834363.jpg" />
+  <img src="Z:/picture/008/save_picture_834363.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Pixelmator 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834362.jpg" />
+  <img src="Z:/picture/008/save_picture_834362.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Slimjet 9.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834359.jpg" />
+  <img src="Z:/picture/008/save_picture_834359.jpg" />
 </div>
 
 

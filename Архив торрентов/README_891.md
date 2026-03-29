@@ -6,7 +6,7 @@ HDCleaner 2.010 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844526.jpg" />
+  <img src="Z:/picture/008/save_picture_844526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844492.jpg" />
+  <img src="Z:/picture/008/save_picture_844492.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844480.jpg" />
+  <img src="Z:/picture/008/save_picture_844480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844467.jpg" />
+  <img src="Z:/picture/008/save_picture_844467.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Overloud TH-U Premium 1.4.5 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844433.jpg" />
+  <img src="Z:/picture/008/save_picture_844433.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Artweaver Plus 7.0.10 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844419.jpg" />
+  <img src="Z:/picture/008/save_picture_844419.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Firefox Browser ESR 78.15.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844413.jpg" />
+  <img src="Z:/picture/008/save_picture_844413.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ IObit Driver Booster Pro 7.4.0.728 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844411.jpg" />
+  <img src="Z:/picture/008/save_picture_844411.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844405.jpg" />
+  <img src="Z:/picture/008/save_picture_844405.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844374.jpg" />
+  <img src="Z:/picture/008/save_picture_844374.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844373.jpg" />
+  <img src="Z:/picture/008/save_picture_844373.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844372.jpg" />
+  <img src="Z:/picture/008/save_picture_844372.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844371.jpg" />
+  <img src="Z:/picture/008/save_picture_844371.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844370.jpg" />
+  <img src="Z:/picture/008/save_picture_844370.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844366.jpg" />
+  <img src="Z:/picture/008/save_picture_844366.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Corel PaintShop Pro X9 Ultimate 19.2.0.7 + Content [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844364.jpg" />
+  <img src="Z:/picture/008/save_picture_844364.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Macrium Reflect 7.0.2035 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844362.jpg" />
+  <img src="Z:/picture/008/save_picture_844362.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844360.jpg" />
+  <img src="Z:/picture/008/save_picture_844360.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844354.jpg" />
+  <img src="Z:/picture/008/save_picture_844354.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NirLauncher Package 1.23.52 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844313.jpg" />
+  <img src="Z:/picture/008/save_picture_844313.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ HWiNFO 7.12 Build 4580 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844312.jpg" />
+  <img src="Z:/picture/008/save_picture_844312.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ W.A. Production - InstaComposer 1.0.0 Beta VSTi, VSTi3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844310.jpg" />
+  <img src="Z:/picture/008/save_picture_844310.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Firefox Browser 93.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844307.jpg" />
+  <img src="Z:/picture/008/save_picture_844307.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ GPU Caps Viewer 1.53.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844301.jpg" />
+  <img src="Z:/picture/008/save_picture_844301.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Revo Uninstaller Pro 4.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844299.jpg" />
+  <img src="Z:/picture/008/save_picture_844299.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ HandBrake 1.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844291.jpg" />
+  <img src="Z:/picture/008/save_picture_844291.jpg" />
 </div>
 
 

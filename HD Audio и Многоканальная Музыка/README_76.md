@@ -1,3 +1,235 @@
+###  Публикация: 1678067   (147527) от 20.11.2023
+
+Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2023, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Keep Me Waiting (5:48)
+02. Dancin' 'Round And 'Round (4:01)
+03. Talk To Me (3:29)
+04. Deeper Than The Night (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677806   (147477) от 20.11.2023
+
+Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Infest (Live at INFEST IN-Studio, 2020) [4:28]
+02 - Last Resort (Live at INFEST IN-Studio, 2020) [3:16]
+03 - Broken Home (Live at INFEST IN-Studio, 2020) [3:45]
+04 - Dead Cell (Live at INFEST IN-Studio, 2020) [3:14](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A0E67D01851B0479D52DBA3D86DAD0099D51DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678164   (147439) от 20.11.2023
+
+Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice Normal Woman [00:02:38]
+02. Bones [00:02:49]
+03. Hope And Fury [00:02:20]
+04. Unravel Me [00:03:39](   Читать дальше...   )Жанр: Indie-FolkПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4B1D885E9B811E2EE70E0B6E63F20EC2235B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678115   (147431) от 20.11.2023
+
+Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of Us Must Know (Sooner or Later) (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:44)
+02. Blowin' in the Wind (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:36)
+03. Just Like a Woman (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (5:07)
+04. Oh, Sister (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1B5E86D5902AEBF3DF2A635A57F348C88EFE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678046   (147371) от 20.11.2023
+
+Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cathedral (4:22)
+02. White Rabbit (4:40)
+03. Passage (3:11)
+04. Imminent (4:57)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678073   (147324) от 20.11.2023
+
+Dolly Parton - Rockstar (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockstar (with Richie Sambora) (4:37)
+02. World On Fire (4:21)
+03. Every Breath You Take (featuring Sting) (4:23)
+04. Open Arms (featuring Steve Perry) (3:17)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4F61B48A1A22D4FE117380E99BD1511E53386D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347940   (147033) от 25.12.2019
+
+Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Mood (3:47)
+ 02. All My Love (3:38)
+ 03. The Best Thing (4:52)
+ 04. Bad Love (4:08)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087489   (146511) от 27.12.2016
+
+Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146511.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love On The Line (4:41)
+A2. Alright Down Get Boogie (Muala Rusic) (3:58)
+A3. The Song (They Love To Sing) (6:09)
+A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435126   (146183) от 27.12.2020
 
 VA - Песни из телефильма ''Тайна Снежной Королевы'' (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Pop, Children's>
@@ -6,7 +238,7 @@ VA - Песни из телефильма ''Тайна Снежной Корол
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146183.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146130.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Vince Neil - Exposed (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Hard Rock, Glam Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146041.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Trans-Siberian Orchestra - The Ghosts of Christmas Eve (2013) The Complete Narra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145599.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145212.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Gregorian - Pure Chants (2021) [DTS-ES Discrete 6.1 CD-Audio|44.1/16|image+.cue|
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144831.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144425.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - The Civil War - Original Soundtrack Recording. Traditional American Songs A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144407.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Dogma - Dogma (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard N' Heavy / Fema
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143963.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Mono Inc. - Mono Inc. (Live in Hamburg) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142499.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Opeth - Still Life (1999) Reissue 2012, Peaceville [FLAC|24/192|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142479.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ VA - До 16 и старше. Выпуск 3 (2000) [FLAC 2.0|48/24|image+.cue|M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142464.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Beth Hart - War in My Mind (2019) [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Blues-Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142401.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ The Pretty Reckless - Death by Rock and Roll (2021) [DSD128 2.0|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141809.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Felix De Luxe - So Weit So Gut (1987) Maxi-Single, 45 RPM [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141802.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Soulfly (Max Cavalera; Sepultura) - Studio Albums (12 releases) (1998-2022) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141592.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 M
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141385.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141203.jpg" />
 </div>
 
 
@@ -519,238 +751,6 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348746   (140982) от 29.12.2019
-
-Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happens to the Heart (4:34)
- 02. Moving On (3:12)
- 03. The Night of Santiago (4:15)
- 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679139   (140599) от 24.11.2023
-
-Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Leper Affinity (10:23)
-A2. Bleak (09:17)
-B1. Harvest (06:01)
-B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679247   (140591) от 24.11.2023
-
-Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archers (3:44)
-02. Finding Pieces (4:17)
-03. Fly (4:27)
-04. Freedom (5:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6375584D82F30A947C3F2662B07BE92F425D583C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272661   (140587) от 29.12.2018
-
-VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Балаган LTD & Филипп Киркоров - Наивная
-02. Таня Буланова - Пела Я Тебе
-03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679234   (140580) от 24.11.2023
-
-Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude To Passion (1:24)
-02. While Passion Lasts (3:35)
-03. Blood From A Stone (4:36)
-04. Mr. Know It All (3:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BBDD37C8F5D6C4465FCE1D3B9DA71EE93BC5D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679170   (140561) от 24.11.2023
-
-Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Have the Power [00:02:05]
-02. Xenon Gods [00:04:23]
-03. A Silent Symphony [00:06:23]
-04. Bridge of Death [00:04:48](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02AFC78EC9D4878BE2CB496D3B3CB72F57F12C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679249   (140521) от 24.11.2023
-
-Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows Of Life (3:31)
-02. Twist Of Fate (4:44)
-03. Face The Night (3:34)
-04. Last Of The True Believers (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974AA8874AE4116D56B69061CCB1AF2F77D6A178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679188   (140479) от 24.11.2023
-
-Big Something - Headspace (2023) [FLAC 24/44.1, 24/96|Lossless|WEB-DL|tracks] <Alternative,  Funk,  Jam, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – The Mountain
-02 – Bob and Weave
-03 – Chemistry
-04 – Algorithm(   Читать дальше...   )Жанр: Alternative,  Funk,  Jam, RockПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2138B91BAF94971AE504C7E0C3B8072AA3145AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

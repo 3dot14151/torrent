@@ -1,3 +1,109 @@
+###  Публикация: 984924   (928543) от 15.02.2016
+
+М.П. Кулакова, М.М. Кулакова (ред.) | Библия [Книги Священного Писания Ветхого и Нового Завета в современном русском переводе] (2015) [DJVU, FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание нового русского перевода Библии — совместный проект ББИ и Института перевода Библии в Заокском.
+Новый перевод осуществлялся под эгидой Института перевода Библии в Заокском группой ведущих российских ученых – библеистов и филологов, принадлежащих разным христианским конфессиям. Именно этот совместный труд дал возможность сделать перевод свободным от узко-конфессиональных (   Читать дальше...   )Жанр: Духовная литератураФормат: DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2719684AC9BEE16034EAA82074D7FA3197AE088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986874   (928431) от 15.02.2016
+
+Самый лучший день (2015) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешному сотруднику ДПС Пете Васютину уже давно пора заводить семью, а он живет с мамой, хозяйкой придорожного кафе. И невеста есть - королева бензоколонки, кассирша Оля. В тот самый день, когда Петя решает сделать Оле предложение, в его служебную машину врезается пьяная поп-звезда Алина Шёпот. Чтобы избежать наказания, Алина решает соблазнить Петю...Производство: Россия / Базелевс ПродакшнЖанр: комедия, музыкаРежиссер: Жора КрыжовниковАктеры: Дмитрий Нагиев, Юлия Александрова, Ольга Серябкина, Инна Чурикова, Михаил Боярский, Елена Яковлева, Владислав Ветров, Валентина Мазунина, Ян Цапник, Андрей МалаховПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CC3D9D44B270431B35F06895A83BB3573A0560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903022   (928422) от 15.02.2016
+
+Wolfenstein The Old Blood (2015) [Ru/Multi] (1.0.0.1464/upd1) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein: The Old Blood – приквел знаменитого приключенческого боевика от первого лица. В этом самостоятельном дополнении к Wolfenstein: The New Order, под завязку наполненном адреналиновыми перестрелками, вас ждет совершенно новая история и фирменный игровой процесс Wolfenstein. На дворе 1946 год, и нацисты вот-вот выиграют Вторую мировую войну. Чтобы переломить (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Action (Shooter), Add-on (Standalone), 3D, 1st PersonЯзык озвучки: Английский, Французский, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E745FC56D065AEBF02B9BB31CBF895DE246F265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038566   (928398) от 18.01.2017
+
+Экипаж (2016) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928398.jpg" />
+</div>
+
+
+###  Подробнее
+
+История талантливого молодого летчика Алексея Гущина. Он не признает авторитетов, предпочитая поступать в соответствии с личным кодексом чести. За невыполнение абсурдного приказа его выгоняют из военной авиации, и только чудом он получает шанс летать на гражданских самолетах.
+Гущин начинает свою летную жизнь сначала. Его наставник - командир воздушного судна - суровый (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: Драма, Приключения, ТриллерРежиссер: Николай ЛебедевАктеры: Данила Козловский, Владимир Машков, Агне Грудите, Сергей Кемпо, Катерина Шпица, Сергей Шакуров, Сергей Газаров, Елена Яковлева, Алёна Бабенко, Сергей Романович, Ксения Георгиади, Ирина ЛачинаПеревод: Не требуетсяПродолжительность: 02:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248B060EAD6DCAEB18289C3098C92CE850CB2BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094419   (928397) от 18.01.2017
 
 Navitel / Навител Навигатор 9.7.2172 Full [Ru/Multi]
@@ -6,7 +112,7 @@ Navitel / Навител Навигатор 9.7.2172 Full [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928397.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928396.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928048.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Max Payne 2: The Fall of Max Payne (2003) [Ru/En] (1.01) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928044.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927735.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ Halo Legends / Легенды Halo [2010, OVA, 8 of 8 ep.] BDRip 720p raw + rus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927667.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ CRAM - новый робот-таракан, способный "просачи�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927596.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927325.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ Acronis True Image 2017 New Generation Build 6116 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927206.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927196.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927192.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Opera 12.18 Build 1872 (32bit) / 1873 (64bit) Final Portable by PortableAppZ [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927177.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927174.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927171.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926744.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ OTUS | Linux для начинающих (2019) PCRec [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926605.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926523.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926502.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926074.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ City Navigator Russia NT 2013.40 [Карта] (Garmin)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926039.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ Sword Art Online -Infinity Moment- [PSP] [JPN] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_926034.jpg" />
+  <img src="Z:/picture/009/save_picture_926034.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) Repack R.G. Revenants [Limited Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926029.jpg" />
 </div>
 
 
@@ -571,113 +677,6 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) Repack R.G. Revenants [Limited Editio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4741C69E329D56511CD78526984D87FCC9EBBBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987431   (925647) от 17.02.2016
-
-Технология Eternal 5D позволит записать на один носитель всю историю человечества и хранить ее бесконечно долгое время
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые из научно-исследовательского Центра оптоэлектроники (Optoelectronics Research Centre, ORC) университета Саутгемптона (University of Southampton) разработали новую технологию хранения цифровых данных, которая не только характеризуется очень высокой плотностью записи информации, она способна обеспечить сохранность данных на протяжении миллиардов лет. В основу (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091766   (925589) от 20.01.2017
-
-Саша добрый, Саша злой (2016) SATRip [H.264] (серии 1-20 из 20)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925589.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одно из районных отделений полиции города Севастополя командируют из Москвы молодого следователя - майора Александра Демина. Одновременно с Деминым в город прилетают и московские бандиты, которые собираются устроить передел власти в городе. Их главная цель – контроль над портом. С момента появления столичных гостей Севастополь захлестывает волна убийств, на первый (   Читать дальше...   )Производство: Россия / "Top line Film"Жанр: детективРежиссер: Мичислав ЮзовскийАктеры: Роман Мадянов, Владимир Яглыч, Светлана Устинова, Наталия Антонова, Леонид Кулагин, Владимир Качан, Ирина Ефремова, Игорь Филиппов, Александр Песков и др.Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BE40037458E1BD017CF88B680B87589631CFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095221   (925585) от 20.01.2017
-
-TimeShift (2007) [Ru] (1.02) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Айден Крон совершил временной скачок через пространственно-временной континуум — достаточно необдуманный поступок с ужасными последствиями. Теперь потревоженная альтернативная реальность эволюционировала внутри холодного и сырого района Альфа. С помощью своего экспериментального бета-костюма только вы способны замедлить, остановить или обратить вспять ход (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0193F334CF034B7B7E25BB0AFED0D873DAD274F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095347   (925576) от 20.01.2017
-
-Apple Final Cut Pro X 10.3.2, Motion 5.3.1 & Compressor 4.3.1 [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-
-Motion. Анимация для Final Cut
-Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 января 2017Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.11.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B4C2A8C14F6176B603D3F170FE52D5076D4B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

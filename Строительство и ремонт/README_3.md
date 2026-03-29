@@ -6,7 +6,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635419.jpg" />
+  <img src="Z:/picture/008/save_picture_635419.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631933.jpg" />
+  <img src="Z:/picture/008/save_picture_631933.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627501.jpg" />
+  <img src="Z:/picture/008/save_picture_627501.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626039.jpg" />
+  <img src="Z:/picture/008/save_picture_626039.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606194.jpg" />
+  <img src="Z:/picture/008/save_picture_606194.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606166.jpg" />
+  <img src="Z:/picture/008/save_picture_606166.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606064.jpg" />
+  <img src="Z:/picture/008/save_picture_606064.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606057.jpg" />
+  <img src="Z:/picture/008/save_picture_606057.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599834.jpg" />
+  <img src="Z:/picture/008/save_picture_599834.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597735.jpg" />
+  <img src="Z:/picture/008/save_picture_597735.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596991.jpg" />
+  <img src="Z:/picture/008/save_picture_596991.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595982.jpg" />
+  <img src="Z:/picture/008/save_picture_595982.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595669.jpg" />
+  <img src="Z:/picture/008/save_picture_595669.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594544.jpg" />
+  <img src="Z:/picture/008/save_picture_594544.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591755.jpg" />
+  <img src="Z:/picture/008/save_picture_591755.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591713.jpg" />
+  <img src="Z:/picture/008/save_picture_591713.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590837.jpg" />
+  <img src="Z:/picture/008/save_picture_590837.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590307.jpg" />
+  <img src="Z:/picture/008/save_picture_590307.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589473.jpg" />
+  <img src="Z:/picture/008/save_picture_589473.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587766.jpg" />
+  <img src="Z:/picture/008/save_picture_587766.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587121.jpg" />
+  <img src="Z:/picture/008/save_picture_587121.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585747.jpg" />
+  <img src="Z:/picture/008/save_picture_585747.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582684.jpg" />
+  <img src="Z:/picture/008/save_picture_582684.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582174.jpg" />
+  <img src="Z:/picture/008/save_picture_582174.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581780.jpg" />
+  <img src="Z:/picture/008/save_picture_581780.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580206.jpg" />
+  <img src="Z:/picture/008/save_picture_580206.jpg" />
 </div>
 
 

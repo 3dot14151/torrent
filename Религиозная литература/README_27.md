@@ -1,3 +1,83 @@
+###  Публикация: 1503830   (814076) от 22.10.2021
+
+Святогор (изд.) | Поучения по житию святого великомученика Пантелеимона (2015 [Репринт 1912 г.]) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда кого-нибудь изъ насъ постигаетъ скорбь и особенно тяжкая, мы, въ большинствѣ случаевъ, обыкновенно поступаемъ не такъ, какъ бы поступать слѣдовало. Одни ищутъ помощи и избавленiя отъ людей, другiе предаются малодушiю и унынiю, третьи даже ропщутъ на Бога; а иные, что и хуже всего, впадаютъ въ отчаянiе и погибаютъ. Достойно ли это христiанъ? И помогаетъ (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA49D21CF6441A162D535CF2C56AD4D486A382C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197661   (813923) от 08.01.2018
+
+Д.С. Чунтонов (сост.) | Святитель Игнатий Брянчанинов [Алфавит духовный] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_813923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святитель Игнатий (в миру Дмитрий Брянчанинов) родился 5 февраля 1807 года в селе Покровском Вологодской губернии, в имении своего отца. С ранних лет он был склонен к монашеской жизни, и с возрастом это всё более проявлялось в стремлении к молитве и чтению духовных книг.
+
+...В 1827 году в двадцатилетнем возрасте он оставил аристократическую жизнь и, вызвав глубочайшее (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197624   (813916) от 08.01.2018
+
+Т. Гартвиг | Бог и страшный суд (1926) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_813916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее изложение показывает, что идея о существовании бога не происходит от религиозной "потребности" человека, а приспособлена к политическим потребностям временно господствующего класса.Жанр: История, политология, религиоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1379C02E5342A1940DD2B14394B08A4E26E5BB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197627   (813779) от 08.01.2018
 
 Е. М. Ярославский | Что должен знать пионер о Рождестве (1926) [PDF]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813779.jpg" />
+  <img src="Z:/picture/008/save_picture_813779.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813752.jpg" />
+  <img src="Z:/picture/008/save_picture_813752.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813494.jpg" />
+  <img src="Z:/picture/008/save_picture_813494.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813493.jpg" />
+  <img src="Z:/picture/008/save_picture_813493.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813309.jpg" />
+  <img src="Z:/picture/008/save_picture_813309.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813037.jpg" />
+  <img src="Z:/picture/008/save_picture_813037.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812184.jpg" />
+  <img src="Z:/picture/008/save_picture_812184.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812178.jpg" />
+  <img src="Z:/picture/008/save_picture_812178.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812173.jpg" />
+  <img src="Z:/picture/008/save_picture_812173.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812169.jpg" />
+  <img src="Z:/picture/008/save_picture_812169.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812168.jpg" />
+  <img src="Z:/picture/008/save_picture_812168.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812107.jpg" />
+  <img src="Z:/picture/008/save_picture_812107.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811849.jpg" />
+  <img src="Z:/picture/008/save_picture_811849.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811846.jpg" />
+  <img src="Z:/picture/008/save_picture_811846.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811738.jpg" />
+  <img src="Z:/picture/008/save_picture_811738.jpg" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810358.jpg" />
+  <img src="Z:/picture/008/save_picture_810358.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810251.jpg" />
+  <img src="Z:/picture/008/save_picture_810251.jpg" />
 </div>
 
 
@@ -463,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810116.jpg" />
+  <img src="Z:/picture/008/save_picture_810116.jpg" />
 </div>
 
 
@@ -490,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810030.jpg" />
+  <img src="Z:/picture/008/save_picture_810030.jpg" />
 </div>
 
 
@@ -516,7 +596,7 @@ molitvoslov (изд.) | Полный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809015.jpg" />
+  <img src="Z:/picture/008/save_picture_809015.jpg" />
 </div>
 
 
@@ -542,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808279.jpg" />
+  <img src="Z:/picture/008/save_picture_808279.jpg" />
 </div>
 
 
@@ -568,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808278.jpg" />
+  <img src="Z:/picture/008/save_picture_808278.jpg" />
 </div>
 
 
@@ -594,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808273.jpg" />
+  <img src="Z:/picture/008/save_picture_808273.jpg" />
 </div>
 
 
@@ -605,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4DF4000C838089E9F14E4EBC8972D3CC9F8697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009436   (808241) от 22.04.2016
-
-И. Шпицберг | Святой Василий Грязнов. Защита подмосковных акул текстильной промышленности (1929) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808241.jpg" />
-</div>
-
-
-###  Подробнее
-
-В популярной брошюре рассказано об использовании культа святого Василия Грязнова фабрикантами-текстильщиками дореволюционной России для удержания рабочих в повиновении.Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638F6605D4154D366B997649487491C6E8972AA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778297   (808188) от 17.04.2014
-
-Иероним Стридонский (пер.) | Вульгата [Перевод Библии на латынь] (1997) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот перевод Библии на латинский язык сделан по той причине, что до IV века не было совершенного перевода. Старая латинская Библия была переведена с древнегреческого языка. Блаженный Иероним начал его в 382 году по поручению папы  Дамаса I (366—84). Блаженный Иероним не стал редактировать старый текст, а сделал новый перевод с языков оргинала. Иероним брал уроки древнееврейского (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFF5F33BA02ADE66B09C55AD993E19025FF9B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504971   (808076) от 25.10.2021
-
-К.Н. Сильченков | Новая заповедь (1999) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808076.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящий сборник вошли произведения Константина Николаевича Сильченкова (1869 † 1903), опубликованные им в разные годы в периодических изданиях. Читатель найдёт здесь и сочинения истолковательного характера, и статьи на нравственно-богословские темы, и произведения церковно-исторического направления. Заинтересует современного читателя статья, посвящённая вопросу (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDC61AD9E30FD97FB4D4C5C636850774BA86E09
 ```
 
 https://mybot314.ru/tekegram_catalog/

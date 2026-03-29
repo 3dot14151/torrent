@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163338.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163327.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Beamy - Sunrise (2021) [AAC|~351 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163055.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Beautyness of Butterfly, the Chill Out Worx, Vol. 2 (2021) [AAC|~324 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163052.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - The Seeds of Lounge, Vol. 4 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163049.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Golden Lounge (2021) [AAC|~293 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163029.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Lounge Del Mare 1: Chillout Cafe Pearls (2007) [AAC|~342 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162991.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Lounge Del Mare 2: Chillout Cafe Pearls (2008) [AAC|~343 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162985.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Lounge Del Mare 3: Chillout Cafe Pearls (2008) [AAC|~344 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162977.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Uplifting Only Top 15: December 2021 (Extended Mixes) (2021) [AAC|~332 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162972.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Palomino Duck - Smooth Flight (2021) [AAC|~333 Kbps] <Jazz, Smooth Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162961.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Lounge Del Mare 4: Chillout Cafe Pearls (2010) [AAC|~334 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162957.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Best of Elevate Records 2021 (2021) [AAC|~333 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162415.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - IGNESCENT Drum & Bass Annual 2022 (2021) [AAC|~340 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162400.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Mellow Cool Swedish Jazz (2021) [AAC|~257 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162370.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162001.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - Dispatched 2021 (2021) [AAC|~337 Kbps] <Drum & Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161744.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 4 (2021) [AAC|~302 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161736.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161732.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161729.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Sophisticated Jazzy Lounge, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161728.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Lakeside Chill Sounds - Autumn (2021) [AAC|~323 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161723.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - Anjunadeep The Remixes 2021 (2021) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161720.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - The Yearbook 2021 (2021) [AAC|~337 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161717.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Hoom Side of the Moon, Vol. 02 (2021) [AAC|~334 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161706.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Hoom Side of the Moon, Vol. 01 (2021) [AAC|~335 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161704.jpg" />
 </div>
 
 

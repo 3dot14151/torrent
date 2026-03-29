@@ -1,3 +1,233 @@
+###  Публикация: 1639342   (238268) от 13.06.2023
+
+Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clutch — американская рок-группа из города Джермантаун, штат Мэриленд.1993 - Transnational Speedway League
+1995 - Clutch
+1997 - Impetus (EP)
+1998 - The Elephant RidersЖанр: Stoner RockПродолжительность: 14:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6717AE599D59EB30E48D921F7C4A010F96DFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623834   (238237) от 03.04.2023
+
+Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electronic, PopПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CC70CBC07EEAA5ECF6641346C04DCD0DA694BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131204   (238228) от 30.04.2022
+
+VA - В Помощь Любителям Грамзаписи. Для Проверки Работы Воспроизводящих Устройств (1968, 1973) [2xLP] [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Field Recording, Technical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238228.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Кармен-Сюита. Вступление  (Проверка Правильности Сторон)
+A2 Дорога Вдаль (Проверка Баланса Каналов)
+A3 Босса-Нова (Проверка Полярности Громкоговорителей)
+A4 Бронепоезд 14-69(   Читать дальше...   )Жанр: Field Recording, Technical, Classical, Baroque,
+Romantic, Modern, Contemporary, Jazz, LatinПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8B783A92A7B1CB92854035CFDCC6B53FD27A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122096   (238151) от 01.05.2022
+
+VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Майя Кристалинская - Снег Идёт (из к.ф ''Карьера Димы Горина''')
+02. Оркестр - Медленный Фокстрот (из к.ф. ''Бессонная ночь'')
+03. Милан Хладил - Песня (из к.ф. ''Смерть в седле'')
+04. Инструментальный ансамбль - На Двенадцатой улице (из к.ф. ''Пилигрим'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385A9BCBA4B819EAD00B0348ED667D5DCFB3DE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628932   (238121) от 25.04.2023
+
+Carl Perkins/Карл Перкинс - Лучшее из репертуара Карла Перкинса (1991) Unofficial Release, Compilation [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rockabilly>р
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238121.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Синие Замшевые Башмаки • Blue Suede Shoes
+A2 Спичечный Коробок • Matchbox
+A3 Играя Блюз • Boppin' The Blues
+A4 Нет, Милая • Honey Don't(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC453BD8D98812CFC57FED895639A0436360367C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629316   (238010) от 26.04.2023
+
+Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_238010.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Follow Me 3:50
+2 Gold 3:45
+3 Mother, Look What They've Done To Me 4:32
+4 Run Baby Run 3:45(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F15FCE05947CEDCDFFCB69B6DD35338D1DDD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150283   (237946) от 02.05.2022
+
+Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237946.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Гиподинамия · Hypodynamics
+A2 Притяжение Любви · Attraction Of Love
+A3 Три Минуты · Three Minutes
+A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жанр: Pop, Soul, DiscoПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548491   (237909) от 02.05.2022
+
+Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Maiden (с англ. — «Железная дева») — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом.1980 - Iron Maiden
+1981 - Killers
+1982 - The Number of the Beast
+1983 - Piece of Mind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 24:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC32DDC07E889DCB56331AA7C26854BCF9BDA82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150965   (237874) от 02.05.2022
 
 The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Beat, Rock & Roll>
@@ -6,7 +236,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237874.jpg" />
+  <img src="Z:/picture/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -35,7 +265,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237820.jpg" />
+  <img src="Z:/picture/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -64,7 +294,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237801.jpg" />
+  <img src="Z:/picture/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -93,7 +323,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237777.jpg" />
+  <img src="Z:/picture/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -122,7 +352,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237749.jpg" />
+  <img src="Z:/picture/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -151,7 +381,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237707.jpg" />
+  <img src="Z:/picture/004/save_picture_237707.jpg" />
 </div>
 
 
@@ -180,7 +410,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237690.jpg" />
+  <img src="Z:/picture/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -210,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237599.jpg" />
+  <img src="Z:/picture/004/save_picture_237599.jpg" />
 </div>
 
 
@@ -239,7 +469,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237534.jpg" />
+  <img src="Z:/picture/004/save_picture_237534.jpg" />
 </div>
 
 
@@ -268,7 +498,7 @@ Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237451.jpg" />
+  <img src="Z:/picture/005/save_picture_237451.jpg" />
 </div>
 
 
@@ -297,7 +527,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -326,7 +556,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237374.jpg" />
+  <img src="Z:/picture/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -355,7 +585,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237318.jpg" />
+  <img src="Z:/picture/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -384,7 +614,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -413,7 +643,7 @@ Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237261.jpg" />
+  <img src="Z:/picture/005/save_picture_237261.jpg" />
 </div>
 
 
@@ -442,7 +672,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237259.jpg" />
+  <img src="Z:/picture/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -471,7 +701,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237241.jpg" />
+  <img src="Z:/picture/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -500,7 +730,7 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237227.jpg" />
+  <img src="Z:/picture/005/save_picture_237227.jpg" />
 </div>
 
 
@@ -514,238 +744,6 @@ Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208554   (237215) от 05.05.2022
-
-VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Ranieri - Perdere l’amore
-02. Fiordaliso - Per Noi
-03. Toto Cutugno - Emozioni
-04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208010   (237201) от 05.05.2022
-
-Tom Jones/Том Джонс - Лучшие песни из репертуара... (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237201.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона:
-01. Дочь тьмы - Daughter Of Darkness
-02. Если... - If
-03. Брат, одолжи десять центов - Brother Can You Spare A Dime(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630340   (237198) от 30.04.2023
-
-Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Р. ЩЕДРИН (р. 1932)
-2-я сюита из балета "Конек-Горбунок"
-01. Танец с балалайками
-02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208569   (237196) от 05.05.2022
-
-VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Jones - Little Lonely One
-02. Gerry Dorsey - The Sentimental Joker
-03. Gilbert O'Sullivan - I Wish I Could Cry
-04. ''The Nocturnes'' - Why (Am I Treated So Bad)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630226   (237159) от 30.04.2023
-
-Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cracker Island (3:33)
- 02. Oil (3:50)
- 03. The Tired Influencer (3:31)
- 04. Tarantula (3:32)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630326   (237126) от 30.04.2023
-
-Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с оркестром (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каприччио Для Ф-но С Оркестром
-A1 Presto
-A2 Andante Rapsodico
-A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628032   (236992) от 21.04.2023
-
-Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236992.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Hang On To My Vertigo 4:40
-A2 Misplaced Love 4:14
-A3 Samsara 5:15
-A4 Surface Tension 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630590   (236921) от 01.05.2023
-
-Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236921.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Круги · Circles
-A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
-A3 Институт В Чикаго · Chicago Institute
-A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

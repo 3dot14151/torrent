@@ -1,3 +1,88 @@
+###  Публикация: 1599888   (159292) от 25.12.2022
+
+Квартирник у Маргулиса. Группа 7Б (24.12.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт рок-группы «7Б» на «Квартирнике». Официальным днем рождения коллектива считается 8 марта 2001 года. Дебютный альбом «Молодые ветра» мгновенно покорил множество музыкальных хит-парадов, практически все песни стали хитами, а композиция с одноименным названием стала своеобразной визитной карточкой группы. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:06  Я пришел, чтобы петь
+00:05:00  Осень
+00:12:08  Эльдорадо
+00:20:19  Владивосход(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709D94301DDBC53215C596FE465BEAE45231DF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676282   (158926) от 12.11.2023
+
+Елена Север. «Услышь меня» (2023) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт Елены Север. Это первый сольный концерт певицы, к которому она шла много лет, и одновременно удивительное шоу: сцена и весь зрительный зал с помощью мэппинговых технологий будут перевоплощаться в каждом номере.
+На сцене прозвучат как сольные композиции Елены Север, так и те, что она исполняет в дуэте с популярными артистами российской эстрады. Поздравить (   Читать дальше...   )01 - ЕЛЕНА СЕВЕР - С ума
+02 - ЕЛЕНА СЕВЕР - Услышь меня
+03 - ЕЛЕНА СЕВЕР и СТАС ПЬЕХА - О тебе
+04 - ЕЛЕНА СЕВЕР - Сны(   Читать дальше...   )Жанр: POPЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233CB39B3328387CDE76C16172F8DF78F325E5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594237   (158900) от 26.12.2022
+
+Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p] [hand made smoother]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphonic Terror - Live at Wacken - концертный альбом немецкой хэви металл группы Accept, записаный с симфоническим оркестром 2 августа 2017 года на фестивале Wacken Open Air. Выпущен 23 ноября 2018 года на Nuclear Blast.Производство: Nuclear BlastЖанр: Heavy MetalЯзык: АнглийскийПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5537F49EED0C6DC3B7EC209D893F7CE1D96A6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966981   (158442) от 21.12.2015
 
 George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
@@ -6,7 +91,7 @@ George Thorogood & The Destroyers / Live at Montreux (2013) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158442.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ Madonna - The Confessions Tour (Live From London) (2006) HDTVRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_157818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_157818.jpg" />
 </div>
 
 
@@ -65,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157421.jpg" />
 </div>
 
 
@@ -92,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157215.jpg" />
 </div>
 
 
@@ -118,7 +203,7 @@ Eisbrecher - Schock Live (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157124.jpg" />
 </div>
 
 
@@ -150,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157054.jpg" />
 </div>
 
 
@@ -179,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156808.jpg" />
 </div>
 
 
@@ -205,7 +290,7 @@ Hammerfall: Gates of Dalhalla (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156800.jpg" />
+  <img src="Z:/picture/005/save_picture_156800.jpg" />
 </div>
 
 
@@ -240,7 +325,7 @@ DJ Tiesto in Concert 2003 (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_156516.jpg" />
+  <img src="Z:/picture/005/save_picture_156516.jpg" />
 </div>
 
 
@@ -275,7 +360,7 @@ Europakonzert 2015 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156189.jpg" />
 </div>
 
 
@@ -306,7 +391,7 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155933.jpg" />
 </div>
 
 
@@ -335,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155903.jpg" />
 </div>
 
 
@@ -362,7 +447,7 @@ MTV Video Music Awards 2015 (2015) HDTVRip[H.264-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155867.jpg" />
 </div>
 
 
@@ -391,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155774.jpg" />
 </div>
 
 
@@ -417,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155605.jpg" />
 </div>
 
 
@@ -446,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155480.jpg" />
 </div>
 
 
@@ -472,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155134.jpg" />
 </div>
 
 
@@ -501,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154525.jpg" />
 </div>
 
 
@@ -527,7 +612,7 @@ Unheilig - Lichter Der Stadt Live (2012) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154382.jpg" />
 </div>
 
 
@@ -559,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154335.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ VK под шубой (2022) WEBRip [H.246/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153708.jpg" />
 </div>
 
 
@@ -611,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153577.jpg" />
 </div>
 
 
@@ -637,7 +722,7 @@ Hammerfall - Live! Against The World (2020) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152960.jpg" />
 </div>
 
 
@@ -654,90 +739,6 @@ HammerFall — группа из Швеции, играющая в стилях 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E3012457584CC6012E58C555A399E1849362D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968497   (152850) от 24.12.2015
-
-Старые песни о главном 4 Посткриптум (2000) HDTVRip [H.264 / 720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в сказочном отеле времени. Его посетители - эстрадные звезды. Они все раз в столетие в новогоднюю ночь уходящего века собираются вместе. Этой ночью пространство и время чудесным образом сжимаются так, что мы одновременно можем видеть звезд из разных стран и эпох. "Время запоминается музыкой!" - таков лозунг праздника.Производство: Россия, ОРТЖанр: МузыкальныйАктеры: Алла Пугачева, Дмитрий Маликов, Татьяна Буланова, Кристина Орбакайте, Николай Фоменко, Филипп Киркоров, Виктор Сухоруков, Елена Воробей, Марина Хлебникова, Александр Буйнов, Михаил Терентьев, Елена КориковаПродолжительность: 01:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1570F3E7C4166A43B989E38364E5074F6BFEF748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518792   (152256) от 21.12.2021
-
-Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый альбом известной группы Gregorian в сопровождении великолепных видов природы, старинных замков и убранства средневековых соборов.Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677796   (149205) от 19.11.2023
-
-Unheilig - Unter Dampf — Ohne Strom (MTV Unplugged) (2015) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unheilig (читается «унха́йлихь», с нем. — «нечестивый (грешный, несвятой)») — немецкая группа, образованная в 1999 году совместно музыкантом и композитором под сценическим псевдонимом Граф (Der Graf), и Грантом Стивенсом (Grant Stevens) — автором песни «Everlasting Friends» из телевизионной рекламы Holsten Pilsener и Хозе Альварез-Бриллем (Jose Alvarez-Brill), (   Читать дальше...   )01 Unter Deiner Flagge
-02 Mein Berg
-03 Freiheit
-04 Sage Ja!(   Читать дальше...   )Производство: ГерманияЖанр: Industrial Gothic MetalУчастники: Граф (вокал, программирование)
-Кристоф «Лики» Термюлен (гитара)
-Хеннинг Ферлаге (клавишные, программирование)
-Мартин «Потти» Поттхофф (ударные и перкуссия)Продолжительность: 01:50:13 + 02:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD9EE9825E10121791BBFD517B848BC8806334
 ```
 
 https://mybot314.ru/tekegram_catalog/

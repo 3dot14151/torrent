@@ -1,4 +1,187 @@
 https://t.me/izofen
+###  Публикация: 1862229   (1062940) от 
+
+Photo Supreme 2026.2.0.8901 RePack (& Portable) by elchupacabra [En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Английский (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8025291BA9EBA708449929814FF214CBC3197AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861863   (1062813) от 
+
+FastStone Photo Resizer 4.5 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062813.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Photo Resizer - программа для различных манипуляций с графическими файлами. С помощью FastStone Photo Resizer можно конвертировать изображения в распространенные графические форматы (JPEG, BMP, GIF, PNG, TIFF, JPEG2000, PDF), изменять размер и глубину цвета, обрезать, разворачивать под разными углами и переименовывать графику. Кроме того, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25C64310C433638A48FA0B7B365CC741F87D99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861866   (1062812) от 
+
+FastStone Image Viewer 8.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062812.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD528D30EA6B6714159F62FDD140379A884C01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861867   (1062807) от 
+
+FastStone Image Viewer 8.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062807.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFB1DEEA4C9C67F9512866B52B1A06D274EF87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861880   (1062766) от 
+
+ImageGlass 9.4.1.15 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062766.jpg" />
+</div>
+
+
+###  Подробнее
+
+ImageGlass - это легкий и универсальный просмотрщик изображений, который вполне может заменить стандартный Photo Viewer в операционной системе.
+Приложение поддерживает большой спектр форматов, включая JPG, JPE, JFIF, JPEG, PNG, GIF, ICO, BMP, DIB, TIF, TIFF, EXIF, WMF, EMF, TGA, PSD, HDR, EXR, SGV, WEBP. ImageGlass предоставляет все обычные возможности просмотра (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D80ABFDF6DBE6FCCA539ED8C9627FF8DB58664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861487   (1062428) от 
+
+Photo Supreme 2026.2.0.8893 RePack (& Portable) by elchupacabra [En]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Английский (Русский отсутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1863BF08D89ED107C5E23974CE6841593F734634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860546   (1061940) от 
+
+BandiView Pro 7.26 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Просмотрщики Графики (вьюверы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061940.jpg" />
+</div>
+
+
+###  Подробнее
+
+BandiView – это удобная и функциональная программа для просмотра изображений, созданная для пользователей Windows, которая является преемницей Honeyview, унаследовала все лучшие черты своей предшественницы и была дополнительно улучшена. Она поддерживает все популярные форматы, включая JPG, PNG, BMP, GIF и даже RAW-файлы с фотокамер. Благодаря высокой скорости работы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FABF2C8E31868B0572EB74A89E81C2B4F57B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860077   (1061537) от 
 
 BandiView Pro 7.26 [Multi/Ru]
@@ -7,7 +190,7 @@ BandiView Pro 7.26 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061537.jpg" />
+  <img src="Z:/picture/005/save_picture_1061537.jpg" />
 </div>
 
 
@@ -35,7 +218,7 @@ XnView Classic 2.52.5 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061236.jpg" />
+  <img src="Z:/picture/005/save_picture_1061236.jpg" />
 </div>
 
 
@@ -61,7 +244,7 @@ XnView MP 1.10.5 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061114.jpg" />
 </div>
 
 
@@ -87,7 +270,7 @@ Photo Supreme 2026.1.0.8841 RePack (& Portable) by elchupacabra [Multi]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1060987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060987.jpg" />
 </div>
 
 
@@ -113,7 +296,7 @@ XnView MP 1.10.4 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060706.jpg" />
+  <img src="Z:/picture/005/save_picture_1060706.jpg" />
 </div>
 
 
@@ -139,7 +322,7 @@ Imagine 2.5.3 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060494.jpg" />
+  <img src="Z:/picture/009/save_picture_1060494.jpg" />
 </div>
 
 
@@ -165,7 +348,7 @@ XnView MP 1.10.3 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059361.jpg" />
+  <img src="Z:/picture/005/save_picture_1059361.jpg" />
 </div>
 
 
@@ -191,7 +374,7 @@ XnView Classic 2.52.5 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059333.jpg" />
+  <img src="Z:/picture/005/save_picture_1059333.jpg" />
 </div>
 
 
@@ -217,7 +400,7 @@ XnView MP 1.10.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059221.jpg" />
+  <img src="Z:/picture/005/save_picture_1059221.jpg" />
 </div>
 
 
@@ -243,7 +426,7 @@ Imagine 2.5.2 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059069.jpg" />
+  <img src="Z:/picture/005/save_picture_1059069.jpg" />
 </div>
 
 
@@ -269,7 +452,7 @@ Imagine 2.5.1 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058847.jpg" />
+  <img src="Z:/picture/005/save_picture_1058847.jpg" />
 </div>
 
 
@@ -295,7 +478,7 @@ XnView MP 1.10.1 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058174.jpg" />
+  <img src="Z:/picture/005/save_picture_1058174.jpg" />
 </div>
 
 
@@ -321,7 +504,7 @@ Imagine 2.5.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057284.jpg" />
+  <img src="Z:/picture/005/save_picture_1057284.jpg" />
 </div>
 
 
@@ -347,7 +530,7 @@ FastStone MaxView 3.5 + Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055928.jpg" />
+  <img src="Z:/picture/005/save_picture_1055928.jpg" />
 </div>
 
 
@@ -373,7 +556,7 @@ FastStone Photo Resizer 4.5 + Portable [En]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055927.jpg" />
+  <img src="Z:/picture/005/save_picture_1055927.jpg" />
 </div>
 
 
@@ -399,7 +582,7 @@ Imagine 2.4.1 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055642.jpg" />
+  <img src="Z:/picture/005/save_picture_1055642.jpg" />
 </div>
 
 
@@ -425,7 +608,7 @@ Imagine 2.4.0 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055497.jpg" />
+  <img src="Z:/picture/005/save_picture_1055497.jpg" />
 </div>
 
 
@@ -451,7 +634,7 @@ Adobe Bridge 2026 16.0.2.23 Portable by 7997 [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054962.jpg" />
+  <img src="Z:/picture/005/save_picture_1054962.jpg" />
 </div>
 
 
@@ -477,7 +660,7 @@ XnView MP 1.9.10 + Portable [Multi/Ru]
 >>Просмотрщики Графики (вьюверы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052401.jpg" />
+  <img src="Z:/picture/005/save_picture_1052401.jpg" />
 </div>
 
 
@@ -488,188 +671,6 @@ XnView MP - мощное многофункциональное приложен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D20BBCE3A5C2F498D86C4324F6E94D8686A04CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847651   (1052269) от 13.01.2026
-
-XnView Shell Extension 4.2.5 + Standalone  [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы не хотите устанавливать на свой компьютер громоздких программ по работе с графическими файлами, из-за того, что Вам нужны только некоторые их функции, то утилита XnView Shell Extension может Вам в этом помочь. На что же способна XnView Shell Extension? Она встраивается в контекстное меню Проводника и позволяет просматривать в нем превью изображений или сразу (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6886FB19DAB6FAB79F95B0F43E8A630C967E5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847525   (1052190) от 12.01.2026
-
-XnView MP 1.9.9 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052190.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E1908AE0B0959793099B82029D4A54A5A6AC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840755   (1047454) от 07.12.2025
-
-FastStone Image Viewer 8.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047454.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB932228B497A051604C3E1E79EE285D0B5D2C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840397   (1047255) от 05.12.2025
-
-XnView MP 1.9.8 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047255.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnView MP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40D508DF0E95F64899DE9343B6A56C721657ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840056   (1047041) от 02.12.2025
-
-FastStone Image Viewer 8.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047041.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDF42F9DA27DBE2ADC0C0A4EBB94C39E53D920F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839994   (1046940) от 02.12.2025
-
-FastStone Image Viewer 8.3 Corporate + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046940.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - просмотровщик, редактор и конвертер графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. При установке WEBP кодека поддерживает и этот формат. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C107E7CA91200664C2E6623B7CB510C7FCCB1310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840031   (1046913) от 02.12.2025
-
-XnView MP 1.9.6 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Просмотрщики Графики (вьюверы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046913.jpg" />
-</div>
-
-
-###  Подробнее
-
-XnView MP - мощное многофункциональное приложение для работы с графическими файлами, являющееся расширенной версией программы XnView. По сути этот инструмент может считаться своеобразным медиа-браузером с опциями просмотрщика, конвертера и каталогизатора. XnViewMP поддерживает просмотр более 500 различных графических форматов, а при сохранении (преобразовании) - (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7825D3B79422A8287DE15F5F85B6EB86F995D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

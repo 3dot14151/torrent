@@ -1,3 +1,244 @@
+###  Публикация: 1523022   (754827) от 09.01.2022
+
+Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 And 7 Is (2:28)
+ 02. Rockin' Pneumonia And The Boogie Woogie Flu (3:15)
+ 03. Oh Well (4:31)
+ 04. Jenny Take A Ride! (4:36)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781909   (754029) от 29.04.2014
+
+Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Progressive & Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Shine on You Crazy Diamond  11:46
+2. Learning to Fly 5:34
+3. Yet Another Movie & Round and Around 7:20
+Сторона 2
+1. Sorrow 9:54
+2. The Dogs of War 7:12
+3. On the Turning Away 7:56
+Сторона 3
+1. One Of These Days 6:14(   Читать дальше...   )Жанр: Progressive & Art RockПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663436   (750797) от 02.06.2013
+
+Калинов Мост - Оружие (1998) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сны Сбываются (6:18)
+02. Иного Не Надо (3:17)
+03. Рудники Свободы (5:11)
+04. Родная (5:10)
+05. Не Вернуться (3:49)
+06. Накричали Птицы (3:28)
+07. Горевать Ночью (3:54)
+08. Юные (Ради Славы Дня) (5:10)
+09. Пропадать Молвой (4:24)
+10. Поминать Бессмертных (5:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396096   (749948) от 13.07.2020
+
+Ozzy Osbourne - Diary Of A Madman (1981) AnTrop Unofficial Release, 1993 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749948.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Over The Mountain (Выше гор)
+A2 Flying High Again (Уносящийся ввысь)
+A3 You Can't Kill Rock And Roll (Ты не можешь убить рок-н-ролл)
+A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396183   (748532) от 14.07.2020
+
+Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748532.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Stranger In Town (Dance Mix)
+
+
+(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396333   (748525) от 14.07.2020
+
+Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748525.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Till The End
+A2 We Can Make It Tonight
+A3 Without Your Love
+A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335611   (748033) от 14.07.2020
+
+Diana Krall - 10 альбомов (1996-2009) [FLAC/APE 2.0 24/96 | tracks (VinylRip)]<Jazz>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_748033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайана Кролл (Diana Krall) имеет такую внешность, какую называют "мечта продюсера" — по выражению одного западного журнала. Натуральная блондинка с зелеными глазами.Издали на обложках пластинок ее принимают за Селин Дион (Celine Dion). Дион, кстати, тоже из Канады. Именно в этом порядке: Дион тоже из Канады. Как и Дайана Кролл. А не наоборот. Потому что (   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C390C9A8511FE61C78E55F93B4469D16DAA6F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396481   (746922) от 15.07.2020
+
+Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746922.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Don't Stand A Ghost Of A Chance With You
+A2 Please Don't Talk About Me When I'm Gone
+A3 Nice Work If You Can Get It
+A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396520   (746920) от 15.07.2020
 
 Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
@@ -6,7 +247,7 @@ Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746920.jpg" />
+  <img src="Z:/picture/008/save_picture_746920.jpg" />
 </div>
 
 
@@ -35,7 +276,7 @@ The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746507.jpg" />
+  <img src="Z:/picture/008/save_picture_746507.jpg" />
 </div>
 
 
@@ -64,7 +305,7 @@ The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746374.jpg" />
+  <img src="Z:/picture/008/save_picture_746374.jpg" />
 </div>
 
 
@@ -93,7 +334,7 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745721.jpg" />
+  <img src="Z:/picture/008/save_picture_745721.jpg" />
 </div>
 
 
@@ -119,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
+  <img src="Z:/picture/008/save_picture_743906.jpg" />
 </div>
 
 
@@ -154,7 +395,7 @@ Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+  <img src="Z:/picture/008/save_picture_743627.jpg" />
 </div>
 
 
@@ -183,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
+  <img src="Z:/picture/008/save_picture_743124.jpg" />
 </div>
 
 
@@ -212,7 +453,7 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742980.jpg" />
+  <img src="Z:/picture/008/save_picture_742980.jpg" />
 </div>
 
 
@@ -241,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741879.jpg" />
+  <img src="Z:/picture/008/save_picture_741879.jpg" />
 </div>
 
 
@@ -270,7 +511,7 @@ Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741424.jpg" />
+  <img src="Z:/picture/008/save_picture_741424.jpg" />
 </div>
 
 
@@ -299,7 +540,7 @@ VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740451.jpg" />
+  <img src="Z:/picture/008/save_picture_740451.jpg" />
 </div>
 
 
@@ -328,7 +569,7 @@ Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
+  <img src="Z:/picture/008/save_picture_740426.jpg" />
 </div>
 
 
@@ -357,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740002.jpg" />
+  <img src="Z:/picture/008/save_picture_740002.jpg" />
 </div>
 
 
@@ -383,7 +624,7 @@ B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739660.jpg" />
+  <img src="Z:/picture/008/save_picture_739660.jpg" />
 </div>
 
 
@@ -412,7 +653,7 @@ Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739595.jpg" />
+  <img src="Z:/picture/008/save_picture_739595.jpg" />
 </div>
 
 
@@ -441,7 +682,7 @@ James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Eas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738705.jpg" />
+  <img src="Z:/picture/008/save_picture_738705.jpg" />
 </div>
 
 
@@ -470,7 +711,7 @@ The Chemical Brothers - Dig Your Own Hole (1997) 2016 [FLAC 2.0|96/24|tracks +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738126.jpg" />
+  <img src="Z:/picture/008/save_picture_738126.jpg" />
 </div>
 
 
@@ -499,7 +740,7 @@ VA - 20 Power Hits (1973) As advertised on T.V. [FLAC 2.0|192/24|image+.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738047.jpg" />
+  <img src="Z:/picture/008/save_picture_738047.jpg" />
 </div>
 
 
@@ -513,236 +754,6 @@ Side One:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397762   (737596) от 22.07.2020
-
-The Sugarcubes - Life's Too Good (1991) Recorded April 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737596.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Traitor
-A2 Motorcrash
-A3 Birthday
-A4 Delicious Demon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927F0DB50C4417601C4F1B32DAE43A095DCF26B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397774   (737585) от 22.07.2020
-
-Родриго Фоминс и Группа «Ремикс» - Поет Иго (1989) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Крылья
-(А. Херманис – Р. Фоминс)
-A2 Грибной Дождь
-(Д. Тухманов – С. Кирсанов)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDED09D127024EC26AA4B769EBD6CDDEA3583CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527110   (737329) от 27.01.2022
-
-The Police - Дискография (1978 - 1983, 1993) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <New Wave, Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737329.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Police — британская рок-группа, сформированная в Лондоне в 1977 году. Трио состояло из британцев Гордона Самнера (Стинг) (вокал, бас-гитара) и Энди Саммерса (гитара, вокал) и американца Стюарта Коупленда (ударные, перкуссия, вокал).1978 - Outlandos d'Amour
-1979 - Reggatta de Blanc
-1980 - Zenyatta Mondatta
-1981 - Ghost In The MachineЖанр: New Wave, Pop Rock, Classic RockПродолжительность: 08:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B693B7D9C33DD0FC7BAB201C09B0CF8FCDF97E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527262   (736922) от 28.01.2022
-
-Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
-1989 - No Anaesthesia!
-1990 - Colours
-1991 - Emotional PlaygroundЖанр: Speed/Thrash MetalПродолжительность: 03:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527273   (736879) от 28.01.2022
-
-Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] ] <Trance, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736879.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Armin van Buuren - Imagine
- A2. Armin van Buuren - Going wrong (with Dj Shah feat. Chris Jones)
- B1. Armin van Buuren - Unforgivable (feat. Jaren)
- B2. Armin van Buuren - Face to face(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527582   (736425) от 29.01.2022
-
-Mike Morton Non Stop Party Show Vol. 1 (1973) 30 Great Sounds [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop, Sound-alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736425.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Candy Man
-A2 Come On Over To My Place
-A3 All I Ever Need Is You
-A4 You Can Do Magic(   Читать дальше...   )Жанр: Pop, Sound-alikeПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528134   (735388) от 31.01.2022
-
-Mindfeed - Studio albums (1997-1998) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks +.cue] <Groove Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mindfeed — британская альтернативная метал-группа, основанная в 1996 году при участии Джея Миччича и Глинна Моргана, двух бывших участников прогрессив-метал-группы Threshold.1997 - Perfect Life
-1998 - Ten Miles HighЖанр: Groove Metal, Progressive MetalПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398644   (735169) от 27.07.2020
-
-Opus - Up And Down (1984) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735169.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Up And Down
-A2 Vivian
-A3 There Is Need For
-A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
 ```
 
 https://mybot314.ru/tekegram_catalog/

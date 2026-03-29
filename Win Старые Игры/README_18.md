@@ -1,3 +1,55 @@
+###  Публикация: 1162141   (458741) от 01.09.2017
+
+Wizards and Warriors (2000) [En] (1.0) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пусть сюжет Wizards & Warriors не делает каких-то неожиданных поворотов, пусть каждое слово и каждый мотив вселенских злодеев уже выучены назубок, эта RPG готова удивлять и радовать даже самых матёрых поклонников жанра.Тип издания: LicenseРазработчик: Heuristic ParkЖанр: RPG, 3D, 1st PersonЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102045   (458682) от 12.09.2018
+
+Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.2.2 XPLAY (А)/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к войне и воспользуйтесь изящным искусством стратегии, чтобы сокрушить противника! Не важно, предпочитаете ли вы сложные планы или грубую силу: «Антология Блицкриг» предоставит вам уникальную возможность продемонстрировать ваш полководческий талант. Наносите хирургически точные удары с помощью танков и авиации, чтобы обескровить противника и сделать (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), IsometricЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321449   (458644) от 24.08.2019
 
 Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
@@ -6,7 +58,7 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458644.jpg" />
+  <img src="Z:/picture/008/save_picture_458644.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457733.jpg" />
+  <img src="Z:/picture/008/save_picture_457733.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456874.jpg" />
+  <img src="Z:/picture/008/save_picture_456874.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Patch/Tweak/Trainer/Other для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454558.jpg" />
+  <img src="Z:/picture/008/save_picture_454558.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ultimate Spider-Man [Ru/En] (Repack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454382.jpg" />
+  <img src="Z:/picture/008/save_picture_454382.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ American Civil War: Gettysburg / Гражданская Война: Решающ
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449982.jpg" />
+  <img src="Z:/picture/008/save_picture_449982.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449912.jpg" />
+  <img src="Z:/picture/008/save_picture_449912.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445742.jpg" />
+  <img src="Z:/picture/008/save_picture_445742.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Gangland (2004) [Ru/En] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443499.jpg" />
+  <img src="Z:/picture/008/save_picture_443499.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442988.jpg" />
+  <img src="Z:/picture/008/save_picture_442988.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441207.jpg" />
+  <img src="Z:/picture/008/save_picture_441207.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438767.jpg" />
+  <img src="Z:/picture/008/save_picture_438767.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436598.jpg" />
+  <img src="Z:/picture/008/save_picture_436598.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436359.jpg" />
+  <img src="Z:/picture/008/save_picture_436359.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434165.jpg" />
+  <img src="Z:/picture/008/save_picture_434165.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Warlords: BattleCry 3 (2004) [Ru/En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430395.jpg" />
+  <img src="Z:/picture/008/save_picture_430395.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Jagged Alliance 2 / Jagged Alliance 2: Агония власти (1999) [En] (1.
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430388.jpg" />
+  <img src="Z:/picture/008/save_picture_430388.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429210.jpg" />
+  <img src="Z:/picture/008/save_picture_429210.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Albion (1995) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425816.jpg" />
+  <img src="Z:/picture/008/save_picture_425816.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Overclocked: A History of Violence / Overclocked. Оправданная жес�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422944.jpg" />
+  <img src="Z:/picture/008/save_picture_422944.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422942.jpg" />
+  <img src="Z:/picture/008/save_picture_422942.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Moto Racer (1997) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421099.jpg" />
+  <img src="Z:/picture/008/save_picture_421099.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ MegaRace 3 (2001) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421098.jpg" />
+  <img src="Z:/picture/008/save_picture_421098.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420464.jpg" />
+  <img src="Z:/picture/008/save_picture_420464.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167299   (419071) от 19.09.2017
-
-Moto Racer 2 (1998) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сначала была Moto Racer – незабываемая, динамичная гоночная игра, о которой можно было только мечтать. Потом вышла Moto Racer 2: ее создатели взяли все хорошее из предыдущей игры серии и сделали еще лучше! Еще больше удовольствия со множеством нововведений. Обширный выбор трасс (целых 32!), потрясающая анимация при игре от третьего лица, а отличный вид от первого (   Читать дальше...   )Тип издания: LicenseРазработчик: Delphine SoftwareЖанр: Гонки, Экшн, РаллиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB593E2C20E7FFE3656B9C3CA38AAF89A9EEDA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325486   (411767) от 15.09.2019
-
-Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка горит в Гражданской войне, Север наступает на пятки Югу, Геттисберг уже совсем скоро, но участники конфликта еще об этом не знают. Братья МакКоллы сражаются на стороне Конфедерации. Под командованием полковника Барнсби они, по мере сил, дают отпор Союзу, но решают дезертировать, когда узнают, что их родная ферма в Джорджии разграблена. В желании вернуть потерянное (   Читать дальше...   )Тип издания: LicenseРазработчик: TechlandЖанр: Шутер, Экшн, FPPЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADADFA6B8ADAB4817B3F050EF26303F8A622C72
 ```
 
 https://mybot314.ru/tekegram_catalog/

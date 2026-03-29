@@ -1,3 +1,201 @@
+###  Публикация: 492456   (248267) от 06.05.2012
+
+VA - Новые Хиты Дискотек (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ВИА Гра - Диско
+02. Marina & The Diamonds - Primadonna
+03. Чай Вдвоем - Улетай
+04. Jennifer Lopez feat. Pitbull - Dance Again
+05. Валерий Меладзе - Потерян И Не Найден
+06. Madonna - Girl Gone Wild
+07. Юрий Шатунов - А Лето Цвета
+08. Michel Telo - Ai Se Te Ue Pego (Sagi Abitbul Remix)
+09. 5sta Family - Вместе Мы
+10. Yolanda Be Cool feat Crystal Waters - Le Bump2012Жанр: PopПродолжительность: 05:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2E7097939499DB7B764CF08EB7CE0CE040C1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492014   (247961) от 05.05.2012
+
+VA - Двигай Попой 50\50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sak Noel - Paso (The Nini Anthem)
+02. Нюша - Выше (DJ Rich-Art Remix)
+03. Pitbull feat. Chris Brown - International Love
+04. Ева Польна - Я тебя тоже нет (Je T'aime)
+05. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
+06. Aksioma Project feat. Борис Бредин - When The Sun Shining
+07. Bob Sinclar feat. Pitbull, Dragonfly, Fatman Scoop - Rock The Boat (Radio Edit)
+08. Sasha Dith & Steve Modana & Саша Зверева - Супербой
+09. DJ M.E.G. feat. Sergei Lazarev & Timati - Moscow to California
+10. Митя Фомин - Садовник (DJ Tarantino Remix)2012Жанр: PopПродолжительность: 05:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7C90C820D5210FD1AF1D24AE4052A4B4120D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491773   (246513) от 04.05.2012
+
+VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246513.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Елена Лордес - Ангелы (3:57)
+2. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
+3. Шима - Океан (3:22)
+4. Женя Юдина Feat. Pawbeat - Небо Это Я (4:10)
+5. Вельвеt - Нанолюбовь (LaTrack mix) (4:15)
+6. Лера Массква - Про тебя (3:18)
+7. V2G Feat. Женя Юдина - На Осколках Планет (2:51)
+8. Валерий Меладзе - Потерян И Не Найден (4:02)
+9. Тимати Feat. Аида – Fantasy (3:02)
+10. Ольга Плотникова - Лето (3:30)2012Жанр: PopПродолжительность: 06:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491314   (246335) от 03.05.2012
+
+VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Reflex - Первый Раз (Версия 2012)
+002 Nikita - 2012 (Video Version)
+003 Dj Fudge - My Budem Vmeste
+004 Алсу - Утро Надежд
+005 Авраам Руссо - Нелюбимая
+006 Samol Feat. A - Sen - Малиновые Сны (Dj Movskii & Dj Karasev Official Extended Rework)
+007 Алисия - Поцелуй Меня (Ночное Движение Remix)
+008 Анна Суворова - Слезы На Твоей Подушке
+009 Аника - Прятки
+010 Стас Пьеха - Старая История2012Жанр: PopПродолжительность: 06:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963E74EE737EED00F26590255E349AF94370034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833367   (246165) от 01.11.2025
+
+Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Goditi il momento 3  version
+ 02 - Nel silenzio di te 1  version
+ 03 - Ti voglio bene 1  version
+ 04 - Amaro in bocca(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FAF470BE483A3006F43006AA29E87BD42798BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447714   (246031) от 14.02.2021
+
+VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство популярных радиостанций часто выпускают сборники популярных песен для своих радиослушателей, чтобы у них всегда была возможность слушать любимую музыку в непрерывном формате. Радиостанция "Pop Corn" не отстает от своих конкурентов и выпустила сборник из 100 лучших народных хитов, звучащих на ее волнах и имеющих наибольшую популярность среди (   Читать дальше...   )001. Adam Davenport - Like Me
+002. Colombre - Arcobaleno
+003. Martina Pecoraro - Fino Al Prossimo Abbraccio
+004. Tekin Kesen - Happiness(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E167BDED85E2732E09F90A5C39930594AF76DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530685   (244528) от 12.02.2022
 
 VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
@@ -6,7 +204,7 @@ VA - German Top 100 Single Charts 11.02.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244528.jpg" />
+  <img src="Z:/picture/004/save_picture_244528.jpg" />
 </div>
 
 
@@ -35,7 +233,7 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244410.jpg" />
 </div>
 
 
@@ -64,7 +262,7 @@ VA - Музыкальный Заряд 4 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244182.jpg" />
 </div>
 
 
@@ -93,7 +291,7 @@ VA - Горячий хитовый драйв. Выпуск 6 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244117.jpg" />
 </div>
 
 
@@ -122,7 +320,7 @@ VA - Осенний динамит. Русский выпуск (2016) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244097.jpg" />
 </div>
 
 
@@ -151,7 +349,7 @@ VA - Горячий хитовый драйв 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243977.jpg" />
+  <img src="Z:/picture/004/save_picture_243977.jpg" />
 </div>
 
 
@@ -180,7 +378,7 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243958.jpg" />
+  <img src="Z:/picture/004/save_picture_243958.jpg" />
 </div>
 
 
@@ -209,7 +407,7 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243936.jpg" />
+  <img src="Z:/picture/004/save_picture_243936.jpg" />
 </div>
 
 
@@ -238,7 +436,7 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243850.jpg" />
+  <img src="Z:/picture/004/save_picture_243850.jpg" />
 </div>
 
 
@@ -267,7 +465,7 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243766.jpg" />
+  <img src="Z:/picture/004/save_picture_243766.jpg" />
 </div>
 
 
@@ -296,7 +494,7 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243727.jpg" />
+  <img src="Z:/picture/004/save_picture_243727.jpg" />
 </div>
 
 
@@ -325,7 +523,7 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243617.jpg" />
+  <img src="Z:/picture/004/save_picture_243617.jpg" />
 </div>
 
 
@@ -354,7 +552,7 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243609.jpg" />
+  <img src="Z:/picture/004/save_picture_243609.jpg" />
 </div>
 
 
@@ -383,7 +581,7 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243533.jpg" />
+  <img src="Z:/picture/004/save_picture_243533.jpg" />
 </div>
 
 
@@ -412,7 +610,7 @@ VA - Звездная вечеринка. Зарядись хитами. Час�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243277.jpg" />
+  <img src="Z:/picture/004/save_picture_243277.jpg" />
 </div>
 
 
@@ -441,7 +639,7 @@ VA - Заключительная осенняя дискотека. Верси�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243250.jpg" />
+  <img src="Z:/picture/004/save_picture_243250.jpg" />
 </div>
 
 
@@ -470,7 +668,7 @@ VA - National Pop Dance Music (Vol.32) (2022) [MP3|320 Kbps] <Pop, Dance, Folk S
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243224.jpg" />
+  <img src="Z:/picture/004/save_picture_243224.jpg" />
 </div>
 
 
@@ -499,7 +697,7 @@ VA - German Top 100 Single Charts 25.03.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243153.jpg" />
+  <img src="Z:/picture/004/save_picture_243153.jpg" />
 </div>
 
 
@@ -528,7 +726,7 @@ VA - Звездная вечеринка. Зарядись хитами. Вып�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243029.jpg" />
 </div>
 
 
@@ -557,7 +755,7 @@ VA - German Top 100 Single Charts 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242889.jpg" />
+  <img src="Z:/picture/005/save_picture_242889.jpg" />
 </div>
 
 
@@ -571,180 +769,6 @@ VA - German Top 100 Single Charts 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF50EBA547BB0443227910BD5E0F546952C8CA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543450   (242470) от 11.04.2022
-
-VA - National Pop Dance Music (Vol.33) (2022) [MP3|320 Kbps] <Pop, Dance, Shlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам очередной 33-й релиз проекта "National Pop Dance Music", в котором вы сможете найти для себя самые лучшие и самые признанные хиты европейской популярной национальной музыки уходящего месяца. Только самая качественная танцевальная музыка весеннего сезона ждет Вас на треках позитивного лонгплея!001. Freya - Du Hast Mich Tausendmal Belogen
-002. Everglow - Don't Speak
-003. Faren - Sors De Ma Vue
-004. A.Takalo & Takavalot - Tabula Rasa(   Читать дальше...   )Жанр: Pop, Dance, ShlagerПродолжительность: 08:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72A04557B85978A4A5379BA9F34A34FAA7AEE796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624981   (242077) от 08.04.2023
-
-VA - German Top 100 Single Charts 07.04.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. RAF Camora & Luciano - All Night (2:33)
-002. Udo Lindenberg & Apache 207 - Komet (2:47)
-003. Apache 207 - Breaking your heart (2:50)
-004. Miley Cyrus - Flowers (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13C006B9EE00CAB6956CBBB2CB440E236044E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108458   (242023) от 25.02.2017
-
-VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Brown feat. Usher & Gucci Mane - Party 5:02
-002. Missy Elliot Ft. Lamb - I'm Better 3:33
-003. Migos Ft. Lil Uzi Vert - Bad And Boujee 5:35
-004. Busta Rhymes Ft. Swizz Beatz - Aaahhhh!!! 2:37(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 02:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B4F41DEA9455A6AC2D7E02E8910FDED0763936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108435   (241992) от 25.02.2017
-
-VA - Музыкальный презент хорошей музыки от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Helena Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
-002. Tiana - Мне Так Жаль 3:44
-003. Kami - Бегу 3:42
-004. Fargo Feat. Arma - Танцемания 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C45C9FC9F222216556DDFC1722993379E0AC26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108474   (241860) от 25.02.2017
-
-VA - German Top 100 Single Charts 24.02. (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You 3:54
-002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) 4:05
-003. Kygo & Selena Gomez - It Ain't Me 3:41
-004. The Chainsmokers - Paris 3:42(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15B8484871195B767EB7510AB35928523426669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378404   (241516) от 25.04.2020
-
-VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Drake - Toosie Slide
-03. SAINt JHN - Roses
-04. Samra & Capital Bra - 365 Tage(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4B4CE173C7589170351B1484AA949BFAF17360
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368792.jpg" />
+  <img src="Z:/picture/008/save_picture_368792.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bandolier Kings - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368482.jpg" />
+  <img src="Z:/picture/008/save_picture_368482.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ AlleHackbar - Play It Fucking Loud (2015) [MP3|320 кб/с]<Hard Rock, Glam Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367765.jpg" />
+  <img src="Z:/picture/008/save_picture_367765.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Fans Of The Dark - Suburbia (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364156.jpg" />
+  <img src="Z:/picture/008/save_picture_364156.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ House Of Lords - Saints And Sinners (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364048.jpg" />
+  <img src="Z:/picture/008/save_picture_364048.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bonfire - Legends (2018) 2CD [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363838.jpg" />
+  <img src="Z:/picture/008/save_picture_363838.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sweet & Lynch - Unified (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362990.jpg" />
+  <img src="Z:/picture/008/save_picture_362990.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362758.jpg" />
+  <img src="Z:/picture/008/save_picture_362758.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Def Leppard - Def Leppard (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362487.jpg" />
+  <img src="Z:/picture/008/save_picture_362487.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Black Sabbath - The Ozzy Osbourne Years (1991) 3 CD Set  [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361020.jpg" />
+  <img src="Z:/picture/008/save_picture_361020.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ White Widdow - 5 Альбомов (2010-2018) [MP3|320 кб/с]<Melodic Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361011.jpg" />
+  <img src="Z:/picture/008/save_picture_361011.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Funky Junction - Play A Tribute To Deep Purple (1973) [MP3|256 кб/с]<Classic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360808.jpg" />
+  <img src="Z:/picture/008/save_picture_360808.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - 101 Hits Rock Legends (Box Set 4CD) (2009) [MP3|320 кб/с]<Classic Rock &
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359936.jpg" />
+  <img src="Z:/picture/008/save_picture_359936.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Eclipse - Paradigm (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356508.jpg" />
+  <img src="Z:/picture/008/save_picture_356508.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tragik - Faith Healer (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355736.jpg" />
+  <img src="Z:/picture/008/save_picture_355736.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Overdrivers - Rockin' Hell (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354776.jpg" />
+  <img src="Z:/picture/008/save_picture_354776.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [MP3|320 Kbps] <Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354023.jpg" />
+  <img src="Z:/picture/008/save_picture_354023.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dog 'N' Style - Pub's Calling (2016) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352385.jpg" />
+  <img src="Z:/picture/008/save_picture_352385.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Juicy Lucy - Juicy Lucy (1969) / 2006, Air Mail Archive / [MP3|320 кб/с]<Blue
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351548.jpg" />
+  <img src="Z:/picture/008/save_picture_351548.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Karla - Karla (1990) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350846.jpg" />
+  <img src="Z:/picture/008/save_picture_350846.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Morly Grey - The Only Truth (1972) / 2000, Akarma / [MP3|320 кб/с]<Psychedeli
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349564.jpg" />
+  <img src="Z:/picture/008/save_picture_349564.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Nova Rex - Rock Star Roadshow (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349208.jpg" />
+  <img src="Z:/picture/008/save_picture_349208.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Irish Coffee - Heaven (2020) [MP3|320 Kbps] <Hard Rock, Classic Rock, Blues Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346799.jpg" />
+  <img src="Z:/picture/008/save_picture_346799.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ The Great Whitecross & Guardian - Revival (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344566.jpg" />
+  <img src="Z:/picture/008/save_picture_344566.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Scorpions - Animal Magnetism (1980) 50th Anniversary Deluxe Edition /2015, BMG/ 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344395.jpg" />
+  <img src="Z:/picture/008/save_picture_344395.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ Scorpions - Blackout (1982) 50th Anniversary Deluxe Edition /2015, BMG/  [MP3|32
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344257.jpg" />
+  <img src="Z:/picture/008/save_picture_344257.jpg" />
 </div>
 
 

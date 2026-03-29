@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749608.jpg" />
+  <img src="Z:/picture/005/save_picture_749608.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AdminPE10 1.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749606.jpg" />
+  <img src="Z:/picture/005/save_picture_749606.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Roger Waters - 10 albums, 1 Box set, 23 CD (1970-2018) [FLAC|Lossless|image + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749598.jpg" />
+  <img src="Z:/picture/005/save_picture_749598.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ K-Lite Codec Pack 14.7.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749597.jpg" />
+  <img src="Z:/picture/005/save_picture_749597.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749592.jpg" />
+  <img src="Z:/picture/005/save_picture_749592.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VeraCrypt 1.25.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749559.jpg" />
+  <img src="Z:/picture/005/save_picture_749559.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CleanMyMac X 4.10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749549.jpg" />
+  <img src="Z:/picture/005/save_picture_749549.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Implosion - Never Lose Hope 1.0.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749546.jpg" />
+  <img src="Z:/picture/008/save_picture_749546.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749543.jpg" />
+  <img src="Z:/picture/008/save_picture_749543.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ AVG AntiVirus 2015 15.0.5941 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749538.jpg" />
+  <img src="Z:/picture/008/save_picture_749538.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749536.jpg" />
+  <img src="Z:/picture/008/save_picture_749536.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ IObit Driver Booster Pro 3.4.0.769 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749483.jpg" />
+  <img src="Z:/picture/008/save_picture_749483.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sublime Text 3 Build 3114 Beta + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749482.jpg" />
+  <img src="Z:/picture/008/save_picture_749482.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ John Alchemy - Arcanus Cantus (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749433.jpg" />
+  <img src="Z:/picture/008/save_picture_749433.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PrivaZer 3.0.44 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749430.jpg" />
+  <img src="Z:/picture/008/save_picture_749430.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PrivaZer 3.0.44 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749424.jpg" />
+  <img src="Z:/picture/008/save_picture_749424.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749398.jpg" />
+  <img src="Z:/picture/008/save_picture_749398.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ AVG Internet Security 2015 15.0.5941 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749360.jpg" />
+  <img src="Z:/picture/008/save_picture_749360.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Hammock - EP's, Singles and Remixes (2013) [FLAC|Lossless]<Ambient, Post-Rock, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749339.jpg" />
+  <img src="Z:/picture/008/save_picture_749339.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ FreeFileSync 9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749329.jpg" />
+  <img src="Z:/picture/008/save_picture_749329.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Audio Hijack 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749322.jpg" />
+  <img src="Z:/picture/008/save_picture_749322.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749218.jpg" />
+  <img src="Z:/picture/008/save_picture_749218.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Internet Download Manager 6.30 Build 8 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749208.jpg" />
+  <img src="Z:/picture/008/save_picture_749208.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749180.jpg" />
+  <img src="Z:/picture/008/save_picture_749180.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Mailbird Pro 2.5.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749096.jpg" />
+  <img src="Z:/picture/008/save_picture_749096.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ WavePad Sound Editor Masters Edition 8.02 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749092.jpg" />
+  <img src="Z:/picture/008/save_picture_749092.jpg" />
 </div>
 
 

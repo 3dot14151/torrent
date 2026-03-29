@@ -1,3 +1,108 @@
+###  Публикация: 1478107   (1010254) от 19.06.2021
+
+Opera 77.0.4054.90 Portable by JolyAnderson [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera – веб-браузер, разрабатываемый компанией Opera Software, особенностью которого является поддержка встроенного VPN-клиента, блокировщика рекламы, возможность менять внешний вид, кастомизировать вкладку быстрого доступа и многое другое.
+Вашему вниманию предоставляется Portable версия Opera.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD5F76ACE62B5A34A8CF83E175233FB7087D01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478151   (1009759) от 22.06.2021
+
+Яхта стоимостью $700.000.000 – новейший корабль для исследования климата
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о суперяхте Джеффа Безоса. Судно для исследования климата Earth 300 настолько велико, что может посрамить даже Титаник.Спроектированная длиной 300 метров и увенчанное 13-этажной «научной сферой», Earth 300 была задумана военно-морским архитектором Иваном Саласом Джефферсоном (основателем Iddes Yachts) как факелоносец мировой науки. Судно оснащено 22 современными (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438026   (1009615) от 23.06.2021
+
+Обыкновенный фашизм (1965) DVDRip [H.264] [10-bit] (части 1-2 из 2)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-монолог, фильм-исследование. Но исследование не фашизма в целом и тем более не детальный анализ всех его чудовищных массовых преступлений. Нет, это исследование природы фашизма, той питательной среды, на которой вызрели его споры. Исследование не одного только «фюрера», хотя и его тоже, ибо, словами Генриха Манна, «Свет никогда не узнал бы, до какой грязной (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноСубтитры: НетПродолжительность: 02:10:07 (01:08:02+01:02:05)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D15B2DE902AB2A72F162BC14D3E75E8643B4F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479544   (1009499) от 24.06.2021
+
+Opera 77.0.4054.146 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB15446C935697F3B0D6CD0AB8D8633335EC547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 381413   (1009353) от 25.06.2021
 
 Звездный путь: Дальний космос 9 / Star Trek: Deep Space Nine (1993-1999) DVDRip (сезон 1-7, серии 1-173 из 173) FUNTik, Yrich&Natasha
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009353.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009223.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009054.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Microsoft призналась в подписании вредоносного 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008910.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008897.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008874.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008792.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. / What Happened When I Shaved My Beard
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008774.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008772.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Royal Quest: Тьма наступает (2012) [Ru] (1.2.095) License (обно
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008761.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008509.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Topaz Video Enhance AI 2.3.0 RePack (& Portable) by TryRooM [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008504.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008360.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007503.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007200.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Ventoy 1.0.46 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007054.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006328.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006306.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ Solar Fields - Discography 40 Releases (2001-2021) Ultimae Records, E.A.R.S, Sid
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006303.jpg" />
 </div>
 
 
@@ -505,7 +610,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.17.07.21) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006182.jpg" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005976.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005954.jpg" />
 </div>
 
 
@@ -571,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CD1D9DF23669E1C48338BAB297DF4F000F8BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276373   (1005952) от 20.07.2021
-
-Улика из прошлого (2019) SATRip (сезон 4, серий 37 из ??)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никто не может сказать, что это было: случайная смерть или спланированное убийство. Известно одно: эти события потрясли современников и иногда даже повлияли на ход истории. Свидетелей и очевидцев давно нет в живых. И, казалось бы, ничто не может пролить свет на эти загадочные происшествия. Но так ли это? Вооружившись новейшими научными открытиями, попробуем возобновить (   Читать дальше...   )Производство: Россия, ООО «Студия-А» по заказу ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, история, криминалПродолжительность: 37 х ~ 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7EA5A1E1776FDDBAACBC3A82A72251D22900FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484552   (1005846) от 21.07.2021
-
-Ага (2021) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бахытжан Абдулаев — бывший меч трех Жузов — после громких дел в прошлом, перенеся утрату близких людей, оставляет криминальный путь. Уединившись в горах, он проживает жизнь отшельником. Однако, весть о жестоком убийстве родного племянника нарушает его спокойствие и идиллию. Баха узнает, что виновником является Сакен — сын местного олигарха Сансызбая, опасного и влиятельного (   Читать дальше...   )Производство: КазахстанЖанр: Боевик, триллерРежиссер: Фархат СеркебаевАктеры: Мурат Бисенбин, Азамат Ибраев, Болат Абдильманов, Фархад Абдраимов, Александр Устюгов, Марйам Сатаева, Руслан Каирбаев, Нурсултан Мухаметжанов, Руслан Акылбаев, Руслан НыгмановПеревод: Не требуется (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392667E5A8E9267FEA1501BCBCC135273D283CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265358   (1005746) от 22.07.2021
-
-Пуаро / Пуаро Агаты Кристи / Poirot (1989-2010) DVDRip (сезон 1-12, серии 1-65 из 65 + дополнения)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неповторимая походка, беспрецедентный педантизм, бельгийский акцент, вечная спутница - трость, особая форма усов... И, конечно же, "серые клеточки", которые не знают покоя и отдыха. Да, это именно он - знаменитый Эркюль Пуаро, сыщик, без которого сложно себе представить классический английский детектив. Найти преступника и вывести его на чистую воду - для (   Читать дальше...   )Производство: Великобритания / Carnival Film & Television, London Weekend Television (LWT), Picture Partnership ProductionsЖанр: триллер, детектив, драма, криминалРежиссер: Эдвард Беннет, Ренни Рай, Эндрю ГривАктеры: Дэвид Суше, Хью Фрейзер, Филип Джексон, Полин Моран, Дэвид Йелленд, Зоэ Уонамейкер, Ричард Бебб, Джордж Литтл, Филип Маникам, Джона ДжонсПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: русские (отдельно)Продолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214C29CC8F070F33FF72AD5C516915F3D1E0D315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475090   (1005624) от 23.07.2021
-
-Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (1.0.7026711/dlc) Repack Other s [Deluxe Arsenal Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sniper Ghost Warrior Contracts 2 — самая сложная игра в прославленной серии, ведь вам придется поражать цели на невероятном расстоянии больше 1000 метров. Вас ждет захватывающая одиночная кампания, действие которой проходит в наши дни на Ближнем Востоке, и динамичные тактические бои в глубине вражеской территории. Вы — Raven, наемный киллер-снайпер, взявшийся за (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F0DEF7C4202221DA6D53E3C4AE95D0294BC46B
 ```
 
 https://mybot314.ru/tekegram_catalog/

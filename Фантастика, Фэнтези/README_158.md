@@ -1,3 +1,59 @@
+###  Публикация: 1322421   (448029) от 29.08.2019
+
+Константин Калбазов | Пандора: Карантин (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Пандора».
+
+Сколько написано книг, снято фильмов и разработано игр о зомби-апокалипсисе? Посчитать, конечно, получится, но много. Очень много. Казалось бы, все прекрасно знают, как нужно действовать в подобной ситуации, и у вируса попросту нет шансов. Вот только ерунда все это. И Дмитрий сумел в этом убедиться лично. Как, впрочем, и те, кто затеял (   Читать дальше...   )Жанр: Фантастика, Боевая фантастика, Героическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896A312893EF6C42A55CDDCE8818C54639DB5E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163357   (447998) от 06.09.2017
+
+Роберт Хайнлайн | Дверь в Лето (2017) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое живое существо на Земле стремится найти Дверь в Лето. Где тепло, нет холода, нет войны, ненависти, обиды. Где тебя не предаст друг, не обманет невеста.
+В знаменитом романе Роберта Хайнлайна такую Дверь в Лето ищут Дэниел Бун Дэвис и его кот Петроний Арбитр, вполне вежливое животное – когда его не гладят против шерсти и не хлопают по спине.
+Чтобы найти Дверь (   Читать дальше...   )Жанр: Научная Фантастика, Социальная фантастикаПеревод: Александр БранскийФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F983CCC59B3D8365B594D745235B46A52CCB14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039813   (447837) от 10.10.2016
 
 Алексей Трефилов | Шустрый. Рождение воина (2016) [FB2]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447837.jpg" />
+  <img src="Z:/picture/008/save_picture_447837.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447834.jpg" />
+  <img src="Z:/picture/008/save_picture_447834.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447723.jpg" />
+  <img src="Z:/picture/008/save_picture_447723.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447239.jpg" />
+  <img src="Z:/picture/008/save_picture_447239.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446568.jpg" />
+  <img src="Z:/picture/008/save_picture_446568.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446237.jpg" />
+  <img src="Z:/picture/008/save_picture_446237.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446171.jpg" />
+  <img src="Z:/picture/008/save_picture_446171.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446164.jpg" />
+  <img src="Z:/picture/008/save_picture_446164.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446134.jpg" />
+  <img src="Z:/picture/008/save_picture_446134.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445833.jpg" />
+  <img src="Z:/picture/008/save_picture_445833.jpg" />
 </div>
 
 
@@ -277,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445707.jpg" />
+  <img src="Z:/picture/008/save_picture_445707.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445535.jpg" />
+  <img src="Z:/picture/008/save_picture_445535.jpg" />
 </div>
 
 
@@ -329,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445058.jpg" />
+  <img src="Z:/picture/008/save_picture_445058.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444661.jpg" />
+  <img src="Z:/picture/008/save_picture_444661.jpg" />
 </div>
 
 
@@ -381,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444660.jpg" />
+  <img src="Z:/picture/008/save_picture_444660.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444603.jpg" />
+  <img src="Z:/picture/008/save_picture_444603.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444565.jpg" />
+  <img src="Z:/picture/008/save_picture_444565.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444558.jpg" />
+  <img src="Z:/picture/008/save_picture_444558.jpg" />
 </div>
 
 
@@ -491,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444501.jpg" />
+  <img src="Z:/picture/008/save_picture_444501.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444393.jpg" />
+  <img src="Z:/picture/008/save_picture_444393.jpg" />
 </div>
 
 
@@ -545,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444190.jpg" />
+  <img src="Z:/picture/008/save_picture_444190.jpg" />
 </div>
 
 
@@ -573,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444135.jpg" />
+  <img src="Z:/picture/008/save_picture_444135.jpg" />
 </div>
 
 
@@ -600,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444054.jpg" />
+  <img src="Z:/picture/008/save_picture_444054.jpg" />
 </div>
 
 
@@ -628,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444012.jpg" />
+  <img src="Z:/picture/008/save_picture_444012.jpg" />
 </div>
 
 
@@ -640,61 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E65ED0DBB6A79C5D2D2BF0918E21BD22CD3B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322843   (443983) от 31.08.2019
-
-Михаил Нестеров | Комэск (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный летчик ВКС Российской Федерации Олег Северов после гибели попадает в прошлое. Он снова молод и здоров, но на дворе весна 1941 года, скоро начнется Великая Отечественная война, а у него на руках направление в истребительный авиаполк, дислоцирующийся на территории Западной Украины. Шансов выжить в жуткой «мясорубке» первых недель войны немного… Знания и опыт, (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A554EAF3AC4EE0B29859E2D15D671F82DC2A2C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164221   (443687) от 08.09.2017
-
-Татьяна Зинина | Наследники магии. Шагая над бездной (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Маги Семирской империи».
-
-В Семирской империи магия – зло, которое необходимо искоренить, а все маги – преступники, коим прямая дорога на костер.
-Следователь отдела по борьбе с магами Элира Тьёри по праву заслужила свою должность и признание начальства. Но однажды в преддверии праздника Смерти магии судьба свела ее с молодым мужчиной. Увы, в тот (   Читать дальше...   )Жанр: Детективное фэнтези, Книги про волшебников, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BDE1072660D2E3F1E3ECD990FA5CB219A18AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

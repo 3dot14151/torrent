@@ -1,3 +1,96 @@
+###  Публикация: 504978   (611121) от 02.08.2013
+
+Oomph! - Des Wahnsinns Fette Beute (Deluxe Edition) (2012) [FLAC|Lossless]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_611121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Unzerstorbar (3:41)
+02 – Zwei Schritte Vor (4:23)
+03 – Such Mich Find Mich (3:31)
+04 – Bis Der Spiegel Zerbricht (3:36)
+05 – Die Geister Die Ich Rief (3:06)
+06 – Bonobo (4:00)
+07 – Deine Eltern (4:03)
+08 – Kleinstadtboy (4:01)
+09 – Regen (4:14)
+10 – Kosmonaut (4:01)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912464   (610981) от 26.06.2015
+
+Scavanger - Between the Devil and the Sea (2011) [FLAC|image +cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Rebirth
+03. The Last Judgement
+04. Stalker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A770422030624572F27EBBF62229962DA2639A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912467   (610883) от 26.06.2015
+
+Reflection - The Fire Still Burns... (1999) [FLAC|image +cue]<Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn the Witch
+02. Reflection
+03. The Wings of Fate
+04. The Wheel of Fortune(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CDD9F901579139DE65C93A0F6862ADD747CA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546028   (609636) от 22.04.2022
 
 Crossplane - Fastlane (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +99,7 @@ Crossplane - Fastlane (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609636.jpg" />
+  <img src="Z:/picture/008/save_picture_609636.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ Udo Dirkschneider - My Way (2022) Cover Album [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609484.jpg" />
+  <img src="Z:/picture/008/save_picture_609484.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ Slowmotion Apocalypse - Obsidian (2007) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609110.jpg" />
+  <img src="Z:/picture/008/save_picture_609110.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ Ride The Sky - New Protection (2007) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608751.jpg" />
+  <img src="Z:/picture/008/save_picture_608751.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ Ancestor - Lords of Destiny (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608717.jpg" />
+  <img src="Z:/picture/008/save_picture_608717.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ Winter - Into Darkness - Eternal Frost (1999) [APE|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607730.jpg" />
+  <img src="Z:/picture/008/save_picture_607730.jpg" />
 </div>
 
 
@@ -180,7 +273,7 @@ Udo Dirkschneider - My Way (2022) Cover Album [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607682.jpg" />
+  <img src="Z:/picture/008/save_picture_607682.jpg" />
 </div>
 
 
@@ -209,7 +302,7 @@ Asmegin - Arv (2008) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607127.jpg" />
+  <img src="Z:/picture/008/save_picture_607127.jpg" />
 </div>
 
 
@@ -238,7 +331,7 @@ Circle of Silence - The Crimson Throne (2018) [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607046.jpg" />
+  <img src="Z:/picture/008/save_picture_607046.jpg" />
 </div>
 
 
@@ -267,7 +360,7 @@ Michael Romeo - War Of The Worlds, Pt. 2 (2022) 2xCD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605938.jpg" />
+  <img src="Z:/picture/008/save_picture_605938.jpg" />
 </div>
 
 
@@ -296,7 +389,7 @@ Opera Diabolicus - 1614 (2012) [FLAC|Lossless]<Dark Metal, Gothic Metal, Metal O
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605793.jpg" />
+  <img src="Z:/picture/005/save_picture_605793.jpg" />
 </div>
 
 
@@ -329,7 +422,7 @@ Terrifier - Weapons of Thrash Destruction (2017) Japan [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605751.jpg" />
+  <img src="Z:/picture/008/save_picture_605751.jpg" />
 </div>
 
 
@@ -358,7 +451,7 @@ Absolva - Beyond Live (2013) [FLAC|image + cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605448.jpg" />
+  <img src="Z:/picture/008/save_picture_605448.jpg" />
 </div>
 
 
@@ -387,7 +480,7 @@ Airspeed - Airspeed (2012) [FLAC|image + cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605446.jpg" />
+  <img src="Z:/picture/008/save_picture_605446.jpg" />
 </div>
 
 
@@ -416,7 +509,7 @@ Absolva - Anthems To The Dead (2014) [FLAC|image + cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605445.jpg" />
+  <img src="Z:/picture/008/save_picture_605445.jpg" />
 </div>
 
 
@@ -445,7 +538,7 @@ Necrophagist - Epitaph (2004) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605244.jpg" />
+  <img src="Z:/picture/008/save_picture_605244.jpg" />
 </div>
 
 
@@ -474,7 +567,7 @@ Ripping Corpse - Dreaming With The Dead (1991) [FLAC|Lossless|image + .cue] <Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604879.jpg" />
+  <img src="Z:/picture/008/save_picture_604879.jpg" />
 </div>
 
 
@@ -503,7 +596,7 @@ Ocean Grove - Up In The Air Forever (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604603.jpg" />
+  <img src="Z:/picture/008/save_picture_604603.jpg" />
 </div>
 
 
@@ -532,7 +625,7 @@ Destruction - Diabolical (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604491.jpg" />
+  <img src="Z:/picture/008/save_picture_604491.jpg" />
 </div>
 
 
@@ -561,7 +654,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) Deluxe Edition, 3CD [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604482.jpg" />
+  <img src="Z:/picture/008/save_picture_604482.jpg" />
 </div>
 
 
@@ -590,7 +683,7 @@ Kill The Lights - The Sinner (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604481.jpg" />
+  <img src="Z:/picture/008/save_picture_604481.jpg" />
 </div>
 
 
@@ -619,7 +712,7 @@ Cromonic  - Time (2017) [FLAC|lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604470.jpg" />
+  <img src="Z:/picture/008/save_picture_604470.jpg" />
 </div>
 
 
@@ -648,7 +741,7 @@ Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|image + .cue] <NWOBHM, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604299.jpg" />
+  <img src="Z:/picture/008/save_picture_604299.jpg" />
 </div>
 
 
@@ -663,93 +756,6 @@ Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|image + .cue] <NWOBHM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:746AC473CB3ACCAFA190A0A0F2FB62D4E931B577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297587   (603603) от 23.04.2019
-
-Trollfest - Norwegian Fairytales (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fjøsnissens Fjaseri (03:19)
-02. Kjettaren Mot Strømmen (03:51)
-03. Espen Bin Askeladden (04:05)
-04. Trine Reinlender (01:21)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E06192F03B7D872A813DE7F9AA1A54837432DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547307   (603473) от 27.04.2022
-
-Speckmann Project - Fiends of Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Oldschool>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Absolute Power [00:02:28]
-02 - Indifferent [00:02:37]
-03 - A Sick Carnival [00:02:09]
-04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073DB337C6982981D8A7070122B4DC0E53C9D5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547215   (603464) от 27.04.2022
-
-Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алтарь блудниц (8:54)
-02. Сквозь ночь Фобетора (6:46)
-03. Эшафот (8:29)
-04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
 ```
 
 https://mybot314.ru/tekegram_catalog/

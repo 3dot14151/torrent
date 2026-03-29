@@ -1,3 +1,107 @@
+###  Публикация: 1261430   (503207) от 29.07.2019
+
+BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные методы войны безжалостны, сто лет назад они были невообразимыми. Только побывавшие там, знают, на что это было похоже. Во время Первой мировой войны, британские войска сталкиваются с ужасами битвы при Монсе в 1914 году, внутренними противоречиями в 1916 году и новой войной - танковой в 1918 году. Фильм основан на рассказах очевидцев.Телекомпания: Великобритания, BBCЖанр: Документальная драма, война, история, реконструкцияРежиссер: Брюс Гудисон, Бен ЧананПеревод: Многоголосый закадровый, профессиональный (компания «SDI Media»)Продолжительность: 3 х ~ 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37155E2D49EC73A8AE98B2F346517CC3871B06F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316999   (503205) от 29.07.2019
+
+Как мы до этого додумались / How We Got to Now (2014) BDRemux [H.264/1080i] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал "Как мы до этого додумались со Стивеном Джонсоном" раскроет историю зарождения замечательных идей, которые сделали возможной нашу современную жизнь, и познакомит с их незаслуженно забытыми авторами и неожиданными последствиями их изобретений.Производство: Великобритания, США, BBC Worldwide Americas, BBC, NutopiaЖанр: Документальный, познавательный, научно-популярныйРежиссер: Ник Стейси, Джулиан Джонс, Пол ОлдингПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: АнглийскиеПродолжительность: 6 x ~ 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0445EB04897C5CE8360F7EE9938FCB773D4AAE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316963   (503204) от 29.07.2019
+
+Воронья стая / A Murder of Crows (2010) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм рассказывает о необычайном интеллекте обыкновенных черных птиц - загадочных и непонятых человеком воронах обыкновенных.Производство: Канада, Optix Digital Pictures, Rubin Tarrant Productions, Public Broadcasting Service (PBS)Жанр: Документальный, природа, исследованияРежиссер: Сьюзан ФлемингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548385A30AD51185DE41667CD78A2E0AE8FFB0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316961   (503119) от 29.07.2019
+
+NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503119.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью новейших спецэффектов учёные рассмотрят возможности приспособления больших кошек к разным экстремальным сценариям будущего.Производство: США, Big Machine Design, Nat Geo WildЖанр: Документальный, познавательный, научно-популярныйРежиссер: Стив ПетерсенПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD7E0CECFB7891F5A8C3732DD493BD93E5FC24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317181   (502228) от 30.07.2019
 
 Animal Planet. Земля зверей. Тигры-убийцы / Beast Lands. Killer Tigers (2010) HDTV [H.264/1080i]
@@ -6,7 +110,7 @@ Animal Planet. Земля зверей. Тигры-убийцы / Beast Lands. K
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502228.jpg" />
+  <img src="Z:/picture/008/save_picture_502228.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501994.jpg" />
+  <img src="Z:/picture/008/save_picture_501994.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Animal Planet: Вторжение паразитов (Нашествие). Па�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501917.jpg" />
+  <img src="Z:/picture/008/save_picture_501917.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501442.jpg" />
+  <img src="Z:/picture/008/save_picture_501442.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ History Channel. Рейхсканцелярия Гитлера / Inside Hitler's
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501082.jpg" />
+  <img src="Z:/picture/008/save_picture_501082.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Animal Planet: В дебрях Латинской Америки [ 5 из 5] / W
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499918.jpg" />
+  <img src="Z:/picture/008/save_picture_499918.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip (1-5 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499343.jpg" />
+  <img src="Z:/picture/008/save_picture_499343.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery. Сейчас рванёт / Fire in the Hole (2015) HDTVRip  [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499092.jpg" />
+  <img src="Z:/picture/008/save_picture_499092.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498847.jpg" />
+  <img src="Z:/picture/008/save_picture_498847.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498112.jpg" />
+  <img src="Z:/picture/008/save_picture_498112.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497352.jpg" />
+  <img src="Z:/picture/008/save_picture_497352.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Бойцовский клуб для животных / Animal Fight Club (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497207.jpg" />
+  <img src="Z:/picture/008/save_picture_497207.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Discovery. Ржавая империя / Junkyard Empire (2015) HDTVRip (1-4 с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496994.jpg" />
+  <img src="Z:/picture/008/save_picture_496994.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495538.jpg" />
+  <img src="Z:/picture/008/save_picture_495538.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494893.jpg" />
+  <img src="Z:/picture/008/save_picture_494893.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494890.jpg" />
+  <img src="Z:/picture/008/save_picture_494890.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NGW: Рожденные в Африке. Круг жизни / Born in Africa (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494595.jpg" />
+  <img src="Z:/picture/008/save_picture_494595.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Земля хищника / Predator Land (2019) HDTV [H.264/1080i-LQ] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494483.jpg" />
+  <img src="Z:/picture/008/save_picture_494483.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery Science: Встреча с инопланетянами: Кванто�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494256.jpg" />
+  <img src="Z:/picture/008/save_picture_494256.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ BBC: Еда будущего / Tomorrow's Food (2015) HDTVRip [H.264/720p-LQ] (3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494200.jpg" />
+  <img src="Z:/picture/008/save_picture_494200.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ BBC:Стюарты в изгнании / BBC:The Stuarts in Exile (2015) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494199.jpg" />
+  <img src="Z:/picture/008/save_picture_494199.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494106.jpg" />
+  <img src="Z:/picture/008/save_picture_494106.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:211B53C36AFBADCA76CDE6EF074F3912AC46D02F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936653   (493843) от 12.09.2015
-
-Discovery: Разрушители легенд. Дрифт в Сан-Франциско / MythBusters. San Francisco Drift (2015) SATRip  (Сезон 15, эпизод 06) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493843.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD34992A183AC8C51C9F75F95E6A4F9076B46497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053922   (493759) от 19.09.2016
-
-BBC: Неизвестные викинги. Под парусами драккара / BBC: The Vikings Uncovered (2016) SATRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много ли вы знаете о Викингах? Некоторые считают, что в мире не было народа более воинственного, чем эти скандинавы! Главные герои этого проекта некогда грабили и уничтожали мирные деревни в течение долгих тысячи лет! В общем и целом, после столь яркого проявления жестокости о викингах начали слагать легенды и истории. Силу этого закаленного суровыми зимами народа (   Читать дальше...   )Производство: Великобритания / BBC, History Production LondonЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональный  |  Видео Фильм ТВПродолжительность: 2 x ~00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4033B9CAAAF5618CE3385045C5475A6E8C7FF9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580010   (492957) от 25.08.2020
-
-Интенсивный курс Ричарда Хаммонда / Richard Hammond's Crash Course (2012) SATRip (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы Top Gear Ричард Хаммонд ездит по США и учится управлять самыми необыкновенными и непростыми машинами, которые встречаются ему на пути. Каждая из этих невероятно мощных машин призвана выполнять свою задачу, и справиться с этими монстрами совсем не просто, даже для такого крутого специалиста как Хаммонд. Каждая машина - единственная в своем роде, (   Читать дальше...   )Телекомпания: Великобритания, BBC Worldwide ProductionsЖанр: ДокументальныйПеревод: Одноголосый профессиональныйПродолжительность: ~00:45:00 серия (6 серий)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEBFC20B9FDC60CD76207BBB5CCBC5BAB353F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318608   (492522) от 07.08.2019
-
-BBC: Вся правда о красоте / The Truth About Looking Good (2018) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черри Хилли хочет понять, как много из обещаний продавцов косметической продукции совместимы с реальностью. Её расследование будет основываться на научных исследованиях. В конечном итоге, она продемонстрирует, что из заявлений косметологических компаний — уловки для потребителей.Производство: Великобритания, BBC StudiosЖанр: Документальный, познавательный, исследованияРежиссер: Кейт ПринглПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4D51A8FCE037CEE5A717294CA148543908DF0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

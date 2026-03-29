@@ -1,3 +1,234 @@
+###  Публикация: 1782075   (70093) от 26.02.2025
+
+Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  This Road Is Mine (4:56)
+02.  Letter From Silence (4:19)
+03.  Ocean (7:31)
+04.  Polyrhythmic Wave (5:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381FED0B9892C37C2043498B8AB5E50A32DBDE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782059   (70091) от 26.02.2025
+
+Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of A Lion (5:09)
+02. We Are Heroes (4:23)
+03. All Night (4:28)
+04. Turn Up Your Radio (4:55)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E15748DBF7DACA401D7B455701D138AC3401CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782063   (70088) от 26.02.2025
+
+Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Frankenstein's Wife (5:25)
+02.  Tarja - Left on Mars (5:02)
+03.  Proud Whore (5:02)
+04.  Two Soldiers (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7E168C88C98191943D3589B34F8F14DF1E5450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782060   (70080) от 26.02.2025
+
+Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Someone To Be There (Live at Crescent Records Studio) (5:27)
+02.  Greg Coulson feat. Will Wilde - Introverted Blues (Live at Crescent Records Studio) (6:16)
+03.  Kid Charlemagne (Live at Crescent Records Studio) (5:23)
+04.  Greg Coulson feat. Will Wilde - Nick Of Time (Live at Crescent Records Studio) (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3429A10B74B246A77F1A0B28C1D1F8960ED2FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781989   (70079) от 26.02.2025
+
+Nightrage - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightrage — музыкальная группа, играющая мелодичный дэт-метал. Была создана в 2000 году в Салониках греческими гитаристами Мариосом Илиопулосом и Гасом Джи.2003 - Sweet Vengeance
+2005 - Descent Into Chaos
+2007 - New Disease Is Born
+2009 - Wearing a Martyr's CrownЖанр: Melodic Death MetalПродолжительность: 08:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63355DB2D842FCCB4CEED27C14C56504962D683D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782033   (70077) от 26.02.2025
+
+Saint Asonia - Studio Albums (3 releases) (2015-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saint Asonia (стилизация в оригинале SΔINT ΔSONIΔ) — канадская рок-группа, основанная Адамом Гонтье, бывшим вокалистом группы Three Days Grace и гитаристом Staind Майком Мьюшаком.2015 - Saint Asonia
+2019 - Flawed Design
+2022 - Introvert / ExtrovertЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 02:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1845FB9BDA6D0DC64134E27DA18CBDB1F1170EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782241   (70072) от 27.02.2025
+
+Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegy (3:36)
+02. Whiplash (3:46)
+03. Blackhole (3:21)
+04. Everything Ends (3:40)(   Читать дальше...   )Жанр: Progressive Metalcore, Alternative MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBA1AC0F6ACBD00FCA4F9A96A06FABE7D535EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782157   (70060) от 27.02.2025
+
+Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scattered Ashes (6:14)
+02.  Devil Woman (6:57)
+03.  Gelatinous Cube (6:12)
+04.  Eye of the Great Machine (0:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B28426C47796019107A6046B49F6AA7E58EC42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782177   (70059) от 27.02.2025
 
 Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
@@ -6,7 +237,7 @@ Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70059.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70058.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70056.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70055.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70053.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70045.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70043.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Avantasia - Here Be Dragons (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70027.jpg" />
 </div>
 
 
@@ -238,7 +469,7 @@ Sirrah (Poland) - Studio Albums (3 releases) (1996-2013) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70020.jpg" />
 </div>
 
 
@@ -267,7 +498,7 @@ Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70009.jpg" />
 </div>
 
 
@@ -296,7 +527,7 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69981.jpg" />
 </div>
 
 
@@ -325,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69968.jpg" />
 </div>
 
 
@@ -354,7 +585,7 @@ Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69967.jpg" />
 </div>
 
 
@@ -383,7 +614,7 @@ Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69965.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69963.jpg" />
 </div>
 
 
@@ -441,7 +672,7 @@ Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69960.jpg" />
 </div>
 
 
@@ -470,7 +701,7 @@ Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69959.jpg" />
 </div>
 
 
@@ -499,7 +730,7 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69952.jpg" />
 </div>
 
 
@@ -513,238 +744,6 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D742DAB4A241F2721A16D86444386DB693960E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782789   (69947) от 02.03.2025
-
-Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Zero (Intro) (A Cappella) [00:00:22]
-02. The Emptiness Machine (A Cappella) [00:03:05]
-03. Cut the Bridge (A Cappella) [00:03:21]
-04. Heavy Is the Crown (A Cappella) [00:02:18](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C77E98007BAD0E4195343E0C765CE2B3AE13628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782841   (69942) от 02.03.2025
-
-John Lee Hooker - The Standard School Broadcast Recordings (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boy [00:09:28]
-02. Hard Times [00:07:54]
-03. Rock With Me [00:07:06]
-04. Should Have Been Gone [00:06:36](   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72ABB400D03609127D5E05E1156FA3E5ED742627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782761   (69941) от 02.03.2025
-
-Dark Chapel (Часовня Тьмы) - Spirit in The Glass (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow [00:04:36]
-02. Hollow Smile [00:04:22]
-03. We Are Remade [00:03:57]
-04. Corpse Flower [00:04:22](   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C03F238C399189223C604E801B15387F6CCA7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782686   (69929) от 02.03.2025
-
-Gillan - The Japanese Album (1978) Deluxe Edition. 2025, Edsel [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Street Theatre
-02 – Secret of the Dance
-03 – I’m Your Man
-04 – Dead of Night(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE202D65ABD1B6EB3E315300FD297A3F3C69D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782683   (69921) от 02.03.2025
-
-Silent Stream of Godless Elegy (SSoGE) - Studio Albums (9 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Silent Stream of Godless Elegy - фолк-метал группа из Чехии, сформированная в 1995 году.1996 - Iron
-1998 - Behind the Shadows
-2000 - Themes
-2004 - Relic DancesЖанр: Doom/Death/Folk MetalПродолжительность: 07:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782758   (69920) от 02.03.2025
-
-Gleb Kolyadin (Глеб Колядин) - Mobula (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Neo Classical, Piano Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parallax [00:04:18]
-02. Glimmer [00:04:03]
-03. Afterglow [00:03:22]
-04. Dawnlight [00:01:55](   Читать дальше...   )Жанр: Progressive Rock, Neo Classical, Piano RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA4BCFA7E0C4D1626E8E2A68A06A676E22899F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782688   (69909) от 02.03.2025
-
-Djabe & Steve Hackett - Freya Arctic Jam (2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Jazz Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Silence [00:08:26]
-02. Freya [00:05:25]
-03. Stone Age Tea [00:06:46]
-04. Whispers Of The Woods [00:08:34](   Читать дальше...   )Жанр: Jazz Rock, Progressive RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D438471EF66A88874BE73DD6C862166B62C0C56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782787   (69900) от 02.03.2025
-
-Mdou Moctar - Tears of Injustice (2025) Injustice Version, 2025, Matador [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral for Justice (Injustice Version) [00:05:45]
-02. Imouhar (Injustice Version) [00:08:33]
-03. Takoba (Injustice Version) [00:03:23]
-04. Sousoume Tamacheq (Injustice Version) [00:05:19](   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A059EC39B84BF13977CE24AA5E300896D32443C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

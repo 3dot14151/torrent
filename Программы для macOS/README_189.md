@@ -1,3 +1,136 @@
+###  Публикация: 1706938   (62953) от 14.03.2024
+
+Audio Hijack 4.3.2 U2B [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2024Разработчик: © 2024 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 11.0 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD4019E855F6E337F24556B018DF9313D3F5156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707044   (62937) от 15.03.2024
+
+Parallels Desktop Business Edition 19 for Mac 19.3.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop 19 для Mac — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
+Parallels Desktop Business (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2022 Parallels International GmbHПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C78F1EF95D15053D8A36C84A63589420C25961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707590   (62675) от 17.03.2024
+
+FonesGo WhatsApp Transfer for Mac 8.5.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62675.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonesGo WhatsApp Transfer - это лучшее приложение для передачи, резервного копирования и восстановления WhatsApp на MacТип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 FonesGoПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D990FCE8AE562CA8C08CED63C79B7C47134D44F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707630   (62673) от 17.03.2024
+
+FxFactory Pro 8.0.14 U2B [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62673.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
+Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2024Разработчик: © 2024 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5.1 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9582A70C6CC07B851A1FA45994FEA45D31625EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707788   (62549) от 18.03.2024
+
+Navicat Charts Viewer for Mac 1.2.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Charts Viewer — это простой в использовании инструмент для просмотра файлов рабочей области диаграмм. Благодаря дружественному графическому интерфейсу пользователя (GUI) программа Navicat Charts Viewer позволяет перемещаться по рабочим пространствам, созданным с помощью функции Navicat Charts или Navicat Charts Creator. Вы можете получить доступ к локальным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E187F221872B124FE1F8D3FCA5621ADB4257E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707789   (62548) от 18.03.2024
 
 CheckBook Pro 2.7.29 [En]
@@ -6,7 +139,7 @@ CheckBook Pro 2.7.29 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62548.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62530.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Live Wallpaper & Themes 4K Pro for Mac 19.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62529.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ JetBrains WebStorm for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62488.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ Commander One PRO - FTP client 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62483.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ iTubeGo YouTube Downloader Pro for Mac 7.4.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62464.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ Commander One PRO Pack 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62457.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ Alfred PowerPack 5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62445.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ Things 3 v.3.20.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62430.jpg" />
 </div>
 
 
@@ -245,7 +378,7 @@ JetBrains Rider for Mac 2023.3.4 Intel/Mac [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62429.jpg" />
 </div>
 
 
@@ -273,7 +406,7 @@ Infuse PRO 7.7.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62360.jpg" />
 </div>
 
 
@@ -299,7 +432,7 @@ VideoProc Converter 6.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62330.jpg" />
 </div>
 
 
@@ -325,7 +458,7 @@ Proxyman for Mac 5.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62320.jpg" />
 </div>
 
 
@@ -351,7 +484,7 @@ CrossOver 24.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62280.jpg" />
 </div>
 
 
@@ -378,7 +511,7 @@ DaisyDisk 4.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62273.jpg" />
 </div>
 
 
@@ -405,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62258.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ JetBrains GoLand for Mac 2023.3.5 ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62242.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ Notebooks – Write and Organize 3.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62236.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ DRmare Audio Capture 2.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62234.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62232.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ JetBrains GoLand for Mac 2023.3.5 Intel  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62219.jpg" />
 </div>
 
 
@@ -547,139 +680,6 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08648195A5F814A9550BB4A58545673BF9B02952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708958   (62148) от 22.03.2024
-
-Wondershare Repairit 5.5.5 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасно восстанавливайте поврежденные видео в форматах MOV, MP4, M4V, M2TS, MKV, MTS, 3GP, AVI, FLV, MXF, INSV за три простых шага.
-Несколько причин могут привести к тому, что ваши важные видео или графические файлы могут внезапно перестать открываться. С помощью Repairit вы можете исправить поврежденные файлы в три простых шага, независимо от уровня повреждения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2024 WondershareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB06FDD42E6CE4FE5D79EF7CF4135B5967B4DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678666   (62146) от 22.03.2024
-
-Moho Pro for Mac 14 v14.1 [Multi]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moho™ Pro 13 профессиональное программное обеспечение для 2D-анимации, инструмент анимации «все-в-одном» для профессионалов и цифровых художников.
-Moho™ Pro 13 это все, что вам нужно, чтобы сделать потрясающую профессиональную анимацию.
-Самая мощная система 2D-анимации на рынке с продвинутыми и традиционными инструментами анимации, позволяет получать профессиональные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2023 LOSTMARBLE LLC.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46F0D4C2DAAE663531CD755606D93CF26CCC016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708956   (62126) от 22.03.2024
-
-All to MP3 Audio Converter 5.2.0 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный аудио-конвертер - All To MP3 Audio Converter. Любые аудиофайлы в формат MP3 в один клик, множество форматов, настройка битрейта и высококачественные MP3-файлы как результат.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2024Разработчик: © 2024 Groove VibesПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B259FC51C3201437371C9FDCE2820FB15E98ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708969   (62113) от 22.03.2024
-
-Steinberg Cubase Pro for Mac 13 v.13.0.30 U2B [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите начать создавать свою собственную музыку, вывести свое производство на профессиональный уровень или оптимизировать рабочий процесс в сжатые сроки? Что бы вам ни понадобилось, Cubase 13 поможет вам полностью раскрыть свой творческий потенциал. От композиторов голливудских блокбастеров и продюсеров Billboard Hot 100 до увлеченных новичков, мир музыкального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2022 Steinberg Media Technologies GmbH.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ED9D7FD4039B9E22515334CAAADF8D8B759F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709042   (62059) от 23.03.2024
-
-Luminar Neo 1.18.3 U2B  [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2024Разработчик: © 2010 - 2024 Skylum®Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFC6B9E0FFD28A2A087980C096B363C0761F43D
 ```
 
 https://mybot314.ru/tekegram_catalog/

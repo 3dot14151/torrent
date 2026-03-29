@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666347.jpg" />
+  <img src="Z:/picture/008/save_picture_666347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665814.jpg" />
+  <img src="Z:/picture/008/save_picture_665814.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 1 (2017) [AAC|~313 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665595.jpg" />
+  <img src="Z:/picture/008/save_picture_665595.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 4 (2019) [AAC|~318 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665594.jpg" />
+  <img src="Z:/picture/008/save_picture_665594.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - Deep Skin Vibes (Perfect Time To Relax), Vol. 1 (2022) [AAC|~307 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665585.jpg" />
+  <img src="Z:/picture/008/save_picture_665585.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - Mykonos Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665582.jpg" />
+  <img src="Z:/picture/008/save_picture_665582.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665361.jpg" />
+  <img src="Z:/picture/008/save_picture_665361.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665354.jpg" />
+  <img src="Z:/picture/008/save_picture_665354.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665292.jpg" />
+  <img src="Z:/picture/008/save_picture_665292.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665243.jpg" />
+  <img src="Z:/picture/008/save_picture_665243.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665202.jpg" />
+  <img src="Z:/picture/008/save_picture_665202.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665174.jpg" />
+  <img src="Z:/picture/008/save_picture_665174.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665086.jpg" />
+  <img src="Z:/picture/008/save_picture_665086.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664784.jpg" />
+  <img src="Z:/picture/008/save_picture_664784.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664405.jpg" />
+  <img src="Z:/picture/008/save_picture_664405.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Modestep - London Road (2015) Bonus Version [AAC|WEB-DL|256 кб/с]<Dubstep, Tr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664357.jpg" />
+  <img src="Z:/picture/008/save_picture_664357.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664351.jpg" />
+  <img src="Z:/picture/008/save_picture_664351.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664345.jpg" />
+  <img src="Z:/picture/008/save_picture_664345.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 3 (2019) [AAC|~320 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664338.jpg" />
+  <img src="Z:/picture/008/save_picture_664338.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 2 (2019) [AAC|~325 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664336.jpg" />
+  <img src="Z:/picture/008/save_picture_664336.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 1 (2019) [AAC|~328 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664335.jpg" />
+  <img src="Z:/picture/008/save_picture_664335.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VA - Naked Weekend (The Deep-House Affair), Vol. 4 (2019) [AAC|~316 Kbps] <House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664333.jpg" />
+  <img src="Z:/picture/008/save_picture_664333.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664243.jpg" />
+  <img src="Z:/picture/008/save_picture_664243.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Vintage Landscape Chill Out, Vol. 1 (2021) [AAC|~315 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663441.jpg" />
+  <img src="Z:/picture/008/save_picture_663441.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Vintage Landscape Chill Out, Vol. 3 (2022) [AAC|~320 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663438.jpg" />
+  <img src="Z:/picture/008/save_picture_663438.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - Eternal Beauties (Lounge Sweethearts), Vol. 3 (2021) [AAC|~313 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663436.jpg" />
+  <img src="Z:/picture/008/save_picture_663436.jpg" />
 </div>
 
 

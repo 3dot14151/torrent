@@ -1,3 +1,159 @@
+###  Публикация: 1395214   (433615) от 22.09.2020
+
+Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды Кагами Казуя, ничем не примечательный паренёк, встретил прекрасную девушку по имени Кириха. Казуя и подумать не мог, что они уже когда-то встречались, но Кириха приветствует его словами "Давно не виделись". Как оказалось, Кириха является цукумогами, который возник из пояса оби покойной матери Казуи. Вокруг небывалой красоты Кирихи разворачиваются (   Читать дальше...   )Производство: студия Zero-G / ゼロジーЖанр: эччи, комедия, романтика, мистикаРежиссер: Курая РёитиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA353417CD1B575B59294875F5763BDC7B1CCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382497   (433287) от 22.09.2020
+
+Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Космический крейсер Ямато (фильм шестой) [2009] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433287.jpg" />
+</div>
+
+
+###  Подробнее
+
+2220 год. Обнаружилось, что Земля в скором времени будет поглощена приближающейся черной дырой. Поэтому была предпринята операция по транспортировке с Земли 300 млн. человек. Последний флот с землянами подвергся нападению, но был защищен космическим крейсером Ямато под командованием Сусуму Кодай. На борту также находится Миюки, дочь Юки и Сусуму.Жанр: приключения, фантастикаРежиссер: Нисидзаки ЁсинобуПеревод: TargonОзвучка: ЯпонскаяСубтитры: РусскиеПродолжительность: 135 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14494E7C45A550F053BE44A7A510FAD3445B29A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478157   (433280) от 22.09.2020
+
+Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Афина, защитница человечества, существует в разных мирах и воплощается среди смертных, чтобы спасти их от пришествия зла. В этом отражении богиню зовут Саори Кидо, мир на Земле царит уже давно, а лучшие воины потихоньку сходят со сцены. Внезапную атаку бога Марса удалось отбить дорогой ценой – Сейя, величайший рыцарь Зодиака, потерял силу, а богиня была тяжело ранена. (   Читать дальше...   )Производство: студия Toei AnimationЖанр: приключенияРежиссер: Хатано МориоСубтитры: РусскиеПродолжительность: 97 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F7733CAB3271FF3C28E778AD9D1D59007DC759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829539   (432870) от 09.10.2014
+
+Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И всё-таки мир прекрасен [2014, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вращается вокруг Нике – целеустремлённой принцессы Дождливого Герцогства, обладающей загадочной силой: она может управлять дождём. Из-за проигрыша старшим сёстрам в «Камень, ножницы, бумага» Нике вынуждена выйти замуж за правителя Солнечного Королевства Ливиуса Первого, которого она никогда даже не видела. Всего за три года этот самый Ливиус (Ливи для краткости) завоевал целый мир, за что и получил прозвище «Ужасный Король». Однако при первой встрече будущих супругов выясняется, что Ливиус – всего лишь (   Читать дальше...   )Жанр: комедия, романтика, фэнтези, сёдзёРежиссер: Камэгаки ХадзимэПродолжительность: 12 серий по 23 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4079EA4167291A9FD967FF248DA12FCED1AA4CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410930   (431824) от 23.09.2020
+
+Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная война [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта детективная история с элементами социальной сатиры начинается за день до летних каникул, когда внезапно пропадают все мальчики из первого класса средней школы в центре Токио. Несчастный случай? Массовое похищение? На самом деле, мальчишки просто заперлись в здании заброшенной фабрики, находящемся у русла реки. Это «зона освобождения», откуда они при поддержке (   Читать дальше...   )Производство: студия Ajia-dou / 亜細亜堂Жанр: драмаРежиссер: Мурано ЮтаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45FC624DAC267CCAECD3AA25D6A93E6667251FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410814   (431823) от 23.09.2020
+
+Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight Tekkaman Blade II | Космический рыцарь Теккамен Блейд 2 [1994, OVA, 6 из 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя десять лет после окончания последней войны с радамцами была собрана новая команда Космических рыцарей под руководством Аки и Ди-Боя. Первая миссия нового Теккамана - победить радамцев, но на горизонте замаячила новая угроза...Производство: Tatsunoko Production / タツノコプロЖанр: приключения, фантастика, мехаРежиссер: Тонокацу ХидэкиПеревод: Андрей aka avarachЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6F1A5FCBF128FB4C82373F2C3B2B245A8ED4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410923   (431822) от 23.09.2020
 
 Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная Тропа" [2019, TV, 12 эп.] BDRip 1080p HEVC 10bit raw
@@ -6,7 +162,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431822.jpg" />
+  <img src="Z:/picture/008/save_picture_431822.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431719.jpg" />
+  <img src="Z:/picture/008/save_picture_431719.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431651.jpg" />
+  <img src="Z:/picture/008/save_picture_431651.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431647.jpg" />
+  <img src="Z:/picture/008/save_picture_431647.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431638.jpg" />
+  <img src="Z:/picture/008/save_picture_431638.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431544.jpg" />
+  <img src="Z:/picture/008/save_picture_431544.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429619.jpg" />
+  <img src="Z:/picture/008/save_picture_429619.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429394.jpg" />
+  <img src="Z:/picture/008/save_picture_429394.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429209.jpg" />
+  <img src="Z:/picture/008/save_picture_429209.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428821.jpg" />
+  <img src="Z:/picture/008/save_picture_428821.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428094.jpg" />
+  <img src="Z:/picture/008/save_picture_428094.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ Fushigi no Umi no Nadia / Nadia Secret of Blue Water / Надя с загадо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427796.jpg" />
+  <img src="Z:/picture/008/save_picture_427796.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426088.jpg" />
+  <img src="Z:/picture/008/save_picture_426088.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423651.jpg" />
+  <img src="Z:/picture/008/save_picture_423651.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420448.jpg" />
+  <img src="Z:/picture/008/save_picture_420448.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420224.jpg" />
+  <img src="Z:/picture/008/save_picture_420224.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420223.jpg" />
+  <img src="Z:/picture/008/save_picture_420223.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420078.jpg" />
+  <img src="Z:/picture/008/save_picture_420078.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420047.jpg" />
+  <img src="Z:/picture/008/save_picture_420047.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420040.jpg" />
+  <img src="Z:/picture/008/save_picture_420040.jpg" />
 </div>
 
 
@@ -521,169 +677,6 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F9C73840B72CCA22B44F9936CA5A84B3AC0946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251291   (420038) от 30.09.2018
-
-Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-антология, состоящий из трёх коротких историй, каждая из которых происходит в одном из китайских городов, и с основной темой для каждой:
-1. «Солнечный завтрак» (город — Пекин, тема — еда);
-2. «Маленький показ мод» (город — Гуанчжоу, тема — одежда).
-3. «Любовь в Шанхае» (город — Шанхай, тема — кров).Жанр: повседневностьРежиссер: Такэути ЁситакаПеревод: SovetRomantica; NetflixЯзык озвучки: ЯпонскийСубтитры: Русские; Английские (MultiSub)Продолжительность: 80 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E4BDD5F3472F6108D8A274F096CBDB2C5D428E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251310   (419858) от 30.09.2018
-
-Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 1080p 10bit raw [Theatrical Cut]
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: приключения, драмаРежиссер: Исидатэ ТайтиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ~ 90 минут x4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F94E99D5830DEFFFC580CB8F52F743383F8176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251312   (419702) от 30.09.2018
-
-Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: повседневность, драмаРежиссер: Исидатэ ТайтиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 14 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F46BE3C4F95462495F0A1F6C74FF592618052F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412483   (418207) от 29.09.2020
-
-Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 2 [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка очаровывает, восхищает, заставляет задуматься и отвлечься от повседневной суеты. Звуки, которые профессионалы извлекают из музыкальных инструментов, — каждый прекрасен по-своему. Но те, что создают дилетанты, неумело и неловко — тоже могут вызвать бурю эмоций. Пусть еще не виртуозы, а всего лишь любители, собравшись вместе и вложив душу, некоторые из них могут (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485F888CB53025993397131FE00AF00951C36B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412482   (418203) от 29.09.2020
-
-Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кото — традиционный японский музыкальный инструмент. Струнный, громоздкий, непопулярный. Чем он может заинтересовать обычного школьника с ветром в голове и смартфоном в руках? Волшебным звучанием, чем же ещё! И хотя Такэдзо Курата стал членом школьного клуба кото, как он сначала считал, по ошибке, стоило ему втянуться — и мир вокруг зазвучал по-новому.
-Время шло, (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CE5D3545F0022B69C46338AE436B7E524CD5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412455   (418189) от 29.09.2020
-
-Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-волшебница Иллия OVA-3 | Судьба/Калейдопутница Призматическая Иллия: Призматическая Фантазия [2019, OVA, 1 эп.] BDRIp 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой комедийный альманах по миру "Девочки-волшебницы Илии" в духе "Карнавального фантазма" расскажет несколько историй об основных и второстепенных героях сериала:
-- Несколько неудачных попыток Руби найти подходящую кандидатуру на роль девочки-волшебницы;
-- День открытых дверей в лапшичной Котомине Кирея, где подают адски острые блюда;
-- (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключенияРежиссер: Онума СинПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC40F1E56DFEB6767557BB7B38F0AEBDF9E109A
 ```
 
 https://mybot314.ru/tekegram_catalog/

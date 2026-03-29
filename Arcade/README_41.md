@@ -1,3 +1,31 @@
+###  Публикация: 592564   (135768) от 21.12.2012
+
+Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрушение только что стало прекрасней.
+
+В Renegade Ops ваша задача — обезвредить Инферно, безумца, который грезит о мировом господстве. Используйте самые разные виды транспорта и уничтожайте врагов среди огромного количества потрясающих окружений. У игроков есть выбор — сражаться в одиночку, вместе с другом в режиме разделенного экрана за одним компьютером или в динамичном онлайн-кооперативе на 4-х человек. Прорвитесь сквозь толпы врагов, работая вместе, или соревнуйтесь со своими друзьями в получении достижений и первых мест на досках почета. (   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E094626E64C00D0788EF502273862CDCA2034AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680330   (134005) от 29.11.2023
 
 Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition]
@@ -6,7 +34,7 @@ Gangs of Sherwood (2023) [Multi] (1.5.253310/dlc) Repack DjDI [Lionheart Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134005.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack dixen18 [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132182.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Braid [Ru/En] (RePack/1.0.1.5) 2008 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131761.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ LEGO The Lord Of The Rings / LEGO Властелин колец [Ru/En] (RePack)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131756.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ Klonoa Phantasy Reverie Series (2022) [Multi] (1.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130988.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ River Tails: Stronger Together (2023) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127729.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Banners of Ruin (2021) [Ru/Multi] (1.4.69/dlc) License GOG [Supporter Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127523.jpg" />
 </div>
 
 
@@ -192,7 +220,7 @@ Strayed Lights (2023) [Ru/Multi] (Build 11697504) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125406.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ Eternal Dread 3 (2023) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124459.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124413.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124144.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124123.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ Livestream 2: Escape from Togaezuka Happy Place (2023) [Multi] (1.01) License GO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124095.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ Unstoppable (2024) [Ru/Multi] (1.0) Repack DjDI
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122664.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ Spin Rhythm XD (2023) [Ru/Multi] (20231218/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122091.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ Apex Heroines (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121188.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ Tekken 8 (2024) [Ru/Multi] (1.01.03/dlc) Repack DjDI [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120579.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ Inspector Gadget - Mad Time Party / Инспектор Гаджет – Безу
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120558.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ Bomb Rush Cyberfunk (2023) [Ru/Multi] (1.0.20385) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120556.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117657.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116989.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116968.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Touhou Danmaku Kagura: Phantasia Lost (2024) [Multi] (1.0.1/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116943.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116743.jpg" />
 </div>
 
 
@@ -634,7 +662,7 @@ Killer Instinct (2017) [Ru/Multi] (3.11.3111.1.294202/dlc) Repack dixen18 [Anniv
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116125.jpg" />
 </div>
 
 
@@ -645,32 +673,6 @@ Killer Instinct возвращается, и готова привлечь ка�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692876   (115786) от 25.02.2024
-
-Heretic's Fork (2023) [Ru/Multi] (1.0.71/dlc) Scene Tenoke
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heretic's Fork представляет собой не вполне стандартный рогалик с двухмерной пиксельной графикой и видом сверху. Инди-проект скрещивает коллекционную карточную игру с башенной защитой. Действие происходит в преисподней. Там начали появляться дыры в пространстве, позволяющие перемещаться на Землю. Этим захотели воспользоваться еретики, чтобы сбежать в мир живых. Однако (   Читать дальше...   )Тип издания: SceneРазработчик: 9FingerGamesЖанр: Экшены, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1160296   (476173) от 24.08.2017
+
+NGW: Удивительные слоны (Душа гиганта) / Soul of the Elephant (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_476173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слоны - патриархи Африки. Сколько еще они проживут на свете бок о бок с людьми? Чтобы ответить на этот вопрос, пара исследователей живет рядом со слонами. Вместе со зрителями они заглядывают в душу гиганта.Производство: Terra Mater Factual Studios, Thirteen Productions, Wildlife Film ProductionsЖанр: Документальный, фаунаРежиссер: Дерек ЖуберПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CE90DE22D95CF0C098034F8C316086749863C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057855   (472919) от 29.09.2016
+
+NG: Женщина, воспитанная обезьянами / Woman Raised by Monkeys (2014) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_472919.jpg" />
+</div>
+
+
+###  Подробнее
+
+История женщины из Колумбии по имени Марина, которую вырастили обезьяны после того, как в детстве её похитили, а затем бросили в лесу.Телекомпания: Австралия, SBS - TV Avstralia and National Geographic ChannelsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FC2CB7896C8F7F43F2593DA7B74C9D8ACE9C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320212   (472881) от 17.08.2019
+
+NGW: Анаконда. Королева змей / Anaconda. Queen of the serpents (2010) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_472881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анаконда - супер-хищник. По весу она является крупнейшей в мире змеёй. Анаконда - загадочное существо, пугающее и завораживающее одновременно. Одно лишь упоминание о ней наводит на мысль о внушающем страх и ужас убийце. Герпетолог доктор Хесус Ривас и его команда, уже 20 лет занимаются изучением анаконд. Со скоростью удара хорошего боксера, анаконда не простой объект (   Читать дальше...   )Производство: США, Tomwil Entertainment, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Вильда А. РокосПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8788462FCA1276445251F3608D917DA393CE0A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245387   (471923) от 06.09.2018
+
+NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это просто кошмарное зрелище - более 12 тысяч черных акул вдоль побережья на расстоянии не более, чем бросок камнем. Восемьсот голодных серых акул, буквально кишащих около удаленных туристских маршрутов, и акулы Мако, которые исключительно в одиночку рыщут в поисках пищи по дну океанов.Производство: Новая Зеландия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Робин ШинглетонПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C841E10EBFD6CDCA8B15BFB74D8CDF26E198EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245386   (471914) от 06.09.2018
 
 NGW: Дикая природа Шотландии: Высокогорье / Wild Scotland. Highlands (2018) HDTV [H.264/1080i-LQ] (2 серии)
@@ -6,7 +110,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471914.jpg" />
+  <img src="Z:/picture/008/save_picture_471914.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471795.jpg" />
+  <img src="Z:/picture/008/save_picture_471795.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471134.jpg" />
+  <img src="Z:/picture/008/save_picture_471134.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470954.jpg" />
+  <img src="Z:/picture/008/save_picture_470954.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Миссия Сатурн (Внутри колец Сатурна) / Mission
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470911.jpg" />
+  <img src="Z:/picture/008/save_picture_470911.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470828.jpg" />
+  <img src="Z:/picture/008/save_picture_470828.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470795.jpg" />
+  <img src="Z:/picture/008/save_picture_470795.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Титаник. Заключительное слово с Джеймсом 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470699.jpg" />
+  <img src="Z:/picture/008/save_picture_470699.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469024.jpg" />
+  <img src="Z:/picture/008/save_picture_469024.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NG. 20 животных, которые могут вас убить / 20 Animal
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468234.jpg" />
+  <img src="Z:/picture/008/save_picture_468234.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466748.jpg" />
+  <img src="Z:/picture/008/save_picture_466748.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Осушить океан: тайны нацистов / Drain the Oceans. N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465467.jpg" />
+  <img src="Z:/picture/008/save_picture_465467.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465191.jpg" />
+  <img src="Z:/picture/008/save_picture_465191.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NGW: Секретная жизнь жемчужин / The Secret Life of Pearls 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463560.jpg" />
+  <img src="Z:/picture/008/save_picture_463560.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NG. Осушить океан / Drain the Oceans (2011-2018) SATRip (9 сери�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463299.jpg" />
+  <img src="Z:/picture/008/save_picture_463299.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NG: Генуя. Хронология катастрофы / Genoa. Bridge Disast
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463134.jpg" />
+  <img src="Z:/picture/008/save_picture_463134.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NG: Человек против осьминога / Man vs octopus (2017) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463130.jpg" />
+  <img src="Z:/picture/008/save_picture_463130.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NG: Тайны святых ковчегов / Mysteries of the Holy Arks (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459171.jpg" />
+  <img src="Z:/picture/008/save_picture_459171.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ National Geographic. Тайны святых ковчегов / Mysteries of The
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459091.jpg" />
+  <img src="Z:/picture/008/save_picture_459091.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG: Взгляд изнутри: Северная Корея - династия 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458969.jpg" />
+  <img src="Z:/picture/008/save_picture_458969.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458964.jpg" />
+  <img src="Z:/picture/008/save_picture_458964.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457435.jpg" />
+  <img src="Z:/picture/008/save_picture_457435.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CE0008AD81371D335C30CD5D2B18B99A332D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549556   (457270) от 22.09.2012
-
-В ожидании конца света - Сезон 1 / Doomsday Preppers - Season 1 (12 серий из ?) (2012) IPTVRip [EN]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457270.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ожидании конца света - это документальный сериал сериал на канале National Geographic. Герои сериала – это самые разные люди: мужчины и женщины, молодые и пожилые; они живут обычной жизнью и работают так же, как все. Их объединяет лишь жгучее желание быть во всеоружии, когда наступит мировая катастрофа, привычные удобства станут недоступны, а хаос и жестокость превратятся в повседневную реальность. Отец, обучающий детей особым навыкам выживания. Семья, сделавшая запасы 23 000 кг еды и 14 000 литров дождевой воды. Фермер, соорудивший центр связи, функционирующий без электричества...
-
-Борцы за выживание или параноики? И есть ли здравый смысл во всех этих приготовлениях? Эксперты организации «Practical Preppers», состоящей из старожилов течения борьбы за выживание, анализируют шансы на спасение каждого из героев сериала.Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 09:43:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058848   (457239) от 06.10.2016
-
-NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это самый крупный убийца, когда-либо ходивший по земле. Острые как бритва зубы… Метровые челюсти… Серповидные когти. И если вы думаете, что мы говорим о Ти-рексе, подумайте ещё раз. Это — спинозавр. Его огромные размеры — и двухметровый парус на всю длину спины — делают его одним из самых странных существ, когда-либо найденных. Новый скелет был выкопан в Сахаре, (   Читать дальше...   )Телекомпания: США, National Geographic Studios And Nova/WGBH Boston For National Geogpaphic Cannels In Association With ZDFЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058867   (457159) от 06.10.2016
-
-NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компьютерные игры из серии "Злые птицы" популярны у детей, но как на самом деле дикие птицы выживают, находят пищу и растят свое потомство?Телекомпания: Германия, NDR Naturfilm doclights GmbHЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F798C4ABF1A51E640FA1A51E10E83508549C0AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247026   (456831) от 13.09.2018
-
-NG. Легенда о хрустальном черепе / Legend of the Crystal Skulls (2008) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых таинственных и противоречивых предметов в мире - хрустальный череп, который называют "роковым" черепом. Легенда о нем легла в основу голливудского блокбастера 2008 г, а человек, сделавший его знаменитым, был Индианой Джонсом, который в реальной жизни был отчаянным авантюристом и археологом-грабителем. Этот и другие черепа положили начало (   Читать дальше...   )Производство: Великобритания, Picture Films, Smithsonian Networks, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Тилман РеммПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

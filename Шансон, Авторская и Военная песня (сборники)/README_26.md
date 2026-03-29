@@ -1,3 +1,90 @@
+###  Публикация: 1079456   (292133) от 05.12.2016
+
+VA - Шансон На Выходной (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292133.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Рустем Жига - Холодно 2:53
+002.Александр Новиков - Виолетта 2:40
+003.Парень Из Союза - Вероника 3:55
+004.Дмитрий Колобов - Жульман 3:52(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E9F8B2256A6893E7F5FBF73AA1504E9300B8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079367   (292129) от 05.12.2016
+
+VA - Блатной шансон на любимой волне. Версия 3 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Григорий Герасимов - Красивая 3:05
+002.Андрей Орельский - Девочки 4:29
+003.Александр Блик - Пришла Весна 3:48
+004.Виктор Калина - Утро Просыпается Песком 3:30(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5480E425E3E6FD1DBD3AA76216E130B316864F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079734   (292068) от 05.12.2016
+
+VA - Гуляночка блатного радио Шансон. Версия 6 (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Григорий Лепс - На Заре 4:16
+002.Олег Горте - Ты Моя Судьба 4:14
+003.Алексей Брянцев & Елена Касьянова - Я Все Равно Тебя Люблю 4:17
+004.Порт Петровск - За Нашим Домом 4:31(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:674816819BE44B03FA34BDACA36A6D6B6D804044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079505   (292067) от 05.12.2016
 
 VA - Шансон 69 (2016) [MP3|256-320 Kbps] <Шансон>
@@ -6,7 +93,7 @@ VA - Шансон 69 (2016) [MP3|256-320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292067.jpg" />
+  <img src="Z:/picture/008/save_picture_292067.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Душевная Музыка Шансона. Давай поговорим
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292066.jpg" />
+  <img src="Z:/picture/008/save_picture_292066.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291899.jpg" />
+  <img src="Z:/picture/008/save_picture_291899.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Я помню это время (2016) [MP3|320 Kbps] <Эстрада>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291834.jpg" />
+  <img src="Z:/picture/008/save_picture_291834.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Зимний шансон Top 100 (2015) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287313.jpg" />
+  <img src="Z:/picture/008/save_picture_287313.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Масть крестовая. Зима на радио Шансон. Вы�
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286638.jpg" />
+  <img src="Z:/picture/008/save_picture_286638.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Радио Шансон. Высшая Лига Хитов Версия №8
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286636.jpg" />
+  <img src="Z:/picture/008/save_picture_286636.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Душевная музыка от радио Шансон. Версия 2 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286434.jpg" />
+  <img src="Z:/picture/008/save_picture_286434.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Сборник Шансона: Вавилон Обетованный (2015)
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285474.jpg" />
+  <img src="Z:/picture/008/save_picture_285474.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Убойные хиты на Шансоне. Версия 4 (2016) [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284811.jpg" />
+  <img src="Z:/picture/008/save_picture_284811.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Дальняя дорога. Новый сезон (2017) [MP3|256-320 Kbps
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280309.jpg" />
+  <img src="Z:/picture/008/save_picture_280309.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Зимний шансон года (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279209.jpg" />
+  <img src="Z:/picture/008/save_picture_279209.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Гуляночка блатного радио Шансон. Версия 7
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279208.jpg" />
+  <img src="Z:/picture/008/save_picture_279208.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Как и год назад (2016) [MP3|256 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279204.jpg" />
+  <img src="Z:/picture/008/save_picture_279204.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Высшая лига хитов шансона. Часть 9 (2016) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279201.jpg" />
+  <img src="Z:/picture/008/save_picture_279201.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Масть крестовая. Зима на радио Шансон час
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277484.jpg" />
+  <img src="Z:/picture/008/save_picture_277484.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Блатной шансон на любимой волне часть 5 (20
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277478.jpg" />
+  <img src="Z:/picture/008/save_picture_277478.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Зимний Шансон Года 2011 (2010) [MP3|256 kbps]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277198.jpg" />
+  <img src="Z:/picture/008/save_picture_277198.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ VA - Убойные хиты от радио Шансон часть 5 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274849.jpg" />
+  <img src="Z:/picture/008/save_picture_274849.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ VA - Душевная музыка на Шансоне. Выпуск 3 (2016) [M
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273708.jpg" />
+  <img src="Z:/picture/008/save_picture_273708.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ VA - Шансон 2018 [MP3|320 Kbps] <Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271797.jpg" />
+  <img src="Z:/picture/008/save_picture_271797.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ VA - Зимний шансон года Часть 2 (2016) [MP3|256 Kbps] <Ша
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271453.jpg" />
+  <img src="Z:/picture/008/save_picture_271453.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ VA - Гуляночка блатного радио Шансон Часть 8 (2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271446.jpg" />
+  <img src="Z:/picture/008/save_picture_271446.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ VA - Гуляночка блатного радио Шансон Часть 8 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3473C20290F6364622B976213CEAACB1EAC27F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338262   (270363) от 14.11.2019
-
-VA - Хиты под водочку: Круговороты судьбы (2018) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Гостиничная история - Александр Новиков
-002. Не гадай на судьбу - Афина Делиониди
-003. Водочка кремлёвская - Михаил Михайлов
-004. Берёзы - Андрей Климнюк(   Читать дальше...   )Жанр: ШансонПродолжительность: 20:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF84A3B4C58E4A328DC5318D15BCE3BEC2E497F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190953   (265769) от 11.12.2017
-
-VA - Мадам: Сборник Шансона и Авторской Песни (2017) [MP3|256-320 Kbps] <Шансон, Авторская Песня, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265769.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Полякова Оля - Бывший
-002. Сергей Зелинский - Загуляла
-003. Брянцев Алексей - Прости Меня
-004. Вячеслав Московкин - Чудо-Сословие(   Читать дальше...   )Жанр: Шансон, Авторская Песня, PopПродолжительность: 12:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3344EE6EB69D9B4108C015494BFA54F3048846A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192983   (262443) от 19.12.2017
-
-VA - Кудесница Осень (2017) [MP3|256-320 Kbps] <Шансон, авторская Песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262443.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Новиков - Девочка-огонь
-002. Группа Братва & Игорь Махачкалинский - За Пацанов
-003. Александр Келеберда - Было В Жизни Все По Масти
-004. Андрей Бандера - Заплутала Моя Душа(   Читать дальше...   )Жанр: Шансон, авторская ПесняПродолжительность: 12:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A390F03284D569C9449ED7E72F0FBB0C4EB2917
 ```
 
 https://mybot314.ru/tekegram_catalog/

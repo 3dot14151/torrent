@@ -6,7 +6,7 @@ Carach Angren - 3 Albums + EP + Demo (2004-2012) [MP3|256-320]<Symphonic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392987.jpg" />
+  <img src="Z:/picture/008/save_picture_392987.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Hanging Garden - 2 Albums (2007-2009) [MP3|320]<Melodic Doom/Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392235.jpg" />
+  <img src="Z:/picture/008/save_picture_392235.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392230.jpg" />
+  <img src="Z:/picture/008/save_picture_392230.jpg" />
 </div>
 
 
@@ -104,7 +104,7 @@ Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392225.jpg" />
+  <img src="Z:/picture/008/save_picture_392225.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392222.jpg" />
+  <img src="Z:/picture/008/save_picture_392222.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390337.jpg" />
+  <img src="Z:/picture/008/save_picture_390337.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Samael - Hegemony (2017) [MP3|320 Kbps] <Industrial Metal, Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389644.jpg" />
+  <img src="Z:/picture/008/save_picture_389644.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Enslaved - E (2017) [MP3|320 Kbps] <Progressive Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388977.jpg" />
+  <img src="Z:/picture/008/save_picture_388977.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Pure Massacre - Pure Massacre (2022) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388050.jpg" />
+  <img src="Z:/picture/008/save_picture_388050.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Dysylumn - Cosmogonie (2020) [MP3|320 Kbps] <Progressive Black Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387887.jpg" />
+  <img src="Z:/picture/008/save_picture_387887.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Tony Gabriele's Orbynot - Without A Trace (2015) [MP3|320 Kbps] <Heavy Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387826.jpg" />
+  <img src="Z:/picture/008/save_picture_387826.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Dünedain (Dunedain) - Pandemonium (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387808.jpg" />
+  <img src="Z:/picture/008/save_picture_387808.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ As I Lay Dying - Shaped by Fire (2019) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387298.jpg" />
+  <img src="Z:/picture/008/save_picture_387298.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Nachtblut - Apostasie (2017) [MP3|320 Kbps] <Dark Metal, Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387241.jpg" />
+  <img src="Z:/picture/008/save_picture_387241.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Satyricon - 7 Albums - 3 EPs - 2 Singles (1992-2008) [MP3|160-320]<Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_386921.jpg" />
+  <img src="Z:/picture/005/save_picture_386921.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ HammerFall - Built to Last (2016) [MP3|320 Kbps] <Power Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386740.jpg" />
+  <img src="Z:/picture/008/save_picture_386740.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Infantry - Terminal Society (2022) [MP3|320 Kbps] <Thrash, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385707.jpg" />
+  <img src="Z:/picture/008/save_picture_385707.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Peyton Parrish - Rise of Vikingr (2022) [MP3|320 Kbps] <Alternative, Nu Metal, F
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385600.jpg" />
+  <img src="Z:/picture/008/save_picture_385600.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Five Finger Death Punch - A Decade Of Destruction Vol. 2 (2020) Compilation [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385392.jpg" />
+  <img src="Z:/picture/008/save_picture_385392.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Impellitteri - The Nature Of The Beast (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383562.jpg" />
+  <img src="Z:/picture/008/save_picture_383562.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ MaYaN - Dhyana (2018) 2CD [MP3|320 Kbps] <Symphonic Death Metal, Opera>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383559.jpg" />
+  <img src="Z:/picture/008/save_picture_383559.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Soulemission - Tales Of Inevitable Death (2016) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383369.jpg" />
+  <img src="Z:/picture/008/save_picture_383369.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Roads Of Glass - Deadking (2016) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383368.jpg" />
+  <img src="Z:/picture/008/save_picture_383368.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Roads To Nowhere - Lifeless (2016) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383367.jpg" />
+  <img src="Z:/picture/008/save_picture_383367.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Perzonal War - Inside the New Time Chaoz (2016) [MP3|320 Kbps] <Power Metal, Thr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383364.jpg" />
+  <img src="Z:/picture/008/save_picture_383364.jpg" />
 </div>
 
 
@@ -757,7 +757,7 @@ Funeralizer - Funeralizer (2016) [MP3|320 Kbps] <Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383363.jpg" />
+  <img src="Z:/picture/008/save_picture_383363.jpg" />
 </div>
 
 

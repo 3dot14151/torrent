@@ -1,3 +1,109 @@
+###  Публикация: 1351410   (1002133) от 10.01.2020
+
+BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ошеломляющий и поражающий своей красотой, новыми открытиями и впечатлениями уникальный сериал о живой природе нашей планеты. Более 3000 съемочных дней, проведенных на каждом из земных континентов, беспрецедентная техника съемки, 130 невероятных и захватывающих дух историй из страниц животного мира, — все это и есть «Жизнь» — история животного мира, какой Вы её еще (   Читать дальше...   )Производство: Великобритания, США, Греция, Италия, Германия, British Broadcasting Corporation (BBC), Discovery Channel, SKAI, Reti Televisive Italiane (RTI), ARTE, The Open UniversityЖанр: Документальный, природа, флора, фаунаРежиссер: Марта Холмс, Саймон Блэкни, Стефен ЛайлПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские (Союз-Видео), русские (В.Курдов), английские, португальскиеПродолжительность: серии x ~00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18729D4421A0AE1E5985937FA2BAED27CC227A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600379   (998883) от 08.01.2013
+
+BBC: История Шотландии с Нейлом Оливером. Последние из свободных людей / A History of Scotland. The Last of the Free (2008) BDRip [Сезон 1: 1 из 5]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что первым приходит на ум, когда речь заходит об истории Шотландии? Конечно это легенды и романтические рассказы об отважных горцах, смело глядящих опасности в лицо. Искренне сожалею, но придется вас разочаровать. История Шотландии вовсе не так обворожительна, как представляется большинству. Она, как и прочие истории, полна коварства, насилия и обмана вперемешку с честью, храбростью и лучшими примерами человеческой добродетели. «История Шотландии» - это, в первую очередь, попытка докопаться до настоящей истории, рассказать о тех фактах, которые не были придуманы монахами, летописцами и придворными историками в угоду времени и взглядам современников. Объективность и доказательства – вот два столпа, на которых зиждется этот документальный фильм.
+Сериал «История Шотландии», в противовес популярным сегодня жанрам «актер читает текст» или «журналист ведет расследование», дал слово профессионалу. Ведущим выступает Нейл Оливер, шотландец по национальности, имеющий за плечами 20-летний опыт работы археологом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B256826056265B7C38E5D6353931FBC657C0FD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599526   (998877) от 08.01.2013
+
+Думают ли птицы / Bird Brain (2011) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало кто считает птиц интеллектуалами. Но ученые уверены, что птицы умнее, чем мы думаем. В процессе решения огромного числа задач птицы показали, что они способны к разумным формам поведения, иногда превосходя в этом млекопитающих. Птицы способны дружить, играть и действовать сообща...Жанр: ДокументальныйРежиссер: Victoria CoulesПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4756D7464012FC72A817AB56239930C296B30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600402   (998507) от 09.01.2013
+
+BBC: История Шотландии с Нейлом Оливером. Молоты шотландцев / A History of Scotland. Hammers of the Scots (Александр II и Уильям Уоллас) (2008) BDRip [Сезон 1: 2 из 5]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что первым приходит на ум, когда речь заходит об истории Шотландии? Конечно это легенды и романтические рассказы об отважных горцах, смело глядящих опасности в лицо. Искренне сожалею, но придется вас разочаровать. История Шотландии вовсе не так обворожительна, как представляется большинству. Она, как и прочие истории, полна коварства, насилия и обмана вперемешку с честью, храбростью и лучшими примерами человеческой добродетели. «История Шотландии» - это, в первую очередь, попытка докопаться до настоящей истории, рассказать о тех фактах, которые не были придуманы монахами, летописцами и придворными историками в угоду времени и взглядам современников. Объективность и доказательства – вот два столпа, на которых зиждется этот документальный фильм.
+Сериал «История Шотландии», в противовес популярным сегодня жанрам «актер читает текст» или «журналист ведет расследование», дал слово профессионалу. Ведущим выступает Нейл Оливер, шотландец по национальности, имеющий за плечами 20-летний опыт работы археологом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF03F264FAD594671F61D21C20780EF390CDA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601962   (998023) от 11.01.2013
 
 BBC: История хирургии. Обретение лица [4 из 5] / Blood and Guts. A History of Surgery: Fixing Faces (2008) SATRip
@@ -6,7 +112,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998023.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997425.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996121.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996000.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995813.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпу�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993401.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993374.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992975.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991782.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ Discovery: Как это сделано? Сезон 13 / How it's made? Season 1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989236.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989023.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988476.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988016.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987707.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987402.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ BBC: Сокровища Древней Греции / Treasures of Ancient Greec
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987160.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987147.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986865.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ Discovery: Выживание в засуху / Surviving The Drought (2008) Blu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984348.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984340.jpg" />
 </div>
 
 
@@ -531,7 +637,7 @@ Discovery: Смертельный улов / Deadliest Catch (2011) SATRip (Се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983583.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982027.jpg" />
 </div>
 
 
@@ -568,111 +674,6 @@ NG. Затерянные царства Китая / The Hidden Kingdoms of Chin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AB48C5CB721E68756A11D1EA66074A39DACC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971884   (981922) от 06.01.2016
-
-Шпионы в берлинском тоннеле / Spies Beneath Berlin (2011) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981922.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар холодной войны Великобритания и США осуществили секретную операцию по прослушиванию линий связи Красной Армии. Операция проходила во время холодной войны и до сих пор была окутана слухами и противоречиями. Спустя 60 лет ЦРУ рассекретило файлы. Как же удалось агентам избежать разоблачения? Сегодня 4 шпиона, связанных с одной из гениальнейших операций являются (   Читать дальше...   )Телекомпания: Великобритания, ORTV International Ltd., Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FCBAE3E06F45D79EDA4BCC82DA02A607BACBC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972762   (981620) от 06.01.2016
-
-Чуйский тракт (2015) HDTVRip [720p-LQ] [серии 1-2 из 2]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем вас в увлекательное путешествие по одной из самых красивых и древних дорог не только России, но и мира.
-Вы преодолеете весь путь этой уникальной автомагистрали, которая с каждым поворотом открывает путникам абсолютно новые пейзажи - природа на Чуйском тракте меняется буквально каждые 10 километров. Мы увидите реки Катунь и Чуя, ставшие меккой рафтеров, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: каждая серия ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FF7432AEBE2B11DA159274C22EAE60E1E46D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614215   (981301) от 05.02.2013
-
-NG: Снежный барс Афганистана / NG: Snow Leopard of Afghanistan (2012) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общество охраны дикой природы совместно с National Geographic объединяются для того, чтобы сделать то, что никому ранее не удавалось: с помощью специальных ошейников и приспособлений изучить жизнь неуловимого и удивительно красивого животного – снежного барса Афганистана. Горная экспедиция общества охраны дикой природы в зону войны – это настоящий вызов здравому смыслу. Кроме того, регион, в котором обирают снежные барсы является лавиноопасным регионом, с возможному неожиданными снежными буранами и резкими перепадами температур. Команда, путешествующая из Кабула в дом снежного барса в горах на северо-востоке Афганистана, сталкивается с множеством проблем. Неисправное и потерянное оборудование, резкое изменение погоды и угроза нападения талибов могут стать причинами задержек и помешать исследователям найти снежного барса. Тем не менее, они находят снежного барса – первого в истории афганского барса, которого удалось поймать и с помощью специального оборудования начать исследование его жизни, которое позволит собрать (   Читать дальше...   )Жанр: Документальный, фаунаПеревод: ДублированныйПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938D0CEEDF3031FE975F56D96F548DC82E950972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355763   (980894) от 28.01.2020
-
-NG. Мухи и пиявки (мерзкие существа) / Flies and leeches (2004) TVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они представляют собой мерзких и грязных созданий и их никто не любит. Но у них есть своя ниша в нашей жизни, и они живут рядом с нами. И людям ничего не остается, как признать этот факт и попытаться использовать их для своих нужд. Документальное повествование посвящено мухам и пиявкам, их жизни, использования для людей в области медицины и криминалистики.Производство: США, Explorer, National GeographicЖанр: Документальный, научно-популярный, фаунаРежиссер: Джеф МоралесПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A563B93E61924D305A43907C44B18296A0E9A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

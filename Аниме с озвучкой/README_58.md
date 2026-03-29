@@ -1,3 +1,29 @@
+###  Публикация: 1717642   (50163) от 13.07.2024
+
+Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали молодыми | Grandpa and Grandma Turn Young Again [2024, TV, 11 из 11] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сёдзо и Инэ Сайто — пожилая пара с яблочной фермы в префектуре Аомори. Они много лет были вместе, у них есть и дети, и внуки. Это история о дедушке и бабушке, которые вернулись к молодости. Сёдзо и Инэ просто в один день проснулись снова молодыми. Как же они этим воспользуются?Производство: Япония, студия GekkouЖанр: комедия, романтикаРежиссер: Нисида МасаёсиЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (КОМНАТА ДИДИ)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 11 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725089   (49331) от 21.07.2024
 
 NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +32,7 @@ NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49331.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48381.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47910.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47375.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Jaku Chara Tomozaki-kun | Bottom-tier Character Tomozaki | Низкоуровн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46790.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46599.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкая Реинкарнация
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46590.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Isekai Suicide Squad | Отряд самоубийц: Исекай [2024, TV, 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46406.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46194.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Lycoris Recoil | LycoReco | Ликорис Рикойл [2022, TV, 13 из 13] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45691.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Zhandou Wang: Jufeng Zhan Hun 6 | Infinity Nado 6 | Инфинити Надо 6 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45456.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45009.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44970.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Danball Senki | Little Battlers Experience | LBX - Битвы маленьких
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44827.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44220.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43845.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43747.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43707.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43667.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43536.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43436.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43337.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42911.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42780.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42776.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:798332A3B5171C4C7FA7B37AD91712D336919CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719803   (42698) от 23.09.2024
-
-Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что тебя не убивает, то делает сильнее. К сожалению, для слабейшего охотника Кореи, Сон Джину, дело обстоит совершенно иначе. Однажды вместе с товарищами он попадает в опасное высокоранговое подземелье, а покидает его совершенно другим человеком — теперь у него есть Система, программа, которую может видеть только он и которая каким-то образом поднимает его (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Накасигэ СюнсукэЯзык озвучки: Японский, русский (AniLibria, Amber, Dream Cast, Jam Club, Studio Band, TVShows)Субтитры: Русские (Crunchyroll, AniLibria)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E342A357A709E0E3F5EB082AAAF341AA4C76ED98
 ```
 
 https://mybot314.ru/tekegram_catalog/

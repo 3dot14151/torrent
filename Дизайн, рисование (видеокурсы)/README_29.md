@@ -1,3 +1,31 @@
+###  Публикация: 1394023   (765286) от 03.07.2020
+
+Allan McKay | FX Technical Director Transformation Module 6 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
+Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
+Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 04:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7B65CED405A7217A307D36C8F82F1B987EE802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392622   (765094) от 03.07.2020
 
 VideoSmile, Артём Слаква | Мини-курс «Blender для новичков» (2020) PCRec [H.264/1080p-LQ]
@@ -6,7 +34,7 @@ VideoSmile, Артём Слаква | Мини-курс «Blender для нов�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765094.jpg" />
+  <img src="Z:/picture/008/save_picture_765094.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ CG Masters | Мастер создания автомобиля в Blender / Mas
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765018.jpg" />
+  <img src="Z:/picture/008/save_picture_765018.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Michael Pavlovich | Creature Production by Michael Pavlovich (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763628.jpg" />
+  <img src="Z:/picture/008/save_picture_763628.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Krita Foundation | Тренинг по Krita №2: Музы / Krita Training Vol
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763623.jpg" />
+  <img src="Z:/picture/008/save_picture_763623.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Beonmax | Курс Photoshop для начинающих Веб-дизайнер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763410.jpg" />
+  <img src="Z:/picture/008/save_picture_763410.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ CG Cookie | Моделирование и анимация Sci-Fi люка в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762106.jpg" />
+  <img src="Z:/picture/008/save_picture_762106.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ CG Cookie | Моделирование мотоцикла в Blender 2.69 / Mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761836.jpg" />
+  <img src="Z:/picture/008/save_picture_761836.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ FlippedNormals, Henning Sanden | Switching to Blender for Experienced Artists (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759914.jpg" />
+  <img src="Z:/picture/008/save_picture_759914.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ CtrlPaint.com | Arena Design. Portfolio Builder (2016) PCRec [H.264/1080p-LQ] [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759541.jpg" />
+  <img src="Z:/picture/008/save_picture_759541.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ Udemy.com | Introduction to 3D Coat (2015) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759452.jpg" />
+  <img src="Z:/picture/008/save_picture_759452.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ Lynda.com | 3D Printing with ZBrush (2014) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759451.jpg" />
+  <img src="Z:/picture/008/save_picture_759451.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ Allan McKay | FX Technical Director Transformation Module 9 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751811.jpg" />
+  <img src="Z:/picture/008/save_picture_751811.jpg" />
 </div>
 
 
@@ -335,7 +363,7 @@ Grant Warwick | Hard Surface Modeling Lessons 1 - 14 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751456.jpg" />
+  <img src="Z:/picture/008/save_picture_751456.jpg" />
 </div>
 
 
@@ -363,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747760.jpg" />
+  <img src="Z:/picture/008/save_picture_747760.jpg" />
 </div>
 
 
@@ -390,7 +418,7 @@ Gumroad, Josh Gambrell and Ponte Ryuurui | The ULTIMATE Guide to Hard Ops and Bo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747633.jpg" />
+  <img src="Z:/picture/008/save_picture_747633.jpg" />
 </div>
 
 
@@ -416,7 +444,7 @@ Udemy, Scott Harris | Character Art School: Complete Coloring and Painting Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746153.jpg" />
+  <img src="Z:/picture/008/save_picture_746153.jpg" />
 </div>
 
 
@@ -442,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745940.jpg" />
+  <img src="Z:/picture/008/save_picture_745940.jpg" />
 </div>
 
 
@@ -471,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745073.jpg" />
+  <img src="Z:/picture/008/save_picture_745073.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Patreon, YanSculpts| Character Sculpt in Blender [Packages 22-25] (2019-2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744782.jpg" />
+  <img src="Z:/picture/005/save_picture_744782.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ Pluralsight, Chidi Mbadugha | 3ds Max Graphite Modeling Tools Fundamentals (2017
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743427.jpg" />
+  <img src="Z:/picture/008/save_picture_743427.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ Knower school, Дмитрий Смирнов | Создание 3D график�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741892.jpg" />
+  <img src="Z:/picture/008/save_picture_741892.jpg" />
 </div>
 
 
@@ -579,7 +607,7 @@ Allan McKay | FX Technical Director Transformation Module 16 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741261.jpg" />
+  <img src="Z:/picture/008/save_picture_741261.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ CtrlPaint.com | 3D for illustrators. 3D Paintover Starter Kit (2016) PCRec [H.26
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739956.jpg" />
+  <img src="Z:/picture/008/save_picture_739956.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ Skillshare, Nexttut | Blender 3.0 Modelling for Beginners (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738665.jpg" />
+  <img src="Z:/picture/008/save_picture_738665.jpg" />
 </div>
 
 
@@ -664,7 +692,7 @@ Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Light
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738660.jpg" />
+  <img src="Z:/picture/008/save_picture_738660.jpg" />
 </div>
 
 
@@ -675,32 +703,6 @@ Wingfox Studio, Changming Wang | Ultimate Illustration Course Coloring and Light
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A32FC0365E38F5C6769D2A88A49F7337FABE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526176   (738651) от 23.01.2022
-
-Wingfox Studio, Wingfox | Character Painting in Photoshop (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник охватывает полный набор рабочих процессов для создания персонажа, начиная с проектирования, окраса и детализации. Кроме практических приемов учебник также содержит теорию изящных искусств и глубокий анализ модели. Ключом к созданию хорошего произведения искусства является ваше понимание. Знание одного или двух шагов или простое копирование техник у других (   Читать дальше...   )Производство: Wingfox StudioЖанр: Рисование, Дизайн персонажаЯзык озвучки: АнглийскийПродолжительность: 25:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEDE5785F2EDBDC7946272DF4A0D017900B1A2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

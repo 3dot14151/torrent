@@ -6,7 +6,7 @@ CoolUtils Total Image Converter 5.1.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864814.jpg" />
+  <img src="Z:/picture/008/save_picture_864814.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Psy Trance Atmosphere (18.03.2016) [MP3|320 кб/с] <Psy, Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864813.jpg" />
+  <img src="Z:/picture/008/save_picture_864813.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864809.jpg" />
+  <img src="Z:/picture/008/save_picture_864809.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Project Office Pro 8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864784.jpg" />
+  <img src="Z:/picture/008/save_picture_864784.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Photos Exif Editor 2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864782.jpg" />
+  <img src="Z:/picture/008/save_picture_864782.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Live Home 3D Pro Edition 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864777.jpg" />
+  <img src="Z:/picture/008/save_picture_864777.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ FBackup 9.2.413 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864775.jpg" />
+  <img src="Z:/picture/008/save_picture_864775.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ iToolab SIMUnlocker 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864772.jpg" />
+  <img src="Z:/picture/008/save_picture_864772.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Ferry Corsten presents: Corstens Countdown February (2017) [MP3|320 Kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864746.jpg" />
+  <img src="Z:/picture/008/save_picture_864746.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Mark Sherry Presents Outburst 500 (Future Fire & Tech Gold) (2017) [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864743.jpg" />
+  <img src="Z:/picture/008/save_picture_864743.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Vocal Dance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864736.jpg" />
+  <img src="Z:/picture/008/save_picture_864736.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Jordan Suckley Presents: Damaged Asia V1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864735.jpg" />
+  <img src="Z:/picture/008/save_picture_864735.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ IconJar 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864729.jpg" />
+  <img src="Z:/picture/008/save_picture_864729.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Mozilla Firefox 45.0.1 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864721.jpg" />
+  <img src="Z:/picture/008/save_picture_864721.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864715.jpg" />
+  <img src="Z:/picture/008/save_picture_864715.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Instagiffer 1.63 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864713.jpg" />
+  <img src="Z:/picture/008/save_picture_864713.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ TSR Watermark Image Software Pro 3.5.5.4 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864712.jpg" />
+  <img src="Z:/picture/008/save_picture_864712.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ WizTree 4.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864688.jpg" />
+  <img src="Z:/picture/008/save_picture_864688.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Google Chrome 94.0.4606.54 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864687.jpg" />
+  <img src="Z:/picture/008/save_picture_864687.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Google Chrome 94.0.4606.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864686.jpg" />
+  <img src="Z:/picture/008/save_picture_864686.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Ableton Live Suite 11 v11.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864685.jpg" />
+  <img src="Z:/picture/008/save_picture_864685.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ XnViewMP 0.99.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864683.jpg" />
+  <img src="Z:/picture/008/save_picture_864683.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ OCCT 9.1.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864682.jpg" />
+  <img src="Z:/picture/008/save_picture_864682.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ MAMP PRO 6 v6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864679.jpg" />
+  <img src="Z:/picture/008/save_picture_864679.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ MAGIX Samplitude Pro X6 Suite 17.1.0.21418 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864673.jpg" />
+  <img src="Z:/picture/008/save_picture_864673.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ iNet Network Scanner 2.3.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864634.jpg" />
+  <img src="Z:/picture/008/save_picture_864634.jpg" />
 </div>
 
 

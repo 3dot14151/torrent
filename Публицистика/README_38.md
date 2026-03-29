@@ -1,3 +1,82 @@
+###  Публикация: 1229680   (624059) от 07.06.2018
+
+Лоуренс Рис | Холокост. Новая история (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624059.jpg" />
+</div>
+
+
+###  Подробнее
+
+«По каким причинам нацисты решили уничтожить целый народ? Почему они отправляли в концлагеря миллионы мужчин, женщин и детей, заталкивали их в газовые камеры, вешали, расстреливали, морили голодом, забивали до смерти – уничтожали всеми вообразимыми и невообразимыми способами? Какое место занимает этот геноцид среди всех ужасов, сотворенных нацистами? Я размышлял (   Читать дальше...   )Жанр: Документальная литература, Зарубежная публицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E9A9E30106D60EB424B7F2536177174128A659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295210   (622484) от 11.04.2019
+
+Андрей Грешнов | После нас (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще никогда прежде ни один журналист в мире не выдерживал там столько лет. Тринадцать! Тринадцать лет проработал в Афганистане журналист-международник, глава представительства РИА «Новости» в Кабуле Андрей Грешнов. На его глазах истерзанная войнами страна несколько раз заливалась кровью. Он видел, как Кабул штурмовали талибы. Он брал интервью и у самых жестоких главарей (   Читать дальше...   )Жанр: Биографии и Мемуары, История войн, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7024AE57DE656015228FFA8F3A4188F5FD022AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295164   (622201) от 11.04.2019
+
+С.И. Дворников (сост.) | Мудрость: цитаты, афоризмы, пословицы, поговорки (2017) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга заслуженного учителя Российской Федерации Сергея Ивановича Дворникова содержит высказывания выдающихся ученых, философов, писателей, государственных и общественных деятелей, а также афоризмы, крылатые фразы, пословицы и поговорки. В сборнике отражено около 70 тем – это многие стороны нашей повседневной жизни – и более 5000 мудрых изречений и поговорок.
+Адресована (   Читать дальше...   )Жанр: Афоризмы и цитаты, ПублицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529F6EE14FDBCF402A47361BE75FD91A66DE8950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544101   (621735) от 15.04.2022
 
 Лютик Бухлов | Базис. Украина и геополитика (2021) [PDF]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621735.jpg" />
+  <img src="Z:/picture/008/save_picture_621735.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621006.jpg" />
+  <img src="Z:/picture/008/save_picture_621006.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620494.jpg" />
+  <img src="Z:/picture/008/save_picture_620494.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620490.jpg" />
+  <img src="Z:/picture/008/save_picture_620490.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619092.jpg" />
+  <img src="Z:/picture/008/save_picture_619092.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618824.jpg" />
+  <img src="Z:/picture/008/save_picture_618824.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618700.jpg" />
+  <img src="Z:/picture/008/save_picture_618700.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617608.jpg" />
+  <img src="Z:/picture/008/save_picture_617608.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617265.jpg" />
+  <img src="Z:/picture/008/save_picture_617265.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617066.jpg" />
+  <img src="Z:/picture/008/save_picture_617066.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617052.jpg" />
+  <img src="Z:/picture/008/save_picture_617052.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616920.jpg" />
+  <img src="Z:/picture/008/save_picture_616920.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615131.jpg" />
+  <img src="Z:/picture/008/save_picture_615131.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615078.jpg" />
+  <img src="Z:/picture/008/save_picture_615078.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615052.jpg" />
+  <img src="Z:/picture/008/save_picture_615052.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614930.jpg" />
+  <img src="Z:/picture/008/save_picture_614930.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614481.jpg" />
+  <img src="Z:/picture/008/save_picture_614481.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613775.jpg" />
+  <img src="Z:/picture/008/save_picture_613775.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612684.jpg" />
+  <img src="Z:/picture/008/save_picture_612684.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612017.jpg" />
+  <img src="Z:/picture/008/save_picture_612017.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611744.jpg" />
+  <img src="Z:/picture/008/save_picture_611744.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611649.jpg" />
+  <img src="Z:/picture/008/save_picture_611649.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611310.jpg" />
+  <img src="Z:/picture/008/save_picture_611310.jpg" />
 </div>
 
 
@@ -595,86 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE366C8EB64781BF9F33DDB286BFB6A888A83DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038004   (610113) от 26.07.2016
-
-Максим Чертанов | Эйнштейн (2015) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что Эйнштейн был великим физиком (хотя сейчас модно в этом сомневаться). О нем изданы прекрасные, хотя теперь уже чуточку устаревшие книги. Сам Эйнштейн не хотел, чтобы о нем знали что-то еще. Зачем же о нем пишут снова и снова? Почему не оставить его частную жизнь в покое? Увы, об этой жизни опубликовано столько оскорбительной лжи и в то же время существует (   Читать дальше...   )Жанр: БиографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E5F38E9D6A9E436B17A058792C8F394F9ECEF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038107   (610106) от 26.07.2016
-
-Максим Чертанов | Эйнштейн (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все знают, что Эйнштейн был великим физиком (хотя сейчас модно в этом сомневаться). О нем изданы прекрасные, хотя теперь уже чуточку устаревшие книги. Сам Эйнштейн не хотел, чтобы о нем знали что-то еще. Зачем же о нем пишут снова и снова? Почему не оставить его частную жизнь в покое? Увы, об этой жизни опубликовано столько оскорбительной лжи и в то же время существует (   Читать дальше...   )Жанр: БиографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C026679B300F2A06DFD686BE01C6895504571FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296766   (608723) от 19.04.2019
-
-К. Маркс | 18-е Брюмера Луи Бонапарта (1905) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608723.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе на основе материалистической диалектики дан анализ основных этапов французской революции 1848 года, объясняются причины контрреволюционного переворота Луи Бонапарта в декабре 1851 года. На конкретном примере Франции классовая борьба рассматривается как движущая сила истории.
-
-Маркс подчёркивает глубокое различие между фразами и иллюзиями тех или иных политических (   Читать дальше...   )Жанр: История, политология, социология, правоведение, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA979DB4A4A9124355E4A8B3FAAF24878CB4D0AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

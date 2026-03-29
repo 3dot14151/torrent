@@ -1,3 +1,83 @@
+###  Публикация: 1234391   (477633) от 03.09.2018
+
+Оставшееся прощание / Yibyuli Ddeonatda / Goodbye to Goodbye (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-20 из 20) SoftBox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Муж одной из главных героинь Ён Хи пилот Сан Джин завел роман на стороне, с тех пор она живет одна, не поддерживая с ним никакой связи.
+Однажды к ней приходит Чон Хё, она беременна от сына Ён Хи, но тот настаивает на аборте. Однако Чон Хё хочет обязательно родить этого ребенка и извещает героиню, что до родов останется жить у неё.
+Сначала совместная жизнь двух женщин (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: мелодрамаРежиссер: Ким Мин СикАктеры: Ли Сон Джэ, Чон Хе Ён, Чхэ Си Ра, Чо Бо А, Ли Джун Ён, Ян Хи Гён, Ха Си Ын, Ким Сан Хо, О Ха Ни, Чон Ун Ин и др.Перевод: Двуголосый закадровый, любительский - SoftBoxПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783C824775729605DEAC0BE94C575CC8BC643C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567905   (468013) от 05.08.2022
+
+Связь: Ешь, люби, убивай / Ringkeu: meokgo saranghara jukige / Link: Eat, Love, Kill (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ын Ге-хун работает шеф-поваром в ресторане в городе, где 20 лет назад пропала его сестра-близнец. Однажды парень внезапно начинает испытывать несвязанные с его настроением эмоции и вскоре выясняет, что у него установилась странная ментальная связь с девушкой Но Да-хён.Производство: Южная Корея, Studio Dragon, TVNЖанр: детектив, мелодрама, фэнтезиРежиссер: Хон Джон-чханАктеры: Ё Джин-гу, Мун Га-ён, Сон Док-хо, Ли Сок-хён, Ким Джи-ён, Ким Чхан-хён, Е Су-джон, Щин Джэ-хви, Ли Бом, Пак По-гёнПеревод: Двуголосый любительский (SOFTBOX)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7479245AD49086882A6D305573F1CF48F35F47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824322   (439230) от 06.10.2014
+
+Запертая комната / Kagi no Kakatta Heya (2012) HDTVRip (сезон 1, серии 1-11 из 11) (ViruseProject)
+
+>>След.
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кей Эномото работает в крупной охранной компании. Он ежедневно посвящает себя исследованию защитных систем (преимущественно ключи и замки) в отделе по продаже оборудования, который находится в конце тёмного корридора основного офиса. Эномото хорошо знаком с преступным миром, он хладнокровен и необщителен — на первый взгляд к нему трудно подступиться, — а также обладает (   Читать дальше...   )Жанр: ДетективРежиссер: Хироаки МацуямаАктеры: Ohno Satoshi (Enomoto Kei), Toda Erika (Aoto Junko), Sato Koichi (Serizawa Gou) и др.Перевод: Одноголосый закадровый ViruseProjectПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C742DE9A543EE13E290BA690EEB9B6630F8415A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241285   (439152) от 21.09.2018
 
 Голос / Boiseu / The Voice (2018) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-12 из 12) HramDoram
@@ -6,7 +86,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439152.jpg" />
+  <img src="Z:/picture/008/save_picture_439152.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430385.jpg" />
+  <img src="Z:/picture/008/save_picture_430385.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418660.jpg" />
+  <img src="Z:/picture/008/save_picture_418660.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416099.jpg" />
+  <img src="Z:/picture/008/save_picture_416099.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416078.jpg" />
+  <img src="Z:/picture/008/save_picture_416078.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414181.jpg" />
+  <img src="Z:/picture/008/save_picture_414181.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414006.jpg" />
+  <img src="Z:/picture/008/save_picture_414006.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412217.jpg" />
+  <img src="Z:/picture/008/save_picture_412217.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410584.jpg" />
+  <img src="Z:/picture/008/save_picture_410584.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386494.jpg" />
+  <img src="Z:/picture/008/save_picture_386494.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385088.jpg" />
+  <img src="Z:/picture/008/save_picture_385088.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373092.jpg" />
+  <img src="Z:/picture/008/save_picture_373092.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373052.jpg" />
+  <img src="Z:/picture/008/save_picture_373052.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372722.jpg" />
+  <img src="Z:/picture/008/save_picture_372722.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359508.jpg" />
+  <img src="Z:/picture/008/save_picture_359508.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359375.jpg" />
+  <img src="Z:/picture/008/save_picture_359375.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359243.jpg" />
+  <img src="Z:/picture/008/save_picture_359243.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356662.jpg" />
+  <img src="Z:/picture/008/save_picture_356662.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354508.jpg" />
+  <img src="Z:/picture/008/save_picture_354508.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352104.jpg" />
+  <img src="Z:/picture/005/save_picture_352104.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340810.jpg" />
+  <img src="Z:/picture/008/save_picture_340810.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338574.jpg" />
+  <img src="Z:/picture/008/save_picture_338574.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338406.jpg" />
+  <img src="Z:/picture/008/save_picture_338406.jpg" />
 </div>
 
 
@@ -595,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F28E41D6693C9064C64E8DAA65C8F769E969F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548304   (338035) от 26.09.2022
-
-Шоу начинается! / С этого момента время для шоу! / Jigeumbuteo Syotaim! / From Now On, Showtime! (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) FRONDA, HIGH HOPES, SOFTBOX
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическо-детективная комедия о сотрудничестве фокусника, который водит дружбу с призраками, и женщиной-детективом, тоже не обделенной паранормальными способностями.
-Чха Чха Ун – талантливый фокусник. Он известен своими едкими высказываниями и шоу, от которых у зрителей по коже пробегает мороз. Успешность его выступлений объясняется просто: он может видеть призраков, (   Читать дальше...   )Производство: Южная Корея, 	Samhwa NetworksЖанр: комедия, мелодрама, детектив, фэнтезиРежиссер: Ли Хён-минАктеры: Пак Хэ-джин, Чин Ги-джу, Ко Гю-пхиль, Чон Джун-хо, Чон Сог-ён, Пак Со-ён, Ким Джон-хун, Чха Ми-гёнПеревод: многоголосый любительский (FRONDA), двуголосый любительский (HIGH HOPES, SOFTBOX)Язык озвучки: русский, корейскийСубтитры: русскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9389AFEA4DDA333D6CFA3FC393118184CC5340BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257092   (336087) от 30.10.2018
-
-Дьявольская радость / Maseongui gippeum / Devilish joy (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SoftBox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гениальный доктор, страдающий потерей кратковременной памяти, влюбляется в бывшую актрису.Производство: Корея ЮжнаяЖанр: мелодрама, комедияРежиссер: Ким Га-рамАктеры: Чхве Джин-хёк, Хоя, Сон Ха-юн, Ли Джу-ён, Ким Мин-сан, Кан Юн-джэ, Чхве Сын-хун, Ким Джи-ён, О Гван-рок, Квон Хёк-су и др.Перевод: Двуголосый закадровый, любительский - SoftBoxПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2A460967C4F32917A01CF958772C1B698ED2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955465   (331795) от 12.11.2015
-
-Махабхарата / Mahabharat (2013) WEB-DL [H.264/1080p-LQ] (серии 1-267 из 267) Яшодарани даси
-
->>След.
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331795.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания два рода — Пандавы и Кауравы. Они принадлежат к одной династии Куру, но соперничество между ними не знает границ. Род Пандавы олицетворяет в себе светлое, доброе, божественное начало, в то время как род Кауравы — это средоточие зла, зависти и подлости. Соперничество между двумя ветвями одной династии происходит за власть, богатство, владение столицей (   Читать дальше...   )Производство: ИндияЖанр: Семейный, Приключения, Боевик, МелодрамаРежиссер: Амарприт Г.С. Чхабра, Сиддхартх Ананд Кумар, Камал Монга,  Локнат ПандейАктеры: Саурабх Радж Джейн, Шахир Шейх, Пуджа Шарма, Ахам Шарма, Арав Чхоудхари, Тхакур Ануп Сингх, Швета Гаутам, Саянтани Гхош, Вибха Ананд, Лаванья Бхардвадж, Деблина Чаттерджи, Рийя Дипси, Апарна Диксит, Арун Рана, Джаянтика Сенгупта, Shafaq Naaz, Манси Шарма, Нисар Кхан, Пранит Бхатт, Рио Кападиа, Арпит РанкаПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: Яшодарани даси / Абхинанда дасЯзык субтитров: Русский, АнглийскийПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94BC76A36B64091E3E8AE8A6F83730033349D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

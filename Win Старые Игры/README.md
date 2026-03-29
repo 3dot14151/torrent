@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861986   (1063108) от 
+
+Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scarface: The World is Yours - альтернативный взгляд на драматичную историю, рассказанную в легендарной гангстерской киносаге «Scarface» («Лицо со шрамом»). Если главный герой картины - Тони Монтана - в финале фильма погибает, то по сценарию игры - лишь «уходит на дно» зализывать раны. А затем возвращается на улицы Майами, движимый жаждой мести и жгучей ненавистью. (   Читать дальше...   )Тип издания: RepackРазработчик: Radical EntertainmentЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4765B862E04EF661CDF6A2E505F176A5CAB7C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860945   (1062257) от 
+
+BioShock (2007) [Ru] (Build 11242) Repack seleZen
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062257.jpg" />
+</div>
+
+
+###  Подробнее
+
+События долгожданного новаторского «умного шутера» разворачиваются в Восторге - подводном городе будущего, где в конце 1940-х годов будто бы поселились люди, открывшие чудо-вещество. Принимая даже его небольшие дозы, средний человек проходил серию стремительных мутаций и буквально на глазах становился быстрее, сильнее, умнее.Тип издания: RepackРазработчик: 2K Boston, 2K Australia, Feral InteractiveЖанр: ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8C4C576D298471DBDE2DC82471B1EEEC435109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858075   (1060215) от 08.03.2026
 
 Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
@@ -7,7 +59,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060215.jpg" />
+  <img src="Z:/picture/009/save_picture_1060215.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06) Repack 1nomok
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060132.jpg" />
+  <img src="Z:/picture/009/save_picture_1060132.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060094.jpg" />
+  <img src="Z:/picture/009/save_picture_1060094.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060088.jpg" />
+  <img src="Z:/picture/009/save_picture_1060088.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059957.jpg" />
+  <img src="Z:/picture/009/save_picture_1059957.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059944.jpg" />
+  <img src="Z:/picture/009/save_picture_1059944.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059733.jpg" />
+  <img src="Z:/picture/005/save_picture_1059733.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059519.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Catwoman (2004) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059332.jpg" />
+  <img src="Z:/picture/005/save_picture_1059332.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Hitman: Contracts (2004) [En] (1.74) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059063.jpg" />
+  <img src="Z:/picture/005/save_picture_1059063.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059017.jpg" />
+  <img src="Z:/picture/005/save_picture_1059017.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ FlatOut 2 (2006) [Ru] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058395.jpg" />
+  <img src="Z:/picture/005/save_picture_1058395.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ FlatOut (2004) [Ru] (1.1) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058181.jpg" />
+  <img src="Z:/picture/005/save_picture_1058181.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Need for Speed: Underground 2 (2004) [En] (1.2) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057979.jpg" />
+  <img src="Z:/picture/005/save_picture_1057979.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057871.jpg" />
+  <img src="Z:/picture/005/save_picture_1057871.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057869.jpg" />
+  <img src="Z:/picture/005/save_picture_1057869.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057817.jpg" />
+  <img src="Z:/picture/005/save_picture_1057817.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Serious Sam 2 (2005) [Ru] (2.0.7.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057674.jpg" />
+  <img src="Z:/picture/005/save_picture_1057674.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Juiced (2005) [En] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057672.jpg" />
+  <img src="Z:/picture/005/save_picture_1057672.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057513.jpg" />
+  <img src="Z:/picture/005/save_picture_1057513.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055670.jpg" />
+  <img src="Z:/picture/005/save_picture_1055670.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Nosferatu: The Wrath of Malachi / Вампиры (2003) [Multi] (1.0v3) License 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054984.jpg" />
+  <img src="Z:/picture/005/save_picture_1054984.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack seleZen [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053919.jpg" />
+  <img src="Z:/picture/005/save_picture_1053919.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052280.jpg" />
+  <img src="Z:/picture/005/save_picture_1052280.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ Call of Cthulhu: Prisoner of Ice (1995) [En] (1.01 v2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED12339976B40AC768123791AB562CBB447FA5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847220   (1051929) от 11.01.2026
-
-Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005) [Ru/Multi] (1.02.0001) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стратегия в реальном времени Dragonshard переносит игрока в таинственную вселенную Eberron - молодой мир, в котором потомки прекрасных эльфов практикуют темное колдовство, и где на страже добра стоит нерушимый альянс светлых сил. Адепты тьмы и благородный Орден ведут непримиримую войну за таинственный кристалл, история которого восходит к самому сотворению мира. (   Читать дальше...   )Тип издания: LicenseРазработчик: Liquid EntertainmentЖанр: Стратегия, Ролевая играЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846713   (1051683) от 08.01.2026
-
-Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051683.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тени над Ривой» - третья часть великолепной трилогии «Царства Аркании». Нечто ужасное творится в прибрежном городе Рива. Храбрые и почтенные воины отказываются сражаться с ордой орков, атакующей город. Дьявольская сила терзает их сердца и мысли. Сможет ли небольшая группа ваших героев одолеть ее, пока не стало слишком поздно? Цель игры – разоблачить предателей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Attic Entertainment SoftwareЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

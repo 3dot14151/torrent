@@ -1,3 +1,107 @@
+###  Публикация: 1000304   (858614) от 25.03.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRemux [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F01EA8A0D5F96531CA31EB5E678383EAFA2C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000320   (858613) от 25.03.2016
+
+Trackmania® Turbo (2016) [Ru/Multi] (1.0) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trackmania Turbo – новая часть в серии аркадных гонок Trackmania, в которой вас ждут сотни новых испытаний. В игре доступно 200 головокружительных трасс, 4 неповторимых гоночных мира с уникальным геймплеем, а также великолепный конструктор, который позволит создать бесконечное количество уникальных трасс. Вы также сможете стать участником игрового сообщества и получить (   Читать дальше...   )Тип издания: LicenseРазработчик: NadeoЖанр: Arcade, Racing, Cars, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский (отдельно), Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFAC86850B727C3698D8D330E450614A93771C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000257   (858609) от 25.03.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC096DA9F638C35552864EBD3A817D2B06C3953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109414   (858538) от 27.02.2017
+
+Cent Browser 2.4.2.19 + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cent Browser - является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46B0CA762F16FC7DEF1B3BEBD38B735E8C98B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104375   (858418) от 27.02.2017
 
 Лунный свет / Moonlight (2016) WEB-DLRip
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858418.jpg" />
+  <img src="Z:/picture/008/save_picture_858418.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858412.jpg" />
+  <img src="Z:/picture/008/save_picture_858412.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ JetBrains PyCharm Professional 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857979.jpg" />
+  <img src="Z:/picture/008/save_picture_857979.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857974.jpg" />
+  <img src="Z:/picture/008/save_picture_857974.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Batman: Arkham Knight (2015) [Ru/Multi] (1.7/dlc) Repack R.G. Catalyst [Game of 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857973.jpg" />
+  <img src="Z:/picture/008/save_picture_857973.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.25.09.21) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857405.jpg" />
+  <img src="Z:/picture/008/save_picture_857405.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857400.jpg" />
+  <img src="Z:/picture/008/save_picture_857400.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857313.jpg" />
+  <img src="Z:/picture/008/save_picture_857313.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ Adobe Muse CC 2015.1.2.44 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856947.jpg" />
+  <img src="Z:/picture/008/save_picture_856947.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856811.jpg" />
+  <img src="Z:/picture/008/save_picture_856811.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Malwarebytes Anti-Malware Premium 2.2.1.1043 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856803.jpg" />
+  <img src="Z:/picture/008/save_picture_856803.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856801.jpg" />
+  <img src="Z:/picture/008/save_picture_856801.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/Multi] (1.0.8767.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856688.jpg" />
+  <img src="Z:/picture/008/save_picture_856688.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856687.jpg" />
+  <img src="Z:/picture/008/save_picture_856687.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Just Cause 3 (2015) [Ru/Multi] (1.05/dlc) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856686.jpg" />
+  <img src="Z:/picture/008/save_picture_856686.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856685.jpg" />
+  <img src="Z:/picture/008/save_picture_856685.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856682.jpg" />
+  <img src="Z:/picture/008/save_picture_856682.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ MInstAll v.17.04.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856195.jpg" />
+  <img src="Z:/picture/008/save_picture_856195.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ JetBrains PhpStorm 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856193.jpg" />
+  <img src="Z:/picture/008/save_picture_856193.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856189.jpg" />
+  <img src="Z:/picture/008/save_picture_856189.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856187.jpg" />
+  <img src="Z:/picture/008/save_picture_856187.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Jetbrains IntelliJ IDEA Ultimate 2020.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856186.jpg" />
+  <img src="Z:/picture/008/save_picture_856186.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ IntelliJ IDEA — самая умная среда разработки для J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC851B0045734551F73179CE4472C3169CCD4860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417547   (855691) от 27.09.2021
-
-Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить голос, что таится внутри. «Я тебя знаю. И знаю, на что ты способна».Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5F76586EBD406AAC01458AA62A1FFF05A98C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473695   (855690) от 27.09.2021
-
-Новый порядок / Nuevo orden (2020) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскошная свадьба представителей высшего класса прерывается явлением непрошенных гостей - в стране начинаются бунты, сопровождающиеся ростом классовой ненависти и всплеском насилия.Производство: Мексика, Франция / Les Films d'Ici, Teorema FilmsЖанр: ДрамаРежиссер: Мишель ФранкоАктеры: Найан Гонсалес Норвинд, Фернандо Куаутле, Диего Бонета, Саманта Язарет Анайя, Луна Арболедас, Дарио Язбек Берналь, Патрисия Берналь, Айелен Бонасина, Мануэль Буэно, Хорхе Луис Чавез КабальероПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английские, итальянскиеПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F409C650E53080B9AD4F6FCF2925833197DD6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875271   (855504) от 07.03.2015
-
-Невидимки (2013) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855504.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Нового года удивительное событие навсегда меняет жизнь главного героя: он становится невидимкой! Правда, понимает он это не сразу, так как уже привык к тому, что его никто не замечает и не принимает всерьез. Очень быстро войдя во вкус новой жизни и своих супер способностей, он вдруг обнаруживает, что он такой не один!Производство: РоссияЖанр: Комедия, ФантастикаРежиссер: Сергей КомаровАктеры: Илья Любимов, Екатерина Гусева,Гоша Куценко, Андрей Мерзликин, Ирина Розанова, Иван Чуваткин, Вера Борисенкова, Зураб Гурцкая, Владимир Дыховичный, Петр ВинсПеревод: Перевод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161FE4E9F4FF1D96AD2828AE65A0B502844DCB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000598   (854978) от 27.03.2016
-
-Samorost 3 (2016) [Ru/Multi] (1.0) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samorost 3 — приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: AdventureЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CB4DD346A90848F99D0E2920EB9566426C6983
 ```
 
 https://mybot314.ru/tekegram_catalog/

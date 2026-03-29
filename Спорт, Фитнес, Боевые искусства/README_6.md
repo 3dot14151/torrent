@@ -1,3 +1,30 @@
+###  Публикация: 1022815   (727695) от 03.06.2016
+
+Анатолий Голубев | Живущие дважды (1972) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги, известный журналист Анатолий Голубев, побывал во многих странах мира. В своей новой книге он знакомит читателя с жизнью зарубежных профессионалов-велогонщиков.
+Трагедия спортсмена в западном мире! На убедительных примерах рассказывает автор о махинациях зарубежных заправил спорта, о спортсменах-профессионалах, приносящих огромные прибыли своим хозяевам. (   Читать дальше...   )Жанр: Детская проза, спортФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86699FF5E7E75C7C91C50C210EBD7A66CCC38C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022812   (727693) от 03.06.2016
 
 Анатолий Голубев | Убежать от себя (1982) [FB2]
@@ -6,7 +33,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727693.jpg" />
+  <img src="Z:/picture/008/save_picture_727693.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726949.jpg" />
+  <img src="Z:/picture/008/save_picture_726949.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726672.jpg" />
+  <img src="Z:/picture/008/save_picture_726672.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726274.jpg" />
+  <img src="Z:/picture/008/save_picture_726274.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725865.jpg" />
+  <img src="Z:/picture/008/save_picture_725865.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723525.jpg" />
+  <img src="Z:/picture/008/save_picture_723525.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721936.jpg" />
+  <img src="Z:/picture/005/save_picture_721936.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721935.jpg" />
+  <img src="Z:/picture/008/save_picture_721935.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719360.jpg" />
+  <img src="Z:/picture/008/save_picture_719360.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718745.jpg" />
+  <img src="Z:/picture/008/save_picture_718745.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715627.jpg" />
+  <img src="Z:/picture/008/save_picture_715627.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713032.jpg" />
+  <img src="Z:/picture/008/save_picture_713032.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712596.jpg" />
+  <img src="Z:/picture/008/save_picture_712596.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711565.jpg" />
+  <img src="Z:/picture/008/save_picture_711565.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705600.jpg" />
+  <img src="Z:/picture/008/save_picture_705600.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702322.jpg" />
+  <img src="Z:/picture/008/save_picture_702322.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701136.jpg" />
+  <img src="Z:/picture/008/save_picture_701136.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699850.jpg" />
+  <img src="Z:/picture/008/save_picture_699850.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699343.jpg" />
+  <img src="Z:/picture/008/save_picture_699343.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699262.jpg" />
+  <img src="Z:/picture/008/save_picture_699262.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698386.jpg" />
+  <img src="Z:/picture/008/save_picture_698386.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696701.jpg" />
+  <img src="Z:/picture/008/save_picture_696701.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696629.jpg" />
+  <img src="Z:/picture/008/save_picture_696629.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694869.jpg" />
+  <img src="Z:/picture/008/save_picture_694869.jpg" />
 </div>
 
 
@@ -632,52 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221621   (692991) от 25.04.2018
+###  Публикация: 1133512   (693031) от 13.05.2017
 
-Микеле Алаймо | Как стать спадистом (2018) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теорико-практический трактат по современному итальянскому фехтованию мечем, с приложением «О фехтовании с точки зрения гигиены образования и физической терапии».Жанр: Боевые искусства, ФехтованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DDC99A3606B2CD550AC02DE79D357D6DC1B559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221623   (692984) от 25.04.2018
-
-Джузеппе Морсикато Паллавичини | Первая и вторая части фехтования (2018) [PDF]
+М. Карпова | Словарь терминов айкидо (2007) [PDF]
 
 >>Разное (категория книг)
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данная книга содержит перевод первого и второго закрытого коллекционного трактата по фехтованию Маэстро фехтования Джузеппе Морсикато Паллавичини.
-Паллавичини оставил после себя очень великий труд, который представляет собой огромную ценность до сегодняшнего дня. В книге представлены все иллюстрации с объяснениями, разнообразные сведения по истории фехтования, касающиеся (   Читать дальше...   )Жанр: Боевые искусства, ФехтованиеФормат: PDF
+Словарь предназначен как для начинающих, так и для опытных айкидоистов. Для тех, кто занимается айкидо относительно недавно, ряд терминов снабжен иллюстрациями. Эти иллюстрации предназначены не для обучения правильному выполнению движений или приемов, а исключительно для того, чтобы облегчить "узнавание" терминов и запоминание терминов, и изображают отдельные, (   Читать дальше...   )Жанр: Боевые искусстваФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:760F676D9EF48BCB0D29A3D471A47D0E5430DD53
+magnet:?xt=urn:btih:669D85DE35DDE089788F0064195E8AA20626550E
 ```
 
 https://mybot314.ru/tekegram_catalog/

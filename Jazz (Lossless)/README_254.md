@@ -1,3 +1,119 @@
+###  Публикация: 1445616   (236043) от 06.02.2021
+
+Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [5:00]
+02. I'm in the Mood for Love [3:22]
+03. Dinah [8:03]
+04. Tea for Two [6:50](   Читать дальше...   )Жанр: SwingПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A874B30A5FB5F2F45C6AC3E1C3AB1371D36EB94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511461   (236039) от 21.11.2021
+
+Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brownsburg Blues [4:19]
+02. Falando De Orlando [6:15]
+03. York Town Girl [4:36]
+04. Midnight at Maxim's [4:19](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F0230C7C76E06D30CC26273B7A25E963AD1513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613228   (236010) от 18.02.2023
+
+Greg Cohen - Way Low (1996) DIW [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Low [7:43]
+02. B & W [3:13]
+03. Salta Montes [6:27]
+04. Lazurite [8:35](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A87753528A80C41D71B77D569A10B834C1E65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640846   (235964) от 19.06.2023
+
+Scott Bradlee's Postmodern Jukebox - The Fourth Tuning (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing, Vintage>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Up That Hill (A Deal With God) (feat. Sweet Megg)
+02. Man! I Feel Like A Woman!
+03. The Power Of Love (feat. Sarah Potenza)
+04. I Was Made For Lovin' You (feat. Effie Passero)(   Читать дальше...   )Жанр: Jazz, Swing, VintageПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC435639FD29352CEBAD95A1F3A35323D07BF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457813   (235955) от 27.03.2021
 
 Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235955.jpg" />
+  <img src="Z:/picture/005/save_picture_235955.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235932.jpg" />
+  <img src="Z:/picture/004/save_picture_235932.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Chico Hamilton - Three Classic Albums Plus (1953 - 1956) 2CD, 2008, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235892.jpg" />
+  <img src="Z:/picture/005/save_picture_235892.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Hal Singer & Jef Gilson - Soul Of Africa (1974) 2008, Kindred Spirits [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235890.jpg" />
+  <img src="Z:/picture/005/save_picture_235890.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charles Mingus - A Modern Jazz Symposium Of Music & Poetry (1957) 1994, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235862.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Enrico Rava & Fred Hersch - The Song Is You (2022) ECM Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235839.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235807.jpg" />
+  <img src="Z:/picture/004/save_picture_235807.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Freddie Hubbard - Here To Stay (1962) 1988, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235792.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235788.jpg" />
+  <img src="Z:/picture/004/save_picture_235788.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235778.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235777.jpg" />
+  <img src="Z:/picture/004/save_picture_235777.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235759.jpg" />
+  <img src="Z:/picture/004/save_picture_235759.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235643.jpg" />
+  <img src="Z:/picture/004/save_picture_235643.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Oliver Nelson & Nobuo Hara - In Tokyo (1970) 2013, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235604.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ John Fedchock NY Sextet - Into The Shadows (2020) Summit Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235589.jpg" />
+  <img src="Z:/picture/004/save_picture_235589.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Terence Blanchard - Absence (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235578.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mike LeDonne & The Groover Quartet - AwwlRIGHT! (2015) Savant [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235577.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Barbara Carroll - This Heart Of Mine (1994) DRG Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235550.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Gary Burton - Alone At Last (1971) 2012, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235544.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Denny Zeitlin - Early Wayne (2016) Sunnyside [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235506.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Roland Hanna - Plays Harold Rome's Destry Rides Again (1959) 2007, Wounded Bird 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235485.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Von Freeman - The Great Divide (2004) Premonition Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235460.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Von Freeman - The Great Divide (2004) Premonition Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329F4619A977361DB5211C0AF13A9FC7CBBA5ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641374   (235439) от 22.06.2023
-
-Jessica Williams - Live At Maybeck Recital Hall, Vol. 21 (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introductory Announcement [0:18]
-02. Why Do I Love You? [6:40]
-03. The Nearness of You [7:49]
-04. Kristen [8:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEC38D17D1ADE3815BC7412F8553331A78CFF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641370   (235433) от 22.06.2023
-
-Paul Bley, Evan Parker, Barre Phillips - Time Will Tell (1995) ECM [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetic Justice [17:22]
-02. Time Will Tell [4:25]
-03. Above the Tree Line [4:50]
-04. You Will, Oscar, You Will [4:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AE128F6849A50A0013D165B572C4C5321C5296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641373   (235427) от 22.06.2023
-
-Jake Fryer & Bud Shank Quintet - In Good Company (2009) 2011, Capri Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [7:41]
-02. Bopping with Bud [7:32]
-03. Agnieszka [9:33]
-04. Tip Top and Tickety Boo [4:36](   Читать дальше...   )Жанр: West Coast Jazz, Mainstream JazzПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AF77EB955BC15CDF2A9B5007EE22A405C5D430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641369   (235419) от 22.06.2023
-
-Sonny Rollins - Jazz Profile (1956, 1957) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plain Jane [9:58]
-02. You Stepped Out of a Dream [6:24]
-03. Reflections [7:03]
-04. Sonnymoon for Two [8:51](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53647442D9353467C2C80C6857F12854683911
 ```
 
 https://mybot314.ru/tekegram_catalog/

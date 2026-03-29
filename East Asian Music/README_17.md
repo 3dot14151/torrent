@@ -6,7 +6,7 @@ Bloody Sword - 3 альбома (2011-2013) Touhou Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221668.jpg" />
+  <img src="Z:/picture/005/save_picture_221668.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ LiSA - Lover"S"Mile (2012) [MP3|320 Kbps] <J-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221152.jpg" />
+  <img src="Z:/picture/005/save_picture_221152.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ LiSA - Little Devil Parade (2017) [MP3|320 Kbps] <J-Pop>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219422.jpg" />
+  <img src="Z:/picture/005/save_picture_219422.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ petit milady - 3 сингла (2014-2015) [FLAC|Lossless|tracks] <J-Pop>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217749.jpg" />
+  <img src="Z:/picture/005/save_picture_217749.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gong Yue - Buddhist Music (2011) [MP3|320 кб/с]<Folk, Mantras>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217081.jpg" />
+  <img src="Z:/picture/005/save_picture_217081.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Fear, and Loathing in Las Vegas - Cocoon for the Golden Future (2022) [FLAC|Loss
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215670.jpg" />
+  <img src="Z:/picture/005/save_picture_215670.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208318.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Sangatsu no Phantasia - Дискография (2016 - 2020) [FLAC|Lossless|WEB-
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206978.jpg" />
+  <img src="Z:/picture/005/save_picture_206978.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Onmyo-Za - Fuujin Kaikou (2014) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206404.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Galneryus - Between Dread And Valor (2023) [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206147.jpg" />
+  <img src="Z:/picture/005/save_picture_206147.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Lovebites - Knockin' At Heaven's Gate - Live In Tokyo (2023) [FLAC|Lossless|WEB-
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203906.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197753.jpg" />
+  <img src="Z:/picture/004/save_picture_197753.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190583.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Hagane - Code ; 9021 (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189990.jpg" />
+  <img src="Z:/picture/005/save_picture_189990.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dark Mirror ov Tragedy - The Lord ov Shadows (2018) [FLAC|Lossless|image + .cue]
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189125.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188522.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Chaos Control - The Legacy Within (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186785.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184466.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183122.jpg" />
+  <img src="Z:/picture/004/save_picture_183122.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176750.jpg" />
+  <img src="Z:/picture/005/save_picture_176750.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Babymetal - Babymetal Begins - The Other One - Black Night & Clear Night (2023) 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172067.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .c
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169071.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166743.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166740.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166724.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166719.jpg" />
 </div>
 
 

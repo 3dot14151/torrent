@@ -6,7 +6,7 @@ R-Drive Image Technician 6.2 Build 6200 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775709.jpg" />
+  <img src="Z:/picture/008/save_picture_775709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775705.jpg" />
+  <img src="Z:/picture/008/save_picture_775705.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ WinRAR 5.60 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775693.jpg" />
+  <img src="Z:/picture/008/save_picture_775693.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775692.jpg" />
+  <img src="Z:/picture/008/save_picture_775692.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Panda Free Antivirus 2016 16.1.2 DC 08.05.2016 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775679.jpg" />
+  <img src="Z:/picture/008/save_picture_775679.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Pepakura Designer 4.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775676.jpg" />
+  <img src="Z:/picture/008/save_picture_775676.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Gilisoft Audio Recorder Pro 7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775673.jpg" />
+  <img src="Z:/picture/008/save_picture_775673.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ LayerPaint HD v1.5.5 [En/Ru] - графический растровый ред�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775672.jpg" />
+  <img src="Z:/picture/008/save_picture_775672.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775671.jpg" />
+  <img src="Z:/picture/008/save_picture_775671.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ TurbulenceFD v1.0 build 1435 Repack by soyv4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775669.jpg" />
+  <img src="Z:/picture/008/save_picture_775669.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ FxSound Enhancer 13.020 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775668.jpg" />
+  <img src="Z:/picture/008/save_picture_775668.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MOBILedit Forensic Express 5.1.1.12189 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775665.jpg" />
+  <img src="Z:/picture/008/save_picture_775665.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sunless Sea v.2.2.5.3148 (2015) [Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775651.jpg" />
+  <img src="Z:/picture/008/save_picture_775651.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775647.jpg" />
+  <img src="Z:/picture/008/save_picture_775647.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ IcoFX 3.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775644.jpg" />
+  <img src="Z:/picture/008/save_picture_775644.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Slimjet 9.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775610.jpg" />
+  <img src="Z:/picture/008/save_picture_775610.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Gilisoft Video Converter 9.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775605.jpg" />
+  <img src="Z:/picture/008/save_picture_775605.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ AdwCleaner 5.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775602.jpg" />
+  <img src="Z:/picture/008/save_picture_775602.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Gilisoft Audio Editor 1.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775597.jpg" />
+  <img src="Z:/picture/008/save_picture_775597.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Gilisoft Video Editor 7.4.0 DC 03.05.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775595.jpg" />
+  <img src="Z:/picture/008/save_picture_775595.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rufus 2.9 (Build 900) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775593.jpg" />
+  <img src="Z:/picture/008/save_picture_775593.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MOBILedit! Enterprise 9.2.0.22984 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775590.jpg" />
+  <img src="Z:/picture/008/save_picture_775590.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ SamDrivers 18.19 OLD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775563.jpg" />
+  <img src="Z:/picture/008/save_picture_775563.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Darkest Dungeon (2016) [Ru/Multi] (24787/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775555.jpg" />
+  <img src="Z:/picture/008/save_picture_775555.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Alfred 3 Powerpack v3.7.2 (951) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775548.jpg" />
+  <img src="Z:/picture/008/save_picture_775548.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Garmin: Bulgaria OFRM Geotrade 2016 Q1 [Bg]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775522.jpg" />
+  <img src="Z:/picture/008/save_picture_775522.jpg" />
 </div>
 
 

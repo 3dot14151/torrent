@@ -6,7 +6,7 @@ Gemini 1.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877090.jpg" />
+  <img src="Z:/picture/005/save_picture_877090.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aiseesoft PDF Converter Ultimate 3.2.62 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877089.jpg" />
+  <img src="Z:/picture/005/save_picture_877089.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AnyMP4 Video Enhancement 1.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877086.jpg" />
+  <img src="Z:/picture/005/save_picture_877086.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyMP4 Video Converter Ultimate 7.0.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877081.jpg" />
+  <img src="Z:/picture/005/save_picture_877081.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877080.jpg" />
+  <img src="Z:/picture/005/save_picture_877080.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ ScreenFlow 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877079.jpg" />
+  <img src="Z:/picture/005/save_picture_877079.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Robot Koch - Hypermoment (2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Glitch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877078.jpg" />
+  <img src="Z:/picture/005/save_picture_877078.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877073.jpg" />
+  <img src="Z:/picture/005/save_picture_877073.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Discovery: Выжить любой ценой: Китайские джунгли
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876990.jpg" />
+  <img src="Z:/picture/005/save_picture_876990.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ CCleaner 5.85.9170 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876978.jpg" />
+  <img src="Z:/picture/005/save_picture_876978.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ LogTail 3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876977.jpg" />
+  <img src="Z:/picture/005/save_picture_876977.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ The Bat! Professional Edition 9.4.4 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876976.jpg" />
+  <img src="Z:/picture/005/save_picture_876976.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ CCleaner 5.85.9170 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876974.jpg" />
+  <img src="Z:/picture/008/save_picture_876974.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876971.jpg" />
+  <img src="Z:/picture/008/save_picture_876971.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876969.jpg" />
+  <img src="Z:/picture/005/save_picture_876969.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876968.jpg" />
+  <img src="Z:/picture/005/save_picture_876968.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Rufus 2.8 (Build 883) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876966.jpg" />
+  <img src="Z:/picture/005/save_picture_876966.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876965.jpg" />
+  <img src="Z:/picture/008/save_picture_876965.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ AIMP 4.01 Build 1703 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876960.jpg" />
+  <img src="Z:/picture/005/save_picture_876960.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876956.jpg" />
+  <img src="Z:/picture/005/save_picture_876956.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Kaspersky Lab Products Remover 1.0.995 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876955.jpg" />
+  <img src="Z:/picture/005/save_picture_876955.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ PhotoInstrument 7.4 Build 834 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876946.jpg" />
+  <img src="Z:/picture/005/save_picture_876946.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876945.jpg" />
+  <img src="Z:/picture/005/save_picture_876945.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ HyperSnap 8.10.00 RePack (& Portable) by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876943.jpg" />
+  <img src="Z:/picture/005/save_picture_876943.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Website Watchman 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876935.jpg" />
+  <img src="Z:/picture/005/save_picture_876935.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876934.jpg" />
+  <img src="Z:/picture/005/save_picture_876934.jpg" />
 </div>
 
 

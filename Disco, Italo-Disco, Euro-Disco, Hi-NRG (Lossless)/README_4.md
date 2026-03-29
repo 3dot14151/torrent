@@ -6,7 +6,7 @@ JohnnyM5 - Fantasy Of Love (Extended & Remixed) (2009) [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947442.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ C.C. Catch - Maxi Hit-Sensation: Nonstop DJ-Mix+Extra Bass (2006) [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946404.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944941.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Do Piano - Again & Forever (2009) [FLAC|Lossless|image + .cue] <Italo-Disco, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943761.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Modern Talking - Let's Talk About Love (1985) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940572.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cerrone - DNA (2020) [FLAC|Lossless|image + .cue] <Disco, House>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939369.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 80's Revolution - Disco Fox Volume 2 (2 CD) (2010) [FLAC|Lossless]<Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938651.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Italo Disco Hits (collectors edition) vol. 1, vol. 2 (2010) [FLAC|Lossless]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936958.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ F.R. David - 5 Альбомов (1982-2007) [FLAC|Lossless|image + .cue] <Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935639.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Baccara - I Belong To Your Heart (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933613.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Italo Disco Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928935.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Italo Disco (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928930.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927918.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Number One Party '70 '80 Compilation (2003) 2CD [FLAC|Lossless|image + .cue
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922472.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|track
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920140.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918882.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Arabesque - The Magic of Arabesque (2016) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918806.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917227.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Alphaville - First Harvest  The Best Of Alphaville 1984-1992 (2003) [APE]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914925.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ VA - Disco Gold: Scepter Records & The Birth Of Disco (2011) [FLAC|Lossless|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914084.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Stylove - The 2nd Album (2019) Limited Edition [FLAC|Lossless|image + .cue] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910871.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ VA - Disco Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910344.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Ken Laszlo - The Best Of (1994) [APE|Lossless|image + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908392.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Dead Or Alive - That's The Way I Like It: The Best Of Dead Or Alive (2010) Compi
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904871.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Dee D. Jackson - Space And Time (2010) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902922.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898862.jpg" />
 </div>
 
 

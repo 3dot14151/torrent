@@ -1,3 +1,29 @@
+###  Публикация: 1036221   (622667) от 19.07.2016
+
+Наш человек в Ватикане (2016) DVB
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о судьбе удивительного человека, проживавшего в 13 странах мира и носившего более 20 чужих имен, фамилий и псевдонимов. Факты и легенды из жизни советского разведчика Иосифа Григулевича.Телекомпания: Россия, ФГУП ТТЦ "Останкино"Жанр: Документальный, РазведкаПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC2B5E45C2438E4045FE6A78CD3B8F254C0E4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036229   (622658) от 19.07.2016
 
 Тайная история разведки. Соло для одиноких сов (2011) DVB (Серии 1-4 из 4)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622658.jpg" />
+  <img src="Z:/picture/008/save_picture_622658.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619978.jpg" />
+  <img src="Z:/picture/008/save_picture_619978.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611900.jpg" />
+  <img src="Z:/picture/008/save_picture_611900.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611515.jpg" />
+  <img src="Z:/picture/008/save_picture_611515.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610617.jpg" />
+  <img src="Z:/picture/008/save_picture_610617.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610559.jpg" />
+  <img src="Z:/picture/008/save_picture_610559.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610182.jpg" />
+  <img src="Z:/picture/008/save_picture_610182.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608942.jpg" />
+  <img src="Z:/picture/008/save_picture_608942.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608906.jpg" />
+  <img src="Z:/picture/008/save_picture_608906.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607450.jpg" />
+  <img src="Z:/picture/008/save_picture_607450.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606359.jpg" />
+  <img src="Z:/picture/008/save_picture_606359.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605810.jpg" />
+  <img src="Z:/picture/008/save_picture_605810.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605515.jpg" />
+  <img src="Z:/picture/008/save_picture_605515.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604874.jpg" />
+  <img src="Z:/picture/008/save_picture_604874.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601226.jpg" />
+  <img src="Z:/picture/008/save_picture_601226.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601083.jpg" />
+  <img src="Z:/picture/008/save_picture_601083.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600179.jpg" />
+  <img src="Z:/picture/008/save_picture_600179.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597393.jpg" />
+  <img src="Z:/picture/008/save_picture_597393.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591315.jpg" />
+  <img src="Z:/picture/008/save_picture_591315.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584386.jpg" />
+  <img src="Z:/picture/008/save_picture_584386.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578328.jpg" />
+  <img src="Z:/picture/008/save_picture_578328.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576448.jpg" />
+  <img src="Z:/picture/008/save_picture_576448.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575885.jpg" />
+  <img src="Z:/picture/008/save_picture_575885.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566376.jpg" />
+  <img src="Z:/picture/008/save_picture_566376.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560497.jpg" />
+  <img src="Z:/picture/008/save_picture_560497.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:909D514E42DDCA5E4B1FC4CB11970B702B3FA60E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046100   (556723) от 25.08.2016
-
-Военная приемка. Прятки на выживание (21.08.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прятки на выживание. Мы увидим новейшие системы военной маскировки. Уникальный камуфляж нового поколения маскирует не только днем, но и ночью, скрывая от всех современных приборов ночного видения. Этот костюм уже проходит государственные испытания и скоро поступит в нашу армию. Кроме того, мы покажем высокотехнологичные маскировочные сети. Они превращают танки и (   Читать дальше...   )Еженедельная программа "Военная приемка" расскажет зрителю обо всех новинках российского оборонного комплекса. Кроме этого, особое внимание будет уделено такой важной профессии, как военный представитель - офицер, который несет перед государством ответственность за качество выпускаемой военной техники.Телекомпания: ЗвездаЖанр: ТелепередачаПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E5A27E2253D9BC737B51500AB018096137C8C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

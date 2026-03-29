@@ -1,3 +1,107 @@
+###  Публикация: 1563971   (502766) от 16.07.2022
+
+BookMacster 2.12.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502766.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookMacster - приложение синхронизирует закладки между браузерами: Safari, Firefox, Chrome, Camino, iCab, Opera и OmniWeb, а так же в Интернет с Delicious, Pinboard, и Google Bookmarks. BookMacster поддерживает теги, комментарии и ссылки и в любой момент времени доступны в строке меню. Все закладки можно отсортировать по алфавиту, проверить на наличие битых ссылок, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Sheep SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33172C86A02B54DC9DE17D57D5293E1CDFB7245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564000   (502715) от 16.07.2022
+
+Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео, портрет и фото в формате RAW. Darkroom — это фото- и видеоредактор премиум-класса, который прост в использовании для обычных фотографов, но достаточно мощный для профессионалов.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2015-2022 Bergen Co.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A157C58B52DB51E0916A4AE96A3987B8DCC6CB8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563976   (502710) от 16.07.2022
+
+TunesKit AceMovi Video Editor 4.9.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502710.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.05.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A239774B1429DB9152E185FBDEFAAA9B2F5A01B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563899   (502709) от 16.07.2022
+
+Iridient Developer 3.7.1 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D495CD7859BCD28F0E3243AC1AC1311B0C745A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563974   (502706) от 16.07.2022
 
 Color Wheel 7.2 [Multi]
@@ -6,7 +110,7 @@ Color Wheel 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502706.jpg" />
+  <img src="Z:/picture/008/save_picture_502706.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ KCNcrew Pack 07-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502705.jpg" />
+  <img src="Z:/picture/008/save_picture_502705.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ TG Pro (Temperature Gauge Pro) 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502611.jpg" />
+  <img src="Z:/picture/008/save_picture_502611.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Mp3tag 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502609.jpg" />
+  <img src="Z:/picture/008/save_picture_502609.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ ON1 NoNoise AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502602.jpg" />
+  <img src="Z:/picture/008/save_picture_502602.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ ON1 Effects 2022.5 v16.5.1.12526 U2B [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502600.jpg" />
+  <img src="Z:/picture/008/save_picture_502600.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ ON1 HDR 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502496.jpg" />
+  <img src="Z:/picture/008/save_picture_502496.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ SwitchResX 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502493.jpg" />
+  <img src="Z:/picture/008/save_picture_502493.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ ON1 Resize AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502487.jpg" />
+  <img src="Z:/picture/008/save_picture_502487.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ PictureCode Photo Ninja 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502144.jpg" />
+  <img src="Z:/picture/008/save_picture_502144.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501736.jpg" />
+  <img src="Z:/picture/008/save_picture_501736.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ xSearch for Safari 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501734.jpg" />
+  <img src="Z:/picture/008/save_picture_501734.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Music Tag Editor Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501733.jpg" />
+  <img src="Z:/picture/008/save_picture_501733.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ Boxy SVG 3  v3.86.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501728.jpg" />
+  <img src="Z:/picture/008/save_picture_501728.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Aiseesoft Mac Screen Recorder 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501678.jpg" />
+  <img src="Z:/picture/008/save_picture_501678.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Vinegar 2.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501669.jpg" />
+  <img src="Z:/picture/008/save_picture_501669.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ YT Saver Video Downloader & Converter 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501583.jpg" />
+  <img src="Z:/picture/008/save_picture_501583.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Photomatix Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501072.jpg" />
+  <img src="Z:/picture/008/save_picture_501072.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ MetaImage  2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500677.jpg" />
+  <img src="Z:/picture/008/save_picture_500677.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ Stats 2.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500675.jpg" />
+  <img src="Z:/picture/008/save_picture_500675.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ future.dj pro - mix everything 1.11.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500668.jpg" />
+  <img src="Z:/picture/008/save_picture_500668.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ VideoDuke 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500666.jpg" />
+  <img src="Z:/picture/008/save_picture_500666.jpg" />
 </div>
 
 
@@ -578,112 +682,6 @@ VideoDuke 2.7 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A6C535D59FE7B13664B052D918F834DA4440358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564351   (500661) от 18.07.2022
-
-djay - DJ App & AI Mixer 4.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500661.jpg" />
-</div>
-
-
-###  Подробнее
-
-djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D682CCF91409D73E142D2A57501749ADF761375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564441   (500595) от 18.07.2022
-
-Teorex Inpaint 9.2.1 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Teorex Inpaint – удалить человека или объект с фото.
-Inpaint - приложение, которое позволяет умно удалять нежелательные элементы на цифровой фотографии, такие как ненужные объекты, текст, случайно попавшие элементы, а также пыль, рекламу, мусор, царапины и грязь. Весь процесс в программе максимально автоматизирован, вам всего-то нужно пометить нежелательный объект, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 20011-2021 Maxim GapchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC6CE5B8054FB2BC2B80011438AFF1D691974BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564369   (500591) от 18.07.2022
-
-RAR Extractor Max-Unzip Winrar 9.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500591.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2020 by Elimisoft.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9200C7280DC58BD3768F790B848B34AADECECC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317036   (500490) от 01.08.2019
-
-4K YouTube to MP3 v3.7.1.2862 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500490.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: OpenMedia LLC.Поддерживаемая ОС: 10.11+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17839A4272C1E5A4852D23F4DD3367D6F5DF0EF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

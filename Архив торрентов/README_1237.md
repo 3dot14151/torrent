@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774929.jpg" />
+  <img src="Z:/picture/008/save_picture_774929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774928.jpg" />
+  <img src="Z:/picture/008/save_picture_774928.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Blocs 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774923.jpg" />
+  <img src="Z:/picture/008/save_picture_774923.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ EZ CD Audio Converter 4.0.4.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774919.jpg" />
+  <img src="Z:/picture/008/save_picture_774919.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Anvir Task Manager 8.0.5 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774918.jpg" />
+  <img src="Z:/picture/008/save_picture_774918.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774917.jpg" />
+  <img src="Z:/picture/008/save_picture_774917.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774915.jpg" />
+  <img src="Z:/picture/008/save_picture_774915.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ RAM Saver Professional 19.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774868.jpg" />
+  <img src="Z:/picture/008/save_picture_774868.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AMD Radeon Software Adrenalin 2019 Edition 19.1.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774864.jpg" />
+  <img src="Z:/picture/008/save_picture_774864.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ IObit Driver Booster Pro 6.2.1.254 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774852.jpg" />
+  <img src="Z:/picture/008/save_picture_774852.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Glyphs 2.3 (895) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774848.jpg" />
+  <img src="Z:/picture/008/save_picture_774848.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pocket Radio Player 160508 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774844.jpg" />
+  <img src="Z:/picture/008/save_picture_774844.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774837.jpg" />
+  <img src="Z:/picture/008/save_picture_774837.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ FontViewOK 4.29 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774831.jpg" />
+  <img src="Z:/picture/008/save_picture_774831.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ TransOcean 2: Rivals (2016) [En] (1.02) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774830.jpg" />
+  <img src="Z:/picture/008/save_picture_774830.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Volume2 1.1.6.411 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774807.jpg" />
+  <img src="Z:/picture/008/save_picture_774807.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Avira Phantom VPN Pro 2.19.1.25749 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774805.jpg" />
+  <img src="Z:/picture/008/save_picture_774805.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WPS Office 2016 Premium 10.2.0.7635 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774803.jpg" />
+  <img src="Z:/picture/008/save_picture_774803.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Advanced SystemCare Pro 12.1.1.213 RePack (&Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774802.jpg" />
+  <img src="Z:/picture/008/save_picture_774802.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ COMSS Boot USB 2019-01 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774800.jpg" />
+  <img src="Z:/picture/008/save_picture_774800.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774799.jpg" />
+  <img src="Z:/picture/008/save_picture_774799.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Bandicam 4.3.1.1490 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774798.jpg" />
+  <img src="Z:/picture/008/save_picture_774798.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ TeamViewer Free 14.1.9025 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774797.jpg" />
+  <img src="Z:/picture/008/save_picture_774797.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Among the Sleep (2017) [Ru/Multi] (3.0.1/dlc) Repack Other s [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774792.jpg" />
+  <img src="Z:/picture/008/save_picture_774792.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Adobe Acrobat Reader DC 2015.016.20039 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774783.jpg" />
+  <img src="Z:/picture/008/save_picture_774783.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Avanquest PC Speed Maximizer 4.1 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774781.jpg" />
+  <img src="Z:/picture/008/save_picture_774781.jpg" />
 </div>
 
 

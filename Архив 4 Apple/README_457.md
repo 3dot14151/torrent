@@ -1,3 +1,111 @@
+###  Публикация: 1334072   (298343) от 27.10.2019
+
+Syncaila 2.1.1 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298343.jpg" />
+</div>
+
+
+###  Подробнее
+
+СИНХРОНИЗАЦИЯ МНОГОКАМЕРНОЙ СЪЕМКИ
+
+Syncaila — компьютерная программа для видеомонтажа, выполняющая полностью автоматическую синхронизацию аудио- и видео- материалов с множества камер и рекордеровТип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CooliCoveПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEA0C56E88A0671FC09BD50A1849F7DB0AE9A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262007   (298324) от 13.11.2018
+
+SuperDuper! 3.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298324.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperDuper! - Утилита для клонирования жесткого диска, а так же для создания/восстановления резервных копий данных. С помощью SuperDuper! можно делать периодические бэкапы важной информации, а функция клонирования позволяет делать точные копии диска, что будет полезным при переносе системы с одного компьютера на другой. Для автоматического выполнения бэкапов можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Shirt-pocketПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B9D493D161146A19BE2100350AFF67AA41098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078745   (298207) от 02.12.2016
+
+Framer Studio v76 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Framer Studio - инновационные прототипирование.
+Framer Studio построена на Framer.js, является основой для быстрого прототипирования с открытым исходным кодом. Framer позволяет определить анимацию и взаимосвязь. JavaScript framework для быстрого прототипирования. С фильтрами, Spring Physics и 3D эффектами.  Framer Студия имеет интеграцию с Photoshop и Sketch и позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 декабря 2016Разработчик: PODIUM BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C36AAA5F7B9AD9291C35058C8BCE6E71A0D8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079015   (298206) от 02.12.2016
+
+iMazing 2.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298206.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 декабря 2016Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38CE59E187FA0FCEB9C21E638CB069D23BFF4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078918   (298204) от 02.12.2016
 
 Downie 2.5.10 [Multi/Ru]
@@ -6,7 +114,7 @@ Downie 2.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298204.jpg" />
+  <img src="Z:/picture/008/save_picture_298204.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ TaskPaper 3.8.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298162.jpg" />
+  <img src="Z:/picture/008/save_picture_298162.jpg" />
 </div>
 
 
@@ -62,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298157.jpg" />
+  <img src="Z:/picture/008/save_picture_298157.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ NCH VideoPad Pro 8.90 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298156.jpg" />
+  <img src="Z:/picture/008/save_picture_298156.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ SoundSource 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298153.jpg" />
+  <img src="Z:/picture/008/save_picture_298153.jpg" />
 </div>
 
 
@@ -142,7 +250,7 @@ The Clock - The Best World Clock 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298151.jpg" />
+  <img src="Z:/picture/008/save_picture_298151.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ HazeOver 1.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298150.jpg" />
+  <img src="Z:/picture/008/save_picture_298150.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ TinkerTool System 6 v6.94 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298149.jpg" />
+  <img src="Z:/picture/008/save_picture_298149.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ Serial Box 12-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298146.jpg" />
+  <img src="Z:/picture/008/save_picture_298146.jpg" />
 </div>
 
 
@@ -253,7 +361,7 @@ Polarr Photo Editor 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298144.jpg" />
+  <img src="Z:/picture/008/save_picture_298144.jpg" />
 </div>
 
 
@@ -282,7 +390,7 @@ QuickRes 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298140.jpg" />
+  <img src="Z:/picture/008/save_picture_298140.jpg" />
 </div>
 
 
@@ -308,7 +416,7 @@ Hardware Monitor 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298131.jpg" />
+  <img src="Z:/picture/008/save_picture_298131.jpg" />
 </div>
 
 
@@ -336,7 +444,7 @@ Templates for Keynote - DesiGN 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298082.jpg" />
+  <img src="Z:/picture/008/save_picture_298082.jpg" />
 </div>
 
 
@@ -364,7 +472,7 @@ CopyClip 2 v2.9.98.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298079.jpg" />
+  <img src="Z:/picture/008/save_picture_298079.jpg" />
 </div>
 
 
@@ -392,7 +500,7 @@ FontLab 7 v7.2.0.7614 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298077.jpg" />
+  <img src="Z:/picture/008/save_picture_298077.jpg" />
 </div>
 
 
@@ -420,7 +528,7 @@ Timeline 3D 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298073.jpg" />
+  <img src="Z:/picture/008/save_picture_298073.jpg" />
 </div>
 
 
@@ -446,7 +554,7 @@ Transmit 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298071.jpg" />
+  <img src="Z:/picture/008/save_picture_298071.jpg" />
 </div>
 
 
@@ -474,7 +582,7 @@ Apple MainStage 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298066.jpg" />
+  <img src="Z:/picture/008/save_picture_298066.jpg" />
 </div>
 
 
@@ -503,7 +611,7 @@ NCH Prism Plus 6.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298065.jpg" />
+  <img src="Z:/picture/008/save_picture_298065.jpg" />
 </div>
 
 
@@ -529,7 +637,7 @@ Principle 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298051.jpg" />
+  <img src="Z:/picture/008/save_picture_298051.jpg" />
 </div>
 
 
@@ -558,7 +666,7 @@ Things 3 v3.13.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297969.jpg" />
+  <img src="Z:/picture/008/save_picture_297969.jpg" />
 </div>
 
 
@@ -586,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297873.jpg" />
+  <img src="Z:/picture/008/save_picture_297873.jpg" />
 </div>
 
 
@@ -598,112 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2826CCD24CA49C5819AB10CF66DC31DA51EB8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423848   (297871) от 14.11.2020
-
-Lyn 2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2020Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB047B354E485B47B8D0D9DD511B689AC84B95A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423698   (297855) от 14.11.2020
-
-TechSmith Snagit 2021.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297855.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C59E4AC612FD717692053D7994B2A2DFA676D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423695   (297749) от 14.11.2020
-
-Rhinoceros 7 v7.1.20314 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2020Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F22E9CF5461272F1136DB963A6C514E5F7C1414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423709   (297739) от 14.11.2020
-
-Tuneskit Spotify Converter 2.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и умный инструмент для преобразования музыки Spotify для загрузки песен, плейлистов, альбомов, исполнителей Spotify, а также для преобразования любой дорожки из Spotify в обычные MP3, M4A, AAC, WAV, M4B, FLAC для любого музыкального проигрывателя, такого как iPod, Zune, Creative Zen и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA65465A66F30C5BD235C6E054E6D93D17A4B613
 ```
 
 https://mybot314.ru/tekegram_catalog/

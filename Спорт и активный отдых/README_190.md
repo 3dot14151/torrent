@@ -1,3 +1,186 @@
+###  Публикация: 1760980   (36969) от 17.11.2024
+
+Смешанные единоборства. UFC 309: Джонс vs. Миочич / UFC 309: Jones vs. Miocic (16.11.2024) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main card турнира "UFC 309", прошедшего в Madison Square Garden in New York City, New York, United States.Телекомпания: Матч!Жанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 03:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E45AD4601867633729524C4168084888CB1B299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761495   (36663) от 20.11.2024
+
+НХЛ 2024-2025. Тампа-Бэй Лайтнинг - Питтсбург Пингвинз (19.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36663.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 ноября 2024, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 065 зрителей (86% при вместимости 18 673)
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Си Джей Мюррей (Питтсбург, США); Линейный: Шэндор Альфонсо (Норт-Йорк, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC2077170288EA93A6E0199E9CA72A95ABC15B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762217   (36248) от 24.11.2024
+
+Смешанные единоборства. UFC Fight Night 248: Ян vs. Фигередо / UFC Fight Night 248: Yan vs. Figueiredo (23.11.2024) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это событие стало четвертым визитом промоушена в Макао и первым после UFC Fight Night: Bisping vs. Le в августе 2014 года. Главным событием вечера стал бой в легчайшем весе между бывшим чемпионом UFC в легчайшем весе Петром Яном и бывшим двукратным чемпионом UFC в наилегчайшем весе Дейвисоном Фигейредо. На этом мероприятии состоялись четыре финала Road to UFC Season (   Читать дальше...   )Телекомпания: Матч! БоецЖанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38B537240E33EF587F43D5A608CE65F87377B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762290   (36163) от 25.11.2024
+
+Формула 1. Сезон 2024. Этап 22. Гран-при Лас-Вегаса. Гонка (24.11.2024) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36163.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2024, воскресенье. 09:00 МСК. Этап 22 автодром городская трасса Лас-Вегас. Гран-при Лас-Вегаса. Гонка (50 кругов)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 02:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87C3F8327F398E21399D5DA44C92F06F1FF43C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762789   (35932) от 27.11.2024
+
+Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 5-й. Обзор матчей (26.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. Основной турнир. Тур 5-й. Обзор матчей (26.11.2024)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9501FF98D44F731E74922BD166424B7F4B1D9C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762919   (35838) от 28.11.2024
+
+Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 5-й. Обзор матчей (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. Основной турнир. Тур 5-й. Обзор матчей (27.11.2024)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40C8722DA5E5DF7D80B9B2CB1571AECBF27F76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763201   (35618) от 30.11.2024
+
+Формула 1. Сезон 2024. Этап 23. Гран-при Катара. Спринт-квалификация (29.11.2024) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35618.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 ноября 2024, пятница. 20:30 МСК. Этап 23, международный автодром Лусаил. Гран-при Катара. Спринт-квалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450951009020A4C4D5F6E198E0B6DFACBD76184D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763406   (35525) от 01.12.2024
 
 Бомбардир. Время Боброва (2024) WEBRip [H.264/1080p]
@@ -6,7 +189,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35525.jpg" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35522.jpg" />
 </div>
 
 
@@ -58,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35514.jpg" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35507.jpg" />
 </div>
 
 
@@ -110,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35422.jpg" />
 </div>
 
 
@@ -136,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35419.jpg" />
 </div>
 
 
@@ -164,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35414.jpg" />
 </div>
 
 
@@ -193,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35215.jpg" />
 </div>
 
 
@@ -220,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35213.jpg" />
 </div>
 
 
@@ -247,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35026.jpg" />
 </div>
 
 
@@ -273,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34602.jpg" />
 </div>
 
 
@@ -299,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34387.jpg" />
 </div>
 
 
@@ -327,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34386.jpg" />
 </div>
 
 
@@ -355,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34385.jpg" />
 </div>
 
 
@@ -381,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34383.jpg" />
 </div>
 
 
@@ -407,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33769.jpg" />
 </div>
 
 
@@ -434,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33768.jpg" />
 </div>
 
 
@@ -461,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33760.jpg" />
 </div>
 
 
@@ -490,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33377.jpg" />
 </div>
 
 
@@ -503,203 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED461F7EBDDEC2DDC8504CB0437C32ED8CD84B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767987   (33249) от 23.12.2024
-
-НХЛ 2024-2025. Лос-Анджелес Кингз - Вашингтон Кэпиталз (22.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33249.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 декабря 2024, понедельник. 01:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CF3E2A50053E03B609F6BF61F6C951FF6D84B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771021   (31991) от 04.01.2025
-
-НХЛ 2024-2025. Питтсбург Пингвинз - Флорида Пантерз (03.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31991.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 января 2025, суббота. 03:00 МСК. Стадион: Амерант Банк Арена (Санрайз, США), 19 543 зрителя (101% при вместимости 19 434)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Брэндон Бландина (Сентенниал, США); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336BFE0F692C01AED81075A1C0416DC698AE6711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771241   (31892) от 05.01.2025
-
-Волейбол. Чемпионат Турции 2024/5. Женщины. 13-тур. Кузейбору - Галатасарай (2024) WEBRip [H.264]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31892.jpg" />
-</div>
-
-
-###  Подробнее
-
-13-тур волейбольной Турецкой женской лиги.
-Кузейбору - Галатасарай.
-Тренеры: Мехмет Бедестенлиоглу, Гильерме Наранхо Ернандез
-Комментатор: Варвара Сарычева(   Читать дальше...   )Телекомпания: СтартЖанр: спорт, волейболЯзык озвучки: РусскийПродолжительность: 02:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F085B21CE675CBB8180AD326A50BA71B6DF9E242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771893   (31569) от 08.01.2025
-
-Футбол. Чемпионат СССР 1989. 29-й тур. Спартак Москва - Динамо Киев (23.10.1989) WEB-DL [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31569.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 октября. Москва. ЦС им.Ленина. 60000 зрителей.
-«Спартак»: Черчесов, Базулев, Кульков (Мостовой, 46), Морозов, Поздняков, Шалимов, Е.Кузнецов, Пасулько, Шмаров, Черенков, Родионов.
-
-«Динамо»: Чанов, Бессонов, Заец, О.Кузнецов, Шматоваленко, Лужный, Михайличенко, Литовченко, Саленко (Рац, 52), Протасов, Яремчук (Яковенко, 76).Жанр: спортЯзык озвучки: русскийПродолжительность: 01:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F919DB82DE86400FBCB1EE8BF6D9D62499C3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771978   (31465) от 09.01.2025
-
-Футбол. Чемпионат СССР 1989. 7 тур. Динамо (Киев) - Спартак (Москва) (15.04.1989) WEB-DL [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киев. Республиканский стадион. Облачно. 18 градусов. 100000 зрителей.
-"Динамо" К: Чанов, Лужный, Баль, О.Кузнецов, Саркисян (Канчельскис, 51), Горилый, Михайличенко (к), Литовченко, Саленко, Протасов, Беланов.
-"Спартак": Черчесов, Базулев, Кульков, Морозов, Бубнов, Мостовой, Капустин (Пасулько, 84), Бокий, Шмаров, Черенков (к), Родионов.Жанр: спортПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4B61DD7ED2F66E62F2814C67251DD2C7167559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772083   (31372) от 10.01.2025
-
-Волейбол. Чемпионат Турции 2024/5. Женщины. 14-тур Фенербахче - Тюрк Хава Йоллари (2025) WEBRip [H.264]
-
->>Спорт и активный отдых
->>Баскетбол, Волейбол, Гандбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31372.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 января 2025 Турция. Лига Султанлар.
-Фенербахче играет конечно не очень плохо, и сейчас частенько проигрывает. Но сегодня они, наверно, постараются выиграть и улучшить своё положение в турнирной таблице. А гости постараются навязать борьбу, хотя на победу им будет трудно рассчитывать.
-
-Судьи: Сечкин Йэнер, Серап Кука(   Читать дальше...   )Телекомпания: СтартЖанр: спорт, волейболЯзык озвучки: РусскийПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB6FC5F1D279C6050FA4448208D6CC5606AA922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773074   (31051) от 13.01.2025
-
-Футбол. Суперкубок Испании 2024. Финал. Реал (Мадрид) - Барселона (12.01.2025) HDTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Суперкубок Испании 2024. Финал. Реал (Мадрид) - Барселона (12.01.2025)
-СУДЬЯ Хиль Мансано (Дон-Бенито)
-СТАДИОН «имени принца Абдуллы аль-Файсала» (Джидда)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: РусскийПродолжительность: 02:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE39750980AB9C848024C8F357567995F3EA5D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

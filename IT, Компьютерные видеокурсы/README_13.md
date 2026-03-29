@@ -1,3 +1,138 @@
+###  Публикация: 1456002   (1025253) от 21.03.2021
+
+TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Flask and SQLAlchemy (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из областей, в которой Python действительно выделяется, - это создание чистых и мощных веб-приложений. После того, как вы освоите основы языка, этот курс научит вас всему, что нужно для создания современных веб-приложений, управляемых данными, на Python с помощью веб-фреймворка Flask.Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DEE82366B758313F67D0ADE140714ADBC91F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456257   (1025242) от 21.03.2021
+
+Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implement TCP/IP Stack in C  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в часть B серии курсов по разработке стека TCP / IP. Это продолжение Части A, в которой мы реализовали псевдо-стек TCP / IP, работающий в виртуализированной топологии.
+В этом курсе мы будем внедрять более продвинутые и дополнительные функции в наш стек Pseudo TCP / IP и постараемся придать ему более реалистичный вид.
+Мы продолжим с того места, где (   Читать дальше...   )Производство: UdemyЖанр: Администрирование, программированиеЯзык озвучки: АнглийскийПродолжительность: 07:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE2201CEB13DB04DEAB2BFC71B2435B2DAECD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455994   (1025229) от 21.03.2021
+
+TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поддержка асинхронного и параллельного программирования в Python сильно недооценена. В этом курсе вы изучите весь спектр параллельных API Python. Мы начнем с рассмотрения новых и эффективных ключевых слов async и await вместе с базовым модулем: asyncio. Затем мы перейдем к потокам Python для распараллеливания старых операций и многопроцессорности для операций, связанных (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455985   (1025217) от 21.03.2021
+
+TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025217.jpg" />
+</div>
+
+
+###  Подробнее
+
+# 100DaysOfCode в Python - ваш идеальный компаньон, чтобы выдержать 100 дней работы над кодом и добиться успеха. Этот курс представляет собой видеоурок, состоящий из 1 части, и проекты, состоящие из 2 частей. Вы будете поражены тем, сколько технологий и библиотек Python вы узнаете на этом пути. Присоединяйтесь к курсу и приступайте к работе.
+100 дней кода - это не (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA36DFAA1794D961CE93B83A2ECDAC5B763D5750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456166   (1025213) от 21.03.2021
+
+Udemy, Robert Petras | SwiftUI Masterclass 2021 - iOS 14 App Development & Swift 5  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важное замечание перед записью на этот мастер-класс!
+Создание 50-часового курса с высококачественной производственной ценностью занимает много времени. Я не хочу заставлять вас ждать, поэтому я решил выпустить первую половину содержания до того, как закончу публикацию оставшихся лекций.
+Курс SwiftUI Masterclass, выпуск 2021 года, уже длится более 24 часов, и к концу (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 24:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC0112E0C1BD4E0ECD8C3EE197CB4515440E5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456216   (1025193) от 21.03.2021
 
 Udemy, Bryan Cairns | Qt 6 Core Beginners with C++  (2021) PCRec [En / En Sub]
@@ -6,7 +141,7 @@ Udemy, Bryan Cairns | Qt 6 Core Beginners with C++  (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025193.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ Udemy, Maximilian Schwarzmüller | Next.js & React - The Complete Guide (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025187.jpg" />
 </div>
 
 
@@ -60,7 +195,7 @@ Magic Coding | The Ultimate Hyper-Casual Guide With Unity (2020) HDRip [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025168.jpg" />
 </div>
 
 
@@ -89,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025160.jpg" />
 </div>
 
 
@@ -118,7 +253,7 @@ TalkPython, Michael Kennedy | Consuming HTTP Services in Python Course (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025069.jpg" />
 </div>
 
 
@@ -144,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025045.jpg" />
 </div>
 
 
@@ -170,7 +305,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 1] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025028.jpg" />
 </div>
 
 
@@ -198,7 +333,7 @@ Stepik, Анатолий Карпов и др. | Big Data for Data Science (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024978.jpg" />
 </div>
 
 
@@ -227,7 +362,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 2] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024858.jpg" />
 </div>
 
 
@@ -255,7 +390,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 3] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024857.jpg" />
 </div>
 
 
@@ -283,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024813.jpg" />
 </div>
 
 
@@ -309,7 +444,7 @@ TalkPython, Michael Kennedy | Managing Python Dependencies Course (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024728.jpg" />
 </div>
 
 
@@ -335,7 +470,7 @@ TalkPython, Matt Makai | Introduction to Ansible Course (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024713.jpg" />
 </div>
 
 
@@ -361,7 +496,7 @@ TalkPython, Nicola Iarocci | Eve: Building RESTful APIs with MongoDB and Flask C
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024712.jpg" />
 </div>
 
 
@@ -387,7 +522,7 @@ Infosec Institute | IT & Security Courses Collection [Часть 4] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024711.jpg" />
 </div>
 
 
@@ -415,7 +550,7 @@ TalkPython, Michael Kennedy | Python for Decision Makers and Business Leaders Co
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024598.jpg" />
 </div>
 
 
@@ -441,7 +576,7 @@ TalkPython, Michael Kennedy | Python for the .NET Developer Course (2019) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024594.jpg" />
 </div>
 
 
@@ -467,7 +602,7 @@ TalkPython, Matt Harrison | Python 3, an Illustrated Tour Course (2018) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024583.jpg" />
 </div>
 
 
@@ -494,7 +629,7 @@ TalkPython, Michael Kennedy | MongoDB for Developers with Python Course (2017) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024574.jpg" />
 </div>
 
 
@@ -520,7 +655,7 @@ TalkPython, Michael Kennedy | Write Pythonic Code Like a Seasoned Developer Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024564.jpg" />
 </div>
 
 
@@ -547,7 +682,7 @@ TalkPython, Michael Kennedy | Python Jumpstart by Building 10 Apps Course (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024539.jpg" />
 </div>
 
 
@@ -558,136 +693,6 @@ TalkPython, Michael Kennedy | Python Jumpstart by Building 10 Apps Course (2020)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1004398B416611C683F338D8DC55E1B96C832A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457143   (1024534) от 25.03.2021
-
-TalkPython, Chris Moffitt | Move from Excel to Python with Pandas Course (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы работаете с Excel и когда-либо думали - «должен быть способ лучше», то этот курс для вас! Excel уже много лет используется для автоматизации и поддержки предприятий, а также для решения проблем бизнес-пользователей. Но есть много недостатков в том, чтобы так сильно полагаться на Excel при обработке данных. В этом курсе вы увидите, как современные библиотеки (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE94CC2963575A18A51D2C632A1C24BFFFB03DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457138   (1024527) от 25.03.2021
-
-TalkPython, Michael Kennedy | Mastering PyCharm Course (2019) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024527.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm - это лучшая Python IDE (интегрированная среда разработки). Вам будет сложно найти редактор, который предоставит более целостный способ создания приложений Python. Несмотря на свою мощь, IDE может быть сложной задачей для изучения всех их функций. Вот почему этот курс показывает вам, как все они работают.Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150E834A8313173DB1E1ECB54E2675FAC174029C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457235   (1024506) от 25.03.2021
-
-Udemy, Andrei Neagoie и др. | Complete React Native Developer in 2021: Zero to Mastery [with Hooks] (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя последнюю версию React Native, этот курс ориентирован на эффективность. Никогда больше не тратьте время на запутанные, устаревшие и неполные руководства, а вместо этого научитесь создавать профессиональные и современные приложения для Android и iPhone (iOS)! Выпускники курсов Андрея сейчас работают в Google, Tesla, Amazon, Apple, IBM, JP Morgan, Facebook (   Читать дальше...   )Производство: Udemy, ZTM AcademyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 27:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A46C70DFF2DCB7DF978134F652D195F325FF182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457327   (1024499) от 25.03.2021
-
-Udemy, Colt Steele | The Git & Github Bootcamp  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующее предложение раздражает, но также верно: лучшее время для изучения Git было вчера. К счастью, второе лучшее время - сегодня! Git - важный инструмент для работы в любой области, связанной с кодом, от науки о данных до разработки игр и машинного обучения. Этот курс охватывает все, что вам нужно знать, чтобы начать использовать Git и Github в реальном мире (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 16:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669A0A5AB5FEFEAAFDAD03503F6A6F106B9BE6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457376   (1024353) от 26.03.2021
-
-Web Dev Simplified | Упрощенный JavaScript - Advanced (Beta) / JavaScript Simplified - Advanced (Beta) (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как только вы станете опытным разработчиком JavaScript, пора начать погружаться в продвинутую экосистему JavaScript. Этот курс охватывает множество сложных тем, включая безопасность, тестирование, передовые методы программирования и расширенные функции JavaScript. Я все еще планирую этот курс, поэтому я еще не доработал весь контент, но вы можете быть уверены, что (   Читать дальше...   )Производство: Web Dev SimplifiedЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B12E492AA1CC9EA45B347BA2CC9DE951FA2CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

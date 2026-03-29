@@ -1,3 +1,111 @@
+###  Публикация: 1063004   (437276) от 15.10.2016
+
+iMazing 2.0.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437276.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 октября 2016Разработчик: DigiDNAПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3836B43CC81BB24CABA28A78B0EA5AB46B7EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165033   (437245) от 11.09.2017
+
+Things 3.1.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 сентября 2017Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C8AC292CED76FA234F4B5341C04C10A8C64C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164995   (437241) от 11.09.2017
+
+1Blocker - Block ads, tracking scripts, anything 1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437241.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.09.2017Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C7494CA4D50F9E433901D9D9AD7B62AE35627E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249006   (437150) от 22.09.2018
+
+Magnet Pro 2.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Магнит делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.09.2018Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Испанский, Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E61E3023D729186A7D7E54A894D32A49CC4923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249134   (437149) от 22.09.2018
 
 iMazing 2.7.1 [Multi/Ru]
@@ -6,7 +114,7 @@ iMazing 2.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437149.jpg" />
+  <img src="Z:/picture/008/save_picture_437149.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Ummy Video Downloader 1.68 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436989.jpg" />
+  <img src="Z:/picture/008/save_picture_436989.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Tap Forms Organizer 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436843.jpg" />
+  <img src="Z:/picture/008/save_picture_436843.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Tinderbox 7.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436841.jpg" />
+  <img src="Z:/picture/008/save_picture_436841.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ Brightly Pro 2.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436194.jpg" />
+  <img src="Z:/picture/008/save_picture_436194.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Days - Countdown for Menu Bar 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436193.jpg" />
+  <img src="Z:/picture/008/save_picture_436193.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ CADintosh X 8.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436182.jpg" />
+  <img src="Z:/picture/008/save_picture_436182.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ Blocs 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436163.jpg" />
+  <img src="Z:/picture/008/save_picture_436163.jpg" />
 </div>
 
 
@@ -221,7 +329,7 @@ AnyGo 5.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436124.jpg" />
+  <img src="Z:/picture/008/save_picture_436124.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Tweetbot for Twitter 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436091.jpg" />
+  <img src="Z:/picture/008/save_picture_436091.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Master of Typing - Мастер Печати : Практика 3 v3.11.6 (15.11
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436072.jpg" />
+  <img src="Z:/picture/008/save_picture_436072.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ PatterNodes 2 v2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435999.jpg" />
+  <img src="Z:/picture/008/save_picture_435999.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ Vectoraster 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435987.jpg" />
+  <img src="Z:/picture/008/save_picture_435987.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ Disk Drill Enterprise 3.8.977 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435974.jpg" />
+  <img src="Z:/picture/008/save_picture_435974.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ CADintosh X 8.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435714.jpg" />
+  <img src="Z:/picture/008/save_picture_435714.jpg" />
 </div>
 
 
@@ -411,7 +519,7 @@ Nice Clipboard 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435567.jpg" />
+  <img src="Z:/picture/008/save_picture_435567.jpg" />
 </div>
 
 
@@ -440,7 +548,7 @@ VideoProc (former MacX Video Converter Pro) 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435544.jpg" />
+  <img src="Z:/picture/008/save_picture_435544.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ Vallum 1.3.1 & Murus 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435367.jpg" />
+  <img src="Z:/picture/008/save_picture_435367.jpg" />
 </div>
 
 
@@ -497,7 +605,7 @@ FIFA 13 by EA SPORTS 1.0.2 [4.0+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435113.jpg" />
+  <img src="Z:/picture/005/save_picture_435113.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ OptimUSB 7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435021.jpg" />
+  <img src="Z:/picture/008/save_picture_435021.jpg" />
 </div>
 
 
@@ -557,7 +665,7 @@ Winclone Pro 6.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434847.jpg" />
+  <img src="Z:/picture/008/save_picture_434847.jpg" />
 </div>
 
 
@@ -584,7 +692,7 @@ TotalFinder 1.10.2 beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434845.jpg" />
+  <img src="Z:/picture/008/save_picture_434845.jpg" />
 </div>
 
 
@@ -597,115 +705,6 @@ TotalFinder – это набор полезных утилит, расширя�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79CF0ABD61A41A4F88E2DFDBE450AE343FD887E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063381   (434834) от 16.10.2016
-
-Resolutionator 1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изменение разрешения быстрее, чем Т-1000 меняет формы!
-Resolutionator делает его простым в использовании любого из доступных разрешений дисплея. Нужно больше места для проекта? Быстрый щелчок в строке меню  или нажатием клавиатуры на ярлыке позволяет легко переключаться на любой доступный размер.
-
-Если у вас есть несколько мониторов, вы можете получить доступ ко всем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 августа 2016Разработчик: Many TricksПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96E7A790CD183E9649DFA4F71636192C16DCDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165203   (434419) от 12.09.2017
-
-Waltr 2.0.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434419.jpg" />
-</div>
-
-
-###  Подробнее
-
-WALTR 2 — революционный способ передачи файлов в любых форматах на iPhone, iPad и iPod
-Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2017Разработчик: Softorno Inc.Поддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F54346D26890DC0FCA0CCC695BC3F65A4890A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410690   (434059) от 22.09.2020
-
-BlueHarvest 8 v8.0.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434059.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-Данное приложение будет полезно для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2020Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857492AA6EB7263E24A4B857C8EB73C7061130F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571475   (434046) от 21.08.2022
-
-doubleTake 2.6.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434046.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoubleTake - приложение предназначено тем пользователям, которым нравятся компактные фотокамеры, но какие мечтают о широкоугольном объективе. DoubleTake позволяет одним перетаскиванием решить эту проблему и получить снимок не хуже, а в некоторых случаях и лучше, чем снятый широкоугольной камерой.Тип издания: macOS SoftwareРелиз состоялся: 20.08.2022Разработчик: © 2022 Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33AED8D72D0CE1503F83B24F912ECFB4005F417
 ```
 
 https://mybot314.ru/tekegram_catalog/

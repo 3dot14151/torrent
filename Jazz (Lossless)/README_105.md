@@ -1,3 +1,119 @@
+###  Публикация: 1132472   (701276) от 09.05.2017
+
+Wild Bill Davis - Swing & Shout: Americans Swinging In Paris (1977) 2002, Black And Blue [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stick Up The Band [07:14]
+02. Lullaby Of Birdland [09:50]
+03. Indiana [06:57]
+04. Body And Soul [05:52](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3045DF59CF11C8E6D94532F1DBCC04ADFE885275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132479   (701270) от 09.05.2017
+
+Pepper Adams - Plays Charlie Mingus (1963) 2003, Fresh Sounds Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fables of Faubus [04:28]
+02. Black light [03:42]
+03. Song with orange [02:38]
+04. Carolyn [05:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93C3B76D0C69A0E9E779158EF6664EF70977C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132478   (701160) от 09.05.2017
+
+Smoking Time Jazz Club - Ain't We Fortunate! (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Orleans Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downtown Doin's (2:55)
+02. Snag It (4:19)
+03. Southern Sunsets (3:14)
+04. Copenhagen (2:42)(   Читать дальше...   )Жанр: New Orleans Jazz, Big Band, SwingПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095D02DF7C0EBB9C5B01986439E5A1D790532452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132471   (700778) от 09.05.2017
+
+Andy Bey - Tuesdays in Chinatown (2001) Warlock Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuesdays in Chinatown [06:53]
+02. Fragile [04:51]
+03. Bridges [04:59]
+04. Saidas E Bandeiras [05:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693648499A52D168534488A83268FAF31F1FB736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 704461   (700554) от 09.05.2017
 
 VA - George Gershwin Songbook (Jazzclub Highlights) (2010) [FLAC|Lossless]<Jazz>
@@ -6,7 +122,7 @@ VA - George Gershwin Songbook (Jazzclub Highlights) (2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700554.jpg" />
+  <img src="Z:/picture/008/save_picture_700554.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ The David Angel Big Band - Camshafts And Butterflies (1973, 1975) 2015, V.S.O.P.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700056.jpg" />
+  <img src="Z:/picture/008/save_picture_700056.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ Duke Ellington - Things Ain't What They Used To Be (1966, 1969) 1996, LaserLight
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699666.jpg" />
+  <img src="Z:/picture/008/save_picture_699666.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Johnny Smith Trio - Designed For You (1959) Remaster, 2017, Warner [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698982.jpg" />
+  <img src="Z:/picture/008/save_picture_698982.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Martial Solal - At Newport '63 (2016) Sony Music [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698810.jpg" />
+  <img src="Z:/picture/008/save_picture_698810.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698809.jpg" />
+  <img src="Z:/picture/008/save_picture_698809.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698808.jpg" />
+  <img src="Z:/picture/008/save_picture_698808.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698804.jpg" />
+  <img src="Z:/picture/008/save_picture_698804.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698716.jpg" />
+  <img src="Z:/picture/008/save_picture_698716.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Joe Zawinul - The ESC Years (1992-1996) 2011, ESC Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698561.jpg" />
+  <img src="Z:/picture/008/save_picture_698561.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Ella Fitzgerald - Sings The George and Ira Gershwin Song Book (1959) 4CD, 1998, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698367.jpg" />
+  <img src="Z:/picture/008/save_picture_698367.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Fredrik Kronkvist Quartet - Maintain! (2005) Connective Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697876.jpg" />
+  <img src="Z:/picture/008/save_picture_697876.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Pablo Ziegler Trio - Jazz Tango (2017) ZOHO Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697872.jpg" />
+  <img src="Z:/picture/008/save_picture_697872.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Michael Leonhart Orchestra - The Painted Lady Suite (2018) [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697780.jpg" />
+  <img src="Z:/picture/008/save_picture_697780.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Shelly Manne & His Men - West Coast Jazz In England (1960) 2011, Solar Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697232.jpg" />
+  <img src="Z:/picture/008/save_picture_697232.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ The Claude Williamson Trio - Complete 1956 Studio Sessions (2002) Fresh Sound Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697230.jpg" />
+  <img src="Z:/picture/008/save_picture_697230.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Guy Lafitte & Wild Bill Davis - Lotus Blossom (1983) 2003, Black And Blue [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697226.jpg" />
+  <img src="Z:/picture/008/save_picture_697226.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Dirty Bourbon River Show - 2 Albums (2015, 2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697111.jpg" />
+  <img src="Z:/picture/008/save_picture_697111.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Fats Waller and His Rhythm - Ain't Misbehavin (1929 - 1941) 2016, Sony Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696888.jpg" />
+  <img src="Z:/picture/008/save_picture_696888.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696762.jpg" />
+  <img src="Z:/picture/008/save_picture_696762.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Phil Woods & Michel Legrand And Orchestra - Images (1975) Remaster, 2014, Sony M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696656.jpg" />
+  <img src="Z:/picture/008/save_picture_696656.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696072.jpg" />
+  <img src="Z:/picture/008/save_picture_696072.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402976   (696044) от 17.08.2020
-
-Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Variations On A Motive By Bud [3:47]
-02. Wailing Dervish [4:51]
-03. Further Out [2:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288369   (695937) от 11.03.2019
-
-KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Losen (5:19)
-02. Charinskiy (5:48)
-03. Asfalt (5:47)
-04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288437   (695935) от 11.03.2019
-
-Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown [6:42]
-02. Onsaya Joy [15:36]
-03. Green Dolphin Street [7:23]
-04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288392   (695934) от 11.03.2019
-
-Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pushing Back the Darkness (06:14)
-2. In the Next Room (05:22)
-3. Begin Again (05:34)
-4. Just Not Him (05:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94898197900989633E75DE49398413E82FE2A4C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

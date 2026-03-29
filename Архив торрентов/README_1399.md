@@ -6,7 +6,7 @@ AntispamSniper for The Bat! & Voyager 3.3.4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736851.jpg" />
+  <img src="Z:/picture/008/save_picture_736851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAMP PRO 6 v6.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736844.jpg" />
+  <img src="Z:/picture/008/save_picture_736844.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Unknown Reality - Patchwork (2014) [FLAC|Lossless|WEB-DL]<Psybient, Ambient, Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736816.jpg" />
+  <img src="Z:/picture/008/save_picture_736816.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736802.jpg" />
+  <img src="Z:/picture/008/save_picture_736802.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ WinRAR 6.10 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736760.jpg" />
+  <img src="Z:/picture/008/save_picture_736760.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ FoldersSynchronizer 5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736727.jpg" />
+  <img src="Z:/picture/008/save_picture_736727.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Airy Pro 3.17.297 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736726.jpg" />
+  <img src="Z:/picture/008/save_picture_736726.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Antivirus Zap Pro 3.9.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736724.jpg" />
+  <img src="Z:/picture/008/save_picture_736724.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ IObit Driver Booster Pro 7.6.0.765 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736719.jpg" />
+  <img src="Z:/picture/008/save_picture_736719.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736710.jpg" />
+  <img src="Z:/picture/008/save_picture_736710.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ OmniGraffle Pro 7 v7.17.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736699.jpg" />
+  <img src="Z:/picture/008/save_picture_736699.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ File Juicer 4.86 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736698.jpg" />
+  <img src="Z:/picture/008/save_picture_736698.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ OmniOutliner Pro 5.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736695.jpg" />
+  <img src="Z:/picture/008/save_picture_736695.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736692.jpg" />
+  <img src="Z:/picture/008/save_picture_736692.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Light Image Resizer 6.0.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736689.jpg" />
+  <img src="Z:/picture/008/save_picture_736689.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Zoc Terminal 7.26.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736688.jpg" />
+  <img src="Z:/picture/008/save_picture_736688.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Microsoft Visual Studio 2019 Community 16.6.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736686.jpg" />
+  <img src="Z:/picture/008/save_picture_736686.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736677.jpg" />
+  <img src="Z:/picture/008/save_picture_736677.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736675.jpg" />
+  <img src="Z:/picture/008/save_picture_736675.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Trojan Killer 2.1.34 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736660.jpg" />
+  <img src="Z:/picture/008/save_picture_736660.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Microsoft Visual Studio 2019 Professional 16.6.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736658.jpg" />
+  <img src="Z:/picture/008/save_picture_736658.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Mate Translate 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736655.jpg" />
+  <img src="Z:/picture/008/save_picture_736655.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ IObit Smart Defrag Pro 6.6.0.66 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736651.jpg" />
+  <img src="Z:/picture/008/save_picture_736651.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Opera GX 68.0.3618.206 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736645.jpg" />
+  <img src="Z:/picture/008/save_picture_736645.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ K-Lite Codec Pack Update 15.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736644.jpg" />
+  <img src="Z:/picture/008/save_picture_736644.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Everything 1.4.1.986 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736603.jpg" />
+  <img src="Z:/picture/008/save_picture_736603.jpg" />
 </div>
 
 

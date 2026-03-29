@@ -1,3 +1,90 @@
+###  Публикация: 1583232   (314650) от 13.10.2022
+
+Blind the Eye - The Lion of Lions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Lion of Lions (03:46)
+02 - Aquilifer (04:17)
+03 - As Vesta's Fire (05:21)
+04 - Tauroctony (04:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E16B534B062B8460143CC9C2226AD49BBD54264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259935   (314582) от 06.11.2018
+
+Voices From The Fuselage - Odyssey - The Destroyer of Worlds (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ortus (3:42)
+02.Inner Child (5:49)
+03.Fenestra (4:59)
+04.Meteorites (7:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88F9D3FF75AA1CB07EDD6A8E7E13CB9EB82B87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583035   (314565) от 13.10.2022
+
+Heavy Metal Perse - Jumalia Paossa (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumalia Paossa [00:14:41]
+02. Kotikylää Kohti [00:03:47]
+03. Velhojen Vesuri [00:04:23]
+04. Aaltojen Valkoiset Hampaat [00:04:05](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0F61E29D371C974AA738474207AFF6253D46DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583062   (314537) от 13.10.2022
 
 Mystic Prophecy - Metal Division (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -6,7 +93,7 @@ Mystic Prophecy - Metal Division (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314537.jpg" />
+  <img src="Z:/picture/008/save_picture_314537.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314055.jpg" />
+  <img src="Z:/picture/008/save_picture_314055.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lords Of Black - Alchemy Of Souls (Part I) (2020) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313273.jpg" />
+  <img src="Z:/picture/008/save_picture_313273.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Angelo Perlepes' Mystery - Fatal Passion (2001) [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312557.jpg" />
+  <img src="Z:/picture/008/save_picture_312557.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Parasite Inc. - Dead and Alive (2018) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312047.jpg" />
+  <img src="Z:/picture/008/save_picture_312047.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Metallica - Master Of Puppets 1986 (2017) Deluxe Box Set Remastered [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311469.jpg" />
+  <img src="Z:/picture/008/save_picture_311469.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Rob Halford (TWO, Fight, Halford) - 16 albums, 28 CD (1993-2019) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311148.jpg" />
+  <img src="Z:/picture/008/save_picture_311148.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|image + .cue] <Power Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310820.jpg" />
+  <img src="Z:/picture/008/save_picture_310820.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Threshold - Legends Of The Shires (2017) Limited 2CD Digipak [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310219.jpg" />
+  <img src="Z:/picture/008/save_picture_310219.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Amberian Dawn - Darkness of Eternity (2017) Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310098.jpg" />
+  <img src="Z:/picture/008/save_picture_310098.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ USM (United States Of Mind) - Silver Step Child (2000) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308847.jpg" />
+  <img src="Z:/picture/008/save_picture_308847.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308693.jpg" />
+  <img src="Z:/picture/008/save_picture_308693.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Ram - Rod (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307872.jpg" />
+  <img src="Z:/picture/008/save_picture_307872.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Manowar - Fighting The World (1987) [FLAC|tracks+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307573.jpg" />
+  <img src="Z:/picture/008/save_picture_307573.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Iron Maiden - Somewhere Back In Time - The Best Of: 1980-1989 (2008) [FLAC|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307400.jpg" />
+  <img src="Z:/picture/008/save_picture_307400.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Bonded - Rest in Violence (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306406.jpg" />
+  <img src="Z:/picture/008/save_picture_306406.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ After Forever - Emphasis - Who Wants To Live Forever (2002) Limited Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306305.jpg" />
+  <img src="Z:/picture/008/save_picture_306305.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ After Forever - Energize Me (2007) Single [FLAC|Lossless|image + .cue] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306297.jpg" />
+  <img src="Z:/picture/008/save_picture_306297.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ After Forever - Follow In The Cry - Silence From Afar (2000) Limited Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306295.jpg" />
+  <img src="Z:/picture/008/save_picture_306295.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ After Forever - Monolith Of Doubt (2002) Limited Edition [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306294.jpg" />
+  <img src="Z:/picture/008/save_picture_306294.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ After Forever - Prison Of Desire (2000) Reissue, 2003, Transmission Records [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306287.jpg" />
+  <img src="Z:/picture/008/save_picture_306287.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ After Forever - Decipher (2001) Reissue+EP, 2007, Avalon [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306286.jpg" />
+  <img src="Z:/picture/008/save_picture_306286.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306166.jpg" />
+  <img src="Z:/picture/008/save_picture_306166.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ After Forever - Remagine (2005) [FLAC|Lossless|image + .cue] <Symphonic Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F19765BE1DB075DE7BFD5251A6FC8D7BA9FC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422874   (306162) от 10.11.2020
-
-After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discord (4:37)
-02. Evoke (4:24)
-03. Transitory (3:29)
-04. Energize Me (3:10)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7530C2BAB34F4026AF3B930FC13B9C1F28987ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422916   (306150) от 10.11.2020
-
-Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infected Monarchy (5:46)
-02. Marching on Versailles (3:51)
-03. Maleficent (3:51)
-04. See You In Hell (3:50)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 0:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B528B046E150CC93DE4524EFE0F78851875243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261306   (305686) от 10.11.2018
-
-Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Arrival
-02 Rose Hall's Great House
-03 Stigmata
-04 The Witches Dance(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B681F8C133AC3296498D938F6177F845E0DD662E
 ```
 
 https://mybot314.ru/tekegram_catalog/

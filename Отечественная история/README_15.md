@@ -1,3 +1,29 @@
+###  Публикация: 133715   (363241) от 08.11.2016
+
+Российская Империя [Леонид Парфенов] (2000-2003) 8 х DVD5
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_363241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прoeкт Леoнида Парфеновa "Российская Империя", пoсвящeнный 300-летию oсновaния Империи и Санкт-Пeтeрбурга - это сегoдняшний взгляд на трeхсотлетнюю историю Российского государства.Жанр: Телепередача, ДокументальныйПеревод: Не требуетсяСубтитры: АнглийскиеПродолжительность: 16:19:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950407   (363091) от 29.10.2015
 
 Россия. Уроки японского (2014) IPTVRip (3 серии из 3)
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363091.jpg" />
+  <img src="Z:/picture/008/save_picture_363091.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363007.jpg" />
+  <img src="Z:/picture/008/save_picture_363007.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360221.jpg" />
+  <img src="Z:/picture/008/save_picture_360221.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358282.jpg" />
+  <img src="Z:/picture/008/save_picture_358282.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352192.jpg" />
+  <img src="Z:/picture/008/save_picture_352192.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351218.jpg" />
+  <img src="Z:/picture/008/save_picture_351218.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350949.jpg" />
+  <img src="Z:/picture/008/save_picture_350949.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ NG: 1917: Один год - две революции / 1917: One Year, Two Revo
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349047.jpg" />
+  <img src="Z:/picture/008/save_picture_349047.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346552.jpg" />
+  <img src="Z:/picture/008/save_picture_346552.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342997.jpg" />
+  <img src="Z:/picture/008/save_picture_342997.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342158.jpg" />
+  <img src="Z:/picture/008/save_picture_342158.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341873.jpg" />
+  <img src="Z:/picture/008/save_picture_341873.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338219.jpg" />
+  <img src="Z:/picture/008/save_picture_338219.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337624.jpg" />
+  <img src="Z:/picture/008/save_picture_337624.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332560.jpg" />
+  <img src="Z:/picture/008/save_picture_332560.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327371.jpg" />
+  <img src="Z:/picture/008/save_picture_327371.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326586.jpg" />
+  <img src="Z:/picture/008/save_picture_326586.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324704.jpg" />
+  <img src="Z:/picture/008/save_picture_324704.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319016.jpg" />
+  <img src="Z:/picture/008/save_picture_319016.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Stalin's Wife / Жена Сталина. Надежда (2004) DVB (Серии 1
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318548.jpg" />
+  <img src="Z:/picture/008/save_picture_318548.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316406.jpg" />
+  <img src="Z:/picture/008/save_picture_316406.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316137.jpg" />
+  <img src="Z:/picture/008/save_picture_316137.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314721.jpg" />
+  <img src="Z:/picture/008/save_picture_314721.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314188.jpg" />
+  <img src="Z:/picture/008/save_picture_314188.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305436.jpg" />
+  <img src="Z:/picture/008/save_picture_305436.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB4A8E696F5CFD06EC625FF58F0AF729341EC75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183975   (305310) от 15.11.2017
-
-Революция в России / The Russian Revolution (2017) HDTVRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времен революции в России и создания первого коммунистического государства прошло сто лет. Как же это произошло?Производство: Великобритания, NetflixЖанр: Документальный, история, войнаРежиссер: Кэл СавиллПеревод: ДублированныйПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F60C27E4D2640FA8B934370D22EDB16A9A9744
 ```
 
 https://mybot314.ru/tekegram_catalog/

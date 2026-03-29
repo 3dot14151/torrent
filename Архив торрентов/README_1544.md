@@ -6,7 +6,7 @@ Downie 2.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701256.jpg" />
+  <img src="Z:/picture/008/save_picture_701256.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ FolderSizes 9.5.379 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701255.jpg" />
+  <img src="Z:/picture/008/save_picture_701255.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701248.jpg" />
+  <img src="Z:/picture/008/save_picture_701248.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701246.jpg" />
+  <img src="Z:/picture/008/save_picture_701246.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FabFilter Total Bundle v23.02.2022 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701245.jpg" />
+  <img src="Z:/picture/008/save_picture_701245.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701244.jpg" />
+  <img src="Z:/picture/008/save_picture_701244.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701241.jpg" />
+  <img src="Z:/picture/008/save_picture_701241.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Image Uploader 1.3.2-RC Build 4713 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701223.jpg" />
+  <img src="Z:/picture/008/save_picture_701223.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Auslogics Driver Updater 1.20.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701219.jpg" />
+  <img src="Z:/picture/008/save_picture_701219.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ IObit Smart Defrag Pro 6.2.0.138 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701218.jpg" />
+  <img src="Z:/picture/008/save_picture_701218.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701217.jpg" />
+  <img src="Z:/picture/008/save_picture_701217.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FontExpert 2019 16.0 Release 1 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701212.jpg" />
+  <img src="Z:/picture/008/save_picture_701212.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ AnyTrans for iOS 7.0.4.20190306 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701211.jpg" />
+  <img src="Z:/picture/008/save_picture_701211.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ YouTube By Click Premium 2.2.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701210.jpg" />
+  <img src="Z:/picture/008/save_picture_701210.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mirillis Splash v2.6.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701206.jpg" />
+  <img src="Z:/picture/008/save_picture_701206.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Hector: Badge of Carnage! Episode 1: We Negotiate With Terrorists [En] (L/2011.4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701199.jpg" />
+  <img src="Z:/picture/008/save_picture_701199.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DriverPack Solution 17.10.14 Полная версия (DP 20071) [Multi/Ru] (О
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701177.jpg" />
+  <img src="Z:/picture/008/save_picture_701177.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701171.jpg" />
+  <img src="Z:/picture/008/save_picture_701171.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ VA - Best Of Trance Vol.03 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701163.jpg" />
+  <img src="Z:/picture/008/save_picture_701163.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Vivaldi 1.0.167.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701155.jpg" />
+  <img src="Z:/picture/008/save_picture_701155.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Permute 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701153.jpg" />
+  <img src="Z:/picture/008/save_picture_701153.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Aurora Blu-ray Player 2.15.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701152.jpg" />
+  <img src="Z:/picture/008/save_picture_701152.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ IObit Smart Defrag Pro 7.4.0.114 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701151.jpg" />
+  <img src="Z:/picture/008/save_picture_701151.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ WSCC (Windows System Control Center) 7.0.0.8 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701138.jpg" />
+  <img src="Z:/picture/008/save_picture_701138.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (0302) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701135.jpg" />
+  <img src="Z:/picture/008/save_picture_701135.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701134.jpg" />
+  <img src="Z:/picture/008/save_picture_701134.jpg" />
 </div>
 
 

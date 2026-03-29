@@ -1,3 +1,29 @@
+###  Публикация: 1186826   (137797) от 31.12.2017
+
+Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centimeters Apart. | Мы всегда были в 10 сантиметрах друг от друга. [2017, TV, 6] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья ветка этой истории, в этот раз не полнометражный фильм, а 6-серийное аниме, расскажет про отношения Мио и Харуки, которые всегда рядом, всего в 10 сантиметрах друг от друга, но всё никак не могут преодолеть это расстояние.Производство: Lay-duceЖанр: романтика, повседневностьРежиссер: Намба ХитосиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AD7EEDEDBE7ACF72F7BEEF92D0C302277FEFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334495   (137510) от 31.12.2019
 
 Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | Special 7: Special Crime Investigation Unit | Токунана [2019, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137510.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137475.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137418.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137414.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Senran Kagura: Shinovi Master - Tokyo Youma Hen / Сэнран Кагура 2 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137326.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Shokugeki no Souma: Shin no Sara | Food Wars! The Fourth Plate | Кулинар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137322.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137244.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137230.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137223.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137218.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Skirt no Naka wa Kedamono Deshita. | Зверь под юбкой [2017, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137175.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Enen no Shouboutai | Fire Force | Пламенная бригада пожарн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137144.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Obey Me! (2022) | Повинуйся мне! (2022) [12, Web] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137115.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136593.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136576.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129623.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan | Бродяга Кэнсин [ТВ-2] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127930.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Boushoku no Berserk / Berserk of Gluttony / Ненасытный берсерк 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127532.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127165.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127160.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127006.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Toaru Ossan no VRMMO Katsudouki | A Playthrough of a Certain Dude's VRMMO Life |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126996.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Dr. Stone: New World | Доктор Стоун [ТВ-3] [2023, TV, 22 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126847.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Helck | Хельк [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126840.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126831.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C3BEE20B2BF989799CEFC131EAB6B377FCA36C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666500   (126829) от 21.12.2023
-
-Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu / Я подобрал девушку, помолвка которой расторгнута, и обучаю её быть капризной [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aллeн — мaг-oтшeльник, избeгaющий oбщecтвa людeй и живyщий в глyxoм лecy. Mecтныe cильнo бoялиcь oдинoкoгo вoлшeбникa и пpoзвaли дeмoнoм. Oднaжды oн нaxoдит дeвyшкy, лeжaщyю бeз coзнaния. Eё oбoлгaли, oбвинив в пpecтyплeнияx, eё пoмoлвкa aннyлиpoвaнa, и oнa былa вынyждeнa бeжaть из cвoeй cтpaны. Уcлышaв иcтopию Шapлoтты, тaк зoвyт дeвyшкy, Aллeн вcпoмнил, чтo caм (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Асами ТакасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8FDFE82430D9837598CA1682D0005DE8121B6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

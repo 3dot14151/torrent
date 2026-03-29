@@ -1,3 +1,55 @@
+###  Публикация: 1329589   (352114) от 05.10.2019
+
+Коралловый риф 3D: Подводный мир Египта / Adventure coral reef 3D: Under the sea of Egypt (2012) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подводный мир Красного моря в Египте не просто красив - он сказочно красив. Кораллы, гигантские скаты, миллионы рыб самой разнообразной раскраски, затонувшие корабли. Этот мир вас будет тянуть к себе с такой силой, что вы будите возвращаться туда снова и снова, чтобы испытать тот неописуемый восторг, радость первых открытий, ощущения умиротворенности и просто счастья. (   Читать дальше...   )Производство: Германия, KSMЖанр: Документальный, природа, флора, фаунаРежиссер: Питер ЛордПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC329E870E5F927550E72B011A559C574800C657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418139   (351237) от 23.10.2020
+
+Тайны дикой природы Австралии / Secrets of Wild Australia (2016) HDTVRip [H.264/1080p] (Сезон 1, серии 1-7 из 7)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в тайну и удивительные жизни некоторых диких животных Австралии. От миниатюрных сумчатых до летающих лис, присоединяйтесь к этим необычным существам, процветающим в потусторонних ландшафтах этого удивительного острова-континента.Производство: США, Blink FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Тиффани ДжонсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D12CF60FD1A5B97F3E17F1E5B2977770E40FC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329617   (349998) от 06.10.2019
 
 Дикая Южная Африка 3D: Большая пятерка / Wildlife South Africa 3D: Big Five (2012) BDRemux [H.264/1080p]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349998.jpg" />
+  <img src="Z:/picture/008/save_picture_349998.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349584.jpg" />
+  <img src="Z:/picture/008/save_picture_349584.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349089.jpg" />
+  <img src="Z:/picture/008/save_picture_349089.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347920.jpg" />
+  <img src="Z:/picture/008/save_picture_347920.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347915.jpg" />
+  <img src="Z:/picture/008/save_picture_347915.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347713.jpg" />
+  <img src="Z:/picture/008/save_picture_347713.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347621.jpg" />
+  <img src="Z:/picture/008/save_picture_347621.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344910.jpg" />
+  <img src="Z:/picture/008/save_picture_344910.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344544.jpg" />
+  <img src="Z:/picture/008/save_picture_344544.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344314.jpg" />
+  <img src="Z:/picture/008/save_picture_344314.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343626.jpg" />
+  <img src="Z:/picture/008/save_picture_343626.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343528.jpg" />
+  <img src="Z:/picture/008/save_picture_343528.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343395.jpg" />
+  <img src="Z:/picture/008/save_picture_343395.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343394.jpg" />
+  <img src="Z:/picture/008/save_picture_343394.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343309.jpg" />
+  <img src="Z:/picture/008/save_picture_343309.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343303.jpg" />
+  <img src="Z:/picture/008/save_picture_343303.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343135.jpg" />
+  <img src="Z:/picture/008/save_picture_343135.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343127.jpg" />
+  <img src="Z:/picture/008/save_picture_343127.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342940.jpg" />
+  <img src="Z:/picture/008/save_picture_342940.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342627.jpg" />
+  <img src="Z:/picture/008/save_picture_342627.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342622.jpg" />
+  <img src="Z:/picture/008/save_picture_342622.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341151.jpg" />
+  <img src="Z:/picture/008/save_picture_341151.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341011.jpg" />
+  <img src="Z:/picture/008/save_picture_341011.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340970.jpg" />
+  <img src="Z:/picture/008/save_picture_340970.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFB1FE6D9008B6FC652C325BE7C8C2EE08026C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912230   (340236) от 18.11.2016
-
-Viasat Nature: Австралия: путешествие сквозь эволюцию / Australia - A Journey Through Evolution (2014) SATRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340236.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате отделения Австралии от основного континента миллионы лет назад, остров оказался изолирован океаном. Благодаря такому особому расположению материка и его отдаленности от других земель, а также большому разнообразию погодных условий в Австралии развивалась своя собственная, совершенно особенная экосистема, эволюционировавшая на протяжении многих миллиардов (   Читать дальше...   )Телекомпания: Explora FilmsЖанр: Документальный, познавательныйРежиссер: Laura Casamayor del RinconПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии "SDI Media" перевод Татьяны Вишневской, текст читает Юрий БольшаковПродолжительность: ~ 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A976091439BE67B7041EF014F51C40971D8082D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954730   (339967) от 08.11.2015
-
-Друг дельфинов / Friends of dolphins (2003) TVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харди Джонс задался целью, которая когда-то считалась невыполнимой, поплавать в открытом море с дикими дельфинами, как член стаи и друг. Но то, что начиналось, как попытка общения, закончилась в компании по охране дельфинов от людской жадности. Вот уже двадцать пять лет он предан своему делу, став защитником дельфинов...Производство: СШАТелекомпания: RamblerЖанр: ДокументальныйРежиссер: Харди ДжонсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9198E61CBF38BF251E3D48F1959D5E19644361BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1552174   (587621) от 20.05.2022
+
+SeriesGuide – менеджер фильмов и сериалов 64.0.7 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587621.jpg" />
+</div>
+
+
+###  Подробнее
+
+С SeriesGuide вы можете находить сериалы и фильмы для просмотра, отслеживать просмотренные серии и фильмы, получать уведомления о предстоящих сериях, создавать резервные копии и синхронизировать их между всеми устройствами.Тип издания: PremiumРелиз состоялся: 19.05.2022Разработчик: Uwe Trottmann SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC607DDB5C0772441AE2928AEC057AF86B354CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552129   (587619) от 20.05.2022
 
 DIGI Clock Widget Plus 3.1.1 [Ru/Multi]
@@ -6,7 +32,7 @@ DIGI Clock Widget Plus 3.1.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587619.jpg" />
+  <img src="Z:/picture/008/save_picture_587619.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587615.jpg" />
+  <img src="Z:/picture/008/save_picture_587615.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ TERMINATOR GENISYS: REVOLUTION v2.0.0 Mod [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587611.jpg" />
+  <img src="Z:/picture/008/save_picture_587611.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585891.jpg" />
+  <img src="Z:/picture/008/save_picture_585891.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ GoPro App 2.8.1340 [En] - Управления action-камерами GoPro
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585799.jpg" />
+  <img src="Z:/picture/008/save_picture_585799.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Navigator PRO v1.01 [Ru/Multi] - навигатор с офлайн картам
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585642.jpg" />
+  <img src="Z:/picture/008/save_picture_585642.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ CM Browser 5.20.04 [Ru] - Браузер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585634.jpg" />
+  <img src="Z:/picture/008/save_picture_585634.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ ABBYY FineScanner Pro 1.0.84 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585176.jpg" />
+  <img src="Z:/picture/008/save_picture_585176.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584867.jpg" />
+  <img src="Z:/picture/008/save_picture_584867.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Need for Speed: Most Wanted Мод 1.3.68 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584592.jpg" />
+  <img src="Z:/picture/008/save_picture_584592.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Orbit Space 3D Live Wallpaper v1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583962.jpg" />
+  <img src="Z:/picture/008/save_picture_583962.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583788.jpg" />
+  <img src="Z:/picture/008/save_picture_583788.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582726.jpg" />
+  <img src="Z:/picture/008/save_picture_582726.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Water Your Body / Пить воду 3.122.96 [En] - напоминалка о п
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582636.jpg" />
+  <img src="Z:/picture/008/save_picture_582636.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ VPN Private v1.7.5 Premium + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581918.jpg" />
+  <img src="Z:/picture/008/save_picture_581918.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581807.jpg" />
+  <img src="Z:/picture/008/save_picture_581807.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581653.jpg" />
+  <img src="Z:/picture/008/save_picture_581653.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581540.jpg" />
+  <img src="Z:/picture/008/save_picture_581540.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Localway Гид по городам России v2.7 [Ru/En] - помощник
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581055.jpg" />
+  <img src="Z:/picture/008/save_picture_581055.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Empires and Allies v1.5.887711 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579929.jpg" />
+  <img src="Z:/picture/008/save_picture_579929.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Real Racing 3 v3.5.2 МегаМод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579846.jpg" />
+  <img src="Z:/picture/008/save_picture_579846.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ MadOut 9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579836.jpg" />
+  <img src="Z:/picture/008/save_picture_579836.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579807.jpg" />
+  <img src="Z:/picture/008/save_picture_579807.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Waze - Социальный Навигатор 3.8.1.0/3.9.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579742.jpg" />
+  <img src="Z:/picture/008/save_picture_579742.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579446.jpg" />
+  <img src="Z:/picture/008/save_picture_579446.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038796   (579303) от 12.08.2016
-
-Руководство по выживанию от Купера Баррэта / Cooper Barrett's Guide to Surviving Life (2016) WEB-DLRip [H.264] (сезон 1, серии 1-13 из 13) BaibaKo [MP4|720x400]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодежная комедия о компании молодых парней, которые решают поселиться в одной квартире, делать только то, что хочется, и ни от кого не зависеть. Правда, не все идет гладко: с завидной частотой друзья попадают в нелепые и даже опасные ситуации, но благодаря везению и взаимовыручке всегда каким-то образом из них выпутываются.Производство: СШАЖанр: комедияРежиссер: Джеймс ГриффитсАктеры: Линдон Смит, Джек Катмор-Скотт, Миган Рат, Чарли Сэкстон, Джеймс Эрл, Джастин Барта, Лиза Лапира и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~ 00:22:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFB493CD49E005E2B33A2C5928E74A5EB98E320
 ```
 
 https://mybot314.ru/tekegram_catalog/

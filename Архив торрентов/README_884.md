@@ -6,7 +6,7 @@ Unity Pro 2019.3.10f1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846439.jpg" />
+  <img src="Z:/picture/008/save_picture_846439.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Smart Keyboard PRO 4.12.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846432.jpg" />
+  <img src="Z:/picture/008/save_picture_846432.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ DAEMON Tools Ultra 4.1.0.0489 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846428.jpg" />
+  <img src="Z:/picture/008/save_picture_846428.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846427.jpg" />
+  <img src="Z:/picture/008/save_picture_846427.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Assetto Corsa (2014) [Ru/Multi] (1.5.2/dlc) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846426.jpg" />
+  <img src="Z:/picture/008/save_picture_846426.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846418.jpg" />
+  <img src="Z:/picture/008/save_picture_846418.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Daum PotPlayer 1.7.661 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846413.jpg" />
+  <img src="Z:/picture/008/save_picture_846413.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wise Care 365 Pro 4.57.432 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846408.jpg" />
+  <img src="Z:/picture/008/save_picture_846408.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PassMark BurnInTest Pro 8.1 Build 1020 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846407.jpg" />
+  <img src="Z:/picture/008/save_picture_846407.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Hex Editor Neo Ultimate Edition 6.25.00.5960 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846403.jpg" />
+  <img src="Z:/picture/008/save_picture_846403.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DiskDigger 1.31.43.3019 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846384.jpg" />
+  <img src="Z:/picture/008/save_picture_846384.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Pedro Del Mar - Mellomania Deluxe 477 (07-03-2011) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846355.jpg" />
+  <img src="Z:/picture/008/save_picture_846355.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ESET Endpoint Security 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846344.jpg" />
+  <img src="Z:/picture/008/save_picture_846344.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ ESET Endpoint Antivirus 5.0.2260.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846339.jpg" />
+  <img src="Z:/picture/008/save_picture_846339.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846336.jpg" />
+  <img src="Z:/picture/008/save_picture_846336.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ AutoCAD Design Suite Ultimate 2017 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846335.jpg" />
+  <img src="Z:/picture/008/save_picture_846335.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846316.jpg" />
+  <img src="Z:/picture/008/save_picture_846316.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ WinToUSB Enterprise 3.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846304.jpg" />
+  <img src="Z:/picture/008/save_picture_846304.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gemini 2: The Duplicate Finder 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846302.jpg" />
+  <img src="Z:/picture/008/save_picture_846302.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Media Player Classic Home Cinema 1.7.11 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846301.jpg" />
+  <img src="Z:/picture/008/save_picture_846301.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Topaz Gigapixel AI 4.7.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846286.jpg" />
+  <img src="Z:/picture/008/save_picture_846286.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ WSCC (Windows System Control Center) 4.0.5.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846284.jpg" />
+  <img src="Z:/picture/008/save_picture_846284.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Topaz DeNoise AI 2.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846283.jpg" />
+  <img src="Z:/picture/008/save_picture_846283.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ HP Service Pack for ProLiant 2020.03.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846280.jpg" />
+  <img src="Z:/picture/008/save_picture_846280.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ACDSee Photo Studio 6 v6.2.1681 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846279.jpg" />
+  <img src="Z:/picture/008/save_picture_846279.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ XnView Classic 2.49.2 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846278.jpg" />
+  <img src="Z:/picture/008/save_picture_846278.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724813.jpg" />
+  <img src="Z:/picture/008/save_picture_724813.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mauro Picotto - The Double Album (2000) 2CD [MP3|320 Kbps] <Trance, Techno, Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724788.jpg" />
+  <img src="Z:/picture/008/save_picture_724788.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Photo Supreme 4.3.3.1957 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724780.jpg" />
+  <img src="Z:/picture/008/save_picture_724780.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ YANS - Chupa Chups (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724779.jpg" />
+  <img src="Z:/picture/008/save_picture_724779.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724778.jpg" />
+  <img src="Z:/picture/008/save_picture_724778.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Mate: Universal Tab Translator 5.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724775.jpg" />
+  <img src="Z:/picture/008/save_picture_724775.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724771.jpg" />
+  <img src="Z:/picture/008/save_picture_724771.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ The Foundry MODO 12.0v1 Build 492947 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724763.jpg" />
+  <img src="Z:/picture/008/save_picture_724763.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Adobe Premiere Pro CC 2018 v12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724759.jpg" />
+  <img src="Z:/picture/008/save_picture_724759.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724758.jpg" />
+  <img src="Z:/picture/008/save_picture_724758.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724741.jpg" />
+  <img src="Z:/picture/008/save_picture_724741.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Love Is / Comedy Club / Comedy Woman (2018) WEB-DL [H.264/720p-LQ] (сезон 2
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724739.jpg" />
+  <img src="Z:/picture/008/save_picture_724739.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Luxion Keyshot Pro 7.3.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724737.jpg" />
+  <img src="Z:/picture/008/save_picture_724737.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Java SE Runtime Environment 8.0.261 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724708.jpg" />
+  <img src="Z:/picture/008/save_picture_724708.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Valentina Studio Pro 12.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724697.jpg" />
+  <img src="Z:/picture/008/save_picture_724697.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ PullTube 1.7.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724696.jpg" />
+  <img src="Z:/picture/008/save_picture_724696.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ NCH ClickCharts Diagram Pro 6.34 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724694.jpg" />
+  <img src="Z:/picture/008/save_picture_724694.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Stats 2.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724693.jpg" />
+  <img src="Z:/picture/008/save_picture_724693.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Internet Download Manager 6.28 Build 7 Final RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724690.jpg" />
+  <img src="Z:/picture/008/save_picture_724690.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ NCH WavePad Audio Editor Pro 16.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724684.jpg" />
+  <img src="Z:/picture/008/save_picture_724684.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ PullTube 1.7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724682.jpg" />
+  <img src="Z:/picture/008/save_picture_724682.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Audio Record Pro 3.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724671.jpg" />
+  <img src="Z:/picture/008/save_picture_724671.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724664.jpg" />
+  <img src="Z:/picture/008/save_picture_724664.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Jarlath Henderson - Hearts Broken, Heads Turned (2016) [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724654.jpg" />
+  <img src="Z:/picture/008/save_picture_724654.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Slimjet 14.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724648.jpg" />
+  <img src="Z:/picture/008/save_picture_724648.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724646.jpg" />
+  <img src="Z:/picture/008/save_picture_724646.jpg" />
 </div>
 
 

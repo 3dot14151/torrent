@@ -1,3 +1,171 @@
+###  Публикация: 1222580   (278700) от 07.11.2019
+
+Старинный детектив (1982) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278700.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказов Эдгара По "Похищенное письмо" и Чарльза Диккенса "Пойман с поличным".
+Наблюдательность, умение логически мыслить, интуиция - все эти качества помогли главным героям раскрыть запутанные дела.Производство: СССРЖанр: ДетективРежиссер: Павел РезниковАктеры: Сергей Юрский, Юрий Богатырев, Всеволод Ларионов, Тамара Чернова, Александр Шворин. Андрей Харитонов, Ирина ПономареваСубтитры: отсутствуютПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8F5027CA7F5E10084A71927C4F7794599338F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082351   (278630) от 12.12.2016
+
+Легенды Ретро FM (2016) SATRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера международного музыкального фестиваля "Легенды Ретро FM-2016".Съёмка 10.12.2016г.Жанр: КонцертПродолжительность: 03:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295EBC3DD4C66CA2C6F7C6C47AB2F05C54952EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336503   (278582) от 07.11.2019
+
+Hymn: Sarah Brightman in Concert (2018) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара Брайтман, одна из самых успешных сопрано-певиц современности, показала новую программу HYMN: Sarah Brightman In Concert Tour.
+Пронизанный духовной тематикой концерт HYMN – это вдохновляющая коллекция песен с участием оркестра и хора. Возвышенный тон всему концерту задает заглавная композиция, песня британской прог-роковой группы Barclay James Harvest. В нем (   Читать дальше...   )Производство: Великобритания, Sky Arts HDЖанр: Pop, classical, crossoverПеревод: Не требуетсяЯзык озвучки: АнглийскийСубтитры: нетПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69361EB40A18C6A2C45B430783B119F4A75A5835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187681   (278470) от 29.11.2017
+
+Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278470.jpg" />
+</div>
+
+
+###  Подробнее
+
+000 Intro
+061 Nicole Kidman & Ewan McGregor - Come What May
+062 Elize - Hot Stuff
+063 Blue - One Love(   Читать дальше...   )Жанр: PopФормат: MKVПродолжительность: 03:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC93F865F4C9D30FA99E2F3590C9FBE23FF9D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081362   (278171) от 12.12.2016
+
+Сборник клипов - Philizz "Video Yearmix" (2016) HDTV [AVC/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Video Yearmix 2016" - фирменный видеомикс от голландского ви-джея Philizz. Почти два часа мировых музыкальных хитов в двух частях! Высокое качество и отличный видеоряд обеспечат Вам хорошее настроение. Добро пожаловать в мир лучшей танцевальной музыки 2016 года!
+- Разбивка по трекам отсутствует.Part 1:
+Shawn Mendes – Mercy
+Pitbull ft. Enrique Iglesias – Messin’ Around
+Pink – Just Like Fire(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C348D79DF57AC4E0EDA1544FD2AE41CFB95C8557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187842   (277070) от 30.11.2017
+
+Thunder - Flawed to Perfection: the Video Collection 1990-1995 (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunder - британская команда, играющая мелодичный хард-блюз-рок, альбомы которой в начале 90-х в чартах были вполне конкурентоспособными с опусами "Whitesnake" и "Def Leppard". Подборка видео и концертных записей раннего творчества группы, как нельзя лучше передает атмосферу эпохи 90-х.THE VIDEOS:
+01. She's So Fine
+02. Dirty Love
+03. Backstreet Symphony(   Читать дальше...   )Производство: Великобритания, EMIЖанр: Хард-рокСубтитры: Английские, французские, немецкие, испанские, голландскиеПродолжительность: 01:07:23+00:50:11+00:23:32+00:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F8544B5539FEDBBAF4F161CBBCB898819EB922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207254   (277058) от 08.11.2019
 
 Горький. Дно. Высоцкий (2018) WEBRip [H.264/720p-LQ] (МДТ им. Пушкина)
@@ -6,7 +174,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277058.jpg" />
+  <img src="Z:/picture/008/save_picture_277058.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276954.jpg" />
+  <img src="Z:/picture/008/save_picture_276954.jpg" />
 </div>
 
 
@@ -59,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276901.jpg" />
+  <img src="Z:/picture/008/save_picture_276901.jpg" />
 </div>
 
 
@@ -88,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276877.jpg" />
+  <img src="Z:/picture/008/save_picture_276877.jpg" />
 </div>
 
 
@@ -117,7 +285,7 @@ Beyonce - I Am... World Tour (2010) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275839.jpg" />
+  <img src="Z:/picture/008/save_picture_275839.jpg" />
 </div>
 
 
@@ -143,7 +311,7 @@ Muse - Rock Am Ring 2010 (2010) [720p] HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275675.jpg" />
+  <img src="Z:/picture/008/save_picture_275675.jpg" />
 </div>
 
 
@@ -169,7 +337,7 @@ David Garrett - Rock Symphonies (Open Air Live) (2010) BDRip
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275668.jpg" />
+  <img src="Z:/picture/008/save_picture_275668.jpg" />
 </div>
 
 
@@ -195,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275429.jpg" />
+  <img src="Z:/picture/008/save_picture_275429.jpg" />
 </div>
 
 
@@ -224,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274655.jpg" />
+  <img src="Z:/picture/008/save_picture_274655.jpg" />
 </div>
 
 
@@ -250,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274590.jpg" />
+  <img src="Z:/picture/008/save_picture_274590.jpg" />
 </div>
 
 
@@ -279,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274475.jpg" />
+  <img src="Z:/picture/008/save_picture_274475.jpg" />
 </div>
 
 
@@ -306,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274471.jpg" />
+  <img src="Z:/picture/008/save_picture_274471.jpg" />
 </div>
 
 
@@ -333,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274435.jpg" />
+  <img src="Z:/picture/008/save_picture_274435.jpg" />
 </div>
 
 
@@ -360,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274334.jpg" />
+  <img src="Z:/picture/008/save_picture_274334.jpg" />
 </div>
 
 
@@ -388,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274297.jpg" />
+  <img src="Z:/picture/008/save_picture_274297.jpg" />
 </div>
 
 
@@ -414,7 +582,7 @@ Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274061.jpg" />
+  <img src="Z:/picture/008/save_picture_274061.jpg" />
 </div>
 
 
@@ -443,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273536.jpg" />
+  <img src="Z:/picture/008/save_picture_273536.jpg" />
 </div>
 
 
@@ -469,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273486.jpg" />
+  <img src="Z:/picture/008/save_picture_273486.jpg" />
 </div>
 
 
@@ -498,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273465.jpg" />
+  <img src="Z:/picture/008/save_picture_273465.jpg" />
 </div>
 
 
@@ -524,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272349.jpg" />
+  <img src="Z:/picture/008/save_picture_272349.jpg" />
 </div>
 
 
@@ -535,169 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA503E61D2C4252D8FBF3495E31911D62D85B3EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273832   (272327) от 24.12.2010
-
-Вера Брежнева - Любовь спасет мир (Подарочное издание) (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272327.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD с нового Альбома Веры Брежневой "Любовь спасет мир (Подарочное издание)Актеры: Вера БрежневаПеревод: ОригинальныйПродолжительность: (00:03:28+00:03:57+00:04:04+00:03:32+00:03:52)=00:17:73
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963379   (272273) от 12.11.2019
-
-Опасный поворот (1972) SATRip (3 серии)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272273.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Дж. Пристли.
-Издатель Роберт Кэплен и его жена Фреда тепло принимают в своем загородном доме друзей и родственников. Эта "миленькая маленькая компания", по словам одной гостьи, весело беседует и обменивается сплетнями. Пока темой разговора не становится "правда". Вместе с героями фильма мы будем распутывать клубок взаимоотношений, развязывать (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Телеспектакль, драма, экранизацияРежиссер: Николай Досталь, Владимир Басов ст.Актеры: Владимир Басов ст., Антонина Шуранова, Юрий Яковлев, Валентина Титова, Александр Дик, Елена Валаева, Руфина НифонтоваПродолжительность: 03:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A558F6DDA97C768856B48FFBE63FB19CA52C95C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189018   (271999) от 04.12.2017
-
-Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271999.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Synchronicity II
-2 Spirits In The Material World
-3 Englishman in New York
-4 I Can't Stop Thinking About You(   Читать дальше...   )Производство: Deutsche GrammophonЖанр: Rock, Pop, New Wave, JazzРежиссер: Alexandre BuissonПродолжительность: 01:42:03+00:36:12 (Bonus)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42AE9D6C4A3E3CD62707FBE6FDD5BF332FAB6453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 714595   (271830) от 30.11.2018
-
-Eric Clapton - Live at Montreux 1986 (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Статус Эрика Клэптона, как Guitar Hero не имеет себе равных среди всех остальных. Тем не менее в его позднем подростковом возрасте поклонники прозвали его «Богом», и он до сих пор рассматривается с благоговением и почтением со стороны других гитаристов и любителей музыки. Этот концерт, в Монтре на фестивале в 1986 году, прошел незадолго до выхода одноимённого альбомаЖанр: Блюз-рок, Хард-рок, БлюзРежиссер: Thierry AmsallemПеревод: ОтсутствуетПродолжительность: 01:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509C0AC3C4B011B4B863E8FEE16314BF11942C16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265896   (271812) от 30.11.2018
-
-Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления ACCEPT с симфоническим оркестром, состоявшегося 3 августа 2017 года на фестивале “Wacken Open Air” перед самой большой за всю карьеру группы аудиторией – 80 тыс. человек.Диск 1
-Part 1 - Accept
-01. Die by the Sword
-02. Restless and Wild(   Читать дальше...   )Производство: Nuclear BlastЖанр: Heavy MetalРежиссер: WOAСубтитры: отсутствуютПродолжительность: 00:58:21 + 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7997953D6B31B63E8D69F5D664AB3CC56DC12381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590078   (271645) от 30.11.2018
-
-Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адриано Челентано - певец, актёр, режиссёр, телеведущий, продюсер, композитор, общественный деятель, автор песен. Презентация альбома Adriano Live состоялась 30 ноября 2012 года в театре Ristori в Вероне, где певец присутствовал лично. В качестве места проведения концерта артист выбрал знаменитый амфитеатр Арена ди ВеронаПроизводство: ClanЖанр: PopРежиссер: Серджио РубиноАктеры: Адриано Челентано, Габриэле Болоньези, Лука Коломбо, Джанни Далл’Альо, Карло Гаудьелло, Давид Гидони, Леле Мелотти, Дадо Нери, Микеле Пападья, Плачидо Саламоне, Джорджио Секко.Продолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BFB5D167166A6FA87F3E3307C495B2491C5A89
 ```
 
 https://mybot314.ru/tekegram_catalog/

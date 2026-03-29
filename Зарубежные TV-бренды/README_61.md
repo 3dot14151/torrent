@@ -1,3 +1,107 @@
+###  Публикация: 1148970   (602479) от 09.07.2017
+
+BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602479.jpg" />
+</div>
+
+
+###  Подробнее
+
+За пять миллиардов лет, жизнь на Земле эволюционировала в невероятное богатство и разнообразность которые мы видим сегодня. «Одна Жизнь» - это праздник самых блестящих и захватывающих историй выживания в животном царстве. Сюжетная линия ведет нас через полный цикл жизни к рождению нового поколения, затрагивая все формы жизни на Земле. Неважно, крылья у нас или ласты, (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, природа, флора и фаунаРежиссер: Майкл Гантон, Марта ХолмсПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: английскиеПродолжительность: 01:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E09B0C4DD0E68C36BF48623F7AD78E61B5AB5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149040   (602450) от 09.07.2017
+
+Животные, которые изменили историю / Animals that changed History (2015) HDTVRip [H.264] (Сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы совершим путешествие во времени, чтобы изучить невероятную историю животного мира нашей планеты и его взаимоотношений с человеком. Некоторым животным удалось повлиять на развитие торговли, религии, военного дела и медицины. Козам принадлежит честь открытия кофе - одного из наших самых любимых и экономически важных напитков, голуби помогали осуществлять обмен информацией (   Читать дальше...   )Производство: Великобритания, In association with HD Viasat HistoryHD Viasat Nature, Wildbear EntertaimentЖанр: Документальный, флора, фауна, историяРежиссер: Мартин БакерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE5A5489DC64F1B23CDDD13498E8DF503625006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232256   (602245) от 23.06.2018
+
+BBC: Таинственный мир гормонов / The Fantastical World of Hormones with Professor John Wass (2014) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гормоны формируют каждого из нас, влияя на все наши характеристики: рост, вес, предпочтения в еде, как мы будем расти и размножаться и даже как мы будем себя вести и чувствовать. Этот документальный фильм расскажет удивительную и странную историю того, как были обнаружены гормоны.Производство: Великобритания, Furnace, BBCЖанр: Документальный, научно-популярныйРежиссер: Джеймс СендиПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: АнглийскиеПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B54A7F4679DB818880A97E5F7FA87C95083C01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232229   (602236) от 23.06.2018
+
+Discovery: Как устроена Земля / How the Earth Works (2013) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмисерийная программа Discovery Channel «Как устроена Земля», посвящена группе увлеченных своим делом ученых, отправившихся в путешествие по нашей планете, чтобы найти ответы на самые интересные научные загадки современности. Вы узнаете много нового о глобальных проблемах, касающихся каждого жителя Земли, и поймете, как природные процессы влияют на нашу повседневную (   Читать дальше...   )Производство: США, Pioneer Productions, Discovery Science channelЖанр: Документальный, научно-познавательныйРежиссер: Джереми ТернерПеревод: Одноголосый закадровый, профессиональный (Кирилица)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24C4C02AA93A0F88650A530EDE81C0C6F7B1FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298098   (602142) от 26.04.2019
 
 NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zoo (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602142.jpg" />
+  <img src="Z:/picture/008/save_picture_602142.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601858.jpg" />
+  <img src="Z:/picture/008/save_picture_601858.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601658.jpg" />
+  <img src="Z:/picture/008/save_picture_601658.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601565.jpg" />
+  <img src="Z:/picture/008/save_picture_601565.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601216.jpg" />
+  <img src="Z:/picture/008/save_picture_601216.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601139.jpg" />
+  <img src="Z:/picture/008/save_picture_601139.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599930.jpg" />
+  <img src="Z:/picture/008/save_picture_599930.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599925.jpg" />
+  <img src="Z:/picture/008/save_picture_599925.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599740.jpg" />
+  <img src="Z:/picture/008/save_picture_599740.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599430.jpg" />
+  <img src="Z:/picture/008/save_picture_599430.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ DV: Невероятное вокруг нас. Следы ДНК [12 из 28] /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598813.jpg" />
+  <img src="Z:/picture/008/save_picture_598813.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598337.jpg" />
+  <img src="Z:/picture/008/save_picture_598337.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598331.jpg" />
+  <img src="Z:/picture/008/save_picture_598331.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598226.jpg" />
+  <img src="Z:/picture/008/save_picture_598226.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598067.jpg" />
+  <img src="Z:/picture/008/save_picture_598067.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597663.jpg" />
+  <img src="Z:/picture/008/save_picture_597663.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597294.jpg" />
+  <img src="Z:/picture/008/save_picture_597294.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597136.jpg" />
+  <img src="Z:/picture/008/save_picture_597136.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597090.jpg" />
+  <img src="Z:/picture/008/save_picture_597090.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597076.jpg" />
+  <img src="Z:/picture/008/save_picture_597076.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596970.jpg" />
+  <img src="Z:/picture/008/save_picture_596970.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ History Channel: Вселенная.  Как возникла Солнечная
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596958.jpg" />
+  <img src="Z:/picture/008/save_picture_596958.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ History Channel: Вселенная.  Как возникла Солнечная
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45A7BDA23CB66CDCE139EC726DD5892D441C8F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526809   (596864) от 24.07.2012
-
-History Channel: Вселенная. Бог и Вселенная / The Universe. God and the Universe (2011) HDTVRip [сезон 6 серия 7]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вначале была тьма. А затем...Взрыв, породивший существование бесконечно расширяющихся времени, пространства и материи. Новые открытия постоянно раскрывают загадки и удивительно страшные тайны того, что мы называем Вселенной. Этот космический мир не похож ни на что, о чем вы имеете понятие. В нашем районе Галактики встречаются самые причудливые, опасные и странные явления, когда-либо замеченные во Вселенной. Удивительная планета, чьи знаменитые кольца содержат горные хребты, сравнимые с Альпами. Мерцающая луна, где огромными гейзерами вырываются вода и лед. Была ли причиной потопа комета, упавшая в океан? Мог ли огненный метеор изменить судьбу христианства? Об этом и многом другом вы узнаете, посмотрев сериал "Вселенная".Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительский (Продолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F852A71A0C8E60A4B0738E3C1E878DD0D2560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526714   (596793) от 24.07.2012
-
-DV:  Невероятное вокруг нас. Взгляд в космос [16 из 28] / Totally Phenomenal. Look in the Universe (A Glimpse Into Space) (2012) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что мы знаем обо всем, но это только, кажется. Все, что нас окружает, таит в себе множество загадок. Сериал «Невероятное вокруг нас / Totally Phenomenal», снятый немецкими документалистами студии «Юго-западное ТВ» при непосредственном участии радиостанции «Немецкая волна» рассказывает интересные вещи в сфере повседневной физики, химии, биологии и географии. В каждой 15-минутной серии, представлены увлекательные явления, как натурных съемок, так и при помощи модели 3-D анимации. Сериал интересен и познавателен не только для юных зрителей, но и взрослой аудитории.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC28DB24F7D5CFA3D7393438EE4000AC72383972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232883   (596254) от 26.06.2018
-
-NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.264/1080i-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете о том, какие из малышей животных самые безбашенные. В мире, где происходит постоянная битва за выживание, им приходится быстро учиться используя свои инстинкты, что иногда принимает причудливый и порой странный вид.Производство: Новая Зеландия, Natural History Ltd, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Эндрю УотервордПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии х~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0D8425ED39E531E358FFCAA8D143B137107BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230278   (596155) от 26.06.2018
-
-History Channel. Реальные монстры / True Monsters (2015) HDTVRip (4 серии из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы попробуем отделить правду от вымысла и узнаем, что стоит за преданиями о чудовищных существах. В греческой и скандинавской мифологии есть немало историй о битвах богов и чудовищ за власть над миром. Возможно, в этих легендах есть доля правды? Может быть, прототипом скандинавского бога грома Тора был настоящий могучий воин? А если да, мог ли его боевой молот высекать (   Читать дальше...   )Производство: США, Committee FilmsЖанр: Документальный, мифы, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: серии по ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D68249069D43116E3D655C5DCDF01D2ACF9A7A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

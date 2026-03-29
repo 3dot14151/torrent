@@ -1,3 +1,113 @@
+###  Публикация: 1107335   (867337) от 22.02.2017
+
+Проекты - VideoHive - Old school TV - 19373572 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_867337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Old school TV - Профессиональный вещательный пакет высокого качества в хорошо организованном и простом шаблоне с пользовательскими настройками. Используйте этот проект для вашего канала Youtube, блога, ТВ-передач, кино или в качестве презентации. Проект имеет модульную структуру. Вы можете использовать любую часть проекта, как вам нравится.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6DB6333BB7633D4896996462B8A636F01154CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999005   (866373) от 21.03.2016
+
+Проекты - RocketStock - Grove [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grove-это красочный, оптимистичный проект, включающий в себя три различные версии анимации.
+Можно использовать как логотип, начальную или финальную видео-заствку, или как визитную карточку фотографа, компании и пр.
+Проект прост в настройке. Можно настроить цвета, отрегулировать толщину рамок, изменить интенсивность света.
+Добавьте Ваш логотип, перетащите фото или (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB1319F77B5F6E7767BA2E5F57618A3AD3AA1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999054   (866267) от 21.03.2016
+
+Проекты - RocketStock - Marquee [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Marquee содержит более 60 слайдов, чтобы персонализировать Ваши фотографии или видео.
+Этот проект отлично подходит для показа моды, рекламы компании, и раскрутки в соц. сетях. Настройка цвета, включение/выключение цветового оттенка присутствуют в проекте.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C576877EF40292924082CDA0BCF6E72F7666E4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999435   (864323) от 22.03.2016
+
+Проекты - Pond5 - Action Promo - 61022046 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный, креативный проект в жанре Action, для создания промо-ролика или трейлера к фильму.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E9F5FE6D8C0138A93EE277E9F42551E9581857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999445   (864178) от 22.03.2016
 
 Проекты - MotionVFX - Extravaganza [AEP]
@@ -6,7 +116,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864178.jpg" />
+  <img src="Z:/picture/008/save_picture_864178.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864030.jpg" />
+  <img src="Z:/picture/008/save_picture_864030.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863917.jpg" />
+  <img src="Z:/picture/008/save_picture_863917.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862756.jpg" />
+  <img src="Z:/picture/008/save_picture_862756.jpg" />
 </div>
 
 
@@ -111,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862346.jpg" />
+  <img src="Z:/picture/008/save_picture_862346.jpg" />
 </div>
 
 
@@ -137,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860451.jpg" />
+  <img src="Z:/picture/008/save_picture_860451.jpg" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860311.jpg" />
+  <img src="Z:/picture/008/save_picture_860311.jpg" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859347.jpg" />
+  <img src="Z:/picture/008/save_picture_859347.jpg" />
 </div>
 
 
@@ -216,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858264.jpg" />
+  <img src="Z:/picture/008/save_picture_858264.jpg" />
 </div>
 
 
@@ -242,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856916.jpg" />
+  <img src="Z:/picture/008/save_picture_856916.jpg" />
 </div>
 
 
@@ -268,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855459.jpg" />
+  <img src="Z:/picture/008/save_picture_855459.jpg" />
 </div>
 
 
@@ -296,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855313.jpg" />
+  <img src="Z:/picture/008/save_picture_855313.jpg" />
 </div>
 
 
@@ -322,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855217.jpg" />
+  <img src="Z:/picture/008/save_picture_855217.jpg" />
 </div>
 
 
@@ -348,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855110.jpg" />
+  <img src="Z:/picture/008/save_picture_855110.jpg" />
 </div>
 
 
@@ -374,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854954.jpg" />
+  <img src="Z:/picture/008/save_picture_854954.jpg" />
 </div>
 
 
@@ -400,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854953.jpg" />
+  <img src="Z:/picture/008/save_picture_854953.jpg" />
 </div>
 
 
@@ -426,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854598.jpg" />
+  <img src="Z:/picture/008/save_picture_854598.jpg" />
 </div>
 
 
@@ -453,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854594.jpg" />
+  <img src="Z:/picture/008/save_picture_854594.jpg" />
 </div>
 
 
@@ -479,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853695.jpg" />
+  <img src="Z:/picture/008/save_picture_853695.jpg" />
 </div>
 
 
@@ -506,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853631.jpg" />
+  <img src="Z:/picture/008/save_picture_853631.jpg" />
 </div>
 
 
@@ -533,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853472.jpg" />
+  <img src="Z:/picture/008/save_picture_853472.jpg" />
 </div>
 
 
@@ -559,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852438.jpg" />
+  <img src="Z:/picture/008/save_picture_852438.jpg" />
 </div>
 
 
@@ -570,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C315B5811CA1512ED00D6C311FE38DE8FC0C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001561   (851868) от 29.03.2016
-
-Проекты - VideoHive - NewsStudio 100 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851868.jpg" />
-</div>
-
-
-###  Подробнее
-
-NewsStudio 100 - это полностью настраиваемая и редактируемая виртуальная новостная телевизионная студия.
-Подходит для таких тем, как Последние Новости, Он-лайн Новости, Чрезвычайные ситуации, Краткий обзор новостей, Срочные новости, Спортивные новости, Прогноз погоды.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6567CD9900DA09538E3A9206AFECD471B0AF8FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110596   (851655) от 03.03.2017
-
-Проекты - VideoHive - Comic Strip 4 - 19464764 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comic Strip 4 - идеально подходит для отображения ваших иллюстраций или фотографий в качестве комических картинок, что позволит вам выглядеть в качестве художника и поможет рассказать историю или продвигать свой продукт.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6CDB9B1BF3DC80D9A2BF4DC12D36F0543F7563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377590   (851371) от 22.04.2020
-
-Проекты - VideoHive - Elegant Photo Gallery - 26376647 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Photo Gallery - впечатляющий проект After Effects с оригинальными вертикальными заполнителями, мерцающими частицами и огнями боке, идеально подходящий для красивого мозаичного слайд-шоу, специального видео мероприятия, захватывающей церемонии награждения.
-Легко настраиваемый цвет титров, цвет фона, цвет огней и непрозрачность, размер заполнителей, размытие (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B54CE8C3E599D6C7C1AA458B10D7A31B1D7096D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377612   (851366) от 22.04.2020
-
-Проекты - VideoHive - Luxury Awards Pack - 10468482 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851366.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Luxury Awards Pack" - это пакет, который включает в себя: вступление, слайд-шоу, нижнюю треть, титры. Очень хорошо подходит для презентаций, церемоний награждения, свадебных видеороликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5978949528988E3E03B198F6EBF16B2DBEE69F68
 ```
 
 https://mybot314.ru/tekegram_catalog/

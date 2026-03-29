@@ -1,3 +1,108 @@
+###  Публикация: 1198910   (804231) от 13.01.2018
+
+Мешок мрамора / Un sac de billes / A Bag of Marbles (2016) BDRemux [H.264/1080p] [FRA / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименному автобиографическому роману Жозефа Жоффо и повествует о годах Второй мировой войны во Франции.
+Париж после капитуляции Франции 1940 года. Оккупационные власти издают законы, ограничивающие права евреев. Глава семьи Жофу, в которой растут два несовершеннолетних мальчика, решает переправиться в свободную зону. При этом братьям, Жозефу и Морису, (   Читать дальше...   )Производство: Франция, Канада, Чехия / Quad Productions, Main Journey, GaumontЖанр: ДрамаРежиссер: Кристиан ДюгеАктеры: Кристиан Клавье, Люк Пэлан, Эльза Зильберштейн, Патрик Брюэль, Фридерик Эпо, Жослин Девершер, Бернар Кампан, Венсан Немет, Холгер Дямген, Пьер Кивитт, Эмиль Берлинг, Сезар Домбой, Колин Леклер, Кев Адамс, Люка ПризорПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: АнглийскиеПродолжительность: 01:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C122B4F2CCBE0ADB0B4136ACF25120F7F46B419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198689   (804113) от 13.01.2018
+
+Акты насилия / Acts of Violence (2018) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы спасти свою невесту, которая попала в лапы торговцев людьми, Роман (Эштон Холмс) должен вспомнить свои военные навыки и объединить свои усилия со своими бывшими сослуживцами и жестким полицейским, расследующим подобные дела.Производство: Канада, США / Colecar Productions, Emmett/Furla/Oasis Films (EFO Films), River Bay FilmsЖанр: Боевик, ДрамаРежиссер: Бретт ДонохуАктеры: Брюс Уиллис, Коул Хаузер, Шон Эшмор, Эштон Холмс, Мелисса Болона, Шон Броснан, София Буш, Майк Эппс, Тиффани Броувер, Дженна Б. Келли ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A345578B7673B1D402B0B2F424922094467BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010173   (803712) от 24.04.2016
+
+Эмили / Emelie  (2015) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803712.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как постоянная няня не смогла прийти, семья Томпсонов обращается к ее подруге Анне, чтобы посидеть с детьми, пока родители празднуют годовщину. Поначалу Анна кажется детям настоящим чудом - девушка разрешает играть с тем, с чем им обычно играть запрещено. Но постепенно поведение няни становится все более и более странным.Производство: США, Sandbar Pictures, ULTRAMEDIA, Uncorked ProductionsЖанр: триллерРежиссер: Майкл ФелинАктеры: Карли Адамс, Карл Бейли, Томас Баир, Крис Битем. Хизер Бенсон. Сара Болгер, Роберт Бозек, Дорин Донован Коркин, Майкл Джозеф Дуган, Данте ХоаглендПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B53E614BDB91261D79709CE82B5D7AC560376D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119718   (803275) от 30.03.2017
+
+Морской пехотинец 5: Поле битвы / The Marine 5: Battleground (2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время, когда он работал на постсоветском пространстве, Джейк Картер после ответа на вызов в случае бедствия оказался втянутым в защиту человека, представляющего интерес, из банды байкеров, беспощадно охотящегося за ним.Производство: США, WWE StudiosЖанр: БоевикРежиссер: Джеймс НаннАктеры: Мариз Уэлле Мизанин, Майк Мизанин, Анна Ван Хуфт, Тринити Фату, Сэнди Робсон, Нэйтан Митчелл, Брэд Келли, Хит Миллер, Тэйлор Ротунда, Джо Хенниг ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3998B07E4EE71319CC2D29C31FF651778C7F01D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120390   (803085) от 30.03.2017
 
 Волынь / Wolyn / Hatred (2016) BDRip [H.264/720p] [POL / POL Sub]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803085.jpg" />
+  <img src="Z:/picture/008/save_picture_803085.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803044.jpg" />
+  <img src="Z:/picture/008/save_picture_803044.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803015.jpg" />
+  <img src="Z:/picture/008/save_picture_803015.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803008.jpg" />
+  <img src="Z:/picture/008/save_picture_803008.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802609.jpg" />
+  <img src="Z:/picture/008/save_picture_802609.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802388.jpg" />
+  <img src="Z:/picture/008/save_picture_802388.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802280.jpg" />
+  <img src="Z:/picture/008/save_picture_802280.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801628.jpg" />
+  <img src="Z:/picture/008/save_picture_801628.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801238.jpg" />
+  <img src="Z:/picture/008/save_picture_801238.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801224.jpg" />
+  <img src="Z:/picture/008/save_picture_801224.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801021.jpg" />
+  <img src="Z:/picture/008/save_picture_801021.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800792.jpg" />
+  <img src="Z:/picture/008/save_picture_800792.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800466.jpg" />
+  <img src="Z:/picture/008/save_picture_800466.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800135.jpg" />
+  <img src="Z:/picture/008/save_picture_800135.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800051.jpg" />
+  <img src="Z:/picture/008/save_picture_800051.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799973.jpg" />
+  <img src="Z:/picture/008/save_picture_799973.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799108.jpg" />
+  <img src="Z:/picture/008/save_picture_799108.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799050.jpg" />
+  <img src="Z:/picture/008/save_picture_799050.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797862.jpg" />
+  <img src="Z:/picture/008/save_picture_797862.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797368.jpg" />
+  <img src="Z:/picture/008/save_picture_797368.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797367.jpg" />
+  <img src="Z:/picture/008/save_picture_797367.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797364.jpg" />
+  <img src="Z:/picture/008/save_picture_797364.jpg" />
 </div>
 
 
@@ -564,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B07710297AA7D614CAE57E7C073252F2C431650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199979   (797311) от 18.01.2018
-
-Убийство священного оленя / The Killing of a Sacred Deer  (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый кардиохирург Стивен живет счастливой жизнью с женой Анной и двумя прелестными детьми. Этой семейной идиллии угрожает призрак из прошлого, которое Стивену больше не под силу скрывать.Производство: Великобритания, Ирландия, США / Element Pictures, A24, Film4Жанр: ужасы, триллер, драма, детективРежиссер: Йоргос ЛантимосАктеры: Николь Кидман, Колин Фаррелл, Алисия Сильверстоун, Билл Кэмп, Барри Кеоган, Рэффи Кэссиди, Денис Даль Вера, Мишель Пул, Кеннет Мейер, Эми Кларк, Уилльям Уиллет, Санни Сулджик, Уилльям Кросс , Чарльз Пул, Анита Фармер БергманПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0447B3A289FD0AD44738E05F47D2E9A13EE6337C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011414   (796836) от 27.04.2016
-
-Возможности управления / Creative Control  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Нью-Йорке, Бруклине. В фильме отображается ближайшее будущее, где технический прогресс уже пришел. Появились различные устройства для общения. Каждый может получить к ним доступ. В настоящем мире слишком много рекламы и ненужной информации, поэтому отдушиной становится искусственный мир.
-Дэвид остро ощущает неудовлетворенность жизнью. (   Читать дальше...   )Производство: США, Ghost Robot, Greencard Pictures, MathematicЖанр: драмаРежиссер: Бенжамин ДикинсонАктеры: Бенжамин Дикинсон, Нора Зеетнер, Дэн Гилл, Алексия Расмуссен, Регги Уоттс, Гэвин МакИннесс, Пол Манза, Кэти Эйзенберг, Химаншу Сури, Мередит Хагнер, Женева КаррПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE53802F1A85F12D6971EBDC9F2DB0CB765D915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200225   (796818) от 19.01.2018
-
-Геошторм / Geostorm (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796818.jpg" />
-</div>
-
-
-###  Подробнее
-
-После беспрецедентной серии стихийных бедствий, обрушившихся на нашу планету, лидеры мировых держав объединили усилия, чтобы создать разветвленную сеть орбитальных спутников по контролю над климатом для предотвращения природных катаклизмов. Но что-то пошло не так — система, выстроенная для защиты Земли, теперь угрожает ей. Начинается гонка наперегонки со временем, (   Читать дальше...   )Производство: США / Warner Bros., Electric Entertainment, RatPac-Dune Entertainment, Skydance Media, Stereo D, Twisted MediaЖанр: фантастика, боевик, триллерРежиссер: Дин ДевлинАктеры: Джерард Батлер, Джим Стёрджесс, Эбби Корниш, Александра Мария Лара, Дэниэл Ву, Эухенио Дербес, Амр Вакед, Эдеперо Одуйе, Энди Гарсиа, Эд ХаррисПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, португальские, немецкие, итальянские, испанские, китайские,
-датские, финские, греческие, исландские, норвежские, шведскиеПродолжительность: 01:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B4615A6CA82CC88144F02F6128C84B482C77EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011207   (796687) от 27.04.2016
-
-Дэдпул / Deadpool  (2016) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэйд Уилсон - наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, - это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Канада, 20th Century Fox Film Corporation, Donners' Company, Kinberg Genre, Marvel Entertainment, TSG EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони, Майкл Беняер, Стайл ДэйнПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A53809470781A718CFAB55A5575FB4386C9624C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ WinTools.net Premium 21.9.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817633.jpg" />
+  <img src="Z:/picture/008/save_picture_817633.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USDownloader 1.3.5.9 Portable (17.04.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817607.jpg" />
+  <img src="Z:/picture/008/save_picture_817607.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817603.jpg" />
+  <img src="Z:/picture/008/save_picture_817603.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Downie 3.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817582.jpg" />
+  <img src="Z:/picture/008/save_picture_817582.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Soft4Boost Document Converter 5.1.9.709 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817574.jpg" />
+  <img src="Z:/picture/008/save_picture_817574.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Comodo Dragon 60.0.3112.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817569.jpg" />
+  <img src="Z:/picture/008/save_picture_817569.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Лучшая клубная сотня-5 (2011) [MP3|320 kbps]<Dance, Drum 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817564.jpg" />
+  <img src="Z:/picture/008/save_picture_817564.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Valentina Studio Pro 10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817547.jpg" />
+  <img src="Z:/picture/008/save_picture_817547.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ start 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817543.jpg" />
+  <img src="Z:/picture/008/save_picture_817543.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Magic Sort List 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817534.jpg" />
+  <img src="Z:/picture/008/save_picture_817534.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PhotoSweeper X 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817529.jpg" />
+  <img src="Z:/picture/008/save_picture_817529.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ulysses 19.1 (55109) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817520.jpg" />
+  <img src="Z:/picture/008/save_picture_817520.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817516.jpg" />
+  <img src="Z:/picture/008/save_picture_817516.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Futuremark 3DMark 2.20.7290 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817508.jpg" />
+  <img src="Z:/picture/008/save_picture_817508.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817498.jpg" />
+  <img src="Z:/picture/008/save_picture_817498.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VideoProc Converter 4K 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817489.jpg" />
+  <img src="Z:/picture/008/save_picture_817489.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817459.jpg" />
+  <img src="Z:/picture/008/save_picture_817459.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817456.jpg" />
+  <img src="Z:/picture/008/save_picture_817456.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Reg Organizer 7.35 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817451.jpg" />
+  <img src="Z:/picture/008/save_picture_817451.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Smokie - Pass It Around, Changing All The Time (1975) [PCM 96/ 24|Audio-DVD] <Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817449.jpg" />
+  <img src="Z:/picture/008/save_picture_817449.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Anvir Task Manager 9.2.1 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817445.jpg" />
+  <img src="Z:/picture/008/save_picture_817445.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Discovery: Бушующая планета - Вулканы / Raging planet - Vo
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817423.jpg" />
+  <img src="Z:/picture/008/save_picture_817423.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Ringo Starr - Postcards From Paradise (2015) [FLAC|Lossless|WEB-DL]<Classic Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817401.jpg" />
+  <img src="Z:/picture/008/save_picture_817401.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ GoodSync Enterprise 10.11.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817389.jpg" />
+  <img src="Z:/picture/008/save_picture_817389.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Ultra Mood - Hide & Seek (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817384.jpg" />
+  <img src="Z:/picture/008/save_picture_817384.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ MediaHuman YouTube Downloader 3.9.9.38 (1005) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817382.jpg" />
+  <img src="Z:/picture/008/save_picture_817382.jpg" />
 </div>
 
 

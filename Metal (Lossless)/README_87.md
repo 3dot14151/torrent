@@ -1,3 +1,90 @@
+###  Публикация: 1125484   (768120) от 15.04.2017
+
+Otargos - Apex Terror (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apex Terror
+02. Fleshless-Deathless
+03. For Terra
+04. Remnant from a Long-Dead Star(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FE860C08CDF94AC79E7B5DC9D98B276192CE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125433   (768100) от 15.04.2017
+
+Black Oath - The Third Aeon (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death as Liberation 08:09
+02. Growth of a Star Within 07:36
+03. The 3rd Aeon 03:04
+04. Evil Sorcerer 07:04(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DAAD3144886069652EE3D598224F58C3A660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125605   (767933) от 15.04.2017
+
+Ayreon - The Source (2017) Promo, 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767933.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Ayreon" является, по существу, сольным проектом талантливого нидерландского мультиинструменталиста и композитора Арьена Энтони Лукассена. Все остальные музыканты и вокалисты, участвовавшие в записи альбомов "Айреона" – сессионные. Свою деятельность Лукассен начал в 80-х годах, подвизаясь в малоизвестных командах "Bodine" и "Vengeance". (   Читать дальше...   )01. The Day That The World Breaks Down (12:31)
+02. Sea Of Machines (5:09)
+03. Everybody Dies (4:43)
+04. Star Of Sirrah (7:04)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01FCD28AB4261F05E6606DCBA05EAA6D95D287E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278901   (767780) от 27.01.2019
 
 Bilskirnir - In Solitary Silence (2018) [FLAC|Lossless|tracks + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Bilskirnir - In Solitary Silence (2018) [FLAC|Lossless|tracks + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767780.jpg" />
+  <img src="Z:/picture/008/save_picture_767780.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Ruins Of Beverast - Rain Upon The Impure (2006) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767412.jpg" />
+  <img src="Z:/picture/008/save_picture_767412.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Psicofonia - A Rockear I (2011) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767410.jpg" />
+  <img src="Z:/picture/008/save_picture_767410.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Valborg - Crown of Sorrow (2010) [FLAC|Lossless|image + .cue] <Atmospheric Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767408.jpg" />
+  <img src="Z:/picture/008/save_picture_767408.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Thаurоrоd - Coast Оf Gоld (2018) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767367.jpg" />
+  <img src="Z:/picture/008/save_picture_767367.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sebаstien - Act Of Creation (2018) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767366.jpg" />
+  <img src="Z:/picture/008/save_picture_767366.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Millenium - Angelfire (1999) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766946.jpg" />
+  <img src="Z:/picture/008/save_picture_766946.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Distant Dream - Your Own Story (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumenta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766933.jpg" />
+  <img src="Z:/picture/008/save_picture_766933.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Distant Dream - It All Starts From Pieces (2017) [FLAC|Lossless|image + .cue] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766874.jpg" />
+  <img src="Z:/picture/008/save_picture_766874.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Uhrilehto - Vitutus Millenium (2003) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766425.jpg" />
+  <img src="Z:/picture/008/save_picture_766425.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Uhrilehto - Viha ja ikuinen vitutus (2001) [APE|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766424.jpg" />
+  <img src="Z:/picture/008/save_picture_766424.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Depeseblo - Nightmare Desolation (2017) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766421.jpg" />
+  <img src="Z:/picture/008/save_picture_766421.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Akoma - Revangels (2017) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766378.jpg" />
+  <img src="Z:/picture/008/save_picture_766378.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dead Kosmonaut - Expect Nothing (2017) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766317.jpg" />
+  <img src="Z:/picture/008/save_picture_766317.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Mastodon - Emperor of Sand (2017) [FLAC|Lossless|tracks + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766281.jpg" />
+  <img src="Z:/picture/008/save_picture_766281.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Zippo - Ode to Maximum (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psyche
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766194.jpg" />
+  <img src="Z:/picture/008/save_picture_766194.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Swallow the Sun - Lumina Aurea (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766188.jpg" />
+  <img src="Z:/picture/008/save_picture_766188.jpg" />
 </div>
 
 
@@ -497,7 +584,7 @@ Iron Fate - Crimson Messiah (2021) [FLAC|Lossless|image + .cue] <Power Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766186.jpg" />
+  <img src="Z:/picture/008/save_picture_766186.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Nightwish - Once (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Symphonic Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766029.jpg" />
+  <img src="Z:/picture/008/save_picture_766029.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Axel Rudi Pell - Knights Call (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765743.jpg" />
+  <img src="Z:/picture/008/save_picture_765743.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Uhrilehto - Viimeinen Vitutus (2004) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765555.jpg" />
+  <img src="Z:/picture/008/save_picture_765555.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Nagelfar - Alte Welten (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765550.jpg" />
+  <img src="Z:/picture/008/save_picture_765550.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Knights Of Round - The Meaning Of Life (2016) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765545.jpg" />
+  <img src="Z:/picture/008/save_picture_765545.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Knights Of Round - The Meaning Of Life (2016) Japanese Edition [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637D6B0566E16D6F1EEB1095EE4C8C9B2999B8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279565   (765464) от 30.01.2019
-
-Kuolemanlaakso - Uljas Uusi Maailma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minä elän (05:58)
-02. Kuun lapset (06:14)
-03. Nostos & Algos (07:08
-04. Roihusydän (01:43)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A044512A76172F3013072C39AD66065A68AD8329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279432   (765458) от 30.01.2019
-
-Manticora - Darkness Tales To Tell (2001) Reissue, 2003, CD-Maximum [APE|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ... From Far Beyond (0:40)
-02. The Chance Of Dying In A Dream (5:29)
-03. Dynasty Of Fear (4:45)
-04. Dragon's Mist (8:58)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFC4D44E208719DDCEF0305F71E32FD97BB0085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279513   (765455) от 30.01.2019
-
-DevilDriver - Outlaws 'til the End, Vol. 1 (2018) [FLAC|Lossless|tracks + .cue] <Groove Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Heroes (03:41)
-02. Whiskey River (03:40)
-03. Outlaw Man (03:31)
-04. Ghost Riders in the Sky (03:44)(   Читать дальше...   )Жанр: Groove Metal, Death MetalПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E1AD4591681C7654FC50470D71B0A5DF9EC41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

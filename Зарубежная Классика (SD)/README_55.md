@@ -1,3 +1,82 @@
+###  Публикация: 1034895   (618990) от 21.07.2016
+
+Нежный капкан / The Tender Trap (1955) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Ридер — успешный театральный агент. Не менее успешен он и в отношениях с девушками. Его многочисленные подружки приходят и уходят, готовят и убирают для него. Однажды на прослушивании он встречает актрису и певицу Джули Гиллис — девушку, которая живет строго по плану. Согласно плану, она должна выйти замуж, бросить сцену и воспитывать детей уже к 22 годам. (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Чарльз УолтерсАктеры: Фрэнк Синатра, Дебби Рейнолдс, Дэвид Уэйн, Селест Холм, Джарма Льюис, Лола Олбрайт, Кэролин Джонс, Ховард Ст. Джон, Джои Фэй, Том ХелморПеревод: Профессиональный (одноголосый закадровый), BBC Saint-PetersburgЯзык субтитров: Русский, английскийПродолжительность: 01:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFAFC53D07850D690807319C848CC3E18F24A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 220705   (617942) от 22.07.2010
+
+Нефтедобытчицы / Les petroleuses (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617942.jpg" />
+</div>
+
+
+###  Подробнее
+
+События этого необычного комедийного вестерна разворачиваются в 1880 году во французском поселении в американском штате Нью-Мексико. Белокурая Луиза занимает особый статус в штате, она командует женской бандой, в которой, кроме нее еще четыре ее сестры. На этот раз им приглянулся земельный участок с неистощимыми запасами нефти. Но у этой территории уже имелись хозяева - жгучая брюнетка крепко держащаяся в седле и к тому же превосходно владеющая кольтом фермерша Мари, а также ее четыре брата. Противоборство двух группировок привело к большому переполоху в маленьком городке, но, как и положено, в хорошем вестерне, все закончилось счастливым концом.Жанр: Вестерн, КомедияРежиссер: Кристиан-Жак / Christian-JaqueАктеры: Бриджитт Бардо, Клаудия Кардинале, Ги Казариль, Майкл Джей Поллард, Пэтти Шепард, Мишлин ПрельПеревод: Профессиональный (двухголосый закадровый) "Светла"+ ОригиналПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE9C336B5F7C55D3C4B7326D020750F5AC50729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907269   (617913) от 22.06.2015
+
+Тайна Санта-Виттории / The Secret of Santa Vittoria (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Санта-Виттория — маленький итальянский городок, жители которого пытаются радоваться жизни вопреки всем невзгодам. Недотепа Итало Бомболини неожиданно становится мэром, но его прогоняет из дома собственная жена. Итальянский фашизм пал, но вот-вот в город войдут немецкие оккупанты…
+Каждый новый день ставит новые задачи и новые трудности перед героями, но они с мужеством (   Читать дальше...   )Производство: США / Stanley Kramer ProductionsЖанр: Драма, Комедия, ВоенныйРежиссер: Стэнли КрамерАктеры: Энтони Куинн, Анна Маньяни, Вирна Лизи, Харди Крюгер, Серджо Франчи, Ренато Рашель, Джанкарло Джаннини, Патриция Вальтурри, Эдуардо Чианнелли, Леопольдо ТриестеПеревод: Многоголосый закадровый, 5-й канал С.-ПетербургСубтитры: ОтсутствуютПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61454891658C505F892459051A3A73D6E11EC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907325   (617811) от 22.06.2015
 
 Прощай, Сабата / Adios Sabata (1970) HDTVRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617811.jpg" />
+  <img src="Z:/picture/008/save_picture_617811.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617691.jpg" />
+  <img src="Z:/picture/008/save_picture_617691.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616829.jpg" />
+  <img src="Z:/picture/008/save_picture_616829.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616706.jpg" />
+  <img src="Z:/picture/008/save_picture_616706.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616645.jpg" />
+  <img src="Z:/picture/008/save_picture_616645.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616302.jpg" />
+  <img src="Z:/picture/008/save_picture_616302.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616105.jpg" />
+  <img src="Z:/picture/005/save_picture_616105.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615955.jpg" />
+  <img src="Z:/picture/008/save_picture_615955.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615791.jpg" />
+  <img src="Z:/picture/008/save_picture_615791.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615773.jpg" />
+  <img src="Z:/picture/008/save_picture_615773.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615685.jpg" />
+  <img src="Z:/picture/008/save_picture_615685.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615385.jpg" />
+  <img src="Z:/picture/008/save_picture_615385.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614717.jpg" />
+  <img src="Z:/picture/008/save_picture_614717.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614571.jpg" />
+  <img src="Z:/picture/008/save_picture_614571.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614562.jpg" />
+  <img src="Z:/picture/008/save_picture_614562.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614226.jpg" />
+  <img src="Z:/picture/008/save_picture_614226.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614160.jpg" />
+  <img src="Z:/picture/008/save_picture_614160.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614021.jpg" />
+  <img src="Z:/picture/008/save_picture_614021.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614014.jpg" />
+  <img src="Z:/picture/008/save_picture_614014.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613560.jpg" />
+  <img src="Z:/picture/008/save_picture_613560.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613194.jpg" />
+  <img src="Z:/picture/008/save_picture_613194.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612874.jpg" />
+  <img src="Z:/picture/008/save_picture_612874.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612734.jpg" />
+  <img src="Z:/picture/008/save_picture_612734.jpg" />
 </div>
 
 
@@ -600,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58763E3B40B5C3FC6B972B367CE623F91FABF37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142023   (612730) от 30.06.2017
-
-Приезжие / The Out of Towners (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джордж Келлерман и его жена отправляются в Нью-Йорк, где Джордж собирается найти новую работу. Но во время этой поездки все пошло наперекосяк…Производство: США / Jalem ProductionsЖанр: КомедияРежиссер: Артур ХиллерАктеры: Джек Леммон, Сэнди Деннис, Сэнди Бэрон, Энн Мира, Роберт Николс, Энн Прентисс, Рон Кэри, Филип Брунс, Грэм Джарвис, Карлос МонтальбанПеревод: Профессиональный (многоголосый закадровый)Субтитры: АнглийскиеПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F85A2AC4A4CE931AD879792A3F73B507CB400A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907680   (612294) от 25.06.2015
-
-Приключения есть приключения / L'aventure, c'est l'aventure (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро преступников, отсидевшие различные сроки за различного рода преступления, сталкиваются с трудной ситуацией: граждане не спешат расставаться с заработанным, банки пусты, проститутки борются за независимость, объединяются, требуя социальной защиты. Учитывая эти обстоятельства, бандиты решают сменить профиль и заняться преступлениями на политической почве. Их (   Читать дальше...   )Производство: Франция, ИталияЖанр: Комедия, приключенияРежиссер: Клод ЛелушАктеры: Лино Вентура, Жак Брель, Шарль Деннер, Джонни Халлидей, Шарль Жерар, Альдо Маччоне, Николь Курсель, Ив Робер, Андре Фалкон, Хуан Луис БунюэльПеревод: Профессиональный многоголосый, профессиональный двухголосыйПродолжительность: 01:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B65B35879641A61603F3316A9F1E5A1945E8028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912088   (612213) от 25.06.2015
-
-Небо над Берлином / Крылья желания / Wings of Desire / Der Himmel uber Berlin (1987) BDRip [H.264] [AVO] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невидимые людям ангелы планируют по разделенному стеной Берлину, заглядывая в дома, мысли и души его обитателей. Один из них готов променять вечность в раю на любовь акробатки из цирка. Но по силам ли небесному созданию выдержать земные чувства?...
-
-"Небо над Берлином" стал фильмом-легендой, породил волну римейков, сиквелов и клипов, но остался непревзойденным. (   Читать дальше...   )Производство: Германия (ФРГ), Франция / Road Movies Filmproduktion, Argos Films, Westdeutscher Rundfunk (WDR)Жанр: Фэнтези, Драма, МелодрамаРежиссер: Вим ВендерсАктеры: Бруно Ганц, Солвейг Доммартин, Отто Зандер, Питер Фальк, Курт Боис, Ганс Мартин Штир, Эльмар Вильмс, Зигурд Рахман, Беатрис Мановски, Ник Кейв, Лайош КовачПеревод: Авторский одноголосый (Юрий Сербин, Антон Алексеев)Субтитры: Русские (PGS)Продолжительность: 02:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473309097A21AE19B50F4DCEF34879BCE44D289F
 ```
 
 https://mybot314.ru/tekegram_catalog/

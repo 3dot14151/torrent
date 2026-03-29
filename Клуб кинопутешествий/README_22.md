@@ -1,3 +1,56 @@
+###  Публикация: 1027327   (698353) от 18.06.2016
+
+Руссо туристо (2016.06.18) SATRip (выпуск 24. Крым)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C593A54324AB143F61041AA456C4CAB3746323A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 331623   (697487) от 05.05.2011
+
+От России до Китая - на велосипеде / Off the Rails: On the Back Roads to Beijing (2002) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийцы Тим Коуп и Крис Хэзерли познакомились и подружились во время учебы в Университете. Однажды Крис предложил следующее путешествие: проехать от России до Китая верхом на коне! Идея понравилась, но так как ни один из них прежде не катался на лошади, было решено заменить ее на складной велосипед. И вот двадцатилетние друзья отправляются в эпическое путешествие (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C604AA239596D6FE9FCDC8A2123106390214EA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027370   (696535) от 19.06.2016
 
 Верю - не верю. Парагвай (17.06.2016) SATRip
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696535.jpg" />
+  <img src="Z:/picture/008/save_picture_696535.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696410.jpg" />
+  <img src="Z:/picture/008/save_picture_696410.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692769.jpg" />
+  <img src="Z:/picture/008/save_picture_692769.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692767.jpg" />
+  <img src="Z:/picture/008/save_picture_692767.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692755.jpg" />
+  <img src="Z:/picture/008/save_picture_692755.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692574.jpg" />
+  <img src="Z:/picture/008/save_picture_692574.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692570.jpg" />
+  <img src="Z:/picture/008/save_picture_692570.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692385.jpg" />
+  <img src="Z:/picture/008/save_picture_692385.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692376.jpg" />
+  <img src="Z:/picture/008/save_picture_692376.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691614.jpg" />
+  <img src="Z:/picture/008/save_picture_691614.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691613.jpg" />
+  <img src="Z:/picture/008/save_picture_691613.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691481.jpg" />
+  <img src="Z:/picture/008/save_picture_691481.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691478.jpg" />
+  <img src="Z:/picture/008/save_picture_691478.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691306.jpg" />
+  <img src="Z:/picture/008/save_picture_691306.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691305.jpg" />
+  <img src="Z:/picture/008/save_picture_691305.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691295.jpg" />
+  <img src="Z:/picture/008/save_picture_691295.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691176.jpg" />
+  <img src="Z:/picture/008/save_picture_691176.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688450.jpg" />
+  <img src="Z:/picture/008/save_picture_688450.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687705.jpg" />
+  <img src="Z:/picture/008/save_picture_687705.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684408.jpg" />
+  <img src="Z:/picture/008/save_picture_684408.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684304.jpg" />
+  <img src="Z:/picture/008/save_picture_684304.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682806.jpg" />
+  <img src="Z:/picture/008/save_picture_682806.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682209.jpg" />
+  <img src="Z:/picture/008/save_picture_682209.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682050.jpg" />
+  <img src="Z:/picture/008/save_picture_682050.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A3B20F3494DD69B6E3A182455B59B157BAD182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508563   (679087) от 10.06.2012
-
-Золотой глобус. Мальта. Таинственный остров монахов-рыцарей [выпуск 113] (2012) DVDRip [H.264]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это новая вдохновляющая коллекция для тех, кто любит природу, путешествия и увлекается историей. Все достопримечательности, которые вы встретите на страницах журнала, включены в Список объектов Всемирного наследия ЮНЕСКО. Каждый номер журнала комплектуется DVD, повествующим о мировых культурных сокровищах и достижениях цивилизаций. Новая вдохновляющая коллекция для тех, кто любит природу, путешествия и историю.Жанр: ДокументальныйПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAA576CFB7212743F7FE2B2BD1806DB94500D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029783   (677982) от 28.06.2016
-
-Орел и решка. Кругосветка (2016.06.27) SATRip (сезон 12: Хиросима)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677982.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3268C53AB0E0825991727B060855DEA23A46D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

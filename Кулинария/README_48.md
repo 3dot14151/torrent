@@ -1,3 +1,29 @@
+###  Публикация: 958963   (319007) от 23.11.2015
+
+С. Иванова (сост.) | 365 рецептов новогоднего стола (2015) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319007.jpg" />
+</div>
+
+
+###  Подробнее
+
+365 блюд для Нового года. Хорошее предложение! Пролистать такую книгу – уже приятно, уже предвкушение праздника. Можно выбрать несколько салатов и горячих блюд для предновогоднего вечера. Составить легкое меню для праздничной ночи. И открыть наступивший новый год волшебным завтраком в кругу самых близких и родных.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8A4ADE051ACCA2EDBE89D48EBF1AEF95BA7D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959009   (318701) от 23.11.2015
 
 С. Ильичева  (отв. ред.) | Полный курс кулинарии для начинающих (2015) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318701.jpg" />
+  <img src="Z:/picture/008/save_picture_318701.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317920.jpg" />
+  <img src="Z:/picture/008/save_picture_317920.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316754.jpg" />
+  <img src="Z:/picture/008/save_picture_316754.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316152.jpg" />
+  <img src="Z:/picture/008/save_picture_316152.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314043.jpg" />
+  <img src="Z:/picture/008/save_picture_314043.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313858.jpg" />
+  <img src="Z:/picture/008/save_picture_313858.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313688.jpg" />
+  <img src="Z:/picture/008/save_picture_313688.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313665.jpg" />
+  <img src="Z:/picture/008/save_picture_313665.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313532.jpg" />
+  <img src="Z:/picture/008/save_picture_313532.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313321.jpg" />
+  <img src="Z:/picture/008/save_picture_313321.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312121.jpg" />
+  <img src="Z:/picture/008/save_picture_312121.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311921.jpg" />
+  <img src="Z:/picture/008/save_picture_311921.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310919.jpg" />
+  <img src="Z:/picture/008/save_picture_310919.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310836.jpg" />
+  <img src="Z:/picture/008/save_picture_310836.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310100.jpg" />
+  <img src="Z:/picture/008/save_picture_310100.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309921.jpg" />
+  <img src="Z:/picture/008/save_picture_309921.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309920.jpg" />
+  <img src="Z:/picture/008/save_picture_309920.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309822.jpg" />
+  <img src="Z:/picture/008/save_picture_309822.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309820.jpg" />
+  <img src="Z:/picture/008/save_picture_309820.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309441.jpg" />
+  <img src="Z:/picture/008/save_picture_309441.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308219.jpg" />
+  <img src="Z:/picture/008/save_picture_308219.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307711.jpg" />
+  <img src="Z:/picture/008/save_picture_307711.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306938.jpg" />
+  <img src="Z:/picture/008/save_picture_306938.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305316.jpg" />
+  <img src="Z:/picture/008/save_picture_305316.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305211.jpg" />
+  <img src="Z:/picture/008/save_picture_305211.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D439DDD66615A6A1800B9DD6FD3EB31595496CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261115   (305194) от 10.11.2018
-
-Светлана Першина | Здоровое питание. Готовим на пару (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если паровые блюда ассоциируются у вас только с унылой диетой при больном желудке, загляните под обложку этой книги! С помощью пара можно приготовить полезные, сытные и нескучные блюда. И даже десерты! Они порадуют вас не только отменным вкусом, но и благотворным влиянием на здоровье и фигуру, ведь витаминов в блюдах на пару остается больше, а калорий – меньше!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881B249283D51D19963726EFF81717806581C097
 ```
 
 https://mybot314.ru/tekegram_catalog/

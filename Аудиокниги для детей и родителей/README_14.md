@@ -1,3 +1,83 @@
+###  Публикация: 1101034   (897829) от 05.02.2017
+
+Эно Рауд | Муфта, Полботинка и Моховая борода (1, 2 книга из 4)  MP3 (1996) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва познакомившись, наши забавные герои — Моховая Борода, Полботинка и Муфта — отправились на встречу приключениям. Им предстоит проявить чудеса смекалки и изобретательности, чтобы избавить город от орды котов, прикормленных одной сердобольной старушкой. За эту книгу в 1974 году имя Э. Рауда было занесено в международный Почетный список Г.Х. Андерсена.Жанр: Детская литература, повесть-сказкаПродолжительность: 07:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037873D4B0F222D5AE6A08DF0FA94A7337DD2CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101347   (896053) от 06.02.2017
+
+Андрей Усачёв | Почта Деда Мороза (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавные, увлекательные и поучительные истории о приключениях маленьких снеговичков в волшебной деревне "Дедморозовке"
+
+Наверное, каждый хоть раз в жизни писал письмо Деду Морозу с новогодними просьбами, вопросами, пожеланиями - и получал от него ответ. А как работает почта деда Мороза? Существуют ли почтовые голуби, снегири и синицы? Как попасть в гости (   Читать дальше...   )Жанр: СказкаПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E43F224760D7052A0C8E2D59C4E88E28F14C26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101522   (894609) от 07.02.2017
+
+Валентин Катаев | Сын полка (2005) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой повести – крестьянский мальчик Ваня Солнцев. Война отняла у него все: дом, родных и само детство. Новой семьей Вани становятся замечательные люди – солдаты артиллерийского полка. Эта замечательная книга о Великой Отечественной войне, о мужестве, о подвиге, которого не может быть без огромной любви к своей Родине.Жанр: Детская литература,военная прозаПродолжительность: 05:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364D01B1AD3A9172FD20F824C8D63D5A5934BEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993736   (894002) от 06.03.2016
 
 Сельма Лагерлёф | Рассказы (2016) [MP3, Александр Котов]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894002.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893040.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ Aprelevka Sound Production | Басни и русские народные пе�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892920.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892432.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892286.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892124.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891889.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891408.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891283.jpg" />
 </div>
 
 
@@ -252,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891175.jpg" />
 </div>
 
 
@@ -281,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891101.jpg" />
 </div>
 
 
@@ -310,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890176.jpg" />
 </div>
 
 
@@ -338,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889111.jpg" />
+  <img src="Z:/picture/005/save_picture_889111.jpg" />
 </div>
 
 
@@ -368,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887662.jpg" />
+  <img src="Z:/picture/005/save_picture_887662.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887217.jpg" />
+  <img src="Z:/picture/005/save_picture_887217.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887112.jpg" />
+  <img src="Z:/picture/005/save_picture_887112.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885934.jpg" />
+  <img src="Z:/picture/005/save_picture_885934.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885811.jpg" />
+  <img src="Z:/picture/005/save_picture_885811.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885791.jpg" />
+  <img src="Z:/picture/005/save_picture_885791.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885789.jpg" />
+  <img src="Z:/picture/005/save_picture_885789.jpg" />
 </div>
 
 
@@ -569,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885778.jpg" />
+  <img src="Z:/picture/005/save_picture_885778.jpg" />
 </div>
 
 
@@ -598,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885769.jpg" />
+  <img src="Z:/picture/005/save_picture_885769.jpg" />
 </div>
 
 
@@ -627,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885390.jpg" />
+  <img src="Z:/picture/005/save_picture_885390.jpg" />
 </div>
 
 
@@ -640,91 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31E46260918545B1B063DD411780F5244DB19A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372615   (884763) от 03.04.2020
-
-Русские народные сказки. Сборник (1962-1983) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказки, которые нам читали родители в детстве; мы читаем своим детям, а они уже своим чадам. Эти прекрасные сказки не уходят в забвение, передаваясь из поколения в попоколение.Жанр: Детская литератураПродолжительность: 23:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BA8B4B8990CBE89C1A0FFC6E80057BC730ED6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103828   (883431) от 13.02.2017
-
-Пётр Ершов | Конёк-Горбунок (2008) [WavPack, Олег Табаков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883431.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Конёк-Горбунок» — сказка в стихах Петра Ершова, написанная в 1830-х годах. Главные персонажи — крестьянский сын Иванушка-дурачок и волшебный конёк-горбунок.
-Это классическое произведение русской детской литературы написано четырёхстопным хореем с па́рной рифмовкой. Лёгкость стиха, множество метких выражений, элементы едкой социальной сатиры определили популярность (   Читать дальше...   )Жанр: АудиоспектакльИздательство: Мелодия, MEL CD 50 01377, Double CDПродолжительность: 00:29:51
-
-01 | Конёк-Горбунок. Часть 7 | 05:21
-02 | Конёк-Горбунок. Часть 8 | 09:18(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C8C263CEDA5DBFFC8910602B5CF8DF13D6C6EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104424   (881797) от 14.02.2017
-
-Владимир Зотов и др. | Сказки для маленьких (2012) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои сказок Владимира Зотова – Чиж, Ящерица, Заяц, Рак-отшельник, Медуза, Собака, Котёнок. Со всеми ними происходят невероятные приключения. Сейчас вы услышите рассказ о том, почему пассажиров, у которых нет билета, называют «зайцами», познакомитесь с умным чижом по имени Чик, который перехитрил хвастливую и заносчивую Сосульку, а также с Собакой, которая научила (   Читать дальше...   )01. Хитрый Чик (05:01)
-02. Как рак-отшельник друга нашёл (07:27)
-03. Мудрый совет (04:06)
-04. До чего жадность доводит (06:48)(   Читать дальше...   )Жанр: АудиоспектакльПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F70B840734EFA33C7E71418F90E8A64F5648C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

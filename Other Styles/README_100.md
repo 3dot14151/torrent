@@ -1,3 +1,61 @@
+###  Публикация: 1314389   (517971) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дарья Антонюк - Круг жизни (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCD54BE20175793046177C97202302C0D20EDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314716   (517031) от 16.07.2019
+
+Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517031.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Shaman's Dream (8:18)
+2.Running Barefoot (7:58)
+3.White Wolf Vision Quest (12:32)
+4.The Song of the Wind (8:20)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314693   (516956) от 16.07.2019
 
 Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
@@ -6,7 +64,7 @@ Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Elect
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516956.jpg" />
+  <img src="Z:/picture/008/save_picture_516956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516955.jpg" />
+  <img src="Z:/picture/008/save_picture_516955.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516948.jpg" />
+  <img src="Z:/picture/008/save_picture_516948.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516886.jpg" />
+  <img src="Z:/picture/008/save_picture_516886.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516174.jpg" />
+  <img src="Z:/picture/008/save_picture_516174.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Cyril Baranov - Rosa (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516112.jpg" />
+  <img src="Z:/picture/008/save_picture_516112.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Street Hits 70s (2018) [MP3|320 Kbps] <Boogie, R&B, Soul-Jazz, Gospel Music
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516030.jpg" />
+  <img src="Z:/picture/008/save_picture_516030.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515531.jpg" />
+  <img src="Z:/picture/008/save_picture_515531.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515361.jpg" />
+  <img src="Z:/picture/008/save_picture_515361.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515015.jpg" />
+  <img src="Z:/picture/008/save_picture_515015.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514763.jpg" />
+  <img src="Z:/picture/008/save_picture_514763.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513972.jpg" />
+  <img src="Z:/picture/008/save_picture_513972.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ne
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513937.jpg" />
+  <img src="Z:/picture/008/save_picture_513937.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513818.jpg" />
+  <img src="Z:/picture/008/save_picture_513818.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513806.jpg" />
+  <img src="Z:/picture/008/save_picture_513806.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513188.jpg" />
+  <img src="Z:/picture/008/save_picture_513188.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ Cliff Martinez - Too Old To Die Young (2019) Original Series Soundtrack  2CD [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512792.jpg" />
+  <img src="Z:/picture/008/save_picture_512792.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ Black Mango - Quicksand (2022) [FLAC|Lossless|WEB-DL|tracks] <African Blues Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512509.jpg" />
+  <img src="Z:/picture/008/save_picture_512509.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, D
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512278.jpg" />
+  <img src="Z:/picture/008/save_picture_512278.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511469.jpg" />
+  <img src="Z:/picture/008/save_picture_511469.jpg" />
 </div>
 
 
@@ -601,7 +659,7 @@ Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510698.jpg" />
+  <img src="Z:/picture/008/save_picture_510698.jpg" />
 </div>
 
 
@@ -630,7 +688,7 @@ VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510545.jpg" />
+  <img src="Z:/picture/008/save_picture_510545.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxoph
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510491.jpg" />
+  <img src="Z:/picture/008/save_picture_510491.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509520.jpg" />
+  <img src="Z:/picture/008/save_picture_509520.jpg" />
 </div>
 
 
@@ -706,64 +764,6 @@ Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932411   (509362) от 29.08.2015
-
-VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Dalton - Minuet in G Minor, Suite No. 1
-02. Shannon Devos - Ambiance of a Piano
-03. Peng Jing - Days of Sunshine
-04. Gonella - Notturno No. 3(   Читать дальше...   )Жанр: Relaxation, New AgeПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562174   (509027) от 09.07.2022
-
-Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky & Sand
-02. Breath
-03. Lifeline
-04. Lotus Unfolding(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1492172   (905049) от 28.08.2021
+
+WingFox, Ognyan Zahariev | Magical Classroom Scene Creating for Games [Low Quality] (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс покажет вам весь процесс создания сцены магической классной комнаты в стиле Гарри Поттера, включая планирование концепта сцены, сбор референсных материалов, постройку сцены из серых кубов и создание необходимых моделей, таких как деревянный подиум, железные кольца, бумажные книги, свечи, мел, стеклянные кувшины и многое другое. Конечно же вы увидите процесс (   Читать дальше...   )Производство: WingFoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 119:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F51C25F83639DCF62C33E6AA50501DECE6CA7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492386   (903802) от 29.08.2021
 
 Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec [EN / EN Sub]
@@ -6,7 +32,7 @@ Explore Blender, Gustav Nilsson | Mastering Drivers in Blender 2.7 (2014) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903802.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Udemy, Emiel Sleegers | Military Game Asset Creation in Blender 2.83, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903451.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ ArtStation, Ben Keeling | Authoring Props For Games [Blender, ZBrush, Substance 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903416.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ cmiVFX, Shivani Sondhi | Houdini Cloth Techniques (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902351.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902318.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ cmiVFX, Adam Swaab | Houdini Particle Morphing Effects (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902300.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ cmiVFX, Dennis Weil | Houdini Mograph Title Design (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902288.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ School of Motion, Mike Frederick | Design Bootcamp Week 3 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902083.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Udemy | Создание фотореалистичной станции мет�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901417.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Udemy | Создание фотореалистичной улицы в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901349.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Rohan Dalvi | Mograph in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900700.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Rohan Dalvi | Making dessert in Houdini Part 1 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900687.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Rohan Dalvi | Rocket Bus (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900534.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900468.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Rohan Dalvi | Ornamental Designs in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900455.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ School of Motion, Joey Korenman | FreelanceU (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_900335.jpg" />
+  <img src="Z:/picture/008/save_picture_900335.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Udemy | Секреты фотореализма в Blender 2.8 / The Secrets to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899893.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ SVS, Will Terry | Draw 50 Things (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898758.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ The Art Of Aaron Blaise, Ronnie Williford | Taking Control of Color with Ronnie 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898657.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898654.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ Rohan Dalvi | Houdini 17 New Erosion node (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897340.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 2 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897266.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 1 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897221.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897194.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897187.jpg" />
 </div>
 
 
@@ -668,34 +694,6 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6CCEA6BC944E253ECFA67ABE1B5AB89500212D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493298   (897170) от 02.09.2021
-
-Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы, которые мы используем в сцене, то, как они реагируют на свет и как они взаимодействуют друг с другом, оказывает огромное влияние на нашу способность рассказывать истории в ходе нашей работы, но в первый раз переход к процедурным рабочим процессам на основе нодов может быть очень сложным.
-
-В этом курсе Эрин проведет вас от основ навигации по редактору шейдеров (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ШейдингЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 03:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48980BD8A73D5A4BD22D1D288F996A7C8853E8B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

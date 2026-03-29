@@ -1,3 +1,57 @@
+###  Публикация: 795670   (689771) от 12.06.2014
+
+Школа вампиров / Die schule der kleinen vampire (2006-2008) WEB-DLRip (Сезон 01-03, Серии 01-78 из 78)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_689771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в школу для молодых вампиров «Фон Хоррикус».
+Сюда слетаются молодые бессмертные студенты со всех уголков планеты, чтобы отточить свое мастерство, научиться новым приемам трансформации в летучих мышей и другим видам настоящего вампирского искусства.
+В этой школе учится симпатичный вампир по имени Оскар. Только вы узнаете его большой секрет — Оскар (   Читать дальше...   )Производство: Германия / Hahn Film AGЖанр: Мультсериал, Семейный, Детский, ПриключенияРежиссер: Саймон Уорд-Хорнер, Роберт Оркрайт, Энтони ПауэрПерсонажи: Харви Фридман, Марианна Грэффэм, Шон Лоутон, Криста Льюис, Клэйтон Немроу, Джефф Баррелл, Манон Кайл…Перевод: Профессиональный (Дублированный)Продолжительность: Серия по ~ 00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D194F3F6C503E8D10284F8A735FC6935FEEFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535036   (686026) от 06.03.2022
+
+Аквамен: Король Атлантиды / Aquaman: King of Atlantis (2021) (Cерии 1-3 из 3) WEBRip [H.264/1080p] TVShows (Dub)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал начинается с первого дня работы Аквамена в качестве короля Атлантиды, и ему предстоит многое наверстать. К счастью, у него есть два королевских советника, которые поддерживают его: Вулко, ученый, и Мера, управляющая водой принцесса-воин. Имея дело с недобросовестными обитателями поверхности, древним злом и собственным сводным братом, который хочет свергнуть (   Читать дальше...   )Производство: США, DC Entertainment, Warner Bros. Animation, HBO MaxЖанр: Рисованная анимация, Приключения, Минисериал, ФэнтезиРежиссер: Кит Пакиз, Боб Хейни, Джефф Джонс, Пол НоррисАктеры: Купер Эндрюс, Гиллиан Джейкобс, Томас Леннон, Дэна Снайдер, Эндрю Моргадо, Крис Джай АлексПеревод: Дублированный (TVShows)Субтитры: АнглийскийПродолжительность: 3 серии по ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C869CA8041B79551EE512ECE6BB7EE1087204835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796016   (683332) от 15.06.2014
 
 Флинтстоуны. Коллекция / The Flintstones (1960-1966) DVDRip (115 из 166 серий)
@@ -6,7 +60,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683332.jpg" />
+  <img src="Z:/picture/008/save_picture_683332.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681939.jpg" />
+  <img src="Z:/picture/008/save_picture_681939.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681787.jpg" />
+  <img src="Z:/picture/008/save_picture_681787.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679199.jpg" />
+  <img src="Z:/picture/008/save_picture_679199.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679189.jpg" />
+  <img src="Z:/picture/008/save_picture_679189.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677785.jpg" />
+  <img src="Z:/picture/008/save_picture_677785.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675949.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_674603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_674603.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674459.jpg" />
+  <img src="Z:/picture/008/save_picture_674459.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674307.jpg" />
+  <img src="Z:/picture/008/save_picture_674307.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674069.jpg" />
+  <img src="Z:/picture/008/save_picture_674069.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673739.jpg" />
+  <img src="Z:/picture/008/save_picture_673739.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673387.jpg" />
+  <img src="Z:/picture/008/save_picture_673387.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672023.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671960.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671918.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671914.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671907.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671883.jpg" />
 </div>
 
 
@@ -502,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671243.jpg" />
+  <img src="Z:/picture/008/save_picture_671243.jpg" />
 </div>
 
 
@@ -528,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671124.jpg" />
+  <img src="Z:/picture/008/save_picture_671124.jpg" />
 </div>
 
 
@@ -554,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670622.jpg" />
+  <img src="Z:/picture/008/save_picture_670622.jpg" />
 </div>
 
 
@@ -580,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670520.jpg" />
+  <img src="Z:/picture/008/save_picture_670520.jpg" />
 </div>
 
 
@@ -606,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670427.jpg" />
+  <img src="Z:/picture/008/save_picture_670427.jpg" />
 </div>
 
 
@@ -617,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C51104A4385FE8EE9423E9D771FF41A55E47E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057338   (670402) от 24.05.2017
-
-Гриффины / Family Guy (2016) WEB-DLRip (сезон 15, серии 1-20 из 20) OMSKBIRD
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670402.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / FOX, Fuzzy Door ProductionsЖанр: Мультсериал, комедия, сатира, чёрный юморРежиссер: Сет МакФарлейнПеревод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB08A6E074D0673C30007D3545B79CDE8B6CC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057337   (670400) от 24.05.2017
-
-Гриффины / Family Guy (2016) WEB-DL [H.264/720p-LQ] (сезон 15, серии 1-20 из 20) OMSKBIRD
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670400.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / FOX, Fuzzy Door ProductionsЖанр: Мультсериал, комедия, сатира, чёрный юморРежиссер: Сет МакФарлейнПеревод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F38170B9C0FDADEDBC953A7421A6775E4273702
 ```
 
 https://mybot314.ru/tekegram_catalog/

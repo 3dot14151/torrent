@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702286.jpg" />
+  <img src="Z:/picture/008/save_picture_702286.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - The Most Relaxing New Age Music in the Universe (2008) [MP3|192-320 кб/с
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702248.jpg" />
+  <img src="Z:/picture/005/save_picture_702248.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702237.jpg" />
+  <img src="Z:/picture/005/save_picture_702237.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702205.jpg" />
+  <img src="Z:/picture/008/save_picture_702205.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Bandicam 4.1.3.1400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702193.jpg" />
+  <img src="Z:/picture/008/save_picture_702193.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Data Rescue Pro 4.2.2 (a) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702174.jpg" />
+  <img src="Z:/picture/008/save_picture_702174.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ XYplorer 16.90.0300 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702171.jpg" />
+  <img src="Z:/picture/008/save_picture_702171.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ AIMP 4.10 Build 1815 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702168.jpg" />
+  <img src="Z:/picture/008/save_picture_702168.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Wise Force Deleter 1.31.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702167.jpg" />
+  <img src="Z:/picture/008/save_picture_702167.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Privacy Eraser Free 4.13.2 Build 2012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702164.jpg" />
+  <img src="Z:/picture/008/save_picture_702164.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702162.jpg" />
+  <img src="Z:/picture/008/save_picture_702162.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ YouTube Video Downloader PRO 5.7 (20160610) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702161.jpg" />
+  <img src="Z:/picture/008/save_picture_702161.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ VA - Ultimate Most Relaxing Jazz Music In The Universe (2007) [MP3|320 kbps] <Ja
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702152.jpg" />
+  <img src="Z:/picture/005/save_picture_702152.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Auslogics BoostSpeed 10.0.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702114.jpg" />
+  <img src="Z:/picture/008/save_picture_702114.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Adobe Media Encoder CC 2018 12.1.1.12 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702101.jpg" />
+  <img src="Z:/picture/008/save_picture_702101.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tryptamoon - Nachtdenklich EP (2009) [MP3|128-192 kbps]<Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702099.jpg" />
+  <img src="Z:/picture/008/save_picture_702099.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Club BigSOUNDGroup - House from sun7simbirsk (2011) [MP3|320 kbps]<Club, Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702081.jpg" />
+  <img src="Z:/picture/008/save_picture_702081.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Skype 7.25.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702076.jpg" />
+  <img src="Z:/picture/008/save_picture_702076.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ TechSmith Snagit 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702072.jpg" />
+  <img src="Z:/picture/008/save_picture_702072.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Google Chrome 51.0.2704.103 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702064.jpg" />
+  <img src="Z:/picture/008/save_picture_702064.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702051.jpg" />
+  <img src="Z:/picture/005/save_picture_702051.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Markus Schulz - Global DJ Broadcast - guest Omnia (28.04.2011) [MP3|256 kbps]<Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701982.jpg" />
+  <img src="Z:/picture/005/save_picture_701982.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Adware Zap Pro 2.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701970.jpg" />
+  <img src="Z:/picture/008/save_picture_701970.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Marked 2 v2.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701968.jpg" />
+  <img src="Z:/picture/008/save_picture_701968.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ EventScripts 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701966.jpg" />
+  <img src="Z:/picture/008/save_picture_701966.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Bumpr 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701964.jpg" />
+  <img src="Z:/picture/008/save_picture_701964.jpg" />
 </div>
 
 

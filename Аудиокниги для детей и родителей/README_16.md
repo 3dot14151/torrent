@@ -1,3 +1,82 @@
+###  Публикация: 1498381   (858066) от 26.09.2021
+
+Джон Бриджес, Брайан Кертис | Этикет для юного джентльмена (2020) [MP3, Юрий Белик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_858066.jpg" />
+</div>
+
+
+###  Подробнее
+
+ХОРОШИЕ МАНЕРЫ – признак здравого смысла и вежливости, поэтому юноша должен начинать осваивать их как можно раньше. Получит ли какую-то награду молодой человек, усвоивший правила этикета? Конечно, да. Можно с уверенностью сказать, что его станут чаще приглашать на вечеринки, он сможет претендовать на хорошую летнюю работу, будет нравиться девушкам и, что не менее (   Читать дальше...   )Жанр: Зарубежные детские книги/ЭтикетПродолжительность: 02:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72C5F0938300EC28B70C26B517622F0ECBDA7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190308   (857696) от 08.04.2010
+
+Борис Акунин | Жанры (Книга 1). Детская книга (2010) [MP3, Ирина Ерисанова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857696.jpg" />
+</div>
+
+
+###  Подробнее
+
+О невероятных приключениях правнука знаменитого сыщика Эраста Петровича Фандорина, - шестиклассника Эрастика Фандорина, - обыкновенного, на первый взгляд, мальчика, проживающего в Российской Федерации, городе Москве, на улице Солянке…
+Вот так выйдешь самым обыденным утречком, 29-го сентября 2006-го года из дома, торопишься, как всегда, в школу, - опаздываешь, как (   Читать дальше...   )Жанр: ПриключенияПродолжительность: 11:48:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305518   (856276) от 07.03.2011
+
+Мелодия | Александр Дитрих, Е. Благинина | Как игрушки пошли учиться. Научусь-ка я читать (2010) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_856276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слышал ли ты когда-нибудь о человеке, от которого ушло его время? И не только ушло, но – в довершение беды – ушло служить тем, кого этот человек посчитал своими врагами. Так вот, жил-был на свете маленький мальчик, и с ним-то как раз и произошла эта печальная история. Звали мальчика Петей Кляксиным, и он только-только собирался пойти в школу, в первый класс. А для (   Читать дальше...   )Жанр: СказкаПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19D720AB855BE9968C85E4D95928BDF124513AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305915   (856146) от 07.03.2011
 
 Мелодия | Детские сказки с винила. Часть 9. (2010) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856146.jpg" />
+  <img src="Z:/picture/008/save_picture_856146.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856144.jpg" />
+  <img src="Z:/picture/008/save_picture_856144.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856024.jpg" />
+  <img src="Z:/picture/008/save_picture_856024.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856018.jpg" />
+  <img src="Z:/picture/008/save_picture_856018.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855922.jpg" />
+  <img src="Z:/picture/008/save_picture_855922.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855821.jpg" />
+  <img src="Z:/picture/008/save_picture_855821.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855618.jpg" />
+  <img src="Z:/picture/008/save_picture_855618.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855460.jpg" />
+  <img src="Z:/picture/008/save_picture_855460.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854299.jpg" />
+  <img src="Z:/picture/008/save_picture_854299.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854297.jpg" />
+  <img src="Z:/picture/008/save_picture_854297.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854295.jpg" />
+  <img src="Z:/picture/008/save_picture_854295.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854132.jpg" />
+  <img src="Z:/picture/008/save_picture_854132.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853890.jpg" />
+  <img src="Z:/picture/008/save_picture_853890.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853558.jpg" />
+  <img src="Z:/picture/008/save_picture_853558.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852657.jpg" />
+  <img src="Z:/picture/008/save_picture_852657.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852035.jpg" />
+  <img src="Z:/picture/008/save_picture_852035.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850423.jpg" />
+  <img src="Z:/picture/008/save_picture_850423.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849588.jpg" />
+  <img src="Z:/picture/008/save_picture_849588.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849228.jpg" />
+  <img src="Z:/picture/008/save_picture_849228.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848370.jpg" />
+  <img src="Z:/picture/008/save_picture_848370.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846844.jpg" />
+  <img src="Z:/picture/008/save_picture_846844.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845295.jpg" />
+  <img src="Z:/picture/008/save_picture_845295.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841431.jpg" />
+  <img src="Z:/picture/008/save_picture_841431.jpg" />
 </div>
 
 
@@ -604,88 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDDF550C426936157B87348D513A4DDB45A1475A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113182   (839781) от 10.03.2017
-
-Андрей Жвалевский, Евгения Пастернак | Время всегда хорошее (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет, если девчонка из 2018 года вдруг окажется в 1980 году? А мальчик из 1980 года перенесется на ее место? Где лучше? И что такое «лучше»? Где интереснее играть: на компьютере или во дворе? Что важнее: свобода и раскованность в чате или умение разговаривать, глядя в глаза друг другу? И самое главное — правда ли, что «время тогда было другое»?
-А может быть, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC0D38CEF837B8F8C42A597DF0EEB6B3CCB6587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193875   (838363) от 20.04.2010
-
-Ганс Христиан Андерсен | Русалочка (2007) [MP3, Борис Плотников и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Печальная история неземной любви Русалочки к принцу волнует и детей и взрослых. Может быть потому, что сам Ганс Христиан Андерсен утверждал, что "Русалочка - единственная из моих работ, которая трогала меня самого".
-23 августа 1913 года в столице Дании Копенгагене был открыт памятник Русалочке - героине сказки Г.Х. Андерсена. Бронзовая скульптура считается (   Читать дальше...   )Жанр: СказкаИздательство: СоюзПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501184   (838239) от 08.10.2021
-
-Александр Карапац | Ижик (2021) [MP3, Марина Усачёва, Роман Кулешов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка о том, что никакие, даже самые фантастические устройства, не сделают добра больше, чем сам человек.
-
-Рекомендуемый возраст: 10+Жанр: Детская литература. СказкаПродолжительность: 00:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE9B6D9FCCADF9A53EA191CCABC8B26EADB4F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

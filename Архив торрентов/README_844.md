@@ -6,7 +6,7 @@ Mail Designer Pro 3 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857273.jpg" />
+  <img src="Z:/picture/008/save_picture_857273.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857268.jpg" />
+  <img src="Z:/picture/008/save_picture_857268.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe components: Flash Player 21.0.0.197 + AIR 21.0.0.176 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857261.jpg" />
+  <img src="Z:/picture/008/save_picture_857261.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857259.jpg" />
+  <img src="Z:/picture/008/save_picture_857259.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857255.jpg" />
+  <img src="Z:/picture/008/save_picture_857255.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ EZ CD Audio Converter Ultimate v5.3.0.1 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857243.jpg" />
+  <img src="Z:/picture/008/save_picture_857243.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ WinCatalog 2017 17.0.2.27 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857241.jpg" />
+  <img src="Z:/picture/008/save_picture_857241.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857237.jpg" />
+  <img src="Z:/picture/008/save_picture_857237.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857232.jpg" />
+  <img src="Z:/picture/008/save_picture_857232.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Avast Clear 17.2.3419.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857228.jpg" />
+  <img src="Z:/picture/008/save_picture_857228.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857163.jpg" />
+  <img src="Z:/picture/008/save_picture_857163.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857156.jpg" />
+  <img src="Z:/picture/008/save_picture_857156.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857154.jpg" />
+  <img src="Z:/picture/008/save_picture_857154.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ PrivaZer 3.0.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857149.jpg" />
+  <img src="Z:/picture/008/save_picture_857149.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Moon Hunters (2016) [Ru/Multi] (1.0.2053/upd 1) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857077.jpg" />
+  <img src="Z:/picture/008/save_picture_857077.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ KidsTrack v1.1.3 [Ru/Multi] - Минималистичный GPS-трекер н
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857076.jpg" />
+  <img src="Z:/picture/008/save_picture_857076.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Auslogics BoostSpeed 8.2.1.0 RePack (& Portable) by D!akov (21.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857071.jpg" />
+  <img src="Z:/picture/008/save_picture_857071.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857066.jpg" />
+  <img src="Z:/picture/008/save_picture_857066.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Windows and Office ISO Download Tool 4.19 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857061.jpg" />
+  <img src="Z:/picture/008/save_picture_857061.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4572 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857060.jpg" />
+  <img src="Z:/picture/008/save_picture_857060.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857057.jpg" />
+  <img src="Z:/picture/008/save_picture_857057.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Dead When I Found Her - 5 Albums (2010-2016) [MP3|191-320 kbps] <Electro-Industr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857056.jpg" />
+  <img src="Z:/picture/008/save_picture_857056.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Display Driver Uninstaller 17.0.5.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857054.jpg" />
+  <img src="Z:/picture/008/save_picture_857054.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857049.jpg" />
+  <img src="Z:/picture/008/save_picture_857049.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ TextMate 2 v2.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857023.jpg" />
+  <img src="Z:/picture/008/save_picture_857023.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Twixl Publisher 11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857021.jpg" />
+  <img src="Z:/picture/008/save_picture_857021.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82696.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77865.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающие Игры для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43637.jpg" />
 </div>
 
 

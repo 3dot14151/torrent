@@ -1,3 +1,29 @@
+###  Публикация: 1844812   (1050399) от 28.12.2025
+
+Владимир Березин | Свидетель (2025) [MP3, Владимир Иваний]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой «Свидетеля» – капитан, успевший повоевать на излёте Советского Союза, наблюдатель в мире, возникшем на обломках былой империи. Он отрешённо странствует по России и другим странам, встречает людей из прошлого, влюбляется, теряет возлюбленную, находит её, чтобы вновь потерять, и теперь уже навсегда… «Свидетель» отсылает к одной из лучших книг о Гражданской (   Читать дальше...   )Жанр: Психологическая проза, Социальная прозаИздательство: Азбука-АттикусПродолжительность: 09:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA415FA8F72154C07F4FA65113498105087087D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844995   (1050376) от 29.12.2025
 
 Сергей Довлатов | Иностранка (1988) [MP3, Сергей Довлатов]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050376.jpg" />
+  <img src="Z:/picture/005/save_picture_1050376.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049766.jpg" />
+  <img src="Z:/picture/005/save_picture_1049766.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049739.jpg" />
+  <img src="Z:/picture/005/save_picture_1049739.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049738.jpg" />
+  <img src="Z:/picture/005/save_picture_1049738.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049127.jpg" />
+  <img src="Z:/picture/008/save_picture_1049127.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048722.jpg" />
+  <img src="Z:/picture/008/save_picture_1048722.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048489.jpg" />
+  <img src="Z:/picture/008/save_picture_1048489.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048478.jpg" />
+  <img src="Z:/picture/008/save_picture_1048478.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048418.jpg" />
+  <img src="Z:/picture/008/save_picture_1048418.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048417.jpg" />
+  <img src="Z:/picture/008/save_picture_1048417.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048415.jpg" />
+  <img src="Z:/picture/008/save_picture_1048415.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048152.jpg" />
+  <img src="Z:/picture/008/save_picture_1048152.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048149.jpg" />
+  <img src="Z:/picture/008/save_picture_1048149.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048052.jpg" />
+  <img src="Z:/picture/008/save_picture_1048052.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048051.jpg" />
+  <img src="Z:/picture/008/save_picture_1048051.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047935.jpg" />
+  <img src="Z:/picture/008/save_picture_1047935.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047830.jpg" />
+  <img src="Z:/picture/008/save_picture_1047830.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047828.jpg" />
+  <img src="Z:/picture/008/save_picture_1047828.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047798.jpg" />
+  <img src="Z:/picture/008/save_picture_1047798.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047796.jpg" />
+  <img src="Z:/picture/008/save_picture_1047796.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047795.jpg" />
+  <img src="Z:/picture/008/save_picture_1047795.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047794.jpg" />
+  <img src="Z:/picture/008/save_picture_1047794.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047791.jpg" />
+  <img src="Z:/picture/008/save_picture_1047791.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047005.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046420.jpg" />
 </div>
 
 
@@ -671,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18C6ED4C6FEC64EDA6928EEDB694860384E8D5BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601847   (1046331) от 02.01.2023
-
-Марина Степнова | Хирург (2020) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046331.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе "Хирург" история гениального пластического хирурга Аркадия Хрипунова переплетена с рассказом о жизни Хасана ибн Саббаха - пророка и основателя государства исламитов-низаритов ХI века. Хрипунов изменяет человеческие тела, а значит и судьбы. Даруя людям новые лица, он видит перед собой просто материал - хрящи да кожу. Ибн Саббах требует от своего (   Читать дальше...   )Жанр: современная русская литератураПродолжительность: 08:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B588913B13AE3C0521FABF0E23BFC23096A3A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

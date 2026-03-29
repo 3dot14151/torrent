@@ -1,3 +1,112 @@
+###  Публикация: 616344   (975707) от 09.02.2013
+
+Wolfram Mathematica 9.0.1 [English]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти любой рабочий процесс включает в себя вычисление результатов, и это именно то, что делает система Mathematica — от построения веб-сайта для торговли хедж-фондами или публикации технических учебников до разработки встроенных алгоритмов распознавания изображений или преподавания математического анализа.
+
+Система Mathematica известна как самое мощное в мире вычислительное приложение. Но это гораздо больше — она является единственной платформой для разработки, полностью интегрирующей вычисления в рабочий процесс от начала до конца, плавно проводя вас от первоначальных идей и вплоть до развернутых индивидуальных и промышленных решений.Название программы: Wolfram MathematicaЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972696   (975197) от 12.01.2016
+
+Михаил Русаков | Фреймворк Yii 2.0 с нуля. Пример создaния сaйтa (2015) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс состоит из двух крупных разделов:
+«Основы и примеры использования Yii» и «Создание Blog.MyRusakov.ru».
+По сути, это теория и практика. Почти к каждому уроку в обоих разделах идут упражнения для закрепления материала.
+(   Читать дальше...   )Производство: РоссияЖанр: Программирование, PHPПродолжительность: 05:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7AE65D69EF82C4F00535BF7D7B817D9AC03672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974390   (975195) от 12.01.2016
+
+Вавилон 5 / Babylon 5 (1993-2007) DVDRip [H.264] (сезон 1-5, серии 1-110 из 110 + Крестовый поход + полнометражные фильмы) ТВ-6
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Началась новая эра в истории человечества. Минуло десять лет после войны Земли с Минбаром. Проект «Вавилон» стал воплощением мечты о галактике без войн. Его цель — создание центра, где различные цивилизации смогут решать спорные вопросы мирным путём. Станция стала местом встречи и домом для дипломатов, авантюристов, дельцов, путешественников, тысяч людей и инопланетян (   Читать дальше...   )Производство: США / Warner Bros.Жанр: фантастика, боевик, драмаРежиссер: Ричард Комптон, Джон С. Флинн Третий, Дженет Грик, Брюс Сет Грин, Джим Джонстон, Лоррейн СеннаАктеры: Майкл О'Хэр, Клаудиа Кристиан, Джерри Дойл, Майра Ферлэн, Ричард Биггз, Андреа Томпсон, Стивен Ферст, Билл Мами, Кэйтлин Браун, Андреас Катсулас, Питер Юрасик и др.Перевод: Многоголосый профессиональный (ТВ-6)Язык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B4B53BF348F56C613141962FCF90E63B0CE805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974675   (975191) от 12.01.2016
+
+Экстрасенсы / Утешение / Solace (2015) HDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напарники, Джо и Кэтрин, детективы из ФБР расследуют череду загадочных убийств. Все преступления объединяет нечто сверхъестественное — серийный убийца всегда на шаг впереди лучших сыщиков. Тогда на помощь правосудию приходит отставной аналитик спецслужб доктор Джон Кленси. Его исключительная интуиция и интеллект могут помочь поймать убийцу, но вскоре Джон понимает (   Читать дальше...   )Производство: США / Eden Rock Media, FilmNation Entertainment, Flynn Picture CompanyЖанр: Триллер, ДетективРежиссер: Афонсо ПойартАктеры: Джеффри Дин Морган, Колин Фаррелл, Энтони Хопкинс, Эбби Корниш, Марли Шелтон, Джанин Тернер, Ксандер Беркли, Кенни Джонсон, Хосе Пабло Кантильо, Джошуа КлоузПеревод: Двухголосый закадровый, любительский (Parovoz Production)Язык субтитров: Английский, испанский, румынский, датский, голландскийПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060CAECEE2C4DCDDB6FFAA7D4453ACF68F3383EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974643   (975189) от 12.01.2016
 
 Последний охотник на ведьм / The Last Witch Hunter (2015) WEB-DLRip
@@ -6,7 +115,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975189.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975188.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975169.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ Navitel / Навител: Официальные карты релиза 2019-Q3
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975036.jpg" />
 </div>
 
 
@@ -110,7 +219,7 @@ Acronis True Image 19.0.6027 / Universal Restore 11.5.40010 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974169.jpg" />
 </div>
 
 
@@ -136,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974086.jpg" />
 </div>
 
 
@@ -162,7 +271,7 @@ Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRe
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974083.jpg" />
 </div>
 
 
@@ -188,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974080.jpg" />
 </div>
 
 
@@ -214,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973881.jpg" />
 </div>
 
 
@@ -240,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973536.jpg" />
 </div>
 
 
@@ -266,7 +375,7 @@ Elcomsoft Wireless Security Auditor 5.2.272 Professional Edition [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973010.jpg" />
 </div>
 
 
@@ -292,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972839.jpg" />
 </div>
 
 
@@ -318,7 +427,7 @@ Far Cry 2 (2008) [Ru] (1.03/dlc) Repack Other s [Fortune's Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972694.jpg" />
 </div>
 
 
@@ -344,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972585.jpg" />
 </div>
 
 
@@ -370,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972584.jpg" />
 </div>
 
 
@@ -396,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971486.jpg" />
 </div>
 
 
@@ -422,7 +531,7 @@ Far Cry 3 (2012) [Ru] (1.05 /dlc) Repack =nemos= [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971476.jpg" />
 </div>
 
 
@@ -450,7 +559,7 @@ Xara Xtreme Pro 5.1.0.9131 Portable [Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971439.jpg" />
 </div>
 
 
@@ -478,7 +587,7 @@ Syberia v1.0.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971117.jpg" />
 </div>
 
 
@@ -504,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970744.jpg" />
 </div>
 
 
@@ -530,7 +639,7 @@ Windows 7 (x86/x64) UralSOFT 1.5.12 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970407.jpg" />
 </div>
 
 
@@ -558,7 +667,7 @@ Reboot Restore Rx 3.3 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970278.jpg" />
 </div>
 
 
@@ -569,116 +678,6 @@ Reboot Restore Rx — интересный, распространяемый к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DCCAB5D659BCA07DB6AF0AE58D1596469222666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975501   (970190) от 16.01.2016
-
-VA - Большая коллекция клипов в авто (2DIN) (2000-2016) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Club, Pop, Trance, Metal и др.Продолжительность: 71:31:32сек
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDC7D253C9A16C2854E4F01C249F0779FEA9983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 237590   (970169) от 13.02.2013
-
-Chris Spheeris - 22 albums (1987 - 2013) [MP3|160-320 kbps] <New age, World, Smooth Jazz, Neoclassical, Ambient>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970169.jpg" />
-</div>
-
-
-###  Подробнее
-
-(19:02) 01. Respect 1
-(15:21) 02. Respect 2
-(14:42) 03. Respect 3
-(18:12) 04. Respect 4Жанр: New age, World, Smooth Jazz, Neoclassical, AmbientПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743381   (969911) от 12.01.2014
-
-Дримс (2013) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн — уличный музыкант-неудачник, живущий воспоминаниями о временах своей молодости. Он ловит попутные машины, намеренно превращая свою жизнь в бесконечный роад-муви, Одиссею на руинах своих грёз. Его путь — это рокерская «мечта с кровью», мечта мальчишек перестройки, звучащая из подворотен голосами Цоя и Шевчука, Башлачёва и Летова… Ему уже под сорок, а он всё ещё (   Читать дальше...   )Производство: Россия, Wise VisionЖанр: Драма, Комедия, МузыкальныйРежиссер: Антон СухаревАктеры: Дэн Дягилев, Анна Иванина, Юозас Будрайтис, Александр Баширов, Игорь Скляр, Ольга Альбанова, Татьяна Рябоконь, Хельга Филиппова, Вадим Сквирский, Сергей УмановПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F722562C32857673DE82AA258C2A805FF88324E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742280   (969910) от 12.01.2014
-
-VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_969910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
-02 DJ Aligator - Music is my language (feat. Arash)
-03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
-04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
 ```
 
 https://mybot314.ru/tekegram_catalog/

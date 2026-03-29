@@ -1,3 +1,55 @@
+###  Публикация: 1603378   (204280) от 09.01.2023
+
+Архипелаг Земля (2023) IPTV [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тысячи морских миль на корабле, экстремальные погодные условия, реальная научная работа, морские млекопитающие и птицы Северного Ледовитого океана, абсолютная изолированность от внешнего мира - лишь только часть обстоятельств, в которых окажутся участники фильма. Опытные учёные и исследователи, уже не раз бывавшие за Полярным кругом, и вчерашние студенты, первый (   Читать дальше...   )Производство: Россия, Студия 7LЖанр: документальный, история, путешествияРежиссер: Антон ЛегатЯзык озвучки: русскийСубтитры: русские (Культура, ВГТРК)Продолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5A964A871FCC75066C15C9999ED93664B6B120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615485   (202230) от 26.02.2023
+
+Юджин Леви: Путешественник поневоле / The Reluctant Traveler with Eugene Levy (2023) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) [EN / RU, UKR, EN Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_202230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прирождённый домосед, актёр и комик Юджин Леви отправляется в кругосветное путешествие со своими новыми друзьями. Он путешествует от полярного круга до Мальдивских островов, чтобы познакомиться с миром и столкнуться со своими страхами. Юджин увидит вулкан, станет судьёй на схватке сумоистов, отправится на финскую рыбалку и выполнит кучу других уникальных дел. По (   Читать дальше...   )Производство: Великобритания, Apple Studios, TwofourЖанр: документальный, история, путешествияРежиссер: Дэвид Бриндли, Джеймс КаллумУчастники: Юджин ЛевиПеревод: субтитрамиЯзык озвучки: английскийСубтитры: английские, русские, украинскиеПродолжительность: 8x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879D43AC2C2579DD44C6383D0F056F3E80488B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829269   (202155) от 25.10.2025
 
 Санкт-Петербург: самый большой морской храм и вид на город с высоты птичьего полета | «Поедем, поедим» (25.10.2025) WEBRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202155.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199993.jpg" />
+  <img src="Z:/picture/005/save_picture_199993.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195542.jpg" />
+  <img src="Z:/picture/004/save_picture_195542.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194150.jpg" />
+  <img src="Z:/picture/004/save_picture_194150.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193996.jpg" />
+  <img src="Z:/picture/004/save_picture_193996.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192975.jpg" />
+  <img src="Z:/picture/004/save_picture_192975.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192675.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191201.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190907.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190874.jpg" />
+  <img src="Z:/picture/004/save_picture_190874.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190813.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190639.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190017.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188956.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188799.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188259.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188059.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187111.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186243.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184763.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184279.jpg" />
+  <img src="Z:/picture/004/save_picture_184279.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183825.jpg" />
+  <img src="Z:/picture/004/save_picture_183825.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183588.jpg" />
+  <img src="Z:/picture/004/save_picture_183588.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182443.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5251DEEE8509FA33D37D4FCBCB12B2F06A49F31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593184   (181850) от 25.11.2022
-
-Тунис: жемчужина Средиземноморья / Tunisie, la belle de la Mediterranee (2022) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарующий и динамичный Тунис раскрывает перед нами свои сокровища. Они рассыпаны по прилавкам базаров или прячутся вдали от глаз. За белыми фасадами, пропитанными солнцем, мужчины и женщины продолжают традиции, передаваемые из поколения в поколение. На протяжении всей своей истории Тунис всегда притягивал взоры завоевателей, которые пользовались его плодородной землей. (   Читать дальше...   )Производство: Франция, TV5MONDE EuropeЖанр: документальный, история, путешествияРежиссер: Эрик БакоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Пичугиной, компания Hiventy by TransPerfect), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C51A4DECBB55C2AAF938BB6E1F90305A0A3DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427834   (181824) от 29.11.2020
-
-Итальянские страсти. Абруццо - Лацио / Passion Italy. Abruzzo-Lazio (2020) IPTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абруццо и Лацио - это два региональных парка, которые также называют «зелёными легкими» Европы. В общей сложности охраняемая территория в Абруццо составляют около 30% от площади всего региона. Одним из основных источников доходов Абруццо и Лацио является виноделие - туризм: в сфере обслуживания работает более 70% трудоустроенного населения области. Кроме того, хорошо (   Читать дальше...   )Производство: Великобритания, APTЖанр: Документальный, история, путешествияРежиссер: Алессандра ПолиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCEB77285E0472ABE0628A6B8A24E74EA7AC01D
 ```
 
 https://mybot314.ru/tekegram_catalog/

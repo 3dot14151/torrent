@@ -1,3 +1,115 @@
+###  Публикация: 1628211   (242331) от 22.04.2023
+
+Geekbench 6.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © Primate Labs Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE79E901BE59BDC2F75FDA1F0B6B2769FB584382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105926   (242323) от 18.02.2017
+
+Paws for Trello 2.0.3 [Muli/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paws for Trello красивый Trello клиент для Mac.
+Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
+
+- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 февраля 2017Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1477CA080B815A8E123B9E4B8F9A234FE25D69F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628216   (242320) от 22.04.2023
+
+Lungo 2.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774405B43648C4243EF7D3673D90BB27ADB2D209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105883   (242294) от 18.02.2017
+
+Newsflow 1.4.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря Newsflow вы можете читать новости с любимых веб-сайтов прямо на рабочем столе. Читайте статьи в быстром приложении для чтения новостей c множеством настроек.
+
+Особенности:
+- Красивые темы (включая ночной режим)(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 февраля 2017Разработчик: Rocky Sand Studio Ltd.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD998C70CB8C11DE3E5F0AC87F8B5A185CDFEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628203   (242291) от 22.04.2023
 
 Aiseesoft FoneEraser 1.0.16 [Multi/Ru]
@@ -6,7 +118,7 @@ Aiseesoft FoneEraser 1.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242291.jpg" />
+  <img src="Z:/picture/004/save_picture_242291.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ iA Writer 6.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242282.jpg" />
+  <img src="Z:/picture/004/save_picture_242282.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ Mosaic Pro - Professional-level window management 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242252.jpg" />
+  <img src="Z:/picture/004/save_picture_242252.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Sublime Merge Dev build 2004 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242229.jpg" />
+  <img src="Z:/picture/004/save_picture_242229.jpg" />
 </div>
 
 
@@ -116,7 +228,7 @@ Wattagio 1.8 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242219.jpg" />
+  <img src="Z:/picture/004/save_picture_242219.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ File Cabinet Pro 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242205.jpg" />
+  <img src="Z:/picture/004/save_picture_242205.jpg" />
 </div>
 
 
@@ -171,7 +283,7 @@ Translatium 11.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242204.jpg" />
+  <img src="Z:/picture/004/save_picture_242204.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ Hookshot 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242164.jpg" />
+  <img src="Z:/picture/004/save_picture_242164.jpg" />
 </div>
 
 
@@ -223,7 +335,7 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242137.jpg" />
+  <img src="Z:/picture/004/save_picture_242137.jpg" />
 </div>
 
 
@@ -250,7 +362,7 @@ AutoPrompt 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242128.jpg" />
+  <img src="Z:/picture/004/save_picture_242128.jpg" />
 </div>
 
 
@@ -279,7 +391,7 @@ MacCleaner 2 PRO 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242116.jpg" />
+  <img src="Z:/picture/004/save_picture_242116.jpg" />
 </div>
 
 
@@ -305,7 +417,7 @@ Typora for Mac 1.5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242094.jpg" />
+  <img src="Z:/picture/004/save_picture_242094.jpg" />
 </div>
 
 
@@ -331,7 +443,7 @@ iThoughtsX 5.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242091.jpg" />
+  <img src="Z:/picture/004/save_picture_242091.jpg" />
 </div>
 
 
@@ -357,7 +469,7 @@ A Better Finder Rename 11 v11.46 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242081.jpg" />
+  <img src="Z:/picture/004/save_picture_242081.jpg" />
 </div>
 
 
@@ -384,7 +496,7 @@ Artstudio Pro 4.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242071.jpg" />
+  <img src="Z:/picture/004/save_picture_242071.jpg" />
 </div>
 
 
@@ -410,7 +522,7 @@ Affinity Designer 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242067.jpg" />
+  <img src="Z:/picture/004/save_picture_242067.jpg" />
 </div>
 
 
@@ -437,7 +549,7 @@ Omni Recover 3 v3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242062.jpg" />
+  <img src="Z:/picture/004/save_picture_242062.jpg" />
 </div>
 
 
@@ -464,7 +576,7 @@ Cycling'74 Max 8.5.4 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242038.jpg" />
+  <img src="Z:/picture/004/save_picture_242038.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ Magic Battery 7.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242001.jpg" />
+  <img src="Z:/picture/004/save_picture_242001.jpg" />
 </div>
 
 
@@ -517,7 +629,7 @@ WiFi Explorer Pro 3 v3.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241994.jpg" />
+  <img src="Z:/picture/004/save_picture_241994.jpg" />
 </div>
 
 
@@ -544,7 +656,7 @@ Final Cut Pro 10.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241968.jpg" />
+  <img src="Z:/picture/004/save_picture_241968.jpg" />
 </div>
 
 
@@ -571,7 +683,7 @@ iCollections 6 v6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241953.jpg" />
+  <img src="Z:/picture/004/save_picture_241953.jpg" />
 </div>
 
 
@@ -582,113 +694,6 @@ iCollections 6 v6.3 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28556D1F876AABF031D144B81E719A83BE39B43A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543896   (241924) от 13.04.2022
-
-Adobe Photoshop for Mac 2022 v23.3 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 1990-2022 AdobeПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610F9EC0449233CB658936C7960E83BA0BB60803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374620   (241918) от 10.04.2020
-
-Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1782 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.04.2020Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF032065CF7A9AD8D25D3AB49DE195C520612548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628804   (241914) от 24.04.2023
-
-Integrity Pro 12.7.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Integrity Pro  основано на Integrity Plus. У него есть новый механизм сканирования v9, оно проверяет ссылки и создает карту сайта со всеми функциями поиска, фильтрации и экспорта версии Plus. Добавляет детали SEO и проверку орфографии. Не предназначено для замены Scrutiny и имеет промежуточное положение между Integrity Plus и Scrutiny, более доступными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA80025B2AB078B83F7C8C64CDB8D19273E79C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459113   (241913) от 31.03.2021
-
-Deckset 2.0.20 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поистине если человеку лень что-либо делать, он готов сделать все что угодно, чтобы не делать то, что ему не хочется делать. Яркий пример — программа Deckset, которая позволяет создавать симпатичные презентации… на основе простого текста.
-Если вы знакомы с языком разметки Markdown, то суть работы в Deckset вам будет понятна. То есть вы просто составляете текстовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2021Разработчик: Unsigned Integer UGПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7A717C755C4E346CD43249F2CF743D793979E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

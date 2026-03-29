@@ -6,7 +6,7 @@ USB Safely Remove 5.3.8.1233 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714688.jpg" />
+  <img src="Z:/picture/008/save_picture_714688.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 07.08.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714657.jpg" />
+  <img src="Z:/picture/008/save_picture_714657.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MSD Organizer v13.7 (SharewareOnSale) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714655.jpg" />
+  <img src="Z:/picture/008/save_picture_714655.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Windows Repair Toolbox 3.0.2.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714648.jpg" />
+  <img src="Z:/picture/008/save_picture_714648.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Flash Master Kit 1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714607.jpg" />
+  <img src="Z:/picture/008/save_picture_714607.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tor Browser Bundle 4.5 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714604.jpg" />
+  <img src="Z:/picture/008/save_picture_714604.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BELOFF 2020.08 Lite [Ru] (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714542.jpg" />
+  <img src="Z:/picture/008/save_picture_714542.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RAM Saver Professional 22.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714525.jpg" />
+  <img src="Z:/picture/008/save_picture_714525.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ WinTools.net Premium 22.2.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714520.jpg" />
+  <img src="Z:/picture/008/save_picture_714520.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Perfectly Clear WorkBench 4.0.1.2238 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714519.jpg" />
+  <img src="Z:/picture/008/save_picture_714519.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Process Lasso Pro 10.4.4.20 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714514.jpg" />
+  <img src="Z:/picture/008/save_picture_714514.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CherryTree 0.99.46 x64 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714513.jpg" />
+  <img src="Z:/picture/008/save_picture_714513.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ uTorrent Pro Stable 3.5.5 (build 45095) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714509.jpg" />
+  <img src="Z:/picture/008/save_picture_714509.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714505.jpg" />
+  <img src="Z:/picture/008/save_picture_714505.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ The KMPlayer 4.2.2.22 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714500.jpg" />
+  <img src="Z:/picture/008/save_picture_714500.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Desktop Calendar 2.3.99.5464 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714478.jpg" />
+  <img src="Z:/picture/008/save_picture_714478.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WinTools.net Premium 22.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714475.jpg" />
+  <img src="Z:/picture/008/save_picture_714475.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714466.jpg" />
+  <img src="Z:/picture/008/save_picture_714466.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Macrorit Data Wiper 4.8.1 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714465.jpg" />
+  <img src="Z:/picture/008/save_picture_714465.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ WinToUSB Technician 6.5.2.0 Release 1 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714464.jpg" />
+  <img src="Z:/picture/008/save_picture_714464.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Windows Vista Ultimate SP2 x64 2019 6.0.6002 by Burnoutman [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714440.jpg" />
+  <img src="Z:/picture/008/save_picture_714440.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Windows Login Unlocker 1.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714432.jpg" />
+  <img src="Z:/picture/008/save_picture_714432.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Allavsoft Video Downloader Converter 3.14.4.6330 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714429.jpg" />
+  <img src="Z:/picture/008/save_picture_714429.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Windows 10 (v1809) x64 LTSC by KulHanter v19 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714369.jpg" />
+  <img src="Z:/picture/008/save_picture_714369.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Caramba Switcher 2022.02.08 + Lab  [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714311.jpg" />
+  <img src="Z:/picture/008/save_picture_714311.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Ventoy 1.0.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714304.jpg" />
+  <img src="Z:/picture/008/save_picture_714304.jpg" />
 </div>
 
 

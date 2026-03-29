@@ -1,3 +1,119 @@
+###  Публикация: 1135037   (685226) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beautiful Indians - Hiawatha [02:48]
+02. The Beautiful Indians - Minnehaha [03:01]
+03. It Shouldn't Happen to a Dream [03:07]
+04. Diminuendo in Blue [02:52](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F247B0AD15F6D57818B02ECFEAE6C8BFB09FC73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135039   (685223) от 17.05.2017
+
+Duke Ellington - The Jazz Collector Edition: Historic Recording (1989) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Perfume Suite: Balcony Serenade/Strange Feeling/Dancers in Love/Coloratura [11:46]
+02. Take the 'A' Train [04:37]
+03. Black and Tan Fantasy [05:11]
+04. Perdido [03:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E09BB6010AB087439CD67E14012BED225C1328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135033   (685222) от 17.05.2017
+
+Duke Ellington - The 1954 Los Angeles Concert (1988) GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smada [02:33]
+02. Black and Tan Fantasy [05:13]
+03. How High the Moon [05:10]
+04. Serious Serenade [03:23](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6CA00206AF000384A5B6C8A7111D7EA277FB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135051   (685221) от 17.05.2017
+
+Duke Ellington - 40 Great Jazz Performances (1990) 3CD, That's Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685221.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Take the 'A' Train [03:03]
+02. Do Nothing Till You Hear from Me [01:41]
+03. Everything Goes [04:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F484F492B92106CAB044C84578A5C7D35155EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135058   (685220) от 17.05.2017
 
 Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Duke Ellington - The Essential Duke Ellington (1990) CBS Disques SA [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685220.jpg" />
+  <img src="Z:/picture/008/save_picture_685220.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Duke Ellington - The English Concert (1971) 1999, BGO Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685219.jpg" />
+  <img src="Z:/picture/008/save_picture_685219.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Django Reinhardt & Stephane Grappelli - Jazz Anthology (1938 - 1946) 2007, Promo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685212.jpg" />
+  <img src="Z:/picture/008/save_picture_685212.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Jeremy Steig Quartet - Flute Fever + 1 (1963) Remaster, 2014, Sony Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684666.jpg" />
+  <img src="Z:/picture/008/save_picture_684666.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Lionel Hampton All Star Band - Live At Newport '78 (1978) Remaster, 2015, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684658.jpg" />
+  <img src="Z:/picture/008/save_picture_684658.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Ahmad Jamal - Trio & Quintet Recordings With Ray Crawford (1955-1960) 2CD, 2016,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684541.jpg" />
+  <img src="Z:/picture/008/save_picture_684541.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Pepper Adams - The Master (1980) 1994, Muse Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684456.jpg" />
+  <img src="Z:/picture/008/save_picture_684456.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Raging Dildos - Blue EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684417.jpg" />
+  <img src="Z:/picture/008/save_picture_684417.jpg" />
 </div>
 
 
@@ -241,7 +357,7 @@ Dave McKenna - Dancing In The Dark And Other Music Of Arthur Schwartz (1986) Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684216.jpg" />
+  <img src="Z:/picture/008/save_picture_684216.jpg" />
 </div>
 
 
@@ -270,7 +386,7 @@ Duke Ellington - Le Jazz de A a Z (1940 - 1945) 1994, BMG [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683141.jpg" />
+  <img src="Z:/picture/008/save_picture_683141.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Duke Ellington - Sophisticated Lady (1996) BMG [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683140.jpg" />
+  <img src="Z:/picture/008/save_picture_683140.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ Duke Ellington - Swing 1930 to 1938 (1989) BBC [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683139.jpg" />
+  <img src="Z:/picture/008/save_picture_683139.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ Duke Ellington - 20th Death Anniversary: Zurich, 1963 (1994) Sarabandas [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683138.jpg" />
+  <img src="Z:/picture/008/save_picture_683138.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Duke Ellington - At Basin Street East (1964) 1995, Music and Arts Programs of Am
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683137.jpg" />
+  <img src="Z:/picture/008/save_picture_683137.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Duke Ellington - A Portrait of Duke Ellington (1999) Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683136.jpg" />
+  <img src="Z:/picture/008/save_picture_683136.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ Jack Teagarden - 1939 - 1940 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683135.jpg" />
+  <img src="Z:/picture/008/save_picture_683135.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Duke Ellington - Jazz Masters 1953-1955 (1997) EMI Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683061.jpg" />
+  <img src="Z:/picture/008/save_picture_683061.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Duke Ellington - Compact Jazz: Duke Ellington & Friends (1987) Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683060.jpg" />
+  <img src="Z:/picture/008/save_picture_683060.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Duke Ellington - The Duke Ellington Collection: 40 Great Tracks (1999) 2CD, Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683059.jpg" />
+  <img src="Z:/picture/008/save_picture_683059.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Steve Kuhn Trio - At This Time... (2017) Sunnyside [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683058.jpg" />
+  <img src="Z:/picture/008/save_picture_683058.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Duke Ellington - The Best of Duke Ellington (1991) Pablo [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683053.jpg" />
+  <img src="Z:/picture/008/save_picture_683053.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Duke Ellington - Happy Birthday, Duke!, Vol.1-5 (1953 - 1954) 5CD, 1992, LaserLi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683046.jpg" />
+  <img src="Z:/picture/008/save_picture_683046.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Vol.1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0071EB0CEC3F26AA20DDB294B0E76F44ECA7AA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029440   (682601) от 26.06.2016
-
-Art Pepper - Chili Pepper (2001) [FLAC|Lossless|tracks] <Instrumental Jazz, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Count On Rush Street    03:11
-02.  Pooch Mcgooch    02:43
-03.  Brown Gold    02:26
-04.  Holiday Flight    03:11(   Читать дальше...   )Жанр: Instrumental Jazz, Saxophone JazzПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7F96D5C1DBA94415DD68C95F6CC68598269416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535762   (682509) от 08.03.2022
-
-Buddy Rich - Seven Classic Albums (1955 - 1961) 4CD, 2019, Real To Reel [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682509.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Yellow Rose Of Brooklyn [4:33]
-02. Easy Does It [8:18]
-03. All Sweets [2:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 04:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8028328CAB36A96EE326BCCBE6FC37E52A5FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029390   (682345) от 26.06.2016
-
-The Rippingtons feat. Russ Freeman - True Stories (2016) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Tales
-02. Sundance
-03. Flamenco Beach
-04. My Promise To You (feat. Jeffrey Osborne)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A2F35765189B144BB2093D18D18810E5DB277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289767   (682167) от 18.03.2019
-
-Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo for Unaccompanied Bass [2:32]
-02. Tricotism [3:57]
-03. Tangerine [3:20]
-04. Much in Common [3:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5089168AEBDBE6499A5FE9A2E37619763551D831
 ```
 
 https://mybot314.ru/tekegram_catalog/

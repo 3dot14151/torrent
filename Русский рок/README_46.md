@@ -1,3 +1,119 @@
+###  Публикация: 1229529   (626171) от 06.06.2018
+
+Красная Плесень - Утерянные песни (1989 - 1995) (2017) [MP3|96-320 Kbps] <Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление (1:12)
+ 2. Шумовые помехи (1:05)
+ 3. Шайба с газовой резьбой (1:58)
+ 4. Первая любовь (2:07)(   Читать дальше...   )Жанр: Punk, Punk RockПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFB668E5D9444261F4F9CE54C53EC4F65840851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909230   (626133) от 18.06.2015
+
+The Dartz - Proxima Parada Plus (2012) [MP3|320 кб/с]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постапокалиптический концептуальный альбом стал лучшим альбомом группы, культовым произведением, окном в мрачный, но притягательный мир постапокалиптической Европы, мир, проникнутый грустью по уходящией эпохе. "Мы нарисовали мир, грустный и жутковатый, который уже давно живёт независимой от нас жизнью. Новая “Проксима” – это уже почти целая аудиокнига".01. Мой Дорогой Будущий Друг
+02. Катти Сарк
+03. Аль-Рашид
+04. Средиземноморье(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0FF475794F88C902BF86980FC9955CF6EA7F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294804   (626100) от 09.04.2019
+
+MONOЛИЗА - Ни черта (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626100.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сандалi
+2. Небо
+3. Ни черта
+4. Признайся (feat. Дарья Клименко)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A695C00D35510A08B82DA67937A3EAC8EDF67F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909093   (625829) от 18.06.2015
+
+Марко Поло - Александрия (2015) [MP3|320 кб/с]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка группы - это сплав западных традиций («Blackmore’s night») и русских («Мельница», «Тол Мириам») и сочетает в себе мелодичность наряду с танцевальностью и отдаёт предпочтение светлым, мажорным тональностям, создавая тем самым заряд позитивной энергии для своих слушателей, чем отличается от многих других представителей русского фолк-рока.01. Ветер-менестрель
+02. Александрия
+03. Марко Поло
+04. Дейви Джонс(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A82644C80DAEF5C48486B29F2FA217C99EA6E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726339   (625552) от 18.06.2015
 
 Ночная трость - Фантастика (2013) [MP3|320 кб/с]<Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625552.jpg" />
+  <img src="Z:/picture/008/save_picture_625552.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625195.jpg" />
+  <img src="Z:/picture/008/save_picture_625195.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624191.jpg" />
+  <img src="Z:/picture/008/save_picture_624191.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622619.jpg" />
+  <img src="Z:/picture/008/save_picture_622619.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Skafandr - Марш красных роботов (2019) [MP3|320 Kbps] <Rock, D
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622505.jpg" />
+  <img src="Z:/picture/008/save_picture_622505.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622501.jpg" />
+  <img src="Z:/picture/008/save_picture_622501.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622500.jpg" />
+  <img src="Z:/picture/008/save_picture_622500.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Sellout - Панк-рок! Да погромче! (2022) EP [MP3|320 Kbps] <Punk
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622077.jpg" />
+  <img src="Z:/picture/008/save_picture_622077.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620627.jpg" />
+  <img src="Z:/picture/008/save_picture_620627.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620335.jpg" />
+  <img src="Z:/picture/008/save_picture_620335.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Catharsis - Книга Времен. Будущее Прошлого (Часть
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620328.jpg" />
+  <img src="Z:/picture/008/save_picture_620328.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Billy's Band - Петербургские открытки (2017) [MP3|320 Kbps]
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619513.jpg" />
+  <img src="Z:/picture/008/save_picture_619513.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619316.jpg" />
+  <img src="Z:/picture/008/save_picture_619316.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618701.jpg" />
+  <img src="Z:/picture/008/save_picture_618701.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617176.jpg" />
+  <img src="Z:/picture/008/save_picture_617176.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616672.jpg" />
+  <img src="Z:/picture/008/save_picture_616672.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613264.jpg" />
+  <img src="Z:/picture/008/save_picture_613264.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ Bastard Folk - Трактир на перекрестке (2022) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613162.jpg" />
+  <img src="Z:/picture/008/save_picture_613162.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ Strike - Паранойя (2015) EP [MP3|320 кб/с]<Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612579.jpg" />
+  <img src="Z:/picture/008/save_picture_612579.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ Antillia (Антиллия) - Древние Силы (2015) [MP3|320 кб/с]<S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612402.jpg" />
+  <img src="Z:/picture/008/save_picture_612402.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612357.jpg" />
+  <img src="Z:/picture/008/save_picture_612357.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612168.jpg" />
+  <img src="Z:/picture/008/save_picture_612168.jpg" />
 </div>
 
 
@@ -631,119 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6295355A777D8DE57F1D136FE7BA75A9620D1D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296461   (611835) от 17.04.2019
-
-Akado - Dark Side (2016) Single [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Side (3:04)Жанр: Indie RockПродолжительность: 00:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DF4B44F8C37353E603086CC0BEECFE42BD6C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545720   (611539) от 21.04.2022
-
-Teloxcty Relltmet - Помнил Нежности Твои (2022) [MP3|192 Kbps] <Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Быстрая Молодость [00:03:55]
-02 - Не Каждый [00:03:00]
-03 - Страшная Смерть [00:02:42]
-04 - Между Нами [00:03:26](   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE2E8236B5528A3796C2583F45CB8F9C13BE84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545696   (611418) от 21.04.2022
-
-Restless Mind - Самообман (2022) [MP3|320 Kbps] <Alternative Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сальто Одиночек [00:04:11]
-02 - Закат Империй [00:04:29]
-03 - Из Праха в Прах [00:05:26]
-04 - Самообман [00:03:32](   Читать дальше...   )Жанр: Alternative Metal, Groove MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA2D61EC672BBDC03412013E037BBF8D918444F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545806   (611399) от 21.04.2022
-
-Постарнаков и После 11 - Колея (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611399.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ангелы демоны
-2. Колея
-3. Люби пока я буду жить
-4. Поезд(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A79CDD64B5E26EEDC6576997050644C63678E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

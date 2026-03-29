@@ -7,7 +7,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052287.jpg" />
+  <img src="Z:/picture/005/save_picture_1052287.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049238.jpg" />
+  <img src="Z:/picture/008/save_picture_1049238.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Robot Carnival / Карнавал роботов [1987, OVA] DVD5 raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470009.jpg" />
+  <img src="Z:/picture/008/save_picture_470009.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257521.jpg" />
+  <img src="Z:/picture/005/save_picture_257521.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256714.jpg" />
+  <img src="Z:/picture/005/save_picture_256714.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254997.jpg" />
+  <img src="Z:/picture/005/save_picture_254997.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250994.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250752.jpg" />
+  <img src="Z:/picture/004/save_picture_250752.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVDRemux 480p 
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246099.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Tenki no Ko | Weathering with You | Дитя Погоды [Movie] DVD9 480p raw+
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246080.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221287.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221280.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205634.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162182.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151665.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136845.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129044.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129038.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128873.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Promare | Промар [2019, Movie] DVDRemux 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128853.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128633.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128632.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128631.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128630.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128581.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128580.jpg" />
 </div>
 
 

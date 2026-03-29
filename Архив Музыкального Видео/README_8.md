@@ -6,7 +6,7 @@
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259069.jpg" />
+  <img src="Z:/picture/005/save_picture_259069.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Felix Leiter – Elektriqa (Uncensored) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258544.jpg" />
+  <img src="Z:/picture/005/save_picture_258544.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Vida Loca - La Chupadita (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258497.jpg" />
+  <img src="Z:/picture/005/save_picture_258497.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Bluestone ft Adi ft Skibadee - Bass Addict (2011) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258485.jpg" />
+  <img src="Z:/picture/005/save_picture_258485.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258075.jpg" />
+  <img src="Z:/picture/005/save_picture_258075.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257417.jpg" />
+  <img src="Z:/picture/005/save_picture_257417.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257267.jpg" />
+  <img src="Z:/picture/005/save_picture_257267.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Dj Layla feat Sianna - I'M Your Angel (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256070.jpg" />
+  <img src="Z:/picture/005/save_picture_256070.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Paco De Lucia / FRANCISCO SÁNCHEZ - PACO DE LUCIA (2 DVD) (2003) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255772.jpg" />
+  <img src="Z:/picture/005/save_picture_255772.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Marduk - Souls For Belial (2012) HDTVRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254377.jpg" />
+  <img src="Z:/picture/005/save_picture_254377.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Mono - Life In Mono (1996) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253936.jpg" />
+  <img src="Z:/picture/005/save_picture_253936.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Die Atzen - Party (Ich Will Abgehn) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253652.jpg" />
+  <img src="Z:/picture/005/save_picture_253652.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Eagles - Hotel California (2005) HDRip [720p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253253.jpg" />
+  <img src="Z:/picture/005/save_picture_253253.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CJ Stone ft. Anna Turska & Sherlock - Believe Me (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252885.jpg" />
+  <img src="Z:/picture/005/save_picture_252885.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251534.jpg" />
+  <img src="Z:/picture/004/save_picture_251534.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251447.jpg" />
+  <img src="Z:/picture/004/save_picture_251447.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NKQ-Nigel Kennedy Quintet - The Blue Note Sessions : Live In Paris At The New Mo
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251391.jpg" />
+  <img src="Z:/picture/004/save_picture_251391.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Daniel Djokic - Like It Like This (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251359.jpg" />
+  <img src="Z:/picture/004/save_picture_251359.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251193.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Albert Kick - Evil Girl (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250797.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Kaya Jones - Release The Energy (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250765.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Berna Arici - Kitap Gibi Kadinim (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249130.jpg" />
+  <img src="Z:/picture/004/save_picture_249130.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Megadeth - Warchest(Live in London 30.09.92) (2007) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248579.jpg" />
+  <img src="Z:/picture/004/save_picture_248579.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247862.jpg" />
+  <img src="Z:/picture/004/save_picture_247862.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216406.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Chieli Minucci & Special EFX (2010) DVD5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215218.jpg" />
+  <img src="Z:/picture/005/save_picture_215218.jpg" />
 </div>
 
 

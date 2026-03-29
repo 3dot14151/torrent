@@ -6,7 +6,7 @@ Kaspersky Lab Products Remover 1.0.1064 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771115.jpg" />
+  <img src="Z:/picture/005/save_picture_771115.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Goliath (2016) [Ru/En] (1.0.1) Repack SpaceX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771108.jpg" />
+  <img src="Z:/picture/008/save_picture_771108.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PortableApps.com Platform 14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771087.jpg" />
+  <img src="Z:/picture/008/save_picture_771087.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771070.jpg" />
+  <img src="Z:/picture/008/save_picture_771070.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771055.jpg" />
+  <img src="Z:/picture/008/save_picture_771055.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771015.jpg" />
+  <img src="Z:/picture/008/save_picture_771015.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WinRAR 5.40 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771013.jpg" />
+  <img src="Z:/picture/008/save_picture_771013.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AI RoboForm Enterprise 7.9.18.5 Final Repack by Alker [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771010.jpg" />
+  <img src="Z:/picture/008/save_picture_771010.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ TeamViewer 11.0.59518 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771009.jpg" />
+  <img src="Z:/picture/008/save_picture_771009.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771004.jpg" />
+  <img src="Z:/picture/008/save_picture_771004.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771000.jpg" />
+  <img src="Z:/picture/008/save_picture_771000.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Daum PotPlayer 1.6.60136 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770954.jpg" />
+  <img src="Z:/picture/008/save_picture_770954.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770881.jpg" />
+  <img src="Z:/picture/008/save_picture_770881.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770874.jpg" />
+  <img src="Z:/picture/008/save_picture_770874.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770813.jpg" />
+  <img src="Z:/picture/008/save_picture_770813.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ DVDFab 9.1.9.6 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770764.jpg" />
+  <img src="Z:/picture/008/save_picture_770764.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770727.jpg" />
+  <img src="Z:/picture/008/save_picture_770727.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770724.jpg" />
+  <img src="Z:/picture/008/save_picture_770724.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Windows Firewall Control 4.4.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770721.jpg" />
+  <img src="Z:/picture/008/save_picture_770721.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ EverWeb (Standalone) 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770716.jpg" />
+  <img src="Z:/picture/008/save_picture_770716.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ PullTube 1.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770715.jpg" />
+  <img src="Z:/picture/008/save_picture_770715.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ SiteSucker 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770713.jpg" />
+  <img src="Z:/picture/008/save_picture_770713.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770707.jpg" />
+  <img src="Z:/picture/008/save_picture_770707.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ IObit Uninstaller Free 10.0.0.42 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770679.jpg" />
+  <img src="Z:/picture/008/save_picture_770679.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Media Player Classic Home Cinema 1.9.5 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770678.jpg" />
+  <img src="Z:/picture/008/save_picture_770678.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Photo Supreme 5.4.1.2998 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770675.jpg" />
+  <img src="Z:/picture/008/save_picture_770675.jpg" />
 </div>
 
 

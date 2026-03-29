@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861271   (1062560) от 
+
+Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У меня нет любовницы! (А, может, и есть?!) [2025, TV, 12 эп.] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэнако Амаори стремится оставить позади своё неловкое и одинокое существование в средней школе, чтобы стать нормальной девушкой и завести подруг в старшей школе. Эффектная и уверенная Май Оудзука — полная противоположность Рэнако. Она богатая, общительная и, буквально, фотомодель. Вопреки всему, между девочками мгновенно образуется связь. Рэнако думает, что нашла (   Читать дальше...   )Производство: Япония, MotherЖанр: Комедия, романтика, сёдзё-айРежиссер: Нацуми УтинумаЯзык озвучки: Японский и русский (ТО «Beloved»)Продолжительность: 12 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0819F372DA415A60E5876C9271654417E877FDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860036   (1061525) от 
 
 Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Вольной Звезды [1998, TV, 26 эп.] BDRip 720p raw+rus
@@ -7,7 +33,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061525.jpg" />
+  <img src="Z:/picture/005/save_picture_1061525.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059742.jpg" />
+  <img src="Z:/picture/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058504.jpg" />
+  <img src="Z:/picture/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058503.jpg" />
+  <img src="Z:/picture/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058339.jpg" />
+  <img src="Z:/picture/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057149.jpg" />
+  <img src="Z:/picture/005/save_picture_1057149.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056847.jpg" />
+  <img src="Z:/picture/005/save_picture_1056847.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055922.jpg" />
+  <img src="Z:/picture/005/save_picture_1055922.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055391.jpg" />
+  <img src="Z:/picture/005/save_picture_1055391.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055390.jpg" />
+  <img src="Z:/picture/005/save_picture_1055390.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055389.jpg" />
+  <img src="Z:/picture/005/save_picture_1055389.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055388.jpg" />
+  <img src="Z:/picture/005/save_picture_1055388.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Slayers Next | Рубаки Next [1996, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055387.jpg" />
+  <img src="Z:/picture/005/save_picture_1055387.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Slayers Try | Рубаки Try [1997, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055386.jpg" />
+  <img src="Z:/picture/005/save_picture_1055386.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055362.jpg" />
+  <img src="Z:/picture/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055233.jpg" />
+  <img src="Z:/picture/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054898.jpg" />
+  <img src="Z:/picture/005/save_picture_1054898.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054897.jpg" />
+  <img src="Z:/picture/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный ф�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054563.jpg" />
+  <img src="Z:/picture/005/save_picture_1054563.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный г
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054562.jpg" />
+  <img src="Z:/picture/005/save_picture_1054562.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054560.jpg" />
+  <img src="Z:/picture/005/save_picture_1054560.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [200
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054559.jpg" />
+  <img src="Z:/picture/005/save_picture_1054559.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Nanatsu no Taizai OVA | The Seven Deadly Sins OVA | Семь смертных г
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054118.jpg" />
+  <img src="Z:/picture/005/save_picture_1054118.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054116.jpg" />
+  <img src="Z:/picture/005/save_picture_1054116.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C90AA9DEC3DF911C7A956AFD5B35F905BD2AD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849899   (1054115) от 25.01.2026
-
-Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War | Семь смертных грехов: Знамение священной войны [2016, TV, 4 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отвоевав королевство Лионес у Святых Рыцарей, Семь Смертных Грехов вместе с Элизабет и Хоуком наконец-то могут насладиться заслуженным спокойствием. Но новая угроза появляется на горизонте, и, кажется, счастливым и беззаботным дням наших героев скоро придет конец...Производство: Япония, A-1 PicturesЖанр: фэнтези, сёнен, экшен, эттиРежиссер: Токоро ТомокадзуЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Nuts)Продолжительность: ТВ, 4 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E55341E5BE6CEDF2C604A7458F3E1D3B5C99A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

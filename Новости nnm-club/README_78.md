@@ -1,3 +1,112 @@
+###  Публикация: 1510735   (790109) от 18.11.2021
+
+Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1379]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
+Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)
+Поиск работает(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72316ABD70FFC15AB20060C709F9F165F4C41553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510688   (790100) от 18.11.2021
+
+BELOFF 2021.11.1 (Авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Программ Рунета, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов с (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C398A6ECDC3E21F2E4A6DEE7FDC157808DE125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388137   (789954) от 04.06.2020
+
+Проекты - MotionBro - MotionBro Transition After Effects Full Packs 2020 [LIST, AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789954.jpg" />
+</div>
+
+
+###  Подробнее
+
+«MotionBro Transition After Effects Full Packs 2020» - стильный элегантный пакет 11 основных сетов переходов и элементов заточенных под панель MotionBro 2.3.4 для оформления Вашего материала.
+Многие оценят по достоинству.Формат: LIST, AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE0698E0F187B1C5AB71C2B514F3EE2D4A07BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202315   (789744) от 29.01.2018
+
+Сорос обвинил Google и Facebook в формировании зависимости от их сервисов у пользователей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_789744.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению миллиардера, "компании, которые работают в сфере социальных медиа, эксплуатируют социальную среду" и "оказывают влияние на мысли и поведение людей без их ведома"
+Американский миллиардер Джордж Сорос обвинил компании Google и Facebook в монополизации рынка и целенаправленном развитии у аудитории привыкания к своим предложениям. Об этом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201971   (789678) от 29.01.2018
 
 Интерстеллар / Interstellar (2014) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [IMAX Edition]
@@ -6,7 +115,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789678.jpg" />
+  <img src="Z:/picture/008/save_picture_789678.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789677.jpg" />
+  <img src="Z:/picture/008/save_picture_789677.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789674.jpg" />
+  <img src="Z:/picture/008/save_picture_789674.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Apple и Google не стали повышать цены в магазинах 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_789672.jpg" />
+  <img src="Z:/picture/005/save_picture_789672.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_789643.jpg" />
+  <img src="Z:/picture/005/save_picture_789643.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_789566.jpg" />
+  <img src="Z:/picture/005/save_picture_789566.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ Microsoft выпустила экстренное обновление, чтоб
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_789296.jpg" />
+  <img src="Z:/picture/005/save_picture_789296.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ Gears of War (2007) [Ru/En] (1.3) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789276.jpg" />
+  <img src="Z:/picture/008/save_picture_789276.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789273.jpg" />
+  <img src="Z:/picture/008/save_picture_789273.jpg" />
 </div>
 
 
@@ -242,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789212.jpg" />
+  <img src="Z:/picture/008/save_picture_789212.jpg" />
 </div>
 
 
@@ -269,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789130.jpg" />
+  <img src="Z:/picture/008/save_picture_789130.jpg" />
 </div>
 
 
@@ -295,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788878.jpg" />
+  <img src="Z:/picture/008/save_picture_788878.jpg" />
 </div>
 
 
@@ -321,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788873.jpg" />
+  <img src="Z:/picture/008/save_picture_788873.jpg" />
 </div>
 
 
@@ -347,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_788735.jpg" />
+  <img src="Z:/picture/005/save_picture_788735.jpg" />
 </div>
 
 
@@ -373,7 +482,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 11.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788688.jpg" />
+  <img src="Z:/picture/008/save_picture_788688.jpg" />
 </div>
 
 
@@ -399,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_788522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_788522.jpg" />
 </div>
 
 
@@ -425,7 +534,7 @@ PCRADIO 5.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788447.jpg" />
+  <img src="Z:/picture/008/save_picture_788447.jpg" />
 </div>
 
 
@@ -451,7 +560,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru] (1.9.461/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788428.jpg" />
+  <img src="Z:/picture/008/save_picture_788428.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788391.jpg" />
+  <img src="Z:/picture/008/save_picture_788391.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ Colin McRae Rally 2005 (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788390.jpg" />
+  <img src="Z:/picture/008/save_picture_788390.jpg" />
 </div>
 
 
@@ -529,7 +638,7 @@ XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788244.jpg" />
+  <img src="Z:/picture/008/save_picture_788244.jpg" />
 </div>
 
 
@@ -558,7 +667,7 @@ F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Допол�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788242.jpg" />
+  <img src="Z:/picture/008/save_picture_788242.jpg" />
 </div>
 
 
@@ -570,112 +679,6 @@ F.E.A.R. 2: Project Origin — продолжает популярную сер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203406   (788012) от 02.02.2018
-
-CAS удовлетворил апелляции 28 российских атлетов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_788012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивный арбитражный суд (CAS) в Лозанне удовлетворил апелляции 28 российских атлетов на решение Международного олимпийского комитета (МОК) пожизненно отстранить их от Олимпиад. Об этом сообщается в пресс-релизе суда.CAS проводил разбирательства с 22 по 27 января в открытом режиме. Большинство атлетов было на слушаниях и давало показания. Суд убедился, что в случае (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203328   (787967) от 02.02.2018
-
-Новая ракета «Союз-2.1а» была запущена с использованием нового топлива
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_787967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ракета-носитель "Союз 2.1а" с разгонным блоком "Фрегат" стартовала с космодрома "Восточный" в четверг утром. Ракета полетела на абсолютно новом топливе — нафтиле, экологически безопасном типе углеводородного горючего с применением полимерных присадок.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952345   (787916) от 02.02.2018
-
-Холодное лето пятьдесят третьего … (1988) HDTV [H.264/1080i-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787916.jpg" />
-</div>
-
-
-###  Подробнее
-
-1953 год. В тайге скрывается амнистированная группа уголовников, совершающих одно за другим тяжкие преступления. В поисках еды и средств передвижения они набредают на деревушку, где в ожидании катера находятся двое амнистированных политзаключенных. Этим двоим и предстоит спасти беспомощных жителей от банды рецидивистов. Победу приходится оплатить дорогой ценой.
-Почти (   Читать дальше...   )Производство: МосфильмЖанр: драма, криминал, боевик, триллерРежиссер: Александр ПрошкинАктеры: Валерий Приемыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Борис ПлотниковПродолжительность: 01:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCDB152E5CC315A8017F20B9313850CE386FB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203222   (787904) от 02.02.2018
-
-KMS Tools Portable 01.02.2018 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787904.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F43BBAD9FCB4279E395BCD6132C0FBAF79A55F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

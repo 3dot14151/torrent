@@ -1,3 +1,90 @@
+###  Публикация: 1628900   (241699) от 25.04.2023
+
+Afraid of Destiny - Contra Omnes (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Abyss (03:57)
+02 - Anti (07:54)
+03 - Ramblin' (09:27)
+04 - Breath (06:04)(   Читать дальше...   )Жанр: Atmospheric, Depressive Black MetalПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260D8A957AF34F4E5A6DEF2287677D2F9BADB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546564   (241694) от 24.04.2022
+
+Domkraft - Seeds (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seeds (00:09:15)
+02 - Perpetuator (00:08:43)
+03 - Into Orbit (00:05:12)
+04 - Dawn Of Man (00:04:44)(   Читать дальше...   )Жанр: Psychedelic Sludge MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F5673E596992C905AD2E7AB9C2E33C1FCED0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625517   (241690) от 10.04.2023
+
+Vita Imana - VI (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Coltan (03:46)
+02 - Virtual (03:59)
+03 - Espiral (03:31)
+04 - Ishtar (con Leo Jimenez) (06:02)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57CAE8EABC1C049C1DD87EAD73BAEFD8C8B17C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546282   (241679) от 24.04.2022
 
 Консул - Ночные всадники (2011) Compilation [FLAC|Lossless|image + .cue] <Hard & Heavy Metal>
@@ -6,7 +93,7 @@
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241679.jpg" />
+  <img src="Z:/picture/004/save_picture_241679.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Witherfall - Curse Of Autumn (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241654.jpg" />
+  <img src="Z:/picture/004/save_picture_241654.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Dagoba - By Night (2022) [FLAC|Lossless|tracks + .cue] <Groove Metal, Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241643.jpg" />
+  <img src="Z:/picture/004/save_picture_241643.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241635.jpg" />
+  <img src="Z:/picture/004/save_picture_241635.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241618.jpg" />
+  <img src="Z:/picture/004/save_picture_241618.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Isole - Anesidora (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241611.jpg" />
+  <img src="Z:/picture/004/save_picture_241611.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Impedigon - As Desires Fade... (2001) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241604.jpg" />
+  <img src="Z:/picture/004/save_picture_241604.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Aphotic - Abyssgazer (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241598.jpg" />
+  <img src="Z:/picture/004/save_picture_241598.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Aschmicrosa - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241589.jpg" />
+  <img src="Z:/picture/004/save_picture_241589.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Marauder - Metal Constructions VII (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241588.jpg" />
+  <img src="Z:/picture/004/save_picture_241588.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Arjen Anthony Lucassen's Star One - Revel In Time (2022) 2CD [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241586.jpg" />
+  <img src="Z:/picture/004/save_picture_241586.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Aríht (Ariht)  - As the Leaves Settle (2022) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241578.jpg" />
+  <img src="Z:/picture/004/save_picture_241578.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Asphagor - Pyrogenesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241570.jpg" />
+  <img src="Z:/picture/004/save_picture_241570.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Argion - Lux Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241551.jpg" />
+  <img src="Z:/picture/004/save_picture_241551.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Rezn - Solace (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych Stoner Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241538.jpg" />
+  <img src="Z:/picture/004/save_picture_241538.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Ulcerate - Stare Into Death And Be Still (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241537.jpg" />
+  <img src="Z:/picture/004/save_picture_241537.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Mondocane - Project One (1990) Remastered, 2013 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241524.jpg" />
+  <img src="Z:/picture/004/save_picture_241524.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Celestial Season - Solar Lovers (1995) Remaster, 2020, Burning World Records [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241461.jpg" />
+  <img src="Z:/picture/004/save_picture_241461.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ B.O.S.C.H. - Parasit (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial-Metal, Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241409.jpg" />
+  <img src="Z:/picture/004/save_picture_241409.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ The Curse Within - Heartless (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241405.jpg" />
+  <img src="Z:/picture/004/save_picture_241405.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Azaghal - Alttarimme on Luista Tehty (2023) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241402.jpg" />
+  <img src="Z:/picture/004/save_picture_241402.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Cynthesis - ReEvolution (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241319.jpg" />
+  <img src="Z:/picture/004/save_picture_241319.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241314.jpg" />
+  <img src="Z:/picture/004/save_picture_241314.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Fatal Portrait - Adventum (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85CE819F49B1370EEEA2B84424C9AC2EB2DAAA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386555   (241301) от 30.05.2020
-
-Darking - Steal The Fire (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icarus    					       (05:46)
-02. Steal The Fire     				       (08:06)
-03. Eldorado    				       (06:43)
-04. I'm A Legend    				       (06:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6AD8670277575A1C3C1FFD17BCF94FE35309EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386572   (241296) от 30.05.2020
-
-Kinetic - The Chains That Bind Us (2004) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Nightmare
-02. Realms Of Nightmare
-03. Enganging Web
-04. The Chains That Bind Us Pt I: The NeverEnding Winter(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC4EC00514C589C07B7AE1E9EF30A90C00AEA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386577   (241284) от 30.05.2020
-
-Mortillery - Murder Death Kill (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Murder Death Kill
-02.Sacrifice
-03.Evil Remains
-04.Fritzl's Cellar(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7903C25EDDE83955CFDACF934AC1D465EDCFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

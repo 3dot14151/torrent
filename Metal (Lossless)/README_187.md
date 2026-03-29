@@ -1,3 +1,90 @@
+###  Публикация: 1422874   (306162) от 10.11.2020
+
+After Forever - After Forever (2007) Japanese Edition [FLAC|Lossless|tracks + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discord (4:37)
+02. Evoke (4:24)
+03. Transitory (3:29)
+04. Energize Me (3:10)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7530C2BAB34F4026AF3B930FC13B9C1F28987ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422916   (306150) от 10.11.2020
+
+Ad Infinitum - Chapter I: Monarchy (2020) Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected Monarchy (5:46)
+02. Marching on Versailles (3:51)
+03. Maleficent (3:51)
+04. See You In Hell (3:50)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 0:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B528B046E150CC93DE4524EFE0F78851875243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261306   (305686) от 10.11.2018
+
+Drakkar - Diabolical Empathy (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Arrival
+02 Rose Hall's Great House
+03 Stigmata
+04 The Witches Dance(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B681F8C133AC3296498D938F6177F845E0DD662E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261286   (305685) от 10.11.2018
 
 Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Khorada - Salt (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305685.jpg" />
+  <img src="Z:/picture/008/save_picture_305685.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Unholy - Rapture (1998) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305684.jpg" />
+  <img src="Z:/picture/008/save_picture_305684.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lindemann - Ich weiß es nicht (2019) Single [FLAC|Lossless|Web-DL|tracks] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305267.jpg" />
+  <img src="Z:/picture/008/save_picture_305267.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304409.jpg" />
+  <img src="Z:/picture/008/save_picture_304409.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ Sepsism - To Prevail In Disgust (2003) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304408.jpg" />
+  <img src="Z:/picture/008/save_picture_304408.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Wuthering Heights - The Shadow Cabinet (2006) 2CD [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304406.jpg" />
+  <img src="Z:/picture/008/save_picture_304406.jpg" />
 </div>
 
 
@@ -176,7 +263,7 @@ Amatris - Imprisoned (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303498.jpg" />
+  <img src="Z:/picture/008/save_picture_303498.jpg" />
 </div>
 
 
@@ -205,7 +292,7 @@ The Last Ten Seconds Of Life - The Violent Sound (2016) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302998.jpg" />
+  <img src="Z:/picture/008/save_picture_302998.jpg" />
 </div>
 
 
@@ -234,7 +321,7 @@ Soijl - Endless Elysian Fields (2015) [FLAC|Lossless|image + .cue] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302623.jpg" />
+  <img src="Z:/picture/008/save_picture_302623.jpg" />
 </div>
 
 
@@ -263,7 +350,7 @@ Soijl - As The Sun Sets On Life (2017) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302618.jpg" />
+  <img src="Z:/picture/008/save_picture_302618.jpg" />
 </div>
 
 
@@ -292,7 +379,7 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302617.jpg" />
+  <img src="Z:/picture/008/save_picture_302617.jpg" />
 </div>
 
 
@@ -321,7 +408,7 @@ Clouds - Durere (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302425.jpg" />
+  <img src="Z:/picture/008/save_picture_302425.jpg" />
 </div>
 
 
@@ -350,7 +437,7 @@ Visceral Disgorge - Slithering Evisceration (2019) [WavPack|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301594.jpg" />
+  <img src="Z:/picture/008/save_picture_301594.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ Soilwork - Feverish (2019) Single [FLAC|Lossless|Web-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301589.jpg" />
+  <img src="Z:/picture/008/save_picture_301589.jpg" />
 </div>
 
 
@@ -406,7 +493,7 @@ Ghost Ship Octavius - Delirium (2018) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301587.jpg" />
+  <img src="Z:/picture/008/save_picture_301587.jpg" />
 </div>
 
 
@@ -435,7 +522,7 @@ Space Avenue - Voices From The Other Worlds (2006) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301582.jpg" />
+  <img src="Z:/picture/008/save_picture_301582.jpg" />
 </div>
 
 
@@ -464,7 +551,7 @@ Unleashed - Where No Life Dwells / And the Laughter Has Died... (1991) [FLAC|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301416.jpg" />
+  <img src="Z:/picture/008/save_picture_301416.jpg" />
 </div>
 
 
@@ -493,7 +580,7 @@ Manimal - Purgatorio (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301294.jpg" />
+  <img src="Z:/picture/008/save_picture_301294.jpg" />
 </div>
 
 
@@ -522,7 +609,7 @@ A Dying Planet - Facing The Incurable (2018) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301286.jpg" />
+  <img src="Z:/picture/008/save_picture_301286.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ Dio - Sacred Heart (1985) Japanese Edition [FLAC|image + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301239.jpg" />
+  <img src="Z:/picture/008/save_picture_301239.jpg" />
 </div>
 
 
@@ -580,7 +667,7 @@ Tarja - From Spirits and Ghosts (Score for a Dark Christmas) (2017) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301184.jpg" />
+  <img src="Z:/picture/008/save_picture_301184.jpg" />
 </div>
 
 
@@ -609,7 +696,7 @@ Alcest - Spiritual Instinct (2019) [FLAC|Lossless|Web-DL|tracks] <Post-Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301156.jpg" />
+  <img src="Z:/picture/008/save_picture_301156.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300965.jpg" />
+  <img src="Z:/picture/008/save_picture_300965.jpg" />
 </div>
 
 
@@ -652,93 +739,6 @@ Queensryche - Empire  (1990) Remastered, 2000, DCC Compact Classics ‎[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA25AA6EA1FB85D86AA04198621374EE630BB150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423353   (300760) от 13.11.2020
-
-Vernissage - Intensiv (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Augenzeugen
-02. Pathetic
-03. Hypocrite
-04. Cold Surprise(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474216546BE95F3736C794F37C884E2771B51F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423340   (300759) от 13.11.2020
-
-Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape
-02. Stigmata
-03. Self Proclaimed Messiah
-04. Ulterior Quest(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3145572D124A8577204653F4EA823F15B245B890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423356   (300756) от 13.11.2020
-
-Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Light Disappears
-02. You Can't Kill Me
-03. A New Millennium
-04. Come Back To Me(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F5CBCEB16C548C45E9DA48BD591836A6DA51F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

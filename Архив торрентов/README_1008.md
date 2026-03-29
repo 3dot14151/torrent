@@ -6,7 +6,7 @@ Wasteland Remastered (2020) [Ru/Multi] (1.18) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816592.jpg" />
+  <img src="Z:/picture/008/save_picture_816592.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Santiago Nino - From Scratch (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816566.jpg" />
+  <img src="Z:/picture/008/save_picture_816566.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816561.jpg" />
+  <img src="Z:/picture/008/save_picture_816561.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cumulative Update KB4016635 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816546.jpg" />
+  <img src="Z:/picture/008/save_picture_816546.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cumulative Update KB4016637 for Windows 10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816545.jpg" />
+  <img src="Z:/picture/008/save_picture_816545.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Wire 2.12.2729 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816542.jpg" />
+  <img src="Z:/picture/008/save_picture_816542.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Chrome Cleanup 17.97.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816541.jpg" />
+  <img src="Z:/picture/008/save_picture_816541.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ JetBrains DataGrip 2017.1 Build #DB-171.3780.102 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816537.jpg" />
+  <img src="Z:/picture/008/save_picture_816537.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816535.jpg" />
+  <img src="Z:/picture/008/save_picture_816535.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816533.jpg" />
+  <img src="Z:/picture/008/save_picture_816533.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816524.jpg" />
+  <img src="Z:/picture/008/save_picture_816524.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Acoustica Mixcraft Pro Studio 7.1.264 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816521.jpg" />
+  <img src="Z:/picture/008/save_picture_816521.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Pillars of Eternity (2015) [Ru/Multi] (1.0.2.0508/dlc) Repack R.G. Revenants [Ro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816507.jpg" />
+  <img src="Z:/picture/008/save_picture_816507.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816485.jpg" />
+  <img src="Z:/picture/008/save_picture_816485.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816484.jpg" />
+  <img src="Z:/picture/008/save_picture_816484.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Form Pilot Office 2.53 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816481.jpg" />
+  <img src="Z:/picture/008/save_picture_816481.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816478.jpg" />
+  <img src="Z:/picture/008/save_picture_816478.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816477.jpg" />
+  <img src="Z:/picture/008/save_picture_816477.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DaVinci Resolve Studio 12.5.5 + easyDCP CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816476.jpg" />
+  <img src="Z:/picture/008/save_picture_816476.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816467.jpg" />
+  <img src="Z:/picture/008/save_picture_816467.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816451.jpg" />
+  <img src="Z:/picture/008/save_picture_816451.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816445.jpg" />
+  <img src="Z:/picture/008/save_picture_816445.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Teenage Mutant Ninja Turtles - The Hyperstone Heist / TMNT / Черепашки 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816438.jpg" />
+  <img src="Z:/picture/008/save_picture_816438.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Dreamfall Chapters (2014) [En] (1.0) Repack R.G. Механики [Book One: Reb
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816430.jpg" />
+  <img src="Z:/picture/008/save_picture_816430.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Piano / Фортепиано [2002, TV, 10 из 10] DVDRip raw + rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816411.jpg" />
+  <img src="Z:/picture/008/save_picture_816411.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816402.jpg" />
+  <img src="Z:/picture/008/save_picture_816402.jpg" />
 </div>
 
 

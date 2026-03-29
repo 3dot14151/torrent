@@ -1,3 +1,148 @@
+###  Публикация: 1486472   (1004702) от 31.07.2021
+
+Chris Rea - Stony Road (2002) 2CD [FLAC|Lossless|tracks + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Is Rising
+02. Got To Be Moving On
+03. Ain't Going Down This Way
+04. Catfish Girl(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9452D86AA3C4369C4E15781999C59F4691284EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486614   (1004557) от 01.08.2021
+
+George Harrison - All Things Must Pass (1970) 50th Anniversary Releases, Super Deluxe, 2021, Capitol [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isn’t It A Pity (Take 14) [00:00:53]
+02. Wah-Wah (Take 1) [00:05:55]
+03. I’d Have You Anytime (Take 5) [00:02:48]
+04. Art Of Dying (Take 1) [00:04:01](   Читать дальше...   )Жанр: RockПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F346BA4EA763F7E5FE821A6B33C966022DBA83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486817   (1004385) от 02.08.2021
+
+Chris Rosander - King of Hearts (2020) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Online (4:54)
+02. She's A Killer (3:53)
+03. Don't Look Back (4:46)
+04. Angelina (4:24)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4759CDA7BFF4C88374EFBD8E500F9403E12BD8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486914   (1004380) от 02.08.2021
+
+Nth Ascension - Stranger Than Fiction (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004380.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Opening (5:59)
+2. True Identity (5:26)
+3. Fire in the Sky (7:51)
+4. Reconciled (10:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEB41239D94983BB79F8C90941CF128708F1457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349713   (1004310) от 02.01.2020
+
+Barrock - Oxian (1994) [FLAC|Lossless|image + .cue] <RPI>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fuga Sul Tema Di Oxian (1:35)
+2. Profughi
+  a) Intro (1:55)
+  b) Oltre I Monti (5:28)(   Читать дальше...   )Жанр: RPIПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610BC7EAFA848D3228336289117B95386323A1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349650   (1004226) от 02.01.2020
 
 Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Folk, Country>
@@ -6,7 +151,7 @@ Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004226.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Anekdoten - Until All the Ghosts Are Gone (2015) [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004143.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Steamboat Band - Runners And Riders (1995) [FLAC|Lossless]<Rock, Alternative
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003831.jpg" />
 </div>
 
 
@@ -90,7 +235,7 @@ Queen - Live At The Rainbow '74 (1974) 2xCD, SHM-CD, Japanese Edition, Reissue, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003372.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ The Troggs - From Nowhere (1966) 1989, DJM Records [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003332.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Mayank - Mayank (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003314.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ Toxenaris - Apoptosis (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002767.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ VA - Soft Rock Sunday (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002730.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Chris Rea - One Fine Day (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002677.jpg" />
 </div>
 
 
@@ -265,7 +410,7 @@ Gerry Rafferty - Life Goes On (2009) [FLAC|Lossless|WEB-DL|tracks] <Soft rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002059.jpg" />
 </div>
 
 
@@ -294,7 +439,7 @@ Nolan Potter's Nightmare Band - Nightmare Forever (2019) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001991.jpg" />
 </div>
 
 
@@ -323,7 +468,7 @@ Il Buco Del Baco - Sotto Il Segno Della Lampreda (2021) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001759.jpg" />
 </div>
 
 
@@ -352,7 +497,7 @@ Paul McCartney - McCartney III (2020) 2021 Deluxe Edition [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001746.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ The Who - MFSL Gold Discs Collection: 5 Albums (1969-1978) Reissue 1990-1999 / M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001107.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ Eagles - The Complete Greatest Hits (2003) 2xCD [FLAC|Lossless]<Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999911.jpg" />
 </div>
 
 
@@ -436,7 +581,7 @@ Black Cat Bones - Barbed Wire Sandwich (1969) [FLAC|Lossless]<Heavy Blues-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999645.jpg" />
 </div>
 
 
@@ -462,7 +607,7 @@ Shocking Blue - Very Best of Collected (2011) 2CD Box Set / RED BULLET / [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999282.jpg" />
 </div>
 
 
@@ -488,7 +633,7 @@ Billy Joel - Piano Man (1973) Hybrid SACD /2010, MFSL/ [FLAC|Lossless]<Soft-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998560.jpg" />
 </div>
 
 
@@ -523,7 +668,7 @@ Roger Waters - The Wall - Live in Berlin (1990) 2CD Box Set / PolyGram / [WavPac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998263.jpg" />
 </div>
 
 
@@ -550,7 +695,7 @@ Don Felder - Road To Forever (2012) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997827.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Supertramp - 12 альбомов (1970-2002) неремастеры [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997119.jpg" />
 </div>
 
 
@@ -595,171 +740,6 @@ Supertramp - 12 альбомов (1970-2002) неремастеры [FLAC|Lossle
 1970 - Supertramp
 1971 - Indelibly Stamped
 1974 - Crime Of The Century(   Читать дальше...   )Supertramp (супертрэмп) — британская рок-группа, чью музыку относят к направлениям прогрессивный рок и поп-рок. Образована Риком Дэвисом и Роджером Ходжсоном в 1969 году.Жанр: Progressive Rock |Продолжительность: 10:03:41 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603867   (996709) от 16.01.2013
-
-Paul Kossoff - Back Street Crawler (1973) Deluxe edition /2008, Island Records/ [FLAC|Lossless]<Blues rock, Hard rock, Jam rock, Instrumental rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Ready [05:44]
-02. The Lady Is a Tramp [01:25]
-03. I'm Ready [06:17]
-04. May You Never [04:25]
-05. Leslie Jam [03:32]
-06. Time Away [38:22:00]
-07. Molton Gold (Burnin') #1 [05:55]
-08. Molton Gold (Burnin') #2 [06:12]
-09. Back Street CrawlerЖанр: Blues rock, Hard rock, Jam rock, Instrumental rockПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605242   (995768) от 19.01.2013
-
-Steve Lukather (ex.Toto) - Transition (2013) [FLAC|Lossless]< Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement Day (7:17)
-02. Creep Motel (5:46)
-03. Once Again (4:57)
-04. Right the Wrong (6:20)
-05. Transition (5:32)
-06. Last Man Standing (5:21)
-07. Do I Stand Alone (4:10)
-08. Rest of the World (4:01)
-09. Smile (2:31)Жанр: RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605482   (995582) от 20.01.2013
-
-Donald Fagen - Sunken Condos (2012) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slinky Thing [05:12]
-02. I'm Not The Same Without You [04:32]
-03. Memorabilia [04:15]
-04. Weather In My Head [05:29]
-05. The New Breed [04:36]
-06. Out Of The Ghetto [04:55]
-07. Miss Marlene [04:44]
-08. Good Stuff [04:55]
-09. Planet D'rhonda [05:36]Жанр: RockПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605892   (995540) от 20.01.2013
-
-Riverside - Shrine Of The New Generation Slaves (2CD, Limited Edition) (2013) [FLAC (tracks+.cue)|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995540.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD:Жанр: Progressive RockПродолжительность: 00:50:58
-01. New Generation Slave
-02. The Depth of Self-Delusion
-03. Celebrity Touch
-04. We Got Used To Us
-05. Feel Like Falling
-06. Deprived (Irretrievably Lost Imagination)
-07. Escalator Shrine
-08. Coda
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430716   (993616) от 02.01.2012
-
-Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape Of My Heart (4:37)
-02. Fragile (3:55)
-03. Fields Of Gold (3:40)
-04. Moon Over Bourbon Street (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:55
 
 ## Скачать торент
 ```bash

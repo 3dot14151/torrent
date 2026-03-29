@@ -1,3 +1,29 @@
+###  Публикация: 822266   (230021) от 17.12.2014
+
+NARUTO SHIPPUDEN Ultimate Ninja STORM Revolution (2014) [Ru/Multi] (1.0.0.0 upd2/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Naruto Shippuden: Ultimate Ninja Storm Revolution PC – игра на компьютер с видом от третьего лица, где вам предстоит пережить, играя за своих любых персонажей сюжетную историю. Среди особенностей игры можно выделить: нерассказанные в аниме истории об Акацуки, Мировой турнир за звание сильнейшего ниндзя, новые групповые комбо и команды, более сотни игровых персонажей, (   Читать дальше...   )Тип издания: SteamRipРазработчик: CyberConnect2 Co., Ltd.Жанр: Arcade (Fighting) / 3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Бразильский ПортугальскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Польский, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC43D2A5E2A8AC761261FE186744859CADED207B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268119   (228910) от 09.12.2018
 
 My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
@@ -6,7 +32,7 @@ My Memory of Us (2018) [Ru/Multi] (1.3057) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228910.jpg" />
+  <img src="Z:/picture/004/save_picture_228910.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Trifox (2022) [Multi] (1.0.0.7) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227100.jpg" />
+  <img src="Z:/picture/005/save_picture_227100.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227057.jpg" />
+  <img src="Z:/picture/005/save_picture_227057.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225874.jpg" />
+  <img src="Z:/picture/005/save_picture_225874.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225009.jpg" />
+  <img src="Z:/picture/005/save_picture_225009.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ God's Trigger (2019) [Ru/Multi] (1.2.58760) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224613.jpg" />
+  <img src="Z:/picture/005/save_picture_224613.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223108.jpg" />
+  <img src="Z:/picture/005/save_picture_223108.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Helldivers (2015) [Ru/Multi] (Build 901447/dlc) SteamRip Let'sРlay [Digital Del
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221309.jpg" />
+  <img src="Z:/picture/005/save_picture_221309.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221301.jpg" />
+  <img src="Z:/picture/005/save_picture_221301.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Inside (2016) [Ru/Multi] (1.0/u10) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219426.jpg" />
+  <img src="Z:/picture/005/save_picture_219426.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) SteamRip Let'sРla
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217105.jpg" />
+  <img src="Z:/picture/005/save_picture_217105.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Evoland 2 (2015) [En/Multi] (1.0.9135) SteamRip Let'sРlay [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217065.jpg" />
+  <img src="Z:/picture/005/save_picture_217065.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216897.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216573.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ World's End Club (2021) [Ru/Multi] (0.0.0+hotfix) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214909.jpg" />
+  <img src="Z:/picture/005/save_picture_214909.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Magicka 2 (2015) [Ru/Multi] (1.2.0.0/dlc) Repack R.G. Механики [Deluxe E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214864.jpg" />
+  <img src="Z:/picture/005/save_picture_214864.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.5) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214824.jpg" />
+  <img src="Z:/picture/005/save_picture_214824.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Solar Ash (2021) [Ru/Multi] (1.03.44179) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214676.jpg" />
+  <img src="Z:/picture/005/save_picture_214676.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214604.jpg" />
+  <img src="Z:/picture/005/save_picture_214604.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214220.jpg" />
+  <img src="Z:/picture/005/save_picture_214220.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213496.jpg" />
+  <img src="Z:/picture/005/save_picture_213496.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Mari and Bayu - The Road Home (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212279.jpg" />
+  <img src="Z:/picture/005/save_picture_212279.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Shing! (2020) [Ru/Multi] (2.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209928.jpg" />
+  <img src="Z:/picture/005/save_picture_209928.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Edge Of Galaxy (2021) [Ru/En] (1.29) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209900.jpg" />
+  <img src="Z:/picture/005/save_picture_209900.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209630.jpg" />
+  <img src="Z:/picture/005/save_picture_209630.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBE49B8C6BFC94EE5E80A7FB4C456AE9C938290F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609889   (208130) от 05.02.2023
-
-Rhythm Sprout: Sick Beats & Bad Sweets (2023) [Ru/Multi] (1.005b) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhythm Sprout: Sick Beats & Bad Sweets - это увлекательная ритм-игра с красочной вселенной, где обитают самые необычные овощные существа. В качестве отборного Лучка отправляйтесь навстречу долгожданным приключениям и приготовьтесь не только обзавестись друзьями, но и столкнуться с опасными противниками. К счастью, ваш меч и убойные биты позволят влегкую справиться (   Читать дальше...   )Тип издания: LicenseРазработчик: SURTЖанр: Приключeние, АркадаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA615BEAD1C107FABE224BEAFA5296DF3B748AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

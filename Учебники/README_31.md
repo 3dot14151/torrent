@@ -1,3 +1,55 @@
+###  Публикация: 1522057   (761776) от 05.01.2022
+
+Б.Ю. Васильев | Автоматизированный электропривод машин и установок горного производства [2 тома] (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761776.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первом томе учебника рассмотрены история развития автоматизированного электропривода, общие сведения об электроприводах, основные вопросы механики, энергетики и совместимости электропривода. Рассмотрены преобразователи частоты автоматизированных электроприводов различных структур, а также основные типы модуляционных систем управления: системы фазной, синусоидальной, (   Читать дальше...   )Жанр: Горное дело, электроприводыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3AF166EDF64061FD85962DAD096DD1714BC77A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522019   (761774) от 05.01.2022
+
+С.М. Кривель | Динамика полета. Расчет летно-технических и пилотажных характеристик самолета (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761774.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии в краткой форме изложена методика приближенного расчета летно-технических характеристик самолета и оценки его пилотажных свойств, предлагается простой расчетный метод выбора параметров автоматической системы управления самолетом (обеспечения устойчивости и управляемости), обеспечивающих заданные пилотажные характеристики самолета. Изложенная методика прошла (   Читать дальше...   )Жанр: СамолетостроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9D2198E9765B5DB7081395A4DF064DB06F1001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522028   (761765) от 05.01.2022
 
 Б.Т. Мазуров | Высшая геодезия (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761765.jpg" />
+  <img src="Z:/picture/008/save_picture_761765.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761276.jpg" />
+  <img src="Z:/picture/008/save_picture_761276.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760055.jpg" />
+  <img src="Z:/picture/008/save_picture_760055.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760042.jpg" />
+  <img src="Z:/picture/008/save_picture_760042.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759928.jpg" />
+  <img src="Z:/picture/008/save_picture_759928.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759623.jpg" />
+  <img src="Z:/picture/008/save_picture_759623.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759306.jpg" />
+  <img src="Z:/picture/008/save_picture_759306.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758377.jpg" />
+  <img src="Z:/picture/005/save_picture_758377.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758368.jpg" />
+  <img src="Z:/picture/008/save_picture_758368.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758240.jpg" />
+  <img src="Z:/picture/008/save_picture_758240.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756518.jpg" />
+  <img src="Z:/picture/008/save_picture_756518.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756343.jpg" />
+  <img src="Z:/picture/008/save_picture_756343.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756226.jpg" />
+  <img src="Z:/picture/008/save_picture_756226.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756219.jpg" />
+  <img src="Z:/picture/008/save_picture_756219.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754607.jpg" />
+  <img src="Z:/picture/008/save_picture_754607.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753283.jpg" />
+  <img src="Z:/picture/008/save_picture_753283.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753277.jpg" />
+  <img src="Z:/picture/008/save_picture_753277.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753158.jpg" />
+  <img src="Z:/picture/008/save_picture_753158.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750942.jpg" />
+  <img src="Z:/picture/008/save_picture_750942.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750117.jpg" />
+  <img src="Z:/picture/008/save_picture_750117.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748294.jpg" />
+  <img src="Z:/picture/008/save_picture_748294.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748157.jpg" />
+  <img src="Z:/picture/008/save_picture_748157.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747626.jpg" />
+  <img src="Z:/picture/008/save_picture_747626.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746610.jpg" />
+  <img src="Z:/picture/008/save_picture_746610.jpg" />
 </div>
 
 
@@ -633,58 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A4B9F25199C684E73FD557460A81F0BC973D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019643   (746600) от 25.05.2016
-
-О.С. Комаров (ред.) | Материаловедение и технология конструкционных материалов (2009) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник является третьим изданием учебника «Технология конструкционных материалов». Даны основные сведения о материаловедении черных и цветных металлов. Описаны традиционные способы обработки металлов (термическая, литьем, давлением, сваркой, резанием, электрохимическая, электрофизическая). Подробно рассмотрены новые технологические методы получения и обработки (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62DDEF982749582226F23F548B80591BBA8AFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019914   (746344) от 25.05.2016
-
-М.А. Жаворонков, А.В. Кузин | Электротехника и электроника (2010) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные понятия теории электричества. Приведены анализ и методы расчета однофазных и трехфазных электрических цепей; переходных процессов в электрических цепях, нелинейных и магнитных цепей. Даны основы теории электрических трансформаторов и электрических машин, их основные характеристики, а также основы электропривода и электроснабжения. Рассмотрены (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CE89E5CD3BEF7BC4259D78B719CB02D3854949
 ```
 
 https://mybot314.ru/tekegram_catalog/

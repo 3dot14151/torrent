@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719505.jpg" />
+  <img src="Z:/picture/008/save_picture_719505.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967) remaster /2012, Audio Fidelity/ [F
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719496.jpg" />
+  <img src="Z:/picture/005/save_picture_719496.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719493.jpg" />
+  <img src="Z:/picture/008/save_picture_719493.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MediaMonkey Gold 4.1.7.1741 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719489.jpg" />
+  <img src="Z:/picture/008/save_picture_719489.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719485.jpg" />
+  <img src="Z:/picture/008/save_picture_719485.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PingPlotter Pro 5.0.14.1456 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719464.jpg" />
+  <img src="Z:/picture/008/save_picture_719464.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719461.jpg" />
+  <img src="Z:/picture/008/save_picture_719461.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719460.jpg" />
+  <img src="Z:/picture/008/save_picture_719460.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PIDKey 2.1.1 build 1001 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719454.jpg" />
+  <img src="Z:/picture/008/save_picture_719454.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cryptic Disk Pro v3.0.29.569 + Portable [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719415.jpg" />
+  <img src="Z:/picture/005/save_picture_719415.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Middle 1.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719412.jpg" />
+  <img src="Z:/picture/008/save_picture_719412.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Privatus 6.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719411.jpg" />
+  <img src="Z:/picture/008/save_picture_719411.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Translatium 13.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719406.jpg" />
+  <img src="Z:/picture/008/save_picture_719406.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Downie 4 v4.1.1 (Build 4143) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719398.jpg" />
+  <img src="Z:/picture/008/save_picture_719398.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Get Backup Pro 3 v3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719394.jpg" />
+  <img src="Z:/picture/008/save_picture_719394.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Emsisoft Emergency Kit 2018.3.1.8572 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719393.jpg" />
+  <img src="Z:/picture/008/save_picture_719393.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Opera 52.0.2871.64 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719391.jpg" />
+  <img src="Z:/picture/008/save_picture_719391.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ O&O DiskImage Professional 12.1 Build 149 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719389.jpg" />
+  <img src="Z:/picture/008/save_picture_719389.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ BluffTitler Ultimate 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719385.jpg" />
+  <img src="Z:/picture/008/save_picture_719385.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Daum PotPlayer 1.7.10667 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719380.jpg" />
+  <img src="Z:/picture/008/save_picture_719380.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Opera 52.0.2871.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719377.jpg" />
+  <img src="Z:/picture/008/save_picture_719377.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719365.jpg" />
+  <img src="Z:/picture/008/save_picture_719365.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Stellarium 0.13.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719350.jpg" />
+  <img src="Z:/picture/008/save_picture_719350.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719331.jpg" />
+  <img src="Z:/picture/008/save_picture_719331.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719327.jpg" />
+  <img src="Z:/picture/008/save_picture_719327.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ WinPE8.0 (x86/Native x86) WinPE10 (x64) Sergei Strelec 2016.06.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719326.jpg" />
+  <img src="Z:/picture/008/save_picture_719326.jpg" />
 </div>
 
 

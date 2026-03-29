@@ -1,3 +1,56 @@
+###  Публикация: 1299089   (599205) от 01.05.2019
+
+Влад Воронов | Земля лишних. Однокласснички (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжела жизнь простого русского хакера! Не успел Влад Воронов добыть 500 тысяч долларов со счета известного международного банка, как буквально через день проснулся в уютной камере. Однако Орден, взявший его на горячем, – не ФСБ и не ЦРУ. Теперь Владу предстоит не только заниматься привычным делом, работая на новых хозяев, но и переехать в Новый Мир.
+А так как тяга (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A8AE6F223DD6484569729AD40089FF8A29C9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232651   (598373) от 25.06.2018
+
+Андрей Ангелов | Театр мистера Фэйса (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь театральной сценой служит весь Лос-Анджелес, а режиссером выступает мистер Фэйс – циничный киллер. Его театр гениален по сути, кровав по исполнению и основан на философии гипербореев. Перформансы мучительной смерти, немотивированных убийств и кровавого распутства – все это театр мистера Фэйса…Жанр: Триллеры, УжасыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA522604C3521CDA888A63DACDE902977DBC94CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232603   (598223) от 25.06.2018
 
 Дарья Чеболь | Меняю на нового… или Обмен по-русски (2018) [FB2]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598223.jpg" />
+  <img src="Z:/picture/008/save_picture_598223.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598222.jpg" />
+  <img src="Z:/picture/008/save_picture_598222.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598155.jpg" />
+  <img src="Z:/picture/008/save_picture_598155.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598151.jpg" />
+  <img src="Z:/picture/008/save_picture_598151.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598058.jpg" />
+  <img src="Z:/picture/008/save_picture_598058.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598056.jpg" />
+  <img src="Z:/picture/008/save_picture_598056.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598050.jpg" />
+  <img src="Z:/picture/008/save_picture_598050.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597997.jpg" />
+  <img src="Z:/picture/008/save_picture_597997.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597918.jpg" />
+  <img src="Z:/picture/008/save_picture_597918.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597858.jpg" />
+  <img src="Z:/picture/008/save_picture_597858.jpg" />
 </div>
 
 
@@ -281,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597741.jpg" />
+  <img src="Z:/picture/008/save_picture_597741.jpg" />
 </div>
 
 
@@ -309,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597734.jpg" />
+  <img src="Z:/picture/008/save_picture_597734.jpg" />
 </div>
 
 
@@ -337,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597729.jpg" />
+  <img src="Z:/picture/008/save_picture_597729.jpg" />
 </div>
 
 
@@ -366,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597726.jpg" />
+  <img src="Z:/picture/008/save_picture_597726.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597723.jpg" />
+  <img src="Z:/picture/008/save_picture_597723.jpg" />
 </div>
 
 
@@ -421,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597562.jpg" />
+  <img src="Z:/picture/008/save_picture_597562.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597527.jpg" />
+  <img src="Z:/picture/008/save_picture_597527.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597502.jpg" />
+  <img src="Z:/picture/008/save_picture_597502.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597237.jpg" />
+  <img src="Z:/picture/008/save_picture_597237.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597153.jpg" />
+  <img src="Z:/picture/008/save_picture_597153.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597141.jpg" />
+  <img src="Z:/picture/008/save_picture_597141.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597064.jpg" />
+  <img src="Z:/picture/008/save_picture_597064.jpg" />
 </div>
 
 
@@ -611,13 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596537.jpg" />
+  <img src="Z:/picture/008/save_picture_596537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿Когда дракон — Повелитель Морей и Дождей находит свою жемчужину, то взлетает в небо. Человеку же для того, чтобы взлететь, надо найти любовь, а сделать это сложнее, чем отважной ныряльщице отыскать драконий жемчуг в глубоких и опасных водах морей, омывающих Страну утренней свежести.
+Когда дракон — Повелитель Морей и Дождей находит свою жемчужину, то взлетает в небо. Человеку же для того, чтобы взлететь, надо найти любовь, а сделать это сложнее, чем отважной ныряльщице отыскать драконий жемчуг в глубоких и опасных водах морей, омывающих Страну утренней свежести.
 
 Однажды юную ныряльщицу судьба столкнула со ссыльным аристократом, сыном (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
 
@@ -639,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596329.jpg" />
+  <img src="Z:/picture/008/save_picture_596329.jpg" />
 </div>
 
 
@@ -652,63 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B070EDCF58BD80B70D63EB2259CA42A2D81CEC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232814   (596252) от 26.06.2018
-
-Анна Одувалова | Избранница зимы (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Академия отверженных».
-
-Я совершила ошибку. Не первую в своей жизни, но за нее меня ждет жестокая расплата: учеба в Академии от­вер­женных. Мне предстоит провести здесь три года, и только тогда меня выпустят «из заключения», если, конечно, я останусь жива.
-(   Читать дальше...   )Жанр: Книги про волшебников, Магические академииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E1B7FE81A64D1D64E302F37119421336E739EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232812   (596248) от 26.06.2018
-
-Дарья Сорокина | Шпаргалка для некроманта (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приквел романа «Педагогика для некроманта».
-
-Натт Мёрке некромант. Своему дару она не рада, ведь у адептов смерти почти не бывает друзей, да и врагов тоже. Единственные, кто окружает таких магов, это жадные до власти демоны и одержимые духи. Еще меньше девушке хочется обучаться своему ремеслу, но без хорошего наставника судьба некроманта предрешена. Сможет ли юная (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, Магические академииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0DA539BCF3CAC187917D17BDD8CC72A70C2853
 ```
 
 https://mybot314.ru/tekegram_catalog/

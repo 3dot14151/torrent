@@ -1,3 +1,29 @@
+###  Публикация: 478731   (468164) от 06.09.2020
+
+Дети-ниндзя / Ninja Kids (Nintama Rantaro) (2011) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рантаро родился в низшем сословии ниндзя. Однако его родители надеются, что когда-нибудь, он сможет стать элитным ниндзя, чтобы семья могла гордиться им. Оправдывая ожидания своих родителей, он поступает в Академию Ниндзя. Там он подружился с Шинбе, ребенком из богатой семьи торговцев и Киримару, который потерял отца во время войны. Студентов в Академии ниндзя называют (   Читать дальше...   )Производство: Япония, Amuse Soft Entertainment K.K., Dentsu, King Record Co. Ltd., Movic Inc., NHK, Warner Bros.Жанр: Боевик, драмаРежиссер: Такаси МиикеАктеры: Шидо Накамура, Наото Такэнака, Хироки Мацуката, Микидзиро Хира, Сусуму Тэрадзима, Реи Дэн, Сэйсиро Като, Такахиро Миура, Такуя МидзогутиПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411592F335311F8F61193A6E73D211BAC53AC928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407341   (466406) от 07.09.2020
 
 Осень в семействе Кохаягава / Kohayagawa-ke no aki / The End of Summer (1961) WEB-DLRip [MVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466406.jpg" />
+  <img src="Z:/picture/008/save_picture_466406.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463912.jpg" />
+  <img src="Z:/picture/008/save_picture_463912.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463837.jpg" />
+  <img src="Z:/picture/008/save_picture_463837.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461685.jpg" />
+  <img src="Z:/picture/008/save_picture_461685.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460931.jpg" />
+  <img src="Z:/picture/008/save_picture_460931.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459491.jpg" />
+  <img src="Z:/picture/008/save_picture_459491.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459323.jpg" />
+  <img src="Z:/picture/008/save_picture_459323.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458648.jpg" />
+  <img src="Z:/picture/008/save_picture_458648.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455750.jpg" />
+  <img src="Z:/picture/008/save_picture_455750.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455411.jpg" />
+  <img src="Z:/picture/008/save_picture_455411.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452189.jpg" />
+  <img src="Z:/picture/008/save_picture_452189.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_448616.jpg" />
+  <img src="Z:/picture/005/save_picture_448616.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448590.jpg" />
+  <img src="Z:/picture/008/save_picture_448590.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448020.jpg" />
+  <img src="Z:/picture/008/save_picture_448020.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447364.jpg" />
+  <img src="Z:/picture/008/save_picture_447364.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446294.jpg" />
+  <img src="Z:/picture/008/save_picture_446294.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445709.jpg" />
+  <img src="Z:/picture/008/save_picture_445709.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_445574.jpg" />
+  <img src="Z:/picture/005/save_picture_445574.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443718.jpg" />
+  <img src="Z:/picture/008/save_picture_443718.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442865.jpg" />
+  <img src="Z:/picture/008/save_picture_442865.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440639.jpg" />
+  <img src="Z:/picture/008/save_picture_440639.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439330.jpg" />
+  <img src="Z:/picture/008/save_picture_439330.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438424.jpg" />
+  <img src="Z:/picture/008/save_picture_438424.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437492.jpg" />
+  <img src="Z:/picture/008/save_picture_437492.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437342.jpg" />
+  <img src="Z:/picture/008/save_picture_437342.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E5431340DFC991D94B30D1A03A639A0A046F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554460   (436131) от 01.10.2012
-
-38-я параллель / Taegeukgi hwinalrimyeo / Tae Guk Gi: The Brotherhood of War (2004) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436131.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фоне трагических событий корейской войны 1950—53 годов — самой кровопролитной после окончания Второй мировой, показана судьба одной семьи. Мирное благополучие, счастливые ожидания, мечты и надежды рушатся в единый миг, когда страну охватывает хаос и ужас войны. Под грохот танков, свист пуль и разрывы бомб главный герой фильма Джин-тае пытается спасти своих близких, (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: Боевик, Драма, Военный, ИсторическийРежиссер: Чже-Гю КенгАктеры: Чан Дон Гон, Бин Вон, Юн-чу Ли, Хен-чжин Конг, Ён-ран Ли, Кил-Канг Ан, Джо Каппеллетти, Мин-Сик Чои, Д.С. Дуглас, Мин-хо ЧанПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC56E889F2D7817D62CDD69632D9F5A7F8D1BAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

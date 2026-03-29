@@ -1,3 +1,115 @@
+###  Публикация: 1758263   (103409) от 01.11.2024
+
+Евгений Замятин | Островитяне (2021) [MP3, Пётр Таганов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика.
+Студия «МедиаКнига» представляет аудиокнигу Евгения Ивановича Замятина (1884–1937) – великого русского писателя, публициста и литературного критика, киносценариста.
+Повесть «Островитяне» рассказывает о незамысловатой истории избранных англичан начала XX века. Автор высмеивает уклад жизни в отдельно взятом английском тихом городке и каждого персонажа (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: МедиаКнигаПродолжительность: 02:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9985852A45BC3E33C77C35EFA719D31448B1CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759257   (103317) от 07.11.2024
+
+Андре Моруа | Письма незнакомке (2021) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андре Моруа (1885–1967) – признанный мастер и великолепный стилист французской прозы.
+В «Письмах незнакомке» Моруа раздумывает над поведением и нравами людей, взаимоотношениями мужчин и женщин, приемами обольщения, над тем, почему браки оказываются счастливыми, почему случаются разводы и угасают чувства. Автор обращает свои письма к женщине, но кто она – остается (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Яков ЛесюкИздательство: Азбука-АттикусПродолжительность: 05:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBBC81E51E59130AD99EE02474BE5C27E753CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762931   (102884) от 28.11.2024
+
+Пьер Бенуа | За Дона Карлоса (2011) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Большая библиотека приключений и научной фантастики.
+Пьер Бенуа (1886–1962) – французский писатель, член Французской академии (1931).
+Роман «За Дона Карлоса» (Pour don Carlos) Роман написан в 1920 году.
+Действие происходит в 1875–1876 годах, когда Испанию раздирали карлистские войны. Речь идёт о Карлосе, герцоге Мадридском, претенденте на испанский престол (   Читать дальше...   )Жанр: Зарубежная литература, классика, авантюрно-приключенческий романПеревод: А.В. ФинкельштейнИздательство: Нигде не купишьПродолжительность: 08:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC800BB664D822021DD3A0B23E992B76302E079F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764427   (102705) от 07.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 5). (2017) [MP3, Т. Пельтцер, Т. Васильева и др]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102705.jpg" />
+</div>
+
+
+###  Подробнее
+
+— А вы, я слышал, женитесь! — обратился к Петру Петровичу Милкину на дачном балу один из его знакомых. — Когда же мальчишник справлять будете?
+— Откуда вы взяли, что я женюсь? — вспыхнул Милкин. — Какой это дурак вам сказал?
+— Все говорят, да и по всему видно… Нечего скрытничать, батенька… Вы думаете, что нам ничего не известно, а мы вас насквозь видим и знаем! Хе-хе-хе… (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B422E38C330132188866C92F176F700E3FA46B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489473   (102033) от 29.04.2012
 
 Антон Павлович Чехов | Рассказы в исполнении мастеров художественного слова [2008] [MP3]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102033.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101592.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101591.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101589.jpg" />
 </div>
 
 
@@ -116,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101588.jpg" />
 </div>
 
 
@@ -143,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101577.jpg" />
 </div>
 
 
@@ -172,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101573.jpg" />
 </div>
 
 
@@ -199,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101534.jpg" />
 </div>
 
 
@@ -227,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101519.jpg" />
 </div>
 
 
@@ -254,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101471.jpg" />
 </div>
 
 
@@ -282,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101466.jpg" />
 </div>
 
 
@@ -310,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101293.jpg" />
 </div>
 
 
@@ -338,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95315.jpg" />
 </div>
 
 
@@ -364,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95163.jpg" />
 </div>
 
 
@@ -390,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94512.jpg" />
 </div>
 
 
@@ -416,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94508.jpg" />
 </div>
 
 
@@ -442,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91160.jpg" />
 </div>
 
 
@@ -470,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86421.jpg" />
 </div>
 
 
@@ -497,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85662.jpg" />
 </div>
 
 
@@ -523,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85012.jpg" />
 </div>
 
 
@@ -550,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80167.jpg" />
 </div>
 
 
@@ -576,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79282.jpg" />
 </div>
 
 
@@ -589,119 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB165C3B7C2AFA7DC0A69B1E308418D21A3FC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459535   (79079) от 28.02.2012
-
-Джек Лондон | Мартин Иден (2011) [MP3, Сергей Чонишвили]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика (аудио)
-Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
-«Мартин Иден» – роман Джека Лондона о мечте и успехе. Простой моряк, в котором легко узнать самого автора, проходит длинный, полный лишений путь к литературному бессмертию...
-Волею случая оказавшийся (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Сергей ЗаяицкийИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 13:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15CFDD699B441746F6757E09E10B267D94710B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450408   (75537) от 11.02.2012
-
-Александр Солженицын | Один день Ивана Денисовича (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое опубликованное произведение Александра Солженицына, принёсшее ему мировую известность.
-Рассказывается об одном дне из жизни заключённого, русского крестьянина и солдата, Ивана Денисовича Шухова, в январе 1951 года.Жанр: литература 20 векаПродолжительность: 04:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D629B3645180FEB7ACBA1A3630FF6E4146AA43A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449075   (74877) от 08.02.2012
-
-Уильям Шекспир | Сонеты (1987) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уильям (Вильям) Шекспир – великий английский поэт и драматург, чье творчество является бесценным достоянием мировой культуры.
-В аудиокнигу вошли 154 сонета Шекспира в переводе Самуила Яковлевича Маршака, сделавших их достоянием русской поэзии.
-
-Мы урожая ждем от лучших лоз,(   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзияИздательство: Нигде Не КупишьПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0236703BFA9B5713816A0AB116308C49A58AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770631   (71964) от 02.01.2025
-
-Фёдор Достоевский | Униженные и оскорбленные (2023) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый «книжный» и «литературный» роман Достоевского, написанный после возвращения из сибирской каторги. Это время не могло не повлиять на его идейно-художественную эволюцию. Он вынес из Сибири убеждение о трагической оторванности передовой русской интеллигенции от «почвы» и неверие в революционный путь преобразования русской действительности.
-
-В художественном переосмыслении (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ЭксмоПродолжительность: 12:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0934A88AD02135DE4748F6E08AEBC6EB0EDA85
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1702008   (115967) от 23.02.2024
+
+Деревянный орел (2024) [MP3, Совушка Сонюшка]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер и столяр решили порадовать царя своими умелыми изделиями из золота, чтобы определить, кто из них лучше владеет мастерством.Жанр: СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10E931F89953F67B4BA26340C58BBAC021E95AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703081   (115319) от 27.02.2024
+
+Туве Янссон | Всё о Муми-троллях (2018) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Муми-тролли.
+Туве Марика Янссон (1914–2001) – финская писательница, художница, иллюстратор. Обрела всемирную известность благодаря своим книгам о муми-троллях.
+Муми-тролли – одни из самых известных героев мировой детской литературы. Небольшие истории об этих обаятельных персонажах, которые сопровождают большие красочные иллюстрации, отлично подойдут как (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Азбука-АттикусПродолжительность: 03:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A68ABD4F1BDE3B70C21ACA69AC0D21D10516FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436093   (115270) от 28.02.2024
+
+Кир Булычёв | Миллион приключений (2006) [MP3, Ксения Большакова, Дмитрий Колыго]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Лучшее – детям.
+Кир Булычёв (1934–2003) – советский писатель-фантаст, учёный-востоковед, сценарист.
+В каких только приключениях не участвует героиня фантастической повести Алиса Селезнева! Она переносится на машине времени в прошлое, становится принцессой средневекового королевства, объявляет войну космическим пиратам. Эта девочка из будущего совершает (   Читать дальше...   )Жанр: Русская литература для детей, фантастическая повестьИздательство: АудиокнигаПродолжительность: 20:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF7C3D2469FB2D95AF4DAC6B77FE4F1B35D06A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703506   (114984) от 29.02.2024
 
 Виктор Лунин | Сдобная Лиза (2008) [MP3, Виктор Лунин]
@@ -6,7 +88,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114984.jpg" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114977.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114970.jpg" />
 </div>
 
 
@@ -89,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114915.jpg" />
 </div>
 
 
@@ -116,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114788.jpg" />
 </div>
 
 
@@ -143,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114583.jpg" />
 </div>
 
 
@@ -170,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114575.jpg" />
 </div>
 
 
@@ -197,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114484.jpg" />
 </div>
 
 
@@ -224,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114462.jpg" />
 </div>
 
 
@@ -251,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114282.jpg" />
 </div>
 
 
@@ -277,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114253.jpg" />
 </div>
 
 
@@ -305,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114227.jpg" />
 </div>
 
 
@@ -332,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114074.jpg" />
 </div>
 
 
@@ -360,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114029.jpg" />
 </div>
 
 
@@ -387,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114012.jpg" />
 </div>
 
 
@@ -415,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114009.jpg" />
 </div>
 
 
@@ -443,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114007.jpg" />
 </div>
 
 
@@ -472,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113951.jpg" />
 </div>
 
 
@@ -501,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113944.jpg" />
 </div>
 
 
@@ -529,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113763.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113553.jpg" />
 </div>
 
 
@@ -585,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113528.jpg" />
 </div>
 
 
@@ -613,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113468.jpg" />
 </div>
 
 
@@ -625,91 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC3D6F089FE310429AF7B3EC7DBDC9B3D42CF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706894   (113466) от 14.03.2024
-
-Софья Прокофьева | Приключения жёлтого чемоданчика (2010) [MP3, Мавлюда Гулямова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Софья Прокофьева – русская писательница, неповторимая сказочница. Автор замечательных детских повестей и рассказов «Приключение желтого чемоданчика», «Пока бьют часы», «Лоскутик и облако»...
-Эта книга о том, как можно излечить от страха и печали, злости и глупости, лени и вранья с помощью чудесных конфет, которые хранятся в жёлтом чемоданчике доброго доктора.
-
- Софья (   Читать дальше...   )Жанр: Русская литература для детей, приключения, сказочная повестьИздательство: АудиокнигаПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3BDFE687F3B828271D983228C935240B86DE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707006   (113465) от 14.03.2024
-
-Николай Гарин-Михайловский | Детство Тёмы (2005) [MP3, Елена Евтушенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская библиотека.
-Николай Георгиевич Гарин-Михайловский (1852–1906) – русский писатель, путешественник и инженер.
-«Детство Тёмы» – повесть автобиографическая. В ней писатель рассказал о собственном детстве, о пережитых им самим и запомнившихся ему на всю жизнь детских своих радостях, проступках, мечтах. Он писал: «В «Детстве Тёмы» вы прочтете много (   Читать дальше...   )Жанр: Русская литература для детей, классика, повестьИздательство: ДеоникаПродолжительность: 06:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1EB6AE642CB42904E71C5D39DBF81AB17CE8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706907   (113455) от 14.03.2024
-
-Юрий Сотник | «Архимед» Вовки Грушина (2013) [MP3, Александр Клюквин] [Сборник]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ «“Архимед” Вовки Грушина» был опубликован в 1939 году в журнале «Пионер». А через восемь лет у писателя вышла первая книга. Называлась она так же – «“Архимед” Вовки Грушина».
-
-Первые рассказы принесли Юрию Сотнику известность и признание читателей. Веселый выдумщик и фантазер, он придумывал смешные и поучительные истории для детей, утверждая их право быть (   Читать дальше...   )Жанр: Детская литератураИздательство: СОЮЗПродолжительность: 03:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF863C39D32C8A5C05B53D15E8A4279016F173F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

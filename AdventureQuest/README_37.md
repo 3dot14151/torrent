@@ -1,3 +1,81 @@
+###  Публикация: 922503   (542218) от 05.08.2015
+
+Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпизодическая игра в стиле «нуар» о человеке, который пытается делать свою работу, попутно борясь с собственными демонами. Бывший лидер легендарной группы «Неприкасаемые» Элиот Несс желал спокойно жить, работать потихоньку в своем ресторане и не задумываться о том, что его родной город Санта Эсперанза погряз в коррупции. Но не всегда все идет по плану.Тип издания: ЛицензияРазработчик: A Crowd of MonstersЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225C9705F53C56B8544500EC87B72537F5E5FE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050180   (539772) от 07.09.2016
+
+Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_539772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dream - это игра об исследовании миров, целиком находящихся в подсознании Говарда Филлипса, молодого человека, будни которого пусты и лишены смысла, зато сны - невероятно ярки и прекрасны. Там вас ждет множество испытаний, и чтобы отыскать ключ к будущему Говарда, все их нужно преодолеть.Тип издания: LicenseРазработчик: HyperSlothЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF5444ADB4E095435CB2676965CE0C0A9258024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305567   (539423) от 30.06.2019
+
+Draugen (2019) [Ru/Multi] (1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_539423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Draugen — новый психологический детектив от первого лица, действие которого разворачивается в Норвегии 1920-х годов. Вы играете за Эдварда Чарльза Хардена – американского путешественника, приехавшего в Норвегию в поисках своей пропавшей сестры. Но вы не одиноки: вас будет неотступно сопровождать юная спутница по имени Лисси – решительная, независимая и загадочная (   Читать дальше...   )Тип издания: RepackРазработчик: Red Thread GamesЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31FD2238704F9EA8926B4614F43F9788D18700B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306037   (539419) от 30.06.2019
 
 Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
@@ -6,7 +84,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539419.jpg" />
+  <img src="Z:/picture/008/save_picture_539419.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dungeons of Edera (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537046.jpg" />
+  <img src="Z:/picture/008/save_picture_537046.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Don't Play With Dolls (2018) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534758.jpg" />
+  <img src="Z:/picture/008/save_picture_534758.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534152.jpg" />
+  <img src="Z:/picture/008/save_picture_534152.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ The Initiate (2017) [En] (1.05) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533218.jpg" />
+  <img src="Z:/picture/008/save_picture_533218.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533043.jpg" />
+  <img src="Z:/picture/008/save_picture_533043.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532188.jpg" />
+  <img src="Z:/picture/008/save_picture_532188.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Broken Age - The Complete Adventure (2014) [Ru/Multi] (2.4.800398) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531977.jpg" />
+  <img src="Z:/picture/008/save_picture_531977.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531205.jpg" />
+  <img src="Z:/picture/008/save_picture_531205.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530974.jpg" />
+  <img src="Z:/picture/008/save_picture_530974.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529910.jpg" />
+  <img src="Z:/picture/008/save_picture_529910.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528954.jpg" />
+  <img src="Z:/picture/008/save_picture_528954.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Repentant (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528464.jpg" />
+  <img src="Z:/picture/008/save_picture_528464.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Distorted Reality (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528365.jpg" />
+  <img src="Z:/picture/008/save_picture_528365.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ STASIS (2015) [Ru/Multi] (1.09.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527885.jpg" />
+  <img src="Z:/picture/008/save_picture_527885.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527877.jpg" />
+  <img src="Z:/picture/008/save_picture_527877.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527515.jpg" />
+  <img src="Z:/picture/008/save_picture_527515.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526296.jpg" />
+  <img src="Z:/picture/008/save_picture_526296.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525809.jpg" />
+  <img src="Z:/picture/008/save_picture_525809.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0.0.1/upd13) Repack =nemos= [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525075.jpg" />
+  <img src="Z:/picture/008/save_picture_525075.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523434.jpg" />
+  <img src="Z:/picture/008/save_picture_523434.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522713.jpg" />
+  <img src="Z:/picture/008/save_picture_522713.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522706.jpg" />
+  <img src="Z:/picture/008/save_picture_522706.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260B0626BCBA692ABE303E6DC4D5B8CAAD4C42BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869134   (522226) от 16.08.2015
-
-Lucius II The Prophecy (2015) [Ru/Multi] (1.0.20150813.b) SteamRip Let'sPlay
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lucius II: The Prophecy является продолжением приключенческого кровавого ужастика Lucius. История второй части берет свое начало сразу же после событий оригинала. Люциус оказывается единственным выжившим в страшном пожаре, устроенным им же в родительском доме. Причем мальчик переживает этот ад буквально не получив ни одной царапины.Тип издания: SteamRipРазработчик: Shiver GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B65DA37D914329275E8B32B9E5B509CFDA0DBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313872   (521952) от 11.07.2019
-
-EBOLA (2019) [Ru/Multi] (1.3) License HOODLUM
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Меня зовут Логан Джонсон, и я журналист газеты "NewsLine", это было началом моей истории. Я пробрался на секретную научно-техническую базу "Крот-529" что бы найти улики, которые скрывали корпорация Panicum. В этой подземной лаборатории разрабатывалось секретно биологическое оружие созданное из вируса Эболы, под названием вирус "Е". Из-за (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370B0EC9E179D1848C58393073A3AC5AD268ADAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927185   (521263) от 17.08.2015
-
-Dream (2013) [Ru/Multi] (1.12/upd2) Repack R.G. Freedom
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dream - игра-исследование, действие которой происходит в подсознании Говарда Филлипса, молодого человека, будни которого скучны и утомительны, а сны - ярки и полны новых, неизведанных возможностей. Пройдите по этим абстрактным мирам, примите их вызов и раскройте все секреты в поисках ключа к будущему Говарда.Тип издания: RepackРазработчик: HyperSlothЖанр: Adventure / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96E954877FC7BD08AF07A4897D3145853DA5BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1732973   (51838) от 27.06.2024
+
+М.Л. Рысин | Введение в современную Android-разработку на языке Java. [2 части] (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие посвящено современным подходам к созданию Android-приложений.
+Показаны приѐмы разработки средствами языка высокого уровня Java в инструментальной
+среде  Android  Studio.  Приводятся  необходимые  теоретические  сведения  и  практические
+задания для самостоятельного освоения материала и организации практических занятий.(   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МИРЭА – Российский технологический университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D726A5652921EA7766002306D2D0385D7ED38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732899   (51822) от 27.06.2024
+
+Э. Гурса | Курс математического анализа [6 книг] (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Э.Гурса "Курс математического анализа" уже приобрела у русских читателей заслуженную известность и признание. По объёму это руководство является одним из наиболее полных в современной мировой математической литературе: в то же время излагаемые факты выбраны не по принципу энциклопедичности; выбор проникнут одной руководящей мыслью - дать необходимый (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное технико-теоретическое издательствоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C985F2F1C503100120D96113C0D7B038FA3180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734453   (51204) от 03.07.2024
 
 В.Л. Матросов, Р.М. Асланов, М.В. Топунов | Дифференциальные уравнения и уравнения с частными производными (2011) [PDF]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51204.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51177.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50888.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50879.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50775.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50574.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50542.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50434.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50385.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49939.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49516.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49313.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49274.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49031.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48964.jpg" />
 </div>
 
 
@@ -407,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48391.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48371.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48158.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48064.jpg" />
 </div>
 
 
@@ -511,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48000.jpg" />
 </div>
 
 
@@ -537,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47952.jpg" />
 </div>
 
 
@@ -563,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47737.jpg" />
 </div>
 
 
@@ -590,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47735.jpg" />
 </div>
 
 
@@ -617,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47544.jpg" />
 </div>
 
 
@@ -628,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AD5EA0BA6E5B77BAAF5ED73FB97C14F5CA388B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741697   (47527) от 07.08.2024
-
-Н.А. Селиванов, В.И. Теребилов | Первоначальные следственные действия (1957) [PDF, JPG]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткий справочник следователя "Первоначальные следственные действия", написанный Селивановым Н.А. и Теребиловым В.И., является практическим руководством для сотрудников правоохранительных органов, а также для студентов юридических вузов и всех, кто интересуется следственной деятельностью.
-Книга представляет собой наглядное и доступное пособие по осуществлению (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Москва: Государственное издательство юридической литературыФормат: PDF, JPGКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265C82E4A8B420FA5D0485288CD036AA336A6793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742060   (47372) от 09.08.2024
-
-А.П. Двинин, И.А. Романченко | Современная психодиагностика (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психодиагностика рассматривается в учебно-практическом руководстве как неотделимая часть решения многих проблем и вопросов гуманитарного содержания, связанных с развитием личности, организацией поведения, обеспечением межиндивидуальных взаимодействий, профилактикой сбоев (ошибок, нарушений дисциплины, конфликтов) в учебной и трудовой деятельности, позволяющая дать (   Читать дальше...   )Жанр: Учебное пособиеИздательство: СПб.: «Речь»Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAB78320E557460C615C6071E60F756F0D446F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

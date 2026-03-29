@@ -1,3 +1,81 @@
+###  Публикация: 1742541   (38006) от 07.11.2024
+
+Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франшиза вновь порадует вас интересной историей и заставит дрожать от страха при виде аниматроников. Ваше приключение пройдет в формате point & click, сыграйте за парня по имени Освальд, который в поисках чего-то интересного забрел в заброшенную пиццерию. Там наш герой решил опробовать бассейн с шариками, после этого его переносит в прошлое.Тип издания: RepackРазработчик: Mega Cat StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759009   (37825) от 09.11.2024
+
+Lula 3D (2006) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лула, соблазнительная пышногрудая блондинка, продюсер эротического фильма, попала в затруднительное положение. Прямо перед съемками её нового шедевра - трое близняшек-звёзд, которые должны были исполнять главные роли, похитили из их роскошных апартаментов в Беверли-Хиллз. На месте преступления Лула находит подозрительный спичечный коробок с логотипом одного из клубов (   Читать дальше...   )Тип издания: UnofficialРазработчик: RedFire SoftwareЖанр: ПриключенияЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB68820365CAD2FEE1AF166D5939D3D0DDA6763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759513   (37806) от 09.11.2024
+
+Chicken Police: Into the HIVE! / Chicken Police: в Улей! (2024) [Ru/Multi] (build 16327099) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicken Police: Into the HIVE! - увлекательное детективное приключение в стиле нуарных фильмов, в котором вам предстоит собирать улики, допрашивать подозреваемых и решать головоломки, чтобы раскрыть хитросплетения мирового заговора. Сонни и Марти - самые крутые детективы Дикой природы - собираются взяться за крупнейшее дело жизни, что приведет их в гетто насекомых, (   Читать дальше...   )Тип издания: RepackРазработчик: The Wild GentlemenЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759541   (37783) от 09.11.2024
 
 Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
@@ -6,7 +84,7 @@ Crimson Snow (2022) [Ru/Multi] (Build 11503562) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37783.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Chicken Police - Paint it RED! (2020) [Ru/Multi] (438) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37735.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Two Falls (Nishu Takuatshina) (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37729.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Shadow Corridor 2 (2024) [Multi] (1.14.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37726.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Abyss School (2024) [Multi] (1.6.6) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37714.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Demonologist (2023) [Ru/Multi] (1.5.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37625.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37542.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (4.27.2.0/dlc) License GOG [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37511.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Lunacy: Saint Rhodes (2023) [Ru/Multi] (1.003) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37488.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Destiny Star Girlfriend 2 (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37416.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Destiny Star Girlfriend (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37390.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37326.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Dragonsphere (1994) [En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37322.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Black Book / Черная Книга (2021) [Ru/Multi] (build 12000953) Repack d
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37245.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Tavern Talk (2024) [Multi] (20241111/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37240.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Gori: Cuddly Carnage (2024) [Multi] (1.0.187/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37162.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Witch of Fern Island (2023) [Multi] (1.0.4b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37153.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37133.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.0.4) Repack FitG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37120.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ You Are Grounded (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37098.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37092.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37090.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37073.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dave the Diver - это казуальная приключенческая RPG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103559   (37044) от 17.11.2024
-
-Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парусом (1996) [En] (1.01_v3) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Leisure Suit Larry наш бравый герой попал в ужасную историю, чудом спасся и решил отправиться в морской круиз, чтобы немного развеяться. Путешествие началось с сюрприза: пассажирам предложили принять участие в мегасостязании! Капитан Фелляция, секс-королева Атлантики, лично поздравит победителя в приватной обстановке. Ларри нужно будет пошевелить мозгами и... (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Adventure, For AdultsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A04E52F6EF7B28962AAD24036305EBBAE3D791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578685   (37042) от 17.11.2024
-
-Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жители Лунбери всегда предпочитали лечиться традиционными методами. Но однажды дочь мэра заболела, а местный знахарь не смог ей помочь. Пришлось горожанам обратиться за помощью к чужакам. Врачебная ассоциация отправила им на помощь самого опытного зельевара, то есть вас. Завоюйте доверие обитателей Лунбери и вылечите каждого больного в этом RPG-симуляторе с открытой (   Читать дальше...   )Тип издания: LicenseРазработчик: MassHive MediaЖанр: Приключeние, Экшны, ФэнтeзиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25401E4F3BBE418AD1C30DAA2ADB0D6E81886EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760993   (37002) от 17.11.2024
-
-Evil Awaits (2024) [En] (1.0) Scene Skidrow
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте тайну замка Арчдейл в этой независимой игре в жанре экшена и ужасов на выживание, когда взрыв грозит раскрыть семейное проклятие и новую эпидемию. Получив сигнал бедствия о взрыве, детектив отправляется в отдаленный замок Арчдейл в поисках ответов, но оказывается в ловушке. Сможете ли вы выяснить, что произошло?Тип издания: SceneРазработчик: Chai GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

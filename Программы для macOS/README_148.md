@@ -1,3 +1,136 @@
+###  Публикация: 1671781   (171069) от 26.10.2023
+
+Retrobatch Pro 1.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
+Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
+Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2022Разработчик: © 2018 Flying Meat Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671764   (171068) от 26.10.2023
+
+Lasso 1.5.8 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lasso — оконный менеджер для macOS. Перемещайте и изменяйте размер окон с помощью мыши. Нажмите и перетащите — это все, что вам нужно для перемещения и изменения размера окон. Быстро упорядочивайте окна и изменяйте их размер с помощью настраиваемых макетов.Тип издания: macOS SoftwareРелиз состоялся: 24.09.2023Разработчик: © 2023 LassoПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F5E7EBF483BBA9D19EF48E638842130238B7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671794   (171066) от 26.10.2023
+
+Screenium 3 v.3.3.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультравысоким разрешением 4K или 5K дисплея, или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © 2021 Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF2E8B6557B7BD3A0DBC1E29A5C9D04AC3B2E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671883   (171042) от 26.10.2023
+
+WinX HD Video Converter for Mac 6.8.1 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171042.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinX HD Video Converter – многофункциональный программный продукт, служащий для преобразования видеофайлов. Приложение поддерживает множество форматов, как распространенных, так и "экзотических". Кроме того, поддерживается конвертация файлов для последующего просмотра на мобильных устройствах. Так что WinX HD Video Converter позволяет наслаждаться просмотром (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2022 Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED020F0C93CF456CFA6D376E6C011284D4BC9F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671866   (171033) от 26.10.2023
+
+Balsamiq Mockups For Desktop 4.7.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Balsamiq Mockups — создание макетов сайтов, мобильных и веб-приложений (прототипа будущего приложения).
+Balsamiq Mockups будет полезна для project managers, designers, developers. Использовать Mockups для прототипирования еще проще, чем рисовать на бумаге - вы можете переделать любую выбранную часть и тотчас получить отличный результат. Создавайте и демонстрируйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2023Разработчик: © 2008-2023 Balsamiq Studios LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F68A6C9D44CF8CB1128640A0E0F438FC796E14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671778   (171032) от 26.10.2023
 
 Native Instruments FM8 1.4.6 [Multi]
@@ -6,7 +139,7 @@ Native Instruments FM8 1.4.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171032.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Pastebot 2.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171031.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Native Instruments Reaktor 6 v.6.5.0 Rev2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171028.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ OmniPlayer Pro - Media Player 2.1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171016.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ Video Copilot - Optical Flares 1.3.8 [En] + Presets
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170788.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ Twitterrific 5 v5.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170666.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ SyncBird Pro 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170636.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ iMac Cleaner 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170616.jpg" />
 </div>
 
 
@@ -218,7 +351,7 @@ Hasher 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170611.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ InPixio Photo Studio Pro 10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170590.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ Murasaki 2.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170491.jpg" />
 </div>
 
 
@@ -296,7 +429,7 @@ SnapNDrag Pro Screensho‪t‬  4.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170487.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ Download Shuttle Pro for Mac 1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170424.jpg" />
 </div>
 
 
@@ -351,7 +484,7 @@ Disk Doctor Pro 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170393.jpg" />
 </div>
 
 
@@ -377,7 +510,7 @@ Picture Collage Maker 3 v3.7.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170389.jpg" />
 </div>
 
 
@@ -403,7 +536,7 @@ Window Focus 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170377.jpg" />
 </div>
 
 
@@ -430,7 +563,7 @@ Downie 4 v.4.6.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170357.jpg" />
 </div>
 
 
@@ -458,7 +591,7 @@ Cisdem DVD Burner 6.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170327.jpg" />
 </div>
 
 
@@ -484,7 +617,7 @@ Luminar Neo 1.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170218.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ WidsMob AI Retoucher for Mac 3.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170207.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169950.jpg" />
 </div>
 
 
@@ -548,140 +681,6 @@ Audiobook Builder 2 v.2.2.7 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74F1F0202377B699D0A8D46125972397EB5FBDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672269   (169858) от 27.10.2023
-
-Disk Space Analyzer Pro 4.1.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Space Analyzer Pro ранее как Disk Expert - приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634900C94B7146E59C5550443E4727812ADD4B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515241   (169847) от 06.12.2021
-
-ABBYY Lingvo European Dictionary 1.12.3 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте перевод незнакомого слова, значения устойчивых выражений, примеры употребления слов в контексте с помощью словаря ABBYY Lingvo European для Mac. Это отличное приложение для тех, кто учит иностранный язык или сталкивается с переводом. Откройте мир с Lingvo!
-В приложение включены 108 словарей для 8 языков (русский, английский, французский, испанский, немецкий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 1996-2021 ABBYYПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42333FF8C45394FDDDE94B4BC824B1BD08DB1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672271   (169843) от 27.10.2023
-
-Duplicate File Finder Pro for Mac 7 v.7.3.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D06219FA2C4304BC0A2A59952EC7C010774A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515596   (169640) от 07.12.2021
-
-Exhibeo 2 v2.0.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exhibeo 2 - Создайте великолепные HTML5 презентации. Exhibeo - мощное средство для создания эффектных веб-галерей и слайд-шоу для веб-сайтов. Exhibeo поддерживает большинство распространенных графических форматов (PNG, JPEG и GIF), так же PSD, TIFF, RAW и многие другие. В приложении имеются уже готовые темы оформления на все случаи жизни, в которые пользователю остается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2021Разработчик: © 2021 SoftpressПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AE4B17309CC7CBBF538C4BF286C142C8F1F9B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515540   (169549) от 07.12.2021
-
-Mac DVDRipper Pro 10.0.3 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Mac DVDRipper Pro, позволяющая копировать содержимое дисков DVD на жесткий диск для последующего воспроизведения без использования оптического носителя.
-По словам разработчиков, при воспроизведении медиа с жесткого диска пользователь сможет избежать лишних царапин на оптическом носителе, отложить просмотр диска, взятого в прокате, сделать резервную копию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2021Разработчик: DVDSuki Software Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E596A8F06045E6DFAFA446DF306CD8787F16D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1217938   (708001) от 17.04.2018
+
+Барабаны долины Махонке / Drums Along the Mohawk (1939) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время войны за независимость между Англией и американскими колониями. Флаг Соединенных Штатов был усыпан всего лишь 13-ю звездочками. Молодожены Джил и Лана отправляются в приграничный район Долины Махонке перед самым началом революции и войны.
+Переход от обеспеченной, привилегированной жизни к приграничной потребовал от них недюжинной силы и твердости характера. (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, Вестерн, ВоенныйРежиссер: Джон ФордАктеры: Клодетт Кольбер, Генри Фонда, Эдна Мэй Оливер, Эдди Коллинз, Джон Кэрредин, Доррис Баудон, Джесси Ральф, Артур Шилдс, Роберт Лоури, Роджер ИмхофПеревод: Двуголосый закадровый (РенТВ)Субтитры: ОтсутствуютПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8BB7E90750E5309903F778D4343497F3A2C725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022542   (707727) от 13.06.2016
+
+Большая саранча / La grande sauterelle (1967) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_707727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасаясь от киллера, Карл оказывается в Бейруте. Здесь он встречает своего старого приятеля и они вместе готовят очередное ограбление. Но случайно оказавшаяся на пути легкомысленная девица по прозвищу «Длинноногий кузнечик» рушит все планы…Производство: Франция, Германия (ФРГ), Италия / Eichberg-Film GmbH, Franca Film, Socit Nouvelle des tablissements Gaumont (SNEG)Жанр: Драма, Криминал, МелодрамаРежиссер: Жорж ЛотнерАктеры: Мирей Дарк, Харди Крюгер, Жорж Жере, Венантино Венантини, Пепе Апе, Пьер Массими, Марго Троогер, Мино Доро, Морис Биро, Франсис БланшПеревод: Одноголосый закадровый (binjak)Язык субтитров: Русский, французский, английскийПродолжительность: 01:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638D2C56534EE009D420F93E1F6179F2313FF0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846325   (707508) от 13.06.2016
+
+Удар головой / Coup de tete (1978) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_707508.jpg" />
+</div>
+
+
+###  Подробнее
+
+История злоключений Франсуа Перрена, бывшего футболиста, любовные похождения которого обернулись для него тюрьмой. Пройдя через множество недоразумений, Франсуа выручает свою команду и становится героем.Производство: Франция, Gaumont, Societe Francaise de Production (SFP)Жанр: Драма, Комедия, СпортРежиссер: Жан-Жак АнноАктеры: Патрик Деваэр, Френс Дуньяк, Дороти Джемма, Морис Барье, Робер Дальбан,Марио Давид, Юбер Дешам, Дора Долл, Франсуа Дирек, Патрик Флёрем, Мишель Фортен, Жак Франц, Коринн Маршан, Поль Ле Персон, Жан БуизПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0DF57041B8207A3B1B2EA4B6183C558813E53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022451   (707500) от 13.06.2016
 
 Братья Блюз / The Blues Brothers (1980) BDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707500.jpg" />
+  <img src="Z:/picture/008/save_picture_707500.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706847.jpg" />
+  <img src="Z:/picture/008/save_picture_706847.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706788.jpg" />
+  <img src="Z:/picture/008/save_picture_706788.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706263.jpg" />
+  <img src="Z:/picture/008/save_picture_706263.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705786.jpg" />
+  <img src="Z:/picture/008/save_picture_705786.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705780.jpg" />
+  <img src="Z:/picture/008/save_picture_705780.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705583.jpg" />
+  <img src="Z:/picture/008/save_picture_705583.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705299.jpg" />
+  <img src="Z:/picture/008/save_picture_705299.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705296.jpg" />
+  <img src="Z:/picture/008/save_picture_705296.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705172.jpg" />
+  <img src="Z:/picture/008/save_picture_705172.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704924.jpg" />
+  <img src="Z:/picture/008/save_picture_704924.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704308.jpg" />
+  <img src="Z:/picture/008/save_picture_704308.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703579.jpg" />
+  <img src="Z:/picture/008/save_picture_703579.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703264.jpg" />
+  <img src="Z:/picture/008/save_picture_703264.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703224.jpg" />
+  <img src="Z:/picture/008/save_picture_703224.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702922.jpg" />
+  <img src="Z:/picture/008/save_picture_702922.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702757.jpg" />
+  <img src="Z:/picture/005/save_picture_702757.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702662.jpg" />
+  <img src="Z:/picture/008/save_picture_702662.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702543.jpg" />
+  <img src="Z:/picture/008/save_picture_702543.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702178.jpg" />
+  <img src="Z:/picture/008/save_picture_702178.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701934.jpg" />
+  <img src="Z:/picture/008/save_picture_701934.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701815.jpg" />
+  <img src="Z:/picture/008/save_picture_701815.jpg" />
 </div>
 
 
@@ -583,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701178.jpg" />
+  <img src="Z:/picture/008/save_picture_701178.jpg" />
 </div>
 
 
@@ -595,85 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB9E576D2C3209A303DDFEBA98FD031C85A534A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893487   (700671) от 05.05.2015
-
-Сияние / The Shining (1980) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация триллера Стивена Кинга. Писатель Джек Торренс (Джек Николсон) соглашается провести зиму вместе со своими женой (Шелли Дюволл) и сыном (Дэнни Ллойд) в отдаленном и отрезанном от мира горном, курортном отеле в роли сторожа. С этим местом связана таинственная история. По мере развития сюжета мистика подтачивает разум писателя, и он сходит с ума. Глядеть (   Читать дальше...   )Производство: США, Великобритания / Warner Bros. Pictures, Hawk Films, PeregrineЖанр: Мистический триллер, Экранизация, Ужасы, Драма, ДетективРежиссер: Стэнли КубрикАктеры: Джек Николсон, Шелли Дювалл, Дэнни Ллойд, Скэтман Крозерс, Энн Джексон, Тони Бёртон, Барри Нелсон, Филип Стоун, Джо ТеркелПеревод: Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Субтитры: Вшитые (Отключаемые)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255014DC0BA859381DFBF788126E3452E026B4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024039   (699726) от 17.06.2016
-
-Человек Омега / The Omega Man (1971) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Ричарда Мэтесона. Всемирная бактериологическая война облетела планету в 1975 году. Почти все погибли. Оставшиеся в живых превратились в мутантов, которые к тому же не выносят солнечного света.
-Теперь они выходят на улицы городов только с наступлением сумерек, но уж зато в темноте они — короли положения. Единственный житель Лос-Анджелеса, не пострадавший (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевик, триллер, экранизацияРежиссер: Борис СагалАктеры: Чарлтон Хестон, Розалинд Кэш, Энтони Зербе, Пол Косло, Линкольн Килпэтрик, Сидни Бодуан, Никол Уильямсон, Д. Б. СуиниПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9262B74E6DAA154A7C453E3C1E509D2CD2729A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024110   (699596) от 17.06.2016
-
-Зеленый сойлент / Soylent Green (1973) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля перенаселена, в одном только Нью-Йорке проживает более 40 миллионов человек. Загрязнение окружающей среды привело к парниковому эффекту, в результате чего исчезли большая часть водных ресурсов, животные и растительность. Дабы хоть как-то накормить людей, корпорация «Сойлент» производит некий питательный продукт в виде разноцветных брикетов. Расследование неожиданного (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Антиутопия, Триллер, Криминал, Детектив, ЭкранизацияРежиссер: Ричард ФлайшерАктеры: Чарлтон Хестон, Ли Тейлор-Янг, Чак Коннорс, Джозеф Коттен, Брок Питерс, Паула Келли, Эдвард Дж. Робинсон, Стивен Янг, Майк Генри, Линкольн КилпэтрикПеревод: Профессиональный двухголосый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CB226D7EB4C9ADB232525DBC67A2E7F95B30926
 ```
 
 https://mybot314.ru/tekegram_catalog/

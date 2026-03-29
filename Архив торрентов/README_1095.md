@@ -6,7 +6,7 @@ Youtube Downloader HD 4.2 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798050.jpg" />
+  <img src="Z:/picture/008/save_picture_798050.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SiteSucker Pro 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798013.jpg" />
+  <img src="Z:/picture/008/save_picture_798013.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Screen Wonders 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798011.jpg" />
+  <img src="Z:/picture/008/save_picture_798011.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ VisualDiffer 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798009.jpg" />
+  <img src="Z:/picture/008/save_picture_798009.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798006.jpg" />
+  <img src="Z:/picture/008/save_picture_798006.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Pacifist 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797996.jpg" />
+  <img src="Z:/picture/008/save_picture_797996.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ iNet Network Scanner 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797993.jpg" />
+  <img src="Z:/picture/008/save_picture_797993.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ MacPilot 13 v13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797986.jpg" />
+  <img src="Z:/picture/008/save_picture_797986.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Black Hole - Black Pyramid 125 (2021) [MP3|320 Kbps] <Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797981.jpg" />
+  <img src="Z:/picture/008/save_picture_797981.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Unclutter 2.1.24 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797979.jpg" />
+  <img src="Z:/picture/008/save_picture_797979.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ PrivaZer 4.0.34 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797975.jpg" />
+  <img src="Z:/picture/008/save_picture_797975.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ AIMP 5.00 Build 2342 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797963.jpg" />
+  <img src="Z:/picture/008/save_picture_797963.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ TBProAudio - DSEQ3 3.5.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797958.jpg" />
+  <img src="Z:/picture/008/save_picture_797958.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ AquaSoft Stages 12.3.07 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797947.jpg" />
+  <img src="Z:/picture/008/save_picture_797947.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Bootstrap Studio 5.8.5 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797940.jpg" />
+  <img src="Z:/picture/008/save_picture_797940.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ WhatsApp 2.2142.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797938.jpg" />
+  <img src="Z:/picture/008/save_picture_797938.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Movavi Video Editor Plus 2022 v22.0.0 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797935.jpg" />
+  <img src="Z:/picture/008/save_picture_797935.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Universal Media Creation Tool 03.11.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797928.jpg" />
+  <img src="Z:/picture/008/save_picture_797928.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ DVDFab 12.0.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797925.jpg" />
+  <img src="Z:/picture/008/save_picture_797925.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Hibernate Enable or Disable 1.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797924.jpg" />
+  <img src="Z:/picture/008/save_picture_797924.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Time Loader (2021) [Ru/Muti] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797916.jpg" />
+  <img src="Z:/picture/008/save_picture_797916.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.1 Build 4 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797909.jpg" />
+  <img src="Z:/picture/008/save_picture_797909.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Movavi Video Suite 22.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797887.jpg" />
+  <img src="Z:/picture/008/save_picture_797887.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ DVD-Cloner 2020 7.10.716 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797882.jpg" />
+  <img src="Z:/picture/008/save_picture_797882.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kryder - Anjunabeats Worldwide 677 2020-05-18 [MP3|320 Kbps] <Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797881.jpg" />
+  <img src="Z:/picture/008/save_picture_797881.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Multitouch 1.17.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797880.jpg" />
+  <img src="Z:/picture/008/save_picture_797880.jpg" />
 </div>
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1632979   (240522) от 12.05.2023
+
+Леонид Пантелеев | Маленький офицер (2021) [MP3, Галина Годунова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький офицер - от имени мальчика ведется повествование о том, как началась война. Первая мировая война коснулась и его семьи. В Галиции сражался отец юного повествователя.… Ему нравилось наблюдать за офицерами, которые бывали в городе. Однажды рассказчик решился бежать на фронт. Что послужило толчком для этого решения, сможет ли кто-то переубедить его? Об этом (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3014C0D238EE8553948425034F89D67B333AE84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411804   (240461) от 26.09.2020
+
+Софья Могилевская | Марка страны Гонделупы (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240461.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Пети Николаева, ученика первого класса, оказалась в руках почтовая марка неведомой пиратской страны Гонделупы. Сколько из-за нее произошло разных событий, рассказывает эта книга.Жанр: Детская литератураПродолжительность: 05:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137BABAAF25812949844CB238C2A37DA53010EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465293   (240404) от 25.04.2021
+
+Эльвира Барякина | Неоники и лисичка Наруке (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это остров Торт, на котором живут неоники. Видишь, они летают по своим делам, взмахивая прекрасными узорчатыми крыльями. Мир неоников наполнен магией. Ею неоники учатся пользоваться с детства, как только у них появится достаточно силы воли. Ведь без силы воли никакие заклинания не работают.
+Вот неоник Джей и его сестра Фиби. Джею – десять, он учится в магической (   Читать дальше...   )Тип издания: аудиокнига своими рукамиЖанр: Детская литература/Фантастика/СказкаПродолжительность: 01:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EC669DA442BF2327BBB6C4A70FF54EE9186B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465302   (240398) от 25.04.2021
 
 Анна Никольская | Я уеду жить в «Свитер» (2020) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240398.jpg" />
+  <img src="Z:/picture/004/save_picture_240398.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240376.jpg" />
+  <img src="Z:/picture/004/save_picture_240376.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240162.jpg" />
+  <img src="Z:/picture/004/save_picture_240162.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240141.jpg" />
+  <img src="Z:/picture/004/save_picture_240141.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239950.jpg" />
+  <img src="Z:/picture/004/save_picture_239950.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239863.jpg" />
+  <img src="Z:/picture/004/save_picture_239863.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239727.jpg" />
+  <img src="Z:/picture/004/save_picture_239727.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239658.jpg" />
+  <img src="Z:/picture/004/save_picture_239658.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239322.jpg" />
+  <img src="Z:/picture/005/save_picture_239322.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239182.jpg" />
+  <img src="Z:/picture/004/save_picture_239182.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239040.jpg" />
+  <img src="Z:/picture/004/save_picture_239040.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239009.jpg" />
+  <img src="Z:/picture/005/save_picture_239009.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238990.jpg" />
+  <img src="Z:/picture/005/save_picture_238990.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238931.jpg" />
+  <img src="Z:/picture/005/save_picture_238931.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238853.jpg" />
+  <img src="Z:/picture/005/save_picture_238853.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238724.jpg" />
+  <img src="Z:/picture/005/save_picture_238724.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238707.jpg" />
+  <img src="Z:/picture/005/save_picture_238707.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238589.jpg" />
+  <img src="Z:/picture/005/save_picture_238589.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238240.jpg" />
+  <img src="Z:/picture/004/save_picture_238240.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238018.jpg" />
+  <img src="Z:/picture/004/save_picture_238018.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237712.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237529.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237511.jpg" />
+  <img src="Z:/picture/004/save_picture_237511.jpg" />
 </div>
 
 
@@ -598,88 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8662703BF135F3610FBC51C512D9DA16C8CD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630199   (237382) от 29.04.2023
-
-Николай Носов | Приключения Незнайки и его друзей (2019) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237382.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассказывается о сказочной стране, в которой жили малыши и малышки, то есть крошечные мальчики и девочки, или, как их иначе называли, коротышки.Жанр: Детская проза, СказкиПродолжительность: 04:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D3830AFE184234EE5AF50ADA3667620763A7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451091   (237377) от 28.02.2021
-
-Дарья Варденбург | Никита ищет море (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никита мечтал поехать на море, но его отправили в деревню – на все лето. Он еще никогда не оставался один так надолго – ему ведь всего семь!
-
-С новой бабушкой очень страшно. Она ведет себя так, как будто Никита уже совсем взрослый. Но именно потому с ней так здорово разговаривать, мечтать и смотреть на звезды с крыши. И однажды бабушка открывает Никите свою тайну: (   Читать дальше...   )Жанр: Детская литература/ПриключенияПродолжительность: 04:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEE1715CABCC5970D23B6DDD498A0D0B4290E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389806   (237256) от 04.09.2022
-
-Астрид Линдгрен | Приключения Калле-сыщика (Аудиоспектакль) (2006) [MP3, Армен Джигарханян и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир приключений.
-Астрид Линдгрен (1902–2002) – шведская писательница, автор всемирно известных книг для детей. Ее произведения отличаются непосредственностью, свежестью и чистотой детского восприятия окружающего мира, удивительно сочетая сказочный мир с правдивыми историями, взятыми из жизни.
-«Приключения Калле-сыщика» одно из самых известных произведений (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаВ ролях: Армен Джигарханян, Инна Алабина, Зинаида Андреева, Н. Грунин, Галина Ильина, Елена Миллиоти, В. ПетровИздательство: Два жирафа, Мост-ВПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85B60E7C251FC1380665C004E96962B74395184
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1245623   (469889) от 07.09.2018
+
+Сергей Медведев | Парк Крымского периода. Хроники третьего срока (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469889.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Парк Крымского периода" - это сборник эссе историка и политолога Сергея Медведева, написанных им в 2014-2017 гг. по мотивам главных политических, социальных и исторических тем, волнующих российское общество. Чекисты и журналисты, Донбасс и Сирия, танки на параде и "мигалки" на лимузинах, Сталин и Ельцин, собаки Шувалова и песни Шнурова сплетаются (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4CF35AF58E8696DC8F451A6FEF4155351C068E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161028   (469675) от 27.08.2017
+
+Станислав Говорухин | Страна воров на дороге в светлое будущее (1994) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссер, писатель, публицист, автор многих известных фильмов, в том числе «Место встречи изменить нельзя», «Россия, которую мы потеряли», «Так жить нельзя». Последний фильм «Великая криминальная революция», из которого по ТВ «Останкино» были показаны только лишь фрагменты с необъективными, предвзятыми комментариями. В предлагаемой читателю книге им затронуты многие (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B8AB8F83AB3C99F740FB54921FA3FDE266DD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245574   (469590) от 07.09.2018
+
+Николай Стариков | Ненависть. Хроники русофобии (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему Запад нас не любит? Были мы имперцами, были мы коммунистами, были мы демократами – но во все времена Запад нас ненавидел. Откуда же взялась эта ненависть? Откройте для себя малоизвестные страницы взаимоотношений России и Запада: – Как Британская королева флиртовала с советским моряком. – Почему поляки резали спящих русских солдат, а теперь разрушают памятники (   Читать дальше...   )Жанр: ПолитикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FFB7170D6C2907C8D9637A6B5743BD7AD5C93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548265   (469030) от 17.09.2012
 
 Рам Цзы, Дмитрий Лёушкин | Нет пути для "духовно продвинутых" + Турбо-Суслик [2 книги] (2000-2008) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469030.jpg" />
+  <img src="Z:/picture/008/save_picture_469030.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467579.jpg" />
+  <img src="Z:/picture/008/save_picture_467579.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467571.jpg" />
+  <img src="Z:/picture/008/save_picture_467571.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467453.jpg" />
+  <img src="Z:/picture/008/save_picture_467453.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467110.jpg" />
+  <img src="Z:/picture/008/save_picture_467110.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466732.jpg" />
+  <img src="Z:/picture/008/save_picture_466732.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466148.jpg" />
+  <img src="Z:/picture/008/save_picture_466148.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465264.jpg" />
+  <img src="Z:/picture/008/save_picture_465264.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464614.jpg" />
+  <img src="Z:/picture/008/save_picture_464614.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464610.jpg" />
+  <img src="Z:/picture/008/save_picture_464610.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464130.jpg" />
+  <img src="Z:/picture/008/save_picture_464130.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463316.jpg" />
+  <img src="Z:/picture/008/save_picture_463316.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462869.jpg" />
+  <img src="Z:/picture/008/save_picture_462869.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462402.jpg" />
+  <img src="Z:/picture/008/save_picture_462402.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462394.jpg" />
+  <img src="Z:/picture/008/save_picture_462394.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462170.jpg" />
+  <img src="Z:/picture/008/save_picture_462170.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462030.jpg" />
+  <img src="Z:/picture/008/save_picture_462030.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461486.jpg" />
+  <img src="Z:/picture/008/save_picture_461486.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461314.jpg" />
+  <img src="Z:/picture/008/save_picture_461314.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461177.jpg" />
+  <img src="Z:/picture/008/save_picture_461177.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461041.jpg" />
+  <img src="Z:/picture/008/save_picture_461041.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459758.jpg" />
+  <img src="Z:/picture/008/save_picture_459758.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458970.jpg" />
+  <img src="Z:/picture/008/save_picture_458970.jpg" />
 </div>
 
 
@@ -601,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FACBBC4997BABD934FE3E416F8C3FB0448C35B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321404   (458944) от 24.08.2019
-
-Владимир Пастухов | Реставрация вместо реформации. Двадцать лет, которые потрясли Россию (2012) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы завтра весь правящий класс России исчез, то это мало что поменяло бы в жизни русского народа. Через какое-то время он «отрастил» бы себе точно такую же алчную и коррумпированную власть, которую имеет на протяжении многих веков своей истории. Все самые грандиозные русские революции были культурными революциями. То место, которое в европейской истории занимают (   Читать дальше...   )Жанр: Политология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5990DBAF4728BECCD5D7189C32F8B56C78731ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408325   (455998) от 12.09.2020
-
-В. Перло | Американский империализм (1951) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исходя из классического ленинского определения империализма и привлекая новый и убедительный фактический материал, автор вскрывает хищническую и паразитическую природу современного американского империализма, агрессивный характер его политики. Перло приводит целый ряд фактов, свидетельствующих об усилении концентрации капитала в США, характеризующих послевоенный (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9F2007CEAAF1FCE756BDB1C9B2902B60EAB3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408328   (455905) от 12.09.2020
-
-В. Перло | Неустойчивая экономика [Бумы и спады в экономике США после 1945 г.] (1975) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга видного американского экономиста В. Перло «Неустойчивая экономика» представляет собой марксистский анализ циклического развития экономики США за период с 1945 г. по настоящее время.
-
-В ней дается очерк марксистско-ленинской теории кризисов и циклов, проводится анализ основного противоречия капитализма как одной из непосредственных причин экономических кризисов (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0065C87A30CDFE2C9F485A082E0001BA706D4F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

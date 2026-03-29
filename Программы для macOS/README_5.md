@@ -1,3 +1,135 @@
+###  Публикация: 1445662   (1033548) от 06.02.2021
+
+ConceptDraw PROJECT 11 v11.0.1.93 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для управления проектами. ConceptDraw PROJECT v11 - это полнофункциональный инструмент управления проектами, который предоставляет полный набор функций, необходимых для успешного планирования и выполнения проектов. Поддерживаемые функции включают управление задачами и ресурсами, отчетность и контроль изменений. Интеграция с другими продуктами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: S Odessa Corp.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7735DC2260DF7906519FF4A28055C38D75652344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445649   (1033530) от 06.02.2021
+
+ConceptDraw DIAGRAM 14 v14.1.0.369 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощные решения для бизнес-чертежей и диаграмм. Новейшая редакция ConceptDraw DIAGRAM (ранее известная как ConceptDraw PRO) гарантирует, что она по-прежнему остается ведущим в мире профессиональным и простым в использовании программным обеспечением для построения бизнес-диаграмм. ConceptDraw DIAGRAM v14 предоставляет полный спектр решений для бизнес-графической документации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: S Odessa Corp.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC64DC207D0E141F768700147EFE29D94C6F00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445656   (1033520) от 06.02.2021
+
+ConceptDraw MINDMAP 12 v12.0.0.164 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Mind Map профессионального уровня. ConceptDraw MINDMAP v12, ведущий инструмент для создания интеллектуальных карт, включает в себя полный набор решений для проектирования и построения интеллектуальных карт, которые экономят время. Создавайте интеллектуальные карты, которые интуитивно иллюстрируют ваш мыслительный процесс. Организуйте идеи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2021Разработчик: S Odessa Corp.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4BE44D54CCAD906B44AA80DB17BF74FCE977B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445565   (1033456) от 06.02.2021
+
+ProPresenter 7 v7.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033456.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProPresenter — это удобный многоцелевой инструмент презентаций, который используют в разных областях.
+Исходно разработанный для храмов, ProPresenter используется не только различными религиозными организациями по всему миру, но также для корпоративных событий и вещательных компаний.
+Продукт включает высококачественные инструменты воспроизведения видео и аудио, предварительное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Renewed Vision LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский  и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129B5CB20AF6D04FD191398F43AD0C0B380CAE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446054   (1033319) от 07.02.2021
+
+Goldie Ap‪p 1.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Goldie Ap‪p поможет вам легко визуализировать или рассчитать золотое сечение и многие другие пропорции прямо на экране монитора.Тип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: Ignazio LacitignolaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11F9D1CB4E45E8154AA48DA1C52AAE245ECF5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445842   (1033299) от 07.02.2021
 
 WaiFu2‪x 2.10 [Multi]
@@ -6,7 +138,7 @@ WaiFu2‪x 2.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033299.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ AirMagic 1.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033040.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ EaseUS Todo Backup for Mac 3.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033020.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Macsome Spotify Downloader 2 v2.1.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033019.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ Photolemur 3 1.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032994.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ KPlayer 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032732.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ Nimble Commander Pro 1.2.9 [Rus/En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032704.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ EaseUS RecExperts 1.5.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032683.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ MacBreakZ 5 v5.44 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032595.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ Wattagio 1.12.6 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032584.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ HazeOver 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032578.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ DiscoBrick Pro 2.21 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032568.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ Middle 1.5.18 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032344.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ Screen Tin‪t 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032342.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ iSoftPhone Pro 4.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032313.jpg" />
 </div>
 
 
@@ -400,7 +532,7 @@ Flyingbee PDF to Excel 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032304.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ Morph Age 5.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032291.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ Default Folder X 5.7.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031676.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ Paste Queue (Multi Clipboard) 1.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031644.jpg" />
 </div>
 
 
@@ -506,7 +638,7 @@ Image Uploader 1.3.2 Build 4717 [Multi/Ru] [Winebottler]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031571.jpg" />
 </div>
 
 
@@ -532,7 +664,7 @@ Postbox 7.0.59 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031444.jpg" />
 </div>
 
 
@@ -543,138 +675,6 @@ Postbox является почтовым клиентом, в основу со
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF28E3A052421B22320DE892993461F9A44D1811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621018   (1031439) от 23.03.2023
-
-Ultra Audio Converter for Mac 3.2.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultra Audio Converter — это удобная и простая утилита для экспорта ваших любимых аудиоформатов. Форматы экспорта совместимы с популярными потребностями и большинство устройств и редактирование тегов для mp3, m4a полностью поддерживаются. Также Ultra Music Converter может помочь вам легко извлекать и конвертировать аудиоконтент из видеоформатов. На самом деле, Ultra (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CBD243931DB8D416F1F3C623C6B8ED728F9B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621471   (1031223) от 24.03.2023
-
-GraphicConverter 11.8.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031223.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B0A5A0EA6192595CC45F2B69C4EA4F695A2283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448142   (1031206) от 16.02.2021
-
-Flyer Design – Flyer Template for Indeisgn 1.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаеры - эффективные инструменты для продвижения, независимо от того, используются ли они для бренда, бизнеса или мероприятия. Эти рекламные материалы легко распространять и с меньшими усилиями доходят до широкой аудитории. Раздайте их в местах с интенсивным пешеходным движением, таких как метро, ​​торговые центры и продуктовые магазины. Flyer Design (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2017Разработчик: xin jinПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B5CF2AFE083BDF5C8A2B222CD9681375443AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448117   (1031177) от 16.02.2021
-
-Mirror for Chromecast TV 2.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для зеркалирования экрана и звука вашего Mac на устройство Chromecast 1, 2, Ultra.
-Вы также можете транслировать личные видео с Вашего Mac на TV. Также, мы включили возможность смотреть 2 разных видео на Mac и TV одновременно.
-При использовании этого приложения с Chromecast зеркалирование экрана начнется через 30 секунд после начала зеркального отображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845C574003DEA26A7AB1868AE97F849A9C2E1441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448236   (1031176) от 16.02.2021
-
-Numi 3.30 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Numi - необычный калькулятор, который "общается" с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01547C8EE6F1B84A009556EAB2794FDF81547B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

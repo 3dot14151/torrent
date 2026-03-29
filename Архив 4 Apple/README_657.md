@@ -1,3 +1,110 @@
+###  Публикация: 1679567   (137886) от 25.11.2023
+
+Aiseesoft iPhone Unlocker for Mac 2.0.28 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разблокируйте iPhone, iPad и iPod, удалив пароль. Удалите Apple ID, если вы забыли Apple ID или пароль. Восстановите и удалите код доступа к экранному времени без потери данных.Тип издания: macOS SoftwareРелиз состоялся: 26.09.2023Разработчик: © 2023 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C74DF5297E6F9505E78B29D30F3BCCF7630619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273062   (137869) от 31.12.2018
+
+Wondershare Filmora 9.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C3D08238DF9070B699E39CDA9DF6C1ED333257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679319   (137728) от 25.11.2023
+
+XMind Pro 2023 23.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137728.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMind – это лучшее программное обеспечение для построения диаграмм связей (они также называются интеллект-картами или ассоциативными картами). Это великолепный инструмент для мозгового штурма, экономии времени и энергии вашей компании. Мощное программное обеспечение обычно предоставляет множество инструментов, в которых трудно разобраться новым пользователям. В течение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2023Разработчик: © 2007-2023 Xmind Ltd.Поддерживаемая ОС: macOS 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9C56A2640621613073172CD81E0C85B8E2E871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679590   (137680) от 25.11.2023
+
+iToolab UnlockGo 5.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137680.jpg" />
+</div>
+
+
+###  Подробнее
+
+iToolab UnlockGo это - Универсальный инструмент для снятия блокировки iPhone
+• Удаление различных блокировок на iPhone / iPad за считанные минуты
+• Разблокировать 4-значный / 6-значный код доступа, Touch ID и Face ID
+• Снять блокировку активации iCloud без пароля(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2023Разработчик: © 2023 iToolabПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B04395E3ED7E03A23219F240C64BC1F16961A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679415   (137535) от 25.11.2023
 
 Luminar Neo 1.16.0 U2B  [Multi]
@@ -6,7 +113,7 @@ Luminar Neo 1.16.0 U2B  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137535.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Boom 3D 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137509.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ CleanMyMac 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137369.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Little Snitch 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137354.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Lingon X 6.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137177.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137157.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ FontExplorer X Pro 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135587.jpg" />
+  <img src="Z:/picture/005/save_picture_135587.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ iStat Menus 4.03 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135561.jpg" />
+  <img src="Z:/picture/005/save_picture_135561.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ iCompta 6.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135371.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ Live Wallpaper & Themes 4K Pro for Mac 18.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135263.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ Calendar 366 II 2.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135251.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ Termius for Mac 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135188.jpg" />
 </div>
 
 
@@ -328,7 +435,7 @@ GraphicConverter for Mac 12.0.8 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135006.jpg" />
 </div>
 
 
@@ -354,7 +461,7 @@ Find Any File (FAF) 2.4.2 beta1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134995.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134976.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ Bookends 14.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134974.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ Lyn 2.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134927.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Easy Data Transform for Mac 1.45.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134888.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134812.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ Dropzone 4 Pro v.4.80.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134648.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ BatchOutput PDF 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134647.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ Bike Outliner for Mac 1.17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134625.jpg" />
 </div>
 
 
@@ -577,112 +684,6 @@ Bike Outliner for Mac 1.17.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80F1F7227177BC328FEF66C14161D372173AA67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680124   (134608) от 28.11.2023
-
-Dropover for Mac 4.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropover - это утилита, облегчающая управление и перемещение содержимого между папками, приложениями, окнами и рабочими пространствами с помощью Drag and Drop. Подвигайте курсор, чтобы загрузить утилиту и перетащите все, что перетаскиваете в полку. Эта полка плавает поверх всех остальных окон, что позволяет без труда перейти к целевой папке или программе. Это работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2023Разработчик: © 2019 Damir TursunovicПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1EF9A07BC0ACCB5CC6E9C55A1E53D304CC72AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680147   (134593) от 28.11.2023
-
-Video Converter X2 for Mac 1.2.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter X2 — это полнофункциональное программное обеспечение для преобразования форматов, которое поддерживает конвертацию практически всех форматов мультимедийных файлов, включая видео MP4, AVI, 3GP, WMV, MKV, VOB, MOV, FLV; аудио MP3, AC3, FLAC, AAC, M4A, AIFF, WAV и т. д.
-Video Converter X2 имеет встроенные шаблоны форматов, оптимизированные для различных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 Omi Software Studio IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, упрощенный Китайский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E613E389C104DB52D7D3306A6C9D5A7C0AD8C236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680278   (134567) от 28.11.2023
-
-Infuse PRO 7.6.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2023Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7237FD7CB7121492BC5BE53BC28B0B833998ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680209   (134535) от 28.11.2023
-
-PDF Expert 3.7.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134535.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - редактор  PDF. Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому.
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2023Разработчик: © 2015-2022 Readdle Inc.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBE1A7B5323D8C1E25BEF9714DB4FC03EB2FE6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

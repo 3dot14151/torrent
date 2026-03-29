@@ -1,3 +1,30 @@
+###  Публикация: 1032120   (647390) от 06.07.2016
+
+Д. О. Хвостова (ред) | Бусидо. Путь воина (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647390.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Бусидо» - так называли в древней Японии свод правил и установлений, регламентирующих поведение и повседневную жизнь самураев - профессиональных воинов, определявших историю своей страны на протяжении веков.
+ Это философия и этика японского воина, которая произошла из далекого прошлого. Бусидо, которое первоначально объединяло общие воинские законы, благодаря введенному (   Читать дальше...   )Жанр: Теория военного искусства, Восточная философияПеревод: Ирина МизининаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596C1FB4586029E0AA7455A947127403BC505BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141989   (646511) от 12.06.2017
 
 Иван Коновалов | Солдаты удачи и воины корпораций. История современного наемничества (2015) [PDF]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646511.jpg" />
+  <img src="Z:/picture/008/save_picture_646511.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645363.jpg" />
+  <img src="Z:/picture/008/save_picture_645363.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645274.jpg" />
+  <img src="Z:/picture/008/save_picture_645274.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645258.jpg" />
+  <img src="Z:/picture/008/save_picture_645258.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645238.jpg" />
+  <img src="Z:/picture/008/save_picture_645238.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643574.jpg" />
+  <img src="Z:/picture/008/save_picture_643574.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643501.jpg" />
+  <img src="Z:/picture/008/save_picture_643501.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643416.jpg" />
+  <img src="Z:/picture/008/save_picture_643416.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643030.jpg" />
+  <img src="Z:/picture/008/save_picture_643030.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640000.jpg" />
+  <img src="Z:/picture/008/save_picture_640000.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639909.jpg" />
+  <img src="Z:/picture/008/save_picture_639909.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639338.jpg" />
+  <img src="Z:/picture/008/save_picture_639338.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639216.jpg" />
+  <img src="Z:/picture/008/save_picture_639216.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637986.jpg" />
+  <img src="Z:/picture/008/save_picture_637986.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635967.jpg" />
+  <img src="Z:/picture/008/save_picture_635967.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633719.jpg" />
+  <img src="Z:/picture/008/save_picture_633719.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633317.jpg" />
+  <img src="Z:/picture/008/save_picture_633317.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632507.jpg" />
+  <img src="Z:/picture/008/save_picture_632507.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632401.jpg" />
+  <img src="Z:/picture/008/save_picture_632401.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632375.jpg" />
+  <img src="Z:/picture/008/save_picture_632375.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632246.jpg" />
+  <img src="Z:/picture/008/save_picture_632246.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632139.jpg" />
+  <img src="Z:/picture/008/save_picture_632139.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632010.jpg" />
+  <img src="Z:/picture/008/save_picture_632010.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631939.jpg" />
+  <img src="Z:/picture/008/save_picture_631939.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631526.jpg" />
+  <img src="Z:/picture/008/save_picture_631526.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5011A847DED794AFF961423833A75B62F520F15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520935   (631441) от 09.07.2012
-
-С.П.Махов | Тайны подводной войны. 1914-1945 [2012] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историю Первой и Второй мировых войн трудно представить без подводной войны, которую вели их участники. Подлодки сразу зарекомендовали себя как грозное оружие, представляющее заметную угрозу для боевых кораблей, и один из главных родов сил флота в борьбе на коммуникациях противника. Неудивительно, что подводная война вызывает такой большой интерес у любителей военной истории. Это подтверждается большим количеством дискуссий, которые возникают в сети Интернет, где на исторических форумах ведутся жаркие споры на темы, был ли торпедирован германский линкор "Тирпиц", каковы реальные успехи наших подводников, насколько правомерно было потопление британских лайнеров "Атсния" и "Лузитания" и т.п. И уж, конечно, отдельно стоит выделить интерес к подводной войне, которую вели немецкие подводные лодки во время обеих мировых войн. Данная книга представляет собой сборник, составленный из работ российских исследователей и историков, посвященных отдельным периодам и эпизодам подводной войны.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8BF0EEB3EAA7C7CBE13E356B73A52B4047F231
 ```
 
 https://mybot314.ru/tekegram_catalog/

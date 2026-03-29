@@ -1,3 +1,168 @@
+###  Публикация: 532250   (537855) от 07.08.2012
+
+Цирк дю Солей: Большое путешествие / Cirque du Soleil: Journey of Man (2000) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: дублированныйСубтитры: Русские, АнглийскиеПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7B1CD0339E2B9A8E64D02187C17346739846EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924887   (536924) от 08.08.2015
+
+Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366840   (536899) от 23.07.2011
+
+Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Мой Рок-н-Ролл
+02-Бойцовский клуб
+03-Кому веришь ты?
+04-Зачем?(   Читать дальше...   )8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотенЖанр: КонцертПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3F889BC8959FE2290629A52BA97DFE1424FBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366841   (536634) от 23.07.2011
+
+Фестиваль Нашествие 2011 - АРИЯ (2011) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536634.jpg" />
+</div>
+
+
+###  Подробнее
+
+8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотен журналистов из всех регионов нашей необъятной страны, а также из стран ближнего (   Читать дальше...   )01. Колизей
+02. Игра с огнем
+03. Крещение огнем
+04. Штиль(   Читать дальше...   )Жанр: Концерт, Hard 'n' HeavyПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71CB35B81B05C24D67EA415B281BF637F96A34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 697108   (536336) от 05.09.2013
+
+Двадцать седьмой, неполный (1970) TVRip (БДТ им. Товстоногова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль из репертуара БДТ им. Товстоногова по пьесе Ю. Принцева. О жизни и творчестве Аркадия Гайдара.Производство: Ленинградское ТВЖанр: Телеспектакль, драма, военный, биографияРежиссер: Глеб СелянинАктеры: Олег Окулевич, Павел Луспекаев, Анатолий Пузырёв, Ольга Волкова, Алексей Колобов, Владислав Стржельчик, Михаил ЛадыгинПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CE64E691D4FFA23EAB2BD93F5A7622E73D9A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695887   (535896) от 05.09.2013
+
+Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
+2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
+3. Alex Hepburn - Under 1080p (4:07)
+4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 226856   (535776) от 16.08.2010
 
 Битлз - Первый визит в США. / The Beatles - The first US visit (2004) DVD9
@@ -6,7 +171,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535776.jpg" />
+  <img src="Z:/picture/008/save_picture_535776.jpg" />
 </div>
 
 
@@ -32,7 +197,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535660.jpg" />
+  <img src="Z:/picture/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -62,7 +227,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535277.jpg" />
+  <img src="Z:/picture/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -91,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535269.jpg" />
+  <img src="Z:/picture/008/save_picture_535269.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534932.jpg" />
+  <img src="Z:/picture/008/save_picture_534932.jpg" />
 </div>
 
 
@@ -148,7 +313,7 @@ Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534931.jpg" />
+  <img src="Z:/picture/008/save_picture_534931.jpg" />
 </div>
 
 
@@ -174,7 +339,7 @@ Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534892.jpg" />
+  <img src="Z:/picture/008/save_picture_534892.jpg" />
 </div>
 
 
@@ -203,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534681.jpg" />
+  <img src="Z:/picture/008/save_picture_534681.jpg" />
 </div>
 
 
@@ -231,7 +396,7 @@ Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Go
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534476.jpg" />
+  <img src="Z:/picture/008/save_picture_534476.jpg" />
 </div>
 
 
@@ -257,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534343.jpg" />
+  <img src="Z:/picture/008/save_picture_534343.jpg" />
 </div>
 
 
@@ -287,7 +452,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534223.jpg" />
+  <img src="Z:/picture/008/save_picture_534223.jpg" />
 </div>
 
 
@@ -322,7 +487,7 @@ Chet Atkins - Certified Guitar Player'87 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534010.jpg" />
+  <img src="Z:/picture/008/save_picture_534010.jpg" />
 </div>
 
 
@@ -348,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533969.jpg" />
+  <img src="Z:/picture/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -374,7 +539,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533322.jpg" />
+  <img src="Z:/picture/008/save_picture_533322.jpg" />
 </div>
 
 
@@ -403,7 +568,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533314.jpg" />
+  <img src="Z:/picture/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -432,7 +597,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533312.jpg" />
+  <img src="Z:/picture/008/save_picture_533312.jpg" />
 </div>
 
 
@@ -461,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533304.jpg" />
+  <img src="Z:/picture/008/save_picture_533304.jpg" />
 </div>
 
 
@@ -490,7 +655,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533108.jpg" />
+  <img src="Z:/picture/008/save_picture_533108.jpg" />
 </div>
 
 
@@ -518,7 +683,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532748.jpg" />
+  <img src="Z:/picture/008/save_picture_532748.jpg" />
 </div>
 
 
@@ -544,7 +709,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532722.jpg" />
+  <img src="Z:/picture/008/save_picture_532722.jpg" />
 </div>
 
 
@@ -555,184 +720,6 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11977AD6850C2A0E2DEEB4C79B6E1B6A7042F6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050646   (532548) от 11.09.2016
-
-Лунин или смерть Жака (1986) SATRip (2 части) (Московский драматический театр на Малой Бронной)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исповедь главного героя - декабриста Михаила Сергеевича Лунина. Стены Акатуйской тюрьмы, где Лунин провел свои последние дни. Но тут же присутствует и другой мир - прежний мир Лунина. Он - в воспоминаниях, в фантазиях... Спектакль начинается с последнего дня жизни Лунина. Именно в этот день ему предстоит подвести последнюю черту прожитому, сделать вывод. Множество (   Читать дальше...   )Производство: СССР, Московский драматический театр на Малой БроннойЖанр: Драма, спектакльРежиссер: Александр ДунаевАктеры: Олег Вавилов, Анна Каменкова, Геннадий Коротков, Анатолий Спивак, Геннадий Сайфулин, Андрей Котов, Виктор Лакирев, Татьяна Кленова, Кирилл Глазунов, Константин Бердиков, Николай СеребренниковПродолжительность: 2 x ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B003609A310D573F5D04D39CC4E506F37A3B2604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533597   (532070) от 10.08.2012
-
-Deep Purple: Phoenix Rising (2011) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532070.jpg" />
-</div>
-
-
-###  Подробнее
-
-GETTIN' TIGHTER: Полнометражный полуторачасовой документальный фильм об истории Deep Purple после ухода Иэна Гиллана и Роджера Гловера. Джон Лорд и Гленн Хьюз рассказывают прежде неизвестные истории о "пост-гиллановских" годах, присутствуют впервые публикуемые изображения и оригинальные видеоматериалы, собранные в течение многих лет.01. Burn
-02. Love Child
-03. Smoke On The Water
-04. You Keep On Moving
-05. Highway StarЖанр: Документальный, Hard RockАктеры: Coverdale, Huges, Bolin, Paice, LordПеревод: ОтсутствуетЯзык субтитров: Русские, Английские, Французские, Немецкие, ИспанскиеПродолжительность: 01:25:07+0:31:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533179   (531922) от 10.08.2012
-
-Blackmore's Night - A Knight In York (2012) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий DVD Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Opera House 30-ого сентября 2011 года. Он охватывает все волшебство потрясающего шоу Candice, Ritchie & Co.01 Locked Within The Crystal Ball
-02 Guilded Cage
-03 The Circle
-04 Journeyman
-05 World Of Stone
-06 The Peasant's Promise
-07 Toast To Tomorrow
-08 Fire's At Midnight
-09 Barbara Allen
-10 Darkness(   Читать дальше...   )Жанр: Medieval Folk RockПеревод: ОтсутствуетПродолжительность: 1:35:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155643   (531348) от 04.08.2017
-
-The Doors - The Very Best Of (2007) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531348.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Doors оказала сильнейшее влияние на культуру и искусство 60-х годов. Загадочные, мистические, иносказательные тексты песен и яркий образ вокалиста группы, Джима Моррисона, сделали её едва ли не самой знаменитой и равно же противоречивой группой своего времени. Их треки до сих пор вдохновляют музыкантов, не дают покоя поклонникам и толкают на опасные эксперименты. (   Читать дальше...   )01. Light My Fire
-02. Hello, I Love You
-03. Spanish Caravan
-04. Unknown Soldier(   Читать дальше...   )Производство: EU manufactured /RHINO Records - 081 227998547Жанр: МузыкаРежиссер: Stephanie BennettАктеры: Джим Моррисон, Рэй Манзарек, Робби Кригер, Джон ДенсморПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D3EAC6824F871282D56880EFB60D91B68F9600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926783   (531290) от 11.08.2015
-
-Новогодний календарь (1965) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал подарил вторую жизнь любимой передаче "Голубой огонек". В праздничные дни "Голубые огоньки" 60-х годов зрители смогут увидеть в новом отреставрированном варианте и уже не в черно-белом варианте, а цветном. Гостями этих программ были: первый космонавт Юрий Гагарин, Георгий Вицин, Юрий Никулин и Евгений Моргунов (знаменитые герои Трус, (   Читать дальше...   )01.Лариса Мондрус - "Милый мой фантазёр"
-02.Геннадий и Валерий Сазоновы - "Чечетка"
-03.Аркадий Райкин - "Интермедия"
-04.Ансамбль "Аккорд" - "Пингвины"(   Читать дальше...   )Производство: СССРЖанр: Фильм-концертРежиссер: Первый каналАктеры: Актеры Советской эстрадыПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CCC5865BEF2AC06B80E2E3124F12CCE232E2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926797   (531194) от 11.08.2015
-
-Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирно известный певец, автор и исполнитель песен, легендарный сэр Элтон Джон выступит со своим известным шоу The Million Dollar Piano в концертном зале Колизей в Лас-Вегасе. Центральное место в концерте отводится роялю, который является поистине чудом инженерной мысли: полностью покрытый 68 светодиодными LED-экранами, он представляет собой сплав новых технологий (   Читать дальше...   )01. The Bitch Is Back
-02. Bennie And The Jets
-03. Rocket Man
-04. Levon(   Читать дальше...   )Жанр: Rock, Pop Rock, Glam Rock, Soft Rock, R&BПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A98C072240EE92D48FF470C24ACA35352842BFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

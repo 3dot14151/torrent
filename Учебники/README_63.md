@@ -1,3 +1,56 @@
+###  Публикация: 1325207   (416203) от 13.09.2019
+
+Т.В. Воронченко | Основы бухгалтерского учета. Учебник и практикум (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике представлены основы бухгалтерского учета, исторические и методические аспекты его возникновения и развития. Особенностью издания является системный взгляд на предмет и метод учета и комплексный подход к рассмотрению их взаимосвязей и взаимозависимостей. В учебник включен практикум, содержащий тесты и задачи для практических (семинарских) занятий и самостоятельной (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC4DF64183BCD85628E7B4599972AB236680DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065173   (416178) от 24.10.2016
+
+В.И. Галкин, Е.В. Пелевин | Промышленная электроника и микроэлектроника (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416178.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены технологические процессы изготовления изделий микроэлектроники, их диагностика, расчеты параметров типовых электрических схем и элементов электронной техники, представлены основные технико-экономические показатели участка, цеха при производстве изделий микроэлектроники.
+Для студентов средних профессиональных учебных заведений.Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEAD52610756C8971A9100DAB9270C8992ADDC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065211   (416176) от 24.10.2016
 
 А.М. Сажнев, Л.Г. Рогулина | Источники бесперебойного электропитания переменного тока (2015) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416176.jpg" />
+  <img src="Z:/picture/008/save_picture_416176.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416161.jpg" />
+  <img src="Z:/picture/008/save_picture_416161.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414708.jpg" />
+  <img src="Z:/picture/008/save_picture_414708.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414706.jpg" />
+  <img src="Z:/picture/008/save_picture_414706.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414339.jpg" />
+  <img src="Z:/picture/008/save_picture_414339.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414337.jpg" />
+  <img src="Z:/picture/008/save_picture_414337.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414334.jpg" />
+  <img src="Z:/picture/008/save_picture_414334.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414329.jpg" />
+  <img src="Z:/picture/008/save_picture_414329.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414308.jpg" />
+  <img src="Z:/picture/008/save_picture_414308.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414198.jpg" />
+  <img src="Z:/picture/008/save_picture_414198.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414194.jpg" />
+  <img src="Z:/picture/008/save_picture_414194.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414187.jpg" />
+  <img src="Z:/picture/008/save_picture_414187.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414175.jpg" />
+  <img src="Z:/picture/008/save_picture_414175.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413626.jpg" />
+  <img src="Z:/picture/008/save_picture_413626.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413619.jpg" />
+  <img src="Z:/picture/008/save_picture_413619.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413482.jpg" />
+  <img src="Z:/picture/008/save_picture_413482.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412584.jpg" />
+  <img src="Z:/picture/008/save_picture_412584.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412576.jpg" />
+  <img src="Z:/picture/008/save_picture_412576.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412571.jpg" />
+  <img src="Z:/picture/008/save_picture_412571.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412570.jpg" />
+  <img src="Z:/picture/008/save_picture_412570.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412459.jpg" />
+  <img src="Z:/picture/008/save_picture_412459.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412454.jpg" />
+  <img src="Z:/picture/008/save_picture_412454.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412445.jpg" />
+  <img src="Z:/picture/008/save_picture_412445.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412440.jpg" />
+  <img src="Z:/picture/008/save_picture_412440.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96E5E79CAB934050D024E4BF02F1790FD04EEE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325589   (412435) от 15.09.2019
-
-В.В. Касьянов | Социология (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основные понятия социологической теории: общество, социальная структура, социальный институт, социальное взаимодействие, социальные изменения. Значительное внимание в нем уделяется применению социологических идей в журналистике, анализируется опыт и проблемы формирования современного медиасоциума, описываются важные аспекты социологических исследований (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9372B1994058FC95D2B3F1B888EC1ED5CB35065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325449   (412267) от 15.09.2019
-
-Ю.Н. Дементьев и др. | Электропривод типовых производственных механизмов (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412267.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрены вопросы проектирования, разработки имитационных моделей в среде MATLAB–Simulink, настройки систем управления и компьютерного экспериментального исследования асинхронного частотно-регулируемого электропривода общепромышленного назначения. Представлен пакет моделей электропривода типовых производственных механизмов в среде MATLAB и пакет программ (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936AE40E7E4DFCF18E00315DE973F6E5583E9A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

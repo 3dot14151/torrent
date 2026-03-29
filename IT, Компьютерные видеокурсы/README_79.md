@@ -1,3 +1,138 @@
+###  Публикация: 1425705   (219576) от 21.11.2020
+
+Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2020 (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
+
+100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 56:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425716   (219443) от 21.11.2020
+
+Udemy, Кирилл Жданов | Тестировщик ПО, стань Junior QA Engineer в любом возрасте (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите услышать максимально правдивый ответ всем курсам по тестированию? Вы уже тестировщик! Я прошел путь от Младшего инженера тестировщика до Руководителя отдела тестирования и мне есть чем с вами поделиться!  Этот курс делает вам вызов. Поставлена амбициозная цель: за минимальное время приступить к поиску своей первой работы в ИТ: Тестировщик ПО.Производство: UdemyЖанр: ТестированиеПродолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427AB472478A6E9B5C7E46CDB7C06CF4EECB066B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425599   (219424) от 21.11.2020
+
+Udemy, Роман Сакутин и др. | Unity 2019 - Полный курс для разработчика игр | Для чайников  (2019) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаете создавать игры?
+
+Начните с полного курса по Unity 2019 и в кратчайшие сроки станьте разработчиком игр! Курс даст вам всё необходимое для того, чтобы вы начали разрабатывать свои первые игры в движке Unity. Даже если вы не умеете программировать, вам ничего не помешает так, как в курсе есть все необходимые знания.
+(   Читать дальше...   )Производство: UdemyЖанр: Программирование, Розработка игр, C#Продолжительность: 05:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE95920588C5EDAD5352CC73B36AD1EEAFEC386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425720   (219416) от 21.11.2020
+
+Яндекс.Практикум | Профессия Python-разработчик [Часть 6 из 8] (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python-разработчик создаёт бэкенд сайтов: мозг, который принимает запросы, общается с базой данных и передаёт нужную информацию пользователю. Разработчик проектирует алгоритмы взаимодействия сайта с другими интернет-сервисами. Вы изучите язык Python: он востребован и прост. Вы также освоите важнейшие инструменты бэкендера: Django, базы данных, git. В процессе обучения (   Читать дальше...   )Жанр: Программирование, PythonПродолжительность: 08:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0ADDEB1AD719B962F81B28E3AA8C17C80BFFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585742   (219370) от 11.12.2012
+
+Куликов А.С., Дворкин М.Э. | Курс «Алгоритмы и структуры данных 1, 2» [2011-2012] HDRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совместный проект Школы анализа данных Яндекса, CS клуба, Академии современного программирования и ФМЛ №239. Это курсы подготовительного года обучения. Занятия первого семестра проводились в конце 2011 года, второго - в начале 2012 года.Жанр: ПрограммированиеПродолжительность: 17:09:43 (1 часть), 29:41:29 (2 часть)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157A8CA99086374A1AC0413AC1F4DBEC0F4C4E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966197   (219296) от 17.12.2015
 
 Мэтт Дженсен | Как Я Стал №1 в Google - Полный SEO курс (2015) PCRec [H.264]
@@ -6,7 +141,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219296.jpg" />
+  <img src="Z:/picture/005/save_picture_219296.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219270.jpg" />
+  <img src="Z:/picture/005/save_picture_219270.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219250.jpg" />
+  <img src="Z:/picture/005/save_picture_219250.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219222.jpg" />
+  <img src="Z:/picture/005/save_picture_219222.jpg" />
 </div>
 
 
@@ -112,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219180.jpg" />
+  <img src="Z:/picture/005/save_picture_219180.jpg" />
 </div>
 
 
@@ -140,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219070.jpg" />
+  <img src="Z:/picture/005/save_picture_219070.jpg" />
 </div>
 
 
@@ -166,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218893.jpg" />
+  <img src="Z:/picture/005/save_picture_218893.jpg" />
 </div>
 
 
@@ -193,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218799.jpg" />
+  <img src="Z:/picture/005/save_picture_218799.jpg" />
 </div>
 
 
@@ -219,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218732.jpg" />
+  <img src="Z:/picture/005/save_picture_218732.jpg" />
 </div>
 
 
@@ -245,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218724.jpg" />
+  <img src="Z:/picture/005/save_picture_218724.jpg" />
 </div>
 
 
@@ -271,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218142.jpg" />
 </div>
 
 
@@ -298,7 +433,7 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218113.jpg" />
 </div>
 
 
@@ -327,7 +462,7 @@ TeachMeSkills | Python разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218078.jpg" />
 </div>
 
 
@@ -354,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218037.jpg" />
+  <img src="Z:/picture/005/save_picture_218037.jpg" />
 </div>
 
 
@@ -380,7 +515,7 @@ OTUS, Вадим Заигрин | Apache Kafka (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217537.jpg" />
 </div>
 
 
@@ -407,7 +542,7 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Web Developer in 2023: Zero to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217526.jpg" />
+  <img src="Z:/picture/005/save_picture_217526.jpg" />
 </div>
 
 
@@ -434,7 +569,7 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217230.jpg" />
+  <img src="Z:/picture/005/save_picture_217230.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217048.jpg" />
+  <img src="Z:/picture/005/save_picture_217048.jpg" />
 </div>
 
 
@@ -487,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217005.jpg" />
 </div>
 
 
@@ -513,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216960.jpg" />
 </div>
 
 
@@ -541,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216755.jpg" />
 </div>
 
 
@@ -552,146 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514331   (216265) от 03.12.2021
-
-С. Росс | Mindjet MindManager. Интеграция v2019 с линейкой Microsoft Office Word, Excel, Outlook и Project (2019) WEBRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216265.jpg" />
-</div>
-
-
-###  Подробнее
-
-MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT OFFICE: WORD, EXCEL, OUTLOOK И PROJECT
-Опубликовано чт, 20/06/2019 - 12:32 пользователем Corel_info
-Набор приложений MS Office стал неотъемлемой частью современного рабочего места.
-Большинство из нас просто не могли бы выполнять свою работу или вести свой бизнес без него. MindManager 2019 for Windows обладает (   Читать дальше...   )Жанр: Обучающий вэбинарПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514360   (215972) от 03.12.2021
-
-Udemy, Дмитрий . | Java до уровня Junior Developer за 3 месяца (1 часть) (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть Java курса, позволяющая изучить Java и освоить навыки профессионального разработчика на реальных примерах.
-Данный курс является продолжение курса Udemy, Дмитрий . | Основы программирования на Java с нуля за 2 месяца (2021) WEB-DLПроизводство: UdemyЖанр: ПрограммированиеПродолжительность: 45:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5C0C608A18E6FBDD4A2C64E8560BA3FBB5F904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426271   (215843) от 23.11.2020
-
-Udemy, Семен Паничев | С++ GOF Паттерны проектирования (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы совершенно не знакомы с паттернами проектирования или возможно что-то уже о них слышали
-Если вы знаете язык программирования С++ на базовом уровне
-Если вы хотите научиться лучшим техникам проектирования приложений
-то данный видеокурс подойдет вам для полного понимания основных паттернов проектирования. Вы изучите паттерны проектирования из каталога GoF, которые (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 05:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1C8002BD6BE1E98EE33065A9D53837FC3DAFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426269   (215594) от 23.11.2020
-
-Udemy, Журавлёв Сергей | C++ | STL | Библиотека стандартных шаблонов (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека стандартных шаблонов STL в C++ - это библиотека знание и умение пользоваться которой является обязательным для  каждого разработчика на языке программирования C++.
-В данном курсе простыми словами, на простых примерах показано как использовать контейнеры и алгоритмы STL.
-Изучив курс вы получите знания об основных контейнерах и алгоритмах STL и умения применять (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 06:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648CB6AC046A9720E1373B258834144C5F11E8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426040   (215428) от 23.11.2020
-
-Udemy, Eduard Kozlov | Эффективная разработка модулей 1С-Битрикс (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215428.jpg" />
-</div>
-
-
-###  Подробнее
-
-На моем курсе вы научитесь быстро разрабатывать модули для 1С-Битрикс и публиковать их на Маркетплейсе, получите необходимые заготовки и документацию по разработке базовых модулей. Я покажу как быстро пройти модерацию и начать зарабатывать на своих модулях.
-В моей компании сейчас уже более 15 опубликованных модулей, которые регулярно скачивают и покупают, количество (   Читать дальше...   )Производство: UdemyЖанр: 1С-БитриксПродолжительность: 01:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5D5F8FFB0E620F0190440894D700188CF10BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

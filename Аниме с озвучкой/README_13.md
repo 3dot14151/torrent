@@ -1,3 +1,31 @@
+###  Публикация: 1377238   (852755) от 21.04.2020
+
+Bishoujo Senshi Sailor Moon R | Красавица-Воин Сейлор Мун Эр [TV-2] [1993, TV, 43 ep] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_852755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сезон разделен на две части:
+Первая «вступительная» состоит всего из 13 эпизодов. В ней врагами девочек становятся пришельцы — брат и сестра, Эйл и Энн, которые прибыли на Землю, чтобы наполнить свое древо Темного Мира энергией за счет людей.
+Вторая же часть начинается с появления таинственной девочки, которая почему-то очень похожа на маленькую Банни. Даже прическу (   Читать дальше...   )Производство: Toei AnimationЖанр: Приключения, Комедия, Махо-СёдзёРежиссер: Сато ДзюнъитиОзвучка: Многоголосая закадроваяСубтитры: ОтсутствуютПродолжительность: 43 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E844145E259B8ABC41B17E610083A768E1F87AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377240   (852754) от 21.04.2020
 
 Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин Сейлор Мун Эр: Опасные Цветы [1993, Movie + Special] BDRip 1080p raw+rus
@@ -6,7 +34,7 @@ Bishoujo Senshi Sailor Moon R: Promise Of The Rose | Красавица-Воин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852754.jpg" />
+  <img src="Z:/picture/008/save_picture_852754.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Bishoujo Senshi Sailor Moon | Красавица-Воин Сейлор Мун [T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852753.jpg" />
+  <img src="Z:/picture/008/save_picture_852753.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Bishoujo Senshi Sailor Moon Crystal | Pretty Guardian Sailor Moon Crystal | Кр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852751.jpg" />
+  <img src="Z:/picture/008/save_picture_852751.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849045.jpg" />
+  <img src="Z:/picture/008/save_picture_849045.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847274.jpg" />
+  <img src="Z:/picture/008/save_picture_847274.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846001.jpg" />
+  <img src="Z:/picture/008/save_picture_846001.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845784.jpg" />
+  <img src="Z:/picture/008/save_picture_845784.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ Aoi Bungaku Series / Blue Literature Series / Классические исто�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845531.jpg" />
+  <img src="Z:/picture/008/save_picture_845531.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844667.jpg" />
+  <img src="Z:/picture/008/save_picture_844667.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ Watashi, Nouryoku wa Heikinchi de tte Itta yo ne! | Я Сказала, Усре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844001.jpg" />
+  <img src="Z:/picture/008/save_picture_844001.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844000.jpg" />
+  <img src="Z:/picture/008/save_picture_844000.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели т�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843999.jpg" />
+  <img src="Z:/picture/008/save_picture_843999.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843998.jpg" />
+  <img src="Z:/picture/008/save_picture_843998.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843994.jpg" />
+  <img src="Z:/picture/008/save_picture_843994.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ Kiseijuu: Sei no Kakuritsu / Parasyte: The Maxim / Паразит: Жизнен�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840820.jpg" />
+  <img src="Z:/picture/008/save_picture_840820.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839595.jpg" />
+  <img src="Z:/picture/008/save_picture_839595.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ Gintama / Гинтама [ТВ-4] [2015, TV, 1-51 из 51 эп.] HDTV 720p raw+r
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839433.jpg" />
+  <img src="Z:/picture/008/save_picture_839433.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 ep] HDTV 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839160.jpg" />
+  <img src="Z:/picture/008/save_picture_839160.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839060.jpg" />
+  <img src="Z:/picture/008/save_picture_839060.jpg" />
 </div>
 
 
@@ -503,7 +531,7 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837438.jpg" />
+  <img src="Z:/picture/008/save_picture_837438.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837232.jpg" />
+  <img src="Z:/picture/008/save_picture_837232.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837231.jpg" />
+  <img src="Z:/picture/008/save_picture_837231.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837229.jpg" />
+  <img src="Z:/picture/008/save_picture_837229.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Б
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836803.jpg" />
+  <img src="Z:/picture/008/save_picture_836803.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835858.jpg" />
+  <img src="Z:/picture/008/save_picture_835858.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:333A6D17D2042D8108259D801A1B12E216628339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956593   (835769) от 07.04.2016
-
-Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад, когда человечество было на пике процветания, загадочная мисс Монохром и талантливая во всём девушка Кикуко вели ожесточенную борьбу за мировую популярность. Но в разгар их очередной битвы на Землю напали инопланетяне  и все земляне, включая Кикуко погибли. Мисс Монохром осталась на планете совсем одна и пока эволюция мира пошла на очередной виток (   Читать дальше...   )Производство: Япония, Liden Films, SanzigenЖанр: Повседневность, МузыкальныйРежиссер: Ивасаки ЁсиакиПродолжительность: 13 серий по 8 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2741A990E99CAFAA1AB8AE3019EE40946991615
 ```
 
 https://mybot314.ru/tekegram_catalog/

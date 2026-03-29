@@ -1,3 +1,107 @@
+###  Публикация: 949924   (362941) от 29.10.2015
+
+Сказки Беатрис Поттер / Tales of Beatrix Potter (1971) HDRip [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительно сделанный балетный фильм 1971 года “Сказки Беатрис Поттер” о кролике Питере и других животных. Весь балет - это представление персонажей: танцуют белки, мыши, лягушки и прочие мелкие животные. Уникальная в своём роде постановка, граничащая с кукольным сюрреализмом, как - будто кролики Линча решили сплясать для наших деток. Но самое главное то, с какой (   Читать дальше...   )Производство: Великобритания, GW FilmsЖанр: Мьюзикл, Семейный, Фэнтези, МузыкальныйРежиссер: Реджинальд МиллсАктеры: Фредерик Эштон, Александр Грант, Джули Вуд, Энн Ховард, Боб Мид, Гарри Грант, Сэлли Эшби, Бренда Ласт, Майкл Коулмэн, Уэйн СлипПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F92B6CC90107984F31BBD3B8C896337F611E9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177204   (362440) от 25.10.2017
+
+Стеклянный замок / The Glass Castle (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка растет в неблагополучной семье нонконформистов-кочевников. Ее мать эксцентричная артистка, а отец — алкоголик. Родители пытаются вселить надежду в ее детское воображение, чтобы хоть как-то отвлечь внимание от бедности.Производство: США, Lionsgate, Netter ProductionsЖанр: Биография, ДрамаРежиссер: Дестин КреттонАктеры: Бри Ларсон, Вуди Харрельсон, Наоми Уоттс, Элла Андерсон, Чандлер Хэд, Макс Гринфилд, Джош Барклай Карас, Чарли Шотуэлл, Иэн Армитедж, Сара СнукПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54943CD193AD121F46A97D6BC5E621098692ECEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255804   (360827) от 19.10.2018
+
+Ночь идёт за нами / The Night Comes for Us (2018) WEBRip [H.264/1080p-LQ] [EN, IND / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360827.jpg" />
+</div>
+
+
+###  Подробнее
+
+При выполнении очередного задания киллер триады нарушил правила — не смог заставить себя убрать последнюю свидетельницу. В спасении жизни девочки он увидел знак и шанс на искупление, но у такого поступка будут серьезные последствия, и теперь отступнику предстоит иметь дело со всей убийственной мощью своей преступной организации.Производство: Индонезия, Screenplay Infinite FilmsЖанр: Боевик, ТриллерРежиссер: Тимо ТьяджантоАктеры: Джо Таслим, Ико Уайс, Джулия Эстелл, Санни Пан, Зак Ли, Шарифа Дааниш, Ханна аль Рашид, Диан Састровардойо, Эпи Куснандар, Салвита Декорте ...Перевод: ОтсутствуетЯзык озвучки: Английский, индонезийскийСубтитры: Русские (Full), английские (на индонезийскую речь),..и др.Продолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA17135BC7A324E13B6E64AA7352842B3E8E0A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071461   (359105) от 10.11.2016
+
+Деньги / Money  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два богатых бизнесмена собираются уйти с добытыми нечестным путем 5 миллионами, но их планы нарушает незваный гость...Производство: США, ИспанияЖанр: триллер, криминалРежиссер: Мартин РосетеАктеры: Джесси Уильямс, Келлан Латс, Джейми Бамбер, Джесс Вейкслер, Фредрик Лене, Джо Ланза, Лусия Герерро, Дения Браче, Крис Лэнг, Илья Константин,  Нанда АбеллаПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800534399E4FB61D21F543EFC44B9D98B9834583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071640   (358674) от 10.11.2016
 
 Механик: Воскрешение / Mechanic: Resurrection  (2016) BDRip [H.264/720p] [EN / EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358674.jpg" />
+  <img src="Z:/picture/008/save_picture_358674.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358507.jpg" />
+  <img src="Z:/picture/008/save_picture_358507.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357798.jpg" />
+  <img src="Z:/picture/008/save_picture_357798.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357403.jpg" />
+  <img src="Z:/picture/008/save_picture_357403.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356726.jpg" />
+  <img src="Z:/picture/008/save_picture_356726.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356317.jpg" />
+  <img src="Z:/picture/008/save_picture_356317.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355454.jpg" />
+  <img src="Z:/picture/008/save_picture_355454.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355363.jpg" />
+  <img src="Z:/picture/008/save_picture_355363.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355345.jpg" />
+  <img src="Z:/picture/008/save_picture_355345.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355235.jpg" />
+  <img src="Z:/picture/008/save_picture_355235.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353731.jpg" />
+  <img src="Z:/picture/008/save_picture_353731.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353724.jpg" />
+  <img src="Z:/picture/008/save_picture_353724.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351910.jpg" />
+  <img src="Z:/picture/008/save_picture_351910.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351805.jpg" />
+  <img src="Z:/picture/008/save_picture_351805.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351665.jpg" />
+  <img src="Z:/picture/008/save_picture_351665.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351300.jpg" />
+  <img src="Z:/picture/008/save_picture_351300.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350874.jpg" />
+  <img src="Z:/picture/008/save_picture_350874.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350680.jpg" />
+  <img src="Z:/picture/008/save_picture_350680.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349844.jpg" />
+  <img src="Z:/picture/008/save_picture_349844.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349406.jpg" />
+  <img src="Z:/picture/008/save_picture_349406.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348238.jpg" />
+  <img src="Z:/picture/008/save_picture_348238.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346338.jpg" />
+  <img src="Z:/picture/008/save_picture_346338.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5392875B169D0EAA08437139F2D55D778FFFF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953881   (346088) от 05.11.2015
-
-Человек-муравей / Ant-Man  (2015) WEBRip [H.264/1080p-LQ] [EN]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: США, Marvel Studios, Big Talk Productions and Marvel Enterprises.Жанр: фантастика, боевик, комедия, приключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди Грир, Энтони Маки, Вуд ХаррисПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E205BD7AAFF582CA4E2F54C667F469AFED96403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578497   (345521) от 23.09.2022
-
-Лу / Lou (2022) WEB-DL [H.264/1080p] [EN / RU, EN, Multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время бури похищена маленькая девочка. Чтобы ее найти, загадочная и нелюдимая соседка расстается со спокойной жизнью и выходит на сражение со стихией и своим темным прошлым.Производство: США / Bad RobotЖанр: боевик, криминалРежиссер: Анна ФерстерАктеры: Джерни Смоллетт, Логан Маршалл-Грин, Эллисон Дженни, Марси Т. Хаус, Грейстон Холт, Jaycie Dotin, Мэтт Крэйвен, Тоби Левинс, Ридли Аша Бейтман, Роман МитичянПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (Full, SDH) и др.Продолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483EE0A07701E18B4AA209B2D0A9B073CAFEEB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257541   (345194) от 26.10.2018
-
-Тёмные отражения / The Darkest Minds  (2018) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345194.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как неизвестная болезнь убивает 98% американских детей, 2% выживших, у которых обнаруживаются суперспособности, отправляют в специальные лагеря. 16-летняя девушка сбегает из такого лагеря и присоединяется к группе других подростков, которые скрываются от правительства.Производство: США / 21 Laps EntertainmentЖанр: фантастика, триллерРежиссер: Дженнифер ЮАктеры: Амандла Стенберг, Мэнди Мур, Брэдли Уитфорд, Харрис Дикинсон, Патрик Гибсон, Скайлан Брукс, Мия Чех, Гвендолин Кристи, Уэйд Уильямс, Марк О’Брайэн, Уоллес Лэнгэм, Голден БруксПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английский, Арабский, Болгарский , Китайский, Хорватский, Чешский, Французский, Греческий, Иврит, Хинди, Венгерский, Исландский, Корейский, Малайский, Польский, Португальский, Румынский, Испанский, Сербский, Словацкий, Словенский, Тайский, ТурецкийПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35ED86F5A18C101D740B2E4A24DBEAB7CC5CA14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257349   (344735) от 26.10.2018
-
-Шпион, который меня кинул / The Spy Who Dumped Me  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одри и Морган, лучшие подруги из Лос-Анджелеса, неожиданно оказываются в эпицентре международного заговора, когда бывший Одри заявляется к ней с толпой идущих по следу кровожадных убийц. Удивляясь сами себе, девушки берутся за нелегкое дело спасения мира. Их ждет полная опасностей - и киллеров - шпионская гонка по всей Европе, где на пути им встречается очень подозрительный, (   Читать дальше...   )Производство: США, Канада / BRON Studios, Imagine Entertainment, Lionsgate, Studio Babelsberg Motion PicturesЖанр: боевик, комедия, приключенияРежиссер: Сюзанна ФогельАктеры: Мила Кунис, Кейт МакКиннон, Сэм Хьюэн, Джастин Теру, Джиллиан Андерсон, Хасан Минхадж, Иванна Сахно, Фред Меламед, Бланка Дьёрфи-Тот, Вильма Сечи, Лолли Адефоп, Дастин Демри-БёрнсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4D550DC11443B64CD4AE2D08B6517010E63FD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

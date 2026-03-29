@@ -1,3 +1,82 @@
+###  Публикация: 875739   (435336) от 20.08.2022
+
+Собачье сердце / Cuore di Cane (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский режиссёр Альберто Латтуада несколько раз обращался к русской классической литературе («Шинель», 1952, «Буря» — по «Капитанской дочке», 1958, «Степь», 1962). Поэтому неудивительно, что он решил экранизировать повесть Михаила Булгакова как бы к пятидесятилетию её создания. Несмотря на некоторые неточности и ляпсусы в воспроизведении атмосферы и быта Москвы (   Читать дальше...   )Производство: Италия, Германия (ФРГ)Жанр: фэнтези, драма, комедияРежиссер: Альберто ЛаттуадаАктеры: Макс фон Сюдов, Элеонора Джорджи, Марио Адорф, Джина Ровере, Коки Понцони, Вадим Гловна, Рена Нихаус, Энцо Робутти, Виолетта Кьярини, Америго ТотПеревод: одноголосыйЯзык озвучки: русский, итальянскийПродолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB0FD044CD575FA088446D04B182E480CB69477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943323   (435067) от 09.10.2015
+
+Доктор Ноу / Dr. No (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонду дано задание выяснить что является источником электронных помех в компьютерах американских пусковых шахт на мысе Канаверал. По агентурным данным мозговой центр вражеских сил находится на Ямайке. Бонд незамедлительно выдвигается туда.
+В процессе расследования ему придется столкнуться с могущественной структурой СПЕКТР и ее представителем Доктором Ноу, готовым (   Читать дальше...   )Производство: Великобритания / Eon Productions Ltd.Жанр: Боевик, Триллер, ПриключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Урсула Андресс, Джозеф Уайзмен, Джек Лорд, Бернард Ли, Энтони Доусон, Зена Маршалл, Джон Кицмиллер, Юнис Гейсон, Лоис МаксуэллПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE30688D82495A8F8F5B1CB8A8F06679108FC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063118   (434674) от 16.10.2016
+
+Говорите, мне интересно / Cause toujours... tu m'interesses! (1979) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телерепортеру Франсуа Перрену всё в жизни опротивело. 7 месяцев назад он развелся с супругой и теперь старается ни с кем не встречаться, дабы своим моральным кризисом не испортить настроение другим людям. Однажды в объяснимом желании хоть с кем-нибудь пообщаться Франсуа набирает первый попавшийся телефонный номер. Повезло аптекарю Кристине, одинокой, замученной плачем (   Читать дальше...   )Производство: Франция, Albina Productions S.a.r.l.Жанр: Мелодрама, КомедияРежиссер: Эдуар МолинароАктеры: Анни Жирардо, Жан-Пьер Марьель, Кристиан Маркан, Брижит Роюан, Умбан У’ксет, Пьер Вернье, Мишель Блан, Жан-Клод Мартин, Андре Валарди, Доминик ЛавананПеревод: ДублированныйПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28ABC5C59BF7D41EEEB982973ADDC654E240F58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060802   (434390) от 16.10.2016
 
 Татуированный / Le tatoue / The Tattoo (1968) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434390.jpg" />
+  <img src="Z:/picture/008/save_picture_434390.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434257.jpg" />
+  <img src="Z:/picture/008/save_picture_434257.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433741.jpg" />
+  <img src="Z:/picture/008/save_picture_433741.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433566.jpg" />
+  <img src="Z:/picture/008/save_picture_433566.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433108.jpg" />
+  <img src="Z:/picture/008/save_picture_433108.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433004.jpg" />
+  <img src="Z:/picture/008/save_picture_433004.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432129.jpg" />
+  <img src="Z:/picture/008/save_picture_432129.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431244.jpg" />
+  <img src="Z:/picture/008/save_picture_431244.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_431088.jpg" />
+  <img src="Z:/picture/005/save_picture_431088.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430717.jpg" />
+  <img src="Z:/picture/008/save_picture_430717.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430521.jpg" />
+  <img src="Z:/picture/008/save_picture_430521.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430309.jpg" />
+  <img src="Z:/picture/008/save_picture_430309.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430194.jpg" />
+  <img src="Z:/picture/008/save_picture_430194.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429354.jpg" />
+  <img src="Z:/picture/008/save_picture_429354.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428730.jpg" />
+  <img src="Z:/picture/005/save_picture_428730.jpg" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428632.jpg" />
+  <img src="Z:/picture/008/save_picture_428632.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428314.jpg" />
+  <img src="Z:/picture/008/save_picture_428314.jpg" />
 </div>
 
 
@@ -457,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427873.jpg" />
+  <img src="Z:/picture/005/save_picture_427873.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427784.jpg" />
+  <img src="Z:/picture/005/save_picture_427784.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427577.jpg" />
+  <img src="Z:/picture/008/save_picture_427577.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427221.jpg" />
+  <img src="Z:/picture/008/save_picture_427221.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426683.jpg" />
+  <img src="Z:/picture/008/save_picture_426683.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426671.jpg" />
+  <img src="Z:/picture/008/save_picture_426671.jpg" />
 </div>
 
 
@@ -604,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18082A5F65E7DD204055F60412BFDB80D91DA8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572086   (425518) от 25.08.2022
-
-Посвящение Сары / The Initiation of Sarah (1978) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юную девушку Сару всячески обижают одноклассники и травит собственная мать. Однажды у девочки обнаруживаются телекинетические способности, несущие страшную разрушительную силу. Теперь Сара, сможет отомстить всем своим обидчикам.Производство: США, Charles Fries Productions, Stonehenge ProductionsЖанр: ужасы, триллерРежиссер: Роберт ДэйАктеры: Кэй Ленц, Шелли Уинтерс, Тони Билл, Кэтрин Грант, Морган Фэйрчайлд, Морган Бриттани, Роберт Хэйс, Тиса Фэрроу, Элизабет Стэк, Дебора РайанПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67782805A7CD500C56C63B0324778A4A6E0070EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061457   (425453) от 20.10.2016
-
-Большие каникулы / Les grandes vacances (1967) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мсье Боскье, директор престижной частной школы-интерната, чувствует себя опозоренным, узнав, что его старший сын Филипп провалил экзамен по английскому языку. Боскье решает на время летних каникул отправить сына по языковому обмену в Великобританию, в одну английскую семью, чтобы он улучшил там свой английский. На время его отсутствия в семье Боскье поселится английская (   Читать дальше...   )Производство: Франция, Италия / Ascot, Cineraid, Les Films CopernicЖанр: КомедияРежиссер: Жан ЖироАктеры: Луи де Фюнес, Ферди Мэйн, Мартина Келли, Франсуа Леччия, Оливье Де Фюнес, Клоди Жансак, Морис Риш, Жак Динам, Доминик Даврэ, Марио ДавидПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212DEA99D5D3607AA6C60591FBA1B2AA6595C5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702356   (425074) от 26.09.2020
-
-Сегундо де Шомон. Сон поваров / Le reve des marmitons (1908) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изумительный фантасмагорический фильм от мага и кудесника кинематографа Сегундо де Шомона. Когда все кухарки засыпают, на кухне появляется гном и оживляет различные объекты, чтобы работа не прекращалась.Производство: Франция, Pathé FrèresЖанр: Фэнтези, короткометражка, немой фильмРежиссер: Сегундо де ШомонАктеры: Нет сведенийСубтитры: ОтсутствуютПродолжительность: 00:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E913CD2FCD44EC648A813CE1E46ABC142806E6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

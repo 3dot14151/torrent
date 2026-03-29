@@ -1,3 +1,159 @@
+###  Публикация: 1438822   (1039814) от 13.01.2021
+
+Uzaki-chan wa Asobitai! | Uzaki-chan Wants to Hang Out! | Узаки хочет тусоваться! (Узаки хочет погулять!) [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третьекурсник Синъитиро Сакурай хочет наслаждаться университетской жизнью, ведя тихое, уединенное, ненапряжное существование. Но не тут-то было.  Старая его знакомая по кружку плавания решает взять над них шефство и не давать ему желаемого одиночества. Вот только её методы несколько сомнительны - подтрунивание, высмеивание, издевательства… Но не по злобе, а исключительно (   Читать дальше...   )Производство: Япония / EngiЖанр: комедия, повседневностьРежиссер: Миура КадзуяПеревод: Wakanim (дехардсаб - ваш покорный слуга)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (12 эп.), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E312BE13F0A58B9B78929052C4A266B83EC8D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612841   (1039797) от 17.02.2023
+
+Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Эвергарден (фильм) [2020, Movie] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Её работа — писать письма. Её имя — Виолетта Эвергарден. Прошло несколько лет, с тех пор как закончилась война, которая нанесла многим глубокие раны. Мир постепенно обретает покой, люди возвращаются к привычной жизни. Виолетта пытается научиться жить без самого важного для нее человека и не обращать внимания на свои чувства. Но однажды она получает письмо, и в её (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, мелодрамаРежиссер: Исидатэ ТайтиПеревод: 1) nnm-club^anime; 2) NetflixЯзык озвучки: ЯпонскийСубтитры: 1) Русские; 2) Английские; 3) Японские; #) Multi-SubПродолжительность: 140 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB281F012EA53B9DC1B69381FD96183B18D1B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440040   (1039335) от 15.01.2021
+
+Himote House | Himote House: A Share House of Super Psychic Girls | Дом Химотэ [2018, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сестры Химотэ: Токиё, Кинами и Кокоро живут в одном доме вместе со своими подругами и котом. И всё бы ничего, вот только все обитатели дома обладают таинственными силами.Производство: Bouncy / バウンスィЖанр: комедия, повседневностьРежиссер: Исидатэ КотароПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7651CD765161665042D67D0BC4E24B2F895E615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613835   (1039318) от 19.02.2023
+
+Project A-ko 3: Cinderella Rhapsody | Проект А-ко III: Рапсодия Золушки [1988, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время очередного отдыха от школы, А-Ко мечтает об идеальном парне. Из-за этого, она и С-Ко начинают спорить, что привело к тому, что С-Ко убегает и её чуть ли не сбивает мотоциклист по имени Кей. Работая на полставки в ресторане быстрого питания, дабы накопить на платье для вечеринки, А-Ко встречает Кея и влюбляется в него с первого взгляда. Случилось так, что (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: приключения, комедия, романтикаРежиссер: Морияма ЮдзиПеревод: Ramzes IIIЯзык озвучки: японский, английскийСубтитры: РусскиеПродолжительность: 1 эп. на 51 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4524F24EF3455DAE17738CC3AE995B1294D9B444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440038   (1039301) от 15.01.2021
+
+Fairy Gone 2 | Пропавшие феи 2 [2019, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно феи стали орудиями войны. В этом мире феи вселяются в животных и наделяют их сверхъестественными способностями. Извлекая органы этих животных и пересаживая себе, люди получили возможность призывать фей и использовать их как оружие. Таких людей прозвали солдатами-феями. Но стоило войне закончиться, как необходимость в солдатах-феях отпала, и они лишились (   Читать дальше...   )Производство: P.A. Works / ピーエーワークスЖанр: приключения, фэнтезиРежиссер: Судзуки КэнъитиПеревод: YakuSub Studio (Nika_Elrik, Arashi-sama)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7D4012EE475C9418431F6DDB293F5029FB3FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440037   (1039291) от 15.01.2021
+
+Fairy Gone | Пропавшие феи [2019, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно феи стали орудиями войны. В этом мире феи вселяются в животных и наделяют их сверхъестественными способностями. Извлекая органы этих животных и пересаживая себе, люди получили возможность призывать фей и использовать их как оружие. Таких людей прозвали солдатами-феями. Но стоило войне закончиться, как необходимость в солдатах-феях отпала, и они лишились (   Читать дальше...   )Производство: P.A. Works / ピーエーワークスЖанр: приключения, фэнтезиРежиссер: Судзуки КэнъитиПеревод: YakuSub Studio (Nika_Elrik, Arashi-sama)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B27D6DA219C12C6B5046BBD748C083AC6B4962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440588   (1038765) от 17.01.2021
 
 Saiyuuki Reload Blast | Саюки: Новый взрыв [2017, TV, 12] BDRip 1080p raw
@@ -6,7 +162,7 @@ Saiyuuki Reload Blast | Саюки: Новый взрыв [2017, TV, 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038765.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Galaxy Angel 4 | Galaxy Angel X | Галактический ангел Икс [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038348.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Galaxy Angel Rune | Галактический ангел: Руна [2006, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038337.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037126.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki | Тайна
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036977.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036975.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036652.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036308.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036298.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036282.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035448.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033542.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033112.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032489.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031831.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ Zuihou De Zhaohuan Shi | The Last Summoner | Последний призыват
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031315.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030620.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030465.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 окру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030017.jpg" />
 </div>
 
 
@@ -511,7 +667,7 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029732.jpg" />
 </div>
 
 
@@ -522,164 +678,6 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:248AE0A2C4F14E8499BE602FBE5610EB1BE6CB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449830   (1029534) от 23.02.2021
-
-Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: Свет ревю [2018, TV, 12 + 3 OVA] BDRip 1080 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029534.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования «Звёздный свет» — всемирно известный ансамбль ревю. Две маленькие девочки Карен и Хикари мечтают о сцене и дают друг другу обещание, что когда-нибудь вместе выйдут на подмостки. Много лет спустя шестнадцатилетняя Карен Аидзю всё ещё хранит верность своему детскому обещанию и продолжает с энтузиазмом тренироваться и репетировать. Хикари Кагура (   Читать дальше...   )Производство: Студия Kinema Citrus / キネマシトラスЖанр: приключенияРежиссер: Фурукава ТомохироПеревод: RuSubsDATTOЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин. + 3 ОВА по 7 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAB8384AFC5091D7B4242EDC2563EF602941EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450541   (1029037) от 26.02.2021
-
-Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + SP] BDRip 1080 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нанасе Харука любил быть в воде - плавание его любимое занятие. В начальной школе Нанасе Харука, Татибана Макото, Мацуока Рин и Хадзуки Нагиса вместе учились в одном классе плавания.
-Прошло время, и, когда Харука снова встретил Рин, то Рин бросил вызов Харуке, показав ему, насколько он сильнее.
-Достаточно скоро Макото и Нагиса присоединились к группе, и вместе с (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, спортРежиссер: Каванами ЭйсакуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D8490348C22FF41E4CA92A4210289BBFDADBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450932   (1028701) от 28.02.2021
-
-Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принц Ин Чжэн одолел заговорщиков и вернул себе трон царства Цинь, но почивать на лаврах преждевременно. У молодого правителя слишком мало верных сторонников, ведь многие погибли в бою, а большинство князей и сановников выжидают, желая знать, на что способен «этот юноша». Реальную власть в стране захватил бывший купец, авантюрист Люй Бувэй, интригами и подкупом пробившийся (   Читать дальше...   )Производство: Studio Pierrot / studioぴえろЖанр: приключения, историяРежиссер: Иванага АкираПеревод: Anku, mutagenbЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 39 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C768EFB0B892A20841879509ECE27CCB3642BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450930   (1028684) от 28.02.2021
-
-Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028684.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Китае III века до н. э. продолжается Эра воюющих земель. Уже давно на троне нет Сына Неба, все сражаются со всеми, но постепенно обломки Поднебесной соединились в семь государств, среди которых выделяется хищное и агрессивное царство Цинь. На его границе, в глухой деревеньке подрастают два юноши – Син и Хё, которых война сделала сиротами. Разумеется, закадычных (   Читать дальше...   )Производство: Studio Pierrot / studioぴえろЖанр: приключения, историяРежиссер: Камия ДзюнПеревод: Anku, Cracknight, gamekoff, Makentosh, shizoidal, mutagenbЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 38 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2CB643C80F26921A1A954DADB1C6A40F8170BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451077   (1028683) от 28.02.2021
-
-Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Походный кружок отправляется в путешествие! В кружке занятий под открытым небом или походном кружке состоят три девушки. Они расположились в тесном кабинете старшей школы Мотосу. Кагамихара Надэсико надеется скоротать время в их каморке, но Огаки Тиаки и Инуяма Аой неожиданно объявляют, что кружок отправляется в путешествие. Они тащат ошеломлённую Надэсико с собой (   Читать дальше...   )Производство: Студия C-StationЖанр: комедия, повседневностьРежиссер: Дзимбо МасатоПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин. + SP 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33E171CEDDF50151F3C9975E7677CB35A257045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451521   (1028350) от 02.03.2021
-
-Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... [2015, TV, 13] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Асахи Куроминэ дожил до 16 лет, но так и остался наивным японским юношей, неспособным врать и хранить тайны. На втором году старшей школы после очередного перемешивания учеников, парень воспарил душой в седьмое небо – ведь он оказался в одном классе с обожаемой Ёко Сирагами. Вот только при попытке признания девушка обернулась наполовину вампиром, с милыми такими (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: комедия, романтикаРежиссер: Ямамото ЯсутакаПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33171C19874BD74A186602BFA069DC38DEB6B166
 ```
 
 https://mybot314.ru/tekegram_catalog/

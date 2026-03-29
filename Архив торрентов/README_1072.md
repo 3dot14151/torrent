@@ -6,7 +6,7 @@ Wikluh Sky - A Serbian Film/Сербский фильм (2010) [MP3|320 Kbps] <S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801520.jpg" />
+  <img src="Z:/picture/008/save_picture_801520.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Smart Shooter 4 v4.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801518.jpg" />
+  <img src="Z:/picture/008/save_picture_801518.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ FanControl V95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801513.jpg" />
+  <img src="Z:/picture/008/save_picture_801513.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ RAR Extractor Max-Unzip Winrar 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801511.jpg" />
+  <img src="Z:/picture/008/save_picture_801511.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Tixati 2.86 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801509.jpg" />
+  <img src="Z:/picture/008/save_picture_801509.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Mp3tag 3.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801506.jpg" />
+  <img src="Z:/picture/008/save_picture_801506.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Tommy '86 - Change of Scenery (2021) [MP3|320 Kbps] <Synthwave, Dreamwave, Outru
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801503.jpg" />
+  <img src="Z:/picture/008/save_picture_801503.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Internet Download Manager 6.30 Build 6 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801490.jpg" />
+  <img src="Z:/picture/008/save_picture_801490.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801480.jpg" />
+  <img src="Z:/picture/008/save_picture_801480.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ BlueStacks App Player 3.55.70.1783 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801476.jpg" />
+  <img src="Z:/picture/008/save_picture_801476.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ LibreOffice 6.4.4.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801475.jpg" />
+  <img src="Z:/picture/008/save_picture_801475.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Soft Organizer Pro 9.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801460.jpg" />
+  <img src="Z:/picture/008/save_picture_801460.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Sensei 1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801457.jpg" />
+  <img src="Z:/picture/008/save_picture_801457.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ HWiNFO 7.14 Build 4610 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801455.jpg" />
+  <img src="Z:/picture/008/save_picture_801455.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ESET Online Scanner 3.6.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801452.jpg" />
+  <img src="Z:/picture/008/save_picture_801452.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Serif Affinity Publisher 1.10.4.1198 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801451.jpg" />
+  <img src="Z:/picture/008/save_picture_801451.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Wise Care 365 Pro 6.1.1.595 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801448.jpg" />
+  <img src="Z:/picture/008/save_picture_801448.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ NoMachine 6.10.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801436.jpg" />
+  <img src="Z:/picture/008/save_picture_801436.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801417.jpg" />
+  <img src="Z:/picture/008/save_picture_801417.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Realtek Ethernet Driver 11.2.0909 / 10.053 / 8.088  / 7.142 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801396.jpg" />
+  <img src="Z:/picture/008/save_picture_801396.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Google Chrome 95.0.4638.69 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801393.jpg" />
+  <img src="Z:/picture/008/save_picture_801393.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ StartAllBack 3.0.2 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801389.jpg" />
+  <img src="Z:/picture/008/save_picture_801389.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Ventoy 1.0.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801378.jpg" />
+  <img src="Z:/picture/008/save_picture_801378.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Total Commander Ultima Prime 7.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801354.jpg" />
+  <img src="Z:/picture/008/save_picture_801354.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Adobe Illustrator 2022 26.0.0.730 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801338.jpg" />
+  <img src="Z:/picture/008/save_picture_801338.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Adobe After Effects 2022 22.0.0.111 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801323.jpg" />
+  <img src="Z:/picture/008/save_picture_801323.jpg" />
 </div>
 
 

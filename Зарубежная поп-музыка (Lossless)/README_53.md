@@ -1,3 +1,204 @@
+###  Публикация: 1243361   (494110) от 26.08.2018
+
+VA - MNM Big Hits 2018 Vol. 1 [FLAC|Lossless|tracks + .cue] <Pop, R&B, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494110.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Lost Frequencies & Zonderling - Crazy 2:33
+02. Lil Kleine Feat. Ronnie Flex - Loterij 3:46
+03. Maroon 5 Feat. Sza - What Lovers Do 3:18(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7BBB8174E20374038E5F62EC8044B5DE1EB1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404331   (493338) от 25.08.2020
+
+JoJo - Good To Know (2020) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Bad (03:11)
+02. Pedialyte (04:06)
+03. Gold (02:26)
+04. Man (02:53)(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4709FDCFBEF2134754CCA54B5CA62E7D03188A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318764   (492842) от 07.08.2019
+
+Julio Iglesias Jr. - Por La Mitad (2008) Parlophone Spain [FLAC|Lossless|WEB-DL|tracks] <Pop Latin Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Por La Mitad (3:53)
+ 02. Angel (4:13)
+ 03. Promete Decir La Verdad (4:11)
+ 04. Una Vida Sencilla Sin Más (4:35)(   Читать дальше...   )Жанр: Pop Latin MusicПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25C69503F93C4AB67F964A6FB39686952496E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243463   (492104) от 27.08.2018
+
+Mylene Farmer - City Of Love (2016) SDS, Single, [APE|Lossless|image + .cue] <Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492104.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. City Of Love (Version Single)                                                       (4:25)
+2. City Of Love (Martin's Remix) - (Featuring – ShaggyLyrics By)        (3:34)Жанр: Reggae, PopПродолжительность: 00:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC34C18256AB2B23DFC003C1294DBDAEA4222452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936616   (492029) от 13.09.2015
+
+Duran Duran - Paper Gods (2015) Deluxe Limited Edition [FLAC|image+.cue]<Synthpop, Pop Rock, New wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Gods (feat. Mr Hudson)
+02. Last Night In The City (feat. Kiesza)
+03. You Kill Me With Silence
+04. Pressure Off (feat. Janelle Monáe and Nile Rodgers)(   Читать дальше...   )Жанр: Synthpop, Pop Rock, New waveПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14757DEF091BF763BC5CA3FF0669E4E4977214C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158644   (491526) от 16.08.2017
+
+VA - Now That's What I Call Music! 63 (2017) [FLAC|Lossless|tracks + .cue] <Pop, Top>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не спутайте с релизом под таким же названием, но только вышедшим в 2006 году и состоявшем из топов Британского хит-парада. Этот выпущен Universal Music Group Recordings, Inc. и Sony Music Entertainment 4 августа 2017 года и состоит из Американских топов, в частности две композиции с первого места Billboard Hot 100 - это "I'm the One", авторство	DJ Khaled (   Читать дальше...   )01. DJ Khaled feat. Justin Bieber, Quavo, Chance the Rapper and Lil Wayne - I'm The One  (4:47)
+02. Zedd & Alessia Cara - Stay  (3:31)
+03. The Chainsmokers & Coldplay - Something Just Like This  (4:03)
+04. James Arthur - Say You Won't Let Go  (3:27)(   Читать дальше...   )Жанр: Pop, TopПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A565B274350DB9240341C636EDF50ABF597C99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054820   (491447) от 20.09.2016
+
+Roxette - Rox Archives (2009) Remastered [FLAC|Lossless|tracks + .cue] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Deep (03:36)
+02. Secrets That She Keeps (03:40)
+03. Goodbye To You (03:59)
+04. I Call Your Name (03:35)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 07:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B10BA10DC7027DE9F39463D3EBB567E3FEA61F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544124   (490963) от 07.09.2012
 
 VA - Greatest Hits of The 60's (2003) [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
@@ -6,7 +207,7 @@ VA - Greatest Hits of The 60's (2003) [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490963.jpg" />
+  <img src="Z:/picture/008/save_picture_490963.jpg" />
 </div>
 
 
@@ -41,7 +242,7 @@ Sandra - Everlasting Love (PWL Remix) (1988) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490330.jpg" />
+  <img src="Z:/picture/008/save_picture_490330.jpg" />
 </div>
 
 
@@ -70,7 +271,7 @@ VA - NOW That's What I Call Music! 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490113.jpg" />
+  <img src="Z:/picture/008/save_picture_490113.jpg" />
 </div>
 
 
@@ -99,7 +300,7 @@ Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489980.jpg" />
+  <img src="Z:/picture/008/save_picture_489980.jpg" />
 </div>
 
 
@@ -127,7 +328,7 @@ VA - Party Fun Summer (2015) [FLAC|track+.cue]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488106.jpg" />
+  <img src="Z:/picture/008/save_picture_488106.jpg" />
 </div>
 
 
@@ -156,7 +357,7 @@ Abba - 40/40 The Best Selection (2014) 2CD /SHM-CD/ [APE|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487775.jpg" />
+  <img src="Z:/picture/008/save_picture_487775.jpg" />
 </div>
 
 
@@ -186,7 +387,7 @@ Side Walk - No Stop Hit Mix (1989) [FLAC|Lossless|image + .cue] <Pop, Cover, Med
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487269.jpg" />
+  <img src="Z:/picture/008/save_picture_487269.jpg" />
 </div>
 
 
@@ -215,7 +416,7 @@ Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <I
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486819.jpg" />
+  <img src="Z:/picture/008/save_picture_486819.jpg" />
 </div>
 
 
@@ -244,7 +445,7 @@ VA - Fantastic 80's The Complete Collection (2008) 5CD BoxSet [FLAC|Lossless]<Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486418.jpg" />
+  <img src="Z:/picture/008/save_picture_486418.jpg" />
 </div>
 
 
@@ -279,7 +480,7 @@ Aventura - Love & Hate (2004) [APE|image+.cue]<Pop/Latin>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486049.jpg" />
+  <img src="Z:/picture/008/save_picture_486049.jpg" />
 </div>
 
 
@@ -308,7 +509,7 @@ Overcoats - The Fight (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485819.jpg" />
+  <img src="Z:/picture/008/save_picture_485819.jpg" />
 </div>
 
 
@@ -337,7 +538,7 @@ Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485729.jpg" />
+  <img src="Z:/picture/008/save_picture_485729.jpg" />
 </div>
 
 
@@ -366,7 +567,7 @@ VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
+  <img src="Z:/picture/008/save_picture_485621.jpg" />
 </div>
 
 
@@ -395,7 +596,7 @@ The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
+  <img src="Z:/picture/008/save_picture_485609.jpg" />
 </div>
 
 
@@ -422,7 +623,7 @@ Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485596.jpg" />
+  <img src="Z:/picture/008/save_picture_485596.jpg" />
 </div>
 
 
@@ -451,7 +652,7 @@ VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485484.jpg" />
+  <img src="Z:/picture/008/save_picture_485484.jpg" />
 </div>
 
 
@@ -480,7 +681,7 @@ The Jungle Giants - Quiet Ferocity (2017) [FLAC|Lossless|tracks] <Alternative Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484042.jpg" />
+  <img src="Z:/picture/008/save_picture_484042.jpg" />
 </div>
 
 
@@ -509,7 +710,7 @@ Tom Jones - The Golden Hits (1970) Reissue, 1986, London [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483883.jpg" />
+  <img src="Z:/picture/008/save_picture_483883.jpg" />
 </div>
 
 
@@ -538,7 +739,7 @@ VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483415.jpg" />
+  <img src="Z:/picture/008/save_picture_483415.jpg" />
 </div>
 
 
@@ -552,215 +753,6 @@ VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566453   (482335) от 29.07.2022
-
-Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482335.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2022 году легендарная Bananarama отмечает 40-летие сенсационного прорыва на мировой музыкальный Олимп. Именно тогда, в далеком 1982 году синглы новой girl group возглавили UK Singles Chart, а затем покорили музыкальные хит-парады многих стран мира. Феноменальный успех как в pop-, так и в dance чартах привел к тому, что Bananarama была занесена в Книгу рекордов (   Читать дальше...   )01. Favourite (3:08)
-02. Stay Wild (3:47)
-03. Velvet Lies (2:46)
-04. Masquerade (4:13)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B5329F35776C06F792A57FAC4036A54CB3B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244414   (482020) от 01.09.2018
-
-Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Waiting Heart
-02. Don't Pay The Ferryman
-03. Fire On The Water
-04. Sailing Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056404   (481684) от 25.09.2016
-
-Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже удивительно, что Olivia Newton-John так мало представлена на нашем трекере. Может быть потому, что она из Австралии, может быть потому, что уже мало кто помнит её замечательный дуэт в фильме 1978 года "Бриолин" с Джоном Траволтой (на нашем трекере он по праву в разделе зарубежной классики). А ведь пятнадцать её хитов достигали лучшей десятки хит-парада (   Читать дальше...   )01. You’re The One That I Want (John Farrar) ©1978 Polydor (UK) Ltd.
-02. Xanadu (Jeff Lynne) ©1980 MCA Records
-03. Magic (John Farrar) ©1980 MCA Records
-04. Sam (John Farrar / Hank Marvin / Don Black) ©1976 MCA Records(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938405   (481594) от 18.09.2015
-
-Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC7BEBD107D97237BB0F9E1D38BF00C78BFEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938607   (481301) от 18.09.2015
-
-Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 700690   (480319) от 16.09.2013
-
-ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (03:52)
-02. Knowing Me, Knowing You (04:02)
-03. Take A Chance On Me (04:04)
-04. Mamma Mia (03:33)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546212   (480202) от 12.09.2012
-
-VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stacie Orrico - Stuck [03:42]
-02. Chingy - Right Thurr [03:37]
-03. Madonna - American Life [04:27]
-04. The Androids - Do It With Madonna [03:48]
-05. Amanda Perez - Angel [03:38]
-06. Kylie Minogue - Come Into My World [04:05]
-07. Sean Paul - Get Busy [03:31]
-08. Hilary Duff - Why Not [02:59]
-09. Dannii Minogue - I Begin To Wonder [03:40]
-10. Snoop Dogg feat. Pharrell, Uncle Charlie Wilson - Beautiful [03:21](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 02:33:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

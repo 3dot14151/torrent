@@ -1,3 +1,61 @@
+###  Публикация: 1532708   (710891) от 21.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marnik & Alfons - Harry Potter Style
+02. Victor Ark - More Physical
+03. Charli Xcx - Good Ones
+04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131153   (710661) от 04.05.2017
+
+Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Valerie
+02. Lover Why
+03. Stay
+04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219851   (709956) от 16.04.2018
 
 VA - Экспресс русских хитов на Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
@@ -6,7 +64,7 @@ VA - Экспресс русских хитов на Hit FM (7) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709956.jpg" />
+  <img src="Z:/picture/008/save_picture_709956.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Extended Parts Dance Mix (2018) [MP3|320 Kbps] <Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709952.jpg" />
+  <img src="Z:/picture/008/save_picture_709952.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Экспресс русских хитов на Hit FM (8) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709777.jpg" />
+  <img src="Z:/picture/008/save_picture_709777.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Романтик Хит - Люблю тебя (2010) [MP3|192-320 kbps]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709659.jpg" />
+  <img src="Z:/picture/005/save_picture_709659.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709270.jpg" />
+  <img src="Z:/picture/008/save_picture_709270.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Высшая лига. Весна. Часть № 6 (2017) [MP3|256 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709108.jpg" />
+  <img src="Z:/picture/008/save_picture_709108.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709091.jpg" />
+  <img src="Z:/picture/008/save_picture_709091.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709088.jpg" />
+  <img src="Z:/picture/008/save_picture_709088.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Ita
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709082.jpg" />
+  <img src="Z:/picture/008/save_picture_709082.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Хитовая весна на Europa Plus (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709000.jpg" />
+  <img src="Z:/picture/008/save_picture_709000.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Топовая сотня весенняя от Хит FM выпуск № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708918.jpg" />
+  <img src="Z:/picture/008/save_picture_708918.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Зажигай вместе с Европа Плюс выпуск № 2 (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708912.jpg" />
+  <img src="Z:/picture/008/save_picture_708912.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Весенние заводные хиты выпуск № 8 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708906.jpg" />
+  <img src="Z:/picture/008/save_picture_708906.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Любимая музыка. Дискотека Хит FM выпуск № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708776.jpg" />
+  <img src="Z:/picture/008/save_picture_708776.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Pop Remix NNM (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708742.jpg" />
+  <img src="Z:/picture/008/save_picture_708742.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - 100-ка популярных весенних хитов на Europa Plus.
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708679.jpg" />
+  <img src="Z:/picture/008/save_picture_708679.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Планета super новинок (2018) [MP3|256 Kbps] <Поп>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708111.jpg" />
+  <img src="Z:/picture/008/save_picture_708111.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Планета super новинок (2) (2018) [MP3|256 Kbps] <Поп>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708099.jpg" />
+  <img src="Z:/picture/008/save_picture_708099.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Хиты в дорогу от Europa Plus (2) (2018) [MP3|256 Kbps] <Поп
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707912.jpg" />
+  <img src="Z:/picture/008/save_picture_707912.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - EUROMANIA (2014) 13CD [MP3|320 Kbps<Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707787.jpg" />
+  <img src="Z:/picture/008/save_picture_707787.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Бездна хитов DFM   (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707724.jpg" />
+  <img src="Z:/picture/008/save_picture_707724.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Good Feeling 10s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707043.jpg" />
+  <img src="Z:/picture/008/save_picture_707043.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706976.jpg" />
+  <img src="Z:/picture/008/save_picture_706976.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706935.jpg" />
+  <img src="Z:/picture/008/save_picture_706935.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533142   (706933) от 23.02.2022
-
-VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith Hill - This Kiss
-02. Spice Girls - Stop
-03. Go West - The King of Wishful Thinking
-04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533139   (706571) от 23.02.2022
-
-VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruce Springsteen - Dancing In the Dark
-02. Lionel Richie - Dancing On The Ceiling
-03. George Michael - Faith (Remastered)
-04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
 ```
 
 https://mybot314.ru/tekegram_catalog/

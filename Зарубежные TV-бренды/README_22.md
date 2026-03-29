@@ -1,3 +1,107 @@
+###  Публикация: 1198103   (809986) от 10.01.2018
+
+BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2016) DVB [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых больших музыкальных фестивалей Европы, организованный BBC Radio 1. Невероятный лайнап 2016 года: Джесс Глинн, Крейг Дэвид, Меган Трейнор, Bastille, Том Оделл, Mumford & Sons, Kygo, OneRepublic, Ник Джонас, Элли Гудинг, Coldplay, The Weekend, Игги Азалиа и многие-многие другие.Телекомпания: Великобритания / BBC Music, BBC Radio 1, BBC Visual RadioЖанр: Документальный, МузыкаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: РусскиеПродолжительность: 01:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D351420B4D886FBBB5A4919B56F308CB7C3033B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504508   (809921) от 24.10.2021
+
+Подводная Одиссея команды Жака Кусто: Мир без Солнца / Le monde sans soleil (1964) BDRip [H.264/] [VO]
+
+>>Зарубежные TV-бренды
+>>Одиссея Жака Кусто
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм начинается с кадров, на которых из тёмной водной толщи появляется двухместный глубоководный обитаемый аппарат «Дениза» («ныряющее блюдце»). Судно, передвигающееся за счёт водомётных движителей, вплывает в специальный ангар. Голос за кадром сообщает: «Впервые в истории подводная лодка помещается на подводной базе». При помощи 4-тонной лебёдки подлодка вытягивается (   Читать дальше...   )Производство: США, Франция, Италия / C.E.I.A.P., Filmad, Orsay FilmsЖанр: документальныйРежиссер: Жак Ив КустоПеревод: профессиональный одноголосый (Селена Интернешнл)Субтитры: нетПродолжительность: 01:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C6D8692FCA907475A7D1FB9BFB7A9BE31C4995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504687   (809918) от 24.10.2021
+
+BBC: Как это работает. Таинственный Мир Материалов / How It Works. The Mysterious World of Materials (2011) HDTVRip [H.264/720p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Марк Медовник посвятил жизнь раскрытию тайн материалов. В документальном цикле "Таинственный мир материалов" он знакомит зрителя с историей, особенностями и безграничными возможностями, которые новые материалы предоставляют современной цивилизацииПроизводство: Великобритания, BBC ScotlandЖанр: Документальный, научно-популярныйРежиссер: Джон Стивентон, Дэвид Бриггс, Ишбель ХоллПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: Русские, английскиеПродолжительность: 3 x ~ 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A169BE5C792C5DDDE76B1BFC5EF19B0772EAEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197985   (809842) от 10.01.2018
+
+NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глэйд - это райское место среди иссохших равнин национального парка Руаха в Танзании. Вода здесь не переводится круглый год. Это природное изобилие рождает странные отношения львиного прайда и стаи бабуинов, которые вопреки всем законам природы живут в гармонии. Но однажды перемирию в Глэйде приходит конец...Производство: Великобритания, Австрия, Terra Mater Factual Studios, Doclights, NDR Naturfilm, ARTE France, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Оуэн ПрюммПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009162   (809779) от 21.04.2016
 
 BBC. Таинственный мир гормонов / The Fantastical World of Hormones with Professor John Wass (2014) SATRip
@@ -6,7 +110,7 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809779.jpg" />
+  <img src="Z:/picture/008/save_picture_809779.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809736.jpg" />
+  <img src="Z:/picture/008/save_picture_809736.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Динозавры: Возвращение к жизни? / Dinosaurs
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809725.jpg" />
+  <img src="Z:/picture/008/save_picture_809725.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809553.jpg" />
+  <img src="Z:/picture/008/save_picture_809553.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809222.jpg" />
+  <img src="Z:/picture/008/save_picture_809222.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ History Channel. Вселенная (2 сезон: 1-18 серии из 18) / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809194.jpg" />
+  <img src="Z:/picture/008/save_picture_809194.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Discovery. Техногеника. Вертолеты-гиганты (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809012.jpg" />
+  <img src="Z:/picture/008/save_picture_809012.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807946.jpg" />
+  <img src="Z:/picture/008/save_picture_807946.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807219.jpg" />
+  <img src="Z:/picture/008/save_picture_807219.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806834.jpg" />
+  <img src="Z:/picture/008/save_picture_806834.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806613.jpg" />
+  <img src="Z:/picture/008/save_picture_806613.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806412.jpg" />
+  <img src="Z:/picture/008/save_picture_806412.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806340.jpg" />
+  <img src="Z:/picture/008/save_picture_806340.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806224.jpg" />
+  <img src="Z:/picture/008/save_picture_806224.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805968.jpg" />
+  <img src="Z:/picture/008/save_picture_805968.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805843.jpg" />
+  <img src="Z:/picture/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805840.jpg" />
+  <img src="Z:/picture/008/save_picture_805840.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805678.jpg" />
+  <img src="Z:/picture/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805676.jpg" />
+  <img src="Z:/picture/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805563.jpg" />
+  <img src="Z:/picture/008/save_picture_805563.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805559.jpg" />
+  <img src="Z:/picture/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805354.jpg" />
+  <img src="Z:/picture/008/save_picture_805354.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C20B12A61914B9DA3928C2F5EE14DB4198B4735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749417   (805349) от 23.04.2016
-
-Animal Planet. Симпатичные котята и щенки / Too Cute (2012) HDTV [H.264/1080i] [2 серия из 45]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории взросления котят и щенков. Начиная от их первых неустойчивых шагов, их жизнь будет эпическим путешествием для этих малышей. Эти милые создания слишком привлекательны, слишком любопытны, и слишком симпатичны.Жанр: Документальный, научно-познавательный, природаПеревод: ДублированныйПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB2EF400D1E674937026441BA349E51278DA631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743199   (805228) от 23.04.2016
-
-NG. Суперсооружения Третьего рейха / Nazi megastructures (2013) [1 сезон, 6 серий из 6] HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апрель 1945. Берлин – столица фашистской Германии. Главный оплот Гитлера. Ему приходится готовить Берлин к битве. Город превратился в крепость и в его центре – неуязвимый подземный Фюрербункер. Миллион русских солдат, пять эшелонов обороны и битва, которая определит будущее мира. Гитлер готовится к отражению атаки его главной цитадели. Это история крепости Берлин.Телекомпания: National GeographicЖанр: документальный, историяРежиссер: -/-Перевод: Профессиональный, одноголосый |АРК ТВ|Субтитры: НетПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8937B583A682A915AE42CEDD7FBC9A8DA43829EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008919   (805117) от 23.04.2016
-
-BBC. Нетронутые уголки дикой природы / Nature's Microworlds (2012-2014) HDTVRip [H.264/720p] (сезон 1-3 из 3, серии 3-16 из 16)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E11B54804C2A4CC84B46F4DD360310D0AF3AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505581   (804245) от 27.10.2021
-
-NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804245.jpg" />
-</div>
-
-
-###  Подробнее
-
-В южной части Атлантического и Индийского океанов находятся острова Южная Джорджия, Буве и Крозе, которые являются домом для одних из самых крупных в мире популяций тюленей и пингвинов. Этим животным, великолепно адаптировавшимся к жизни в холодном океане, необходимо выходить на берег для того, чтобы вырастить свое потомство, и за ними неотступно следуют зубатые (   Читать дальше...   )Производство: Южная Африка / Obsessively Creative CC Wildbear Entertainment National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Стефания МюллерПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 2 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8EB1DB10193D40E07FB185EC7F64693EA932F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

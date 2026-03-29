@@ -6,7 +6,7 @@ SyncTime 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792890.jpg" />
+  <img src="Z:/picture/008/save_picture_792890.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792886.jpg" />
+  <img src="Z:/picture/008/save_picture_792886.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швей�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792885.jpg" />
+  <img src="Z:/picture/008/save_picture_792885.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ PicturesToExe Deluxe 9.0.15 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792874.jpg" />
+  <img src="Z:/picture/008/save_picture_792874.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792853.jpg" />
+  <img src="Z:/picture/008/save_picture_792853.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Lyn 2.0.11 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792846.jpg" />
+  <img src="Z:/picture/008/save_picture_792846.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Persecond 1.5 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792845.jpg" />
+  <img src="Z:/picture/008/save_picture_792845.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Wondershare Filmora Х v10.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792843.jpg" />
+  <img src="Z:/picture/008/save_picture_792843.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ uDock 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792839.jpg" />
+  <img src="Z:/picture/008/save_picture_792839.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792838.jpg" />
+  <img src="Z:/picture/008/save_picture_792838.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Yoink 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792837.jpg" />
+  <img src="Z:/picture/008/save_picture_792837.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ BurnAware Professional / Premium 14.9 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792836.jpg" />
+  <img src="Z:/picture/008/save_picture_792836.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Slimjet 32.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792835.jpg" />
+  <img src="Z:/picture/008/save_picture_792835.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Movist Pro 2.6.7 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792832.jpg" />
+  <img src="Z:/picture/008/save_picture_792832.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Cinemagraph Pro 2.9 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792829.jpg" />
+  <img src="Z:/picture/008/save_picture_792829.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Omnivox - Surrender (2018) [MP3|320 Kbps] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792822.jpg" />
+  <img src="Z:/picture/008/save_picture_792822.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Party Smart Vol. 3 (Compiled by Sound Era)(2018) [MP3|320 Kbps] <Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792819.jpg" />
+  <img src="Z:/picture/008/save_picture_792819.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792818.jpg" />
+  <img src="Z:/picture/008/save_picture_792818.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792809.jpg" />
+  <img src="Z:/picture/008/save_picture_792809.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792807.jpg" />
+  <img src="Z:/picture/008/save_picture_792807.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Imagenomic Professional Suite  for Photoshop СС2015.5-СС2019 v1709 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792798.jpg" />
+  <img src="Z:/picture/008/save_picture_792798.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792791.jpg" />
+  <img src="Z:/picture/008/save_picture_792791.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Balabolka 2.15.0.805 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792785.jpg" />
+  <img src="Z:/picture/008/save_picture_792785.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ ActivePresenter Professional Edition 7.0.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792784.jpg" />
+  <img src="Z:/picture/008/save_picture_792784.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792780.jpg" />
+  <img src="Z:/picture/008/save_picture_792780.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Text Filter 1.7.0 Build 832 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792773.jpg" />
+  <img src="Z:/picture/008/save_picture_792773.jpg" />
 </div>
 
 

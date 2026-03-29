@@ -1,3 +1,119 @@
+###  Публикация: 1465490   (1019147) от 26.04.2021
+
+Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (00:04:20)
+02. Givin' In (00:05:00)
+03. The Night Is Young (00:04:19)
+04. Slow Turn (00:05:13)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573C8CE027F6F406446A264A058137678CB417A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465770   (1019005) от 27.04.2021
+
+Luis Russell - 1945 - 1946 (1999) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Taught Me How to Smile Again [3:06]
+02. Boogie in the Basement [2:53]
+03. Sweet Memory [2:50]
+04. Sad Lover Blues [3:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B1ADAFC94FFEF1E3C32325CDD4DF10DD8E0F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465773   (1018998) от 27.04.2021
+
+Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boy Next Door [2:36]
+02. A Bird in Igor's Yard [2:54]
+03. This Time the Dream's on Me [3:08]
+04. Bud's Invention [2:39](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC392F94437405670531C5CA7E2DA257AE5C902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465760   (1018993) от 27.04.2021
+
+Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Drops - 03:35
+2. My Latin Flavor - 03:02
+3. Covibe Holiday - 04:02
+4. December Morning Sun - 03:02(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99379192C76262B83D24F8AE7F02A44BA2E12A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465870   (1018974) от 27.04.2021
 
 Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -6,7 +122,7 @@ Parry Ray - Out Of The Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018974.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Kenny Garrett - Happy People (2002) Warner Bros. Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018833.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ André (Andre) Manoukian - Les pianos de Gainsbourg (2021) [FLAC|Lossless|WEB-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018827.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ V.A. - Super Soul Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018803.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Simply Swing (2012) Box Set, 10 CD [FLAC|Lossless|image + .cue] <Jazz, Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018592.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Jazzclub Highlihts: Night And Day (2010) Verve JazzClub, original recording
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018445.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Norah Jones - ‘Til We Meet Again (Live) (2021) Japan [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018441.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Diana Dors - Swingin' Dors (1960) 2012, Norma [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018304.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Stan Getz - Compact Jazz: Stan Getz with Strings (1992) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018303.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Dave Frishberg & Jim Goodwin - Double Play (1993) Arbors Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018125.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bud Freeman - Swingin' With The Eel (1927 - 1945) 1998, ASV [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018119.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Verve JazzClub: I Love Jazz (2008) Box Set, 3 CD [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018093.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Threestyle - Perfect Combination (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018091.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Martial Solal - Solo Piano: Unreleased 1966 Los Angeles Sessions, Vol. 1 (2017) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017962.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Stan Getz - The Sound of Jazz (1988) Cleo [FLAC|Lossless|tracks + .cue] <Cool, M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017774.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Chocolate Dandies - 1928-33 (1993) DRG Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017600.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Mark Colby - Speaking Of Stan: A Tribute To Stan Getz (2005) Hallway Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017599.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Acker Bilk - Some Of My Favourite Things (1973) 1985, Precision Records & Tapes 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017596.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Terry Gibbs Dream Band - The Big Cat, Vol.5 (1961) 1991, Contemporary Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017587.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017288.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017287.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017247.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D679D81BE3888BA66AE5A130849479872F3DA2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468743   (1016799) от 10.05.2021
-
-Bobby Hackett - 1938 - 1940 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, You and Especially You [2:57]
-02. If Dreams Come True [2:55]
-03. At the Jazz Band Hall [2:38]
-04. That Da-Da Strain [2:46](   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5A8C2FAF575B169BFF131AAD7BB0C21E55FF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468732   (1016792) от 10.05.2021
-
-Louis Armstrong - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Misbehavin' [3:59]
-02. Rockin' Chair [5:15]
-03. Back o' Town Blues [4:20]
-04. Pennies from Heaven [3:49](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C5814FAE8E216C330F91544567D36E21EA6EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468749   (1016790) от 10.05.2021
-
-Glenn Miller - 1935 - 1938 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Blues Serenade [2:51]
-02. Moonlight on the Ganges [2:41]
-03. In a Little Spanish Town [2:30]
-04. Solo Hop [2:47](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73F6921BCC1A0673BDC82635922D3501BC98630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468926   (1016783) от 10.05.2021
-
-Django Reinhardt - Guitar Genius (2000) [FLAC|Lossless|image + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sue, Just You [2:56]
-02. You Rascal, You (I'll Be Glad When You're Dead) [3:07]
-03. Improvisation [3:00]
-04. Crazy Rhythm [3:04](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17EAB0655E9F4C0B0EBA2CAD820D5B43B9EC932
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 1792355   (21009) от 18.04.2025
+
+МузЛофт-Дети / МузLoft. Илья Лазарев (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Лазарев. Про своего однофамильца и учительницу с фиолетовыми волосами.
+Третий выпуск нашего проекта с талантливыми детьми. Илья поделится мечтами о Евровидении и проведет кастинг для Ярушина. Что из всего этого вышло смотрите сами.Производство: Россия | Y-GenerationУчастники: Илья ЛазаревПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC536D94E5C6CCE86269E785F9FBA5D03E6CA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792356   (21003) от 18.04.2025
+
+МузЛофт-Дети / МузLoft. Алена Яковлева (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алёна Яковлева. Как не волноваться на конкурсах? Могут ли нравиться одноклассники?
+Говорят, что женский мозг, это загадка, а детский музыкальный женский мозг - загадка вдвойне. Предлагаем вам вместе с Аленой разобраться в детских шалостях и услышать невероятную музыкальную палитру в её исполнении.Производство: Россия | Y-GenerationУчастники: Алена ЯковлеваПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB28A2C4203A0EE6B23A8D4317D8EF0F82FD2C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792547   (20926) от 19.04.2025
+
+Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festival 2025 Weekend 2 [H.264/1080p] (2025) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20926.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 апреля 2025 года прошло второе выступление Леди Гаги на фестивале Коачелла.
+Интересный факт с выступления: у микрофона артистки произошли технические неполадки в самом начале шоу, однако она быстро сменила два микрофона.
+«Мне жаль, что мой микрофон на секунду сломался, но, по крайней мере, вы знаете, что я пою вживую», — прокомментировала Леди Гага перед исполнением (   Читать дальше...   )Производство: США / GoldenvoiceЖанр: PopПродолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CA315D0124377DA04792A46B76FC2877EAF9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792209   (20921) от 19.04.2025
+
+Lady Gaga на фестивале Coachella 2025 / Lady Gaga at Coachella Festival 2025 Weekend 1 (2025) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леди Гага делится волнением перед своим выступлением на фестивале Coachella:
+«Я искренне не хочу ничего рассказывать о Coachella. Я знаю, что это бессердечно с моей стороны, но я могу честно расплакаться по телефону, просто думая о том, как я рада выступить на этом шоу, и я хочу, чтобы это стало полной неожиданностью, и хочу, чтобы все получили как можно больше удовольствия».Производство: США / GoldenvoiceЖанр: PopПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8278D8D5C82348E26E1A428C1EDB2D09B69EBFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725705   (20862) от 20.04.2025
+
+Антонио Вивальди - Времена года / Antonio Vivaldi - Le quattro stagioni (1987) DVDRip [AV1/720p] [10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20862.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Времена года» (итал. Le quattro stagioni — «Четыре сезона»‎) — цикл концертов для скрипки с оркестром Антонио Вивальди.
+«Времена года» — одно из наиболее известных произведений как Вивальди, так и в целом музыки барокко. К концу XX века были выпущены более 200 грамзаписей цикла, одна из которых установила мировой рекорд по продажам в области академической (   Читать дальше...   )01. Allegro 3:31
+02. Largo e pianissimo sempre 3:13
+03. Allegro pastorale 4:33
+Concerto No.2 in G minor, Op.8, RV 315, Summer (L'estate)(   Читать дальше...   )Производство: Sony ClassicalЖанр: Classical, BaroqueПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792698   (20857) от 20.04.2025
+
+Квартирник у Маргулиса. Бонд с кнопкой (19.04.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультиинструментальная группа «Бонд с кнопкой» была образована в 2017 году, а их дебютный альбом «Путешествие» вышел осенью 2023-го. Их творчество отличается особой лирикой, аутентичным вокалом, а также диапазоном аранжировок, в которых гитара и клавиши сочетаются с виолончелью, скрипкой и саксофоном. «Бонд с кнопкой» — одна из главных инди-сенсаций последнего времени: (   Читать дальше...   )00:00:06 Плач
+00:04:47 Даль
+00:08:42 Камушки
+00:15:04 Кухни(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-фолкЯзык: РусскийПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792800   (20815) от 20.04.2025
 
 Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
@@ -6,7 +174,7 @@ Jennie, Dua Lipa - Handlebars (2025) WEBRip [H.265/2160p] [AI Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20815.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20066.jpg" />
 </div>
 
 
@@ -61,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19781.jpg" />
 </div>
 
 
@@ -87,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19002.jpg" />
 </div>
 
 
@@ -113,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18706.jpg" />
 </div>
 
 
@@ -142,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18360.jpg" />
 </div>
 
 
@@ -168,7 +336,7 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18093.jpg" />
 </div>
 
 
@@ -197,7 +365,7 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18087.jpg" />
 </div>
 
 
@@ -226,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17974.jpg" />
 </div>
 
 
@@ -255,7 +423,7 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17884.jpg" />
 </div>
 
 
@@ -281,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17785.jpg" />
 </div>
 
 
@@ -310,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17691.jpg" />
 </div>
 
 
@@ -336,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17378.jpg" />
 </div>
 
 
@@ -362,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17015.jpg" />
 </div>
 
 
@@ -391,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16970.jpg" />
 </div>
 
 
@@ -420,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16448.jpg" />
 </div>
 
 
@@ -448,7 +616,7 @@ Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16071.jpg" />
 </div>
 
 
@@ -474,7 +642,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15963.jpg" />
 </div>
 
 
@@ -504,7 +672,7 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15947.jpg" />
 </div>
 
 
@@ -533,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15833.jpg" />
 </div>
 
 
@@ -545,174 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E0AF66D69E8BCE554DA0ED23F61A2066ECCD51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801198   (15233) от 08.06.2025
-
-Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epica: Live at The Symphonic Synergy представляет собой масштабный аудиовизуальный релиз, ставший одним из самых грандиозных выступлений группы в её истории.
-Концерт был записан 20 сентября 2024 года в знаменитом амстердамском зале AFAS Live. Уникальность выступления заключается в том, что оно состоялось при участии полного симфонического оркестра и хора, что создало (   Читать дальше...   )Жанр: Symphonic MetalУчастники: Simone Simons - vocals, Isaac Delahaye - lead guitars, vocals, Mark Jansen - rhythm guitars, vocals, Coen Janssen - keyboards, Rob Van Der Loo - bass, Ariën Van Weesenbeek - drumsПеревод: ОтсутствуетПродолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802358   (14420) от 16.06.2025
-
-Квартирник у Маргулиса. «Больше чем футбол» (15.06.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14420.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Больше чем футбол». Специальный выпуск «Квартирника НТВ у Маргулиса», посвященный выходу в широкий прокат картины «Больше чем футбол». Гостями программы стали актеры фильма Алексей Воробьёв, Люся Чеботина, Иван Охлобыстин, к ним присоединились Лариса Долина, Валерий Сюткин и многие другие. Со сцены в их исполнении прозвучали песни о футболе, а также композиция «Ты (   Читать дальше...   )00:00:01 Герои спорта
-00:07:32 Да разве сердце позабудет
-00:14:35 Ты не один
-00:22:12 Все на футбол(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopЯзык: РусскийПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BE5D30974B0F9908B9B919398C5557F3D44178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802548   (14186) от 18.06.2025
-
-Жара Music Awards (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия восьмой ежегодной музыкальной премии «Жара Music Awards». Каждый год на сцену поднимаются лучшие звезды российского шоу-бизнеса, чтобы забрать заветные статуэтки.
-В этом году темой премии стал «Восход новой эры», где главными элементами выступили солнце и круг. Победители были объявлены в номинациях «Певец года», «Певица года», «Группа года», «Прорыв года», (   Читать дальше...   )Производство: Россия | «Жара ТВ»Жанр: PopЯзык: РусскийПродолжительность: 02:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051BBFD43FC7BC4C44D12C7AFE0AB0DB858AA4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803290   (13780) от 22.06.2025
-
-Квартирник у Маргулиса. Юлия Савичева (22.06.2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известность Юлия Савичева обрела в 2003 году после участия в телевизионном музыкальном реалити-проекте. Спетые на нем песни «Корабли» и «Высоко» стали пользоваться большим успехом, а последняя принесла Савичевой «Золотой граммофон». В 2004 году певица представляла Россию на музыкальном конкурсе «Евровидение», а в 2005-м выпустила свой дебютный альбом «Высоко». Юлия (   Читать дальше...   )00:00 Не до любви
-06:36 Самолеты
-11:58 Каплями
-19:30 От его голоса(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Pop-rockЯзык: РусскийПродолжительность: 01:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E3679572A77CDAE7572F8027C67429DCEAE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803554   (13677) от 23.06.2025
-
-МузЛофт-Дети / МузLoft. Полина Сюткина (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полина Сюткина. О звёздной фамилии и танцах в песнях.
-Полина, этот тот уникальный случай, когда человек гнет свою линию. Полина делает на сцене то, от чего отказываются другие. Именно об этом и пойдет речь в выпуске...00:11 Ой, что будет
-01:47 P!nk - What About Us
-05:26 Представление музыкантов
-06:09 Откуда берутся талантливые дети(   Читать дальше...   )Производство: Россия | Y-GenerationУчастники: Полина СюткинаПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1671ECEE2EE1AC38909FCAADD6795454F5F9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804465   (13070) от 29.06.2025
-
-Алые Паруса-2025. Выпускной бал в Санкт-Петербурге (2025) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13070.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Алые паруса» — одно из самых ярких событий в Санкт-Петербурге. Жители города и туристы собираются на набережных Невы посмотреть водно-пиротехническое шоу, грандиозный салют и торжественное шествие брига «Россия» по Неве. В этом году у брига «Россия» новый маршрут. Корабль начнет движение у Сенатской площади, войдет в разведенный створ Дворцового моста, проследует (   Читать дальше...   )Производство: Россия / "Пятый канал"Участники: Надежда Кадышева, Зара, Bearwolf, Akmal', «5УТРА», The Hatters, Вадим Самойлов, «Иванушки International»...Язык озвучки: РусскийПродолжительность: 03:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79C9A0C25475442529EFB5F015E683B2E4814A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

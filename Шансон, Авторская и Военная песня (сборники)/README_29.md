@@ -1,3 +1,90 @@
+###  Публикация: 969676   (145589) от 28.12.2015
+
+VA - Шансон в натуре (2015) [MP3|320 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А.Звинцов - Маня
+02. Артём Беркут - Вертухайчики
+03. Валерий Гогин - Волчья тропа
+04. Александр Дюмин - Озорной(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB5D9DA2AE15182E532F5F960E59604B7E564F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272158   (145401) от 26.12.2018
+
+VA - Хиты под водочку: Поворот на 360 (2005) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Водка водка - Михаил Шуфутинский
+002. Водочку пьём - Михаил Круг
+003. Желаю - Елена Ваенга
+004. Муж муженек - Вилли Токарев(   Читать дальше...   )Жанр: ШансонПродолжительность: 20:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C5C71F98ABA7007EB76CA8E005C6596DAB2493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272165   (145338) от 26.12.2018
+
+VA - Хиты под водочку: Замкнутый круг (2016) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145338.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Водочка для походочки - Александр Кремень
+002. Русская водка - Вика Цыганова
+003. По пьянке в армию забрали - Александр Баронин
+004. Синеглазый - Катя Огонёк(   Читать дальше...   )Жанр: ШансонПродолжительность: 21:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC82AC28F2633214D20792E18DFFCB3F6A2FD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087383   (145308) от 28.12.2016
 
 VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps] <Шансон>
@@ -6,7 +93,7 @@ VA - Зимний шансон года Выпуск № 3 (2016) [MP3|256 Kbps]
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145308.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Масть крестовая от радио Шансон. Часть №7
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145279.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Убойные хиты на Шансоне Часть № 6 (2016) [MP3|25
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145190.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Блатной шансон на любимой волне. Выпуск �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145165.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Гуляночка блатного радио Часть № 9 (2016) [MP3
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145152.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Душевная музыка Шансона. Версия № 4 (2016) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145125.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Высшая лига хитов шансона. Часть № 10 (2016) [
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145057.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Новогодний ресторан Шансона. Сборник № 6 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144971.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Эх, Разгуляй! Новогодний выпуск Шансона В
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144899.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Золотые застольные хиты от радио Шансон �
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144891.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Наше Радио. Лучшее '2019 MP3  (2019) от DON Music [MP3|256
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144027.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142445.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Холодных Глаз Очарованье (2015) [MP3|256 кб/с] <Ш
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141500.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Масть крестовая. Новогодний выпуск (2012) [MP
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140419.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ VA - Радио Шансон. Лучшее (2021) MP3 от DON Music [MP3|320 Kb
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138680.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134792.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ VA - 100 золотых романтических хитов - 10 (2012) [MP3|2
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133576.jpg" />
 </div>
 
 
@@ -508,7 +595,7 @@ VA - Хозяйка Бара.Сборник Лучшего Шансона - (200
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133441.jpg" />
 </div>
 
 
@@ -543,7 +630,7 @@ VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132153.jpg" />
 </div>
 
 
@@ -578,7 +665,7 @@ VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129326.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ VA - Дя, Я пьяна! Девишник (2012) [MP3|320 кб/с]<Шансон
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102377.jpg" />
 </div>
 
 
@@ -648,7 +735,7 @@ VA - Лучшие Хиты Радио Шансон Часть 8 (2012) [MP3|256 
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102359.jpg" />
 </div>
 
 
@@ -683,7 +770,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100583.jpg" />
 </div>
 
 
@@ -697,111 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813703CD085EBB915BCA9EA5C2CDCB9C30B85384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477841   (98658) от 04.04.2012
-
-VA - Гуляночка блатного радио (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98658.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Александр Закшевский - Гуляем (3:29)
-2. Сергей Рыбачев - Ресторанчик (2:54)
-3. Лукьяновка - А мне бы все забыть (3:32)
-4. Палыч - Мадам (4:07)
-5. Светлана Калина и группа ЖАrА - Сигареточка (3:46)
-6. Маша Вакс - Жига (3:44)
-7. Владимир Утёсов - Сирень (3:18)
-8. Александр Дюмин - Пили Водочку (3:24)
-9. С. Михайлов - Родная (3:38)
-10. И.Круг - Милая зайка моя (3:13)2012Жанр: ШансонПродолжительность: 06:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29651C9206FBB1D8BE097806A725157DB6A26D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475994   (98212) от 31.03.2012
-
-VA - Водочку пьём! Баллады любимому напитку (2011) [MP3|320 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Валерий Курас - Давайте выпьем за здоровый образ жизни
-02. Михаил Круг - Водочку пьём
-03. Вика Цыганова - За мужчин
-04. Бутырка - Без баб и водки
-05. Слава Бобков - За всё хорошее
-06. Беломорканал - Питерский кабак
-07. Жека - Рюмка водки на столе
-08. Елена Ваенга - Наливай
-09. Константин Беляев - Выпьем за мировую
-10. Евгений Кемеровский - Ой, где был я вчера(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:608900861502653C66BD9640AAF1ECB47783D763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474334   (97903) от 28.03.2012
-
-VA - Авторитетный Хит 11 (2012) [MP3|256 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Дюмин - Журавли
-02. Кабриолет - А Душа Моя
-03. Г. Лепс И А. Розенбаум - Ша, Братва
-04. Кабриолет - А Мне Не Больно
-05. А. Дюмин - Цветы Увяли
-06. А. Маршал - Поплакала
-07. С. Трофимов - Не Ищи
-08. Жека - Моя Любовь
-09. Р. Рай - Отпускала В Небо
-10. С. Трофимов - Нет, Я Не Стал(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1ABBA223963F09B35DF02877770BD296D4138D
 ```
 
 https://mybot314.ru/tekegram_catalog/

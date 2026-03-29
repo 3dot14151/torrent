@@ -1,3 +1,29 @@
+###  Публикация: 1517231   (163674) от 14.12.2021
+
+JPEG SILKYPIX Photography 10 v10.2.17.0 [EN]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163674.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX JPEG Photography  - лучший инструмент для того, чтобы сделать красивую фотографию для блогов и SNS, а также распечатать и завершить рутинную работу. В SILKYPIX JPEG Photography, кнопка «Автоматическая настройка», которая автоматически выполняет коррекцию, подходящую для изображения, «индивидуальную настройку подсветки / тени» для выделенной и теневой части (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D4001959A5175D1D11C70E67D6644EFEC9EC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517239   (163658) от 14.12.2021
 
 WidsMob Denoise 2.18 [Multi/Ru]
@@ -6,7 +32,7 @@ WidsMob Denoise 2.18 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163658.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tayasui Sketches Pro 6.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163609.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Swift Publisher 5 v.5.6.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162463.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ PhotosBlender 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162408.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ PatterNodes 2 v2.4.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162401.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Super Photo Upscaler 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162350.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ PatterNodes 3 v.3.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161461.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ WidsMob HDR 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161450.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ WidsMob Montage 2.26 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161416.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ FrameMagic - Collage Maker Pro 3.6.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161398.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161393.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ WidsMob Panorama 4.28 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161388.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Super PhotoCut Pro 2.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161381.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Color Wheel 4.9 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161325.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ WidsMob Viewer Pro 2.19 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161312.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161168.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Photo Perspective Pro 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161122.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ NCH DrawPad Pro 10.63 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160466.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ EXIF Sync 1.9.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160446.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159939.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ LRTimelapse Pro 5.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157286.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Capture One 20 Pro 13.1.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156320.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Teorex iResizer 3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155770.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Affinity Designer Beta 1.10.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155369.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Affinity Photo Beta 1.10.5.270 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155363.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Affinity Photo переопределяет границы профессион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5703C7F8EF7BE1FEC86A999736CDAD20D6587E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433876   (155162) от 22.12.2020
-
-PhotoChef 1.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155162.jpg" />
-</div>
-
-
-###  Подробнее
-
-С PhotoChef вы можете создавать творческие композиции в кратчайшие сроки. В нем есть полный набор инструментов. Добавляйте необходимое количество изображений, смешивайте, компонуйте, трансформируйте без ограничений для вашего творчества. А с хроматическим ключом и кистью вы можете создавать композиции по цвету или по форме. От забавной фотографии до сложных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: Valentino FratiПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186801571E9C704A07453884EB837C840752554F
 ```
 
 https://mybot314.ru/tekegram_catalog/

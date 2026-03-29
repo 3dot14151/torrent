@@ -6,7 +6,7 @@ Lubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376882.jpg" />
+  <img src="Z:/picture/008/save_picture_376882.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376738.jpg" />
+  <img src="Z:/picture/008/save_picture_376738.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Arco Linux 18.10.4 [x86_x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374738.jpg" />
+  <img src="Z:/picture/008/save_picture_374738.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374545.jpg" />
+  <img src="Z:/picture/008/save_picture_374545.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Parrot Security OS 4.7 [Хакинг, аудит, безопасность] [amd
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373994.jpg" />
+  <img src="Z:/picture/008/save_picture_373994.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ antiX Linux 19.2 Hannie Schaft [full] [i386, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371333.jpg" />
+  <img src="Z:/picture/008/save_picture_371333.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ antiX Linux 19.3 Manolis Glezos [full] [i386, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369111.jpg" />
+  <img src="Z:/picture/008/save_picture_369111.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ MANJARO KDE JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367527.jpg" />
+  <img src="Z:/picture/008/save_picture_367527.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ MANJARO GNOME JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365234.jpg" />
+  <img src="Z:/picture/008/save_picture_365234.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ MANJARO XFCE JUHRAYA 18.1.0 (2019-09-12) 18.1.0 [i386, x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365099.jpg" />
+  <img src="Z:/picture/008/save_picture_365099.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ elementary OS 5.0 Juno [x86_x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360468.jpg" />
+  <img src="Z:/picture/008/save_picture_360468.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357710.jpg" />
+  <img src="Z:/picture/008/save_picture_357710.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ SUSE Linux Enterprise 12 SP2 (Server and Desktop) [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356228.jpg" />
+  <img src="Z:/picture/008/save_picture_356228.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Runtu 18.04 Xfce [x86_x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351572.jpg" />
+  <img src="Z:/picture/008/save_picture_351572.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6x
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351423.jpg" />
+  <img src="Z:/picture/008/save_picture_351423.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [x86-64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351167.jpg" />
+  <img src="Z:/picture/008/save_picture_351167.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Debian Linux 8.2 Jessie [amd64,arm64,armel,armhf,i386,mips,mipsel,powerpc,ppc64,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348418.jpg" />
+  <img src="Z:/picture/008/save_picture_348418.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Oracle Linux 7 Update 3 Server [x86-64] 1xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346884.jpg" />
+  <img src="Z:/picture/008/save_picture_346884.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346484.jpg" />
+  <img src="Z:/picture/008/save_picture_346484.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ RFRemix Live (Дистрибутив RFR жив) (Russian Fedora Remix) 23 (KDE,
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346483.jpg" />
+  <img src="Z:/picture/008/save_picture_346483.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим с�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346130.jpg" />
+  <img src="Z:/picture/008/save_picture_346130.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Linuxfx 10.7.105 Cinnamon. Дистрибутив Linux, с рабочим ст�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346002.jpg" />
+  <img src="Z:/picture/008/save_picture_346002.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344056.jpg" />
+  <img src="Z:/picture/008/save_picture_344056.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Fedora 23 Server DVD + Netinstall [i386, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343924.jpg" />
+  <img src="Z:/picture/008/save_picture_343924.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ openSUSE Leap 42.1 [x86_x64] 1xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343816.jpg" />
+  <img src="Z:/picture/008/save_picture_343816.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340655.jpg" />
+  <img src="Z:/picture/008/save_picture_340655.jpg" />
 </div>
 
 

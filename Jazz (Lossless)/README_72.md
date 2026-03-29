@@ -1,3 +1,119 @@
+###  Публикация: 1274616   (792275) от 08.01.2019
+
+Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792275.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dead End (04:58)
+2. Gotta Lotta Shakalada (03:54)
+3. New Moves (04:16)
+4. Zalal'e Mini (Take It Easy) (06:12)(   Читать дальше...   )Жанр: Funk-jazzПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AE2665AEF9BD770AABA897BD507900456550D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201543   (792265) от 25.01.2018
+
+David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (1980, 1982) 1997, 32 Jazz [APE|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Must Change [04:36]
+02. Mama Lou [05:55]
+03. Davey Blue [09:16]
+04. Carnegie Blues [08:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB19EA1269130A8449B4C326E1A51BEB92861A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201558   (792264) от 25.01.2018
+
+Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teach Me Tonight [03:13]
+02. Fallin' in Love with Love [04:03]
+03. Little Bird [03:07]
+04. A Sleepin' Bee [03:52](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0DF4DC26DECC7E1435E5078E09446B404BEB714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201554   (792260) от 25.01.2018
+
+Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone [03:10]
+02. I Ain't Gonna Tell You [02:25]
+03. They Can't Take That Away from Me [02:34]
+04. Pennies from Heaven [02:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A3B1263AF99DF48458C2918F79D1EF2C16CB35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201560   (792231) от 25.01.2018
 
 Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
@@ -6,7 +122,7 @@ Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
+  <img src="Z:/picture/008/save_picture_792231.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
+  <img src="Z:/picture/008/save_picture_792230.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
+  <img src="Z:/picture/008/save_picture_792209.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792207.jpg" />
+  <img src="Z:/picture/008/save_picture_792207.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Red Norvo And His Orchestra - 1945 - 1947 (2005) Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792196.jpg" />
+  <img src="Z:/picture/008/save_picture_792196.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Pat Metheny - Side-Eye NYC (V1.IV) (2021) [FLAC|Lossless|tracks + .cue] <Fusion,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792144.jpg" />
+  <img src="Z:/picture/008/save_picture_792144.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tony Bennett - Here's To The Ladies (1995) Columbia [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791855.jpg" />
+  <img src="Z:/picture/008/save_picture_791855.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
+  <img src="Z:/picture/008/save_picture_791718.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Al Hirt - Bourbon Street Parade (1993) MCMXCIII Intersound [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791677.jpg" />
+  <img src="Z:/picture/008/save_picture_791677.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Margo Rey - The Roots Of Rey / Despacito Margo (2018) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791625.jpg" />
+  <img src="Z:/picture/008/save_picture_791625.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kenny Dorham and The Jazz Prophets, Vol. 1 (1956) 1997, MCA [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791594.jpg" />
+  <img src="Z:/picture/008/save_picture_791594.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ James Moody - Moody's Mood For Love (1957) 1998, GRP Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791585.jpg" />
+  <img src="Z:/picture/008/save_picture_791585.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jihye Lee Orchestra - Daring Mind (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791578.jpg" />
+  <img src="Z:/picture/008/save_picture_791578.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Peters Drury Trio - When Old Met New (1999) Self-Released [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791342.jpg" />
+  <img src="Z:/picture/008/save_picture_791342.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791163.jpg" />
+  <img src="Z:/picture/008/save_picture_791163.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791159.jpg" />
+  <img src="Z:/picture/008/save_picture_791159.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
+  <img src="Z:/picture/008/save_picture_791155.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791152.jpg" />
+  <img src="Z:/picture/008/save_picture_791152.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791063.jpg" />
+  <img src="Z:/picture/008/save_picture_791063.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791059.jpg" />
+  <img src="Z:/picture/008/save_picture_791059.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
+  <img src="Z:/picture/008/save_picture_791056.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790973.jpg" />
+  <img src="Z:/picture/008/save_picture_790973.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D72CF4FB07983A011F5FB832019210531DCBFA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510534   (790863) от 17.11.2021
-
-David "Fathead" Newman - It's Mister Fathead (1958 - 1967) 2CD, 1997, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790863.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Hard Times [4:44]
-02. Weird Beard [4:50]
-03. Willow Weep for Me [5:00](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13FF413943586AB200035B9560141C84DFBEA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387765   (790686) от 03.06.2020
-
-Dan Knight - Montreux (1998) After Hours [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squeeze Me [4:10]
-02. My Foolish Heart [3:48]
-03. Almost September [3:27]
-04. Almost Like Being in Love [2:27](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano jazzПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB7DE9CEB5763B55FB2EFA40863F9A4D45E125D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202215   (790561) от 28.01.2018
-
-Mike McGinnis - Recurring Dream (2017) Sunnyside Communications [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mel's Drive In [07:54]
-02. Circle Dance [01:35]
-03. The Rising [09:17]
-04. Hearth [07:50](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BF80441FA6C0C557EAD2B88EC20687F2DA47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202214   (790560) от 28.01.2018
-
-Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Point of Departure [05:25]
-02. Kinch [05:47]
-03. I Can See You from Here [05:35]
-04. Jack in the Back [17:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
 ```
 
 https://mybot314.ru/tekegram_catalog/

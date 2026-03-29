@@ -1,3 +1,90 @@
+###  Публикация: 1552807   (585884) от 22.05.2022
+
+Viter - V! (2012) 4CD, Deluxe Version, 2016, Viter Records [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585884.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Dlya Vohnyu (Light Version) (00:03:35)
+✧ 02 - Dlya Vohnyu (Acoustic Version, Live at Morning TV Show, Lviv, 2013) (00:03:11)
+✧ 03 - Viter (Live at Zaxid Festival, 2013) (00:03:42)
+✧ 04 - Marichka (Live at Zaxid Festival, 2013) (00:06:19)(   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 4CD, 02:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0298B842B710C584E43936766276E07422B977BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552457   (585729) от 22.05.2022
+
+Volturian - Red Dragon (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphonic, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebirth (00:01:59)
+02 - Stay (00:04:46)
+03 - Harley (00:04:16)
+04 - Empty World (00:03:27)(   Читать дальше...   )Жанр: Melodic Symphonic, Groove MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677C5D86844AD0C1E8AFA2178770C56D84BFF79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040581   (585561) от 06.08.2016
+
+Joe Stump - 2001: A Shred Odyssey (2001) [APE|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2001: A Shred Odyssey    06:23
+02. Bullet Train    03:08
+03. Nocturne    05:01
+04. Still I'm sad    04:53(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA87AFA8BB9AC3E17C5CC650DADBA39323905EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040559   (585539) от 06.08.2016
 
 Joe Stump - Night Of The Living Shred (1994) [FLAC|Lossless|tracks + .cue] <Heavy Metal,  Instrumental, Shred>
@@ -6,7 +93,7 @@ Joe Stump - Night Of The Living Shred (1994) [FLAC|Lossless|tracks + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585539.jpg" />
+  <img src="Z:/picture/008/save_picture_585539.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Joe Stump's Reign of Terror - Light In The Sky (1995) Japanese Edition [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585348.jpg" />
+  <img src="Z:/picture/008/save_picture_585348.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Stonehaven - #Hardlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584828.jpg" />
+  <img src="Z:/picture/008/save_picture_584828.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Bodom After Midnight - Paint The Sky With Blood (2021) EP, Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584768.jpg" />
+  <img src="Z:/picture/008/save_picture_584768.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Akrotheism - Behold the Son of Plagues (2014) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584351.jpg" />
+  <img src="Z:/picture/008/save_picture_584351.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Beatrik - Requiem of December (2005) [APE|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584350.jpg" />
+  <img src="Z:/picture/008/save_picture_584350.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Psycroptic - As the Kingdom Drowns (2018) [WavPack|Lossless|image + .cue] <Techn
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584348.jpg" />
+  <img src="Z:/picture/008/save_picture_584348.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Julie Laughs Nomore - From The Mist Of The Ruins (2001) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584347.jpg" />
+  <img src="Z:/picture/008/save_picture_584347.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Northlane - Discoveries (2011) [FLAC|Lossless|image + .cue] <Metalcore, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584345.jpg" />
+  <img src="Z:/picture/008/save_picture_584345.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Astronoid - Astronoid (2019) [FLAC|Lossless|image + .cue] <Melodic Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584344.jpg" />
+  <img src="Z:/picture/008/save_picture_584344.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Tyrant's Reign - Tyrant's Reign (2004) [APE|Lossless|image + .cue] <Speed Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584172.jpg" />
+  <img src="Z:/picture/008/save_picture_584172.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Born of Osiris - The Discovery (2011) [WavPack|Lossless]<Deathcore, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584040.jpg" />
+  <img src="Z:/picture/008/save_picture_584040.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583934.jpg" />
+  <img src="Z:/picture/008/save_picture_583934.jpg" />
 </div>
 
 
@@ -393,7 +480,7 @@ Crucify The Faith - As The World Ends (2022) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583810.jpg" />
+  <img src="Z:/picture/008/save_picture_583810.jpg" />
 </div>
 
 
@@ -422,7 +509,7 @@ Alter Within - Alter Within (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Groove M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583767.jpg" />
+  <img src="Z:/picture/008/save_picture_583767.jpg" />
 </div>
 
 
@@ -451,7 +538,7 @@ Black Seal - We Must Make Them Fall (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583760.jpg" />
+  <img src="Z:/picture/008/save_picture_583760.jpg" />
 </div>
 
 
@@ -480,7 +567,7 @@ Visions Of Atlantis - Pirates (2022) [FLAC|Lossless|image + .cue] <Melodic, Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583706.jpg" />
+  <img src="Z:/picture/008/save_picture_583706.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ Electrocution - Inside The Unreal (1993) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583385.jpg" />
+  <img src="Z:/picture/008/save_picture_583385.jpg" />
 </div>
 
 
@@ -538,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582535.jpg" />
+  <img src="Z:/picture/008/save_picture_582535.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ VA - Great Lefty - Live Forever - Tribute To Tony Iommi, Godfather Of Metal (201
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582471.jpg" />
+  <img src="Z:/picture/008/save_picture_582471.jpg" />
 </div>
 
 
@@ -596,7 +683,7 @@ Trans-Siberian Orchestra - Letters From The Labyrinth (2015) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582306.jpg" />
+  <img src="Z:/picture/008/save_picture_582306.jpg" />
 </div>
 
 
@@ -625,7 +712,7 @@ Darkology - Fated To Burn (2015) [FLAC|image+.cue]<Progressive Heavy / Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581998.jpg" />
+  <img src="Z:/picture/008/save_picture_581998.jpg" />
 </div>
 
 
@@ -654,7 +741,7 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [FLAC|Lossless]<Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581991.jpg" />
+  <img src="Z:/picture/008/save_picture_581991.jpg" />
 </div>
 
 
@@ -668,93 +755,6 @@ Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [FLAC|Lossless]<Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D72C355027269D9B05B7D746AB6FEAD5BFAF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553440   (581964) от 26.05.2022
-
-Gengis Khan - Possessed by the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Speed Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Possessed by the Wolf (00:04:23)
-02 - In the Name of Glory (00:06:24)
-03 - Extreme Power (00:03:17)
-04 - Eternal Flame (00:04:48)(   Читать дальше...   )Жанр: Classic Speed Heavy MetalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91835B042CDCC83E8240A27BF3E6AB062D29BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041751   (581575) от 10.08.2016
-
-Wаrfесt - Sсаvеngеrs (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purveyors Of Cadavers
-02. Reptile
-03. Anatomy Of Evil
-04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D73E01CF09A00906AAC1A9CA31FDBDC0CD9C0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041745   (581571) от 10.08.2016
-
-Zеаlоtrу - Тhе Lаst Witnеss (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arc Of Eradication
-02. Heralding The Black Apostle
-03. Cybernetic Eucharist
-04. Progeny Omega(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7EB4C11A5637DA1AE1AB5717E96F81443C76AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

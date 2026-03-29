@@ -1,3 +1,81 @@
+###  Публикация: 194652   (835158) от 22.04.2010
+
+Within Temptation: Black Symphony (2008) [1080i] Blu-Ray
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blu-Ray версия грандиозного концерта, прошедшего 7 февраля 2008 года в городе Роттердам. Помимо самой группы в этом действе участвовал орекстр Metropole из 60 человек и классического хора из 35 человек. Концерт проходил на фоне экрана площадью 400 квадратных метров и сопровождался оглушительной пиротехникой, световыми эффектами и сменами костюмов. Съемки концерта (   Читать дальше...   )Жанр: Gothic MetalФормат: BDMVПродолжительность: 02:06:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501535   (835036) от 10.10.2021
+
+Квартирник НТВ у Маргулиса. Александр Пушной с новой группой (09.10.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_835036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карьера российского музыканта-мультиинструменталиста и певца Александра Пушного началась с создания группы «Медведь» в далеком 1993 году. С тех пор он прочно обосновался на музыкальной сцене, его карьера с каждым годом набирает обороты, он записывает каверы на различные песни и выпускает альбомы, а количество поклонников его творчества только увеличивается. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8834519F1DA7B4ADA02BA749C24161AA7426F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380502   (833052) от 03.05.2020
+
+Квартирник НТВ у Маргулиса. Ольга Кормухина и Алексей Белов (02.05.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833052.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске в гости к Евгению Маргулису пришли Ольга Кормухина и Алексей Белов. Одна из самых талантливых рок-исполнительниц России и лидер и автор всех композиций легендарной группы «Парк Горького» в прошлом году отметили 20-ю годовщину семейно-творческого союза. В атмосферной студии Ольга и Алексей поделились интересными воспоминаниями, а также исполнили как (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8A0E52040ECA9EA0909AC121CE31363EDC8614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380567   (832698) от 03.05.2020
 
 AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
@@ -6,7 +84,7 @@ AC/DC: No Bull (1996) BDRip [H.264/720p-LQ] [Directors Cut] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832698.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ AC/DC - No Bull (1996) BDRemux [VC-1/1080i] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830962.jpg" />
 </div>
 
 
@@ -64,7 +142,7 @@ Yello - Live in Berlin (2017) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830866.jpg" />
 </div>
 
 
@@ -94,7 +172,7 @@ Talking Heads: Stop Making Sense (1984) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830698.jpg" />
 </div>
 
 
@@ -122,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828968.jpg" />
 </div>
 
 
@@ -148,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828888.jpg" />
 </div>
 
 
@@ -174,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826951.jpg" />
 </div>
 
 
@@ -203,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826899.jpg" />
 </div>
 
 
@@ -233,7 +311,7 @@ Yanni Live! The Concert Event (2006) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826732.jpg" />
 </div>
 
 
@@ -260,7 +338,7 @@ Metallica - Freeze 'Em All (2013) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825380.jpg" />
 </div>
 
 
@@ -290,7 +368,7 @@ Foreigner: Greatest Hits (2008) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825214.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823474.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823394.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823382.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822920.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ Blue Man Group - How to Be a Megastar 2.0! (2008) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821492.jpg" />
+  <img src="Z:/picture/008/save_picture_821492.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818820.jpg" />
+  <img src="Z:/picture/008/save_picture_818820.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817256.jpg" />
+  <img src="Z:/picture/008/save_picture_817256.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Kylie Minogue - Kiss Me Once (Live at the Sse Hydro) (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816775.jpg" />
+  <img src="Z:/picture/008/save_picture_816775.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ Shania Twain - Still The One: Live From Vegas (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816624.jpg" />
+  <img src="Z:/picture/008/save_picture_816624.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816596.jpg" />
+  <img src="Z:/picture/008/save_picture_816596.jpg" />
 </div>
 
 
@@ -602,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815392.jpg" />
+  <img src="Z:/picture/008/save_picture_815392.jpg" />
 </div>
 
 
@@ -631,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815132.jpg" />
+  <img src="Z:/picture/008/save_picture_815132.jpg" />
 </div>
 
 
@@ -643,91 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BEF91F093C7CF5EE20769F04D8F7C5FAC35290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504128   (813680) от 22.10.2021
-
-Jean-Michel Jarre - Welcome to the Other Side (Live In Notre Dame VR) (2021) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Нового года при поддержке ЮНЕСКО и города Париж, Жан-Мишель Жарр дал захватывающий концерт в соборе Нотр-Дам с использованием виртуальных технологий.01 - The Gathering - Credits intro
-02 - The Opening - VR Live
-03 - Speech 1
-04 - Oxygene 2 - VR Live (JMJ Rework of Kosinski remix)(   Читать дальше...   )Производство: Италия, Франция, Великобритания, РоссияЖанр: музыкаРежиссер: Jean-Michel Jarre, Денис СемёновАктеры: Jean-Michel JarreПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4907D342DD223CE029B5A53033F246C0671664A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118301   (812882) от 25.03.2017
-
-Александр Иванов и Рондо - 25:30:50. Юбилейный концерт в Кремле  (2013) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная программа, которая носит название «25.30.50», символизирует 25 лет Иванова с группой «РОНДО», 30 лет творческой деятельности музыканта и 50 лет, которые исполнились артисту в 2011 году. В рамках живого выступления прозвучат самые яркие работы Александра Иванова, как сольного исполнителя и лидера группы «РОНДО», созданные за всю творческую карьеру.
- «Тройной (   Читать дальше...   )Производство: Россия, Премиум ФильмЖанр: Музыкальный, концертСубтитры: отсутствуютПродолжительность: 02:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB56308A5CAB27303DC74736724410CD3281DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882300   (812728) от 31.03.2015
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812728.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 июля 1986 года. Будапешт. Уже сумерки. Nepstadion - самый большой стадион Венгрии. За считанные мгновения трибуны и само поле стадиона заполняются десятками зрителей, а потом наступит вечер - и на помосте появится Джон Дикон, Брайен Мэй, Роджер Тейлор и Фредди Меркьюри. Меркьюри - имя которому - Вселенная. И тогда на смену мгновениям придет Вечность.01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods. . .Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Производство: США, Венгрия, Канада | MAFILM Dialog Filmstudio, Queen Films Ltd.Жанр: RockРежиссер: Янош ЖомбояиПеревод: ОтсутствуетЯзык субтитров: Русский, английскийПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4962DDF5E932F72BB3A4AF894908B0BA1EB5A3B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

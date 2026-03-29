@@ -1,3 +1,32 @@
+###  Публикация: 1220623   (702335) от 20.04.2018
+
+VA - Women Of Blues (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_702335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruth Brown – Takin’ Care Of Business (2:19)
+02. Betty Lavette – Here I Am (Single Version) (2:48)
+03. Louise Hoffsten – When It Rains It Really Pours (4:34)
+04. Aretha Franklin – Today I Sing The Blues (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29769AF04524CFAFDACE3B7B9CECEF56BA5F554B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132689   (698977) от 10.05.2017
 
 Jim Allchin - Q.E.D. (2013) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Jim Allchin - Q.E.D. (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698977.jpg" />
+  <img src="Z:/picture/008/save_picture_698977.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Shaggy Dogs - All Inclusive (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698706.jpg" />
+  <img src="Z:/picture/008/save_picture_698706.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Johnny Mastro & Mama's Boys - Never Trust the Living (2016) [MP3|320 кб/с] <B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698360.jpg" />
+  <img src="Z:/picture/008/save_picture_698360.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dave Peabody & Regina Mudrich - Some Of These Days (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697771.jpg" />
+  <img src="Z:/picture/008/save_picture_697771.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Alice Phoebe Lou - Paper Castles (2019) [MP3|320 Kbps] <Blues, Folk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697649.jpg" />
+  <img src="Z:/picture/008/save_picture_697649.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Green Blues Band - Second Try (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697647.jpg" />
+  <img src="Z:/picture/008/save_picture_697647.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ James Morrison - You’re Stronger Than You Know (2019) [MP3|320 Kbps] <Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697638.jpg" />
+  <img src="Z:/picture/008/save_picture_697638.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Idle Hands - Ready For Business (2011) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693430.jpg" />
+  <img src="Z:/picture/008/save_picture_693430.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Lady Haman - Nature of the Grace (2015) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691371.jpg" />
+  <img src="Z:/picture/008/save_picture_691371.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Quelques Fiers Mongols - 2 альбома (2002-2006) [MP3|320 Kbps] <Jazz Rock,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688261.jpg" />
+  <img src="Z:/picture/008/save_picture_688261.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Headline Blues Band - Blues And Trouble (2017) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687459.jpg" />
+  <img src="Z:/picture/008/save_picture_687459.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Janiva Magness - Blue Again (2017) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687442.jpg" />
+  <img src="Z:/picture/008/save_picture_687442.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - 100 Hits Blues Rock (2004) [MP3|192 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685017.jpg" />
+  <img src="Z:/picture/008/save_picture_685017.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Kevin Waide Project - Almost The Marrying Kind (2016) [MP3|320 кб/с] <Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684650.jpg" />
+  <img src="Z:/picture/008/save_picture_684650.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Jim Suhler & Monkey Beat - Live at the Kessler (2016) Live [MP3|320 кб/с] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682623.jpg" />
+  <img src="Z:/picture/008/save_picture_682623.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Brother Sun Sister Moon - Liberty (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682576.jpg" />
+  <img src="Z:/picture/008/save_picture_682576.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Temporary Roads - Hero (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679307.jpg" />
+  <img src="Z:/picture/008/save_picture_679307.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Mezcaleros Blues Band - Sesiones Destiladas (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679138.jpg" />
+  <img src="Z:/picture/008/save_picture_679138.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Big Wolf Band - A Rebel's Story (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678816.jpg" />
+  <img src="Z:/picture/008/save_picture_678816.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Leigh Blond - Innocence (2022) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678548.jpg" />
+  <img src="Z:/picture/008/save_picture_678548.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Barry Goldberg - Barry Goldberg & Friends (1991) Compilation, 1991, Sequel Recor
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677000.jpg" />
+  <img src="Z:/picture/008/save_picture_677000.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Bourbon Alley - Bourbon Alley (2016) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674808.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Laurence Jones - Take Me High (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674420.jpg" />
+  <img src="Z:/picture/008/save_picture_674420.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674327.jpg" />
+  <img src="Z:/picture/008/save_picture_674327.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Recor
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673417.jpg" />
+  <img src="Z:/picture/008/save_picture_673417.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Bill Wyman, настоящее имя William George Perks - британски�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223546   (673300) от 05.05.2018
-
-Bill Wyman's Rhythm Kings (Bill Wyman) - Stone Alone (1976) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. A Quarter To Three 2:55
-02. Gimme Just one Chance 2:51
-03. Soul Satisfying 2:43
-04. Apache Woman 3:35(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAB36B94F53DD7B11BBD65763CD475D58F09F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,139 @@
+###  Публикация: 749849   (952950) от 26.01.2014
+
+Иван Новиков | Конопель-конопелька (1926) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детская книга стихов русского писателя Ивана Алексеевича Новикова с иллюстрациями художника и иллюстратора Павла Яковлевича Павлинова.
+Как это там бывает —
+глазком бы да подглядеть!..
+Как росток прорастает,(   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795AB296D413E572114B9293AD618A44095A8231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981008   (952878) от 31.01.2016
+
+Словарь русских мифических змеев (2016) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F998ECA0C7911AAC90C069D51A80A9EC622049CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749755   (952869) от 26.01.2014
+
+Лев Кассиль | Собрание сочинений [5 томов] (1965-1967) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание сочинений Льва Кассиля (1905-1970), замечательного писателя, классика детской литературы.
+За свое творчество Лев Абрамович Кассиль награжден Сталинской премией, орденами и медалями.
+По его произведениям снято 10 фильмов.
+Пятитомник включил в себя практически все творчество автора.Жанр: Киги для детейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8ED9C8EC4DAC123903300E248768B2068A7D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980983   (952807) от 31.01.2016
+
+Словарь русских мифических дев (2016) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4516D351B959AD65C4DCBAD115CC6A56126836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981010   (952764) от 31.01.2016
+
+Словарь русских языческих богов (2016) [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AFEBDAB60343909F5ADEBB9DFA972C00EE30EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981339   (952543) от 31.01.2016
 
 По Бронсон, Эшли Мерримен | Мифы воспитания. Наука против интуиции (2014) [FB2, PDF]
@@ -6,7 +142,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952543.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952154.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952025.jpg" />
 </div>
 
 
@@ -86,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951995.jpg" />
 </div>
 
 
@@ -112,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951927.jpg" />
 </div>
 
 
@@ -138,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951892.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951684.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951161.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951138.jpg" />
 </div>
 
 
@@ -243,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950945.jpg" />
 </div>
 
 
@@ -271,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950922.jpg" />
 </div>
 
 
@@ -297,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950770.jpg" />
 </div>
 
 
@@ -323,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950734.jpg" />
 </div>
 
 
@@ -349,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950732.jpg" />
 </div>
 
 
@@ -375,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950723.jpg" />
 </div>
 
 
@@ -401,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950705.jpg" />
 </div>
 
 
@@ -427,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950510.jpg" />
 </div>
 
 
@@ -453,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950471.jpg" />
 </div>
 
 
@@ -480,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950469.jpg" />
 </div>
 
 
@@ -506,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950230.jpg" />
 </div>
 
 
@@ -532,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949977.jpg" />
 </div>
 
 
@@ -544,140 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF303E69CC487A3DBCCBA61612CF1CBC14C358AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980997   (949762) от 02.02.2016
-
-Словарь русских мифических  духов и нежити (2016) [RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8605A5A5888056F872A7BF88268695365645CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980979   (949749) от 02.02.2016
-
-Словарь вещунов, колдунов и знахарей (2016) [RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для младшего и среднего школьного возраста.Жанр: ИсторияФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F828C6AC76B090E759FED4C857AC6D329B4C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362502   (949549) от 23.02.2020
-
-Нил Патрик Харрис | Цикл: «Волшебные неудачники» [3 книги] (2018-2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Подросток Картер сбегает от своего дядюшки Проныры, обворовывающего людей с помощью фокусов и обмана. Он не верит в волшебство, но случайно находит друзей, которые тоже увлечены магией. В книге есть тайны, шифры и подробные объяснения фокусов, но самое главное, в ней есть вера в дружбу и чудеса.
-Для среднего и старшего школьного возраста.
-
-Актёр, продюсер, режиссёр, (   Читать дальше...   )Жанр: Приключения для детейПеревод: Елена ЯковлеваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88AEF7427F5AB60D260D9994544FA1241418810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362256   (949238) от 23.02.2020
-
-Виктория Кожедуб (ред.) | Сказания о богатырях. Предания Руси [сборник] (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь, подвиги, дружба, походы и битвы – все переплелось в героических сказаниях о русских богатырях. В сборник входят былины о «старших» богатырях – Святогоре, Микуле Селяниновиче, Илье Муромце, и «младших» богатырях – Добрыне Никитиче и Алеше Поповиче.Жанр: Сказки для детей, Мифы, Легенды, ЭпосФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A954ACBB09282BD80CF33052911CD31CACB51B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089930   (949058) от 05.01.2017
-
-Геннадий Цыферов | Собрание сочинений [32 книги] (1958-2012) [PDF, DJVU, FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геннадий Михайлович Цыферов (1930—1972) — советский писатель-сказочник,сценарист, драматург
-Родился 26 марта 1930 года в Свердловске. Отец занимал пост директора Гос. треста зеленого строительства "Госзеленстрой" РСФСР, мать была бухгалтером. В 1949 г. он поступает в институт Востоковедения на факультет японского языка, но из-за большой близорукости на (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EF58C1B937CC915FF7C51C170B08B7CEDFB12E
 ```
 
 https://mybot314.ru/tekegram_catalog/

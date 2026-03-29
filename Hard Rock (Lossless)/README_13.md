@@ -1,3 +1,61 @@
+###  Публикация: 1484818   (1005839) от 22.07.2021
+
+Dellacoma - Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrenaline 03:49
+02. Defiance 02:55
+03. Kill Your Idols 03:16
+04. Akashic Memory 03:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECADE1A9A95C22AB0AB41D25492B5219D553AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484989   (1005744) от 23.07.2021
+
+Hardline - Heart, Mind And Soul (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuel To The Fire
+02. Surrender
+03. If I Could I Would
+04. Like That(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC502AC33BB322C80AAB9A580E00631874D3B8A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484977   (1005734) от 23.07.2021
 
 Heavy Water - Red Brick City (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Heavy Water - Red Brick City (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005734.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Platens - Of Poetry And Silent Mastery (2021) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005609.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Guild Of Ages - Rise (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005326.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Rare Bird - 9 albums, 1 Box-set, 16 CD (1969-2021) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005258.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004882.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Nitrate - Renegade (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004592.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Restless Bones - Captured by the Roots (2021) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004585.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Six Feet Under (Sweden) - Discography: 2 albums (1983-1984) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004494.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Universe - Mission Rock (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004376.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Etherstone - The Missing Chapter (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003880.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Zeno - 5 альбомов Collection 6 CD (1986-2006) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003526.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Desert Colossus - Eyes and Tongues (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003336.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Spektra - Overload (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003311.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Night Ranger - ATBPO (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003310.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Vanilla Fudge - 16 Albums, 1 Box-set, 26CD (1967-2020) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002814.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002809.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Scorpions - Best Of Scorpions (1984) [FLAC|Lossless] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002697.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Anims - God Is a Witness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002597.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Crazy keys - Mystical (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002310.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002189.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Winger - 10 albums, 17CD (1988-2014) [FLAC|Lossless|image + .cue] <Hard Rock, Gl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002159.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Mel Cruz - Universo Real (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002052.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Magnum - The Serpent Rings (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001918.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Tucky Buzzard - 5 albums, 1 Box set, 7 CD (1971-2016) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001886.jpg" />
 </div>
 
 
@@ -688,61 +746,6 @@ Tucky Buzzard - 5 albums, 1 Box set, 7 CD (1971-2016) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36857290C4A239847A28358D5832C0B9123C9FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488964   (1001397) от 13.08.2021
-
-Zodiac - 4 albums, 5CD (2012-2016) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zodiac - блюз-рок-группа из Мюнстера, Германия образованная в 2011 году, состоящая из участников Misery Speaks, Long Distance Calling и Rocketchief. Их первый альбом под названием "A Bit Of Devil" вышел 25 мая 2012 года. Четыре музыканта сочетают в себе многолетний опыт игры и общее желание создавать интересную музыку, которую можно считать ретро-хард-роком (   Читать дальше...   )--------------------------
-
-01. Rebirth By Fire (3:00)
-02. Animal (4:29)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Blues Rock |Продолжительность: 04:02:53 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A619A48E731C973D9E4820FC5E2D0ADE4E8493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597999   (1000185) от 03.01.2013
-
-Deep Purple - On The Wings Of A Russian Foxbat  (1976) 2CD /1995, Connoisseur Collection/ [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

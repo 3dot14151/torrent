@@ -6,7 +6,7 @@ OBS Studio 27.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722492.jpg" />
+  <img src="Z:/picture/008/save_picture_722492.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Google Chrome 98.0.4758.102 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722488.jpg" />
+  <img src="Z:/picture/008/save_picture_722488.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Google Chrome 98.0.4758.102 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722481.jpg" />
+  <img src="Z:/picture/008/save_picture_722481.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Freemake Video Converter 4.1.13.120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722474.jpg" />
+  <img src="Z:/picture/008/save_picture_722474.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722472.jpg" />
+  <img src="Z:/picture/008/save_picture_722472.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722471.jpg" />
+  <img src="Z:/picture/008/save_picture_722471.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722469.jpg" />
+  <img src="Z:/picture/008/save_picture_722469.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722468.jpg" />
+  <img src="Z:/picture/008/save_picture_722468.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722439.jpg" />
+  <img src="Z:/picture/008/save_picture_722439.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722403.jpg" />
+  <img src="Z:/picture/008/save_picture_722403.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ XnViewMP 0.86 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722392.jpg" />
+  <img src="Z:/picture/008/save_picture_722392.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722388.jpg" />
+  <img src="Z:/picture/008/save_picture_722388.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Maxthon Browser 5.0.4.500 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722386.jpg" />
+  <img src="Z:/picture/008/save_picture_722386.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ StartAllBack 3.3.0 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722381.jpg" />
+  <img src="Z:/picture/008/save_picture_722381.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Registry Life 3.29 DC 06.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722365.jpg" />
+  <img src="Z:/picture/008/save_picture_722365.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Windows Firewall Control 6.8.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722358.jpg" />
+  <img src="Z:/picture/008/save_picture_722358.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Owntrip - Tribal Gathering (2016) EP [MP3|320 кб/с] <Psychedelic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722355.jpg" />
+  <img src="Z:/picture/008/save_picture_722355.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ TG Pro (Temperature Gauge Pro) 2.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722349.jpg" />
+  <img src="Z:/picture/008/save_picture_722349.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Kari Lynch - Little Games (2016) [FLAC|Lossless|tracks] <Country>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722347.jpg" />
+  <img src="Z:/picture/008/save_picture_722347.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722312.jpg" />
+  <img src="Z:/picture/008/save_picture_722312.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722296.jpg" />
+  <img src="Z:/picture/008/save_picture_722296.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722294.jpg" />
+  <img src="Z:/picture/008/save_picture_722294.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - Reconnaissance - A Compilation Curated by Govinda (2017) [MP3|320 Kbps] <Du
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722279.jpg" />
+  <img src="Z:/picture/008/save_picture_722279.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722278.jpg" />
+  <img src="Z:/picture/008/save_picture_722278.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ MP3 Speed 5.5.1 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722275.jpg" />
+  <img src="Z:/picture/008/save_picture_722275.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Zoner Photo Studio X 19.1704.2.22 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722268.jpg" />
+  <img src="Z:/picture/008/save_picture_722268.jpg" />
 </div>
 
 

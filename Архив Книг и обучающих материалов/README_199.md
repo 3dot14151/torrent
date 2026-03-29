@@ -1,3 +1,29 @@
+###  Публикация: 1660819   (188773) от 14.09.2023
+
+С.В. Савельев | Возникновение мозга человека. Том 1. Третье издание (2020) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография охватывает основные периоды возникновения головного мозга человека. Исследованы причины и эволюционные закономерности развития переднего мозга и неокортекса млекопитающих. Реконструированы морфофункциональные особенности ранней эволюции мозга приматов. Показаны возможные экологические условия и механизмы формирования архетипа организации мозга австралопитеков. (   Читать дальше...   )Жанр: научно-популярная литератураИздательство: ВЕДИФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235DBFBDBB9CA4682EBB2FE6FE5F51145089469C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660808   (188732) от 14.09.2023
 
 Роман Гурбанов| Современный подход к программной архитектуре. Сложные компромиссы (2023) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188732.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185772.jpg" />
+  <img src="Z:/picture/004/save_picture_185772.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ CGMA, David Mooy | Introduction to Maya / Введение в Maya [En] (2020) P
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185739.jpg" />
+  <img src="Z:/picture/004/save_picture_185739.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182973.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Skillbox, Алексей Половинкин и др. | Python-фреймвор
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181013.jpg" />
+  <img src="Z:/picture/005/save_picture_181013.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ JSExpert, Александр Кириченко | Фундаментальный
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179546.jpg" />
+  <img src="Z:/picture/005/save_picture_179546.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178592.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Udemy, Andrey Sumin | Полный курс Андроид + Java с нуля (2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177870.jpg" />
+  <img src="Z:/picture/005/save_picture_177870.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ TrueArtSchool, Светлана Курако | Иллюстратор ПРО (20
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176524.jpg" />
+  <img src="Z:/picture/004/save_picture_176524.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Udemy, Andrei Neagoie | The Complete Web Developer in 2021: Zero to Mastery (202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176442.jpg" />
+  <img src="Z:/picture/004/save_picture_176442.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля. Web, Mobile, Postman,
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170681.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169802.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169086.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168240.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167518.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167426.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166045.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Mario Brajdich | Mastering 3D Modeling in Maya Part 2 (2019) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164704.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164576.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163459.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163444.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162065.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Udemy, Andrei Neagoie и др.| Complete Ethical Hacking Bootcamp 2021: Zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161752.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161362.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159868.jpg" />
 </div>
 
 
@@ -672,32 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524516A5A2AF53C733A8E625C23725AB043DCCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967330   (158700) от 20.12.2015
-
-Марина Серова | Слезы печального ангела (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158700.jpg" />
-</div>
-
-
-###  Подробнее
-
-К полковнику полиции Геннадию Петрову – по совместительству другу телохранителя Евгении Охотниковой – обратилась Ангелина Сомова. Она по собственной инициативе решила помочь полиции в поимке своего бойфренда Сергея Крупенина, члена международной банды наркоторговцев. Его показания были как воздух необходимы Интерполу: дело, над которым долго трудились полицейские (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9210AE33979A8C40A58349457DB758F4D28875
 ```
 
 https://mybot314.ru/tekegram_catalog/

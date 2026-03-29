@@ -1,3 +1,29 @@
+###  Публикация: 935702   (326313) от 18.11.2015
+
+AVG AntiVirus Pro Android Security 5.0 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа AVG AntiVirus Pro для Android™ обеспечит вашему устройству полнофункциональную защиту от вирусов, вредоносных и шпионских программ, а также веб-атак в режиме реального времени.Тип издания: ПираткаРелиз состоялся: 16 ноября 2015 г.Разработчик: AVG MobileПоддерживаемая ОС: Android™ зависит от устройстваЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4198C895521C7A797BEC3214F99B5DE440668524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 415269   (325771) от 26.11.2011
 
 [Игра] (Android 2.2+) Tiny Monsters (1.0) - клон Angry Birds
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325771.jpg" />
+  <img src="Z:/picture/008/save_picture_325771.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Just Cleaner 1.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325545.jpg" />
+  <img src="Z:/picture/008/save_picture_325545.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Terminator 2  Immortality 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325536.jpg" />
+  <img src="Z:/picture/008/save_picture_325536.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324944.jpg" />
+  <img src="Z:/picture/008/save_picture_324944.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323849.jpg" />
+  <img src="Z:/picture/008/save_picture_323849.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323660.jpg" />
+  <img src="Z:/picture/008/save_picture_323660.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323601.jpg" />
+  <img src="Z:/picture/008/save_picture_323601.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323587.jpg" />
+  <img src="Z:/picture/008/save_picture_323587.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323336.jpg" />
+  <img src="Z:/picture/008/save_picture_323336.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Rune Icon Pack 2.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321250.jpg" />
+  <img src="Z:/picture/008/save_picture_321250.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321233.jpg" />
+  <img src="Z:/picture/008/save_picture_321233.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ BitTorrent Pro 3.13 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320904.jpg" />
+  <img src="Z:/picture/008/save_picture_320904.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320583.jpg" />
+  <img src="Z:/picture/008/save_picture_320583.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Paper Airplanes v3.2 [En/Ru] - собираем самолётики из бум
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320424.jpg" />
+  <img src="Z:/picture/008/save_picture_320424.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319921.jpg" />
+  <img src="Z:/picture/005/save_picture_319921.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319779.jpg" />
+  <img src="Z:/picture/005/save_picture_319779.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319673.jpg" />
+  <img src="Z:/picture/005/save_picture_319673.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319671.jpg" />
+  <img src="Z:/picture/005/save_picture_319671.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Dolphin Browser 11.5.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316952.jpg" />
+  <img src="Z:/picture/008/save_picture_316952.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Vivaldi for Android 5.5.2807.28  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316654.jpg" />
+  <img src="Z:/picture/008/save_picture_316654.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ aTorrent PRO 3.0.2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316422.jpg" />
+  <img src="Z:/picture/008/save_picture_316422.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315952.jpg" />
+  <img src="Z:/picture/008/save_picture_315952.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Ashampoo Screenshot Snap Pro 1.2.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315677.jpg" />
+  <img src="Z:/picture/008/save_picture_315677.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Dr. Tariff (+ баланс виджет) Premium 3.1.8 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315672.jpg" />
+  <img src="Z:/picture/008/save_picture_315672.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315502.jpg" />
+  <img src="Z:/picture/008/save_picture_315502.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BBC2B2D6708C5E0DCD67C2DB665E7682AEC1152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542170   (314618) от 01.12.2012
-
-[Программа] (Android 1.5+) Nova Battery Tester 1.75 - Тестирование реальной емкости батареи /обновлено 30.11.12/
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тестирование и определение реальной емкости аккумуляторной батареи телефона или планшета.Разработчик: Nano DynamicsЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

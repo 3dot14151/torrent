@@ -1,3 +1,142 @@
+###  Публикация: 1027769   (694707) от 20.06.2016
+
+VA - Swedish Electro vol 2 (2013) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machinista - The Blues And The Reds (04:13)
+02. Sad Sad Zoo - Follow My Heart (05:22)
+03. Art Fact - Separated Bodies (04:14)
+04. Vogon Poetry - Land Of Forever (03:46)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 02:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373480CCC72430D3F3486907BC3AADFAD93E9AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027751   (694705) от 20.06.2016
+
+Soft4Boost Easy Disc Burner 4.8.5.379 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая бесплатная утилита для записи файлов и папок с ПК на диски различных форматов: CD, DVD, Blu-Ray. Программа предельно проста в пользовании и не загружена лишними опциями - все только для того, чтобы записать данные на диск.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3A65CE6E161434429D65B30FEBFE5EEBA6535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027748   (694698) от 20.06.2016
+
+Soft4Boost Any Uninstaller 6.9.9.545 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, безопасная, простая и удобная утилита для удаления приложений, которые не могут быть удалены стандартными средствами Windows.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45AEF6156D59BE7CB27418BBE5FCFB60FDD0C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027777   (694694) от 20.06.2016
+
+VA - Swedish Electro vol 3 (2015) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncreated - I Never Told You To Stay (03:50)
+02. Optic - Rise (04:42)
+03. Erotic Elk - Surrender (04:40)
+04. Machinista - The Scare (Acoustic Version) (04:25)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 04:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B940EFE91C18FACBD3BC675DF0447C03898EFD7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027764   (694693) от 20.06.2016
+
+VA - Swedish Electro vol 1 (2013) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moist feat.Smith &Thell - Me And You (04:27)
+02. Optic - Devil & I (Control Mix) (04:37)
+03. Rezonance - Obscurity (05:43)
+04. Arachnophobias - Saudade (Swedish Electro Scene Remix) (08:31)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 02:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6072C14764977186915563691591A4E0E1F10C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027410   (694691) от 20.06.2016
 
 Журнал | Мир криминала №12 (июнь 2016) [PDF]
@@ -6,7 +145,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694691.jpg" />
+  <img src="Z:/picture/008/save_picture_694691.jpg" />
 </div>
 
 
@@ -33,7 +172,7 @@ Soft4Boost Secure Eraser 4.1.1.373 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694690.jpg" />
+  <img src="Z:/picture/008/save_picture_694690.jpg" />
 </div>
 
 
@@ -59,7 +198,7 @@ VA - Krafty Move (An Electronic Tribute To Kraftwerk) (1997) 2CD Compilation [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694689.jpg" />
+  <img src="Z:/picture/008/save_picture_694689.jpg" />
 </div>
 
 
@@ -88,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694687.jpg" />
+  <img src="Z:/picture/008/save_picture_694687.jpg" />
 </div>
 
 
@@ -114,7 +253,7 @@ Office Tab Enterprise 13.10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694677.jpg" />
+  <img src="Z:/picture/008/save_picture_694677.jpg" />
 </div>
 
 
@@ -140,7 +279,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694675.jpg" />
+  <img src="Z:/picture/008/save_picture_694675.jpg" />
 </div>
 
 
@@ -166,7 +305,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694672.jpg" />
+  <img src="Z:/picture/008/save_picture_694672.jpg" />
 </div>
 
 
@@ -192,7 +331,7 @@ MSI Afterburner 4.5.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694670.jpg" />
+  <img src="Z:/picture/008/save_picture_694670.jpg" />
 </div>
 
 
@@ -218,7 +357,7 @@ Autodesk AutoCAD 2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694645.jpg" />
+  <img src="Z:/picture/008/save_picture_694645.jpg" />
 </div>
 
 
@@ -244,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694638.jpg" />
+  <img src="Z:/picture/008/save_picture_694638.jpg" />
 </div>
 
 
@@ -270,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694620.jpg" />
+  <img src="Z:/picture/008/save_picture_694620.jpg" />
 </div>
 
 
@@ -296,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694618.jpg" />
+  <img src="Z:/picture/008/save_picture_694618.jpg" />
 </div>
 
 
@@ -322,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694617.jpg" />
+  <img src="Z:/picture/008/save_picture_694617.jpg" />
 </div>
 
 
@@ -348,7 +487,7 @@ SamDrivers 17.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694613.jpg" />
+  <img src="Z:/picture/008/save_picture_694613.jpg" />
 </div>
 
 
@@ -374,7 +513,7 @@ Total Commander 9.0a LitePack | PowerPack 2017.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694608.jpg" />
+  <img src="Z:/picture/008/save_picture_694608.jpg" />
 </div>
 
 
@@ -400,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694557.jpg" />
+  <img src="Z:/picture/008/save_picture_694557.jpg" />
 </div>
 
 
@@ -426,7 +565,7 @@ Wise Registry Cleaner 9.21.593 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694552.jpg" />
+  <img src="Z:/picture/008/save_picture_694552.jpg" />
 </div>
 
 
@@ -452,7 +591,7 @@ Aeon Timeline 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694551.jpg" />
+  <img src="Z:/picture/008/save_picture_694551.jpg" />
 </div>
 
 
@@ -479,7 +618,7 @@ Soft4Boost Dup File Finder 6.2.7.451 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694548.jpg" />
+  <img src="Z:/picture/008/save_picture_694548.jpg" />
 </div>
 
 
@@ -505,7 +644,7 @@ Windows Firewall Control 4.7.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694546.jpg" />
+  <img src="Z:/picture/008/save_picture_694546.jpg" />
 </div>
 
 
@@ -531,7 +670,7 @@ GPU-Z 0.8.9 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694543.jpg" />
+  <img src="Z:/picture/008/save_picture_694543.jpg" />
 </div>
 
 
@@ -542,136 +681,6 @@ GPU-Z - бесплатная программа для отображения т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73690799EF5CD7FEDE1C3B4E9F84A697A32FFF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027694   (694541) от 20.06.2016
-
-AnyMP4 Video Enhancement 1.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694541.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75D75D51743DA8E2FF7FB381C526D9A42BF3675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027749   (694540) от 20.06.2016
-
-Soft4Boost Document Converter 4.5.1.351 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FD9E2531052A8473D3C72D0C4565C212E75721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027755   (694539) от 20.06.2016
-
-Soft4Boost Update Checker 6.7.7.349 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная программа для отслеживания появившихся обновлений и новых версий программного обеспечения, установленного на компьютере, непосредственно на сайтах разработчиков.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32E5DA035A8B38D2F7A2999E3DFBC64085DC842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211751   (694537) от 20.06.2010
-
-Огненный шквал / Heat Wave / City on Fire (2009) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир в опасности! В результате экспериментов по разработке альтернативных видов энергии разрушен озоновый слой Земли. Пары ядовитых газов с огромной скоростью распространяются по планете. Если не предотвратить катастрофу, все живое погибнет через несколько часов…Производство: США, Mountain Rose EntertainmentЖанр: ДрамаРежиссер: Рекс ПианоАктеры: Джейми Лунер, Тед Монте, Джэйк Торнтон, Барбара Найвен, Грег Эвиган, Ричард Тэннер, Линн Милано, Роберт Р. Шафер, Дэвид СторрсПеревод: Профессиональный многоголосыйЯзык субтитров: RussianПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211606   (694536) от 20.06.2010
-
-Агония (1975) DVDRip (серии 1-2 из 2) [Полная реставрация]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694536.jpg" />
-</div>
-
-
-###  Подробнее
-
-1916 год. Россия уже третий год ведет войну, которой не видно конца, процветают полицейский произвол, голод и разруха. И всё это - на фоне царящей при дворе роскоши и коррупции, когда агонизирующая власть еще надеется справиться с "бунтовщиками". Российская империя в критическом положении. На престоле - Николай II. По улицам Петрограда маршируют тысячи (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, биография, историяРежиссер: Элем КлимовАктеры: Алексей Петренко, Анатолий Ромашин, Велта Лине, Алиса Фрейндлих, Александр Романцов, Юрий Катин-Ярцев, Леонид Броневой, Павел Панков, Михаил Данилов, Михаил СветинПродолжительность: 01:13:00 + 01:09:17
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

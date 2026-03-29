@@ -1,3 +1,136 @@
+###  Публикация: 1621481   (244642) от 25.03.2023
+
+Gemini 2: The Duplicate Finder 2.9.8 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, это Gemini 2: умная программа для поиска дубликатов на Mac. Она находит дубликаты и похожие файлы и удаляет их. Gemini 2 находит дубликаты с хирургической точностью.
+Gemini поможет быстро найти и удалить одинаковые файлы на вашем Mac. Превратите скучное удаление дубликатов в развлечение! Работает приложение более чем оперативно, так что результаты не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2023Разработчик: © 2022 MacPaw Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279463C54304E268E66F47B115E7805CA706990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530818   (244562) от 12.02.2022
+
+Home Business Card 1.7.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Home Business Card — это конструктор визитных карточек, который помогает создавать визитки с использованием различных встроенных форматов этикеток, графических изображений и готовых дизайнов. Различные объекты, такие как текст, графика и изображения, могут быть легко добавлены в ваши документы.
+Многочисленные эффекты изображения, такие как уровень непрозрачности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E8C3E9E33A5D19F67D9ADBCED073192AD0AC59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530830   (244536) от 12.02.2022
+
+CD DVD Label Maker 2.6.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите создать красивые и профессиональные этикетки для Mac CD / DVD, обложки, этикетки с двойной обложкой, футляры для драгоценностей, вкладыши в футляры, корешки или вам нужно пользовательское видео и коллекций MP3, у вас есть много семейных фотографий и данных для резервного копирования, или вы хотите создать уникальные подарки, тогда вы обнаружите, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.05.2021Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66DA369CDDAD2B09471C98CE564A5A3FF1835C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530863   (244505) от 12.02.2022
+
+Paw (HTTP & REST Client) 3.3.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый продвинутый инструмент API для Mac. Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
+Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Paw Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3D24AE5A2EA4E290A8CD73D26598617DE47E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621755   (244450) от 26.03.2023
+
+AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244450.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyRec Video Converter — это универсальное решение, которое может конвертировать более 1000 видео- и аудиоформатов. Вы можете пакетно конвертировать большие файлы со скоростью в 50 раз выше. Кроме того, вы можете получить доступ к встроенному видеоредактору и набору инструментов, чтобы сделать ваше видео лучше.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: © 2023 Студия AnyRec.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165C738A4160C54A92210F2ADDDE160FFBCEE5F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452617   (244440) от 07.03.2021
 
 Magic Media Marker 3.3 [En]
@@ -6,7 +139,7 @@ Magic Media Marker 3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244440.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ NeoFinder Business 8.1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244325.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ WALTR PRO 4.0.115 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244193.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ FontLab 7 v7.2.0.7649 Beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244107.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ Mirror for Roku TV 2.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243956.jpg" />
+  <img src="Z:/picture/004/save_picture_243956.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ Clipboard mini 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243944.jpg" />
+  <img src="Z:/picture/004/save_picture_243944.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ DateBook - Journal | Memoi‪r 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243795.jpg" />
+  <img src="Z:/picture/004/save_picture_243795.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ Salon Software 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243785.jpg" />
+  <img src="Z:/picture/004/save_picture_243785.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ Noizio — focus, relax, sleep 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243762.jpg" />
+  <img src="Z:/picture/004/save_picture_243762.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ Zoommy 3.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243742.jpg" />
+  <img src="Z:/picture/004/save_picture_243742.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ Flyingbee Reader Pro 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243668.jpg" />
+  <img src="Z:/picture/004/save_picture_243668.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ DoYourData File Eraser Pro 3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243572.jpg" />
+  <img src="Z:/picture/004/save_picture_243572.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ Scherlokk - Files finder 4 v4.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243393.jpg" />
+  <img src="Z:/picture/004/save_picture_243393.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ MultiMode Cocoa 6.9.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243193.jpg" />
+  <img src="Z:/picture/004/save_picture_243193.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ Dropzone 4 Pro v4.2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243105.jpg" />
+  <img src="Z:/picture/004/save_picture_243105.jpg" />
 </div>
 
 
@@ -398,7 +531,7 @@ Book Collector 20.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_243007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243007.jpg" />
 </div>
 
 
@@ -424,7 +557,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242983.jpg" />
+  <img src="Z:/picture/005/save_picture_242983.jpg" />
 </div>
 
 
@@ -450,7 +583,7 @@ WaterMark+ 3.00 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242930.jpg" />
+  <img src="Z:/picture/005/save_picture_242930.jpg" />
 </div>
 
 
@@ -477,7 +610,7 @@ XSTab 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242755.jpg" />
+  <img src="Z:/picture/005/save_picture_242755.jpg" />
 </div>
 
 
@@ -504,7 +637,7 @@ Airflow 3.3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242722.jpg" />
+  <img src="Z:/picture/005/save_picture_242722.jpg" />
 </div>
 
 
@@ -530,7 +663,7 @@ Fuel for Pages 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242709.jpg" />
+  <img src="Z:/picture/005/save_picture_242709.jpg" />
 </div>
 
 
@@ -543,141 +676,6 @@ Fuel for Pages - это удивительное дополнение для п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FCF17CDCEA7E31E85906C23D34759E811A5570E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457389   (242650) от 26.03.2021
-
-DSP-Quattro 5.6.0 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242650.jpg" />
-</div>
-
-
-###  Подробнее
-
-DSP-Quattro мощный и очень удобный в работе аудио/сд мастеринг редактор, с поддержкой AU/VST плагинов.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Stefano DainoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAF0526640E9D2E8AB7A325E84E087A8AB82BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624154   (242546) от 04.04.2023
-
-Mullvad Browser 12.0.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mullvad Browser основан на движке Firefox ESR. Содержит множество функций Tor Browser, но не использует сеть Tor, а предназначен для использования с надежным VPN (не требует использования Mullvad VPN).
-Mullvad Browser подойдет для пользователей, которые хотят защитить свою конфиденциальность, избегая использования Tor. Браузер включает режим «HTTPS Only», дополнения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.01.2023Разработчик: © 2023 Mullvad VPN ABПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46925F93D74D3FC7CFCFA2F7B7AED5E49BF806C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628122   (242529) от 21.04.2023
-
-Tab Launcher 2.9.6 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tab Launcher – хорошая альтернатива стандартному доку в Mac
-Tab Launcher – простое приложение, которое позволяет добавить ещё одну панель, очень похожую на оригинальный Dock, в пространство вашего рабочего стола в OS X.
-TabLauncher поможет вам быстро и легко, используя минимальное количество ресурсов вашего компьютера, найти и запустить любимые программы и файлы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2023Разработчик: © 2011 OktoidПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Английский, Японский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED4A1F827A71FCC5300ED806146707342BBC697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628446   (242135) от 23.04.2023
-
-Iris 1.5.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iris — это высокопроизводительный экранный рекордер, который записывает в формате h.264. Iris использует ускорение встроенного графического процессора, если оно доступно. Дополнительно может включать видео с камеры и до двух микрофонов. Iris может бесплатно попробовать водяной знак, встроенный в записи.Тип издания: macOS SoftwareРелиз состоялся: 22.04.2023Разработчик: © 2023 Static Z SoftwareПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09698570B58F78B30935AEC5FB1B99DB4F28B974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628700   (242010) от 23.04.2023
-
-iClip - Clipboard Recorder & ClipArt Manager 5.5.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242010.jpg" />
-</div>
-
-
-###  Подробнее
-
-iClip - управляйте данными в буфере обмена.
-С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
-iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2023Разработчик: © 2009-2022 Irradiated SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0138804A06414A70FC7EC2E096426D4223998B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

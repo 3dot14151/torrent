@@ -1,3 +1,161 @@
+###  Публикация: 1338114   (270204) от 14.11.2019
+
+Adobe Photoshop 2020 21.0.1.47 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_270204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC 2020 - новая, следующая за CC 2019 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A5EE2D8FA5D8C07EDE2E8B1814CB957F228461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187279   (270021) от 06.12.2017
+
+Хождение по мукам (2017) WEBRip [H.264/1080p-LQ] (серии 1-12 из 12)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о судьбах русской интеллигенции накануне, во время и после революционных событий 1917 года. В центре сюжета — история жизни двух сестер Булавиных, Дарьи и Катерины, и их возлюбленных: офицера Вадима Рощина и инженера Балтийского завода Телегина. Вихри мировой войны, двух революций и Гражданской войны разносят четырех главных героев по разным уголкам (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Константин ХудяковАктеры: Юлия Снигирь, Анна Чиповская, Павел Трубинер, Леонид Бичевин, Антон Шагин, Андрей Мерзликин, Светлана Ходченкова, Алексей Колган, Александр Яценко, Евгений Стычкин и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17167B92B99E06FBBF8DF29B6FEC901C98C8479F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266497   (269785) от 02.12.2018
+
+mini10PE 18.12.2 [Ru] [x86/x64] (авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини загрузочный диск на базе Microsoft Windows 10 Pro 10.0.17763.107 Version 1809 для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления, диагностики компьютера, восстановления файлов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35D1CD31CD6BB751E5D3FC7213FE825DA8D9810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266278   (269764) от 02.12.2018
+
+Windows Login Unlocker 1.0 (тестирование) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана для сброса, изменения  паролей или разблокировки учетных записей Windows.
+С её помощью можно восстановить доступ к любой учетной записи Windows, будь то локальный профиль или аккаунт Microsoft.
+Позволяет вернуть доступ без повреждения системных файлов и переустановки системы.Язык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9777430B5104084BFD6315EB464DB6D8B4B1BBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264015   (269750) от 02.12.2018
+
+HellGate: London / London 2038 (2007/2018) [Ru/En] (1.2a) Repack R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269750.jpg" />
+</div>
+
+
+###  Подробнее
+
+London 2038 не является переизданием вышедшим в 2018 году. История игры проста - демонические существа вырвались наружу, уничтожая город за городом. Кто-то уже сотни лет ожидал пришествия демонов, как тамплиеры, а для кого-то появление дьявольских существ оказалась роковой неожиданностью.Тип издания: RepackРазработчик: Flagship StudiosЖанр: Action (Shooter), RPG (Rogue/Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FEF2F302039232B4C29194DCC06C286CA44CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338267   (269298) от 15.11.2019
+
+VMware Workstation 15 Pro 15.5.1 Build 15018445 (15.11.2019) RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269298.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4871C79E84E25E285DAD2E35B34899C405BB4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 32898   (269297) от 15.11.2019
 
 Подборка | Умные книжки для детей и про детей (от 0 до 3 лет) [JPG, PDF, DJVU,DOC]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269297.jpg" />
 </div>
 
 
@@ -35,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269273.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269256.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269248.jpg" />
 </div>
 
 
@@ -114,7 +272,7 @@ Mozilla Firefox Quantum 57.0.2 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269218.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ Intel приступила к распространению новых унив
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269040.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ Windows 7 xDark ™ Deluxe x64 RG - Codename: State Of Independence 4.3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269032.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269029.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268587.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268503.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Google объявил о запуске бюджетной версии Android
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268500.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268436.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268309.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ BELOFF 2018.12 Unpacked [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268258.jpg" />
+  <img src="Z:/picture/008/save_picture_268258.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_267576.jpg" />
+  <img src="Z:/picture/005/save_picture_267576.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267479.jpg" />
+  <img src="Z:/picture/008/save_picture_267479.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267274.jpg" />
+  <img src="Z:/picture/008/save_picture_267274.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267266.jpg" />
+  <img src="Z:/picture/008/save_picture_267266.jpg" />
 </div>
 
 
@@ -481,7 +639,7 @@ kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267173.jpg" />
+  <img src="Z:/picture/008/save_picture_267173.jpg" />
 </div>
 
 
@@ -509,7 +667,7 @@ Red Giant Trapcode Suite 15.1.5 RePack by PooShock [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266776.jpg" />
 </div>
 
 
@@ -520,162 +678,6 @@ Red Giant Trapcode Suite - это мощный набор из 11 плагино
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190044   (266588) от 10.12.2017
-
-При покупках в интернет-магазинах теперь могут потребовать ИНН.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266588.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 декабря 2017 года российская таможня приступила к эксперименту с новыми правилами оформления покупок из иностранных интернет-магазинов. Теперь таможенники будут требовать от большинства операторов доставки не только паспортные данные покупателя, но и его индивидуальный номер налогоплательщика (ИНН). Кроме того, необходимо указать гиперссылку на приобретенный товар. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190498   (266532) от 10.12.2017
-
-Adguard Premium 6.2.437.2171 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866DF882D6DD9CC110EA1712583AD4507419CCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189829   (266520) от 10.12.2017
-
-Adobe Photoshop CC 2018 19.0.1.190 [x86] Linux (cxarchive)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2018 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Russian, English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F0E8886F8CA768598410291EE8B32EED16E13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266977   (266457) от 06.12.2018
-
-Бесплатный отпуск: как отдохнуть за счет работодателя ?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поездка на курорт за счет работодателя скоро станет доступной для многих россиян. С первого января меняется законодательство, и компании, оплачивающие сотрудникам отдых на российских курортах, получат налоговые льготы. Кто и где сможет отдохнуть бесплатно — в материале РИА Новости.Выгодная льготаЗакон, вступающий в силу первого января 2019 года, позволит компаниям, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250728   (266285) от 06.12.2018
-
-Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое желанное переиздание всех времен от SEGA наконец-то приходит на новое поколение. Shenmue рассказывает эпическую историю в уникальном открытом мире, который все еще не превзойден по своей глубине и проработке. Вернитесь в величественную сагу, которая предопределила современные тенденции в играхТип издания: RepackРазработчик: D3TЖанр: Action, Adventure, RPG, 3DЯзык озвучки: Русский (только первая часть), АнглийскийЯзык субтитров: Русский (только первая часть), Английский и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183867   (266219) от 29.12.2011
-
-Остров проклятых / Shutter Island (2010) DVDRip [Дубляж]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два американских судебных пристава отправляются на один из островов в штате Массачусетс, чтобы расследовать исчезновение пациентки клиники для умалишенных преступников. При проведении расследования им придется столкнуться с паутиной лжи, обрушившимся ураганом и смертельным бунтом обитателей клиники, которые бросают их на острове, как в ловушке...Производство: СШАЖанр: Триллер, Драма, ДетективРежиссер: Мартин СкорсезеАктеры: Леонардо ДиКаприо, Марк Руффало, Бен Кингсли, Макс фон Сюдов, Мишель Уильямс, Эмили Мортимер, Патриция Кларксон, Джеки Эрл Хейли, Тед Левайн, Джон Кэрролл ЛинчПеревод: ДублированныйПродолжительность: 02:12:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

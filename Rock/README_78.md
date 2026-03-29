@@ -1,3 +1,32 @@
+###  Публикация: 1623250   (233909) от 01.04.2023
+
+Maxus - Maxus (1981) [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_233909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Higher You Rise (03:50)
+02. Nobody's Business (03:21)
+03. What You Give (03:53)
+04. Keep a Light On (03:22)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5524F4F9234146C5B7F954DC1AACC562E797043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623376   (233850) от 01.04.2023
 
 Orphan - Salute (1985) [MP3|320 Kbps] <AOR, Melodic Rock>
@@ -6,7 +35,7 @@ Orphan - Salute (1985) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233850.jpg" />
+  <img src="Z:/picture/005/save_picture_233850.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233803.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Boulevard - Blvd. (1988) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233663.jpg" />
+  <img src="Z:/picture/005/save_picture_233663.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233461.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233383.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nektar - 4 Albums (2008-2023) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233324.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Big Big Train - Ingenious Devices (2023) [MP3|320 Kbps] <Crossover Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233298.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kotipelto - Coldness (2004) [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233229.jpg" />
+  <img src="Z:/picture/005/save_picture_233229.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Def Leppard - Let's Get Rocked (1992) Single [OGG Vorbis|484 Kbps] <Rock, Hard R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233174.jpg" />
+  <img src="Z:/picture/005/save_picture_233174.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Deville - Heavy Lies the Crown (2022) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233167.jpg" />
+  <img src="Z:/picture/005/save_picture_233167.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Def Leppard - Songs From The Sparkle Lounge (2008) [OGG Vorbis|484 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233152.jpg" />
+  <img src="Z:/picture/005/save_picture_233152.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Proportions - 4 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock, Eclectic Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233139.jpg" />
+  <img src="Z:/picture/005/save_picture_233139.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Def Leppard - Slang (1996) (2 CD), Reissue, Remastered, 2014, Bludgeon Riffola [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233102.jpg" />
+  <img src="Z:/picture/005/save_picture_233102.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Def Leppard - Retro Active (1993) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233081.jpg" />
+  <img src="Z:/picture/005/save_picture_233081.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Def Leppard - Rock Of Ages: The Definitive Collection (2005) (2 CD) [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233073.jpg" />
+  <img src="Z:/picture/005/save_picture_233073.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ VA - Running - Retro Rock Mix - You Can Do This! (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233064.jpg" />
+  <img src="Z:/picture/004/save_picture_233064.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ For Absent Friends - Disappear (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233025.jpg" />
+  <img src="Z:/picture/005/save_picture_233025.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Some Pills For Ayala - 5 Releases (2021-2023) [MP3|320 Kbps] <Heavy Psych, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232750.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Fresh Air - Fresh Air (1973) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232739.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232544.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Architectonica - 3 Albums (2014-2023) [MP3|320 Kbps] <Space, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232522.jpg" />
+  <img src="Z:/picture/005/save_picture_232522.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ The Neal Morse Band - An Evening of Innocence & Danger: Live In Hamburg (2023) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232519.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232402.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Joe Elliott's Down 'N' Outz - My Regeneration (2010) [OGG Vorbis|484 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232158.jpg" />
+  <img src="Z:/picture/005/save_picture_232158.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Def Leppard - Yeah! (2006) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232129.jpg" />
+  <img src="Z:/picture/005/save_picture_232129.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Def Leppard - Yeah! (2006) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E8985C58257AD9CC1D26E9E22FC1E5698D7E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579935   (232122) от 30.09.2022
-
-Def Leppard - X (2002) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now	4:00
-02. Unbelievable	4:02
-03. You're So Beautiful	3:33
-04. Everyday	3:11(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F045C76080E37C96ECCC45EF460061C5E532ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

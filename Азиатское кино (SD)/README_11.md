@@ -1,3 +1,29 @@
+###  Публикация: 1370203   (898385) от 26.03.2020
+
+Сердцу хочется кричать / Kokoro ga sakebitagatterunda / The Anthem of the Heart (2017) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сакагами Такуми - старшеклассник, которому трудно общаться со сверстниками. Учитель отправляет юношу в программу Регионального обмена. Там он знакомится с Нарусе Джун. Из-за травмы в прошлом девушка совсем не разговаривает, и у нее нет друзей. Но им обоим придется поставить мюзикл.Производство: Япония, Aniplex, Cine Bazar, DentsuЖанр: Драма, семейнаяРежиссер: Наото КумадзаваАктеры: Анна Исии, Ёсиёси Аракава, Фукушима Цунаки, Кохэй Фукуяма, Минори Хагивара, Кэнсиро Иваи, Дзюкия Кагэяма, Сюсаку Камикава, Михо Канадзава, Рёсукэ КавамураПеревод: Двуголосый любительский (STEPonee, SovetRomantica)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FC4AAD63D1A2C469360A06000A109CECC3D788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493181   (897319) от 02.09.2021
 
 Дальнобойщики: никому меня не остановить / Torakku yaro: Goiken muyo / Truck Rascals / Truck Rascals: No One Can Stop Me (1975) BDRip [AVO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897319.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896912.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895393.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895265.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895129.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893831.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892807.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892632.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891309.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_889303.jpg" />
+  <img src="Z:/picture/009/save_picture_889303.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889083.jpg" />
+  <img src="Z:/picture/005/save_picture_889083.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888895.jpg" />
+  <img src="Z:/picture/005/save_picture_888895.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888804.jpg" />
+  <img src="Z:/picture/005/save_picture_888804.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888745.jpg" />
+  <img src="Z:/picture/005/save_picture_888745.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888680.jpg" />
+  <img src="Z:/picture/005/save_picture_888680.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886946.jpg" />
+  <img src="Z:/picture/005/save_picture_886946.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885774.jpg" />
+  <img src="Z:/picture/005/save_picture_885774.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885690.jpg" />
+  <img src="Z:/picture/005/save_picture_885690.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885378.jpg" />
+  <img src="Z:/picture/005/save_picture_885378.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885274.jpg" />
+  <img src="Z:/picture/005/save_picture_885274.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884671.jpg" />
+  <img src="Z:/picture/005/save_picture_884671.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884669.jpg" />
+  <img src="Z:/picture/005/save_picture_884669.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882635.jpg" />
+  <img src="Z:/picture/005/save_picture_882635.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882303.jpg" />
+  <img src="Z:/picture/005/save_picture_882303.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879921.jpg" />
+  <img src="Z:/picture/005/save_picture_879921.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3B370D9850062E881A30A9FA7BE1F53BEC0344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295778   (879122) от 22.02.2011
-
-2046 / 2046 (2004) DVDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был писателем. Он думал, что пишет о будущем, но на самом деле это оказывалось прошлым. В его романе таинственный поезд отправляется в 2046-й год снова и снова. У всех, кто садится в него, цель одна: возродить свои потерянные воспоминания. Говорят, что в 2046-ом ничего никогда не меняется, но никто не знает наверняка, правда это или нет, потому что все, кто отправлялся (   Читать дальше...   )Производство: Гонконг, Китай, Франция, Италия, Германия / Jet Tone Films, Shanghai Film Group Corporation, Orly Films, arte France Cinema, Classic, France 3 Cinema, Paradis Films, Precious Yield, ZDF/ArteЖанр: Фантастика, Фэнтези, Драма, МелодрамаРежиссер: Вонг Кар-ВайАктеры: Тони Люн Чу Вай, Гун Ли, Фэй Вонг, Такуя Кимура, Чжан Цзыи, Карина Лау, Чан Чэнь, Цзэ Дун, Мэгги Чун, Тончай МакИнтайрПеревод: Многоголосый закадровыйПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715D270BDE52066297211EAAB2B9CD524ACF3B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

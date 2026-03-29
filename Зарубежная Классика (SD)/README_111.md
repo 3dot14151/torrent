@@ -1,3 +1,81 @@
+###  Публикация: 1672228   (165968) от 31.10.2023
+
+Благородный Станислас, секретный агент / L'honorable Stanislas, agent secret (1963) DVDRip  [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165968.jpg" />
+</div>
+
+
+###  Подробнее
+
+По воле случая, Станислас Эварист Дюбуа, скромный сотрудник рекламного агентства, вовлекается в опасные игры разведок и контрразведок. Ему приходится, против воли, привыкать к необычному ритму жизни, запоминать пароли и явки, стремительно поедать записки, которые не должны попасть в руки врагов.Производство: Франция, Италия / Italgamma, Les Films de la LicorneЖанр: комедияРежиссер: Жан-Шарль ДюдрюмеАктеры: Жан Маре, Женевьев Паж, Морис Тейнак, Жан Галлан, Гайа Джермани, Марсель Арнольд, Кристиан Марен, Валерио Торди,  F. Florio, Лучана ПаолиПеревод: Одноголосый любительский (SATKUR)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AE168649E285002F0DA7484279DF8A84E36861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426644   (165796) от 15.12.2020
+
+Человек в железной маске / The Man in the Iron Mask (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой король Людовик ХIV - единовластный правитель страны. Но оказывается, что его брат-близнец Филипп жив. Король приказывает отправить Филиппа на остров Сан-Маргерет и заковать в железную маску...Производство: Великобритания, США / ITC Entertainment, Norman Rosemont ProductionsЖанр: приключения, историяРежиссер: Майк НьюэллАктеры: Ричард Чемберлен, Патрик МакГуэн, Луи Журдан, Дженни Агаттер, Иэн Холм, Ральф Ричардсон, Вивьен Мерчант, Бренда Брюс, Эзмонд Найт, Годфри КуиглиПеревод: Дублированный, авторскийСубтитры: АнглийскиеПродолжительность: 01:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B486117F78A7FCA869746944C52EC063B6D8FBE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673352   (165296) от 01.11.2023
+
+Возвращение Белого Клыка / Il Ritorno di Zanna Bianca (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма "Белый Клык"... Действие происходит на Юконе, Канада, в 1899 году... На дороге в Клондайк старый золотоискатель Джон Таруотер и его внук Билл находят собаку по кличке Белый Клык рядом с телом его хозяина-эскимоса, убитого неизвестными преступниками... Писатель Джейсон Скотт возвращается на Аляску для написания новой книги... Сестра Еванджелина (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ), Coralta Cinematografica, Terra-Filmkunst, Les Films CoronaЖанр: драма, приключения, вестернРежиссер: Лучио ФульчиАктеры: Франко Неро, Вирна Лизи, Джон Стайнер, Раймонд Хармсторф, Янти Соммер, Вернер Похат, Ханнелоре Эльснер, Ренато Де Кармине, Гарри Кэри мл., Дональд О`Брайэн, Рольф Хартманн, Джон Барта, Серджо Смакки, Эцио Марано, Витторио ФанфониПеревод: дублированныйЯзык озвучки: русский, итальянскийСубтитры: русские (на места без перевода), английские, итальянскиеПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908820CB7177E945C96D365E31D1112D17A8F4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426688   (165167) от 16.12.2020
 
 Королева Келли / Queen Kelly (1929) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165167.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165000.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164903.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164901.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164852.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164267.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164208.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164094.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163789.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162766.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161979.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161901.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161506.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160797.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160790.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160623.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160591.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160255.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160180.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159600.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158624.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158523.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_158339.jpg" />
+  <img src="Z:/picture/005/save_picture_158339.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964723   (158224) от 22.12.2015
-
-Дебютантка поневоле / The Reluctant Debutante (1958) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка, американка, приезжает погостить в Лондон к своему отцу и, неожиданно для себя, попадает на «Сезон». Её не интересует эта ярмарка невест и чопорные молодые аристократы. Но встреча с симпатичным молодым человеком обещает стать интересной. Как жаль, что его считают нежелательным субъектом…Производство: США / Avon Productions (II), Metro-Goldwyn-Mayer (MGM)Жанр: Мелодрама, КомедияРежиссер: Винсент МиннеллиАктеры: Рекс Харрисон, Кэй Кендалл, Джон Сэксон, Сандра Ди, Анджела Лэнсбери, Питер Майерс, Дайан Клер, Рене Аранда, Жорж Билли, Жан-Поль БлондэПеревод: Одноголосый закадровый (Хромолка)Язык субтитров: РусскийПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E6F1B990385447A1BBBD30C5D838CF520DEC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815235   (158099) от 22.12.2015
-
-Дюнкерк / Dunkirk (1958) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две истории в одной: беззаботный британский капрал, находящийся во Франции, узнаёт, что он оказался ответственным за жизни своих людей после гибели их офицера. И он должен найти способ вернуть их в Англию. Тем временем британские гражданские лица оказываются втянутыми в войну при помощи операции Динамо, целью которой было вернуть французские и британские войска на (   Читать дальше...   )Производство: Великобритания, Ealing StudiosЖанр: боевик, драма, военный, историяРежиссер: Лесли НорманАктеры: Джон Миллз, Ричард Аттенборо, Бернард Ли, Роберт Эркарт, Рэй Джексон, Рональд Хайнс, Шон Баррет, Роланд Керрэм, Мередит Эдвардс, Майкл БейтсПеревод: Авторский (А. Багичев)Субтитры: отсутствуютПродолжительность: 02:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFDBE8887EC6DD894074835E8542394768C3251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600514   (157781) от 27.12.2022
-
-Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1896-1901, 1953) DVDRip (диск первый)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Антуан Феро, Антуан Люмьер, Фелисьен Треве, Альфонсе Винклер, Жанна д’Альси, Томас Уайт, Блёэтт Бернон, Барраль, Dupeyron и др.Перевод: НемойСубтитры: Интертитры, русские отдельным файломПродолжительность: 00:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A2583873B43ACA1E07D67C08E6D16E48EA0848
 ```
 
 https://mybot314.ru/tekegram_catalog/

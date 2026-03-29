@@ -1,3 +1,110 @@
+###  Публикация: 1444254   (1034501) от 01.02.2021
+
+Палмер / Palmer (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдя из тюрьмы, бывшая звезда школьного американского футбола Эдди Палмер возвращается в родной городок. Парень надеется наладить свою жизнь, но сталкивается с проблемами прошлого и неожиданно становится наставником мальчика, которого оставила мать.Производство: США / Sidney Kimmel Entertainment, Hercules Film Fund, Rhea Films (II)Жанр: ДрамаРежиссер: Фишер СтивенсАктеры: Джастин Тимберлейк, Джуно Темпл, Джун Скуиб, Дин Уинтерс, Алиша Вейнрайт, Винн Эверетт, Райдер Аллен, Дж.Д. Эвермор, Джейк Бреннан, Джесси БойдПеревод: Дублированный (Apple TV+)Субтитры: Русские, украинские, английские (SDH)Продолжительность: 01:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1967AA28D0482E3EE91E87350F6E19C3BB978D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 448656   (1034482) от 09.03.2023
+
+Груз 200 (2007) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034482.jpg" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1984 год. Провинция. После дискотеки пропадает дочь секретаря райкома партии. Свидетелей нет, виновные не обнаружены. В этот же вечер в доме на окраине города происходит жестокое убийство. Обвиняемый — хозяин дома. Расследования обоих преступлений поручены капитану милиции Журову.Производство: Россия, Кинокомпания CTB / СТВЖанр: триллер, драмаРежиссер: Алексей БалабановАктеры: Агния Кузнецова, Алексей Полуян, Леонид Громов, Алексей Серебряков, Леонид Бичевин, Наталья Акимова, Юрий Степанов, Михаил Скрябин, Сергей Александров, Валентина АндрюковаСубтитры: русские, английскиеПродолжительность: 01:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9607DB02810125D6CA9392715C32356FE0BBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617996   (1034481) от 09.03.2023
+
+Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2023) WEB-DL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ранняя версия курса. Курс готов на 70% и охватывает все основные темы JS.
+Существующего материала хватит минимум на 3 месяца активной учебы. До 31 марта 2023 года, курс будет дополнен еще 3-мя темами. Студенты приобретающие курс получат доступ ко всем дополнениям бесплатно и автоматически.
+
+Привет!) Меня зовут Дима.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 17:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B419E3B8AACC0323EC8C7B50097DBBD95DD48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443738   (1034318) от 02.02.2021
+
+Гиперхаос поможет физикам создать квантовые компьютеры
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаотичное поведение квантовых битов – кубитов может позволить физикам моделировать сложные квантовые системы без необходимости использовать огромные вычислительные мощности.Парадоксально, но развитие квантового компьютера следующего поколения ограничивается скоростью работы обычных процессоров. Даже самые быстрые в мире суперкомпьютеры не обладают достаточной мощностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440374   (1034289) от 02.02.2021
 
 Знахарь / Znachor (1981) DVDRip [H.264]
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034289.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Subnautica: Below Zero (2019) [Ru/Multi] (41555) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034269.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034104.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034051.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034050.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034046.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ MInstAll v.02.02.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034045.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.05upd6/dlc) Repack 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034042.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033909.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033873.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033835.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033633.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ Linux Mint 20.1 Ulyssa (XFCE, Mate, Cinnamon) [64bit] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033594.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033431.jpg" />
 </div>
 
 
@@ -373,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033374.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033336.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ WinPE 11 Sergei Strelec x64 2023.03.14 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033320.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ Avira Phantom VPN Pro 2.37.1.24458 (06.02.2021) RePack by elchupacabra [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033106.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033097.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033092.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ ESET NOD32 Antivirus/Internet Security/Internet Security(Для всех уст�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033090.jpg" />
 </div>
 
 
@@ -555,117 +662,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032862.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Министерство образования Китая запретило ученикам начальной и средней школы пользоваться мобильными телефонами в учебном заведении. Об этом передает BBC.Ученики не могут принести в школу телефон без письменного согласия родителей. Кроме того, в некоторых китайских школах уже действует внутренний запрет на использование телефонов.Согласно Информационному центру Китая, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619140   (1032835) от 16.03.2023
-
-NordVPN безвозмездно открыла доступ к своему частному туннелю Meshnet для всех желающих
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собственные VPN-сервера и множество полезных функций абсолютно бесплатно.Частный туннель Meshnet от NordVPN, доступный для Windows, macOS и Linux теперь бесплатен для всех пользователей, даже для тех, у кого нет подписки на NordVPN.Meshnet был впервые запущен в июне 2022 года в качестве платной функции NordVPN, позволяющей пользователям создавать частные зашифрованные (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619256   (1032827) от 16.03.2023
-
-Кокаиновый медведь / Cocaine Bear (2023) WEB-DLRip [H.264/1080p] [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032827.jpg" />
-</div>
-
-
-###  Подробнее
-
-1985 год. Из пролетающего на лесами штата Джорджия самолёта наркокурьер выбрасывает несколько пакетов кокаина, часть из них находит барибал и съедает содержимое. Животное приходит в неистовство, и теперь всем туристам, рейнджерам и случайно попавшимся ему на пути бедолагам сильно не поздоровится.Производство: США, Brownstone Productions (II), Lord Miller, Universal PicturesЖанр: боевик, триллер, комедияРежиссер: Элизабет БэнксАктеры: Кери Рассел, Олден Эренрайк, О’Ши Джексон мл., Рэй Лиотта, Исайя Уитлок мл., Бруклин Принс, Кристиан Конвери, Марго Мартиндейл, Джесси Тайлер Фергюсон, Кристофер ХивьюПеревод: Авторский (М. Яроцкий | 18+)Субтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DDF93C7D5D59E7252F36BA1EBC15DF0CF74EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605008   (1032823) от 16.03.2023
-
-Одни из нас / The Last of Us (2023) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] (сезон 1, серии 1-9 из 9) RHS, Dubbing-Pro, LineFilm, HDrezka, Кашкин, Цікава Ідея
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Закалённый в борьбе за выживание Джоэл и Элли — отважная, не по годам смышлёная девушка-подросток — вынуждены объединиться и помогать друг другу в странствиях по руинам Соединённых Штатов.Производство: Канада, США / Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: ужасы, фантастика, боевик, драмаРежиссер: Али Аббаси, Джереми Уэбб, Нил ДракманнАктеры: Педро Паскаль, Белла Рэмзи, Анна Торв, Ламар Джонсон, Мелани Лински, Нико Паркер, Мерл Дэндридж, Keivonn Woodard, Джеффри Пирс, Джон ГецПеревод: дублированный (RHS), многоголосый (Dubbing-Pro, LineFilm, HDrezka, Цікава Ідея, DniproFilm, BaibaKo), авторский (Кашкин)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH), украинские (Forced)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEC628936BE0C9982F51476013FC75EDAF16D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619686   (1032426) от 18.03.2023
-
-RTX 4060 - Будет ли она «народной» видеокартой линейки GeForce RTX 40?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032426.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 апреля на рынок выйдет GeForce RTX 4070, которой приписывают неожиданно высокую цену. Но даже если эта карта будет дешевле 750 долларов, то всё равно будет весьма дорогой. И сегодня в Сети появилось первое фото модели RTX 4060, которая должна быть существенно дешевле.На снимке запечатлена модель Founders Edition. Также можно видеть, что карта заметно меньше старших (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

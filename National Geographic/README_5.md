@@ -1,3 +1,81 @@
+###  Публикация: 1008580   (811462) от 20.04.2016
+
+Расследования авиакатастроф / Air Crash Investigation (2016) HDTV [H.264/1080i-LQ] (Cезон 15, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй, найдется не так много людей, которые при посадке на борт авиалайнера не испытывали бы чувство страха. Большинство пассажиров каждый раз задается вопросом: а приземлимся ли мы вообще? Во время полета чутко реагируют на каждый толчок, крен и вибрацию – не случилось ли чего? В каждом странном попутчике мерещится террорист. Но приземлившись целыми и невредимыми, (   Читать дальше...   )Телекомпания: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091AEAF7140859A4DC2D347448C3B245BCBDA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008783   (811184) от 20.04.2016
+
+Расследования авиакатастроф / Mayday / Air Crash Investigation (2016) DVB (сезон 15, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал о наиболее громких и загадочных катастрофах в истории гражданской авиации.Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Тим ВолочатюкПеревод: Профессиональный одноголосый закадровый - студия «Велес»Формат: MPGПродолжительность: ~00:44:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EEAAE6CD2463F6A48BB8B41A25BA322E4A2811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197985   (809842) от 10.01.2018
+
+NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глэйд - это райское место среди иссохших равнин национального парка Руаха в Танзании. Вода здесь не переводится круглый год. Это природное изобилие рождает странные отношения львиного прайда и стаи бабуинов, которые вопреки всем законам природы живут в гармонии. Но однажды перемирию в Глэйде приходит конец...Производство: Великобритания, Австрия, Terra Mater Factual Studios, Doclights, NDR Naturfilm, ARTE France, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Оуэн ПрюммПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 884241   (806613) от 03.04.2015
 
 Расследование авиакатастроф / Mayday. Air Crash Investigation (2015) DVB (сезон 14, серии 1-11 из 11)
@@ -6,7 +84,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806613.jpg" />
+  <img src="Z:/picture/008/save_picture_806613.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Файлы секретных служб: Охрана президента 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805843.jpg" />
+  <img src="Z:/picture/008/save_picture_805843.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805678.jpg" />
+  <img src="Z:/picture/008/save_picture_805678.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805676.jpg" />
+  <img src="Z:/picture/008/save_picture_805676.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805559.jpg" />
+  <img src="Z:/picture/008/save_picture_805559.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805228.jpg" />
+  <img src="Z:/picture/008/save_picture_805228.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804245.jpg" />
+  <img src="Z:/picture/008/save_picture_804245.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803197.jpg" />
+  <img src="Z:/picture/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801474.jpg" />
+  <img src="Z:/picture/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800835.jpg" />
+  <img src="Z:/picture/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800115.jpg" />
+  <img src="Z:/picture/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800043.jpg" />
+  <img src="Z:/picture/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799432.jpg" />
+  <img src="Z:/picture/005/save_picture_799432.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798375.jpg" />
+  <img src="Z:/picture/008/save_picture_798375.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798359.jpg" />
+  <img src="Z:/picture/008/save_picture_798359.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797759.jpg" />
+  <img src="Z:/picture/008/save_picture_797759.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797473.jpg" />
+  <img src="Z:/picture/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797332.jpg" />
+  <img src="Z:/picture/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797138.jpg" />
+  <img src="Z:/picture/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797132.jpg" />
+  <img src="Z:/picture/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797109.jpg" />
+  <img src="Z:/picture/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ NG: Дикая природа Новой Зеландии: затерянный 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796549.jpg" />
+  <img src="Z:/picture/008/save_picture_796549.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796541.jpg" />
+  <img src="Z:/picture/008/save_picture_796541.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:273B63947BE67FE5F43DF4CF5EA0354FE3853EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733136   (795250) от 29.04.2016
-
-NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795250.jpg" />
-</div>
-
-
-###  Подробнее
-
-2001-ый год. В глубинах одного из Баварских озёр сделано невероятное открытие - найдена золотая чаша весом около 10 килограмм, которая использовалась для проведения нацистами мистических ритуалов. Все, кто прикасался к этому артефакту, отмечали его невероятную и необъяснимую мощь... Способна ли эта золотая чаша раскрыть одну из величайших тайн нацистов и объяснить (   Читать дальше...   )Жанр: Документальный, познавательный, история, военный, политика, исследованиеПеревод: Одноголосый закадровый (профессиональный, студия АРК-ТВ)Продолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3031F1A5B02D7CB54D430440291FB42454350DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509764   (793855) от 13.11.2021
-
-Индийский леопард / India's Wild Leopards (2020) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кошачьи - одно из самых разнообразных семейств хищников на Земле. И в Индии их больше, чем в любой другой стране мира. Но с развитием городов диким кошкам Индии грозит серьезная опасность. Знакомьтесь, два особых вида леопардов, живущих в самых отделенных уголках страны. Из-за их силы, выносливости и ума они считаются самыми ловкими большими кошками в мире. Однако (   Читать дальше...   )Производство: Индия, Felis Creations Private Limited, National GeographicЖанр: Документальный, флора, фаунаРежиссер: Сандеш КадурПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2B5E3731DD4C4ABF938F20AA9018CCEFF01572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200740   (793690) от 23.01.2018
-
-NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный актер Дэнни Трехо исследует секреты человеческого воображения. Он анализирует страшные видения, созданные за три тысячи лет, начиная от древней Греции, через средневековую христианскую Европу, до современной Америки. Современная графика позволит зрителям перейти в царство тьмы.
-Дэнни Трехо спрашивает - "Что случается с плохими парнями после смерти?", (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: Документальный, история, религияРежиссер: Джулиан ДжонсПеревод: Двуголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
 ```
 
 https://mybot314.ru/tekegram_catalog/

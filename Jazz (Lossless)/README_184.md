@@ -1,3 +1,119 @@
+###  Публикация: 1165032   (437398) от 11.09.2017
+
+Joel Weiskopf - Change in My Life (2002) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's Been a Change in My Life [05:46]
+02. Enigma [07:46]
+03. Righteousness, Peace and Joy [06:47]
+04. First Love [06:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEBDD7CEC337DC3A70899C49649C18F89445CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165082   (437397) от 11.09.2017
+
+Johan Clement Trio - Some Over Time (2014) Johan Clement [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can See [07:08]
+02. The 2 Lonely People [06:45]
+03. This is for Albert [04:58]
+04. Time Remembered [05:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4EB614A1559363E30673D92B7C33E3527C6174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164764   (437395) от 11.09.2017
+
+Cecil Taylor - Silent Tongues (1974) 1988, Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss, Petals & Filaments, Jitney [18:24]
+02. Crossing [18:41]
+03. After All [09:52]
+04. Jitney No.2 [04:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741F91F68C0E66265B6C223C78F2A3F691B8D31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165083   (437394) от 11.09.2017
+
+The Dutch Swing College Band - Stompin' The Hits (1989) LaserLight [FLAC|Lossless|tracks + .cue] <Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad, Bad Leroy Brown [02:59]
+02. Can't Buy Me Love [03:38]
+03. Georgia [04:55]
+04. Hello Mary Lou [02:47](   Читать дальше...   )Жанр: DixielandПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88328BDBF9057823A5F4C80D84D8A3C6959C674B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165086   (437389) от 11.09.2017
 
 One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -6,7 +122,7 @@ One For All - Killer Joe (2005) Venus Records [FLAC|Lossless|tracks + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437389.jpg" />
+  <img src="Z:/picture/008/save_picture_437389.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Rossella Graziani 4Tet - My Favourite Songs (2017) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437388.jpg" />
+  <img src="Z:/picture/008/save_picture_437388.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Pat Metheny - One Quiet Night (2009) [FLAC|Lossless|image + .cue] <Acoustic, Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437236.jpg" />
+  <img src="Z:/picture/008/save_picture_437236.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Allen Farnham - 5th House (1990) Concord Jazz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436232.jpg" />
+  <img src="Z:/picture/008/save_picture_436232.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Duke Ellington And His Orchestra - Early Ellington (1927 - 1934) 1989, BMG Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436230.jpg" />
+  <img src="Z:/picture/008/save_picture_436230.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Clark Terry & Chris Woods - Swiss Radio Days Jazz Series: Lucerne 1978, vol.8 /1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436176.jpg" />
+  <img src="Z:/picture/008/save_picture_436176.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436113.jpg" />
+  <img src="Z:/picture/008/save_picture_436113.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ JF Girard - Clin d'oeil (2013) Les Disques Bros [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436067.jpg" />
+  <img src="Z:/picture/008/save_picture_436067.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436055.jpg" />
+  <img src="Z:/picture/008/save_picture_436055.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436017.jpg" />
+  <img src="Z:/picture/008/save_picture_436017.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436006.jpg" />
+  <img src="Z:/picture/008/save_picture_436006.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ John Stevens - Red (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436004.jpg" />
+  <img src="Z:/picture/008/save_picture_436004.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435565.jpg" />
+  <img src="Z:/picture/008/save_picture_435565.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Grover Washington Jr. - Paradise (1979) 1983, Elektra[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435563.jpg" />
+  <img src="Z:/picture/008/save_picture_435563.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Denny Zeitlin - Both / And:Solo Electro-Acoustic Adventures (2013) Sunnyside Com
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435556.jpg" />
+  <img src="Z:/picture/008/save_picture_435556.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Harry Lookofsky - Stringsville (1959) 2006, Collectables [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435446.jpg" />
+  <img src="Z:/picture/008/save_picture_435446.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Johan Clement Trio - On Request (2006) Baileo Music Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435445.jpg" />
+  <img src="Z:/picture/008/save_picture_435445.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Gary Bartz - The Red And Orange Poems (1994) Atlantic Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435443.jpg" />
+  <img src="Z:/picture/008/save_picture_435443.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Dutch Swing College Band - With Guests, Vol. I (1974) 1987, Phillips [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435440.jpg" />
+  <img src="Z:/picture/008/save_picture_435440.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Big John Patton - Got A Good Thing Goin' (1966) Remaster, 1997, Toshiba[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435381.jpg" />
+  <img src="Z:/picture/008/save_picture_435381.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Larry Coryell - Barefoot Man: Sanpaku (2016) Purple Pyramid[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435380.jpg" />
+  <img src="Z:/picture/008/save_picture_435380.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435372.jpg" />
+  <img src="Z:/picture/008/save_picture_435372.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Marc Antoine - Laguna Beach (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B8418899B6D1390E919C70383E287E43E4C7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063386   (434664) от 16.10.2016
-
-Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, World>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Swallow
-02. River
-03. Perfect World
-04. Cradle Song(   Читать дальше...   )Жанр: Vocal Jazz, Folk, WorldПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E71C3DDD342814CAC6F506222676162FB2EDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 245017   (434446) от 13.10.2010
-
-Matt Bianco - Rico (2000) [FLAC|Lossless]<Jazz, Smooth Jazz, Bossanova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cha Cha Cuba
-02. Boogaloo
-03. Stake Out
-04. Mood Swing(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, BossanovaПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410672   (434114) от 22.09.2020
-
-Evan Christopher - Delta Bound (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vieux Carre [5:51]
-02. Rampart Street Ramble [5:59]
-03. Creole Belles [4:03]
-04. New Orleans [7:27](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA9A6DDBD28CDBD75DF57B717AE6BC845180F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410697   (434058) от 22.09.2020
-
-Louis Armstrong - The Essence of Louis Armstrong (1991) [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mack the Knife (3:24)
-02. Back O' Town Blues (3:51)
-03. Six Foot Four (3:33)
-04. All of Me (3:49)(   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC78677A5BC95FBB842DFDFC9D928EA93B5DD584
 ```
 
 https://mybot314.ru/tekegram_catalog/

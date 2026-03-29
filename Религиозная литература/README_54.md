@@ -1,3 +1,84 @@
+###  Публикация: 911010   (615854) от 23.06.2015
+
+Фолио (изд.) | Еврейские притчи (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615854.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны яркие и запоминающиеся еврейские притчи – философские и занимательные, веселые и печальные.
+
+К раввину Леви пришел молодой человек и горестно спросил:
+– Учитель! Скажите мне, почему меня никто не любит, особенно девушки?(   Читать дальше...   )Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEBD59577796E8946AB599DA6182BCF934B6315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036734   (615672) от 23.07.2016
+
+Дж. С. Тримингэм | Суфийские ордены в исламе (1989) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование современного английского востоковеда Дж. С. Тримингэма посвящено весьма интересному и важному вопросу о ста­новлении, формах организации и дальнейшем развитии суфийских ми­стических братств — «орденов». Автор привлек к работе колоссальный оригинальный материал, так что работа может служить также спра­вочным пособием.Жанр: История, религиоведение, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B89B6906480ECEC883FCEBA3606EFF7974D00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037231   (615581) от 23.07.2016
+
+А.Б. Ковельман, У. Гершович (ред.) | Образ и символ в иудейской, христианской и мусульманской традиции (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_615581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник является результатом изысканий исследовательской группы, работавшей в Еврейском музее и Центре толерантности. Он создан по итогам конференции, проведенной совместно ЕМЦТ и ИСАА МГУ имени М. В. Ломоносова 2–3 марта 2014 г. Исследовательская группа занималась различными аспектами развития культур, порожденных тремя аврамическими религиями. Задачи группы (   Читать дальше...   )Жанр: Религоведение, искуствоведениеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410363767E8C3734EFCB21AE39BD4DBCFF9C9CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523897   (615027) от 17.07.2012
 
 Д. Алексеев | Евангелие Иуды [2006] [FB2]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615027.jpg" />
+  <img src="Z:/picture/008/save_picture_615027.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614494.jpg" />
+  <img src="Z:/picture/008/save_picture_614494.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614491.jpg" />
+  <img src="Z:/picture/008/save_picture_614491.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614473.jpg" />
+  <img src="Z:/picture/008/save_picture_614473.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614392.jpg" />
+  <img src="Z:/picture/008/save_picture_614392.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614387.jpg" />
+  <img src="Z:/picture/008/save_picture_614387.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614244.jpg" />
+  <img src="Z:/picture/008/save_picture_614244.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614243.jpg" />
+  <img src="Z:/picture/008/save_picture_614243.jpg" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613977.jpg" />
+  <img src="Z:/picture/008/save_picture_613977.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613967.jpg" />
+  <img src="Z:/picture/008/save_picture_613967.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613884.jpg" />
+  <img src="Z:/picture/008/save_picture_613884.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613881.jpg" />
+  <img src="Z:/picture/008/save_picture_613881.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613872.jpg" />
+  <img src="Z:/picture/008/save_picture_613872.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613862.jpg" />
+  <img src="Z:/picture/008/save_picture_613862.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612677.jpg" />
+  <img src="Z:/picture/008/save_picture_612677.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612225.jpg" />
+  <img src="Z:/picture/008/save_picture_612225.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612140.jpg" />
+  <img src="Z:/picture/008/save_picture_612140.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612127.jpg" />
+  <img src="Z:/picture/008/save_picture_612127.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610979.jpg" />
+  <img src="Z:/picture/008/save_picture_610979.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610875.jpg" />
+  <img src="Z:/picture/008/save_picture_610875.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610771.jpg" />
+  <img src="Z:/picture/008/save_picture_610771.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610766.jpg" />
+  <img src="Z:/picture/008/save_picture_610766.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610690.jpg" />
+  <img src="Z:/picture/008/save_picture_610690.jpg" />
 </div>
 
 
@@ -598,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A8B9033130A0352D2D71A08C9BDC30BD81B392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037997   (610314) от 26.07.2016
-
-А. Юдин (ред.) | Поиски единства. Проблемы религиозного диалога в прошлом и настоящем (1997) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник докладов специалистов по проблемам экуменизма и межконфессиональных отношений, представляющий собой академический взгляд на проблему. Рассчитан на историков церкви, а также всех интересующихся проблемами современной церкви и вопросами межконфессионального диалога.Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95311800AE048BFF47D0F4E7202C3AD588BAFF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296614   (610268) от 18.04.2019
-
-Преподобный Паисий Святогорец | Новое поколение (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня большинству людей неведом вкус той радости, которую подаёт жертвенность. Люди не любят труд. В их жизни появились праздность, желание устроиться потеплее, много покоя. Оскудело любочестие, дух жертвенности. Если людям удаётся получить что-то без труда, устроиться потеплее, то они считают это достижением. Они огорчаются, если достичь лёгкой жизни им не удаётся. (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4542BCF755C5700368F3981AB8680ED9671A754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296601   (610263) от 18.04.2019
-
-Ковчег (изд.) | Как избавиться от греха. По советам и наставлениям русских святых (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Особенностью данного издания является не только подробное богословское объяснение действия страстей и духовного смысла многочисленных грехов, в сети которых попадает всякий человек, но и практическое, молитвенное руководство по борьбе с грехами и искушениями, попускаемыми нам Господом ради нашего спасения.
-
-Какие грехи против Духа Святого?
-Чрезмерное и безрассудное (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BCDB36782085B8A3E505764930034784766D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

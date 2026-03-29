@@ -1,3 +1,114 @@
+###  Публикация: 1047941   (548335) от 31.08.2016
+
+App Tamer 2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548335.jpg" />
+</div>
+
+
+###  Подробнее
+
+App Tamer — держим производительность под контролем!
+При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!
+
+App Tamer — это небольшая (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 августа 2016Разработчик: St. Clair SoftwareПоддерживаемая ОС: OS X 10.7  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF821CD45561602D89F05B2DD5780490886C6FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048058   (548021) от 31.08.2016
+
+Hands Off! 3.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 августа 2016Разработчик: One Periodic Inc.Поддерживаемая ОС: Mac OS X 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D9CE93911FF066E82B43F92656340477964A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238156   (547893) от 28.07.2018
+
+iStat Menus 6.20 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547893.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus  — лучшее приложение для контроля работы Mac
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
+
+iStat Menus позволяет в режиме реального времени следить за десятками показателей. Загруженность процессора, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: BjangoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский*, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F189D72D5731E04F9FC81B73EBF33FAA1625F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238083   (547841) от 28.07.2018
+
+Черновик (2018) WEB-DL [1080p] ATV
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_547841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой москвич Кирилл — талантливый дизайнер компьютерных игр. В один прекрасный день он оказывается напрочь стертым из памяти всех, кого он знал и любил. Кирилл узнает, что выбран для важной и таинственной миссии. Его предназначение — стать таможенником между параллельными мирами, коих во Вселенной десятки. Сможет ли Кирилл разгадать тайну этих таинственных миров (   Читать дальше...   )Производство: Россия / Новые людиЖанр: ФантастикаРежиссер: Сергей МокрицкийАктеры: Никита Волков, Евгений Ткачук, Ольга Боровская, Юлия Пересильд, Северия Янушаускайте, Евгений Цыганов, Елена Яковлева, Ирина Демидкина, Андрей Мерзликин, Андрей РуденскийПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227CC2B3708F76A9C4C7366A5AC167076EC1017A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048211   (547474) от 01.09.2016
 
 Cookie 5.1 [Multi]
@@ -6,7 +117,7 @@ Cookie 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547474.jpg" />
+  <img src="Z:/picture/008/save_picture_547474.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ Default Folder X 5.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547417.jpg" />
+  <img src="Z:/picture/008/save_picture_547417.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ BetterTouchTool 1.84 (510) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547408.jpg" />
+  <img src="Z:/picture/008/save_picture_547408.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ Serial Box 09-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547360.jpg" />
+  <img src="Z:/picture/008/save_picture_547360.jpg" />
 </div>
 
 
@@ -117,7 +228,7 @@ SuperDuper! 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547346.jpg" />
+  <img src="Z:/picture/008/save_picture_547346.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ iMazing 2.0.0 Beta 1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547343.jpg" />
+  <img src="Z:/picture/008/save_picture_547343.jpg" />
 </div>
 
 
@@ -170,7 +281,7 @@ Adobe Bridge CC 2015 6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547138.jpg" />
+  <img src="Z:/picture/008/save_picture_547138.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ Adobe Audition CC 2015.2.1.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547103.jpg" />
+  <img src="Z:/picture/008/save_picture_547103.jpg" />
 </div>
 
 
@@ -223,7 +334,7 @@ Disk Drill Pro Entreprise 3.0.748 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547061.jpg" />
+  <img src="Z:/picture/008/save_picture_547061.jpg" />
 </div>
 
 
@@ -250,7 +361,7 @@ Rumpus PRO 8.0.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546587.jpg" />
+  <img src="Z:/picture/008/save_picture_546587.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ Record Lectures 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546536.jpg" />
+  <img src="Z:/picture/008/save_picture_546536.jpg" />
 </div>
 
 
@@ -305,7 +416,7 @@ OmniFocus Pro 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546466.jpg" />
+  <img src="Z:/picture/008/save_picture_546466.jpg" />
 </div>
 
 
@@ -332,7 +443,7 @@ Navicat Premium 11.2.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546422.jpg" />
+  <img src="Z:/picture/008/save_picture_546422.jpg" />
 </div>
 
 
@@ -360,7 +471,7 @@ TG Pro (Temperature Gauge Pro) 2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546418.jpg" />
+  <img src="Z:/picture/008/save_picture_546418.jpg" />
 </div>
 
 
@@ -387,7 +498,7 @@ Geekbench 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546394.jpg" />
+  <img src="Z:/picture/008/save_picture_546394.jpg" />
 </div>
 
 
@@ -416,7 +527,7 @@ iTools Pro 1.7.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546090.jpg" />
+  <img src="Z:/picture/008/save_picture_546090.jpg" />
 </div>
 
 
@@ -443,7 +554,7 @@ Money 4.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545748.jpg" />
+  <img src="Z:/picture/008/save_picture_545748.jpg" />
 </div>
 
 
@@ -469,7 +580,7 @@ Get Backup Pro 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545744.jpg" />
+  <img src="Z:/picture/008/save_picture_545744.jpg" />
 </div>
 
 
@@ -498,7 +609,7 @@ hr - Task timer as simple as it's name 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544925.jpg" />
+  <img src="Z:/picture/008/save_picture_544925.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ Photo Size Optimizer (formerly IMAGEmini) 1.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544919.jpg" />
+  <img src="Z:/picture/008/save_picture_544919.jpg" />
 </div>
 
 
@@ -553,7 +664,7 @@ iconStiX 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544848.jpg" />
+  <img src="Z:/picture/008/save_picture_544848.jpg" />
 </div>
 
 
@@ -582,7 +693,7 @@ Wirecast Pro 7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544551.jpg" />
+  <img src="Z:/picture/008/save_picture_544551.jpg" />
 </div>
 
 
@@ -594,117 +705,6 @@ Wirecast предлагает доступное программное обес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D8C139D9F59EA88236A0D83AF622A334FC6A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238691   (544511) от 01.08.2018
-
-AnyToISO Pro 3.9.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544511.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyToISO - это минималистское приложение для macOS, которое предназначено для решения трёх основных задач, сгруппированных во вкладках окна приложения:
-- конвертация архивов в ISO-образы и извлечение содержимого архива в каталог;
-- создание ISO-образов из дисков CD/DVD/Blue-ray;
-- создание ISO-образов из файлов и каталогов на вашем локальном дискеТип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CrystalIDEA SoftwareПоддерживаемая ОС: 10.7+Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF854AA4C820457E84E26456758C83CD828E261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238868   (544434) от 01.08.2018
-
-Sketch 51.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под Mac OS X!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698133F35C7319ADBF11B6E4CAA1DC6C0209D6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238685   (544348) от 01.08.2018
-
-OmniGraffle Pro 7.8.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544348.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Omni GroupПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816BD2DA8B7749D26741E46841622B593364BA83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049582   (543869) от 05.09.2016
-
-World Clock 1.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543869.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Clock - простые и одновременно мощные часы, которые покажут время во всем мире.
-
-• Добавляйте города и часовые поясов, как по Гринвичу так и UTC
-• Преобразовывайте международное время(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 августа 2016Разработчик: Komarov MobileПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C4854B0389203035A6952D24A26524124F7DE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

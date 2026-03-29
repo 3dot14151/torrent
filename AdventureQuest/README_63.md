@@ -1,3 +1,81 @@
+###  Публикация: 1595167   (175912) от 04.12.2022
+
+Escape from Monkey Island (2000) [Multi] (1.1) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отплевываясь от песка острова Обезьян, я продолжал гадать, не слишком ли превозносят жизнь лихого пирата. Я постарался не думать о недавних событиях, так сильно бередящих мне душу. Обо всем, начиная со стычки жены со смертью и заканчивая притеснением пиратской братии одним австралийским мультимиллионером.Тип издания: LicenseРазработчик: LucasArtsЖанр: Приключение, Квест, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский, Испанский и другиеЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595161   (175882) от 04.12.2022
+
+Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175882.jpg" />
+</div>
+
+
+###  Подробнее
+
+ales of Monkey Island Complete Pack – интереснейший компьютерный квест, который является продолжением серии одноимённых игр. Всё повествование ведётся от третьего лица. Сюжет повествует нам о молодом парне – пирате, который пытается спасти свою возлюбленную из кровожадных лап его зрейшего врага. Оба персонада сражаются на 2 совершенно разных. Происходит пальба из (   Читать дальше...   )Тип издания: LicenseРазработчик: TelltaleЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595175   (175747) от 04.12.2022
+
+Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hello Neighbor 2 создана в мультяшном стиле, а вы исследуете открытый мир в поисках пропавшего Мистера Питерсона, являющегося соседом главного героя. Во время путешествия, персонаж замечает, что его самого проследует странное существо, желающее что-то плохое протагонисту. Антагонист, идущий по стопам все прохождение, постоянно улучшает свои способности в слежке и (   Читать дальше...   )Тип издания: LicenseРазработчик: Eerie Guest, tinyBuildЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3287998483FF35C2F362E57EE7E77D12A13D1D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320025   (175345) от 07.12.2020
 
 DARQ (2019) [Ru/Multi] (1.3/dlc) Repack Other s [Complete Edition]
@@ -6,7 +84,7 @@ DARQ (2019) [Ru/Multi] (1.3/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175345.jpg" />
+  <img src="Z:/picture/004/save_picture_175345.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174698.jpg" />
+  <img src="Z:/picture/004/save_picture_174698.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174025.jpg" />
+  <img src="Z:/picture/004/save_picture_174025.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173603.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173543.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173434.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173433.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173299.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173295.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173143.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173132.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173128.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172784.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172764.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172750.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172748.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172038.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171791.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171671.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171640.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671045   (171474) от 23.10.2023
-
-The Gap (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171474.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Gap - это душещипательная история человека, готового ради спасения семьи окунуться в глубины собственного подсознания и пережить все самые сокровенные воспоминания. Джошуа Хейз - нейробиолог, семья которого сталкивается с редким генетическим заболеванием, постепенно стирающим воспоминания, лишающим человека сознания и личности. Тяготы Джошуа и его семьи представлены (   Читать дальше...   )Тип издания: LicenseРазработчик: Label ThisЖанр: ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF758B34602795A1DC38FFEA933FD21DE70C0CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671042   (171463) от 23.10.2023
-
-Fears to Fathom: Ironbark Lookout (2023) [Ru/Multi] (1.3) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171463.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Fears to Fathom - Ironbark Lookout игроки становятся на место Джека Нельсона, 24-летнего пожарного, который оказался на новой заставе в дикой местности. Эта захватывающая игра, построенная по принципу повествования, погружает в самое сердце загадочной и тревожной истории. По мере того как Джек вживается в новую изолированную жизнь, его начинает охватывать странное (   Читать дальше...   )Тип издания: SceneРазработчик: Rayll StudiosЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5111E608BF2F7DB1CE637FCF8292209008E06124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657377   (171290) от 24.10.2023
-
-Under The Waves (2023) [Ru/Multi] (1.0.5) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Under the Waves – это повествовательная приключенческая игра о всепоглощающей силе горя. События разворачиваются в технофутуристических 70-х годах прошлого века в пучине Северного моря, где профессиональный водолаз Стэн изо всех сил пытается преодолеть последствия утраты, которая перевернула его жизнь, и принять новое будущее. Изоляция в морских глубинах как нельзя (   Читать дальше...   )Тип издания: SceneРазработчик: Parallel StudioЖанр: Adventure, 3DЯзык озвучки: Английский, Немецкий, Французский, КитайскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE204A751DA055C23D3F04E6EDA5FEB406F95F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

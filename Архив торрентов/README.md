@@ -7,7 +7,7 @@ Throne (ex. NekoRay / NekoBox) 1.1.0 portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060507.jpg" />
+  <img src="Z:/picture/005/save_picture_1060507.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060082.jpg" />
+  <img src="Z:/picture/005/save_picture_1060082.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057595.jpg" />
+  <img src="Z:/picture/005/save_picture_1057595.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Seikai no Senki | Banner of the Stars | Звёздный флаг [2000, TV, 13 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057066.jpg" />
+  <img src="Z:/picture/005/save_picture_1057066.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Seikai no Danshou: Tanjou | Crest of the Stars: Birth | Утерянная гл�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057065.jpg" />
+  <img src="Z:/picture/005/save_picture_1057065.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Seikai no Monshou | Crest of the Stars | Звёздный герб [1999, TV, 13
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057064.jpg" />
+  <img src="Z:/picture/005/save_picture_1057064.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ MAX Desktop 26.4.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057063.jpg" />
+  <img src="Z:/picture/005/save_picture_1057063.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Noblesse | Дворянство [2020, TV, 13 эп.] WEBRip 1080p rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053864.jpg" />
+  <img src="Z:/picture/005/save_picture_1053864.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ YT Downloader 10.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053863.jpg" />
+  <img src="Z:/picture/005/save_picture_1053863.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ XYplorer 23.90.0300 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046415.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ RJ TextEd 15.73.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046409.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Telegram for Android 9.3.2 (3023) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046404.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ One Commander Pro 3.29.2.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046394.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046385.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AAF DCH Optimus Audio 10.11.2347.9452 Realtek Mod by AlanFinotty [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046368.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Sandboxie 5.61.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1046339.jpg" />
+  <img src="Z:/picture/005/save_picture_1046339.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ PrivaZer 4.0.61 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046333.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Telegram Desktop 4.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046330.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Sandboxie plus 1.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046324.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ RegCool 1.324 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046310.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ QOwnNotes 23.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046195.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Auslogics Registry Cleaner Pro 10.0.0.2 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046187.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Opera 94.0.4606.54 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046180.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Auslogics BoostSpeed 13.0.0.3 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046170.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Firefox Browser 108.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046091.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Opera GX 93.0.4585.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046029.jpg" />
 </div>
 
 

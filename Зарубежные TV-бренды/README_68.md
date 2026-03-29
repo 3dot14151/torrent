@@ -1,3 +1,107 @@
+###  Публикация: 1235195   (563637) от 09.07.2018
+
+BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [Custom]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один обыкновенный и впечатляющий день из жизни разных представителей дикой природы: от неприметных насекомых до царственных хищников. Чем занимаются от рассвета до заката жители джунглей и ледников, морей и пустынь? Они выходят на охоту, борются за выживание, растят детенышей и втягиваются в круговорот удивительных приключений.Производство: Великобритания, BBC Earth Film ProductionsЖанр: Документальный, научно-популярный, семейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: Дублированный (Николай Дроздов) (Лицензия BD RUS)Субтитры: Русские, английские, испанские, французскиеПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E2C22179E25DBBA8EF33F0F7DAEBC3548C8189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304477   (563566) от 26.05.2019
+
+NGW: Дикая Арктика / Wild Arctic (2018) HDTV [H.264/1080i] (Серии: 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арктика во всей её красоте. Мы познакомимся с жизнью животных, которые пытаются выжить в этих невероятных местах обитания.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Поппи РиддлПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 3 x ~00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E16B196443C54A320489E1C99DE597D63561D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304488   (563138) от 26.05.2019
+
+Паразиты: кто нами управляет? (2019) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принято считать, что глобальными процессами в политике, экономике и других важных сферах управляют мировые элиты. Это так только отчасти. Последние исследования доказывают, что есть силы гораздо более могущественные. Человеком управляют паразиты! Его характером, психикой, эмоциями, мыслями, интересами, здоровьем. Но, может быть, нас и вовсе контролируют внеземные (   Читать дальше...   )Производство: Россия, Рен ТВЖанр: Документальный, познавательный, научно-популярныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7768D86BDC7D567C6C45BC27E0EE14B1E8BBC5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292477   (563137) от 26.05.2019
+
+NGW: Дожить до рассвета / Dead by Dawn (2019) HDTVRip [H.264/1080p-LQ] (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многим животным предстоят большие трудности и борьба за выживание после ухода последних лучей солнца...Производство: США, Nat Geo Wild, Skybound EntertainmentЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E70A08A56D61E3F33EF98DD051616BE9D2008C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287215   (563130) от 26.05.2019
 
 Строительство гигантов / Building Giants (2018) HDTVRip [H.264/1080p-LQ] (серии 7 из 7)
@@ -6,7 +110,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563130.jpg" />
+  <img src="Z:/picture/008/save_picture_563130.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Viasat History: Как климат изменил ход истории / How C
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563112.jpg" />
+  <img src="Z:/picture/008/save_picture_563112.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563086.jpg" />
+  <img src="Z:/picture/008/save_picture_563086.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562566.jpg" />
+  <img src="Z:/picture/008/save_picture_562566.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Вся правда о тренировках / The Truth About Exercise (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561917.jpg" />
+  <img src="Z:/picture/008/save_picture_561917.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Живой мир. Мадагаскар, лемуры и шпионы / Mad
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561725.jpg" />
+  <img src="Z:/picture/008/save_picture_561725.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561283.jpg" />
+  <img src="Z:/picture/008/save_picture_561283.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560717.jpg" />
+  <img src="Z:/picture/008/save_picture_560717.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery. Что у вас в гараже? / What's in the Barn? (2013) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560707.jpg" />
+  <img src="Z:/picture/008/save_picture_560707.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Discovery. Первым делом - самолеты / Airplane Repo (2013) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560663.jpg" />
+  <img src="Z:/picture/008/save_picture_560663.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Мир природы. Из жизни крабов / The Natural World. Cl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560253.jpg" />
+  <img src="Z:/picture/008/save_picture_560253.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Дикие охотники. Рыбы / Wild Hunters. Fish (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559646.jpg" />
+  <img src="Z:/picture/008/save_picture_559646.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Animal Planet: В дикие края с Эваном. Лечение носор
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559514.jpg" />
+  <img src="Z:/picture/008/save_picture_559514.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Animal Planet: Спасти орангутана / Red Ape. Saving the Orangutan
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559513.jpg" />
+  <img src="Z:/picture/008/save_picture_559513.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559432.jpg" />
+  <img src="Z:/picture/008/save_picture_559432.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559416.jpg" />
+  <img src="Z:/picture/008/save_picture_559416.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559319.jpg" />
+  <img src="Z:/picture/008/save_picture_559319.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558988.jpg" />
+  <img src="Z:/picture/008/save_picture_558988.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Discovery: Правда о Бермудском треугольнике / Bermu
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558652.jpg" />
+  <img src="Z:/picture/008/save_picture_558652.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC: Как устроена природа / BBC. How Nature Works (2012) BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558517.jpg" />
+  <img src="Z:/picture/008/save_picture_558517.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NG. Ограбление по-египетски / The Egyptian Job (2011) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558516.jpg" />
+  <img src="Z:/picture/008/save_picture_558516.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558499.jpg" />
+  <img src="Z:/picture/008/save_picture_558499.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ BBC: Чудеса животного мира / Wonder of Animals (2014) HDTV [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630D160961897FAE9A3CEE5784C4E018BF3985F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235305   (558373) от 12.07.2018
-
-Истории Кремниевой Долины / Silicon Valley: The Untold Story (2018) WEB-DL [H.264/1080p-LQ] (Сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558373.jpg" />
-</div>
-
-
-###  Подробнее
-
-К югу от Сан-Франциско находится ареал, где рождаются не просто новые продукты, а целые новые направления индустрии. Здесь разрабатывают и производят компьютеры и их составляющие, микропроцессоры, устройства мобильной связи и программное обеспечение. Тут располагаются офисы Apple, Facebook, Google и Intel. Кремниевая долина – это место, история, инфраструктура, инновации (   Читать дальше...   )Производство: США, Kikim Media, Discovery ScienceЖанр: Документальный, научно-популярныйПеревод: Двуголосый закадровый, профессиональный (Discovery Россия)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE29D44337EF1C8A0288845536B1A3241100CFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230763   (557739) от 29.05.2019
-
-Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (Сезон 3, серии 17 из 17)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как строили самые известные здания Древнего мира и Средних веков? Как архитекторам той эпохи удалось опередить свое время? Трудно поверить, что столь колоссальные сооружения возводились задолго до появления современных технологий и мощной строительной техники. С помощью компьютерной графики мы «разберем по кирпичикам» старинные постройки и узнаем, как, из чего и (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Мартин Горст, Джеймс ФранклинПеревод: Двуголосый закадровый, профессиональный (Мобильное Телевидение)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09668F2EC235FD400F81BE613DAB006DFCEF4D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924140   (557471) от 04.08.2015
-
-BBC. Длинные тени Первой мировой войны / The Long Shadow (2014) IPTVRip (Серии: 3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский историк Дэвид Рейнольдс отправляется в путешествие по Европе, чтобы ответить на вопрос, каким образом трагические события Первой мировой войны определили ход европейской истории за последние 100 лет. На протяжении трех серий программы Рейнольдс внимательно изучает, какое влияние оказал этот международный конфликт на следующие поколения европейцев, политические (   Читать дальше...   )Телекомпания: Великобритания, BBCЖанр: Документальный, война, история, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DABAF6B61889C93E5829BC32FC32562DB7CF22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915735   (557377) от 04.08.2015
-
-Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTVRip [Серии 1-10]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE753E04ED803DFBDF2F600A1CDA6029F28B1E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

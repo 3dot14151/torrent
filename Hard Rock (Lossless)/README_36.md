@@ -1,3 +1,61 @@
+###  Публикация: 1543698   (627900) от 12.04.2022
+
+Leader Of Down - The Screwtape Letters (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cat's Eye Night
+02. Holloway Motel
+03. Hitman
+04. The Screwtape Letters(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8071BAD958568F391C20E6EAC90DE82B30BD5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543717   (627589) от 12.04.2022
+
+Nazareth - Surviving The Law (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Days (03:22)
+02. You Gotta Pass It Around (03:21)
+03. Runaway (03:33)
+04. Better Leave It Out (03:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2643E037E0417703A8AB0EAE7B05B601EF0E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543615   (627588) от 12.04.2022
 
 Nazareth - Surviving The Law (2022) Scene [FLAC|Lossless|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Nazareth - Surviving The Law (2022) Scene [FLAC|Lossless|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627588.jpg" />
+  <img src="Z:/picture/008/save_picture_627588.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The New Roses - Dead Man's Voice (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626712.jpg" />
+  <img src="Z:/picture/008/save_picture_626712.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Great White - The Essential Great White (2011) 2CD [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626704.jpg" />
+  <img src="Z:/picture/008/save_picture_626704.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hot Hell Room - Kingdom Genesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625948.jpg" />
+  <img src="Z:/picture/008/save_picture_625948.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Monster Truck - Sittin' Heavy (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624722.jpg" />
+  <img src="Z:/picture/008/save_picture_624722.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dare - Sacred Ground (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624719.jpg" />
+  <img src="Z:/picture/008/save_picture_624719.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ AC/DC - Rarities (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624298.jpg" />
+  <img src="Z:/picture/008/save_picture_624298.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ DeVicious - Black Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623819.jpg" />
+  <img src="Z:/picture/008/save_picture_623819.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Lee Aaron - Fire And Gasoline (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622758.jpg" />
+  <img src="Z:/picture/008/save_picture_622758.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Circle Of Friends - The Garden (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622190.jpg" />
+  <img src="Z:/picture/008/save_picture_622190.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Meat Loaf - The Very Best of Meat Loaf (1998) 2xCD, Compilation, Repress [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622073.jpg" />
+  <img src="Z:/picture/008/save_picture_622073.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Gary Moore - Still Got The Blues (1990) Remastered, Reissue 2002, Japan [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620917.jpg" />
+  <img src="Z:/picture/008/save_picture_620917.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Arc Angels - Arc Angels (1992) [APE|Lossless|image + .cue] <Hard Rock, Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619987.jpg" />
+  <img src="Z:/picture/008/save_picture_619987.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Brian Johnson & Geordie - Keep On Rocking! (1989) [FLAC|image +.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619966.jpg" />
+  <img src="Z:/picture/008/save_picture_619966.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Sammy Hagar - 4 альбома (1981-1987) Mini LP SHM-CD /2013, Universal Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_619745.jpg" />
+  <img src="Z:/picture/005/save_picture_619745.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Baby Animals - Baby Animals (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619154.jpg" />
+  <img src="Z:/picture/008/save_picture_619154.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Molly Hatchet (Danny Joe Brown) - 20 albums, 27CD (1978-2019) [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618296.jpg" />
+  <img src="Z:/picture/008/save_picture_618296.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Dare - Calm Before The Storm 2 (2012) [FLAC|Lossless|tracks + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617272.jpg" />
+  <img src="Z:/picture/008/save_picture_617272.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Def Leppard - Collection: Volume One (7CD Box Set) (2018) [FLAC|Lossless|tracks 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617082.jpg" />
+  <img src="Z:/picture/008/save_picture_617082.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Tomorrowz End - Tetralogy - Pt. 1, Vol. 1-2 (2022) 2CD [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616713.jpg" />
+  <img src="Z:/picture/008/save_picture_616713.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Def Leppard - Songs From The Sparkle Lounge (2008) CD+DVD5, Deluxe Edition [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615476.jpg" />
+  <img src="Z:/picture/008/save_picture_615476.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Ruby the Hatchet - Planetary Space Child (2017) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614911.jpg" />
+  <img src="Z:/picture/008/save_picture_614911.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Blackjack - Blackjack (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614909.jpg" />
+  <img src="Z:/picture/008/save_picture_614909.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Felt - Felt (1971) Reissue, 2000, Akarma [FLAC|Lossless|image + .cue] <Psychedel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613277.jpg" />
+  <img src="Z:/picture/008/save_picture_613277.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Felt - Felt (1971) Reissue, 2000, Akarma [FLAC|Lossless|image + .cue] <Psychedel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349CF1515BB0F2C65FEA7231B3B42F8C129E022F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295413   (613190) от 16.04.2019
-
-Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Nation
-02. No Pain No Gain
-03. Rhythm of Love
-04. Big City Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B088B80AE7777EA5E83588B48E72D7B3F650770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545485   (613158) от 20.04.2022
-
-Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ronald (Ronnie) Romero (20.11.1981) - чилийский певец, автор песен и музыкант, наиболее известный как солист рок-групп Lords of Black, Rainbow, The Ferrymen, Michael Schenker Group и Sunstorm. Один из самых многообещающих исполнителей хард-рока нашего времени собирается представлять Болгарию на конкурсе песни Евровидение-2022 в качестве солиста группы Intelligent (   Читать дальше...   )01. Sin's A Good Man's Brother (Grand Funk Railroad)
-02. Backstreet Love Affair (Survivor)
-03. No Smoke Without A Fire (Bad Company)
-04. I Was Born To Love You (Queen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5098CD19D9976EB2B2249F213293E77A8A2D70
 ```
 
 https://mybot314.ru/tekegram_catalog/

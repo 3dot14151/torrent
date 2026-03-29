@@ -1,3 +1,81 @@
+###  Публикация: 1355910   (980890) от 28.01.2020
+
+Стражи Арктики / Arctic Justice (2019) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они — настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, СШАЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Аарон ВудлиПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDE4251E2F2E6B122B68C49E8F8CCAE5AC57357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973171   (980045) от 08.01.2016
+
+Футурама - Все любят Гипножабу / Futurama: Everybody Loves Hypnotoad (2007) DVDRip [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гипножаба — интересный персонаж из мультфильма Футурама. Она способна гипнотизировать зрителей взглядом и странным звуком. Именно это позволило ее шоу пробиться в 30-м веке в ТОПы показов.Производство: США, 20th Century Fox TelevisionЖанр: Для взрослых, Комедия, ПриключенияРежиссер: Мэтт Грэйнинг, Дэвид КоуэнПерсонажи: ГипножабаПеревод: ОтсутствуетПродолжительность: 00:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C938C0AAF72FC7B69D082B1F47B757EFD74D241E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973170   (979966) от 08.01.2016
+
+Футурама: Потерянное приключение / Futurama: The Lost Adventure (2008) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непростительную ошибку совершил профессор Фарнсворт, продав Планетный Экспресс миллиардерше Мамочке. Злобная монополистка не только завладела 50% всей Земли, став Верховным правителем, но и превратила планету в гигантский боевой корабль для порабощения всей вселенной. Профессор, Фрай, Лила и Бендер вынуждены бежать с Земли в поисках временного туннеля — единственной (   Читать дальше...   )Производство: США. Fox interactiveЖанр: Для взрослых, Комедия, ПриключенияРежиссер: Мэтт ГроэнингПерсонажи: Профессор Фарнсворт, Фрай, Лила, Бендер, Доктор ЗойдбергПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8370226D8804BEF700994EF536916537B3DDD182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614849   (979397) от 06.02.2013
 
 Школа монстров. Классные девчонки / Monster High: Ghouls Rule (2012) HDRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979397.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977917.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977786.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977714.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977445.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977233.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977173.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976746.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975512.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975343.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973644.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973587.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971415.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970255.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969537.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969301.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969254.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967338.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967249.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967008.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966973.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966959.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965868.jpg" />
 </div>
 
 
@@ -593,87 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8478E1DC0A7D84CD15E56416730F75351AF09B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745901   (965771) от 16.01.2014
-
-Король Лев 3: Хакуна Матата / The Lion King 1½ (2004) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главными героями мультфильма станут всеобщие любимцы Тимон и Пумба! Вы узнаете об этих закадычных друзьях много нового, например, о том, как они впервые встретились, что за потрясающие приключения вместе прожили и на какие удивительные подвиги их сподвигло знаменитое знакомство с будущем королем саванны Симбой.
-А также познакомитесь с новыми забавными героями, которые (   Читать дальше...   )Производство: СШАЖанр: комедия, приключения, семейный, мультфильмРежиссер: Брэдли РэймондПеревод: Профессиональный (дублированный)Субтитры: Русские, АнглийскиеПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E041328486756406BAFF758CD0E8BB440C838120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745870   (965669) от 16.01.2014
-
-Русалочка: Начало истории Ариэль / The Little Mermaid: Ariel's Beginning (2008) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте далекие времена, задолго до того, как Ариэль познакомилась с Принцем Эриком и вышла на сушу - времена, когда музыка была еще под запретом в подводном королевсте Атлантики. Разрываясь между семейными обязанностями и любовью к музыке, Ариэль должна сделать самый трудный выбор в своей жизни.Производство: США, АвстралияЖанр: ПриключенияРежиссер: Пегги ХолмсПерсонажи: Джоди Бенсон, Сэмюэл Э. Райт, Джим Каммингс, Салли Филд, Паркер Горис, Тара Стронг, Дженнифер Хейл, Грэй ДеЛисл, Джефф Беннетт, Кари УолгренПеревод: Профессиональный (полное дублирование)Язык субтитров: Русские, английскиеПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1748D38BBA49574C7D35BEF1F23EB67FD08E241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360457   (963527) от 18.01.2014
-
-Мадагаскар / Madagascar (2005) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо изнеженных животных из Центрального зоопарка в Нью-Йорке — лев Алекс, зебра Марти, жираф Мелман и гиппопотамиха Глория — решаются на побег. Оказавшись после кораблекрушения на экзотическом острове Мадагаскар, населенном лемурами и поедающими их фоссами, путешественники с ужасом понимают, что с городскими привычками им придется распрощаться.
-
-Здесь нет людей, (   Читать дальше...   )Жанр: Мультфильм, Комедия, ПриключенияРежиссер: Эрик Дарнелл, Том МакГратПерсонажи: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Том Макграт, Кристофер Найтс, Крис МиллерПеревод: ДублированныйЯзык субтитров: Английский, РусскийФормат: DVD VideoПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1040067E221060EC459DB3A23376C6C19F49E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

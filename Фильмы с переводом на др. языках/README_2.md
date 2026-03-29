@@ -1,3 +1,29 @@
+###  Публикация: 1292726   (644700) от 30.03.2019
+
+Кинчем / Kincsem (2017) WEBRip [H.264/1080p-LQ] [UKR, FRE]
+
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644700.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о борьбе в высших слоях общества Австрийской империи, просуществовавшей до 1867 года и позднее переродившейся в Австро-Венгрию. В центре событий — непримиримая борьба между венгерским аристократом Эрнё Блашковичем и офицером австрийской армии Отто фон Эттингеном. Блашковичу принадлежит легендарная скаковая лошадь по кличке Кинчем (в переводе с венгерского (   Читать дальше...   )Производство: Венгрия / Café Film, DRP, 	SKYFILM Studio Ltd.Жанр: Драма, Мелодрама, Приключения, ИсторияРежиссер: Габор ХерендиАктеры: Эрвин Надь, Андреа Петрик, Тибор Гашпар, Йожеф Дьябронка, Тамаш Керестеш, Эрнё Фекете, Петер Шерер, Зольтан Ратоти, Лехель Ковач, Залан МакранчиЯзык озвучки: Украинский, французскийСубтитры: ОтсутствуютПродолжительность: 01:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547C24E1FBF3DBF94043CF539D2F061EF777D681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292729   (642805) от 31.03.2019
 
 Кинчем / Kincsem (2017) WEBRip [UKR]
@@ -6,7 +32,7 @@
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642805.jpg" />
+  <img src="Z:/picture/008/save_picture_642805.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638945.jpg" />
+  <img src="Z:/picture/008/save_picture_638945.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636787.jpg" />
+  <img src="Z:/picture/008/save_picture_636787.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625696.jpg" />
+  <img src="Z:/picture/008/save_picture_625696.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625587.jpg" />
+  <img src="Z:/picture/008/save_picture_625587.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625455.jpg" />
+  <img src="Z:/picture/008/save_picture_625455.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612889.jpg" />
+  <img src="Z:/picture/008/save_picture_612889.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609170.jpg" />
+  <img src="Z:/picture/008/save_picture_609170.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603670.jpg" />
+  <img src="Z:/picture/008/save_picture_603670.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602448.jpg" />
+  <img src="Z:/picture/008/save_picture_602448.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599788.jpg" />
+  <img src="Z:/picture/008/save_picture_599788.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599479.jpg" />
+  <img src="Z:/picture/008/save_picture_599479.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599477.jpg" />
+  <img src="Z:/picture/008/save_picture_599477.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597591.jpg" />
+  <img src="Z:/picture/008/save_picture_597591.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582140.jpg" />
+  <img src="Z:/picture/008/save_picture_582140.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566890.jpg" />
+  <img src="Z:/picture/008/save_picture_566890.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566877.jpg" />
+  <img src="Z:/picture/008/save_picture_566877.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558087.jpg" />
+  <img src="Z:/picture/008/save_picture_558087.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546920.jpg" />
+  <img src="Z:/picture/008/save_picture_546920.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539582.jpg" />
+  <img src="Z:/picture/008/save_picture_539582.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535959.jpg" />
+  <img src="Z:/picture/008/save_picture_535959.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534904.jpg" />
+  <img src="Z:/picture/008/save_picture_534904.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519631.jpg" />
+  <img src="Z:/picture/008/save_picture_519631.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518673.jpg" />
+  <img src="Z:/picture/008/save_picture_518673.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518667.jpg" />
+  <img src="Z:/picture/008/save_picture_518667.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CBD38B4FCD5E92B79361F7FA29E5EBD4C70A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560769   (518657) от 01.07.2022
-
-Доктор Стрэндж: В мультивселенной безумия / Doctor Strange in the Multiverse of Madness (2022) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [UKR, EN / UKR, EN Sub]
-
->>Зарубежное кино
->>Фильмы с переводом на др. языках
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение магических приключений Доктора Стрэнджа в новых мистических мирах и в противостоянии с новыми врагами.Производство: США / Marvel Studios, Walt Disney PicturesЖанр: фэнтези, боевик, приключения, фантастика, ужасыРежиссер: Сэм РэймиАктеры: Бенедикт Камбербэтч, Элизабет Олсен, Сочил Гомес, Бенедикт Вонг, Рэйчел МакАдамс, Чиветель Эджиофор, Патрик Стюарт, Джон Красински, Хейли Этвелл, Энсон МаунтПеревод: Профессиональный многоголосый (Цікава Ідея, DniproFilm / HDRezka Studio)Язык озвучки: Украинский, английскийСубтитры: Украинские (Forced), английские (Forced, full, SDH)Продолжительность: 02:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808414315C27460834F70C6301B528E10E4136C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

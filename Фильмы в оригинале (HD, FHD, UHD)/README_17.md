@@ -1,3 +1,107 @@
+###  Публикация: 1205879   (783182) от 11.02.2018
+
+Кровавая месть /  Le sang des iles d'or (2017) WEB-DLRip [H.264/720p-LQ] [FR / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сандра Пантакидис ушла из полиции после того, как не смогла арестовать убийцу своего крестника, похищенного и убитого 3 года назад. Теперь похищена другая женщина. Сандра особо встревожена тем, что эти два преступления связаны между собой, и она обращается в свое бывшее подразделение, находящееся под управлением ее дочери, с которой она находится в прохладных отношениях. (   Читать дальше...   )Производство: Франция, Бельгия . Grand Large Productions, Radio Télévision Belge Francophone (RTBF), TV5 MondeЖанр: Криминал, драмаРежиссер: Клод-Мишель РомАктеры: Александра Вандернот, Изабель Витари, Антуан Дюлери, Алексис Лоре, Давид Камменос, Ави Марсиано, Жерар Дюбуш, Жан-Жером ЭспозитоПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (хардсаб)Продолжительность: 01:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D107FCB4EC01FBF0E63970141CF58BE5A7163F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205723   (783146) от 11.02.2018
+
+Виктор Кроули / Victor Crowley  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783146.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2007 году девять человек были буквально разорваны на куски на болотах Луизианы. В течение последних десяти лет единственный выживший Эндрю Йонг продолжал твердить, будто эту резню учинил ужасный Виктор Кроули из местной легенды, однако парню никто не верил. И вот теперь судьба возвращает Эндрю к месту трагедии, чтобы столкнуть нос к носу с кровожадным призраком (   Читать дальше...   )Производство: США / ArieScope PicturesЖанр: ужасы, комедияРежиссер: Адам ГринАктеры: Парри Шен, Кэйн Ходдер, Лаура Ортис, Дейв Шеридан, Кристал Джой Браун, Брайан Куинн, Фелисса Роуз, Чейз Уильямсон, Кэти Бут, Тиффани Шепис, Джона РэйПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4521DC926A0C1B075F2585D59346C255F44C0E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206210   (782507) от 13.02.2018
+
+Я не ведьма / I Am Not a Witch  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782507.jpg" />
+</div>
+
+
+###  Подробнее
+
+После небольшого инцидента в деревне девятилетняя Шула была признана виновной и сослана в лагерь для ведьм. Девочку предупредили, что если вдруг она попытается бежать - превратится в белого козла. В этой навязанной новой жизни ребёнку предстоит сделать выбор: принять судьбу или рискнуть всем ради свободы.Производство: Великобритания, Франция, Германия / Arte Prize, BFI Film Fund, Berlinale World Cinema Fund, The, Centre National de la Cinématographie et de l'Image Animée, Cinéfondation Residence, Clandestine films, Film4, HBF+Europe, Hubert Bals Fund, IFP No Borders Prize, Icreatefilms, Institut Français, Résidence Moulin d'Andé, Soda Pictures, unafilmЖанр: драмаРежиссер: Рунгано НиониАктеры: Бенфорс Уи, Бойд Банда, Калунду Банда, Бонивентура, Бриски, Патриция Каррейра, Патриция Чамбва, Муреен Чаба, Джанет Чайль, Феликс Чиболе, Чичи, Марта Чиг'АмбоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3A0C92BCE2377184CE80287E0353DDA433744A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206310   (782478) от 13.02.2018
+
+Баллада о Лефти Брауне / The Ballad of Lefty Brown  (2017) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_782478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилые приятели Лефти Браун и Эдди Джонсон всю свою жизнь работали вместе. Внезапное убийство Эдди вынуждают Лефти выйти из тени своего партнёра, теперь ему придётся противостоять уродливым реалиям за границами правосудия.Производство: США / Higher Content, Om Films, Armian PicturesЖанр: вестернРежиссер: Джаред МошеАктеры: Питер Фонда, Билл Пуллман, Кэти Бейкер, Джеймс Кэвизел, Томми Флэнаган, Джозеф Андерсон, Адам О’Берн, Дюл Фарнс, Диего ДжозефПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6CB98A25F36936E51060AB80BC9378F3FEA4314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206397   (782473) от 13.02.2018
 
 Убийство в Восточном экспрессе / Murder on the Orient Express  (2017) BDRemux [H.264/1080p] [EN / EN and other Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782473.jpg" />
+  <img src="Z:/picture/008/save_picture_782473.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782466.jpg" />
+  <img src="Z:/picture/008/save_picture_782466.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782009.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781667.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781620.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781249.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781162.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781161.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780774.jpg" />
+  <img src="Z:/picture/008/save_picture_780774.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780549.jpg" />
+  <img src="Z:/picture/008/save_picture_780549.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780483.jpg" />
+  <img src="Z:/picture/008/save_picture_780483.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780377.jpg" />
+  <img src="Z:/picture/008/save_picture_780377.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780372.jpg" />
+  <img src="Z:/picture/008/save_picture_780372.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780346.jpg" />
+  <img src="Z:/picture/008/save_picture_780346.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780344.jpg" />
+  <img src="Z:/picture/008/save_picture_780344.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780334.jpg" />
+  <img src="Z:/picture/008/save_picture_780334.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780207.jpg" />
+  <img src="Z:/picture/008/save_picture_780207.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780036.jpg" />
+  <img src="Z:/picture/008/save_picture_780036.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780027.jpg" />
+  <img src="Z:/picture/008/save_picture_780027.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779902.jpg" />
+  <img src="Z:/picture/008/save_picture_779902.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779744.jpg" />
+  <img src="Z:/picture/008/save_picture_779744.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779638.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C1D8E15B9A99D4299EAA317875F0CD6FF84317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209100   (779456) от 25.02.2018
-
-Колесо чудес / Wonder Wheel  (2017) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779456.jpg" />
-</div>
-
-
-###  Подробнее
-
-История страсти, жестокости и предательства, рассказывающая о четырех героях, чьи судьбы переплелись среди бурной жизни знаменитого парка развлечений. Действие разворачивается на живописном Кони Айленде в Нью-Йорке.Производство: США / Amazon Studios, Gravier Productions, Perdido ProductionsЖанр: драмаРежиссер: Вуди АлленАктеры: Джеймс Белуши, Джуно Темпл, Джастин Тимберлейк, Кейт Уинслет, Макс Казелла, Джек Гор, Дэвид Крамхолц, Роберт С. Кирк, Томми Нохилли, Тони Сирико, Стив Ширрипа, Джон ДуманьянПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25560F732E5172652016247B8C93856E81A5BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209567   (779189) от 27.02.2018
-
-Форма воды / The Shape of Water (2017) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в 1963 году. Главная героиня — немая уборщица в научной лаборатории. В стенах секретного учреждения идёт работа по изучению отловленного человека-амфибии. Женщина влюбляется в мутанта и помогает ему бежать…Производство: США, Bull Productions, Double Dare You (DDY), Fox Searchlight PicturesЖанр: Приключения, Драма, Фэнтези, УжасыРежиссер: Гильермо дель ТороАктеры: Салли Хокинс, Майкл Шеннон, Ричард Дженкинс, Октавия Спенсер, Майкл Стулбарг, Даг Джонс, Дэвид Хьюлетт, Ник Сирси, Стюарт Арнотт, Найджел Беннетт ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B670A76AC7E1CE009856209A45F01EF7FFB16C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209790   (779066) от 28.02.2018
-
-Тоня против всех / I, Tonya (2017) BDRip [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американской фигуристке Тоне Хардинг пришлось нелегко: сначала тяжелое детство с грозной матерью, потом тяжелая юность, ранний брак с проходимцем и неудачи на соревнованиях из-за заниженных судьями оценок. А потом случился скандал: во время важнейших соревнований идея запугать конкурентку идёт не по плану…Производство: США, Clubhouse Pictures (II), LuckyChap EntertainmentЖанр: Биография, Комедия, Драма, СпортРежиссер: Крэйг ГиллеспиАктеры: Марго Робби, Себастьян Стэн, Эллисон Дженни, Джулианна Николсон, Пол Уолтер Хаузер, Бобби Каннавале, Бояна Новакович, Кэйтлин Карвер, Мэйзи Смит, МакКенна Грейс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские (отдельным файлом)Продолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27BCC786F6A492A84BD319F88BF35840FFDC9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209798   (779044) от 28.02.2018
-
-Леди Бёрд / Lady Bird  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристина МакФерсон учится в консервативной католической школе в Сакраменто. Она ищет себя, своё место в мире и пытается быть не похожей на других. Её волосы выкрашены в странный красно-розовый цвет, а имя Леди Бёрд она дала себе сама и именно так просит её называть. И главная её мечта - вырваться из этого провинциального захолустья и поехать учиться в Нью-Йорк.Производство: США / Scott Rudin Productions, Entertainment 360, IAC FilmsЖанр: драма, комедияРежиссер: Грета ГервигАктеры: Сирша Ронан, Лори Меткаф, Трэйси Леттс, Лукас Хеджес, Тимоти Шаламе, Бини Фелдштейн, Лоис Смит, Стивен Хендерсон, Одейя Раш, Джордан Родригез, Мариэль Эйснер, Джон КарнаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A26C1C82783374E8D325B9086488858A76845D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

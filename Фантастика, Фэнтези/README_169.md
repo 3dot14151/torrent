@@ -1,3 +1,59 @@
+###  Публикация: 568493   (394747) от 31.10.2012
+
+Ник Перумов и др. | Исправленному верить [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не ошибается только тот, кто ничего не делает. Всем остальным случается промахиваться – резидентам и президентам, владыкам и кухаркам, судьям и подсудимым, Акеле и Шер-хану, наконец. Ошибаются все. Исправляют ошибки – свои и чужие – лишь некоторые. Именно они, знаменитые и незаметные, стали героями уже четвертого сборника серии «Наше дело правое».
+
+Государственный врач в ранге прима, объявившиеся в современном Питере боги или же лица, к ним приравненные, боевой подполковник, крестьянская девчонка, она же офицер российского императорского космического флота, а также пламенные революционеры, дикие огры, московские урбаниды, коты-телепаты, отважные космодесантники и даже заведшаяся в компьютерных сетях вредоносная (на первый взгляд) программа. Будь ты хоть бог, хоть царь, хоть герой, хоть Наполеон или Дарт Вейдер – а исправления ошибок тебе не миновать!
+
+Вы еще не решили, заниматься этим или нет? Тогда мы идем к вам!Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC27512C0615269BEC7E34EE3C3828B65369498D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172040   (394671) от 06.10.2017
+
+Валентина Савенко | Секретарь палача (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Арлину, осужденную за покушение на жизнь мага, навещает незнакомец и предлагает стать своим секретарем, она соглашается. Выбор очевиден: вместо смерти на эшафоте — возможность начать жизнь заново. А то, что внезапный благодетель — палач, не страшно. Какая разница, для кого заваривать чай и разбирать бумаги? Но все не так просто. Смертельные случайности следуют (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37092542EF4A8F4C3FC54197B9C464621C9E79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 383236   (394661) от 06.10.2017
 
 Евгений Соломенко | Час «Ч», или Ультиматум верноподданного динозавра (2011) [FB2]
@@ -6,7 +62,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394661.jpg" />
+  <img src="Z:/picture/008/save_picture_394661.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391965.jpg" />
+  <img src="Z:/picture/008/save_picture_391965.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391960.jpg" />
+  <img src="Z:/picture/008/save_picture_391960.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391952.jpg" />
+  <img src="Z:/picture/008/save_picture_391952.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391765.jpg" />
+  <img src="Z:/picture/008/save_picture_391765.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391503.jpg" />
+  <img src="Z:/picture/008/save_picture_391503.jpg" />
 </div>
 
 
@@ -168,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391223.jpg" />
+  <img src="Z:/picture/008/save_picture_391223.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391150.jpg" />
+  <img src="Z:/picture/008/save_picture_391150.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390603.jpg" />
+  <img src="Z:/picture/008/save_picture_390603.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390475.jpg" />
+  <img src="Z:/picture/008/save_picture_390475.jpg" />
 </div>
 
 
@@ -275,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390347.jpg" />
+  <img src="Z:/picture/008/save_picture_390347.jpg" />
 </div>
 
 
@@ -301,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390343.jpg" />
+  <img src="Z:/picture/008/save_picture_390343.jpg" />
 </div>
 
 
@@ -328,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390297.jpg" />
+  <img src="Z:/picture/008/save_picture_390297.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390281.jpg" />
+  <img src="Z:/picture/008/save_picture_390281.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389632.jpg" />
+  <img src="Z:/picture/008/save_picture_389632.jpg" />
 </div>
 
 
@@ -410,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389600.jpg" />
+  <img src="Z:/picture/008/save_picture_389600.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389593.jpg" />
+  <img src="Z:/picture/008/save_picture_389593.jpg" />
 </div>
 
 
@@ -466,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389555.jpg" />
+  <img src="Z:/picture/008/save_picture_389555.jpg" />
 </div>
 
 
@@ -492,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389198.jpg" />
+  <img src="Z:/picture/008/save_picture_389198.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388926.jpg" />
+  <img src="Z:/picture/008/save_picture_388926.jpg" />
 </div>
 
 
@@ -545,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388772.jpg" />
+  <img src="Z:/picture/008/save_picture_388772.jpg" />
 </div>
 
 
@@ -571,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388712.jpg" />
+  <img src="Z:/picture/008/save_picture_388712.jpg" />
 </div>
 
 
@@ -599,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387874.jpg" />
+  <img src="Z:/picture/008/save_picture_387874.jpg" />
 </div>
 
 
@@ -628,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387705.jpg" />
+  <img src="Z:/picture/008/save_picture_387705.jpg" />
 </div>
 
 
@@ -640,60 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22C9AD3241C5D37A610D45A01A228002892F59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253122   (387699) от 07.10.2018
-
-Фрэнсис Хардинг | Колодец желаний (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387699.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то утро Райан проснулся с паршивым ощущением – день не задался с самого начала. Увидев в зеркале чужое лицо, он чуть не свернул себе шею. А еще ему повсюду мерещилась вода. С лучшими друзьями тоже творились странные вещи. Челли начала читать мысли других людей, а рядом с Джошем перегорали и взрывались лампочки.
-Что же это за колдовство?
-Всему виной горстка монет, (   Читать дальше...   )Жанр: Фэнтези; Мистика и ужасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A21AAAABF9A315378BD34B5AF62FF9F039A969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252937   (387698) от 07.10.2018
-
-Фрэнсис Хардинг | Стеклянное лицо (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387698.jpg" />
-</div>
-
-
-###  Подробнее
-
-В подземном городе Каверна живут самые искусные мастера в мире. Они создают невероятные вещи – сыры, помогающие увидеть будущее, и духи, внушающие доверие тому, кто ими пользуется, даже если он вот-вот перережет вам горло. В подземном городе Каверна живут удивительные люди. Их лица бесстрастны, как нетронутый снег. Чтобы выражать чувства, надо тренироваться, и знаменитые (   Читать дальше...   )Жанр: Городское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523C7AE272313619F7EB5BB23DC4F9B2279B4818
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,175 @@
+###  Публикация: 1027211   (696532) от 19.06.2016
+
+VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavoour - Les Deux Guitares
+02. The Bangles - Eternal Flame
+03. Tevin Campbell - Everything
+04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027243   (696529) от 19.06.2016
+
+VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias - Mmacita
+02. Christina Milan - When You Look At Me
+03. Chris De Burgh - Snow Is Falling
+04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221231   (696371) от 23.04.2018
+
+VA - Best dance music (2018) [MP3|256 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ain't Bothered (Intro Dirty) - Unofficial
+002. Mona Lisa (Dirty Werk Remix)Жанр: Dance, ClubПродолжительность: 05:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3BB79B160C3A12346A283FC33103DE4DBC5D612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027407   (696201) от 19.06.2016
+
+VA - Guitar Collection 5 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mick Abrahams - Dragonfly    03:18
+002. Morcheeba - Public Displays Of Affection    03:08
+003. Neal Schon - El Matador    03:51
+004. Mark Knopfler & Evelyn Glennie - Altamira    02:59(   Читать дальше...   )Жанр: Instrumental, Acoustic, Blues-RockПродолжительность: 07:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F40BFA95CC9D194F46037F519E54B5B7FC2B794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288415   (695658) от 11.03.2019
+
+VA - Latino Sound Cartel (2019) [MP3|320 Kbps] <Latino, Dance, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695658.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jаcоb Fоrеvеr - Un Bеsо
+002. Cаrlоs Vivеs - Dйjаmе Quеrеrtе
+003. Dаrеуеs Dе Lа Siеrrа - Dеl 1 Al 10
+004. Nаchо - Nаdiе Sаbе(   Читать дальше...   )Жанр: Latino, Dance, ReggaetonПродолжительность: 07 :26 :17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A280F40F9559AF268421DB583618DE7D7ACA8079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288350   (695342) от 11.03.2019
+
+VA - Hit Dance Music 90s (2019) [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695342.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cаррellа - U & Me
+002. Hаddаwаy - Whаt Is Lоve
+003. Cаррellа - U Gоt 2 Let The Music
+004. Tоw Bоys - A Hаrd Dаy's Night(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 13:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1942445DF771D45C54CF0835FECA307ADD6782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288576   (694075) от 12.03.2019
 
 VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +178,7 @@ VA - не Громкие новинки недели 4 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694075.jpg" />
+  <img src="Z:/picture/008/save_picture_694075.jpg" />
 </div>
 
 
@@ -35,7 +207,7 @@ VA - Hare Krishna (Life is in your Hands 2CD) (2020) [MP3|320 Kbps] <Pop, Rock, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694026.jpg" />
+  <img src="Z:/picture/008/save_picture_694026.jpg" />
 </div>
 
 
@@ -64,7 +236,7 @@ Buzzy Bus - You Don't Stop (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693413.jpg" />
+  <img src="Z:/picture/008/save_picture_693413.jpg" />
 </div>
 
 
@@ -82,6 +254,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333284   (693313) от 07.05.2011
+
+VA - Самые Лучшие Хиты Радио Maximum Часть 1 (2011) [MP3|256 kbps]<Рок, Поп>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, ПопПродолжительность: 06:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397AAC1271739DD12517A65CB9ED2D812BC1D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221491   (692775) от 25.04.2018
 
 VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
@@ -90,7 +288,7 @@ VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692775.jpg" />
+  <img src="Z:/picture/008/save_picture_692775.jpg" />
 </div>
 
 
@@ -122,7 +320,7 @@ VA - 100 Most Uplifting Songs Ever (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692226.jpg" />
+  <img src="Z:/picture/008/save_picture_692226.jpg" />
 </div>
 
 
@@ -151,7 +349,7 @@ VA - Громкие новинки месяца Vol.27 (2019) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691845.jpg" />
+  <img src="Z:/picture/008/save_picture_691845.jpg" />
 </div>
 
 
@@ -180,7 +378,7 @@ VA - Moving The Blues (2019) [MP3|320 Kbps] <Blues Rock, Country, Rock And Roll,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691844.jpg" />
+  <img src="Z:/picture/008/save_picture_691844.jpg" />
 </div>
 
 
@@ -209,7 +407,7 @@ VA - Tropical House Vol.3 (2017) [MP3|320 Kbps] <House , Tech House , Tropical>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691552.jpg" />
+  <img src="Z:/picture/008/save_picture_691552.jpg" />
 </div>
 
 
@@ -238,7 +436,7 @@ VA - Disco Forgotten (2017) [MP3|320 Kbps] <Disco, Pop, Italo Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691480.jpg" />
+  <img src="Z:/picture/008/save_picture_691480.jpg" />
 </div>
 
 
@@ -267,7 +465,7 @@ VA - One Love Reggae: Soul Collection (2017) [MP3|250-320 Kbps] <Reggae, Lyric>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691473.jpg" />
+  <img src="Z:/picture/008/save_picture_691473.jpg" />
 </div>
 
 
@@ -296,7 +494,7 @@ VA - 100 Euro Dance Mix May (2017) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691414.jpg" />
+  <img src="Z:/picture/008/save_picture_691414.jpg" />
 </div>
 
 
@@ -325,7 +523,7 @@ VA - Hotline Reggaeton: Master DJ Mix (2017) [MP3|320 Kbps] <Reggaeton, Latino H
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691407.jpg" />
+  <img src="Z:/picture/008/save_picture_691407.jpg" />
 </div>
 
 
@@ -354,7 +552,7 @@ VA - Disco Dance 90’s (2017) [MP3|320 Kbps] <EuroDance , Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691164.jpg" />
+  <img src="Z:/picture/008/save_picture_691164.jpg" />
 </div>
 
 
@@ -383,7 +581,7 @@ VA - Дискотека забытых хитов (2017) [MP3|320 Kbps] <Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690762.jpg" />
+  <img src="Z:/picture/008/save_picture_690762.jpg" />
 </div>
 
 
@@ -412,7 +610,7 @@ VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690628.jpg" />
+  <img src="Z:/picture/008/save_picture_690628.jpg" />
 </div>
 
 
@@ -441,7 +639,7 @@ VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690371.jpg" />
+  <img src="Z:/picture/008/save_picture_690371.jpg" />
 </div>
 
 
@@ -470,7 +668,7 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690227.jpg" />
+  <img src="Z:/picture/008/save_picture_690227.jpg" />
 </div>
 
 
@@ -499,7 +697,7 @@ VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690110.jpg" />
+  <img src="Z:/picture/008/save_picture_690110.jpg" />
 </div>
 
 
@@ -528,7 +726,7 @@ VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690092.jpg" />
+  <img src="Z:/picture/008/save_picture_690092.jpg" />
 </div>
 
 
@@ -542,218 +740,6 @@ VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE48712BDD2D6E6B054C4B0B324511D5B3B99F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288932   (689697) от 14.03.2019
-
-Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689697.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elton John - Sorry Seems To Be The Hardest Word (Igor Frank Radio Remix)Жанр: Club, DanceПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB34C9E17E1507CE85C5D3B2E0F770184B20ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221954   (689433) от 27.04.2018
-
-VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушание мантр или просто музыки релакс направления способно ввести сознание в состояние медитации. Подобная практика обладает очищающим воздействием, которое обязательно со временем приносит результаты – снятие стресса и напряжений, улучшение работоспособности и памяти, увеличение жизненных сил, сияние души любовью и радостью01. Midori - The Light and Warmth
-02. Patrick Bernard - Sita Ram Hanuman Mantra
-03. Wychazel - Akasha
-04. Akoviani - Transgressus III(   Читать дальше...   )Жанр: New Age, Ambient, Relaxation,Продолжительность: 04:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134302   (689371) от 15.05.2017
-
-VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
-02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
-03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
-04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505879   (689212) от 05.06.2012
-
-VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<Dance|Club|Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton PavLovsky vs. Игорь Тальков - Летний дождь (Original Mix)
-02. Наутилус Помпилиус - Дыхание (Dj Gorodnev & Dj Paulbass Breathe Mix)
-03. Вирус - Просто рядом иди (Электроники Club Mix Radio Edit)
-04. Reflex - Chanel (BeMax & Whilliam Rise Remix)
-05. Саша Project - Белое платье (DJ Stanly Remix)
-06. Алсу - Школьные годы (DJ CDRoM Remix)
-07. Натали - Снежная роза 2011 (Aleksey Kraft Remix)
-08. Звери - Любовь Одна Виновата (DJ Fenix Remix)
-09. A'Studio - Соловьиная роща
-10. DJ Mikola vs. Руки Вверх - Так тебе и надо (Dj XM Remix)(   Читать дальше...   )2012Жанр: Dance|Club|DiscoПродолжительность: 06:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA59E9905AEC1C8F96A8C2A729A9F8EFAA5B86FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028574   (688753) от 23.06.2016
-
-VA - Sunny Surprise: Ibiza Dance Party (2016) [MP3|320 кб/с] <Dance, House, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688753.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Happy Colors - Tu Con Ese Culo Rompe el Toilet
-002. Cleo - Zabiore Nas (Basto Remix Extended)
-003. 4Kast - flip it (primetime playa remix)
-004. Alexandra Stan - I Did It Mama (Franques Remix)(   Читать дальше...   )Жанр: Dance, House, FunkyПродолжительность: 08:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4CC00E73FE74EB869BE256123B09CA085679AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506489   (688329) от 06.06.2012
-
-VA - Maximum зажигательный музон (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688329.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MaXimA - Так тихо (Fidel Wicked radio edit) (2:58)
-2. Greg Parys - Get sexy (radio mix) (3:12)
-3. Andrew Rayel - 550 Senta (Aether mix) (7:47)
-4. Mark Norman - Rebound (original mix) (7:20)
-5. Винтаж - Амстердам (feat. Владимир Пресняков) (4:06)
-6. DJ Рублев feat. Вячеслав Лопаков - Одиночество (DJ Denis Rublev club mix) (6:16)
-7. Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix) (5:50)
-8. Knife Party - Internet Friends (original mix) (4:53)
-9. Magic Solutions - Lilly Was Here (club mix) (6:47)
-10. Dima Energy & Женя Юдина - Небо Это Я (extended mix) (5:13)2012Жанр: Dance, ClubПродолжительность: 08:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8503F6A3E3F958653E0DE63E19FD4D536DC21BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403791   (688321) от 21.08.2020
-
-VA - Муть (не для старперов) (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Project - Лучшая Ночь (3:40)
-02. Погнали - Пацы (2:12)
-03. Archeenews - Лимузин (1:53)
-04. Aslan - Холодок (DJ Prezzplay Radio Mix) (3:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313252CB41A39FF7B08A46D70ADFD6CF15DBC9F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

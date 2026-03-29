@@ -1,3 +1,61 @@
+###  Публикация: 1160840   (471751) от 26.08.2017
+
+The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always on My Mind (3:51)
+02. The Greatest Love of All (5:00)
+03. Theme From Hill Street Blues (3:25)
+04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940082   (471309) от 23.09.2015
+
+Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Wave
+02. Olive Grove
+03. Traveling The Stars
+04. Surfing The Clouds(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320310   (471248) от 18.08.2019
 
 Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
@@ -6,7 +64,7 @@ Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471248.jpg" />
+  <img src="Z:/picture/008/save_picture_471248.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470521.jpg" />
+  <img src="Z:/picture/008/save_picture_470521.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470506.jpg" />
+  <img src="Z:/picture/008/save_picture_470506.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469966.jpg" />
+  <img src="Z:/picture/008/save_picture_469966.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469895.jpg" />
+  <img src="Z:/picture/008/save_picture_469895.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469888.jpg" />
+  <img src="Z:/picture/008/save_picture_469888.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469547.jpg" />
+  <img src="Z:/picture/008/save_picture_469547.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469389.jpg" />
+  <img src="Z:/picture/008/save_picture_469389.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468859.jpg" />
+  <img src="Z:/picture/008/save_picture_468859.jpg" />
 </div>
 
 
@@ -285,7 +343,7 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468832.jpg" />
+  <img src="Z:/picture/008/save_picture_468832.jpg" />
 </div>
 
 
@@ -314,7 +372,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468156.jpg" />
+  <img src="Z:/picture/008/save_picture_468156.jpg" />
 </div>
 
 
@@ -345,7 +403,7 @@ Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|t
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468155.jpg" />
+  <img src="Z:/picture/008/save_picture_468155.jpg" />
 </div>
 
 
@@ -374,7 +432,7 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467787.jpg" />
+  <img src="Z:/picture/008/save_picture_467787.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467670.jpg" />
+  <img src="Z:/picture/008/save_picture_467670.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467669.jpg" />
+  <img src="Z:/picture/008/save_picture_467669.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467658.jpg" />
+  <img src="Z:/picture/008/save_picture_467658.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467372.jpg" />
+  <img src="Z:/picture/008/save_picture_467372.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466764.jpg" />
+  <img src="Z:/picture/008/save_picture_466764.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466746.jpg" />
+  <img src="Z:/picture/008/save_picture_466746.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466398.jpg" />
+  <img src="Z:/picture/008/save_picture_466398.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466396.jpg" />
+  <img src="Z:/picture/008/save_picture_466396.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466395.jpg" />
+  <img src="Z:/picture/008/save_picture_466395.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465644.jpg" />
+  <img src="Z:/picture/008/save_picture_465644.jpg" />
 </div>
 
 
@@ -690,7 +748,7 @@ Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465639.jpg" />
+  <img src="Z:/picture/008/save_picture_465639.jpg" />
 </div>
 
 
@@ -702,64 +760,6 @@ Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161767   (465634) от 29.08.2017
-
-Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oglumga
-02. Odarladyp Semirtiili
-03. Dongup Xonar Boldum-Na Be
-04. Flute Box(   Читать дальше...   )Жанр: World, Ethnic, FolkПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161497   (465535) от 29.08.2017
-
-The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovely Days (5:05)
-02. For you (4:34)
-03. Through the centuries (3:50)
-04. I am alive (INSTRUMENTAL VERSION) (3:36)Жанр: New Age, Ambient, Chillout |Продолжительность: 00:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 1493123   (897542) от 02.09.2021
+
+Infiltration - Point Blank Termination (2020) [FLAC|Lossless|image + .cue] <Death Metal, Deathcore, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plunged Into Decimation (4:07)
+02. Missing In Bodycount (4:26)
+03. Sniper's Creed (3:37)
+04. Collateral Damage (5:11)(   Читать дальше...   )Жанр: Death Metal, Deathcore, Groove MetalПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6732D4E0F0A73F4032EAB5D621A0D684BD7938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101072   (897441) от 05.02.2017
+
+Nightwish - Vehicle of Spirit (Live) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Symphonic MetalПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8E5E3CFAE040166483C9A5973EFAB71CCD796C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652321   (897421) от 02.09.2021
+
+Thyrane - Travesty Of Heavenly Essence (2005) [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Parasites Of submission [03:43]
+02.  Decay Of Christian Empire [04:55]
+03.  Travesty Of Heavenly Essence [03:43]
+04.  Nox Diaboli (Devil.s Night) [04:17](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E801B01658F552C683D5AABEA6707D51699705B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657615   (897358) от 02.09.2021
 
 The Suicider - Death Surround (2010) [FLAC|Lossless]<Gothic Metal>
@@ -6,7 +90,7 @@ The Suicider - Death Surround (2010) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897358.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Iron Maiden - Senjutsu (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897189.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Svengali - Sayonara (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897063.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Shaark - Again With Hatred (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897058.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ Almanac (Victor Smolski's) - Rush Of Death (2020) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896920.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ September Mourning - 2 Albums + 1 EP (2012-2016) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896169.jpg" />
 </div>
 
 
@@ -181,7 +265,7 @@ Crowned In Sorrow - In Memoriam (2021) [FLAC|Lossless|image + .cue] <Melodic Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895583.jpg" />
 </div>
 
 
@@ -210,7 +294,7 @@ Myrath - Legacy (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895377.jpg" />
 </div>
 
 
@@ -239,7 +323,7 @@ Iron Maiden - Senjutsu (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895261.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ Ocean Grove - Flip Phone Fantasy (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895229.jpg" />
 </div>
 
 
@@ -300,7 +384,7 @@ Portrait - At One with None (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894155.jpg" />
 </div>
 
 
@@ -329,7 +413,7 @@ Pain - Nothing Remains The Same (2002) [FLAC|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893542.jpg" />
 </div>
 
 
@@ -358,7 +442,7 @@ Setanera - New Era (2015) [FLAC|Lossless|tracks + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893067.jpg" />
 </div>
 
 
@@ -387,7 +471,7 @@ Judas Priest - Turbo 30 (1986) 30Th Anniversary Edition Remaster, 2017, 3CD Set 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892766.jpg" />
 </div>
 
 
@@ -416,7 +500,7 @@ Malison - Death's Embrace (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892564.jpg" />
 </div>
 
 
@@ -445,7 +529,7 @@ Executor - God Will Kneel Before Me (2020) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892563.jpg" />
 </div>
 
 
@@ -474,7 +558,7 @@ Malison Rogue - Malison Rogue (2011) [WavPack|Lossless|image + .cue] <Melodic He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892562.jpg" />
 </div>
 
 
@@ -503,7 +587,7 @@ Aborted - ManiaCult (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892559.jpg" />
 </div>
 
 
@@ -532,7 +616,7 @@ Rebellion - We Are The People (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892556.jpg" />
 </div>
 
 
@@ -562,7 +646,7 @@ Dragonbreath - The Awakening (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892553.jpg" />
 </div>
 
 
@@ -591,7 +675,7 @@ Feanor - Power Of The Chosen One (2021) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892469.jpg" />
 </div>
 
 
@@ -620,7 +704,7 @@ Nightwish - Elan (2015) /CDS/ [FLAC|Lossless]<Symphonic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892452.jpg" />
 </div>
 
 
@@ -649,7 +733,7 @@ At Vance - 9 Studio Albums (1999-2012) 9xCD [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892412.jpg" />
 </div>
 
 
@@ -663,93 +747,6 @@ At Vance – немецкая метал-группа, основанная в 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296487   (891718) от 05.09.2021
-
-Iron Maiden - 59 аlbums, 7 Box-sets, 207 CD (1979-2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>След.
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iron Maiden — британская хеви-метал-группа, которая в начале 1980-х гг. являлась одним из известнейших представителей новой волны британского хеви-метала (NWOBHM), а позже оказала значительное влияние на развитие метала в целом. История группы Iron Maiden неразрывно связана с именем её отца-основателя, идейного вдохновителя и бессменного лидера бас-гитариста Стива (   Читать дальше...   )--------------------------
-
-01. Senjutsu (8:20)
-02. Stratego (5:00)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 159:16:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9241A5792742B5B1060304A1BC8CB8D23440E229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993641   (891666) от 07.03.2016
-
-Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wretched Wisdom 10:14
-02. Cnestorial 10:42
-03. Molec Codices 09:35
-04. Timehusk 06:05(   Читать дальше...   )Жанр: Avant-garde Black MetalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993642   (891656) от 07.03.2016
-
-Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Love
-02. Black Snow (The Final Sign)
-03. Pain
-04. Indian War Love Song (Deliver Me)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

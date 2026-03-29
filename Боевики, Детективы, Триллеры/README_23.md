@@ -1,3 +1,81 @@
+###  Публикация: 1374910   (868712) от 12.04.2020
+
+Валентин Лавров | Цикл: «Граф Соколов» [7 книг] (2019) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868712.jpg" />
+</div>
+
+
+###  Подробнее
+
+В цикл «Граф Соколов» вошли книги создателя жанра русского исторического детектива, академика РАЕН Валентина Лаврова. В основе книг - подлинные исторические события, а все уголовные дела раскрывает гений сыска граф Соколов.Жанр: Исторические детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6387AD0E030A296B33D1F49E4B32A6B1CD63D4AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375006   (868619) от 12.04.2020
+
+Татьяна Устинова, Павел Астахов | Жилье по обману (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный литературный дуэт Татьяны Устиновой и Павла Астахова продолжает цикл «Дела судебные» и раскрывает в новом романе как нельзя более актуальную тему – жилищного строительства и обманутых дольщиков. Судья Лена Кузнецова пытается установить – кто они, мошенники, лишающие людей крыши над головой? Как призвать их к ответу? Попутно ей приходится решать семейные (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD5847319A456F327A6B880BD1BE205A090064A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375005   (868618) от 12.04.2020
+
+Татьяна Устинова | И весь мир в придачу [сборник] (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами авторский сборник малой детективной и романтической прозы от популярной российской писательницы Татьяны Устиновой. В книгу вошли повесть «Вселенский заговор» и четыре рассказа: «Волшебный свет», «И весь мир в придачу», «У меня зазвонил телефон» и «Вот так история». Все тексты уже ранее публиковались в антологиях издательство Эксмо или других авторских (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B94CF57568ECDC7BD8E6FD8D7E5300922AD4A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998832   (868449) от 20.03.2016
 
 Нил Уайт | Игра на выбывание (2016) [FB2]
@@ -6,7 +84,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868449.jpg" />
+  <img src="Z:/picture/008/save_picture_868449.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868219.jpg" />
+  <img src="Z:/picture/008/save_picture_868219.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867857.jpg" />
+  <img src="Z:/picture/008/save_picture_867857.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867850.jpg" />
+  <img src="Z:/picture/008/save_picture_867850.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867609.jpg" />
+  <img src="Z:/picture/008/save_picture_867609.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867438.jpg" />
+  <img src="Z:/picture/008/save_picture_867438.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866935.jpg" />
+  <img src="Z:/picture/008/save_picture_866935.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866607.jpg" />
+  <img src="Z:/picture/008/save_picture_866607.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866602.jpg" />
+  <img src="Z:/picture/008/save_picture_866602.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866208.jpg" />
+  <img src="Z:/picture/008/save_picture_866208.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866092.jpg" />
+  <img src="Z:/picture/008/save_picture_866092.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865824.jpg" />
+  <img src="Z:/picture/008/save_picture_865824.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865806.jpg" />
+  <img src="Z:/picture/008/save_picture_865806.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865393.jpg" />
+  <img src="Z:/picture/008/save_picture_865393.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865318.jpg" />
+  <img src="Z:/picture/008/save_picture_865318.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865316.jpg" />
+  <img src="Z:/picture/008/save_picture_865316.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865250.jpg" />
+  <img src="Z:/picture/008/save_picture_865250.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864615.jpg" />
+  <img src="Z:/picture/008/save_picture_864615.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864579.jpg" />
+  <img src="Z:/picture/008/save_picture_864579.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864489.jpg" />
+  <img src="Z:/picture/008/save_picture_864489.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864467.jpg" />
+  <img src="Z:/picture/008/save_picture_864467.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862027.jpg" />
+  <img src="Z:/picture/008/save_picture_862027.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860669.jpg" />
+  <img src="Z:/picture/008/save_picture_860669.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62DE551746C04A593179A1D112EF39B890800EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376031   (860388) от 17.04.2020
-
-Эндрю Уилсон | Искусство убивать. Расследует миссис Кристи (2018) [PDF, FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая писательница, автор детективов Агата Кристи переживает сложный период: она потеряла мать – близкого ей человека, а муж тем временем увлекся другой женщиной и хочет оставить семью. Новая книга не пишется, одолевают горькие мысли, и в этой ситуации видится только один выход. Миссис Кристи в отчаянии, ей кажется, что она теряет связь с окружающим миром. Ее (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективыПеревод: Лев ВысоцкийФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BAAD90880315CB778717F43933792194B7CC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376167   (860365) от 17.04.2020
-
-Николай Леонов, Алексей Макеев | Не говори об этом мужу (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полковник МВД Гуров участвует в задержании преступника, пытавшегося ограбить на улице женщину. У задержанного – особая примета: татуировка в виде крылатого змея, кусающего себя за хвост. Точно такая же, со слов потерпевшей, была у брачного афериста, который сначала завел с ней роман, а потом снял с ее счета все деньги и скрылся. Но это не он напал на нее на улице… (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6721B9ED062320DF0BF92FFD35B8600AD9D8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376166   (860277) от 17.04.2020
-
-Николай Леонов, Алексей Макеев | Клейма ставить негде (2020) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полковники МВД Гуров и Крячко расследуют дело о ДТП, в котором погиб генерал МВД в отставке Давишин. Бывшие сослуживцы генерала в один голос характеризуют его как редкостного мерзавца, использовавшего служебное положение для личной наживы. Сыщики вылетают в Иркутск, где погибший начинал свою служебную карьеру. То, что удается узнать от тамошних старожилов, приводит (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB4475DCCAB8F4FAA5262583AEAEFDDF4BA3ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

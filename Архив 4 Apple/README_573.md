@@ -1,3 +1,110 @@
+###  Публикация: 1628306   (199505) от 22.04.2023
+
+Disk Drill Enterprise 5.2.1215 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Enterprise - самое популярное приложение для восстановления данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2023Разработчик: © 2022 508 Software, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCC8D6D5E285AFE02909190E279FC65F9538824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629001   (199366) от 25.04.2023
+
+AnyTrans for iOS 8.9.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199366.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
+AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A30D1BBDB7E7E9B9724013B6C12A50DBDB665A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629473   (199216) от 26.04.2023
+
+VMware Fusion Pro 13.0.2 (build 21581413) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199216.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion - это удобная и мощная виртуальная машина для Mac.
+С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций.Тип издания: macOS SoftwareРелиз состоялся: 26.04.2023Разработчик: © 2022 VMware, Inc.Поддерживаемая ОС: macOS 12 +Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6114970D9332D3F3B31CF879797364234B4EAA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631673   (198796) от 06.05.2023
+
+Cinema 4D Studio 2023.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих результатов быстро и без проблем. Начинающие, наравне с опытными профессионалами, могут воспользоваться широким набором инструментов и функций Cinema 4D для быстрого достижения потрясающих результатов. Легендарная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2023Разработчик: © 2022 MAXON Computer GmbHПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C52C52BD0D8871E887023389B0ABB31ED4CA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632892   (198603) от 12.05.2023
 
 XMind PRO 22.11 (3656) [Multi/Ru]
@@ -6,7 +113,7 @@ XMind PRO 22.11 (3656) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198603.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ CrossOver 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198435.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ ZBrush 2023.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198292.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ CrossOver 22.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198004.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Serato DJ Pro Suite 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197398.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ ON1 Sky Swap AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197255.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ iToolab UnlockGo 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197174.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ Microsoft Office 2021 for Mac LTSC v16.74 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197009.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ Davinci Resolve Studio 18.5b4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196875.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ Adobe Illustrator for Mac 2023 v.27.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196802.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ Maxon Cinema 4D Studio 2023.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196532.jpg" />
 </div>
 
 
@@ -299,7 +406,7 @@ Audio Hijack 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196498.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Disk Drill Enterprise 5.3.1308 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196385.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ Screaming Frog SEO Spider 19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195412.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ Adobe After Effects 2023 23.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195343.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ Davinci Resolve Studio 18.5 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195269.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ Adobe Lightroom Classic for Mac 12.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195256.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ Luminar Neo 1.12.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195148.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ JetBrains IntelliJ IDEA Ultimate for Mac 2023.1.4 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195130.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ Microsoft Office 2021 for Mac LTSC v.16.75 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195014.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ CleanMyMac X 4.14.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194895.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ Davinci Resolve Studio 18.5.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194251.jpg" />
 </div>
 
 
@@ -579,114 +686,6 @@ Davinci Resolve Studio 18.5.1 [Multi/Rus]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F2DC63997B2770BF64027217A6FB09A7C28491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653438   (194172) от 16.08.2023
-
-Microsoft Office 2021 for Mac LTSC v.16.76 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2023Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD43C6E7A3FD7B3B9827BB7436E582C23D80C985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654818   (194023) от 22.08.2023
-
-Ableton Live Suite 11 v.11.3.10 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D44DE1D94D0BF38C9D6D72161DDB79B05F33840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654584   (193982) от 21.08.2023
-
-ABBYY FineReader PDF for Mac 15.2.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193982.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineReader Pro для Mac – программа для распознавания текста, которая переводит изображения документов и любые типы PDF-файлов в электронные редактируемые форматы. Программа определяет и точно восстанавливает логическую структуру документа в его электронной копии, позволяя забыть о перепечатывании текстов.
-ABBYY FineReader Pro для Mac распознает документы на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.08.2023Разработчик: © 2022 ABBYY Production LLC. OCR app.Поддерживаемая ОС: macOS X 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA29DE263476113217BD192B6A21E808B8D7460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654746   (193938) от 22.08.2023
-
-Little Snitch 5.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита, позволяющая блокировать трафик в различных приложениях.
-С помощью Little Snitch вы сможете в реальном времени следить за любыми исходящими подключениями и одним программам разрешать подключаться, а другим запрещать подключения, внося их в своеобразный внутренний список Little Snitch или говоря техническим языком, создавая свод правил на базе которых Little (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.08.2023Разработчик: © 2023 Objective Development Software GmbHПоддерживаемая ОС: OS X 11.0 и вышеЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED0D872396E6DF4DF053A0C64734903DB0C5726
 ```
 
 https://mybot314.ru/tekegram_catalog/

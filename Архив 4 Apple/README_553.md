@@ -1,3 +1,113 @@
+###  Публикация: 1513805   (222719) от 30.11.2021
+
+DSLR Assistant 3.9.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте камерой Canon, подключенной к Mac, эффективно снимайте цифровые изображения, автоматически выполняйте различные фото-задачи и поддерживайте высокое качество изображений на протяжении всего рабочего процесса.
+Почему DSLR Assistant?
+• Экономьте время. Выполняйте задачи с фотографиями быстрее, лучше и проще. Уменьшите объем рабочего процесса постобработки. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2021Разработчик: © 2021 KAAsoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C358F7647228FDD151D4CDB0EA2E03601EA4D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342722   (222711) от 03.12.2019
+
+Allegorithmic Substance Alchemist 2019.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Substance Alchemist выводит искусство создания 3D-материалов и управления ими на новый уровень, благодаря новым функциям для более простого и быстрого создания материалов. Художники могут рассчитывать на мощный, оптимизированный рабочий процесс и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B462402320BA1DA0266256ABD1A9D4C106C0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966149   (222681) от 16.12.2015
+
+RightFont 2.4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222681.jpg" />
+</div>
+
+
+###  Подробнее
+
+RightFont - менеджер шрифтов с  красивым интерфейсом. RightFon предлагает различные возможности, которые помогают Вам  легко управлять всеми своими  шрифтами .
+
+Возможности:
+- Доступ к управлению шрифтами в любое время непосредственно из строки меню(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 декабря 2015Разработчик: Markly TeamПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED92FD79B2BDE462137111FEE3E95B037E3B074E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513804   (222648) от 30.11.2021
+
+balenaEtcher for macOS 1.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222648.jpg" />
+</div>
+
+
+###  Подробнее
+
+balenaEtcher предлагает вам возможность с легкостью записывать образы ОС на любую SD-карту или USB-накопитель, не заставляя вас выполнять сложные процедуры. Утилита объединяет удобный инструмент выбора диска и может проверить карту перед началом записи данных.
+Это приложение с открытым исходным кодом использует одно окно, в котором пользователь может указать образ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 BalenaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3104384FF99604DC3406FD9BF5DF2BBC24EE16FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513830   (222596) от 30.11.2021
 
 TechSmith Camtasia 2021 Studio 2021.0.7 [En]
@@ -6,7 +116,7 @@ TechSmith Camtasia 2021 Studio 2021.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222596.jpg" />
+  <img src="Z:/picture/005/save_picture_222596.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Boxy SVG 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222563.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222560.jpg" />
+  <img src="Z:/picture/005/save_picture_222560.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ SizeUp 1.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222463.jpg" />
+  <img src="Z:/picture/005/save_picture_222463.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ GM CHM Reader Pro for Mac 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222433.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ Vox 2.6.6 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222428.jpg" />
+  <img src="Z:/picture/005/save_picture_222428.jpg" />
 </div>
 
 
@@ -165,7 +275,7 @@ Adobe Media Encoder 2020 v14.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222219.jpg" />
+  <img src="Z:/picture/005/save_picture_222219.jpg" />
 </div>
 
 
@@ -191,7 +301,7 @@ RAR Extractor  - Unzi‪p‬ 11.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222100.jpg" />
 </div>
 
 
@@ -218,7 +328,7 @@ Pixelmator 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222064.jpg" />
+  <img src="Z:/picture/005/save_picture_222064.jpg" />
 </div>
 
 
@@ -244,7 +354,7 @@ LRTimelapse Pro 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222051.jpg" />
+  <img src="Z:/picture/005/save_picture_222051.jpg" />
 </div>
 
 
@@ -272,7 +382,7 @@ Rhinoceros 7 v.7.32 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222037.jpg" />
 </div>
 
 
@@ -299,7 +409,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222030.jpg" />
 </div>
 
 
@@ -326,7 +436,7 @@ PDF Reader Pro Edition 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222021.jpg" />
+  <img src="Z:/picture/005/save_picture_222021.jpg" />
 </div>
 
 
@@ -352,7 +462,7 @@ Video Converter X2 for Mac 1.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221963.jpg" />
 </div>
 
 
@@ -379,7 +489,7 @@ Things 3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221891.jpg" />
+  <img src="Z:/picture/005/save_picture_221891.jpg" />
 </div>
 
 
@@ -407,7 +517,7 @@ PDF Expert 2.4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221880.jpg" />
+  <img src="Z:/picture/005/save_picture_221880.jpg" />
 </div>
 
 
@@ -436,7 +546,7 @@ Adobe Audition 2020 v13.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221846.jpg" />
+  <img src="Z:/picture/005/save_picture_221846.jpg" />
 </div>
 
 
@@ -462,7 +572,7 @@ SuperDuper! 3.3.1 (v121) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221796.jpg" />
+  <img src="Z:/picture/005/save_picture_221796.jpg" />
 </div>
 
 
@@ -488,7 +598,7 @@ Soulver 3.1.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221555.jpg" />
+  <img src="Z:/picture/005/save_picture_221555.jpg" />
 </div>
 
 
@@ -514,7 +624,7 @@ Adobe InCopy 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221494.jpg" />
+  <img src="Z:/picture/005/save_picture_221494.jpg" />
 </div>
 
 
@@ -542,7 +652,7 @@ Clipboard Manager 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221475.jpg" />
+  <img src="Z:/picture/005/save_picture_221475.jpg" />
 </div>
 
 
@@ -570,7 +680,7 @@ Adobe Acrobat Pro  20.013.20064 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221474.jpg" />
+  <img src="Z:/picture/005/save_picture_221474.jpg" />
 </div>
 
 
@@ -581,115 +691,6 @@ Acrobat DC — это полностью обновленная настольн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B360A6BE5EE9388B47ECFDE5560BDBE65D3167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513913   (221467) от 01.12.2021
-
-GoodNotes 5 v5.7.50 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
-Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBED805863D7AC9749C70EEFB4ADC999454BAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514030   (221462) от 01.12.2021
-
-goPanel 2 v2.9.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простота установки и менеджер Apache, PHP, MySQL, Mail Server и FTP.
-goPanel - наиболее интуитивное приложение для управления веб-серверами и является альтернативой существующему программному обеспечению, будет полезна если вы устанавливаете сервера на базе Unix  для веб-хостинга.
-Легко для того, чтобы установить и настроить Apache, PHP, MySQL, FTP, домены и Mail (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: Global Web SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F45D790F618ABC02D0F928287172319166858A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425444   (221461) от 20.11.2020
-
-Adobe After Effects 2020 v17.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
-
-Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11B1D1B3F3BE2F235A3BF090D4F61F664DC4C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513962   (221452) от 01.12.2021
-
-PDF Search + PDF Converter 11.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221452.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Search - это утилита, которая имеет революционный алгоритм поиска, специально разработанный для документов PDF. Время на получение информации в ваших документах PDF будет минимальным. Это позволит вам мгновенно найти то, что вы ищете в тысячах документов. Это система интегрирована. Вы можете начать поиск непосредственно из системного меню, например, Spotlight.Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: Muharrem OzkanПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A568F69E3454C9443ACE77960907FC52960E4D04
 ```
 
 https://mybot314.ru/tekegram_catalog/

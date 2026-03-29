@@ -1,3 +1,119 @@
+###  Публикация: 1343711   (215087) от 08.12.2019
+
+VA - Deepalma Presents: Most Loved 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Afro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karol XVII & MB Valence & Lazarusman – Whispers (07:04)
+02. Mika Olson – Drift Away (06:54)
+03. Arco – Touch the Sun (06:40)
+04. Scibi – Summertime | Extended Mix (07:56)(   Читать дальше...   )Жанр: Deep House, Tech House, Afro HouseПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A017AE1A7DFF104C5B11168277A4C0FA1BC3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586943   (214708) от 28.10.2022
+
+VA - FIVE (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aaron Lewis -  Horizon  (7:22)
+02.  Audioglider -  Hot Jupiters (Tripswitch Remix)  (9:38)
+03.  Benwaa -  Figure You Out (Daniel Klose Remix)  (8:24)
+04.  Blair Malott, Chuck Woodward -  So Far Gone  (7:26)(   Читать дальше...   )Жанр: Progressive House, Deep House, BreaksПродолжительность: 02:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085524   (214587) от 21.12.2016
+
+VA - Balkan Connection Winter 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit (Rick Pier O'Neil Remix) [07:21]
+02. Nicholas Van Orton - Noseaun (Michael & Levan and Stiven Rivic Remix) [09:42]
+03. Andre Sobota - Signal (Nicholas Van Orton Remix) [08:32]
+04. Dimuth K - Eternity (Original Mix) [08:07](   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 07:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0C09D5CDDFD3490DFACA6FF57FAFAEA2A872A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270345   (214350) от 18.12.2018
+
+DJ Lykov - The Greatest Hits (2017) Garage Recordings [FLAC|Lossless|WEB-DL|tracks] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Caring Me (4:58)
+ 02/10. I Can Live (4:35)
+ 03/10. Crash (5:20)
+ 04/10. Come On (1:10)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818EAD33071B3BA05D2208B785A89FB6DF08B770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344239   (213659) от 09.12.2019
 
 Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Trance, Dance>
@@ -6,7 +122,7 @@ Armin van Buuren - Balance (Extended Versions) (2019) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213659.jpg" />
+  <img src="Z:/picture/005/save_picture_213659.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza Winter Session 2026 (The House Hotties) (2025) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213484.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Beach Lounge Selected, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210982.jpg" />
+  <img src="Z:/picture/005/save_picture_210982.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Tensnake - Stimulate (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210495.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Tomcraft - 4 Альбома (2002 - 2007) [FLAC, APE|Lossless]<House, Electro, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210444.jpg" />
+  <img src="Z:/picture/005/save_picture_210444.jpg" />
 </div>
 
 
@@ -145,7 +261,7 @@ VA - 80s & 90s Remixed - The Dance HIT Workout (2023) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207151.jpg" />
+  <img src="Z:/picture/005/save_picture_207151.jpg" />
 </div>
 
 
@@ -174,7 +290,7 @@ Moby - Resound NYC (2023) [FLAC|Lossless|tracks + .cue] <Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206384.jpg" />
 </div>
 
 
@@ -203,7 +319,7 @@ VA - So you... (Mixed and compiled by Kaatee) (2022) [WavPack 2.0|48/32|image +.
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206130.jpg" />
+  <img src="Z:/picture/005/save_picture_206130.jpg" />
 </div>
 
 
@@ -232,7 +348,7 @@ VA - File Under: Trance (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205492.jpg" />
 </div>
 
 
@@ -261,7 +377,7 @@ DJ Dean and Victor F. - MSF - Multi Sound Format (The Dark Side) (2023) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205248.jpg" />
 </div>
 
 
@@ -290,7 +406,7 @@ The Exaltics - The 7th Planet (2023) [FLAC|Lossless|WEB-DL|tracks] <sci-fi elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204998.jpg" />
 </div>
 
 
@@ -319,7 +435,7 @@ VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 12
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204546.jpg" />
 </div>
 
 
@@ -348,7 +464,7 @@ VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203083.jpg" />
 </div>
 
 
@@ -377,7 +493,7 @@ VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202108.jpg" />
 </div>
 
 
@@ -406,7 +522,7 @@ Late Night Alumni - Silver (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dow
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201955.jpg" />
+  <img src="Z:/picture/005/save_picture_201955.jpg" />
 </div>
 
 
@@ -435,7 +551,7 @@ VA - Ibiza Closing 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201952.jpg" />
 </div>
 
 
@@ -464,7 +580,7 @@ VA - Chill Beach (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199899.jpg" />
 </div>
 
 
@@ -493,7 +609,7 @@ Vintage & Morelli - My Rose Enchanted Destiny (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199397.jpg" />
+  <img src="Z:/picture/005/save_picture_199397.jpg" />
 </div>
 
 
@@ -522,7 +638,7 @@ VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198705.jpg" />
 </div>
 
 
@@ -551,7 +667,7 @@ DJ Грув - ЯД (2007) [FLAC|1072 kbps]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197044.jpg" />
+  <img src="Z:/picture/004/save_picture_197044.jpg" />
 </div>
 
 
@@ -580,7 +696,7 @@ Jean-Michel Jarre & Nina Kraviz - Sex In The Machine Take 2 (2023) Single [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193887.jpg" />
 </div>
 
 
@@ -607,7 +723,7 @@ VA - Orientalia 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193591.jpg" />
 </div>
 
 
@@ -621,122 +737,6 @@ VA - Orientalia 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01107EA03CCE6EE5E4127AC1A06B8499F9B37523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828338   (193457) от 24.10.2025
-
-VA - Lounge Pool (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jayanth Ak - In My Mind (2:10)
-02. KMÖBA - Footprints (3:00)
-03. Kristianov - Let Me Go (4:31)
-04. Gorbunoff - Haunted (2:21)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72C0012CE2CBB8A9C6BB5280F4FA7690D28AE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587548   (192669) от 31.10.2022
-
-about : river - 24 Years Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Cats (7:00)
- 02. Frozen (5:16)
- 03. Snowing Inside (7:17)
- 04. Two Birds (5:22)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B8ABA9C8D2442F8F65114D2CEBAC6CDA85ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589202   (190631) от 08.11.2022
-
-VA - SkyTop Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep Lark, Makosh -  Sentimental Crying (Cosmonaut Dub)  (5:38)
-02.  QDream -  Ritual  (7:17)
-03.  Dowden -  Paladin  (7:00)
-04.  Envotion -  Aero  (7:37)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6FD4CC608864A83189B7E66291B7AC708A5CBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658870   (190545) от 10.09.2023
-
-VA - BPR Compilation Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Placebo & Maze 28 - Poema [6:45]
-02. Paul Cue - Urbana Fabula [8:28]
-03. Maze 28 & R10(Al) - Enlight [7:19]
-04. Rex Sol - Punk [7:19](   Читать дальше...   )Жанр: Minimal, Tech House, Progressive HouseПродолжительность: 02:03:14)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122DAAE6BFD35CC1690415AF7FF6727148675CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

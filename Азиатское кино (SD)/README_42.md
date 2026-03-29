@@ -1,3 +1,29 @@
+###  Публикация: 727305   (335314) от 26.11.2013
+
+Вирус (Грипп) / Gamgi / Flu (2013) HDTVRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из Гонконга в Южную Корею прибывает грузовой контейнер с нелегальными мигрантами. В городе-спутнике Сеула Соннам двое братьев-бандитов открывают его и обнаруживают груду мёртвых тел и одного выжившего, который немедленно сбегает. В это время спасатель пытается поближе познакомиться с симпатичной докторшей, которую он на днях вызволил из провалившейся машины, и случайно (   Читать дальше...   )Производство: Корея Южная / iLoveCinema, iFilm Co.Жанр: боевик, триллер, фантастикаРежиссер: Ким Сон-суАктеры: Чан Хёк, Суэ, Пак Мин-ха, Ю Хэ-джин, Ли Хи-джун, Ма Дон-сок, Ли Сан-ёп, Чха Ин-пхё, Ким Ги-хён, Пак Хё-джуПеревод: Двуголосый закадровый (DeadSno & den904)Субтитры: КорейскиеПродолжительность: 02:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7563F33267205FA51BD9F9194293AFCA773EBEF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726066   (335298) от 26.11.2013
 
 Мастер тай-цзи / Man of Tai Chi (2013) BDRip [H.264]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335298.jpg" />
+  <img src="Z:/picture/008/save_picture_335298.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334057.jpg" />
+  <img src="Z:/picture/008/save_picture_334057.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333946.jpg" />
+  <img src="Z:/picture/008/save_picture_333946.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333826.jpg" />
+  <img src="Z:/picture/008/save_picture_333826.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333348.jpg" />
+  <img src="Z:/picture/008/save_picture_333348.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333201.jpg" />
+  <img src="Z:/picture/008/save_picture_333201.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332539.jpg" />
+  <img src="Z:/picture/008/save_picture_332539.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332221.jpg" />
+  <img src="Z:/picture/008/save_picture_332221.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332014.jpg" />
+  <img src="Z:/picture/008/save_picture_332014.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330655.jpg" />
+  <img src="Z:/picture/008/save_picture_330655.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328874.jpg" />
+  <img src="Z:/picture/008/save_picture_328874.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328583.jpg" />
+  <img src="Z:/picture/008/save_picture_328583.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328154.jpg" />
+  <img src="Z:/picture/008/save_picture_328154.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327791.jpg" />
+  <img src="Z:/picture/008/save_picture_327791.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324349.jpg" />
+  <img src="Z:/picture/008/save_picture_324349.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324347.jpg" />
+  <img src="Z:/picture/008/save_picture_324347.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324211.jpg" />
+  <img src="Z:/picture/008/save_picture_324211.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323342.jpg" />
+  <img src="Z:/picture/008/save_picture_323342.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322356.jpg" />
+  <img src="Z:/picture/008/save_picture_322356.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322109.jpg" />
+  <img src="Z:/picture/008/save_picture_322109.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321937.jpg" />
+  <img src="Z:/picture/008/save_picture_321937.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318071.jpg" />
+  <img src="Z:/picture/008/save_picture_318071.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318058.jpg" />
+  <img src="Z:/picture/008/save_picture_318058.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317917.jpg" />
+  <img src="Z:/picture/008/save_picture_317917.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317556.jpg" />
+  <img src="Z:/picture/008/save_picture_317556.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BA6FE4F79012C5D5CC536DFB7D09D577D54FEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583094   (314230) от 13.10.2022
-
-Ты - моё сокровище / Naegen neomu sojunghan neo / My Lovely Angel (2021) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волей случая холостой мужчина, который думает только о деньгах, становится опекуном маленькой девочки с нарушениями слуха и зрения.Производство: Южная Корея, Fine StoryЖанр: драма, семейныйРежиссер: Квон Сон-мо, Ли Чхан-вонАктеры: Чин Гу, Чон Со-ён, Чан Юн-джон, Кан Щин-иль, Чан Хе-джин, О Юн-су, Чан Сон-юль, Ким Джон-гу, Пан Ын-джонПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, корейскийСубтитры: отсутствуютПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EC033849678CABC5C7B6F1040EA8EB35C2314E
 ```
 
 https://mybot314.ru/tekegram_catalog/

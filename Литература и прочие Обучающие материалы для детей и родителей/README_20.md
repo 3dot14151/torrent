@@ -1,3 +1,135 @@
+###  Публикация: 1447275   (1032093) от 12.02.2021
+
+Н.А. Балдина, В.А. Дыгало, А.В. Золотов и др. | Детская энциклопедия техники (2012) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из этой книги ты узнаешь много интересного о самых разных машинах: военных и мирных, огромных и совсем маленьких, появившихся совсем недавно или много веков назад. Океанские лайнеры, скоростные автомобили, тяжелые танки, сверхзвуковые самолеты — все это мир техники. Наша энциклопедия станет путеводителем по нему.Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7164998D885CE55C8FF3CADFEFFA370FC82B4B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447284   (1032078) от 12.02.2021
+
+Владимир Малов, Сергей Альтшулер | 100 тысяч вопросов и ответов. 100 тысяч почему (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032078.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге "100 тысяч почему" найдутся ответы на вопросы любого почемучки. Ведь познавая мир, дети задают тысячи и тысячи всевозможных "почему". Почему светят звёзды? Почему мы зеваем? Почему снег скрипит под ногами? Почему мы дрожим от холода? Ответы на эти и множество других вопросов найдутся на страницах данной книги, ведь каждая её страница - (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2937EC6BADCB687C804BED1A8BD35C7112D6F05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465295   (1032031) от 12.02.2021
+
+Наталья Крупенская | Поделки из помпончиков (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все вы видели или даже носите на своих шапочках и шарфиках круглые пушистые помпончики. А вы знаете, что из таких забавных шариков можно придумать и сделать самые разные и удивительные поделки для себя и своих друзей? Все поделки, которые представлены в книге, изготавливаются из пряжи для вязания, но при этом совершенно не обязательно уметь вязать. Помпончики можно (   Читать дальше...   )Жанр: Поделки своими рукамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328E3C147967611C8B38ACD2B267550E8AFDE1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535221   (1031979) от 12.02.2021
+
+С. Маршак, А. Барто, С. Михалков и др. | 100 любимых стихов малышей (2010) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031979.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны самые лучшие, самые любимые стихи для малышей.
+Стоит только один раз прочитать эти чудесные стихи малышам вслух, и они запомнят полюбившиеся строчки на всю жизнь. Поэтому такие стихи считают классическими, хрестоматийными. Без них не обходится ни один праздник - ни день рождения, ни новогодняя ёлка, ни утренник в детском саду.
+В книге 100 таких (   Читать дальше...   )Жанр: стихиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E827532EA0277EEF5FCCABB16DA94AD5DFFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461986   (1031969) от 12.02.2021
+
+З. Марина | Техническое моделирование (1997) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии «От простого к сложному». В ней рассказано о самоделках, которые могут смастерить ребята разного возраста. Отличительная особенность включенных в книгу моделей игрушек состоит в том, что все они двигаются. Прочитав эту книгу, Вы сможете сделать своими руками модели самолетов, планеров, пароходов, машинок...Жанр: Детское творчествоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC53CF1E4B91877EF9FB5FD80B7C7DA38B0CA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 267041   (1031962) от 12.02.2021
 
 Эрвин Брехер | Нестандартные логические головоломки (2007) [DJVU]
@@ -6,7 +138,7 @@
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031962.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031930.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031927.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031926.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031924.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031923.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031920.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031918.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031913.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031912.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031884.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031883.jpg" />
 </div>
 
 
@@ -329,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031872.jpg" />
 </div>
 
 
@@ -356,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031856.jpg" />
 </div>
 
 
@@ -383,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031855.jpg" />
 </div>
 
 
@@ -411,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031840.jpg" />
 </div>
 
 
@@ -437,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031796.jpg" />
 </div>
 
 
@@ -463,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031795.jpg" />
 </div>
 
 
@@ -490,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031783.jpg" />
 </div>
 
 
@@ -518,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031760.jpg" />
 </div>
 
 
@@ -544,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031734.jpg" />
 </div>
 
 
@@ -557,140 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:240A5663D33AF96B4B8B38D26FAD0CCA46D2801D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463148   (1031731) от 13.02.2021
-
-CANON | 3D Цветочный букет. Модель из бумаги (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объемный букет цветов, модель для сборки от компании Canon. - отличная идея для оформления детского сада к 8 марта или просто так - все что потребуется, это скачать, распечатать и собрать! Есть все инструкции. Инструкция на английском языке, всё интуитивно понятно.Жанр: Поделки своими рукамиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7BF012936697EFA183B564B85AC85BEF38D51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460321   (1031727) от 13.02.2021
-
-Т. Халл | Самоделки из бумаги. 50 моделей Роберта Нила (1995) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031727.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге доступно рассказывается, как самим сделать разнообразные модели и композиции из бумаги.
-Техника изготовления поделок из бумаги - оригами - сегодня очень популярна во всём мире одинаково среди детей и взрослых.Жанр: Учебная литература, оригамиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFA7366FDCBEEA4864F3CECC57D106F7A505D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862071   (1031709) от 13.02.2021
-
-Книжная серия | Великие полководцы России [20 книг] (2014-2015) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031709.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: В преддверии 70-летнего юбилея Победы «Российское военно-историческое общество» совместно с издательством «Комсомольская правда» подготовили уникальную книжную серию «Великие полководцы России». На страницах 20 томов читателям расскажут о 100 выдающихся отечественных военных лидерах, начиная от князя Олега и заканчивая маршалом Жуковым. Здесь – сражения (   Читать дальше...   )Жанр: Военная история в лицахФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C3B9130EED9D39982D1A712709E35058254217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447738   (1031689) от 14.02.2021
-
-Алла Озорнина | Ты – в игре! и другие ужасные истории (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу известной писательницы Аллы Озорниной «Ты – в игре! и другие ужасные истории» вошли две повести: «Страшная тайна смартфона» и «Ты – в игре!». Никита живет самой обычной жизнью в поселке Березовка в Забайкалье. Он самый неприметный мальчишка в классе, про него даже не сплетничают. Этим Никита и гордится. Однажды у него оказывается странный смартфон со встроенной (   Читать дальше...   )Жанр: Повести и рассказы, Мистика, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00349D0287B4427AA6B86A81F08332BB5AABFC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447735   (1031685) от 14.02.2021
-
-Андрей Мерников | Всё самое интересное. Все самые интересные вопросы для самых любознательных (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители, ведь это правда, что вы каждый день сталкиваетесь со множеством вопросов, которые задает
-ваш любознательный ребенок? Ему всё интересно и обо всем сразу хочется узнать.
-
-Вам наверняка порой сложно объяснить малышу, да и времени не всегда хватает, так как эти вопросы бесконечны. Не огорчайтесь — теперь всё будет намного проще! Мы предлагаем вам книгу, в которой (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A7E52ACB9603117D3C95478B4FF5BD1A3A7171
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,175 @@
+###  Публикация: 247928   (50106) от 14.07.2024
+
+Electric Light Orchestra - The Early Years (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск выпущен к 40-летию Группы. Создан из трех прекрасных концертов Группы: 1973 года в Brunel University, Великобритания; 1974 года в Германии, TV's Rockpalast и отрывки тура "Face Music" в New Victoria Theatre, Лондон, 1976 года. Поклонникам - MUST HAVE!Brunel University 1973
+01. King of the Universe
+02. Ma-Ma-Ma Belle
+03. In The Hall Of The Mountain King(   Читать дальше...   )Жанр: Rock / Art Rock / Rock'n'RollПеревод: ОригинальныйПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A83A30589B74DC0A30E4E911861C74C06C0071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 82185   (50101) от 14.07.2024
+
+Electric Light Orchestra - ZOOM - Tour Live (2001) [DVD9]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50101.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении 35 лет по всему миру музыка ELO также популярна как музыка The Beatles, The Rolling Stones, The Who…
+
+Группа, созданная легендарным Джеффом Линном в 1971 году, достигшая своего всемирного успеха к середине семидесятых, положившая начало такому странному гибриду рок-музыки, как симфо-рок, вобравшая в себя развеселую ритмичность диско и смикшировавшая (   Читать дальше...   )1. PROGRAM START; DO YA
+2. EVIL WOMAN
+3. SHOWDOWN
+4. STRANGE MAGIC(   Читать дальше...   )Жанр: Sympho Rock, Progressive RockРежиссер: Lawrence JordanПеревод: ОригинальныйПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C631A9CBE5D3B65A942AC35196894E888C391A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441751   (50090) от 14.07.2024
+
+Обнаженная со скрипкой / Московский театр Сатиры (1959) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля Московского театра Сатиры.
+По одноименной комедии английского писателя Н. Кауарда.
+
+Англия. 1950-е годы. Умер знаменитый художник Поль Сородэн. Его слуга Себастьян, которому Поль доверял, раскрывает перед родными и близкими умершего тайну: все картины Сородэна были написаны его любовницами и четырнадцатилетним сыном Себастьяна. По словам слуги, (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Валентин ПлучекПродолжительность: 01:48:50
+
+Качество видео: нешибкое
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96866C366DBC8214834E24A61B0365183FE490ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497343   (50083) от 14.07.2024
+
+Псих (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психушка… Это слово вызывает у кого-то смех, у кого-то — ужас, для некоторых это источник анекдотов, для других — вечное порождение зла. В спектакле «Псих» — одном из самых успешных спектаклей театра п/р О. Табакова — есть место и высокой трагедии, и настоящей комедии. Авторам спектакля хватает вкуса и смелости находить даже в человеческих драмах оттенок иронии и (   Читать дальше...   )Жанр: Спектакль, трагикомедияРежиссер: Андрей ЖитинкинВ ролях: Александр - Сергей Безруков, Лина Дмитриевна - Евдокия Германова, Анна Ивановна - Ольга Блок-Миримская, Венька - Дмитрий Бродецкий, Валерка - Игорь Петров, Ольга - Марина Салакова, Терпсихора Афанасьевна - Людмила Уланова, Ира - Дарья Калмыкова, Игорь - Петр Кислов, Леська - Галина Чурилова, Брат Боря - Павел Ильин, Никита - Денис Никифоров, Таня - Юлия Полынская, (   Читать дальше...   )Продолжительность: 02:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285D28E2D0DF770F33DEE9C2FC9A9A1782B42EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 87106   (50076) от 14.07.2024
+
+Оскар и Розовая дама / (2007) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моноспектакль Алисы Фрейндлих на основе одноименного произведения Эрика-Эмануэля Шмитта.Жанр: МоноспектакльРежиссер: Владислав ПазиАктеры: Алиса ФрейндлихПродолжительность: 02:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B554C10A237728AF5FC8AD5A2B5E1683B81D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 443315   (50075) от 14.07.2024
+
+Признания авантюриста Феликса Круля / Театр п/р О.Табакова (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50075.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного незавершенного романа Томаса Манна.
+
+История Феликса Круля — это история метаморфоз, которые могут произойти с человеком, попавшим в определенные обстоятельства. Темное время начала XX века порождало своих чудовищ…
+(   Читать дальше...   )Жанр: драма, спектакльРежиссер: Андрей ЖитинкинПродолжительность: 01:38:16 + 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A06C84217806DBDBD4B457E8BA9503B00EECB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 91736   (50072) от 14.07.2024
 
 От и до (1976) TVRip
@@ -6,7 +178,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50072.jpg" />
 </div>
 
 
@@ -32,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50069.jpg" />
 </div>
 
 
@@ -58,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50067.jpg" />
 </div>
 
 
@@ -84,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50062.jpg" />
 </div>
 
 
@@ -111,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50059.jpg" />
 </div>
 
 
@@ -140,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50058.jpg" />
 </div>
 
 
@@ -168,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50055.jpg" />
 </div>
 
 
@@ -194,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50048.jpg" />
 </div>
 
 
@@ -221,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50044.jpg" />
 </div>
 
 
@@ -247,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50036.jpg" />
 </div>
 
 
@@ -276,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50035.jpg" />
 </div>
 
 
@@ -303,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50001.jpg" />
 </div>
 
 
@@ -330,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50000.jpg" />
 </div>
 
 
@@ -359,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49986.jpg" />
 </div>
 
 
@@ -385,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49981.jpg" />
 </div>
 
 
@@ -416,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49980.jpg" />
 </div>
 
 
@@ -443,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49979.jpg" />
 </div>
 
 
@@ -470,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49969.jpg" />
 </div>
 
 
@@ -498,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49955.jpg" />
 </div>
 
 
@@ -524,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49946.jpg" />
 </div>
 
 
@@ -536,169 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5189E5D559D364E7EE8E4D2A27890075F333B183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942540   (49906) от 16.07.2024
-
-Смерть Тарелкина (1983) VHSRip (2 части) (Большой драматический театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49906.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Смерть Тарелкина" считается одной из самых странных и загадочных пьес русской драматургии. Написав ее, Сухово-Кобылин навсегда оставил литературу и скрылся от мира. В этой пьесе происходят удивительные, мистические и фантастические вещи. Ну а сюжет пьесы вроде прост: средней руки чиновник Тарелкин решает умереть понарошку, всех обмануть, чтобы кончить (   Читать дальше...   )Производство: СССР, ТО Мир искусстваЖанр: Телеспектакль, опера, экранизацияРежиссер: Георгий Товстоногов, Владимир ВоробьёвАктеры: Валерий Ивченко, Михаил Волков, Николай Трофимов, Валентина Ковель, Елена Алексеева, Тамара Коновалова, Тамара Лебедева, Ирина Комарова, Юрий Стоянов, Валерий Матвеев, Геннадий Богачёв, Леонид НеведомскийПродолжительность: 2 х ~ 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B13E9D8D4C128046879638D81783701C71B8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440112   (49877) от 16.07.2024
-
-Старинный детектив (1982) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная редакция литературно-драматических программ ЦТ.
-По мотивам рассказов Эдгара По "Похищенное письмо" и Чарльза Диккенса "Пойман с поличным".
-
-Наблюдательность, умение логически мыслить, интуиция - все эти качества помогли главным героям раскрыть запутанные дела.Жанр: детектив, спектакльРежиссер: Павел РезниковПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEC9AF557C6BD4BD17BBD005495CBA85A6DB1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309434   (49876) от 16.07.2024
-
-Heaven & Hell - Neon Nights: 30 Years of Heaven & Hell - Live in Europe (2009) (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49876.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2010г. на Eagle Rock состоялся выход нового релиза HEAVEN & HELL "Neon Nights", в который вошло историческое выступление на фестивале Wacken Open Air.В этот жаркий день Ronnie James Dio, Tony Iommi, Geezer Butler и Vinny Appice провели на сцене больше, чем обычный концептуальный металл-концерт. Сила и убедительность вокала Dio, которая воспитала (   Читать дальше...   )Производство: ВеликобританияЖанр: Hard 'n' HeavyСубтитры: Интервью с участниками группы переведено - русскими субтитрамиФормат: DVD9Качество: DVDПродолжительность: 01:27:28 + бонус
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DAF9CE3039375907DCA8698804A7368BADD398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 320334   (49867) от 16.07.2024
-
-Стакан воды (1957) SATRip (Малый Театр)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-спектакль, историческая комедия по одноименной комедии Эжена Скриба.
-Экранизация спектакля, поставленного Малым театром.
-
-Действие происходит в 1714 году в лондонском королевском дворце Сент-Джемс. Герцогиня Мальборо, фаворитка безвольной королевы, умело правит государством. Ее политический противник бывший министр лорд Болингброк, мечтая восстановить свое (   Читать дальше...   )Жанр: ТелеспектакльРежиссер: А. УсольцевВ ролях: Татьяна Еремеева, Елена Гоголева, Евгений Велихов, Николай Афанасьев, Лилия Юдина, В. Вилль, О. Федоровский.Формат: AVIПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B62E766D965D93C34409B9C9282F67FA299E488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049331   (49852) от 16.07.2024
-
-Страх и отчаяние в Третьей Империи (1965) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антифашистский цикл, состоящий из множества коротких сцен под общим названием «Страх и нищета в Третьей империи» Бертольд Брехт написал в 1938 году, будучи беглецом, личным врагом Гитлера. Спектакль «Страх и нищета…» был впервые поставлен в Париже, - правда, на немецком языке, - для эмигрантов. Можно, не преувеличивая, сказать, что пьеса Брехта потрясла Европу. Фашизм (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, ВоенныйРежиссер: Давид КарасикАктеры: Эммануил Виторган, Олег Басилашвили, Михаил Волков, Галина Демидова, Лев Лемке, Ефим Копелян, Владислав Стржельчик, Зинаида ШаркоПеревод: ОтсутствуетПродолжительность: 02:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6959E4338B5356A511E18C9596D6EECA83B1096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542454   (49827) от 16.07.2024
-
-Супруги Каренины (2010) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль по мотивам романа Л.Н. Толстого "Анна Каренина".
-Исключительно тонкая история, рассказывающая о непростых отношениях супругов Карениных. Cпектакль был поставлен вне стен БДТ в 1994 году по инсценировке Розы Абрамовны Сироты, которая долгие годы была помощницей Г.А.Товстоногова. Её замечательная трактовка толстовской "Анны Карениной" (   Читать дальше...   )Жанр: Спектакль, драмаРежиссер: Роза СиротаАктеры: Людмила Чурсина, Изиль ЗаблудовскийПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2772A161C199C39BD666D8B61F5B12A453578BF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

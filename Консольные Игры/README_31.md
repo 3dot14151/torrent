@@ -6,7 +6,7 @@ Motionsports Adrenaline (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562361.jpg" />
+  <img src="Z:/picture/008/save_picture_562361.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Front Mission Evolved (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562357.jpg" />
+  <img src="Z:/picture/008/save_picture_562357.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Star Wars: The Force Unleashed II (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562287.jpg" />
+  <img src="Z:/picture/008/save_picture_562287.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Sorcery / Чародей (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562282.jpg" />
+  <img src="Z:/picture/008/save_picture_562282.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FIFA 21 Mod (2020) [PS3] [EUR] 4.82 [HEN] [Cobra ODE / E3 ODE PRO ISO] [Repack] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561127.jpg" />
+  <img src="Z:/picture/008/save_picture_561127.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DOOM 3 BFG Edition (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560762.jpg" />
+  <img src="Z:/picture/008/save_picture_560762.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Star Wars: The Force Unleashed - Ultimate Sith Edition (2009) [PS3] [USA] 2.76 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558530.jpg" />
+  <img src="Z:/picture/008/save_picture_558530.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Spec Ops: The Line (2012) [PS3] [USA] 4.11 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557230.jpg" />
+  <img src="Z:/picture/008/save_picture_557230.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Ghost Master: The Gravenville Chronicles (2004) [Xbox] [RegionFree] Freeboot [Li
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555978.jpg" />
+  <img src="Z:/picture/008/save_picture_555978.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Mario Kart Wii (2008) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555728.jpg" />
+  <img src="Z:/picture/008/save_picture_555728.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Fragile Dreams: Farewell Ruins of the Moon (2010) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555630.jpg" />
+  <img src="Z:/picture/008/save_picture_555630.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Cursed Mountain (2009) [Wii] [PAL] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555405.jpg" />
+  <img src="Z:/picture/008/save_picture_555405.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ HELLDIVERS (2015) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO / PKG] [Rep
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555278.jpg" />
+  <img src="Z:/picture/008/save_picture_555278.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Resident Evil Archives: Resident Evil (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555126.jpg" />
+  <img src="Z:/picture/008/save_picture_555126.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Resident Evil Archives: Resident Evil Zero (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554950.jpg" />
+  <img src="Z:/picture/008/save_picture_554950.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Command & Conquer 3: Kane's Wrath [rus] [PAL] (2008) [xbox 360]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551005.jpg" />
+  <img src="Z:/picture/008/save_picture_551005.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ SteamWorld Heist (2016) [PSVita] [USA] 3.60 [NoNpDrm] [License / DLC] [Ru/Multi]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548304.jpg" />
+  <img src="Z:/picture/008/save_picture_548304.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Ziggurat (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547183.jpg" />
+  <img src="Z:/picture/008/save_picture_547183.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wii Fit U (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547145.jpg" />
+  <img src="Z:/picture/008/save_picture_547145.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Just Dance Wii U (2014) [WiiU] [JPN] 5.3.2 [Loadiine GX2] [License] [Jap]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547104.jpg" />
+  <img src="Z:/picture/008/save_picture_547104.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TerRover (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545463.jpg" />
+  <img src="Z:/picture/008/save_picture_545463.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Oddworld: Stranger’s Wrath HD (2011) [PSVita] [EUR] 3.60 [HENkaku] [License] [
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545407.jpg" />
+  <img src="Z:/picture/008/save_picture_545407.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ ELEX (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542574.jpg" />
+  <img src="Z:/picture/008/save_picture_542574.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dying Light: The Following (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542569.jpg" />
+  <img src="Z:/picture/008/save_picture_542569.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Bloodstained: Ritual of the Night (2019) [PS4] [USA] 5.05 [HEN] [License / 1.31]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542568.jpg" />
+  <img src="Z:/picture/008/save_picture_542568.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Just Dance 2: Best Buy Edition [Wii] [NTSC] [Eng] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542188.jpg" />
+  <img src="Z:/picture/008/save_picture_542188.jpg" />
 </div>
 
 

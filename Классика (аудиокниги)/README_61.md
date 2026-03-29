@@ -1,3 +1,113 @@
+###  Публикация: 1689952   (124344) от 04.01.2024
+
+Уильям Шекспир | Конец - делу венец (2018) [MP3, Герман Энтин, Алексей Шейнин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда». Редкие Записи.
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения.
+Пьеса «Конец – делу венец»  («Всё хорошо, что хорошо кончается») – комедия Уильяма Шекспира, предположительно была написана между 1601 и 1608 годами. Комедия была впервые напечатана в Первом фолио (1623). Хотя пьеса впрямую не упоминалась (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: ГостелерадиофондПродолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F710C039B7138DB448F85D7A6304C85EF18ADD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689745   (124342) от 04.01.2024
+
+Уильям Шекспир | Комедия ошибок. Много шума из ничего (2006) [MP3, Владимир Ровинский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+«Комедия ошибок» (1591) – одна из первых и самых известных комедий великого (   Читать дальше...   )Жанр: Зарубежная литература, классика, сатира, юмор, поэзияИздательство: БиблиофоникаПродолжительность: 05:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC110133C47C269B5FA35DEDDF7BC41EDFA7BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689943   (124340) от 04.01.2024
+
+Уильям Шекспир | Трагедии. Комедии (2008) [MP3, Родион Приходько]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Творчество Шекспира (1564–1616) – вершина литературы эпохи Возрождения. Нет ничего удивительного в том, что в наше время его пьесы не сходят с подмостков театров мира. Великий драматург говорил о вечном и неизменном, о человеке, поэтому он всегда современен и востребован.
+«Школьная библиотека» представляет вам творения величайшего (   Читать дальше...   )Жанр: Зарубежная литература, классика, поэзия, трагедия, комедияИздательство: АудиокнигаПродолжительность: 07:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4684FA5C39D5DB1A0C5E6C9D7723BA09920A0109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689754   (124339) от 04.01.2024
+
+Уильям Шекспир | Сон в летнюю ночь (2014) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
+«Сон в летнюю ночь» – самая фантастическая комедия Шекспира, где происходят (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедияИздательство: Вира-М, ЛаринПродолжительность: 02:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36C33F892246469F23DF774A827647E3BE21064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689833   (124333) от 04.01.2024
 
 Константин Паустовский | Блистающие облака (2013) [MP3, Ольга Аветисова]
@@ -6,7 +116,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124333.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124332.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124279.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124274.jpg" />
 </div>
 
 
@@ -119,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124247.jpg" />
 </div>
 
 
@@ -146,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124234.jpg" />
 </div>
 
 
@@ -174,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124179.jpg" />
 </div>
 
 
@@ -201,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124106.jpg" />
 </div>
 
 
@@ -227,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124103.jpg" />
 </div>
 
 
@@ -256,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124045.jpg" />
 </div>
 
 
@@ -283,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124041.jpg" />
 </div>
 
 
@@ -310,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124036.jpg" />
 </div>
 
 
@@ -337,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124035.jpg" />
 </div>
 
 
@@ -365,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124027.jpg" />
 </div>
 
 
@@ -392,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124004.jpg" />
 </div>
 
 
@@ -419,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124003.jpg" />
 </div>
 
 
@@ -445,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124002.jpg" />
 </div>
 
 
@@ -473,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124000.jpg" />
 </div>
 
 
@@ -499,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123995.jpg" />
 </div>
 
 
@@ -525,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123993.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123990.jpg" />
 </div>
 
 
@@ -578,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123971.jpg" />
 </div>
 
 
@@ -591,117 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6A8F29CE9CBCEBD6A5333D44AAAB8AB67F0DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690559   (123922) от 07.01.2024
-
-Ги де Мопассан | Заведение Телье. Сборник новелл (2022) [MP3, Наталья Потопальская]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
-В своих произведениях Мопассан воспевает любовь и силу человеческого духа, рассказывает о трагедии одиночества и неразделенных чувств, осуждает корыстолюбие, лицемерие и предательство.
-Одним субботним вечером посетители обнаружили местный публичный дом закрытым. (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 06:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AD7FDBD6947511F174B531A18CB9CFE91118B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690550   (123921) от 07.01.2024
-
-Ги де Мопассан | Рассказы вальдшнепа (2022) [MP3, Наталья Первина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
-
-«Едва ли был другой такой писатель, столь искренно считавший, что все благо, весь смысл жизни – в женщине, в любви… и едва ли был когда-нибудь писатель, который до такой ясности и точности показал все ужасные стороны того самого явления, которое казалось ему самым (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 04:22:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690482   (123917) от 07.01.2024
-
-Ги де Мопассан | Милый друг (2003) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века.
-«Милый друг» – роман-памфлет, показывающий неприглядную кухню политики и журналистики в Третьей Республике. И это роман об «антилюбви», ибо его герой Жорж Дюруа, наглый и ловкий делец, строит свою карьеру почти исключительно на расчетливых (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 14:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690561   (123916) от 07.01.2024
-
-Ги де Мопассан | Парижское приключение (2017) [MP3, Александр Бордуков, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена (Французская литература).
-Классическая художественная литература Франции богата и красочна. Она широко охватывает французскую социальную жизнь, историю, быт, нравы и психологию человека различных общественных слоев, придвигая к нашему взору бедность и богатство, роскошь и убожество, город и деревню. Она с любовью рисует лик всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 07:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835845.jpg" />
+  <img src="Z:/picture/008/save_picture_835845.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835837.jpg" />
+  <img src="Z:/picture/008/save_picture_835837.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MKVToolNix 46.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835822.jpg" />
+  <img src="Z:/picture/008/save_picture_835822.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tixati 2.73 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835817.jpg" />
+  <img src="Z:/picture/008/save_picture_835817.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Comedy Баттл. Новый сезон (01.05.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835811.jpg" />
+  <img src="Z:/picture/008/save_picture_835811.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835800.jpg" />
+  <img src="Z:/picture/009/save_picture_835800.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835793.jpg" />
+  <img src="Z:/picture/008/save_picture_835793.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835785.jpg" />
+  <img src="Z:/picture/009/save_picture_835785.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Windows 10 Insider Preview 10.0.14316 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835781.jpg" />
+  <img src="Z:/picture/008/save_picture_835781.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835779.jpg" />
+  <img src="Z:/picture/008/save_picture_835779.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ KMSAuto Net 2016 1.4.9 DC 11.03.2017 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835752.jpg" />
+  <img src="Z:/picture/008/save_picture_835752.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ KMS Tools Portable 11.03.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835749.jpg" />
+  <img src="Z:/picture/008/save_picture_835749.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835727.jpg" />
+  <img src="Z:/picture/008/save_picture_835727.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835708.jpg" />
+  <img src="Z:/picture/008/save_picture_835708.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Psiphon 3 build 154 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835696.jpg" />
+  <img src="Z:/picture/008/save_picture_835696.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Alien Skin Exposure X5 Bundle 5.2.2.237 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835695.jpg" />
+  <img src="Z:/picture/008/save_picture_835695.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835691.jpg" />
+  <img src="Z:/picture/008/save_picture_835691.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835688.jpg" />
+  <img src="Z:/picture/008/save_picture_835688.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835631.jpg" />
+  <img src="Z:/picture/008/save_picture_835631.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835623.jpg" />
+  <img src="Z:/picture/008/save_picture_835623.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835621.jpg" />
+  <img src="Z:/picture/008/save_picture_835621.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ lynda.com |  iMovie '11 Essential Training -   iMovie '11 Основной ку�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835598.jpg" />
+  <img src="Z:/picture/008/save_picture_835598.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835533.jpg" />
+  <img src="Z:/picture/008/save_picture_835533.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AAct Network 1.1.8 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835522.jpg" />
+  <img src="Z:/picture/008/save_picture_835522.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835471.jpg" />
+  <img src="Z:/picture/008/save_picture_835471.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835394.jpg" />
+  <img src="Z:/picture/008/save_picture_835394.jpg" />
 </div>
 
 

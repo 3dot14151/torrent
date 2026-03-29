@@ -1,3 +1,119 @@
+###  Публикация: 1511477   (245785) от 21.11.2021
+
+John Di Martino's Romantic Jazz Trio - So In Love (2010) Venus Records [FLAC|Lossless|image + .cue] <Post Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softy As in Morningsunrise [6:12]
+02. Michelle [3:42]
+03. Vesti La Giubba [2:33]
+04. Lamento Borincano [6:16](   Читать дальше...   )Жанр: Post Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318A2BFA63D2404CBF005F446799FC54B81B2E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623779   (245727) от 03.04.2023
+
+Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonjour mon amour  [02:35]
+02. Acrecran  [03:30]
+03. Un grain de sable  [03:56]
+04. Bizarre  [04:28](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADED245117BE576B519D02970ADD7FCB4D7DBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448712   (245719) от 18.02.2021
+
+The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue] <Funk, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reach Out (4:06)
+02. New York (5:16)
+03. Hollywood (3:44)
+04. Diggin' Deep (3:25)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAC79600AE7BF4E7321DB3F72BB354026BDBAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058507   (245707) от 01.10.2016
+
+David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yesterday [04:05]
+ 02.And I Love Her [05:47]
+ 03.The Thirteenth Floor [05:57]
+ 04.Ain't That Good News [03:47](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5B3DFFEA6AF288B1B7D7BBD90AD77A65CD5F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608406   (245677) от 30.01.2023
 
 The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
@@ -6,7 +122,7 @@ The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245677.jpg" />
+  <img src="Z:/picture/004/save_picture_245677.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245636.jpg" />
+  <img src="Z:/picture/004/save_picture_245636.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245621.jpg" />
+  <img src="Z:/picture/004/save_picture_245621.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245560.jpg" />
+  <img src="Z:/picture/004/save_picture_245560.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245500.jpg" />
+  <img src="Z:/picture/004/save_picture_245500.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245471.jpg" />
+  <img src="Z:/picture/004/save_picture_245471.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245437.jpg" />
+  <img src="Z:/picture/004/save_picture_245437.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tania Maria - It's Only Love (2007) 2010, BHM[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245346.jpg" />
+  <img src="Z:/picture/004/save_picture_245346.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245327.jpg" />
+  <img src="Z:/picture/004/save_picture_245327.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245277.jpg" />
+  <img src="Z:/picture/004/save_picture_245277.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Duke Ellington & His Famous Orchestra - Happy-Go-Lucky Local (1946) 1992, Musicr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245252.jpg" />
+  <img src="Z:/picture/004/save_picture_245252.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245219.jpg" />
+  <img src="Z:/picture/004/save_picture_245219.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245211.jpg" />
+  <img src="Z:/picture/004/save_picture_245211.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Billie Holiday - BD Jazz (1937 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245119.jpg" />
+  <img src="Z:/picture/004/save_picture_245119.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Katie Melua - Love & Money (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245094.jpg" />
+  <img src="Z:/picture/004/save_picture_245094.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Hank Jones - Ain't Misbehavin' (1978) 1999, Original Jazz Classics [WavPack|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245093.jpg" />
+  <img src="Z:/picture/004/save_picture_245093.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Dave Douglas - Dark Territory (2016) Greenleaf Music[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245075.jpg" />
+  <img src="Z:/picture/004/save_picture_245075.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Manuel Rocheman - misTeRIO (2016) Bonsai Music[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245053.jpg" />
+  <img src="Z:/picture/004/save_picture_245053.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Fred Hersch - plays Jobim (2009) Sunnyside Communications[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245045.jpg" />
+  <img src="Z:/picture/004/save_picture_245045.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Neil Cowley Trio - Spacebound Apes (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245000.jpg" />
+  <img src="Z:/picture/004/save_picture_245000.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bunny Berigan And His Orchestra - 1937 (1994) Classics [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244946.jpg" />
+  <img src="Z:/picture/004/save_picture_244946.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ George Cables - Looking For The Light (2003) MuseFX Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244936.jpg" />
+  <img src="Z:/picture/004/save_picture_244936.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ George Cables - Looking For The Light (2003) MuseFX Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C305598BB302C821994C79D1BEF3602A1F357134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267189   (244928) от 05.12.2018
-
-George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5 Will Get Ya 10 [6:07]
-02. Blackfoot [5:20]
-03. S.F.C.B [5:07]
-04. Secrets of Love [6:33](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7AFAF382112FA002E647CE0F603ED44101CDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267181   (244908) от 05.12.2018
-
-Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' At The Woodside [3:03]
-02. Louisiana [2:27]
-03. Katy [2:57]
-04. Broadway [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60BCF1DAFCB13E3DE6BA407877F5DB6A19A7CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266984   (244899) от 05.12.2018
-
-Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make A List (Make A Wish) [24:40]
-02. Everything Happens To Me [8:36]
-03. Arthur's Blues [10:27]Жанр: Post-BopПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FD68F794A7BFD80DEB54A889F4736848C7549E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529378   (244815) от 06.02.2022
-
-Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mooche [16:05]
-02. Con Alma [12:11]
-03. Willow Weep for Me [4:19]
-04. Oops-Shoo-Be-Doo-Be [3:55](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B303A8832823334B957AE63DCE63AEDEBB3267
 ```
 
 https://mybot314.ru/tekegram_catalog/

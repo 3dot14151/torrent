@@ -6,7 +6,7 @@ Hard Link Shell Extension 3.9.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854695.jpg" />
+  <img src="Z:/picture/008/save_picture_854695.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 45 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854694.jpg" />
+  <img src="Z:/picture/008/save_picture_854694.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ JetBrains RubyMine 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854689.jpg" />
+  <img src="Z:/picture/008/save_picture_854689.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kerish Doctor 2020 4.80 DC 15.04.2020 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854585.jpg" />
+  <img src="Z:/picture/008/save_picture_854585.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kaspersky Small Office Security 7 20.0.14.1085 (j) (SharewareOnSale) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854481.jpg" />
+  <img src="Z:/picture/008/save_picture_854481.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ JetBrains Rider 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854478.jpg" />
+  <img src="Z:/picture/008/save_picture_854478.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ JetBrains CLion 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854477.jpg" />
+  <img src="Z:/picture/008/save_picture_854477.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ JetBrains GoLand 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854475.jpg" />
+  <img src="Z:/picture/008/save_picture_854475.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ JetBrains DataGrip 2020.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854473.jpg" />
+  <img src="Z:/picture/008/save_picture_854473.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Open Server 5.3.7 (Базовый, Полный) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854459.jpg" />
+  <img src="Z:/picture/008/save_picture_854459.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Vivaldi 4.2.2406.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854412.jpg" />
+  <img src="Z:/picture/008/save_picture_854412.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AIR Music Technology - Hybrid 3.0.10 VSTi, AAX (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854406.jpg" />
+  <img src="Z:/picture/008/save_picture_854406.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ PDF24 Creator 10.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854404.jpg" />
+  <img src="Z:/picture/008/save_picture_854404.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Baby Audio - TAIP 1.0.0 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854402.jpg" />
+  <img src="Z:/picture/008/save_picture_854402.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Process Audio - Sugar 1.2.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854294.jpg" />
+  <img src="Z:/picture/008/save_picture_854294.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Wise Disk Cleaner 10.6.2.798 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854290.jpg" />
+  <img src="Z:/picture/008/save_picture_854290.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Mozilla Thunderbird 91.1.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854288.jpg" />
+  <img src="Z:/picture/008/save_picture_854288.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Wavesfactory - TrackSpacer 2.5.9 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854282.jpg" />
+  <img src="Z:/picture/008/save_picture_854282.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Opera 79.0.4143.72 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854278.jpg" />
+  <img src="Z:/picture/008/save_picture_854278.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ GPU-Z 2.43.0 + ASUS_ROG [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854190.jpg" />
+  <img src="Z:/picture/008/save_picture_854190.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Futuremark 3DMark 2.20.7274 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854186.jpg" />
+  <img src="Z:/picture/008/save_picture_854186.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ TechSmith Camtasia 2021.0.11 (Build 32979) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854183.jpg" />
+  <img src="Z:/picture/008/save_picture_854183.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.16 RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854175.jpg" />
+  <img src="Z:/picture/008/save_picture_854175.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.33.5700 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854074.jpg" />
+  <img src="Z:/picture/008/save_picture_854074.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ StartIsBack++ 2.9.16 StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854070.jpg" />
+  <img src="Z:/picture/008/save_picture_854070.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Ventoy 1.0.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854001.jpg" />
+  <img src="Z:/picture/008/save_picture_854001.jpg" />
 </div>
 
 

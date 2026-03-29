@@ -1,3 +1,29 @@
+###  Публикация: 1564450   (499715) от 19.07.2022
+
+Color Ray 1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оживите свои фотографии с помощью Color Ray, применяя впечатляющие эффекты цвета и размытия. Выберите область фотографии, которую вы хотите оставить цветной, а остальную часть раскрасьте в черно-белый цвет для создания драматического эффекта. Хотите применить к фотографии эффект размытия фокуса? Просто выберите область фотографии, которую вы хотите сохранить в фокусе, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF5A967FA2ED55AA76314A2808C14417B317073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564967   (497787) от 21.07.2022
 
 ColorWell 7.3.5.1 [Multi]
@@ -6,7 +32,7 @@ ColorWell 7.3.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497787.jpg" />
+  <img src="Z:/picture/008/save_picture_497787.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ WebToLayers 1.3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497735.jpg" />
+  <img src="Z:/picture/008/save_picture_497735.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Image Optimizer - Compression 2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496740.jpg" />
+  <img src="Z:/picture/008/save_picture_496740.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482436.jpg" />
+  <img src="Z:/picture/008/save_picture_482436.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ New Paint X 1.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482018.jpg" />
+  <img src="Z:/picture/008/save_picture_482018.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ WidsMob ImageConvert - JPG/PNG 3.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476505.jpg" />
+  <img src="Z:/picture/008/save_picture_476505.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ WidsMob Panorama 4.25 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476496.jpg" />
+  <img src="Z:/picture/008/save_picture_476496.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Rename Photos 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472463.jpg" />
+  <img src="Z:/picture/008/save_picture_472463.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472223.jpg" />
+  <img src="Z:/picture/008/save_picture_472223.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Adobe Illustrator 2022 v26.4.1 U2B [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471805.jpg" />
+  <img src="Z:/picture/008/save_picture_471805.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ LightWeaver 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471774.jpg" />
+  <img src="Z:/picture/008/save_picture_471774.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Face4Pass 1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470824.jpg" />
+  <img src="Z:/picture/008/save_picture_470824.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ DxO ViewPoint 2.5.17 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463874.jpg" />
+  <img src="Z:/picture/008/save_picture_463874.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ PulpMotion Advanced 3 3.6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461723.jpg" />
+  <img src="Z:/picture/008/save_picture_461723.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Sketch 51.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460904.jpg" />
+  <img src="Z:/picture/008/save_picture_460904.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Super PhotoCut 2.0.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459530.jpg" />
+  <img src="Z:/picture/008/save_picture_459530.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ DxO Optics Pro 7.5.4 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456934.jpg" />
+  <img src="Z:/picture/008/save_picture_456934.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Noiseless CK (Pro) 1.3.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454724.jpg" />
+  <img src="Z:/picture/008/save_picture_454724.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Icons8 5.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445235.jpg" />
+  <img src="Z:/picture/008/save_picture_445235.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ ACDSee Pro 3.7 (Build 201) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441805.jpg" />
+  <img src="Z:/picture/008/save_picture_441805.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Glyphs 3 v 3.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440480.jpg" />
+  <img src="Z:/picture/008/save_picture_440480.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ TeoreX PhotoStitcher 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438472.jpg" />
+  <img src="Z:/picture/008/save_picture_438472.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Teorex Inpaint 9.2.2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438292.jpg" />
+  <img src="Z:/picture/008/save_picture_438292.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Flame Painter 3 Pro 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436605.jpg" />
+  <img src="Z:/picture/008/save_picture_436605.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Rebelle 1.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436602.jpg" />
+  <img src="Z:/picture/008/save_picture_436602.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ Rebelle - удивительная программа от Escape Motions. Са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3108164741E4DE6DBDEB2897A5DAC9665BBB182E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244979   (436261) от 12.10.2010
-
-Alien Skin Bokeh 2.0.0.339 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Alien Skin представила вторую версию Bokeh, плагина для Photoshop, предназначенного для привлечения внимания к определенному объекту на фотографии. При помощи этого дополнения можно добавить на изображение эффект глубины резкости, сделать виньетку или подчеркнуть главный объект другим доступным способом. Особенность плагина в том, что он точно имитирует бокэ (эффект смазывания), который можно получить при помощи настоящих объективов.
-Вторая версия плагина интегрируется с Lightroom, имеет новую систему предварительного просмотра и работает намного быстрее.Разработчик: Alien SkinЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

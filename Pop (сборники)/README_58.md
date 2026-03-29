@@ -1,3 +1,192 @@
+###  Публикация: 1228728   (634029) от 02.06.2018
+
+VA - German Top 100 Single Charts 01.06.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634029.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - One Night Stand
+002. Calvin Harris & Dua Lipa - One Kiss
+003. Dennis Lloyd - Nevermind
+004. Pietro Lombardi - Phänomenal(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F555AB8525F62378F4364B1AB93EA02D146E4E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681880   (633844) от 21.07.2013
+
+VA - Disco 80's Collection (198*) [MP3|320 кб/с]<Disco, Euro Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Euro Disco, Italo DiscoПродолжительность: 117:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6A2F5BE1EEF8FC9A06B8C43CCA36214AD5CAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519380   (633733) от 08.07.2012
+
+VA - На Вершине Европейских Чартов 8 50/50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Arash Ahangari - Ahange Zamoone
+002 Анна Семенович - Июльское Лето
+003 Mariucch & Joy El 3Mendo - Muevela
+004 140 Ударов В Минуту - Надышаться Тобой
+005 Basto! feat. Yves V - Cloud breaker (Basto radio edit)
+006 Макс Барских - Утомленное Солнце
+007 Maison feat. Dragen - Rio De Janeiro
+008 Тимати - Давай, До Свидания!
+009 Inna - Crazy Sexy Wild
+010 Владимир Левкин и Анна Герцен - Жаркое Лето(   Читать дальше...   )Жанр: РорПродолжительность: 05:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42844191768BC73FE507B063049B311AB46025FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908227   (633602) от 14.06.2015
+
+Serebro - Не надо больнее (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Не Надо Больнее
+03. Я Тебя Не Отдам
+04. #Угар(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDA36B00622EA1EFA7B52C7835367B840ECF4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519920   (633587) от 08.07.2012
+
+VA - Лучшая 100ка: Вечеринка продолжается!!! (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Градусы - Не Надо Париться
+02. Натана - Тарантино
+03. Женя Вилль - Ты Для Меня
+04. Света - Супер Спортсмен (Dj Jump Radio Version)
+05. Любовь Фоменко - Знаешь Сам (Dance Version)
+06. Настя Задорожная - До Дна
+07. Любовь Фоменко - Линии Сердца
+08. Дима Билан - Honey
+09. Real O - Луна (Я В Белом Платьице)
+10. Маттиас - За тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC3C8E7B56F34E3FEFC3C8372082AC809A17EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519460   (633572) от 08.07.2012
+
+VA - 100 Самых Самых Хитов 50x50 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Катя Баженова - Я Модель (Pop Edit)
+02 Deepside Deejays - Stay With Me Tonight (Radio Edit)
+03 Юлия Савичева - Юлия
+04 Martin Solveig - The Night Out
+05 Гормоны - Три точки
+06 Rita Ora feat. Tinie Tempah - R.I.P
+07 Mariya - Ты тот
+08 Karmin - Hello
+09 Линда feat. ST - Марихуана
+10 Jennifer Lopez feat. Pitbull - Dance Again(   Читать дальше...   )Жанр: РорПродолжительность: 05:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B921D599A62342C335A665FC2607CB682CC45618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519141   (633314) от 08.07.2012
 
 VA - Сборник хороших хитов - Позитивный заряд - Версия 2 (2012) [MP3|256 кб/с]<Pop>
@@ -6,7 +195,7 @@ VA - Сборник хороших хитов - Позитивный заряд 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633314.jpg" />
+  <img src="Z:/picture/008/save_picture_633314.jpg" />
 </div>
 
 
@@ -41,7 +230,7 @@ VA - Wedding Reception Party-Pleasers (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632506.jpg" />
+  <img src="Z:/picture/008/save_picture_632506.jpg" />
 </div>
 
 
@@ -70,7 +259,7 @@ VA - Disco Hits - Generation Two (2016) [MP3|306-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632365.jpg" />
+  <img src="Z:/picture/008/save_picture_632365.jpg" />
 </div>
 
 
@@ -99,7 +288,7 @@ VA - Muz-сливки хит-парадов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631611.jpg" />
+  <img src="Z:/picture/008/save_picture_631611.jpg" />
 </div>
 
 
@@ -134,7 +323,7 @@ VA - Танцевальный клубный заряд (2012) [MP3|256-320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631591.jpg" />
+  <img src="Z:/picture/008/save_picture_631591.jpg" />
 </div>
 
 
@@ -169,7 +358,7 @@ VA - Отдыхай с хитами Europa Plus (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631588.jpg" />
+  <img src="Z:/picture/008/save_picture_631588.jpg" />
 </div>
 
 
@@ -204,7 +393,7 @@ VA - Top 100: Танцевальная летняя дискотека (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631431.jpg" />
+  <img src="Z:/picture/008/save_picture_631431.jpg" />
 </div>
 
 
@@ -239,7 +428,7 @@ Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631352.jpg" />
+  <img src="Z:/picture/008/save_picture_631352.jpg" />
 </div>
 
 
@@ -268,7 +457,7 @@ VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ball
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631253.jpg" />
+  <img src="Z:/picture/008/save_picture_631253.jpg" />
 </div>
 
 
@@ -297,7 +486,7 @@ VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630970.jpg" />
+  <img src="Z:/picture/008/save_picture_630970.jpg" />
 </div>
 
 
@@ -332,7 +521,7 @@ Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
+  <img src="Z:/picture/005/save_picture_630369.jpg" />
 </div>
 
 
@@ -367,7 +556,7 @@ VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630009.jpg" />
+  <img src="Z:/picture/008/save_picture_630009.jpg" />
 </div>
 
 
@@ -396,7 +585,7 @@ VA - 50 Disco Hits (2018) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629844.jpg" />
+  <img src="Z:/picture/008/save_picture_629844.jpg" />
 </div>
 
 
@@ -425,7 +614,7 @@ VA - Пляжная Вечеринка (2012) [MP3|256 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629202.jpg" />
+  <img src="Z:/picture/008/save_picture_629202.jpg" />
 </div>
 
 
@@ -460,7 +649,7 @@ VA - Незабываемая дискотека 2 (2012) [MP3|320 кб/с]<Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629199.jpg" />
+  <img src="Z:/picture/008/save_picture_629199.jpg" />
 </div>
 
 
@@ -495,7 +684,7 @@ VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
+  <img src="Z:/picture/008/save_picture_628873.jpg" />
 </div>
 
 
@@ -530,7 +719,7 @@ VA - Летний Хит-Парад Муз-ТВ (2012) [MP3|256 кб/с]<Рор>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628798.jpg" />
+  <img src="Z:/picture/008/save_picture_628798.jpg" />
 </div>
 
 
@@ -565,7 +754,7 @@ VA - Убойный сборник от Авторадио 50/50 (2012) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628727.jpg" />
+  <img src="Z:/picture/008/save_picture_628727.jpg" />
 </div>
 
 
@@ -600,7 +789,7 @@ VA - German Top 50 Party Schlager Charts 04.06.2018 (2018) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628210.jpg" />
+  <img src="Z:/picture/008/save_picture_628210.jpg" />
 </div>
 
 
@@ -629,7 +818,7 @@ VA - Лето в кайф. Часть 3 (2015) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628046.jpg" />
+  <img src="Z:/picture/008/save_picture_628046.jpg" />
 </div>
 
 
@@ -643,180 +832,6 @@ VA - Лето в кайф. Часть 3 (2015) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5444EAFF421F5CD7E758139D3F018280A42A14EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909370   (627509) от 17.06.2015
-
-VA - Летние хиты за рулем. Выпуск 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pulse - Танцуй Со Мной
-002. Martin Garrix - Dont Look Down
-003. Юля Шатунова - Прощай Май
-004. Bondax Feat. Bo Saris - Let Me Be(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182BAD5DD25E633F33A846FA847574EB5CD02041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035350   (626578) от 17.07.2016
-
-VA - Non-Stop Party 2016 Summer Top 100 (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Dangerous Woman
-02. Drake feat. Rihanna - Too Good
-03. Twenty One Pilots - Stressed Out
-04. Nick Jonas feat. Tove Lo - Close(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECE6849E9FEA2A37880B955849A858C6C6C8A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035583   (626513) от 17.07.2016
-
-VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нетсмысла - Мегаполис
-02. Никита Хазановский - Воробьи
-03. Mozgi - Полицаи
-04. Quest Pistols - Непохожие(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229463   (626460) от 06.06.2018
-
-VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walk The Moon - One Foot
-002. Dua Lipa - IDGAF
-003. MAX - Lights Down Low
-004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294623   (626116) от 09.04.2019
-
-VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294755   (625966) от 09.04.2019
-
-VA - This Merry Planet: Super Rare Disco Vol.2 (2019) [MP3|320 Kbps] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01.Disconnection - Little Lady(1977) 05:19
-02.Cellophane - Dance With Me (Let's Believe)(12' Mix) 09:34(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444B2BF656F399B6D81A82A8D95260B71D83EB60
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 936653   (493843) от 12.09.2015
+
+Discovery: Разрушители легенд. Дрифт в Сан-Франциско / MythBusters. San Francisco Drift (2015) SATRip  (Сезон 15, эпизод 06) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493843.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD34992A183AC8C51C9F75F95E6A4F9076B46497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053922   (493759) от 19.09.2016
+
+BBC: Неизвестные викинги. Под парусами драккара / BBC: The Vikings Uncovered (2016) SATRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много ли вы знаете о Викингах? Некоторые считают, что в мире не было народа более воинственного, чем эти скандинавы! Главные герои этого проекта некогда грабили и уничтожали мирные деревни в течение долгих тысячи лет! В общем и целом, после столь яркого проявления жестокости о викингах начали слагать легенды и истории. Силу этого закаленного суровыми зимами народа (   Читать дальше...   )Производство: Великобритания / BBC, History Production LondonЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональный  |  Видео Фильм ТВПродолжительность: 2 x ~00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4033B9CAAAF5618CE3385045C5475A6E8C7FF9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580010   (492957) от 25.08.2020
+
+Интенсивный курс Ричарда Хаммонда / Richard Hammond's Crash Course (2012) SATRip (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущий программы Top Gear Ричард Хаммонд ездит по США и учится управлять самыми необыкновенными и непростыми машинами, которые встречаются ему на пути. Каждая из этих невероятно мощных машин призвана выполнять свою задачу, и справиться с этими монстрами совсем не просто, даже для такого крутого специалиста как Хаммонд. Каждая машина - единственная в своем роде, (   Читать дальше...   )Телекомпания: Великобритания, BBC Worldwide ProductionsЖанр: ДокументальныйПеревод: Одноголосый профессиональныйПродолжительность: ~00:45:00 серия (6 серий)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFEBFC20B9FDC60CD76207BBB5CCBC5BAB353F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318608   (492522) от 07.08.2019
+
+BBC: Вся правда о красоте / The Truth About Looking Good (2018) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черри Хилли хочет понять, как много из обещаний продавцов косметической продукции совместимы с реальностью. Её расследование будет основываться на научных исследованиях. В конечном итоге, она продемонстрирует, что из заявлений косметологических компаний — уловки для потребителей.Производство: Великобритания, BBC StudiosЖанр: Документальный, познавательный, исследованияРежиссер: Кейт ПринглПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4D51A8FCE037CEE5A717294CA148543908DF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318612   (492518) от 07.08.2019
 
 Царство пластиков / The Kingdom of Plastics (1945) VHSRip
@@ -6,7 +110,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492518.jpg" />
+  <img src="Z:/picture/008/save_picture_492518.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492515.jpg" />
+  <img src="Z:/picture/008/save_picture_492515.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. Horizon: Юпитер раскрывает свои тайны / Jupiter Re
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492513.jpg" />
+  <img src="Z:/picture/008/save_picture_492513.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492288.jpg" />
+  <img src="Z:/picture/008/save_picture_492288.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery: Разрушители легенд. Спецвыпуск: Коман
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492016.jpg" />
+  <img src="Z:/picture/008/save_picture_492016.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490599.jpg" />
+  <img src="Z:/picture/008/save_picture_490599.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490175.jpg" />
+  <img src="Z:/picture/008/save_picture_490175.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489593.jpg" />
+  <img src="Z:/picture/008/save_picture_489593.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Discovery: Разрушители легенд. Специальный выпу�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489576.jpg" />
+  <img src="Z:/picture/008/save_picture_489576.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489317.jpg" />
+  <img src="Z:/picture/008/save_picture_489317.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489162.jpg" />
+  <img src="Z:/picture/008/save_picture_489162.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Discovery: Производство: гонка со временем [10 из 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489065.jpg" />
+  <img src="Z:/picture/008/save_picture_489065.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Discovery.Смертные грехи (7 серий из 7) / Discovery.Deadly S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489062.jpg" />
+  <img src="Z:/picture/008/save_picture_489062.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NGW: Тимбавати: мир диких кошек / Timbavati: An Epic Cat S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488629.jpg" />
+  <img src="Z:/picture/008/save_picture_488629.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NGW: Пума! / Puma! (2012) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488628.jpg" />
+  <img src="Z:/picture/008/save_picture_488628.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488508.jpg" />
+  <img src="Z:/picture/008/save_picture_488508.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487736.jpg" />
+  <img src="Z:/picture/008/save_picture_487736.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ BBC. Лицо человека (4-х серийный) / The Human Face (2001) D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487455.jpg" />
+  <img src="Z:/picture/008/save_picture_487455.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487449.jpg" />
+  <img src="Z:/picture/008/save_picture_487449.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Discovery. Смертельный улов / Deadliest Catch (2020) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486772.jpg" />
+  <img src="Z:/picture/008/save_picture_486772.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NGW: Намибия. Убежище гигантов / Namibia. Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486082.jpg" />
+  <img src="Z:/picture/008/save_picture_486082.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486074.jpg" />
+  <img src="Z:/picture/008/save_picture_486074.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NGW: Прекрасная Америка: Величественный Севе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3C421C6B03B9F61A2296E005CC3191EC6D83E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244093   (485951) от 30.08.2018
-
-History Channel: Человек-калькулятор / The Human Calculator (2015) HDTVRip [H.264/720p-LQ] (4 серии из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждет встреча со Скоттом Флансбергом, которого называют человеком-калькулятором. Он обладает уникальной способностью за считанные секунды производить в уме сложнейшие математические вычисления. Благодаря этой способности Флансберг видит числа и закономерности буквально во всем, что его окружает. Мир состоит из скрытых, взаимосвязанных чисел: от размеров зданий (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательное шоуПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADD34C8802504E13D1AF98CBEE8440B25FC7116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244092   (485860) от 30.08.2018
-
-History Channel: Человек-калькулятор / The Human Calculator (2015) HDTVRip (4 серии из 4)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждет встреча со Скоттом Флансбергом, которого называют человеком-калькулятором. Он обладает уникальной способностью за считанные секунды производить в уме сложнейшие математические вычисления. Благодаря этой способности Флансберг видит числа и закономерности буквально во всем, что его окружает. Мир состоит из скрытых, взаимосвязанных чисел: от размеров зданий (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, познавательное шоуПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 4 x ~ 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2A156FE5CBB6D889D4D4CF26119B1A6AFAA68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405185   (484830) от 29.08.2020
-
-DV: Магия Гудини / Alan Davies: The Magic of Houdini (2014) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский комик Алан Дейвис рассказывает об удивительной судьбе и наследии великого иллюзиониста и актёра Гарри Гудини.Производство: What Larks! ProductionsЖанр: ДокументальныйРежиссер: Louise HooperПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883C4F8B82C9ADFE0E4CA30F57BB7E6069AF5BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313383   (484463) от 11.08.2019
-
-Discovery. Затерянные викинги Америки / America's Lost Vikings (2019) HDTVRip (серии 6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возможно ли, что викинги открыли Америку за сотни лет до Христофора Колумба или прибытия «Мейфлауэра»? Появляется всё больше подтверждений, что они не просто достигли Америки, но обосновались на континенте и успешно на нем проживали. Чтобы подтвердить эту теорию, команда «охотников за викингами» отправляется в Америку на поиски доказательств. Они также пытаются проверить, (   Читать дальше...   )Производство: США, Arrow Media, Science ChannelЖанр: Документальный, расследование, историяРежиссер: Стюард СтриксонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E35B365F7F69EA20B0A7195EBC51D5016445C1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

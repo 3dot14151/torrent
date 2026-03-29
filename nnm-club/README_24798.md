@@ -1,188 +1,25 @@
-###  Публикация: 1805032   (65539) от 03.07.2025
+###  Публикация: 1796836   (66910) от 12.05.2025
 
-Фрэнсис Элиза Ходжсон Бёрнетт | Как стать леди (2024) [MP3, Ирина Булекова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмили Фокс-Ситон родилась в знатной, но обедневшей семье. Она получила хорошее образование, но в Лондоне конца XIX века не так много возможностей его применить. Эмили вынуждена ютиться в тесной комнатушке и работать компаньонкой более успешных высокородных дам. О хорошей партии девушка не может и мечтать…
-Однако ее работодательница, умная, эгоистичная и острая на (   Читать дальше...   )Жанр: зарубежная классика, психологическая проза, социальная драмаПеревод: Светлана СелифоноваИздательство: АСТПродолжительность: 09:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5A199756F020C3204656C93C4A8A936B835C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804908   (65538) от 03.07.2025
-
-Щенки - Hоль один (2025) [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я люблю до конца [00:03:22]
-02 - Ни тебя ни меня [00:02:38]
-03 - Рвется внутри [00:03:16]
-04 - Губная помада [00:02:31](   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805039   (65537) от 03.07.2025
-
-Папанинцы (1938) WEBRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1937 году при помощи самолёта в районе Северного полюса была организована первая научно-исследовательская дрейфующая станция «Северный полюс-1» (СП-1) под руководством Ивана Папанина. Участники экспедиции гидробиолог Петр Ширшов, геофизик Евгений Федоров, радист Эрнст Кренкель и руководитель Иван Папанин в течение девяти месяцев вели научные наблюдения на станции. (   Читать дальше...   )Производство: СССР / Московская и Ленинградская студии кинохроникиЖанр: документальный, природа, историяРежиссер: Яков Посельский, Ирина ВенжерЯзык озвучки: русскийСубтитры: в некоторых эпизодах поясняющие интертитры (русский)Продолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C852FA3C32395C3036EA00DBD94AC917894540BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804944   (65536) от 03.07.2025
-
-Военно-полевой роман (1983) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65536.jpg" />
-</div>
-
-
-###  Подробнее
-
-1944 год. Скромный, очень застенчивый и неприметный солдат Саша влюблен в гордую, неприступную красавицу Любу, медсестру, но она крутит роман с комдивом. Для Саши она - романтический идеал. Но война закончилась, и он забыл свою тайную любовь. Жизнь Саши сложилась на редкость счастливо. Послевоеннная московская улица. В продавщице пирожков, потертой бабе с вульгарным (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: Драма, мелодрамаРежиссер: Петр ТодоровскийАктеры: Николай Бурляев, Наталья Андрейченко, Инна Чурикова, Катя Юдина, Виктор Проскурин, Зиновий Гердт, Елена Козелькова, Всеволод Шиловский, Александр Мартынов, Наталья ЧенчикСубтитры: отсутствуютПродолжительность: 01:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F6E2922E5B289D52771E0FD07EF158DE172A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804966   (65535) от 03.07.2025
-
-Heathen's Eye - Port Inspiro (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Black Lie
-02. Mirrorman
-03. Ghosts Of Yesterday
-04. Still Water Runs Deep(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FFD170ABB15561D1890D831732292D3AAF9519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805047   (65534) от 03.07.2025
-
-KORG - multi/poly native 1.0.4 Standalone, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный легендарным KORG Mono/Poly, новый синтезатор аналогового моделирования KORG multi/poly обеспечивает захватывающие аналоговое звучание в сочетании с необычайной цифровой мощностью и гибкостью. Он уже получил признание как один из лучших синтезаторов года.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C97316B88B6F466A525DEAC70FA5838D4FFD1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805001   (65533) от 03.07.2025
-
-Zero Mindset - Nightdive (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Shoegaze>
+The Smoke Kings - Where Are Your Demons? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nightdive [00:03:42]
-02. Liquid Room [00:03:36]
-03. Rebirth [00:03:31]
-04. A Deeper Blue [00:03:48](   Читать дальше...   )Жанр: Alternative Metal, ShoegazeПродолжительность: 00:31:59
+01.  Running out of Time (2:23)
+02.  Powercopter (3:39)
+03.  Thanx No My Friend (3:39)
+04.  Right Under Leftovers (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77017F1B45E4CA625698594D99BA524AB2011BA0
+magnet:?xt=urn:btih:6880CE505EC8C3B8841FA7ACBA86947B1FF28630
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805048   (65532) от 03.07.2025
+###  Публикация: 1796794   (66909) от 12.05.2025
 
-Chrissie Pavlovic - Heartland (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Футбол. Чемпионат Испании 2024-2025. El Clasico. 35-й тур. Барселона - Реал (Мадрид) (11.05.2025) HDTVRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fly Away (3:33)
-02.  Never Too Late (3:33)
-03.  On My Way (4:14)
-04.  Always You (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:50
+Чемпионат Испании 2024-2025. El Clasico. 35-й тур. Барселона - Реал (Мадрид) (11.05.2025)
+СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе)
+СТАДИОН «Льюис Компанис» (Барселона) Зрителей: 50319Телекомпания: Setanta Sports 2Жанр: Спорт. ФутболЯзык озвучки: русский, английскийПродолжительность: 02:08:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA0D7D9EDCF288542C005F6F04734CF3F1242435
+magnet:?xt=urn:btih:F8358A786DC27D60FDD93BC7A1B073E35E4DDE61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804999   (65531) от 03.07.2025
+###  Публикация: 1796681   (66908) от 12.05.2025
 
-Транкор - Разные вещи (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
+Сергей Одинцов - Слушайте и отдыхайте (2025) [MP3|320 Kbps] <Pop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Разные вещи [00:03:03]
-02. Мало [00:03:07]
-03. Говорят [00:02:05]
-04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
+01 - Ты лучшая на свете женщина [00:03:43]
+02 - Возвращайся [00:03:45]
+03 - Хочу [00:04:33]
+04 - А я готов всё изменить [00:03:19](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1254463EE46939DDF944A975A1B288E885168AA
+magnet:?xt=urn:btih:CA7AB2E7A7C5ED499E702BB38C4A58E21D73FE2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,86 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805043   (65530) от 03.07.2025
+###  Публикация: 1796954   (66907) от 13.05.2025
 
-Bo Diddley, Ron Terry - Have A Good Time Tonight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Have A Good Time Tonight (2:57)
-02.  I'm A Man (3:10)
-03.  Ride The Water (4:21)
-04.  Night Break (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1211DBD8F45BB834195AD9EA3E4D64FDF05EA7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805053   (65529) от 03.07.2025
-
-Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak Low [4:13]
-02. Peedlum [5:05]
-03. Lazy Afternoon [7:46]
-04. Work Song [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FF4578E7C97B2976630CAD43245415CF4C0A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805044   (65528) от 03.07.2025
-
-Third Party - Live @ Party People (The Dome at Grand Central Hall Liverpool) (2025-03-08) [MP3|320 Kbps] <Progressive House>
+VA - Sounds Like Summer, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Third ≡ Party - ID (Intro Edit) w/Depeche Mode - Personal Jesus (Acappella)
-02. Third ≡ Party - Take Me Away
-03. Third ≡ Party & Kathy Brown vs. Martin Garrix & Bebe Rexha - Joy vs. In The Name Of Love (Third ≡ Party Mashup) w/Third ≡ Party - Believe
-04. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear (   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:34
+01. Eva Scolaro & Steen Thottrup - One (Calmabohain Extended Mix) (05:27)
+02. Tom One - Deeper & Deeper (03:15)
+03. Lemongrass - Got It On The Dancefloor (04:52)
+04. Cataldo - Summernight (04:30)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CAFC4C7223E8867CF8D2699339B21BB608D324F
+magnet:?xt=urn:btih:EAC6BC010B6EC52B4214BCFED333182875CE8FED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,28 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805065   (65527) от 03.07.2025
+###  Публикация: 1796940   (66906) от 13.05.2025
 
-One Rusty Band - Line After Line (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - 25 Years Of Anjuna Mixed By Durante (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Line After Line (3:15)
-02.  I Wanna Kill You (3:28)
-03.  Mr Catfishman (3:43)
-04.  Dust Bowl (4:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:44
+Disc 1 (00:58:50)
+01. Dusky - Stick By This (Mixed) (05:13)
+02. Ben Böhmer & Malou - Lost In Mind (Volen Sentir Vision Mixed) (04:28)
+03. Khen - Yellow (Mixed) (07:04)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:32:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E8D030DFE2C386BE0123C1EF7BAA52C749D1602
+magnet:?xt=urn:btih:971BE99E933133E63ABF18AAD15F66C139D846C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,28 +142,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805012   (65526) от 03.07.2025
+###  Публикация: 1796910   (66905) от 13.05.2025
 
-Wrath Of Belial - Embers Of Dead Empires (2025) [FLAC|Lossless|image + .cue] <Thrash, Melodic Death Metal>
+Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Czechia, Poland, Slovakia (2020) [PDF] [EN]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых известных среди филателистов каталогов марок.
+Это неофициальная компиляция частей "Чехословакия (Чехия), Польша, Словакия" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до октября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA328606CA253ACD59C6457CC9C016AEB12DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795904   (66904) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Tropical Turquoise Birthday Png ClipArt [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тропический клипарт на День рождения в бирюзовых тонах.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040587C230A259230BA7168F432F5F56C8B5DF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796906   (66903) от 13.05.2025
+
+Dimmu Borgir - Inspiratio Profanus (2023) Compilation, Remastered, Nuclear Blast Records [FLAC|Lossless|image + .cue] <Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dismantling Logos (04:52)
-02. Mask of Commiseration (04:26)
-03. The Secular and the Divine (03:52)
-04. Embers (05:22)(   Читать дальше...   )Жанр: Thrash, Melodic Death MetalПродолжительность: 00:43:33
+01. Black Metal (Venom)
+02. Satan My Master (Bathory)
+03. Dead Men Don't Rape (G.G.F.H.)
+04. Nocturnal Fear (Celtic Frost)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:31:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A744FD99AAAD03EEBB738D42B477E850B41D2DBE
+magnet:?xt=urn:btih:913231826FACCC7018CC8CC4DC8C0311A2883DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +224,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805067   (65525) от 03.07.2025
+###  Публикация: 1796913   (66902) от 13.05.2025
 
-The Alexis P. Suter Band - Just Stay High (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Austria, Hungary (2020) [PDF] [EN]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Разное (категория книг)
+>>На досуге
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  God Gave Me the Blues (3:48)
-02.  Some People (3:23)
-03.  Breathe (3:37)
-04.  Be On Your Way (6:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:00
+Один из самых известных среди филателистов каталогов марок.
+Это неофициальная компиляция частей "Австрия, Венгрия" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до ноября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84907CD659A128EC068C8AD03FE985B07952DFA6
+magnet:?xt=urn:btih:8CC47A14AEF0120865D21684FF94201D5BD7B2F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805072   (65524) от 03.07.2025
+###  Публикация: 1795842   (66901) от 13.05.2025
 
-Tim O'Brien, Jan Fabricius - Paper Flowers (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+Фоны - Graphic Studio - Creative Fabrica - Stained Glass Backgrounds [PNG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Atchison (3:14)
-02.  Fat Pile of Puppies (3:00)
-03.  Hungry Heart (3:04)
-04.  Paper Flowers (4:23)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:48:12
+Фоны с изображением витражных стёкол.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA12E03F1A3F84CE01563B6E2E0B517F815CED1D
+magnet:?xt=urn:btih:B9C5A3B15D3BFBFA5CCB19DD3D7F63AFEDDDFA33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +277,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805063   (65523) от 03.07.2025
+###  Публикация: 1796908   (66900) от 13.05.2025
 
-Mick Simpson - Changing Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Amos Media Co. | Scott 2020 Standard Postage Stamp Catalogue + Scott New Listings Update. Estonia, Latvia, Lithuania (2020) [PDF] [EN]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Разное (категория книг)
+>>На досуге
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Louisiana 1927 (4:37)
-02.  Deeper Than the Blues (3:29)
-03.  Fall Back Down (3:37)
-04.  Changing Times (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:46
+Один из самых известных среди филателистов каталогов марок.
+Это неофициальная компиляция частей "Эстония, Латвия, Литва" из каталога почтовых марок Скоттa 2017 и новости "Scott New Listing Update" из "Linn's Stamp News" (до октября 2019 года).Жанр: Филателия, коллекционирование, почтовые маркиЯзык: АнглийскийИздательство: Amos Media Co.Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:445E583A9A7504E2669C7EC152E9EB3274BDA467
+magnet:?xt=urn:btih:BE68455DB3162E593140C65D78DA3E7A1760227A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +304,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805056   (65522) от 03.07.2025
+###  Публикация: 1797022   (66899) от 13.05.2025
 
-Gina Coleman - Unequivocally Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Джон Уиндем | Видеорама Пооли (2020) [MP3, Puffin Сafe]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  No More To Give (4:37)
-02.  Days Gone By (3:21)
-03.  Unequivocally Blue (3:09)
-04.  Let Them Blues (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
+В один прекрасный день Уэстуич наводнили призраки. Сперва это были отдельные явления, но буквально за несколько недель бесплотные туристы захватили весь город и стали изводить местное население. Главный герой придумывает эффективный способ избавиться от незваных пришельцев.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:50:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:885E3949DAD2CCCE0162948C6E44E216FC773FEC
+magnet:?xt=urn:btih:C030B6C2505D4D8A1C5FB767A4861D399E9B7851
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,28 +330,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805002   (65521) от 03.07.2025
+###  Публикация: 1796941   (66898) от 13.05.2025
 
-Nastyville - Rebirth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | Сваты. Заготовки №5 (121) (май 2025) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66898.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сваты. Заготовки» - один из популярных журналов о кулинарии. Своими любимыми рецептами делятся читатели. Различные домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1944EB8DCB4B2A3F171BE10A8A9CFB31F139BF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795899   (66897) от 13.05.2025
+
+Растровый клипарт - Dream Studio - Creative Fabrica - Summer Beach Holiday Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на тему летнего пляжного отдыха.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48D706FDB6A5CFB35077A95037FE52C9C90072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796888   (66896) от 13.05.2025
+
+VA - Chilled Beach Songs (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harmonize - Show Me Love (5:10)
+02. Ilnurg - Mind (3:03)
+03. V.O.P. - Tell Me That (2:43)
+04. sælent - Metamorphosis (2:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C8BBC38F2CAFC0E339E369520BDE1120ABD896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796985   (66895) от 13.05.2025
+
+VA - Future Sound of Egypt - Spring 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila - Beyond The Lights (Extended Mix) [7:47]
+02. Factor B feat. Cat Martin - Crashing Over (Extended Mix) [9:24]
+03. The Noble Six - The Oracle (Extended Mix) [9:50]
+04. Maria Healy - Blush (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E81779C4BCB0897A7392B1746A5FBE2CED0B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796742   (66894) от 13.05.2025
+
+Thin Lizzy - The Acoustic Sessions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Hard-Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Journey Of Rebirth [00:01:47]
-02. Power To The People [00:04:12]
-03. Run Wild, Rev High! [00:03:57]
-04. Rocking Through The Night [00:03:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:34
+01. Mama Nature Said (Acoustic Version) (3:54)
+02. A Song For While I'm Away (Acoustic Version) (5:05)
+03. Eire (Acoustic Version) (4:19)
+04. Slow Blues (E.B / Acoustic Version) (5:17)(   Читать дальше...   )Жанр: Rock, Hard-RockПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86224829BB51B27C481023B4334D3175C82A307C
+magnet:?xt=urn:btih:14DF86674DA43B72CD006B95BACFAB550E1AA15C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,28 +469,165 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805066   (65520) от 03.07.2025
+###  Публикация: 1795840   (66893) от 13.05.2025
 
-Sugar Blue - Cross Roads (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Фоны - Graphic Studio - Creative Fabrica - Watercolor Lighthouse Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельные фоны с изображением маяка.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796959   (66892) от 13.05.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 4-й матч) Вашингтон Кэпиталз - Каролина Харрикейнз (12.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66892.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2025, вторник. 02:00 МСК. Стадион: Леново Центр (Роли, США), 19 138 зрителей (101% при вместимости 19 041)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Джеймс Тобиас (Баффало, США)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CAD799DC17D5CBFB145A151C42D24A07E62F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796741   (66891) от 13.05.2025
+
+The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Rock, Indie-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Know (2:55)
+02. Sunny Baby (3:19)
+03. All Over The World (3:37)
+04. If They Could Only Know (3:13)(   Читать дальше...   )Жанр: Alt. Rock, Indie-RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795839   (66890) от 13.05.2025
+
+Фоны - Graphic Studio - Creative Fabrica - Tropical Bloom Burst Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фоны с тропическими цветами.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70C1CE34EFCF75520E71E8A56F9D76024EBAA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796737   (66889) от 13.05.2025
+
+Little Feat - Strike Up The Band (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock, Southern Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Days of Heaven 3 Days of Work (5:03)
+02. Bayou Mama (4:16)
+03. Shipwrecks (4:19)
+04. Midnight Flight (3:59)(   Читать дальше...   )Жанр: Classic-Rock, Southern-Rock, Blues-RockПродолжительность: 01:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338810857570CBB678DA803741C7D18DF107503F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797017   (66888) от 13.05.2025
+
+Terry Hanck - Grease to Gravy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Another Man Done Gone (2:19)
-02.  War Zone (4:41)
-03.  Shed No Tears (3:12)
-04.  Who's Been Talkin' (6:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:53
+01.  Don't Let the Green Grass Fool You (4:52)
+02.  If a Politician Was a Doctor (4:06)
+03.  Best Years of My Life (5:15)
+04.  Come Back Baby (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61C58B323825700744789BC0A7FFF30D6450DB8F
+magnet:?xt=urn:btih:3321EBD722F266F2E09A39E3BF467B8104EBB489
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,28 +635,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804989   (65519) от 03.07.2025
+###  Публикация: 1796730   (66887) от 13.05.2025
 
-Seyminhol - Northern Recital (2002) Reissue, 2004, CD-Maximum [FLAC|Lossless|image + .cue] <Heavy Metal, Symphonic Metal, Power Metal>
+Sleep Token - Even In Arcadia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Post-Metal, Indie Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chapter I. Land of Long Cold Winter 01:39
-02. Chapter II. Iron of God (Widukind's Speech) 05:04
-03. Chapter III. The Call of War (Verden's Hate) 08:13
-04. Chapter IV. The Funeral 05:38(   Читать дальше...   )Жанр: Heavy Metal, Symphonic Metal, Power MetalПродолжительность: 00:59:43
+01. Look To Windward (7:46)
+02. Emergence (6:26)
+03. Past Self (3:35)
+04. Dangerous (4:11)(   Читать дальше...   )Жанр: Progressive Metal, Post-Metal, Indie RockПродолжительность: 00:56:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FFAB3D2D738B9B2FAF8A687E354C487457853B9
+magnet:?xt=urn:btih:B4A76BBB87C01760D7A5E5C5DA3BC7132A48FB7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,141 +664,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805071   (65518) от 03.07.2025
+###  Публикация: 1796747   (66886) от 13.05.2025
 
-The Cold Stares - The Southern, Pt. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Gong - I See You (2014) 10th Anniversary, Mix, 2025, Kscope Music [FLAC 24/48|Lossless|WEB-DL|tracks] <Psychedelic-rock, progressive-rock, space-rock, jazz-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See You (2024 Mix) (3:29)
+02. Occupy (2024 Mix) (2:53)
+03. When God Shakes Hands with The Devil (2024 Mix) (5:36)
+04. The Eternal Wheel Spins (2024 Mix) (7:09)(   Читать дальше...   )Жанр: Psychedelic-rock, progressive-rock, space-rock, jazz-rockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B5B138AC47F8D534022B8B56342FCAEA5A49C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796999   (66885) от 13.05.2025
+
+Dudley Taft - 15 Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Little More Rope (2:53)
-02.  Automobile (3:07)
-03.  Evil Eye (2:28)
-04.  Hurting Side of Love (4:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:04
+01.  Flying on Love (3:43)
+02.  Screaming in the Wind (4:17)
+03.  Skin and Bones (3:59)
+04.  Favorite Things (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DEB8555BA627A76A29B68FA34A3111787DF2D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804991   (65517) от 04.07.2025
-
-Ganesa - Пробуждение силы (2025) [MP3|320 Kbps] <Гранж>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сильнее (акустика) [00:03:29]
-2. 90 (акустика) [00:03:55]
-3. Остановись (акустика) [00:03:41]
-4. Ад (акустика) [00:02:40]Жанр: ГранжПродолжительность: 00:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACF2FC925A0B447B50465C94C15E26FEAB6B2B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805117   (65516) от 04.07.2025
-
-Анатолий Некрасов | Пригласи любовь в свой дом (2024) [MP3, Игорь Демидов]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная аудиокнига – вестник прихода Любви в вашу жизнь. Узнайте в книге что-то очень важное лично для вас, чтобы ваша история Любви началась… Анатолий Некрасов – известный исследователь, психолог, философ, член Союза писателей России, академик Европейской академии естественных наук, ведущий специалист в области семейных и межличностных отношений. Автор более 40 книг (   Читать дальше...   )Жанр: ПсихологияИздательство: АСТПродолжительность: 09:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295E05A3218DFEE481EEB10C5F8F908285708E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805247   (65515) от 04.07.2025
-
-Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Present Moment - Remastered 2025 (06:17)
- 02 - To Set Sail - Remastered 2025 (07:12)
- 03 - Prelude - Remastered 2025 (03:26)
- 04 - Goodbye - Remastered 2025 (05:25)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805081   (65514) от 04.07.2025
-
-Транкор - Разные вещи (2025) [MP3|320 Kbps] <Rapcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разные вещи [00:03:03]
-02. Мало [00:03:07]
-03. Говорят [00:02:05]
-04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD2BE59A37061FC3D2774608B053EF21E553247
+magnet:?xt=urn:btih:26CC6BCCBD3B69C3BD26CBEB32FE703B50595C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

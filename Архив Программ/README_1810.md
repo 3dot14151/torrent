@@ -1,3 +1,296 @@
+###  Публикация: 1592522   (183352) от 22.11.2022
+
+Malwarebytes Free 4.5.18.226 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Free (ранее Malwarebytes Anti-Malware) – полноценная антивредоносная программа, использующая современные технологии, которые позволяют быстро обнаруживать и удалять любое вредоносное ПО.
+Компьютер находится под постоянной угрозой различных типов вредоносных программ (вирусы, трояны, рукиты, ПНП), непрерывно развивающихся. Поэтому необходимы самые эффективные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FE4082022C79B8EA319801363780DF039385EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427361   (183193) от 28.11.2020
+
+Microsoft Visual Studio 2019 Community 16.7.7 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.
+Процедура регистрации:Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27019455A5680C5F6ECC221EF4C067CFE9BD161C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665048   (183183) от 29.09.2023
+
+Telegram Desktop 4.10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337ECFFAFC57E245CA51F19E130456DD9DEE516B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665244   (183173) от 29.09.2023
+
+Perfectly Clear WorkBench 4.6.0.2601 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78912984904934B2D324659ED7536715AF28E296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665139   (183168) от 29.09.2023
+
+Zoner Photo Studio X 19.2309.2.495 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D7A34794428C6A39584B89B7B1CB4043CB5FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427362   (183167) от 28.11.2020
+
+Microsoft Visual Studio 2019 Professional 16.7.7 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A06A999E37B15F2F01182E67A88DC9355D2EF67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665269   (183149) от 29.09.2023
+
+Telegram Desktop 4.10.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B51453A3A1FE74A89C91FB31D42533CD15EB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665149   (183143) от 29.09.2023
+
+RadioMaximus 2.32 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8F7945EB9C699A544C599D12E361D80DF4D259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427337   (183130) от 28.11.2020
+
+GPU-Z 2.36.0 + ASUS_ROG [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183130.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656EE481C0CC416CC92DBF32073754E2A303C282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427345   (183119) от 28.11.2020
+
+QOwnNotes 20.11.11 Build 790 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183119.jpg" />
+</div>
+
+
+###  Подробнее
+
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA151C330B81FE17D8DA1B3EF7059B2C6D09BC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427364   (183108) от 28.11.2020
+
+Microsoft Visual Studio 2019 Enterprise 16.7.7 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497432CC81259B4CCE93D7318B81267006F73928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427352   (183097) от 28.11.2020
 
 AAF DCH Optimus Sound 6.0.9066.1 Realtek Mod by AlanFinotty1995 [En]
@@ -6,7 +299,7 @@ AAF DCH Optimus Sound 6.0.9066.1 Realtek Mod by AlanFinotty1995 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183097.jpg" />
+  <img src="Z:/picture/004/save_picture_183097.jpg" />
 </div>
 
 
@@ -32,7 +325,7 @@ Telegram Desktop 4.3.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183083.jpg" />
 </div>
 
 
@@ -60,7 +353,7 @@ Mp3tag 3.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183082.jpg" />
+  <img src="Z:/picture/004/save_picture_183082.jpg" />
 </div>
 
 
@@ -86,7 +379,7 @@ EarthView 7.7.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183080.jpg" />
 </div>
 
 
@@ -112,7 +405,7 @@ BurnAware Professional 16.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183061.jpg" />
 </div>
 
 
@@ -138,7 +431,7 @@ IObit Smart Defrag Pro 9.1.0.319 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183056.jpg" />
 </div>
 
 
@@ -164,7 +457,7 @@ PC Cleaner Pro 9.4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183053.jpg" />
 </div>
 
 
@@ -190,7 +483,7 @@ Complete Internet Repair 9.1.3.6335 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183047.jpg" />
 </div>
 
 
@@ -216,7 +509,7 @@ Aiseesoft Video Converter Ultimate 10.7.28 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183033.jpg" />
 </div>
 
 
@@ -242,7 +535,7 @@ DesktopOK 10.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183032.jpg" />
 </div>
 
 
@@ -268,7 +561,7 @@ AVS Image Converter 5.2.5.304 Portable by Spirit Summer [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183031.jpg" />
+  <img src="Z:/picture/004/save_picture_183031.jpg" />
 </div>
 
 
@@ -294,7 +587,7 @@ MediaHuman YouTube Downloader 3.9.9.77 (2111) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183028.jpg" />
 </div>
 
 
@@ -320,7 +613,7 @@ YT Downloader 9.5.2 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183008.jpg" />
 </div>
 
 
@@ -346,7 +639,7 @@ EssentialPIM Pro 11.1.11 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183003.jpg" />
 </div>
 
 
@@ -372,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182998.jpg" />
 </div>
 
 
@@ -383,295 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0398BAE2EF588EBAACF680811C6C7D406868443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592710   (182991) от 23.11.2022
-
-AnyBurn 5.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Burn - небольшая бесплатная утилита для работы с CD/DVD/Blue-ray дисками. Интерфейс программы достаточно удобен: главное окно представляет собой набор закладок, которые выбираются в зависимости от конкретной задачи. Можно записать на диск готовые образы или отдельные файлы и папки, записать Audio-CD из имеющихся файлов аудиоформата, стереть перезаписываемый диск, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9437440B75224333DF3AC68C58D80A8DF5887807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665160   (182982) от 29.09.2023
-
-Windows 10 Manager 3.8.6 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Manager — утилита все-в-одном для Microsoft Windows 10, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 10, помогает сделать вашу систему быстрее, устранить неисправности системы, повысить стабильность и безопасность, персонализировать вашу копию Windows 10, она может удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CB839AADCA132F3547E81953E1B32A6DADAD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665256   (182977) от 29.09.2023
-
-DiskDigger 1.83.67.3449 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182977.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084E175A77EEAB2826D444C837DD01D428D6249C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592783   (182966) от 23.11.2022
-
-RAM Saver Professional 23.0 Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182966.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAM Saver Pro - инструмент для профессионального мониторинга, очистки и оптимизации оперативной памяти. Служит для повышения производительности операционной системы, освобождая оперативную память от драйверов и процессов MS Windows для приложений требующих максимальную загрузку процессора и оперативной памяти. RAM Saver Pro: дефрагментирует системную память для быстрого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43AB19BBF273A92FFC209FF287450D310496432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592668   (182962) от 23.11.2022
-
-Sumatra PDF 3.5.15262 (x64) Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B316F7A4B550DBCA1E5AE9D7EC9C8546048C7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665239   (182960) от 29.09.2023
-
-O&O Defrag Professional 27.0 Build 8042 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182960.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
-
-При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7782A9B9FF74D8808B39C480560DFA61EA9F4DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665138   (182949) от 29.09.2023
-
-Topaz Photo AI 2.0.3 (x64) RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9572272995F92FD8B3D96DDB7C531F7AFA25BB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665236   (182945) от 29.09.2023
-
-FastStone Image Viewer 7.8 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182945.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Image Viewer - вьювер, редактор и конвертор графических файлов. Поддерживает все популярные форматы графики, включая JPEG, JPEG 2000, GIF, PNG, PCX, TIFF, WMF, BMP, ICO, RAW и TGA. Обладает простым и удобными интерфейсом, сочетая его с большим количеством полезных возможностей. Поддерживается пакетное изменение размеров и переименование картинок, удаление (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0356308D793BDCDF3FDC051496879A6F45547814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592741   (182931) от 23.11.2022
-
-Ant Download Manager Pro 2.9.0 Build 83334 RePack (& Portable) by xetrin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ant Download Manager - отличный менеджер загрузки самых разнообразных файлов из интернета, который значительно упростит скачивание изображений, видео, музыки, программ, документов и др. данных с любого ресурса. Это приложение хорошо интегрируется со всеми популярными браузерами: Google Chrome и клоны на основе его движка (Яндекс.Браузер, Opera, Slimjet и др.), Mozilla (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7C05338859FE91FFF7ED335BB928006EDAB367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592698   (182902) от 23.11.2022
-
-YT Downloader 7.17.21 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182902.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EC458DA6CFCA7C1340FAFA60FFBC5A9B70EE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665273   (182898) от 29.09.2023
-
-WinToUSB Free / Pro / Enterprise / Technician 8.2 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182898.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11/10/8/7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD06AD9C98FF70966027334A9D3EEC07E73ECFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

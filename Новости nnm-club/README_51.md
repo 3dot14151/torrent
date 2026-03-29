@@ -1,3 +1,107 @@
+###  Публикация: 996189   (880262) от 13.03.2016
+
+Труп Анны Фритц / El cadaver de Anna Fritz (2015) BDRip [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Фритц, известная испанская актриса, найдена мёртвой в гостиничном номере. Она была одной из самых желанных женщин и неожиданный уход обернулся горем для поклонников её красоты. Тело Анны хранится в морге, в котором работает Пау. Пьяные друзья подговаривают парня пробраться в морг и, увидев обнажённый труп Анны, решили с ней поиграть. Во время их занятия Анна (   Читать дальше...   )Производство: ИспанияЖанр: Триллер, драмаРежиссер: Гектор ЭрнандесАктеры: Дэниэл Азер, Альберт Карбо, Белен Фабра, Монтсеррат Миральес, Генри Моралес, Альба Рибас, Бернат Саумелл, Кристиан ВаленсиаПеревод: Авторский одноголосый (Андрей Дольский)Субтитры: ОтсутствуютПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE43864C40330C40F97E7AE638035828BB50F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996082   (880258) от 13.03.2016
+
+На гребне волны / Point Break (2015) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонни — молодой агент ФБР, специализирующийся на работе под прикрытием. Он не раз выходил из самых сложных ситуаций, всегда доделывая свою работу до конца. Его очередным заданием становится проникновение в банду воров. Однако эти люди не обычные грабители: их главным отличием от остальных является увлечение экстремальными видами спорта. Свои умения они используют (   Читать дальше...   )Производство: США, Германия, Китай, Alcon Entertainment, DMG Entertainment, Ehman Productions, Studio Babelsberg, Warner Bros. PicturesЖанр: Боевик, Триллер, КриминалРежиссер: Эриксон КорАктеры: Люк Брейси, Эдгар Рамирес, Тереза Палмер, Макс Тириот, Рэй Уинстон, Тобиас Зантельман, Джеймс ЛеГрос, Делрой Линдо, Боджесси Кристофер, Клеменс ШикПеревод: Дублированный (Blu-ray CEE)Продолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AE667615FBF06B1EE25B274C8A6017BB1AA262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842482   (880253) от 13.03.2016
+
+Never Alone (2014) [Ru/Multi] (1.7.0/dlc) SteamRip  Let'sPlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о Кунууксаюка. История о бесконечной метели, грозившей гибелью нашему народу. История об опасном путешествии на ледяном краю мира. История об отваге и истинной дружбе. Сыграй в мою историю. Ты — девочка, и ты — песец, ты идешь по опасным землям и смотришь в лицо ледяному ужасу. Ты встретишь фантастических созданий и увидишь затерянные деревни. Тебе откроются (   Читать дальше...   )Тип издания: SteamRipРазработчик: Upper One Games, E-Line MediaЖанр: Action / Arcade (Platform)Язык озвучки: -//-Язык субтитров: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Корейский, Японский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Корейский, Японский, Бразильский (Португальский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3F5B16F1945E27B0A61D463E864E4C51295A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020428   (880242) от 12.09.2021
+
+Проповедник / Пастырь / Preacher (2016) WEB-DL [H.264/720p] (сезон 1, серии 1-10 из 10) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проповедник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его (   Читать дальше...   )Производство: США / AMC Studios, Sony Pictures Television, DC EntertainmentЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Люси Гриффитс, У. Эрл Браун, Том Брук, Анатол Юсеф, Йен Коллетти, Дерек Уилсон, Джеки Эрл Хейли и др.Перевод: Профессиональный закадровый - LostFilmЯзык озвучки: Русский, английскийСубтитры: русские, английскиеПродолжительность: ~ 00:49:00 серия (01:04:48 первая серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDF89E17A75506D88D6F15B2B99D8B4BB776FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373494   (879591) от 06.04.2020
 
 µTorrent 3.5.5 (build 45628) Portable by SanLex (Pro) [Multi/Ru]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879591.jpg" />
+  <img src="Z:/picture/005/save_picture_879591.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879134.jpg" />
+  <img src="Z:/picture/005/save_picture_879134.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879131.jpg" />
+  <img src="Z:/picture/005/save_picture_879131.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878984.jpg" />
+  <img src="Z:/picture/005/save_picture_878984.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878595.jpg" />
+  <img src="Z:/picture/005/save_picture_878595.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ ViNTERA.TV v3.1.457 [Ru/En] - просмотр сотен телевизионн
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878592.jpg" />
+  <img src="Z:/picture/005/save_picture_878592.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ CyberLink PowerDirector Ultimate 14.0.2707.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878447.jpg" />
+  <img src="Z:/picture/005/save_picture_878447.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878441.jpg" />
+  <img src="Z:/picture/005/save_picture_878441.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878420.jpg" />
+  <img src="Z:/picture/005/save_picture_878420.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878357.jpg" />
+  <img src="Z:/picture/005/save_picture_878357.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878179.jpg" />
+  <img src="Z:/picture/005/save_picture_878179.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Acronis True Image 2020 Build 25700 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877927.jpg" />
+  <img src="Z:/picture/005/save_picture_877927.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Rollback Rx Professional 10.5 Build 2702327820 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877543.jpg" />
+  <img src="Z:/picture/005/save_picture_877543.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ SolidWorks Premium Edition 2017 SP 2.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877531.jpg" />
+  <img src="Z:/picture/005/save_picture_877531.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877067.jpg" />
+  <img src="Z:/picture/008/save_picture_877067.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877052.jpg" />
+  <img src="Z:/picture/005/save_picture_877052.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Life is Strange: True Colors (2021) [Ru/Multi] (1.1.190.624221) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876952.jpg" />
+  <img src="Z:/picture/005/save_picture_876952.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876857.jpg" />
+  <img src="Z:/picture/005/save_picture_876857.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876653.jpg" />
+  <img src="Z:/picture/005/save_picture_876653.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ V-Ray 3.30.04 for 3ds Max 2016 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876575.jpg" />
+  <img src="Z:/picture/005/save_picture_876575.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876571.jpg" />
+  <img src="Z:/picture/008/save_picture_876571.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876502.jpg" />
+  <img src="Z:/picture/008/save_picture_876502.jpg" />
 </div>
 
 
@@ -570,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373421   (876214) от 08.04.2020
-
-Рассказы из Петли / Tales from the Loop (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) HDREZKA
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории об обитателях городка, расположенного над Петлёй — специальной машиной, созданной для изучения и раскрытия секретов Вселенной. Из-за этого жители получают доступ к вещам и событиям, о которых они раньше слышали разве что в фантастике.Производство: США / 6th & Idaho Productions, Amazon Studios, Fox 21 Television StudiosЖанр: драма, фантастика, мелодрамаРежиссер: Джоди Фостер, Ким Со-ён, Чарли МакДауэллАктеры: Дэниэл Золгадри, Ребекка Холл, Пол Шнайдер, Дункан Джойнер, Ато Эссандо, Николь Ло, ДжонатанПрайс, Джейн Александр, Тайлер Барнхардт, Роджер Клаун и др.Перевод: Многоголосый профессиональный (HDREZKA.STUDIO)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D7CBAC212B8E85F8EB122AF743DEE065EECFB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372994   (876211) от 08.04.2020
-
-Комплекс программ для восстановления данных 20.04.05 Portable by DrJayZi [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное каждый, рано или поздно, сталкивается с потерей данных на HDD или переносном устройстве. Начинает искать программу, при помощи которой можно восстановить утраченную информацию, но беда в том, что программа, которая помогла прошлый раз, может быть бессильна в данной ситуации. Начинается перебор программ, установка и удаление и в конечном итоге ОС превращается (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3FF420236511F3C4D959E475FF0AF88308F02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105389   (875873) от 17.02.2017
-
-Ubuntu 16.04.2 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущен релиз Ubuntu 16.04.2 LTS, вместе которым можно скачать также релизы: Xubuntu, Ubuntu MATE, Ubuntu GNOME, Kubuntu, Lubuntu. Все указанные производные релизы, кроме Kubuntu, получили срок поддержки 3 года, Ubuntu и Kubuntu будут поддерживаться 5 лет от момента выхода версии 16.04.
-
-Среди новшеств в этом релизе: новый формат пакетов «Snap»; новая версия контейнерной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0A3386C0769A7CB233A13E8051BEF172A226C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105241   (875872) от 17.02.2017
-
-AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3AD70B4C1254350733406D46D5A8B36479159F
 ```
 
 https://mybot314.ru/tekegram_catalog/

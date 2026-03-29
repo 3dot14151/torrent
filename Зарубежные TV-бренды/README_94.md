@@ -1,3 +1,108 @@
+###  Публикация: 627244   (337467) от 19.11.2016
+
+Discovery: Как это сделано ? / How it's made? (2012) SATRip [Сезон 19: серии 1-13]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам интересно, как делают привычные, обыденные вещи? Discovery Channel представляет новые серии фильма "Как это работает", который приглашает зрителей за кулисы производства самых обычных предметов начиная с хоккейных шайб и ручных пил и кончая буровыми долотами и замороженной картошкой фри. Передача " Как это работает" показывает, как делают (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 13 x ~ 00:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF28C9D1C08B2A9FC1BD561202BDEEEBA92948E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143940   (336775) от 05.11.2017
+
+Discovery: Речные монстры / River monsters (2017) HDTVRip [H.264/720p-LQ] (Сезон 9, серии 1-9 из 9) [PR]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336775.jpg" />
+</div>
+
+
+###  Подробнее
+
+После восьми сезонов биолог и рыбак-экстремал Джереми Уэйд решил повесить на гвоздь свою удочку в финальных эпизодах Речных Монстров. Благодаря Речным Монстрам мы увидели как Уэйд проводит всю жизнь в поисках опаснейших водных обитателей, среди которых и хищники, и жертвы, легендарные и мифические. Начиная с 2008 г. на удочку Уэйда попадались одни из самых редких, (   Читать дальше...   )Производство: США, Icon Films, Global Entertainment, Discovery Channel HDЖанр: Документальный, рыбалка, путешествия, география, природа, приключенияРежиссер: Барни Ревилл, Доминик Уэстон, Шарлотта ДжонсПеревод: Одноголосый закадровый, любительский (NEON Studio)Субтитры: отсутствуютПродолжительность: серии x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC267B5B23455078B3AE05FBE90E8850DB4E31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180506   (336764) от 05.11.2017
+
+Discovery: Как устроена Вселенная / How the Universe Works (2016-2017) WEBRip [H.264] (Сезон 5, серии 2-9 из 9)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канал "Discovery" представляет вашему вниманию передачу «Как устроена Вселенная». Она расскажет вам теорию о том как образовалась Вселенная, галактики, солнечные системы, планеты, звезды и т. д. Это величайшая история о том, как из маленькой точки появилась целая Вселенная, а потом начали появляться звезды, планеты и, конечно же, наша Земля. На самом деле, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADC5B95E447846A357964EEBAF9489CF1AA2FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330928   (336378) от 12.10.2019
+
+BBC: Поразительные чудеса мира / Weird Wonders of the World (2016) HDTV [H.264/1080i] (Сезон 2, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский натуралист Крис Пэкхем, исследует самые странные природные явления:
+Как солнце изменило пейзаж классической музыки? Что общего у коз и пауков? Может ли шелк паука помочь нам создать пуленепробиваемую кожу? «Поразительные чудеса света» - это увлекательное путешествие, для поиска ответов на некоторые из самых странных вопросов на планете. С помощью ведущих (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Андреа БаффериПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD700CF057DFD2B45FB804E4C58EEDBAABF9E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330925   (336375) от 12.10.2019
 
 BBC: Поразительные чудеса мира / Weird Wonders of the World (2015) HDTV [H.264/1080i] (Сезон 1, серии 1-8 из 8)
@@ -6,7 +111,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336375.jpg" />
+  <img src="Z:/picture/008/save_picture_336375.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334533.jpg" />
+  <img src="Z:/picture/008/save_picture_334533.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334439.jpg" />
+  <img src="Z:/picture/008/save_picture_334439.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334437.jpg" />
+  <img src="Z:/picture/008/save_picture_334437.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334432.jpg" />
+  <img src="Z:/picture/008/save_picture_334432.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332858.jpg" />
+  <img src="Z:/picture/008/save_picture_332858.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332813.jpg" />
+  <img src="Z:/picture/008/save_picture_332813.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332799.jpg" />
+  <img src="Z:/picture/008/save_picture_332799.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332316.jpg" />
+  <img src="Z:/picture/008/save_picture_332316.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332181.jpg" />
+  <img src="Z:/picture/008/save_picture_332181.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331714.jpg" />
+  <img src="Z:/picture/008/save_picture_331714.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330096.jpg" />
+  <img src="Z:/picture/008/save_picture_330096.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329244.jpg" />
+  <img src="Z:/picture/008/save_picture_329244.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329187.jpg" />
+  <img src="Z:/picture/008/save_picture_329187.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328127.jpg" />
+  <img src="Z:/picture/008/save_picture_328127.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328026.jpg" />
+  <img src="Z:/picture/008/save_picture_328026.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327315.jpg" />
+  <img src="Z:/picture/008/save_picture_327315.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326193.jpg" />
+  <img src="Z:/picture/008/save_picture_326193.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ Da Vinci Learning: Эко-2. Дизайн / E2.Design (2006) SATRip (сезон�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325538.jpg" />
+  <img src="Z:/picture/008/save_picture_325538.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324671.jpg" />
+  <img src="Z:/picture/008/save_picture_324671.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323255.jpg" />
+  <img src="Z:/picture/008/save_picture_323255.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323137.jpg" />
+  <img src="Z:/picture/008/save_picture_323137.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB2C6CF9F1C0BBD856B1AB6307C8FCEFD2744399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844303   (321478) от 24.11.2014
-
-Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Серия 4)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не вынимать ! / Don't Pull it OutРассказ о спортсменах, которые чудом выжили в несчастных случаях с острыми предметами. Кто сказал, что спорт — это здоровье?Жанр: ДокументальныйРежиссер: Джил Камбебатч, Крис Роув, Верни ШейтверПеревод: Одноголосый закадровыйПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B48A275EECC3AE7F11BC506F9FB4A1C7065E783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958902   (321099) от 22.11.2015
-
-Discovery: Разрушители легенд. Звёздные войны: Ответный удар / MythBusters. Star Wars: The Myths Strike Back (2015) SATRip  (Сезон 15, эпизод 14) [Discovery]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321099.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED567D52C8069BB2952DD62FFC3581AA1BEFCFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181914   (318958) от 09.11.2017
-
-Моя жизнь с роботом / My life with a robot (Ma vie avec un robot) (2015) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они учителя, медицинские работники, спасатели и кто знает, кого они еще заменят в будущем. Они могут иметь любые формы: автоматических машин, домашних животных или людей. Они роботы. Но что это такое - жить с одним из них 24 часа в сутки? Анжелика, инженер робототехники, и ее парень решили провести эксперимент и прожить с роботом полгода.Производство: Франция, Bellota Films, Plante +Жанр: Документальный, научно-популярный, социологияРежиссер: Тибо Сью, Эммануэль ДюмонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A500D85A5506A5522CFA0704C5CC9943AA4A5E23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259536   (318953) от 04.11.2018
-
-NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билли Буш на время оставляет индустрию развлечений ради серьезного дела в джунглях - борьбы с браконьерами, уничтожающими носорогов.Производство: США, Market Road Films, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Тони ГерберПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69089C4F566FE48DB31670D374DC4492CD0337CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

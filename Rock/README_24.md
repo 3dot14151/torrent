@@ -1,3 +1,38 @@
+###  Публикация: 200572   (781173) от 14.05.2010
+
+Shocking Blue - 6 Japan Remastered Albums (1968-1984) [MP3|320 kbps]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1968-1984Жанр: Classic RockПродолжительность: 00:59:48
+
+01 | Introduction | 00:28
+02 | Send Me A Postcard | 03:11
+03 | Long And Lonesome Road | 03:31
+04 | Somebody To Love | 03:39
+05 | Never Marry A Railroadman | 04:43
+06 | White Rabbit | 02:38
+07 | Venus | 03:45
+08 | Hot Sand | 04:02(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200591   (781151) от 14.05.2010
 
 Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
@@ -6,7 +41,7 @@ Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781151.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780891.jpg" />
+  <img src="Z:/picture/008/save_picture_780891.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780846.jpg" />
+  <img src="Z:/picture/008/save_picture_780846.jpg" />
 </div>
 
 
@@ -99,7 +134,7 @@ Steven R. Smith (Стивен Р. Смит) - Gehenna Belvedere (1996) Autopia [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780601.jpg" />
+  <img src="Z:/picture/008/save_picture_780601.jpg" />
 </div>
 
 
@@ -128,7 +163,7 @@ Pop Evil - War Of The Roses (2004) Pazzo Music [MP3|320 Kbps] <Rock, Heavy Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780596.jpg" />
+  <img src="Z:/picture/008/save_picture_780596.jpg" />
 </div>
 
 
@@ -157,7 +192,7 @@ Pop Evil - Up (2015) eOne, Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780594.jpg" />
+  <img src="Z:/picture/008/save_picture_780594.jpg" />
 </div>
 
 
@@ -186,7 +221,7 @@ Pop Evil - War Of Angels (2011) Gain, Sony Music, Deluxe Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780593.jpg" />
+  <img src="Z:/picture/008/save_picture_780593.jpg" />
 </div>
 
 
@@ -215,7 +250,7 @@ Pop Evil - Onyx (2014) eOne, Deluxe Edition [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780592.jpg" />
+  <img src="Z:/picture/008/save_picture_780592.jpg" />
 </div>
 
 
@@ -244,7 +279,7 @@ Pop Evil - Pop Evil (2017) eOne [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780584.jpg" />
+  <img src="Z:/picture/008/save_picture_780584.jpg" />
 </div>
 
 
@@ -273,7 +308,7 @@ Pop Evil - Lipstick on the Mirror (2008) Universal Republic Records, Pazzo Music
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780574.jpg" />
+  <img src="Z:/picture/008/save_picture_780574.jpg" />
 </div>
 
 
@@ -302,7 +337,7 @@ Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780104.jpg" />
+  <img src="Z:/picture/008/save_picture_780104.jpg" />
 </div>
 
 
@@ -331,7 +366,7 @@ Stefan Kaiser - Dreaming in Pink Floyd (2018) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780076.jpg" />
+  <img src="Z:/picture/008/save_picture_780076.jpg" />
 </div>
 
 
@@ -360,7 +395,7 @@ Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Re
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
+  <img src="Z:/picture/008/save_picture_779811.jpg" />
 </div>
 
 
@@ -389,7 +424,7 @@ John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779681.jpg" />
 </div>
 
 
@@ -418,7 +453,7 @@ Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779678.jpg" />
 </div>
 
 
@@ -447,7 +482,7 @@ Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779677.jpg" />
 </div>
 
 
@@ -476,7 +511,7 @@ Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779670.jpg" />
 </div>
 
 
@@ -503,7 +538,7 @@ Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779503.jpg" />
 </div>
 
 
@@ -532,7 +567,7 @@ VA - Rock Mixtape (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778844.jpg" />
 </div>
 
 
@@ -561,7 +596,7 @@ The Temperance Movement - White Bear (2016) Earache [MP3|320 Kbps] <Rock, Blues 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778238.jpg" />
 </div>
 
 
@@ -590,7 +625,7 @@ The Temperance Movement - The Temperance Movement (2014) Earache, Deluxe Edition
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778231.jpg" />
 </div>
 
 
@@ -619,7 +654,7 @@ The Temperance Movement - A Deeper Cut (2018) Earache [MP3|320 Kbps] <Rock, Blue
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778206.jpg" />
 </div>
 
 
@@ -648,7 +683,7 @@ The Temperance Movement - Up In The Sky Vs. Tender (2014) Single, Earache [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777895.jpg" />
 </div>
 
 
@@ -675,7 +710,7 @@ Peter Frampton - Acoustic Classics (2016) [MP3|320 кб/с] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777632.jpg" />
 </div>
 
 
@@ -704,7 +739,7 @@ VA - I Love The 50s & 60s (Classic Mixes) (Volume 3) (2016) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777203.jpg" />
+  <img src="Z:/picture/008/save_picture_777203.jpg" />
 </div>
 
 
@@ -718,35 +753,6 @@ VA - I Love The 50s & 60s (Classic Mixes) (Volume 3) (2016) [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B02EB7E3B012BA68FE1D4452A7ACAD25105435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211882   (776822) от 09.03.2018
-
-Jimi Hendrix - Both Sides of the Sky (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mannish Boy
-02. Lover Man
-03. Hear My Train a Comin'
-04. Stepping Stone(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ABF7F09981484F24653F5536898BACE1EF3AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

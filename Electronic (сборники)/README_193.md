@@ -1,3 +1,61 @@
+###  Публикация: 1270025   (215493) от 17.12.2018
+
+VA - Trance Mix Most Rated (2018) [MP3|320 Kbps] <Trance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215493.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anoikis Vs Jerom - Synergy (Original Mix)
+002. Christopher Corrigan - How We Feel (Original Mix)
+003. Dj Tomsten - Turbo Tracker
+004. Dmitry Kostyuchenko - Small Pleasures(   Читать дальше...   )Жанр: Trance, ElectroПродолжительность: 08:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC52E600ED4B97D627B2BB5CF6631A68D2D90C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270088   (215484) от 17.12.2018
+
+VA - Top50: Tracks Deep House Ver.7 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_215484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glee - Last Christmas (Costa Mee Bootleg) 4:14
+02. John Reyton & Ayla - Ayla (Original Mix) 4:02
+03. Fly & Sasha Fashion - Coming Back To You (Original Mix) 5:10
+04. Zivert - Life (Dmitry Glushkov Remix) 4:27(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC9818AE75B3683DE4E4B74FE8ACA2DC6CF5BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270012   (215370) от 17.12.2018
 
 VA - TOP Non-Stop 2000-2009 - Dance House Music (2018) [MP3|192-320 Kbps] <Disco House, Electro House, Tribal>
@@ -6,7 +64,7 @@ VA - TOP Non-Stop 2000-2009 - Dance House Music (2018) [MP3|192-320 Kbps] <Disco
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215370.jpg" />
+  <img src="Z:/picture/005/save_picture_215370.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance Colors 2 (2022) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215354.jpg" />
+  <img src="Z:/picture/005/save_picture_215354.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #203.2 (2020) [MP3|320 Kbps] <Dr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215006.jpg" />
+  <img src="Z:/picture/005/save_picture_215006.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Mix Of The Month: Techno & Minimal Selection (2019) [MP3|320 Kbps] <Techno,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214989.jpg" />
+  <img src="Z:/picture/005/save_picture_214989.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Portal: New Synthwave Music (2019) [MP3|320 Kbps] <Synthwave, Synthspace, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214806.jpg" />
+  <img src="Z:/picture/005/save_picture_214806.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Record Super Chart 616 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214785.jpg" />
+  <img src="Z:/picture/005/save_picture_214785.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Beatport Electro House December Pack #02 (2019) [MP3|320 Kbps] <Electro Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214752.jpg" />
+  <img src="Z:/picture/005/save_picture_214752.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - World of Electronic Music Vol.2 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214681.jpg" />
+  <img src="Z:/picture/005/save_picture_214681.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Herbal Ambient Sound (Vol.02) (2021) [MP3|320 Kbps] <Ambient, New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214008.jpg" />
+  <img src="Z:/picture/005/save_picture_214008.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Beatport Deep House: Sound Pack #380 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213991.jpg" />
+  <img src="Z:/picture/005/save_picture_213991.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Selection Drum Box (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213958.jpg" />
+  <img src="Z:/picture/005/save_picture_213958.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Progressive Trance: Sound Pack #379 (2021) [MP3|320 Kbps] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213920.jpg" />
+  <img src="Z:/picture/005/save_picture_213920.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - World of Electronic Music Vol.3 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213606.jpg" />
+  <img src="Z:/picture/005/save_picture_213606.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - World of Electronic Music Vol.4 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213580.jpg" />
+  <img src="Z:/picture/005/save_picture_213580.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213482.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Trance In Motion Vol.360 (2023) [MP3|320 Kbps|image + .cue] <Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211631.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211411.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Record Super Chart 17.06.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211183.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Nothing But... Ibiza Summer Trance (Extended Versions) (2023) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210703.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Summer Party 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210358.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - DOWN LOW 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210303.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Summer House Collection (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Tropica
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210015.jpg" />
+  <img src="Z:/picture/005/save_picture_210015.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trance In Motion Vol.362 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209098.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209077.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C18AC2076CBABC4A153FE38A5B41F48D7BB0CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607674   (208939) от 27.01.2023
-
-VA - Dream Dance Vol 94 - The Annual (2023) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance - Make It Better (Edit) (3:04)
-02. Armin van Buuren & Gareth Emery feat. Owl City - Forever & Always (Extended Mix) (6:52)
-03. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix) (7:51)
-04. Jam & Spoon x FREY x Amfree feat. Plavka - Right In The Night (Extended Mix) (3:31)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 04:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A244D76827CD12009D58836F4C608EA2F450D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646894   (208716) от 16.07.2023
-
-VA - Record Super Chart 15.07.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Belite - All Eyez on Me (2:45)
-02. Playmen & Hadley - Luv You (2:45)
-03. Purple Disco Machine feat. Kungs - Substitution (3:01)
-04. Loreen - Tattoo (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74BC1EC2ADB8395237E84DFBFD0B62C8C4B21D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

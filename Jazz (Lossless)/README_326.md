@@ -1,3 +1,119 @@
+###  Публикация: 1727431   (108493) от 02.06.2024
+
+V.A. - Bossanova & Jazz: Summer Bossanova & Jazz Vibes 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Rodriguez - Peter Pan's Syndrome (Edit)
+02. Montefiori Cocktail - Sofisticata (Nicola Conte's Soft Samba Mix)
+03. Silvia Donati, Nova 40, Giancarlo Bianchetti, Roberto Rossi - Parece Vortice
+04. Papik, Giuseppe Milici - Passos De Esperança(   Читать дальше...   )Жанр: Bossa Nova, Nu JazzПродолжительность: 01:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B25E4C9106D97B0E73C58A4CE82BD2786C044F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727375   (108480) от 02.06.2024
+
+Mary Lou Williams, Jutta Hipp, Beryl Booker - First Ladies Of Jazz (1940 - 1954) 1989, Savoy Jazz [FLAC|Lossless|image + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary Lou Williams - Mary Lou Williams' Blues (aka Mary Lou Blues) (Williams) - 3:21
+02. Mary Lou Williams - Tea for Two (Youmans-Caesar) - 2:52
+03. Mary Lou Williams - Scratchin' the Gravel (Williams) - 3:15
+04. Mary Lou Williams - Zonky (Waller-Razaf) - 2:57(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71C2072DAE5AFBAE2C3402A8D0F09DA06CEA441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727382   (108475) от 02.06.2024
+
+Wilbur Ware - Super Bass (1968) 2012, Wilbur Ware Institute [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mod House [5:46]
+02. Symphony for Jr. [10:11]
+03. Wilbur's Red Cross [8:18]
+04. A Real Nice Lady [7:32](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00CF9FA171E585793EC895E9C3BF84881281E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727379   (108469) от 02.06.2024
+
+Lee Ritenour - Rio & On the Line (1979, 1983) 2003, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rio Funk [5:11]
+02. San Juan Sunset [5:38]
+03. Rainbow [5:48]
+04. A Little Bit of This and a Little Bit of That [5:09](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46EBB5CABE2330A20F76D4871E8E6797917156A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727378   (108459) от 02.06.2024
 
 Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
@@ -6,7 +122,7 @@ Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108459.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108423.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108416.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Youn Sun Nah - Elles (2024) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108406.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108401.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108399.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108396.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Dream-Like Exquisite Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108394.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Charlie Byrd Trio with Scott Hamilton - It's A Wonderful World (1989) Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108393.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Slow Funk 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108390.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108389.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108382.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108381.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108376.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108374.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Louis Armstrong - 1944 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Dix
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108341.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Billy Taylor - 1945 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108327.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sonny Stitt - 1946 – 1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108325.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Jack McDuff - Legends of Acid Jazz: Brother Jack (1960, 1961) 1999, Prestige [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108323.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108262.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108259.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108255.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728638   (108253) от 08.06.2024
-
-Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Build a Better Mousetrap [3:06]
-02. At the Darktown Strutter's Ball [2:27]
-03. When the Roses Bloom Again [2:56]
-04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728643   (108252) от 08.06.2024
-
-Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Good Man Is Hard to Find [2:56]
-02. Washington and Lee Swing [2:57]
-03. Dixie Flyer [2:52]
-04. Lazy Piano Man [2:43](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6707748F280C7D791BC6AD3F8E1F70A2AB8BBCC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729023   (108214) от 09.06.2024
-
-Алексей Кузнецов - В старом стиле (2022) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108214.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Случайная встреча / Sluchainaya Vstrecha 3:21
-02. Garota de Ipanema 6:34
-03. Верные друзья / Vernye Druzja 7:20(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B80A218CBEFAA61F219443F5E3409EFC263BCE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728919   (108211) от 09.06.2024
-
-Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know That Look (3:51)
-02. Ride Like the Wind (3:37)
-03. Spellbound (3:59)
-04. One of a Kind (4:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E4CC3E758FFC620D94C62F287588D9E7FF0353
 ```
 
 https://mybot314.ru/tekegram_catalog/

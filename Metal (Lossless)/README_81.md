@@ -1,3 +1,90 @@
+###  Публикация: 1275036   (791714) от 09.01.2019
+
+VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tortuga - Hell's Red Roads (03:25)
+02. Sylosis - Visions of Demise (04:26)
+03. Romeo Must Die - Who Died and Made You God (03:19)
+04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275042   (791713) от 09.01.2019
+
+Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peeled Back Organs (3:57)
+ 02. Embalmed in Perservatives (3:10)
+ 03. Slime (3:36)
+ 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274838   (791712) от 09.01.2019
+
+Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth of the Universe
+02. Moonchild
+03. Surveillance Society
+04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274839   (791711) от 09.01.2019
 
 Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
@@ -6,7 +93,7 @@ Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791711.jpg" />
+  <img src="Z:/picture/008/save_picture_791711.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Vandenberg - The Complete ATCO Recordings (1982-2004) 4xCD, Box Set, Compilation
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791526.jpg" />
+  <img src="Z:/picture/008/save_picture_791526.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Clouds - Despartire (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791524.jpg" />
+  <img src="Z:/picture/008/save_picture_791524.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Savage Circus - Dreamland Manor (2005) [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791426.jpg" />
+  <img src="Z:/picture/008/save_picture_791426.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Paragon - Revenge (2005) [FLAC|Lossless|.iso.wv]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791377.jpg" />
+  <img src="Z:/picture/008/save_picture_791377.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ The Agony Scene - The Darkest Red (2005) [FLAC|Lossless|tracks + .cue] <Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791164.jpg" />
+  <img src="Z:/picture/008/save_picture_791164.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791084.jpg" />
+  <img src="Z:/picture/008/save_picture_791084.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Tower - Shock to the System (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790816.jpg" />
+  <img src="Z:/picture/008/save_picture_790816.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790555.jpg" />
+  <img src="Z:/picture/008/save_picture_790555.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790552.jpg" />
+  <img src="Z:/picture/008/save_picture_790552.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790530.jpg" />
+  <img src="Z:/picture/008/save_picture_790530.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790523.jpg" />
+  <img src="Z:/picture/008/save_picture_790523.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
+  <img src="Z:/picture/008/save_picture_790519.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
+  <img src="Z:/picture/008/save_picture_790516.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790504.jpg" />
+  <img src="Z:/picture/008/save_picture_790504.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Metal Church - Damned If You Do (2018) 2CD Japan [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790486.jpg" />
+  <img src="Z:/picture/008/save_picture_790486.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Crucified Barbara - 4 albums (2005-2014) [FLAC|Lossless|image + .cue | tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790481.jpg" />
+  <img src="Z:/picture/008/save_picture_790481.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790447.jpg" />
+  <img src="Z:/picture/008/save_picture_790447.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790446.jpg" />
+  <img src="Z:/picture/008/save_picture_790446.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Be'lakor - Coherence (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790386.jpg" />
+  <img src="Z:/picture/008/save_picture_790386.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790335.jpg" />
+  <img src="Z:/picture/008/save_picture_790335.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ Judas Priest - 50 Heavy Metal Years Of Music (2021) 42xCD,  Box Set, Compilation
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790158.jpg" />
+  <img src="Z:/picture/008/save_picture_790158.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Ironia - Hate State (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789936.jpg" />
+  <img src="Z:/picture/008/save_picture_789936.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Ironia - Hate State (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:152375FCD497C5C1C21F8000073C6E05A1D213BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511094   (789805) от 19.11.2021
-
-Exodus - Persona Non Grata (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persona Non Grata
-02. R.E.M.F.
-03. Slipping Into Madness
-04. Elitist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147F68B466256640D2FC7344A516B121DC3C2155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511300   (789467) от 20.11.2021
-
-Hell Fire - Mania (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warpath
-02. Mania
-03. On The Loose
-04. Born To Burn(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8FDEAA2CF6C9592CF57C8AAD4A574E89A80012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511269   (789463) от 20.11.2021
-
-Nightland - The Great Nothing (2021) [FLAC|Lossless|WEB-DL|tracks] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Conjunction Of Benetnash
-02. For Once My Name
-03. Shade Of A Lowering Star
-04. Further(   Читать дальше...   )Жанр: MDMПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BED0809FAE642C82B13564302239EB4EBFD188A
 ```
 
 https://mybot314.ru/tekegram_catalog/

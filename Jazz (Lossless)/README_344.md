@@ -1,3 +1,119 @@
+###  Публикация: 1776079   (71331) от 30.01.2025
+
+Laura Caviani - Going There (2005) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going There [6:12]
+02. In the Interim [4:25]
+03. This Is My Song [3:09]
+04. Tobacco Blues [4:32](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EA22C2AF63F2335DA66E0CF46DB25661582206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776300   (71306) от 31.01.2025
+
+Art Farmer - Something To Live For: The Music Of Billy Strayhorn (1987) Contemporary Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Isfahan [7:25]
+02. Bloodcount [6:08]
+03. Johnny Come Lately [5:39]
+04. Something to Live For [6:07](   Читать дальше...   )Жанр: Bop, Hard Bop, Post-BopПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AEFA3AD54ABCE08952EF6DD7512D77273F6E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776303   (71305) от 31.01.2025
+
+Don Patterson - Boppin' & Burnin' (1968) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pisces Soul [14:03]
+02. Donna Lee [6:19]
+03. Island Fantasy [6:42]
+04. Epistrophy [5:09](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F4A4E34FEE2DE42CE7F76EA95318B5DEC4260F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776307   (71304) от 31.01.2025
+
+John Simon Trio - Legacy (1986) 1996, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You or No One [5:00]
+02. Ceora [7:10]
+03. Strollin' [5:34]
+04. Nomis [6:29](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963D063A9D514A46B460507D0E00D218EB152DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776306   (71303) от 31.01.2025
 
 Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bossa Nova>
@@ -6,7 +122,7 @@ Eddie Daniels - Blue Bossa (1972, 1973) 1996, Candid [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71303.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Larry Coryell - Bolero & Scheherazade (1983) Philips [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71299.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Art Farmer Quintet - Blame It On My Youth (1988) Contemporary Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71241.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71240.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71238.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71221.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71219.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71203.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71197.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71165.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71163.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Don Patterson - Steady Comin' At 'Ya (1972 - 1977) 1998, 32 Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71143.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Red Mitchell & George Cables - Live At Port Townsend (1992) 2005, Challenge Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71142.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Art Farmer + Bill Evans - Modern Art (1958, 1959) 2004, Lone Hill Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71141.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Frank Morgan - Mood Indigo (1989) Antilles [FLAC|Lossless|image + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71140.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dick Hyman - Solo At The Sacramento Jazz Festivals (1983 - 1988) 2017, Arbors Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71113.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Dick Hyman - Cincinnati Fats (1981) 1987, Musical Heritage Society [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71112.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Buddy Rich - The Legendary Buddy Rich (1988) Spectrum Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71111.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dick Hyman & Mary Mayo - Moon Gas (1963) 2003, Vroom Sound Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71109.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71065.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71064.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71063.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C70F77B10C8EFC1ACE4486D059595BBFFD37E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777270   (71062) от 05.02.2025
-
-Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Day Sucker [6:55]
-02. Tommy Medley [12:29]
-03. On Broadway [3:54]
-04. Pieces of Dreams [4:36](   Читать дальше...   )Жанр: Jazz-Funk, Big BandПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777455   (70993) от 06.02.2025
-
-Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Nelson [13:06]
-02. Darn That Dream [8:25]
-03. Barbados [11:12]
-04. I'll Remember April [14:08]Жанр: Hard Bop, BopПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E6D055A95FE63487323AF55F09E8A261AEDBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777454   (70992) от 06.02.2025
-
-The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Alright with Me [6:30]
-02. Quietude [7:38]
-03. Time After Time [6:56]
-04. Lonely Moments [4:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7FB81C21FB9773F65B19EA0C971540CAA8787E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777453   (70991) от 06.02.2025
-
-John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elementary My Dear Watson [9:15]
-02. Someday Soon [9:13]
-03. Soul Eyes [7:44]
-04. On the One [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DB5C042E4D70F2229C5DAF1C4A4C8296E2E126
 ```
 
 https://mybot314.ru/tekegram_catalog/

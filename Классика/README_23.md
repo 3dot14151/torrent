@@ -6,7 +6,7 @@ VA - Beethoven: Adagio (1997) [FLAC|Lossless|WEB-DL|tracks] <Classical, Romantic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649422.jpg" />
+  <img src="Z:/picture/008/save_picture_649422.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Schubert - The Piano Sonatas (Wilhelm Kempff) (Vol.2) (2000) 3CDs [FLAC|Lossless
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649266.jpg" />
+  <img src="Z:/picture/008/save_picture_649266.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Franz Schubert - The Masterworks (40 CDs) (1797-1828) [MP3|320 kbps] <Classical>
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649046.jpg" />
+  <img src="Z:/picture/005/save_picture_649046.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Tenorissimi Mondeale '90 (1990) [APE|Lossless|image + .cue] <Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647638.jpg" />
+  <img src="Z:/picture/008/save_picture_647638.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Mozart - Concertos for 2 & 3 Pianos (Katia & Marielle Labeque, Semyon Bychkov & 
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647319.jpg" />
+  <img src="Z:/picture/008/save_picture_647319.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647280.jpg" />
+  <img src="Z:/picture/008/save_picture_647280.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643453.jpg" />
+  <img src="Z:/picture/008/save_picture_643453.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642932.jpg" />
+  <img src="Z:/picture/008/save_picture_642932.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642879.jpg" />
+  <img src="Z:/picture/005/save_picture_642879.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ The London Promenade Orchestra - A Romantic Evening of Operetta: The World's Mos
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642471.jpg" />
+  <img src="Z:/picture/008/save_picture_642471.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641666.jpg" />
+  <img src="Z:/picture/008/save_picture_641666.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Andrea Oliva & Angela Hewitt - Bach: Flute Sonatas (2013) [FLAC|Lossless|tracks]
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641585.jpg" />
+  <img src="Z:/picture/008/save_picture_641585.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640834.jpg" />
+  <img src="Z:/picture/008/save_picture_640834.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Vanessa Perez - Chopin: The Complete Preludes (2012) [MP3|320 Kbps] <Classical, 
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639688.jpg" />
+  <img src="Z:/picture/008/save_picture_639688.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Howard Shelley & Tasmanian Symphony Orchestra - The Romantic Piano Concerto, Vol
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638930.jpg" />
+  <img src="Z:/picture/008/save_picture_638930.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637927.jpg" />
+  <img src="Z:/picture/008/save_picture_637927.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Helene Schmitt, Jorg-Andreas Botticher, Karl-Ernst Schroder, David Sinclair - Ig
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637854.jpg" />
+  <img src="Z:/picture/008/save_picture_637854.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Renaud Capucon, Daniel Harding - Le Boeuf Sur Le Toit: French Works for Violin &
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636025.jpg" />
+  <img src="Z:/picture/008/save_picture_636025.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Pieter Wispelwey, Florilegium - Vivaldi: Vivaldi Concerti (1997) [FLAC|Lossless|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635937.jpg" />
+  <img src="Z:/picture/008/save_picture_635937.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Gustav Leonhardt, Alan Curtis, Helmut Hucke, Collegium Aureum - C.P.E. Bach: Con
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635818.jpg" />
+  <img src="Z:/picture/008/save_picture_635818.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Jordi Savall, Lislevand, Behringer, Cocset, A. Savall, Estevan, A. Gonzalez-Camp
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635812.jpg" />
+  <img src="Z:/picture/008/save_picture_635812.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLA
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633433.jpg" />
+  <img src="Z:/picture/008/save_picture_633433.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilatio
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629224.jpg" />
+  <img src="Z:/picture/008/save_picture_629224.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Johann Sebastian Bach–Messe h-moll Mass B Minor BWV 232: VA La Petite Bande Co
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626751.jpg" />
+  <img src="Z:/picture/008/save_picture_626751.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Gioachino Rossini–Famous Overtures: Academy of St Martin in the Fields conduct
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624830.jpg" />
+  <img src="Z:/picture/008/save_picture_624830.jpg" />
 </div>
 
 
@@ -751,7 +751,7 @@ VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLA
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624670.jpg" />
+  <img src="Z:/picture/005/save_picture_624670.jpg" />
 </div>
 
 

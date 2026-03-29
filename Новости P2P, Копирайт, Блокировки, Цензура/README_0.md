@@ -1,3 +1,30 @@
+###  Публикация: 904137   (655120) от 02.06.2015
+
+Федеральная комиссия по связи представила план субсидирования Интернет-подключений
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_655120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федеральная комиссия по связи США недавно объявила о плане, ранее известном под названием Lifeline, поддержки пользователей Интернет с низкими доходами на $1.7 миллиарда.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904441   (654314) от 03.06.2015
 
 Один из основателей Pirate Bay, Фредрик Нейдж, вышел из тюрьмы
@@ -6,7 +33,7 @@
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654314.jpg" />
+  <img src="Z:/picture/005/save_picture_654314.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654139.jpg" />
+  <img src="Z:/picture/005/save_picture_654139.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654064.jpg" />
+  <img src="Z:/picture/005/save_picture_654064.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651112.jpg" />
+  <img src="Z:/picture/005/save_picture_651112.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649264.jpg" />
+  <img src="Z:/picture/005/save_picture_649264.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645232.jpg" />
+  <img src="Z:/picture/005/save_picture_645232.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637867.jpg" />
+  <img src="Z:/picture/005/save_picture_637867.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630013.jpg" />
+  <img src="Z:/picture/005/save_picture_630013.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625677.jpg" />
+  <img src="Z:/picture/005/save_picture_625677.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623948.jpg" />
+  <img src="Z:/picture/005/save_picture_623948.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Google будет платить за обнаружение ошибок в And
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621909.jpg" />
+  <img src="Z:/picture/005/save_picture_621909.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_619715.jpg" />
+  <img src="Z:/picture/005/save_picture_619715.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_615943.jpg" />
+  <img src="Z:/picture/005/save_picture_615943.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_604942.jpg" />
+  <img src="Z:/picture/005/save_picture_604942.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598668.jpg" />
+  <img src="Z:/picture/005/save_picture_598668.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598349.jpg" />
+  <img src="Z:/picture/005/save_picture_598349.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596284.jpg" />
+  <img src="Z:/picture/005/save_picture_596284.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591851.jpg" />
+  <img src="Z:/picture/005/save_picture_591851.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590982.jpg" />
+  <img src="Z:/picture/005/save_picture_590982.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_589922.jpg" />
+  <img src="Z:/picture/005/save_picture_589922.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_589565.jpg" />
+  <img src="Z:/picture/005/save_picture_589565.jpg" />
 </div>
 
 
@@ -571,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_589051.jpg" />
+  <img src="Z:/picture/005/save_picture_589051.jpg" />
 </div>
 
 
@@ -598,7 +625,7 @@ Chrome блокирует крупные торрент-сайты из-за "в
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588590.jpg" />
+  <img src="Z:/picture/005/save_picture_588590.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ Nintendo потребовала отключения браузерной вер
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_587935.jpg" />
+  <img src="Z:/picture/005/save_picture_587935.jpg" />
 </div>
 
 
@@ -652,40 +679,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_586591.jpg" />
+  <img src="Z:/picture/005/save_picture_586591.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Апелляционный суд отправил дело на рассмотрение в суд первой инстанции — уже с участием владельца сайта, и это означает, что основанием для отмены стали процессуальные нарушения, на которые указали наши юристы.Суд апелляционной инстанции отменил решение №2-1-1373/2017 от 18.12.2017 Саратовского районного суда Саратовской области, на основании которого в декабре прошлого (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918688   (585940) от 16.07.2015
-
-Гильдия авторов требует, чтобы провайдеры отфильтровывали пиратский контент
-
->>Поговорим
->>Новости P2P, Копирайт, Блокировки, Цензура
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_585940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гильдия авторов отправила письмо в Конгресс (США) с требованием ужесточить существующий закон об авторском праве. Заявляя об убытках в десятки миллионов долларов, писатели хотят увеличить долю ответственности провайдеров и заставить их следить за трафиком и фильтровать пиратский контент.
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

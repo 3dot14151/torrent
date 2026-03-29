@@ -1,3 +1,110 @@
+###  Публикация: 987129   (927437) от 16.02.2016
+
+Американский герой / American Hero  (2015) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелвин - супергерой поневоле, который живёт только ради лёгких денег, женщин и наркотиков. Но однажды он понимает, что единственный способ наладить отношения со своим единственным сыном - встать на путь исправления.Производство: США, Vertigo FilmsЖанр: фантастика, боевик, комедияРежиссер: Ник ЛавАктеры: Стивен Дорфф, Эдди Гриффин, Андреа Коэн, Луис Да Силва мл., Кина Фергюсон, Рэден Грир, Грэйсон Килпэтрик, Йоханс Майлс, Т. Джоэль Смит, Мишель ТабораПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9843D90AAE138BF13B5A22E3EBB914EDD88742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987118   (927333) от 16.02.2016
+
+Лунная афера / Moonwalkers  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный агент ЦРУ отправляется в Лондон, чтобы разыскать там Стэнли Кубрика и заказать ему фильм про высадку астронавтов на лунную поверхность на случай провала реальной миссии. Но вместо Кубрика агент нарывается на афериста Джонни, который устраивает съемки сверхсекретного видео на стремной студии порнофильмов, где невесомость достигается благодаря крепкому косяку...Производство: Франция, Nexus Factory, Partizan Films, Potemkin ProductionsЖанр: комедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Стивен Кэмпбелл Мур, Том Ауденарт, Кевин Бишоп, Эрик Лёмпарт, Эрика Сэйнт, Джей Бенедикт, Джон Фландерс, Дэн Пул, Эндрю БлюментальПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCF7AED014DF5DA2F2A707704CDAC68D8F13F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862554   (927106) от 25.01.2015
+
+Эверли / Everly (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина пытается выжить в схватке с бойцами якудзы, чтобы спасти своих мать и дочь.
+Действие всего фильма происходит в стенах одной квартирыПроизводство: США |  Crime Scene Pictures, Vega, Baby!, Anonymous ContentЖанр: Боевик, ТриллерРежиссер: Джо ЛинчАктеры: Сальма Хайек, Дженнифер Бланк, Того Игава, Кэролайн Чикези, Габриэлла Райт,
+Энди МакДермотт, Аки Котабе, Уки Сертич, Масаси Фудзимото, Елена ГавриловичПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BF7B650B50FD95ACDAC777C0C479B2AA1EAD24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862563   (926939) от 25.01.2015
+
+Унижение / The Humbling (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успешный и знаменитый, одарённый, но уже «навсегда уставший» и утративший вдохновение актер в предвкушении финала карьеры пытается покончить с собой. Любовь и отношения с девушкой значительно моложе его, кардинально меняют вектор сведения счетовПроизводство: США |  Ambi Pictures, Hammerton ProductionsЖанр: Драма, КомедияРежиссер: Барри ЛевинсонАктеры: Аль Пачино, Грета Гервиг, Дайэнн Уист, Кира Седжвик, Дилан Бейкер,
+Чарльз Гродин, Дэн Хедайя, Нина Арианда, Виктор Круз, Мария Ди АнджелисПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD8F954F9F6F9CC1E387991BC2219EF599711ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988078   (922060) от 19.02.2016
 
 Помнить / Remember  (2015) BDRemux [H.264/1080p] [EN / EN, Fr Sub]
@@ -6,7 +113,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922060.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921686.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918377.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918369.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918353.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918234.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916747.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915231.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913817.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907682.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906728.jpg" />
 </div>
 
 
@@ -292,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906306.jpg" />
 </div>
 
 
@@ -318,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906166.jpg" />
 </div>
 
 
@@ -344,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905711.jpg" />
 </div>
 
 
@@ -370,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904728.jpg" />
 </div>
 
 
@@ -396,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901219.jpg" />
 </div>
 
 
@@ -422,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901095.jpg" />
 </div>
 
 
@@ -448,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899612.jpg" />
 </div>
 
 
@@ -474,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899133.jpg" />
 </div>
 
 
@@ -500,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894637.jpg" />
 </div>
 
 
@@ -526,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893866.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893670.jpg" />
 </div>
 
 
@@ -563,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325321BDE237F85ADD3D444B035BA7523662AED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493644   (893580) от 04.09.2021
-
-Золушка / Cinderella (2021) WEB-DL [H.264/1080p] [EN / RU, EN, multi Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мюзикл-фильм, в котором смелая интерпретация классической сказки. У нашей амбициозной героини большие мечты, и с помощью своей невероятной крестной она упорно пытается их осуществить.
-Гугл переводПроизводство: Великобритания, США / Columbia Pictures, DMG Entertainment, Fulwell 73Жанр: мюзикл, фэнтези, мелодрама, комедияРежиссер: Кэй КэннонАктеры: Камила Кабейо, Билли Портер, Идина Мензел, Николас Голицын, Пирс Броснан, Минни Драйвер, Мэдди Байллио, Шарлотта Спенсер, Джеймс Акастер, Джеймс КорденПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 01:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5293AF116B3634CF4AF9A1DE8B7D077C8FBD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101920   (892927) от 08.02.2017
-
-Лавинг / Loving  (2016) BDRip [H.264/1080p] [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892927.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1958 году в штате Вирджиния Ричард и Милдред Лавинг приговорены к тюремному заключению за вступление в межрасовый брак.Производство: Великобритания, СШАЖанр: драма, биографияРежиссер: Джефф НиколсАктеры: Рут Негга, Джоэл Эдгертон, Уилл Далтон, Дин Мамфорд, Терри Эбни, Алано Миллер, Крис Дж., Бенжамин Букер,  Кит Тайри, Шэрон БлэквудПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанскийПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0B2677AE4C4B54F938D4A51703F2624E680393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101974   (892918) от 08.02.2017
-
-Фрэнк и Лола / Frank and Lola  (2016) BDRip [H.264/720p] [EN / EN, Fr Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892918.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Хэллоуин Фрэнк, шеф ресторана из Лас-Вегаса, влюбляется в Лолу, новую девушку в городе. Однако Лола не так проста и является очень опасной штучкой. Для Фрэнка эта любовь лишь первый шаг к одержимости, что приводит к измене и погоне вокруг всего света в поисках мести.Производство: СШАЖанр: триллер, драма, мелодрама, криминал, детективРежиссер: Мэттью М. РоссАктеры: Имоджен Путс, Майкл Шеннон, Джастин Лонг, Розанна Аркетт, Микаэл Нюквист,  Эми Эргил, Алекс Ломбард, Эммануэль Дево, Дэвид Атракчи, Джои Белл, Ланда МорлендПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французскийПродолжительность: 01:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D516BBED9E0D3C4AED0034C995BA661108CEF852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102150   (892858) от 08.02.2017
-
-Плохой Санта 2 / Bad Santa 2  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение новогодних приключений проходимца Вилли, который в канун Рождества, как всегда, переодевается в Санта-Клауса. Ограбить очередной супермаркет в этом наряде не представляет никаких проблем. Но в Рождество случаются всякие чудеса. Каким оно будет для Вилли на этот раз?Производство: СШАЖанр: драма, комедия, криминалРежиссер: Марк УотерсАктеры: Билли Боб Торнтон, Кэти Бейтс, Тони Кокс, Кристина Хендрикс, Бретт Келли, Райан Хансен, Дженни Зигрино, Джефф Скоурон, Кристина Розато, Майк Старр, Октавия Спенсер, Рэни ЛиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156E405C842E68EB9222C8BEBBBE680BFCE9C210
 ```
 
 https://mybot314.ru/tekegram_catalog/

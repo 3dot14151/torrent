@@ -1,3 +1,82 @@
+###  Публикация: 1308631   (550923) от 19.06.2019
+
+Человек из Ларами / The Man from Laramie (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некий Уилл Локхард привозит фургоны с товарами в город, затерянный в землях аппачей. Но главная его цель — найти того, кто продает аппачам оружие, ведь используя эти винтовки, индейцы расстреляли кавалерийский патруль, в котором был брат Уилла. Сразу же у Локхарда возникают неприятности с людьми Алека Вагонмана, фактического хозяина города, в особенности с его сыном (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, William Goetz ProductionsЖанр: Драма, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Артур Кеннеди, Дональд Крисп, Кэти О’Доннелл, Алекс Николь, Элин МакМэон, Уоллес Форд, Джек Элам, Джон Уор Игл, Джеймс МилликэнПеревод: Многоголосый профессиональный (ТРК "Петербург")Субтитры: Английские (Full, SDH)Продолжительность: 01:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EB70AA8337FC98EE25EC3D0B400C32938F441F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222013   (550165) от 20.06.2019
+
+Не присылай мне цветы / Send Me No Flowers (1964) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время визита к врачу, Джордж Кимбэл по ошибке заглядывает в чужую историю болезни и узнает, что ему осталось жить не более двух недель. Желая обеспечить будущее любимой жены Джуди, он решает подыскать ей нового мужа…Производство: США / Martin Melcher Productions, Universal PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Норман ДжуисонАктеры: Рок Хадсон, Дорис Дэй, Тони Рэндалл, Пол Линде, Хэл Марч, Эдвард Эндрюс, Патриция Бэрри, Клинт Уокер, Клив Клерк, Дэйв УиллокПеревод: Многоголосый закадровый (Имидж-Арт)Субтитры: Русские, английскиеПродолжительность: 01:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC608A89BC8B956BE069F379A6B0ABF4A0ACC578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044655   (549934) от 29.08.2016
+
+Алый Первоцвет / The Scarlet Pimpernel (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам романов баронессы Эммы Орци "Алый Первоцвет" (1905) и "Эльдорадо" (1913).
+В 1792 во время Господства Террора Французской революции, тайная лига храбрых англичан спасают французских аристократов от гильотины. Лидер этого тайного общества - таинственный английский дворянин, известный только как Алый Первоцвет, знак подписи (   Читать дальше...   )Производство: Великобритания, London FilmsЖанр: Драма, Мелодрама, ПриключенияРежиссер: Клайв ДоннерАктеры: Энтони Эндрюс, Джейн Сеймур, Иэн МакКеллен, Джеймс Виллерс, Элинор Дэвид, Малкольм Джемисон, Дэнис Лилл, Энн Фёрбэнк, Ричард Морант, Джулиан Феллоуз и др.Перевод: Многоголосый закадровыйПродолжительность: 02:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707EC18261519BD28CC36A1EC28C24C7538AB879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297500   (549279) от 21.06.2019
 
 Невезучие / La Chevre (1981) BDRip [H.264] [PR]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549279.jpg" />
+  <img src="Z:/picture/008/save_picture_549279.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549093.jpg" />
+  <img src="Z:/picture/008/save_picture_549093.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548118.jpg" />
+  <img src="Z:/picture/008/save_picture_548118.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547956.jpg" />
+  <img src="Z:/picture/008/save_picture_547956.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547597.jpg" />
+  <img src="Z:/picture/008/save_picture_547597.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547147.jpg" />
+  <img src="Z:/picture/008/save_picture_547147.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546718.jpg" />
+  <img src="Z:/picture/008/save_picture_546718.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546385.jpg" />
+  <img src="Z:/picture/008/save_picture_546385.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545637.jpg" />
+  <img src="Z:/picture/008/save_picture_545637.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545553.jpg" />
+  <img src="Z:/picture/008/save_picture_545553.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545071.jpg" />
+  <img src="Z:/picture/008/save_picture_545071.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545034.jpg" />
+  <img src="Z:/picture/008/save_picture_545034.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544646.jpg" />
+  <img src="Z:/picture/008/save_picture_544646.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544613.jpg" />
+  <img src="Z:/picture/008/save_picture_544613.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542023.jpg" />
+  <img src="Z:/picture/008/save_picture_542023.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541858.jpg" />
+  <img src="Z:/picture/008/save_picture_541858.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541537.jpg" />
+  <img src="Z:/picture/008/save_picture_541537.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540965.jpg" />
+  <img src="Z:/picture/008/save_picture_540965.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540879.jpg" />
+  <img src="Z:/picture/008/save_picture_540879.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540501.jpg" />
+  <img src="Z:/picture/008/save_picture_540501.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540225.jpg" />
+  <img src="Z:/picture/008/save_picture_540225.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539072.jpg" />
+  <img src="Z:/picture/008/save_picture_539072.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539067.jpg" />
+  <img src="Z:/picture/008/save_picture_539067.jpg" />
 </div>
 
 
@@ -597,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BAD582BE539D6363805C4F08010FDECD06FAAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366547   (538795) от 22.07.2011
-
-Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный кинорежиссер впервые за 30 лет решается вернуться в свою родную сицилийскую деревеньку. Там его одолевают воспоминания. В детстве он ходил в кинотеатр "Парадизо". И киномеханик Алфредо помогал мальчику проникнуть в секреты кино, полюбить искусство кинематографа. Но было и еще одно сильное воспоминание, связанное с домом: первая любовь к прекрасной (   Читать дальше...   )Производство: Италия, Франция / Cristaldifilm, Les Films Ariane, RAI 3Жанр: ДрамаРежиссер: Джузеппе ТорнатореАктеры: Филипп Нуаре, Жак Перрен, Сальваторе Кашо, Марко Леонарди, Аньезе Нано, Леопольдо Триесте, Энцо Каннавале, Иза Даниэли, Тано Чимароза и др.Перевод: Советский дубляж, Оригинальный (итальянский)Субтитры: Русские, Английские (отдельно)Продолжительность: 02:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF10304617EB7AE3013120C8C90B8A9FAA08F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920994   (538630) от 07.08.2015
-
-Копи царя Соломона / King Solomon's Mines (1985) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец главной героини отправляется на поиски бриллиантовых копей царя Соломона и пропадает без вести. Очаровательная Джесси Хьюстон затевает рискованное сафари для его спасения. Кто же будет ее проводником? Легендарный солдат удачи, известный как Куотермейн. Чтобы добраться до сокровищ и опередить кровожадного соперника, им приходится преодолеть множество препятствий: (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключения, экранизацияРежиссер: Дж. Ли ТомпсонАктеры: Ричард Чемберлен, Шэрон Стоун, Херберт Лом, Джон Рис-Дэвис, Кен Гампу, Джун Бузелези, Сэм Уильямс, Шайке Офир, Мик Лесли, Винсент Ван Дер Бил, Боб Грир, Оливер Тенгенде, Невилл Томас, Роки Грин, Кэлвин Джонс, Стэнли Норрис, Эндрю УэлиПеревод: Профессиональный многоголосыйПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF3F7DBE9D25DE46EA8649058E9407B6F2D8468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048879   (538162) от 08.09.2016
-
-Пять ружей Запада / Five Guns West (1955) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в США. Пятеро приговоренных к смертной казни конфедератов получают помилование в обмен на то, что они отправятся на запад страны и поймают двойного агента, укравшего золото.Производство: США / Palo Alto ProductionsЖанр: ВестернРежиссер: Роджер КорманАктеры: Джон Ланд, Дороти Мэлоун, Майк Коннорс, Р. Райт Кэмпбелл, Джонатан Хэйз, Пол Бирч, Джеймс Стоун, Джек Ингрэм, Ларри Тор, Бойд ’Красный’ МорганПеревод: Многоголосый, двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7785CDF8C7C600F1552A825333E8B3921B7C610
 ```
 
 https://mybot314.ru/tekegram_catalog/

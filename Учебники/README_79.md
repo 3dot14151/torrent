@@ -1,3 +1,55 @@
+###  Публикация: 1636441   (251946) от 30.05.2023
+
+М.С. Костин, А.Д. Ярлыков | Архитектурно-конфигурируемые SDR-технологии радиомониторинга и телеметрии (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даны ключевые понятия, термины и определения, радиотехнические характеристики и параметры средств радиосвязи. Рассматриваются практические решения архитектурного проектирования и моделирования SDR-систем посредством визуального программирования в среде GNU Radio. Приведены типовые задания по созданию проектов SDR-систем в программном обеспечении SDRSharp и GNU Radio (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06AD4A8AE3A9906459DCC8E53A1A498D97E1F291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636605   (251897) от 31.05.2023
+
+С.А. Мартишин и др. | Базы данных. Практическое применение СУБД SQL и NoSOL-типа для применения проектирования информационных систем (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для изучения практического применения СУБД SQL и NoSQL-типа при проектировании информационных систем. Проведены аналогии между базами данных SQL и NoSQL-типа. Полученные теоретические знания закрепляются при выполнении цикла лабораторных работ. Работа с SQL СУБД изучается на примере СУБД MariaDB, рассмотрен вопрос использования хорошо (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1513D1BC2CA757E55AF00C68475A8645C9775AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835870   (251839) от 08.11.2025
 
 М.П. Черкасова | Сборник задач по численным методам (1967) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251839.jpg" />
+  <img src="Z:/picture/004/save_picture_251839.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251664.jpg" />
+  <img src="Z:/picture/004/save_picture_251664.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251216.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251194.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250302.jpg" />
+  <img src="Z:/picture/004/save_picture_250302.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250258.jpg" />
+  <img src="Z:/picture/004/save_picture_250258.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250226.jpg" />
+  <img src="Z:/picture/004/save_picture_250226.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250221.jpg" />
+  <img src="Z:/picture/004/save_picture_250221.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250054.jpg" />
+  <img src="Z:/picture/004/save_picture_250054.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249982.jpg" />
+  <img src="Z:/picture/004/save_picture_249982.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249856.jpg" />
+  <img src="Z:/picture/004/save_picture_249856.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249808.jpg" />
+  <img src="Z:/picture/004/save_picture_249808.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249676.jpg" />
+  <img src="Z:/picture/004/save_picture_249676.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249666.jpg" />
+  <img src="Z:/picture/004/save_picture_249666.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249608.jpg" />
+  <img src="Z:/picture/004/save_picture_249608.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249607.jpg" />
+  <img src="Z:/picture/004/save_picture_249607.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249601.jpg" />
+  <img src="Z:/picture/004/save_picture_249601.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249596.jpg" />
+  <img src="Z:/picture/004/save_picture_249596.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249566.jpg" />
+  <img src="Z:/picture/004/save_picture_249566.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249562.jpg" />
+  <img src="Z:/picture/004/save_picture_249562.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249505.jpg" />
+  <img src="Z:/picture/004/save_picture_249505.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249498.jpg" />
+  <img src="Z:/picture/004/save_picture_249498.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249383.jpg" />
+  <img src="Z:/picture/004/save_picture_249383.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248610.jpg" />
+  <img src="Z:/picture/004/save_picture_248610.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639612   (247593) от 14.06.2023
-
-А.С. Кравчук и др. | ООП в языке Java. Сборник заданий и тематических примеров (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник заданий предназначен для проработки приемов объектно-ориентированного программирования в языке Java. Издание содержит задачи на обработку массивов, реализацию интерфейсов, наследование, использование коллекций, дженериков и лямбда-выражений. В каждой теме приводятся примеры решения типовых задач и варианты индивидуальные заданий. Издание ориентировано в первую (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449814154F381169EEC1B923F25B15486E95DA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640148   (247554) от 16.06.2023
-
-В.Д. Боев, Р.П. Сыпченко | Компьютерное моделирование (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс имитационного моделирования под разными названиями: "Моделирование" и т.п. является обязательным в учебных планах технических ВУЗов, в том числе и военных. Соответствующие знания включены в квалификационные характеристики выпускников. Настоящий курс представляет собой учебное пособие для изучения материала по этим дисциплинам.
-Содержание курса определено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC960C94568181493960E2B5E51602675F7952F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

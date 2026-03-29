@@ -6,7 +6,7 @@ Wise Disk Cleaner 10.7.2.800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812099.jpg" />
+  <img src="Z:/picture/008/save_picture_812099.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macrorit Data Wiper 4.7.1 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812098.jpg" />
+  <img src="Z:/picture/008/save_picture_812098.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812096.jpg" />
+  <img src="Z:/picture/008/save_picture_812096.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Athentech Perfectly Clear WorkBench 3.12.2.2176 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812095.jpg" />
+  <img src="Z:/picture/008/save_picture_812095.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Macrorit Partition Expert 5.8.2 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812093.jpg" />
+  <img src="Z:/picture/008/save_picture_812093.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Macrorit Partition Expert 5.8.2 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812090.jpg" />
+  <img src="Z:/picture/008/save_picture_812090.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mp3tag 2.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812064.jpg" />
+  <img src="Z:/picture/008/save_picture_812064.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ TagScanner 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812059.jpg" />
+  <img src="Z:/picture/008/save_picture_812059.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811988.jpg" />
+  <img src="Z:/picture/008/save_picture_811988.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Internet Download Manager 6.39 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811987.jpg" />
+  <img src="Z:/picture/008/save_picture_811987.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Internet Download Manager 6.39 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811986.jpg" />
+  <img src="Z:/picture/008/save_picture_811986.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ StartAllBack 3.0.0 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811966.jpg" />
+  <img src="Z:/picture/008/save_picture_811966.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811923.jpg" />
+  <img src="Z:/picture/008/save_picture_811923.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811913.jpg" />
+  <img src="Z:/picture/008/save_picture_811913.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811843.jpg" />
+  <img src="Z:/picture/008/save_picture_811843.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ CrystalDiskInfo 8.12.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811842.jpg" />
+  <img src="Z:/picture/008/save_picture_811842.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ FreeTube 0.15.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811839.jpg" />
+  <img src="Z:/picture/008/save_picture_811839.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Macrorit Disk Scanner 4.3.9 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811836.jpg" />
+  <img src="Z:/picture/008/save_picture_811836.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Icecream PDF Editor PRO 2.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811833.jpg" />
+  <img src="Z:/picture/008/save_picture_811833.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Reg Organizer 8.80 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811829.jpg" />
+  <img src="Z:/picture/008/save_picture_811829.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811827.jpg" />
+  <img src="Z:/picture/008/save_picture_811827.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Wise Care 365 Pro 4.15.401 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811805.jpg" />
+  <img src="Z:/picture/008/save_picture_811805.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Wise Care 365 Pro 4.15.401 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811799.jpg" />
+  <img src="Z:/picture/008/save_picture_811799.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811797.jpg" />
+  <img src="Z:/picture/008/save_picture_811797.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ TurboLaunch 5.1.3 (3/26/2011) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_811708.jpg" />
+  <img src="Z:/picture/009/save_picture_811708.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1 for 1607) StartIsBack+ 1.7.6 Star
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811702.jpg" />
+  <img src="Z:/picture/008/save_picture_811702.jpg" />
 </div>
 
 

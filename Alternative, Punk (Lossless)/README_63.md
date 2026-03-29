@@ -1,3 +1,32 @@
+###  Публикация: 1347343   (152397) от 23.12.2019
+
+We Are Stardust - A Dance for the King (2017) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Post Rock, Doom Jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shepherd's Walk (2:57)
+02. Squid Marks on a Broken Fool: Volume One (7:45)
+03. Private Windy Plains (6:40)
+04. A Stroll to Nowhere (2:50)(   Читать дальше...   )Производство: JM Throne ProductionsЖанр: Experimental, Ambient, Post Rock, Doom Jazz, InstrumentalПродолжительность: 00:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E289E5ECF53DD50F87561F7ADB0DF240780940BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194868   (152391) от 27.12.2017
 
 K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Alternative, Post-grunge>
@@ -6,7 +35,7 @@ K's Choice - Paradise In Me (1995) [FLAC|Lossless|tracks + .cue] <Indie rock, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152391.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lit - These Are The Days (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152290.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Chrissie Hynde - Duets Special (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pos
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151534.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Maggie Lindemann - I feel everything (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151401.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Soundgarden - Black Hole Sun (1994) Single [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150315.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Soundgarden - Songs From the Superunknown (1995) EP [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150282.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149129.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147810.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147800.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Rea Garvey - Hy Brasil (2020) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146472.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Loathe - 3 Albums / 2 EP (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146357.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146127.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Meet Me In St Louis - Variations On Swing (2007) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146028.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Swans - Soundtracks For The Blind (1996) 2018, 3CD, Remastered [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145717.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Cachorro Grande - Todos Os Tempos (2007) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144832.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ The Appleseed Cast - Middle States (2011) EP [FLAC|Lossless|tracks + .cue] <Emo,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144770.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Aurora View - SHMR (2022) Deluxe, 2023, Aurora View [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143984.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ R.E.M. - Out Of Time (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143296.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Le Maximum Kouette - Moi j'aime ça! (2002) Maxi-Single [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143227.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ New Found Glory - Makes Me Sick (2017) [FLAC|Lossless|tracks + .cue] <Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143150.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Story of the Year - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142566.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142450.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141547.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139783.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138304.jpg" />
 </div>
 
 
@@ -714,34 +743,6 @@ Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CF61B060572D3995058D380EE355C86E6F0CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679321   (138281) от 25.11.2023
-
-Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Doom Metal, Free Jazz, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Eons
-2021 - Solar Drone CeremonyЖанр: Avantgarde, Doom Metal, Free Jazz, KrautrockПродолжительность: 2CD, 03:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,142 @@
+###  Публикация: 1182625   (309796) от 13.11.2017
+
+Tyme 2 v1.9.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантное и простое решение отслеживания времени для фрилансеров
+Tyme это простое в использовании приложение для отслеживания времени для фрилансеров, небольших компаний и тех, кто хочет сохранить обзор своего рабочего времени.
+
+С Tyme вы сможете увидеть разложенный на уровни весь процесс работы над проектами и тем самым, контролировать все сроки и бюджет.Тип издания: OS X SoftwareРелиз состоялся: 09 ноября 2017Разработчик: Lars GerckensПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459DEFFA00A900855DD9F326C8026C71645E7EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077155   (308886) от 27.11.2016
+
+Capture Gif 1.4.4 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_308886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запишите видео с экрана в виде анимированного GIF
+С Capture Gif вы можете легко записать весь экран или только область в качестве анимированного GIF изображения. Capture Gif имеет поддержку нескольких дисплеев, поддерживает Retina дисплеи и всегда создает четкие изображения в формате GIF.
+
+При желании можно захватить курсор мыши, можно записывать область в любом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 ноября 2016Разработчик: PixelEggПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEFFFDD56DB42E8A4A6F457F9E0EA6AB7B3B093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183628   (307775) от 14.11.2017
+
+Forecast Bar - Weather and Radar 3.0.4 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню.
+
+С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.Тип издания: macOS SoftwareРелиз состоялся: 13 ноября 2017Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82706FD88BB7C58AD81ACB328EE608D6A7E3040A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333047   (307651) от 23.10.2019
+
+SSH Config Editor Pro 1.11.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Petr HejkalПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4097A46D49257EAE577B5815562525EE9DB0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183498   (307511) от 14.11.2017
+
+AnyToISO Pro 3.8.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скачали образ CD/DVD или архив в неизвестном формате? Теперь нет нужды искать и покупать дорогое коммерческое ПО, которое работает с этим форматом: одна утилита AnyToISO поддерживает все форматы, включая 7Z, BIN, DAA, DEB, DMG, IMG, ISO, ISZ, MDF, NRG, PKG, RAR, TAR.GZ, TAR.BZ2, XAR, ZIP и др. AnyToISO - cамая универсальная утилита создания ISO из оптических дисков, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2017Разработчик: CrystalIdea SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348C81C6ADBCEE982262BD59619A7EF9AAC99712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183468   (307503) от 14.11.2017
 
 Tipard Mac Video Converter Ultimate 9.1.20 [En]
@@ -6,7 +145,7 @@ Tipard Mac Video Converter Ultimate 9.1.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307503.jpg" />
+  <img src="Z:/picture/008/save_picture_307503.jpg" />
 </div>
 
 
@@ -32,7 +171,7 @@ On1 Photo 10.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307422.jpg" />
+  <img src="Z:/picture/008/save_picture_307422.jpg" />
 </div>
 
 
@@ -58,7 +197,7 @@ Video Converter Movavi 19 v19.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307139.jpg" />
+  <img src="Z:/picture/008/save_picture_307139.jpg" />
 </div>
 
 
@@ -85,7 +224,7 @@ MacAppBlocker 3.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306983.jpg" />
+  <img src="Z:/picture/008/save_picture_306983.jpg" />
 </div>
 
 
@@ -114,7 +253,7 @@ Templates for Numbers 4.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306800.jpg" />
+  <img src="Z:/picture/008/save_picture_306800.jpg" />
 </div>
 
 
@@ -142,7 +281,7 @@ uTorrent 1.8.7 (43001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306079.jpg" />
+  <img src="Z:/picture/008/save_picture_306079.jpg" />
 </div>
 
 
@@ -168,7 +307,7 @@ Metasequoia 4.7.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305389.jpg" />
+  <img src="Z:/picture/008/save_picture_305389.jpg" />
 </div>
 
 
@@ -194,7 +333,7 @@ Apple iMovie 10.1.10 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304650.jpg" />
+  <img src="Z:/picture/008/save_picture_304650.jpg" />
 </div>
 
 
@@ -220,7 +359,7 @@ EasyPing - network tool 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303601.jpg" />
+  <img src="Z:/picture/008/save_picture_303601.jpg" />
 </div>
 
 
@@ -248,7 +387,7 @@ Go64 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303556.jpg" />
+  <img src="Z:/picture/008/save_picture_303556.jpg" />
 </div>
 
 
@@ -274,7 +413,7 @@ Password Vault Manager Enterprise 4.6.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303519.jpg" />
+  <img src="Z:/picture/008/save_picture_303519.jpg" />
 </div>
 
 
@@ -300,7 +439,7 @@ Spillo 1.9.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303001.jpg" />
+  <img src="Z:/picture/008/save_picture_303001.jpg" />
 </div>
 
 
@@ -329,7 +468,7 @@ Templates for Pages 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302840.jpg" />
+  <img src="Z:/picture/008/save_picture_302840.jpg" />
 </div>
 
 
@@ -358,7 +497,7 @@ Keymou 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302624.jpg" />
+  <img src="Z:/picture/008/save_picture_302624.jpg" />
 </div>
 
 
@@ -384,7 +523,7 @@ Affinity Publisher 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302393.jpg" />
+  <img src="Z:/picture/008/save_picture_302393.jpg" />
 </div>
 
 
@@ -411,7 +550,7 @@ Affinity Photo 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302174.jpg" />
+  <img src="Z:/picture/008/save_picture_302174.jpg" />
 </div>
 
 
@@ -437,7 +576,7 @@ Affinity Designer 1.8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302160.jpg" />
+  <img src="Z:/picture/008/save_picture_302160.jpg" />
 </div>
 
 
@@ -464,7 +603,7 @@ Apple iMovie 10.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301997.jpg" />
+  <img src="Z:/picture/008/save_picture_301997.jpg" />
 </div>
 
 
@@ -492,7 +631,7 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301881.jpg" />
+  <img src="Z:/picture/008/save_picture_301881.jpg" />
 </div>
 
 
@@ -519,7 +658,7 @@ Diagrammix 2.15 (3013) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301493.jpg" />
+  <img src="Z:/picture/008/save_picture_301493.jpg" />
 </div>
 
 
@@ -545,7 +684,7 @@ Movavi Video Editor 15.4.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300952.jpg" />
+  <img src="Z:/picture/008/save_picture_300952.jpg" />
 </div>
 
 
@@ -557,143 +696,6 @@ Movavi Video Editor 15.4.1 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0C86E6C95EF9A86BEE639AD67C5144635AA523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261872   (300890) от 12.11.2018
-
-CCleaner Pro 1.15.507 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для эффективной очистки и оптимизиции вашего Mac, которое прекрасно справляется с возложенными на нее функциями, позволяя вашему Mac работать быстрее и освобождая место на жестком диске. CCleaner удаляет временные и неиспользуемые файлы из вашей системы - интернет кеш установленных браузеров, системный и пользовательский кеш, куки, различные системные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2018Разработчик: PiriformПоддерживаемая ОС: Mac OS X 10.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0B251405FBBDD4AD18E2EF1CC3ED2895C2EF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423483   (300755) от 13.11.2020
-
-GraphicConverter 11 v11.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300755.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Lemke Software GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D467B3CDA4A0E736DEA9F7584A3E0591D7B425DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261747   (300362) от 12.11.2018
-
-Adobe Media Encoder CC 2019 v13.0.1 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Encoder CC. Универсальное приложение для обработки любого медиаконтента.
-Вставка, транскодирование, создание прокси-версий и вывод в любом желаемом формате. Этот мощный инструмент управления медиаконтентом предоставляет одинаковые функции для работы с мультимедийными файлами в различных приложениях.
-
-Благодаря тесной интеграции с Adobe Premiere Pro CC, After (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BD539250BDC1933BEFCA983B96DA9AC2E46060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078585   (300300) от 01.12.2016
-
-Infographics 3.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое Инфографика (Infographics)?
-Справочная иллюстрированная информация, представленная в виде диаграмм, таблиц и графиков. Известно что присутствие инфографики в какой-либо публикации сильно влияет на ее заметность и повышает качество материалов.
-В бизнесе инфографика может использоваться менеджерами и маркетологами в тех случаях, когда им необходимо представить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B03A36FC49640B1825EAC77698DF71C26D49C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078697   (300154) от 01.12.2016
-
-FoxTrot Professional Search 5.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300154.jpg" />
-</div>
-
-
-###  Подробнее
-
-FoxTrot Professional Search утилита от компании CTM , в которой реализованы расширенные возможности поиска данных в файловой системе.
-Кроме поиска в самих файлах, утилита FoxTrot Professional Searchn от CTM позволяет вести поиск внутри метаданных, в тексте файлов PDF, HTML, в электронной почте и в документах текстовых редакторов.
-Результаты поиска систематизируются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 сентября 2016Разработчик: CTMПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DE9C1160960BC9374424DB7B6B289560596DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

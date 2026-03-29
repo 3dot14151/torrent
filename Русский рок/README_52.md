@@ -1,3 +1,116 @@
+###  Публикация: 1557470   (540890) от 15.06.2022
+
+ДДТ (DDT) - Уфа (2022) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. УфаЖанр: RockПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892414959443A59C38C7981F3670B426CAF3507B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050083   (540649) от 07.09.2016
+
+Центр (Center) - Первый пещерный (2015) [MP3|320 Kbps] <Rock, New Wave, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дружно с песнями
+02. Святая обязанность
+03. Братская Монголия
+04. Знаю, тебе понравится(   Читать дальше...   )Жанр: Rock, New Wave, ElectronicПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64FDEF31519A511B0A0390B2FD03864BB8CDF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050071   (540513) от 07.09.2016
+
+Центр (Center) - Легенды Москвы (2015) Compilation [MP3|320 Kbps] <Alternative, Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Навсегда
+02. Волшебница
+03. Флаг
+04. Тургеневские женщины(   Читать дальше...   )Жанр: Alternative, Rock, New WaveПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB0E86F0C3555A78BE9F6D9A0C89CCF7B005880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050052   (540505) от 07.09.2016
+
+Василий Шумов (Центр) - Мой район через 30 лет (2016) [MP3|320 Kbps] <Electronic, Minimalism, Sprechgesang>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2016 году исполняется 30 лет записи первого сольного электронного альбома Василия Шумова "Мой район" (1986). По этому поводу Василий решил записать новый альбом "Мой район через 30 лет".01. Мой район через 30 лет
+02. Тебя давно никто не мял
+03. Незабывалка
+04. День зарплаты у анонимов и ботов(   Читать дальше...   )Жанр: Electronic, Minimalism, SprechgesangПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93859300CE8D9C9021BA52766ABACE198C02D723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925430   (540409) от 06.08.2015
 
 Алиса - Лучшее за 30 лет. Часть 2 (2015) [MP3|320 кб/с]<Rock>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540409.jpg" />
+  <img src="Z:/picture/008/save_picture_540409.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - НАШЕствие (все шаги) 19CD (1999-2007) [MP3|320 kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539590.jpg" />
+  <img src="Z:/picture/008/save_picture_539590.jpg" />
 </div>
 
 
@@ -70,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539528.jpg" />
+  <img src="Z:/picture/008/save_picture_539528.jpg" />
 </div>
 
 
@@ -105,7 +218,7 @@ Markscheider Kunst - Vynil (2012) [MP3|320 кб/с]<Ska, Afro-cuban jazz>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539116.jpg" />
+  <img src="Z:/picture/008/save_picture_539116.jpg" />
 </div>
 
 
@@ -134,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536894.jpg" />
+  <img src="Z:/picture/008/save_picture_536894.jpg" />
 </div>
 
 
@@ -162,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536375.jpg" />
+  <img src="Z:/picture/008/save_picture_536375.jpg" />
 </div>
 
 
@@ -188,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536188.jpg" />
+  <img src="Z:/picture/008/save_picture_536188.jpg" />
 </div>
 
 
@@ -215,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536148.jpg" />
+  <img src="Z:/picture/008/save_picture_536148.jpg" />
 </div>
 
 
@@ -244,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535655.jpg" />
+  <img src="Z:/picture/008/save_picture_535655.jpg" />
 </div>
 
 
@@ -270,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534653.jpg" />
+  <img src="Z:/picture/008/save_picture_534653.jpg" />
 </div>
 
 
@@ -299,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534627.jpg" />
+  <img src="Z:/picture/008/save_picture_534627.jpg" />
 </div>
 
 
@@ -332,7 +445,7 @@ Heavenside - A Long Way To The Stopline (2015) [MP3|320 кб/с]<Gothic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533562.jpg" />
+  <img src="Z:/picture/008/save_picture_533562.jpg" />
 </div>
 
 
@@ -361,7 +474,7 @@ Radio Tapok - Потрошитель (2018) Single [MP3|320 Kbps] <Metal, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533157.jpg" />
+  <img src="Z:/picture/008/save_picture_533157.jpg" />
 </div>
 
 
@@ -387,7 +500,7 @@ Stigmata - Калейдоскоп (2019) [MP3|320 Kbps] <Acoustic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532479.jpg" />
+  <img src="Z:/picture/008/save_picture_532479.jpg" />
 </div>
 
 
@@ -416,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531907.jpg" />
+  <img src="Z:/picture/008/save_picture_531907.jpg" />
 </div>
 
 
@@ -446,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531489.jpg" />
+  <img src="Z:/picture/008/save_picture_531489.jpg" />
 </div>
 
 
@@ -475,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530893.jpg" />
+  <img src="Z:/picture/008/save_picture_530893.jpg" />
 </div>
 
 
@@ -504,7 +617,7 @@ VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kb
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529905.jpg" />
+  <img src="Z:/picture/008/save_picture_529905.jpg" />
 </div>
 
 
@@ -533,7 +646,7 @@ Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Exper
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529624.jpg" />
+  <img src="Z:/picture/008/save_picture_529624.jpg" />
 </div>
 
 
@@ -562,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528741.jpg" />
+  <img src="Z:/picture/008/save_picture_528741.jpg" />
 </div>
 
 
@@ -591,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528673.jpg" />
+  <img src="Z:/picture/008/save_picture_528673.jpg" />
 </div>
 
 
@@ -620,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528672.jpg" />
+  <img src="Z:/picture/008/save_picture_528672.jpg" />
 </div>
 
 
@@ -634,122 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9FB34542CC53C991DA0EE3DFFB29F1DAD5EAD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313252   (527918) от 07.07.2019
-
-Ночные Снайперы - Невыносимая легкость бытия (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Разбуди меня
-2. Нелюбовь
-3. Раскаленные
-4. Грустные люди(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786710A26DC43E2B14646AA8B37CFDBF53D4BAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052936   (527277) от 15.09.2016
-
-П.Т.В.П. (Последние Танки В Париже) - Реакция (2016) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десятый студийный альбом. Грязный и лиричный, агрессивный и меланхолический. Тяжёлые рифы, напор и социальная позиция соседствуют здесь с откровенными любовными признаниями и рефлексией. Дионисическое и аполлонистическое чувство впервые в истории группы связываются столь явным и показательным образом. Это то, о чём мы не могли и не хотели промолчать. Наша реакция!01. Время говорить
-02. Лестница в никуда
-03. Розы в грязи
-04. Реакция(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F42E21E6A9B894F03BCDEDAB70D3CD06166F3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559249   (527144) от 24.06.2022
-
-Виталий Дубинин - Бал-Маскарад (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Бал-Маскарад
-3. Бес в твоих глазах
-4. Русский сон(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB25D536C3A01A4E4640A1077CDD31AFF10BBE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157292   (525504) от 11.08.2017
-
-Капитанский Ром - На абордаж! (2017) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кракен
-2. На абордаж!
-3. Поиск призрачной свободы
-4. Старый моряк(   Читать дальше...   )Жанр: Horror Punk, Folk PunkПродолжительность: 00:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA5D1CD3ACC0642FF328533CA078B786A313183
 ```
 
 https://mybot314.ru/tekegram_catalog/

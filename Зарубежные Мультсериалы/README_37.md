@@ -1,3 +1,55 @@
+###  Публикация: 1261522   (302948) от 11.11.2018
+
+Хильда / Hilda (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) TVShows (обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жители планеты даже не догадываются, кто живет рядом с ними. Любознательная девочка Хильда умеет находить себе приключения. Каждый день для нее наполнен интересными и загадочными событиями. Её можно назвать смелой, ведь Хильда не боится встретиться со странными созданиями — такими как тролли, древесные люди и великаны.Производство: Великобритания, Канада, Silvergate Media, Mercury Filmworks, NetflixЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Энди КойлАктеры: Белла Рэмси, Амира Фалзон-Оджо, Рэйчел Аткинс, Кори Инглиш, Саймон Гринхолл, Дэйзи Хаггард, Каиса Хаммарлунд, Расмус Хардайкер, Дэвид Менкин, Ако МитчеллПеревод: Многоголосый закадровый, любительский - TVShowsСубтитры: АнглийскиеПродолжительность: ~ 00:24:00 серияРеклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44F364BBDE844164C0DD2ADE4A9E934958A598B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960986   (302725) от 30.11.2015
+
+Lego Эльфы / Lego Elves (2015) WEBRip (серии 1-4)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмили - обычная девочка, которая случайно попадает в мир эльфов через магический портал. С помощью четырех новых друзей ей предстоит совершить полное приключений путешествие, отыскать волшебные ключи, вновь открыть портал и вернуться назад в мир людей ...Производство: Дания, Ja Film, LEGOЖанр: Мультсериал, приключения, семейныйПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E914A23855382E1EE332BB0DF2C14DA255084AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201591   (302545) от 11.11.2018
 
 Война Гоботов / Challenge of the Gobots (1984-1985) DVDRip (Серии 6, 15, 16, 17, 25, 34, 55, 56) [VO] Трамвай фильм и Бонус от Мастер Фреш
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302545.jpg" />
+  <img src="Z:/picture/008/save_picture_302545.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Lego Звездные войны: Истории дроидов / Lego Star Wars
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302522.jpg" />
+  <img src="Z:/picture/008/save_picture_302522.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301954.jpg" />
+  <img src="Z:/picture/008/save_picture_301954.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301949.jpg" />
+  <img src="Z:/picture/008/save_picture_301949.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301872.jpg" />
+  <img src="Z:/picture/008/save_picture_301872.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301833.jpg" />
+  <img src="Z:/picture/008/save_picture_301833.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301784.jpg" />
+  <img src="Z:/picture/008/save_picture_301784.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300888.jpg" />
+  <img src="Z:/picture/008/save_picture_300888.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300364.jpg" />
+  <img src="Z:/picture/008/save_picture_300364.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300360.jpg" />
+  <img src="Z:/picture/008/save_picture_300360.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299736.jpg" />
+  <img src="Z:/picture/008/save_picture_299736.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297600.jpg" />
+  <img src="Z:/picture/008/save_picture_297600.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297592.jpg" />
+  <img src="Z:/picture/008/save_picture_297592.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297332.jpg" />
+  <img src="Z:/picture/008/save_picture_297332.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297324.jpg" />
+  <img src="Z:/picture/008/save_picture_297324.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297056.jpg" />
+  <img src="Z:/picture/008/save_picture_297056.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296606.jpg" />
+  <img src="Z:/picture/008/save_picture_296606.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296100.jpg" />
+  <img src="Z:/picture/008/save_picture_296100.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294628.jpg" />
+  <img src="Z:/picture/008/save_picture_294628.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294390.jpg" />
+  <img src="Z:/picture/008/save_picture_294390.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292752.jpg" />
+  <img src="Z:/picture/008/save_picture_292752.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291302.jpg" />
+  <img src="Z:/picture/008/save_picture_291302.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290693.jpg" />
+  <img src="Z:/picture/008/save_picture_290693.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288869.jpg" />
+  <img src="Z:/picture/008/save_picture_288869.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24BA658DEEEE3AA7BB929D3D7AB8C1BA7888974E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180270   (288746) от 01.11.2019
-
-Симпсоны / The Simpsons (2017) WEB-DLRip (сезон 29, серии 1-21 из 21) [MVO]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпсоны живут в вымышленном городе Спрингфилд, со своим обществом и историей. Гомер - отец семейства, который дает плохие советы и работает инспектором безопасности на атомной электростанции; Мардж - любящая мать и жена, старается сохранить спокойствие в семье; Барт - 10 летний хулиган; Лиза - философский 8-летний ребенок; и Мэгги - младенец, который общается посредством (   Читать дальше...   )Производство: СШАЖанр: МультсериалРежиссер: Мэтт ГроунингПеревод: Многоголосый закадровый, любительский (VO-Production)Продолжительность: ~ 00:22:00 х серияРеклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B0C5C18396660255EFF743FB4C5A5A4DFF9012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156594   (288737) от 01.11.2019
-
-Рапунцель: Скоро Счастлива Навсегда / Tangled: Before Ever After (2017) HDTV [H.264] (Сезон 1, серия 7-21) [MVO] (Обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет мультсериала "Рапунцель: Скоро счастлива навсегда" 2017 года повествует о принцессе Рапунцель, Юджине,  Максимусе, Паскале  и остальных её друзьях. События происходят между первой и второй частью, до того, как Рапунцель и Юджин поженились. Здесь мы увидим, как любознательная принцесса решит получше узнать незнакомый для неё мир, где мы познакомимся (   Читать дальше...   )Производство: США, 9 Story Entertainment, Walt Disney Television AnimationЖанр: Минисериал, Фентези, Комедия, ДетскийРежиссер: Том Колфилд, Крис СонненбургПерсонажи: Мэнди Мур, Закари Ливай, Идэн Испиноза, Джули Боуэн, Клэнси БраунПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Роли озвучивали: Алена Тельпук,  Анатолий Котовский,  Денис Шаталов, Алибек Ибрагим, Есения Стеклова, Василий Михайлов, Ашраф Мансур, Артемий Яшин и другие.  Перевод: Анна Милова, Есения Стеклова, Денис Шаталов, Юлия ЧумакСубтитры: Русские (вшитые на песни  и информационный блок)Продолжительность: ~00:23:09Реклама: Рекламы нет, только информация о студии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F84ABED8A430BCB23316AA63EEBEDD29AFB3A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

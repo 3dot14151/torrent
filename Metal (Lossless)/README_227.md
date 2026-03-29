@@ -1,3 +1,90 @@
+###  Публикация: 1635485   (236058) от 26.05.2023
+
+Monachopsis Art - An Empty Existence (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_236058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thee Darkness Gathers (02:04)
+02 - Seeds (03:49)
+03 - Silent Torture (04:01)
+04 - River of Blood (04:59)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D6B6D9AB656C5730323F3EC653B342178EAE9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635653   (236040) от 26.05.2023
+
+Nervochaos - Chthonic Wrath (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_236040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Son of Sin (02:54)
+02 - Chaos Prophets (03:40)
+03 - Kill for Pleasure (03:47)
+04 - Taphephobia (003:32)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C0764B483AB906BF2D8E613C8C32379B352564B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635470   (236035) от 26.05.2023
+
+Noumena - Anima (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_236035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaiku (1:53)
+02. Saatto (6:15)
+03. Murtuneet (9:27)
+04. Seula (4:33)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3598B056D8EF448A24A2BAA7E92694EE145E71C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457792   (236034) от 27.03.2021
 
 IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ IronBourne - IronBourne (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236034.jpg" />
+  <img src="Z:/picture/005/save_picture_236034.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ The Lurking Fear - Death, Madness, Horror, Decay (2021) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236028.jpg" />
+  <img src="Z:/picture/005/save_picture_236028.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Mork - Dypet (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236025.jpg" />
+  <img src="Z:/picture/004/save_picture_236025.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Nepenthes - Grand Guignol (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236018.jpg" />
+  <img src="Z:/picture/004/save_picture_236018.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Black Lava - Soul Furnace (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236016.jpg" />
+  <img src="Z:/picture/005/save_picture_236016.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Host - IX (2023) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock, Dark
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236002.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Diseased Earth - Welcome the plague years (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235997.jpg" />
+  <img src="Z:/picture/005/save_picture_235997.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Setanera - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235987.jpg" />
+  <img src="Z:/picture/005/save_picture_235987.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Fragile Art - The World You Wanted (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235958.jpg" />
+  <img src="Z:/picture/005/save_picture_235958.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ The Silent Rage - Nuances Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235945.jpg" />
+  <img src="Z:/picture/004/save_picture_235945.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Kuturlat - Necroritual (2005) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235934.jpg" />
+  <img src="Z:/picture/005/save_picture_235934.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Perished - Seid (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235917.jpg" />
+  <img src="Z:/picture/005/save_picture_235917.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Funeral Mass - Shadow of the Raventhrone (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235884.jpg" />
+  <img src="Z:/picture/005/save_picture_235884.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235879.jpg" />
+  <img src="Z:/picture/005/save_picture_235879.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Flidais - Pathogen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235875.jpg" />
+  <img src="Z:/picture/005/save_picture_235875.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235871.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235864.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235856.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235852.jpg" />
+  <img src="Z:/picture/004/save_picture_235852.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235849.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Psilocybe Larvae - Non-Existence (2008) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235843.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Deathspell Omega - The Synarchy of Molten Bones (2016) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235832.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235816.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Psilocybe Larvae - Agony (2003) [FLAC|Lossless|image + .cue] <Dark Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08952F6FC239735AD20B828C411541E907171662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641007   (235800) от 20.06.2023
-
-Immortal - War Against All (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Against All (3:27)
-02. Thunders Of Darkness (3:48)
-03. Wargod (4:39)
-04. No Sun (4:16)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2A92B346D9CAE1FE9AB97A84BD2E9EB346EF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636029   (235799) от 28.05.2023
-
-KAUAN - Lumikuuro Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric Black Metal, Post Rock, Funeral Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savu & Aamu ja Kaste (Live) (7:58)
-02. Lumikuuro (Live) (6:56)
-03. Koivun Elämä (Live) (6:22)
-04. Sumun Syleily (Live) (6:01)(   Читать дальше...   )Производство: Artoffact RecordsЖанр: Dark Folk, Atmospheric Black Metal, Post Rock, Funeral DoomПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EE93C296243348FDE0B4336B68EFC95FB3C825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641124   (235768) от 20.06.2023
-
-Numeron - Road to Valhalla (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Light Upon the Ground (06:25)
-02 - Blood In My Vein (05:04)
-03 - Believer (04:29)
-04 - Noise of Dystopia (06:29)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94D67DCA5F93C12DD1B22CA73344F9B2E7D658D
 ```
 
 https://mybot314.ru/tekegram_catalog/

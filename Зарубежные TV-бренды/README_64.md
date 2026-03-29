@@ -1,3 +1,111 @@
+###  Публикация: 1301053   (587015) от 09.05.2019
+
+BBC: Дикая Африка и Маленькие гиганты / Wild Africa & Tiny Giants (2014 -2015) BDRemux [H.264/1080p] (2 части) [EN / EN Sub]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикая Африка.
+Африка — это старейший континент нашей планеты, колыбель цивилизации. Несмотря на свой почтенный возраст, более 270 миллионов лет, этот омываемый океанами материк является пожалуй единственным, сохранившим гармонию с природой и не подвергшимся разрушительному влиянию человеческой деятельности.
+Маленькие гиганты.
+О том, что происходит под нами и вокруг (   Читать дальше...   )Производство: Великобритания, BBC EarthЖанр: Документальный, природа, флора, фаунаРежиссер: Марк БраунлоуПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 00:43:16+00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834560D0701607003424C60FC5E6C52438F4DC28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301386   (586168) от 10.05.2019
+
+NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
+Несмотря на свой древний внешний вид, рептилии - это животные, полные загадок, и сложные для изучения. Во время охоты змеи в совершенстве контролируют каждый миг, который отделяет жизнь от (   Читать дальше...   )Производство: Испания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4815CD737E9F232BFC7C0A769A5ADB0174B17144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918873   (585749) от 16.07.2015
+
+NG: Миссия Плутон (Встреча с Плутоном) / Mission Pluto (2015) HDTVRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585749.jpg" />
+</div>
+
+
+###  Подробнее
+
+После путешествия длиной в три миллиарда миль Космический зонд "Новые горизонты", отправленный к Плутону почти 10 лет назад, впервые передал на Землю уникальные снимки этой далекой планеты. В этой передачи мы узнаем о трудностях, которые пришлось преодолевать разработчикам проекта и перспективах в изучении последнего и самого далёкого объекта Солнечной (   Читать дальше...   )Телекомпания: Bigger Bang Communications Ltd for National Geographic ChannalЖанр: Документальный, научно-познавательный, космосРежиссер: Nic YoungПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17A0D069EB7DEC9A2F3E1E06E449924C2F845D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435807   (585586) от 16.07.2015
+
+ВВС: Живая природа. Ребятам о зверятах / BBC: All About Animals (26 серий из 26) (2006) 2 x DVD-9 + 3 x DVD-5
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на передачу "Ребятам о зверятах" - познавательный и увлекательный сериал для самых маленьких зрителей. В этом фильме дети смогут не только наблюдать за любимыми животными, но и узнают ответы на многие любопытные вопросы, например такие как: кто громче всех рычит, у кого самая большая семья и даже у кого самый неприятный запах. А также познакомятся (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Дэвид КарлингПеревод: Профессиональный двухголосыйПродолжительность: ~ 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A9B353F8AF5B08F80CEB2BC6FBBDD99BC133F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301419   (585103) от 11.05.2019
 
 Animal Planet: В дикие края с Эваном. Киты и акулы / Evan Goes Wild (2019) HDTV [H.264/1080i]
@@ -6,7 +114,7 @@ Animal Planet: В дикие края с Эваном. Киты и акулы / 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585103.jpg" />
+  <img src="Z:/picture/008/save_picture_585103.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ BBC: Галапагосы / Galapagos (2006) HDTVRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584600.jpg" />
+  <img src="Z:/picture/005/save_picture_584600.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ BBC: Прогулки с чудовищами / Walking with Beasts (2001) 2хDV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584590.jpg" />
+  <img src="Z:/picture/005/save_picture_584590.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Discovery: Под Нью Йорком / UnderNew York (2008) IPTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584136.jpg" />
+  <img src="Z:/picture/008/save_picture_584136.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Discovery: Спасение подлодки - Специальный выпус
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584050.jpg" />
+  <img src="Z:/picture/008/save_picture_584050.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ Animal Planet: Cинее царство (Лазурная страна). Кит�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583816.jpg" />
+  <img src="Z:/picture/008/save_picture_583816.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ BBC: Мир природы. Бабочки. Британская страсть 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583811.jpg" />
+  <img src="Z:/picture/008/save_picture_583811.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ Discovery: Любитель опасностей / Dangerman (2004) IPTVRip [4 �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583094.jpg" />
+  <img src="Z:/picture/008/save_picture_583094.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Animal Planet: Дикие реки Африки / Wild Africa. Rivers of Life (2
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582972.jpg" />
+  <img src="Z:/picture/008/save_picture_582972.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_582557.jpg" />
+  <img src="Z:/picture/005/save_picture_582557.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582055.jpg" />
+  <img src="Z:/picture/008/save_picture_582055.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580913.jpg" />
+  <img src="Z:/picture/008/save_picture_580913.jpg" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580873.jpg" />
+  <img src="Z:/picture/008/save_picture_580873.jpg" />
 </div>
 
 
@@ -347,7 +455,7 @@ NG: Секретные материалы древности: Меч в камн
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580813.jpg" />
+  <img src="Z:/picture/008/save_picture_580813.jpg" />
 </div>
 
 
@@ -373,7 +481,7 @@ BBC. Планета людей - Арктика / Human planet - Arctic (2011) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580799.jpg" />
+  <img src="Z:/picture/008/save_picture_580799.jpg" />
 </div>
 
 
@@ -405,7 +513,7 @@ Discovery: Разрушители легенд. Шпионские машины 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580785.jpg" />
+  <img src="Z:/picture/008/save_picture_580785.jpg" />
 </div>
 
 
@@ -434,7 +542,7 @@ BBC. Освенцим (Аушвиц): Нацисты и «Окончательн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579798.jpg" />
+  <img src="Z:/picture/008/save_picture_579798.jpg" />
 </div>
 
 
@@ -460,7 +568,7 @@ NG: Секретные материалы древности: На заре ци
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579748.jpg" />
+  <img src="Z:/picture/008/save_picture_579748.jpg" />
 </div>
 
 
@@ -486,7 +594,7 @@ NG: Секретные материалы древности. Содом и Го
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579710.jpg" />
+  <img src="Z:/picture/008/save_picture_579710.jpg" />
 </div>
 
 
@@ -512,7 +620,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_579698.jpg" />
+  <img src="Z:/picture/005/save_picture_579698.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ BBC: Всемирная история живописи / Sister Wendy’s Story
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_579620.jpg" />
+  <img src="Z:/picture/005/save_picture_579620.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578927.jpg" />
+  <img src="Z:/picture/008/save_picture_578927.jpg" />
 </div>
 
 
@@ -576,110 +684,6 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37602A8B35F3DD03B6891CC26766A4AAD1B050AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920595   (578916) от 23.07.2015
-
-Discovery. Катастрофа на колесах / Wheels That Fail (2014) HDTV [H.264/720p] [Серии 1-6] [Обновляемая]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этой программы съехали с катушек – когда они за рулем, это просто катастрофа! Такой подборки видео о происшествиях на колесах вы еще не видели: Discovery Channel выбрал самые смешные, самые опасные и самые захватывающие ролики, где автомобили и мотоциклы сталкиваются, переворачиваются, взрываются, падают в воду, летят под откос – и этот список можно продолжать (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAC166CC14F695B08068F9B8D7EC28E8441AEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920735   (578832) от 23.07.2015
-
-Discovery. Дорожные ковбои / Аsphalt Сowboys (2012) HDTVRip [Серии 1-2]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дальнобойщики Германии – уже своего рода водительская элита, а для тех, кто хочет почувствовать себя за рулем фуры, даже придумали компьютерный симулятор. Теперь же на работу дальнобойщиков можно посмотреть со всех ракурсов: программа Discovery Channel «Дорожные ковбои» расскажет о том, каково это – наматывать километры по автобанам, сидя в кабине немецкого грузовика. (   Читать дальше...   )Телекомпания: Германия, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704E2C95B7C6FBB09FCCF693061684ACC3C73710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554313   (578795) от 29.05.2022
-
-Египет с высоты птичьего полёта / Egypt from Above (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет... Родина одной из древнейших могучих и долговечных цивилизаций в мире. Захватывающее путешествие по воздуху позволит нам посетить самые удивительные места и покажет, как невероятные достижения древних помогли сформировать современный Египет. Обозревая грандиозный ландшафт с высоты птичьего полёта, мы узнаем, как многие поколения египтян строили уникальное (   Читать дальше...   )Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: документальный, история, путешествия, культураРежиссер: Мэтт Каррингтон, Фрэнки Фазерс / Matt Currington, Frankie FathersПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 2x ~00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233748   (578058) от 01.07.2018
-
-NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDTVRip [H.264/1080i-LQ] [hand made 50 fps]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотрите на яростное пожирание добычи крокодилами, благодаря кадрам, снятым человеком, рискнувшим оказаться среди них в момент их трапезы.Производство: США, NHU Africa, Foster Brothers Film Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Крейг Фостер, Деймон ФостерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 ```
 
 https://mybot314.ru/tekegram_catalog/

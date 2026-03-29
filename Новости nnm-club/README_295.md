@@ -1,3 +1,160 @@
+###  Публикация: 1785535   (24337) от 18.03.2025
+
+WinRAR просит купить сумку, раз вы не хотите покупать лицензию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Rarlab объявила о совместном проекте с французским брендом Tern. Они создали сумку, внешний вид которой является отсылкой к логотипу знаменитого архиватора WinRAR. Это три книжки — пурпурного, зеленого и синего цвета — сложенные стопкой. Как гласит официальное сообщение в Х, «Что поддержит разработчика приложения лучше, чем покупка WinRAR-сумки, раз уж вы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364946   (24222) от 19.03.2025
+
+Фильмы о звездах (2019-2025) DVB [H.264] (серии 1-120 из ?) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Демьяненко ненавидел своего знаменитого персонажа и был его полной противоположностью. Встречи назначал только поздним вечером, маскировался перед выходом на улицу, был в сложных отношениях с самыми близкими. Какой там Шурик... Его считали социофобом! И жить актёру с этим было трудно... Самый некрасивый актёр советского кино – лопоухий и нелепый Владимир (   Читать дальше...   )Телекомпания: Россия / ТВ ЦентрЖанр: Документальный, Искусство, БиографияУчастники: Михаил Боярский, Елена Ульянова, Александр Басов, Евгений ГерасимовСубтитры: русские, телетекст (888)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786205   (24125) от 20.03.2025
+
+Маск и DOGE обнаружили «волшебные денежные компьютеры», печатающие деньги «из воздуха»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава Департамента эффективности государственного управления (DOGE) Илон Маск рассказал об обнаружении «волшебных денежных компьютеров» (magic money computers), печатающих деньги «из воздуха».Маск сделал это замечание во время разговора с сенатором Тедом Крузом (республиканец, Техас) во время подкаста «Verdict».По словам Маска, такие компьютеры существуют в нескольких (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254544   (24117) от 20.03.2025
+
+Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License GOG [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики изменили только интерфейс, который теперь масштабируется до разрешения 4K, а также добавили эффектов, таких как глубина резкости, пиксельные шейдеры и постобработка. Кроме того, в Neverwinter Nights: Enhanced Edition входит основная игра и дополнения Shadows of Undrentide, Hordes of the Underdark, Pirates of the Sword Coast, Infinite Dungeons и Wyvern (   Читать дальше...   )Тип издания: LicenseРазработчик: BeamdogЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский, ПольскийЯзык субтитров: Английский, Немецкий, Французский, Польский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785152   (23908) от 22.03.2025
+
+Электрический штат / The Electric State (2025) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осиротевшая девушка отправляется на поиски младшего брата вместе с желтым игрушечным роботом и причудливым бродягой.Производство: Бразилия, Индия, США / AGBO, Double Dream, Skybound EntertainmentЖанр: фантастика, боевик, драма, комедия, приключенияРежиссер: Энтони Руссо, Джо РуссоАктеры: Милли Бобби Браун, Крис Пратт, Ке Хюи Куан, Стэнли Туччи, Вуди Норман, Джанкарло Эспозито, Джейсон Александер, Мартин Клебба, Марин Хинкль, Вуди Харрельсон, Энтони МакиПеревод: Дублированный (Videofilm Int. официальный; Red Head Sound неофициальный)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, 2xFull), английские (SDH)Продолжительность: 02:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786701   (23787) от 23.03.2025
+
+От Google Play требуют удалить 47 VPN-приложений
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналисты изучили Lumen Database, где Google и другие зарубежные сервисы публикуют информацию о поступающих к ним запросах на удаление контента.Изучив    базу они обнаружили, что с 12 марта Роскомнадзор направил  к Google более 50 запросов с требованием удалить из Google Play 47 приложений VPN:1.1.1.1 + WARP и HideMyNetVPN;
+ VPN4TV и Secure VPN;(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786706   (23700) от 24.03.2025
 
 Launcher for zapret 2.5 [Ru/En]
@@ -6,7 +163,7 @@ Launcher for zapret 2.5 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23700.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23690.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ Autodesk AutoCAD 2026 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23592.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23495.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23375.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23290.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23264.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ Age of Mythology: Retold (2024) [Ru/Multi] (100.18.12962.0/dlc) Repack Deceptico
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23175.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23174.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) License GOG [Definitive 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23173.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22965.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ Arafou Otoko no Isekai Tsuuhan / The Daily Life of a Middle-Aged Online Shopper 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22662.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ Autodesk Revit 2026 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22649.jpg" />
 </div>
 
 
@@ -351,7 +508,7 @@ Windows избавится от синего «экрана смерти»
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22524.jpg" />
 </div>
 
 
@@ -377,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22507.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22451.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ Zorin OS 17.3 Pro & Pro Lite 17.3 [X86_64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22450.jpg" />
 </div>
 
 
@@ -459,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22449.jpg" />
 </div>
 
 
@@ -485,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22444.jpg" />
 </div>
 
 
@@ -511,171 +668,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22428.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Госдума приняла во втором и третьем чтении закон, который с 1 сентября 2025 года запрещает навязывать потребителям любые дополнительные товары, работы и услуги.Потребитель будет вправе отказаться от оплаты навязанных ему дополнительных товаров (работ, услуг), а если они уже оплачены, то потребовать от продавца (исполнителя, владельца агрегатора) возврата денег. Требование (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680242   (22336) от 06.04.2025
-
-OpenVPN for Android 0.7.55 (Обновляемая) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22336.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenVPN — свободная реализация технологии виртуальной частной сети с открытым исходным кодом для создания зашифрованных каналoв типа точка-точка или сервер-клиенты между компьютерами.
-OpenVPN для Android — это клиент с открытым исходным кодом, разработанный Арне Швабе. Он ориентирован на более продвинутых пользователей и предлагает множество настроек, а также возможность (   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Зависит от устройстваЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10759D18856D1A463A3F7F74E2891E3B41DA8078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461941   (22122) от 08.04.2025
-
-Шаблоны сайта - Envato Market Freebies (Themes & Templates) [PHP, CSS, HTML, JS, XML] (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22122.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Envato Market периодически выкладывают в бесплатный доступ (Freebies) платный контент (в данном случае это шаблоны и темы). Кто-то может успеть скачать напрямую от туда, а если кто-то пропустил, то может быть найдет для себя что-то нужное в этой раздаче.
-Но чтобы получить полноценную поддержку, новые версии и т.п., то рекомендуется купить нужный материал на официальном (   Читать дальше...   )Формат: PHP, CSS, HTML, JS, XML
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452CA36BAF8D836CEBE0B960EB5A0ABA0698140F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789079   (21914) от 10.04.2025
-
-Чёрный чемодан – двойная игра / Black Bag (2025) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококлассные агенты разведки Джордж и Кэтрин счастливо женаты много лет. Преданные друг другу не меньше, чем работе, они научились находить баланс между работой и личной жизнью. Но однажды Джорджу сообщают, что Кэтрин — главная подозреваемая в государственном преступлении. Теперь мужчине придется решить, кому он больше предан — своему браку или стране.Производство: США / Focus Features, Casey Silver ProductionsЖанр: триллер, детективРежиссер: Стивен СодербергАктеры: Майкл Фассбендер, Кейт Бланшетт, Густаф Скарсгард, Том Бёрк, Мариса Абела, Реге-Жан Пейдж, Наоми Харрис, Каэ Александр, Мартин Бассиндэйл, Пирс БроснанПеревод: Многоголосый профессиональный (TVShows, 1win Studio, HDrezka Studio, заКАДРЫ), авторский (Д.Есарев)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF9936CE83E79E7428A8E7498F276E6D9087B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782935   (21913) от 10.04.2025
-
-Девять тел в мексиканском морге / Nine Bodies in a Mexican Morgue (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm, HDRezka, RuDub, Red Head Sound, LE-Production (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой самолет из Гватемалы, который направлялся в США, терпит крушение в отдаленных мексиканских джунглях. На борту оказалось несколько выживших, которые разбрелись по незнакомому острову. Но друг за другом их начинает кто-то убивать. Времени у оставшихся людей не так уж и много: им необходимо не только спастись от убийцы, но и выяснить, почему всех их хотят (   Читать дальше...   )Производство: Великобритания, Eleventh Hour Films, MGM+Жанр: Триллер, криминал, детективРежиссер: Брайан О'Мэлли, Вивиан АндерегенАктеры: Эрик Маккормак, Питер Гадиот, Себастьян Капитан Виверос, Харлис Бесерра, Дебора Айоринде, Хари Диллон, Глория ГарсиаПеревод: Многоголосый (LostFilm, HDRezka Studio, RuDub, Red Head Sound, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096712A9F5EE1535E933236BFE93E77F6851C938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078946   (21912) от 10.04.2025
-
-Девяностые (2016-2025) DVB [H.264] (серии 1-102 из ?) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21912.jpg" />
-</div>
-
-
-###  Подробнее
-
-90-е годы называют лихими и огромным испытанием для каждого жителя России. Это время, когда на руинах разрушенного Советского Союза строилась новая страна – с новыми порядками и новыми героями. "90-е" – это документальный фильм-расследование. Публицистический цикл рассказывает о самых значимых явлениях в жизни общества того времени, о том, что помнит каждый (   Читать дальше...   )Телекомпания: Россия, ТВ ЦентрЖанр: Телепередача, История, ХроникаУчастники: Борис Ельцин, Юрий Лонго, Алан Чумак, Рамзан КадыровПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12EF9A646DBC10A9BBE5990E4C240E20CF2038D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790199   (21896) от 10.04.2025
-
-Лютоволки из "Игры престолов" уже не миф — ученые их воскресили
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский стартап Colossal снова играет  в бога — на этот раз они вывели потомков ужасных волков (да-да, тех самых огромных dire wolves), которые вымерли больше 12 тысяч лет назад и вдохновили Джорджа Мартина на лютоволков в «Игре престолов».На видео — щенки Ромул и Рем. Их сестру зовут Кхалиси, но показывать её пока не готовы. Возможно, ждут, пока вырастет до (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,107 @@
+###  Публикация: 448339   (203313) от 31.01.2023
+
+Киви! / Kiwi (2006) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_203313.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Kiwi!» — короткометражный анимационный мультфильм, который был создан в 2006 году Дони Пермеди. Он нарисовал его в защиту своей диссертации по анимации в Школе искусств Нью-Йорка. Эта анимационная история о птице киви, которая мечтает летать.Производство: СШАЖанр: детский, компьютерная анимацияРежиссер: Дони ПермедиПеревод: Не требуетсяСубтитры: отсутствуютПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22188ACC840C31D02F1E340D7F09D936B80A99B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612110   (202699) от 14.02.2023
+
+Маленький Николя / Le petit Nicolas: Qu'est-ce qu'on attend pour etre heureux? (2022) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_202699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили в Париже два друга — писатель и художник. И придумали они однажды маленького Николя — озорного мальчугана, который любит своих родителей, ходит в школу, проказничает с друзьями и мечтает стать пилотом. Главное качество Николя — умение видеть что-то забавное даже в самых обычных вещах, так что каждый его день наполнен удивительными приключениями.Производство: Франция, Люксембург / Align, Bidibul Productions, Canal+ fr, Centre National de la Cinématographie (CNC), Ciné, Département de la Charente, La Procirep-AngoaЖанр: мультфильм, семейныйРежиссер: Амандин Фредон, Бенжамен МассубрАктеры: Симон Фалю, Ален Шаба, Лоран Лафитт, Марк Арно, Альбан Омар, Элиза Бардо, Дельфин Бариль, Люси Больце, Октав Боссюэ, Maud CoullombПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: Русские (Full) отдельноПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0574D8497B8714162FEC25F9A29E1CD3A1DFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622865   (200542) от 30.03.2023
+
+Мумиёшки / Momias (2023) WEB-DLRip [H.264] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египетские мумии живут под землей в секретном городе, который является точным отражением Древнего Египта времен фараонов. Три мумии — принцесса, бывший возничий и его младший брат вместе со своим домашним крокодилом попадают в забавное приключение, в ходе которого они случайно попадают в современный Лондон, где попытаются найти древнее кольцо, украденное археологом, (   Читать дальше...   )Производство: Испания, США / Warner Bros. Entertainment España, Televisió de Catalunya (TV3)Жанр: мультфильм, комедия, семейныйРежиссер: Хуан Хесус Гарсиа ГалочаАктеры: Ана Эстер Альборг, Розер Альдабо Арнау, Оскар Барберан, Шон Бин, Франческ Бельда, Пилар Эстерас Казанова, Хью Бонневилль, Роберто Куэнка Мартинес, Алеикс Эстаделла, Луис Торреллес Галлего, Хоан Карлес Густемс, Хосе Луис МедиавильяПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: РусскийСубтитры: Английские (Full, SDH)Продолжительность: 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961B981DEE4D33AB598068F2E60DDB65C7DA9788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629895   (199136) от 28.04.2023
+
+Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) HDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот в сапогах потратил восемь из девяти отпущенных ему жизней и теперь отправляется в новое приключение, чтобы отыскать мифическое Последнее желание и восстановить свои жизни.Производство: США, Япония / Dentsu, DreamWorks Animation, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключения, фэнтезиРежиссер: Джоэль Кроуфорд, Хануэль МеркадоПеревод: Дублированный (Bravo Records Georgia / Movie Dubbing)Язык озвучки: РусскийСубтитры: Русские (Forced, full), Украинские, Английские (full, SDH)Продолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D67A40542D0C0844996772A5A2C2691250BA403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633541   (198367) от 15.05.2023
 
 Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) WEBRip [MVO]
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198367.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197735.jpg" />
+  <img src="Z:/picture/004/save_picture_197735.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196952.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195724.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195212.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194984.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194966.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194504.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194498.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194200.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194090.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193961.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192864.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191730.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191311.jpg" />
+  <img src="Z:/picture/004/save_picture_191311.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_187563.jpg" />
+  <img src="Z:/picture/005/save_picture_187563.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187046.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181382.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178715.jpg" />
+  <img src="Z:/picture/005/save_picture_178715.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178663.jpg" />
+  <img src="Z:/picture/005/save_picture_178663.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177802.jpg" />
+  <img src="Z:/picture/005/save_picture_177802.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175639.jpg" />
+  <img src="Z:/picture/004/save_picture_175639.jpg" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7673C88C0DC1D3805DBBC6D027C818B4A23E29E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595576   (174837) от 06.12.2022
-
-Дневник слабака: Правила Родрика / Diary of a Wimpy Kid: Rodrick Rules (2022) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174837.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Джеффа Кинни "Дневник Слабака: Родрик рулит". Грег Хеффли идет в школу после летних каникул. Все, чего он хочет сейчас, - стереть последние три месяца из памяти своего старшего брата, Родрика, который узнал о Грегори одну очень постыдную вещь. Грегори понимает, что Родрик готов рассказать всему свету об этом позоре… и готов на все, чтобы этого (   Читать дальше...   )Производство: Канада, США / 20th Century Fox Animation, Disney+, DisneyToon Studios, Nickelodeon Movies, Pinkfong, Twentieth Century Animation, Walt Disney Company, TheЖанр: мультфильм, драма, комедия, семейныйРежиссер: Luke CormicanАктеры: Брэйди Нун, Ethan William Childress, Хантер Диллон, Эрика Серра, Крис Диамантополос, Эдвард Эснер, Линда Лавин, Лоретта Дивайн, Присцилла Лопес, Нэйтан АренасПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90928B6DD3851BEFCE6066307AA8DBE6398C62C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246035   (174644) от 08.12.2020
-
-Как приручить дракона / How to Train Your Dragon (2010) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика, который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны…Производство: США / DreamWorks AnimationЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуа, Крис СандерсАктеры: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг, Робин Аткин Даунс, Филип МакГрэйдПеревод: ДублированныйПродолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B04D2F863D7A3B9716B24BD80E5755AB45211B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344030   (173826) от 05.12.2021
-
-Ёжики в большом городе / Ezi un lielpilseta (2013) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весной звери просыпаются от зимней спячки и обнаруживают, что на месте их леса построен город. Все начинают искать новые способы выживания, а ежи выясняют, что звери могут зарабатывать деньги...Производство: Латвия, Film Studio Animacijas Brigade, Animacijas Brigade See moreЖанр: Детский, Кукольный, КороткометражныйРежиссер: Эвальдс ЛацисПеревод: Не требуется (нет диалогов и озвученных комментариев)Язык озвучки: русский (закадровый на титры)Субтитры: отсутствуютПродолжительность: 00:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC19920B5DF4218CB2DC732C6476671AC99FC89D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199173   (173699) от 05.12.2021
-
-Винни Пух: Весенние денёчки с малышом Ру / Winnie the Pooh: Springtime with Roo (2004) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и наступил это замечательный весенний денек! Пчелки жужжат, цветочки распускаются, а Ру, Винни и Тигруля уже готовы к веселью и играм. Но Кролик не хочет никого выпускать на улицу, пока не будет закончена большая сезонная уборка!
-Сможет ли что-то или кто-то повлиять на строгого Кролика? С помощью мудрости и доброты Ру Кролик вскоре понимает, что на свете есть (   Читать дальше...   )Производство: США, Walt DisneyЖанр: Сказка, Детский, Рисованная анимацияРежиссер: Сауль Эндрю Блинкофф, Эллиот М. БурАктеры: Виктор Костецкий (Tigger), Владимир Баранов (Winnie The Pooh), Георгий Корольчук (Rabbit), Елизавета Захарьева (Roo), Станислав Концевич (рассказчик), Мария Соснякова (Kanga), Андрей Матвеев (Piglet), Дмитрий Лагачев (Eeyore)Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFEB254730A5D9155FFE4DEF93C72773DFC4DA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

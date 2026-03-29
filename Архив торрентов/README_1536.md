@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703179.jpg" />
+  <img src="Z:/picture/008/save_picture_703179.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PDF Annotator 5.0.0.508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703168.jpg" />
+  <img src="Z:/picture/008/save_picture_703168.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703163.jpg" />
+  <img src="Z:/picture/008/save_picture_703163.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703158.jpg" />
+  <img src="Z:/picture/008/save_picture_703158.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703148.jpg" />
+  <img src="Z:/picture/008/save_picture_703148.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Epubor Ultimate 3.0.12.707 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703146.jpg" />
+  <img src="Z:/picture/008/save_picture_703146.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Daum PotPlayer 1.7.21280 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703144.jpg" />
+  <img src="Z:/picture/008/save_picture_703144.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703141.jpg" />
+  <img src="Z:/picture/008/save_picture_703141.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Audition 2020 13.0.9.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703139.jpg" />
+  <img src="Z:/picture/008/save_picture_703139.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ableton Live 10 Suite v10.1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703136.jpg" />
+  <img src="Z:/picture/008/save_picture_703136.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703133.jpg" />
+  <img src="Z:/picture/008/save_picture_703133.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ SamDrivers 20.7 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703132.jpg" />
+  <img src="Z:/picture/008/save_picture_703132.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Efficient Sticky Notes Pro 5.50 Build 544 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703106.jpg" />
+  <img src="Z:/picture/008/save_picture_703106.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ AusLogics Disk Defrag Pro 4.9.20.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703104.jpg" />
+  <img src="Z:/picture/008/save_picture_703104.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Vidmore Player 1.0.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703089.jpg" />
+  <img src="Z:/picture/008/save_picture_703089.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Skype 8.81.0.268 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703087.jpg" />
+  <img src="Z:/picture/008/save_picture_703087.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ AOMEI Partition Assistant Standard Edition 9.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703082.jpg" />
+  <img src="Z:/picture/008/save_picture_703082.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ GOM Player Plus 2.3.74.5338 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703075.jpg" />
+  <img src="Z:/picture/008/save_picture_703075.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Gemini 2: The Duplicate Finder 2.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703071.jpg" />
+  <img src="Z:/picture/008/save_picture_703071.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703070.jpg" />
+  <img src="Z:/picture/008/save_picture_703070.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Doo - Get Things Done 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703066.jpg" />
+  <img src="Z:/picture/008/save_picture_703066.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703058.jpg" />
+  <img src="Z:/picture/008/save_picture_703058.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703054.jpg" />
+  <img src="Z:/picture/008/save_picture_703054.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703048.jpg" />
+  <img src="Z:/picture/008/save_picture_703048.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703038.jpg" />
+  <img src="Z:/picture/008/save_picture_703038.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703036.jpg" />
+  <img src="Z:/picture/008/save_picture_703036.jpg" />
 </div>
 
 

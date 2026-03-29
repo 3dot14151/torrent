@@ -1,3 +1,107 @@
+###  Публикация: 1123944   (786001) от 09.04.2017
+
+Corel VideoStudio Ultimate X10 20.1.0.14 (x64) RePack by PooShock [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786001.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoStudio Ultimate X10 создана для обработки видео и позиционируется в качестве простого решения для пользователей. Среди нововведений последней версии можно выделить поддержку Blu-ray Disc Movie Video (BDMV). Пользователи могут импортировать файлы BDMV непосредственно с Blu-ray-видеокамер, работать с HD-видео, добавлять анимированные меню и записывать проекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723DEED01B45A5310AFA737F2981546BB0B8FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124157   (785852) от 10.04.2017
+
+Гора 2 / Dag II / The Mountain II (2016) WEBRip [H.264/720p-LQ] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю секретного отряда спецназа Позывной «Приносящий бурю». После событий первого фильма Бекир и Огуз, стали лучшими друзьями, побывали во всемирно известном, постоянно изнурительном турецком спецназе. Их первая миссия начинается шесть лет спустя - проникнуть в самый варварский район Ирака для спасательной миссии.Производство: Турция, 3leven, CaglarArts Entertainment, Insignia ProductionsЖанр: Драма, Военный, ИсторияРежиссер: Алпер КагларАктеры: Аджак Озан, Бедий Акин, Мурат Аркин, Эйлюль Арулар, Уфук Байрактар, Эмир Бендерлиоглу, Джаглар Эртугрул, Атилган Гюмюс, Ахмет Пинар, Мурат Серезли...Перевод: Профессиональный, многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 02:10:06Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB6D13F6232C07BCFA3CFF21FADC5BD283AF1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124129   (785692) от 11.04.2017
+
+Защитники (2016) WEB-DLRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: РоссияЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Кизиярова-Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется, русский (iTunes)Субтитры: отсутствуютПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6479A7241EE34590C040A64F8A2E467301BE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124465   (785691) от 11.04.2017
+
+Acronis True Image 2017 New Generation 21.0.6206 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E45F69628B12C42D7C0A1C191E6C52BEE2B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123640   (785679) от 11.04.2017
 
 KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
@@ -6,7 +110,7 @@ KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785679.jpg" />
+  <img src="Z:/picture/008/save_picture_785679.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785492.jpg" />
+  <img src="Z:/picture/008/save_picture_785492.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Adobe Photoshop Lightroom CC 2015.10 (6.10) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785489.jpg" />
+  <img src="Z:/picture/008/save_picture_785489.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Assassin's Creed 3 (2012) [Ru/En] (1.06/dlc) Repack =nemos= [Ultimate Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785488.jpg" />
+  <img src="Z:/picture/008/save_picture_785488.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785486.jpg" />
+  <img src="Z:/picture/008/save_picture_785486.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785299.jpg" />
+  <img src="Z:/picture/005/save_picture_785299.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785251.jpg" />
+  <img src="Z:/picture/005/save_picture_785251.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Test Drive Unlimited 2 ModPack (2011/2017) [Ru/En] (034/1.7.4/dlc) Repack/Mod Ni
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785174.jpg" />
+  <img src="Z:/picture/008/save_picture_785174.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785084.jpg" />
+  <img src="Z:/picture/005/save_picture_785084.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784786.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Corel VideoStudio Ultimate 2018 21.1.0.89 + Content Pack [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784521.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784520.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784273.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Avira Phantom VPN Free / Pro 2.12.5.31589 RePack by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784261.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784222.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784220.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Win 10 Tweaker 5.2 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783975.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_783613.jpg" />
+  <img src="Z:/picture/005/save_picture_783613.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_783607.jpg" />
+  <img src="Z:/picture/005/save_picture_783607.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_783576.jpg" />
+  <img src="Z:/picture/005/save_picture_783576.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783563.jpg" />
+  <img src="Z:/picture/008/save_picture_783563.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783363.jpg" />
+  <img src="Z:/picture/008/save_picture_783363.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ Quantum Break - это приключенческий экшен от треть
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCCA133B66E2FB7F6930415B05A4075C5691B612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390125   (783270) от 14.06.2020
-
-Hotspot Shield VPN Business 9.5.9 (64-bit) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C81194AE951153F3892DB6AE9E53939793FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389989   (783264) от 14.06.2020
-
-Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 06.2020 1DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783264.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновлённые оригинальные русские образы ОС "Windows®  7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединённых в один образ стандартными средствами от Microsoft (DISM, AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. (   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C3EA73E89510413A6D746AB0D3331D244C0FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390231   (783260) от 14.06.2020
-
-Яндекс.Практикум | Профессия Python-разработчик [Часть 1 из 8] (2020) PCRec [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python-разработчик создаёт бэкенд сайтов: мозг, который принимает запросы, общается с базой данных и передаёт нужную информацию пользователю. Разработчик проектирует алгоритмы взаимодействия сайта с другими интернет-сервисами. Вы изучите язык Python: он востребован и прост. Вы также освоите важнейшие инструменты бэкендера: Django, базы данных, git. В процессе обучения (   Читать дальше...   )Жанр: Программирование, PythonПродолжительность: 05:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4201325803D9D3AAA32203E355E679401D8C4BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799036   (783259) от 14.06.2020
-
-Ozi Explorer v1.34 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783259.jpg" />
-</div>
-
-
-###  Подробнее
-
-OziExplorer для Android использует растровые карты, которые либо отсканированы или приобретены в цифровом формате. Это позволяет вам отслеживать вашу позицию на карте, полученную от GPS приемника.Тип издания: ПираткаРелиз состоялся: 08.02.2020Разработчик: OziExplorerПоддерживаемая ОС: Android  4.1/5/6/7/8/9/10+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98293085DE22302BD917802D3D8DDE7E199DA0A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

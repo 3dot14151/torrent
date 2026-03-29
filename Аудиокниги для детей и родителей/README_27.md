@@ -1,3 +1,84 @@
+###  Публикация: 1402257   (704053) от 13.08.2020
+
+Игорь Козлов | В одно жаркое лето (1986) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беззаботная летняя смена в пионерском лагере закончилась для Тани к обеду. В лице папиного друга пришло известие о ранении папы на границк во время службы. После смерти мамы отец и так служил как потерянный, вот и пропустил вражью пулю, - подумала десятилетняя Таня. Нельзя было на лето оставлять его одного.
+Действовать требовалось немедленно. Она решительно отодвинула (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльВ ролях: Татьяна Аксюта, Валерий Хлевинский, Геннадий Фролов и др.Продолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACECF42D0A0F0E357AB8CF1AE61C6C488AD6D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220440   (703980) от 19.04.2018
+
+Людмила Петрановская | Близкие люди Тайная опора. Привязанность в жизни ребенка (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703980.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Все мы родом из детства», – писал один известный французский писатель и летчик. Однако прежде чем достичь самостоятельности, мы едва ли можем обойтись без взрослых. В своей новой аудиокниге Людмила Петрановская, основываясь на научной теории привязанности, легко и доступно рассказывает о роли родителей на пути к взрослению: «Как зависимость и беспомощность превращаются (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 06:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB24D61025AE709943DBA02FB46A8261909B36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402162   (703929) от 13.08.2020
+
+Наталья Щерба | Лунастры. Прыжок над звездами. Книга 1. (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прыжок над звездами» – первая книга нового захватывающего цикла фэнтези о мире, похожем и непохожем на наш.
+
+Что может быть лучше, чем мчаться по ночным улицам, – бежать, совершая гигантские, почти летящие прыжки? Наверное, только лежать на крыше, любуясь мириадами сверкающих звезд… Так думал Тим до тех пор, пока однажды в его городке не появилась странная девчонка (   Читать дальше...   )Жанр: Книги для подростков/ФэнтезиПеревод: ВИМБОПродолжительность: 13:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065922510D448B0297A96EA521B4B411B8069F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402184   (703812) от 13.08.2020
 
 Нил Гейман | Одд и ледяные великаны (2020) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703812.jpg" />
+  <img src="Z:/picture/008/save_picture_703812.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701962.jpg" />
+  <img src="Z:/picture/008/save_picture_701962.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701849.jpg" />
+  <img src="Z:/picture/008/save_picture_701849.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701829.jpg" />
+  <img src="Z:/picture/008/save_picture_701829.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700832.jpg" />
+  <img src="Z:/picture/008/save_picture_700832.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700066.jpg" />
+  <img src="Z:/picture/008/save_picture_700066.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700065.jpg" />
+  <img src="Z:/picture/008/save_picture_700065.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700063.jpg" />
+  <img src="Z:/picture/008/save_picture_700063.jpg" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700059.jpg" />
+  <img src="Z:/picture/008/save_picture_700059.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700051.jpg" />
+  <img src="Z:/picture/008/save_picture_700051.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699944.jpg" />
+  <img src="Z:/picture/008/save_picture_699944.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699943.jpg" />
+  <img src="Z:/picture/008/save_picture_699943.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699938.jpg" />
+  <img src="Z:/picture/008/save_picture_699938.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699929.jpg" />
+  <img src="Z:/picture/008/save_picture_699929.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696048.jpg" />
+  <img src="Z:/picture/008/save_picture_696048.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696047.jpg" />
+  <img src="Z:/picture/008/save_picture_696047.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696043.jpg" />
+  <img src="Z:/picture/008/save_picture_696043.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696040.jpg" />
+  <img src="Z:/picture/008/save_picture_696040.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695955.jpg" />
+  <img src="Z:/picture/008/save_picture_695955.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695938.jpg" />
+  <img src="Z:/picture/008/save_picture_695938.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695836.jpg" />
+  <img src="Z:/picture/008/save_picture_695836.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694412.jpg" />
+  <img src="Z:/picture/008/save_picture_694412.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694403.jpg" />
+  <img src="Z:/picture/008/save_picture_694403.jpg" />
 </div>
 
 
@@ -605,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943025A854434425DE2329FFAEEFB2E746AA0A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403196   (694275) от 18.08.2020
-
-Андрей Жвалевский, Евгения Пастернак | Я хочу в школу! (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлая, живая, немного наивная книга «Я хочу в школу!» адресована всем любителям школьных приключений. В городе N создали удивительное учебное заведение, где нет обычных классов, а есть разновозрастные группы учеников, подобранные по психологической совместимости. Вместо уроков – увлекательные проекты, вместо физкультуры – занятия с лучшими хореографами или походы (   Читать дальше...   )Жанр: Книги для подростковПродолжительность: 07:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF333D2D617E162B4A85534821520584A278A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403192   (694267) от 18.08.2020
-
-Владимир Алеников | Пантелей, Пугало и отличница Перышкина (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694267.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге вас ждет несколько необыкновенных, даже сказочных, историй! Некоторые из них – про Чучело-Мяучело, про Пантелея и Пугало – знакомы многим по замечательным мультфильмам, с остальными читатель встретится впервые! Для младшего школьного возраста.Жанр: Детская литература/ПриключенияПродолжительность: 03:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DB042174014E6F217B8B56EC26577F72B0E8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133739   (692951) от 13.05.2017
-
-Александр Пушкин | Евгений Онегин. Поэмы (2004) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александра Сергеевича Пушкина по праву считают одним из величайших поэтов, сумевшим своим творчеством радикально изменить русскую литературу. Его произведения, как поэзия, так и проза, принадлежат к шедеврам мировой литературы, к которым каждое поколение возвращается вновь и вновьЖанр: Классическая литератураПродолжительность: 08:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48F19816BD9CF7F14E71A0D3299C02ADCD15ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1409822   (440302) от 19.09.2020
+
+Marilyn Manson - We Are Chaos (2020) Japan [FLAC|Lossless|tracks + .cue] <Alternative Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Black And Blue (05:04)
+02. We Are Chaos (04:00)
+03. Dont Chase The Dead (04:17)
+04. Paint You With My Love (04:29)(   Читать дальше...   )Жанр: Alternative Metal, IndustrialПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A10636C4BEBAC43B6F8E1899BCD16CF8813A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062755   (439255) от 14.10.2016
 
 Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
@@ -6,7 +35,7 @@ Alter Bridge - The Last Hero (2016) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439255.jpg" />
+  <img src="Z:/picture/008/save_picture_439255.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439060.jpg" />
+  <img src="Z:/picture/008/save_picture_439060.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Fall Out Boy - Believers Never Die (Greatest Hits) (2009) Limited Edition [FLAC|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438436.jpg" />
+  <img src="Z:/picture/008/save_picture_438436.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Katatonia - The Great Cold Distance (2006), Reissue, 2017, Peaceville, [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437047.jpg" />
+  <img src="Z:/picture/008/save_picture_437047.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Blue Stahli - The Devil (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Industrial Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435250.jpg" />
+  <img src="Z:/picture/008/save_picture_435250.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Verve - 8 альбомов, 20 CD (1993 - 2017) [FLAC|Lossless|image + .cue|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434228.jpg" />
+  <img src="Z:/picture/008/save_picture_434228.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Sparta - Wiretap Scars (2002) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433602.jpg" />
+  <img src="Z:/picture/008/save_picture_433602.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rea Garvey - Neon (2018) Island Records [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431046.jpg" />
+  <img src="Z:/picture/008/save_picture_431046.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Portraits - At My Darkest (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429986.jpg" />
+  <img src="Z:/picture/008/save_picture_429986.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Resistance - Checkmate (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429977.jpg" />
+  <img src="Z:/picture/008/save_picture_429977.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ ZEIT - Zeit (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429841.jpg" />
+  <img src="Z:/picture/008/save_picture_429841.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Kaozm - Labyrinth (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429838.jpg" />
+  <img src="Z:/picture/008/save_picture_429838.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429416.jpg" />
+  <img src="Z:/picture/008/save_picture_429416.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Strokes - Room On Fire (2003) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429130.jpg" />
+  <img src="Z:/picture/008/save_picture_429130.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Everlast - Whitey Ford's House Of Pain (2018) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428943.jpg" />
+  <img src="Z:/picture/008/save_picture_428943.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL|tracks]<Alternative, Nu-Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427460.jpg" />
+  <img src="Z:/picture/008/save_picture_427460.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Alternative, Nu-Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427351.jpg" />
+  <img src="Z:/picture/008/save_picture_427351.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Marilyn Manson & The Spooky Kids - Lunch Boxes & Choklit Cows (2004) Compilation
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426640.jpg" />
+  <img src="Z:/picture/008/save_picture_426640.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425561.jpg" />
+  <img src="Z:/picture/008/save_picture_425561.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ P.O.D. - The Awakening (2015) [FLAC|tracks+.cue]<Alternative, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425053.jpg" />
+  <img src="Z:/picture/008/save_picture_425053.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Korn - The Serenity Of Suffering (Deluxe Edition) (2016) [FLAC|lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423082.jpg" />
+  <img src="Z:/picture/008/save_picture_423082.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421585.jpg" />
+  <img src="Z:/picture/008/save_picture_421585.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418983.jpg" />
+  <img src="Z:/picture/008/save_picture_418983.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Billy Idol - Vital Idol: Revitalized (2018) Remixes [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417609.jpg" />
+  <img src="Z:/picture/008/save_picture_417609.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416640.jpg" />
+  <img src="Z:/picture/008/save_picture_416640.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:969701BA87B5867D2EF601D9B7FFB8A8926459C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065437   (416632) от 24.10.2016
-
-Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You With Me
-02. Sure and Certain
-03. It Matters
-04. Pretty Grids(   Читать дальше...   )Жанр: Alternative Rock, Power PopПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF19843C015A92D148D1F04EED12A3220FEDD9EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

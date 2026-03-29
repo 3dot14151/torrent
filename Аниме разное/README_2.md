@@ -6,7 +6,7 @@ Kenpuu Denki Berserk | Berserk | Берсерк [1997, TV, 25 эп.] [озвуч
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692090.jpg" />
+  <img src="Z:/picture/008/save_picture_692090.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sakasama no Patema / Patema Inverted / Патэма наоборот [2013, Movi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675203.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Spring 2019 Anime Preview | Превью аниме сезона весна 2019
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644834.jpg" />
+  <img src="Z:/picture/008/save_picture_644834.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Mahou Shoujo Tokushusen Asuka | Аска: Волшебница специаль�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644446.jpg" />
+  <img src="Z:/picture/008/save_picture_644446.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Ergo Proxy / Эрго Прокси [2006, TV, 23 из 23] BDRemux 1080p raw+eng+
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635011.jpg" />
+  <img src="Z:/picture/008/save_picture_635011.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Hinako Note / Дневник Хинако [2017, TV, 12] WEB-DL 720p HS
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623165.jpg" />
+  <img src="Z:/picture/008/save_picture_623165.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614827.jpg" />
+  <img src="Z:/picture/008/save_picture_614827.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sekai no Yami Zukan / The World Yamizukan / Тёмная книга мира [20
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614139.jpg" />
+  <img src="Z:/picture/008/save_picture_614139.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Mimi o Sumaseba | Whisper of the Heart | Шёпот сердца [1995, Movie] B
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604633.jpg" />
+  <img src="Z:/picture/008/save_picture_604633.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Hatsune Miku Live Party 2013 in Kansai (2013) / Живой концерт Хац
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595356.jpg" />
+  <img src="Z:/picture/008/save_picture_595356.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Evangelion Shin Gekijouban: Q | Evangelion: 3.33 You Can (Not) Redo | Еванг
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594768.jpg" />
+  <img src="Z:/picture/008/save_picture_594768.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Cowboy Bebop: Tengoku no Tobira | Cowboy Bebop: Knockin' on Heaven's Door | Ко
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581082.jpg" />
+  <img src="Z:/picture/008/save_picture_581082.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kimi no Suizou o Tabetai | Kimi no Suizou wo Tabetai | I Want to Eat Your Pancre
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555723.jpg" />
+  <img src="Z:/picture/008/save_picture_555723.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551894.jpg" />
+  <img src="Z:/picture/008/save_picture_551894.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551884.jpg" />
+  <img src="Z:/picture/008/save_picture_551884.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Fireworks | Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуд�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546136.jpg" />
+  <img src="Z:/picture/008/save_picture_546136.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534030.jpg" />
+  <img src="Z:/picture/008/save_picture_534030.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Shelter / Убежище [2016, ONA, 1 из 1] WEBRip 1080p HS
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520970.jpg" />
+  <img src="Z:/picture/008/save_picture_520970.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Roujin Z / Старик Зет [1991] Blu-Ray raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516482.jpg" />
+  <img src="Z:/picture/008/save_picture_516482.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484800.jpg" />
+  <img src="Z:/picture/008/save_picture_484800.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Tanin no Kankei / Homeroom Affairs / Классный роман [1994, OVA, 2 e
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482480.jpg" />
+  <img src="Z:/picture/008/save_picture_482480.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Canaan / Ханаан [TV] [13 из 13] [Звуковая дорожка 3df voi
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476852.jpg" />
+  <img src="Z:/picture/008/save_picture_476852.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Macross - Super Deformed OP
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470140.jpg" />
+  <img src="Z:/picture/008/save_picture_470140.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Robot Carnival / Карнавал роботов [1987, OVA] DVD5 raw+rus
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470009.jpg" />
+  <img src="Z:/picture/008/save_picture_470009.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Kokoro ga Sakebitagatterunda / The Anthem of the Heart / Сердцу хочет
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450237.jpg" />
+  <img src="Z:/picture/008/save_picture_450237.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Hotaru no Haka / Grave of the Fireflies /  Могила светлячков [19
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437980.jpg" />
+  <img src="Z:/picture/008/save_picture_437980.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1524259   (744975) от 15.01.2022
+
+Cave Story+ (2011) [Multi] (1.0.1.0) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_744975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cave Story, вероятно, является самой известной инди-игрой всех времен. Она предлагает уникальную историю с яркими характерами, тайнами и часами непрекращающегося веселья. Cave Story — это приключенческий экшен от получившего признание критиков независимого дизайнера Дайсукэ Амайи, известного фанатам под псевдонимом Pixel. Наполненная непревзойденным обаянием и шармом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicalis, Inc., Studio PixelЖанр: Экшн, Приключение, ПлатформерЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4615A5EF8AC5809F11FBF1D6C9F94948EE444747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127234   (740497) от 20.04.2017
+
+The Disney Afternoon Collection (2017) [Ru] (1.0) Repack MaggotFreddy
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_740497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в золотую эпоху видеоигр с любимыми персонажами Disney в «The Disney Afternoon Collection». В коллекции вас ждут множество новых режимов и веселые дополнительные материалы. Это отличный подарок для любого поклонника Disney! The Disney Afternoon Collection — сборник HD-переизданий классических платформеров, разработанные японской студией Capcom, которые (   Читать дальше...   )Тип издания: RepackРазработчик: Capcom, Digital EclipseЖанр: Action, Arcade (Platform)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BC450AA43CCA415C22096788025842B6B7A9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397957   (735502) от 26.07.2020
 
 Necrobarista (2020) [Ru/Multi] (1.0.2) Repack Other s
@@ -6,7 +58,7 @@ Necrobarista (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735502.jpg" />
+  <img src="Z:/picture/008/save_picture_735502.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd3) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730442.jpg" />
+  <img src="Z:/picture/008/save_picture_730442.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Voodoo Vince Remastered (2017) [Multi] (1.0.0.1) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730375.jpg" />
+  <img src="Z:/picture/008/save_picture_730375.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728191.jpg" />
+  <img src="Z:/picture/008/save_picture_728191.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.4) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726995.jpg" />
+  <img src="Z:/picture/008/save_picture_726995.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Crawl (2017) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725893.jpg" />
+  <img src="Z:/picture/008/save_picture_725893.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sky Force Anniversary (2015) [Ru/Multi] (03.06.2016) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721499.jpg" />
+  <img src="Z:/picture/008/save_picture_721499.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.3) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720211.jpg" />
+  <img src="Z:/picture/008/save_picture_720211.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Disney's Chicken Little (2005) [Multi] (1.0.0.1) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720073.jpg" />
+  <img src="Z:/picture/008/save_picture_720073.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Necrobarista (2020) [Ru/Multi] (1.00) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716594.jpg" />
+  <img src="Z:/picture/008/save_picture_716594.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hot Guns (2017) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715759.jpg" />
+  <img src="Z:/picture/008/save_picture_715759.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Riverhill Trials (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714972.jpg" />
+  <img src="Z:/picture/008/save_picture_714972.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sky Force Anniversary (2015) [Ru/En] (1.0) Repack xGhost
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708542.jpg" />
+  <img src="Z:/picture/008/save_picture_708542.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Carrion (2020) [Ru/Multi] (1.0.5/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706579.jpg" />
+  <img src="Z:/picture/008/save_picture_706579.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Letters (2022) [En] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704744.jpg" />
+  <img src="Z:/picture/008/save_picture_704744.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698673.jpg" />
+  <img src="Z:/picture/008/save_picture_698673.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Sonic Mania (2017) [Multi] (1.06/dlc) License CPY
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693400.jpg" />
+  <img src="Z:/picture/008/save_picture_693400.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Blackhole (2015) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691896.jpg" />
+  <img src="Z:/picture/008/save_picture_691896.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Light Fall (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691043.jpg" />
+  <img src="Z:/picture/008/save_picture_691043.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685564.jpg" />
+  <img src="Z:/picture/008/save_picture_685564.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Shio (2017) [Ru/Multi] (1.0.1) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684365.jpg" />
+  <img src="Z:/picture/008/save_picture_684365.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ On Rusty Trails (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681857.jpg" />
+  <img src="Z:/picture/008/save_picture_681857.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Hob (2017) [Ru/Multi] (1.17.3.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678691.jpg" />
+  <img src="Z:/picture/008/save_picture_678691.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656465.jpg" />
+  <img src="Z:/picture/008/save_picture_656465.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B9CC7CF300D8E3928B3B1AC0FA82B2441F02B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140624   (654662) от 07.06.2017
-
-Randall (2017) [En] (1.0) License CODEX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная игра представляет собой крутую аркаду, с огромным количеством разных интересных головоломок и исследованием игровой территории. В скором времени ум людской будет под контролем разных интересных минералов, но вы, главный герой, не будете под их владением.Тип издания: LicenseРазработчик: We The Force StudiosЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938A8ACA97AFDEB7FE324EB0DCCCA49B4305FB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031159   (652965) от 03.07.2016
-
-RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это гонки на машинах, но другие. Попробуй самые реалистичные гонки в классе RC машин. Разные маршруты, как внутри помещений, так и на открытых пространствах! Проверь свои навыки вождения, и если ты крут, то скоро купишь новые модели и трассы. А уж там-то ты всем докажешь, что лучше тебя быть невозможно.Тип издания: LicenseРазработчик: magnussoftЖанр: RacingЯзык озвучки: Немецкий, АнглийскийЯзык субтитров: Немецкий, АнглийскийЯзык интерфейса: Немецкий, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2903ED09F087685C2503BF7AA7DE30C5A6AD8E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1818502   (2103) от 19.09.2025
+
+Ляйсан Утяшева | Секрет тела (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2103.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе вас ждет
+    ● 3 топовых эксперта
+    ● 52 практических урока
+    ● 2 месяца, которые изменят вашу жизнь(   Читать дальше...   )Жанр: Фитнес, диета, оздоровительные практикиЯзык озвучки: РусскийПродолжительность: 83:46:34Реклама: Присутствует реклама сайта распространителя
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5BD533244167D103C274ED6C0C50248E1BB3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820211   (620) от 27.09.2025
 
 Школа шахмат ChessMaster, Максим Омариев | Как научиться играть в шахматы с нуля за 21 день (2017) WEB-DL [RU]
@@ -6,7 +35,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_620.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_616.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_609.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_598.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_567.jpg" />
 </div>
 
 

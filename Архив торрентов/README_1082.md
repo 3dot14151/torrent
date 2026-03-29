@@ -6,7 +6,7 @@ Topaz DeNoise AI 2.2.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800044.jpg" />
+  <img src="Z:/picture/008/save_picture_800044.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Etcher 1.5.91 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800041.jpg" />
+  <img src="Z:/picture/008/save_picture_800041.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RAM Saver Professional 20.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800034.jpg" />
+  <img src="Z:/picture/008/save_picture_800034.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800019.jpg" />
+  <img src="Z:/picture/008/save_picture_800019.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Audiority - Deleight 1.2.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800010.jpg" />
+  <img src="Z:/picture/008/save_picture_800010.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Cockos REAPER 6.40 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800009.jpg" />
+  <img src="Z:/picture/008/save_picture_800009.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GoodSync Enterprise 10.11.9.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799975.jpg" />
+  <img src="Z:/picture/008/save_picture_799975.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799971.jpg" />
+  <img src="Z:/picture/008/save_picture_799971.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799967.jpg" />
+  <img src="Z:/picture/008/save_picture_799967.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799966.jpg" />
+  <img src="Z:/picture/008/save_picture_799966.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799944.jpg" />
+  <img src="Z:/picture/008/save_picture_799944.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Telegram Desktop 3.1.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799942.jpg" />
+  <img src="Z:/picture/008/save_picture_799942.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ SMPlayer 21.10.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799940.jpg" />
+  <img src="Z:/picture/008/save_picture_799940.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Davinci Resolve Studio 17.4.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799937.jpg" />
+  <img src="Z:/picture/008/save_picture_799937.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ AOMEI Partition Assistant Standard Edition 9.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799930.jpg" />
+  <img src="Z:/picture/008/save_picture_799930.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799909.jpg" />
+  <img src="Z:/picture/008/save_picture_799909.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Meliah Rage - Warrior (2014) [FLAC|Lossless|image + .cue] <Power Metal, Thrash M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799899.jpg" />
+  <img src="Z:/picture/008/save_picture_799899.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Voivod - The Nuclear Blast Recordings (2018) 2CD [FLAC|Lossless|image + .cue] <T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799898.jpg" />
+  <img src="Z:/picture/008/save_picture_799898.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AOMEI Backupper Pro 6.7.0 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799890.jpg" />
+  <img src="Z:/picture/008/save_picture_799890.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Ori
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799873.jpg" />
+  <img src="Z:/picture/008/save_picture_799873.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799865.jpg" />
+  <img src="Z:/picture/008/save_picture_799865.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799859.jpg" />
+  <img src="Z:/picture/008/save_picture_799859.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799835.jpg" />
+  <img src="Z:/picture/008/save_picture_799835.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Ne
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799830.jpg" />
+  <img src="Z:/picture/008/save_picture_799830.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799828.jpg" />
+  <img src="Z:/picture/008/save_picture_799828.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ GoodSync Enterprise 11.9.3.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799824.jpg" />
+  <img src="Z:/picture/008/save_picture_799824.jpg" />
 </div>
 
 

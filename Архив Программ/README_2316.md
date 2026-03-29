@@ -1,3 +1,290 @@
+###  Публикация: 1799480   (16588) от 28.05.2025
+
+Internet Download Manager 6.42 Build 39 RePack by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B097A7C1962B6560540A8D71DA7C5BC139EDB58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799482   (16586) от 28.05.2025
+
+Atlantis Word Processor 4.4.6.0 Repack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с текстом, которая вполне сопоставима с распространёнными текстовыми редакторами из состава офисных пакетов. Atlantis Word Processor способен удовлетворить широкий спектр потребностей: создание и чтение документов многих востребованных форматов (в том числе DOC и DOCX), широкие возможности по форматированию текста, расширенный буфер обмена, архивация (   Читать дальше...   )Язык интерфейса: Русский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B520302FEF7978BF11F86773114A1CC6620FB211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799523   (16553) от 28.05.2025
+
+Native Instruments - Kontakt 8.4.1 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable by vkDanilov [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt позволяет вам воспроизводить и обрабатывать ранее записанные аудиоданные - сэмплы музыкальных инструментов, звуковых эффектов, вокальных треков и пр. - но это только малая часть из всего спектра его возможностей. В Контакте вы можете использовать готовые инструменты из огромного количества библиотек от сторонних разработчиков или создавать свои виртуальные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D89302515F9295EF07406715D905D692073130A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799614   (16502) от 29.05.2025
+
+CCleaner 6.36.11508 Free / Pro / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16502.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F26056B1F61346BDDA6F8B7434B8624279712EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799745   (16501) от 29.05.2025
+
+StartAllBack 3.9.9 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16501.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE3B52B8FE03B20D830F71AD4D535DE49B0277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799556   (16463) от 29.05.2025
+
+CCleaner 6.36.11508 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16463.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E743253835ADCCB80039E6D5A370F97ED71B65C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799617   (16461) от 29.05.2025
+
+Topaz Gigapixel AI Pro 8.4.1 RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
+Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDFD3FF92A766F53DE9EF326F573E96F35DCFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799643   (16423) от 29.05.2025
+
+Blackmagic Design DaVinci Resolve Studio 20.0 Build 49 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16423.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve — единственное в мире решение для монтажа и цветокоррекции, наложения визуальных эффектов, создания графики и постобработки звука в единой программной среде. Его современный, стильный интерфейс достаточно прост и интуитивно понятен как для новых, так и опытных пользователей. DaVinci Resolve позволяет существенно оптимизировать творческий процесс, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B080566611EED055E93AE51B33D15BAC9921A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799615   (16400) от 29.05.2025
+
+VueScan Pro 9.8.46 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16400.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа предназначена для замены стандартного интерфейса сканера на собственный, функционально более богатый и предоставляющий массу дополнительных возможностей в зависимости от конкретной модели сканера. В большинстве случаев, стандартный драйвер устройства имеет крайне ограниченные возможности по регулировке параметров сканирования. Используя зачастую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FD2D793C3A5F33CAC5D85F793DC3852024E653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799767   (16394) от 29.05.2025
+
+Media Player Classic Home Cinema (MPC-HC) 2.4.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7254D6FF1634288083A11D2CB3F7C7AA23C08D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799616   (16373) от 29.05.2025
+
+Allavsoft Video Downloader Converter 3.28.1.9278 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - это мощный видео загрузчик с поддержкой скачивания фильмов, музыкальных клипов, плейлистов, видео, уроков с видеохостингов, таких, как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft также может скачивать и конвертировать скачанное видео в популярные видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702BCFB09F5B6779EC221A8BCD3D2923BCB233B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799700   (16369) от 29.05.2025
 
 R-Studio Network 9.5 Build 191510 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +293,7 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16369.jpg" />
 </div>
 
 
@@ -32,7 +319,7 @@ Softany WinCHM Pro 5.55 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16368.jpg" />
 </div>
 
 
@@ -58,7 +345,7 @@ TreeSize Professional 9.5.0.2102 (x64) RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16363.jpg" />
 </div>
 
 
@@ -84,7 +371,7 @@ XnView MP 1.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16361.jpg" />
 </div>
 
 
@@ -110,7 +397,7 @@ Process Lasso Pro  15.1.1.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16356.jpg" />
 </div>
 
 
@@ -136,7 +423,7 @@ Defender Remover Portable 12.8.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16342.jpg" />
 </div>
 
 
@@ -162,7 +449,7 @@ Microsoft  Visual C++ Runtimes AIO v0.91.0 x86-x64 Repack by abbodi1406 [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16315.jpg" />
 </div>
 
 
@@ -188,7 +475,7 @@ R-Studio Network 9.5 Build 191510 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16282.jpg" />
 </div>
 
 
@@ -214,7 +501,7 @@ GPU-Z 2.66.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16276.jpg" />
 </div>
 
 
@@ -240,7 +527,7 @@ Mp3tag 3.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16245.jpg" />
 </div>
 
 
@@ -266,7 +553,7 @@ Archicad 28.2.0 Build 5000 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16194.jpg" />
 </div>
 
 
@@ -292,7 +579,7 @@ Internet Download Manager 6.42 Build 40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16159.jpg" />
 </div>
 
 
@@ -318,7 +605,7 @@ AOMEI Partition Assistant Technician Edition 10.8.1 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16154.jpg" />
 </div>
 
 
@@ -344,7 +631,7 @@ Wondershare PDFelement 11.4.20.3548 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16133.jpg" />
 </div>
 
 
@@ -370,7 +657,7 @@ Internet Download Manager 6.42 Build 40 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16124.jpg" />
 </div>
 
 
@@ -381,296 +668,6 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFA5699E5977E88A672B536D9CB74FEC730A588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800045   (16099) от 31.05.2025
-
-Windows Manager 2.1.6.0 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
-Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3183930EBCB2068462B48796248C6721D4C44D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800151   (15979) от 01.06.2025
-
-Windows Manager 2.1.6 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексное решение для оптимизации, настройки, ремонта и очистки Windows 10/11.
-Windows Manager - это универсальная утилита для Microsoft Windows 10/11, включающая в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и ремонта Windows 10/11, помогающая ускорить работу системы, устранить системные ошибки, повысить стабильность и безопасность, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B044E22EDBD4D1879E46B72DAF7AE8E9C7A211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800148   (15974) от 01.06.2025
-
-MetaProducts Offline Explorer Enterprise 8.7.0.4996 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15974.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaProducts Offline Explorer Enterprise — мощнейшая программа, позволяющая скачивать как отдельные файлы, так и целые веб-сайты (HTTP, FTP и HTTPS) на жесткий диск для их последующего офлайн просмотра как на отдельном компьютере, так и пользователями целой локальной сети. Используя Offline Explorer Enterprise, вы можете одновременно качать неограниченное количество (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0835601BFC7292CB21FF8F87F6BD9D0CC8EF5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800292   (15921) от 02.06.2025
-
-Microsoft Activation Scripts (MAS) 3.3 portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активатор Windows и Office с использованием методов активации HWID/Ohook/KMS38/OnlineKMS/TSforge с упором на открытый исходный код и меньшее количество обнаружений антивируса.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250234BA917B0972E55EA9390709D2344AC74621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800370   (15889) от 02.06.2025
-
-Topaz Photo AI Pro 4.0.1 Portable by 7997 + Models [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6843FE4F1B30DA5A04FF38E9BFC987DC56759854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800386   (15887) от 02.06.2025
-
-Topaz Photo AI Pro 4.0.1 RePack by KpoJIuK [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A14E79DFC1E9B87C9A4ED07A95B6748290DB075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800393   (15885) от 02.06.2025
-
-Open Server Panel 6.3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Open Server Panel 6 — это обновлённая версия популярной портативной платформы для веб-разработки под Windows, предлагающая расширенные возможности по сравнению с предыдущими версиями. Это комплексное решение, включающее все необходимые инструменты для создания и тестирования веб-проектов на локальном компьютере.
-
-На сегодняшний день OSPanel широко используется веб-разработчиками (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F595E8CA785F524DE6521A6BCE960F0D298AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800395   (15877) от 02.06.2025
-
-R-Studio Network 9.5 Build 191514 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E8FF502F4A3856EECD55E61213036CD9A359D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800302   (15864) от 02.06.2025
-
-Aiseesoft Video Converter Ultimate 10.9.8 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Video Converter Ultimate - одна из лучших программ для загрузки, конвертирования и редактирования видео. Конвертирует DVD, видеофайлы, папки Blu-Ray в популярные видеоформаты и 3d видеофайлы. Умеет извлекать аудиодорожки из видео, а затем преобразовать их в популярные форматы аудио. Программа имеет встроенный видеоредактор, который позволяет настроить видео (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D035225E436F1741DC0B8290D44578CB943B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800483   (15803) от 03.06.2025
-
-Master PDF Editor 5.9.90 (x64) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PDF Editor — простая, но эффективная программа для работы с PDF файлами. С ее помощью вы сможете создавать, редактировать, просматривать, шифровать, подписывать и печатать интерактивные PDF документы. Возможности программы включают в себя полную поддержку PDF файлов, импорт/экспорт PDF страниц в форматы изображений, преобразование XPS в PDF и 128-битное шифрование. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9C6807A2ED71676445700D759B5CBE48A581B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800510   (15801) от 03.06.2025
-
-Яндекс Браузер 25.4.3.872 (x32) / 25.4.3.870 (x64) Portable by Cento8 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6ABC58648F77A496BF38D22BBED894B7AC8B3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

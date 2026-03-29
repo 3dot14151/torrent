@@ -6,7 +6,7 @@ Embarcadero RAD Studio 11.0 Alexandria 28.0.42600.6491 + Patch 1 October 2021 [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799763.jpg" />
+  <img src="Z:/picture/008/save_picture_799763.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 PRO 21H1 x64 Rus by OneSmiLe [19043.1320]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799752.jpg" />
+  <img src="Z:/picture/008/save_picture_799752.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Adobe Acrobat Pro DC 2021.007.20099 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799747.jpg" />
+  <img src="Z:/picture/008/save_picture_799747.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Acrobat Reader DC 2021.007.20099 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799742.jpg" />
+  <img src="Z:/picture/008/save_picture_799742.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Apowersoft Screen Capture Pro 1.4.7.9 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799739.jpg" />
+  <img src="Z:/picture/008/save_picture_799739.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.8.4 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799722.jpg" />
+  <img src="Z:/picture/008/save_picture_799722.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The KMPlayer 4.2.2.20 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799717.jpg" />
+  <img src="Z:/picture/008/save_picture_799717.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Aspire v9.510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799715.jpg" />
+  <img src="Z:/picture/008/save_picture_799715.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Total Commander 9.21a 64bit 32bit VIM 35 portable by Matros [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799702.jpg" />
+  <img src="Z:/picture/008/save_picture_799702.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Replay Video Capture 8.8.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799627.jpg" />
+  <img src="Z:/picture/008/save_picture_799627.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ AIMP 4.13 Build 1891 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799615.jpg" />
+  <img src="Z:/picture/008/save_picture_799615.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Dism++ 10.1.25.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799585.jpg" />
+  <img src="Z:/picture/008/save_picture_799585.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AIMP 4.13 Build 1891 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799582.jpg" />
+  <img src="Z:/picture/008/save_picture_799582.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Windows 10 Manager 2.0.8 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799578.jpg" />
+  <img src="Z:/picture/008/save_picture_799578.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Zoom Player MAX 13.0 Build 1300 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799576.jpg" />
+  <img src="Z:/picture/008/save_picture_799576.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Skype 7.34.0.103 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799571.jpg" />
+  <img src="Z:/picture/008/save_picture_799571.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Dr.Web Security Space 11.0.5.2171 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799551.jpg" />
+  <img src="Z:/picture/008/save_picture_799551.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ WM Capture 8.8.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799549.jpg" />
+  <img src="Z:/picture/008/save_picture_799549.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Skype 7.34.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799514.jpg" />
+  <img src="Z:/picture/008/save_picture_799514.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Revo Uninstaller Pro 3.1.9 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799505.jpg" />
+  <img src="Z:/picture/008/save_picture_799505.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ FBackup 9.3.434 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799493.jpg" />
+  <img src="Z:/picture/008/save_picture_799493.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Java SE Development Kit 11.0.13 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799483.jpg" />
+  <img src="Z:/picture/008/save_picture_799483.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Autodesk AutoCAD Electrical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799480.jpg" />
+  <img src="Z:/picture/008/save_picture_799480.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Revo Uninstaller Pro 3.1.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799462.jpg" />
+  <img src="Z:/picture/008/save_picture_799462.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Spotify 1.1.71.560 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799455.jpg" />
+  <img src="Z:/picture/008/save_picture_799455.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Firefox Browser ESR 91.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799448.jpg" />
+  <img src="Z:/picture/008/save_picture_799448.jpg" />
 </div>
 
 

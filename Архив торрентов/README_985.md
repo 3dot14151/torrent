@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821718.jpg" />
+  <img src="Z:/picture/008/save_picture_821718.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821714.jpg" />
+  <img src="Z:/picture/008/save_picture_821714.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Trance Line Vol.4 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821712.jpg" />
+  <img src="Z:/picture/008/save_picture_821712.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Leonid Reshetov - The Ocean (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821709.jpg" />
+  <img src="Z:/picture/008/save_picture_821709.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ TextLab 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821708.jpg" />
+  <img src="Z:/picture/008/save_picture_821708.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Submission Recordings Pres. Miami (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821701.jpg" />
+  <img src="Z:/picture/008/save_picture_821701.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821688.jpg" />
+  <img src="Z:/picture/008/save_picture_821688.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Arq 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821687.jpg" />
+  <img src="Z:/picture/008/save_picture_821687.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821670.jpg" />
+  <img src="Z:/picture/008/save_picture_821670.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ the Club Music - Club Life Label (2011) [MP3|192-320 kbps]<Trance,Electro,Beat>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821651.jpg" />
+  <img src="Z:/picture/008/save_picture_821651.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - Festival Favorites Armada Music (2016) [MP3|320 кб/с] <Trance, Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821618.jpg" />
+  <img src="Z:/picture/008/save_picture_821618.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ KCNcrew Pack 04-15-16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821614.jpg" />
+  <img src="Z:/picture/008/save_picture_821614.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Sync Checker 2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821611.jpg" />
+  <img src="Z:/picture/008/save_picture_821611.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ The New Deal - This Is Live (1999) [FLAC|Lossless|tracks + .cue] <Breakbeat, Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821606.jpg" />
+  <img src="Z:/picture/008/save_picture_821606.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ TextSoap 8.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821604.jpg" />
+  <img src="Z:/picture/008/save_picture_821604.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_821555.jpg" />
+  <img src="Z:/picture/009/save_picture_821555.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821535.jpg" />
+  <img src="Z:/picture/008/save_picture_821535.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821527.jpg" />
+  <img src="Z:/picture/008/save_picture_821527.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Receipts 1.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821515.jpg" />
+  <img src="Z:/picture/008/save_picture_821515.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Graphic Inspector 2 v2.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821514.jpg" />
+  <img src="Z:/picture/008/save_picture_821514.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Clipboard Center 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821510.jpg" />
+  <img src="Z:/picture/008/save_picture_821510.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ JottaCloud 3.1.48.422 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821509.jpg" />
+  <img src="Z:/picture/008/save_picture_821509.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Higher Consciousness LP Part One (2016)[MP3|320 кб/с] <Drum & Bass, Neur
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821506.jpg" />
+  <img src="Z:/picture/008/save_picture_821506.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821503.jpg" />
+  <img src="Z:/picture/008/save_picture_821503.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Privacy Eraser Free 4.11.4 Build 1942 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821500.jpg" />
+  <img src="Z:/picture/008/save_picture_821500.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821499.jpg" />
+  <img src="Z:/picture/008/save_picture_821499.jpg" />
 </div>
 
 

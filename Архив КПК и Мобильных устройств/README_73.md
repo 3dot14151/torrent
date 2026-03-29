@@ -1,3 +1,29 @@
+###  Публикация: 1026724   (396349) от 04.10.2017
+
+Landlord 2.0 [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_396349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Landlord (Помещик) - это как настольная игра Монополия, но в реальном мире. Это игра по торговле недвижимостью, которая позволяет покупать места на выбор из 50 млн. объектов по всему миру. Landlord превращает весь мир в доску для монополии и позволяет вам приобретать места, которые вы посещаете, а затем зарабатывать, сдавая их в аренду, когда люди посещают их в режиме (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 8 августа  2017 г.Разработчик: Reality Games LTDПоддерживаемая ОС: Android 4.0.3 и вышеЖанр: Simulation (Симулятор), Board game (Настольная игра)Язык интерфейса: Русский, английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5652ABD2FF9ED5FF5E4F02213DF4B9B0419188A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400815   (396112) от 17.10.2011
 
 Презентация Apple iPhone 4S (2011) WEB-DLRip
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396112.jpg" />
+  <img src="Z:/picture/005/save_picture_396112.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395651.jpg" />
+  <img src="Z:/picture/008/save_picture_395651.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hyperlight  1.2.3-1.3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395111.jpg" />
+  <img src="Z:/picture/008/save_picture_395111.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Afterlight 1.0.6 [EN]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393937.jpg" />
+  <img src="Z:/picture/008/save_picture_393937.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Formula Racing: Ultimate Drive (1.3) [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392205.jpg" />
+  <img src="Z:/picture/005/save_picture_392205.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ City Navigator Europe NT 2014.30 + City Navigator Europe NTU 2014.30 (Unicode) [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391485.jpg" />
+  <img src="Z:/picture/008/save_picture_391485.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ FIFA 14 by EA SPORTS v1.2.9-1.3.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391471.jpg" />
+  <img src="Z:/picture/008/save_picture_391471.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Blackberry playbook [1024х600]  Универсальный солдат 4 / Uni
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390020.jpg" />
+  <img src="Z:/picture/005/save_picture_390020.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389883.jpg" />
+  <img src="Z:/picture/005/save_picture_389883.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389873.jpg" />
+  <img src="Z:/picture/005/save_picture_389873.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389831.jpg" />
+  <img src="Z:/picture/005/save_picture_389831.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389829.jpg" />
+  <img src="Z:/picture/005/save_picture_389829.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389738.jpg" />
+  <img src="Z:/picture/005/save_picture_389738.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389736.jpg" />
+  <img src="Z:/picture/005/save_picture_389736.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389734.jpg" />
+  <img src="Z:/picture/005/save_picture_389734.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389724.jpg" />
+  <img src="Z:/picture/005/save_picture_389724.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389672.jpg" />
+  <img src="Z:/picture/005/save_picture_389672.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Learn Languages: Rosetta Stone v5.1.0 Unlocked [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386898.jpg" />
+  <img src="Z:/picture/008/save_picture_386898.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ VPN TRUE v0.0.6.6 [Ru/Multi] - доступ к ресурсам Интернет
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386474.jpg" />
+  <img src="Z:/picture/008/save_picture_386474.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384780.jpg" />
+  <img src="Z:/picture/008/save_picture_384780.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384778.jpg" />
+  <img src="Z:/picture/008/save_picture_384778.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Relax Rain ~ Nature sounds Premium v6.1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384726.jpg" />
+  <img src="Z:/picture/008/save_picture_384726.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ CamToPlan AR v3.6.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383152.jpg" />
+  <img src="Z:/picture/008/save_picture_383152.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Burn The City 1.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_382098.jpg" />
+  <img src="Z:/picture/005/save_picture_382098.jpg" />
 </div>
 
 
@@ -646,41 +672,13 @@ Paper Glider Crazy Copter 3D 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_381967.jpg" />
+  <img src="Z:/picture/005/save_picture_381967.jpg" />
 </div>
 
 
 ###  Подробнее
 
 3D игра в которой предстоит летать минуя различные препятствия на маленьком вертолётике.Тип издания: FreeРазработчик: Neon PlayПоддерживаемая ОС: Android 2.0.1+Жанр: Arcade (Аркада)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404123   (381827) от 29.10.2011
-
-Snark Bustero 1.1 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_381827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрой секреты зазеркалья на своем Android!
-Приветствуем в удивительном мире зазеркалья! Здесь бороздят небеса огромные дирижабли, а пиратские сокровища стерегут механические рыбы на паровой тяге. Скорее открой портал в лабиринт отражений и отправляйся на поиски загадочного Снарка – говорят, что его недавно видели на архипелаге летающих островов.
-Снарк бродит совсем (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 октября 2011г.Разработчик: Alawar Entertainment, IncПоддерживаемая ОС: Android 2.2+Жанр: Quest (Квест)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash

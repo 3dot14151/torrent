@@ -1,3 +1,162 @@
+###  Публикация: 1199623   (156206) от 19.12.2018
+
+Улика из прошлого (2018) SATRip (сезон 3, серий 38 из 38)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не может сказать, что это было: случайная смерть или спланированное убийство. Известно одно: эти события потрясли современников и иногда даже повлияли на ход истории. Свидетелей и очевидцев давно нет в живых. И, казалось бы, ничто не может пролить свет на эти загадочные происшествия. Но так ли это? Вооружившись новейшими научными открытиями, попробуем возобновить (   Читать дальше...   )Производство: Россия, ООО «ТВпорт» по заказу ОАО «ТРК ВС «ЗВЕЗДА»Жанр: Документальный, криминал, заговоры, историяПродолжительность: 38 х ~ 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E095B913CC7BD8BA861DCC5576F0129C0625CB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346502   (156082) от 20.12.2019
+
+Джокер / Joker (2019) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: Канада, США / Warner Bros., Village Roadshow Pictures, DC Entertainment, DC Comics, 22 & Indiana PicturesЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Джоли Чань, Марк Мэрон, Фрэнсис Конрой, Мэри Кейт Малат, Ши Уигхэм, Брайан Коллен, Бретт Каллен, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Дублированный, профессиональный многоголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62F34968D6880B97B62F9CBEF0F517E2857CE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085618   (155720) от 22.12.2016
+
+Европейский суд назвал незаконным требование к интернет-провайдерам хранить личные данные пользователей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейский суд юстиции назвал противоречащим нормам ЕС требование к интернет-провайдерам о накоплении и хранении личной информации и электронной переписки (в том числе удаленной) пользователей, а также данных геолокации. Как сообщает ТАСС, это решение опубликовано 21 декабря на сайте суда. По мнению суда, массовое сохранение интернет-трафика и геолокационной информации (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588675   (155660) от 13.12.2012
+
+Джунгли (2012) DVD5
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155660.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Сергея и Марины в семейной жизни наступил кризис. Во время одной из ссор, они решают поехать в экзотическое путешествие. Всю дорогу между супругами не утихают ссоры, которые в конце концов приводят к тому, что они оказываются на необитаемом острове, затерянном в океане. Вместо того чтобы вместе бороться за выживание, наши герои продолжают выяснять отношения, постепенно (   Читать дальше...   )Производство: Кинокомпания CTBЖанр: Мелодрама, комедия, приключенияРежиссер: Александр ВойтинскийАктеры: Сергей Светлаков, Вера Брежнева, Александр Макогон, Ирина Медведева, Александр Половцев, Марина Дюжева, Михаил Ефремов, Андрей ГавриловПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565898   (155542) от 13.12.2012
+
+King's Bounty: Воин Севера / King's Bounty: Warriors of the North [Ru/En] (Repack/1.3.1/DLC) 2012 | R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155542.jpg" />
+</div>
+
+
+###  Подробнее
+
+King’s Bounty: Воин Cевера - продолжение культовой приключенческой саги.
+
+Действие игры пройдет в уже известном вам мире Эндории: в Дарионе, в подземельях гномов, а также на землях викингов, куда не заплывал даже знаменитый Билл Гилберт.
+(   Читать дальше...   )Тип издания: RepackРазработчик: 1C-SoftClub/Katauri InteractiveЖанр: Tactical role-playing gameЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6445C4B15A22030351F577C724FCE2E84963A5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085528   (155275) от 22.12.2016
+
+Total Commander 9.0a Freemen 17.0 Repack by notn [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4C5FA6D6E36974A30907F056E03025B5A9C0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 30863   (155231) от 22.12.2016
 
 Секунда до... (2007) DVDRip
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155231.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155111.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механ�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155098.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_154981.jpg" />
+  <img src="Z:/picture/005/save_picture_154981.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_154970.jpg" />
+  <img src="Z:/picture/005/save_picture_154970.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154914.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154789.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ Microsoft собирается добавить вкладки в «Блокно
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_154787.jpg" />
+  <img src="Z:/picture/005/save_picture_154787.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154749.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ Linux Mint 19.1 Tessa (XFCE, Mate, Cinnamon) [32bit,64bit] 6xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154694.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154628.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154489.jpg" />
 </div>
 
 
@@ -318,7 +477,7 @@ RESIDENT EVIL 2 / BIOHAZARD RE:2 (2019) [Ru/Multi] (1.04/upd5/dlc) Repack R.G. �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154471.jpg" />
 </div>
 
 
@@ -344,7 +503,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154458.jpg" />
 </div>
 
 
@@ -370,7 +529,7 @@ Udemy | React + Redux - Профессиональная Разработка (2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154448.jpg" />
 </div>
 
 
@@ -396,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154431.jpg" />
 </div>
 
 
@@ -422,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154427.jpg" />
 </div>
 
 
@@ -450,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153932.jpg" />
 </div>
 
 
@@ -476,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153728.jpg" />
 </div>
 
 
@@ -502,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153714.jpg" />
 </div>
 
 
@@ -513,164 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC481444BF8660CECD9433FBB0E377964C6BEFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055686   (153648) от 23.12.2016
-
-Мир Наизнанку. Непал / Світ навиворіт с Дмитром Комаровим (2016) HDRip [H.264/1080p-LQ] (Сезон 8, серии 1- 15 из 15)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непал – самая высокогорная страна на планете, поэтому постоянно страдает от землетрясений. Мир наизнанку покажет, как живет народ, обреченный каждую секунду бороться за свою жизнь и на себе испытает опасности этой страны. Мы отправимся в городок, который больше всего пострадал от страшного землетрясения 2015 года - Хокана. Раньше он считался одной из малоизвестных (   Читать дальше...   )Телекомпания: Украина, 1+1 ProductionЖанр: Документальный, ТелепередачаПеревод: Не требуется (Русский)Продолжительность: 01:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC29B0E20120CB893DD5B70731B63AC39E633F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445517   (153635) от 23.12.2016
-
-WiFi File Explorer Pro 1.11.0 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита, которая превращает смартфон в файл-сервер, доступный через беспроводную сеть Wi-Fi.
-С помощью этой программы можно просматривать и скачивать файлы с вашего устройства с других смартфонов и компьютеров.
-Для этого достаточно зайти через обычный браузер на IP, указанный в программе. Должно выполняться только одно условие – оба устройства должны быть подключены (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.12.16Разработчик: dooblouПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B2267B0AEED5F58D64437BED7DF52DE77C3C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086051   (153620) от 23.12.2016
-
-Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7177.5000 VL (x86) RePack by SPecialiST v16.12 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:429A1EE2D6AC4607FAD2FDAA8B7D55143F437EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086055   (153607) от 23.12.2016
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86) RePack by SPecialiST v16.12 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346872   (153502) от 22.12.2019
-
-"Старлайнер" вернется на Землю, не выполнив миссию по стыковке с МКС. Что пошло не так?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_153502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испытательный полет новейшего космического корабля "Старлайнер" фактически потерпел неудачу. Вместо стыковки с МКС, которая была запланирована на субботу, аппарат вернется на Землю - вместе с недоставленным грузом.В течение следующих 48 часов автоматическая спусковая капсула должна совершить посадку в пустыне штата Нью-Мексико. Изначально возвращение было (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517227   (153358) от 20.12.2021
-
-KMS Tools Portable by Ratiborus 14.12.2021 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153358.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB42085160B53DC8F44E41D14F3131FDBB6E617
 ```
 
 https://mybot314.ru/tekegram_catalog/

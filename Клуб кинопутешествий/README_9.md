@@ -1,3 +1,55 @@
+###  Публикация: 1497360   (866463) от 21.09.2021
+
+Бургундия, сердце Франции / Bourgogne, le coeur de France (2018) HDTVRip [H.264/720p-LQ] [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бургундия славится не только красотой пейзажей, но у уникальным, любовно сохраненным историческим наследием. Она сберегла для нас памятники европейской цивилизации Средних веков. Виноградники замков и монастырей издавна украшают эту землю. Бургундия - это прежде всего вино. Красота природы, изысканная кухня, жизнелюбие создают яркую гамму незабываемых ощущений.Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, путешествияРежиссер: Эрик БакоПеревод: ОтсутствуетЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51DCD8E0FA366CCC71F4C47E33CF11FACC77E893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497362   (866344) от 21.09.2021
+
+Дикие люди. Возвращение (Бен Фогл: Возвращение в дикую природу) (Новая Зеландия) / Ben Fogle: Return To The Wild (2020) HDTV [H.264/1080i] (сезон 2, серия 1)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск о семье из Британии поселившихся на северных островах в Новой ЗеландииПроизводство: Великобритания, Renegade Pictures, GroupM Entertainment, BBCЖанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D436A1C894106B952F351E2434B49A4D76F6809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999344   (864717) от 22.03.2016
 
 Орел и решка. Шопинг (2016.03.20) SATRip (cезон 4: Кейптаун)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864717.jpg" />
+  <img src="Z:/picture/008/save_picture_864717.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864188.jpg" />
+  <img src="Z:/picture/008/save_picture_864188.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863759.jpg" />
+  <img src="Z:/picture/008/save_picture_863759.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863659.jpg" />
+  <img src="Z:/picture/008/save_picture_863659.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863599.jpg" />
+  <img src="Z:/picture/008/save_picture_863599.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862964.jpg" />
+  <img src="Z:/picture/008/save_picture_862964.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862463.jpg" />
+  <img src="Z:/picture/008/save_picture_862463.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860928.jpg" />
+  <img src="Z:/picture/008/save_picture_860928.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860832.jpg" />
+  <img src="Z:/picture/008/save_picture_860832.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860825.jpg" />
+  <img src="Z:/picture/008/save_picture_860825.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859647.jpg" />
+  <img src="Z:/picture/008/save_picture_859647.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859643.jpg" />
+  <img src="Z:/picture/008/save_picture_859643.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859637.jpg" />
+  <img src="Z:/picture/008/save_picture_859637.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859636.jpg" />
+  <img src="Z:/picture/008/save_picture_859636.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859634.jpg" />
+  <img src="Z:/picture/008/save_picture_859634.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859433.jpg" />
+  <img src="Z:/picture/008/save_picture_859433.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859320.jpg" />
+  <img src="Z:/picture/008/save_picture_859320.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859277.jpg" />
+  <img src="Z:/picture/008/save_picture_859277.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859274.jpg" />
+  <img src="Z:/picture/008/save_picture_859274.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859157.jpg" />
+  <img src="Z:/picture/008/save_picture_859157.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859151.jpg" />
+  <img src="Z:/picture/008/save_picture_859151.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858060.jpg" />
+  <img src="Z:/picture/008/save_picture_858060.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857926.jpg" />
+  <img src="Z:/picture/008/save_picture_857926.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857917.jpg" />
+  <img src="Z:/picture/008/save_picture_857917.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A007E01997201A23732C89AF4B0B9F720FD4A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498466   (857792) от 26.09.2021
-
-Дикие люди. Возвращение (Бен Фогл: Возвращение в дикую природу) (Хорватия) / Ben Fogle: Return To The Wild (2020) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857792.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии Бен отправляется в солнечную Хорватию - дивный лесной край в котором поселился ещё один ''дикарь''Производство: Великобритания, Renegade Pictures, GroupM Entertainment, BBCЖанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18233192B539FF14DFD3A311AF560FDFC5CD4D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000835   (857512) от 26.03.2016
-
-Путешествие по побережью Азовского моря (2014) HDTVRip [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, что все самое лучшее, что сохранила Донская земля для любителя российской истории, сосредоточено вдоль берега Азовского моря. Здесь находится один из древнейших городов России — Азов, здесь проходят яркие этнические фестивали. А ласковое море и песчаные пляжи помогают на время забыть обо всех неприятностях. Побывав в Приазовье, ведущая RTG TV Ольга Дегтярева (   Читать дальше...   )Телекомпания: RTG HDЖанр: ДокументальныйПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5295305E63869B72C398F9E36CDB6424DC557412
 ```
 
 https://mybot314.ru/tekegram_catalog/

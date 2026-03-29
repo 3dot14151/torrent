@@ -1,3 +1,136 @@
+###  Публикация: 1464528   (1019784) от 22.04.2021
+
+Любовь Вайткене | Для самых любознательных. Большая книга опытов и экспериментов для детей и взрослых (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите опытным путем разобраться в явлениях, происходящих рядом с нами практически каждый день? Тогда скорее открывайте эту удивительную книгу — изучив ее, вы поймете: почему сахар растворяется в горячей воде, как в атмосфере образуются дождевые капли, почему океан не замерзает. Ведь вы сами будете проводить опыты и увидите, как и почему всё происходит. С изданием (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DA8E741C5AD038EF8D8C7BFD0616F39E79C713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464566   (1019781) от 22.04.2021
+
+Олеся Жукова | 365 дней до школы. Учимся писать красиво (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг «365 дней до школы» создана специально для будущих первоклашек. С помощью книг серии ребёнок потренирует мышление и логику, память и внимание, мелкую моторику, то есть все те навыки, которые необходимы для успешного обучения.
+
+С помощью этой книги ребёнок научится писать красивые и аккуратные буквы, потренирует глазомер и мелкую моторику.
+(   Читать дальше...   )Жанр: Прописи для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C4654D344B730DC9503017953BC5FD113ADC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435254   (1019744) от 22.04.2021
+
+В.П.Желиховская | Розанчик. Волшебная сказка для детей (1889) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019744.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге содержится волшебная сказка для детей "Розанчик". Книга иллюстрирована цветными рисунками Н. Каразина.Жанр: Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252765   (1019693) от 22.04.2021
+
+Д. Денисова | Школа семи гномов. Полный годовой курс занятий с детьми до 1 года [12 книг] (2006-2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный годовой курс занятий с детьми до 1 года (12 книг ). В комплект входят книги: «Прибаутки для малютки», «Цветные картинки», «Что как звучит?», «Мои любимые игрушки», «Кто что делает?», «Моя первая книжка», «Котик-коток», «А это какого цвета?», «Квадратик и кружок», «День и ночь», «Веселый хоровод», «Сложи картинку».Жанр: Обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8F508DFB37D940CF2300B5F9DA7711594D1C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460428   (1019692) от 22.04.2021
+
+Н.В. Величко Е.П. Иванова М.В. Бедина | Серия книг Чудеса своими руками  [8 книг] (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подарите ребенку радость творчества! С этими иллюстрированными книгами из серии "Чудеса своими руками" дети смогут создать шедевры из самых простых и доступных материалов. Работа с пластилином, природными материалами, тканью, бумагой, спичками способствует развитию мелкой моторики, мышления, творческих способностей, аккуратности. Фотографии, пошаговые схемы (   Читать дальше...   )Жанр: Поделки своими рукамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E39CE8EE31EB7622DD57E73D2E3E1720224F9D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464824   (1019676) от 23.04.2021
 
 Татьяна Корниенко | Лесная фея, или новые приключения кикиморы Светки Пипеткиной (2015) [FB2, EPUB, MOBI]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019676.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019664.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019656.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019623.jpg" />
 </div>
 
 
@@ -113,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019592.jpg" />
 </div>
 
 
@@ -139,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019572.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019567.jpg" />
 </div>
 
 
@@ -194,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019543.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019505.jpg" />
 </div>
 
 
@@ -246,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019504.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019496.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019495.jpg" />
 </div>
 
 
@@ -324,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019489.jpg" />
 </div>
 
 
@@ -352,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019485.jpg" />
 </div>
 
 
@@ -380,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019484.jpg" />
 </div>
 
 
@@ -406,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019477.jpg" />
 </div>
 
 
@@ -434,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019476.jpg" />
 </div>
 
 
@@ -463,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019473.jpg" />
 </div>
 
 
@@ -489,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019471.jpg" />
 </div>
 
 
@@ -516,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019468.jpg" />
 </div>
 
 
@@ -544,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019459.jpg" />
 </div>
 
 
@@ -558,140 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B466EE0B5B8E3596C673A78C3261DD5C063A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464879   (1019458) от 24.04.2021
-
-Александр Куликов | Мозгодром или математика на человеческом языке (1994) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот Ангенс, знаменитый спутник инспектора Кругга, вспоминает о своих удивительных встречах с занимательной математикой в самых разных странах мира — древних и современных.Жанр: Познавательная литература для детей, Математика детямФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573FB4BE019236AC3CB6A696DD7B716458A06973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465071   (1019446) от 24.04.2021
-
-А.С. Шевченко (ред.) | Английский визуальный словарь с произношением (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение английского языка может быть увлекательным, а заучивание новых слов не обязательно должно превращаться в бестолковую зубрежку. В эту книгу вошли самые нужные английские слова, которые сопровождаются транскрипцией буквами русского алфавита, а также иллюстрациями, что поможет ребенку легче усвоить материал.
-Книга предназначена прежде всего для учеников младших (   Читать дальше...   )Жанр: Иностранные языки/СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D97280A39E9260123BC04DDA3CF2180D077EF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464982   (1019445) от 24.04.2021
-
-М.С. Селиванова | Грамматика английского языка. 2-4 классы (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресована школьникам, начинающим изучать английский язык. В ней представлены самые основные правила грамматики английского языка.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676348BF3232CD9AC09A10B0CF576BC2B45EBEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505976   (1019432) от 24.04.2021
-
-А.Н. Исполатов | 1000 лучших игр, конкурсов, забав для детской компании (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник веселых конкурсов, розыгрышей, «тихих» и «шумных» игр для детей от 5 до 15 лет.
-Хочешь стать мастером игр?
-
-Дорогой друг! Ты держишь в руках очень полезную книгу, которая может стать помощницей в постижении азов профессии «массовик-затейник». Сегодня людей, организующих и проводящих игры и праздники, часто называют на иностранный манер «аниматорами». (   Читать дальше...   )Жанр: обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF011C50D5B440EAAF5ECB2A16C3BB5CB9DE7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679468   (1019419) от 24.04.2021
-
-Елена Каткова | Окружающий мир: итоговая аттестация за курс начальной школы. Типовые тестовые задания (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит 10 вариантов типовых тестовых заданий итоговой аттестации за курс начальной школы. Назначение пособия - отработка практических навыков учащихся по подготовке к экзамену в 4-м классе по предмету "Окружающий мир". В сборнике даны ответы на все варианты тестов.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DD3A43AE114C43CDFB1128C95F22305121E16D
 ```
 
 https://mybot314.ru/tekegram_catalog/

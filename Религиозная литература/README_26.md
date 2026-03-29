@@ -1,3 +1,85 @@
+###  Публикация: 1382351   (821015) от 10.05.2020
+
+Протоиерей Александр Никольский | Как быть счастливым в браке. Вопросы и ответы (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги «Как быть счастливым в браке» – протоиерей Александр Никольский, настоятель строящегося в Москве храма Трёх Святителей в Раменках. В течение последних десяти лет батюшка руководит клубом «Православная семья». Он выступал на телеканале «Союз», на радио «Радонеж». С 2008 года несёт послушание духовного окормления заключённых при одном из тюремных храмов (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71F9381A6E5D766794AA2783B573FFEE8933DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007610   (820905) от 15.04.2016
+
+Российское Библейское Общество (изд.) | Библия. Современный русский перевод (2011) [PDF, DJVU, FB2, DOC, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный перевод Библии основывается на лучших изданиях оригинальных текстов Ветхого и Нового Заветов и использует последние достижения библейских научных исследований.
+
+Отличие сего перевода точная передача смысла Священного Писания в сочетании с ясностью и доступностью изложения.
+(   Читать дальше...   )Жанр: РелигияФормат: PDF, DJVU, FB2, DOC, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B72B8EB432E65248E772FAB9B9B287678BBDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008013   (819649) от 16.04.2016
+
+Бессам М.Медани | Библия и ислам (2001) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги, доктор Бессам М. Медани, выражает надежду, что второе дополненное издание на русском языке книги «Библия и ислам» поможет всем христианам с любовью и терпением свидетельствовать своим мусульманским друзьям и соседям о Слове Божьем.
+Доктор Медани, в прошлом радиопроповедник арабского отдела радиовещания «The Back to God Hour», в настоящее время продолжает (   Читать дальше...   )Жанр: Религия, апологетика, сравнительное богословиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299BE835482601B0B845B585D0D954880914395B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007917   (819542) от 16.04.2016
 
 Борис Гладков | Толкование Евангелия (2016) [FB2, EPUB]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819542.jpg" />
+  <img src="Z:/picture/008/save_picture_819542.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819370.jpg" />
+  <img src="Z:/picture/008/save_picture_819370.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819252.jpg" />
+  <img src="Z:/picture/008/save_picture_819252.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819245.jpg" />
+  <img src="Z:/picture/008/save_picture_819245.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818943.jpg" />
+  <img src="Z:/picture/008/save_picture_818943.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817702.jpg" />
+  <img src="Z:/picture/008/save_picture_817702.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817639.jpg" />
+  <img src="Z:/picture/008/save_picture_817639.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817588.jpg" />
+  <img src="Z:/picture/008/save_picture_817588.jpg" />
 </div>
 
 
@@ -216,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817587.jpg" />
+  <img src="Z:/picture/008/save_picture_817587.jpg" />
 </div>
 
 
@@ -242,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817585.jpg" />
+  <img src="Z:/picture/008/save_picture_817585.jpg" />
 </div>
 
 
@@ -268,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817584.jpg" />
+  <img src="Z:/picture/008/save_picture_817584.jpg" />
 </div>
 
 
@@ -296,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817581.jpg" />
+  <img src="Z:/picture/008/save_picture_817581.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817575.jpg" />
+  <img src="Z:/picture/008/save_picture_817575.jpg" />
 </div>
 
 
@@ -350,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817433.jpg" />
+  <img src="Z:/picture/008/save_picture_817433.jpg" />
 </div>
 
 
@@ -378,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817192.jpg" />
+  <img src="Z:/picture/008/save_picture_817192.jpg" />
 </div>
 
 
@@ -404,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817191.jpg" />
+  <img src="Z:/picture/008/save_picture_817191.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817188.jpg" />
+  <img src="Z:/picture/008/save_picture_817188.jpg" />
 </div>
 
 
@@ -456,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817180.jpg" />
+  <img src="Z:/picture/008/save_picture_817180.jpg" />
 </div>
 
 
@@ -482,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816908.jpg" />
+  <img src="Z:/picture/008/save_picture_816908.jpg" />
 </div>
 
 
@@ -509,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815704.jpg" />
+  <img src="Z:/picture/008/save_picture_815704.jpg" />
 </div>
 
 
@@ -537,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815576.jpg" />
+  <img src="Z:/picture/008/save_picture_815576.jpg" />
 </div>
 
 
@@ -565,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815193.jpg" />
+  <img src="Z:/picture/008/save_picture_815193.jpg" />
 </div>
 
 
@@ -591,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814920.jpg" />
+  <img src="Z:/picture/008/save_picture_814920.jpg" />
 </div>
 
 
@@ -602,86 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCCB93EB56BA6E38A558A2DE1D079D6D59EB01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503830   (814076) от 22.10.2021
-
-Святогор (изд.) | Поучения по житию святого великомученика Пантелеимона (2015 [Репринт 1912 г.]) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда кого-нибудь изъ насъ постигаетъ скорбь и особенно тяжкая, мы, въ большинствѣ случаевъ, обыкновенно поступаемъ не такъ, какъ бы поступать слѣдовало. Одни ищутъ помощи и избавленiя отъ людей, другiе предаются малодушiю и унынiю, третьи даже ропщутъ на Бога; а иные, что и хуже всего, впадаютъ въ отчаянiе и погибаютъ. Достойно ли это христiанъ? И помогаетъ (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA49D21CF6441A162D535CF2C56AD4D486A382C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197661   (813923) от 08.01.2018
-
-Д.С. Чунтонов (сост.) | Святитель Игнатий Брянчанинов [Алфавит духовный] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святитель Игнатий (в миру Дмитрий Брянчанинов) родился 5 февраля 1807 года в селе Покровском Вологодской губернии, в имении своего отца. С ранних лет он был склонен к монашеской жизни, и с возрастом это всё более проявлялось в стремлении к молитве и чтению духовных книг.
-
-...В 1827 году в двадцатилетнем возрасте он оставил аристократическую жизнь и, вызвав глубочайшее (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3438311225DB5E69F1B7A198FA329854418953E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197624   (813916) от 08.01.2018
-
-Т. Гартвиг | Бог и страшный суд (1926) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее изложение показывает, что идея о существовании бога не происходит от религиозной "потребности" человека, а приспособлена к политическим потребностям временно господствующего класса.Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1379C02E5342A1940DD2B14394B08A4E26E5BB61
 ```
 
 https://mybot314.ru/tekegram_catalog/

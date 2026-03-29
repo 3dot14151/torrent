@@ -1,3 +1,238 @@
+###  Публикация: 943330   (446906) от 04.10.2015
+
+Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Strangers [5:36]
+02. Deep Six [5:02]
+03. Third Day Of A Seven Day Binge [4:30]
+04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248291   (444513) от 19.09.2018
+
+Алексей Покровский - Русские Народные Песни И Романсы (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Poetry, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская Поэзия В Народных Песнях
+A1	Сон Русского На Чужбине (Вот Мчится Тройка Удалая)
+A2	Среди Долины Ровныя
+A3	По Посаду Городскому(   Читать дальше...   )Жанр: Poetry, FolkПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97447F37DE88FBBF02D0A9F8F29E248D5C3EE8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944289   (442358) от 06.10.2015
+
+David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | Audio-DVD5 (BD-Audio)] <art rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rattle That Lock («Греми замкОм») — четвёртый сольный альбом Дэвида Гилмора, выпущенный 18 сентября 2015 года. За выходом альбома последует короткий тур по Европе осенью 2015 и Америке весной 2016 года.
+
+Альбом был записан в Medina Studio и на плавучей студии Гилмора "Астория".
+Титульный сингл альбома был выпущен 17 июля 2015 года и доступен для скачивания (   Читать дальше...   )1. 5 A.M. 03:02
+  2. Rattle That Lock 04:57
+  3. Faces of Stone 05:32
+  4. A Boat Lies Waiting 04:36(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:53:53 (+3 bonus video tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853402   (441849) от 20.09.2018
+
+VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др. (1996) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни и музыкальная тема из т/ф "Двенадцать стульев"
+
+01. Белеет мой парус - Андрей Миронов
+02. Танго любви - Андрей Миронов(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164020   (441150) от 09.09.2017
+
+Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond (1 - 5) (13:28)
+02. Welcome To The Machine (7:36)
+03. Have A Cigar (5:10)
+04. Wish You Were Here (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570537   (440363) от 18.08.2022
+
+Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Children of Bodom — финская англоязычная группа из города Эспоо, исполнявшая музыку в стиле мелодик-дэт-метал с элементами различных других направлений метала.1997 - Something Wild
+1999 - Hatebreeder
+2000 - Follow The Reaper
+2003 - Hate Crew Deathroll(   Читать дальше...   )Жанр: Melodic Death/Power MetalПродолжительность: 10:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323333   (437700) от 03.09.2019
+
+Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording) (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Why Can't The English?
+03. Wouldn't It Be Loverly
+04. I'm Just An Ordinary Man(   Читать дальше...   )Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063057   (436936) от 15.10.2016
+
+Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436936.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Surrender (4:05)
+A2. Spotlight Kid (4:56)
+A3. No Release (5:37)
+A4. Magic (4:09)(   Читать дальше...   )Производство: Polydor - 20MM 9233Жанр: Hard RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062947   (436773) от 15.10.2016
 
 Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Art Rock>
@@ -6,7 +241,7 @@ Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436773.jpg" />
+  <img src="Z:/picture/008/save_picture_436773.jpg" />
 </div>
 
 
@@ -35,7 +270,7 @@ London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436453.jpg" />
+  <img src="Z:/picture/008/save_picture_436453.jpg" />
 </div>
 
 
@@ -64,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434943.jpg" />
+  <img src="Z:/picture/008/save_picture_434943.jpg" />
 </div>
 
 
@@ -93,7 +328,7 @@ Puhdys - Far From Home (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433861.jpg" />
+  <img src="Z:/picture/008/save_picture_433861.jpg" />
 </div>
 
 
@@ -122,7 +357,7 @@ VA - Мы Друг Друга Нашли Песни на стихи В. Хари
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433857.jpg" />
+  <img src="Z:/picture/008/save_picture_433857.jpg" />
 </div>
 
 
@@ -151,7 +386,7 @@ Wings - Venus And Mars (1994) Recorded 1975 [FLAC 2.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433750.jpg" />
+  <img src="Z:/picture/008/save_picture_433750.jpg" />
 </div>
 
 
@@ -180,7 +415,7 @@ Helen Reddy - Free And Easy (1974) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433726.jpg" />
+  <img src="Z:/picture/008/save_picture_433726.jpg" />
 </div>
 
 
@@ -209,7 +444,7 @@ VA - 80's Dance Classic (2001) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432118.jpg" />
+  <img src="Z:/picture/008/save_picture_432118.jpg" />
 </div>
 
 
@@ -238,7 +473,7 @@ Mustasch - Дискография (13 albums) (2001-2019) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431689.jpg" />
+  <img src="Z:/picture/008/save_picture_431689.jpg" />
 </div>
 
 
@@ -267,7 +502,7 @@ Incubus - Дискография (11 albums) (1995-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431679.jpg" />
+  <img src="Z:/picture/008/save_picture_431679.jpg" />
 </div>
 
 
@@ -297,7 +532,7 @@ Boston Symphony Orchestra, Erich Leinsdorf - Prokofieff - Romeo And Juliet (1968
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430462.jpg" />
+  <img src="Z:/picture/008/save_picture_430462.jpg" />
 </div>
 
 
@@ -326,7 +561,7 @@ Glenn Miller - World Music Collection (2002) [FLAC 2.0|48/24|image+.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430305.jpg" />
+  <img src="Z:/picture/008/save_picture_430305.jpg" />
 </div>
 
 
@@ -355,7 +590,7 @@ Cutting Crew - Broadcast (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429327.jpg" />
+  <img src="Z:/picture/008/save_picture_429327.jpg" />
 </div>
 
 
@@ -384,7 +619,7 @@ The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427511.jpg" />
+  <img src="Z:/picture/008/save_picture_427511.jpg" />
 </div>
 
 
@@ -413,7 +648,7 @@ Tempest - Дискография (2018 - 2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427510.jpg" />
+  <img src="Z:/picture/008/save_picture_427510.jpg" />
 </div>
 
 
@@ -441,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426034.jpg" />
+  <img src="Z:/picture/005/save_picture_426034.jpg" />
 </div>
 
 
@@ -470,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425061.jpg" />
+  <img src="Z:/picture/008/save_picture_425061.jpg" />
 </div>
 
 
@@ -499,7 +734,7 @@ Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423494.jpg" />
+  <img src="Z:/picture/008/save_picture_423494.jpg" />
 </div>
 
 
@@ -513,238 +748,6 @@ Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411975   (422712) от 27.09.2020
-
-Valeria/Валерия - The Taiga Symphony (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Blues Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422712.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sky Belongs To Me	4:44
-A2 I Will Travel On	4:52
-A3 Song Of The City (Happening To Me)
-A4 Stay With Me(   Читать дальше...   )Жанр: Blues Rock, BalladПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393696120A072AC574012AEE0372B80B8E3A6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411920   (422703) от 27.09.2020
-
-Omega - Elo Omega Kisstadion '79 (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422703.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sze-Vosztok
-A2 Gammapolis 1
-A3 Nem Tudom A Neved
-B1 Lena(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A434B27EE213E93933408911C18ED97D696D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232030   (421718) от 29.09.2018
-
-Pink Floyd - Wish You Were Here (1975) [FLAC 2.0|192/24|tracks|MB-Rip] <Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (Part I-V) (13:42)
-02. Welcome To The Machine (7:25)
-03. Have A Cigar (5:29)
-04. Wish You Were Here (5:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F712AA407395474641C275A3A9F3AE812E8DFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324758   (421323) от 11.09.2019
-
-Timothy Farrell & Christopher Green - Organ and Cello Music from Westminster Abbey (1973) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Cello & Organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-A1 Fanfare, Op. 85
-A2 Pfingsten, Op. 145, No. 6
-A3 Improvisation on "Schonster Herr Jesu", Op. 55 for cello and organ(   Читать дальше...   )Жанр: Classical, Cello & Organ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607B33E9CF1A42CA95129DA5027E0C7FB9D76B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065340   (420957) от 22.10.2016
-
-Черный кофе - Переступи порог (1987) [WavPack|192/32|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Переступи порог  4:22
-2. Владимирская Русь  5:18
-3. Жизни рассвет  3:30(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C23CB8332257A2FD67739CD2514978D4E684B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251087   (420039) от 30.09.2018
-
-VA - All The Best From Scotland (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A
-A1 The Pipes & Drums & Military Of The King's Own Scottish Borderers - Amazing Grace
-A2 The Alex Sutherland Band And Singers - Flower Of Scotland
-A3 The John Ellis Highland Country Band - Caledonian Corn(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05D72EB7B75A711A35A8914CE25D852B6CC0286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867374   (419985) от 16.10.2015
-
-Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Blackout  3:50
-2. Can't Live Without You  3:46
-3. No One Like You  3:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701409   (419900) от 16.10.2015
-
-The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Come Together 4:18
-2. Something 3:02
-3. Maxwell's Silver Hammer 3:26(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADE00AC4898961D3DE902F3404227D83613B06B
 ```
 
 https://mybot314.ru/tekegram_catalog/

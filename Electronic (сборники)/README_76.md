@@ -1,3 +1,61 @@
+###  Публикация: 1528952   (733579) от 04.02.2022
+
+VA - Dancing In Space: Future House Music (2022) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заглавной темой музыки сборника "Dancing In Space" является фантастика и космические путешествия, и многие треки этого лонгплея вполне подошли бы в качестве саундтрека для космических сиквелов кинематографа. Кибернетический разум, неизведанные просторы космоса, утопический мир будущего - всё это на треках представляемого Вам сборника.001. Mas Ricardo - Techtribe
+002. Oh, Hayir! - Ravens
+003. Staffan Lindberg - The Orbit
+004. Gianfranco Echandia - Two Cats(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B555426BC473AE996746258C9097C8088096D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528976   (733577) от 04.02.2022
+
+VA - Dreaming Of Better Day: Deep House Playset (2022) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733577.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Dreaming Of Better Day", это отличная подборка треков в стиле Deep House! Впечатляющие басовые линии в сочетании с чистотой синтезатора, ритмы с некоторой долей прогрессива делают такую музыку привлекательной для поклонников этого, наверное, самого популярного жанра электронной музыки.001. Riky Mura - Get Alone
+002. Tamas Skafar - Farewell Gift
+003. Joiodj & Chanelle - My Heart's Not Free
+004. Marcel Vogel - Why Don't You Leave Me(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D955EE6161527E0D45DCBD4C1F2AED0608CF7D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528961   (733575) от 04.02.2022
 
 VA - Brighter Nights: Deep House Dreaming Megaset (2022) [MP3|320 Kbps] <Deep House, Soft Electro>
@@ -6,7 +64,7 @@ VA - Brighter Nights: Deep House Dreaming Megaset (2022) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733575.jpg" />
+  <img src="Z:/picture/008/save_picture_733575.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - E-Dance: Clubbing Electro House (Vol.07) (2022) [MP3|320 Kbps] <Club, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733574.jpg" />
+  <img src="Z:/picture/008/save_picture_733574.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ambient Aqua Form (2022) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Meditat
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733573.jpg" />
+  <img src="Z:/picture/008/save_picture_733573.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Super Хитовый from AGR (2011) [MP3|320 kbps]<Pop, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732124.jpg" />
+  <img src="Z:/picture/008/save_picture_732124.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Deep Atributes: Deep House Compilation (2016) [MP3|320 кб/с] <Deep House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732093.jpg" />
+  <img src="Z:/picture/008/save_picture_732093.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - DJ Master Mix: Electro House (2016) [MP3|263-320 кб/с] <Club, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732084.jpg" />
+  <img src="Z:/picture/008/save_picture_732084.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Wonderful Melodic Chillstep [Compiled by Zebyte] (2016) [MP3|320 кб/с] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731905.jpg" />
+  <img src="Z:/picture/008/save_picture_731905.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Deep House Collection Vol.197 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731471.jpg" />
+  <img src="Z:/picture/008/save_picture_731471.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Beatport Top 100 Drum & Base (March) (2017) [MP3|320 Kbps] <Drum & Base>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731122.jpg" />
+  <img src="Z:/picture/008/save_picture_731122.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Ibiza Sundowner Chillout Music (2016) [MP3|320 кб/с] <Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731111.jpg" />
+  <img src="Z:/picture/008/save_picture_731111.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Kamlanie: Psychedelic Trance (2019) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731030.jpg" />
+  <img src="Z:/picture/008/save_picture_731030.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Deep House Collection Vol.117 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730996.jpg" />
+  <img src="Z:/picture/008/save_picture_730996.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730603.jpg" />
+  <img src="Z:/picture/008/save_picture_730603.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - 100% House Music: Top Dance (2019) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730445.jpg" />
+  <img src="Z:/picture/008/save_picture_730445.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Illusions Of Dreams: Relax Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730071.jpg" />
+  <img src="Z:/picture/008/save_picture_730071.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Deep Aesthetics House (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730021.jpg" />
+  <img src="Z:/picture/008/save_picture_730021.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Lounge Instrumentals: Chillout Downtempo Electronica Instrumentals Tracks (
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730000.jpg" />
+  <img src="Z:/picture/008/save_picture_730000.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Metro East - Metro East (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Darksynth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729913.jpg" />
+  <img src="Z:/picture/008/save_picture_729913.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Record Super Chart #483 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729868.jpg" />
+  <img src="Z:/picture/008/save_picture_729868.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #45 (2011) (18.04.2011) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729712.jpg" />
+  <img src="Z:/picture/008/save_picture_729712.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Po
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729681.jpg" />
+  <img src="Z:/picture/008/save_picture_729681.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Sensual Steps: Relax Compilation (2016) [MP3|320 кб/с] <Downtempo, Chill
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729001.jpg" />
+  <img src="Z:/picture/008/save_picture_729001.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ VA - LUXEmusic Топ Май (2016) [MP3|128-320 кб/с] <House Music, Mash Up,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728997.jpg" />
+  <img src="Z:/picture/008/save_picture_728997.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Deem Beat - Last Call (Mix) (2016) [MP3|320 кб/с] <Deep House, Tech House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728995.jpg" />
+  <img src="Z:/picture/008/save_picture_728995.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Deem Beat - Last Call (Mix) (2016) [MP3|320 кб/с] <Deep House, Tech House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2490A9C3046B9DF5AFEC3EC9B00EEEF5BFDACBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284348   (728970) от 21.02.2019
-
-VA - Panopticon: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728970.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hi Profile - All We Need
-002. Ajja - Bebopper
-003. Archaic - Allotriomorfodiai Tone
-004. Nostromosis - Challenging Evil(   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 12:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA15399BF64542D95A641FD8A59EE0ABEA9A571E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284410   (728967) от 21.02.2019
-
-VA - Urban Grunge (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728967.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. High Class Filter - Backbone (Original Mix)
-002. Decrypt - Lucky Hat
-003. Lj High - Epic
-004. Willcox - Tequila (Radio Edit)(   Читать дальше...   )Жанр: D&B, Dubstep, Bass ElectronicПродолжительность: 09:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47A2EC2B152C7F8771FC672A1D718C3E172C8E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

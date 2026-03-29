@@ -1,3 +1,55 @@
+###  Публикация: 567757   (698583) от 10.05.2017
+
+Чудак-человек (1962) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698583.jpg" />
+</div>
+
+
+###  Подробнее
+
+В «Заготскотконтору» пришел новый управляющий Максим Меже. Его приход ознаменовался подарками от некоторых подчиненных — подхалимов и жуликов. Но Максим оказался неподкупным, и тогда проходимцы начали войну против него с помощью анонимок и доносов...Производство: Одесская киностудияЖанр: КомедияРежиссер: Владимир КочетовАктеры: Михаил Пуговкин, Светлана Живанкова, Борис Ситко, Борис Белов, Аркадий Трусов, Константин Параконьев, Н. Кабакова, Любовь Малиновская, Елизавета Никищихина, Григорий МихайловПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87365D9F87276E672AD1F3A313B90C1E226E5293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541818   (698578) от 10.05.2017
+
+Второе рождение (1980) SATRip (3 серии из 3)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хороший парень из благополучной семьи Гена Русанов учится в институте, любит девушку и уже готов жениться. Невеста счастлива и тоже ждет не дождется свадьбы. И вдруг с Геной что-то произошло. Он начинает пить водку и очень быстро опускается на самое дно. Но за ним наблюдают хорошие и чуткие люди. Они не дадут Гене окончательно погибнуть и помогут вернуться в русло (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: ДрамаРежиссер: Тимур ЗолоевАктеры: Олег Вавилов, Вадим Медведев, Татьяна Конюхова, Александра Яковлева (Иванес), Николай Гринько, Елена Максимова, Николай Рушковский, Надежда Хиль, Юрий Мажуга, Юрий Ступаков и др.Продолжительность: 3 x ~ 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956BACD6FD390CA47B35C0F9F178ACFB9DA4829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514246   (698574) от 10.05.2017
 
 Клоун (1980) TVRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698574.jpg" />
+  <img src="Z:/picture/008/save_picture_698574.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698486.jpg" />
+  <img src="Z:/picture/008/save_picture_698486.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698485.jpg" />
+  <img src="Z:/picture/008/save_picture_698485.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698394.jpg" />
+  <img src="Z:/picture/008/save_picture_698394.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698168.jpg" />
+  <img src="Z:/picture/008/save_picture_698168.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697388.jpg" />
+  <img src="Z:/picture/008/save_picture_697388.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696792.jpg" />
+  <img src="Z:/picture/008/save_picture_696792.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696786.jpg" />
+  <img src="Z:/picture/008/save_picture_696786.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696714.jpg" />
+  <img src="Z:/picture/008/save_picture_696714.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696709.jpg" />
+  <img src="Z:/picture/008/save_picture_696709.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695610.jpg" />
+  <img src="Z:/picture/008/save_picture_695610.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694285.jpg" />
+  <img src="Z:/picture/008/save_picture_694285.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692897.jpg" />
+  <img src="Z:/picture/008/save_picture_692897.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691586.jpg" />
+  <img src="Z:/picture/008/save_picture_691586.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690551.jpg" />
+  <img src="Z:/picture/008/save_picture_690551.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690516.jpg" />
+  <img src="Z:/picture/008/save_picture_690516.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689431.jpg" />
+  <img src="Z:/picture/008/save_picture_689431.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689312.jpg" />
+  <img src="Z:/picture/008/save_picture_689312.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688801.jpg" />
+  <img src="Z:/picture/008/save_picture_688801.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688682.jpg" />
+  <img src="Z:/picture/008/save_picture_688682.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688664.jpg" />
+  <img src="Z:/picture/008/save_picture_688664.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688372.jpg" />
+  <img src="Z:/picture/008/save_picture_688372.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_687115.jpg" />
+  <img src="Z:/picture/005/save_picture_687115.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686960.jpg" />
+  <img src="Z:/picture/008/save_picture_686960.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907CFD63CAD05AAE45FC69E2D2CB09A48FDF144E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403878   (684005) от 23.08.2020
-
-Убийцы / Murderers (1956) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Убийцы» — короткометражная экранизация одноименного рассказа американского писателя Эрнеста Хемингуэя (англ. The Killers, 1927), курсовая работа, поставленная осенью 1956 года группой студентов ВГИКа, обучавшихся в режиссёрском классе Михаила Ромма.
-Обычный вечер в маленьком городке. В бар заходят два подозрительных молодых человека. Они будут ждать Оле Андерсона, (   Читать дальше...   )Производство: СССР / ВГИКЖанр: Короткометражный, драмаРежиссер: Марика Бейку, Александр Гордон, Андрей ТарковскийАктеры: Юлий Файт, Александр Гордон, Валентин Виноградов, Вадим Новиков, Юрий Дубровин, Андрей Тарковский, Василий ШукшинСубтитры: ОтсутствуютПродолжительность: 00:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2F6240FBF3A3F4411FAB6745A6DB13DA1D7FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485606   (681789) от 18.03.2019
-
-Спутник планеты Уран (1990) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Ариэль, ученик тайной школы на севере Индии, успешно овладев левитацией, покидает обитель. Его учителя, мечтающие о мировом господстве, устремляются по следам беглеца. Герой переживает ряд невероятных приключений. Оказав помощь советским и американским космонавтам, Ариэль покидает Землю и устремляется к Урану.
-По мотивам повести А. Беляева «Ариэль».Производство: СССР (Узбекфильм)Жанр: ФантастикаРежиссер: Хаджи АхмарАктеры: Хаджи Ахмар, Юрий Волков, Павел Махотин, Манучар Шервашидзе, Ита Эвер, Аксель Орав, Гунар Килгас, Фарида Ходжаева, Ярослав Барышев, Людмила Баранова, Павел ВинникПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831C4D2BC09F0EEA320BEA65804CF689753371E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

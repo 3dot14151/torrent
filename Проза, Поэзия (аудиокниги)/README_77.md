@@ -1,3 +1,57 @@
+###  Публикация: 1337344   (275011) от 10.11.2019
+
+Николай Блохин | Владимирская (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1395 год. В русские земли вторгаются войска Хромого Тимура (Тамерлана), прославившегося своими военными подвигами и невероятной жестокостью. Уже захвачен и разорен Елец, следующая - Москва. Навстречу его полчищам выдвигается наспех собранное войско молодого князя Василия, сына Дмитрия Донского. Но силы несопоставимы…
+Спасти Русь может только чудо. И оно свершается. (   Читать дальше...   )Жанр: Историческая повестьПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB395F0E4FB4626285B1D15B1E1BFD52FF9180C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315738   (274900) от 10.11.2019
+
+Юлия Крюкова | Из суицида в вечность - спасение длинною в жизнь (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подлинная любовь рождается во времени и устремляется в вечность. Она никогда не прекращается и не ослабевает, но только лишь крепнет, приобретая всё новые и новые краски и оттенки глубоких чувств.
+Как отыскать такую любовь? Как достичь её в мире господства сиюминутных желаний и преходящих ценностей? Как не утратить ее даже если смерть, страшная смерть любимого, разделяет (   Читать дальше...   )Жанр: современная проза, рассказПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3E7418E1CD71A6D45C711AF5265CA948A7F7AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082643   (274745) от 15.12.2016
 
 Андрей Максимов | Посланник (2016) [MP3]
@@ -6,7 +60,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274745.jpg" />
+  <img src="Z:/picture/008/save_picture_274745.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273762.jpg" />
+  <img src="Z:/picture/008/save_picture_273762.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273670.jpg" />
+  <img src="Z:/picture/008/save_picture_273670.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273625.jpg" />
+  <img src="Z:/picture/008/save_picture_273625.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273099.jpg" />
+  <img src="Z:/picture/008/save_picture_273099.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272411.jpg" />
+  <img src="Z:/picture/008/save_picture_272411.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271594.jpg" />
+  <img src="Z:/picture/008/save_picture_271594.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270355.jpg" />
+  <img src="Z:/picture/008/save_picture_270355.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269858.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268208.jpg" />
+  <img src="Z:/picture/008/save_picture_268208.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268202.jpg" />
+  <img src="Z:/picture/008/save_picture_268202.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267901.jpg" />
+  <img src="Z:/picture/008/save_picture_267901.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267899.jpg" />
+  <img src="Z:/picture/008/save_picture_267899.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267898.jpg" />
+  <img src="Z:/picture/008/save_picture_267898.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267896.jpg" />
+  <img src="Z:/picture/008/save_picture_267896.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267805.jpg" />
+  <img src="Z:/picture/008/save_picture_267805.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267724.jpg" />
+  <img src="Z:/picture/008/save_picture_267724.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267126.jpg" />
+  <img src="Z:/picture/008/save_picture_267126.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267049.jpg" />
+  <img src="Z:/picture/008/save_picture_267049.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266118.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264019.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264017.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264009.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263491.jpg" />
 </div>
 
 
@@ -625,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B877012EB2B487517B6F3E64D07CA294058C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340833   (263298) от 25.11.2019
-
-Дмитрий Игумнов | Последнее желание (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последнее желание
-ьма стала постепенно рассеиваться. Глухая чернота потихоньку начала прореживаться серыми бликами. Появилось нечто похожее на мерное колыхание, сопровождающееся тихими-тихими вздохами. В просветляющейся дали Петр Андреевич очень смутно увидел густой лес, вернее, его опушку, подступающую к обрывистому берегу небольшой речки. На самом краю этого обрыва (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437601CCDE77900844039A052BF0CC90EED7B691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192431   (263179) от 17.12.2017
-
-Иосиф Кантор | Ной. Всемирный потоп (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как праведному человеку сохранить душу и совесть в порочном мире, приговоренном за грехи к уничтожению? Сможет ли он убедить в своей правоте любимую жену и детей? Исполнит ли безропотно волю Божью – или попытается спасти в Ковчеге не животных, а людей? Раскроет ли жестокое убийство, совершенное в разгар строительства, – убийство, в котором обвиняют самого Ноя, а (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 08:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97B06FC9DF615E4B82F5FBAAE7F89054B62F34D
 ```
 
 https://mybot314.ru/tekegram_catalog/

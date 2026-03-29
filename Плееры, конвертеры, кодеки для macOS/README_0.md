@@ -1,3 +1,108 @@
+###  Публикация: 1621018   (1031439) от 23.03.2023
+
+Ultra Audio Converter for Mac 3.2.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultra Audio Converter — это удобная и простая утилита для экспорта ваших любимых аудиоформатов. Форматы экспорта совместимы с популярными потребностями и большинство устройств и редактирование тегов для mp3, m4a полностью поддерживаются. Также Ultra Music Converter может помочь вам легко извлекать и конвертировать аудиоконтент из видеоформатов. На самом деле, Ultra (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CBD243931DB8D416F1F3C623C6B8ED728F9B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621542   (1030965) от 25.03.2023
+
+Movist 2.10.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудио выход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2023Разработчик: © 2023 MovistПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3CBBB091A28FA15E2560C498B758602F360951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622698   (1030036) от 29.03.2023
+
+NCH Prism Plus 10.09 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prism - самый стабильный и всеобъемлющий мультиформатный видео конвертер, доступный и очень простой в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A3F364B81133D16E8DC090E7909A4E14742502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452718   (1027583) от 07.03.2021
+
+AudioFinder 6.0.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027583.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioFinder — приложение для управления вашей фонотекой. С ее помощью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2021Разработчик: Iced AudioПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3B4B7A54B791D703D8CAF09A4C95E13B6983CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457204   (1024552) от 25.03.2021
 
 NoteBurner Spotify Music Converter 2.1.3 [Multi]
@@ -6,7 +111,7 @@ NoteBurner Spotify Music Converter 2.1.3 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024552.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ EditReady 2.7.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024443.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ Wondershare TidyMyMusic 3.0.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023837.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Audio Playr 2.3.1  [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019816.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Total Video Player 3.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019650.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ Playr 2.6.1  [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019497.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Total Video Downloader 2.4.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019494.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Tuneskit Spotify Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019287.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ Smart DVD Creator 1.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019162.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ AudioTunes - FLAC, APE, WMA Converter 1.5.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019151.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ LosslessTunes – Lossless Audio Converter 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019134.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Tuner for YouTube music 5.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018626.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Total Video Player Pro 3.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018569.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ TunesKit Audible Converter 2.1.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018426.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ Total Video Converter Pro 4.7.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016574.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ Tipard Blu-ray Player for Mac 6.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016154.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ ThunderSoft Apple Music Converter 2.12.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015117.jpg" />
 </div>
 
 
@@ -453,7 +558,7 @@ Colibri 2.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011810.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ Joyoshare VidiKit 1.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007900.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ Downcast 2.10.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005470.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ vGuru - Video Player 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002178.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ Perian 1.2.3 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000106.jpg" />
 </div>
 
 
@@ -570,116 +675,6 @@ Perian это компонент с открытым бесплатным код
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603777   (996650) от 16.01.2013
-
-iSonics 1.2.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996650.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSonics позволяет выполнить лёгкую конвертацию аудиофайлов и CD-дисков во все популярные аудиоформаты - MP3, MP2, AAC, FLAC, ALAC, WMA, OGG Vorbis, AC3 и WAV.  Для кодеков - MP3, FLAC и AC3 используются расширенные опции настройки.
-Приложение работает с  мета-данными файлов, возможно их редактирование и автоматическая загрузка обложек музыкальных альбомов.
-Возможен импорт аудио с компакт-дисков с конвертацией в любой аудиоформат с включением загруженных из Интернета мета-данных
-Импортирует конвертированные аудиофайлы в iTunes
-Использует метаданные для создания структурированных имён каталогов и файловНазвание программы: iSonicsТип издания: Mac OS X SoftwareЯзык интерфейса: Multi, русского нет
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354792   (986822) от 23.01.2020
-
-JRiver Media Center 26 v26.0.18 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986822.jpg" />
-</div>
-
-
-###  Подробнее
-
-J.River Media Center - мощный мультимедийный центр, объединяющий в себе работу с музыкой, видео и фотографиями. Проигрывает большинство популярных аудио и видео форматов, включая MP3, аудио CD (поддерживает CDDB) и DVD, может преобразовывать CD-аудиотреки в WAV и MP3, переписывать на жесткий диск виниловые диски и кассеты (убирая при этом помехи и шумы), а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: JRiver, Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBE0155EB36523309731CF2ADECD9A4FE059068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615175   (978313) от 07.02.2013
-
-HandBrake 0.9.8 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978313.jpg" />
-</div>
-
-
-###  Подробнее
-
-HandBrake — бесплатный видео конвертер из DVD или любого видео формата в MPEG-4 или H.264 с открытым исходным кодом, доступный для MacOS X, Windows, Linux.
-Отличный конвертор видео для Apple iPod, iPhone, iPad, AppleTV, Sony PSP, PS3, Microsoft Xbox 360, Android.Тип издания: Mac OS X softwareРелиз состоялся: 2012Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974401   (976810) от 11.01.2016
-
-Permute 2.0.7 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 января 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: Mac OS X 10.10 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9399716517523955A85880885DBDB27D4394A403
 ```
 
 https://mybot314.ru/tekegram_catalog/

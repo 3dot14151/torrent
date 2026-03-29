@@ -1,3 +1,32 @@
+###  Публикация: 1687199   (125605) от 26.12.2023
+
+Chris Rea – Deltics (1979) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twisted Wheel
+02.  The Things Lovers Should Do
+03.  Dance! (Don't Think)
+04.  Raincoat And A Rose(   Читать дальше...   )Жанр: Soft Rock, RockПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27082732D55A8115CA6E5DD9425D81E357744D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687395   (125456) от 27.12.2023
 
 Chris Rea - Shamrock Diaries (1985) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
@@ -6,7 +35,7 @@ Chris Rea - Shamrock Diaries (1985) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125456.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Chris Rea - Wired To The Moon (1984) Reissue, 1990 [OGG Vorbis|480 Kbps] <Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125453.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Chris Rea - Herzklopfen (1986) [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125448.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Andrii Yurlov - Northern Low Blues (2024) [MP3|320 Kbps] <Blues, Instrumental, H
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124395.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chris Rea - Dancing With Strangers (1987) Reissue, 1991, EastWest [OGG Vorbis|48
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123661.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Chris Rea - On The Beach (1986) Reissue, 2006, EastWest [OGG Vorbis|480 Kbps] <P
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123659.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chris Rea - New Light Through Old Windows (The Best Of Chris Rea) (1988) [OGG Vo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123436.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Chris Rea - The Road To Hell (1989) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123097.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Co
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122932.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Chris Rea - The Blue Cafe (1998) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122786.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Chris Rea - Espresso Logic (1993) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122759.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Chris Rea - La Passione (1996) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122753.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Chris Rea - Stony Road (2002) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock, Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122557.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Chris Rea - Blue Street (Five Guitars) (2003) [OGG Vorbis|480 Kbps] <Blues Rock,
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122525.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Chris Rea - The Blue Jukebox (2004) [OGG Vorbis|480 Kbps] <Blues Rock, Soft Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122522.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Chris Rea - The Return Of The Fabulous Hofner Bluenotes (2008) [OGG Vorbis|480 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122387.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Chris Rea - Santo Spirito Blues (2011) [OGG Vorbis|480 Kbps] <Blues Rock, Soft R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122373.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Miss Velvet & The Blue Wolf - Bad Get Some (2018) [MP3|320 Kbps] <Blues, Funk Ro
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121866.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Mighty Howlers - Back On Track (2024) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118263.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Deep Six Blues - The Devil's Hand (2024) [MP3|320 Kbps] <Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110134.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Don Carroll - Blues Organ (2008) [MP3|320 Kbps] <Hammond, Blues, Organ>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108643.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Joe Bonamassa - Live At The Hollywood Bowl With Orchestra (2024) [MP3|320 Kbps] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107575.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 K
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107547.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107446.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105017.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3EB8D8A7499B6719F1D88558B0AF5DE696F6D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745761   (104976) от 28.08.2024
-
-Omar and The Howlers - Aggressive Country (2024) [MP3|320 Kbps] <Blues Rock, Country Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Woman [00:02:01]
-02 - Last of the Hub City Cowboys [00:01:55]
-03 - Brain Cloudy Blues [00:03:41]
-04 - Haunted House [00:02:40](   Читать дальше...   )Жанр: Blues Rock, Country RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56121856EE549E01CB1AA0AAC829B80C2553CED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

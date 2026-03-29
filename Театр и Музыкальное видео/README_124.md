@@ -1,3 +1,171 @@
+###  Публикация: 608888   (146767) от 25.12.2019
+
+Игорь Растеряев - Концерт в Рязани (2012) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146767.jpg" />
+</div>
+
+
+###  Подробнее
+
+По состоянию на начало мая 2012 года первоначальный ролик на YouTube просмотрен более 3,5 миллиона раз, став одним из наиболее успешных видео в Рунете (в 2010 году вошёл в десятку самых просматриваемых роликов в России). Всего же видеоролики с песнями в исполнении Растеряева («Русская дорога», «Казачья песня», «Ромашки», «Раковка», «Георгиевская ленточка» и др.) (   Читать дальше...   )01. Русская дорога
+02. Казачья песня
+03. Поступления в театральный институт(история)
+04. Комбайнеры(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A194640B3729F5CB835E5A8211263F1AB9AFF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519753   (146589) от 25.12.2021
+
+The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (2021) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный Blu-ray Ханса Циммера под названием ''World of Hans Zimmer: Hollywood in Vienna'' был записан в 2018 году в классическом концертном зале Вены, по случаю вручения композитору 10-й премии Макса Штайнера за достижения в области киноискусства. Прозвучали известные оркестровые композиции из фильмов, частично специально переделанные им, совместно с Венским симфоническим (   Читать дальше...   )Производство: Германия / DWTC BalgavyЖанр: Musical ScoreРежиссер: Питер РэбинджерАктеры: Martin Gellner, Lisa Gerrard, Valentina Nafornita, Pedro Eustache, Luis Ribeiro, Eliane Correa, Rusanda Panfili, ORF Vienna Radio Symphony Orchestra, Neue Wiener StimmenПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086670   (146490) от 27.12.2016
+
+Игра. Концерт Николая Баскова. (2016) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зрителей ждет не имеющее аналогов по размаху театрализованное представление! Уникальные декорации, эксклюзивные костюмы, специальные постановка для каждого номера. Новые песни, полюбившиеся хиты и шедевры мировой классики!01.	Я не одинок
+02.	Обниму тебя
+03.	Я подарю тебе любовь
+04.	Сохранив любовь (дуэт с Валерией)(   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B9302CCEE92AB5449EE883C6BA43CFE258B371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519793   (146406) от 25.12.2021
+
+Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный концерт группы Metallica, посвященный 40-летию группы, был снят в течение двух ночей, 17 и 19 декабря 2021 года.Производство: США / Amazon StudiosЖанр: Thrash MetalРежиссер: Narumi InatsuguСубтитры: английские (полные)Продолжительность: 04:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2DEDCF5160185F79EA15DD728AA748728E9F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086667   (146338) от 27.12.2016
+
+Игра. Концерт Николая Баскова. (2016) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зрителей ждет не имеющее аналогов по размаху театрализованное представление! Уникальные декорации, эксклюзивные костюмы, специальные постановка для каждого номера. Новые песни, полюбившиеся хиты и шедевры мировой классики!01.	Я не одинок
+02.	Обниму тебя
+03.	Я подарю тебе любовь
+04.	Сохранив любовь (дуэт с Валерией)(   Читать дальше...   )Производство: РоссияЖанр: КонцертПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7B4AAF817CC12AB6EC532A3E2037F4377B2F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087408   (146232) от 27.12.2016
+
+Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Metallica в BBC Radio 1 Maida Vale Studio, London, UK 17 ноября 2016г.1. Atlas, Rise!
+2. Moth Into Flame
+3. Harvester Of Sorrow
+4. Hardwired(   Читать дальше...   )Жанр: Студийный концертПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364B04D59BFD06A41931B3DD010D4DD7A8A133C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086872   (146044) от 27.12.2016
 
 Гии Эрадзе - Баронеты (2016) DVDRip [H.264]
@@ -6,7 +174,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146044.jpg" />
 </div>
 
 
@@ -33,7 +201,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145936.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145905.jpg" />
 </div>
 
 
@@ -89,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145892.jpg" />
 </div>
 
 
@@ -116,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145704.jpg" />
 </div>
 
 
@@ -142,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145624.jpg" />
 </div>
 
 
@@ -168,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145512.jpg" />
 </div>
 
 
@@ -195,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145497.jpg" />
 </div>
 
 
@@ -221,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145464.jpg" />
 </div>
 
 
@@ -250,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145237.jpg" />
 </div>
 
 
@@ -276,7 +444,7 @@ AC/DC - Live At Donington (1992) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145106.jpg" />
 </div>
 
 
@@ -308,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144862.jpg" />
 </div>
 
 
@@ -337,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144735.jpg" />
 </div>
 
 
@@ -363,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144397.jpg" />
 </div>
 
 
@@ -389,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144146.jpg" />
 </div>
 
 
@@ -424,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143532.jpg" />
 </div>
 
 
@@ -450,7 +618,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143520.jpg" />
 </div>
 
 
@@ -476,7 +644,7 @@ AC/DC - Let There Be Rock (1980) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143266.jpg" />
 </div>
 
 
@@ -508,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143263.jpg" />
 </div>
 
 
@@ -537,7 +705,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143253.jpg" />
 </div>
 
 
@@ -551,173 +719,6 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79A65E2F3D0B3922C294693C9C45B47A3180C839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969934   (143224) от 29.12.2015
-
-Квартирник у Маргулиса - Ундервуд (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - группа "Ундервуд". Дата эфира: 19.12.2015.Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89408AF6F517E965164C8A068231107AB7BDFADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205709   (143017) от 22.11.2023
-
-Бертольт Брехт - Добрый человек из Сезуана (2010) CamRip (Театр на Таганке)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постановка по пьесе Бертольта Брехта.
-Спустившиеся на землю боги безуспешно ищут хотя бы одного доброго человека. Наконец, такой оказалась Шен Те, проститутка из Сезуана. Но чем больше она делает добра другим людям, тем больше на нее сваливается бед… Этот легендарный спектакль, с которого началась история Театра на Таганке под руководством Юрия Любимова, исследует (   Читать дальше...   )Производство: Россия, Московский театр на ТаганкеЖанр: Спектакль, драма, экранизацияРежиссер: Юрий ЛюбимовАктеры: Алексей Граббе, Эрвинд Гаас, Никита Лучихин, Любовь Селютина, Иван Рыжиков, Лариса Маслова ст., Владислав Маленко, Тимур Бадалбейли, Анастасия Колпикова, Татьяна Сидоренко, Феликс Антипов, Сергей Цимбаленко, Сергей Трифонов, Полина Нечитайло, Александр Фурсенко ст., Екатерина Рябушинская, Дмитрий Межевич, Александра Басова, Мария Матвеева, Александр Фурсенко мл., (   Читать дальше...   )Субтитры: отсутствуютПродолжительность: 02:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DA837A33955FBD380DC20B1800423DA3B64E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282998   (142784) от 27.12.2021
-
-Елена Ваенга - Концерт в День Рождения (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Елена Ваенга – имя, явление, звезда… Появившись в эфирах радиостанций в 1998 году и уехав по контракту в Москву, Елена не знала, что по приезду её уже ожидает популярность. Первый выход на сцену БКЗ в 2002 году и первые овации. Выход первого официального альбома и огромные продажи. Первые сольники и первые аншлаги. Переносимся на 5 с лишним лет и застаём всё того (   Читать дальше...   )01. Оловянное сердце
-02. Аэропорт
-03. Абсент
-04. Сани(   Читать дальше...   )Жанр: Концерт, ШансонПродолжительность: 01:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5708AB329C44302B48E524CD024BA0BAA66C9B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348423   (142579) от 28.12.2019
-
-Сборник клипов - Music 80s от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Muslc 80s 1 — Intro
-01. C.C. Catch — Strangers By Night
-02. Kaoma — Lambada
-03. A-ha — Take On Me(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3975971DE0642889C06C3B8BBACF44726113A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969855   (142555) от 29.12.2015
-
-Мир дому твоему (1987) DVDRip [H.264] [Реставрация КП]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сатирические миниатюры на социальные и морально-этические темы в постановке театра "Сатирикон".Производство: СССР, ТО "Экран", "Сатирикон"Жанр: СатираРежиссер: Аркадий Райкин, Константин Райкин, Марк ОрловАктеры: Аркадий Райкин, Константин Райкин, Тамара Кушелевская, Наталья Аитова, Феликс Аитов, Елена Бутенко-Райкина, Владимир Большов, Сергей Друзьяк (II), Игорь Еремеев, Сергей Зарубин, Александр Карпов (II), Лилия Макарова, Роланд Тер-Макаров, Владимир Михайловский, Лидия Петракова, Леонид Тимцуник, Виктор Шимановский (II)...Продолжительность: 01:26:30 + 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9BDABBE1F38C0E3A6ABC52663DEB0072D27B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852544   (142275) от 29.12.2014
-
-Рок-концерт - Лестница в небо (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142275.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 мая 2014 года стадион «Андрей-арена» в пос.Афипский Краснодарского края превратился в концертную площадку для рок-групп – и предмет особого внимания всех и каждого, кто разделяет нашу страсть к этой музыке. Около трех тысяч человек стали зрителями и слушателями этого праздника рок-музыки - именно столько гостей вмещает «Андрей-арена», и только для них 17 мая 2014 года стал по-настоящему незабываемым днем, раскрашенным самыми лучшими, самыми любимыми рок-мотивами! Классика олдскульного рока и прогрессив-рок, (   Читать дальше...   )Надежда Ильинская
-01. Беги по небу
-Ken Hensley
-01. Stealin'
-02. Circle of Hands(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 03:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21A3A2989158AC36AE37D8135C1D0F16D3B874A
 ```
 
 https://mybot314.ru/tekegram_catalog/

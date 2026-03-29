@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1860900   (1062295) от 
+
+The Trasamire Campaigns (2023) [En] (1.4) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062295.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Trasamire Campaigns - это напоминающая настольную игру стратегия с оригинальной стилистикой и механиками. Король Унмор умер не оставив наследника из-за чего некогда процветающее королевство Трасамир превратилось в гигантское поле битвы. Войдите в историю в качестве одного из легендарных основателей нового мира, а для этого проделайте серьезную работу. Разработайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Gemcutter GamesЖанр: Стратегия, ГоловоломкаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A331D4BC43B2F87C03F8AF02BE516185C4F2FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860918   (1062271) от 
+
+Wrangle Ranch (2026) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062271.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Wrangle Ranch вам придётся отчаянно ловить своих сельскохозяйственных животных лассо, когда они будут мчаться по экрану, стараясь при этом избегать хищников. Этот уникально захватывающий игровой процесс, отслеживаемый каждую минуту, сочетается с бесконечной реиграбельностью и глубокой стратегией roguelike-карточного симулятора, создавая первый в своём роде (   Читать дальше...   )Тип издания: SceneРазработчик: BenBonk, XraiDevЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A0E54C623F41E85677257D7E64B514B4486B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860727   (1062014) от 
+
+Reus 2 (2024) [Ru/Multi] (1.11.4/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reus 2 выделяется своей уникальностью и увлекательностью. В этой игре вы обладаете силой богов, управляя могучими гигантами, которые формируют мир для процветания или гибели человеческих цивилизаций. С самого начала все предельно ясно: в Reus 2 вам предстоит решать судьбу человечества, делая свой выбор и совершая поступки. Вы получите возможность выбрать себе гигантов, (   Читать дальше...   )Тип издания: SceneРазработчик: Abbey GamesЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC3B430E7F6A76E63E1F148BFECB53149238CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859969   (1061609) от 
 
 Pioneers of Pagonia (2023) [Ru/Multi] (1.2.0-188591/dlc) License GOG
@@ -7,7 +85,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.2.0-188591/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061609.jpg" />
+  <img src="Z:/picture/005/save_picture_1061609.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061556.jpg" />
+  <img src="Z:/picture/005/save_picture_1061556.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ TerraScape (2024) [Ru/Multi] (2.0.0.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060585.jpg" />
+  <img src="Z:/picture/005/save_picture_1060585.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Havendock (2023) [Multi] (1.4.3f3.s-off/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059181.jpg" />
+  <img src="Z:/picture/005/save_picture_1059181.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack HardwareMining [Definitive
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058787.jpg" />
+  <img src="Z:/picture/005/save_picture_1058787.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Anno 1800 (2019) [Ru/Multi] (18.4.1412158/dlc) Repack dixen18 [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057006.jpg" />
+  <img src="Z:/picture/005/save_picture_1057006.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Total War: PHARAOH DYNASTIES (2024) [Multi] (2.1.6/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056483.jpg" />
+  <img src="Z:/picture/005/save_picture_1056483.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Total War: PHARAOH DYNASTIES (2024) [Ru/Multi] (2.1.6/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056482.jpg" />
+  <img src="Z:/picture/005/save_picture_1056482.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055333.jpg" />
+  <img src="Z:/picture/005/save_picture_1055333.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack Other s [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055143.jpg" />
+  <img src="Z:/picture/005/save_picture_1055143.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack FitGirl [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055141.jpg" />
+  <img src="Z:/picture/005/save_picture_1055141.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack seleZen [Definitive Annove
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055137.jpg" />
+  <img src="Z:/picture/005/save_picture_1055137.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ Foundation (2019) [Ru/Multi] (1.11.0.11/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053914.jpg" />
+  <img src="Z:/picture/005/save_picture_1053914.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Worldwide Rush (2025) [Ru/Multi] (1.0.22/1.0.25) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053414.jpg" />
+  <img src="Z:/picture/005/save_picture_1053414.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Anno 1800 (2020) [Ru/Multi] (18.4.1412158/dlc) Repack Wanterlude [Complete Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053023.jpg" />
+  <img src="Z:/picture/005/save_picture_1053023.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Knights of the Crusades (2025) [Ru/Multi] (1.11) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052964.jpg" />
+  <img src="Z:/picture/005/save_picture_1052964.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.2-10547+185658) Repack Let'sРlay [Bu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052830.jpg" />
+  <img src="Z:/picture/005/save_picture_1052830.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052829.jpg" />
+  <img src="Z:/picture/005/save_picture_1052829.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051719.jpg" />
+  <img src="Z:/picture/005/save_picture_1051719.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051623.jpg" />
+  <img src="Z:/picture/005/save_picture_1051623.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049392.jpg" />
+  <img src="Z:/picture/008/save_picture_1049392.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Oddsparks: An Automation Adventure (2024) [Multi] (1.0.S31386/dlc) Repack Other 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049179.jpg" />
+  <img src="Z:/picture/008/save_picture_1049179.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048779.jpg" />
+  <img src="Z:/picture/008/save_picture_1048779.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Frostpunk 2 открывает новые грани жанра выживани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4BF445AFC4E4EF99F25C8C68BB900F196245584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842322   (1048624) от 15.12.2025
-
-Looper Tactics (2023) [Multi] (1.1) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Looper Tactics - карточная ролевая стратегия, геймплей которой выстраивается вокруг исследования мира и раскрытия тайн древней цивилизации. С появлением фракции людей в распоряжение геймеров поступают новые тактические возможности, основанные на 5 уникальных боевых механиках. Эти умения позволяют временно объединять существ, жертвовать одних бойцов ради усиления (   Читать дальше...   )Тип издания: LicenseРазработчик: Inkstone AtelierЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE24D603F4F8B66BEFE0F677C9366B2B4446DF3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842128   (1048483) от 14.12.2025
-
-Crypt of the Necrodancer (2014) [Ru/Multi] (4.2.0-b5599/dlc) Repack FitGirl [Ultimate Pack]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crypt of the NecroDancer – популярная и хардкорная ритм-игра в стиле roguelike. Маневрируйте под музыку и делайте кульбиты под бит! Оттягивайтесь под саундтрек от Дэнни Барановски или выберите музыку из собственной mp3-коллекции. Двигайтесь в такт музыке и выбивайте ритм на черепах врагов!Тип издания: RepackРазработчик: Brace Yourself GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFC9D796AEA94D2A6F6116829EF1E3F2E93AA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840926   (1047700) от 08.12.2025
-
-Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в успокаивающее путешествие в средние века с Inn Tycoon - спокойной и расслабляющей игрой, где вы формируете умиротворение прошлой эпохи. Вкусные блюда и ледяные напитки ждут вас для обслуживания клиентов. Увеличивайте свою репутацию с различными вариантами номеров и индивидуальной мебелью. Ваша мечтательная гостиница ждет вас, чтобы испытать эту великолепную (   Читать дальше...   )Тип издания: RepackРазработчик: Evil Goose GamesЖанр: Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F5D21BBC66E5CDE4FB2684DEA10724D0306934
 ```
 
 https://mybot314.ru/tekegram_catalog/

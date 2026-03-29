@@ -1,3 +1,61 @@
+###  Публикация: 982538   (947080) от 04.02.2016
+
+VA - Earthrise.ntone.1 (1995) [FLAC|Lossless|tracks + .cue] <Dub, Trip Hop, Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journeyman - Latneiro (Woob's Sunrise Dub) (14:52)
+ 02. Coldcut - Mindfood (07:14)
+ 03. Real Life - Leysh (06:50)
+ 04. Drome - Hinterland, Kassler Kessel (06:59)(   Читать дальше...   )Тип издания: CD, Compilation |Жанр: Dub, Trip Hop, Ambient, Downtempo |Продолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC00034E6A7CD0D55BFBA0AFB92BC7EF8F2933DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362898   (946513) от 25.02.2020
+
+V.A. - Vintage Cafe: Lounge & Jazz Blends Vol. 16 (Special Selection) (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzystics & Apollinare Rossi - Riders on the Storm
+02. Jamie Lancaster - Take It Easy
+03. Michelle Simonal - Reminiscing
+04. STEREO DUB & Karen Souza - Back Down South (Bossa Nova Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20ADE4F5C909CF354130AD536C8D8084327F44FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090877   (944608) от 08.01.2017
 
 Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
@@ -6,7 +64,7 @@ Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944608.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - JustRomantic (2007) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934122.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925728.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922773.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vap
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922723.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Maldives Sunset Dream: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920692.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Cafe Italiano: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919025.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915514.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [FLAC|Lossless|tracks+.
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907792.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Sax & Sex 1 (1997) [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907085.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Dub Backups Collection (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905710.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Schiller - Die Einlassmusik 10 (2013) [FLAC|Lossless]<Ambient, Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905003.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Kim & Buran (Ким и Буран) - Best Melodies (2020) [FLAC|Lossless|WEB-DL|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901986.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ The Orb - Abolition of the Royal Familia (2020) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898460.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Shallou - Discography 14 Releases (2016-2020) Island Records [FLAC|Lossless|WEB-
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896593.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Cafe Del Mar Essentials (Vol. 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895088.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Jjos - One More Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890175.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Endless Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889112.jpg" />
+  <img src="Z:/picture/005/save_picture_889112.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888710.jpg" />
+  <img src="Z:/picture/005/save_picture_888710.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888580.jpg" />
+  <img src="Z:/picture/005/save_picture_888580.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Peter Pearson - Dancing with the Clouds (2019) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885459.jpg" />
+  <img src="Z:/picture/005/save_picture_885459.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Trip to Paris Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885437.jpg" />
+  <img src="Z:/picture/005/save_picture_885437.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Simon Le Grec - Singles (Unique Lounge Music) (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883845.jpg" />
+  <img src="Z:/picture/005/save_picture_883845.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Liste
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882037.jpg" />
+  <img src="Z:/picture/005/save_picture_882037.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Liste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8D94CFDFB37416E056E303E464AAA455342BE76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996142   (881154) от 13.03.2016
-
-VA - Moments of Soul-Chill Mix (2016) [FLAC|Lossless|tracks] <Lounge, ChillOut, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Sweet Suggestions (5:32)
- 02. Mardon Bros - Make You Feel Better (7:12)
- 03. Heso - Sundowner (6:28)
- 04. Lamar Ensemble - About Yesterday (5:46)(   Читать дальше...   )Жанр: Lounge, ChillOut, DowntempoПродолжительность: 03:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4743213D12119ACD1B2741CABFE872F44E971A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373422   (876433) от 08.04.2020
-
-VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eulenspiegel - The Joy of Now (Original Mix) (5:49)
-02. De Lobo - That Reggae Sound (Original Mix) (5:35)
-03. Aquarius - Candles In Love (Original Mix) (5:50)
-04. Koenigssee Echo - Interstellar Love (Original Mix) (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, LeftfieldПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
 ```
 
 https://mybot314.ru/tekegram_catalog/

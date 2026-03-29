@@ -1,3 +1,133 @@
+###  Публикация: 1648551   (195242) от 24.07.2023
+
+Самый холодный город / Ji han zhi cheng / The Coldest City (2023) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195242.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1944 году боевику Гу Нианю его близкий друг Фан Пин на смертном одре поручил доставить останки в Харбин. По прибытии в Харбин Гу Ниан узнал, что несколько лет назад семья Фан была жестоко уничтожена. Гу решил остаться в Харбине, чтобы расследовать убийство семьи Фан. В следующем году Гу замаскировался под «Фан Пин» и начал убивать всех подозреваемых злодеев одного (   Читать дальше...   )Производство: КитайЖанр: драма, триллерРежиссер: Ян ФэнАктеры: Ся Юй, Ли Личунь, Тань Кай, Чан Кочу, Чжан Йи Цун, Цзинь Шицзя, Ян Хаоюй, Ван Кэжу, Фэн Цзяи, На ЧжидунПеревод: Двуголосый любительский (DeadSno & den904)Язык озвучки: русскийСубтитры: китайские (hardsub)Продолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8D76EE679CA6E60837E1D27D677D6C75C15613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648949   (195230) от 26.07.2023
+
+Искажённый дом / Dwoteulrin jip / Contorted (2022) WEBRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычное семейство вынужденно меняет жилье и селится в отдаленном доме. В первую же ночь все члены семьи видят странные сны, а мать начинает слышать и подозрительные звуки. Хотя муж женщины не придает происходящему значения, ночные кошмары становятся все более пугающими, а вымысел — неотличимым от реальности.Производство: Корея Южная / Shudder, Takeone Studio, Storywiz, DHL StudioЖанр: УжасыРежиссер: Кан Дон-хонАктеры: Ким Мин-джэ, Ким Бо-мин, Чо Су-хян, Кан Гир-у, Со Ён-хи, О Джа-хун, Но Ха-ёнПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AFAB96DC3EE0B0547B74756DB6B6C94A3DA16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520172   (195038) от 30.07.2023
+
+Белая ночь / Baekyahaeng: Hayan eodoom sokeul geolda (2009) [H.264/720p-LQ] BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старом доме найден труп. Убит недавно вышедший из тюрьмы преступник. В ходе расследования выясняется, что он был одним из подозреваемых в деле 14-летней давности…Жанр: Мелодрама, Детектив, ТриллерРежиссер: Пак Син У / Park Shin WooАктеры: Гю Хан Сок / Kyu Han Suk (Хан Тон Су / Han Dong Su),   Чин Сон Е / Jin Son Ye (Ми Хо / Mi Ho),   Ко Су / Ko Su (Ё Хан / Yo Han),   Чон Ли Мин / Jung Lee Min (Си Ён / Shi Yeong)Язык субтитров: РусскиеПродолжительность: 02:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312272A91759F8A449A0C0D70A3559B1B2C6EEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649771   (195020) от 29.07.2023
+
+Король неба / Chang kong zhi wang / King of the Sky (2023) WEB-DL [H.264/1080p] [Локализованный видеоряд]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195020.jpg" />
+</div>
+
+
+###  Подробнее
+
+На высоте весь исход полета зависит от точно выверенных действий пилота. Чтобы не допустить роковых ошибок и получить важные данные, испытатели день за днем сражаются со смертью. Смогут ли они выполнить задание и вернуться живыми домой к своим родным?Производство: Китай / Alibaba Pictures, Aviation Industry Corporation of China,  Bona Film Group, China Film Co., Ltd.Жанр: боевик, драмаРежиссер: Лю СяошиАктеры: Ван Ибо, Ху Цзюнь, Чжоу Дунъюй, Юй Ши, Бу Юй, Чжай Юйцзя, Ван Цзычэнь, Лу Синь, Цюй Чжэмин, Тянь ЧжуанчжуанПеревод: Дублированный (Akimbo Production)Язык озвучки: РусскийСубтитры: Русские (hardsub)Продолжительность: 02:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF199F67EE5F155751F79F747BFBB5795B24B421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650375   (194971) от 01.08.2023
+
+Великолепный / Boh lei chun / Gorgeous (1999) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несравненная Бу, девушка из маленькой деревни на берегу океана, приезжает в шумный Гонконг в поисках приключений. Здесь она знакомится с Ченом — знаменитым миллионером. Но романтическая Золушка не подозревает, что Чен окажется очень опасным кавалером.Производство: Гонконг, Тайвань / GH Pictures, Golden Harvest Company, Golden Harvest PicturesЖанр: боевик, мелодрама, комедияРежиссер: Винсент КокАктеры: Джеки Чан, Шу Ци, Тони Люн Чу Вай, Эмиль Чау, Ричи Жэнь, Кэн Ло, Чэнь Сунъюн, Элэйн Цзинь, Брэдли Джеймс Аллан, Тац ЛауПеревод: Многоголосый профессиональныйЯзык озвучки: русский, китайский, английскийСубтитры: Английские (PGS), китайские (PGS)Продолжительность: 01:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2C661958A0DA478ABF484AC1D998D115881BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650331   (194958) от 01.08.2023
 
 Малышка на драйве / Спецдоставка  / Teuksong / Special Delivery (2022) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194958.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194946.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194865.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194831.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194762.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194619.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194544.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194495.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194465.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194455.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194310.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194308.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194263.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194086.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194069.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194066.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194064.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194048.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193847.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193827.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193796.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF35409CCB14DC22935FBA547C895816B24CCB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656221   (193647) от 29.08.2023
-
-Кунг-фу жеребец / Long ma jing shen / Ride On (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый мастер боевых искусств и его верный скакун врываются в мир, где любая уличная драка заслуживает тиктока. Круто разделавшись с бандой коллекторов, они тотчас становятся супергероями в сети. Но вместе с любовью фанатов их находят и могущественные враги.Производство: Китай / Alibaba Pictures, Beijing Hairun Pictures CompanyЖанр: Комедия, боевикРежиссер: Ларри ЯнАктеры: Джеки Чан, Лю Хаоцюнь, Го Цилинь, Джеки У, Юй Айлэй, Джои Юн, Юй Жунгуан, Энди Он, Сяо Шэньян, Лан ЮэтинПеревод: Дублированный, Профессиональный двухголосыйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), Английские (Full)Продолжительность: 02:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0100B0D0DA17EF280FF157D3F8ED76F47055B298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828245   (193568) от 24.10.2025
-
-Одержимый местью / Ударное спасение / Jing tian da ying jiu / Striking Rescue (2024) WEBRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бай Ань с супругой и дочкой попадает в автокатастрофу. Чудом уцелев, они выбираются из покорёженной машины и сталкиваются с незнакомым мужчиной, который расстреливает из пистолета жену и ребёнка Бай Аня. Узнав, что убить его семью приказал богатый владелец крупной логистической компании, разъярённый отец встаёт на путь мести.Производство: Китай / Legendary Entertainment, Troma EntertainmentЖанр: боевик, криминалРежиссер: Чэн СыюйАктеры: Тони Джа, Хун Цзюньцзя, Филип Кюн, Чэнь Дои, Ши Яньнэн, Пэн Бо, Майкл Мао, Юй БолиньПеревод: Дублированный (Официальный)Язык озвучки: РусскийСубтитры: Русские (Forced hardsub)Продолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461FC946354ECF28E8E79E06F91048E49821CFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828342   (193444) от 24.10.2025
-
-Бесстрашный / Huo Yuan Jia / Fearless (2006) BDRip [H.264/1080p] [Theatrical Cut]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 20 века. Хо Юаньцзя мечтает пойти по стопам отца, став бойцом мирового класса. Он одержим желанием стать величайшим и поднять престиж своего дома. Выиграв множество боев, он достигает цели, но это не приносит счастья, а, наоборот, случается ужасная трагедия — погибают его близкие.
-Переполненный горем он идет куда глаза глядят. Хо получает приют в одной деревеньке, (   Читать дальше...   )Производство: Китай, Гонконг, США / Beijing Film Studio, China Film Co-Production CorporationЖанр: боевик, биография, драма, спортРежиссер: Ронни ЮйАктеры: Джет Ли, Сунь Ли, Дун Юн, Юн Ку, Сюй Айлин, Колин Чоу, Нина Пау, Нэйтан Джонс, Сидо Накамура, Брэндон РиПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633C8F67A3839DEFDE603FB335E816B41BB314EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828782   (193409) от 24.10.2025
-
-Второй пропущенный звонок / Chakushin ari 2 (2005) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие в фильме разворачивается через год после событий первой части. Юми Накамура пропадает без вести, а убийства, связанные с загадочными звонками, не прекращаются. Но если раньше у убитых при странных обстоятельствах людей находили во рту красные конфетки, то теперь опознавательным знаком являются частички угля в желудках жертв. Один за другим погибают знакомые (   Читать дальше...   )Производство: Япония / Chakushin Ari 2 Seisaku Iinkai, Hakuhodo DY Media Partners, Japan Film Fund, Kadokawa PicturesЖанр: ужасыРежиссер: Ренпей ЦукамотоАктеры: Мимура, Ю Ёсидзава, Рэндзи Исибаси, Харуко Ванибути, Питер Хо, Асака Сето, Тисун, Нанна Койдзюми, Юджиро КомураПеревод: дублированный, профессиональный многоголосый (Первый канал)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C61DA9D142A14DC5C1E4388F22E46E0CF5FB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656759   (193236) от 01.09.2023
-
-Криминальный город: Разборки в Пусане / Beomjoe dosi 3 / The Roundup: No Way Out (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193236.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 год. Дeтектив Ма Сок-то перевёлся в инчхонский следственный отдел, работает с новой командой, и покой ему только снится. Втайне от главы клана ушлые якудза поставляют в город новый синтетический наркотик, который становится дико популярным в увеселительных заведениях. Используя собственное неотразимое обаяние, а также сокрушительные удары правой и левой, через (   Читать дальше...   )Производство: Южная Корея / ABO Entertainment, B.A. Entertainment, Big Punch PicturesЖанр: Криминал, боевик, триллер, детективРежиссер: Ли Сан-ёнАктеры: Ма Дон-сок, Ли Джун-хёк, Мунэтака Аоки, Ким Мин-джэ, Ли Джи-хун, Ко Гю-пхиль, Ан Сэ-хо, Чон Сок-хо, Ли Бом-су, Дзюн КунимураПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3DD5378F1E59AF1C0FBDBFA1EA17333B382A4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

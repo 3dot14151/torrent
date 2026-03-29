@@ -1,3 +1,81 @@
+###  Публикация: 1653308   (194249) от 15.08.2023
+
+Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Nightmare Manor - ужасающую хоррор игру, которая отправит вас в старое поместье, пропитанное мрачной историей. В этой игре вы ощутите на себе холодное дыхание прошлого, оказавшись в месте, где живут зловещие сущности.Тип издания: RepackРазработчик: Twisted Shell GamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D1D9DFDB484734851009AE0F009EF0509C5475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653890   (194171) от 18.08.2023
+
+Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194171.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 1888 год. Война с безжалостной «Нацией» идёт полным ходом и грозит полностью уничтожить альтернативную страну Гемеру. Чтобы спасти свой мир, Жюль Верн и капитан Немо отправляются на поиски легендарного города Атлантиды на борту печально известной подводной лодки «Наутилус». Если верить легендам, там зарыт древний артефакт, способный изменить ход истории, (   Читать дальше...   )Тип издания: LicenseРазработчик: GametopiaЖанр: Приключение, Головоломка, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C1D29C3F2DFF2922CF89A38F526B46D1956612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654540   (193944) от 21.08.2023
+
+Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Labyrinthine — кооперативная хоррор-игра с одиночным режимом, которая научит Вас не останавливаться внутри лабиринта. Вы и три ваших друга могут почувствовать совместный опыт в истории от Джона, работника лабиринта, а также почувствовать мистическую составляющую этого места. Здесь все зависит от Вашего выбора, и помните, Вы не одни!Тип издания: RepackРазработчик: Valko Game StudiosЖанр: Action (Horror), Puzzle, Coop, 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC71D978090BF7CE08C2AF2B7C858B0C8178BE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654763   (193928) от 22.08.2023
 
 Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193928.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193865.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193854.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193748.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193519.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193494.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193063.jpg" />
+  <img src="Z:/picture/004/save_picture_193063.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192992.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192902.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192754.jpg" />
+  <img src="Z:/picture/004/save_picture_192754.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192475.jpg" />
+  <img src="Z:/picture/004/save_picture_192475.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192281.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191748.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191664.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191653.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191651.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191570.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191182.jpg" />
+  <img src="Z:/picture/004/save_picture_191182.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191064.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190760.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190757.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189604.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660616   (189141) от 13.09.2023
-
-Molly Medusa: Queen of Spit (2023) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бедная Молли! Ученица скульптора превратилась в змееволосую Медузу – и поэтому все живое, к которому она приближается, мгновенно превращается в каменную статую. Все живое! Враги и друзья, боссы и владельцы магазинов, монстры и союзники, даже животные и мелкие насекомые - все они обращаются в камень.Тип издания: SceneРазработчик: NeckboltЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738A1D34026AAC6314AC0E10CA9A5E31911C7111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660528   (189113) от 13.09.2023
-
-No Son of Mine (2023) [Multi] (1.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189113.jpg" />
-</div>
-
-
-###  Подробнее
-
-No Son Of Mine - это хоррор на выживание с напряженной атмосферой, где особое внимание уделяется скрытности и исследованию процедурно генерируемых уровней. Вы оказались в заброшенной школе и теперь вам предстоит раскрыть пугающие секреты до того, как те доберутся до вас. За вами по пятам будет следовать проголодавшаяся потусторонняя сущность, но вы так просто не (   Читать дальше...   )Тип издания: LicenseРазработчик: Maciej RadwańskiЖанр: Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF427EFB4CDBAA54F6465BB1945DF29B65C1668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660772   (189098) от 13.09.2023
-
-Bramble: The Mountain King (2023) [Ru/Multi] (Build 11395309) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bramble: The Mountain King отправляет вас в невероятное и зловещее путешествие по впечатляющим местам. Возьмите на себя роль Олле — мальчика, который стремится спасти свою сестру, похищенную ужасным троллем. Не все в Bramble именно так, как кажется на первый взгляд. В этих необычных землях при встрече с большими или маленькими существами вам нужно хорошенько подумать, (   Читать дальше...   )Тип издания: RepackРазработчик: Dimfrost StudioЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F599A65D1CFB09B714AC1799334EFD786D65E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

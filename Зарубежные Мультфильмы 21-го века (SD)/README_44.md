@@ -1,3 +1,107 @@
+###  Публикация: 729938   (306250) от 03.12.2013
+
+Самолеты / Planes (2013) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дасти Полейполе — скромный трудяга-самолет, работающий сельскохозяйственным распылителем на заштатном провинциальном аэродроме. Однако это не мешает ему мечтать о том, чтобы однажды принять участие в кругосветных гонках самых быстрых самолетов. Одна незадача — Дасти панически боится большой высоты. Поэтому, когда волею случая он все же попадает в число участников (   Читать дальше...   )Производство: США, Walt DisneyЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Клэй ХоллПерсонажи: Дейн Кук, Стейси Кич, Брэд Гэррет, Тери Хэтчер, Джулия Луис-Дрейфус, Приянка Чопра, Джон Клиз, Седрик «Развлекатель», Карлос Алазраки, Энтони Эдвардс, Вэл Килмер, Синбад, Роджер Крэйг Смит ...Перевод: Дублированный (iTunes Russian)Язык субтитров: Английский (Full, SDH, SDH-Colored)Продолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F93907DF60B1CE7130C2BF76BBE53674A7FE893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846172   (306206) от 30.11.2014
+
+Последняя капля / The Final Straw (2013) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Противостояние пугала и вороны.Производство: СШАЖанр: короткометражный мультфильмРежиссер: Рики РеннаПеревод: Без слов / НемойПродолжительность: 00:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C0780C0F02E7F4406041267D4D0720C25ADC14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729896   (306124) от 03.12.2013
+
+Самолёты / Planes (2013) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавная история о похождениях винтового самолетика в мире современных воздушных кораблей. Маленький самолетик оказывается среди больших крылатых машин, умеющих неподражаемо рассекать воздух и выделяющихся современным дизайном. Самолетик чувствует себя неловко в их обществе. Они же относятся к нему по-разному: кто-то с иронией, а кто-то с заботой.Производство: США, Walt DisneyЖанр: Детский, Приключения, КомедияРежиссер: Клэй ХоллАктеры: Дейн Кук, Стейси Кич, Брэд Гэррет, Тери Хэтчер, Джулия Луис-Дрейфус, Приянка Чопра, Джон Клиз, Седрик «Развлекатель», Карлос Алазраки, Роджер Крэйг СмитПеревод: ДублированныйПродолжительность: 01:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193E869C186B4324F51A53752EB8DA4BE452EF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845717   (305852) от 30.11.2014
+
+Финес и Ферб. Звёздные войны / Phineas and Ferb: Star Wars (2014) WEB-DLRip (ЛанселаП)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь Финес и Ферб отправляются во вселенную Звездных воин. Люк Скайуокер, Р2-Д2 и многие другие персонажи появятся в в этом мультфильме. Все действия происходят на планете Татуин. Здесь все также происходят такие же события, хоть и в новых вселенных. Изабелла - пилот корабля и помогает союзу повстанцев. Кендис жаждет получить планы Звезды смерти. В то время, Перри (   Читать дальше...   )Производство: СШАЖанр: Детский, Рисованная анимация, ПриключенияРежиссер: Роберт Ф. Хьюз, Сью ПерроттоПерсонажи: Финес Флинн, Ферб Флэтчер, Кендэс Флинн, Утконос Перри, Доктор Фуфелшмерц, Изабелла Гарсиа-Шапиро и др.Перевод: Двуголосый закадровый - ЛанселаППродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCD57FFE14CF306EEA0C2130544D9409F34CAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585206   (304904) от 05.12.2012
 
 Паранорман, или Как приручить зомби / ParaNorman (2012) [H264] HDRip
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304904.jpg" />
+  <img src="Z:/picture/008/save_picture_304904.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304891.jpg" />
+  <img src="Z:/picture/008/save_picture_304891.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304757.jpg" />
+  <img src="Z:/picture/008/save_picture_304757.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304597.jpg" />
+  <img src="Z:/picture/008/save_picture_304597.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304533.jpg" />
+  <img src="Z:/picture/008/save_picture_304533.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304371.jpg" />
+  <img src="Z:/picture/008/save_picture_304371.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304205.jpg" />
+  <img src="Z:/picture/008/save_picture_304205.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303919.jpg" />
+  <img src="Z:/picture/008/save_picture_303919.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302517.jpg" />
+  <img src="Z:/picture/008/save_picture_302517.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302148.jpg" />
+  <img src="Z:/picture/008/save_picture_302148.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301691.jpg" />
+  <img src="Z:/picture/008/save_picture_301691.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301676.jpg" />
+  <img src="Z:/picture/008/save_picture_301676.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300944.jpg" />
+  <img src="Z:/picture/008/save_picture_300944.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297202.jpg" />
+  <img src="Z:/picture/008/save_picture_297202.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296900.jpg" />
+  <img src="Z:/picture/008/save_picture_296900.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296660.jpg" />
+  <img src="Z:/picture/008/save_picture_296660.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294744.jpg" />
+  <img src="Z:/picture/008/save_picture_294744.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_294273.jpg" />
+  <img src="Z:/picture/005/save_picture_294273.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293405.jpg" />
+  <img src="Z:/picture/008/save_picture_293405.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293274.jpg" />
+  <img src="Z:/picture/008/save_picture_293274.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293192.jpg" />
+  <img src="Z:/picture/008/save_picture_293192.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292862.jpg" />
+  <img src="Z:/picture/008/save_picture_292862.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF57792BA88C6CC552AA5AFBFDF4CDC328F57B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731408   (292689) от 09.12.2013
-
-Альфа и Омега: Приключения праздничного воя / Alpha and Omega 2: A Howl-iday Adventure (2013) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт и Хамфри и их 3 волчат, готовятся к празднованию их первой совместной зимы, когда их самый маленький детеныш, Рант, таинственным образом исчезает.Жанр: Приключения, КомедияРежиссер: Ричард РичПерсонажи: Бен Дискин, Кейт Хиггинс, Blackie Rose, Lindsay Torrance, Liza West, Трэйси Пфау, Bill Lader, Meryl Leigh, Шон Жерардо, Chris SmithПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253364017E6721E5BC375512F0BD822F3933EA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732389   (292572) от 09.12.2013
-
-Университет монстров / Monsters University (2013) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк и Салли — самые опытные пугатели в Монстрополисе, но так было далеко не всегда. Когда они встретились впервые, эти монстры терпеть друг друга не могли. «Университет Монстров» — история о том, как наши старые знакомые прошли путь от взаимной неприязни к крепкой дружбе.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, приключенияРежиссер: Дэн СкэнлонАктеры: Джон Гудман, Билли Кристал, Стив Бушеми, Хелен Миррен, Питер Сон, Джоэль Мюррей, Шон Хейс, Дэйв Фоли, Чарли Дэй, Альфред МолинаПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: английский (для слабовидящих), английский, русский, украинскийПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB19B52232556B62E17C0BF3AFBDF42B3B7EEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962808   (292396) от 05.12.2015
-
-Страж-лев: Возвращение Рыка / The Lion Guard: Return of the Roar (2015) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второму детенышу царя зверей Симбы и Налы по имени Кион уготована особая участь в Прайде. Он должен стать на защиту этой территории создав свою львиную гвардию. Именно Кион должен стать защитником Прайда, ведь он овладел могущественным рыком, которым обладали его далекие предки. Однако, вместо того, чтобы взять себе в помощники львов, Кион собирает отряд из других (   Читать дальше...   )Производство: США / Walt Disney Television AnimationЖанр: Приключения, КомедияРежиссер: Хауи ПаркинсПеревод: Одноголосый закадровый, любительскийЯзык субтитров: РусскийПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C525D7ABA4F2F42C42BB6AF49EDC64430AF2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 847923   (291465) от 07.12.2014
-
-История игрушек: Время забыть / Toy Story That Time Forgot (2014) HDTVRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот прошли рождественские праздники, и наши старые друзья попадают в чужой дом, где должны противостоять агрессивным и опасным игрушкам-динозаврам.Производство: США | Pixar Animation StudiosЖанр: мультфильм, короткометражкаРежиссер: Стив ПурселлАктеры: Эмили Хан, Уоллес Шоун, Стив Пурселл, Джонатан Кидд, Дон Риклз, Лори Алан, Тим Аллен, Рон Боттитта, Джоан Кьюсак, Тимоти ДалтонПеревод: Любительский одноголосый - Lord32xПродолжительность: 00:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1310EF5F51185BDB32E9F0B577D76423268CA87
 ```
 
 https://mybot314.ru/tekegram_catalog/

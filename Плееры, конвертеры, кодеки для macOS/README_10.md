@@ -1,3 +1,109 @@
+###  Публикация: 1608053   (246011) от 28.01.2023
+
+MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246011.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaHuman Video Converter разработан, чтобы сделать вашу жизнь проще, когда вам нужно перевести видео из одного формата в другой. Или изменить его качество и размер, чтобы сэкономить место для хранения на мобильном устройстве. Наш универсальный видео конвертер поддерживает наиболее распространенные видео форматы, такие как: AVI, Digital Video, DVD Video, Flash Video (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2022Разработчик: © 2010 - 2023 MediaHumanПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F3E845A5C7DC37CF5D14EFCA79553EDD5A34E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623593   (245889) от 02.04.2023
+
+TurnTable 4.1 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый музыкальный плеер. Обзор и воспроизведение вашей музыкальной коллекции в новом виде музыкального интерфейса. Играйте в жизнь самым убедительным образом.
+Смотрите полноразмерные и «полноцветные» обложки альбомов, созданные как настоящий альбом, но для цифрового носителя.  В программном обеспечении никогда не было ничего подобного.Тип издания: OS X SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2014-2021 Aquarius ComputerПоддерживаемая ОС: OS X 11.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162A8176CC7F78C62AA564BF0D791B2AC40E7DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608986   (245314) от 01.02.2023
+
+FoneLab Video Converter Ultimate 9.2.30 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Video Converter Ultimate не только является совместимым с широким диапазоном проигрывателем медиафайлов, но и представляет собой универсальную утилиту для конвертации видео.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © 2022 FoneLab StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F090DC5BCD0A333D6FA9CEA4144C56231EEDA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609245   (245166) от 02.02.2023
+
+Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших проигрывателей Blu-ray для воспроизведения дисков Blu-ray, папок Blu-ray, дисков / папок DVD, файлов ISO с высококачественными визуальными эффектами. Он также может работать как мощный медиаплеер для воспроизведения видео 4K UHD/1080p HD/SD в форматах MP4, MOV, AVI, MKV и других.
+Одним словом, хотите ли вы воспроизводить фильмы Blu-ray или наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2023Разработчик: © 2017-2023 Apeaksoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDE97CF0D44A02414106A26BEDC8F0556993F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609249   (245055) от 02.02.2023
 
 Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
@@ -6,7 +112,7 @@ Aiseesoft Mac Blu-ray Player 6.6.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245055.jpg" />
+  <img src="Z:/picture/004/save_picture_245055.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ AnyRec Video Converter for Mac 1.0.28 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244450.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ WALTR PRO 4.0.115 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244193.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240206.jpg" />
+  <img src="Z:/picture/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Filmage Converter-ConvertVideo 1.2.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239342.jpg" />
+  <img src="Z:/picture/005/save_picture_239342.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238285.jpg" />
+  <img src="Z:/picture/004/save_picture_238285.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ Bigasoft WTV Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237124.jpg" />
+  <img src="Z:/picture/005/save_picture_237124.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ AudFree Tidable Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236691.jpg" />
+  <img src="Z:/picture/005/save_picture_236691.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ iDealshare VideoGo for Mac 6.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236681.jpg" />
+  <img src="Z:/picture/005/save_picture_236681.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ AudKit Tidal Music Converter 2.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236654.jpg" />
+  <img src="Z:/picture/005/save_picture_236654.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234829.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ Aiseesoft HD Converter for Mac 9.2.26 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232855.jpg" />
+  <img src="Z:/picture/005/save_picture_232855.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ Tipard Blu-ray Converter for Mac 10.0.56 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232406.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ AnyMP4 Blu-ray Ripper for Mac 9.0.36 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232399.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ Tipard DVD Ripper for Mac 10.0.52 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232357.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ AnyMP4 DVD Ripper for Mac 9.0.58 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232349.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ Aiseesoft DVD Creator 5.2.38 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231454.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ HitPaw Video Object Remover for Mac 1.2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230934.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ HitPaw Video Converter for Mac 3.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230925.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ Jaksta Video Converter 2.0.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227906.jpg" />
+  <img src="Z:/picture/005/save_picture_227906.jpg" />
 </div>
 
 
@@ -537,7 +643,7 @@ Omni Downloader 1.4.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227840.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Aimersoft Video Converter 6.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223965.jpg" />
+  <img src="Z:/picture/005/save_picture_223965.jpg" />
 </div>
 
 
@@ -574,114 +680,6 @@ Aimersoft Video Converter, протестированный на более че
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158A1B04B1A3DCFC3FAD4A0DE46AF5B524DA7FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652338   (217701) от 11.08.2023
-
-Downie 4 v.4.6.25 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69317011A9FF639E22A12B0ECBA2E3B9A86D103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653836   (214321) от 17.08.2023
-
-VideoDuke 2.14 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
-Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.08.2023Разработчик: © 2022 VideoDukeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95DD383941549A11FD81BDF646D2A3877B1DBDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566124   (211856) от 27.07.2022
-
-Movist Pro 2.8.4 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2019 MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEC45F320A72582716256FD127C25A252F2A521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642635   (210372) от 28.06.2023
-
-X Lossless Decoder XLD 20230627 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210372.jpg" />
-</div>
-
-
-###  Подробнее
-
-X Lossless Decoder (XLD) - это инструмент для macOS, который может декодировать / конвертировать / воспроизводить различные аудиофайлы без потерь. Поддерживаемые аудиофайлы могут быть разделены на несколько треков с помощью cue Sheet при декодировании. XLD - это универсальный двоичный файл, поэтому он изначально работает как на компьютерах Intel Mac, так и на компьютерах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: tmkkПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60C64C325C714AC1A530C5AE81831285DB0F210
 ```
 
 https://mybot314.ru/tekegram_catalog/

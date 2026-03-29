@@ -1,3 +1,29 @@
+###  Публикация: 732806   (290674) от 10.12.2013
+
+VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, ClubПродолжительность: 03:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142B196822378D0303413E4EECC199ED38B1EA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848544   (290102) от 08.12.2014
 
 Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
@@ -6,7 +32,7 @@ Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290102.jpg" />
+  <img src="Z:/picture/008/save_picture_290102.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ VA - Ballermann Pisten Party 2019 (2018) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290039.jpg" />
+  <img src="Z:/picture/008/save_picture_290039.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ VA - Die Schlagerparty - Best Of Discofox (2018) 2CD [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290020.jpg" />
+  <img src="Z:/picture/008/save_picture_290020.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ VA - Veronica #1 Car Hits (2018) 3CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289925.jpg" />
+  <img src="Z:/picture/008/save_picture_289925.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ VA - Dance Anthems 2019.03 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289881.jpg" />
+  <img src="Z:/picture/008/save_picture_289881.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ Jessica Mauboy - HILDA (2019) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289876.jpg" />
+  <img src="Z:/picture/008/save_picture_289876.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ VA - The Pop Years 1976-1977 (2009) 2CD, Compilation [MP3|320 Kbps] <Disco, PopR
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289671.jpg" />
+  <img src="Z:/picture/008/save_picture_289671.jpg" />
 </div>
 
 
@@ -209,7 +235,7 @@ RutiCelli - Nocturnal Miniatures (2015) [OGG|496-551 кб/с]<Alternative Pop, A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288960.jpg" />
+  <img src="Z:/picture/008/save_picture_288960.jpg" />
 </div>
 
 
@@ -238,7 +264,7 @@ Mylene Farmer - Timeless 2013 (2013) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288766.jpg" />
+  <img src="Z:/picture/008/save_picture_288766.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ VA - The Pop Years 1974-1975 (2009) 2CD, Compilation [MP3|320 Kbps] <Pop Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288247.jpg" />
+  <img src="Z:/picture/008/save_picture_288247.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ VA - The Pop Years 1978-1979 (2009) 2CD, Compilation [MP3|320 Kbps] <Disco, PopR
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288117.jpg" />
+  <img src="Z:/picture/008/save_picture_288117.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ VA - Fresh Dance Hits 2019.03 (2019) [MP3|320 Kbps] <Eurodance, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287897.jpg" />
+  <img src="Z:/picture/008/save_picture_287897.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Future Feelings - Future Feelings (2015) [MP3|320 кб/с]<Alternative Pop, Spac
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287627.jpg" />
+  <img src="Z:/picture/008/save_picture_287627.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Nicole Millar - [communication] (2016) EP [MP3|320 Kbps] <Alternative Pop, Indie
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286548.jpg" />
+  <img src="Z:/picture/008/save_picture_286548.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Nicole Millar - Tremble (2016) EP [MP3|320 Kbps] <Alternative Pop, Indie Dream P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286456.jpg" />
+  <img src="Z:/picture/008/save_picture_286456.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Tullia Benedicta - Anteros (2015) [OGG|438-532 кб/с]<Alternative Indie Pop, E
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285796.jpg" />
+  <img src="Z:/picture/008/save_picture_285796.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Jain - Zanaka (2016) Deluxe Edition [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285709.jpg" />
+  <img src="Z:/picture/008/save_picture_285709.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Melanie Martinez - Cry Baby (2015) Deluxe Edition [OGG|473-549 кб/с]<Alternat
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285465.jpg" />
+  <img src="Z:/picture/008/save_picture_285465.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284583.jpg" />
+  <img src="Z:/picture/008/save_picture_284583.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ VA - NOW That’s What I Call A Party 2019 (2018) [MP3|320 Kbps] <Electropop, Sy
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284499.jpg" />
+  <img src="Z:/picture/008/save_picture_284499.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ VA - Танцевальный рай: Only Hits (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284454.jpg" />
+  <img src="Z:/picture/008/save_picture_284454.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Ayala - This Year (2015) [OGG|469-523 кб/с]<Alternative Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283956.jpg" />
+  <img src="Z:/picture/008/save_picture_283956.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283898.jpg" />
+  <img src="Z:/picture/008/save_picture_283898.jpg" />
 </div>
 
 
@@ -673,7 +699,7 @@ Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283653.jpg" />
+  <img src="Z:/picture/008/save_picture_283653.jpg" />
 </div>
 
 
@@ -702,7 +728,7 @@ Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282539.jpg" />
+  <img src="Z:/picture/008/save_picture_282539.jpg" />
 </div>
 
 
@@ -716,35 +742,6 @@ Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4A2D625B3F12271ECE9B50FD4B6EA102DEAB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964465   (282421) от 11.12.2015
-
-Blue - Colours (2015) [OGG|455-528 кб/с]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the World
-02. You’re the Only One
-03. Home
-04. If You Don’t Know Me By Now(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949729EEDC87AF174943252DD6C89645FC055FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

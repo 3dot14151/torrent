@@ -1,3 +1,140 @@
+###  Публикация: 1436795   (1042648) от 02.01.2021
+
+Academind Pro, Maximilian Schwarzmüller | Чистый код / Clean Code (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как разработчик, вы должны уметь писать работающий код - конечно же! К сожалению, многие разработчики, тем не менее, пишут плохой код, даже если он работает. Потому что «рабочий код» - это не то же самое, что «чистый код»! Этот курс научит вас писать чистый код - код, который легко читать и понимать людям, а не только компьютерам!
+В этом курсе вы узнаете, что такое (   Читать дальше...   )Производство: Academind ProЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B761DE864D8F844BA850E5557660427918463047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436909   (1042638) от 02.01.2021
+
+HTML Academy | Интерактивные тренажёры HTML Academy (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042638.jpg" />
+</div>
+
+
+###  Подробнее
+
+На практике познакомитесь с базовыми технологиями веб-разработки. Узнаете, как эти технологии работают по отдельности и вместе.
+Сами разметите страницу, оформите её с помощью стилей. Напишете свой первый скрипт. И научитесь собирать странички сайтов из кусочков PHP-кода.
+Научитесь работать с сайтами на своём компьютере: править разметку, стили, скрипты и запускать (   Читать дальше...   )Производство: HTML AcademyЖанр: ПрограммированиеПродолжительность: 09:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D35B7FB594F2C8098B09623CBF0AE56250F600D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436997   (1042637) от 02.01.2021
+
+Udemy, Antonio Papa | React и Laravel: От Монолита к Микросервисам / React and Laravel: Breaking a Monolith to Microservices (2020) PCRec [En / En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1042637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микросервисная архитектура, React, Next.js, Laravel, Docker, RabbitMQ, микросервисы управляемые событиями, внутренние API, Redis. Узнайте, как создать монолит с помощью React и Laravel, а затем, как перейти на микросервисы.
+
+В этом руководстве:
+Создайте SPA с React, Next.js и Laravel;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDD60E1E00AEA10574049D2008891C08DFC3829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437012   (1042509) от 03.01.2021
+
+Packt, Pavlos Vinieratos | React Native: Советы, Подсказки и Техники / React Native: Tips, Tricks, and Techniques (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В последнее время в разработке мобильных приложений произошел некоторый всплеск с появлением многоплатформенных фреймворков, таких как React Native. Этот курс дает вам ценные советы и рекомендации, которые помогут упростить процесс разработки и сделать его менее утомительным.
+Вы найдете советы по reusable логике с компонентами более высокого порядка, советы по улучшению (   Читать дальше...   )Производство: PacktЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4058599C52BA6BCD9441109A1A7494F35678E4D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437069   (1042508) от 03.01.2021
+
+Udemy, Brad Traversy | React Front To Back (Hooks, Context, MERN и Redux) / React Front To Back (Hooks, Context, MERN & Redux) (2019) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042508.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы научитесь осваивать концепции React 16.8+, включая способы создания шаблона Flux с использованием Context API с хуками useContext и useReducer. Мы также создадим полнофункциональное MERN-приложение с кастомным Express API на бэкэнде, в котором для аутентификации используется JWT (JSON Web Token). Кроме того, мы также создадим проект, который использует (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E0D14B4B131D64C6A61E471C0B758ABA126FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437218   (1042473) от 03.01.2021
 
 Udemy, Brad Traversy | Node.js API Мастер-класс с Express и MongoDB / Node.js API Мастер-класс с Express и MongoDB (2019) PCRec [En / En Sub]
@@ -6,7 +143,7 @@ Udemy, Brad Traversy | Node.js API Мастер-класс с Express и MongoDB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042473.jpg" />
 </div>
 
 
@@ -35,7 +172,7 @@ Udemy, Brad Traversy | Современный JavaScript с самого нач�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042469.jpg" />
 </div>
 
 
@@ -61,7 +198,7 @@ Udemy, Brad Traversy | Python Django Dev To Deployment (2020) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042466.jpg" />
 </div>
 
 
@@ -87,7 +224,7 @@ Udemy, JuanD MeGon | Освойте Laravel и создавайте прилож
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042454.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ Udemy, Brad Traversy | Современный HTML и CSS с самого нач
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042391.jpg" />
 </div>
 
 
@@ -140,7 +277,7 @@ Udemy, Brad Traversy | MERN Stack Front To Back: Full Stack React, Redux & Node.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042209.jpg" />
 </div>
 
 
@@ -167,7 +304,7 @@ Udemy, Brad Traversy | Bootstrap 4 с нуля с 5 проектами / Bootstr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042182.jpg" />
 </div>
 
 
@@ -194,7 +331,7 @@ SWIFTBOOK | Подборка платных курсов на русском я�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042132.jpg" />
 </div>
 
 
@@ -223,7 +360,7 @@ Udemy, Brad Traversy | Materialize CSS с нуля + 5 проектов в ку�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041952.jpg" />
 </div>
 
 
@@ -249,7 +386,7 @@ Udemy, Andrew Mead | Полный курс веб-разработчика React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041934.jpg" />
 </div>
 
 
@@ -276,7 +413,7 @@ Udemy, Михаил Савчук | ИТ под контролем: как не �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041927.jpg" />
 </div>
 
 
@@ -302,7 +439,7 @@ Udemy, Brad Traversy | 20 веб-проектов с использование�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041901.jpg" />
 </div>
 
 
@@ -328,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041823.jpg" />
 </div>
 
 
@@ -354,7 +491,7 @@ Udemy, Samuel Girma | Программирование на Go (Golang): Bootcam
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041581.jpg" />
 </div>
 
 
@@ -381,7 +518,7 @@ SkillFactory | Deep Learning и Нейронные сети (2019) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041539.jpg" />
 </div>
 
 
@@ -407,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041536.jpg" />
 </div>
 
 
@@ -434,7 +571,7 @@ Udemy, YouAccel Training | Internet and Web Development Fundamentals (2019) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041470.jpg" />
 </div>
 
 
@@ -460,7 +597,7 @@ Udemy, John Dunning | Python MultiTrack - beginners and professionals - zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041433.jpg" />
 </div>
 
 
@@ -487,7 +624,7 @@ Udemy, Colt Steele | The Modern Python 3 Bootcamp (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041431.jpg" />
 </div>
 
 
@@ -514,7 +651,7 @@ Udemy, Tim Buchalka's Learn Programming Academy и др. | Освойте CI/CD 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041415.jpg" />
 </div>
 
 
@@ -540,7 +677,7 @@ Udemy, Musab Zayadneh | Python For Ethical Hackers 2021 (2020) PCRec [En / En Su
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041385.jpg" />
 </div>
 
 
@@ -554,147 +691,6 @@ Udemy, Musab Zayadneh | Python For Ethical Hackers 2021 (2020) PCRec [En / En Su
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBC1931E7B6690086B50FD8ECA8A69EACD47FE5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438286   (1041375) от 07.01.2021
-
-Udemy, Samuel Boylan-Sajous | Deep Learning Course with Flutter & Python - Build 6 AI Apps (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к самому полному курсу Flutter & Deep Learning на Udemy и узнайте, как создавать потрясающие современные приложения Deep Learning!
-
-Вы хотите узнать о современных алгоритмах глубокого обучения и о том, как их применять в приложениях для iOS / Android? Тогда этот курс именно для вас! Вы узнаете, как применять различные современные алгоритмы глубокого (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 06:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BDD581BB70B8A0E6A4C3CDD26EC21E1030807A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437825   (1041281) от 07.01.2021
-
-Udemy, Hamza Sheikh | Network Ethical Hacking for beginners (Kali 2020 - Hands-on) (2020) PCRec [En / En, Ru Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс Network Ethical Hacking!
-Хакерство - это наука, похожая на любую другую науку. В этом курсе я собираюсь показать вам основы взлома, которые помогут вам начать самостоятельно развивать свои хакерские навыки до продвинутого уровня. Этот курс предполагает, что у вас нет предварительных знаний о взломе или работе с операционной системой Linux, (   Читать дальше...   )Производство: UdemyЖанр: Администрирование, этический хакингЯзык озвучки: АнглйискийПродолжительность: 03:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EA043E315167B902C30C23EA07E8156B72AEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438033   (1041276) от 07.01.2021
-
-Слёрм, Иван Круглов и др. | SRE онлайн-интенсив (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы погрузитесь в теорию и практику SRE: будете поддерживать сайт, состоящий из нескольких микросервисов. Научитесь правильно распределять ограниченные ресурсы для обеспечения быстродействия, отказоустойчивости и доступности сайта для максимальной надежности, достаточной, чтобы были довольны пользователи.
-
-На интенсиве вы будете:
-(   Читать дальше...   )Производство: СлёрмЖанр: SREПродолжительность: 10:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903A4EF2E57F59732A8B026FB21399BFFBD485B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438289   (1041008) от 08.01.2021
-
-The StationX Cyber Security School, Aleksa Tamburkovski | Complete Python 3 Ethical Hacking Course: Zero To Mastery (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом полном курсе этического взлома Python 3 вы научитесь кодировать более 10 инструментов для тестирования на проникновение с нуля!
-Вы узнаете, как настроить виртуальную среду для этичного взлома
-Вы научитесь кодировать свои собственные инструменты тестирования на проникновение
-Вы изучите основы Kali Linux(   Читать дальше...   )Производство: The StationX Cyber Security SchoolЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 07:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9F0BB4E8436D60178ABDD6FC4CEBFC72DCC446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438485   (1041004) от 08.01.2021
-
-Udemy, Ardit Sulce | The Python Mega Course: Build 10 Real World Applications (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мега-курс Python - это самый практичный курс, который вы сегодня найдете в Интернете. Здесь вы научитесь как создавать настоящие настольные программы, веб-приложения и даже мобильные приложения полностью на Python 3. Вот 10 приложений, которые вы собираетесь разработать:
-English Thesaurus - программа, в которой пользователи могут найти определения слов.
-Веб-карта (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 24:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F785AB422DCF99F1B49BB29D439AF8CDBB6EBFFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

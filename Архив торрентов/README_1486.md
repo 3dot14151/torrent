@@ -6,7 +6,7 @@ WizTree 3.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715624.jpg" />
+  <img src="Z:/picture/008/save_picture_715624.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Advanced Installer 13.0 Build 70330 RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715614.jpg" />
+  <img src="Z:/picture/008/save_picture_715614.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.51 build 2073 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715611.jpg" />
+  <img src="Z:/picture/008/save_picture_715611.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FastStone Image Viewer 5.7 DC 06.06.2016 RePack (& Portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715608.jpg" />
+  <img src="Z:/picture/008/save_picture_715608.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Infix PDF Editor Pro 7.2.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715602.jpg" />
+  <img src="Z:/picture/008/save_picture_715602.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715533.jpg" />
+  <img src="Z:/picture/005/save_picture_715533.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Room Arranger 9.5.4.612 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715514.jpg" />
+  <img src="Z:/picture/008/save_picture_715514.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715481.jpg" />
+  <img src="Z:/picture/005/save_picture_715481.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715478.jpg" />
+  <img src="Z:/picture/008/save_picture_715478.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Download - Effector (2000) [FLAC|Lossless]<IDM, Techno, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715476.jpg" />
+  <img src="Z:/picture/008/save_picture_715476.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715458.jpg" />
+  <img src="Z:/picture/008/save_picture_715458.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ESET Endpoint Security 6.4.2014.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715446.jpg" />
+  <img src="Z:/picture/008/save_picture_715446.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Internet Download Manager 6.25 Build 21 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715439.jpg" />
+  <img src="Z:/picture/008/save_picture_715439.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715431.jpg" />
+  <img src="Z:/picture/008/save_picture_715431.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715388.jpg" />
+  <img src="Z:/picture/005/save_picture_715388.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ BatchPhoto Enterprise 4.3 Build 2018.04.12 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715368.jpg" />
+  <img src="Z:/picture/008/save_picture_715368.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ PicPick 4.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715322.jpg" />
+  <img src="Z:/picture/008/save_picture_715322.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715315.jpg" />
+  <img src="Z:/picture/008/save_picture_715315.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ JetBrains CLion 2016.1.3 Build #CL-145.1617 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715311.jpg" />
+  <img src="Z:/picture/008/save_picture_715311.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Corel VideoStudio Ultimate X9 19.3.0.18 SP3 + StandardContent + Bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715306.jpg" />
+  <img src="Z:/picture/008/save_picture_715306.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ GrandTotal 6 v6.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715290.jpg" />
+  <img src="Z:/picture/008/save_picture_715290.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Downcast 2.9.53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715287.jpg" />
+  <img src="Z:/picture/008/save_picture_715287.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ SyncTime 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715276.jpg" />
+  <img src="Z:/picture/008/save_picture_715276.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ESET Endpoint Security | Antivirus 6.4.2014.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715262.jpg" />
+  <img src="Z:/picture/008/save_picture_715262.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715260.jpg" />
+  <img src="Z:/picture/008/save_picture_715260.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ The Future Sound of London - Environments 3 (2010) [MP3|320 kbps]<IDM/Experiment
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715251.jpg" />
+  <img src="Z:/picture/005/save_picture_715251.jpg" />
 </div>
 
 

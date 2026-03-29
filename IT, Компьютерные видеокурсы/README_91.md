@@ -1,3 +1,140 @@
+###  Публикация: 1593310   (180614) от 26.11.2022
+
+ProductStar, Денис Соболев и др. | Курс "Аналитик данных" (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните свою карьеру в анализе данных на курсе "Аналитик данных". Освойте все необходимые для аналитика навыки: от Google-таблиц до Python, SQL и Power BI.
+Сейчас на рынке более 5400+ вакансий Аналитиков от ведущих компаний (с которыми мы сотрудничаем) — Яндекс, Skyeng, Nimax, Ingate, RedKeds, Selectel, Avito и другие.
+Мы поможем вам получить необходимые (   Читать дальше...   )Производство: ProductStarЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 85:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C12A1DD4E86D4F2FB36DEEB330C0E8DD8DC508C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428154   (180557) от 01.12.2020
+
+Udemy, Mike X Cohen | Master Math by Coding in Python (2020) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь многому из математики и немножко кодить.
+Многие не знают что Python - действительно мощный инструмент для изучения математики. Конечно, вы можете использовать Python как простой калькулятор, но знаете ли вы, что Python может помочь вам изучить более сложные темы по алгебре, исчислению и матричному анализу? Это именно то, что вы узнаете в этом курсе. (   Читать дальше...   )Производство: UdemyЖанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 33:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5E1CE03E66447B2060CF2BBFA2C04629E8FCDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666010   (180519) от 02.10.2023
+
+infostart, Александр Кунташов | Системы контроля версий для 1С-разработчиков (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основы командной разработки на 1С. Использование систем контроля версий при разработке на платформе 1С:Предприятие 8
+Современная командная разработка немыслима без использования систем контроля версий. Они позволяют выполнять разработку проекта параллельно несколькими разработчиками, предоставляют возможность управлять историей изменений: узнать автора изменений, (   Читать дальше...   )Производство: infostartЖанр: 1С ПрограммированиеЯзык озвучки: РусскийПродолжительность: 04:30:18Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E101257A9378A25496FFB56ADA9BFDA95D05FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593575   (180297) от 27.11.2022
+
+Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и как (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воркшоп для Ruby-разработчиков, которые хотят разобраться в библиотеках dry-rb и подходах, отличных от принятых в rails way.
+День 1. Зависимости, DI, IoC containers. Собираем каркас проекта.
+День 2. Пишем бизнес логику. Railway, result objects и валидации.
+День 3. Добиваем транспортный и персистенс слои. Разбираемся с остальными dry-rb библиотеками.Производство: Thinknetica PRO (бывший hardcode.dev)Жанр: Воркшоп, онлайн-интенсивЯзык озвучки: РусскийПродолжительность: 06:50:11Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E09F6E8BADB7C0DDF6CB70CAFEE53530F37B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428082   (180269) от 01.12.2020
+
+Нетология, Алексей Кузьмин | Профессия - Data Scientist (2018) PCRec, CamRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь преобразовывать сырые данные в полезную информацию для принятия стратегических решений. Data Scientist создаёт и обучает предиктивные модели с помощью алгоритмов машинного обучения и нейросетей, помогая бизнесу находить скрытые закономерности, прогнозировать развитие событий и оптимизировать ключевые бизнес-процессы.Производство: НетологияЖанр: Data  Science, программирование, аналитикаПродолжительность: 136:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F63B394CF8DA486317C36A8ACB7883D2FCF5B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593669   (180110) от 27.11.2022
 
 Slurm (Слёрм), Николай Колядко | Чистая архитектура приложения на GO (2022) WEB-DL [RU]
@@ -6,7 +143,7 @@ Slurm (Слёрм), Николай Колядко | Чистая архитек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180110.jpg" />
 </div>
 
 
@@ -35,7 +172,7 @@ Slurm (Слёрм), Владислав Килин, Кирилл Борисов |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180089.jpg" />
 </div>
 
 
@@ -64,7 +201,7 @@ Udemy, YouRa Allakhverdov | Android разработка - с нуля до пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180082.jpg" />
 </div>
 
 
@@ -93,7 +230,7 @@ Infostart | INFOSTART EVENT (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179005.jpg" />
 </div>
 
 
@@ -121,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178756.jpg" />
+  <img src="Z:/picture/005/save_picture_178756.jpg" />
 </div>
 
 
@@ -148,7 +285,7 @@ Softwaretesting, Арсений Батыров | Chrome DevTools: Инструм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178728.jpg" />
+  <img src="Z:/picture/005/save_picture_178728.jpg" />
 </div>
 
 
@@ -175,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178639.jpg" />
+  <img src="Z:/picture/005/save_picture_178639.jpg" />
 </div>
 
 
@@ -201,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178613.jpg" />
+  <img src="Z:/picture/005/save_picture_178613.jpg" />
 </div>
 
 
@@ -227,7 +364,7 @@ Udemy, BHM Engineering Academy, Israel Gbati | ARM GNU Assembly Programming From
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177950.jpg" />
 </div>
 
 
@@ -255,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177881.jpg" />
+  <img src="Z:/picture/005/save_picture_177881.jpg" />
 </div>
 
 
@@ -284,7 +421,7 @@ GeekBrains, Александра Чижова и др. | Анализ данны
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177825.jpg" />
+  <img src="Z:/picture/005/save_picture_177825.jpg" />
 </div>
 
 
@@ -313,7 +450,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177521.jpg" />
 </div>
 
 
@@ -339,7 +476,7 @@ Udemy, Александр Сокирка (Alexandr Sochirca) | Весь WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177509.jpg" />
 </div>
 
 
@@ -365,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177214.jpg" />
 </div>
 
 
@@ -393,7 +530,7 @@ Changellenge, Семен Бохер и др. | Excel для карьеры и п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_177151.jpg" />
+  <img src="Z:/picture/004/save_picture_177151.jpg" />
 </div>
 
 
@@ -422,7 +559,7 @@ Skillbox, Артём Володкин, Андрей Неляпин, Михаил
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177126.jpg" />
+  <img src="Z:/picture/005/save_picture_177126.jpg" />
 </div>
 
 
@@ -451,7 +588,7 @@ Udemy, Илья Фофанов | Алгоритмы и структуры дан
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177046.jpg" />
+  <img src="Z:/picture/005/save_picture_177046.jpg" />
 </div>
 
 
@@ -477,7 +614,7 @@ Softwaretesting | Подборка курсов по тестированию (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176970.jpg" />
+  <img src="Z:/picture/005/save_picture_176970.jpg" />
 </div>
 
 
@@ -506,7 +643,7 @@ HolyJS 2020 Moscow | Конференция для JavaScript-разработч
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176449.jpg" />
+  <img src="Z:/picture/004/save_picture_176449.jpg" />
 </div>
 
 
@@ -533,7 +670,7 @@ Slurm (Слёрм), Пётр Щербаков | Микросервисы: про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176379.jpg" />
 </div>
 
 
@@ -559,7 +696,7 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176368.jpg" />
 </div>
 
 
@@ -570,144 +707,6 @@ Slurm (Слёрм), Денис Наумов, Антон Рязанцев | Pytho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D29B993691D4BC63DA32D8A0A450CAFD4EDBCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667633   (176360) от 08.10.2023
-
-Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176360.jpg" />
-</div>
-
-
-###  Подробнее
-
-HashiCorp Vaultэто инструмент с открытым исходным кодом, который обеспечивает безопасный и надежный способ хранения и распространения секретов, таких как ключи API, токены доступа и пароли. Программное обеспечение, такое как Vault, может быть критически важным при развертывании приложений, требующих использования секретов или конфиденциальных данных.
-✅10 живых (   Читать дальше...   )Производство: RebrainЖанр: ПрактикумЯзык озвучки: РусскийПродолжительность: 15:28:40Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665812   (176348) от 08.10.2023
-
-Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно новый интерактивный опыт обучения, который учит вас создавать богатые и динамичные веб-приложения с использованием React.
-Давайте будем честными. Учить React - это сложно.
-За последние несколько лет React стал неотъемлемым навыком для фронтенд-разработчиков. Почти каждая вакансия указывает его как предпосылку!
-Однако, если вы пытались изучить React, то (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0B99F12EE625D0820A6C3FADB694B75A43FD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429581   (176288) от 06.12.2020
-
-Node University | Подборка курсов по разработке на Node.JS (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка курсов от Node University по разработке на Node.JS:
-Node Микросервисы / Node Microservices
-Паттерны Node / Node Patterns
-Аутентификация в Node / Node Authentication(   Читать дальше...   )Производство: Node UniversityЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D79A34FF87B5B5A4407F2223D3B3BA26D08A514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429631   (175634) от 07.12.2020
-
-Udemy, Zoran Horvat | Рефакторинг под паттерны проектирования на примере / Refactoring to Design Patterns by Example (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс начинается с изучения реалистичного приложения, которое плохо продумано и не содержит шаблонов проектирования. Демонстрационное приложение преобразует текст в субтитры для видео, что делает его весьма полезным на практике. Тем не менее, поддерживать и развивать это приложение в дальнейшем практически невозможно из-за его плохой структуры и дизайна.
-Это (   Читать дальше...   )Производство: UdemyЖанр: ПрограмированиеЯзык озвучки: АнглийскийПродолжительность: 04:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429670   (175627) от 07.12.2020
-
-Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектирования / Selenium WebDriver and Design Patterns (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паттерны проектирования - это повторяемые и многократно используемые решения для проблем, связанных с проектированием программного обеспечения. Этот курс поможет вам познакомиться с некоторыми из часто используемых шаблонов проектирования в сообществе разработчиков программного обеспечения, а также продемонстрирует, как мы можем использовать их в автоматизации тестирования (   Читать дальше...   )Производство: UdemyЖанр: ПрограмированиеЯзык озвучки: АнглийскийПродолжительность: 07:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Milano 84 - Monochromatic (2021) [MP3|320 Kbps] <Italo-Disco, Italo-Pop, Nu-Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799492.jpg" />
+  <img src="Z:/picture/008/save_picture_799492.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Arpeggio - Love And Desire - The Best Of (1994) CD [MP3|320 Kbps] <Electronic, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799212.jpg" />
+  <img src="Z:/picture/008/save_picture_799212.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
+  <img src="Z:/picture/008/save_picture_798766.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Italo Disco (Essential House Music, Vol. 2) (2019) [MP3|320 Kbps] <Euro Dan
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798732.jpg" />
+  <img src="Z:/picture/008/save_picture_798732.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Goombay Dance Band - 4 Albums (1980 - 1982) LP [MP3|320 Kbps] <Electronic, Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798708.jpg" />
+  <img src="Z:/picture/008/save_picture_798708.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Amanda Lear - 25 Albums (1977-2021) 9LP & 16 CD Collection [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798078.jpg" />
+  <img src="Z:/picture/008/save_picture_798078.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dilemmachine - No Selfies (2017) [MP3|320 Kbps] <Nu Disco, Synthwave, Retrowave>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796986.jpg" />
+  <img src="Z:/picture/008/save_picture_796986.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Giorgio Moroder Remix Project - E=APC2   Audio Porn Central (2012) [MP3|320 кб
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796876.jpg" />
+  <img src="Z:/picture/008/save_picture_796876.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - New Generation Italo Disco: The Lost Files Vol.6 (2018) [MP3|320 Kbps] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796262.jpg" />
+  <img src="Z:/picture/008/save_picture_796262.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - All The Hits Of Monster Disco Sound (1976) LP [MP3|320 Kbps] <Electronic, F
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795551.jpg" />
+  <img src="Z:/picture/008/save_picture_795551.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Silver Pozzoli - The Original Maxi-Singles Collection (2015) [MP3|320 кб/с] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795464.jpg" />
+  <img src="Z:/picture/008/save_picture_795464.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795272.jpg" />
+  <img src="Z:/picture/008/save_picture_795272.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Giorgio Farina - Discocross (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795268.jpg" />
+  <img src="Z:/picture/008/save_picture_795268.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Black Level - Disco Action (1976) LP [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795047.jpg" />
+  <img src="Z:/picture/008/save_picture_795047.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Mode-One - Коллекция (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795034.jpg" />
+  <img src="Z:/picture/008/save_picture_795034.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Euro Disco: The Lost Legends Vol. 13 (2017) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794977.jpg" />
+  <img src="Z:/picture/008/save_picture_794977.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Signus - Black Hole (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794975.jpg" />
+  <img src="Z:/picture/008/save_picture_794975.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ VA - Euro Disco: The Lost Legends Vol. 12 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794971.jpg" />
+  <img src="Z:/picture/008/save_picture_794971.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Euro Disco: The Lost Legends Vol. 14 (2017) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794970.jpg" />
+  <img src="Z:/picture/008/save_picture_794970.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Euro Disco: The Lost Legends Vol. 11 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794965.jpg" />
+  <img src="Z:/picture/008/save_picture_794965.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Disco Deutschland Disco (Disco, Funk & Philly Anthems From Germany 1975-198
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794914.jpg" />
+  <img src="Z:/picture/008/save_picture_794914.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Euro Disco: The Lost Legends Vol. 15 (2017) [MP3|320 Kbps] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794911.jpg" />
+  <img src="Z:/picture/008/save_picture_794911.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Disco 80's vol.1 (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794842.jpg" />
+  <img src="Z:/picture/008/save_picture_794842.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - From Russia With Italo Disco Vol. I-VIII (2012-2014) 10CD, Compilation, Ful
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794815.jpg" />
+  <img src="Z:/picture/008/save_picture_794815.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Disco 80's Maxi Club Hits Vol. 1-3 (Remixes & Rarities) (2012) [MP3|320 к�
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794283.jpg" />
+  <img src="Z:/picture/008/save_picture_794283.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Hot Sauce - Baby Tenderness (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793627.jpg" />
+  <img src="Z:/picture/008/save_picture_793627.jpg" />
 </div>
 
 

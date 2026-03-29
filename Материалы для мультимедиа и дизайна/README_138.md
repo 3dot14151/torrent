@@ -1,3 +1,411 @@
+###  Публикация: 1402105   (703677) от 13.08.2020
+
+Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Целые и нарезанные фрукты в шоколаде
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8397372FF3F85CFFBB1DD21BBCEEBE4CFFE5F008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402179   (703675) от 13.08.2020
+
+Векторный клипарт - Happy Halloween and cartoon heroes 3rd realistic illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин и герои мультфильмов
+8 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7B6328EB45B9CBEF5788F90312EF8D66FBF0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402180   (703674) от 13.08.2020
+
+Векторный клипарт - Pumpkin for Halloween hand-painted theme collection [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин
+7 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAE6A6A19886C9F202284B50584AEF0D5892982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287465   (703611) от 07.03.2019
+
+Стили - DeviantArt - Marble styles 5 - 272131999 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DC555665816B5E035DBFF9401140ADD7A66E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287458   (703610) от 07.03.2019
+
+Стили - DeviantArt - Marble styles 1 - 272131070 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F0CAC208F9E44A7B8564AB612C29A49EF5FCB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287435   (703609) от 07.03.2019
+
+Орнаменты - DeviantArt - Marble A Patterns - 105328910 [PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные бесшовные орнаменты.
+Автор: silver-Формат: PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E9085409F6AD2EF8C50223C5117D31B699BFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402139   (703537) от 13.08.2020
+
+Растровый клипарт - Crystal & Gemstone Scene Creator [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт кристаллы и драгоценные камни для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 146x199-4711x2448
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE29C8D46F3311B18F0CD8B8FF08942C9BAE242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402171   (703532) от 13.08.2020
+
+Векторный клипарт - Dinosaur by car and airplane watercolor illustrations [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Мультяшные динозавры
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F92C497A962F2673D949431119F6AA761A5B7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402183   (703529) от 13.08.2020
+
+Векторный клипарт - Super dinosaur and other heroes funny cartoon illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Супер динозавры и другие герои
+9 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3C05E5FFB7B83952E92D1A1195B9AE4211EC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402098   (703524) от 13.08.2020
+
+Растровый клипарт - The Hungry JPEG - Halloween overlay & Pumpkin clipart - 3812257 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хэллоуин клипарт, Наложение для Фотошопа, кошки, черепа, тыквы.Формат: PNGРазрешение файлов: 480x2554-4700x2594
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DCB86CCD0A4F4BADBFB4F886471A7F7EE0064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287442   (703478) от 07.03.2019
+
+Орнаменты - DeviantArt - Marble B Patterns - 105490582 [PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные бесшовные орнаменты.
+Автор: silver-Формат: PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CEEB32455100CBD5CCAC4B83FCD5CB58DABE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287463   (703477) от 07.03.2019
+
+Стили  - DeviantArt - Marble styles 3 - 272131360 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF9AB97CAE26789D4ECEC74846408F933115C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287467   (703476) от 07.03.2019
+
+Стили - DeviantArt - Marble styles 6 - 272132054 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A57769F43BF72CD31B8FF6AFD2908ADE00E366B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287448   (703470) от 07.03.2019
+
+Орнаменты - DeviantArt - Marble C Patterns - 115142735 [PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные бесшовные орнаменты.
+Автор: silver-Формат: PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADAC9BC493A0532705AA389D5BB0C259E6C79FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287461   (703469) от 07.03.2019
+
+Стили - DeviantArt - Marble styles 2 - 272131495 [ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_703469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные стили для Photoshop.
+Автор:LyottaФормат: ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FE44460B0642115B3842F523F4B730B9ACE0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287500   (703463) от 07.03.2019
 
 Стили - DeviantArt - style272 - 282542116 [PSD, ASL]
@@ -6,7 +414,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703463.jpg" />
+  <img src="Z:/picture/008/save_picture_703463.jpg" />
 </div>
 
 
@@ -33,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703387.jpg" />
+  <img src="Z:/picture/008/save_picture_703387.jpg" />
 </div>
 
 
@@ -61,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703272.jpg" />
+  <img src="Z:/picture/008/save_picture_703272.jpg" />
 </div>
 
 
@@ -87,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703229.jpg" />
+  <img src="Z:/picture/008/save_picture_703229.jpg" />
 </div>
 
 
@@ -114,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703142.jpg" />
+  <img src="Z:/picture/008/save_picture_703142.jpg" />
 </div>
 
 
@@ -140,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703109.jpg" />
+  <img src="Z:/picture/008/save_picture_703109.jpg" />
 </div>
 
 
@@ -166,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703107.jpg" />
+  <img src="Z:/picture/008/save_picture_703107.jpg" />
 </div>
 
 
@@ -193,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703103.jpg" />
+  <img src="Z:/picture/008/save_picture_703103.jpg" />
 </div>
 
 
@@ -220,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703101.jpg" />
+  <img src="Z:/picture/008/save_picture_703101.jpg" />
 </div>
 
 
@@ -247,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703099.jpg" />
+  <img src="Z:/picture/008/save_picture_703099.jpg" />
 </div>
 
 
@@ -274,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703095.jpg" />
+  <img src="Z:/picture/008/save_picture_703095.jpg" />
 </div>
 
 
@@ -286,402 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7D3EB4E55FC79747091C9FD2F7A753C79633249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210017   (703094) от 07.03.2019
-
-Растровый клипарт - 8 Марта [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703094.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 штук надписей с 8 Марта на прозрачном фоне....
-Как здорово, что весна начинается с прекрасного праздника, который посвящен вам, любимые подруги, жены, мамы, дочки, бабушки. Искренне хочу поздравить вас с 8 марта и пожелать вам тепла, радости и чудес! Пускай улыбка не сходит с ваших лиц, любимые женщины!Формат: PNGРазрешение файлов: от 1476х591 до 5906х3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A6E1304420A2EA39C4D37EA635707FAA8FA2AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402113   (703006) от 13.08.2020
-
-Сборник - Creative Market - Huge Typographic Pack + 60 Logos ! - 2798169 [EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришло время получить все мои 44 шрифта, включая 221 шрифт + 60 БОНУСНЫХ шаблонов логотипов.Формат: EOT, OTF, TTF, WOFF, WOFF2, PNG, AI, EPS, PSDРазрешение файлов: 132x1500-1500x1490
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0330377D830B69A65D558E17C0A1F6BAD5715BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873829   (702941) от 07.03.2019
-
-Рамки - С 8 марта 2015 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702941.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSD рамки для фото С 8 марта,подогнаны под формат А4
-для удобной печати,для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BED29A662007434798F78276BEE261CB001B09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220594   (702444) от 20.04.2018
-
-Растровый клипарт - Animals #21 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 150x153-14173x12898
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC09134564670A7BF975C7E918643B073D661D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220593   (702442) от 20.04.2018
-
-Растровый клипарт - Animals #20 [PNG, GIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNG, GIFРазрешение файлов: 200x300-7268x4890
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C14C9E90164E11065DED902A52A4A5A58B22BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672527   (702372) от 25.06.2013
-
-Стили - Text Style Pack 3 для Photoshop [JPEG,ASL,PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одна подборка красивых стилей для PhotoshopФормат: JPEG,ASL,PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8753AF43529BF230697A8FDB0C26BE7A2E18780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026759   (702070) от 16.06.2016
-
-Экшены - GraphicRiver - Wall Painter Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wall Painter - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2971B41261626E222E1586F6C9CA64987F2225F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026744   (702068) от 16.06.2016
-
-Экшены - GraphicRiver - Ice Storm Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ice Storm - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F1269BC4C4ECAF6546EAC32A13E5D735F21127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026823   (701953) от 16.06.2016
-
-Экшены - GraphicRiver - Creative Art Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creative Art - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF06292B28AE6E88BC440403418044A4BE900986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026749   (701949) от 16.06.2016
-
-Шаблоны - GraphicRiver - Artistic Photo Manipulation 05 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artistic Photo Manipulation 05 - данный шаблон поможет превратить ваши фотографии в настоящее произведение искусств.Формат: PSDРазрешение файлов: 2000 x 3000 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FEDA7AC89292FCB056A843D52EAC63EC394E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026834   (701945) от 16.06.2016
-
-Экшены - GraphicRiver - Dynamic Sketch Photoshop Action CS3+ [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Sketch - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D8D0B69CFDC62E592CBF5400C80E102B3CDDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402444   (701579) от 14.08.2020
-
-Векторный клипарт - Whole and chopped fruit in chocolate splash realistic illustrations 2 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Целые и нарезанные фрукты в шоколадной глазури
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4E821D1B82D877D1D46D760B6C945FFB1C7D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402442   (701569) от 14.08.2020
-
-Векторный клипарт - Sweet candy landscape of plasticine 3d realistic illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сладкие пейзажи из пластилина
-8 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A208A9BD6F7370078826289194DD3B0AF0152B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132504   (700552) от 09.05.2017
-
-Рамки - С Днем Победы 2017 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многослойные PSD Шаблоны-рамки. С Днем Победы 2017 для вашего творчества.Формат: PSDРазрешение файлов: 2480х3508-3508х2480
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9083F206FFF2AC416AAEE34CE478D249D3C026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220889   (700533) от 21.04.2018
-
-Текстуры - Pixel Surplus - Girlicious Texture Sample Pack [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор образцов текстур для дизайна с официального сайта, выборочно, доступный для бесплатного скачивания.Формат: JPGРазрешение файлов: 6000x6000, 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B988ECDC8CBBE677767FA909E9252D9244348EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

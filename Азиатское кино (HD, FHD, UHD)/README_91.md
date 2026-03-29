@@ -1,3 +1,133 @@
+###  Публикация: 1794501   (19874) от 29.04.2025
+
+100 ярдов / Men qian bao di / 100 Yards (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19874.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти уважаемого мастера боевых искусств двое студентов становятся непримиримыми врагами, соперничающими за владение его академией. Конфликт разгорается, вовлекая все больше участников и ломая вековые традиции ушу, призывающие к сдержанности и взаимному уважению.Производство: Китай / Poly Film Investment, Tianjin Film StudioЖанр: боевикРежиссер: Сюй Хаофэн, Сюй ЦзюньфэнАктеры: Джеки Хён, Энди Он, Би Хейден Ко, Тан Шии, Кевин Ли, Мао Тао, Ли Юань, Темур Мамисашвили, Сюй Чанчу, Fredrik YderströmПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E4CC24B901D385FB0578701F98389988020876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794524   (19873) от 29.04.2025
+
+100 ярдов / Men qian bao di / 100 Yards (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19873.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти уважаемого мастера боевых искусств двое студентов становятся непримиримыми врагами, соперничающими за владение его академией. Конфликт разгорается, вовлекая все больше участников и ломая вековые традиции ушу, призывающие к сдержанности и взаимному уважению.Производство: Китай / Poly Film Investment, Tianjin Film StudioЖанр: боевикРежиссер: Сюй Хаофэн, Сюй ЦзюньфэнАктеры: Джеки Хён, Энди Он, Би Хейден Ко, Тан Шии, Кевин Ли, Мао Тао, Ли Юань, Темур Мамисашвили, Сюй Чанчу, Fredrik YderströmПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE20CC539F636348AE908FBBBD61C38CBDD1686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795060   (19634) от 02.05.2025
+
+Расхитители гробниц. Королева монстров / Luo bu po you ling / Lop Nor Tomb (2023) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно древней легенде, королева Лоуаня была жестокой правительницей, и предводитель народа гумо убил её священным мечом. Это привело к падению её государства. Тем не менее, верная красная жрица королевы скрыла её тело в черной башне Лоп-нор, которую охраняет черный змей до тех пор, пока она не оживёт. Никто не знает, что произошло с красной жрицей, но её барабан, (   Читать дальше...   )Производство: КитайЖанр: приключения, фэнтези, боевикРежиссер: Кай Кевин ХуанАктеры: Бай Энь, Ху Сюээр, Ян Дунци, Би Мэнгэ, Цзюй Пэнцзяо, Лю Фэйфань, Гао ЦзыганПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE719167AB4CEF4A4BDB64D23DD9DCE52FC0838A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795106   (19597) от 02.05.2025
+
+Монах и ружьё / The Monk and the Gun (2023) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Притча о невозможности принять современность, не считаясь с прошлым... События происходят в Бутане после отречения короля в 2006 году. Перемены наконец-то назрели. Бутан становится последней страной в мире, которая подключилась к интернету и телевидению. А ещё самое большое изменение из всех: демократия. Чтобы научить людей голосовать, власти устраивают имитацию (   Читать дальше...   )Производство: Бутан, Тайвань, Франция, США, Гонконг / Dangphu Dingphu: A 3 Pigs Production, Closer MediaЖанр: драма, комедияРежиссер: Паво Чоининг ДорджиАктеры: Тандин Вангчук, Гарри Эйнхорн, Тандин Пхубц, Тандин Сонам, Пема Цангмо Шерпа, Деки Лхамо, Чоейнг Джатшо, Ипхел Лхендуп Сендел, Келсанг ЧоеджайПеревод: любительский двухголосый (Pazl Voice)Язык озвучки: русский, дзонг-кэСубтитры: русские (надписи и полные, Pazl Voice), английскиеПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED92CDB7DC6A5B06E6A6B9E19CE297D59108B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795590   (19270) от 05.05.2025
+
+Затвор / Shutter (2004) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19270.jpg" />
+</div>
+
+
+###  Подробнее
+
+После вечеринки у друзей Джейн с парнем-фотографом Таном на машине случайно сбивает девушку. Тан не даёт ей выйти из машины, и они уезжают. После этого происшествия на снимках, которые он проявляет, появляется странная тень. Сначала Тан решает, что это просто брак, но тень появляется снова и снова. А друзья Тана начинают погибать...Производство: Таиланд / GMM Pictures Co., PhenomenaЖанр: ужасыРежиссер: Баньенг Писензенекун, Пакпум ВонпумАктеры: Ананда Эверингем, Наттавирануч Тонгми, Ачита Сикамана, Унноп Чанпайбул, Титикарн Тонгпрасеартх, Сивагорн Муттамара, Чаччая Чалемпхол, Качормсак Нарыпатр, Апичарт Чусакуль, Бинн КитчачонпонгПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C0BE9BCEB8295730D7753ECBB0636977AF62F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796362   (18726) от 10.05.2025
 
 Семейное дело / Quan jia fu / A Family Affair (1984) BDRip [H.265/1080p] [10-bit] [VO]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18726.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18584.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18313.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18293.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18119.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18079.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17904.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17585.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17539.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17019.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16994.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16955.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16952.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15496.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15374.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14427.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14418.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13868.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12983.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12976.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12851.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CDFC522AC92368774F7610E86A6C431E6A927F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804659   (12849) от 01.07.2025
-
-Слепая война / Mang zhan / Blind War (2022) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецназовец Дон Гу потерял зрение во время перестрелки с бандитами, и более того — его поспешные действия привели к гибели коллег. С помощью дочери он приспособился к слепоте, но когда девушку похищают, Дон Гу приходится спасать её в одиночку, а старый враг уже дышит ему в затылок.Производство: Китай / Hengdian World Studios, Dongyang, Jinhua, Zhejiang ProvinceЖанр: боевик, криминалРежиссер: Хо СуйцянАктеры: Энди Он, Ян Син, Ван Ханьян, Джейн У, Уайз Ли, Винсент Матиль, Чжан Яци, Александр Робиллард, Дао ДаоПеревод: Дублированный (OKKO)Язык озвучки: русский, китайскийСубтитры: русские, английские, французскиеПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD4B96A830679FB02328F7CF2A06835AEAF5A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805962   (12035) от 09.07.2025
-
-Король приключений / Mo him wong / Dr. Wai in The Scripture with No Words (1996) BDRip [H.265/1080p] [10-bit] [AVO] [Hong Kong Theatrical Version]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета находится талантливый писатель по имени Чоу, который настолько погружается в процесс создания своего нового романа, что незаметно для самого себя становится главным героем собственного произведения. По воле собственного воображения он оказывается втянут в захватывающее приключение, где ему предстоит отыскать древнюю магическую рукопись, обладающую (   Читать дальше...   )Производство: Гонконг, Китай / China Film Co-Production Corporation, Eastern Productions, Win's Entertainment Ltd.Жанр: фэнтези, боевик, триллер, комедия, приключенияРежиссер: Тони ЧинАктеры: Джет Ли, Розамунд Кван, Чарли Ен, Такеши Канеширо, Колин Чоу, Лау Ка-Ин, Билли Чоу, Джонни Кун, Jian Yong Guo, Хань ПинПеревод: авторский (Александр Кашкин, Сергей Визгунов VHS)Язык озвучки: русский, английский, китайскийСубтитры: английскиеПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3873562C4BF2656B21F329AD87439CA2D37929FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806170   (11829) от 11.07.2025
-
-Астрал: 13 инкарнаций зла / Чёрные монахини / Geomeun sunyeodeul / Dark Nuns (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой мальчик Хи-Джун одержим злым духом. Монахиня Юния пытается спасти его, а монахиня Микаэла помогает ей. Священник Пол пытается лечить мальчика, в то время как священник Эндрю проводит обряд изгнания нечистой силы, чтобы избавить Хи-Джуна от злого духа.Производство: Корея Южная / Next Entertainment World, Zip CinemaЖанр: ужасыРежиссер: Квон Хёк-чэАктеры: Сон Хе-гё, Чон Ё-бин, Ли Джин-ук, Хо Джун-хо, Мун У-джин, Ли Сэ-ран, Хан Дон-хи, Пак Со-дамПеревод: Многоголосый (TVShows, LE-Production)Язык озвучки: Русский, КорейскийСубтитры: КорейскиеПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852F9A325834BB64965F739C893AE30F4A4147C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806778   (11533) от 14.07.2025
-
-Слепой меч. Око за око / Mu zhong wu ren 2 / Eye for an Eye 2 (2024) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слепой охотник за головами тренирует девочку, жаждущую мести видному чиновнику за смерть любимого брата.Производство: Китай / Civelriesfilm CO. LTDЖанр: боевик, драмаРежиссер: Ян БинцзяАктеры: Се Мяо, Ян Энью, Хуан Тао, Пэй Куйшань, Пема Джад, Лю Фэнчао, Джампа Цетен, Songyuan Xiao, Цзянь Исюань, Чжан ХаосэньПеревод: Дублированный (Wink)Язык озвучки: русский, китайскийСубтитры: Русские (Forced, Full), Китайские, АнглийскиеПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C106DD921F809A0934819AA7E3084FFC5DA0D973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806777   (11516) от 14.07.2025
-
-Слепой меч. Око за око / Mu zhong wu ren 2 / Eye for an Eye 2 (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слепой охотник за головами тренирует девочку, жаждущую мести видному чиновнику за смерть любимого брата.Производство: Китай / Civelriesfilm CO. LTDЖанр: боевик, драмаРежиссер: Ян БинцзяАктеры: Се Мяо, Ян Энью, Хуан Тао, Пэй Куйшань, Пема Джад, Лю Фэнчао, Джампа Цетен, Songyuan Xiao, Цзянь Исюань, Чжан ХаосэньПеревод: Дублированный (Wink)Язык озвучки: русский, китайскийСубтитры: Русские (Forced, Full), Китайские, АнглийскиеПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6615171CE35A564C8637FE31483DF11ED6D1078
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1420375   (333825) от 31.10.2020
+
+Валерий Шамбаров | Непобедимый Суворов. Измаил, Альпы и другие славные сражения (2020) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто был лучшим полководцем в российской истории? Конечно же, Суворов. Он прошёл через несколько войн, сражался с немцами, поляками, турками, французами. Часто врагов было в несколько раз больше, чем его солдат. Иногда казалось - положение русских вообще безнадёжно. Но он всегда атаковал и всегда побеждал! Больше 60 сражений, и ни одного поражения. Как же он стал (   Читать дальше...   )Жанр: Публицистика, Биография, ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F956E9028EA072D2A4E695E95992568E47F69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420226   (333758) от 31.10.2020
+
+Грегг Олсен | Не говори никому. Реальная история сестер, выросших с матерью-убийцей (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад к писателю true-crime книг Греггу Олсену обратились три сестры Нотек, чтобы рассказать душераздирающую историю о своей матери-садистке. Всю свою жизнь они молчали о своем страшном детстве: о сценах издевательств, пыток и убийств, которые им довелось не только увидеть в родительском доме, но и пережить самим. Сестры решили рассказать публике правду: (   Читать дальше...   )Жанр: Документальная литература, Истории из жизни, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A5D0CE9B2EF4AFC1C412B8AA5AAB09F00895E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579843   (332983) от 29.09.2022
+
+С. А. Холодов | Уголовный розыск в СССР. 35 резонансных и кровавых преступлений (2022) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332983.jpg" />
+</div>
+
+
+###  Подробнее
+
+35 самых резонансных и кровавых уголовных дел 1918 – 1991 годов через призму истории советского уголовного розыска. Некоторые преступления, о которых пойдёт речь, широко известны по кинофильмам и народной молве. Мы покажем их истинную подоплёку. Другие – не менее важные и эффектные дела – до сих пор оставались под грифом «секретно».Жанр: Художественная публицистикаЯзык: РусскийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2091651C601F51141A3DF6E697507E875738E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258903   (332930) от 01.11.2018
 
 Скотт Макконнелл | Айн Рэнд. Сто голосов (2018) [FB2]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332930.jpg" />
+  <img src="Z:/picture/008/save_picture_332930.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332573.jpg" />
+  <img src="Z:/picture/008/save_picture_332573.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332489.jpg" />
+  <img src="Z:/picture/008/save_picture_332489.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331192.jpg" />
+  <img src="Z:/picture/008/save_picture_331192.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331049.jpg" />
+  <img src="Z:/picture/008/save_picture_331049.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330172.jpg" />
+  <img src="Z:/picture/008/save_picture_330172.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329358.jpg" />
+  <img src="Z:/picture/008/save_picture_329358.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329322.jpg" />
+  <img src="Z:/picture/008/save_picture_329322.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329246.jpg" />
+  <img src="Z:/picture/008/save_picture_329246.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328254.jpg" />
+  <img src="Z:/picture/008/save_picture_328254.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327496.jpg" />
+  <img src="Z:/picture/008/save_picture_327496.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326654.jpg" />
+  <img src="Z:/picture/008/save_picture_326654.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325537.jpg" />
+  <img src="Z:/picture/008/save_picture_325537.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324991.jpg" />
+  <img src="Z:/picture/008/save_picture_324991.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323725.jpg" />
+  <img src="Z:/picture/008/save_picture_323725.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323510.jpg" />
+  <img src="Z:/picture/008/save_picture_323510.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323506.jpg" />
+  <img src="Z:/picture/008/save_picture_323506.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323503.jpg" />
+  <img src="Z:/picture/008/save_picture_323503.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323181.jpg" />
+  <img src="Z:/picture/008/save_picture_323181.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322030.jpg" />
+  <img src="Z:/picture/008/save_picture_322030.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322016.jpg" />
+  <img src="Z:/picture/008/save_picture_322016.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321907.jpg" />
+  <img src="Z:/picture/008/save_picture_321907.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321864.jpg" />
+  <img src="Z:/picture/008/save_picture_321864.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F60CA2A490B3F43B775E2553949FCD46F4C72449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181989   (321785) от 08.11.2017
-
-Михаил Жирохов | Семена распада: войны и конфликты на территории бывшего СССР (2012) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321785.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1991 году распался Советский Союз, громадная страна, занимавшая 1/6 суши. Произошла переоценка ценностей бывших «подчиненных», ставших независимыми субъектами международных отношений. Вспомнились старые обиды, появились претензии к соседям. Это вылилось в 6 крупных войн, 20 военных столкновений и сотню конфликтов на межэтнической и межконфессиональной почве. В (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ECAD4008D7943F78F59D14B2FF9E3DC1880F50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181984   (321710) от 08.11.2017
-
-Дональд Рейфилд | Сталин и его подручные (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный британский историк и литературовед, автор бестселлеров «Грузия. Перекресток империй. История длиной в три тысячи лет» и «Жизнь Антона Чехова», предлагает детальный анализ исторической эпохи и личностей, ответственных за преступления, в которых исчезли миллионы людей, «не чуявших под собой страны».
-Руководители печально знаменитой Лубянки – Дзержинский, (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B387319FDE9D80C6A3242C61E86815D8F5D2519E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181785   (321707) от 08.11.2017
-
-Елена Семёнова (ред.-сост.) | Алексей Мозговой. Свобода и Совесть (Стихотворения, интервью и биография легендарного Комбрига) (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его часто сравнивали с генералом Кутеповым. Он был внешне очень похож на него и очень уважал Александра Павловича. И форма белогвардейская сидела на нём, как литая. Не как на ряженых, а как на настоящем Русском Офицере, коим он и был. Он имел право на этот мундир, на эти погоны. Он жил по тогдашнему Кодексу Чести, словно из тех времён осколком залетев в наш до омерзения (   Читать дальше...   )Жанр: Биография. ПоэзияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D785CDEE1EAFF28A33A18A64A5DA7D1AE6749491
 ```
 
 https://mybot314.ru/tekegram_catalog/

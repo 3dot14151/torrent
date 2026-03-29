@@ -1,3 +1,137 @@
+###  Публикация: 988443   (921096) от 20.02.2016
+
+А. Гречуха | Звёздочка на комбайне (1984) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей о трудовых буднях и трудовых победах. Для дошкольного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4137A563797826184A3A55D3CE743BB03878B9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988446   (921085) от 20.02.2016
+
+Владимир Арро | Бананы и лимоны (1972) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о пионере Пете и о его друзьях: Лёше, Савве, Алисе, пожарнике Василии и двух студентах, приехавших к нам учиться из борющейся африканской республики, Мишеле и Андерсе.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520295BADE5E7E0885B7A011F493C5019B05B46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988445   (921081) от 20.02.2016
+
+А. Перфильева | Лучик и звездолёт (1964) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о двух маленьких друзьях — девочке Иринке и мальчике Жене. Они совсем разные. Иринка мечтает стать космонавтом, открывать новые планеты. Женя любит лошадей, природу.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99977DCB0419270DE1A6F3AF2DC0C9997E55DAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988459   (920941) от 20.02.2016
+
+Г.  Юрмин | Я иду играть... (1979) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди самых различных профессий: архитекторы, корабелы, строители электростанций, автомобилей, самолетов и многие, многие другие,— каждый в своей области, занимаются моделированием, строят игрушки-модели и играют с ними.
+Для чего и как они это делают, и рассказывается в книге Георгия Юрмина "Я иду играть...", названной так автором неспроста. Ведь казалось (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C124F8289ACAA9D05C328B38C800B29FAB3B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988763   (920808) от 20.02.2016
+
+Любовь Стрельникова | Из чего все сделано? Рассказы о веществе (2011) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920808.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Когда кто-то из детей говорит мне, что терпеть не может химию, я всегда отвечаю: «Как так? Разве ты не любишь мир, в котором живёшь?»
+В ответ на удивлённый взгляд маленького человека приходится объяснять, что весь мир, включая нас самих, соткан из вещества. А изучением вещества и занимается химия. Что может быть интереснее?»
+
+Книга известного научного журналиста, (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1794BB69426AF0E8B10A441119757919F97BF079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988744   (920801) от 20.02.2016
 
 И. Копылова (ред.) | Энциклопедия юных сурков - 9. Ролики, велосипед, скейтборд (2002) [PDF]
@@ -6,7 +140,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920801.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920781.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920678.jpg" />
 </div>
 
 
@@ -88,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920654.jpg" />
 </div>
 
 
@@ -114,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920646.jpg" />
 </div>
 
 
@@ -140,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920632.jpg" />
 </div>
 
 
@@ -166,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920546.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920519.jpg" />
 </div>
 
 
@@ -218,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920449.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920405.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920305.jpg" />
 </div>
 
 
@@ -301,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920297.jpg" />
 </div>
 
 
@@ -327,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920182.jpg" />
 </div>
 
 
@@ -354,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920096.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920091.jpg" />
 </div>
 
 
@@ -406,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919801.jpg" />
 </div>
 
 
@@ -432,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919747.jpg" />
 </div>
 
 
@@ -458,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919655.jpg" />
 </div>
 
 
@@ -484,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919463.jpg" />
 </div>
 
 
@@ -510,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919385.jpg" />
 </div>
 
 
@@ -536,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919256.jpg" />
 </div>
 
 
@@ -549,137 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E6189E7E2D8A9EB00473E5967CEB2BDFB8CA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988741   (919248) от 21.02.2016
-
-Бранко Чопич | Ноги в поле, голова на воле (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга югославского писателя Бранко Чопича с его воспоминаниями о далеком детстве, проведенном им в маленькой глухой деревушке, о деревенской школе, о друзьях детства и одноклассниках. Повесть написана очень живо, с большим юмором и любовью к народным обрядам и обычаям, и давно стала любимым чтением югославских ребят. Перевод выполнен по изданию 1971 года.Жанр: Детская прозаПеревод: Татьяна ВиртаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542C7D9C062E22D129FDEF6B5B00A535C33CD073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096509   (919243) от 24.01.2017
-
-Светлана Воронцова, Александр Лавров | Грибы в лукошке (1987) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие ребята! Эта книжка познакомит вас с грибами - съедобными и ядовитыми. Вы узнаете, как они выглядят и где любят расти. Раскрашивая рисунки, запоминайте, какие грибы можно положить в корзинку, а какие нельзя.Жанр: Образование, обучение и развитие детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7905F42EB937A3AC44BD014A24D610EB85539DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989085   (919177) от 21.02.2016
-
-А. Дорохов | Сто послушных рук (1954) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга о чудесах техники. Только чудом это казалось во времена выхода книги из печати. Телевизор, холодильник, пылесос и двухколесный детский велосипед для большинства были несбыточной мечтой.
-   А о таком агрегате, как бытовая стиральная машина, автор тогда похоже вообще не слышал. Тем не менее, именно тогда были осуществлены проекты, которые и сейчас поражают своим (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC66E211FEE03C4EA1574396A0EC3625F87528AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490430   (919010) от 20.08.2021
-
-Алла Пономарева | Готовим руку к письму: для детей 4-5 лет (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга составлена в соответствии с новым Федеральным государственным образовательным стандартом дошкольного образования и воспитания и станет отличным помощником в обучении и развитии детей 4–5 лет. Занимаясь по книге, малыш будет рисовать наклонные, волнообразные и спиралевидные линии, что подготовит его руку к выполнению более сложных заданий, таких как «дорисуй (   Читать дальше...   )Жанр: Рабочая тетрадь/Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE1D99DFF270446A985C61EE6E21E970C044235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864676   (918834) от 30.01.2015
-
-Борис Алмазов | Я иду искать (1982) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой приключенческой повести, посвященной славному юбилею пионерии, рассказывается о красных следопытах, о том, как разыскивая героев, ребята взрослеют, набираются знаний, становятся патриотами своей Родины.Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A0D07013CD43270637BBCAC6ABA9B8B1D23596
 ```
 
 https://mybot314.ru/tekegram_catalog/

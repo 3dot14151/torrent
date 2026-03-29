@@ -1,3 +1,235 @@
+###  Публикация: 1810693   (17032) от 05.08.2025
+
+The Krugers - Outlaw Rock'n'Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Long Way Down (5:01)
+02.  I'm Gone (3:00)
+03.  Upside Down (4:05)
+04.  Dead Man Boogie (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2395403E303E9906EE39008F3E1D6E399B3119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586285   (17002) от 25.05.2025
+
+Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Onslaught — британская трэш-метал-группа из Бристоля, существовавшая с 1983 по 1991 годы и вновь собравшаяся в 2004 году.1985 - Power From Hell
+1986 - The Force
+1989 - In Search of Sanity
+2007 - Killing PeaceЖанр: Thrash MetalПродолжительность: 08:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798841   (16971) от 25.05.2025
+
+Группа «Визит» - Ночь Без Тебя (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16971.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тяжелый Случай
+A2 Последний Миг
+A3 Пляжное Регги
+A4 Откровение(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799072   (16967) от 25.05.2025
+
+VA - Arabtronic 2025 - The Best Eastern Rhythms, Arabic Electro House, Ethnic Chill House, Oriental & Tribal Ambient (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eastern Rhythms, Arabic Ele ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imad Saad - Sweet day (4:49)
+02. Morad Abu - Aïcha (4:38)
+03. Khaled Youssef - Strugglin' (5:22)
+04. Mo-Omar - Ya Tabtab Wa Dallaa (5:24)(   Читать дальше...   )Жанр: Eastern Rhythms, Arabic Electro House, Ethnic Chill House, Oriental, Tribal AmbientПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8291431616E40FB13507D1194B6C09C35151CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810772   (16945) от 06.08.2025
+
+Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Thunder Road (03:40)
+ 02 - Ride to the Rhythm (02:30)
+ 03 - Living Easy (02:22)
+ 04 - Keep On Dancing (03:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0C1B53EEBF10A9BD211C355A82F7FF8070A1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810758   (16921) от 06.08.2025
+
+Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slaughter to Prevail — российская дэткор-группа, основанная в 2014 году в Екатеринбурге. В настоящее время группа базируется в Орландо, Флорида.2016 - Chapters Of Misery (EP)
+2017 - Misery Sermon
+2021 - Kostolom
+2025 - GrizzlyЖанр: Deathcore, Nu MetalПродолжительность: 02:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810902   (16753) от 07.08.2025
+
+W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Animal (Fuck Like A Beast)
+02. L.O.V.E. Machine (Remix)
+03. I Wanna Be Somebody (Remix)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB70398CAD6116FC82BBE5A7E0FCB2E6F44969C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799335   (16752) от 07.08.2025
+
+Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadecrown - метал-группа из Финляндии, основанная в 2012 году.2016 - Agonia
+2019 - Riven
+2021 - Solitarian
+2025 - 0Жанр: Melodic Death/Doom MetalПродолжительность: 03:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82230B47378BF6291E4641FF5FB1D8BA9B6F7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810983   (16721) от 07.08.2025
 
 Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
@@ -6,7 +238,7 @@ Ozzy Osbourne - Blizzard of Ozz (1980) Released, 2011, Sony Music [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16721.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Sarah Connor - Freigeistin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Rh
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16672.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Jeff McMillan - Being Bad Feels So Good (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16538.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Pepe Bueno & os Estranhos - Confissoes e Outros Blues (2025) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16537.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Radio One Experience - Free Spirit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16535.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Henrik Sundqvist - Thoughts Of Sand (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16534.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Richard Cagle & the Voodoo Choir - Zia Blues (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16533.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ The Mat Day Band - The Mat Day Band (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16532.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Matt Schofield Trio - Many Moons, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16531.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Wreckless James - Train of hurt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16529.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Early Times & the High Rollers - Fallen Angels (2025) [FLAC 24/48|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16526.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Southbound Snake Charmers - Bonnie vs Clyde (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16525.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Slayer (& Kerry King) - Studio Albums (15 releases) (1983-2024) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16454.jpg" />
 </div>
 
 
@@ -384,7 +616,7 @@ Bonded - Studio Albums (2 releases) (2020-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16229.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Garbage - Let All That We Imagine Be The Light (2025) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16223.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Wolfskull - Studio Albums (3 releases) (2019-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16201.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Andreas Vollenweider - The Best Of Vol. 1 (1994) Compilation, Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16200.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Peter Bjargo (Bjärgö, Arcana, Onus) - Studio Albums (10 releases) (2005-2024) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16142.jpg" />
 </div>
 
 
@@ -511,238 +743,6 @@ Peter Bjärgö - шведский музыкант, вокалист.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFB643FCF6AC24ADC72AC9FA213B66495EDAA7B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811374   (16141) от 10.08.2025
-
-Cradle of Filth - Existence Is Futile (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Extreme Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Fate Of The World On Our Shoulders
-A2 Existential Terror
-A3 Necromantic Fantasies
-A4 Crawling King Chaos(   Читать дальше...   )Жанр: Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031FE3B26D502E91ED370A97AECEE2E56AA4B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571438   (16061) от 31.05.2025
-
-Rivers of Nihil - Дискография (7 releases) (2010-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rivers of Nihil — американская дэт-метал-группа из Рединга, штат Пенсильвания, сформирована в 2009 году.2013 - The Conscious Seed of Light
-2015 - Monarchy
-2018 - Where Owls Know My Name
-2021 - The WorkЖанр: Technical/Progressive Death MetalПродолжительность: 05:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B4C9724DA3096A891A411BFBF15D99581A6AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800331   (15841) от 02.06.2025
-
-The Haunted - Studio Albums (10 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15841.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Haunted — шведская метал-группа, образованная в 1996 году басистом Йонасом Бьорлером, барабанщиком Адрианом Эрландссоном и гитаристом Андерсом Бьорлером, после распада At the Gates.1998 - The Haunted
-2000 - Made Me Do It
-2002 - One Kill Wonder
-2004 - rEVOLVErЖанр: Melodic Death/Thrash/Groove MetalПродолжительность: 08:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A41A02A90592DB453FBFC9A7DC3223DD67D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800349   (15836) от 02.06.2025
-
-Papik & Frankie Lovecchio - Memories (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Delight
-02. Falling In Love
-03. Joy And Pain
-04. My Sweet Obsession(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466CF28C8F6D44F0BBD820EA89104A6AA3606CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800620   (15642) от 04.06.2025
-
-Manowar - Kings Of Metal (1988)[APE|24/96|image + .cue|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheels Of Fire
-02. Kings Of Metal
-03. Heart Of Steel
-04. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A17CBD52C4C5C51BA168FD8D3B5FC49D49E1450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951021   (15620) от 05.06.2025
-
-The Mamas & The Papas - Best Of The Mamas & The Papas: California Dreamin' (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Folk Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15620.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	California Dreamin'
-A2	Creeque Alley
-A3	Glad To Be Unhappy
-A4	Safe In My Garden(   Читать дальше...   )Жанр: Folk Rock, Pop RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC979B6F720A3C9B6DC25962AB31B6B97BD77F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800770   (15581) от 05.06.2025
-
-Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Devils are Awake (04:55)
- 02 - By a Monster’s Hand (03:43)
- 03 - Acid Rain (04:45)
- 04 - Demonic Depression (03:59)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Groove MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E139A5B116EF36F91F007D06EEE63A3793DE1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800745   (15561) от 05.06.2025
-
-Edgar Blues Trio - SHINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Number One (3:49)
-02.  Jimi Said (4:08)
-03.  On Your Face (3:58)
-04.  Night And Day (6:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AA2CDB7D25F2C0D5CD51CB968EAAA6E8D3F7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

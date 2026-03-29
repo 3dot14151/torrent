@@ -1,3 +1,171 @@
+###  Публикация: 1295734   (616916) от 14.04.2019
+
+Формула 1. Сезон 2019. 3-й Этап. Гран-при Китая. Свободная практика 3 (13.04.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616916.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 апреля 2019 года, суббота. 06:00 МСК
+70-й сезон Формулы-1 2019 года
+3-й Этап. Гран-при Китая. Шанхай (Китай)
+Свободная практика 3(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A04DD974649E81A475F8B0EED51AECB70266E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523877   (616602) от 16.07.2012
+
+Рестлинг / WWE Money In The Bank (2012) HDTVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616602.jpg" />
+</div>
+
+
+###  Подробнее
+
+WWE Money In The Ban - это профессиональное рестлерское pay-per-view шоу, проводимое World Wrestling Entertainment (WWE).Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6892F3F7D8E0BBCAC9FBB364484A4D72F1D17D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523869   (616594) от 16.07.2012
+
+Рестлинг / WWE Money In The Bank - Preshow (2012) WEBRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская версия от 545TV WWE Money In The Ban прешоуЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987A9FA8F0C5D5FDBBAF61B83E0BFB42D8AF7B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146005   (616593) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616593.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146032   (616592) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616592.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D088776EC501621A8998D0B4CFC8E340EB7C3E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146210   (616591) от 28.06.2017
+
+Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Германия — Камерун (25.06.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_616591.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Кубок конфедераций FIFA 2017. Групповой этап.
+Группа B. 3-й тур
+Германия — Камерун(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79F2C544B558C03D12C2925DDCE9BE87F99DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145444   (616585) от 28.06.2017
 
 Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 2-й тур. Германия — Чили (22.06.2017) HDTVRip
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616585.jpg" />
+  <img src="Z:/picture/008/save_picture_616585.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616575.jpg" />
+  <img src="Z:/picture/008/save_picture_616575.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616436.jpg" />
+  <img src="Z:/picture/008/save_picture_616436.jpg" />
 </div>
 
 
@@ -89,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616301.jpg" />
+  <img src="Z:/picture/008/save_picture_616301.jpg" />
 </div>
 
 
@@ -115,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615819.jpg" />
+  <img src="Z:/picture/008/save_picture_615819.jpg" />
 </div>
 
 
@@ -142,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615818.jpg" />
+  <img src="Z:/picture/008/save_picture_615818.jpg" />
 </div>
 
 
@@ -171,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615752.jpg" />
+  <img src="Z:/picture/008/save_picture_615752.jpg" />
 </div>
 
 
@@ -200,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615750.jpg" />
+  <img src="Z:/picture/008/save_picture_615750.jpg" />
 </div>
 
 
@@ -229,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615748.jpg" />
+  <img src="Z:/picture/008/save_picture_615748.jpg" />
 </div>
 
 
@@ -258,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615636.jpg" />
+  <img src="Z:/picture/008/save_picture_615636.jpg" />
 </div>
 
 
@@ -287,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615631.jpg" />
+  <img src="Z:/picture/008/save_picture_615631.jpg" />
 </div>
 
 
@@ -316,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615629.jpg" />
+  <img src="Z:/picture/008/save_picture_615629.jpg" />
 </div>
 
 
@@ -345,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615627.jpg" />
+  <img src="Z:/picture/008/save_picture_615627.jpg" />
 </div>
 
 
@@ -374,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615623.jpg" />
+  <img src="Z:/picture/008/save_picture_615623.jpg" />
 </div>
 
 
@@ -403,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615620.jpg" />
+  <img src="Z:/picture/008/save_picture_615620.jpg" />
 </div>
 
 
@@ -432,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615527.jpg" />
+  <img src="Z:/picture/008/save_picture_615527.jpg" />
 </div>
 
 
@@ -461,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615496.jpg" />
+  <img src="Z:/picture/008/save_picture_615496.jpg" />
 </div>
 
 
@@ -491,7 +659,7 @@ NG: Голодное нападение / Striker (2007) HDTVRip [H.264/720p]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615491.jpg" />
+  <img src="Z:/picture/008/save_picture_615491.jpg" />
 </div>
 
 
@@ -517,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615487.jpg" />
+  <img src="Z:/picture/008/save_picture_615487.jpg" />
 </div>
 
 
@@ -543,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615145.jpg" />
+  <img src="Z:/picture/008/save_picture_615145.jpg" />
 </div>
 
 
@@ -557,174 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9116A9A0EABE61CE01F6FFC251ECB414396E964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296060   (615144) от 15.04.2019
-
-Футбол. Чемпионат Европы 2020. Отборочный турнир. Группа I. 1-й тур. Казахстан — Шотландия (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615144.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 марта 2019, четверг. 18:00 МСК
-Чемпионат Европы по футболу 2020 года. Отборочный турнир.
-Группа I. 1-й тур:
-Казахстан — Шотландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EE2F9322FBE620FC5A98B5D0E87120222963C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296037   (615067) от 15.04.2019
-
-NASCAR-2019. 2-й Этап. Атланта. Гонка / Monster Energy NASCAR Cup Series 2019. Folds of Honor QuikTrip 500. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615067.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Cup Series - Сезон 2019 года
-Воскресенье, 24 февраля 2019 года. Хэмптон (штат Джорджия, США).
-2-й Этап. Folds of Honor QuikTrip 500.
-Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AEEA5B750B9402ED82D426CA362044B7E758E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295975   (615065) от 15.04.2019
-
-NASCAR-2019. 1-й Этап. Дайтона 500. Гонка / Monster Energy NASCAR Cup Series 2019. Daytona 500. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615065.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Cup Series - Сезон 2019 года
-Воскресенье, 17 февраля 2019 года. Дейтона-Бич (штат Флорида, США).
-1-й Этап. Daytona 500.
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B58E891B0EBD95A11961BDA5D4964FDCCA26A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523993   (614965) от 17.07.2012
-
-NG: Суперсооружения: Мегазаводы. Мишлен / MegaStructures. Megafactories: Michelin (2011) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Michelin (произносится Мишле́н) — французская компания, производитель шин. Полное наименование — Compagnie Générale des Établissements Michelin. Штаб-квартира — в Клермон-Ферране. По организационно-правовой форме является акционерной коммандитой. Компания выпускает широкий спектр шинной продукции для автомобильной, сельскохозяйственной техники, велосипедов и мотоциклов, а также самолётов. Также компания знаменита своими картами и путеводителями ViaMichelin. Компании принадлежит 69 заводов в 19 странах. Загляните внутрь одного из крупнейших шинных заводов, производящих шины для разных видов транспорта, от мотоциклов до космического шаттла.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C358FBE6B34FDCD29FC264BA5A8C9BD089779C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523918   (614838) от 17.07.2012
-
-NG: Суперсооружения: Мегазаводы. Frito Lay / MegaStructures. Megafactories: Frito Lay (2011) HDTVRip [H.264/720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614838.jpg" />
-</div>
-
-
-###  Подробнее
-
-На заводе Фрито Лей настала жаркая пора – подготовка ко Дню независимости. На следующей неделе персонал завода произведет свыше миллиона килограммов Доритос, Фритос и американской классики. На заводе круглосуточно будут работать 12 производственных линий. Чипсы будут расфасованы, упакованы и отправлены на полки магазинов. Нужно успеть к праздничному столу. Это будет не простое 4 июля на мегазаводе Фрито Лей.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3033A906E25A449849710951B3B8408FC30BD04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145993   (614774) от 29.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа A. 3-й тур. Мексика — Россия (24.06.2017) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614774.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 июня 2017 года, суббота. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа A. 3-й тур
-Мексика — Россия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русские (Отключаемые)Продолжительность: 01:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4EEF0E668A9E7756D4D5E05D87E391EB948E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

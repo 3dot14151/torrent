@@ -6,7 +6,7 @@ Wondershare Filmora 9.0.7.4 (x64) Repack by elchupacabra (03.02.2019) + Effect P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759744.jpg" />
+  <img src="Z:/picture/008/save_picture_759744.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.23 (2403) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759720.jpg" />
+  <img src="Z:/picture/008/save_picture_759720.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Air Explorer Pro 2.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759713.jpg" />
+  <img src="Z:/picture/008/save_picture_759713.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Speccy 1.01.132 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759671.jpg" />
+  <img src="Z:/picture/008/save_picture_759671.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hetman Partition Recovery 4.2 Unlimited Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759646.jpg" />
+  <img src="Z:/picture/008/save_picture_759646.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Air Explorer Pro 2.2.0 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759610.jpg" />
+  <img src="Z:/picture/008/save_picture_759610.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Any Video Converter Professional 6.2.3 RePack (& Portable) by TryRooM  [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759608.jpg" />
+  <img src="Z:/picture/008/save_picture_759608.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Zentimo xStorage Manager v1.0.2.949 Beta [ML]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759569.jpg" />
+  <img src="Z:/picture/008/save_picture_759569.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Viber 8.5.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759543.jpg" />
+  <img src="Z:/picture/008/save_picture_759543.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Nox App Player 6.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759538.jpg" />
+  <img src="Z:/picture/008/save_picture_759538.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Tixati 2.57 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759533.jpg" />
+  <img src="Z:/picture/008/save_picture_759533.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FastStone Capture 8.9 Final RePack (& portable) by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759447.jpg" />
+  <img src="Z:/picture/008/save_picture_759447.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Auslogics BoostSpeed 5.0.6.250 (от 05.04.2011) [RU/EN] | by Dopex REPACK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759415.jpg" />
+  <img src="Z:/picture/008/save_picture_759415.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DriverPack Solution 17.7.73.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759360.jpg" />
+  <img src="Z:/picture/008/save_picture_759360.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2403) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759359.jpg" />
+  <img src="Z:/picture/008/save_picture_759359.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Realtek High Definition Audio Driver R2.59 [Многоязычный]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759316.jpg" />
+  <img src="Z:/picture/008/save_picture_759316.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adobe Photoshop CS5 Extended Lite v12.0.0 (RU|EN) [х86/х64] Unattended
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759255.jpg" />
+  <img src="Z:/picture/005/save_picture_759255.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Chromodo Browser  49.13.20.402 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759189.jpg" />
+  <img src="Z:/picture/008/save_picture_759189.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Wise Disk Cleaner 9.24.643 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759187.jpg" />
+  <img src="Z:/picture/008/save_picture_759187.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Tag&Rename 3.8.7 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759106.jpg" />
+  <img src="Z:/picture/008/save_picture_759106.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ PicturesToExe Deluxe 8.0.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759102.jpg" />
+  <img src="Z:/picture/008/save_picture_759102.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ K-Lite Codec Pack Update 12.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759092.jpg" />
+  <img src="Z:/picture/008/save_picture_759092.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ DVDFab 9.2.4.2 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759085.jpg" />
+  <img src="Z:/picture/008/save_picture_759085.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759081.jpg" />
+  <img src="Z:/picture/008/save_picture_759081.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Image Uploader 1.3.1 Build 4313 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759043.jpg" />
+  <img src="Z:/picture/008/save_picture_759043.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windows 10 Manager 1.1.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759030.jpg" />
+  <img src="Z:/picture/008/save_picture_759030.jpg" />
 </div>
 
 

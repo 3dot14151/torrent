@@ -1,3 +1,84 @@
+###  Публикация: 1421538   (317660) от 05.11.2020
+
+Ковчег (изд.) | Книга о Пресвятой Богородице (2000) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земная жизнь Пресвятой Богородицы. Прославленные иконы Божией Матери: их происхождение, древние и новые чудеса. Молитвы ко Пресвятой Богородице.
+
+Божия Матерь, Приснодева Мария, есть высшее существо из всех сотворённых разумных существ, несравненно высшее самых высших Ангелов, Херувимов и Серафимов, несравненно высшее всех святых человеков.
+(   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5333FC4E3CA1BB1468A121A8FA6DFEA011B0F488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728404   (317551) от 29.11.2013
+
+В.В. Болотов | Лекции по истории Древней Церкви. [Том 1-4] (1907-1918) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Васильевич Болотов (1853-1900) - русский историк и филолог, член-корреспондент Императорской Академии наук по разряду историко-политических наук. Главный научный интерес Болотова был связан с изучением истории Ближнего Востока и прежде всего - церковной истории. Степень глубины и тщательности, с которой Болотов подходил к изучению интересующей его темы, поражает. (   Читать дальше...   )Жанр: Религиозная литература, история церквиЯзык: Русский (дореформенный)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B50F24475037B4EAC9E1EB5D3D29213BD36941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959275   (317397) от 24.11.2015
+
+И.В. Шкуратова | Советское государство и внешнеполитическая деятельность Русской Православной Церкви. 1945-1961 гг. (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью данного исследования ставится возможность определить роль РПЦ как фактора международных отношений к контексте внешней политики Советского государства, осуществляемой в условиях «холодной войны»; проследить на документальном материале развитие православно-католических и православно-экуменических отношений от приоритетов конфессиональной исключительности к диалогу.Жанр: ДиссертацияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741A371A8C81D60F5D94F3741859801AF87D0564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959239   (317379) от 24.11.2015
 
 А. Ф. Окулов и др. (отв. ред.) | Вопросы научного атеизма [31 выпуск] (1966-1989) [DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317379.jpg" />
+  <img src="Z:/picture/008/save_picture_317379.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317309.jpg" />
+  <img src="Z:/picture/008/save_picture_317309.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316956.jpg" />
+  <img src="Z:/picture/008/save_picture_316956.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316770.jpg" />
+  <img src="Z:/picture/008/save_picture_316770.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315176.jpg" />
+  <img src="Z:/picture/008/save_picture_315176.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315064.jpg" />
+  <img src="Z:/picture/008/save_picture_315064.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314888.jpg" />
+  <img src="Z:/picture/008/save_picture_314888.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313446.jpg" />
+  <img src="Z:/picture/008/save_picture_313446.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313150.jpg" />
+  <img src="Z:/picture/008/save_picture_313150.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312783.jpg" />
+  <img src="Z:/picture/008/save_picture_312783.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312556.jpg" />
+  <img src="Z:/picture/008/save_picture_312556.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312483.jpg" />
+  <img src="Z:/picture/008/save_picture_312483.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312019.jpg" />
+  <img src="Z:/picture/008/save_picture_312019.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311316.jpg" />
+  <img src="Z:/picture/008/save_picture_311316.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310819.jpg" />
+  <img src="Z:/picture/008/save_picture_310819.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310071.jpg" />
+  <img src="Z:/picture/008/save_picture_310071.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308848.jpg" />
+  <img src="Z:/picture/008/save_picture_308848.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308680.jpg" />
+  <img src="Z:/picture/008/save_picture_308680.jpg" />
 </div>
 
 
@@ -484,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307968.jpg" />
+  <img src="Z:/picture/008/save_picture_307968.jpg" />
 </div>
 
 
@@ -510,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307686.jpg" />
+  <img src="Z:/picture/008/save_picture_307686.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306291.jpg" />
+  <img src="Z:/picture/008/save_picture_306291.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306041.jpg" />
+  <img src="Z:/picture/008/save_picture_306041.jpg" />
 </div>
 
 
@@ -588,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305634.jpg" />
+  <img src="Z:/picture/008/save_picture_305634.jpg" />
 </div>
 
 
@@ -599,85 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F072264F282A2181EDBF3766FC48A4B2A4A68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183929   (305548) от 15.11.2017
-
-Преподобный Симеон Новый Богослов | Творения преподобного Симеона Нового Богослова. Слова и гимны [3 книги] (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305548.jpg" />
-</div>
-
-
-###  Подробнее
-
-В истории христианства третьим духовным писателем, к имени которого придано поименование Богослов, является преподобный Симеон Новый Богослов. Святой отец поучениями устными, а позднее и письменными проповедовал свой личный опыт сокровенного общения с Господом.
-       Русские православные люди познакомились с творениями Симеона Нового Богослова благодаря переводческим трудам (   Читать дальше...   )Жанр: ПравославиеПеревод: Святитель Феофан Затворник ВышенскийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDD4AB11CB91DC0A89CF3F8646A4D0F73DB4027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183875   (305533) от 15.11.2017
-
-И. В. Попов | Труды по патрологии [2 книги] (2005) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: Православие, патрологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5334F0E39C164BE096ED0AE4D5197CF2166F8869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894329   (305307) от 29.11.2015
-
-Св. Фома Аквинский | Сумма теологии [V Томов] (2006 - 2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сумма теологии` (Summa Theologica) - одно из самых знаменитых в истории философии произведений, главный труд великого христианского философа и богослова, крупнейшего схоласта и метафизика святого Фомы Аквинского (1225-1274), чья теология - по меткому определению Жильсона - это теология философа, а философия - философия христианского святого. Вся `Сумма...` состоит (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84E3ECFF5611A140B58D62BA2D4B8B01BD7B907
 ```
 
 https://mybot314.ru/tekegram_catalog/

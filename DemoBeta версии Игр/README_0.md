@@ -1,3 +1,133 @@
+###  Публикация: 1850205   (1054296) от 14.02.2026
+
+R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054296.jpg" />
+</div>
+
+
+###  Подробнее
+
+R.I.P. органично сочетает град пуль из Vampire Survivors с прогрессией, завязанной на снаряжении, из серии игр Diablo. Мир кишит коррозионными вирусами и зомби, вы - элитный сотрудник R.I.P., и ваша цель проста: избавиться от нескончаемых орд физическими методами. Убивайте монстров, подбирайте добычу, перекраивайте снаряжение и собирайте различные комплекты - это (   Читать дальше...   )Тип издания: RepackРазработчик: WarmCore StudioЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Японский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Японский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B0A7C1A70D1E9E2BA7920290CF13A991AD0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850307   (1054175) от 03.02.2026
+
+Winnie's Hole (2026) [Ru/Multi] (0.7.79) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тело всеми любимого медведя Винни контролирует злобный вирус, и этот вирус – ты! Захватывай здоровые клетки, мутируй и собирай колоду действий, чтобы использовать их в пошаговых боях. Возможности носителя не безграничны. Но твои способности к адаптации помогут предолеть эти ограничения. И помни: монстры кроются даже в лучших из нас.Тип издания: RepackРазработчик: Twice DifferentЖанр: Инди, Стратегии,Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBAC617A89475511EAD935CC6BE181270F1AF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849877   (1053920) от 25.01.2026
+
+StarRupture (2026) [Ru/Multi] (0.1.1 112941-S/dlc) Repack seleZen [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053920.jpg" />
+</div>
+
+
+###  Подробнее
+
+StarRupture - игра от первого лица, где вам предстоит исследовать открытый мир и строить базы. Играйте в одиночку или с друзьями, добывайте ресурсы на изменчивой планете, создайте замысловатую промышленную систему и дайте отпор ордам инопланетных чудовищ. Исследуйте таинственную планету в изменчивом открытом мире, охваченном постоянными катастрофами. Постройте замысловатую (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CDDE6B0DF59929E5ADDB7F72DBC6B0E9709BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849859   (1053913) от 27.01.2026
+
+LORT (2026) [Ru/Multi] (0.5.2) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053913.jpg" />
+</div>
+
+
+###  Подробнее
+
+LORT - кооперативный роулайт-экшен, главная цель в котором заключается в преодолении проклятия, наложенного на фэнтезийный мир. Путь персонажей, рассчитанный на совместное прохождение группой до 8 человек, пролегает от статуса скромных бойцов до сокрушителей могущественных созданий. Противостояние гигантским боссам требует изучения их тактики и использования уязвимостей (   Читать дальше...   )Тип издания: RepackРазработчик: Big DistractionЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6894A99963D8F502BD2A3797C364840DB58ED79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849452   (1053494) от 23.01.2026
+
+My Winter Car (2025) [Ru/Multi] (build 21360632) Repack seleZen [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о теплых летних днях. Приготовьтесь к настоящему испытанию выживания в суровых условиях заснеженной Финляндии. My Winter Car – это не просто продолжение культового My Summer Car, это погружение в мир механики, борьбы за выживание и непреодолимого желания создать что-то свое. Вам предстоит взять в руки старую, потрепанную жизнью машину и превратить ее в шедевр. (   Читать дальше...   )Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: Русский, Английский, ФинскийЯзык интерфейса: Русский, Английский, Финский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD55BC1E2A4F48EEF4BE11CA94A9B2DE85814D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849102   (1053286) от 21.01.2026
 
 Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
@@ -6,7 +136,7 @@ Overthrown (2024) [Ru/Multi] (b19669165) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053286.jpg" />
+  <img src="Z:/picture/005/save_picture_1053286.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ DDoD (2026) [Multi] (СL-42080) Repack Let'sРlay [Playtest]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051553.jpg" />
+  <img src="Z:/picture/005/save_picture_1051553.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Stationeers (2017) [Ru/Multi] (0.2.5919.26060) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051461.jpg" />
+  <img src="Z:/picture/005/save_picture_1051461.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Typhon: Bot vs Bot (2025) [En] (0.1.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050218.jpg" />
+  <img src="Z:/picture/005/save_picture_1050218.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ Fata Deum - The God Sim / Fata Deum - Симулятор Бога (2025) [Ru/Mul
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049659.jpg" />
+  <img src="Z:/picture/005/save_picture_1049659.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ DeadPoly (2022) [En] (0.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049603.jpg" />
+  <img src="Z:/picture/005/save_picture_1049603.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ He is Coming (2025) [Ru/Multi] (0.8.33) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049439.jpg" />
+  <img src="Z:/picture/008/save_picture_1049439.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Star Birds (2025) [Ru/Multi] (0.1.1b) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049390.jpg" />
+  <img src="Z:/picture/008/save_picture_1049390.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Project Zomboid (2013) [Ru/Multi] (42.13.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049119.jpg" />
+  <img src="Z:/picture/008/save_picture_1049119.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Whiskerwood (2025) [Ru/Multi] (0.6.157.0) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048501.jpg" />
+  <img src="Z:/picture/008/save_picture_1048501.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.62EA) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047646.jpg" />
+  <img src="Z:/picture/008/save_picture_1047646.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ Call to Arms: Panzer Elite (2025) [En] (0.04.02/dlc) Repack Let'sРlay [Supporte
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046885.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ DYSMANTLE (2020) [Ru] (0.6.5.15) Unofficial KASaLEX [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038925.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ Sons Of The Forest (2023) [Ru/Multi] (32361) Repack Chovka [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035244.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ My Summer Car (2016) [En] (22.02.23) Repack Nouhelgod [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031740.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029844.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ Medieval Dynasty (2020) [Ru/Multi] (0.3.1.4) Repack xatab [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029830.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ Grounded (2020) [Ru/Multi] (0.7.1.2935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028260.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.8.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027432.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026831.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ Outer Colony (2017) [En] (0.5.53) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006444.jpg" />
 </div>
 
 
@@ -537,139 +667,6 @@ Outer Colony - грандиозный научно-фантастический 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384531AF8186E5AA971274E2A257AF3676F8169A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484225   (1006216) от 18.07.2021
-
-The Architect: Paris (2021) [Ru/Multi] (0.8.2) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006216.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Architect: Paris (TA:P) - строительная игра. Превратите столицу Франции в город средневекового или футуристического вида, постройте деловой район, окруженный парками, создайте гигантские площади, достойные величайших советских городов, представьте себе кварталы, в которых историческая архитектура сочетается с самыми современными стилями...Тип издания: LicenseРазработчик: Enodo GamesЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B768552A214A122DA0EF035B9541FA19787790F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601093   (998165) от 10.01.2013
-
-StarCraft II: Heart of The Swarm [En] (Beta) 2013 | [Установленная]
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998165.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Королевой Клинков покончено. На страшной планете Чар, в отчаянной попытке остановить нашествие зергов на сектор Копрулу, Джим Рейнор привел в действие древний артефакт Зел’нага. Под его воздействием к Саре Керриган вернулся человеческий облик. Зерги остались без королевы: ни командовать ими, ни объединять их больше было некому. Рой распался на несколько стай, которые рассеялись по сектору Копрулу. Одну из величайших угроз для Вселенной удалось нейтрализовать.
-
-Однако Сара Керриган осталась в живых. И хотя у нее больше нет ни чудовищного могущества Королевы Клинков, ни Роя зергов под началом, бывший «призрак» — по-прежнему опасный противник. И если артефакт действительно освободил ее, то почему она разыскивает стаи зергов, разбросанные по Копрулу? Что случилось с Рейнором? Одержима ли Керриган, как прежде, жаждой мести — или после перерождения у нее появилась и новая цель?
-Кто же такая на самом деле Сара Керриган?(   Читать дальше...   )Тип издания: BetaЖанр: Strategy (Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD704E9F5D9D646D95A4A275D2CAD623C100F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088914   (954799) от 01.01.2017
-
-Out of Reach (2015) [Ru/Multi] (0.24) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – выброшенная на неизвестный берег жертва кораблекрушения. Шторм прошел, но худшее еще впереди. Ищите еду и ресурсы, мастерите снаряжение, постройте укрытие. Это – основы, но для того, чтобы остаться здесь в живых, вам потребуется намного большее.Тип издания: RepackРазработчик: Space Boat StudiosЖанр: Simulator, Strategy, RPGЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BF54A48C7D490B9CE1727241960917E8966EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090793   (945429) от 07.01.2017
-
-Empyrion - Galactic Survival (2015) [Ru/Multi] (5.0.3.0792) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empyrion - Galactic Survival — это приключенческий космосим, в котором игрок может летать с планеты на планету, строить станции и корабли, а так же сражаться с таинственными противниками - как в одиночку, так и в кооперативе.Тип издания: RepackРазработчик: Eleon Game StudiosЖанр: Adventure (Space, Survival), Simulator, 1st Person, 3rd PersonЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A8F9DE5CAAB33DC04008C7BA16F48E0BF73B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091148   (943972) от 08.01.2017
-
-Space Engineers (2013) [Ru/Multi] (01.169.001) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Engineers или Космические инженеры – это игра в которой вам предстоит создавать различные космические объекты. Перед вами целая вселенная для вашего творчества. Управлять вы будете обычным космонавтом. Стройте корабли, базы и любые другие приспособления, но не забывайте, что для постройке вам нужен материал, который вы и будете искать по всей вселенной. Разрабатывайте (   Читать дальше...   )Тип издания: RepackРазработчик: Keen Software HouseЖанр: Simulator (Space), 3D, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB131B9AFCB3B052B3C91D37150DD972F7F71FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

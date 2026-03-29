@@ -1,3 +1,148 @@
+###  Публикация: 1635860   (233000) от 27.05.2023
+
+Formosa - Bittersweet (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Desire (3:27)
+02. Horns Up (3:00)
+03. Melinda (3:02)
+04. Fight the Fire (4:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433C7D188AC7913EF25F5D794262E351159915EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636633   (232871) от 01.06.2023
+
+Protz - In Dog We Trust (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_232871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Work No More (3:51)
+02. In Dog We Trust (4:18)
+03. 2.65 (3:15)
+04. Wonderland (4:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D7A74540C47E4A5652A9669FE1849A4666D556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636895   (232861) от 01.06.2023
+
+The Ducks - High Flyin' (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_232861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am a Dreamer (4:25)
+02. Younger Days (3:45)
+03. Gypsy Wedding (2:45)
+04. Are You Ready For The Country - (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C0C77C1B918FDE92CAAB3D0B9206679EAED927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544459   (232780) от 16.04.2022
+
+Crimson Chrysalis - Enraptured (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Symphonic Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232780.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Soul Stalker - 04:16
+2. Surrender - 03:50
+3. Elegy - 04:17
+4. Sacred Vow - 04:49(   Читать дальше...   )Жанр: Progressive Symphonic Rock, Gothic RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C05DD5EE6B79E12EF88E286217608F61702DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639530   (232722) от 13.06.2023
+
+Ockra - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspection [00:01:54]
+02. Weightless Again [00:08:37]
+03. Tree I Planted [00:06:25]
+04. Acceptance [00:05:49](   Читать дальше...   )Жанр: Doom ProgПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF3E70BEB2AA79871470BD5D35EBC893066910E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548245   (232668) от 02.05.2022
 
 Kentucky Ruckus - Space Is a Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
@@ -6,7 +151,7 @@ Kentucky Ruckus - Space Is a Place (2022) [FLAC|Lossless|WEB-DL|tracks] <Souther
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232668.jpg" />
+  <img src="Z:/picture/005/save_picture_232668.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Feelers - Reimagined - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232642.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Chicago - Summer In Chicago (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232641.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Eye of the Atlas - Eye of the Atlas (2023) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232611.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Il Cerchio d'Oro - Pangea e Le Tre Lune (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232517.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Janet Gardner - Justin James - No Strings (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232493.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ King Howl - Homecoming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232462.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Cottage Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232430.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Rock-H (Рокаш) - 4 Albums + 3 Single (2012-2021) [FLAC|Lossless|tracks] <Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232368.jpg" />
+  <img src="Z:/picture/005/save_picture_232368.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Hanlon's Razor - Stockholm (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232297.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ The Ocean - Holocene (2023) [FLAC|Lossless|tracks + .cue] <Prog-Rock Related, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232278.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Prometheo - Stupor Mundi Vol. I (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232235.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Marco Ragni - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232220.jpg" />
 </div>
 
 
@@ -381,7 +526,7 @@ Houston - Re-Launch III (2023) [FLAC|Lossless|WEB-DL|tracks] <Vintage-Melodic-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232206.jpg" />
 </div>
 
 
@@ -410,7 +555,7 @@ Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232190.jpg" />
 </div>
 
 
@@ -439,7 +584,7 @@ Eugene Tooms - Exhale and Ride Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232181.jpg" />
+  <img src="Z:/picture/005/save_picture_232181.jpg" />
 </div>
 
 
@@ -468,7 +613,7 @@ Secret Discovery - Truth, Faith, Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232174.jpg" />
+  <img src="Z:/picture/005/save_picture_232174.jpg" />
 </div>
 
 
@@ -497,7 +642,7 @@ Mecca - Everlasting (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232108.jpg" />
 </div>
 
 
@@ -526,7 +671,7 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232098.jpg" />
 </div>
 
 
@@ -555,7 +700,7 @@ Ring van Mobius - Commissioned Works Pt II - Six Drops Of Poison (2023) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232014.jpg" />
 </div>
 
 
@@ -584,7 +729,7 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232000.jpg" />
 </div>
 
 
@@ -598,151 +743,6 @@ The Mighty Bard - Beyond The Gate (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053DC4AA676592BC8557FB8B24FF7F29197E7CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646908   (231944) от 16.07.2023
-
-Lee Small - The Last Man On Earth (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Man On Earth (4:51)
-02. Neon Heartbeat (4:30)
-03. Let's Go Together (5:20)
-04. You're Not The Only One (3:47)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40A3D5437D25FC8E82F61521CD412538F9C8579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645161   (231943) от 08.07.2023
-
-John Greenwood - Dark Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Piece of Rosco Vidal (12:08)
-02. Too Late! (06:43)
-03. Too Late! Reprise, introducing The Ocean (02:42)
-04. The Ocean (16:00)(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4B81DC93A4FF282BCCFD493F1C9F89ADA2D916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646947   (231907) от 16.07.2023
-
-Steve Lukather - Bridges (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Far From Over (3:59)
-2. Not My Kind Of People (3:56)
-3. Someone (4:09)
-4. All Forevers Must End (4:20)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36612AD957B5274090DD209FB5F99225C0AD74F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646811   (231870) от 16.07.2023
-
-Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whenever It Rains (3:52)
-02. Until My Heart (4:14)
-03. Scent of a Rose (4:45)
-04. Tears in My Eyes (4:08)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD67AC5FEAA7F25DE0210A26A7DECF343CC9176D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635690   (231819) от 27.05.2023
-
-Vermilion Whiskey - Crimson & Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Southern Metal, Stoner, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Intro
-02. Down On You
-03. The Get Down
-04. Confidence(   Читать дальше...   )Жанр: Heavy Rock, Southern Metal, Stoner, SludgeПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7CB25311CB7FFFFE76555505ED5CC594028E316
 ```
 
 https://mybot314.ru/tekegram_catalog/

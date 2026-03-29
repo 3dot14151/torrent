@@ -1,3 +1,55 @@
+###  Публикация: 1130821   (712270) от 03.05.2017
+
+The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_712270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь к блистательным истокам знаменитой серии Journeyman Project в этой улучшенной версии, выпущенной к годовщине игры. Приготовьтесь к путешествию во времени в качестве Агента 5, который отчаянно пытается остановить таинственного террориста, ответственного за серию «разрывов» в пространственно-временном континууме. Побывайте в удивительных мирах, где вас ждут (   Читать дальше...   )Тип издания: LicenseРазработчик: Presto StudiosЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532814   (710319) от 21.02.2022
+
+Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_710319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мир Древнего Египта, начиная с эпохи пирамид и заканчивая последними годами Нового царства. Вам подвластны все сферы жизни этой экзотической страны – от религии до торговли с далекими городами. Создавайте земледельческие хозяйства в долине Нила и откройте для себя важнейшую роль, которую эта река с ее непредсказуемыми разливами играла в жизни египтян. (   Читать дальше...   )Тип издания: LicenseРазработчик: Impressions GamesЖанр: Стратегия, Симулятор, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131112   (710214) от 04.05.2017
 
 FireStarter (2004) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710214.jpg" />
+  <img src="Z:/picture/008/save_picture_710214.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710211.jpg" />
+  <img src="Z:/picture/008/save_picture_710211.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708435.jpg" />
+  <img src="Z:/picture/008/save_picture_708435.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699499.jpg" />
+  <img src="Z:/picture/005/save_picture_699499.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694809.jpg" />
+  <img src="Z:/picture/008/save_picture_694809.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693410.jpg" />
+  <img src="Z:/picture/008/save_picture_693410.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690122.jpg" />
+  <img src="Z:/picture/008/save_picture_690122.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690114.jpg" />
+  <img src="Z:/picture/008/save_picture_690114.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689236.jpg" />
+  <img src="Z:/picture/008/save_picture_689236.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687821.jpg" />
+  <img src="Z:/picture/008/save_picture_687821.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686745.jpg" />
+  <img src="Z:/picture/008/save_picture_686745.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684993.jpg" />
+  <img src="Z:/picture/008/save_picture_684993.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684989.jpg" />
+  <img src="Z:/picture/008/save_picture_684989.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683602.jpg" />
+  <img src="Z:/picture/008/save_picture_683602.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681108.jpg" />
+  <img src="Z:/picture/005/save_picture_681108.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678496.jpg" />
+  <img src="Z:/picture/008/save_picture_678496.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678422.jpg" />
+  <img src="Z:/picture/005/save_picture_678422.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678416.jpg" />
+  <img src="Z:/picture/008/save_picture_678416.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677877.jpg" />
+  <img src="Z:/picture/008/save_picture_677877.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676511.jpg" />
+  <img src="Z:/picture/008/save_picture_676511.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676210.jpg" />
+  <img src="Z:/picture/008/save_picture_676210.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Action Legion (2016) [En] (1.2.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675700.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_674133.jpg" />
+  <img src="Z:/picture/005/save_picture_674133.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_674011.jpg" />
+  <img src="Z:/picture/005/save_picture_674011.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509417   (673878) от 12.06.2012
-
-Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673878.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Wolfenstein 3D игрок управляет солдатом, пытающимся бежать из одноимённой нацистской крепости; ему противостоит множество вооружённых охранников и сторожевых собак. Здание наполнено потайными комнатами, где хранятся разного рода драгоценности, пищевые продукты и медицинские аптечки, а также различное оружие и боеприпасы. Игрок двигается по уровням игры, в конце каждого сюжетного эпизода предстоит схватка с «финальным боссом» — особенно сильным противником, для победы над которым требуется немало усилий со стороны игрока.(   Читать дальше...   )Тип издания: RePackЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1618ED1717C777CF152ACFF38FC590F0EF4E084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290890   (673828) от 22.03.2019
-
-Bio Menace (1993) [En] (1.1) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражайтесь не на жизнь, а на смерть со свирепыми монстрами, порождениями безумного злого гения, вместе с крутым агентом ЦРУ Снейком Логаном. Ваша цель – остановить злоумышленника, по чьей вине полчища мутантов угрожают захватить мир. Вас ждут путешествия вокруг света, спасение заложников, битвы с монстрами и столкновения с мерзкими прихвостнями главного злодея, а (   Читать дальше...   )Тип издания: LicenseРазработчик: Apogee Software, Ltd.Жанр: Шутер, Экшн, ФантастикаЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9A4066C8A3A242258F33369177D96700C1D87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

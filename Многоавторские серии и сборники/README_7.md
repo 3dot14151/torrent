@@ -1,3 +1,113 @@
+###  Публикация: 506769   (934383) от 11.03.2013
+
+Книжная серия "Библиотека Мужского клуба" (20 томов) [2005 – 2010] [FB2, PDF, DJVU]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Библиотека Мужского клуба - серия динамичных и веселых книжек издательства Крылов, смесь фэнтези и детектива. В ней выходили произведения авторов - Сергея Панарина, Александра Быкова, Ирины Пушкаревой и других. У Панарина в этой серии вышли три цикла - Волшебная самоволка, Тамбовский квартет и Харри Проглоттер.Формат: FB2 (18 томов), PDF (1 том), DJVU (1 том)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EFE97407206739B20938011D2F210963199931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986881   (928764) от 15.02.2016
+
+Книжная серия | Силы специальных операций [3 книги] (2015-2016) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая серия издательства «Эксмо» посвященная подразделениям специального назначения. Пока в серии издаются книги только Сергея Зверева.
+
+Военный инструктор Олег Моджерин, прибывший в Африку для обучения местных солдат, по досадной ошибке был похищен мафией, промышляющей скупкой редкоземельных металлов. Офицера держат в плену, пытаясь выяснить, куда он спрятал деньги (   Читать дальше...   )Жанр: Военный боевик, СпецназФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F664385CF3861EB0D88158B951E7A9C59B1C876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544666   (925353) от 26.01.2015
+
+Книжная серия | Летописи Владигора [9 книг] (1996-2000) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупный цикл славянско-героического фэнтези — Летописи Владигора, начало которым положил своими романами «Владигор», «Тайна Владигора» и «Меч Владигора» Леонид Бутяков. Наверное, именно заглавного героя этого сериала — языческого князя, хранителя времени — можно со всеми вытекающими назвать русским Конаном.
+  Судьба не баловала его, и если возносила на княжеский трон, то лишь затем, чтобы потом низвергнуть в трюм пиратской галеры. Он не был великим воином, хотя меча его опасались многие. Его не считали волшебником, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622EDCB1E94FB58EF99644711349F368D46D42CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958720   (923644) от 21.01.2017
+
+Книжная серия | Другие миры [24 книги. Обновляемая] (2015-2017) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Другие миры - новая серия отечественной фантастики о поисках любви в других мирах.
+Как сказал Евгений Петросян: «Вас ждут непередаваемые очучения!»
+
+Лорд Элвин,маг из Братства Стражей, привык к могуществу и безнаказанности. Встреча с обычной человеческой девушкой станет для него началом пути потерь и обретений.(   Читать дальше...   )Жанр: Юмористическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF160B013EF75C2E34A6243538A4D27EB49304A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989666   (915422) от 23.02.2016
 
 Павел Березов (сост.) | Ленин и Сталин в творчестве народов СССР (1938) [DJVU]
@@ -6,7 +116,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915422.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915118.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913774.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910163.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909319.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904200.jpg" />
 </div>
 
 
@@ -164,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904177.jpg" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903303.jpg" />
 </div>
 
 
@@ -216,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901749.jpg" />
 </div>
 
 
@@ -242,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898790.jpg" />
 </div>
 
 
@@ -268,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895017.jpg" />
 </div>
 
 
@@ -295,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891725.jpg" />
 </div>
 
 
@@ -322,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890723.jpg" />
 </div>
 
 
@@ -349,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890686.jpg" />
 </div>
 
 
@@ -377,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887239.jpg" />
+  <img src="Z:/picture/005/save_picture_887239.jpg" />
 </div>
 
 
@@ -405,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886260.jpg" />
+  <img src="Z:/picture/005/save_picture_886260.jpg" />
 </div>
 
 
@@ -432,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884557.jpg" />
+  <img src="Z:/picture/005/save_picture_884557.jpg" />
 </div>
 
 
@@ -460,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882284.jpg" />
+  <img src="Z:/picture/005/save_picture_882284.jpg" />
 </div>
 
 
@@ -489,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882244.jpg" />
+  <img src="Z:/picture/005/save_picture_882244.jpg" />
 </div>
 
 
@@ -517,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878616.jpg" />
+  <img src="Z:/picture/005/save_picture_878616.jpg" />
 </div>
 
 
@@ -546,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876577.jpg" />
+  <img src="Z:/picture/005/save_picture_876577.jpg" />
 </div>
 
 
@@ -574,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876300.jpg" />
+  <img src="Z:/picture/005/save_picture_876300.jpg" />
 </div>
 
 
@@ -585,113 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C01367A7D11BACE94CD1FC14D17189349103BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544638   (874686) от 18.02.2017
-
-Книжная серия | Зона риска [63 книги] (1995-2012) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зона риска выпускалась сначала издательством Вече в 1995-1998 годах, а затем издательством Центрполиграф (2002-2012).
-Здесь представлены книги обоих издательств.Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76F04A02CD45EF66D46A67381980641DBD9169E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300811   (874179) от 25.02.2011
-
-Мистика | Сборник книг [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD78019D9EDD667DDA39D3567AFC74E71D598760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300825   (872297) от 26.02.2011
-
-Серия "Классика приключенческого романа" | 2007-2010 [fb2, doc, rtf]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872297.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007-2010Жанр: ПриключенияФормат: fb2, doc, rtf
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301530   (870421) от 27.02.2011
-
-Книжная серия | Классическая  библиотека приключений и научной фантастики [119 книг] (1996-2000) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серию "Классическая библиотека приключений и научной фантастики" можно считать продолжением старой серии "Библиотека приключений и научной фантастики" (БПНФ, "Рамка"), поскольку произведения практически не повторяются. Серию выпускал "Центрполиграф" в 1996-2000 годах.
-
-Замечательные фантастические произведения известных авторов, (   Читать дальше...   )Жанр: Научная фантастика, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3B7055C388A9088FCF2CFB7449D3A4183DBC76
 ```
 
 https://mybot314.ru/tekegram_catalog/

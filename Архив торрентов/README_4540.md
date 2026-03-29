@@ -1,26 +1,22 @@
-###  Публикация: 469516   (96886) от 17.03.2012
+###  Публикация: 469155   (96995) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 13
+Александр Ян | Партизаны Луны [2011] [FB2]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 13
-Название: Avto Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+В середине XXI века мир погрузился в Полночь - период войн и катастроф. И когда человечество оказалось на грани гибели, явились они. Высокие господа. Вампиры. Новая стадия эволюции? Высшее звено в пищевой цепочке? Симбионты? Паразиты? Носители давно известного, но неисследованного заболевания? Или одержимые, заключившие сделку с дьяволом? Они установили порядок, спасли род людской от хаоса, пандемий и взаимоистребления. Они держат хрупкое равновесие на своих плечах. Стоит ли это цены, которую платит им человечество? Горстка жизней в год, малая часть от целого. Многих такая цена устраивает. Но есть и те, кто посмел восстать против мира Полуночи.Формат: FB2, RTF, TXT, jar, JAD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC6DC7D0A5C79C06907CA6F0DD73BAB9B1529DA5
+magnet:?xt=urn:btih:400B1B0D555C054C5F9BFB23DD8D81BFBA9C42E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,29 +24,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469574   (96885) от 17.03.2012
+###  Публикация: 469147   (96989) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 90
+John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 90
-Название: Desktop Wallpapers Pack 90
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01.John O'Callaghan - Raw Deal (Exit Remix)
+ 02.John O'Callaghan, Thomas Bronzwaer - Stargazer (Mark Leanings Remix)
+ 03.John O'Callaghan - Stresstest (John Askew Remix)
+ 04.John O'Callaghan - Centurion (Chris Schweizer Remix)
+ 05.John O'Callaghan - Smokescreen (Sneijder Remix)
+ 06.John O'Callaghan - Stresstest (Heatbeat vs Kent & Gian Remix)
+ 07.John O'Callaghan, Betsie Larkin - Save This Moment (Sebastian Brandt Remix)
+ 08.John O'Callaghan - Psychic Sensor (Indecent Noise Remix)
+ 09.John O'Callaghan, Giuseppe Ottaviani - Ride The Wave (Will Atkinson Remix)
+ 10.John O'Callaghan, Audrey Gallagher - Big Sky feat. Audrey Gallagher (Ben Gold Festival Remix)(   Читать дальше...   )16.03.2012Жанр: TranceПродолжительность: 02:22:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9647169CC53D487BD7CD087DD52A8244574D31AD
+magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -58,29 +59,124 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469223   (96883) от 17.03.2012
+###  Публикация: 469499   (96987) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 75
+[Wallpapers] Sexy Girl Wallpapers Pack 36
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 75
-Название: Desktop Wallpapers Pack 75
+[Wallpapers] Sexy Girl Wallpapers Pack 36
+Название: Sexy Girl Wallpapers Pack 36
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1600х1200/1680х1050 до 2560х1600
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469495   (96984) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96984.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 35
+Название: Sexy Girl Wallpapers Pack 35
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469586   (96976) от 17.03.2012
+
+Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar-Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night After Night
+02. Time Never Sleeps
+03. Here We Go
+04. If Ever...
+05. Our Dance
+06. Desert Night
+07. Joyride
+08. Costa Rica
+09. My Lucky Day
+10. Requiem For A Princess(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Guitar-LoungeПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469459   (96975) от 17.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 34
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96975.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 34
+Название: Sexy Girl Wallpapers Pack 34
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:718ED7AF2F4BC43B1D3C552CBD3A51073EDCB943
+magnet:?xt=urn:btih:C1933FD7DA8051CDA2DB6FA365B78B46EF9BBD51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,21 +184,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469188   (96882) от 17.03.2012
+###  Публикация: 469058   (96972) от 17.03.2012
 
-Mozilla Thunderbird 12.0 Beta 1 [Русский]
+Машина для убийств / Icarus (2010) DVD5
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96882.jpg" />
+  <img src="Z:/picture/005/save_picture_96972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunderbird - простая и удобная бесплатная программа для работы с электронной почтой от Mozilla. Программа поддерживает протоколы SMTP, POP3, IMAP и RSS. Имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, расширяется за счет дополнительных модулей и фильтрует рекламу, а так же нежелательную корреспонденцию. Интерфейс программы основан на технологии XUL, разработанной Mozilla Foundation, в результате чего интерфейс на всех платформах выглядит так же, как у приложений, разработанных для этой конкретной платформы. Интерфейс программы прост и удобен в использовании, поддерживает смену скинов. Во второй версии программы включено множество новых возможностей, помогающих вам лучше управляться с бурным потоком информации, устремляющимся в ваш почтовый ящик и быть в курсе последних событий.Язык интерфейса: Русский
+Эдвард Дженн, в криминальном мире известный, как Икар, в обычной жизни — преуспевающий предприниматель и любящий отец. Однако, и у таких успешных людей, как он, есть свои скелеты в шкафу, и переходить такому человеку дорогу, — обрекать себя на верную гибель.
+
+Такие люди всё же находятся, но они пока не знают, что уготовил им отчаянный Икар, который будет бороться до конца, дабы защитить себя, свою семью, своих близких. Борьбы до победного конца не избежать…Жанр: Боевик, Триллер, ДрамаРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Стефани Фон Пфеттен, Саманта Феррис, Дэвид Льюис, Линдсэй Максвелл, Джон Тенч, Бо Свенсон, Кэтлин Магер, Моника Гандертон, Слави СлавовПеревод: Язык субтитров: русскийПродолжительность: 01:24:41
 
 ## Скачать торент
 ```bash
@@ -114,184 +212,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469000   (96880) от 17.03.2012
+###  Публикация: 469379   (96967) от 17.03.2012
 
-[Wallpapers] Nature Pictures №22
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96880.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №22
-Название: Nature Pictures №22
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 3900х2616
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9D4ADAE8C14D2E17450B1289DB58A688130CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469133   (96879) от 17.03.2012
-
-VA - Trance Maniacs Party: Progressive Session #34 (16.03.2012) [MP3|320 кб/с]<Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix) (7:39)
- 2. Indecent Noise - Battlestar (Sly One vs. Jurrane Dark Mix) (6:11)
- 3. Marcel Woods - Black Angus (Original Mix) (5:42)
- 4. Koele Vaten - Boom (Original Mix) (6:45)
- 5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
- 6. Spade - Do It Again (Original Mix) (8:16)
- 7. Tempo Giusto - Dodger (Original Mix) (8:29)
- 8. MDX - Drive Out (Marc Simz Remix) (6:27)
- 9. Mark Young & Damo Kay - Eight Legged Freak (Original Mix) (8:19)
- 10. Running Man - Eternity (Original Mix) (8:07)(   Читать дальше...   )16.03.2012Жанр: Progressive TranceПродолжительность: 03:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905356BE28F680FA47A6E9F275F94679D71983D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469192   (96878) от 17.03.2012
-
-[Wallpapers] Nature Pictures №23
+[Wallpapers] Desktop Wallpapers Pack 24
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №23
-Название: Nature Pictures №23
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E2D4EC63523CAC31F2C12CC6FB80B23EBE2808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469215   (96877) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 73
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96877.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 73
-Название: Desktop Wallpapers Pack 73
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99732C9C27862A302394A0722906E749813A3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469497   (96876) от 17.03.2012
-
-[Wallpapers] Nature Pictures №27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96876.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №27
-Название: Nature Pictures №27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200 - 1600x1280
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468491   (96875) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96875.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 12 
-Название:  Desktop Wallpapers Pack 12 
+[Wallpapers] Desktop Wallpapers Pack 24 
+Название:  Desktop Wallpapers Pack 24 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
+magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,29 +242,59 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468497   (96874) от 17.03.2012
+###  Публикация: 469546   (96965) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 14
+[Wallpapers] Sexy Girl Wallpapers Pack 37
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 14 
-Название:  Desktop Wallpapers Pack 14 
+[Wallpapers] Sexy Girl Wallpapers Pack 37
+Название: Sexy Girl Wallpapers Pack 37
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3931х2745
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469010   (96958) от 17.03.2012
+
+[Wallpapers] Animals Full HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96958.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Animals Full HD Wallpapers Pack 4 
+Название:  Animals Full HD Wallpapers Pack 4 
 Тип раздаваемого: Wallpapers
 Разрешение файлов: 1920х1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
+magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,34 +302,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469455   (96872) от 17.03.2012
+###  Публикация: 469375   (96957) от 17.03.2012
 
-VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
+[Wallpapers] Desktop Wallpapers Pack 22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96957.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 22 
+Название:  Desktop Wallpapers Pack 22 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478F899330CCBBE2E1D36C5E334C3D5ACB997FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469484   (96956) от 17.03.2012
+
+VA - 50 Miami Tunes 2012 (2012) [MP3|320 кб/с]<Trance, House, Progressive House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
-02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
-03. Hannah - Falling Away (Armin van Buuren Remix)
-04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
-05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
-06. Michelle Cecchi - One (Original Mix)
-07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
-08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
-09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
+VA - 50 Miami Tunes 2012 (2012)
+Год: 2012
+Жанр: Trance, House, Progressive House
+Продолжительность: 02:51:23Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Armin Van Buuren ft Adam Young - Youtopia (Radio Edit)
+02. Dash Berlin ft Jonathan Mendelsohn - World Falls Apart (Radio Mix)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+magnet:?xt=urn:btih:5654D84DF8E3F8D30B051AFAB021526B9936A8C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -364,29 +365,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469217   (96871) от 17.03.2012
+###  Публикация: 468991   (96953) от 17.03.2012
 
-[Wallpapers] Nature Pictures №24
+[Wallpapers] Sexy Girl Wallpapers Pack 31
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №24
-Название: Nature Pictures №24
+[Wallpapers] Sexy Girl Wallpapers Pack 31
+Название: Sexy Girl Wallpapers Pack 31
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
+Разрешение файлов: от 1920x1200
 Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
+magnet:?xt=urn:btih:C17B27CFD6CF69B03A15669FA3C1B3EFF6958B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,29 +395,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469225   (96870) от 17.03.2012
+###  Публикация: 469373   (96949) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 10
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting Trance>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96949.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 10
-Название: Avto Wallpapers Pack 10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 
+Год: 2012
+Жанр: Uplifting Trance
+Продолжительность: 04:41:00Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. John O'Callaghan ft Cathy Burton - Perfection (Shogun Remix)
+02. Kyau & Albert - Always A Fool (2011 Rework)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
+magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,29 +428,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469549   (96869) от 17.03.2012
+###  Публикация: 468752   (96948) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 89
+Свободная Стая (Маста Кэш и Женя Лир) - Кто я без тебя (2012) [MP3|320 кб/с]<Hip-Hop, Rock>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 89
-Название: Desktop Wallpapers Pack 89
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Мишель (интерлюдия)
+02. Мишель
+03. Приговор
+04. Скажи мне (интерлюдия)
+05. Скажи мне
+06. Танец с огнем
+07. 29 марта
+08. Кто я без тебя
+09. Yaroslavna
+10. Мишель (акустическая версия)Жанр: Hip-Hop, RockПродолжительность: 00:40:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
+magnet:?xt=urn:btih:14F5E170C1B9D4765DFE80CF3656F4A5B3B7B319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -454,29 +463,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469195   (96867) от 17.03.2012
+###  Публикация: 469371   (96946) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 72
+[Wallpapers] Desktop Wallpapers Pack 21
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 72
-Название: Desktop Wallpapers Pack 72
+[Wallpapers] Desktop Wallpapers Pack 21 
+Название:  Desktop Wallpapers Pack 21 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
+magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,29 +493,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469529   (96866) от 17.03.2012
+###  Публикация: 469051   (96938) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 85
+Формула 1. Гран-При Австралии. 2-ая свободная практика (2012) HDTV [1080i]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96938.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 85
-Название: Desktop Wallpapers Pack 85
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2700х1800
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
+Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:42:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:445968FC57DF32BAC3DC417B8407EB5B6711C6C5
+magnet:?xt=urn:btih:68AFB5FE6CB5087A526B8CA37DD4104569561857
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +520,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469470   (96865) от 17.03.2012
+###  Публикация: 468927   (96937) от 17.03.2012
 
-[Wallpapers] Nature Pictures №25
+[Wallpapers] Desktop Wallpapers Pack 19
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №25Название: Nature Pictures №25
+[Wallpapers] Desktop Wallpapers Pack 19 
+Название:  Desktop Wallpapers Pack 19 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB37C2D4DB04527F9C86C4CC3569178ABBB2E88E
+magnet:?xt=urn:btih:33613245815F7C67DF04B74C3C031C174AC4653F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,29 +550,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468994   (96864) от 17.03.2012
+###  Публикация: 468916   (96935) от 17.03.2012
 
-[Wallpapers] Nature Pictures №21
+[Wallpapers] Girls Desktop Wallpapers Pack 5
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №21
-Название: Nature Pictures №21
+[Wallpapers] Girls Desktop Wallpapers Pack 5 
+Название:  Girls Desktop Wallpapers Pack 5 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0038CDFD545C0638F4FD4E2320C15A9B62F92DA2
+magnet:?xt=urn:btih:50D5BEF5C95D1475866246A2EE9EFB40F8FA49F9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,29 +580,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469528   (96863) от 17.03.2012
+###  Публикация: 469094   (96932) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 84
+Желание моего отца / My Father's Will (2009) DVD5
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96863.jpg" />
+  <img src="Z:/picture/005/save_picture_96932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 84
-Название: Desktop Wallpapers Pack 84
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Богатый и успешный бизнесмен Ферро Оливетти наслаждается всеми привилегиями, которые только могут дать деньги и высокое социальное положение. Но вот умирающий отец хочет, чтобы сын исполнил его последнее желание…Жанр: ДрамаРежиссер: Фред МэнокэриэнАктеры: Виктор Альфьери, Айони Скай, Рон Сильвер, Джерри Бэммен, Уильям Уайз, Ивонна Копач, Мэтт Ньютон, Мелисса Клер, Иган Marнa, Алонсо СаундерсПеревод: Многоголосый закадровыйПродолжительность: 01:24:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AACFD3758354D1AF96A1F3DCA89302E5F5B290DA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,29 +606,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468989   (96861) от 17.03.2012
+###  Публикация: 469366   (96931) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 7
+[Wallpapers] Girls Desktop Wallpapers Pack 10
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 7
-Название: Avto Wallpapers Pack 7
+[Wallpapers] Girls Desktop Wallpapers Pack 10 
+Название:  Girls Desktop Wallpapers Pack 10 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751A38E25E1D55217F2AEFBA08D4D97F66592B48
+magnet:?xt=urn:btih:F55D39196EBFD42BDA75EE80B991B5909D36E43E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,29 +636,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469492   (96860) от 17.03.2012
+###  Публикация: 469227   (96930) от 17.03.2012
 
-[Wallpapers] Nature Pictures №26
+0,9 Ампер / 0,9 Ampere (2009) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №26
-Название: Nature Pictures №26
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Электросудорожная терапия, ранее известная как электрошок, является самым противоречивым методом лечения, но до сих пор применяется в медицине. Электрошок был изобретен невропатологом Уго Черлетти, профессором психиатрии Римского университета в конце 1930-х годов. Этот метод лечения основан на вызывании большого судорожного припадка путем пропускания электрического тока мощностью 0,9 Ампер через головной мозг пациента с помощью прикрепленных к голове электродов. Некоторые специалисты считают, что использование электросудорожной терапии должно быть прекращено, а по мнению других она по-прежнему является единственным способом лечения психических патологий. Но что на самом деле мы знаем об электрошоке?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:183E96CDFDAA3D13E86C448D88255FBA1816BC75
+magnet:?xt=urn:btih:E98C79DA283B8E59EB3C6A60E77B1910DBD2981B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +662,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469475   (96859) от 17.03.2012
+###  Публикация: 469612   (96929) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 76
+[Wallpapers] Fantasy Desktop Wallpapers Pack 3
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 76Название: Desktop Wallpapers Pack 76
+[Wallpapers] Fantasy Desktop Wallpapers Pack 3 
+Название:  Fantasy Desktop Wallpapers Pack 3 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1600х1200 - 6970х4764
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C781771F6B30133F140E649BA04FCAC4E4E03D8B
+magnet:?xt=urn:btih:55109C1EB815825F62CE514EBB43C92A0CB71B42
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,29 +692,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469526   (96857) от 17.03.2012
+###  Публикация: 469364   (96928) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 82
+[Wallpapers] Girls Desktop Wallpapers Pack 8
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 82
-Название: Desktop Wallpapers Pack 82
+[Wallpapers] Girls Desktop Wallpapers Pack 8 
+Название:  Girls Desktop Wallpapers Pack 8 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1707
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1080 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C680ECD4C5440A5BB142F3F5BA9686E662D77AD8
+magnet:?xt=urn:btih:9849459131DABA7D169AD9F8FDE79C6E9FDE6EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,29 +722,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469483   (96856) от 17.03.2012
+###  Публикация: 468532   (96924) от 17.03.2012
 
-[Wallpapers] Avto Wallpapers Pack 11
+[Wallpapers] Fantasy Desktop Wallpapers Pack 2
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Wallpapers Pack 11
-Название: Avto Wallpapers Pack 11
+[Wallpapers] Fantasy Desktop Wallpapers Pack 2 
+Название:  Fantasy Desktop Wallpapers Pack 2 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Релиз от: Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1280х1024 - 6496х3723
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5CB3F1DD597CB3357F770B0D1F193C8952FFBC2
+magnet:?xt=urn:btih:3E8ACA4CB95844ACDD4A9944424D20173C908CB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -752,29 +752,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469012   (96855) от 17.03.2012
+###  Публикация: 468495   (96923) от 17.03.2012
 
-[Wallpapers] Desktop Wallpapers Pack 71
+[Wallpapers] Desktop Wallpapers Pack 13
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 71
-Название: Desktop Wallpapers Pack 71
+[Wallpapers] Desktop Wallpapers Pack 13 
+Название:  Desktop Wallpapers Pack 13 
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B86F4FE5E0C855372B5302DF008257F62EAC2A0
+magnet:?xt=urn:btih:54E079BF71EABC8E4F6DFA731C7D4A373DFDF2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

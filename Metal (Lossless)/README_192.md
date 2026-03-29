@@ -1,3 +1,90 @@
+###  Публикация: 1188607   (272532) от 04.12.2017
+
+Cirith Gorgor - Firestorm Apocalypse (2003) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The gates of hell
+02. Degeneration of mankind
+03. Arcane illusion
+04. Prelude to the final holocaust(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFB757F0962287775A0D72CE09B9EA72CFF4C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188572   (272478) от 04.12.2017
+
+Elite - We Own The Mountains (2008) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volvens Vinterseid
+02. Amanita Muscaria
+03. Winter Moon King
+04. Likmyren(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B36D78C3DFC0999EF6CDBEA23CAEBDB57358F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188546   (272472) от 04.12.2017
+
+Elm Street - Barbed Wire Metal (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbed Wire Metal (03:44)
+02. The Devil's Servants (03:59)
+03. Elm St's Children (05:40)
+04. Heavy Metal Power (05:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9887DA8D977B1BD38E09CB05F7BF329B6515D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188591   (272462) от 04.12.2017
 
 Der Weg einer Freiheit - Finisterre (2017) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Der Weg einer Freiheit - Finisterre (2017) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272462.jpg" />
+  <img src="Z:/picture/008/save_picture_272462.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Hell in the Club - Devil on My Shoulder (2015) Japan [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272459.jpg" />
+  <img src="Z:/picture/008/save_picture_272459.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Alchemy X - A Delicate Balance (1999) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272456.jpg" />
+  <img src="Z:/picture/008/save_picture_272456.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Jezabel - A Todo O Nada (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272452.jpg" />
+  <img src="Z:/picture/008/save_picture_272452.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Forefather - Legends Untold (2000) [FLAC|Lossless|image + .cue] <Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272450.jpg" />
+  <img src="Z:/picture/008/save_picture_272450.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Elegy - Supremacy (1994) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272447.jpg" />
+  <img src="Z:/picture/008/save_picture_272447.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Elegy - Forbidden Fruit (2000) Japan [FLAC|Lossless|image + .cue] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272443.jpg" />
+  <img src="Z:/picture/008/save_picture_272443.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Elegy - Principles of Pain (2002) 2009, Reissue digpack [APE|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272441.jpg" />
+  <img src="Z:/picture/008/save_picture_272441.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Alchemy X - 11.59.59 (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272437.jpg" />
+  <img src="Z:/picture/008/save_picture_272437.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Blind Petition - No Prisoners (2004) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272433.jpg" />
+  <img src="Z:/picture/008/save_picture_272433.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Jag Panzer - The Deviant Chord (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272430.jpg" />
+  <img src="Z:/picture/008/save_picture_272430.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Excalion - Dream Alive (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272386.jpg" />
+  <img src="Z:/picture/008/save_picture_272386.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Ellipsis - From Beyond Thematics (2004) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272385.jpg" />
+  <img src="Z:/picture/008/save_picture_272385.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Chroming Rose - The Gift (1999) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272382.jpg" />
+  <img src="Z:/picture/008/save_picture_272382.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Elegy - Manifestation Of Fear (1998) [FLAC|Lossless|image + .cue] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272380.jpg" />
+  <img src="Z:/picture/008/save_picture_272380.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Coven - Blessed Is The Black (1987) [FLAC|Lossless|image + .cue] <Power Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272377.jpg" />
+  <img src="Z:/picture/008/save_picture_272377.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Celtic Frost - Into the Pandemonium (1987) Remastered, 2017 [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272375.jpg" />
+  <img src="Z:/picture/008/save_picture_272375.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Nargaroth - Era of Threnody (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272367.jpg" />
+  <img src="Z:/picture/008/save_picture_272367.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Celtic Frost - Vanity / Nemesis (1990) Remastered, 2017 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272305.jpg" />
+  <img src="Z:/picture/008/save_picture_272305.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Celtic Frost - To Mega Therion (1985) Remastered, 2017 [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272302.jpg" />
+  <img src="Z:/picture/008/save_picture_272302.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Celtic Frost - Morbid Tales (1984) Remastered, 2017 [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272301.jpg" />
+  <img src="Z:/picture/008/save_picture_272301.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Orden Ogan - Gunmen (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272299.jpg" />
+  <img src="Z:/picture/008/save_picture_272299.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Banshee - Take 'Em By Storm (1993) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272298.jpg" />
+  <img src="Z:/picture/008/save_picture_272298.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Banshee - Take 'Em By Storm (1993) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7923C5E38BEE2E16769A204A19A990A448281DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188677   (272295) от 04.12.2017
-
-Almanac - Kingslayer (2017) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regicide
-02. Children of the Sacred Path
-03. Guilty as Charged
-04. Hail to the King(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05127C14F5D9A081519A230EBC9448EC39818AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188543   (272118) от 04.12.2017
-
-FireForce - Annihilate the Evil (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys from Down Under
-02. Revenge in Flames
-03. Fake Hero
-04. Dog Soldiers(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E088D6D0F07F44AABB09EAFFCA69803D2A2E480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266082   (272111) от 30.11.2018
-
-APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:32)
- 02. The Symptom (3:44)
- 03. Colorblind (4:01)
- 04. Radio Silence (2:53)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9188EAB245F8187E4C96050CF841B3E89CE160A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

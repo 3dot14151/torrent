@@ -1,3 +1,81 @@
+###  Публикация: 1788004   (23272) от 28.03.2025
+
+MOOD (2024) [Ru/En] (Build 17818395) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23272.jpg" />
+</div>
+
+
+###  Подробнее
+
+MOOD - это мрачная визуальная новелла, с элементами психологического хоррора и каплей юмора. Игроку предстоит встретить девушку и немного с ней прогуляться. Ничего плохого не произойдет, мы обещаем. Мой бесконечно стабильный путь с работы домой и обратно. Этот город никогда не дарил ярких красок и счастливых воспоминаний. Однако, привычный порядок вещей нарушает (   Читать дальше...   )Тип издания: RepackРазработчик: Tenebrae StudioЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788259   (23169) от 29.03.2025
+
+Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (build 17904043/dlc) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русы против ящеров 2 – это кооперативный слешер-экшен от легендарной команды theBratans, они же Smola Games, разработчика франшизы "Русы против ящеров". Заслуженно отмеченная наградами франшиза возвращается с новой, революционной главой. Мерзкие ящеры, подгоняемые своими тайными покровителями, получили новые ящерские технологии и вновь коварно напали на (   Читать дальше...   )Тип издания: RepackРазработчик: the Bratans, Smola Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76B7A19ED32294CB1CA64769794C31251DA1347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788344   (23055) от 30.03.2025
+
+The Casting of Frank Stone (2024) [Ru/Multi] (Build 15770319/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Призрак Фрэнка Стоуна мучает Сидар-Хиллз - город, который так и не оправился после ужасных преступлений. Группа подростков погружается в мир кровавого наследия Стоуна. Опыт этот шрамами отпечатается на их судьбах и судьбах целых семей, вплетаясь в саму материю реальности.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Horror, AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BB4187EB459042AEDC9009C6D1D2F67C7FA00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788386   (23039) от 30.03.2025
 
 Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (build 17904043/dlc) Repack FitGirl [Deluxe Pack]
@@ -6,7 +84,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23039.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Still Joking (2024) [Ru/En] (1.2251) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22969.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Unholy (2023) [Ru/Multi] (30864) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22939.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.3/dlc) Repack FitGirl [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22930.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (Bui
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22848.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22748.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22728.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Virballs (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22617.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Mars Vice (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22536.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22509.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22502.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22453.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ IZON. (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22436.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack FitGirl [Premium Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22433.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Fluffy Sailors (2025) [Multi] (1.1308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22406.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Wild Explorer (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22403.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Kun'tewiktuk: A Mi'kmaw Adventure (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22386.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Darkest Files (2025) [Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22293.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Trials of Innocence (2025) [Multi] (1.2.0.506) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22204.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22109.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22065.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ PEPPERED (2025) [Ru/Multi] (Build 18001699) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22063.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22025.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10407.714/dlc) Repack seleZen 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96888F03849CEB880B368C3019F084563E7253D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790424   (21980) от 09.04.2025
-
-LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играйте за Лейлу и пройдите через все этапы ее жизни, раскрывая ключевые моменты ее судьбы. Разгадывайте головоломки, наполненные фрагментами ее повествования, чтобы понять мотивы решений Лейлы. Погружаясь в ее психику и эмоциональный пейзаж, вы обнаружите отражение своей личности в жизненном пути этой, казалось бы, обыденной женщины.Тип издания: RepackРазработчик: Ubik StudiosЖанр: ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DA4DF70EA02C3352F6D174FD4778EE0DBD5B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790688   (21906) от 10.04.2025
-
-The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за 26-летнюю Рейчел, заядлую девушку-хайкера в поисках новых приключений. В этот раз, ваше внимание привлекает одна интересная реклама о сдачи походного домика в аренду. Что начинается с расслабленного подъёма к уютному пристанищу, довольно быстро переходит к настоящему кошмару. От жутких встреч с подозрительными персонажами до таинственных и леденящих (   Читать дальше...   )Тип издания: RepackРазработчик: KorvinrularЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Бразильский Португальский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790626   (21883) от 10.04.2025
-
-South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 ```
 
 https://mybot314.ru/tekegram_catalog/

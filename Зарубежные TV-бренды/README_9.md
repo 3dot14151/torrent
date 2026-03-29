@@ -1,3 +1,107 @@
+###  Публикация: 285052   (935956) от 20.01.2011
+
+NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (2010) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_935956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фашисткой Германии были созданы одни из самых разрушительных видов оружия на земле. Огромные пушки, высокотехнологичные ракеты и передовые реактивные истребители. Fritz X - прообраз современной "умной бомбы", была совершенно секретной бомбой Адольфа Гитлера. Завеса тайны скрывает один из последних секретов Второй мировой войны. Могла ли бомба нацистов изменить ее исход? В этом фильме немецкие и американские авиационные эксперты воскресят новаторское оружие Третьего рейха. Они проведут смелый эксперимент в глубине калифорнийской пустыни - сбросят две модели высокоточной бомбы нацистов...Жанр: ДокументальныйПеревод: Профессиональный (полное дублирование) + Профессиональное (одноголосое)Формат: AVIПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822006CC7EEC7BEDEDBE03E793BAB2E33FCECB74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093350   (935165) от 14.01.2017
+
+Египет. В поисках Тутанхамона (2005) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страна, полная легенд и тайн, история которой восходят к самой древней земной цивилизации. Что мы знаем об истории этой страны кроме того, что когда-то учили в школе? Загадочный Египет... Цикл фильмов о загадках Египта - "Неразгаданный Египет" - постарается ответить на многие вопросы, которыми задавались ученые на протяжении многих столетий. Авторы фильма (   Читать дальше...   )Телекомпания: BBC, эфир телеканал "История"Жанр: ИсторияПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608CD9440D05854CF24D4D1633D7081484EDA5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985209   (935127) от 11.02.2016
+
+BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гонка со временем (Побережье) / Race Against TimeВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3244B667CCCE94F0A003DB70D66831F2DF17E9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783275   (934254) от 20.01.2015
+
+Discovery: Вселенная Стивена Хокинга: Инопланетяне / Stephen Hawking. Aliens (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это загадка является одной из величайших в современной науке... Если она когда нибудь будет раскрыта, то это заставит переосмыслить наше место во Вселенной. Жизнь есть только на Земле? Или она существует повсюду в Космосе? Инопланетяне наверняка существуют, но почему мы с ними не встретились? Если на звездах действительно имеются инопланетяне, то почему мы не получаем известий от них? У нас есть мощные инструменты для их поиска. Или мы действительно одни?.. Один астроном заявляет, что слышала попытки вступить (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследование, космосРежиссер: Аин РидикПеревод: Профессиональный закадровыйПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB92594675F093D2F7B5950A98794EA8CCBFD2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365142   (931648) от 06.03.2020
 
 BBC: Чудеса Солнечной системы / Wonders of the Solar System (2010) BDRip [H.264/1080p] (серии 1-5 из 5)
@@ -6,7 +110,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931648.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930262.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930256.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930155.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929681.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929033.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_928792.jpg" />
+  <img src="Z:/picture/008/save_picture_928792.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927631.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927599.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927538.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927439.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926037.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925811.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925322.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Discovery: Поиск пришельцев. Урожай пришельцев / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924691.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924248.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924242.jpg" />
 </div>
 
 
@@ -460,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924180.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924079.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924006.jpg" />
 </div>
 
 
@@ -540,7 +644,7 @@ Discovery: Недружелюбная Вселенная ( Плохая Всел
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923674.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922648.jpg" />
 </div>
 
 
@@ -578,112 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2370C081CBB4222F0ECCD369D5E4F8691E91622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987163   (922432) от 19.02.2016
-
-Discovery: Техногеника. Кругобайкальская железная дорога (2016) (серия 2) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации. Наш (   Читать дальше...   )Телекомпания: Discovery RussiaЖанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C90106591218261F7EE588A7E50D472021776B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096055   (922316) от 22.01.2017
-
-Вулканическая Одиссея / A Volcano Odissey (2016 (?)) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922316.jpg" />
-</div>
-
-
-###  Подробнее
-
-При формировании Земли огромное количество энергии скопилось под ее корой. Эта сдерживаемая сила частично высвобождается в так называемых горячих точках. Это поразительные вулканические явления, которые мы только начинаем понимать. Их причина - потоки раскаленной мантии, стремящиеся в верхние слои земной коры. Вулканическая активность может продолжаться несколько (   Читать дальше...   )Телекомпания: Saint Thomas Productions (Франция), эфир телканал "Культура"Жанр: Документальный, компьютерная анимацияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D0D85DBD5297A6256906656E25D99C5BC6E939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288466   (922293) от 29.01.2011
-
-Discovery:Разрушители легенд. В погоне за ураганом / MythBusters (2010) SATRip(2011.01.28)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят в области залива Сан-Франциско.
-Каждый из часовых выпусков «Разрушители легенд» посвящён двум или трём городским легендам, распространённым убеждениям или слухам из интернета. Основной миф часто требует всесторонней подготовки и полигона, кроме него в передачу также включают один-два не столь хлопотных в плане подготовки и проведения мифа. На сегодняшний день, однако, три эксперимента (35, 40, и 46) были настолько сложными, что заняли весь час, отведённый на передачу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F9606A8393F912D19BB63E6E9FAF209400A3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095538   (922205) от 22.01.2017
-
-Тайны древности / Ancient Mysteries (2016) HDTVRip (1-6 серий из 6)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Телекомпания: Великобритания, Blink Entertainment LtfЖанр: ДокументальныйРежиссер: Том ФоулиПеревод: Двуголосый закадровый, профессиональный, (SDI Media)Продолжительность: 6 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15056798AD7184CC9A16315016FC824479A88D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

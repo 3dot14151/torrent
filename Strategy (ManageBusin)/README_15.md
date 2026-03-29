@@ -1,3 +1,81 @@
+###  Публикация: 1757193   (39169) от 26.10.2024
+
+Cities: Skylines (2015) [Ru/Multi] (1.18.1-f3/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cities: Skylines предлагает по-новому взглянуть на классический жанр градостроительного симулятора. Эта игра как нельзя лучше передает возникающие перед градоначальником трудности и позволяет создать настоящий мегаполис, одновременно привнося в игру приятные новшества. Создатели игры принимали участие в разработке серии Cities in Motion, поэтому игра отличается высокореалистичной (   Читать дальше...   )Тип издания: SceneРазработчик: Colossal Order Ltd.Жанр: Strategy (Manage, Busin., Real-time), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757374   (39116) от 27.10.2024
+
+Terraformers (2022) [Ru/Multi] (1.5.30/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terraformers предлагает вам построить космическую колонию и заняться распределением ресурсов. Исследуйте Красную планету, создавайте города и используйте передовые технологии, чтобы сделать Марс пригодным для жизни. Отправляйте руководителей экспедиции исследовать таинственные территории Красной планеты и открывайте богатые месторождения ресурсов, гигантские пещеры, (   Читать дальше...   )Тип издания: RepackРазработчик: Asteroid LabЖанр: Инди, Наука, Пошаговая стратегияЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED31A7E4C6965149BC678EFE4EF3F84D3E0DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758675   (38452) от 03.11.2024
+
+The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дайте волю своему воображению и создайте мир с уникальными симами! Выбирайте и изменяйте любые детали как симов, так и их домов. И это еще далеко не все! Выбирайте внешность, характер и наряды для своих симов и решайте, как они будут проводить свои дни. Проектируйте и стройте потрясающие дома для каждой семьи и выбирайте мебель и декор. Путешествуйте по различным (   Читать дальше...   )Тип издания: RepackРазработчик: MaxisЖанр: Simulator, 3DЯзык озвучки: SimlishЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759095   (38147) от 06.11.2024
 
 Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
@@ -6,7 +84,7 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38147.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Millennia (2024) [Ru/Multi] (1.0.22991.F/dlc) Repack FitGirl [Premium Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37263.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ EcoGnomix (2024) [Multi] (1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36743.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Farlanders (2023) [Multi] (1.2.0f1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36708.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36432.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36412.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36408.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35914.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35609.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Necroking (2024) [Ru/Multi] (1.5.2rc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35564.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34912.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Railbound (2022) [Multi] (3.06) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34879.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34878.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34297.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.8/dlc) Repack seleZen [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34011.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33522.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32658.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32447.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32349.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32167.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31831.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31762.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31343.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Millennia - пошаговая стратегическая игра, охват
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9AF489A555FA0CBAACEA4BD1A8B672D17301AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772486   (31316) от 11.01.2025
-
-Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31316.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A407D6260720C56DB341476D386870EDF8E5F02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772478   (31303) от 11.01.2025
-
-Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772477   (31251) от 11.01.2025
-
-Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CEC7E5F1F939170587AB30809CF5E43150D592
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 1728516   (54085) от 07.06.2024
+
+Rob Houston (editor) | History of the World Map by Map (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54085.jpg" />
+</div>
+
+
+###  Подробнее
+
+More than 140 detailed maps tell the story of pivotal episodes in world history, from the first human migrations out of Africa to the space race.
+Custom regional and global maps present the history of the world in action, charting how events traced patterns on land and ocean-patterns of exploration, discovery, or conquest that created empires, colonies, or theaters (   Читать дальше...   )Жанр: КартографияЯзык: английскийИздательство: Dorling Kindersley Limited, SmithsonianФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5435D9E32997276614DA58A6FAD1C54427BF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735549   (50643) от 08.07.2024
+
+В.О. Ключевский | Сказания иностранцев о Московском государстве [3 книги] (1866, 1916, 1918) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50643.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказания иностранцев о Московском государстве» - выпускное сочинение В.О.Ключевского, представленное молодым исследователем к окончанию Московского университета. Оно было удостоено золотой медали, а его автор – степени кандидата. В.О.Ключевский рассматривает записки путешественников как особый вид исторических источников. Их своеобразие и уникальность состоят в (   Читать дальше...   )Жанр: историческая монографияЯзык: русский дореформенныйИздательство: Москва: Университетская типографияФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF11F90482A23514761B5E9357382F0A16D40E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736977   (50028) от 14.07.2024
+
+Борис Якеменко | Пепел над пропастью. Феномен Концентрационного мира нацистской Германии. (2023) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – первое в отечественной историографии комплексное исследование феноменологии нацистских концентрационных лагерей (Концентрационного мира), как особой системы, глобально трансформировавшей всё, что оказывалось в орбите её влияния – от времени, истории и пространства до человеческой антропологии и психологии. Обнажение и одежда, пища и голод, насилие и боль, (   Читать дальше...   )Жанр: историография, научно-популярная литератураИздательство: ЯузаФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E41CD02CC45D9CF06517B9A6382E1CF23F3DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738004   (49396) от 20.07.2024
+
+Н.Н.Попов (редактор) | М. Н. Покровский об Украине. Сборник статей и материалов (1935) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включены только те отрывки из работ М. Н. Покровского, которые более или менее близко затрагивают или освещают вопросы истории Украины. Не представляя целостного курса по истории Украины, выдержки из работ М Н. Покровского дают очень полезный материал для понимания основных вопросов истории Украины.Жанр: Историческая публицистика, архивные материалыИздательство: Киев: Соцэкгиз УкраиныФормат: PDFКачество: Обработанный скан (Internet Archive - San Francisco)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3CE5E7F52F42FD3A595A59A9B6F4746BEA853EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738093   (49315) от 21.07.2024
+
+О. Егер | Всеобщая история стран и народов мира. Избранное (2024) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся немецкий исследователь Оскар Егер в конце XIX века опубликовал фундаментальный труд по мировой истории, в котором проследил прошлое цивилизации от возникновения первых государств до главных событий позапрошлого столетия. Автор, обобщив колоссальный опыт научных достижений предшественников, создал самобытное красочное полотно событий, в которых прослеживались (   Читать дальше...   )Жанр: Всемирная историяИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2387C7BC5D09B95C390B0D0C12C9E5A6AC8A8980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738677   (48994) от 24.07.2024
 
 Фрэнсис Гис, Джозеф Гис | Жизнь в средневековой деревне (2024) [FB2]
@@ -6,7 +137,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48994.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48647.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48110.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47965.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47631.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47455.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47447.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46875.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46855.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46588.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46034.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43468.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42664.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42259.jpg" />
 </div>
 
 
@@ -375,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42014.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41985.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41980.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41979.jpg" />
 </div>
 
 
@@ -480,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41050.jpg" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40410.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40076.jpg" />
 </div>
 
 
@@ -544,140 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FC1272ADF091E149AF286D8AE6C228133C22FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756333   (39762) от 20.10.2024
-
-Н.Н. Непомнящий | 100 великих достижений СССР (2024) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский Союз – большое и сильное государство, занимавшее одну шестую часть суши Земли, – был настоящей фабрикой достижений. В любой отрасли, будь то наука, оборона, культура или спорт, в СССР было кем и чем гордиться! Первыми – и главными! – достижениями советского времени 1920-х гг. стали электрификация всей страны, ликвидация безграмотности, преодоление последствий (   Читать дальше...   )Жанр: история СССРИздательство: Москва: «Вече»Формат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EF79AD981B10DF344E3A62BC7554F1843F4119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757283   (39218) от 26.10.2024
-
-З.Н. Быков (ред.) | Бытовая мебель русского классицизма конца XVIII - начала XIX веков (1954) [PDF, DOC]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание включает 53 таблицы, состоящие из фотографий с натуры и обмерных чертежей бытовой мебели конца XVIII — начала XIX вв., наиболее интересной с художественной стороны и характерной по своим стилевым особенностям. Таблицы сопровождаются пояснительным текстом и аннотациями, в которых кратко изложены сведения о каждом предмете. В описании представлены столы, стулья, (   Читать дальше...   )Жанр: мебель, альбом, историяИздательство: Государственное издательство литературы по строительству и архитектуреФормат: PDF, DOCКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2858B7D2692556A69D232C5C2C076198A5A51D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757505   (39119) от 27.10.2024
-
-Павел Крашенинников | Государство против революции (2024) [FB2, RTF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39119.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описывается переломный для государства и общества период, начавшийся с новой экономической политики, продолжившийся сплошной коллективизацией крестьян и закончившийся провозглашением самой демократической Конституции накануне массовых репрессий и Большого террора. С этим периодом связаны несбывшиеся надежды и невероятные потрясения многих людей.
-
-Непомерное (   Читать дальше...   )Жанр: Историческая публицистикаИздательство: ЭксмоФормат: FB2, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01ECBA23D300F4DA00344F7057E0CB33EE8C234E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757424   (39081) от 27.10.2024
-
-А. Зверев | Сталин и народ. Деньги для победы (2021) [PDF, EPUB, FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39081.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге А.Г. Зверев рассказывает о встречах со Сталиным, о том, как решались важнейшие вопросы по управлению финансами страны, в том числе в тяжелые годы Великой Отечественной войны. По мнению автора, И.В. Сталин прекрасно разбирался в финансовых проблемах и проводил высокоэффективную экономическую политику, что доказывается на многочисленных примерах.Жанр: история, мемуары, политологияИздательство: «Алгоритм»Формат: PDF, EPUB, FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356272DF9CBD1925E9D92D6918253862B0DC9D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757987   (38865) от 30.10.2024
-
-В. Черепнюк, А. Николаева | Мифы народов России. Коллекция из 4 книг (2024) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комплект входят книги: «Славянские мифы», «Мифы Русского Севера, Сибири и Дальнего Востока», «Мифы Урала и Поволжья», «Мифы Карелии и Ингерманландии».
-
-Комплект «Мифы народов России» представляет собой уникальное издание, в котором собраны и бережно рассказаны мифы и легенды различных народов, населяющих обширные просторы нашей страны от Карелии до Дальнего Востока. (   Читать дальше...   )Жанр: Мифы. Легенды. ЭпосИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73179BB5A4B50327849D6A168F112A32C51E4507
 ```
 
 https://mybot314.ru/tekegram_catalog/

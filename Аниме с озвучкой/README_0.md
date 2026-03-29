@@ -1,3 +1,29 @@
+###  Публикация: 1849899   (1054115) от 25.01.2026
+
+Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War | Семь смертных грехов: Знамение священной войны [2016, TV, 4 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отвоевав королевство Лионес у Святых Рыцарей, Семь Смертных Грехов вместе с Элизабет и Хоуком наконец-то могут насладиться заслуженным спокойствием. Но новая угроза появляется на горизонте, и, кажется, счастливым и беззаботным дням наших героев скоро придет конец...Производство: Япония, A-1 PicturesЖанр: фэнтези, сёнен, экшен, эттиРежиссер: Токоро ТомокадзуЯзык озвучки: Русский закадровый (AniLibria - Cleo-chan, Kari, Nuts)Продолжительность: ТВ, 4 серии по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E55341E5BE6CEDF2C604A7458F3E1D3B5C99A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849900   (1054114) от 25.01.2026
 
 Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the Commandments | Семь смертных грехов 2: Возрождение заповедей [2018, TV, 24 эп.] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054114.jpg" />
+  <img src="Z:/picture/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054113.jpg" />
+  <img src="Z:/picture/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054112.jpg" />
+  <img src="Z:/picture/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054111.jpg" />
+  <img src="Z:/picture/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054110.jpg" />
+  <img src="Z:/picture/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054109.jpg" />
+  <img src="Z:/picture/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053854.jpg" />
+  <img src="Z:/picture/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053425.jpg" />
+  <img src="Z:/picture/005/save_picture_1053425.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053178.jpg" />
+  <img src="Z:/picture/005/save_picture_1053178.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053032.jpg" />
+  <img src="Z:/picture/005/save_picture_1053032.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053007.jpg" />
+  <img src="Z:/picture/005/save_picture_1053007.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052970.jpg" />
+  <img src="Z:/picture/005/save_picture_1052970.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052911.jpg" />
+  <img src="Z:/picture/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052909.jpg" />
+  <img src="Z:/picture/005/save_picture_1052909.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052898.jpg" />
+  <img src="Z:/picture/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052760.jpg" />
+  <img src="Z:/picture/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052625.jpg" />
+  <img src="Z:/picture/005/save_picture_1052625.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052568.jpg" />
+  <img src="Z:/picture/005/save_picture_1052568.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052490.jpg" />
+  <img src="Z:/picture/005/save_picture_1052490.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слуш�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052435.jpg" />
+  <img src="Z:/picture/005/save_picture_1052435.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Papa no Iukoto o Kikinasai! OVA-1 | Слушайтесь папу! OVA-1 [2013, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052434.jpg" />
+  <img src="Z:/picture/005/save_picture_1052434.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052320.jpg" />
+  <img src="Z:/picture/005/save_picture_1052320.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052288.jpg" />
+  <img src="Z:/picture/005/save_picture_1052288.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052178.jpg" />
+  <img src="Z:/picture/005/save_picture_1052178.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052065.jpg" />
+  <img src="Z:/picture/005/save_picture_1052065.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A582EAD9C36C8D8C5F1F31F869908C91F8A4115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847151   (1051962) от 24.01.2026
-
-Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда демонического города [ТВ-2] [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории
-Врата в другое измерение, известное как Мато или Демоническая Столица, появляются по всей Японии. Внутри этого пространства обнаруживается загадочный источник силы — Момо или «Персик». Он дает различные уникальные способности, но только женщинам. Однако есть и проблема: в Мато живут опасные монстры, периодически проникающие во внешний мир. Для (   Читать дальше...   )Производство: Япония, студия PassioneЖанр: приключения, фэнтезиРежиссер: Тамура МасафумиЯзык озвучки: Русский закадровый (AniLibria.TV), (SHIZA Project)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0783A56342089FDE26CE0FDBFB182FB9EA5BCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

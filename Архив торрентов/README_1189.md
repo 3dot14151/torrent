@@ -6,7 +6,7 @@ Opera GX 68.0.3618.150 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783095.jpg" />
+  <img src="Z:/picture/008/save_picture_783095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ K-Lite Codec Pack Update 15.5.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783069.jpg" />
+  <img src="Z:/picture/008/save_picture_783069.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Glary Utilities Pro 5.144.0.170 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783056.jpg" />
+  <img src="Z:/picture/008/save_picture_783056.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RogueKiller Anti-Malware 14.6.0.0 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783054.jpg" />
+  <img src="Z:/picture/008/save_picture_783054.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lacey Free Music & Video Downloader 2.41 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783050.jpg" />
+  <img src="Z:/picture/008/save_picture_783050.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sade - Diamond Life (1984) [FLAC|Lossless|tracks] <Funk / Soul>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783044.jpg" />
+  <img src="Z:/picture/008/save_picture_783044.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Technolorgy - Discography 9 Releases (2014-2020) [MP3|320 Kbps] <EBM, Synth-Pop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783043.jpg" />
+  <img src="Z:/picture/008/save_picture_783043.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Auslogics Duplicate File Finder 8.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783040.jpg" />
+  <img src="Z:/picture/008/save_picture_783040.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ CherryPlayer 3.0.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783036.jpg" />
+  <img src="Z:/picture/008/save_picture_783036.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Glary Disk Explorer 5.27.1.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783031.jpg" />
+  <img src="Z:/picture/008/save_picture_783031.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ TinyWall 3.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783029.jpg" />
+  <img src="Z:/picture/008/save_picture_783029.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Revo Uninstaller Pro 4.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783024.jpg" />
+  <img src="Z:/picture/008/save_picture_783024.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ TweakPower 1.100 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783022.jpg" />
+  <img src="Z:/picture/008/save_picture_783022.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ XnView Classic 2.49.3 (Minimal-Standard-Extended) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783020.jpg" />
+  <img src="Z:/picture/008/save_picture_783020.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Adobe Bridge 2020 10.1.0.163 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783018.jpg" />
+  <img src="Z:/picture/008/save_picture_783018.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Exp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782977.jpg" />
+  <img src="Z:/picture/008/save_picture_782977.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Dalot & Sound Awakener - Little Things (2018) Fluid Audio [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782958.jpg" />
+  <img src="Z:/picture/008/save_picture_782958.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Egoprisme - Among Noise (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Darkwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782953.jpg" />
+  <img src="Z:/picture/008/save_picture_782953.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Geek Uninstaller 1.4.5 Build 124 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782943.jpg" />
+  <img src="Z:/picture/008/save_picture_782943.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Danish Electro Vol.01 (2018) [MP3|320 Kbps] <Synth-pop, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782941.jpg" />
+  <img src="Z:/picture/008/save_picture_782941.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Ladies Fitness Time Team Coaching (2018) [MP3|320 Kbps] <Minimal, Tech Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782930.jpg" />
+  <img src="Z:/picture/008/save_picture_782930.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Aiseesoft Screen Recorder 1.1.30 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782925.jpg" />
+  <img src="Z:/picture/008/save_picture_782925.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ iMazing 2.5.4 (8416) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782924.jpg" />
+  <img src="Z:/picture/008/save_picture_782924.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Norton AntiVirus 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782902.jpg" />
+  <img src="Z:/picture/008/save_picture_782902.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Daum PotPlayer 1.7.8557 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782899.jpg" />
+  <img src="Z:/picture/008/save_picture_782899.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Norton 360 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782894.jpg" />
+  <img src="Z:/picture/008/save_picture_782894.jpg" />
 </div>
 
 

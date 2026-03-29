@@ -1,25 +1,22 @@
-###  Публикация: 1804685   (65565) от 01.07.2025
+###  Публикация: 1796565   (66936) от 12.05.2025
 
-Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technical Thrash, Death Metal>
+Журнал | Тайны ХХ века №4 (1150) (январь 2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66936.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Masquerade
-02. Mask Of Red Death
-03. Oathbreaker
-04. Mind Of Metal(   Читать дальше...   )Жанр: Neoclassical, Technical Thrash, Death MetalПродолжительность: 00:53:42
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
+magnet:?xt=urn:btih:CA586112545B7CD91233613E2520F6C1F1719EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804755   (65564) от 01.07.2025
+###  Публикация: 1795976   (66935) от 12.05.2025
 
-Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal, Hardcore, Blackened>
+Black Stone Cherry - Compilation (2003-2025) [MP3|320 Kbps] <Hard rock, Southern rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66935.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death Cult [00:03:09]
-02. Hammering the Sinners (Streaming Version) [00:02:17]
-03. "The Cælestial Beast is Rotten." (Streaming Version) [00:02:45]
-04. Que Minjam eths Nosti Mòrts [00:03:35](   Читать дальше...   )Жанр: Death Metal, Hardcore, BlackenedПродолжительность: 00:37:25
+01. Me & Mary Jane (Magic Mountain | 2014)
+02. Out Of Pocket (Screamin' At The Sky | 2023)
+03. Sunrise (Folklore & Superstition | 2008)
+04. Stop Runnin' (Black Stone Cherry | 2006)(   Читать дальше...   )Жанр: Hard rock, Southern rockПродолжительность: 04:25:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E970EDA492147292E2FB9A5B60E74E69ABD0DB3
+magnet:?xt=urn:btih:B428F615AA4AE1E468392810ED0ED4D1B0A3D890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804678   (65563) от 01.07.2025
+###  Публикация: 1796689   (66934) от 12.05.2025
 
-Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
+Журнал | Монокль №19 (1387) (5-11 мая 2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Østerdalen 0:26
-2. The Pale Moon 6:15
-3. Isolation 5:40
-4. The Great White River 6:30(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:48:48
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
+magnet:?xt=urn:btih:E8BD02FD9962B6432369B61653FC605B8EAEBB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,86 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804710   (65562) от 01.07.2025
+###  Публикация: 1796788   (66933) от 12.05.2025
 
-Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Moon [5:35]
-02. When You Wish Upon A Star [6:42]
-03. One For Amos [5:12]
-04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804649   (65561) от 01.07.2025
-
-Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Funk In The Jungle (Dub Mix) (3:35)
-02.  Free In The Jungle (3:58)
-03.  Energizer (3:14)
-04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804769   (65560) от 01.07.2025
-
-Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+VA - Markus Schulz - In Bloom 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
 
 >>Electronic
->>Radioshow, Live Mixes
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Bandit - One Eyed
-02. ID - ID
-03. ID - ID
-04. Rebel Of Sleep - Distant Thoughts(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:02:16
+01. Markus Schulz & Melody Mane - Stay Gold (In Bloom 2025) [3:36]
+02. Freak E Beatz & EKE - Maze (In Bloom 2025) (Dennis Sheperd Remix) [3:24]
+03. DJ T.H., Mino Dior, JAKE & Snowman - Higher Power (In Bloom 2025) [3:55]
+04. Trilucid - Calling (In Bloom 2025) (M.O.S. Remix) [3:13](   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 03:38:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB4E8C548FDE8979E4B4B8BA97517B09C10C265
+magnet:?xt=urn:btih:F9BE53502DAD4097F0DDC03B01A551B4E5423C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +109,185 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804766   (65559) от 01.07.2025
+###  Публикация: 1796727   (66932) от 12.05.2025
 
-Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
+Журнал | Квантик №4 (апрель 2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66932.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
+В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2BFABF602D43CEF1DD3E3E95CC3B839059DD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796711   (66931) от 12.05.2025
+
+Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me | Бог разрушения за соседней партой | Мой сосед – Бог разрушения! [2020, TV, 12 эп.] WebRip 1080 raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66931.jpg" />
+</div>
+
+
+###  Подробнее
+
+История поведает нам о Коюки Сэри, ученике старшей школы, который пытается избегать странных людей, поскольку знает, что он в конечном итоге станет жертвой их выходок. Кабуто Ханадори, одноклассник Коюки, у которого "синдром восьмиклассника", утверждает, что его повязка на глазу сдерживает его альтер-эго бога разрушения. Всё в Ханадори говорит о необходимости (   Читать дальше...   )Производство: EMT SquaredЖанр: комедия, повседневностьРежиссер: Нигорикава АцусиПеревод: CrunchyRollОзвучка: OriginalЯзык озвучки: Японский и РусскийЯзык субтитров: Английский и РусскийПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908AE68D2E29F31FB6F9434426FF1E1ECC0FB791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796226   (66930) от 12.05.2025
+
+Журнал | Историк №5 (125) (май 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66930.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяИздательство: АНО "СМИ Журнал "Историк"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201D46047E71683CDDBAC7DBE2F110391D48B96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796381   (66929) от 12.05.2025
+
+Журнал | Небосвод №7 (июль 2025) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будете в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBE1869BD0F6C34DCCF5730F9DA539D16061C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796732   (66928) от 12.05.2025
+
+Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 11.05.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF123D12E895E826632BE522D74A6F56E5B278B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796645   (66927) от 12.05.2025
+
+Ольга Безмирная | Мастерская иллюзий (дилогия) (2013) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет! Я Гром! То есть меня зовут Громвэдхазьер, но лучше Гром. Это прозвище, как говорит отец, полностью соответствует моему характеру. Я дроу. Если кто вдруг не знает, кто это такие, скажу: мы — темные эльфы. Те, что когда‑то обратили свою душу к тьме. Это по древним как мир преданиям светлых эльфов. Если почитать так лелеемые ими дряхлые манускрипты, так (   Читать дальше...   )Жанр: Фэнтези; ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9304185A5F826C3FD3AAB913C9360098DB8879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796726   (66926) от 12.05.2025
+
+VA - Chill Out Paradise, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>IDM (Lossless)
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flecks (06:24)
-02. Two Dimensional Time (11:04)
-03. Foxglove (05:07)
-04. Dangerman (04:41)(   Читать дальше...   )Жанр: IDM, Synthwave, TechnoПродолжительность: 00:48:34
+01.  Marc Hartman - For Better Or Worse (06:13)
+ 02.  Living Room - Don't Cry Baby (02:40)
+ 03.  Weathertunes; Faro - Heat (04:47)
+ 04.  Five Seasons - Fleeting Moments (Magnolia Mix) (06:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:715D0D70F28537D79EC7E06294C53AE6F5623091
+magnet:?xt=urn:btih:09EAE25BF48131CD1BAFD9B5E9FFBE14F11C6A0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +295,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804694   (65558) от 01.07.2025
+###  Публикация: 1796671   (66925) от 12.05.2025
 
-The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
+Аста Нильсен. Белые розы / Die weissen Rosen / De hvide Roser (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Криминальная драма. Актриса Тильда Вардье собирается впервые выйти на сцену в Остенде, и чтобы блеснуть, она одалживает драгоценности у своего жениха де Рошара. Банда злоумышленников крадет драгоценности. Получается, актриса виновата в пропаже фамильных драгоценностей Рошаров. Помолвка расстраивается. И теперь Тильде необходимо самой раскрыть преступление, чтобы (   Читать дальше...   )Производство: Германия / Projektions-AG Union (PAGU)Жанр: драма, криминал, немое киноРежиссер: Урбан ГадАктеры: Аста Нильсен, Эрнст Хофманн, Макс Ланда, Мэри Шеллер, Фред Иммлер, Херр Стенгел, Карл Ауен, Альфред Абель, Франц Арндт, Senta EichstaedtПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D3E6904939FA38B81A9D745D4F8A355FFCC66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796728   (66924) от 12.05.2025
+
+Raise Hell - Studio Albums (5 releases) (1998-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Conspire To Deceive
-A2 - Detonate
-A3 - Our Channel To The Darkness
-A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
+Raise Hell - шведская метал-группа. Основана в 1996 году в Стокгольме.1998 - Holy Target
+2000 - Not Dead Yet
+2002 - Wicked Is My Game
+2006 - City Of The Damned(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 03:39:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
+magnet:?xt=urn:btih:1110789C343DC51441031D57FDA04564AF33794E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +350,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804726   (65557) от 01.07.2025
+###  Публикация: 1796755   (66923) от 12.05.2025
 
-Иван Гончаров | Мильон терзаний (2018) [MP3, Михаил Росляков]
+VA - Ori Uplift - Uplifting Only Episode 639 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Русская классика.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Студия «МедиаКнига» представляет аудиокнигу русского писателя Ивана Александровича Гончарова «Мильон терзаний». Книга прочитана популярным артистом Михаилом Росляковым.
-Известный критический этюд И.А. Гончарова, посвященный (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 01:26:08
+01. LekSin, Yuri Melnikov – Black Rose (Intro Mix)
+02. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix) (Pre-Release Pick)
+03. Grande Piano & DreamLife – Shine Of Rays (Breakdown Of The Week)
+04. Alex M.O.R.P.H. – Walk The Edge (RAM Remix) (Fan Favorite (634))(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:08:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA8B4CE02FC8FC323D8DB20BF36DE3E544ABBA17
+magnet:?xt=urn:btih:46F21344B9AA95215986BF18437988BED24A34B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,57 +379,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804652   (65556) от 01.07.2025
+###  Публикация: 1796826   (66922) от 12.05.2025
 
-VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mister Funk - Beat Stuff (3:24)
-02.  Afro Dub - 7 Free To Travel (3:20)
-03.  Afro Dub - Afro Funk Beach (3:12)
-04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804746   (65555) от 01.07.2025
-
-Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+Stam - A Bit Edgy (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prenatal Obituary [00:02:06]
-02. Mors Mater Nostra [00:03:38]
-03. In Disgust They Shine [00:02:38]
-04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
+01.  Left No Crumbs (3:54)
+02.  Navel Gazing (4:08)
+03.  Better With You (3:23)
+04.  Moving On (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
+magnet:?xt=urn:btih:878080EF3505E958D13413D7C7A4D6E959F44814
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,27 +408,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804700   (65554) от 01.07.2025
+###  Публикация: 1796707   (66921) от 12.05.2025
 
-Иван Гончаров | Другой (2025) [MP3, Андрей Толубеев и др.]
+VA - Nothing But... Trancetopia, Vol. 26 (2025) [MP3|320 Kbps] <Trance>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр у вас дома.
-Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
-Роман «Обломов» – повествование о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залёг в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:00
+01. Atragun - Momento Of A Memory (Original Mix) [2:40]
+02. Ahmed Helmy & Waves_On_Waves - Under My Skin (Radio Edit) [2:54]
+03. Andy Triton - Deeper Underground (Original Mix) [4:25]
+04. Drunk Breeze - Goodbye Is The Only Way (Casepeat Remix) [4:00](   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6998693DEFF1608F1AC4D472DC395688E978ABDF
+magnet:?xt=urn:btih:702BBFF313FD22DAF900E10EF2BECC8FAD499CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +437,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804739   (65553) от 01.07.2025
+###  Публикация: 1796796   (66920) от 12.05.2025
 
-Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
+НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 4-й матч) Торонто Мейпл Лифс - Флорида Пантерс (11.05.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66920.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 мая 2025, понедельник. 02:30 МСК. Стадион: Амерант Банк Арена (Санрайз, США), 19 894 зрителя (102% при вместимости 19 434)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB85176672EE55387381901989CB12764D7A6653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796781   (66919) от 12.05.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 10 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Drift - Red Kite (Original Mix) [3:43]
+02. Cold Face & N-sKing - Minami (Original Mix) [3:06]
+03. Gore - Dancing With Shadows (Radio Edit) [3:12]
+04. Diesel Junior - Rhythm Of The Night (Original Mix) [4:59](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36DCAC86E0360F76DB2F4491EF24316CEC3955C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796704   (66918) от 12.05.2025
+
+Tale of Fairy Tail: Koori no Kiseki | Хвост Феи. Ледяная тропа (2014) [1 том, 15 глав] [Манга] [Русский] [PNG, JPG] [Complete]
+
+>>Манга и Арт
+>>Манга, Манхва, Маньхуа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка Хвост Феи: Ледяная тропа рассказывает о приключениях Грея до того, как он стал частью Хвоста Феи, и о трудностях, которые он преодолевает, чтобы стать сильнее.Жанр: фэнтези, драма, сёнэн, боевик, приключения, комедияФормат: PNG, JPGПродолжительность: 16 июля 2014 - 17 июля 2015
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E39A5B4B8F88F3A15DBD60C8E3CE409F6D773E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796828   (66917) от 12.05.2025
+
+Star Overdrive - Star Overdrive 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death From Above [00:04:19]
-02. They Watched [00:05:00]
-03. Your Truth [00:04:04]
-04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
+01.  iON (1:11)
+02.  Star Overdrive (3:09)
+03.  Orbit Drifter (2:57)
+04.  Hot Rush (2:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
+magnet:?xt=urn:btih:ECA80FD1C3A7BEA7961718781CEF67B6EC5C4451
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,376 +548,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804866   (65552) от 02.07.2025
+###  Публикация: 1796859   (66916) от 12.05.2025
 
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65552.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1414104290D0F2F1A180DD9B3F88FCCA7B621B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804848   (65551) от 02.07.2025
-
-MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804863   (65550) от 02.07.2025
-
-Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65550.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Decadence [1:59]
-2 - Within Reach [4:58]
-3 - A Paths Deceit [6:13]
-4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804855   (65549) от 02.07.2025
-
-MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - December Coma [7:42]
-02 - In Perpetum [5:05]
-03 - Brennt [4:30]
-04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBAC7EA9696E70C471ED1B5AB01BFDB8625CC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805042   (65548) от 03.07.2025
-
-Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold On Stay Strong (4:32)
-02.  I Ain't Got No Money (2:45)
-03.  I'm The One To Blame (4:58)
-04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805061   (65547) от 03.07.2025
-
-Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'll Move On (4:33)
-02.  Evil Might Win (3:41)
-03.  Can I Play the Blues? (4:35)
-04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804892   (65546) от 03.07.2025
-
-Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  - Maniac [00:03:26]
-2.  - Psychobilly Town [00:03:22]
-3.  - Walking Dead [00:02:01]
-4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804901   (65545) от 03.07.2025
-
-Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lock, Stock & Two Smoking Barrels [00:03:40]
-02. One Day in Prison [00:03:45]
-03. Who's Your Neighbour? [00:03:45]
-04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805000   (65544) от 03.07.2025
-
-Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side A [00:00:36]
-02. Воздуха нет [00:02:17]
-03. In the Dark [00:02:46]
-04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805037   (65543) от 03.07.2025
-
-VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lo Greco Bros - Folk Song Bass (4:46)
-02.  Joe Allotta - Leave Me Alone (2:43)
-03.  Tallulah Rose - Friends (4:16)
-04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805058   (65542) от 03.07.2025
-
-John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  That Train Don't Go There Anymore (4:23)
-02.  Angel Drifting North (4:27)
-03.  We Fell into the Fire (4:15)
-04.  It's Getting Dark out There (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8727B733E9BEF6C4A8237344FF343E31D44AB405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
-
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804921   (65540) от 03.07.2025
-
-Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
+Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Reissue, 2009, Island Records [FLAC|Lossless|image + .cue] <Folk Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66916.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Family Life [2:50]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
+01. I Wish I Was a Fool for You (For Shame of Doing Wrong)
+02. Stranger to Himself
+03. I’m a Dreamer
+04. Take Me Away(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:17:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
+magnet:?xt=urn:btih:8933762B03F0765C7120E8D922051CA97EED9A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796825   (66915) от 12.05.2025
+
+Kurt Deimer - And So it Begins (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance (3:47)
+02.  Naive (3:19)
+03.  Burn Together (4:17)
+04.  Back of the School (3:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B65035C1FAA0BF9D1C129C708A47241FB17EAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796762   (66914) от 12.05.2025
+
+VA - Trance Fusion, Vol. 10 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drunk Breeze - Goodbye Is The Only Way (Speed DJ & DJ Spaceman Remix) [3:03]
+02. Glacial Storm & Speed DJ - Moments (Original Mix) [3:36]
+03. TORUKK - Vesta (Original Mix) [3:37]
+04. Air Project & Victor Special - Space And Time In El Paraiso (Original Mix) [4:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3663919AFC9E4E407B72BAE7AB29EB3F8CDB9360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796822   (66913) от 12.05.2025
+
+Mezcaleros - No Way Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Overdose (4:18)
+02.  Fallin' Down (4:54)
+03.  She is Gone (4:13)
+04.  Mojave Desert Storm (5:50)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E71F4B13A5807CB8E0B151524E34E6ED9FAB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796677   (66912) от 12.05.2025
+
+VA - Armin van Buuren - A State Of Trance 1224 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat Zoë Johnston – Carry Me Home
+02. UUFO & Amber Revival – The Open Road
+03. Ahmed Helmy – I Think I May!
+04. Aimoon & ARS – Hyperspace(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74675D2D137C05390E983FC511BB3E452C86ACAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796832   (66911) от 12.05.2025
+
+Tad Robinson - Soul In Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Keep It In The Vault (4:47)
+02.  Out Of Sight and Out Of Mind (5:15)
+03.  Somewhere There's A Train (3:52)
+04.  (I'm) Down to My Last Heartbreak (3:50)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487BEECFC05AB1AE0AD457BCD48C47006ED3B086
 ```
 
 https://mybot314.ru/tekegram_catalog/

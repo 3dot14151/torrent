@@ -6,7 +6,7 @@ The Foundry NUKE STUDIO 10.0v2 + HIERO 10.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711776.jpg" />
+  <img src="Z:/picture/008/save_picture_711776.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Maxthon Browser 5.2.1.3000 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711720.jpg" />
+  <img src="Z:/picture/008/save_picture_711720.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711699.jpg" />
+  <img src="Z:/picture/005/save_picture_711699.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Auslogics BoostSpeed 5.0.6.250 (от 27.04.2011) [RU/EN] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711694.jpg" />
+  <img src="Z:/picture/005/save_picture_711694.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ExperienceIndexOK 1.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711674.jpg" />
+  <img src="Z:/picture/008/save_picture_711674.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ ReNamer Pro 6.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711664.jpg" />
+  <img src="Z:/picture/008/save_picture_711664.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Windows 10 Manager 1.1.4 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711614.jpg" />
+  <img src="Z:/picture/008/save_picture_711614.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Infix PDF Editor Pro 7.2.5 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711572.jpg" />
+  <img src="Z:/picture/008/save_picture_711572.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711561.jpg" />
+  <img src="Z:/picture/008/save_picture_711561.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ WinUtilities Professional Edition 11.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711515.jpg" />
+  <img src="Z:/picture/008/save_picture_711515.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ VSO ConvertXtoDVD 5.3.0.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711499.jpg" />
+  <img src="Z:/picture/008/save_picture_711499.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TechSmith Snagit 13.0.0 Build 6248 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711474.jpg" />
+  <img src="Z:/picture/008/save_picture_711474.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ ICE Book Reader Professional 9.5.0 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711458.jpg" />
+  <img src="Z:/picture/008/save_picture_711458.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ FinePrint 8.37 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711457.jpg" />
+  <img src="Z:/picture/008/save_picture_711457.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ummy Video Downloader 1.7.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711449.jpg" />
+  <img src="Z:/picture/008/save_picture_711449.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Hetman Office Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711430.jpg" />
+  <img src="Z:/picture/008/save_picture_711430.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Hetman Uneraser 4.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711428.jpg" />
+  <img src="Z:/picture/008/save_picture_711428.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.1.17 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711423.jpg" />
+  <img src="Z:/picture/008/save_picture_711423.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ KeePass Password Safe 2.34 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711356.jpg" />
+  <img src="Z:/picture/008/save_picture_711356.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ESET Endpoint Security 6.4.2014.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711333.jpg" />
+  <img src="Z:/picture/008/save_picture_711333.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WinUtilities Professional Edition 11.37 RePack by Loginvovchyk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711332.jpg" />
+  <img src="Z:/picture/008/save_picture_711332.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ uTorrent 3.5.3 Build 44396 Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711275.jpg" />
+  <img src="Z:/picture/008/save_picture_711275.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Uninstall Tool 3.5.5 Build 5580 RePack (& Portable) by elchupaсabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711273.jpg" />
+  <img src="Z:/picture/008/save_picture_711273.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Hetman Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711270.jpg" />
+  <img src="Z:/picture/008/save_picture_711270.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ ESET Endpoint Antivirus 6.4.2014.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711219.jpg" />
+  <img src="Z:/picture/008/save_picture_711219.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Blackmagic Design Fusion Studio 8.1 Build 36 + Edit Connection Repack TeamVR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711209.jpg" />
+  <img src="Z:/picture/008/save_picture_711209.jpg" />
 </div>
 
 

@@ -1,3 +1,213 @@
+###  Публикация: 616511   (974457) от 10.02.2013
+
+3DMark06 1.21 Professional Edition [Английский]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974457.jpg" />
+</div>
+
+
+###  Подробнее
+
+3DMark позиционируется разработчиками как объективное, независимое, нейтральное и достоверное средство для тестирования производительности и стабильности компьютерных систем. Более того, разработчики позиционируют 3DMark, в особенности её игровые тесты, как будущее компьютерных игр. Так, во всех игровых тестах присутствуют графические технологии, которые находятся на этапе доработки и внедрения в компьютерные игры, а иногда и вовсе отсутствуют. Изначально серия 3DMark ориентировалась на DirectX API и использовала только его.
+
+(   Читать дальше...   )Название программы: 3DMark06  Professional EditionЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360222   (960293) от 15.02.2020
+
+Paragon Partition Manager 17.9.1 CE [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Partition Manager Community edition – свободно распространяемая версия продукта для домашних пользователей этого замечательного программного обеспечения. Программа легко устанавливается на компьютер, имеет привычно приятный внешний вид со стандартными элементами управления. Несмотря на бесплатность, имеется очень неплохой набор инструментов, позволяющий решать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFF54A97E0D2164BBA6406F36164A55C6952782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361183   (956743) от 18.02.2020
+
+Raxco PerfectDisk Pro Business/Server 14.0 Build 895 RePack by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Raxco PerfectDisk - программа для дефрагментации жесткого диска. Оптимизирует при своей работе файл подкачки, MFT таблицу, а также физическое расположение на жёстком диске файлов и директорий. Для того чтобы начать дефрагментировать какой-либо диск, нужно выбрать сам диск и нажать кнопку запуска. При своей работе программа показывает изменяющуюся графическую таблицу, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F221AB8631BAC4E687502DEF8C544BAB41D790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091604   (942492) от 09.01.2017
+
+Abelssoft SSD Fresh 2017 6.1 Retail [En/De]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781FDE49128350F96F0752C245C767570948BAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986401   (929954) от 14.02.2016
+
+Paragon Hard Disk Manager 15 Business 10.1.25.813 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4272DA670D7C52CE6E9F31100DCA36812535A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288622   (921353) от 29.01.2011
+
+HDD Temperature 4.0.25 [Rus/Eng]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921353.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDD Temperature - это утилита, которая проверяет и контролирует температуру жестких дисков чтобы предотвратить потери данных. Используя технологию S.M.A.R.T. включенную в современные жесткие диски, эта программа анализирует и показывает их текущую температуру. Вы можете установить максимальное значение температуры диска и в случае ее превышения HDD Temperature сообщит Вам об этом. Администраторы сетей могут установить режим сообщения о перегреве по электронной почте или сообщением по сети. HDD Temperature не требует прав администратора для работы, поскольку главный модуль программы реализован в виде системного сервиса и функционирует незаметно для пользователя, что делает его использование удобным и эффективным в локальных сетях предприятий.Язык интерфейса: Rus/Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633425   (916011) от 22.03.2013
+
+Paragon Alignment Tool 4.0 Build 14819 Professional + Boot Media Builder [Английский]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Alignment Tool (PAT) - это утилита, позволяющая ускорить работу современных жестких дисков, RAID-массивов, виртуальных дисков, а также увеличить срок жизни SSD-накопителей за счет оптимизации размещения логических разделов. Paragon Alignment Tool (утилита выравнивания разделов) – средство, которое позволит Вам использовать передовые технологии наиболее эффективно! (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634369   (912197) от 24.03.2013
+
+Paragon Alignment Tool 4.0 Build 14819 Professional RePack [Русский]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Alignment Tool (PAT) - это утилита, позволяющая ускорить работу современных жестких дисков, RAID-массивов, виртуальных дисков, а также увеличить срок жизни SSD-накопителей за счет оптимизации размещения логических разделов. Paragon Alignment Tool (утилита выравнивания разделов) – средство, которое позволит Вам использовать передовые технологии наиболее эффективно! (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492715   (901827) от 30.08.2021
 
 Windows 11 Compatibility Checker 2.5 Portable [En]
@@ -6,7 +216,7 @@ Windows 11 Compatibility Checker 2.5 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901827.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ Unigine Superposition Benchmark 1.1 (Build 8628) Basic Edition [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897981.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ Unigine Valley Benchmark 1.0 Basic Edition [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897975.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ Disk Pulse Ultimate 9.3.16 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897239.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ SiSoftware Sandra Personal / Business / Engineer 2016.03.22.20 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896739.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ Bitsum CPUBalance Pro 1.0.0.90 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896539.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ Paragon Linux File Systems for Windows 5.2.1146 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890137.jpg" />
 </div>
 
 
@@ -188,7 +398,7 @@ Paragon Hard Disk Manager 15 Suite 10.1.25.813 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888996.jpg" />
+  <img src="Z:/picture/005/save_picture_888996.jpg" />
 </div>
 
 
@@ -214,7 +424,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 895 [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879754.jpg" />
+  <img src="Z:/picture/005/save_picture_879754.jpg" />
 </div>
 
 
@@ -240,7 +450,7 @@ HDD Guardian 0.7.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861787.jpg" />
+  <img src="Z:/picture/008/save_picture_861787.jpg" />
 </div>
 
 
@@ -266,7 +476,7 @@ SSDkeeper Professional 1.0.0.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861785.jpg" />
+  <img src="Z:/picture/008/save_picture_861785.jpg" />
 </div>
 
 
@@ -292,7 +502,7 @@ UltraDefrag 7.0.1 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855121.jpg" />
+  <img src="Z:/picture/008/save_picture_855121.jpg" />
 </div>
 
 
@@ -318,7 +528,7 @@ MemTest86 9.3 Build 1000 Pro [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839341.jpg" />
+  <img src="Z:/picture/008/save_picture_839341.jpg" />
 </div>
 
 
@@ -344,7 +554,7 @@ Paragon ExtFS for Windows 2.1.440 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839302.jpg" />
+  <img src="Z:/picture/008/save_picture_839302.jpg" />
 </div>
 
 
@@ -370,7 +580,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 900 RePack by KpoJIu
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831550.jpg" />
 </div>
 
 
@@ -396,7 +606,7 @@ EVGA Precision X 5.3.11 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824783.jpg" />
 </div>
 
 
@@ -422,7 +632,7 @@ PassMark PerformanceTest 10.1 Build 1007 RePack (& Portable) by elchupacabra [En
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817361.jpg" />
+  <img src="Z:/picture/008/save_picture_817361.jpg" />
 </div>
 
 
@@ -448,7 +658,7 @@ SetFSB 2.3 Build 173.133 Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816726.jpg" />
+  <img src="Z:/picture/008/save_picture_816726.jpg" />
 </div>
 
 
@@ -459,215 +669,6 @@ SetFSB - утилита, предназначенная для разгона ц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D639AAB19F714F6D7876E83FDA28392A01E1C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509029   (795283) от 11.11.2021
-
-Paragon Hard Disk Manager Advanced 17.20.9 RePack by elchupacabra [En]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05B6D038731451B965657842BBCE1176233E367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509989   (792559) от 14.11.2021
-
-USB Low-Level Format 5.01 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792559.jpg" />
-</div>
-
-
-###  Подробнее
-
-USB Low-Level Format (Низкоуровневое форматирование) - это процесс форматирования диска, который восстанавливает его заводские настройки по умолчанию. USB-накопители удобно использовать для передачи данных, однако различные варианты использования приводят к множеству проблем. Например, USB флэш-накопитель по неизвестным причинам может содержать меньше емкости, чем (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E2DF026AADCE5AE4E617858D019195A502EE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510373   (791242) от 16.11.2021
-
-USB Low-Level Format 5.01 RePack by AlexYar Portable [Ru]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791242.jpg" />
-</div>
-
-
-###  Подробнее
-
-USB Low-Level Format (Низкоуровневое форматирование) - это процесс форматирования диска, который восстанавливает его заводские настройки по умолчанию. USB-накопители удобно использовать для передачи данных, однако различные варианты использования приводят к множеству проблем. Например, USB флэш-накопитель по неизвестным причинам может содержать меньше емкости, чем (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBBCD4866CF67F34C40E7584291769D54967FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123682   (786038) от 09.04.2017
-
-UltimateDefrag 5.0.16.0 RePack by elchupacabra [Ru/En]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786038.jpg" />
-</div>
-
-
-###  Подробнее
-
-UltimateDefrag - дефрагментатор и оптимизатор размещения файлов на жестком диске. Программа имеет высокую скорость работы и позволяет достигнуть максимальных результатов. Дефрагментация файлов - только незначительная часть улучшения работоспособности накопителя, другая, более важная часть - относительное размещение наиболее часто используемых файлов на винчестере, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7CCC0B1FD5B4AE32E7C2F3AA53AA4A5C36425C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207701   (780318) от 19.02.2018
-
-Abelssoft SSD Fresh Plus 2018 7.3 RePack by Susel [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE822959D84483090D2E23D6A8FDC288985DE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391846   (771363) от 22.06.2020
-
-LeoMoon CPU-V 2.0.4 Portable [Multi]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771363.jpg" />
-</div>
-
-
-###  Подробнее
-
-LeoMoon CPU-V - портативная утилита для проверки, поддерживает ли ваш компьютер технологию виртуализации. Утилита позволяет просмотреть процессоры, скомпилировать детали и проанализировать состояние VT-x. LeoMoon CPU-V также обнаружит, включена ли аппаратная виртуализация в BIOS, а также включена ли технология Intel Trusted Execution. Программа с простым и понятным (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Персидский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BE6F77067D4B7C457E4970E814A1AB315D2B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392244   (769711) от 24.06.2020
-
-ESET SysInspector 1.4.2.0 Portable [Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа анализирует Вашу операционную систему и фиксирует детали запущенных процессов, содержание реестра , элементы автозагрузки и сетевые соединения. После того как, ESET SysInspector сделал снимок системы, применяется эвристический метод присвоения степени риска для каждого объекта в журнал.
-    Программа имеет интуитивный графический интерфейс, что позволит пользователю (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42FE0D8D4CDB8B5A4C3A55F3711199A6510F1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281170   (754837) от 06.02.2019
-
-Futuremark 3DMark Developer Edition 2.7.6296 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754837.jpg" />
-</div>
-
-
-###  Подробнее
-
-3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере,ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772C50E88A34739AC7C7A7AAC49DEBDE17758EE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

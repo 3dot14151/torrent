@@ -1,3 +1,29 @@
+###  Публикация: 1571432   (429333) от 23.08.2022
+
+Фотография - ArtStation - Grafit Studio - 460+ Anime Girl Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет содержит более 460 эталонных изображений в высоком разрешении с женскими позами, вдохновленными персонажами аниме. В этом выпуске мы собрали множество поз в стиле аниме и включили большое количество ракурсов и несколько вариаций костюмов. В наборе также есть портреты крупным планом с выражениями персонажей и разным освещением. Это будет отличный инструмент (   Читать дальше...   )Формат: JPGРазрешение файлов: 2289x2639 - 5226x3548
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BA8ED1B518007AC84CE933DB5BED4223BAD0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946093   (429295) от 12.10.2015
 
 Обои - Beautiful Autumn HD Wallpapers Set 6 [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429295.jpg" />
+  <img src="Z:/picture/008/save_picture_429295.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429172.jpg" />
+  <img src="Z:/picture/008/save_picture_429172.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429170.jpg" />
+  <img src="Z:/picture/008/save_picture_429170.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429125.jpg" />
+  <img src="Z:/picture/008/save_picture_429125.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428928.jpg" />
+  <img src="Z:/picture/008/save_picture_428928.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428813.jpg" />
+  <img src="Z:/picture/008/save_picture_428813.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428781.jpg" />
+  <img src="Z:/picture/008/save_picture_428781.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427153.jpg" />
+  <img src="Z:/picture/008/save_picture_427153.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Wallpapers - Sexy Girl Full HD 3 [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425788.jpg" />
+  <img src="Z:/picture/008/save_picture_425788.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425121.jpg" />
+  <img src="Z:/picture/008/save_picture_425121.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425109.jpg" />
+  <img src="Z:/picture/008/save_picture_425109.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424948.jpg" />
+  <img src="Z:/picture/008/save_picture_424948.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424946.jpg" />
+  <img src="Z:/picture/008/save_picture_424946.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424614.jpg" />
+  <img src="Z:/picture/008/save_picture_424614.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424613.jpg" />
+  <img src="Z:/picture/008/save_picture_424613.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424610.jpg" />
+  <img src="Z:/picture/008/save_picture_424610.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424605.jpg" />
+  <img src="Z:/picture/008/save_picture_424605.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424478.jpg" />
+  <img src="Z:/picture/008/save_picture_424478.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424333.jpg" />
+  <img src="Z:/picture/008/save_picture_424333.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423349.jpg" />
+  <img src="Z:/picture/008/save_picture_423349.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422566.jpg" />
+  <img src="Z:/picture/008/save_picture_422566.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422547.jpg" />
+  <img src="Z:/picture/008/save_picture_422547.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422444.jpg" />
+  <img src="Z:/picture/008/save_picture_422444.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422401.jpg" />
+  <img src="Z:/picture/008/save_picture_422401.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421634.jpg" />
+  <img src="Z:/picture/008/save_picture_421634.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DBDF7DAEE32B3940CB12ED96BE13376DE8F82D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556525   (421614) от 07.10.2012
-
-[Фотография] Photos from Наталья Мельникова
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Натальи Мельниковой.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F9F06894C141C92BE6591FB7A71B2EF2F5A4B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

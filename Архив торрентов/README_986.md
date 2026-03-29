@@ -6,7 +6,7 @@ Priime Styles 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821496.jpg" />
+  <img src="Z:/picture/008/save_picture_821496.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VA - Record Super Chart № 183 (2011) [MP3|320 kbps]<House, Electro, Trance, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821474.jpg" />
+  <img src="Z:/picture/008/save_picture_821474.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PDF-XChange Pro v4.0194 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821471.jpg" />
+  <img src="Z:/picture/008/save_picture_821471.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821469.jpg" />
+  <img src="Z:/picture/008/save_picture_821469.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821465.jpg" />
+  <img src="Z:/picture/008/save_picture_821465.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821464.jpg" />
+  <img src="Z:/picture/008/save_picture_821464.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821456.jpg" />
+  <img src="Z:/picture/008/save_picture_821456.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ iBoostUp Premium 9.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821452.jpg" />
+  <img src="Z:/picture/008/save_picture_821452.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Timemator 2 v2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821451.jpg" />
+  <img src="Z:/picture/008/save_picture_821451.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Hides 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821450.jpg" />
+  <img src="Z:/picture/008/save_picture_821450.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821448.jpg" />
+  <img src="Z:/picture/008/save_picture_821448.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Disk Graph 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821445.jpg" />
+  <img src="Z:/picture/008/save_picture_821445.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Raheem DeVaughn & Apollo Brown - Lovesick (2021) [FLAC|Lossless|tracks + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821444.jpg" />
+  <img src="Z:/picture/008/save_picture_821444.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Stats 2.6.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821440.jpg" />
+  <img src="Z:/picture/008/save_picture_821440.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ IObit Uninstaller Free 11.1.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821430.jpg" />
+  <img src="Z:/picture/008/save_picture_821430.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Muse Insight - умный плеер для ВКонтакте 0.13.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821406.jpg" />
+  <img src="Z:/picture/008/save_picture_821406.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821403.jpg" />
+  <img src="Z:/picture/008/save_picture_821403.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ John Dopping - Words In Colour Rephrased Vol. 1 (2016) EP [MP3|320 кб/с] <Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821402.jpg" />
+  <img src="Z:/picture/008/save_picture_821402.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Новая Жажда Скорости Vol.22 (2016) [MP3|320 кб/с] <Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821399.jpg" />
+  <img src="Z:/picture/008/save_picture_821399.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821396.jpg" />
+  <img src="Z:/picture/008/save_picture_821396.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821395.jpg" />
+  <img src="Z:/picture/008/save_picture_821395.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821392.jpg" />
+  <img src="Z:/picture/008/save_picture_821392.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821387.jpg" />
+  <img src="Z:/picture/008/save_picture_821387.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821375.jpg" />
+  <img src="Z:/picture/008/save_picture_821375.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ AnyGo 5.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821346.jpg" />
+  <img src="Z:/picture/008/save_picture_821346.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Wondershare PDFelement Pro 8.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821342.jpg" />
+  <img src="Z:/picture/008/save_picture_821342.jpg" />
 </div>
 
 

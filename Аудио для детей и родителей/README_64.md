@@ -1,3 +1,89 @@
+###  Публикация: 1078215   (301747) от 12.11.2020
+
+Марк Твен | Приключения Гекльберри Финна (2003) [MP3, Сергей Кирсанов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть, являющаяся продолжением книги "Приключения Тома Сойера". Герой и рассказчик книги Гек Финн - бездомный мальчик, но он никогда не променяет свои лохмотья и бочку, служившую ему приютом, на "гнусные и душные дома". Гек убегает на остров, спасая свою жизнь и свободу, а затем и жизнь беглого раба Джима...Жанр: Детская литература, приключенияИздательство: АрдисПродолжительность: 12:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D3AB445A3FC7D41AAB2D6F3027E1E2F9D8CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074601   (301644) от 12.11.2020
+
+VA - Teen Voice. Сборник детских песен (2016) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голос
+02. Зажигай
+03. Игрушка
+04. Я знаю, где-то живёт весна(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD89221F786FA8F378406A82F3F380FDC635770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585739   (300771) от 07.12.2012
+
+Робинс | Сказочный подарок на Новый год и Рождество [2012] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник волшебных сказок - удивительный подарок для ребенка любого возраста!
+ Путешествуя в чудесном мире сказок, малыш познакомится с храбрым Щелкунчиком, отважной Гердой и холодной Снежной королевой, доброй Снегурочкой и чудесной бабушкой Метелицей, побывает в гостях у Двенадцати месяцев. Ребята узнают, как победить  зло и трусость  и что такое настоящая дружба,  добро и отвага.  Волшебные приключения ждут маленьких слушателей1. Щелкунчик (17:04)
+ 2. Снежная королева (12:08)
+ 3. Бабушка метелица (6:36)
+ 4. Снегурочка (4:38)
+ 5. Двенадцать месяцев (18:36)Жанр: Сказки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BE46124B0B036B496C8913C1AA2B58E0DF088C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078572   (300702) от 01.12.2016
 
 Александр Грин | Золотая цепь (2008) [MP3]
@@ -6,7 +92,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300702.jpg" />
+  <img src="Z:/picture/008/save_picture_300702.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300280.jpg" />
+  <img src="Z:/picture/008/save_picture_300280.jpg" />
 </div>
 
 
@@ -58,7 +144,7 @@ VA - The Backyardigans - Born to Play (2008) [MP3|224 kbps]<Детские пе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300108.jpg" />
+  <img src="Z:/picture/008/save_picture_300108.jpg" />
 </div>
 
 
@@ -87,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299838.jpg" />
+  <img src="Z:/picture/008/save_picture_299838.jpg" />
 </div>
 
 
@@ -113,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299788.jpg" />
+  <img src="Z:/picture/008/save_picture_299788.jpg" />
 </div>
 
 
@@ -139,7 +225,7 @@ VA - Das Traumstern-Orchester spielt Hits [12CD] (2010) [MP3|320 кб/с]<Instru
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297183.jpg" />
+  <img src="Z:/picture/008/save_picture_297183.jpg" />
 </div>
 
 
@@ -165,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296826.jpg" />
+  <img src="Z:/picture/008/save_picture_296826.jpg" />
 </div>
 
 
@@ -191,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296122.jpg" />
+  <img src="Z:/picture/008/save_picture_296122.jpg" />
 </div>
 
 
@@ -217,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296020.jpg" />
+  <img src="Z:/picture/008/save_picture_296020.jpg" />
 </div>
 
 
@@ -244,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296019.jpg" />
+  <img src="Z:/picture/008/save_picture_296019.jpg" />
 </div>
 
 
@@ -271,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295946.jpg" />
+  <img src="Z:/picture/008/save_picture_295946.jpg" />
 </div>
 
 
@@ -299,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295944.jpg" />
+  <img src="Z:/picture/008/save_picture_295944.jpg" />
 </div>
 
 
@@ -325,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295938.jpg" />
+  <img src="Z:/picture/008/save_picture_295938.jpg" />
 </div>
 
 
@@ -351,7 +437,7 @@ Zouzounia - Christmas in the World (2009) [MP3|192 kbps]<Детские песе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295840.jpg" />
+  <img src="Z:/picture/008/save_picture_295840.jpg" />
 </div>
 
 
@@ -380,7 +466,7 @@ VA - Любимые детские песни (2009) [MP3|320 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295645.jpg" />
+  <img src="Z:/picture/008/save_picture_295645.jpg" />
 </div>
 
 
@@ -409,7 +495,7 @@ VA - Новогодние детские песенки (2011) [MP3|320 kbps]<Д
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295500.jpg" />
+  <img src="Z:/picture/008/save_picture_295500.jpg" />
 </div>
 
 
@@ -438,7 +524,7 @@ VA - Детский карнавал. Сборник песен для дете�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295489.jpg" />
+  <img src="Z:/picture/008/save_picture_295489.jpg" />
 </div>
 
 
@@ -467,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294362.jpg" />
+  <img src="Z:/picture/008/save_picture_294362.jpg" />
 </div>
 
 
@@ -496,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294265.jpg" />
+  <img src="Z:/picture/008/save_picture_294265.jpg" />
 </div>
 
 
@@ -525,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294150.jpg" />
+  <img src="Z:/picture/008/save_picture_294150.jpg" />
 </div>
 
 
@@ -551,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294144.jpg" />
+  <img src="Z:/picture/008/save_picture_294144.jpg" />
 </div>
 
 
@@ -580,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293736.jpg" />
+  <img src="Z:/picture/008/save_picture_293736.jpg" />
 </div>
 
 
@@ -609,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293369.jpg" />
+  <img src="Z:/picture/008/save_picture_293369.jpg" />
 </div>
 
 
@@ -620,84 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C25804DAE8FDDD28CE430FAC42AAA6C2B7DAD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334455   (293180) от 30.10.2019
-
-Кристина Гросс-Ло | Родители без границ. Секреты воспитания со всего мира (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правильно ли мы воспитываем детей? Кристина Гросс-Ло, мама двух девочек и двух мальчиков, признанный эксперт в области воспитания, считает, что лучший способ оценить собственные действия – взглянуть на них через призму иной культуры. Она берет читателя с собой в Финляндию, Францию, Германию, США, Японию, Китай и показывает, как в разных культурах принято развивать (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 09:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C017D7D4056A505897B98FE8AD0FB299FB7F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080074   (292148) от 05.12.2016
-
-Джордж Макдональд | Легковесная принцесса (2012) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невесомость тела приводит к невесомости души, которая не способна ни чувствовать чужую боль, ни любить. А как легко потерять себя в самодовольном "Я - Не-Кто-Нибудь!". Избалованная неразумными родителями маленькая принцесса не имеет никакого понятия о том, что такое любить, жалеть, сочувствовать. Такой беде не могут помочь даже самые именитые ученые. Тут (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD8796D0F877962130DA42784E18CF0C208C113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079863   (291981) от 05.12.2016
-
-Геннадий Гладков, Лазарь Лагин, Юрий Энтин | Хоттабыч! (1979) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается музыкальная комедия Лазаря Лагина и Юрия Энтина по повести Лазаря Лагина "Старик Хоттабыч". Музыка Геннадия Гладкова, стихи Юрия Энтина.Жанр: Детская литература, музыкальный аудиоспектакльПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC296A1AF588EA95B50F46A259A8EBD7783A113
 ```
 
 https://mybot314.ru/tekegram_catalog/

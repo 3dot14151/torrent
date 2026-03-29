@@ -1,3 +1,61 @@
+###  Публикация: 1159114   (487892) от 18.08.2017
+
+Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Massaggio di coppia
+02.  Momenti di assoluto relax
+03.  Ritrovare armonia e complicita
+04.  Onde oceaniche(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055355   (487872) от 22.09.2016
+
+Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Call to Prayer (02:19)
+02. Emitting Light (13:05)
+03. Mother of Souls (10:49)
+04. Eagle's Sight (02:39)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159138   (487735) от 18.08.2017
 
 VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
@@ -6,7 +64,7 @@ VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487735.jpg" />
+  <img src="Z:/picture/008/save_picture_487735.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487725.jpg" />
+  <img src="Z:/picture/008/save_picture_487725.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487329.jpg" />
+  <img src="Z:/picture/008/save_picture_487329.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487020.jpg" />
+  <img src="Z:/picture/008/save_picture_487020.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Atom Music Audio - Legion (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486809.jpg" />
+  <img src="Z:/picture/008/save_picture_486809.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Billy Vaughn - 3 альбома (1987-2005) [FLAC|Lossless]<Instrumental | Orche
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486725.jpg" />
+  <img src="Z:/picture/008/save_picture_486725.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Atom Music Audio - Singularity (2019) [MP3|320 Kbps] <Soundtrack, Synthwave, Cyb
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486692.jpg" />
+  <img src="Z:/picture/008/save_picture_486692.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Various Artists - Sucker Punch (2011) Original Motion Picture Soundtrack [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486322.jpg" />
+  <img src="Z:/picture/008/save_picture_486322.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Club di relax mentale - Esperienza rilassante (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486247.jpg" />
+  <img src="Z:/picture/008/save_picture_486247.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - New Age Dimension (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486129.jpg" />
+  <img src="Z:/picture/008/save_picture_486129.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486109.jpg" />
+  <img src="Z:/picture/008/save_picture_486109.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485998.jpg" />
+  <img src="Z:/picture/008/save_picture_485998.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485992.jpg" />
+  <img src="Z:/picture/008/save_picture_485992.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Frank Duval - Meine Schonsten Erfolge (1991) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485900.jpg" />
+  <img src="Z:/picture/008/save_picture_485900.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485668.jpg" />
+  <img src="Z:/picture/008/save_picture_485668.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484104.jpg" />
+  <img src="Z:/picture/008/save_picture_484104.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - A Love Song For Bobby Long (2004) Original Motion Picture Soundtrack [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484053.jpg" />
+  <img src="Z:/picture/008/save_picture_484053.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Devakant - 4 альбома (1993-2014) [MP3|320 кб/с]<New age, World, Relax,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483803.jpg" />
+  <img src="Z:/picture/008/save_picture_483803.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483741.jpg" />
+  <img src="Z:/picture/008/save_picture_483741.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ M83 - Oblivion (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless] <Left
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483701.jpg" />
+  <img src="Z:/picture/008/save_picture_483701.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Blackmore's Night - All Our Yesterdays (2015) [MP3|320 кб/с]<Folk, Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483655.jpg" />
+  <img src="Z:/picture/008/save_picture_483655.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483491.jpg" />
+  <img src="Z:/picture/008/save_picture_483491.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastere
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483293.jpg" />
+  <img src="Z:/picture/008/save_picture_483293.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483286.jpg" />
+  <img src="Z:/picture/008/save_picture_483286.jpg" />
 </div>
 
 
@@ -689,75 +747,6 @@ VA - Сестры (музыка к фильму) (2001) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2D42CA5B4958AE89E25D88E40E2ABBEF7D3C7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544980   (483226) от 11.09.2012
-
-William Jackson - Celtic Experience (Haunting Themes From Scotland & Ireland)   Vol.1-2 (1998-1999) [MP3|320 кб/с]<Folk, Celtic, Instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483226.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:03) 01. Flower of Scotland
-(3:09) 02. Brian Boru's March
-(4:18) 03. My Laggan Love
-(2:56) 04. Kintail
-(4:58) 05. Ossian's Lament
-(4:48) 06. Will you Go, Lassie, Go?
-(3:39) 07. The Young Girl
-(5:01) 08. The Glen of Copsewood
-(2:35) 09. O'Carolan's Farewell to Music
-(4:01) 10. The Sally Gardens(   Читать дальше...   )Жанр: Folk, Celtic, InstrumentalПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD0ECEB8CD27B271ADD3FD040B1FC229FFAA523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545038   (483224) от 11.09.2012
-
-Shaman's Dream - African Dream (2006) [MP3|320 кб/с]<New Age, Worldbeat, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakandao (04:58)
-02. Morani Warrior (07:16)
-03. Mbira Kosamdela (05:45)
-04. Losambo (06:45)
-05. Je Je Vignin (06:06)
-06. Ker Kerane (06:12)
-07. Naomba Ukuwe Mazuri (06:06)
-08. Entomononi (06:02)
-09. African Dreams (12:34)Жанр: New Age, Worldbeat, MeditativeПродолжительность: 1:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE876DF0E7477BE7965717D1461AEFD39971BF44
 ```
 
 https://mybot314.ru/tekegram_catalog/

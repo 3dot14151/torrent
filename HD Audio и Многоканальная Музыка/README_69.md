@@ -1,3 +1,235 @@
+###  Публикация: 1670413   (172141) от 20.10.2023
+
+Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172141.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Castaway (02:31)
+A2. Genesis (06:04)
+A3. Spirits Will Collide (04:39)
+A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670318   (172136) от 20.10.2023
+
+Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enemy (00:02:24)
+02 - Graveyard Words (00:02:54)
+03 - Look Alive (Netic) (00:03:13)
+04 - Head For The Hills (00:02:52)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B1936BE9F6882F6CB3666BC3A8D11F85BDDC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670294   (172120) от 20.10.2023
+
+Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Morning Has Broken
+A2 I Believe
+A3 Kumbayah
+A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670367   (172096) от 20.10.2023
+
+Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Head Is Spinning (2023 Remaster) (06:33)
+02. Forever In Love (2023 Remaster) (06:18)
+03. Kdx 125 (2023 Remaster) (06:26)
+04. We Came From Outer Space (2023 Remaster) (05:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6389DD0494755783B878E97D3F4FCF21F393BC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670597   (171948) от 21.10.2023
+
+Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171948.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Beyond Measure (01:31)
+A2. Blue Dot (03:08)
+A3. Drifting and Dreaming (04:26)
+A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670645   (171943) от 21.10.2023
+
+Duff McKagan - Lighthouse (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse (3:20)
+02. Longfeather (4:12)
+03. Holy Water (4:32)
+04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61F65FBB1E2D3E66EBBB0A3EBA6960AA86D0618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670637   (171940) от 21.10.2023
+
+Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171940.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Chromatic Ridge (03:44)
+A2. Life Is but a Dream (03:30)
+A3. Yucky Lung (01:22)
+A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670722   (171909) от 21.10.2023
+
+Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carcass on your Shoulders [00:04:45]
+02. Life in Chains [00:03:37]
+03. Make my Day [00:04:16]
+04. Master Bator [00:04:22](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E39396CE1EE9EA91C71FED79A8A83C650B4824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670640   (171894) от 21.10.2023
 
 Tom Petty & The Heartbreakers - Mojo (2010) Remaster, 2023, Reprise [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +238,7 @@ Tom Petty & The Heartbreakers - Mojo (2010) Remaster, 2023, Reprise [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171894.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ blink-182 - One More Time... (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-pun
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171868.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experime
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171756.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171754.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171752.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171743.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171738.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Afterbirth - In But Not Of (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171596.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171583.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ RuPaul - Essential Christmas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171560.jpg" />
 </div>
 
 
@@ -293,7 +525,7 @@ Beartooth - The Surface (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171527.jpg" />
 </div>
 
 
@@ -322,7 +554,7 @@ Lynch Mob - Babylon (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171514.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171506.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ Martin Solveig - Back To Life (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Danc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171420.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ Death - Human (1991) Reissue 2021, Relapse Records [FLAC|24/96|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171235.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ Gorefest (& The 11th Hour) - Studio Albums (9 releases) (1991-2012) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171225.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Rykarda Parasol - Tuesday Morning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171220.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171072.jpg" />
 </div>
 
 
@@ -510,238 +742,6 @@ Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC 24/48|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B09FCD22C47429973896FD1614067FFF1DAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671941   (171058) от 26.10.2023
-
-Dokken - Heaven Comes Down (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fugitive (3:57)
-02. Gypsy (4:19)
-03. Is It Me Or You? (4:23)
-04. Just Like A Rose (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393EC4CC4FE3860A61A86BC0877E97A86B9B82E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672002   (171035) от 26.10.2023
-
-In This Moment - Godmode (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godmode (4:01)
-02. The Purge (3:59)
-03. Army Of Me (3:10)
-04. Sacrifice (4:22)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B1D5CCD8EEA43B7C642B6D90A909C428DB573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671991   (171030) от 26.10.2023
-
-Doro - Conqueress - Forever Strong and Proud (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children of the Dawn (4:07)
-02. Fire in the Sky (3:27)
-03. Living After Midnight (3:53)
-04. All For You (3:55)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650520CD5F9D30CCC8C49630BFB539F3A1B844E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671966   (170992) от 26.10.2023
-
-Duran Duran - Danse Macabre (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightboat (4:23)
-02. Black Moonlight (3:07)
-03. Love Voudou (4:29)
-04. Bury A Friend (3:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332A9615BA239E7DAC7941A40478136FA1C05A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672036   (170503) от 27.10.2023
-
-Endseeker - Global Worming (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Worming (4:10)
-02. Hell Is Here (5:36)
-03. Violence Is Gold (4:13)
-04. Wheel of Torture (5:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E74884A72DBF89438CB01C1A029D06A87A9ED9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672026   (170466) от 27.10.2023
-
-The Gaslight Anthem - History Books (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spider Bites (4:19)
-02. History Books (feat. Bruce Springsteen) (3:53)
-03. Autumn (4:01)
-04. Positive Charge (4:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAAF5EDDEABD2AA730F310028DD2E02EB13B4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671899   (170463) от 27.10.2023
-
-Tower Hill - Deathstalker (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Old School Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathstalker [00:05:57]
-02. The Claw is the Law [00:03:37]
-03. Fighting Spirits [00:04:25]
-04. Kings Who Die [00:04:38](   Читать дальше...   )Жанр: Old School Heavy MetalПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45D609771C0892F12B8745E5E07676319A579A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672105   (170456) от 27.10.2023
-
-W.E.B. - Into Hell Fire We Burn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Extreme Symphonic-Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Hell Fire We Burn (4:01)
-02. Forbidden Storm (5:57)
-03. Necrology of Hel (4:43)
-04. Lunar Nightmares (3:26)(   Читать дальше...   )Жанр: Extreme Symphonic-Gothic MetalПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FB7064B607C1C4AC2A8F20F7245B389FAFABC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

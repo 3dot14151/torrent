@@ -1,3 +1,83 @@
+###  Публикация: 1165880   (430475) от 14.09.2017
+
+М.А. Васильев | Язычество восточных славян накануне крещения Руси: Религиозно-мифологическое взаимодействие с иранским миром. Языческая реформа князя Владимира (1999) [PDF, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография представляет собой комплексное исследование по проблемам, связанным с функциями, обликом, временем и путями проникновения в восточнославянское язычество иранских (сармато-аланских) по своему происхождению богов Хорса и Семаргла, а также с "первой религиозной реформой" (980–988) великого князя Владимира Святославича. Рассматриваются также вопросы (   Читать дальше...   )Жанр: РелиговедениеФормат: PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6DC32EC2EBD3311D850F87DB8D1E1513BF8A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249829   (429139) от 26.09.2018
+
+Благовест (изд.) | Молитвослов «Господи, храни моих детей» (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Православный молитвослов «Господи, храни моих детей» содержит молитвы родителей о своих детях, молитвы о даровании детей, молитвы о младенцах, молитвы об учении детей, о благополучном возрастании детей и их жизненном устройстве, о болящих детях, об усопших детях, молитвы на разные случаи. В книгу вошли акафисты Пресвятой Богородице и святым угодникам Божиим.
+
+Рекомендовано (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BD19D19EED190D83CD79C138EA49751C6AC16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946304   (427373) от 13.10.2015
+
+Б. И. Гальперин | Религиозный экстремизм: кто есть кто (1989) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427373.jpg" />
+</div>
+
+
+###  Подробнее
+
+В научно-популярной книге раскрываются сущность и идейные истоки религиозного экстремизма, его социальная обусловленность. Показывается антиобщественный характер идеологии и практики религиозно-экстремистских групп, их поддержка буржуазно-клерикальными кругами, заинтересованными в переводе религиозно-экстремистской деятельности на рельсы политической оппозиции советскому (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA66CD2A45BC77C180F38FEF784866898AD2C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946473   (427305) от 13.10.2015
 
 Диакон Георгий Максимов | Православие и неоязычество: где правда? (2014) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427305.jpg" />
+  <img src="Z:/picture/008/save_picture_427305.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425350.jpg" />
+  <img src="Z:/picture/008/save_picture_425350.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425267.jpg" />
+  <img src="Z:/picture/008/save_picture_425267.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425265.jpg" />
+  <img src="Z:/picture/008/save_picture_425265.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425253.jpg" />
+  <img src="Z:/picture/008/save_picture_425253.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421951.jpg" />
+  <img src="Z:/picture/008/save_picture_421951.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421847.jpg" />
+  <img src="Z:/picture/008/save_picture_421847.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421768.jpg" />
+  <img src="Z:/picture/008/save_picture_421768.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420981.jpg" />
+  <img src="Z:/picture/008/save_picture_420981.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420979.jpg" />
+  <img src="Z:/picture/008/save_picture_420979.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420878.jpg" />
+  <img src="Z:/picture/008/save_picture_420878.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420877.jpg" />
+  <img src="Z:/picture/008/save_picture_420877.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420875.jpg" />
+  <img src="Z:/picture/008/save_picture_420875.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420874.jpg" />
+  <img src="Z:/picture/008/save_picture_420874.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420872.jpg" />
+  <img src="Z:/picture/008/save_picture_420872.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420868.jpg" />
+  <img src="Z:/picture/008/save_picture_420868.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420866.jpg" />
+  <img src="Z:/picture/008/save_picture_420866.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420863.jpg" />
+  <img src="Z:/picture/008/save_picture_420863.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420861.jpg" />
+  <img src="Z:/picture/008/save_picture_420861.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420859.jpg" />
+  <img src="Z:/picture/008/save_picture_420859.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420727.jpg" />
+  <img src="Z:/picture/008/save_picture_420727.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420716.jpg" />
+  <img src="Z:/picture/008/save_picture_420716.jpg" />
 </div>
 
 
@@ -582,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420712.jpg" />
+  <img src="Z:/picture/008/save_picture_420712.jpg" />
 </div>
 
 
@@ -593,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A1CB54B69AB8362AF14737BF53AB96DE1F6FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946965   (420711) от 16.10.2015
-
-В. А. Бугаев, А. Л. Кац | Явления природы и суеверия (1965) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра повествует о природных явлениях и людских суевериях.Жанр: История, естествознание, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEB2A48CC88068C04A727976CAF30893F41C96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946969   (420707) от 16.10.2015
-
-Г. И. Царегородцев | Медицина и религия (1968) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420707.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре будет раскрыта незатухающая на протяжении многих столетий борьба между научным и религиозным пониманием проблемы здоровья и болезни человека и некоторые другие вопросы, тесно связанные с этой проблемой.
-
-Показывая несовместимость медицины и религии в истолковании проблемы здоровья и болезни человека, автор стремился углубить и расширить те вопросы, которые (   Читать дальше...   )Жанр: История, религиоведение, медицинаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313BD59538F01F8D0F662D046A885DB3D0A10A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946835   (420705) от 16.10.2015
-
-А. Г. Баканурский | Православная церковь и скоморошество (1986) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420705.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре на большом историко-документальном и фольклорном материале раскрывается суть скоморошества — одного из проявлений народного творчества на Руси; выявляются его эстетическая, культурная и социальная функции; показываются причины гонений свободолюбивого искусства скоморохов со стороны православной церкви.Жанр: История, религиоведение, культурология, эстетика, искусствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FEAD91121866622412B4B93E084B547687143B
 ```
 
 https://mybot314.ru/tekegram_catalog/

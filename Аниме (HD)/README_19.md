@@ -1,3 +1,31 @@
+###  Публикация: 1278984   (636900) от 03.04.2019
+
+Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [ТВ-2] [2019, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории (а фактически - ремейк). Описание от первого сезона:
+
+В «гигантском интегрированном зоопарке» под названием «Джапари Парк» творится неладное: из-за таинственной субстанции, получившей название «песчаная звезда», животные начали превращаться в антропоморфных существ — зверодевушек. «Джапари Парк» ежедневно посещает множество людей, которые прекрасно (   Читать дальше...   )Производство: студия Tomason / トマソンЖанр: приключенияРежиссер: Кимура РюйтиПеревод: CrunchyRollСубтитры: 1: Английские; 2: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C772AD1EEBBB9E5A69BD55A9A349287D86CADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974162   (636814) от 17.06.2017
 
 Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB-DL 720p raw
@@ -6,7 +34,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636814.jpg" />
+  <img src="Z:/picture/008/save_picture_636814.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636389.jpg" />
+  <img src="Z:/picture/008/save_picture_636389.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636090.jpg" />
+  <img src="Z:/picture/008/save_picture_636090.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ Gin no Guardian / The Silver Guardian / Серебряный страж [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634584.jpg" />
+  <img src="Z:/picture/008/save_picture_634584.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ Joker Game / Игра Джокера [2016, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634127.jpg" />
+  <img src="Z:/picture/008/save_picture_634127.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ Tokyo 24-ku | Tokyo 24th Ward | Токио: 24-й район [2022, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632935.jpg" />
+  <img src="Z:/picture/008/save_picture_632935.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631386.jpg" />
+  <img src="Z:/picture/008/save_picture_631386.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ Toaru Majutsu no Index III / A Certain Magical Index 3 / Индекс волше
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631244.jpg" />
+  <img src="Z:/picture/008/save_picture_631244.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Никчёмный учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629010.jpg" />
+  <img src="Z:/picture/008/save_picture_629010.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ Shingeki no Kyojin Season 2 / Вторжение гигантов-2 [2017, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628905.jpg" />
+  <img src="Z:/picture/008/save_picture_628905.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ RS Keikaku: Rebirth Storage | Проект «БП»: База Перерожде
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628297.jpg" />
+  <img src="Z:/picture/008/save_picture_628297.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.fl
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625125.jpg" />
+  <img src="Z:/picture/008/save_picture_625125.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Triage X [2015, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625070.jpg" />
+  <img src="Z:/picture/008/save_picture_625070.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] WEB-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625006.jpg" />
+  <img src="Z:/picture/008/save_picture_625006.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ Onii-chan Dakedo Ai Sae Areba Kankeinai yo ne! / Пока есть любовь,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621935.jpg" />
+  <img src="Z:/picture/008/save_picture_621935.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ Double Decker! Doug & Kirill | Двойной удар: Даг и Кирилл [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621853.jpg" />
+  <img src="Z:/picture/008/save_picture_621853.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621409.jpg" />
+  <img src="Z:/picture/008/save_picture_621409.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ Berserk (Season 2) | Берсерк [ТВ-3] [2017, ТВ, 12 эп.] HDTV 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621228.jpg" />
+  <img src="Z:/picture/008/save_picture_621228.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ Oushitsu Kyoushi Haine / Королевский наставник [2017, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617632.jpg" />
+  <img src="Z:/picture/008/save_picture_617632.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders - Egypt Hen | Невероятны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617348.jpg" />
+  <img src="Z:/picture/008/save_picture_617348.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615815.jpg" />
+  <img src="Z:/picture/008/save_picture_615815.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ Haiyore! Nyaruko-san F | Няруко-сан: Крадущийся хаос F [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615787.jpg" />
+  <img src="Z:/picture/008/save_picture_615787.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ Break Blade / Broken Blade / Сломанный Меч [2014, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615031.jpg" />
+  <img src="Z:/picture/008/save_picture_615031.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ Ultraman Season 2 | Ультрамен 2 [2022, Web, 6 эп.] WebRip 720p raw+en
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614791.jpg" />
+  <img src="Z:/picture/008/save_picture_614791.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ Eromanga Sensei | Эроманга-сенсей [2017, ТВ, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614216.jpg" />
+  <img src="Z:/picture/008/save_picture_614216.jpg" />
 </div>
 
 
@@ -650,32 +678,6 @@ Eromanga Sensei | Эроманга-сенсей [2017, ТВ, 12] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:065396CDD4268EFEDE903066C589DB271B314495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124604   (614206) от 29.06.2017
-
-Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии для начинающих с нуля | Гримуар Зеро [2017, TV, 12 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614206.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где существуют ведьмы, но никто толком не знает, что такое магия, как она работает и как ей научиться, вместе путешествуют ведьма по имени Зеро, которая мало знает об окружающем мире, и наёмник-зверолюд, мечтающий стать человеком. Ведьма ищет способный уничтожить мир гримуар под названием «Книга Зеро», похищенный из её логова какими-то разбойниками, а наёмник (   Читать дальше...   )Производство: студия White FoxЖанр: приключения, фэнтезиРежиссер: Хиракава ТэцуоПеревод: AniPlayЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29FF534B6B27525D4268E9951A2BA52D9A900C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

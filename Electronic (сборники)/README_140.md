@@ -1,3 +1,67 @@
+###  Публикация: 942122   (458101) от 29.09.2015
+
+VA - Chill out 2K16 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_458101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura Mills - Start Now
+02. Laura Mills - Redemption
+03. Laura Mills - Vapid
+04. JB - In Spite of Everything(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808240A27C62A5D7368CC52C8DF7368B546F9DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549451   (457957) от 22.09.2012
+
+VA - Creative Music Box 1 (2012) [MP3|320 кб/с]<Dub Step / Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BBK feat. Monophonix - Open Up Your Eyes (Dirt Cheap Remix) (05:17)
+02. Culprate - Hall of Mirrors (05:02)
+03. Doctor P. - Flying Spaghetti Monster (04:09)
+04. Excision - Ohhh Nooo (Lucky Date Remix) (05:03)
+05. Excision feat. Messinian - X-Rated (Space Laces Remix) (04:22)
+06. Flinch feat. Kylee Swenson - Underwater (04:35)
+07. Frank Ocean - Pyramids (Baratone Remix) (06:03)
+08. Kairo Kingdom - Crazy Rock (Dank Remix) (04:06)
+09. Koan Sound - Akira (Document One Remix) (04:37)
+10. Koan Sound - Suit Adventures (Southbound Hangers Remix) (04:35)(   Читать дальше...   )Жанр: Dub Step / ElectroПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9738D6D161EB23F06001D719E5047068065D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568502   (457783) от 10.08.2022
 
 VA - Best tracks of Way Out There by Jody Wisternoff, 2012-2014, Volume 4 (2022) [MP3|192-320 Kbps] <Progressive House, Deep House, Techno House>
@@ -6,7 +70,7 @@ VA - Best tracks of Way Out There by Jody Wisternoff, 2012-2014, Volume 4 (2022)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457783.jpg" />
+  <img src="Z:/picture/008/save_picture_457783.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Dance Spends Discoplaza (2016) [MP3|320 Kbps] <House, Bigroom, Funky, Nu Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457569.jpg" />
+  <img src="Z:/picture/008/save_picture_457569.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ VA - Record Super Chart #456 (2016) [MP3|320 Kbps] <House, Electro House, Future
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457567.jpg" />
+  <img src="Z:/picture/008/save_picture_457567.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ VA - Дискотека Dance Affective (2016) [MP3|224~320 Kbps] <House, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457557.jpg" />
+  <img src="Z:/picture/008/save_picture_457557.jpg" />
 </div>
 
 
@@ -121,7 +185,7 @@ Hot Unkle T - That's It (2018) promo [MP3|320 Kbps] <Soulful House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456991.jpg" />
+  <img src="Z:/picture/008/save_picture_456991.jpg" />
 </div>
 
 
@@ -150,7 +214,7 @@ VA - Record Super  Chart 552 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456988.jpg" />
+  <img src="Z:/picture/008/save_picture_456988.jpg" />
 </div>
 
 
@@ -179,7 +243,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 008 (2017) [MP3|320 Kbps] <Emo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456982.jpg" />
+  <img src="Z:/picture/008/save_picture_456982.jpg" />
 </div>
 
 
@@ -208,7 +272,7 @@ VA - Mimicry Vol.5: Psychedelic Trance Set (2017) [MP3|320 Kbps] <Psy, Goa Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456977.jpg" />
+  <img src="Z:/picture/008/save_picture_456977.jpg" />
 </div>
 
 
@@ -237,7 +301,7 @@ VA - Progressive House Vol.5 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456908.jpg" />
+  <img src="Z:/picture/008/save_picture_456908.jpg" />
 </div>
 
 
@@ -266,7 +330,7 @@ VA - Record Super Chart 601 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456794.jpg" />
+  <img src="Z:/picture/008/save_picture_456794.jpg" />
 </div>
 
 
@@ -295,7 +359,7 @@ VA - Liquid Emotions  vol.4 (2009) [MP3|192 кб/с]<Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456291.jpg" />
+  <img src="Z:/picture/008/save_picture_456291.jpg" />
 </div>
 
 
@@ -330,7 +394,7 @@ VA - Total Big Room Anthems (2015) [MP3|320 кб/с]<Trance,House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456088.jpg" />
+  <img src="Z:/picture/008/save_picture_456088.jpg" />
 </div>
 
 
@@ -359,7 +423,7 @@ VA - Acoustic Chill Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Acoustic
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456081.jpg" />
+  <img src="Z:/picture/008/save_picture_456081.jpg" />
 </div>
 
 
@@ -388,7 +452,7 @@ VA - Ploom Boom: Pause - mixed by dj Alex Cosmo (2008) [MP3|320 кб/с]<Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456065.jpg" />
+  <img src="Z:/picture/008/save_picture_456065.jpg" />
 </div>
 
 
@@ -432,7 +496,7 @@ VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455999.jpg" />
+  <img src="Z:/picture/008/save_picture_455999.jpg" />
 </div>
 
 
@@ -461,7 +525,7 @@ VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455856.jpg" />
+  <img src="Z:/picture/008/save_picture_455856.jpg" />
 </div>
 
 
@@ -496,7 +560,7 @@ VA - Happiness Emotions: Uplifting Trance (2016) [MP3|320 Kbps] <Progressive Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455468.jpg" />
+  <img src="Z:/picture/008/save_picture_455468.jpg" />
 </div>
 
 
@@ -525,7 +589,7 @@ VA - Green Breeze: Lounge Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455467.jpg" />
+  <img src="Z:/picture/008/save_picture_455467.jpg" />
 </div>
 
 
@@ -554,7 +618,7 @@ VA - Poolside Dubai (2016) [MP3|320 Kbps] <Electronic, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455466.jpg" />
+  <img src="Z:/picture/008/save_picture_455466.jpg" />
 </div>
 
 
@@ -583,7 +647,7 @@ VA - Angel Falls: Uplifting Trance (2016) [MP3|320 Kbps] <Uplifting, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455464.jpg" />
+  <img src="Z:/picture/008/save_picture_455464.jpg" />
 </div>
 
 
@@ -612,7 +676,7 @@ VA - Vocal Tech House: Party September (2016) [MP3|320 Kbps] <Tech House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455461.jpg" />
+  <img src="Z:/picture/008/save_picture_455461.jpg" />
 </div>
 
 
@@ -641,7 +705,7 @@ VA - Cigar Lounge Beats Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455310.jpg" />
+  <img src="Z:/picture/008/save_picture_455310.jpg" />
 </div>
 
 
@@ -670,7 +734,7 @@ VA - Electro Hipnotique: Dance Session (2016) [MP3|320 Kbps] <Club, Dance, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455306.jpg" />
+  <img src="Z:/picture/008/save_picture_455306.jpg" />
 </div>
 
 
@@ -699,7 +763,7 @@ VA - Toolroom Amsterdam (2016) [MP3|320 Kbps] <Electronic, Minimal, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455304.jpg" />
+  <img src="Z:/picture/008/save_picture_455304.jpg" />
 </div>
 
 
@@ -713,64 +777,6 @@ VA - Toolroom Amsterdam (2016) [MP3|320 Kbps] <Electronic, Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233DD53D896238490893D24661A7DC706612CA08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408347   (455289) от 12.09.2020
-
-VA - EDM Candy: Non Stop Dance Generation (2020) [MP3|320 Kbps] <EDM, House, Dance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455289.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sami Wentz - Tribal Jam
-002. Icode - Our Night
-003. Droeloe - Oath
-004. Slow Nomaden - Concrete Desert(   Читать дальше...   )Жанр: EDM, House, Dance, TranceПродолжительность: 13:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1AA1A0E7081B759DAC05F0D2F227E00AB96F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060498   (455188) от 07.10.2016
-
-VA - Bass Killer 8 (2016) [MP3|320 Kbps] <Dubstep, Drum and Bass, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AFK, Crichy Crich — Coffin’ (Original Mix) (3:48)
-02. Alvaro, Lil Jon & JETFIRE — Vegas (JETFIRE Trap Remix) (3:31)
-03. AWOLNATION — Run (Kill the Noise Remix) (3:56)
-04. Boombox Cartel & QUIX feat. Anjulie — Supernatural (4:28)(   Читать дальше...   )Жанр: Dubstep, Drum and Bass, ElectroПродолжительность: 01:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5C361BDB317780E5097608290CAE1AB01B4ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

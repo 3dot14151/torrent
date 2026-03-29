@@ -1,3 +1,235 @@
+###  Публикация: 203549   (1025347) от 20.03.2021
+
+Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy MetalПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418304   (1024497) от 25.03.2021
+
+Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody`s Fools (4:40)
+02. Do The Dirty (4:41)
+03. Let`s Call It Quits (3:31)
+04. Pack Up Your Troubles (3:25)(   Читать дальше...   )Жанр: Glam rock, hard rockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329F801534021C32CD1C9D1D859E5BA766D1E22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339790   (1024479) от 25.03.2021
+
+Gary Moore - Greatest Hits 2CD (2010) [DTS 6.1, 44.1/16|tracks (upmix)]<Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Blues RockФормат: Wave tracksПродолжительность: 02:39:00
+
+Роберт Уильям Гэри Мур (англ. Robert William Gary Moore; 4 апреля 1952, Белфаст, Северная Ирландия — 6 февраля 2011, Эстепона, Испания) — ирландский гитарист, певец, автор песен. Внёс заметный вклад в развитие блюз-рока. С четырнадцати лет играл на стандартных гитарах, то есть для правшей, несмотря на то, что от рождения Гэри — левша.
+Гэри Мур скончался (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456348   (1024470) от 25.03.2021
+
+Metallica - Black album (1991)[LPCM 2.0, DTS-HD MA 5.1, Dolby TrueHD 5.1, 96/24] Blu-ray Audio [Custom] <metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metallica — пятый студийный альбом одноимённой американской метал-группы, выпущенный 12 августа 1991 года, также известный как The Black Album «Чёрный альбом».01. Enter Sandman
+02. Sad but True
+03. Holier Than Thou
+04. The Unforgiven(   Читать дальше...   )Жанр: metalПродолжительность: 01:02:48
+Видео: AVC/H.264, 1920×1080 ~ 1 Mbps
+Аудио 1: LPCM 2 ch, 96/24 - 4608 kbps
+Аудио 2: DTS-HD MA 6 ch, 96/24 ~ 9281 kbps(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54E3F5809281254BD0341139633C2B8BEB7C41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461333   (1021778) от 10.04.2021
+
+Московский Камерный Оркестр. J. S. Bach – Brandenburg Concertos No. 1 in F Major BWV 1046 And No. 5 In D Major BWV 1050 (1981) [FLAC 2.0|192/24|image+.сue] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бранденбургский Концерт № 1 Фа Мажор, BWV 1046
+Violino Piccolo – Л. Полеес
+A1 Allegro
+A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461534   (1021712) от 10.04.2021
+
+Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
+A1 Allegro
+A2 Largo
+A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461738   (1021607) от 11.04.2021
+
+Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021607.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Шесть Пьес Для Лютни
+A2 Павана
+A3 Матацин (Медленный Испанский Танец)
+A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461760   (1021538) от 11.04.2021
+
+Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пер Гюнт. Сюита N1, соч.46.
+A1 Утро / Dawn
+A2 Смерть Озе / Death Of Ase
+A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463635   (1020248) от 19.04.2021
 
 Гарри Гродберг, орган - И. С. Бах. Токкаты (1989) 1971 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
@@ -6,7 +238,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020248.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020216.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019903.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019454.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010961.jpg" />
 </div>
 
 
@@ -149,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010281.jpg" />
 </div>
 
 
@@ -178,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009893.jpg" />
 </div>
 
 
@@ -207,7 +439,7 @@ Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009773.jpg" />
 </div>
 
 
@@ -236,7 +468,7 @@ Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007305.jpg" />
 </div>
 
 
@@ -265,7 +497,7 @@ London Symphony Orchestra, Valery Gergiev - Рахманинов, Стравин
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006084.jpg" />
 </div>
 
 
@@ -294,7 +526,7 @@ Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <P
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005065.jpg" />
 </div>
 
 
@@ -323,7 +555,7 @@ Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003685.jpg" />
 </div>
 
 
@@ -352,7 +584,7 @@ Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002912.jpg" />
 </div>
 
 
@@ -381,7 +613,7 @@ Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-D
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002667.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002642.jpg" />
 </div>
 
 
@@ -439,7 +671,7 @@ Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001742.jpg" />
 </div>
 
 
@@ -468,7 +700,7 @@ Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000318.jpg" />
 </div>
 
 
@@ -503,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998808.jpg" />
 </div>
 
 
@@ -514,257 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600384   (998771) от 08.01.2013
-
-The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600690   (998549) от 09.01.2013
-
-Ария - Магнитоальбом (1989) [FLAC 2.0 24/96|image+.cue (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что вы сделали с вашей мечтой? 5:18
-02. Раскачаем этот мир 5:54
-03. Раб страха 4:33
-04. Искушение 3:58
-05. Игра с огнём 9:02
-06. Бой продолжается 6:03
-07. Дай жару! 4:24
-08. Улица роз 5:53Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E47BB3F14C7D20D010F20289394098C533FAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600618   (998545) от 09.01.2013
-
-Янка Дягилева - Не Положено (1992) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Acoustic, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы по колено [01:49]
-02. Только дождь вселенский [00:53]
-03. Под руки в степь [02:09]
-04. Фальшивый крест [01:16]
-05. Деклассированные элементы [03:19]
-06. Особый резон [02:30]
-07. Неволя рукам (регги) [01:53]
-08. На чёрный день [02:24]
-09. Берегись [02:19]
-10. Я повторяю 10 раз и снова [00:51](   Читать дальше...   )Жанр: Acoustic, PunkПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F11D3809F12B11A717AA8B625753B45D77E5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600699   (998462) от 09.01.2013
-
-Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nu MetalПродолжительность: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601413   (998297) от 10.01.2013
-
-Янка Дягилева - 4 кассеты (1988-1989) [APE 2.0 16/48|image+.cue (MC-Rip)]<Acoustic, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Post-PunkПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FCC7D753A8217534AD6EB0310235F119E4555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601463   (998265) от 10.01.2013
-
-Чайф - 25 лет выдержки (2012) [WavPack 2.0 24/192 |image (Vinyl-Rip)]<Blues Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998265.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-01. Шаляй-Валяй 2:58
-02. Кот 3:33
-03. Вольный Ветер 3:38
-04. Белая Ворона 3:04
-05. Оранжевое настроение 3:50
-06. Ой-Йо 4:26
-07. Всему Свое Время 3:37
-08. Давай Вернемся 5:29
-09. Поплачь О Нем 5:17Жанр: Blues Rock, AcousticПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601499   (997997) от 11.01.2013
-
-Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел 3:10
-02. Ночь 3:34
-03. Желтая Дорога 3:47
-04. Плывущее Кафе 4:01
-05. Мне Уже Легко 3:13
-06. Алена 4:01
-07. Прощай 3:45
-08. Будь Со Мной 3:37
-09. Эпилог 3:23
-10. Корабль 3:25Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602537   (997489) от 13.01.2013
-
-Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (5:04)
-02. Girls Just Want to Have Fun (3:57)
-03. When You Were Mine (5:05)
-04. Time After Time (4:01)
-05. She Bop (3:51)
-06. All Through the Night (4:31)
-07. Witness (3:39)
-08. I'll Kiss You (4:11)
-09. He's Son Unusual (0:46)
-10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
 ```
 
 https://mybot314.ru/tekegram_catalog/

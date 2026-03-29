@@ -1,3 +1,85 @@
+###  Публикация: 1209126   (779455) от 25.02.2018
+
+Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779455.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Purple Tour - концертный альбом группы Whitesnake, в который вошли классические хиты группы Whitesnake и Deep Purple времен Дэвида Кавердейла. В данном издании содержатся песни с нескольких студийных альбомов, записанных Дэвидом Ковердейлом в составе Deep Purple, в том числе Burn (1974), Stormbringer (1974) и Come Taste The Band (1975), а также You Fool No One, (   Читать дальше...   )01. Burn
+02. Bad Boys
+03. Love Ain't No Stranger
+04. The Gypsy(   Читать дальше...   )Производство: США, Rhino MusicЖанр: Rock, Hard RockПродолжительность: 01:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6C6F3BA23F148C8F53784F66C6DBB3E63914D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209365   (778837) от 02.03.2018
+
+Праздничный концерт ко Дню защитника Отечества (23.02.2018) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778837.jpg" />
+</div>
+
+
+###  Подробнее
+
+День защитника Отечества – праздник настоящих мужчин. 23 февраля мы не только вспоминаем героические подвиги предков, но и отдаем дань мужеству и благородству любимых представителей сильного пола. Претерпевший с течением времени множество изменений, этот праздник сохранил свое первоначальное патриотическое настроение, ставшее основой единения граждан разных возрастов (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТВ-шоу, КонцертПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAEDC6EC99FBB71CBAFCB2320FBD85424D93205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210755   (778491) от 04.03.2018
+
+Квартирник на НТВ у Маргулиса. The Hatters (03.03.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778491.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к ведущему Евгению Маргулису пришла фолк-рок группа «The Hatters». «Шляпники» были основаны в 2016 году в Санкт-Петербурге и уже успели завоевать популярность.
+Юрий Музыченко рассказал, что основной состав своего музыкального коллектива сформировал из театра «Лицедеи». Музыканты поделились историей про первый тур и объяснили, зачем тромбонисту Вадиму Рулёву (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11096659C78BB033D79D0DF8BDA109AB4FF31069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597453   (778422) от 04.03.2018
 
 ДДТ (DDT) - Новогодний концерт на Дожде (2012) HDTV [H.264/1080i]
@@ -6,7 +88,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778422.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776084.jpg" />
+  <img src="Z:/picture/008/save_picture_776084.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775648.jpg" />
+  <img src="Z:/picture/008/save_picture_775648.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ Accept - Restless And Live (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775007.jpg" />
+  <img src="Z:/picture/008/save_picture_775007.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ Accept - Restless And Live (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774944.jpg" />
+  <img src="Z:/picture/008/save_picture_774944.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ Led Zeppelin - Celebration Day 2007 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773064.jpg" />
+  <img src="Z:/picture/008/save_picture_773064.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773011.jpg" />
+  <img src="Z:/picture/008/save_picture_773011.jpg" />
 </div>
 
 
@@ -194,7 +276,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772528.jpg" />
+  <img src="Z:/picture/008/save_picture_772528.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771825.jpg" />
+  <img src="Z:/picture/008/save_picture_771825.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771571.jpg" />
+  <img src="Z:/picture/008/save_picture_771571.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771550.jpg" />
+  <img src="Z:/picture/008/save_picture_771550.jpg" />
 </div>
 
 
@@ -302,7 +384,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771425.jpg" />
+  <img src="Z:/picture/008/save_picture_771425.jpg" />
 </div>
 
 
@@ -331,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771053.jpg" />
+  <img src="Z:/picture/008/save_picture_771053.jpg" />
 </div>
 
 
@@ -360,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769079.jpg" />
+  <img src="Z:/picture/008/save_picture_769079.jpg" />
 </div>
 
 
@@ -386,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769049.jpg" />
+  <img src="Z:/picture/008/save_picture_769049.jpg" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769048.jpg" />
+  <img src="Z:/picture/008/save_picture_769048.jpg" />
 </div>
 
 
@@ -440,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768944.jpg" />
+  <img src="Z:/picture/008/save_picture_768944.jpg" />
 </div>
 
 
@@ -466,7 +548,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768470.jpg" />
+  <img src="Z:/picture/008/save_picture_768470.jpg" />
 </div>
 
 
@@ -492,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768325.jpg" />
+  <img src="Z:/picture/008/save_picture_768325.jpg" />
 </div>
 
 
@@ -521,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768323.jpg" />
+  <img src="Z:/picture/008/save_picture_768323.jpg" />
 </div>
 
 
@@ -547,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768286.jpg" />
+  <img src="Z:/picture/008/save_picture_768286.jpg" />
 </div>
 
 
@@ -573,7 +655,7 @@ Depeche Mode - Live Spirits / Spirits in the Forest (2020) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768252.jpg" />
+  <img src="Z:/picture/008/save_picture_768252.jpg" />
 </div>
 
 
@@ -599,7 +681,7 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767563.jpg" />
+  <img src="Z:/picture/008/save_picture_767563.jpg" />
 </div>
 
 
@@ -610,88 +692,6 @@ King Diamond - Songs for the Dead Live (2019) Blu-ray [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFD571F03E07C1BD20FE759BD5ED06BA3081751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278842   (767559) от 27.01.2019
-
-King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинг Даймонд — хэви-метал-музыкант, известный благодаря своим оригинальным вокальным партиям и шокирующему имиджу. Являясь лидером группы Mercyful Fate и одноимённой группы King Diamond, он оказал большое влияние на множество других музыкальных команд различного метал-жанра.  /Live at The Fillmore in Philadelphia, PA November 25th, 2015/Производство: Metal Blade RecordsЖанр: Dark Heavy MetalСубтитры: отсутствуютПродолжительность: 01:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F082FA2473E63EC16963F61996F0C2D595D54879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213776   (767327) от 18.03.2018
-
-Квартирник на НТВ у Маргулиса. Александр Маршал (03.17.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришел Александр Маршал. Советский и российский рок-музыкант, певец, бас-гитарист и автор песен вспомнил о своем отце, который пел частушки и во время их исполнения выгонял Александра из комнаты. Музыкант рассказал о начале карьеры и о том, как учился в военно-летном училище, где создал свой первый вокально-инструментальный ансамбль.
-Александр (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C1DB3772749B693F2059514FD079365E46B446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279158   (766748) от 28.01.2019
-
-Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
-02. Giving Up The Ghost
-03. To Love Somebody
-04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBF98DD2AEAAF84F2C0148C45B56E9485BED927
 ```
 
 https://mybot314.ru/tekegram_catalog/

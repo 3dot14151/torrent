@@ -1,3 +1,29 @@
+###  Публикация: 393853   (430851) от 29.09.2011
+
+Журнал | Architectural Digest №10 (октябрь 2011) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал AD (Architectural Digest) — ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDF8AFDF2892F63F29E1D762B3703EA7FC13082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 245938   (430817) от 15.10.2010
 
 Журнал | Автомир №42 (2010) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430817.jpg" />
+  <img src="Z:/picture/005/save_picture_430817.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430574.jpg" />
+  <img src="Z:/picture/008/save_picture_430574.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430548.jpg" />
+  <img src="Z:/picture/008/save_picture_430548.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430238.jpg" />
+  <img src="Z:/picture/008/save_picture_430238.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Dark Horse Comics | Avatar: The Last Airbender - The Lost Adventures / Ават�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430159.jpg" />
+  <img src="Z:/picture/008/save_picture_430159.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Dark Horse Comics | Avatar: The Last Airbender - The Promise / Аватар: Л�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430032.jpg" />
+  <img src="Z:/picture/008/save_picture_430032.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429168.jpg" />
+  <img src="Z:/picture/008/save_picture_429168.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429052.jpg" />
+  <img src="Z:/picture/008/save_picture_429052.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428854.jpg" />
+  <img src="Z:/picture/005/save_picture_428854.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428704.jpg" />
+  <img src="Z:/picture/008/save_picture_428704.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428661.jpg" />
+  <img src="Z:/picture/005/save_picture_428661.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428659.jpg" />
+  <img src="Z:/picture/005/save_picture_428659.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428519.jpg" />
+  <img src="Z:/picture/005/save_picture_428519.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428205.jpg" />
+  <img src="Z:/picture/008/save_picture_428205.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428180.jpg" />
+  <img src="Z:/picture/005/save_picture_428180.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428170.jpg" />
+  <img src="Z:/picture/008/save_picture_428170.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427781.jpg" />
+  <img src="Z:/picture/005/save_picture_427781.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427779.jpg" />
+  <img src="Z:/picture/005/save_picture_427779.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427767.jpg" />
+  <img src="Z:/picture/008/save_picture_427767.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426897.jpg" />
+  <img src="Z:/picture/005/save_picture_426897.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426881.jpg" />
+  <img src="Z:/picture/008/save_picture_426881.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426095.jpg" />
+  <img src="Z:/picture/008/save_picture_426095.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425854.jpg" />
+  <img src="Z:/picture/005/save_picture_425854.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425257.jpg" />
+  <img src="Z:/picture/008/save_picture_425257.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425142.jpg" />
+  <img src="Z:/picture/008/save_picture_425142.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA86755BCFA065C499F2DEB32230076A271D8F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946771   (425141) от 14.10.2015
-
-Александр Самойленко | Долгий путь домой (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам кто-то скажет, что не в деньгах счастье, немедленно смотрите ему в глаза. Взгляд у сказавшего обязательно станет задумчивый, туманный такой… Это он о деньгах задумается. и правильно сделает. Как можно это утверждать, если денег у тебя никогда не было? Не говоря уже о том, что счастье без денег – это вообще что-то такое… непонятное. Герой нашей повести, потеряв (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05F89C50EA32756E56CD52DE4ABE99CCAC97FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

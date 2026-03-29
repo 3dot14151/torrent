@@ -1,3 +1,119 @@
+###  Публикация: 1545345   (612897) от 20.04.2022
+
+Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Sleepy [3:10]
+02. Isn't It Romantic [3:17]
+03. Mad at the World [3:30]
+04. East of the Sun [4:05](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6643ED0F5400A702F8C73B461B44DFC38BB9EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912300   (612895) от 25.06.2015
+
+Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambit Records/[FLAC|tracks+.cue]<Jazz, New Orleans Jazz, Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcement [00:26]
+02. Oh Baby [04:18]
+03. Keepin' Out Of Mischief Now [04:02]
+04. Sugar [03:54](   Читать дальше...   )Жанр: Jazz, New Orleans Jazz, Dixieland, SwingПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E6522F17C522BBA71B4C07A8469933708FEC8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912305   (612893) от 25.06.2015
+
+Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusion, Post-Bop, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twenty Five Miles [05:42]
+02. Spinning Wheel [07:36]
+03. Seven Steps To Heaven [05:50]
+04. Psychedelic Pi [06:32](   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Post-Bop, Hammond OrganПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D815056C295C002F2F0E8DA948FDE17FDC93FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912338   (612812) от 25.06.2015
+
+Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Haunting Melody [05:21]
+02. I Wish I Knew How It Would Feel To Be Free [06:41]
+03. How High the Moon [05:35]
+04. The King [03:29](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE85354555968941DB3492217CCC502C5EF6F420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230773   (612343) от 14.06.2018
 
 Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612343.jpg" />
+  <img src="Z:/picture/008/save_picture_612343.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Blue Mitchell - Blue Soul (1959) Remaster, 2006, JVC[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612231.jpg" />
+  <img src="Z:/picture/008/save_picture_612231.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nat Adderley - Sayin' Somethin' (1966) Remaster, 2012, Warner[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612224.jpg" />
+  <img src="Z:/picture/008/save_picture_612224.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Chris Standring - Don't Talk, Dance (2014) [FLAC|Lossless]<Smooth Jazz, Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612085.jpg" />
+  <img src="Z:/picture/008/save_picture_612085.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Benny Carter - Waltzing The Blues (1930 - 1957) 2007, Basics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611852.jpg" />
+  <img src="Z:/picture/008/save_picture_611852.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bob Mamet Trio - Impromptu (2010) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611805.jpg" />
+  <img src="Z:/picture/005/save_picture_611805.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Dakh Daughters - Air (2019) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611756.jpg" />
+  <img src="Z:/picture/008/save_picture_611756.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Bob Moses - When Elephants Dream of Music (1993) [FLAC|Lossless]<Post-Bop, Progr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611582.jpg" />
+  <img src="Z:/picture/005/save_picture_611582.jpg" />
 </div>
 
 
@@ -250,7 +366,7 @@ Bobby Caldwell - Perfect Island Nights (2005) [FLAC|Lossless]<Smooth Jazz, R&B, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_611457.jpg" />
+  <img src="Z:/picture/005/save_picture_611457.jpg" />
 </div>
 
 
@@ -285,7 +401,7 @@ Ted Rosenthal Trio - Rhapsody in Gershwin (2014) Playscape Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611329.jpg" />
+  <img src="Z:/picture/008/save_picture_611329.jpg" />
 </div>
 
 
@@ -314,7 +430,7 @@ Steve Lacy Sextet - The Gleam (1986) Silkheart Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611327.jpg" />
+  <img src="Z:/picture/008/save_picture_611327.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ Brook Benton - Songs I Love To Sing (1960) 2003, Universal [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611324.jpg" />
+  <img src="Z:/picture/008/save_picture_611324.jpg" />
 </div>
 
 
@@ -372,7 +488,7 @@ Harry Allen Quartet featuring Bill Charlap - Blues For Pres And Teddy (2011) Ind
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611317.jpg" />
+  <img src="Z:/picture/008/save_picture_611317.jpg" />
 </div>
 
 
@@ -401,7 +517,7 @@ Jazzamor - Strange To Be In Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Futur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611201.jpg" />
+  <img src="Z:/picture/008/save_picture_611201.jpg" />
 </div>
 
 
@@ -430,7 +546,7 @@ Shorty Rogers And His Giants - The Swinging Mr. Rogers (1955) /2012, Atlantic/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610980.jpg" />
+  <img src="Z:/picture/008/save_picture_610980.jpg" />
 </div>
 
 
@@ -459,7 +575,7 @@ Marcel Khalife - Caress (2008) [FLAC|tracks+.cue]<Jazz, Ethnic Jazz, World Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610977.jpg" />
+  <img src="Z:/picture/008/save_picture_610977.jpg" />
 </div>
 
 
@@ -488,7 +604,7 @@ Airto Moreira & The Gods Of Jazz - Killer Bees (1993) [FLAC|Lossless]<Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_610657.jpg" />
+  <img src="Z:/picture/005/save_picture_610657.jpg" />
 </div>
 
 
@@ -514,7 +630,7 @@ Vanessa Bley - Colors (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610584.jpg" />
+  <img src="Z:/picture/008/save_picture_610584.jpg" />
 </div>
 
 
@@ -543,7 +659,7 @@ McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610582.jpg" />
+  <img src="Z:/picture/008/save_picture_610582.jpg" />
 </div>
 
 
@@ -572,7 +688,7 @@ Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610328.jpg" />
+  <img src="Z:/picture/008/save_picture_610328.jpg" />
 </div>
 
 
@@ -601,7 +717,7 @@ Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610209.jpg" />
+  <img src="Z:/picture/008/save_picture_610209.jpg" />
 </div>
 
 
@@ -630,7 +746,7 @@ Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609872.jpg" />
+  <img src="Z:/picture/008/save_picture_609872.jpg" />
 </div>
 
 
@@ -644,122 +760,6 @@ Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D90C34BA845E6DBCEBD19AD63C3BD3D6EA0EBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147403   (609871) от 02.07.2017
-
-Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Back Room Romp [3:52]
-02 Sweet Lotus Blossom [5:30]
-03 One Sweet Letter from You [5:21]
-04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147450   (609870) от 02.07.2017
-
-The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guys and Dolls [06:18]
-02. If I Were a Bell [04:16]
-03. A Woman in Love [03:03]
-04. Luck Be a Lady [05:06](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF210576D930EA169D59A4E21DBE4906E84E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147466   (609869) от 02.07.2017
-
-George Masso Sextet - C'est Magnifique (2000) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's D'Lovely [09:43]
-02. It's All Right With Me [10:49]
-03. Why Shouldn't I [04:51]
-04. What Is This Thing Called Love [07:07](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE50C3F2A906EC43D2C7CF891FC91A163604561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147301   (609868) от 02.07.2017
-
-Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Clavo Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat [03:51]
-02. Mood Indigo [04:20]
-03. America the Beautiful [02:58]
-04. Una Manana [03:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE13D2408906E84D70DC0465B59123B30AC3264
 ```
 
 https://mybot314.ru/tekegram_catalog/

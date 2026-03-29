@@ -6,7 +6,7 @@ Day One 2 Journal + Notes 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876467.jpg" />
+  <img src="Z:/picture/005/save_picture_876467.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876441.jpg" />
+  <img src="Z:/picture/008/save_picture_876441.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ OBS Studio 25.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876432.jpg" />
+  <img src="Z:/picture/005/save_picture_876432.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PortableApps.com Platform 16.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876431.jpg" />
+  <img src="Z:/picture/005/save_picture_876431.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ AIDA64 Extreme / Engineer / Business Edition / Network Audit 6.25.5400 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876422.jpg" />
+  <img src="Z:/picture/005/save_picture_876422.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Bat! Professional Edition 7.4.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876409.jpg" />
+  <img src="Z:/picture/005/save_picture_876409.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PrivaZer 3.0.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876404.jpg" />
+  <img src="Z:/picture/005/save_picture_876404.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876387.jpg" />
+  <img src="Z:/picture/005/save_picture_876387.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876363.jpg" />
+  <img src="Z:/picture/008/save_picture_876363.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Vocal Trance Hits (2017) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876356.jpg" />
+  <img src="Z:/picture/005/save_picture_876356.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876350.jpg" />
+  <img src="Z:/picture/005/save_picture_876350.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876349.jpg" />
+  <img src="Z:/picture/005/save_picture_876349.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876347.jpg" />
+  <img src="Z:/picture/005/save_picture_876347.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Elmedia Video Player Pro 6.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876345.jpg" />
+  <img src="Z:/picture/005/save_picture_876345.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876341.jpg" />
+  <img src="Z:/picture/008/save_picture_876341.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876340.jpg" />
+  <img src="Z:/picture/005/save_picture_876340.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876337.jpg" />
+  <img src="Z:/picture/005/save_picture_876337.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Buzzer Beater / Забить на последней секунде 2 [2007, TV,
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876326.jpg" />
+  <img src="Z:/picture/008/save_picture_876326.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876303.jpg" />
+  <img src="Z:/picture/005/save_picture_876303.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Bandicam 4.5.8.1673 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876302.jpg" />
+  <img src="Z:/picture/005/save_picture_876302.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CleanMyMac X 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876301.jpg" />
+  <img src="Z:/picture/005/save_picture_876301.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ ScreenFlow 6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876289.jpg" />
+  <img src="Z:/picture/005/save_picture_876289.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876274.jpg" />
+  <img src="Z:/picture/005/save_picture_876274.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ FastStone Image Viewer 6.1 RePack (& Portable) by KpoJIuK (16.02.2017) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876273.jpg" />
+  <img src="Z:/picture/005/save_picture_876273.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ AIDA64 Extreme/Engineer/Business Edition/Network Audit 6.25.5400 RePack (&Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876246.jpg" />
+  <img src="Z:/picture/005/save_picture_876246.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ USB Safely Remove 5.5.1.1250 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876228.jpg" />
+  <img src="Z:/picture/005/save_picture_876228.jpg" />
 </div>
 
 

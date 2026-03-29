@@ -1,3 +1,55 @@
+###  Публикация: 1640716   (237002) от 19.06.2023
+
+Наша планета / Our Planet (2023) WEB-DLRip (сезон 2, серии 1-4 из 4) HDrezka Studio
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237002.jpg" />
+</div>
+
+
+###  Подробнее
+
+В документальном сериале натуралист Дэвид Аттенборо рассказывает о разнообразии животного мира Земли и исследует влияние климатических изменений на способность различных видов к выживанию. Вместе с ведущим зрители побывают в заледенелой арктической тундре, пышных тропических лесах и обширных южно-африканских пустынях. Шоу повествует о чудесах природы, взаимосвязи (   Читать дальше...   )Производство: США, Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Адам Чэпман, Хью Пирсон, Хув КордиУчастники: Дэвид АттенбороПеревод: Одноголосый профессиональный (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH) | отдельными файламиПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E9920387F522AAA37BFBA99068AF79959B3F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628075   (236950) от 21.04.2023
+
+Животные, изменившие мир (Курица не птица?) (2022) WEB-DLRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас на свете живет невероятное количество этих животных. Целых 24 миллиарда особей! Вы удивитесь, но это — куры. Судя по размеру популяции, этих птиц можно назвать самыми успешными животными планеты. По крайней мере, вымирание, как многим обитателям дикой природы, им точно не грозит... Эта небольшая по размерам птица живет рядом с нами тысячи, а то и десятки тысяч (   Читать дальше...   )Производство: Россия, ЕМГЖанр: документальный, научно-познавательныйРежиссер: Илья ЦыгановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D55BBD9D9FB5175AF0494F9934CD8C3A1448FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628617   (236502) от 23.04.2023
 
 Королевство медвежьих макак / The Kingdom of the Stump-Tailed Macaques (2020) HDTVRip
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236502.jpg" />
+  <img src="Z:/picture/005/save_picture_236502.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236376.jpg" />
+  <img src="Z:/picture/005/save_picture_236376.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236342.jpg" />
+  <img src="Z:/picture/005/save_picture_236342.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236122.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235771.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235739.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235438.jpg" />
+  <img src="Z:/picture/004/save_picture_235438.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ RTG. Главный Ботанический сад Российской ака�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235313.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234967.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234890.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234822.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234441.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234406.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233136.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232486.jpg" />
+  <img src="Z:/picture/005/save_picture_232486.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232467.jpg" />
+  <img src="Z:/picture/005/save_picture_232467.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232011.jpg" />
+  <img src="Z:/picture/004/save_picture_232011.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231860.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230940.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230816.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230787.jpg" />
+  <img src="Z:/picture/004/save_picture_230787.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230707.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230355.jpg" />
+  <img src="Z:/picture/004/save_picture_230355.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229901.jpg" />
+  <img src="Z:/picture/005/save_picture_229901.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF50A002B1CB0270A3B9CFCF37B8E7C7D8203AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424523   (227578) от 17.11.2020
-
-Самые чудесные места / Семь чудес природы / The Greatest Places (1998) BDRemux [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Камера покажет Вам гораздо больше, чем может увидеть турист. Вы удивитесь роскоши дворцов, соприкоснетесь с древними тайнами, восхититесь творениями природы. Нет на земле такого места, куда нельзя добраться на Вашем ковре-самолете. Вас ждут фантастические виды, неожиданные ракурсы, незабываемое путешествие и подлинные Чудеса - величайшие создания цивилизации. Когда (   Читать дальше...   )Производство: США, Science Museum of Minnesota, Fort Worth Museum of Science & History, St. Louis Science Centre, Cincinnati Museum Center, Goto Optical MFG. CO., Lobo & Associates Inc.Жанр: Документальный, природа, флора, фаунаРежиссер: Мэл ВульфПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6E6D35AD9C9E4D413BD8D8ADBAC664F0A7877B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850002   (227435) от 19.12.2014
-
-Дикая Франция / Wild France / La France sauvage (2012) BDRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот она... скрытая, но вездесущая... Ее основной закон – приспособиться, чтобы выжить. Во Франции, дикая жизнь заполняет каждый клочок территории. Она подчиняется световым циклам и живет в своем собственном ритме, задаваемом испокон веков великими курантами природы. Для животных и растений Франция – страна исключительная и уникальная. Ее контрастные климатические (   Читать дальше...   )Телекомпания: Arte G.E.I.E.Жанр: Документальный, путешествия, природаРежиссер: Огюстен ВиаттэАктеры: Софи Марсо, Наталья РоманькоПеревод: Одноголосый закадровый (профессиональный)Субтитры: вшитыеЯзык субтитров: русскийПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F393C71DCF76FBBA0B87751E7B72DF1022CE7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

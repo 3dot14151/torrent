@@ -1,3 +1,29 @@
+###  Публикация: 782208   (595768) от 03.07.2015
+
+Paper Artist v2.1.0 [Ru/Multi]  - применение всевозможных фильтров к фотографиям
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paper Artist – это достаточно увлекательная и удобная в использовании программа для редактирования фото на Android, а точнее наложения на фото различных эффектов. Еще с помощью такой программы можно фотографировать уже с выбранными вами фильтрами и получать готовые интересные картины. Фильтров в данном приложении достаточно много, так что скучать вам не придется. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 02.07.2014Разработчик: JFDP LabsПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E002F5ED0DADCF1353E3BFB061670524DF2B8E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 888663   (595674) от 03.07.2015
 
 GameKiller 3.11 [Ru]
@@ -6,7 +32,7 @@ GameKiller 3.11 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595674.jpg" />
+  <img src="Z:/picture/008/save_picture_595674.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ LEGO® Marvel Super Heroes / Герои Marvel в мире LEGO 1.11.14 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595670.jpg" />
+  <img src="Z:/picture/008/save_picture_595670.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Google Фото 1.1.1.96635208 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595046.jpg" />
+  <img src="Z:/picture/008/save_picture_595046.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ LG Nexus 4 - Прошивка MIUI (OS 4.4.4)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594496.jpg" />
+  <img src="Z:/picture/008/save_picture_594496.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Alcatel One Touch Idol X 6040 - Прошивка MIUI
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594257.jpg" />
+  <img src="Z:/picture/008/save_picture_594257.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Adguard Premium 2.9.135 Final [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593803.jpg" />
+  <img src="Z:/picture/008/save_picture_593803.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592260.jpg" />
+  <img src="Z:/picture/008/save_picture_592260.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Monument Valley 2.3.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592251.jpg" />
+  <img src="Z:/picture/008/save_picture_592251.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ BlackBerry Messenger 2.9.0.45 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591855.jpg" />
+  <img src="Z:/picture/008/save_picture_591855.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591845.jpg" />
+  <img src="Z:/picture/008/save_picture_591845.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Garmin: City Navigator Southern Africa NT 2016.20 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591839.jpg" />
+  <img src="Z:/picture/008/save_picture_591839.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Trimaginator 1.6.9 [En] - Обработка фотографии с помощ�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591831.jpg" />
+  <img src="Z:/picture/008/save_picture_591831.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591813.jpg" />
+  <img src="Z:/picture/008/save_picture_591813.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Maxthon  v4.4.7.2000 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591792.jpg" />
+  <img src="Z:/picture/008/save_picture_591792.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ LG Nexus 5 - Прошивка MIUI V5/V6 (OS 4.4.x)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591787.jpg" />
+  <img src="Z:/picture/008/save_picture_591787.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ OpenSignal 3G 4G WiFi карты 3.49 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591743.jpg" />
+  <img src="Z:/picture/008/save_picture_591743.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Checkers Premium 1.42 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591376.jpg" />
+  <img src="Z:/picture/008/save_picture_591376.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ Fierce Tales: Feline Sight 1.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591367.jpg" />
+  <img src="Z:/picture/008/save_picture_591367.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591363.jpg" />
+  <img src="Z:/picture/008/save_picture_591363.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ UniWar HD 1.8.20 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591354.jpg" />
+  <img src="Z:/picture/008/save_picture_591354.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ Defenders 1.8.60237 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591350.jpg" />
+  <img src="Z:/picture/008/save_picture_591350.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ League of Stickman v1.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591340.jpg" />
+  <img src="Z:/picture/008/save_picture_591340.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Ingress 1.80.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591321.jpg" />
+  <img src="Z:/picture/008/save_picture_591321.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ HDR FX Photo Editor Pro v1.6.9 [En] - cоздания HDR эффектов на 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591281.jpg" />
+  <img src="Z:/picture/008/save_picture_591281.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Russian Rider 1.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590892.jpg" />
+  <img src="Z:/picture/008/save_picture_590892.jpg" />
 </div>
 
 
@@ -669,32 +695,6 @@ Russian Rider - игра, которая заставит Вас иначе вз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50AFB44354DB1109920B4F443C6C47B72205A23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916327   (590890) от 08.07.2015
-
-UC Browser - быстрый Cерфинг v10.3.0 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590890.jpg" />
-</div>
-
-
-###  Подробнее
-
-UC Browser – хороший, быстрый браузер для андроид, от разработчиков UCWeb Inc. Уникальность UC Browser в том, что он запросто адаптируется под скорость передачи данных (сжимает трафик), грузит страницы и делает многое другое гораздо быстрее других браузеров.Тип издания: FreeРелиз состоялся: 1 июля 2015 г.Разработчик: UCWeb Inc.Поддерживаемая ОС: Android: 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10C17471D85AC61C93BA458E4F66993EEC89688
 ```
 
 https://mybot314.ru/tekegram_catalog/

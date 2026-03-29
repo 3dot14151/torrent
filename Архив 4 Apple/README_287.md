@@ -1,3 +1,110 @@
+###  Публикация: 1030516   (674289) от 30.06.2016
+
+PhoneRescue 3.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674289.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 июня 2016Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8006BB0DE54F88F9F148C0FF1C7CB092BFA925D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290884   (674193) от 22.03.2019
+
+FontLab VI v6.1.3 (7013) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674193.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: FontLab StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA10DBF937A4DA1EEC138A2070AC03FB735382E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290964   (674192) от 22.03.2019
+
+TG Pro (Temperature Gauge Pro) 2.39 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674192.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB24A5EE14C41943990480B7956D99DDE53E65A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536613   (674169) от 12.03.2022
+
+Adobe Illustrator 2022 v26.1 U2B [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_674169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator 2021 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C74C0710F6D61FBCFC63044173CA9A8D3345A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030439   (674144) от 30.06.2016
 
 Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 2.2.1 [En]
@@ -6,7 +113,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674144.jpg" />
+  <img src="Z:/picture/008/save_picture_674144.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Lyn 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674031.jpg" />
+  <img src="Z:/picture/008/save_picture_674031.jpg" />
 </div>
 
 
@@ -62,7 +169,7 @@ Compressor 4.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673835.jpg" />
+  <img src="Z:/picture/008/save_picture_673835.jpg" />
 </div>
 
 
@@ -88,7 +195,7 @@ Boom 2 v1.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673726.jpg" />
+  <img src="Z:/picture/008/save_picture_673726.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ CrossOver 18.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673720.jpg" />
+  <img src="Z:/picture/008/save_picture_673720.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Alien Skin Exposure X Bundle 1.0.0.313 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673580.jpg" />
+  <img src="Z:/picture/008/save_picture_673580.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ TextLab 1.3.3 (134) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673334.jpg" />
+  <img src="Z:/picture/008/save_picture_673334.jpg" />
 </div>
 
 
@@ -194,7 +301,7 @@ Smooze 1.1.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673327.jpg" />
+  <img src="Z:/picture/008/save_picture_673327.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ Mark of the Ninja [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673299.jpg" />
+  <img src="Z:/picture/008/save_picture_673299.jpg" />
 </div>
 
 
@@ -249,7 +356,7 @@ BBEdit 11.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673243.jpg" />
+  <img src="Z:/picture/008/save_picture_673243.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ Duplicate Photos Fixer Pro 1.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673136.jpg" />
+  <img src="Z:/picture/008/save_picture_673136.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ Sidify Apple Music Converter 1.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672999.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ Camtasia 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672996.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ Multitouch 1.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672995.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ myTracks 4.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672990.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ Focus Professional 1.13.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672987.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ Nevercenter CameraBag Pro 2021.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672896.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Chaos Control Premium 1.14 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672880.jpg" />
 </div>
 
 
@@ -492,7 +599,7 @@ SoundSource 5.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672879.jpg" />
 </div>
 
 
@@ -519,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672834.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ WiFi Signal: Status Monitor  4.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672793.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ App Cleaner & Uninstaller Pro 7.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_672787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_672787.jpg" />
 </div>
 
 
@@ -584,114 +691,6 @@ App Cleaner - лучшее приложение для удаления файл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A9EA5950EC3B1600FF697099A1815383EFCFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536707   (672784) от 13.03.2022
-
-Blackmagic Design Fusion Studio 17.4.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Fusion является самым передовым программным обеспечением для наложения визуальных эффектов, вещательной графики и 3D-анимации. За более чем 25 лет, прошедших с момента его появления, голливудские студии создали в нем свыше тысячи известных во всем мире блокбастеров. Мощный интерфейс программы построен на базе узлов, которые позволяют быстро и легко добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2022Разработчик: © 2022 Blackmagic DesignПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE16C02642EA85BB44E15A0490248B9AF237733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136713   (672772) от 23.05.2017
-
-Navicat Premium 11.2.18 [Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
-
-Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2017Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8509F326771279E5759D1294653D8718A83D9A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136716   (672758) от 23.05.2017
-
-Audio Hijack 3.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack 3 - инструмент для записи звука с любых аудиоисточников от компании Rogue Amoeba. Доступное для компьютеров с операционной системой OS X приложение позволяет записывать разговоры в Skype и FaceTime, оцифровывать аналоговые магнитные записи и пластинки, вести запись музыки из iTunes и Safari.
-
-Audio Hijack имеет блочный интерфейс, набор шаблонов для настройки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2017Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8942488F3395033276B757CE606EF0FC27360496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536777   (672662) от 13.03.2022
-
-Adobe Substance 3D Sampler 3.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оцифруйте и обогатите ресурсы для 3D. Substance 3D Sampler лежит в основе вашего рабочего процесса 3D. Легко трансформируйте реальное изображение в фотореалистичную поверхность или среду HDR.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2022Разработчик: © 2019-2022 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE9517560DAE2E5C589FEE31AEA621C200769E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

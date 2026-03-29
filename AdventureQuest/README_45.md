@@ -1,3 +1,81 @@
+###  Публикация: 1177828   (360260) от 26.10.2017
+
+Reah: Face the Unknown (1999) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reah - потрясающе атмосферная приключенческая игра. Найдите дорогу обратно в реальный мир из альтернативной вселенной, в которую вас забросило по воле случая. Благодаря невероятно быстрому графическому движку вы сможете свободно перемещаться по фантастическому и невероятно красивому миру Reah, выбраться из которого можно только распутав множество головоломок. Во (   Читать дальше...   )Тип издания: LicenseРазработчик: L.K. AvalonЖанр: Приключение, Головоломка, ФэнтезиЯзык озвучки: Английский, ПольскийЯзык субтитров: Английский, Немецкий, Польский и другиеЯзык интерфейса: Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBBA9F685E000D478CFF76E3C304F9501E3C229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177542   (359996) от 26.10.2017
+
+GRIM - Mystery of Wasules (2017) [En/Tur] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359996.jpg" />
+</div>
+
+
+###  Подробнее
+
+GRIM - Mystery of Wasules - это игра от первого лица, в которой присутствуют элементы загадок,хорошей атмосферы и исследования. Чтобы раскрыть правду о смерти, вы будете исследовать мир игры GRIM - Mystery of Wasules . Основная затея игры - взять игрока в другую эпоху заинтересовать своей историей.Тип издания: LicenseРазработчик: StudioBACKSTAGEЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B23A0A94E68CC22CB600DB7407421B6A8A03DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177775   (359995) от 26.10.2017
+
+AER Memories of Old (2017) [Ru/Multi] (1.0.3.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние боги забыты, их имена стерты событиями, что некогда сотрясали мир, но оставили после себя лишь разрозненные летающие острова. Но сейчас над этим таинственным миром с его бескрайними небесами, колоритными островами и древними руинами нависла угроза погружения во тьму. Тебе предстоит совершить паломничество в страну богов, ибо других метаморфов почти не осталось. (   Читать дальше...   )Тип издания: RepackРазработчик: Forgotten KeyЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373E1D0B3AF303F42416FBA54247C65441DBE3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177858   (359987) от 26.10.2017
 
 Shiver (2017) [En] (1.0) Repack Other s
@@ -6,7 +84,7 @@ Shiver (2017) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359987.jpg" />
+  <img src="Z:/picture/008/save_picture_359987.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359719.jpg" />
+  <img src="Z:/picture/008/save_picture_359719.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Silver Case (2016) [En/Jp] (1.01) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358846.jpg" />
+  <img src="Z:/picture/008/save_picture_358846.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Fall: Mutant City [Ru/Ge] (RePack) 2011 | R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356990.jpg" />
+  <img src="Z:/picture/008/save_picture_356990.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Cursed Mountain / Проклятая гора [Ru/En] (RePack) 2010 | R.G. Ме�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356989.jpg" />
+  <img src="Z:/picture/008/save_picture_356989.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Reigns: Game of Thrones (2018) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355826.jpg" />
+  <img src="Z:/picture/008/save_picture_355826.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Atlantis: The Lost Tales (1997) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354097.jpg" />
+  <img src="Z:/picture/008/save_picture_354097.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Lifeless Planet (2014) [Ru/Multi] (1.5) License GOG [Premier Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353799.jpg" />
+  <img src="Z:/picture/008/save_picture_353799.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353568.jpg" />
+  <img src="Z:/picture/008/save_picture_353568.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Return of the Obra Dinn (2018) [Ru/Multi] (1.0.86) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353566.jpg" />
+  <img src="Z:/picture/008/save_picture_353566.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ The Signifier (2020) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352672.jpg" />
+  <img src="Z:/picture/008/save_picture_352672.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Syberia. Cold Edition / Сибирь. Специальное издание (С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350545.jpg" />
+  <img src="Z:/picture/008/save_picture_350545.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Rayon Riddles  Rise of the Goblin King (2016) [En/Ge] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349370.jpg" />
+  <img src="Z:/picture/008/save_picture_349370.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Pineview Drive (2014) [Ru/Multi] (2.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349240.jpg" />
+  <img src="Z:/picture/008/save_picture_349240.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Remothered: Broken Porcelain (2020) [Multi] (0.14.43) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348543.jpg" />
+  <img src="Z:/picture/008/save_picture_348543.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Schizm: Mysterious Journey / Щизм (2001) [Ru/Multi] (b744) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348497.jpg" />
+  <img src="Z:/picture/008/save_picture_348497.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ The Walking Dead: The Telltale Definitive Series (2019) [Ru/En] (1.0) Repack Oth
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347298.jpg" />
+  <img src="Z:/picture/008/save_picture_347298.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347248.jpg" />
+  <img src="Z:/picture/008/save_picture_347248.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347081.jpg" />
+  <img src="Z:/picture/008/save_picture_347081.jpg" />
 </div>
 
 
@@ -513,7 +591,7 @@ Firewatch (2016) [Ru/Multi] (1.04) Repack R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346868.jpg" />
+  <img src="Z:/picture/008/save_picture_346868.jpg" />
 </div>
 
 
@@ -539,7 +617,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346761.jpg" />
+  <img src="Z:/picture/008/save_picture_346761.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346462.jpg" />
+  <img src="Z:/picture/008/save_picture_346462.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345113.jpg" />
+  <img src="Z:/picture/008/save_picture_345113.jpg" />
 </div>
 
 
@@ -603,84 +681,6 @@ The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257534   (345038) от 26.10.2018
-
-TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория нашла работу в другом городе и перебирается туда со своей семьей.Но первая же ночь в новом доме оказывается совсем не такой, как можно ожидать. Ее муж и их двое детей приезжают днем позже, и первую ночь ей приходится провести в новом доме одной. Ночь начинается с бессонницы и легкого недомогания, но вскоре наступает настоящий кошмар. Доживете ли вы до рассвета?Тип издания: LicenseРазработчик: VIS-GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F75E736C0AECE3E0910935B333CDC97BA73F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073525   (344490) от 16.11.2016
-
-Tales (2016) [Ru/Multi] (1.0.1) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альфред Уолш - новый библиотекарь, который в первый же день случайно находит страшное проклятие Забвения на полках своих книг. С помощью Мерлина и других знакомых Альфреда, наш герой должен решать головоломки, если он хочет добиться успеха и остановить проклятие!Тип издания: LicenseРазработчик: Ape MarinaЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6F214A69E4B0B0D9A020306C7826CEF6EF13C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073540   (344478) от 16.11.2016
-
-Neptune Flux (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем океан стал обитаем, подарив людям еще одно место для жизни и развития. Однако никто так и не может сказать, какие тайны скрыты в темных глубинах. Вам же удастся оказаться в числе первых смельчаков, которым придется продолжить изучение подводного мира.Тип издания: RepackРазработчик: Zoxide GamesЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708E4BA1AA248B9B490DB957EA69D78D927C9C31
 ```
 
 https://mybot314.ru/tekegram_catalog/

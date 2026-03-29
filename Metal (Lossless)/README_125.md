@@ -1,3 +1,90 @@
+###  Публикация: 1044457   (565488) от 20.08.2016
+
+Russian Circles - Guidance (2016) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asa
+02. Vorel
+03. Mota
+04. Afrika(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB967831F2645C5BFCB3662C3FD02FB65D05D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555781   (565364) от 06.06.2022
+
+Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This Glorious Nightmare 04:20
+02.Giles 03:56
+03.March of the Mutes 03:58
+04.Sanctity of Brothers 03:26(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555783   (565349) от 06.06.2022
+
+Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Demonic Beast Front 08:06
+02. Die Machine 05:57
+03. Cain Rose Up 03:51
+04. The Braizor 09:57(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55BF572145EE6B64E6AF37F758BB951141769D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555789   (565343) от 06.06.2022
 
 Nula - So Zemlje (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Post-Metal>
@@ -6,7 +93,7 @@ Nula - So Zemlje (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Post-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565343.jpg" />
+  <img src="Z:/picture/008/save_picture_565343.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Paddy And The Rats - Riot City Outlaws (2007) [APE|Lossless|image + .cue] <Folk 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565328.jpg" />
+  <img src="Z:/picture/008/save_picture_565328.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Stardown - Empathy (2021) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565314.jpg" />
+  <img src="Z:/picture/008/save_picture_565314.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Extreme Attack - ...in the Name of Thrash Metal (2013) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565305.jpg" />
+  <img src="Z:/picture/008/save_picture_565305.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Twisted Sister - Metal Meltdown (2016) Live [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565303.jpg" />
+  <img src="Z:/picture/008/save_picture_565303.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Desecresy - The Doom Skeptron (2012) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565284.jpg" />
+  <img src="Z:/picture/008/save_picture_565284.jpg" />
 </div>
 
 
@@ -184,7 +271,7 @@ Nowen - Essence of Fear (2012) [FLAC|Lossless]<Death Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565280.jpg" />
+  <img src="Z:/picture/008/save_picture_565280.jpg" />
 </div>
 
 
@@ -219,7 +306,7 @@ The Forsaken - Beyond Redemption (2012) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565235.jpg" />
+  <img src="Z:/picture/008/save_picture_565235.jpg" />
 </div>
 
 
@@ -254,7 +341,7 @@ Sinister - Deformation Of The Holy Realm (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565217.jpg" />
+  <img src="Z:/picture/008/save_picture_565217.jpg" />
 </div>
 
 
@@ -283,7 +370,7 @@ Inverted Virtue - Railroad To Hell (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565207.jpg" />
+  <img src="Z:/picture/008/save_picture_565207.jpg" />
 </div>
 
 
@@ -312,7 +399,7 @@ Nibelheim - Drawing The Lines... (2007) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565176.jpg" />
+  <img src="Z:/picture/008/save_picture_565176.jpg" />
 </div>
 
 
@@ -341,7 +428,7 @@ Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564531.jpg" />
+  <img src="Z:/picture/008/save_picture_564531.jpg" />
 </div>
 
 
@@ -370,7 +457,7 @@ Subterranean Masquerade - Temporary Psychotic State (2004) Single [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563748.jpg" />
+  <img src="Z:/picture/008/save_picture_563748.jpg" />
 </div>
 
 
@@ -397,7 +484,7 @@ Subterranean Masquerade - Home (2014) Single [FLAC|Lossless|WEB-DL|tracks] <Avan
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563638.jpg" />
+  <img src="Z:/picture/008/save_picture_563638.jpg" />
 </div>
 
 
@@ -425,7 +512,7 @@ Seas of Years - Drifting Ever Shifting (2014) [FLAC|Lossless|WEB-DL|tracks] <Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563629.jpg" />
+  <img src="Z:/picture/008/save_picture_563629.jpg" />
 </div>
 
 
@@ -454,7 +541,7 @@ Seas of Years - The Ever Shifting Fields (2016) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563614.jpg" />
+  <img src="Z:/picture/008/save_picture_563614.jpg" />
 </div>
 
 
@@ -483,7 +570,7 @@ Azken Auzi - Azken Auzi (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563374.jpg" />
+  <img src="Z:/picture/008/save_picture_563374.jpg" />
 </div>
 
 
@@ -512,7 +599,7 @@ Feral Light - Psychic Contortions (2022) [FLAC|Lossless|tracks] <Black Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563366.jpg" />
+  <img src="Z:/picture/008/save_picture_563366.jpg" />
 </div>
 
 
@@ -541,7 +628,7 @@ Sinister - Syncretism (2017) 2CD [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563239.jpg" />
+  <img src="Z:/picture/008/save_picture_563239.jpg" />
 </div>
 
 
@@ -568,7 +655,7 @@ Silverstein - Misery Made Me (2022) [FLAC|Lossless|tracks + .cue] <Post-Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563236.jpg" />
+  <img src="Z:/picture/008/save_picture_563236.jpg" />
 </div>
 
 
@@ -597,7 +684,7 @@ Ghostly Aerie Coven - Bird Of Prey (2021) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563082.jpg" />
+  <img src="Z:/picture/008/save_picture_563082.jpg" />
 </div>
 
 
@@ -626,7 +713,7 @@ Sulphur Aeon - Gateway to the Antisphere (2015) [FLAC|image+.cue]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562833.jpg" />
+  <img src="Z:/picture/008/save_picture_562833.jpg" />
 </div>
 
 
@@ -655,7 +742,7 @@ Mispyrming - Songvar Elds Og Oreidu (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562705.jpg" />
+  <img src="Z:/picture/008/save_picture_562705.jpg" />
 </div>
 
 
@@ -669,93 +756,6 @@ Mispyrming - Songvar Elds Og Oreidu (2015) [FLAC|image+.cue]<Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:362A9D5C6EE7A1735C39D37AD9D4C7511C2CECC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923535   (562701) от 01.08.2015
-
-Kataklysm - Of Ghosts And Gods (2015) Limited Edition [FLAC|image+.cue]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaching The Asylum 4:40
-02. The Black Sheep 4:33
-03. Marching Through Graveyards 5:23
-04. Thy Serpents Tongue 3:57(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE963D8BFDA9F65AE51E07EBD3EDB9A52FEEF1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235118   (562274) от 10.07.2018
-
-Ossian - Kitores (1992) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legyen mienk az elet 4:18
-02. Ok nelkul lazado 4:02
-03. Bunosok es szentek 3:33
-04. Pokoli hajsza, 2020 4:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BC4D5FD6382AA8AF065F606CB9BE4CCD119695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235283   (562273) от 10.07.2018
-
-Angantyr - Ulykke (2018) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulykke er dit navn (07:45)
-02. Visdoms virke (08:19)
-03. Krageben (07:33)
-04. Træl af tomme ord (07:47)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68547D09A84BDAA2F4CA212730D931738FAC4ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

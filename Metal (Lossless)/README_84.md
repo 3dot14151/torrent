@@ -1,3 +1,90 @@
+###  Публикация: 1124643   (785622) от 12.04.2017
+
+Six Feet Under - Torment (2017) [FLAC|Lossless|image + .cue] <Death, Groove Metal, Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrificial Kill 03:55
+02. Exploratory Homicide 02:45
+03. The Separation Of Flesh From Bone 04:52
+04. Schizomaniac 03:54(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DE67E054F59DD64A0B263F7EAC126D76CD6DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277382   (785482) от 20.01.2019
+
+Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disenthrall (1:44)
+02 - Entre Suffrage Et Mirage (4:20)
+03 - Surface's Echoes (6:54)
+04 - Ethereal Kingdom (5:19)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277369   (785481) от 20.01.2019
+
+Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Yata-Garasu
+02. Thy the Ancient Wyvern
+03. Sea of Sacrifice
+04. For Whom the Bell of Ruin Tolls(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277221   (785477) от 20.01.2019
 
 Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785477.jpg" />
+  <img src="Z:/picture/008/save_picture_785477.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785476.jpg" />
+  <img src="Z:/picture/008/save_picture_785476.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785472.jpg" />
+  <img src="Z:/picture/008/save_picture_785472.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785460.jpg" />
+  <img src="Z:/picture/008/save_picture_785460.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785459.jpg" />
+  <img src="Z:/picture/008/save_picture_785459.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785456.jpg" />
+  <img src="Z:/picture/008/save_picture_785456.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785455.jpg" />
+  <img src="Z:/picture/008/save_picture_785455.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785454.jpg" />
+  <img src="Z:/picture/008/save_picture_785454.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785445.jpg" />
+  <img src="Z:/picture/008/save_picture_785445.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785075.jpg" />
+  <img src="Z:/picture/008/save_picture_785075.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785074.jpg" />
+  <img src="Z:/picture/008/save_picture_785074.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785073.jpg" />
+  <img src="Z:/picture/008/save_picture_785073.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785072.jpg" />
+  <img src="Z:/picture/008/save_picture_785072.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785069.jpg" />
+  <img src="Z:/picture/008/save_picture_785069.jpg" />
 </div>
 
 
@@ -410,7 +497,7 @@ Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785068.jpg" />
+  <img src="Z:/picture/008/save_picture_785068.jpg" />
 </div>
 
 
@@ -437,7 +524,7 @@ Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785067.jpg" />
+  <img src="Z:/picture/008/save_picture_785067.jpg" />
 </div>
 
 
@@ -466,7 +553,7 @@ Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785066.jpg" />
+  <img src="Z:/picture/008/save_picture_785066.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ Blood Incantation - Interdimensional Extinction (2015) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785033.jpg" />
+  <img src="Z:/picture/008/save_picture_785033.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Black Label Society - Grimmest Hits (2018) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784643.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ Evertale - The Great Brotherwar (2017) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784408.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Silex - Arise (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783521.jpg" />
+  <img src="Z:/picture/008/save_picture_783521.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Therion - Beloved Antichrist (2018) Limited Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783174.jpg" />
+  <img src="Z:/picture/008/save_picture_783174.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Mystic Prophecy - Monuments Uncovered (2018) Limited Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780859.jpg" />
+  <img src="Z:/picture/008/save_picture_780859.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ Mystic Prophecy - Monuments Uncovered (2018) Limited Edition [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62874E738EE5B198DA44E598CC4AAEA5B7A9FB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207429   (780439) от 19.02.2018
-
-Nightstryke - Power Shall Prevail (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powerture
-02. Power Shall Prevail
-03. Hawk of the Night
-04. Steel Thunder(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EF96C5ACAC5B72466004A1E9A881FEF8CD86A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207366   (780438) от 19.02.2018
-
-The Art of Mankind - Distant Light (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is My Vengeance
-02. Prisoners of the Sun
-03. The Pretenders
-04. Burning Cradle(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0250396C1DD0F78FFCB17D886AE06117987DE99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207425   (780437) от 19.02.2018
-
-Taake - Kong Vinter (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sverdets vei
-02. Inntrenger
-03. Huset i havet
-04. Havet i huset(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4831AFDD0C5C9D59D9CE57AD7AD0B32D419FA10
 ```
 
 https://mybot314.ru/tekegram_catalog/

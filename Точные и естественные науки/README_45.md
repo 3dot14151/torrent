@@ -1,3 +1,136 @@
+###  Публикация: 1792076   (13073) от 29.06.2025
+
+Книжная серия | Современная алгебра [18 книг] (1968 - 1990) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по современной алгебре от издательства "Наука".Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00157F192E9210745D9E01A4744467B0E5D68D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804461   (12859) от 01.07.2025
+
+Библиотека Математика и Физика Поля (Векторы, матрицы, интегралы, аналитическая и дифференциальная геометрия. Теоретическая механика, теория упругости, сплошная среда, электродинамика) [3126 шт]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уравнения математической физики (теоретическая механика, теория упругости, сплошная среда, электродинамика и др.) дают в математике «поля».
+Аппарат поля включает векторное, матричное, интегральное исчисления, аналитическую и дифференциальную геометрию. Элементы дискретной и иной математики (в зависимости от предмета приложения).
+На базе библиотеки можно составлять (   Читать дальше...   )Жанр: Математика, ФизикаИздательство: РазличныеФормат: PDF, DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADA581AEB29F59503E568715C2820C8FD704000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806636   (11514) от 14.07.2025
+
+Н.С. Денисова | Геометрия треугольника, тетраэдра, симплекса (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изучаются свойства треугольника, тетраэдра, симплекса, выявляются аналогичные свойства медиан, высот, биссектрис треугольника, тетраэдра, симплекса, изучаются окружности, связанные с треугольником, и сферы, связанные с тетраэдром и симплексом, сравниваются свойства прямоугольного треугольника и прямоугольных тетраэдра и симплекса.Жанр: МатематикаИздательство: МПГУФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEA6E606F0C151CEF60699CF1D14592E3E3591C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809276   (9962) от 29.07.2025
+
+Дж. Д. Мюррей | Математическая биология (2009 - 2011) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том знаменитого издания Джеймса Мюррея по математической биологии служит введением в предмет. Здесь используется простой математический аппарат, в основном обыкновенные дифференциальные уравнения, что делает книгу доступной студентам, обучающимся на старших курсах университетов и в аспирантуре. На некоторых вопросах - такие как моделирование динамики брачных (   Читать дальше...   )Жанр: БиологияИздательство: Регулярная и хаотическая динамикаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3C0DE49295A3550421F5D2822C14BE8B8795BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809381   (9844) от 30.07.2025
+
+Ю.С. Сикорский | Обыкновенные дифференциальные уравнения (1940) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного математика, профессора Ю. С. Сикорского посвящена обыкновенным дифференциальным уравнениям.
+В ней содержатся сведения об уравнениях первого, второго и высших порядков, эллиптических функциях и функциях Бесселя, даются приближенные методы интегрирования дифференциальных уравнений. Теоретический материал иллюстрируется задачами из различных областей (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B07180D2AC78194DFFFCF119DFA21B66670D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809713   (9660) от 01.08.2025
 
 В.В. Прасолов, В.М. Тихомиров | Геометрия (2007) [DJVU]
@@ -6,7 +139,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9660.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9411.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9362.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9359.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9356.jpg" />
 </div>
 
 
@@ -142,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9340.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9316.jpg" />
 </div>
 
 
@@ -194,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9311.jpg" />
 </div>
 
 
@@ -220,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9240.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8923.jpg" />
 </div>
 
 
@@ -274,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8895.jpg" />
 </div>
 
 
@@ -300,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8458.jpg" />
 </div>
 
 
@@ -326,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8456.jpg" />
 </div>
 
 
@@ -352,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7505.jpg" />
 </div>
 
 
@@ -378,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7476.jpg" />
 </div>
 
 
@@ -404,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6126.jpg" />
 </div>
 
 
@@ -431,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6101.jpg" />
 </div>
 
 
@@ -457,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5528.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5366.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ J. Heyrovsky, J. Kuta | Zaklady Polarografie (1962) [PDF] [Cz]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4918.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4664.jpg" />
 </div>
 
 
@@ -547,140 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6354D97F4E14068D25246C2CA91DD9CD10147330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817173   (3733) от 08.09.2025
-
-В.Ф. Крамаренко | Токсикологическая химия (1989) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3733.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике освещены общие вопросы токсикологической химии, приведена классификация токсикологически важных веществ в зависимости от способа их выделения из биологического материала, описаны методы выделения ядовитых и сильнодействующих веществ, а также способы их обнаружения и количественного определения. Для обнаружения некоторых токсических веществ приведены методики (   Читать дальше...   )Жанр: ХимияИздательство: Вища школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C9906F2A2F4912B4D45BD1C3313EB4E916C398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817896   (2961) от 13.09.2025
-
-Б.В. Иоффе, Р.Р. Костиков, В.В. Разин | Физические методы определения строения органических соединений (1984) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит общие указания по интерпретации спектров — колебательных, электронных, протонного магнитного резонанса первого и второго порядка, ЯМР-¹³С и масс-спектров, а также по использованию молекулярной рефракции, дисперсии и моментов электрических диполей в структурном анализе. Методика расшифровки спектров и обработки неспектральных данных излагается (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFCE6BA0178403E4F04B3DF02F5CEA40A9C28FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818049   (2796) от 14.09.2025
-
-Б. Хэссард, Н. Казаринов, И. Вэн | Теория и приложения бифуркации рождения цикла (1985) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга американских математиков, отражающая успехи в развитии теории бифуркаций и ее применений. Подробно изложены основы теории, даны разнообразные примеры, приведены явные формулы и программы для вычислений.
-Для математиков-прикладников, инженеров, биологов и специалистов, использующих методы прикладной математики.Жанр: МатематикаИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83D4A63033E298A81318EAF9DD0121E51281366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818371   (2491) от 16.09.2025
-
-А.П. Томилов, М.Я. Фиошин, В.А. Смирнов | Электрохимический синтез органических веществ (1976) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография знакомит читателя с использованием электролиза для синтеза органических веществ различных классов.
-Рассматриваются реакции, происходящие при электролизе растворов органических веществ, методика проведения и выбор условий электрохимических синтезов, конструкция лабораторных и промышленных влектролизеров.
-Приводятся примеры электрохимических синтезов органических (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F3CDF9FB661CBA5DB4D3A7A957E5951F14AF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818987   (2014) от 19.09.2025
-
-Л.Ф. Шампайн, И. Гладвел, С. Томпсон | Решение обыкновенных дифференциальных уравнений с использованием MATLAB (2009) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии представлены все разделы информатики, определяющие современный уровень подготовки.
-В книге исследуются вопросы численного решения дифференциальных уравнений с использованием системы MatLAB. Рассматриваются задачи с начальными условиями (ЗНУ) и граничными условиями (ЗГУ) для обыкновенных дифференциальных уравнений, а также дифференциальные уравнения (   Читать дальше...   )Жанр: МатематикаИздательство: ЛаньФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B866C706388A5330ECF7ED82C6BE7AD4EC4DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

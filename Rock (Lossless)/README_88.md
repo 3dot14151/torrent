@@ -1,3 +1,154 @@
+###  Публикация: 935329   (499449) от 08.09.2015
+
+VA - Monsters Of Rock Live/Double Album (2005) [APE|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01       Roxy Music - 	Virginia Plain
+1-02	REO Speedwagon - 	Keep On Lovin' You
+1-03	Deep Purple -	Smoke On The Water
+1-04	Little Feat - 	 Rag Mama Rag(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42302293831C128CEECC76BE23C8A4CF2EFBA659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541486   (498922) от 02.09.2012
+
+Mark Knopfler - Privateering 2CD (2012) [FLAC|Lossless]<Rock / Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498922.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Redbud Tree
+02. Haul Away
+03. Don't Forget Your Hat
+04. Privateering
+05. Miss You Blues
+06. Corned Beef City
+07. Go, Love
+08. Hot or What
+09. Yon Two Crows(   Читать дальше...   )Жанр: Rock / FolkПродолжительность: 00:45:16 / 00:44:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935436   (498417) от 09.09.2015
+
+VA - Ultimate Rock Anthems Vol.1-2 (2005) [APE|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Rod Stewart -	Street Fighting Man
+02	Bobby Fuller Four -	I Fought The Law
+03	Bay City Rollers -	Bye Bye Baby
+04	Big Country -	Fields Of Fire(   Читать дальше...   )Жанр: RockПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EFF992B0F26795B58CB6A8CF717C5D0B09FD10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935453   (498401) от 09.09.2015
+
+VA - Rock'n'Roll Collection (2003) [APE|image + .cue]<Rock/Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Haley and the Comets - Rock Around The Clock
+02. Jerry Lee Lewis - Great Balls Of Fire
+03. Little Richard - Tutti Fruti
+04. Carl Perkins - Blue Suede Shoes(   Читать дальше...   )Жанр: Rock/Rock'n'RollПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63799BDC29DC27392E8AF99828B37194F2422E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935682   (498354) от 09.09.2015
+
+VA - Legends Of Rock (2005) [APE|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meat Loaf With Cher - "Dead Ringer For Love"
+02. Alice Cooper - "Poison"
+03. Motorhead - "Ace Of Spades"
+04. Nickelback -  "Feelin Way Too Damn Good"(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ECDF6CA369A2CB762F14FB7C90ACFD473C0EE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934240   (498238) от 09.09.2015
 
 VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<Classic Rock, Hard Rock>
@@ -6,7 +157,7 @@ VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498238.jpg" />
+  <img src="Z:/picture/008/save_picture_498238.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Jean Leloup - 1985-2003: Je joue de la guitare (2005) [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497809.jpg" />
+  <img src="Z:/picture/008/save_picture_497809.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ Santana - Supernatural-Legacy Edition (2010) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497770.jpg" />
+  <img src="Z:/picture/008/save_picture_497770.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ V.A. - The Many Faces Of Queen: A Journey Throught The Inner World Of Queen (201
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497669.jpg" />
+  <img src="Z:/picture/008/save_picture_497669.jpg" />
 </div>
 
 
@@ -121,7 +272,7 @@ Lebowski - Cinematic (2010) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497523.jpg" />
+  <img src="Z:/picture/008/save_picture_497523.jpg" />
 </div>
 
 
@@ -150,7 +301,7 @@ Lunatic Soul - Walking on a Flashlight Beam (2014) Special Edition CD+DVD [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497511.jpg" />
+  <img src="Z:/picture/008/save_picture_497511.jpg" />
 </div>
 
 
@@ -179,7 +330,7 @@ Lessmann/Voss - Rock Is Our Religion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496699.jpg" />
+  <img src="Z:/picture/008/save_picture_496699.jpg" />
 </div>
 
 
@@ -208,7 +359,7 @@ Fatal Vision - Once (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496698.jpg" />
+  <img src="Z:/picture/008/save_picture_496698.jpg" />
 </div>
 
 
@@ -237,7 +388,7 @@ Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496391.jpg" />
+  <img src="Z:/picture/008/save_picture_496391.jpg" />
 </div>
 
 
@@ -266,7 +417,7 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496385.jpg" />
+  <img src="Z:/picture/008/save_picture_496385.jpg" />
 </div>
 
 
@@ -295,7 +446,7 @@ The Rolling Stones - Foxes In The Boxes Vol. 1-3 (2015) 3CDs [FLAC|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496152.jpg" />
+  <img src="Z:/picture/008/save_picture_496152.jpg" />
 </div>
 
 
@@ -324,7 +475,7 @@ Cliff Richard - Just... Fabulous Rock'n'Roll (2016) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496023.jpg" />
+  <img src="Z:/picture/008/save_picture_496023.jpg" />
 </div>
 
 
@@ -353,7 +504,7 @@ VA - Ultimate  Rock / 4CDs Of Great Rock Music (2015) Box Set, 4CD[FLAC|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495932.jpg" />
+  <img src="Z:/picture/008/save_picture_495932.jpg" />
 </div>
 
 
@@ -382,7 +533,7 @@ Robin Beck - Underneath (2013) [FLAC|Lossless]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495773.jpg" />
+  <img src="Z:/picture/008/save_picture_495773.jpg" />
 </div>
 
 
@@ -411,7 +562,7 @@ VA - Play Station (приложение Audio CD к журналу Play #08'06) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495291.jpg" />
+  <img src="Z:/picture/008/save_picture_495291.jpg" />
 </div>
 
 
@@ -440,7 +591,7 @@ Bobby Stoker - Everglow (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495010.jpg" />
+  <img src="Z:/picture/008/save_picture_495010.jpg" />
 </div>
 
 
@@ -469,7 +620,7 @@ Smokie - Uncovered Too (2001) [APE|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494342.jpg" />
+  <img src="Z:/picture/008/save_picture_494342.jpg" />
 </div>
 
 
@@ -498,7 +649,7 @@ Stereophonics - Keep The Village Alive (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494271.jpg" />
+  <img src="Z:/picture/008/save_picture_494271.jpg" />
 </div>
 
 
@@ -527,7 +678,7 @@ Chris Robinson Brotherhood - Barefoot In The Head (2017) [FLAC|Lossless|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493711.jpg" />
+  <img src="Z:/picture/008/save_picture_493711.jpg" />
 </div>
 
 
@@ -556,7 +707,7 @@ Thank You Scientist - Maps of Non-Existent Places (2012) [FLAC|Lossless]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493592.jpg" />
+  <img src="Z:/picture/008/save_picture_493592.jpg" />
 </div>
 
 
@@ -591,7 +742,7 @@ VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493263.jpg" />
+  <img src="Z:/picture/008/save_picture_493263.jpg" />
 </div>
 
 
@@ -611,164 +762,6 @@ VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543602   (493250) от 06.09.2012
-
-Cat Power - Sun (2012) [FLAC|Lossless]<Indie Rock / Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherokee
-02. Sun
-03. Ruin
-04. 3,6,9
-05. Always On My Own
-06. Real Life
-07. Human Being
-08. Manhattan
-09. Silent Machine
-10. Nothin But Time(   Читать дальше...   )Жанр: Indie Rock / Folk RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849739   (493104) от 25.08.2020
-
-Anathema - A Fine Day To Exit (2001) 2006, Music For Nations, Sony BMG Music Entertainment [FLAC|Lossless|image + .cue] <Progressive, Alternative, Doom Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure (6:44)
-02. Release (5:47)
-03. Looking Outside Inside (6:23)
-04. Leave No Trace (4:46)(   Читать дальше...   )Жанр: Progressive, Alternative, Doom RockПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1A2E60A1D0A594CCF8588338C3191CEA9896B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543427   (493078) от 06.09.2012
-
-Bob Dylan - Tempest (2012) [FLAC (tracks+cue)|Lossless]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duquesne Whistle
-02. Soon After Midnight
-03. Narrow Way
-04. Long And Wasted Years
-05. Pay In Blood
-06. Scarlet Town
-07. Early Roman Kings
-08. Tin Angel
-09. Tempest
-10. Roll On JohnЖанр: Folk-RockПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565477   (492598) от 24.07.2022
-
-Chris Spedding - Joyland (2015) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chris Spedding (17.06.1944) - один из самых разносторонних и уважаемых гиаристов Великобритании, чья карьера насчитывает более пяти десятилетий и включает в себя работу с такими известными группами и музыкантами, как The Vibrators, Bryan Ferry и Roxy Music, Paul McCartney, Elton John, Brian Eno, Katie Melua, Art Garfunkel и многими другими.
-Последний сольный альбом (   Читать дальше...   )01. Chris Spedding feat. Ian McShane - Joyland (3:08)
-02. Chris Spedding feat. Arthur Brown - Now You See It (3:14)
-03. Chris Spedding feat. Glen Matlock - Café Racer (2:06)
-04. Chris Spedding feat. Bryan Ferry - Gun Shaft City (2:34)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C5D0979DC7634B16A8E3C9173268F776DF3CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054217   (492564) от 20.09.2016
-
-John Orr Franklin - Lighthouse (2011) [FLAC|Lossless|image + .cue] <Prog Rock, AOR, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love Light Alive   (05:15)
-02.  Deep Inside   (03:37)
-03.  Energy   (04:10)
-04. Infinity   (03:54)(   Читать дальше...   )Жанр: Prog Rock, AOR, Space RockПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD043302E8E7F98EEC0E0676182E835FE7F8073F
 ```
 
 https://mybot314.ru/tekegram_catalog/

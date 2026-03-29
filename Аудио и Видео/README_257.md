@@ -6,7 +6,7 @@ VA - Urban Soulful Grooves, Vol. 4: Urban Vibes for Urban People (2021) [AAC|~32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169672.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chill Out 2022 (Compiled by DoctorSpook) (2021) [AAC|~321 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169666.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169664.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Best of Chill Jazz 3 (2019) [AAC|~350 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169654.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - My Time | My Music (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169653.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Best of Chill Jazz 5 (2020) [AAC|~346 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169647.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Winter Magic | Chillout Edition (2021) [AAC|~287 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169643.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169642.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Best of Chill Jazz 6 (2020) [AAC|~345 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169634.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Mariah Carey - Mariah Carey's Magical Christmas Special (Apple TV+ Original Soun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169623.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Ethno 4 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169615.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Ultimate Christmas Nu Jazz Music (2021) [AAC|~324 Kbps] <Nu Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169611.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Bar Lounge Background Music (2021) [AAC|~291 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169609.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169606.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Tool - Salival (2000) [AAC|~314 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169603.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Eurodance Power Hits for Aerobic Sessions 2022 (2021) [AAC|~349 Kbps] <Danc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169596.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Urban Soulful Grooves, Vol. 1: Urban Vibes for Urban People (2020) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169592.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Best of Progressive Vocal Trance 2021 (2021) [AAC|~330 Kbps] <Progressive T
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169588.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Finesse Jazz, Vol.1 (Smooth Jazzy Lounge Sounds) (2021) [AAC|~337 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169575.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Best of Chill Jazz 7 (2020) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169569.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Best of Chill Jazz 2 (2019) [AAC|~343 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169564.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Best of Chill Jazz 1 (2019) [AAC|~348 Kbps] <Chill Out, Lounge, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169562.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - A Tribe Called Kotori 6 (2021) [AAC|~329 Kbps] <Progressive House, Deep Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169552.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Tool - 10,000 Days (2006) [AAC|~311 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169541.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Loft - New World (2021) [AAC|~345 Kbps] <Dance, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169537.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Eurodance Power Hits for Workout Sessions 2022 (2021) [AAC|~342 Kbps] <Danc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169531.jpg" />
 </div>
 
 

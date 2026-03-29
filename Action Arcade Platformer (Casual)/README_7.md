@@ -1,3 +1,55 @@
+###  Публикация: 1140624   (654662) от 07.06.2017
+
+Randall (2017) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная игра представляет собой крутую аркаду, с огромным количеством разных интересных головоломок и исследованием игровой территории. В скором времени ум людской будет под контролем разных интересных минералов, но вы, главный герой, не будете под их владением.Тип издания: LicenseРазработчик: We The Force StudiosЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938A8ACA97AFDEB7FE324EB0DCCCA49B4305FB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031159   (652965) от 03.07.2016
+
+RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это гонки на машинах, но другие. Попробуй самые реалистичные гонки в классе RC машин. Разные маршруты, как внутри помещений, так и на открытых пространствах! Проверь свои навыки вождения, и если ты крут, то скоро купишь новые модели и трассы. А уж там-то ты всем докажешь, что лучше тебя быть невозможно.Тип издания: LicenseРазработчик: magnussoftЖанр: RacingЯзык озвучки: Немецкий, АнглийскийЯзык субтитров: Немецкий, АнглийскийЯзык интерфейса: Немецкий, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2903ED09F087685C2503BF7AA7DE30C5A6AD8E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539524   (651903) от 30.03.2022
 
 Orbital Bullet - The 360° Rogue-lite (2022) [Ru/Multi] (1.0.3) License GOG [Save the World Edition]
@@ -6,7 +58,7 @@ Orbital Bullet - The 360° Rogue-lite (2022) [Ru/Multi] (1.0.3) License GOG [Sav
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651903.jpg" />
+  <img src="Z:/picture/008/save_picture_651903.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Streets of Fury EX (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649933.jpg" />
+  <img src="Z:/picture/008/save_picture_649933.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644185.jpg" />
+  <img src="Z:/picture/008/save_picture_644185.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639041.jpg" />
+  <img src="Z:/picture/008/save_picture_639041.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636775.jpg" />
+  <img src="Z:/picture/008/save_picture_636775.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Wonder Boy: The Dragon's Trap (2017) [Multi] (1.02.16) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636673.jpg" />
+  <img src="Z:/picture/008/save_picture_636673.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ MechaGore (2016) [Ru/Multi] (1.6) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634038.jpg" />
+  <img src="Z:/picture/008/save_picture_634038.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ MilitAnt (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633815.jpg" />
+  <img src="Z:/picture/008/save_picture_633815.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ MechaGore (2016) [Ru/Multi] (1.6) SteamRip ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632055.jpg" />
+  <img src="Z:/picture/008/save_picture_632055.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Ghost 1.0 (2016) [Ru/Multi] (1.0.24) Repack Let's Play
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629811.jpg" />
+  <img src="Z:/picture/008/save_picture_629811.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Sonic Mania (2017) [Multi] (1.06.0503/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629463.jpg" />
+  <img src="Z:/picture/008/save_picture_629463.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Rogue Legacy (2013) [Ru/En] (1.0.13) RePack e2e4
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629419.jpg" />
+  <img src="Z:/picture/008/save_picture_629419.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Valdis Story Abyssal City (2013) [Ru/En] (1.0.0.24) SteamRip Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629130.jpg" />
+  <img src="Z:/picture/008/save_picture_629130.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ osu! (2007) [Ru/Multi] (b20180510.4) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624053.jpg" />
+  <img src="Z:/picture/008/save_picture_624053.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ de Blob 2 (2017) [Multi] (0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623267.jpg" />
+  <img src="Z:/picture/008/save_picture_623267.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Super Meat Boy (2010) [Ru/Multi] Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619396.jpg" />
+  <img src="Z:/picture/008/save_picture_619396.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ Audiosurf 2 (2015) [En] (1.0rls) Repack ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617341.jpg" />
+  <img src="Z:/picture/008/save_picture_617341.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Mahluk: Dark demon (2016) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616792.jpg" />
+  <img src="Z:/picture/008/save_picture_616792.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Full Mojo Rampage (2014) [Ru/En] (1.0.129D) Repack Mizantrop1337
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615073.jpg" />
+  <img src="Z:/picture/008/save_picture_615073.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ DreamBreak (2016) [Ru/En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614880.jpg" />
+  <img src="Z:/picture/008/save_picture_614880.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Cast of the Seven Godsends - Redux (2015) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613245.jpg" />
+  <img src="Z:/picture/008/save_picture_613245.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ Semblance (2018) [Ru/Multi] (1.0.3b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613192.jpg" />
+  <img src="Z:/picture/008/save_picture_613192.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Toki Tori (ENG) [L] (2010)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612873.jpg" />
+  <img src="Z:/picture/005/save_picture_612873.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ Blueberry Garden v.1.1 (Eng) [P] (2009)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612871.jpg" />
+  <img src="Z:/picture/005/save_picture_612871.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ Blueberry Garden — арт-проект до мозга костей. Глав�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037845   (611519) от 25.07.2016
-
-The Shadowland (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький жнец потерялся в мрачной потустороннем мире. Помоги ему найти путь назад, через предательские препятствия и устрашающих врагов. Положись на свои рефлексы, чтобы пройти 30+ уровней, 6+ локаций, и пройди 3 уникальных боссов.Тип издания: RepackРазработчик: Bloodcraft DevЖанр: Arcade (Platform), IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5365FA34F846C949CFAF571AD19FB646F653989A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147153   (610898) от 01.07.2017
-
-World of One (2017) [Ru/Multi] (1.2.2 B9) SteamRip Let'sPlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы живете в собственном маленьком мире, в котором есть все – уютный домик, двор с креслом-качалкой, цветами и деревьями, и даже собственный парк развлечений с музыкой, бесконечным запасом фейерверков, и даже колесо обозрения, с которого можно дотянуться до звезд!Тип издания: SteamRipРазработчик: Grimwood TeamЖанр: Adventure, Action, PlatformЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A247C0344BF3AA4D8477CFF192F966CA0F19979
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 203094   (764684) от 23.05.2010
+
+Kingpin: Life of Crime [En/Ru] (L) 1999
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: лицензияРазработчик: Xatrix EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214719   (763891) от 22.03.2018
+
+Paranormal Activity: The Lost Soul (2018) [En] (1.03) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paranormal Activity: The Lost Soul – приключенческая игра для шлемов виртуальной реальности и ПК, основанная на истории популярной кинофраншизы «Паранормальное явление». Вооружившись фонариком, вы будете блуждать по кажущемуся на первый взгляд тихому дому, расположенному в лесном районе. Со временем вы поймете, что вы здесь не одни, и должны будете сделать все возможное, (   Читать дальше...   )Тип издания: LicenseРазработчик: VRWERXЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937065B5C5E1EA3232B4862E4567A315973919C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 203798   (763776) от 24.05.2010
+
+Battlefield Heroes [En] (RePack) 2009 | tukash
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefield Heroes – онлайновый шутер в жанре тактического шутера с элементами ролевой игры, в «мультипликационном» стиле, по правилам Battlefield.
+С простыми и понятными правилами, невысоким порогом вхождения, но в то же самое время – с увлекательным игровым процессом, способным затянуть на долгие недели.
+Самое же приятное – играть можно совершенно бесплатно, деньги здесь тратятся лишь на некоторые дополнительные вещи.Тип издания: Перепакованная лицензияЖанр: Action (Shooter) / 3D / 3rd Person / Online-onlyЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394549   (763412) от 05.07.2020
 
 The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
@@ -6,7 +86,7 @@ The Cursed Forest (2019) [Ru/Multi] (1.0.6) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763412.jpg" />
+  <img src="Z:/picture/008/save_picture_763412.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ ShellShock Дилогия [Ru] (RePack) 2004-2009 | tukash
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761237.jpg" />
+  <img src="Z:/picture/008/save_picture_761237.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ Far Cry 3 (2012) [Ru] (1.05/dlc) Portable PortGamPC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760493.jpg" />
+  <img src="Z:/picture/008/save_picture_760493.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ Killing Floor (2009) [Ru/En] (1065/dlc) Repack R.G. Defoz
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758818.jpg" />
+  <img src="Z:/picture/008/save_picture_758818.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ Genesis Alpha One (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758065.jpg" />
+  <img src="Z:/picture/008/save_picture_758065.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ Tom Clancy's Rainbow Six: Vegas Дилогия [Ru] (RePack) 2006-2008 | R.G. М
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757532.jpg" />
+  <img src="Z:/picture/005/save_picture_757532.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754058.jpg" />
+  <img src="Z:/picture/005/save_picture_754058.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ Left Alone (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753316.jpg" />
+  <img src="Z:/picture/008/save_picture_753316.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ DESOLATE (2019) [Ru/Multi] (1.2) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753005.jpg" />
+  <img src="Z:/picture/008/save_picture_753005.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhan
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752724.jpg" />
+  <img src="Z:/picture/008/save_picture_752724.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ Monstrum (2015) [En] (1.4.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749468.jpg" />
+  <img src="Z:/picture/008/save_picture_749468.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ The Signal From Tölva (2017) [En] (1.0.51) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747395.jpg" />
+  <img src="Z:/picture/008/save_picture_747395.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747391.jpg" />
+  <img src="Z:/picture/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746644.jpg" />
+  <img src="Z:/picture/008/save_picture_746644.jpg" />
 </div>
 
 
@@ -372,7 +452,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745766.jpg" />
+  <img src="Z:/picture/008/save_picture_745766.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) SteamRip =nemos= [Enhanced Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743665.jpg" />
+  <img src="Z:/picture/008/save_picture_743665.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ HEVN (2018) [En] (1.0.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743163.jpg" />
+  <img src="Z:/picture/008/save_picture_743163.jpg" />
 </div>
 
 
@@ -450,7 +530,7 @@ Welcome to the Game II (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742962.jpg" />
+  <img src="Z:/picture/008/save_picture_742962.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741706.jpg" />
+  <img src="Z:/picture/008/save_picture_741706.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ Jackal (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741484.jpg" />
+  <img src="Z:/picture/008/save_picture_741484.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741104.jpg" />
+  <img src="Z:/picture/008/save_picture_741104.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ Dead Island Riptide (2013) [Ru/Multi] (1.4.1.1.13/dlc) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740621.jpg" />
+  <img src="Z:/picture/008/save_picture_740621.jpg" />
 </div>
 
 
@@ -580,7 +660,7 @@ World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735494.jpg" />
+  <img src="Z:/picture/005/save_picture_735494.jpg" />
 </div>
 
 
@@ -591,84 +671,6 @@ World War Z - это напряженный командный шутер на �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:683ED25F3E4CE6F3CA463C1FDAA22C0BA7C9085F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788464   (734526) от 21.05.2014
-
-The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сумасшедший боевик, объединивший ужасы и черный юмор легендарной серии House of the Dead с уникальной игровой механикой! Округ Байу подвергся нашествию зомби. На протяжении девяти глав вам предстоит без устали расправляться с живыми мертвецами, спасая своих друзей и разгадывая причину этой ужасной напасти. Однако вместо привычного оружия вам придется положиться на… клавиатуру, собственную реакцию и быстроту пальцев.(   Читать дальше...   )Тип издания: RePackРазработчик: Modern DreamЖанр: Arcade (Virt.shooting) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B4E89C7BFB9E8F46557DD6F0143C6E53EB353E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399051   (734140) от 29.07.2020
-
-Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руби, Круши, Призывай и Скачи!! Пробей себе дорогу к свободе и славе в слэшере с управлением с помощью двух манипуляторов. Выбирай из более 100 уникальных видов оружия и навыков, чтобы пережить атаки врагов. Победи всех и займи верхнюю строчку в рейтинге. Cubers: Arena — захватывающий слэшер с управлением с помощью двух манипуляторов. Играй за Боллера, стань победителем (   Читать дальше...   )Тип издания: LicenseРазработчик: Tomasz Dziobek (TomiGames)Жанр: Action, RPGЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDEAEBD8A73F4C1E892BF45F2A134A0312C758E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399276   (733684) от 30.07.2020
-
-On The Verge II (2020) [Ru/En] (1.5) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733684.jpg" />
-</div>
-
-
-###  Подробнее
-
-On The Verge II представляет вам историю конфликта простого парня и русского маньяка, обладающего преимущественными способностями. После поражения в городе Черсск, когда маньяк был расстрелян патрулём полиции, он был удостоен второго шанса, который подарила ему судьба как утешительный приз. На этот раз он сделает всё в своих силах, чтобы покончить с вами раз и навсегда. (   Читать дальше...   )Тип издания: RepackРазработчик: 229ProductionЖанр: Action, 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A4DFF76DC6B13BC0F42E9B91442B0C5BC619D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

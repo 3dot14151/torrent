@@ -6,7 +6,7 @@ Emiliana Torrini - Love in the Time of Science (1999) [FLAC|Lossless|tracks + .c
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775158.jpg" />
+  <img src="Z:/picture/008/save_picture_775158.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775154.jpg" />
+  <img src="Z:/picture/008/save_picture_775154.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775153.jpg" />
+  <img src="Z:/picture/008/save_picture_775153.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775152.jpg" />
+  <img src="Z:/picture/008/save_picture_775152.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775151.jpg" />
+  <img src="Z:/picture/008/save_picture_775151.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775150.jpg" />
+  <img src="Z:/picture/008/save_picture_775150.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775149.jpg" />
+  <img src="Z:/picture/008/save_picture_775149.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775148.jpg" />
+  <img src="Z:/picture/008/save_picture_775148.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775147.jpg" />
+  <img src="Z:/picture/008/save_picture_775147.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775146.jpg" />
+  <img src="Z:/picture/008/save_picture_775146.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775145.jpg" />
+  <img src="Z:/picture/008/save_picture_775145.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775142.jpg" />
+  <img src="Z:/picture/008/save_picture_775142.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775122.jpg" />
+  <img src="Z:/picture/008/save_picture_775122.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ VA - Beautiful Songs For You Vol.15 (Compiled by Виктор31Rus & Людми�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775121.jpg" />
+  <img src="Z:/picture/008/save_picture_775121.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Wise Care 365 Pro 4.8.2.464 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775117.jpg" />
+  <img src="Z:/picture/008/save_picture_775117.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Sting & Shaggy - Morning Is Coming (2018) Single [MP3|320 Kbps] <Reggae>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775110.jpg" />
+  <img src="Z:/picture/008/save_picture_775110.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Mozilla Firefox Quantum 59.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775108.jpg" />
+  <img src="Z:/picture/008/save_picture_775108.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Ben Wa - Disciples Of Retro-Tech (2001) [FLAC|Lossless|tracks + .cue] <Electro, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775104.jpg" />
+  <img src="Z:/picture/008/save_picture_775104.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775100.jpg" />
+  <img src="Z:/picture/008/save_picture_775100.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Swift Publisher 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775097.jpg" />
+  <img src="Z:/picture/008/save_picture_775097.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Creo Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775094.jpg" />
+  <img src="Z:/picture/008/save_picture_775094.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775084.jpg" />
+  <img src="Z:/picture/008/save_picture_775084.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775083.jpg" />
+  <img src="Z:/picture/008/save_picture_775083.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Karanda - Karanda (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775082.jpg" />
+  <img src="Z:/picture/008/save_picture_775082.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775075.jpg" />
+  <img src="Z:/picture/008/save_picture_775075.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ File List Export 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775074.jpg" />
+  <img src="Z:/picture/008/save_picture_775074.jpg" />
 </div>
 
 

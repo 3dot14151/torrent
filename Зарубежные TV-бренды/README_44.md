@@ -1,3 +1,107 @@
+###  Публикация: 1220217   (706092) от 18.04.2018
+
+NGW: Первая тройка самых опасных животных. Маленькие убийцы / World's deadliest. Little killers (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706092.jpg" />
+</div>
+
+
+###  Подробнее
+
+От горностаев и красных собак до синекольчатых осьминогов - эти небольшие хищники убивают животных во много раз превосходящих их по размеру.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БитонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FFEF02DD1884858FA788A60D045F74056B1E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220206   (706090) от 18.04.2018
+
+NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не слышал рев льва в руандийской пустыне в течение 15 лет, но это должно измениться. Скоро в Национальный парк Акагера прибудут львы. Пройдёт немало времени, прежде чем они адаптируются на этой новой территории в Центральной Африке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кира ИваноффПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220209   (706089) от 18.04.2018
+
+NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете то, что изменит ваше мнение о поведении и стиле питания акул, этих невероятных хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кевин БачарПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220371   (706086) от 18.04.2018
+
+NGW: Хищники Аляски. Царство китов-убийц / Alaska's Deadliest. Killer Whale Kingdom (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш самый большой штат является прибежищем для самых опасных животных-убийц. Самые опасные животные Аляски обитают на одной из последних границ дикой природы в Америке.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брайан АрмстронгПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CC9A59A051FFFCA69DFD52390FC5DC480AEA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220380   (706080) от 18.04.2018
 
 NGW: Укусить. Ужалить. Убить. Монстры в тени / Bite, Sting, Kill (2018) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706080.jpg" />
+  <img src="Z:/picture/008/save_picture_706080.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Самые странные животные в мире. В толще м�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706079.jpg" />
+  <img src="Z:/picture/008/save_picture_706079.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705994.jpg" />
+  <img src="Z:/picture/008/save_picture_705994.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705990.jpg" />
+  <img src="Z:/picture/008/save_picture_705990.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery: Почему? Вопросы мироздания. Существую
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705679.jpg" />
+  <img src="Z:/picture/008/save_picture_705679.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705066.jpg" />
+  <img src="Z:/picture/008/save_picture_705066.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Animal Planet: Живой или вымерший. Тайваньский дым
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705064.jpg" />
+  <img src="Z:/picture/008/save_picture_705064.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705063.jpg" />
+  <img src="Z:/picture/008/save_picture_705063.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705052.jpg" />
+  <img src="Z:/picture/008/save_picture_705052.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704416.jpg" />
+  <img src="Z:/picture/008/save_picture_704416.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NGW: Южная Африка. Колыбель убийц / South Africa. Cradle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704406.jpg" />
+  <img src="Z:/picture/008/save_picture_704406.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Хищники Аляски. Поле боя гризли / Alaska's Deadli
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704314.jpg" />
+  <img src="Z:/picture/008/save_picture_704314.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NGW: Африка. Убийцы с фантазией / Africa's Creative Killer
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704313.jpg" />
+  <img src="Z:/picture/008/save_picture_704313.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ Animal Planet: Cинее царство (Лазурная страна). Щуп�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703897.jpg" />
+  <img src="Z:/picture/008/save_picture_703897.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ Discovery. Легендарные места / Legendary Locations (2019) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703134.jpg" />
+  <img src="Z:/picture/008/save_picture_703134.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Animal Planet: Земля снежного человека. Затерянно�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703108.jpg" />
+  <img src="Z:/picture/008/save_picture_703108.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702814.jpg" />
+  <img src="Z:/picture/008/save_picture_702814.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702398.jpg" />
+  <img src="Z:/picture/008/save_picture_702398.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701358.jpg" />
+  <img src="Z:/picture/008/save_picture_701358.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ BBC. Тайная история британских садов / The Secret Hi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701350.jpg" />
+  <img src="Z:/picture/008/save_picture_701350.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701075.jpg" />
+  <img src="Z:/picture/008/save_picture_701075.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700355.jpg" />
+  <img src="Z:/picture/008/save_picture_700355.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250A9D8B94C6CB55C2CA8992F96F7A794E03D0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025485   (700195) от 17.06.2016
-
-NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700195.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПРОРЫВ покажет вам пробуждающую работу мысли и воображение перспективу научных открытий в реальном времени. В каждом эпизоде мы будем наблюдать за работой учёных и исследователей, работающих над передовыми проектами с огромным потенциалом: способные к трансформации приборы, решающие неотложные проблемы (как, например, разработка вакцины от вируса Эболы, поиски способа (   Читать дальше...   )Производство: National Geographic, Asylum Entertainment, Imagine Entertainment SeeЖанр: Документальный, научно-познавательныйРежиссер: Рон Ховард, Бретт Ратнет, Пол Джаматти, Акива Голдсман, Анджела Бассетт и Питер БергПеревод: Одноголосый закадровый, профессиональный | Студия ВелесПродолжительность: 6 х ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1CF5DE0288166692F00BB6ED90E4B7F6793DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023982   (700080) от 17.06.2016
-
-Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие считают, что деньги правят миром, но эколог-экстремал Роб Гринфилд собирается доказать, что человеческая доброта и взаимовыручка дороже любых денег. Вместе с режиссером-документалистом Джеймсом Левеллом он ставит невероятный эксперимент: его цель – преодолеть 9000 километров от Бразилии до Панамы без единого цента в кармане. Никаких денег, никаких кредитных (   Читать дальше...   )Телекомпания: Discovery Channel HDЖанр: Документальный, Спорт, Видовой, Приключения, ЭкстримПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 6 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BA3B1C88AB54096BA852BF4C75D2ABE87361D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025706   (700072) от 17.06.2016
-
-NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот уникальный эксперимент предлагает беспрецедентную возможность узнать ответы на такие вопросы, как: были ли у Ти-рекса перья или нет, как он питался с такими маленькими ручками, был он изначально хищником или падальщиком, как он переваривал пищу, как долго жил, как размножался и был ли он теплокровным как млекопитающее или хладнокровным как рептилия. С глазами (   Читать дальше...   )Телекомпания: Produced By Impossible Factual LTD & For National Geographic ChannelЖанр: Документальный, познавательный, палеонтологияРежиссер: Ричард ДэйлПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9496B3A4FB4BDA95001735534A086F9D73D7D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025412   (700069) от 17.06.2016
-
-Проклятие ледяного золота / Curse of the Frozen Gold (2016) HDTVRip [H.264/1080p-LQ] (Сезон 1 серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канал Дискавери представляет новый сериал про добычу золота «Проклятие ледяного золота / The curse of the ice of gold 2016». В практически неизведанных горах Британской Колумбии миллионы лет прячут одну из самых таинственных тайн на планете. Легенда о Слумаче – индейце, который в этих местах нашел золото и когда был пойман и по пытками не выдал места где оно хранилось. (   Читать дальше...   )Производство: Discovery ChannelЖанр: Документальный, Природа и животные, ПутешествияПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 6 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D254333821AAD9DADC56AF64AB27EA10AED2346F
 ```
 
 https://mybot314.ru/tekegram_catalog/

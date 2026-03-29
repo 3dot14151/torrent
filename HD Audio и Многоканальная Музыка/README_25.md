@@ -1,3 +1,231 @@
+###  Публикация: 1072817   (620203) от 16.04.2022
+
+Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Вдвоём, фокстрот
+02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071518   (620201) от 16.04.2022
+
+Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танго соловья, солист Таиса Савва (художественный свист)
+02. Романтическое тангоЖанр: Latin, Tango, RetroПродолжительность: 00:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059522   (620053) от 16.04.2022
+
+Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620053.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Midnight Hour
+A2 Oh Yeah
+A3 Same Old Scene
+A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846687   (620042) от 16.04.2022
+
+Николай Басков - Посвящение... (2000) [FLAC|Lossless]<Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620042.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Памяти Карузо
+A2	Гранада
+A3	О, Натали...
+A4	История Любви(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070326   (619907) от 16.04.2022
+
+VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстрады (2003) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emrah - Tirlamisim
+02. Infernal - Turkish Bizarre
+03. Izel - Bebek
+04. Ruber Hatemo - Vur dibine(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910949   (619835) от 21.06.2015
+
+Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619835.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Bad Boys Running Wild (3:55)
+A2. Rock You Like A Hurricane (4:12)
+A3. I'm Leaving You (4:18)
+A4. Coming Home (5:00)(   Читать дальше...   )Производство: EMI / HarvestЖанр: Hard RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145493   (619610) от 26.06.2017
+
+Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rise Of Sodom And Gomorrah (6:46)
+02. Birth Of Venus Illegitima (5:15)
+03. Wine Of Aluqah (5:05)
+04. Clavicula Nox (8:50)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88B23D3DDD9EE3C97D1BEA7B1B5CD40C5C5185D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043512   (618294) от 17.04.2022
+
+Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, Folk, Traditional>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flute Music track 01
+02. Flute Music track 02
+03. Flute Music track 03
+04. Flute Music track 04(   Читать дальше...   )Жанр: Arabian, Folk, TraditionalПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7427027A7CF52C9C988FD34456C283D0878ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047276   (618125) от 17.04.2022
 
 Трио Современной Джазовой Музыки: В. Чекасин, В. Тарасов, В. Ганелин - Джазовые Импровизации (1976) [FLAC 2.0|96/24|side-tracks|Vinyl-Rip] <Free Jazz>
@@ -6,7 +234,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618125.jpg" />
+  <img src="Z:/picture/008/save_picture_618125.jpg" />
 </div>
 
 
@@ -33,7 +261,7 @@ VA - Вас Поздравляют Звёзды! (1990) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617994.jpg" />
+  <img src="Z:/picture/008/save_picture_617994.jpg" />
 </div>
 
 
@@ -62,7 +290,7 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616977.jpg" />
+  <img src="Z:/picture/008/save_picture_616977.jpg" />
 </div>
 
 
@@ -91,7 +319,7 @@ Gentle Giant - Octopus (1972) 2015, Alucard Music [DTS 5.1|LPCM 2.0|96/24|Blu-ra
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616882.jpg" />
+  <img src="Z:/picture/008/save_picture_616882.jpg" />
 </div>
 
 
@@ -120,7 +348,7 @@ Yes - Fragile (1971) 2015, Atlantic [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray] <Rock,
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616864.jpg" />
+  <img src="Z:/picture/008/save_picture_616864.jpg" />
 </div>
 
 
@@ -151,7 +379,7 @@ Louis Armstrong - Collection (Unofficial Release, Unknown Year) [FLAC 2.0|44,1/1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616836.jpg" />
+  <img src="Z:/picture/008/save_picture_616836.jpg" />
 </div>
 
 
@@ -180,7 +408,7 @@ Pink Floyd - The Division Bell (1994) 2014, Rhino Music [DTS 5.1|LPCM 2.0, 5.1|9
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616795.jpg" />
+  <img src="Z:/picture/008/save_picture_616795.jpg" />
 </div>
 
 
@@ -208,7 +436,7 @@ VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616381.jpg" />
+  <img src="Z:/picture/008/save_picture_616381.jpg" />
 </div>
 
 
@@ -237,7 +465,7 @@ Benny Goodman / Бенни Гудмен - Как Глубок Океан (1940-1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616253.jpg" />
+  <img src="Z:/picture/008/save_picture_616253.jpg" />
 </div>
 
 
@@ -266,7 +494,7 @@ Joan Baez/Джоан Баэз - Поёт Джоан Баэз (1970) [FLAC 2.0|96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616246.jpg" />
+  <img src="Z:/picture/008/save_picture_616246.jpg" />
 </div>
 
 
@@ -295,7 +523,7 @@ Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (198
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615584.jpg" />
+  <img src="Z:/picture/008/save_picture_615584.jpg" />
 </div>
 
 
@@ -324,7 +552,7 @@ The Who - Quadrophenia (1979) 2LP Original Motion Picture Soundtrack [FLAC 2.0 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615337.jpg" />
+  <img src="Z:/picture/008/save_picture_615337.jpg" />
 </div>
 
 
@@ -353,7 +581,7 @@ Roger Waters - Amused to Death (1992) Remastered, 2015, Sony Music [LPCM 2.0, 5.
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614986.jpg" />
+  <img src="Z:/picture/008/save_picture_614986.jpg" />
 </div>
 
 
@@ -382,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612911.jpg" />
+  <img src="Z:/picture/008/save_picture_612911.jpg" />
 </div>
 
 
@@ -411,7 +639,7 @@ Bobbysocks / Боббисокс (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612910.jpg" />
+  <img src="Z:/picture/008/save_picture_612910.jpg" />
 </div>
 
 
@@ -440,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612904.jpg" />
+  <img src="Z:/picture/008/save_picture_612904.jpg" />
 </div>
 
 
@@ -469,7 +697,7 @@ Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
+  <img src="Z:/picture/008/save_picture_612896.jpg" />
 </div>
 
 
@@ -501,7 +729,7 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
+  <img src="Z:/picture/008/save_picture_612888.jpg" />
 </div>
 
 
@@ -515,234 +743,6 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017131   (612792) от 20.04.2022
-
-Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612792.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
-A2	Освободись • Kom Loss
-A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
-A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017177   (612789) от 20.04.2022
-
-Раймондс Паулс - Мой Путь (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612789.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Увеселитель · The Entertainer
-A2	Как Велика Твоя Любовь · How Deep Is Your Love
-A3	Здравствуй! · Salut!
-A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947912   (611135) от 21.04.2022
-
-VA - Fantastic Rio Carnaval (1976) [FLAC 2.0 24/96|Limage+.cue (Vinyl-Rip)]<Latin, Samba>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611135.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Gres Acadêmicos Do Salgueiro - Nossa Madrinha, Mangueira Querida-Tengo Tengo
-A2	Gres Mocidade Independente De Padre Miguel - Rio Zê Pereira
-A3	Gres Imperatriz Leopoldinense - Martin Cererê
-A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De CordelЖанр: Latin, SambaПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993458   (611043) от 21.04.2022
-
-Hana & Dana, ORM - Talisman (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611043.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Ciao Pepino	3:36
-A2	My Summer Holidays	3:22
-A3	Sad Old Clown	3:54
-A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991825   (611041) от 21.04.2022
-
-Валерий Леонтьев - По вашим письмам: Горькие яблоки (1985) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горькие яблоки
-02. Конь мой, коньЖанр: PopПродолжительность: 00:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991818   (611029) от 21.04.2022
-
-Валерий Леонтьев - Ненаглядная сторона (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ненаглядная сторона
-02. Бреду по жёлтым склонамЖанр: PopПродолжительность: 00:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146955   (610991) от 01.07.2017
-
-VA - Rock Remakes - Non Stop Part three (2017) Unofficial Release [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Classic Rock, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Beatles Meets Michael - Way You Make Me Feel (Michael Jackson)
-02. Therion - Summer Night City (Abba)
-03. Roxette - Help! (The Beatles)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Heavy MetalПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912639   (610613) от 26.06.2015
-
-Roger Hodgson - In The Eye Of The Storm (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начинать сольную карьеру в 80-х годах минувшего столетия в прогрессивном роке было делом заведомо неблагодарным. Тем не менее, многих музыкантов это не останавливало, и они наперекор всем начинали выпускать сольные альбомы, нередко вызывая тем самым досаду поклонников и злорадство критиков. Роджер Ходжсон (Roger Hodgson) – один из основателей Supertramp – также не (   Читать дальше...   )A1. Had A Dream (Sleeping With The Enemy) (8:28)
-A2. In Jeopardy (5:58)
-A3. Lovers In The Wind (4:15)
-A4. Hooked On A Problem (4:59)(   Читать дальше...   )Производство: A&M RecordsЖанр: Soft RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 88140   (272862) от 29.11.2018
+
+Мартин Казарян - Поет дудук (2003) [MP3|256]<Classic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Армянская народная мелодия
+2. Армянская народная мелодия
+3. Караван
+4. Армянская народная мелодия(   Читать дальше...   )Жанр: Classic, FolkПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B624D9B66FC9C0CFA25D3008A71ACD48B020277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135669   (272818) от 29.11.2018
+
+VA - Лучшие песни французских мюзиклов (2008) [MP3|320 kb/s]<музыка театра и кино>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкий альбом, объединяющий в себе песни наиболее популярных французских мюзиклов, которые покорили весь мир. Хорошее качество, отличное оригинальное исполнение, делают этот диск прекрасным подарком всем романтикам, которые найдут тут и песни из «Нотр-Дама» и довольно редкие арии из других менее известных, но не менее красивых постановок.
+Рекомендую использовать (   Читать дальше...   )Жанр: музыка театра и киноПродолжительность: 02:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4336A79329C5828444CE7E2243EBEF79E12EA66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 40433   (272813) от 29.11.2018
 
 Евгения Смольянинова - В лунном сиянии... (2005)
@@ -6,7 +62,7 @@
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272813.jpg" />
+  <img src="Z:/picture/008/save_picture_272813.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ VA - Autumn is Coming: Soft Music Moments (2019) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272629.jpg" />
+  <img src="Z:/picture/008/save_picture_272629.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271758.jpg" />
+  <img src="Z:/picture/008/save_picture_271758.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271656.jpg" />
+  <img src="Z:/picture/008/save_picture_271656.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271654.jpg" />
+  <img src="Z:/picture/008/save_picture_271654.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ Music for Quiet Moments - # Classical Love (2019) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271505.jpg" />
+  <img src="Z:/picture/008/save_picture_271505.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271459.jpg" />
+  <img src="Z:/picture/008/save_picture_271459.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271371.jpg" />
+  <img src="Z:/picture/008/save_picture_271371.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271274.jpg" />
+  <img src="Z:/picture/008/save_picture_271274.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271062.jpg" />
+  <img src="Z:/picture/008/save_picture_271062.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270963.jpg" />
+  <img src="Z:/picture/008/save_picture_270963.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270685.jpg" />
+  <img src="Z:/picture/008/save_picture_270685.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Pictur
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270637.jpg" />
+  <img src="Z:/picture/008/save_picture_270637.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270621.jpg" />
+  <img src="Z:/picture/008/save_picture_270621.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270600.jpg" />
+  <img src="Z:/picture/008/save_picture_270600.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + O
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270549.jpg" />
+  <img src="Z:/picture/008/save_picture_270549.jpg" />
 </div>
 
 
@@ -467,7 +523,7 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270349.jpg" />
+  <img src="Z:/picture/008/save_picture_270349.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270345.jpg" />
+  <img src="Z:/picture/008/save_picture_270345.jpg" />
 </div>
 
 
@@ -525,7 +581,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270223.jpg" />
+  <img src="Z:/picture/008/save_picture_270223.jpg" />
 </div>
 
 
@@ -554,7 +610,7 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269852.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269824.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Salon Orchester Da Capo - Grand Café (1998) [FLAC|Lossless|image + .cue] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269822.jpg" />
 </div>
 
 
@@ -641,7 +697,7 @@ Sina Vodjani - Indian Colours (2002) [FLAC|Lossless|tracks + .cue] <New Age, Eth
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269805.jpg" />
 </div>
 
 
@@ -670,7 +726,7 @@ VA - Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269775.jpg" />
 </div>
 
 
@@ -684,64 +740,6 @@ VA - Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E63196A4533B126C49250E9199216404C6B4B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338516   (269736) от 15.11.2019
-
-Faun - Marchen & Mythen (2019) [MP3|320 Kbps] <Folk, Medievol>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Es war einmal...
-2. Rosenrot
-3. Seemann
-4. Hagazussa(   Читать дальше...   )Жанр: Folk, MedievolПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D30D6C4B8803FC3C82F27D5B042075A9E58A3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338261   (269734) от 15.11.2019
-
-Mokadelic - Gomorra: La Serie (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Experimental, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust Ring (3:45)
- 02. Right to the Edge (2:51)
- 03. Doomed to Live (2:42)
- 04. Stoke the Baptism of Fire (3:41)(   Читать дальше...   )Жанр: Electronic, Ambient, Experimental, ScoreПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2302D90ABF3B2150C936D23608A7D24CD6C9124
 ```
 
 https://mybot314.ru/tekegram_catalog/

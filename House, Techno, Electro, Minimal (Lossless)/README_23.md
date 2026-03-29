@@ -1,3 +1,90 @@
+###  Публикация: 1207427   (780606) от 18.02.2018
+
+Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue] <Deep House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daya (06:21)
+ 02. No Captain (feat. Poliça) (05:18)
+ 03. Atlas (05:52)
+ 04. Clarify (feat. Fractures) (04:02)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208027   (780298) от 20.02.2018
+
+Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Wasser (04:42)
+ 02. Das Armellose Hemd (05:32)
+ 03. Stillhalten (05:59)
+ 04. Um Meine Haut (05:34)Жанр: Techno, Electro, IndustrialПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208325   (780128) от 21.02.2018
+
+John Shima - Elements Unknown (2017) FireScope [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elements (08:27)
+ 02. Symbols (07:15)
+ 03. Implant (07:17)
+ 04. Illuminate (07:24)Жанр: Electro, IDM, TechnoПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421DD4CBB53312BED78054C89BD42CFAEE35FC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208186   (780119) от 21.02.2018
 
 The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Lossless|tracks] <Techno, Ambient, IDM>
@@ -6,7 +93,7 @@ The Primitive Painter - The Primitive Painter (1994) Klang Elektronik [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780119.jpg" />
+  <img src="Z:/picture/008/save_picture_780119.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - True People: The Detroit Techno Album (1996) React [FLAC|Lossless|tracks+.c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780116.jpg" />
+  <img src="Z:/picture/008/save_picture_780116.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
+  <img src="Z:/picture/008/save_picture_779821.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
+  <img src="Z:/picture/008/save_picture_779817.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ GusGus - Lies Are More Flexible (2018) Oroom [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779791.jpg" />
+  <img src="Z:/picture/008/save_picture_779791.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Merovingian - Prøv å Forstå (The Remixes) (2018) Drift Deeper Recordings [FLA
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779675.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779535.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779298.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Fritz Kalkbrenner - Drown (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779230.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779155.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779135.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778725.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Moonbeam - Eclipse (2016) [FLAC|Lossless|tracks] <Progressive House, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778295.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Zen - Dark Blue (2018) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Techno, Psyte
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778244.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Giriu Dvasios - Dub Vibes Vol. 1-3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777873.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777563.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Kronos Quartet & Laurie Anderson - Landfall (2018) [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777552.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Pablo Bolivar & Sensual Physics - Traverse (Reprise) (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777150.jpg" />
+  <img src="Z:/picture/008/save_picture_777150.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Way Out West - We Love Machine – The Remixes (2010) 2CD [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776938.jpg" />
+  <img src="Z:/picture/008/save_picture_776938.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Cosmin Nicolae - Semnal (2018) Opal Tapes [FLAC|Lossless|WEB-DL|tracks] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776578.jpg" />
+  <img src="Z:/picture/008/save_picture_776578.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776087.jpg" />
+  <img src="Z:/picture/008/save_picture_776087.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ MRUKS - Enchantment (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Ret
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775101.jpg" />
+  <img src="Z:/picture/008/save_picture_775101.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ VA - Sports Megamix 2019.1 (2019) [FLAC|Lossless|tracks] <Funky, Club House, Dan
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775085.jpg" />
+  <img src="Z:/picture/008/save_picture_775085.jpg" />
 </div>
 
 
@@ -652,93 +739,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302BD394B6B936D1BA1619BFD44F3DEE1E8CF030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212973   (774452) от 14.03.2018
-
-Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (06:36)
- 02. Opening Dance (04:39)
- 03. Neoclassicdub (09:15)
- 04. Desire (07:08)(   Читать дальше...   )Тип издания: Vinyl, Album |Жанр: Dub Techno, Techno, Ambient |Продолжительность: 02:54:31 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7974F3034B5F6304FFAA3401B874F0A2464E2D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277978   (774319) от 23.01.2019
-
-Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Darkly Sunset In Barcelona (06:51)
- 02. In The Meanderings Of Shibuya (06:03)
- 03. The Moon In Montreal (07:27)
- 04. The Mist In Cherni Vrah (05:57)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213186   (773356) от 15.03.2018
-
-Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminiscence (03:49)
- 02. Gears (05:51)
- 03. Lichtende (06:17)
- 04. Scorch (05:36)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
 ```
 
 https://mybot314.ru/tekegram_catalog/

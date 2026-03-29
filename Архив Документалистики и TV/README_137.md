@@ -1,3 +1,177 @@
+###  Публикация: 1223631   (673479) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа B. США — Канада (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673479.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа B. 1-й Тур
+США — Канада(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F9578FD727442B95C874E29D75CA051610A6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223624   (673477) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673477.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа A. 1-й Тур
+Россия — Франция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1A770E5802EE9325AEDCAFA5D883AD1D349FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223498   (673475) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа A. Швеция — Беларусь (04.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673475.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 21:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа A.
+Швеция — Беларусь(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC782EF3BE0C2E0AD7E63F7B5E708C77F3EA534B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223581   (673469) от 05.05.2018
+
+Хоккей. Юниорский Чемпионат мира 2018. Финал. Финляндия U18 — США U18 (29.04.2018) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673469.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 апреля 2018 года, воскресенье. 17:30 МСК
+20-й Чемпионат мира по хоккею с шайбой среди юниорских команд 2018 года
+Финал
+Финляндия U18 — США U18(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6667C68517A70CED7CEE6B9D633B3AB864787352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223497   (673461) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа B. США — Канада (04.05.2018) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673461.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа B
+США — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00793D83F5307D744CB6AE777087527CA542B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223495   (673421) от 05.05.2018
+
+Хоккей. Чемпионат мира 2018. Группа A. Россия — Франция (04.05.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673421.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 мая 2018 года, пятница. 17:15 МСК
+82-й Чемпионат мира по хоккею с шайбой 2018 года
+Группа A.
+Россия — Франция(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152E34A8FBB22B8EB1E7AA9DBEDBE17DEF988AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509927   (673049) от 13.06.2012
 
 Футбол. Чемпионат Европы 2012. 2-й тур. Группа A. Греция - Чехия (2012) HDTVRip [H.264/720p]
@@ -6,7 +180,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_673049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673049.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672977.jpg" />
 </div>
 
 
@@ -61,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672801.jpg" />
 </div>
 
 
@@ -90,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672414.jpg" />
 </div>
 
 
@@ -119,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672383.jpg" />
 </div>
 
 
@@ -149,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672288.jpg" />
 </div>
 
 
@@ -178,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672277.jpg" />
 </div>
 
 
@@ -207,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672230.jpg" />
 </div>
 
 
@@ -236,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672229.jpg" />
 </div>
 
 
@@ -265,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672228.jpg" />
 </div>
 
 
@@ -294,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671761.jpg" />
 </div>
 
 
@@ -323,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671760.jpg" />
 </div>
 
 
@@ -352,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671759.jpg" />
 </div>
 
 
@@ -381,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671758.jpg" />
 </div>
 
 
@@ -410,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671757.jpg" />
 </div>
 
 
@@ -439,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671655.jpg" />
+  <img src="Z:/picture/008/save_picture_671655.jpg" />
 </div>
 
 
@@ -468,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671654.jpg" />
+  <img src="Z:/picture/008/save_picture_671654.jpg" />
 </div>
 
 
@@ -497,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671653.jpg" />
+  <img src="Z:/picture/008/save_picture_671653.jpg" />
 </div>
 
 
@@ -526,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671652.jpg" />
+  <img src="Z:/picture/008/save_picture_671652.jpg" />
 </div>
 
 
@@ -555,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671642.jpg" />
+  <img src="Z:/picture/008/save_picture_671642.jpg" />
 </div>
 
 
@@ -569,174 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12676C72CC657F3B215DFCA11E835355635C184E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223637   (671638) от 06.05.2018
-
-Футбол. Лига Европы УЕФА 2017-2018. 1/2 финала. 2-й матч. Ред Булл Зальцбург (Австрия) — Олимпик Марсель (Франция) (03.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671638.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 мая 2018 года, четверг. 22:05 МСК
-Лига Европы УЕФА 2017 - 2018. Плей-офф
-1/2 финала. 2-й матч.
-Ред Булл Зальцбург (Зальцбург, Австрия) — Олимпик Марсель (Марсель, Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5065110BD0D6C31F913CA41B5F4D36E0088E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136507   (671201) от 24.05.2017
-
-Virgin Australia Supercars Championship. Сезон 2017. Winton SuperSprint. Этап 5. Гонка 1 (20.05.2017) HDTVRip [H.264/720p-LQ] [VO]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2017 года - Этап 5Телекомпания: Fox Sports 506Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 01:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C52C9386171C706CACEAAED3F9ACADB72A7577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136950   (671200) от 24.05.2017
-
-Волейбол. Лига Чемпионов 2016-2017. Женщины. Финал 4-х. Матч за 3-е место. Динамо (Россия) — Эджзаджибаши ВитрА (Турция) (23.04.2017) WEB-DLRip [H.264/720p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671200.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 апреля 2017 года
-Лига чемпионов среди женщин 2017. Тревизо (Италия). Финал четырёх.
-Матч за 3-е место.
-Динамо (Москва, Россия) — Эджзаджибаши ВитрА (Стамбул, Турция)(   Читать дальше...   )Телекомпания: CEV TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85F2338AFCE46FA4B1B1D08846C41994023118B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136903   (671199) от 24.05.2017
-
-Художественная гимнастика. Чемпионат Европы 2017. Будапешт (Венгрия). Женщины, личное первенство. Квалификация (19.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671199.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 мая 2017, пятница.
-33-й Чемпионат Европы по художественной гимнастике 2017. Будапешт (Венгрия).
-День 1
-Женщины, личное первенство. Квалификация (обруч, мяч)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E0215CD38B59D4AF129B9F7965A676C66019D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136931   (671153) от 24.05.2017
-
-Художественная гимнастика. Чемпионат Европы 2017. Будапешт (Венгрия). День 3. Финалы (21.05.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671153.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 мая 2017, воскресенье.
-33-й Чемпионат Европы по художественной гимнастике 2017. Будапешт (Венгрия).
-День 3:
-Юниорки, группы. Финал (10 булав)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C26DC3E971DB3F650BD17B3EA5BACF3932B558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136804   (671147) от 24.05.2017
-
-Virgin Australia Supercars Championship. Сезон 2017. Winton SuperSprint. Этап 5. Гонка 2 (21.05.2017) HDTVRip [H.264/720p-LQ] [VO]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2017 года - Этап 5Телекомпания: Fox Sports 506Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A31E94A25B3892015E2D75D5A2B8665108312B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

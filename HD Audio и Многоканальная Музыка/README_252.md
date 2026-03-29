@@ -1,3 +1,234 @@
+###  Публикация: 1808520   (10387) от 25.07.2025
+
+Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Drowned World _ Substitute for Love (BT & Sasha's Bucklodge Ashram New Edit) (05:21)
+ 02 - Ray of Light (Sasha Twilo Mix Edit) (05:42)
+ 03 - Skin (Peter & Victor's Collaboration Remix Edit) (05:19)
+ 04 - Nothing Really Matters (Club 69 Speed Mix Meets the Dub) (05:14)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EDA56A15ACC6A787C2016059667C7CCEF764C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679598   (10175) от 27.07.2025
+
+Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Э́лис Ку́пер (англ. Alice Cooper, при рождении Ви́нсент Дэ́ймон Фурнье́ (или Фёрни́эр — англ. Vincent Damon Furnier; род. 4 февраля 1948, Детройт) — американский рок-певец и автор песен. Купер был одним из первых шок-рокеров и стал, как отмечает All Music Guide, королём этого жанра, своей новаторской деятельностью радикально расширив (   Читать дальше...   )2000 - Brutal Planet
+2001 - Dragontown
+2003 - The Eyes Of Alice Cooper
+2005 - Dirty DiamondsЖанр: Hard RockПродолжительность: 09:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808843   (10012) от 29.07.2025
+
+Агата Кристи - Полное Собрание Сочинений. Том I, Том II, Том III (2013-2015) [DSD 128|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10012.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Агата Кристи» - советская и российская рок-группа, одна из наиболее популярных в стране в середине и во второй половине 1990-х годов. Основана в 1985 году в Свердловске Вадимом Самойловым, Александром Козловым и Петром Маем под названием ВИА «РТФ УПИ», официально же история группы отсчитывается с концерта 20 февраля 1988 года. Во время записи альбома «Второй фронт» (   Читать дальше...   )Агата Кристи - Полное Собрание Сочинений. 2013 Том I
+Агата Кристи - Полное Собрание Сочинений. 2015 Том II
+Агата Кристи - Полное Собрание Сочинений. 2015 Том IIIЖанр: RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808739   (10007) от 29.07.2025
+
+Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Electronic, synthpop, new wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yello (Йеллo) — швейцарская электронная группа, образованная в 1978 году в Цюрихе. В те времена в состав группы входили композитор-аранжировщик Бoрис Бланк (Boris Blank, родился 15 января 1952) (клавишные, сэмплинг, ресэмплинг, перкуссия, бэк-вокал,) и Карлос Перон, покинувший группу в 1983. В 1979 в группу в качестве вокалиста и автора песен был приглашен Дитер (   Читать дальше...   )1983 You Gotta Say Yes To Another Excess (LP, DSD, Germany, Vertigo - 812 166-1Q)
+1985 Stella (LP, DSD, Germany, Vertigo # 822 820-1Q)
+1987 One Second (LP, DSD, Germany, Mercury # 830 956-1)
+1988 Flag (LP, DSD, USA, Mercury # 836 426-1)Жанр: Electronic, synthpop, new waveПродолжительность: 08:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809287   (9954) от 29.07.2025
+
+Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God's A Different Sword [00:03:19]
+02. Hotel TV [00:04:37]
+03. The Actor [00:02:50]
+04. Moth Song [00:05:03](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C333D85260B76EB9385A0C051681AFCC95280D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809185   (9951) от 29.07.2025
+
+VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth-pop, Kayokyoku>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 高橋洋子 - 残酷な天使のテーゼ / Yoko Takahashi - Cruel Angel's Thesis
+A2 高橋洋子 - 無限抱擁 / Yoko Takahashi - Infinite Embrace
+A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать дальше...   )Жанр: J-pop, Synth-pop, KayokyokuПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809415   (9859) от 30.07.2025
+
+Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Ри - Кристофер Энтон Риа (Christopher Anton Rea). Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, а также с последующим альбомом «Auberge» (1991). Свой первый контракт в качестве сольного исполнителя Крис Ри подписал (   Читать дальше...   )1979 - Deltics(UK, MAGL 5028 LP)
+1980 - Tennis (UK, MAGL 5032 LP)
+1981 - Chris Rea (Germany, 713016 LP)
+1983 - Water Sign (Germany, 823 077-1 LP)Жанр: RockПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809512   (9777) от 31.07.2025
+
+Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chilly - западногерманская диско-группа, получившая наибольшую популярность в конце 70-х — начале 80-х годов. В 1978 году молодой 32-летний продюсер Бернт Мёрле (Bernt Mohrle) при участии аранжировщиков Кристиана Колоновица и Штэфана Клинкхаммера, известных по работе с такими звёздами как Boney M., Eruption, Supermax, Silver Convention и другими, приступил к созданию (   Читать дальше...   )1978 - For Your Love (Germany, Polydor - 2417 122)
+1979 - Come To L.A. (Germany, Polydor - 2417 124)
+1980 - Showbiz (Germany, Polydor - 2417 137)
+1982 - Secret Lies (Germany, Polydor - 2372 086)Жанр: Disco, soul, funkПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809657   (9767) от 31.07.2025
 
 Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
@@ -6,7 +237,7 @@ Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9767.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Roger Waters - Roger Waters: This Is Not A Drill (Live From Prague May 2023) (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9658.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9547.jpg" />
 </div>
 
 
@@ -94,7 +325,7 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9424.jpg" />
 </div>
 
 
@@ -123,7 +354,7 @@ Pink Floyd - Collection (+Solo) (1967-2018) [DSD 128|tracks, image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9276.jpg" />
 </div>
 
 
@@ -152,7 +383,7 @@ Frank Sinatra - The Collection 1953-1962, Original Master Recording, MFSL Box (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9258.jpg" />
 </div>
 
 
@@ -181,7 +412,7 @@ John Skelley - We Were Lightning (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9211.jpg" />
 </div>
 
 
@@ -210,7 +441,7 @@ Chaos Magic (Caterina Nix & Timo Tolkki project) - Studio Albums (4 releases) (2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8892.jpg" />
 </div>
 
 
@@ -239,7 +470,7 @@ Evanescence - Дискография (11 releases) (1998-2025) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8865.jpg" />
 </div>
 
 
@@ -268,7 +499,7 @@ Presto Ballet - Studio Albums (7 releases) (2005-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8784.jpg" />
 </div>
 
 
@@ -297,7 +528,7 @@ Motograter - Studio Albums (4 releases) (2000-2017) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8707.jpg" />
 </div>
 
 
@@ -327,7 +558,7 @@ Livin' Blues - Blue Breeze (1976) 1978 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8517.jpg" />
 </div>
 
 
@@ -356,7 +587,7 @@ Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8441.jpg" />
 </div>
 
 
@@ -385,7 +616,7 @@ Pawlo-X Sax - Smooth Jazz Summer 2025 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8411.jpg" />
 </div>
 
 
@@ -414,7 +645,7 @@ Mr. Saxxy and the Funkaholix - The Dusty Tape Sessions (2025) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8401.jpg" />
 </div>
 
 
@@ -443,7 +674,7 @@ My Dying Bride - A Map Of All Our Failures (2012)[FLAC|24/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8383.jpg" />
 </div>
 
 
@@ -472,7 +703,7 @@ Liv Sin - Close Your Eyes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8377.jpg" />
 </div>
 
 
@@ -501,7 +732,7 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8375.jpg" />
 </div>
 
 
@@ -515,237 +746,6 @@ Lord Of The Lost - OPVS NOIR Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8B71AB14A0173864EA973647BE2BE992A8CFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811758   (8350) от 11.08.2025
-
-Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Black Wizards (06:26)
-02. Wrath Of The Tyrant (04:15)
-03. Night Of The Graveless Souls (03:15)
-04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811891   (8248) от 12.08.2025
-
-Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dragony — пауэр-метал группа из Вены, Австрия, основана в 2010 году.2012 - Legends
-2015 - Shadowplay
-2017 - Lords Of The Hunt
-2018 - Masters Of The MultiverseЖанр: Melodic/Symphonic Power MetalПродолжительность: 05:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA94AFC95CEB0E71499F4CDA79861CB1AA975439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811904   (8231) от 12.08.2025
-
-DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8231.jpg" />
-</div>
-
-
-###  Подробнее
-
-DragonForce — британская пауэр-метал-группа из Лондона, образованная в 1999 году. Они известны своими длинными и быстрыми гитарными соло, текстами в стиле фэнтези и звучанием, вдохновлённым ретро-видеоиграми. Сами участники группы называют свою музыку «экстремальным пауэр-металом».2003 - Valley Of The Damned
-2004 - Sonic Firestorm
-2006 - Inhuman Rampage
-2008 - Ultra Beatdown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 11:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D572DBFA481300F2FE41402915B0312E65DD530D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812114   (8116) от 13.08.2025
-
-Fade Numb - Fresh Start (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fresh Start (4:53)
-02.  Listen to That Engine (3:01)
-03.  Head Over Heels (3:58)
-04.  The Rain Has Passed (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F8BBEF8BB7D9B51B492D346CD87C24E91925AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812142   (8106) от 13.08.2025
-
-VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Euro House, Italodance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Pearl feat.Zaradika - Celebrate
-02. Maxx - Power Of Love
-03. Odyssey - Winter Night(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812118   (8044) от 13.08.2025
-
-Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rave The Reqviem - индастриал-метал группа из Швеции, образована в 2011 году.2014 - Rave The Reqviem
-2016 - The Gospel of Nil
-2018 - FVNERALЖанр: Electronic, Industrial MetalПродолжительность: 03:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6555E68979BBAF3A9ECAC0CBBA86D5A6F560EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812133   (8026) от 13.08.2025
-
-Hendy FN - Karma (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All Is Gone (3:00)
-02.  Betrayed (3:26)
-03.  Blind Hope (2:59)
-04.  Brainwash (2:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF944D14007DD38B028A1D1715FC8CDF01693B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812107   (8012) от 13.08.2025
-
-Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wrong Deal (3:12)
-02.  Time Passes (3:35)
-03.  Roswell Kid (3:25)
-04.  The Preparation (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF1B3C41172B3136B7C808F6CFEC68A9F633176
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1370502   (896909) от 27.03.2020
+
+Wine Red - Сквозь горизонты (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сквозь километры [03:53]
+02. Манифест [02:59]
+03. Ночной полёт [03:48]
+04. Дорогая [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95695D14D3245841CA51AC7426724D7AE03990BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992832   (896866) от 04.03.2016
+
+Звери - Страха нет (2016) [MP3|320 кб/с] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Муха (02:28)
+02. Страха нет (03:52)
+03. Элвис (03:41)
+04. Настя (03:31)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D798410A002E232D31507BDCD83D179E2136D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370443   (896855) от 27.03.2020
+
+Рви Меха - Оркестр! - Сильная & независимая (2020) [MP3|320 Kbps] <Ska, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_896855.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы с тобою
+2. Ипотека & алименты
+3. Валера
+4. Сильная & независимая(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17934C181D9B498249F32E49085F21E04D8EF9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993659   (895014) от 05.03.2016
+
+Порнофильмы - Русская Мечта. Часть 2 (2016) [MP3|320 кб/с] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть альбома «Русская Мечта» изначально задумывалась иной, но в процессе работы было принято внести некоторые изменения в предполагаемую концепцию пластинки. Тем не менее, заданное первой частью альбома направление прослеживается – каждая композиция рассказывает историю об устройстве современного российского общества и жизни человека. Таким образом, этот (   Читать дальше...   )01. Нищих убивай!
+02. Роди мне 1000 детей!
+03. Не доверяйте правительству! (feat. Лёха Никонов)
+04. Велосипед(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8676C1B8935C41A398830A60932F9308CDA41B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493412   (894048) от 04.09.2021
 
 ЧЯ-ЩЯ - Оперативный Администратор (2021) [MP3|320 Kbps] <Independent, Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894048.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893425.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892675.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Ledbounty - 1 Album, 2 Singles (2019-2021) [MP3|320 Kbps] <Индастриал,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892565.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892458.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ HAGAT - Извращение (2020) [MP3|320 Kbps] <Gothic Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892126.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891346.jpg" />
 </div>
 
 
@@ -216,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891207.jpg" />
 </div>
 
 
@@ -245,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890127.jpg" />
 </div>
 
 
@@ -274,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889392.jpg" />
+  <img src="Z:/picture/005/save_picture_889392.jpg" />
 </div>
 
 
@@ -303,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889051.jpg" />
+  <img src="Z:/picture/005/save_picture_889051.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888712.jpg" />
+  <img src="Z:/picture/005/save_picture_888712.jpg" />
 </div>
 
 
@@ -361,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888462.jpg" />
+  <img src="Z:/picture/005/save_picture_888462.jpg" />
 </div>
 
 
@@ -390,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888369.jpg" />
+  <img src="Z:/picture/005/save_picture_888369.jpg" />
 </div>
 
 
@@ -416,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888325.jpg" />
+  <img src="Z:/picture/005/save_picture_888325.jpg" />
 </div>
 
 
@@ -446,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888045.jpg" />
+  <img src="Z:/picture/005/save_picture_888045.jpg" />
 </div>
 
 
@@ -475,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887710.jpg" />
+  <img src="Z:/picture/005/save_picture_887710.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887646.jpg" />
+  <img src="Z:/picture/005/save_picture_887646.jpg" />
 </div>
 
 
@@ -548,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887241.jpg" />
+  <img src="Z:/picture/005/save_picture_887241.jpg" />
 </div>
 
 
@@ -577,7 +693,7 @@ South Bunch - Не кашлять! (2020) [MP3|320 Kbps] <Post-Hardcore, Metalco
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887232.jpg" />
+  <img src="Z:/picture/005/save_picture_887232.jpg" />
 </div>
 
 
@@ -606,7 +722,7 @@ The Starkillers - Дикий Восток (2020) [MP3|320 Kbps] <Heavy Metal, Nu
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887056.jpg" />
+  <img src="Z:/picture/005/save_picture_887056.jpg" />
 </div>
 
 
@@ -635,7 +751,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886592.jpg" />
+  <img src="Z:/picture/005/save_picture_886592.jpg" />
 </div>
 
 
@@ -655,116 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103333   (886012) от 12.02.2017
-
-Лихосвет - 2 albums, 2 EP (2005-2013) [MP3|221-320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2005. Дальний Край
-2010. Срок
-2013. Из Тьмы (EP)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 02:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96B72B8F86FF6843A183D1E2D8B9768D7C954A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103590   (885889) от 12.02.2017
-
-Саша Самойленко & TOMAS band - Джем (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Караван (feat. ГЕНИЙ)
-2. Командор (feat. Олег Сакмаров, Дарья Рубцова & Александр Бар)
-3. Комета
-4. ЛоЛа (feat. Алексей Могилевский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE17F5F8D2ABB62806D48C35E7DDFA10ED91A10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372510   (885615) от 03.04.2020
-
-Levandowskiy - Бутылки (2020) Single [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. БутылкиЖанр: AlternativeПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8122F3532FAEEE5F69971E56B726C6E58CF691C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372394   (885441) от 03.04.2020
-
-Ночные Снайперы - гопник (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. гопникЖанр: RockПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69CCF66FCD40F813F04B99AA848CFF40896F9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

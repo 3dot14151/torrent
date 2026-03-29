@@ -1,3 +1,90 @@
+###  Публикация: 1819111   (1779) от 20.09.2025
+
+Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaklínání poslední zimy [00:09:00]
+02. Klíč k noci [00:07:09]
+03. Skrze brány věčnosti a zapomnění [00:04:41]
+04. Obrození ve stínech [00:05:48](   Читать дальше...   )Жанр: Melidic Black MetalПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819118   (1770) от 20.09.2025
+
+Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, progressive hard-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Ether [00:05:18]
+02. I Am Just One [00:04:41]
+03. Alive [00:05:04]
+04. Firefly [00:03:57](   Читать дальше...   )Жанр: Alternative Metal, progressive hard-rockПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72453BB84781DA7CDE9D35FA37A58A28896954E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819393   (1623) от 21.09.2025
+
+Haken - Liveforms: An Evening With Haken (2025) 3 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не заблуждайтесь на этот счет, Haken просто одна из лучших чертовых групп, которые прог может предложить в наши дни. Пожалуй, единственное, что впечатляет больше, чем их неизменно превосходная дискография (в которой каждый последующий релиз, кажется, только заставляет мою челюсть отвисать еще больше) - это их безупречные живые выступления. Как и любой преданный фанат, (   Читать дальше...   )CD1:
+CD1-1 The Last Lullaby 2:10
+CD1-2 Taurus 4:43
+CD1-3 Nightingale 7:27(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3AD8439E875A5E3FB8E5E2776FB782F2C66131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819186   (1600) от 21.09.2025
 
 In Mourning - The Immortal (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Progressive Metal>
@@ -6,7 +93,7 @@ In Mourning - The Immortal (2025) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1600.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Jelusick - Apolitical Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1575.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1433.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Cruel Bomb - Cruel Bomb (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Cros
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1429.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1411.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Chaoseum - Life 4 Sale (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1266.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Angelo Perlepes' Mystery - Spelled By Fire (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_975.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Terra Atlantica - Oceans (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_752.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Till Lindemann - Zunge 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_646.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_500.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_221.jpg" />
 </div>
 
 

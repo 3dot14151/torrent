@@ -1,3 +1,32 @@
+###  Публикация: 1689424   (124418) от 04.01.2024
+
+FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial (2023) WEB-DL [EN / EN, ES, CN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate Lighting — углубленный учебный курс
+Узнайте, как работает профессиональный художник по свету, создавая освещение и настроение не только для больших и открытых помещений, но и для всего: от базовой теории освещения и технических концепций до расширения портфолио, рендеринга с великолепной композицией и чистой презентацией!
+
+СВЯТОЙ ГРААЛЬ ОСВЕЩЕНИЯ: ЛЮМЕН (   Читать дальше...   )Производство: FastTrackTutorialsЖанр: ВидеокурсЯзык озвучки: АнглийскийСубтитры: Английский, Испанский, КитайскийПродолжительность: 17:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690042   (124220) от 05.01.2024
 
 Enterclass, Анастасия Беседина | В осеннем парке (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Enterclass, Анастасия Беседина | В осеннем парке (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124220.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Skillshare, Isabel Aracama | Learn to Use the Pen Tool in Affinity Designer (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124208.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Udemy, Stone River eLearning | Affinity Designer For Beginners (2018) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124201.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Udemy, Valeri Visuals | Premium Logo Animation in Adobe After Effects (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124126.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124114.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Skillshare, Dawid Tuminski | How To Create A Flat Design Night Camping in Affini
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124060.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124017.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123847.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123799.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123707.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123689.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123603.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123566.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123522.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123214.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123205.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123177.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122868.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122827.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122670.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122597.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122582.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122129.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122111.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122083.jpg" />
 </div>
 
 
@@ -683,33 +712,6 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BFDD3D115D36F80A37299569A6FE633C8B0353F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693138   (122082) от 19.01.2024
-
-Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blender 2.92 (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grease Pencil позволяет иллюстрировать (а также анимировать) непосредственно в 3D-интерфейсе Blender. Поначалу это может показаться странным, но создавать контент с помощью Grease Pencil просто и весело!
-В этом курсе Пол проведет вас от основ - настройки интерфейса и навигации, инструментов, использования кистей и раскрашивания - до завершенного проекта, который (   Читать дальше...   )Производство: Udemy, Canopy GamesЖанр: Иллюстрации, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 05:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4596C13F591CD7F0C76C919EED6FE3F4202B8069
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ K-Lite Codec Pack 13.1.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698392.jpg" />
+  <img src="Z:/picture/008/save_picture_698392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Red Giant Trapcode Suite 14.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698385.jpg" />
+  <img src="Z:/picture/008/save_picture_698385.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Stardock WindowBlinds 10.62 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698382.jpg" />
+  <img src="Z:/picture/008/save_picture_698382.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinRAR 5.60 Beta 3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698381.jpg" />
+  <img src="Z:/picture/008/save_picture_698381.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ummy Video Downloader 1.7.2.9 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698374.jpg" />
+  <img src="Z:/picture/008/save_picture_698374.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Free Studio 6.6.22.617 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698368.jpg" />
+  <img src="Z:/picture/008/save_picture_698368.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cyberfox 47.0.1 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698362.jpg" />
+  <img src="Z:/picture/008/save_picture_698362.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Avira Scout 16.06.2704.549 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698358.jpg" />
+  <img src="Z:/picture/008/save_picture_698358.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698349.jpg" />
+  <img src="Z:/picture/008/save_picture_698349.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698262.jpg" />
+  <img src="Z:/picture/008/save_picture_698262.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698237.jpg" />
+  <img src="Z:/picture/008/save_picture_698237.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ ICQ 10.0 build 12091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698231.jpg" />
+  <img src="Z:/picture/008/save_picture_698231.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ FlipBuilder Flip PDF 4.3.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698224.jpg" />
+  <img src="Z:/picture/008/save_picture_698224.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ CyberLink PowerDVD Ultra 18.0.1619.62 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698157.jpg" />
+  <img src="Z:/picture/008/save_picture_698157.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Office 2007 Enterprise SP3 12.0.6785.5000 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698150.jpg" />
+  <img src="Z:/picture/008/save_picture_698150.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Acronis BootCD 10PE x86/x64 by naifle (22.04.2018) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698145.jpg" />
+  <img src="Z:/picture/008/save_picture_698145.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ UC Browser 5.6.13108.1201 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698130.jpg" />
+  <img src="Z:/picture/008/save_picture_698130.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mp3tag 2.77 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698126.jpg" />
+  <img src="Z:/picture/008/save_picture_698126.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Cyberfox 47.0.1 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698124.jpg" />
+  <img src="Z:/picture/008/save_picture_698124.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Cacheman 10.0.1.0 DC 18.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698119.jpg" />
+  <img src="Z:/picture/008/save_picture_698119.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chromodo Browser 50.14.22.468 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698116.jpg" />
+  <img src="Z:/picture/008/save_picture_698116.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Aiseesoft Total Video Converter 9.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698115.jpg" />
+  <img src="Z:/picture/008/save_picture_698115.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Tipard PDF Converter Platinum 3.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698031.jpg" />
+  <img src="Z:/picture/008/save_picture_698031.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Anvir Task Manager 8.1.2 DC 18.06.2016 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698016.jpg" />
+  <img src="Z:/picture/008/save_picture_698016.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Dropbox 1.1.31 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697979.jpg" />
+  <img src="Z:/picture/005/save_picture_697979.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windows Repair (All In One) 3.9.2 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697921.jpg" />
+  <img src="Z:/picture/008/save_picture_697921.jpg" />
 </div>
 
 

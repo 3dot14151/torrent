@@ -1,3 +1,109 @@
+###  Публикация: 1563766   (249998) от 15.07.2022
+
+Commander One PRO Pack 3 v3.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1B1F0B3AC19D921822CF948C78F1A574CB40CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563895   (249945) от 16.07.2022
+
+ON1 Portrait AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249945.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Portrait AI – новый инструмент обработки портретов, который использует технологии искусственного интеллекта, он способен автоматически обнаружить лица людей на фотографии и тут же обработать их, причём без необходимости каких-то настроек и вообще вмешательства оператора. Представляя программу, вице-президент ON1 Дэн Харлахер (Dan Harlacher), в частности, сказал, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF2AFF5D068A6775F390D10777C544B3E6DAF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564071   (249878) от 17.07.2022
+
+iTubeGo YouTube Downloader Pro 5.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скачивайте видео в формате Full HD/4K/8K с YouTube и более чем с 10 000 веб-сайтов на высокой скорости.
+Являясь мощным загрузчиком HD-видео для YouTube, Dailymotion, Facebook и других потоковых сайтов, iTubeGo HD Video Downloader обеспечивает в 10 раз более высокую скорость для массовой загрузки высококачественных видео. Кроме того, он предоставляет встроенный браузер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 iTubeGoПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1709AD83EBD36E2DD75E81AC1044A5953835E765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564608   (249728) от 19.07.2022
+
+Adobe Substance 3D Painter 8.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Substance 3D Painter есть инструменты, необходимые для текстурирования ваших 3D-ресурсов, от расширенных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2014-2021 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E292B3D152CC3E8268BB732F7C0F088BE5B229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564755   (249656) от 20.07.2022
 
 zCommander - File Manager for Mac 6.20 [En]
@@ -6,7 +112,7 @@ zCommander - File Manager for Mac 6.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249656.jpg" />
+  <img src="Z:/picture/004/save_picture_249656.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Movavi Picverse Photo Editor 1.10.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249590.jpg" />
+  <img src="Z:/picture/004/save_picture_249590.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ TotalFinder 1.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249315.jpg" />
+  <img src="Z:/picture/005/save_picture_249315.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ ForkLift 2.5 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248484.jpg" />
+  <img src="Z:/picture/004/save_picture_248484.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ iA Writer 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246030.jpg" />
+  <img src="Z:/picture/004/save_picture_246030.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Luminar Neo 1.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246019.jpg" />
+  <img src="Z:/picture/004/save_picture_246019.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ Affinity Publisher 2 v.2.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245997.jpg" />
+  <img src="Z:/picture/004/save_picture_245997.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ Project Office X Pro 1.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245991.jpg" />
+  <img src="Z:/picture/004/save_picture_245991.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ EdgeView 2 v2.915 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245982.jpg" />
+  <img src="Z:/picture/004/save_picture_245982.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Bootstrap Studio 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245978.jpg" />
+  <img src="Z:/picture/004/save_picture_245978.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ TwistedWave 24.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245972.jpg" />
+  <img src="Z:/picture/004/save_picture_245972.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ IconJar 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245964.jpg" />
+  <img src="Z:/picture/004/save_picture_245964.jpg" />
 </div>
 
 
@@ -327,7 +433,7 @@ WebToLayers 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245958.jpg" />
+  <img src="Z:/picture/004/save_picture_245958.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ FontXChange 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245943.jpg" />
+  <img src="Z:/picture/004/save_picture_245943.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ Nevercenter CameraBag Photo 2020.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245936.jpg" />
+  <img src="Z:/picture/004/save_picture_245936.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ Network Radar 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245935.jpg" />
+  <img src="Z:/picture/004/save_picture_245935.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ NCH DreamPlan Plus 8.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245925.jpg" />
+  <img src="Z:/picture/004/save_picture_245925.jpg" />
 </div>
 
 
@@ -464,7 +570,7 @@ Money Pro - Personal Finance 2.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245924.jpg" />
+  <img src="Z:/picture/004/save_picture_245924.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ NetWorker Pro 8.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245909.jpg" />
+  <img src="Z:/picture/004/save_picture_245909.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ DropDMG 3.6.2 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245908.jpg" />
+  <img src="Z:/picture/004/save_picture_245908.jpg" />
 </div>
 
 
@@ -544,7 +650,7 @@ Wipr – Ad and Tracker Blocker 1.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245894.jpg" />
+  <img src="Z:/picture/004/save_picture_245894.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ NCH DeskFX Plus 3.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245890.jpg" />
+  <img src="Z:/picture/004/save_picture_245890.jpg" />
 </div>
 
 
@@ -581,110 +687,6 @@ NCH DeskFX Plus 3.02 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597B9692B6B06A19D2E1B3C2E3114830D2BD1539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448621   (245874) от 18.02.2021
-
-Hookshot 1.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hookshot - позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 18.02.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816543F3FDFBB357E3F9244A1F36B84B81270BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608116   (245869) от 29.01.2023
-
-SponsorBlock for YouTube 5.1.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245869.jpg" />
-</div>
-
-
-###  Подробнее
-
-SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.01.2023Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0042B3B3618500E0EA811E108927C5B1C138959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565871   (245856) от 25.07.2022
-
-FoneDog iOS Unlocker 1.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245856.jpg" />
-</div>
-
-
-###  Подробнее
-
-FoneDog iOS Unlocker — это мощный инструмент, который помогает разблокировать iPhone/iPad/iPod, стирая пароль. Он также предоставляет функции удаления Apple ID или пароля и пароля Screen Time.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2022Разработчик: © 2016–2022 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4850164F8D153159F0B0C18037E801F440A8F093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511506   (245855) от 21.11.2021
-
-Exposure Software Eye Candy 7 v7.2.3.182 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2021Разработчик: © 2021 ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EFD2E36AF211C37A4DB5147436EC64E299DD515
 ```
 
 https://mybot314.ru/tekegram_catalog/

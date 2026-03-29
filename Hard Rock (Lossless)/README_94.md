@@ -1,3 +1,61 @@
+###  Публикация: 1719880   (110484) от 01.05.2024
+
+Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locked and Loaded (3:44)
+02. Immortal (3:25)
+03. Bender (3:22)
+04. Straightjacket Supermodel (3:38)(   Читать дальше...   )Жанр: Hard Rock, Post GrungeПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC26F735D6D2AADA3C8B0967FFFEE8AFE6B0F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720648   (110269) от 04.05.2024
+
+Ozzy Osbourne - Live at Budokan (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know
+02. That I Never Had
+03. Believer
+04. Junkie(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A7188B7B2594E5EAFB3626C40C60F21132F078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720602   (110224) от 04.05.2024
 
 Ava Rane - Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Ava Rane - Insanity (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110224.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Sons Of Thunder - Thunderhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110166.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Trippelganger - Possessor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110064.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Cradle of Haze - Fairytales (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Got
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110035.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Velveteen Queen - Consequence of the city (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109997.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sebastian Bach - Child Within The Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109883.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Hunter - Rock 'n' Roll V.I.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109774.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109748.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Mr. Coma - Renacer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109734.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Refestramus - Intouríst (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109715.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109668.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109501.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109451.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109442.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109352.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109255.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Datcha Mandala - Koda (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Psychedelic, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109248.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ The Jack - Tribute to AC/DC - Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109161.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Rare Touch - Rare Touch (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109104.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Echo The Beyond - Ambient Noise (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108904.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Street Panther - Muscle Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108892.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108843.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108838.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108803.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Motörhead, Lemmy & Larry Wallis - The Boys of Ladbroke Grove (2023) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63F8E2FBE1E38DF87D31448BBCF073C132849849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726311   (108756) от 28.05.2024
-
-Silver Horses - Electric Omega (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking So Godd
-02. Bag Of Bones
-03. Endless Circle
-04. Hafa Cafe(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC42802F68C1944B8A9703D46C4480D8E6C9563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726474   (108752) от 28.05.2024
-
-Theater of Malum - Edge of The Unknown (2024) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Stand Alone (04:48)
-02 - The Fallen (04:10)
-03 - Define you (04:22)
-04 - You're Nothing (04:44)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14BDBBDB9A4BC55A6A0133C5A933E5DE697154C
 ```
 
 https://mybot314.ru/tekegram_catalog/

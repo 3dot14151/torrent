@@ -6,7 +6,7 @@
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711945.jpg" />
+  <img src="Z:/picture/008/save_picture_711945.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708439.jpg" />
+  <img src="Z:/picture/008/save_picture_708439.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706383.jpg" />
+  <img src="Z:/picture/008/save_picture_706383.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701294.jpg" />
+  <img src="Z:/picture/008/save_picture_701294.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696294.jpg" />
+  <img src="Z:/picture/008/save_picture_696294.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691254.jpg" />
+  <img src="Z:/picture/008/save_picture_691254.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690950.jpg" />
+  <img src="Z:/picture/008/save_picture_690950.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687088.jpg" />
+  <img src="Z:/picture/008/save_picture_687088.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686987.jpg" />
+  <img src="Z:/picture/008/save_picture_686987.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672155.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666662.jpg" />
+  <img src="Z:/picture/008/save_picture_666662.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666650.jpg" />
+  <img src="Z:/picture/008/save_picture_666650.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665316.jpg" />
+  <img src="Z:/picture/008/save_picture_665316.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664216.jpg" />
+  <img src="Z:/picture/008/save_picture_664216.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658985.jpg" />
+  <img src="Z:/picture/008/save_picture_658985.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655392.jpg" />
+  <img src="Z:/picture/008/save_picture_655392.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651108.jpg" />
+  <img src="Z:/picture/008/save_picture_651108.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648487.jpg" />
+  <img src="Z:/picture/008/save_picture_648487.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648249.jpg" />
+  <img src="Z:/picture/008/save_picture_648249.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639636.jpg" />
+  <img src="Z:/picture/008/save_picture_639636.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633764.jpg" />
+  <img src="Z:/picture/008/save_picture_633764.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632373.jpg" />
+  <img src="Z:/picture/008/save_picture_632373.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632113.jpg" />
+  <img src="Z:/picture/008/save_picture_632113.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630191.jpg" />
+  <img src="Z:/picture/008/save_picture_630191.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623981.jpg" />
+  <img src="Z:/picture/008/save_picture_623981.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623515.jpg" />
+  <img src="Z:/picture/008/save_picture_623515.jpg" />
 </div>
 
 

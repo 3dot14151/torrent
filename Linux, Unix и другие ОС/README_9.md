@@ -1,3 +1,61 @@
+###  Публикация: 659995   (774653) от 23.05.2013
+
+Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен siduction 13.1.0 стабильный выпуск нового desktop-ориентированного дистрибутива и Live CD/DVD, основанного на unstable-ветке Debian GNU/Linux. Проект siduction является форком дистрибутива aptosid, из которого он выделился в конце 2011 года, и предлагает пять  отдельных Live-носителей с различными рабочими столами, в том числе с легкими рабочими столами:  LXDE, XFCE, Razor-qt, а также с KDE и GNOME.
+
+Razor-qt легковесное десктоп-окружение, построенное на технологиях Qt. Ключевые направления развития Razor-qt - простота, скорость, настраиваемость и интуитивно понятный интерфейс. Небольшое потребление ресурсов позволяет использовать Razor-qt на маломощных и устаревших системах. Код написан на языке C++ (без QML и Qt Quick) и распространяется под лицензиями GPLv2 и LGPLv3+. Ядро Linux kernel  3.9.3, X-Server --  1.12.4-6. Это -- первый выпуск siduction, в который входит GNOME 3.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659755   (774610) от 23.05.2013
+
+BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, x86-64] (2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем.
+
+Дистрибутив базируется на Ubuntu, ядро Linux 3.2 и Xfce 4.8.
+
+Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено стартовое меню, улучшены драйвера Wi-Fi (compat-wireless aircrack patched). Добавлены новые и обновлены старые хакерские инструменты - bAutomater, inundator, Ettercap, Wireshark, SE Toolkit, Metasploit, sqlmap, BeEF, Recon-ng, zaproxy, Weevely, THC-IPV6, truecrack, Hashcat) и многое другое .
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124919   (773042) от 13.04.2017
 
 OpenBSD 6.1 [alpha,amd64,arm64,armv7,i386,loongson,luna88k,macppc,octeon,sparc64] 10xCD
@@ -6,7 +64,7 @@ OpenBSD 6.1 [alpha,amd64,arm64,armv7,i386,loongson,luna88k,macppc,octeon,sparc64
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773042.jpg" />
+  <img src="Z:/picture/008/save_picture_773042.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769957.jpg" />
+  <img src="Z:/picture/008/save_picture_769957.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768453.jpg" />
+  <img src="Z:/picture/008/save_picture_768453.jpg" />
 </div>
 
 
@@ -84,7 +142,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766746.jpg" />
+  <img src="Z:/picture/008/save_picture_766746.jpg" />
 </div>
 
 
@@ -110,7 +168,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766638.jpg" />
+  <img src="Z:/picture/008/save_picture_766638.jpg" />
 </div>
 
 
@@ -136,7 +194,7 @@ SystemRescueCD 6.1.6 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764364.jpg" />
+  <img src="Z:/picture/008/save_picture_764364.jpg" />
 </div>
 
 
@@ -162,7 +220,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764354.jpg" />
+  <img src="Z:/picture/008/save_picture_764354.jpg" />
 </div>
 
 
@@ -188,7 +246,7 @@ OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764277.jpg" />
+  <img src="Z:/picture/008/save_picture_764277.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764212.jpg" />
+  <img src="Z:/picture/008/save_picture_764212.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764207.jpg" />
+  <img src="Z:/picture/008/save_picture_764207.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764151.jpg" />
+  <img src="Z:/picture/008/save_picture_764151.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762499.jpg" />
+  <img src="Z:/picture/008/save_picture_762499.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759054.jpg" />
+  <img src="Z:/picture/008/save_picture_759054.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ Proxmox VE 5.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757774.jpg" />
+  <img src="Z:/picture/008/save_picture_757774.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756859.jpg" />
+  <img src="Z:/picture/008/save_picture_756859.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756822.jpg" />
+  <img src="Z:/picture/005/save_picture_756822.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755671.jpg" />
+  <img src="Z:/picture/008/save_picture_755671.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754886.jpg" />
+  <img src="Z:/picture/008/save_picture_754886.jpg" />
 </div>
 
 
@@ -487,7 +545,7 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754872.jpg" />
+  <img src="Z:/picture/005/save_picture_754872.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ Phoenix OS 3.0.8.529 x86/x64 [En]
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754698.jpg" />
+  <img src="Z:/picture/008/save_picture_754698.jpg" />
 </div>
 
 
@@ -541,7 +599,7 @@ Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753546.jpg" />
+  <img src="Z:/picture/005/save_picture_753546.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ ZevenOS 3.1 Neptune [x64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752897.jpg" />
+  <img src="Z:/picture/005/save_picture_752897.jpg" />
 </div>
 
 
@@ -597,7 +655,7 @@ Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749241.jpg" />
+  <img src="Z:/picture/008/save_picture_749241.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747243.jpg" />
+  <img src="Z:/picture/008/save_picture_747243.jpg" />
 </div>
 
 
@@ -636,60 +694,6 @@ SnowLinux Frosty 4 базируется на Ubuntu 13.04 и используе�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020004   (746485) от 25.05.2016
-
-OSGeo-Live 9.5 (Дистрибутив для географов, картографов, кризисного управления) [i386, amd64] 2xDVD, 1xVM
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз OSGeo-Live — живого диска в виде DVD, образа для записи на USB-носитель и образа для виртуальной машины. Основан на Linux-дистрибутиве Lubuntu текущей LTS версии. Также может быть установлен на жесткий диск. Содержит обновленное до актуальных версий открытое/свободное ПО для работы с пространственными данными (ГИС, СУБД, веб-картография (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020008   (746244) от 25.05.2016
-
-Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
-
-Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
 ```
 
 https://mybot314.ru/tekegram_catalog/

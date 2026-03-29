@@ -1,3 +1,57 @@
+###  Публикация: 1511575   (788787) от 21.11.2021
+
+Ольга Журлова | Английский язык. Неправильные глаголы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании представлены основные глаголы английского языка, изучаемые в начальной школе.
+Благодаря оригинальной авторской методике задания воспринимаются как увлекательная игра, что значительно облегчает запоминание глагольных форм, а также развивает воображение ребёнка.
+Пособие предназначено для детей младшего школьного возраста, их родителей и учителей английского (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAC74E7ACCFFA6F738202DEC2FAD4AF9F80B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511572   (788772) от 21.11.2021
+
+М.А. Хацкевич | Наглядный английский язык. 1–4 классы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный наглядный справочник с дудлами — универсальный ключ к пониманию английского языка за курс начальной школы. Каждая страница книги продумана опытными методистами и содержит теоретические сведения и наглядные примеры, в книге также предусмотрено место для собственных примеров и примечаний. Доступное и понятное пособие в схемах и таблицах поможет систематизировать, (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособие/СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C15F08D3435A0A0E905CBBD2BC2A95347155EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203138   (788567) от 01.02.2018
 
 Анита ван Саан | 365 экспериментов на каждый день. Стань настоящим ученым (2014) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788567.jpg" />
+  <img src="Z:/picture/008/save_picture_788567.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788470.jpg" />
+  <img src="Z:/picture/008/save_picture_788470.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788146.jpg" />
+  <img src="Z:/picture/008/save_picture_788146.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788106.jpg" />
+  <img src="Z:/picture/008/save_picture_788106.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788104.jpg" />
+  <img src="Z:/picture/008/save_picture_788104.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788101.jpg" />
+  <img src="Z:/picture/008/save_picture_788101.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788073.jpg" />
+  <img src="Z:/picture/008/save_picture_788073.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787687.jpg" />
+  <img src="Z:/picture/008/save_picture_787687.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787578.jpg" />
+  <img src="Z:/picture/008/save_picture_787578.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787550.jpg" />
+  <img src="Z:/picture/008/save_picture_787550.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787539.jpg" />
+  <img src="Z:/picture/008/save_picture_787539.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787513.jpg" />
+  <img src="Z:/picture/008/save_picture_787513.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787213.jpg" />
+  <img src="Z:/picture/008/save_picture_787213.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787187.jpg" />
+  <img src="Z:/picture/008/save_picture_787187.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787181.jpg" />
+  <img src="Z:/picture/008/save_picture_787181.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786959.jpg" />
+  <img src="Z:/picture/008/save_picture_786959.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786507.jpg" />
+  <img src="Z:/picture/008/save_picture_786507.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785594.jpg" />
+  <img src="Z:/picture/008/save_picture_785594.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785387.jpg" />
+  <img src="Z:/picture/008/save_picture_785387.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785354.jpg" />
+  <img src="Z:/picture/008/save_picture_785354.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785352.jpg" />
+  <img src="Z:/picture/008/save_picture_785352.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785279.jpg" />
+  <img src="Z:/picture/008/save_picture_785279.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785276.jpg" />
+  <img src="Z:/picture/008/save_picture_785276.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784904.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C51AE752FE81033A3119819C534EC89145D4C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204179   (784894) от 05.02.2018
-
-Я.И. Перельман и др. | Наука на досуге (1935) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник „Наука на досуге" ставит своей задачей повысить культурный и общеобразовательный уровень молодого читателя. Сборник по содержанию крайне разнообразен; в нем собраны образцы задач, игр, развлечений из арифметики, геометрии, физики, географии, астрономии, метеорологии, химии. Пестрота эта намеренная: цель сборника не в том, чтобы сообщить читателю (   Читать дальше...   )Жанр: Занимательные задачи, головоломкиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CBF4B125B8F410597C82E0B73CF41628E06035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204212   (784890) от 05.02.2018
-
-Я.И. Перельман | Квадратура круга (1941) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нашей брошюре подробно рассматривается задача - квадратура круга, вошедшая в поговорку. Читатель узнает, почему многовековые усилия решить эту задачу не приводили к успеху и почему нет никакой надежды разрешить ее когда-нибудь в будущем: квадратура круга (как и остальные две задачи нашего перечня) принадлежит к числу неразрешимых задач.Жанр: Познавательная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3069718C341D50ADD9077845FAFAB02166829C
 ```
 
 https://mybot314.ru/tekegram_catalog/

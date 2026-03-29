@@ -6,7 +6,7 @@ Vivaldi 2.3.1440.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707111.jpg" />
+  <img src="Z:/picture/008/save_picture_707111.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DiskDigger 1.20.10.2731 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707097.jpg" />
+  <img src="Z:/picture/008/save_picture_707097.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Text Editor Pro 20.0.1 + Portable + bonus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707056.jpg" />
+  <img src="Z:/picture/008/save_picture_707056.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ EZ CD Audio Converter 10.0.2.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707049.jpg" />
+  <img src="Z:/picture/008/save_picture_707049.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GForce Software Oberheim OB-E 2.0 Standalone, VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707044.jpg" />
+  <img src="Z:/picture/008/save_picture_707044.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ VueScan Pro 9.6.34 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707021.jpg" />
+  <img src="Z:/picture/008/save_picture_707021.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Pepakura Designer 4.1.4 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707015.jpg" />
+  <img src="Z:/picture/008/save_picture_707015.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Save.Me 2.2.0 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707005.jpg" />
+  <img src="Z:/picture/008/save_picture_707005.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mirillis Splash v2.6.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706982.jpg" />
+  <img src="Z:/picture/008/save_picture_706982.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ uTorrent 3.5.5 Build 45776 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706975.jpg" />
+  <img src="Z:/picture/008/save_picture_706975.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ GeoGebra 6.0.526 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706970.jpg" />
+  <img src="Z:/picture/008/save_picture_706970.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706936.jpg" />
+  <img src="Z:/picture/008/save_picture_706936.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ SiSoftware Sandra Lite 20/21-R10 (версия 31.76) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706926.jpg" />
+  <img src="Z:/picture/008/save_picture_706926.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mirillis Splash 2.6.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706911.jpg" />
+  <img src="Z:/picture/008/save_picture_706911.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Viber 10.2.0.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706909.jpg" />
+  <img src="Z:/picture/008/save_picture_706909.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Synapse Audio - DUNE 3.0.7 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706889.jpg" />
+  <img src="Z:/picture/008/save_picture_706889.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Allavsoft Video Downloader Converter 3.14.4.6334 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706845.jpg" />
+  <img src="Z:/picture/008/save_picture_706845.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinRAR 6.11 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706807.jpg" />
+  <img src="Z:/picture/008/save_picture_706807.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ AIMP 5.02 Build 2365 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706804.jpg" />
+  <img src="Z:/picture/008/save_picture_706804.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Windows 10 Manager 3.6.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706797.jpg" />
+  <img src="Z:/picture/008/save_picture_706797.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Native Instruments - Kontakt 6.0.4 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706790.jpg" />
+  <img src="Z:/picture/008/save_picture_706790.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Caramba Switcher + Corporate 2019.03.01 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706787.jpg" />
+  <img src="Z:/picture/008/save_picture_706787.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CCleaner Professional 5.54.7088 RePack (& Portable) by elchupakabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706786.jpg" />
+  <img src="Z:/picture/008/save_picture_706786.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov (03.03.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706779.jpg" />
+  <img src="Z:/picture/008/save_picture_706779.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ TeamViewer 14.1.18533 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706774.jpg" />
+  <img src="Z:/picture/008/save_picture_706774.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK (05.03.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706773.jpg" />
+  <img src="Z:/picture/008/save_picture_706773.jpg" />
 </div>
 
 

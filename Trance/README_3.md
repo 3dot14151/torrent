@@ -1,3 +1,206 @@
+###  Публикация: 1438550   (1040913) от 09.01.2021
+
+VA - Black Hole Recordings - Best Of (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Sunlounger - I Can Feel (Original Mix)
+02. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Original Mix)
+03. JES - Under The Midnight Sun (Original Mix)
+04. Solarstone - When I Dream (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F6BBA96ABE1421F58945BE80ABDF9334156002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611701   (1040602) от 14.02.2023
+
+VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NuMar1 - Last Day We Met (Christian Desnoyers Remix) [06:18]
+02. Rodri Santos - The Orchid (Interstellar Remix) [05:47]
+03. Marc Hackenberg - Sol (Original Mix) [07:56]
+04. DJ Tony Magic - Spiritual Journey [05:52](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439068   (1040298) от 11.01.2021
+
+VA - Dream Dance Vol. 90 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040298.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Legacy (2:34)
+02. Armin van Buuren, AVIAN GRAYS, Jordan Shaw - Something Real (Cosmic Gate Remix) (3:26)
+03. Paul van Dyk, Bo Bruce - Covered In Gold (6:40)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 04:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CE1C6C0793730D4420A228A753ED9D079D8A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439265   (1040160) от 12.01.2021
+
+VA - Best Of Trancer (Mixed by Nick Turner) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocoro - Meari (Original Mix)
+02. Etasonic - Rainbowland (AirLab7 Remix)
+03. Air Project - Crystal Illusion (Original Mix)
+04. Nick Parker - Forever You (Dalmoori Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D44EF8E77F01F2F5A734E4A40E0D8DF876B8CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439282   (1040156) от 12.01.2021
+
+VA - The VERSE Uplifting Trance Journey 2020 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arentis & Jovi Frost - Flora's Touch (Intro Mix)
+02. Joe Cormack & Binary Ensemble - For The Ones We Love (Original Mix)
+03. Joulez - Summer Rain (Original Mix)
+04. Joulez - Wishes For Tomorrow (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4969066B16C95A4B3CA2F0EB32563E280FF00A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439448   (1039948) от 13.01.2021
+
+VA - Best Of FSOE Clandestine (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Denton - The Trip (Extended Mix)
+02. Stoneface & Terminal - Berlin '96 (Take Me Back) (Club Mix)
+03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
+04. Stoneface & Terminal - Sequence B (BTR Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED51D41A830E92D2CFD62DCF137D8B5993DBA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612136   (1039923) от 17.02.2023
+
+VA - Infrasonic Winter Selection (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleb Golston - The End Of Something (Extended Mix) [6:06]
+02. Pulse & Sphere - Heavy Rain (Original Mix) [5:21]
+03. Salto Angel - Lunar (Extended Mix) [5:02]
+04. Awantalyst - Mononoke (Extended Mix) [7:12](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE06CA7D30D0F7E3757E07487AB1412340D712F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612826   (1039917) от 17.02.2023
 
 VA - The Sound Of 2023 Mix 3: Tokyo (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +209,7 @@ VA - The Sound Of 2023 Mix 3: Tokyo (2023) [MP3|320 Kbps] <Trance, Progressive, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039917.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Global Trance Masters Vol. 6 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039916.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Genix Presents: 20 Years Of Anjunabeats (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039867.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Abora Progressive: Best Of 2019-2020 (Mixed by Tycoos) (2021) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039340.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Ellie Lawson - Becoming (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039174.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Uplifting Only Top 15: February 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038856.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Trance 2023, Vol. 2 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038829.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - A State Of Trance - Celebration Weekend (2023) [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038787.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038366.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038282.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Inspectrum Recordings Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038277.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Trance 100 - 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037812.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Best Of (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037795.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Trance 100 - (Extended Versions) (2021) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037722.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingT
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037467.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037460.jpg" />
 </div>
 
 
@@ -469,7 +672,7 @@ VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037007.jpg" />
 </div>
 
 
@@ -498,7 +701,7 @@ VA - World Of Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036728.jpg" />
 </div>
 
 
@@ -527,7 +730,7 @@ VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036591.jpg" />
 </div>
 
 
@@ -541,209 +744,6 @@ VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E60625CA41E26B7E2335B88987A909CDB32F54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616414   (1036432) от 02.03.2023
-
-VA - Ultimate Trance Weekender: Amsterdam (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Hampshire & Thomas Datt feat. Senadee - Speed Of Light (Steve Brian Remix) [6:44]
-02. Dimension - Vulcano (Original Mix) [7:58]
-03. Sensetive5 - To The Stars (Original Mix) [7:05]
-04. Dave Horne - Into The Future (Original Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712429D0B96E96936F06BCDF3DF23B5F37962C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442713   (1036317) от 26.01.2021
-
-VA - Trance Vision (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut)
-02. Dreamy - Scar (Radio Cut)
-03. George Harrold - Ayuhuasca (Radio Cut)
-04. Artra & Holland - Mountains (Radio Edition)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FEF86C7629C085B6AD43A055E0224BE9B365F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443006   (1036015) от 27.01.2021
-
-VA - Roger Shah - Magic Island Best Of (2020) [MP3|320 Kbps] <Trance, Melodic House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah pres. Symphony In Deep Minor - Snowflakes On A New Year's Day (Extended Mix)
-02. Raul Pablo Sanchez - Morgentau (Original Mix)
-03. Noah Shah - Lotus (Extended Mix)
-04. Noah Shah - Sirius (Extended Mix)(   Читать дальше...   )Жанр: Trance, Melodic HouseПродолжительность: 02:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2E87748DEA8C824D0888367A1154690D4C4683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443249   (1035745) от 28.01.2021
-
-VA - Ablazing Winter Sessions (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Ablaze - Red Sea 2030 (Extended Mix)
-02. Daniel Cesana - Phoenix (Extended Mix)
-03. Frank Waanders - Aztec (Extended Mix)
-04. Christopher Corrigan - Delectation (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37340A5FA63C89ACB779614BB9C4063E3F5825A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443256   (1035737) от 28.01.2021
-
-VA - Blue Soho Recordings - Best Of 2020 (2021) [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SoundLift - Maharaj (Original Mix)
-02. Jon Bourne - Palinka (Original Mix)
-03. Nuera - Revise (Alex Wright's Slow 'N' Funky Remix)
-04. Jon Bourne - Zimbabwe (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A5983C35E35A646F79B726A301D38FD71384B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616767   (1035578) от 05.03.2023
-
-VA - The Sound of 2023 Mix 5: Dubai (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taufiq Azam - D'arce (Intro Mix) (07:17)
-02. Dain - Aurora (05:12)
-03. F4T4L3RR0R - Dragonfly (05:19)
-04. Robert B - Still See The Stars (05:07)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29670EDAB533F064A86383BA54FE75FB51E7F9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443500   (1035483) от 29.01.2021
-
-VA - Best Of Last State (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sina7 - Uranus (Extended Mix)
-02. Nikzad & Sina - The Seventh Sky (Extended Mix)
-03. FAWZY & W!SS - Horizont (Extended Mix)
-04. Last Soldier - To The Future (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BAB4C089A487534E45ACE92E48E556146263E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

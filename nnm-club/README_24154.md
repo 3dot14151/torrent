@@ -1,25 +1,22 @@
-###  Публикация: 1822390   (100757) от 06.10.2025
+###  Публикация: 1764385   (102713) от 07.12.2024
 
-Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mastermind (4:23)
-02.  Missing Pieces (2:38)
-03.  Sea of Snakes (4:58)
-04.  Midnight Sun (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
+«Stay» — песня барбадосской певицы Рианны, записанная при участии Микки Экко, для её седьмого студийного альбома Unapologetic (2012). Музыкальное видео, сопровождающее песню показывает то, как Рианна сидит в ванне, которая заполнена мутной водой, в то время, как Микки Экко поет в отдельной ванной комнате. Видео было выпущено на официальном Vevo-аккаунте артистки (   Читать дальше...   )Жанр: Поп, R&BПродолжительность: 00:04:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89FBF4CAF8725A3CAA1772C7183701CAEBC4864E
+magnet:?xt=urn:btih:179345DD2DD5EC0C8937313EA9EB57AD5C27F89A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,366 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822389   (100756) от 06.10.2025
+###  Публикация: 1764436   (102712) от 07.12.2024
 
-Шрифты - MyFonts - Analogy [OTF]
+SnapEdit - AI photo editor v7.2.4 Mod by Oflarm [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102712.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapEdit — одно из лучших приложений для редактирования фотографий с использованием искусственного интеллекта, призванное сделать ваше редактирование простым, плавным и увлекательным. Преобразуйте свои фотографии, как никогда раньше, с помощью SnapEdit, идеального приложения для редактирования фотографий, предназначенного для легкого удаления ненужных объектов, улучшения (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 06.12.2024Разработчик: SilverAI IncПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A4BAB6065AC8A75C6E34182EED6FCC82635394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764553   (102711) от 07.12.2024
+
+Sexual Music Collection - Saxual Healing: Contemporary Sax Jazz for Intimate Night (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Music Collection - Saxual Bliss Nights (4:21)
+02. Sensual Lounge Music Universe - Intimate Sax Serenade (3:42)
+03. Jazzed-Up Romance (3:43)
+04. Sexual Music Collection - Saxophone Seduction (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FA3A755BDA926E207DB33224CA5A66FF85785B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764589   (102710) от 07.12.2024
+
+Валерий Кравец | Розовая чайка (2005) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга действительного члена Русского географического общества, почетного полярника Валерия Кравца рассказывает о реальных людях и событиях, которые происходили в Арктической и Заполярной части Таймырского полуострова в 70-90-х годах прошлого столетия. Непосредственным участником этих событий был автор этих воспоминаний.
+Книга сформирована в виде серии репортажей, (   Читать дальше...   )Жанр: Путешествия, исследования АрктикиИздательство: Студия "Полярная звезда"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14EA0EED7FB46E9C45C31373280124A1196F634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764508   (102709) от 07.12.2024
+
+VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Mamacita (02:45)
+02. JLUIS - Si Te Vas (03:31)
+03. Deep Emotion - With Me (02:53)
+04. TEKTRONIC - Oldskool Vibe (02:53)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA1871B1F72BA30161D0D775C8D84ADD26FF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764478   (102708) от 07.12.2024
+
+VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Parachute (02:48)
+02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
+03. Stephan F & Ya-Ya - No Broken Heart (03:09)
+04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764551   (102707) от 07.12.2024
+
+Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic Jazz (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy & Noir (3:29)
+02. Music for Quiet Moments (4:28)
+03. Jazz Mood – Erotic Dance (4:03)
+04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74587E7FCDB07085AE7159DD824DAD9E0324F155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764521   (102706) от 07.12.2024
+
+VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Eva Scolaro - Deeper Love (Calmabohain Remix) [03:22]
+02. Nykoluke - Summer '04 [02:23]
+03. Seumas Norv - Baby (Radio Edit) [03:11]
+04. Kay Portman - Deep Down [03:02](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659F0883A8A61E3DFA9311B384339AA859051FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764427   (102705) от 07.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 5). (2017) [MP3, Т. Пельтцер, Т. Васильева и др]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102705.jpg" />
+</div>
+
+
+###  Подробнее
+
+— А вы, я слышал, женитесь! — обратился к Петру Петровичу Милкину на дачном балу один из его знакомых. — Когда же мальчишник справлять будете?
+— Откуда вы взяли, что я женюсь? — вспыхнул Милкин. — Какой это дурак вам сказал?
+— Все говорят, да и по всему видно… Нечего скрытничать, батенька… Вы думаете, что нам ничего не известно, а мы вас насквозь видим и знаем! Хе-хе-хе… (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B422E38C330132188866C92F176F700E3FA46B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764362   (102704) от 07.12.2024
+
+Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amerimacka
+02. Take My Soul
+03. Tomorrow
+04. Stargazer(   Читать дальше...   )Жанр: Duby Downtempo, Electronic, Trip-HopПродолжительность: 04:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764395   (102703) от 07.12.2024
+
+Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - should sleep (Prins Thomas diskomix) [5:20]
+02 - precious mind (cassette remix) [5:05]
+03 - dark days (Vanco remix) [6:46]
+04 - dark days (Undercatt remix) [4:30](   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 05:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B3836AB9D2D25EE5DA6D7EB689CFA03F810618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764612   (102702) от 07.12.2024
+
+RegCool 2.019 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253BA2AB099B730910F541C1E4A05C49FDCB4C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764549   (102701) от 07.12.2024
+
+Instrumental Jazz Music Ambient - Romanticistic Feelings (Charming Jazz Music) (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke In Your Eyes (3:20)
+02. Moonlight in Vermont (3:29)
+03. Together Again (3:22)
+04. The Touch of Your Lips (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83577B344D63DA06FF6BFA2F16B93414A10E95D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822832   (102700) от 08.10.2025
+
+Шрифты - Behance - Pixel Surplus - Bowler - 158232363 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Analogy — это современная интерпретация непреходящей элегантности, присущей шрифту Николаса Дженсона XV века. Основанный на гуманистических формах 1470-х годов, но при этом усовершенствованный для восприятия современности, Analogy сочетает в себе историческую теплоту и точность, предлагая текстовый шрифт, который одновременно легко читается и изыскан. Его каллиграфическое (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
+"Bowler" Владимира Кленова - это бесплатный шрифт, предназначенный для использования в больших форматах и позволяющий эффективно создавать привлекающие внимание заголовки.
+"Bowler" - бесплатный шрифт для личного и коммерческого использования.
+Материал раздаётся с официальной документацией.Формат: OTFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
+magnet:?xt=urn:btih:6B0C0E40F500CA5BB7B1DAE5906ED8D26158E796
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822394   (100755) от 06.10.2025
+###  Публикация: 1822821   (102699) от 08.10.2025
 
-Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+Blender Secrets, Jan van den Hemel | Hard Surface Sculpting in Blender (2023) PCRec [EN / EN Sub]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bus Stop (2:37)
-02.  Mawil (2:42)
-03.  Subways (2:19)
-04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
+Этот курс посвящен полному процессу скульптинга твердых поверхностей в Blender, начиная с рисования эскизов и заканчивая готовой трехмерной скульптурой. Попутно мы изучим базовые и продвинутые инструменты и кисти для создания скульптур. Затем мы также углубляемся в создание потрясающих материалов, таких как альфа-текстуры, карты смещения плиток и кисти VDM для твердых (   Читать дальше...   )Производство: Blender SecretsЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 16:17:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
+magnet:?xt=urn:btih:72E39620C708B6F3F7BBEEDDC3D829AAADABAB5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,361 +417,130 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822393   (100754) от 06.10.2025
+###  Публикация: 1822824   (102698) от 08.10.2025
 
-3D print - MyMiniFactory - 55mm - Ghost Strikers - 384198 [STL]
+Промты - SevenUnited LLC - 376 Midjourney Prompts For Drawing Styles - 6537481 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 376 настраиваемых ИИ-промтов для стилей рисования.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B82279344A0B4F8F7190EBCDD083D3CD1DA89F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822822   (102697) от 08.10.2025
+
+Ванпанчмен [ТВ-3] | One Punch Man 3 [2025, TV, 1 SP] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102697.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждом деле есть те, кто занимаются им просто ради удовольствия, а также те, кто делает это лучше всех других. Ну а Сайтама относится и к тем, и к другим. Он сильнейший герой, но при этом геройствует он просто веселья ради. Одна беда — Сайтама ну просто слишком силён и любого противника выносит с одного удара, отчего совершать подвиги становится до смерти скучно. (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, комедия, фэнтезиРежиссер: Нагай СимпэйЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822826   (102696) от 08.10.2025
+
+Иконки - UI8 - Indonesia Independence Day 3D Illustration Pack [PNG, OBJ, BLEND]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите свои дизайны с нашей потрясающей коллекцией из 25 высококачественных 3D-иконок ко Дню независимости Индонезии. Идеально подходит для поздравительных открыток, постов в социальных сетях, баннеров на веб-сайтах и ​​многого другого!Формат: PNG, OBJ, BLENDРазрешение файлов: 2500x2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD5ECEDBB0766E10A45B7D1132FB81501E51D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822658   (102695) от 08.10.2025
+
+Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PACK 2025]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don't Starve Together - это кооперативная игра на выживание, в которой игроки исследуют враждебный мир, собирают ресурсы, создают предметы, строят убежища и пытаются выжить как можно дольше, сталкиваясь с опасностями и голодом. Игра отличается уникальным художественным стилем, постоянной сменой дня и ночи, а также необходимостью следить за несколькими параметрами (   Читать дальше...   )Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Русский, Английский, Китайский (традиционный, упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822825   (102694) от 08.10.2025
+
+Шрифты - Behance - Apollinaria Kardano - Наличник - 149926751 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружённые передовым оружием и облачённые в устрашающую броню, «Ghost Strikers» неустанно стремятся к правосудию. Известные своей безжалостной эффективностью и призрачным присутствием, эти каратели вселяют страх в сердца преступников и бандитов.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822220   (100753) от 06.10.2025
-
-Звёзды в Джунглях (2025) WEB-DL [H.264/720p] (сезон 2, выпуск 1-2 из 15)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом 2 сезоне звёздные участники будут выживать на Карибах в Доминиканской республике. Хотя главный фактор выживания вовсе не в месте, а в тех, кто будет рядом. В новом сезоне примут участие как новички реалити, так и те, кто уже прошёл боевое крещение и хитро улыбается при слове коалиция. Участники проходят различные испытания, в которых зарабатывают монеты на (   Читать дальше...   )Телекомпания: Россия, "План Б Медиа" по заказу ТНТ-ТелесетьЖанр: Реалити-шоуУчастники: Ася Резник, Ирина Пинчук, Аристарх Венес, Вадим Дубровин, Сергей Романович, Маша Малиновская, Екатерина Шкуро, Джефф Монсон, Альбина Кабалина, Ян ДиланСубтитры: ОтсутствуютПродолжительность: ~02:59:53 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822399   (100752) от 06.10.2025
-
-Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  East of the Sun (3:58)
-02.  Warm Embrace (4:45)
-03.  Moonlight In Vermont (4:28)
-04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822404   (100751) от 06.10.2025
-
-Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ginja (3:00)
-02.  Paradox (3:43)
-03.  Frisky (3:00)
-04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822409   (100750) от 06.10.2025
-
-Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mirrored (3:03)
-02.  Despite Everything (5:59)
-03.  Facing the Opposite (5:20)
-04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822412   (100749) от 06.10.2025
-
-Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Intro (2:11)
-02.  Wir sind wieder da (3:34)
-03.  Kein Weg zu lang (3:03)
-04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822414   (100748) от 06.10.2025
-
-Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Northgate Way (4:05)
-02.  Never Hurts Never Mind (4:07)
-03.  All in Who You Know (3:32)
-04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822416   (100747) от 06.10.2025
-
-Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822418   (100746) от 06.10.2025
-
-Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Praise / Strong Woman (9:35)
-02.  Freedom Song (4:54)
-03.  Woodstock / Go (7:48)
-04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822419   (100745) от 06.10.2025
-
-Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soul Brass (3:22)
-02.  CITY COLLECTIVE (3:10)
-03.  Piano Strumming (3:11)
-04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822420   (100744) от 06.10.2025
-
-Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100744.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1595BC7A574BB7FF97E75C1961A2A4AEA234B3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822422   (100743) от 06.10.2025
-
-Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yellow Brick Veneer (6:10)
-02.  Don't Want to Follow You (4:48)
-03.  Watching You as You Fall (4:55)
-04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298053   (100742) от 06.10.2025
-
-Шрифты - Коллекция шрифтов для Photoshop [TTF]
-
->>След.
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уникальная коллекция из 9 наборов шрифтов самых различных направлений. Вы без труда сможете подобрать и шрифт для особенных случаев, и универсальный шрифт на все случаи жизни. В сборник входит множество шрифтов от пиксельных и арабских до шрифтов в виде льда и огня.Формат: TTFПоддержка кириллицы: Частичная
+Шрифт PlatBand (Наличник). Это акцидентный шрифт, разработанный на основе модулей, используемых в славянских символах, обозначающих солнце. Шрифт имеет два начертания, одно подойдёт исключительно для крупнокегельного или орнаментального использования, другое же читается даже в мелком формате.
+Шрифт бесплатный для некоммерческого использованияФормат: OTF, TTFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1677BD523C8F935EEF8C5FD5389CBA386525E6A5
+magnet:?xt=urn:btih:751C8F08C511AA14F33CFC3314B370FFC3E41DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,248 +548,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822425   (100741) от 06.10.2025
+###  Публикация: 1822827   (102693) от 08.10.2025
 
-The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's Your Life (4:03)
-02.  Where You Wanna Go (4:17)
-03.  Turn Back Time (4:01)
-04.  Come Home (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822430   (100740) от 06.10.2025
-
-Что? Где? Когда? (2025) HDTVRip [H.264/720p] (Осеняя серия: игра 1 из 4)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальная телевизионная игра, в которой команда из шести игроков, называемых «знатоками», ищет правильный ответ на любой заданный им вопрос при помощи мозгового штурма в течение одной минуты. За правильный ответ очко получает команда «знатоков», а если они дают неправильный ответ, очко начисляется их противникам. Побеждает сторона, первой набравшая шесть очков.Телекомпания: Первый HDЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63AD718817DCA7B384FD6614E1644031194F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822435   (100739) от 06.10.2025
-
-Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yoshi’ Intro (0:40)
-02.  Numero Uno (4:13)
-03.  Myself (feat. Jorja Smith) (2:59)
-04.  Prophet (4:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822219   (100738) от 06.10.2025
-
-The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt. Rock, Mall Emo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Always The King (feat. Kellin Quinn) (3:15)
-02. - Purple Halo (3:38)
-03. - Perfection (3:19)
-04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E41E1E5726D02E5139A356545E1A913C9B039A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822445   (100737) от 06.10.2025
-
-Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Second Ark (4:17)
-02.  Heartsick (3:13)
-03.  Stumble Into Town (4:25)
-04.  Just Keep Playing (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763E5BC0634603B3F0E24EF674C8F0F1B1EF2609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822448   (100736) от 06.10.2025
-
-Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sad Song For Happy Times (4:46)
-02.  Free Them (Intro) (1:20)
-03.  Free Them (7:54)
-04.  Remember That Space? (6:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDE7D0FBD87236EAD49AC63854BD76BF754779F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822446   (100735) от 07.10.2025
-
-Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда свадебных колец [ТВ-2] [2025, TV, 1 из 13 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сато - старшеклассник, влюбленный в свою лучшую подругу Химэ, неземную красавицу из другого мира. Когда она возвращается на свою родину, чтобы выйти замуж, Сато не раздумывая отправляется за ней и срывает свадьбу. Химэ решает поцеловать его вместо своего жениха, что по местным законам связывает их с Сато магическими узами брака! Но она - принцесса Кольца Света, а (   Читать дальше...   )Производство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E554BACB8EC9237303B3357ECC52EFC3A479E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 60932   (100734) от 06.10.2025
-
-(Pop) Sandra [1985-2009] [Дискография]
-
->>След.
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 09:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25FFEF25B6C6F1004FB62E30C29E6F5412DCE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822453   (100733) от 06.10.2025
-
-StartAllBack 3.9.16 build 5320 [Multi/Ru]
+R-Wipe & Clean 20.0.2529 RePack (& Portable) by elchupacabra [Ru/En]
 
 >>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+R-Wipe & Clean - программа для невосстановимого удаления данных с жесткого диска с широкими возможностями. Среди возможностей: очистка файла подкачки и файлов .dat (в т.ч. используемых системой), удаление записей в MFT и многое другое, что требуется для уничтожения следов деятельности за компьютером. Кроме очистки свободного места на диске (включая удаление кластеров, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E0A3CA0B3BAF54B14D027091B87C44A670B03B5
+magnet:?xt=urn:btih:40936DBA9104593F762CB81735431EAA1DA433D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,26 +574,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822401   (100732) от 06.10.2025
+###  Публикация: 1822829   (102692) от 08.10.2025
 
-Мандинго / Mandingo (1975) BDRip [H.264/1080p] [Handmade correction AI]
+Шрифты - Contrast Foundry - CoFo Raffine [OTF, WOFF]
 
->>Остальное
->>hand made * video
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый Орлеан, 1840 год. История об отношениях на одной американской ферме. Рабы и их хозяева. Что будет, если чёрный работник влюбится в белую девушку из "приличной" семьи? Что будет, если она забеременеет от него?
-Название фильма отсылает к народу мандинка, которых называют "мандинго" и описывают как хороших рабов для проведения боевых поединков.Производство: США / Dino De Laurentiis Productions, Paramount PicturesЖанр: драма, мелодрама, историяРежиссер: Ричард ФлейшерАктеры: Джеймс Мейсон, Сьюзен Джордж, Перри Кинг, Ричард Уорд, Бренда Сайкес, Кен Нортон, Лиллиэн Хейман, Рой Пул, Чи-Ту Кумбука, Пол БенедиктПеревод: Авторский (В.Рутилов), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (SRT, PGS)Продолжительность: 02:07:07
+CoFo Raffine — акцидентная антиква c ярким характером. Разноширинные пропорции делают набор любых слов или заголовков непредсказуемым и захватывающим. Разница заметна не только в ширине символов, но и в подчёркнуто-преувеличенных формах отдельных букв. Благодаря декоративным выносным элементам и лигатурам, преднамеренная асимметрия становится ещё выразительнее, а (   Читать дальше...   )Формат: OTF, WOFFПоддержка кириллицы: Есть
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70649A3B8174F9938045477F44EA2EA8AEB4C42F
+magnet:?xt=urn:btih:16C76DD48B17B0234F55BAEB75DB12F8B2EB3A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822833   (102691) от 08.10.2025
+
+100 миллионов! / 100 millions! (2025) WEB-DL [H.264/1080p]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работник типографии и профсоюзный босс унаследовал 100 миллионов евро, но этот куш оставил его без работы и с браком на грани — вот это называется напечатать себе проблем!Производство: Франция / Les Films Manuel Munz, Coup De Foudre Production, TF1 Films ProductionЖанр: комедияРежиссер: Нат ДюмонАктеры: Кад Мерад, Мишель Ларок, Фатсах Буяхмед, Ги Леклюз, Мартин Карманн, Джейд-Роуз Паркер, Хеза Ботто, Сёрен Прево, Ариэль Семенофф, Жан-Мишель Лами, Дайан МюллерПеревод: ДублированныйЯзык озвучки: Русский, ФранцузскийСубтитры: ФранцузскийПродолжительность: 01:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD998219EB5E38F2FCA3CF3C920B983D5F06AABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822831   (102690) от 08.10.2025
+
+Предатель (1926) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102690.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа Льва Никулина «Матросская тишина».
+В дореволюционные годы «весёлый дом» мадам Гюйо считался одним из самых богатых заведений приморского городка. Здесь собирались прожигатели жизни, преуспевающие дельцы, агенты охранного отделения. Дом мадам Гюйо был не только местом увеселения, но и ареной уголовных интриг и политических провокаций. Частенько (   Читать дальше...   )Производство: СССР / ГоскиноЖанр: драма, короткометражный, немое киноРежиссер: Абрам РоомАктеры: Мария Паршина, Евгения Хованская, Николай Радин, Т. Оганезова, Леонид Юренев, Константин Давидовский, В. Поддубный, Тамара Адельхейм, Арташес Ай-Артян, Давид ГутманСубтитры: русские (интертитры)Продолжительность: 00:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37240AC586BAE95CFEA139F7CCCE401F9F2656AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454864   (102689) от 08.10.2025
+
+Идиократия / Idiocracy (2006) WEB-DL [H.264/1080p]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капрала Джо Бауэрса, Пентагон выбирает для участия в сверхсекретной программе по гибернации людей. Проведя в спячке пятьсот лет, он пробуждается и попадает в цивилизацию, где интеллектуальный уровень людей намного ниже того, которым обладает он. В итоге Джо оказывается самым умным человеком на планете.Производство: США / 20th Century Fox Film Corporation, Ternion PicturesЖанр: Фантастика, комедия, приключенияРежиссер: Майк ДжаджАктеры: Люк Уилсон, Майя Рудольф, Дэкс Шепард, Терри Крюс, Энтони Кампос, Дэвид Херман, Сонни Кастилло, Кевин МакЭфи, Роберт Мусгрейв, Майкл МакКафферти, Кристофер Райан, Джастин Лонг, Хит Джонс, Патрик Фишлер, Дарлен Хант, Мелисса Свит, Эндрю УилсонПеревод: Профессиональный многоголосый, авторский (ненормативная лексика)Субтитры: Русские (ненормативная лексика), английскиеПродолжительность: 01:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFB076BA39CA16E9645F1C2EB18DFD3D692F667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821464   (102688) от 08.10.2025
+
+Алкоголь и сигареты можно будет купить без паспорта
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_102688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сервис для подтверждения возраста по лицу при покупке товаров 18+ заработает на кассах самообслуживания уже этой осенью. В вендинговых аппаратах его запустят уже в ближайшие недели — до конца октября, уточнили в Центре биометрических технологий.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

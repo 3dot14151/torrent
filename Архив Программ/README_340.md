@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 12.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878988.jpg" />
+  <img src="Z:/picture/005/save_picture_878988.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aiseesoft Total Video Converter 9.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878975.jpg" />
+  <img src="Z:/picture/005/save_picture_878975.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Gilisoft Full Disk Encryption 3.7.0 DC 07.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878972.jpg" />
+  <img src="Z:/picture/005/save_picture_878972.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Aiseesoft DVD Creator 5.2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878963.jpg" />
+  <img src="Z:/picture/005/save_picture_878963.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ HDCleaner 2.008 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878935.jpg" />
+  <img src="Z:/picture/005/save_picture_878935.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ JRiver Media Center 28.0.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878929.jpg" />
+  <img src="Z:/picture/005/save_picture_878929.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ GeoGebra 6.0.664.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878927.jpg" />
+  <img src="Z:/picture/005/save_picture_878927.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ ScreenToGif 2.33.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878926.jpg" />
+  <img src="Z:/picture/005/save_picture_878926.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Slimjet 8.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878889.jpg" />
+  <img src="Z:/picture/005/save_picture_878889.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NirLauncher Package 1.23.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878826.jpg" />
+  <img src="Z:/picture/005/save_picture_878826.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Aiseesoft Data Recovery 1.2.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878815.jpg" />
+  <img src="Z:/picture/005/save_picture_878815.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ ShareX 13.6.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878812.jpg" />
+  <img src="Z:/picture/005/save_picture_878812.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Gilisoft RAMDisk 6.5.0 DC 28.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878806.jpg" />
+  <img src="Z:/picture/005/save_picture_878806.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Aiseesoft 4K Converter 8.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878797.jpg" />
+  <img src="Z:/picture/005/save_picture_878797.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ DriverEasy Professional 4.9.15.21942 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878757.jpg" />
+  <img src="Z:/picture/005/save_picture_878757.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Chromium 51.0.2676.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878685.jpg" />
+  <img src="Z:/picture/005/save_picture_878685.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Adblock Plus 2.7.2 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878578.jpg" />
+  <img src="Z:/picture/005/save_picture_878578.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Adblock Plus 1.11 for Google Chrome / Opera / Safari [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878529.jpg" />
+  <img src="Z:/picture/005/save_picture_878529.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ SUMo Pro 5.10.13.449 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878493.jpg" />
+  <img src="Z:/picture/005/save_picture_878493.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Soft4Boost Document Converter 6.2.7.447 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878487.jpg" />
+  <img src="Z:/picture/005/save_picture_878487.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ RegCool 1.116 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878483.jpg" />
+  <img src="Z:/picture/005/save_picture_878483.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sandboxie 5.10 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878473.jpg" />
+  <img src="Z:/picture/005/save_picture_878473.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Soft4Boost AMPlayer 5.6.5.289 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878468.jpg" />
+  <img src="Z:/picture/005/save_picture_878468.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ PrivaZer 3.0.96.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878456.jpg" />
+  <img src="Z:/picture/005/save_picture_878456.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Total Commander 8.52a Extended 16.3 Full | Lite RePack (&Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878433.jpg" />
+  <img src="Z:/picture/005/save_picture_878433.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ YouTube By Click Premium 2.2.126 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878380.jpg" />
+  <img src="Z:/picture/005/save_picture_878380.jpg" />
 </div>
 
 

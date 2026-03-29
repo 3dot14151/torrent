@@ -1,3 +1,70 @@
+###  Публикация: 580183   (346258) от 24.11.2012
+
+VA - Whisper of Consciousness Volume 32 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346258.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Whisper of Consciousness Volume 32 (2012)
+Год: 2012
+Жанр: Uplifting Trance, Vocal Trance
+Продолжительность: 02:51:03Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Protoculture - Cobalt (Original Mix)
+002. Rake feat. Natalie Griffiths - Expectation (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D946E96AEAB8F1C222A455BA4AC4F92ACD4FB265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580266   (345887) от 24.11.2012
+
+VA - R.G. DHT-Music - Dubstep Female Vocal (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Heavy - Get By (Radio Edit)
+ 02. La Roux - Im Not Your Toy (Nero Remix)
+ 03. Sabi - Wild At Heart (Zeds Dead Remix)
+ 04. Sub Focus - Out The Blue Feat Xilent remix
+ 05. Knife Party - Internet Friends Original mix
+ 06. Emily Browning - Sweet Dreams (DJ WaY Dubstep Remix)
+ 07. Havana Brown - We Run The Night
+ 08. Ellie Goulding - Lights Bassnectar rmx
+ 09. Emma Hewitt - Foolish Boy (KATFYR Album Edit)
+ 10. Spiner - You wait(feat Veela)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFE99656DC2E4795AD60F7D923118F55AB66996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579888   (345760) от 24.11.2012
 
 VA - Dubstep 2012. - 20 Мегахитов (2012) [MP3|320 кб/с]<Dubstep>
@@ -6,7 +73,7 @@ VA - Dubstep 2012. - 20 Мегахитов (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345760.jpg" />
+  <img src="Z:/picture/008/save_picture_345760.jpg" />
 </div>
 
 
@@ -34,7 +101,7 @@ VA - Chill House: HedKandi October Set (2018) [MP3|320 Kbps] <Chill, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345659.jpg" />
+  <img src="Z:/picture/008/save_picture_345659.jpg" />
 </div>
 
 
@@ -63,7 +130,7 @@ VA - Top50: Tracks Deep House Ver.5 (2018) [MP3|320 Kbps] <House, Deep House, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345036.jpg" />
+  <img src="Z:/picture/008/save_picture_345036.jpg" />
 </div>
 
 
@@ -92,7 +159,7 @@ VA - Trance Serpent Vol. 07 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344795.jpg" />
+  <img src="Z:/picture/008/save_picture_344795.jpg" />
 </div>
 
 
@@ -121,7 +188,7 @@ VA - Collection Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344767.jpg" />
+  <img src="Z:/picture/008/save_picture_344767.jpg" />
 </div>
 
 
@@ -150,7 +217,7 @@ VA - Summer Chillout Area (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Re
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344702.jpg" />
+  <img src="Z:/picture/008/save_picture_344702.jpg" />
 </div>
 
 
@@ -179,7 +246,7 @@ VA - Urban Inspiration: Trance Session (2020) [MP3|320 Kbps] <Trance, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344701.jpg" />
+  <img src="Z:/picture/008/save_picture_344701.jpg" />
 </div>
 
 
@@ -208,7 +275,7 @@ VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344698.jpg" />
+  <img src="Z:/picture/008/save_picture_344698.jpg" />
 </div>
 
 
@@ -237,7 +304,7 @@ VA - Сборник дабстепа с женским вокалом (2010-2012
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344689.jpg" />
+  <img src="Z:/picture/008/save_picture_344689.jpg" />
 </div>
 
 
@@ -272,7 +339,7 @@ VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344666.jpg" />
+  <img src="Z:/picture/008/save_picture_344666.jpg" />
 </div>
 
 
@@ -300,7 +367,7 @@ VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344657.jpg" />
+  <img src="Z:/picture/008/save_picture_344657.jpg" />
 </div>
 
 
@@ -329,7 +396,7 @@ VA - До утра vol.2 (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344656.jpg" />
+  <img src="Z:/picture/008/save_picture_344656.jpg" />
 </div>
 
 
@@ -358,7 +425,7 @@ VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344578.jpg" />
+  <img src="Z:/picture/008/save_picture_344578.jpg" />
 </div>
 
 
@@ -387,7 +454,7 @@ VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344570.jpg" />
+  <img src="Z:/picture/008/save_picture_344570.jpg" />
 </div>
 
 
@@ -416,7 +483,7 @@ VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344557.jpg" />
+  <img src="Z:/picture/008/save_picture_344557.jpg" />
 </div>
 
 
@@ -445,7 +512,7 @@ VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344435.jpg" />
+  <img src="Z:/picture/008/save_picture_344435.jpg" />
 </div>
 
 
@@ -474,7 +541,7 @@ VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344431.jpg" />
+  <img src="Z:/picture/008/save_picture_344431.jpg" />
 </div>
 
 
@@ -503,7 +570,7 @@ VA - The Music Liveshow (2020) [MP3|320 Kbps] <Vocal, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344422.jpg" />
+  <img src="Z:/picture/008/save_picture_344422.jpg" />
 </div>
 
 
@@ -532,7 +599,7 @@ VA - Beatport Electro House: Sound Pack #192 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344307.jpg" />
+  <img src="Z:/picture/008/save_picture_344307.jpg" />
 </div>
 
 
@@ -561,7 +628,7 @@ VA - Beatport Electro House: Sound Pack #191 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344302.jpg" />
+  <img src="Z:/picture/008/save_picture_344302.jpg" />
 </div>
 
 
@@ -590,7 +657,7 @@ VA - Beatport Trance: Electro Sound Pack #190 (2020) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344301.jpg" />
+  <img src="Z:/picture/008/save_picture_344301.jpg" />
 </div>
 
 
@@ -619,7 +686,7 @@ VA - Big Sound Collection (2012) [MP3|320 кб/с]<Deep House, Dubstep, Trance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343472.jpg" />
+  <img src="Z:/picture/008/save_picture_343472.jpg" />
 </div>
 
 
@@ -654,7 +721,7 @@ VA - Creative Music Box 5 (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass/Drumstep
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343201.jpg" />
+  <img src="Z:/picture/008/save_picture_343201.jpg" />
 </div>
 
 
@@ -689,7 +756,7 @@ VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrm
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342798.jpg" />
+  <img src="Z:/picture/008/save_picture_342798.jpg" />
 </div>
 
 
@@ -703,64 +770,6 @@ VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954316   (342396) от 07.11.2015
-
-VA - Vocal Hits Velvet Grooves Volume Sex! (2015) [MP3|320 кб/с]<Ambient,Downtempo, Lounge, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In a Room - Amarantheme (04:42)
-02. Abraxas - Free to Leave (05:02)
-03. C.Cil - Horizon (04:30)
-04. Lemongrass - Shiny Pebbles (feat. Jane Maxi) (05:20)(   Читать дальше...   )Жанр: Ambient,Downtempo, Lounge, ElectronicПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2083FFFDE30802BDC434CE7B1D12403FAE446B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954367   (342293) от 07.11.2015
-
-VA - Extra House: Bonus [01] (2015) [MP3|320 кб/с]<House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edx - Revered (Original Mix) (06:14)
-02. Nana - Lonely (The Distance & Riddick Remix) (05:55)
-03. Diversion & Jennifer Rene - Wishing (Original Mix) (07:10)
-04. Hrrsn - Papa Legba (Original Mix) (06:08)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC67377D3E1749E11F70A955DC04FCF3C93D168C
 ```
 
 https://mybot314.ru/tekegram_catalog/

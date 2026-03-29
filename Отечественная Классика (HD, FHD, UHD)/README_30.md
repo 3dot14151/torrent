@@ -1,3 +1,160 @@
+###  Публикация: 1576275   (4880) от 01.09.2025
+
+Ключ без права передачи (1976) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кирилл Алексеевич, отставной армейский офицер, становится директором школы. Привыкший к строгости и распорядку дня, он сталкивается с беспорядочной суетой повседневной школьной жизни. Нелегко найти понимание с детьми и учителями, особенно с любимицей студентов — Мариной Максимовой, преподавателем литературы. Однако Марина немало удивляется, обнаружив в «придирчивом» (   Читать дальше...   )Производство: СССР / Ленфильм, Первое творческое объединениеЖанр: драма, мелодрамаРежиссер: Динара АсановаАктеры: Елена Проклова, Алексей Петренко, Лидия Федосеева-Шукшина, Любовь Малиновская, Зиновий Гердт, Екатерина Васильева, Олег Хроменков, Марина Левтова, Анвар Асанов, Александр БогдановСубтитры: ОтсутствуютПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425944B97BA8C868FB30283B15211CECF417707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427077   (4740) от 02.09.2025
+
+Джентльмены удачи (1971) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заведующему детсадом Трошкину фатально не повезло: он оказался как две капли воды похож на бандита по кличке «Доцент», похитившего уникальный шлем Александра Македонского.
+Милиция внедряет добряка Трошкина в воровскую среду - и ему ничего не остается, кроме как старательно изображать своего двойника-злодея, путая всех окружающих. Со временем он настолько блестяще (   Читать дальше...   )Производство: CCCP, МосфильмЖанр: Драма, комедия, криминал, детективРежиссер: Александр СерыйАктеры: Евгений Леонов, Георгий Вицин, Раднэр Муратов, Савелий Крамаров, Наталья Фатеева, Эраст Гарин, Николай Олялин, Анатолий Папанов, Павел Шпрингфельд, Любовь СоколоваЯзык озвучки: Русский, Английский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F66BFDFFEBDBA25828F4B23093FDEA9CE6AD9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600985   (4738) от 02.09.2025
+
+Кин-дза-дза! (1986) BDRemux [H.264/1080p] (серии 1-2 из 2)
+
+>>След.
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прораб Владимир Николаевич Машков и не подозревал, что обычный путь до универсама за хлебом и макаронами обернется межгалактическими путешествиями. А все эта встреча со странным босоногим человеком с каким-то маленьким устройством — «машинкой перемещения», как тот ее назвал. Короче, нажал на кнопку и оказался вместе со случайным попутчиком, студентом в кроличьей (   Читать дальше...   )Производство: СССР / МосфильмЖанр: фантастика, драма, комедияРежиссер: Георгий ДанелияАктеры: Станислав Любшин, Евгений Леонов, Юрий Яковлев, Леван Габриадзе, Ольга Машная, Ирина Шмелева, Лев Перфилов, Георгий Данелия, Александра Дорохина, Галина Данелия-ЮрковаСубтитры: ОтсутствуютПродолжительность: 01:06:12 + 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B35769D03DB34C6DCD15E0893461FABE8BA6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815447   (3927) от 07.09.2025
+
+Гусарская баллада (1962) WEBRip [VP9/2160p] [Реставрация МФ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторический анекдот, удачно и к месту рассказанный, всегда найдет благодарных слушателей, а, тем более, зрителей. История девицы-корнета, желающей наравне с мужчинами защищать отечество, была счастливо вспомнена драматургом А. Гладковым, воплощена им в комедии «Давным-давно» и экранизирована Э. Рязановым в 1962 — к 150-летнему юбилею победы над Наполеоном.Производство: СССР / МосфильмЖанр: мюзикл, комедия, военныйРежиссер: Эльдар РязановАктеры: Лариса Голубкина, Юрий Яковлев, Игорь Ильинский, Николай Крючков, Виктор Кольцов, Антоний Ходурский, Татьяна Шмыга, Лев Поляков, Алексей Полевой, Владимир ШиряевПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD570233B4E2C000BCE07457AE186D90D60940BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816724   (3528) от 10.09.2025
+
+Время, вперед! (1965) WEBRip [VP9/2160p] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм воссоздает ритм жизни одной из ударных строек первых пятилеток, погружая зрителя в атмосферу трудового энтузиазма молодых романтиков-первопроходцев 30-х, зачинателей советской индустрии.Производство: СССР / МосфильмЖанр: драма, историяРежиссер: Софья Милькина, Михаил ШвейцерАктеры: Сергей Юрский, Инна Гулая, Тамара Сёмина, Леонид Куравлёв, Владимир Кашпур, Станислав Хитров, Ефим Копелян, Бруно Оя, Татьяна Лаврова, Александр ЯнваревСубтитры: отсутствуютПродолжительность: 01:11:56 + 01:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBCE3DC68AFC162FA0555FC8462941FFDD00E00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817769   (3061) от 13.09.2025
+
+Земля Санникова (1973) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более ста лет загадка земли, затерянной среди арктических льдов, волновала путешественников, но никто не мог достичь ее. Герой фильма, политический ссыльный Ильин, отправляется в экспедицию, которую финансирует богатый золотопромышленник. Отважные путешественники обнаруживают среди ледяного безмолвия цветущий оазис. Но выясняется, что во время землетрясения он должен (   Читать дальше...   )Производство: СССР / МосфильмЖанр: ПриключенияРежиссер: Альберт С. Мкртчян, Леонид ПоповАктеры: Владислав Дворжецкий, Георгий Вицин, Олег Даль, Юрий Назаров, Махмуд Эсамбаев, Николай Гриценко, Елена Чухрай, Геворк Чепчян, Петр Абашеев, Турсун КуралиевСубтитры: отсутствуютПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E769599DA90A0E48FF39846FB491329002BE6061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818899   (2019) от 19.09.2025
 
 Жизнь сначала (1961) WEBRip [H.264/1080p]
@@ -6,7 +163,7 @@
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2019.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1900.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1896.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1864.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1860.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1856.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1831.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1826.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1522.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1513.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1491.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1328.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_786.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_652.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_338.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_331.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119.jpg" />
 </div>
 
 

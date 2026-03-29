@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780066.jpg" />
+  <img src="Z:/picture/008/save_picture_780066.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ HD Video Converter Movavi 5.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780062.jpg" />
+  <img src="Z:/picture/008/save_picture_780062.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Geek Uninstaller 1.4.5 Build 126 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780055.jpg" />
+  <img src="Z:/picture/008/save_picture_780055.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CrystalDiskInfo 7.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780051.jpg" />
+  <img src="Z:/picture/008/save_picture_780051.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780028.jpg" />
+  <img src="Z:/picture/008/save_picture_780028.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Movavi Video Editor 14.Plus 14.3.0  RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780024.jpg" />
+  <img src="Z:/picture/008/save_picture_780024.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780012.jpg" />
+  <img src="Z:/picture/008/save_picture_780012.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780011.jpg" />
+  <img src="Z:/picture/008/save_picture_780011.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ In-Existence - Moonwater (1993) Apollo [FLAC|Lossless|tracks+.cue] <IDM, Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779997.jpg" />
+  <img src="Z:/picture/008/save_picture_779997.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Erased Tapes Collection III (2011) [FLAC|Lossless|WEB-DL|tracks] <IDM, Post
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779996.jpg" />
+  <img src="Z:/picture/008/save_picture_779996.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ TinkerTool System 5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779984.jpg" />
+  <img src="Z:/picture/008/save_picture_779984.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ CocCoc 68.4.154 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779974.jpg" />
+  <img src="Z:/picture/008/save_picture_779974.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Debookee 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779973.jpg" />
+  <img src="Z:/picture/008/save_picture_779973.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779954.jpg" />
+  <img src="Z:/picture/008/save_picture_779954.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Sandboxie 5.23.6 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779949.jpg" />
+  <img src="Z:/picture/008/save_picture_779949.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Tixati 2.56 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779929.jpg" />
+  <img src="Z:/picture/008/save_picture_779929.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ qBittorrent 4.0.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779925.jpg" />
+  <img src="Z:/picture/008/save_picture_779925.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Auslogics File Recovery 8.0.5.0 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779921.jpg" />
+  <img src="Z:/picture/008/save_picture_779921.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Movavi Video Suite 17.2.1 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779908.jpg" />
+  <img src="Z:/picture/008/save_picture_779908.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779893.jpg" />
+  <img src="Z:/picture/008/save_picture_779893.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Mailbird Pro 2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779892.jpg" />
+  <img src="Z:/picture/008/save_picture_779892.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779887.jpg" />
+  <img src="Z:/picture/008/save_picture_779887.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779885.jpg" />
+  <img src="Z:/picture/008/save_picture_779885.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ AusLogics BoostSpeed 10.0.5.0 RePack (& Portable)  by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779871.jpg" />
+  <img src="Z:/picture/008/save_picture_779871.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779866.jpg" />
+  <img src="Z:/picture/008/save_picture_779866.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779865.jpg" />
+  <img src="Z:/picture/008/save_picture_779865.jpg" />
 </div>
 
 

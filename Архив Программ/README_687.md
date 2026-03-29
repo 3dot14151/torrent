@@ -6,7 +6,7 @@ Adobe Audition 2020 13.0.9.41 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703139.jpg" />
+  <img src="Z:/picture/008/save_picture_703139.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 20.7 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703132.jpg" />
+  <img src="Z:/picture/008/save_picture_703132.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Efficient Sticky Notes Pro 5.50 Build 544 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703106.jpg" />
+  <img src="Z:/picture/008/save_picture_703106.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AusLogics Disk Defrag Pro 4.9.20.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703104.jpg" />
+  <img src="Z:/picture/008/save_picture_703104.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Skype 8.81.0.268 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703087.jpg" />
+  <img src="Z:/picture/008/save_picture_703087.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ AOMEI Partition Assistant Standard Edition 9.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703082.jpg" />
+  <img src="Z:/picture/008/save_picture_703082.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GOM Player Plus 2.3.74.5338 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703075.jpg" />
+  <img src="Z:/picture/008/save_picture_703075.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ ProgDVB 7.08.9 Professional Edition + Channels [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703018.jpg" />
+  <img src="Z:/picture/008/save_picture_703018.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ OSForensics Pro 3.1 Build 1007 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703012.jpg" />
+  <img src="Z:/picture/008/save_picture_703012.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe After Effects 2020 17.1.3.40 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703009.jpg" />
+  <img src="Z:/picture/008/save_picture_703009.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ DameWare Mini Remote Control 12.1.1.273 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702993.jpg" />
+  <img src="Z:/picture/008/save_picture_702993.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702989.jpg" />
+  <img src="Z:/picture/008/save_picture_702989.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Photoshop Lightroom Classic 9.4.0.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702986.jpg" />
+  <img src="Z:/picture/008/save_picture_702986.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Light Image Resizer 5.0.5.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702935.jpg" />
+  <img src="Z:/picture/008/save_picture_702935.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ VidCoder 2.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702933.jpg" />
+  <img src="Z:/picture/008/save_picture_702933.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ AOMEI Partition Assistant Technician Edition 9.6.1 RePack (& Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702909.jpg" />
+  <img src="Z:/picture/008/save_picture_702909.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ HTC Home Apis 3.1.627 (04.05.2015) RePack by Andreyonohov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702866.jpg" />
+  <img src="Z:/picture/008/save_picture_702866.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BELOFF 2019.3 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702860.jpg" />
+  <img src="Z:/picture/008/save_picture_702860.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Artweaver Free 6.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702828.jpg" />
+  <img src="Z:/picture/008/save_picture_702828.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Light Image Resizer 5.0.6.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702824.jpg" />
+  <img src="Z:/picture/008/save_picture_702824.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ESET Endpoint Security 5.0.2242.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702758.jpg" />
+  <img src="Z:/picture/008/save_picture_702758.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ StartIsBack++ 2.0.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702750.jpg" />
+  <img src="Z:/picture/008/save_picture_702750.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ ShareX 11.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702738.jpg" />
+  <img src="Z:/picture/008/save_picture_702738.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ ESET Endpoint Antivirus 5.0.2242.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702707.jpg" />
+  <img src="Z:/picture/008/save_picture_702707.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ FastStone Capture 8.2 Final RePack (& portable) by KpoJIuK (04.05.2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702696.jpg" />
+  <img src="Z:/picture/008/save_picture_702696.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Vidiot 0.3.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702657.jpg" />
+  <img src="Z:/picture/008/save_picture_702657.jpg" />
 </div>
 
 

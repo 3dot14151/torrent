@@ -1,3 +1,81 @@
+###  Публикация: 300233   (875386) от 24.02.2011
+
+VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_875386.jpg" />
+</div>
+
+
+###  Подробнее
+
+VerseQ - инновационный клавиатурный тренажер, который сделал слепую печать доступной каждому! Клавиатурный тренажер VerseQ отличается от всех остальных… Отличается эффективностью, а также целым спектром уникальных особенностей. Проще можно было бы сказать, что VerseQ – это новый шаг в технологиях обучения слепой печати.Язык интерфейса: Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497048   (867577) от 20.09.2021
+
+IPTV Checker v 2.5 Portable [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_867577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение автоматизирующее процесс проверки  плейлистов m3u8 каналов IPTV. Проверка и отчет по каждому каналу.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7969F0E1F1BF00758B93385F63CAA7BD410856BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497701   (862513) от 23.09.2021
+
+RuntimePack 21.7.30 Full [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862513.jpg" />
+</div>
+
+
+###  Подробнее
+
+RuntimePack - это набор компонентов, который раз и навсегда избавит вас от ошибок при запуске игр и программ, связанных с отсутствием нужного ПО или библиотеки. Установщик "одним махом" добавит на компьютер важные файлы DLL и OCX, которые чаще всего требуются для запуска различных приложений, а также установит все существующие версии пакетов Microsoft Visual (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5837B0D8590DE03B584A659861961BB51D5138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499688   (847359) от 02.10.2021
 
 Qemu Simple Boot 1.3 Portable [Multi/Ru]
@@ -6,7 +84,7 @@ Qemu Simple Boot 1.3 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847359.jpg" />
+  <img src="Z:/picture/008/save_picture_847359.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Colors Pro 2.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844732.jpg" />
+  <img src="Z:/picture/008/save_picture_844732.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802475.jpg" />
+  <img src="Z:/picture/008/save_picture_802475.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800539.jpg" />
+  <img src="Z:/picture/008/save_picture_800539.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795902.jpg" />
+  <img src="Z:/picture/008/save_picture_795902.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ VanDyke SecureCRT 8.0.1 build 1082 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794287.jpg" />
+  <img src="Z:/picture/008/save_picture_794287.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Posteriza 1.1.1 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792790.jpg" />
+  <img src="Z:/picture/008/save_picture_792790.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789597.jpg" />
+  <img src="Z:/picture/008/save_picture_789597.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Shutter Pro 4.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767215.jpg" />
+  <img src="Z:/picture/008/save_picture_767215.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761577.jpg" />
+  <img src="Z:/picture/008/save_picture_761577.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Stardock ShadowFX 1.2 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725890.jpg" />
+  <img src="Z:/picture/008/save_picture_725890.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Windows Logon Editor 1.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_680674.jpg" />
+  <img src="Z:/picture/005/save_picture_680674.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Stardock Multiplicity 3.43 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602319.jpg" />
+  <img src="Z:/picture/008/save_picture_602319.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599566.jpg" />
+  <img src="Z:/picture/008/save_picture_599566.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ Sim Aquarium 3.8 Build 63 Platinum [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588983.jpg" />
+  <img src="Z:/picture/008/save_picture_588983.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ Natura Sound Therapy 3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586512.jpg" />
+  <img src="Z:/picture/008/save_picture_586512.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558868.jpg" />
+  <img src="Z:/picture/008/save_picture_558868.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ Maia Mechanics Imaging 2.8.9.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545282.jpg" />
+  <img src="Z:/picture/008/save_picture_545282.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541618.jpg" />
+  <img src="Z:/picture/008/save_picture_541618.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Mkey 1.3.5 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530191.jpg" />
+  <img src="Z:/picture/008/save_picture_530191.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Dxtory 2.0.127 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519140.jpg" />
+  <img src="Z:/picture/008/save_picture_519140.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ Driver Signature Enforcement Overrider 1.3b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505051.jpg" />
+  <img src="Z:/picture/008/save_picture_505051.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Desktop Gadgets 1.1 [Мульти, Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501887.jpg" />
+  <img src="Z:/picture/008/save_picture_501887.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ Desktop Gadgets – в Windows 8 корпорация Microsoft полность
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545915   (478129) от 13.09.2012
-
-Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Круглосуточный скальпер для 4 пар (EURUSD, GBPUSD, USDJPY, USDCHF),таймфрейм М15.Название программы: Wall Street RоВоt - форекс советник для МТ4/МТ5Язык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243878   (477827) от 03.09.2018
-
-PowerPlan v3.2e & Trackpad++ v3.5b [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает в себя набор из двух программ PowerPlan и Trackpad++. Первая, PowerPlan, продлит время работы MacBook в Windows - изменяет схемы питания. Вторая, Trackpad++, добавляет жесты трекпада из Mac OS в Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C78D05B4DA8CD0555D81A8E778888B77AB422A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570680   (440211) от 18.08.2022
-
-TransTrade 2.9 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное программное обеспечение, разработанное специально для автоматизации транспортных предприятий. Оно позволяет решать повседневные задачи логистических компаний, деятельность которых связана с перевозками, и производителей, имеющих собственный автопарк. Эффективная автоматизация транспортных предприятий позволяет наладить процесс оказания транспортных услуг, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA760C78EC552EBD430B40819D987CA60826EDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166740.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Eizo Sakamoto - Shout Drunker (2002) [WavPack|Lossless|image + .cue] <Heavy Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166724.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Eizo Sakamoto - Metal icchokusen (2000) [WavPack|Lossless|image + .cue] <Heavy M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166719.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Eizo Sakamoto - Another Face (1998) [WavPack|Lossless|image + .cue] <Heavy Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166716.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Moon Dancer - Moon Dancer (1979) Reissued 1997 [WavPack|Lossless|image + .cue] <
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166712.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166706.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166688.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ EIZO Japan - Super anime song - Legend of the 1990's (2010) [WavPack|Lossless|im
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166670.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Marge Litch - The Ring of Truth (1992) [WavPack|Lossless|image + .cue] <Power Me
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166607.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Earthshaker - Back to Nexus (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160841.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Nozomu Wakai's Destinia - Requiem For A Scream (2014) (Japanese Edition) [FLAC|L
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148798.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Luna Sea - Mother (1994) 2023, avex trax [FLAC|Lossless|WEB-DL|tracks] <Art rock
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126618.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126617.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124364.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121301.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Concerto Moon - Back Beyond Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110186.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Concerto Moon - Back Beyond Time (2024) 2 x CD [FLAC|Lossless|image + .cue] <Hea
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105969.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Defiled - Horror Beyond Horror (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104220.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Galneryus - Kizuna (2012) EP [FLAC|Lossless]<Neo-Classical Power Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77901.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Galneryus - The Stars Will Light The Way (2024) Japanese Edition, Limited Editio
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66540.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, C
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66083.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Isiliel - Moonbow Rebellion (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65486.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Prompts - Fracture (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54690.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3445.jpg" />
 </div>
 
 

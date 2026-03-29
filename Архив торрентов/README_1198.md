@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781132.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Photodex ProShow Producer 9.0.3793 Portable by TryRooM [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781121.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781110.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781105.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781102.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Middle 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781087.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ GrandTotal 6 v6.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781086.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ File Cabinet Pro 7.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781085.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ iCollections 6 v6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781084.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Folder Tidy 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781080.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Valentina Studio Pro 10.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781078.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ The Book of Unwritten Tales / Книга ненаписанных сказок [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781063.jpg" />
+  <img src="Z:/picture/008/save_picture_781063.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Amnesia Scanner - Tearless (2020) [MP3|320 Kbps] <Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781062.jpg" />
+  <img src="Z:/picture/008/save_picture_781062.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781057.jpg" />
+  <img src="Z:/picture/008/save_picture_781057.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Araxis Merge Pro Edition 2020.5400 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781038.jpg" />
+  <img src="Z:/picture/008/save_picture_781038.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781036.jpg" />
+  <img src="Z:/picture/008/save_picture_781036.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Example - Some Nights Last for Days (2020) [MP3|320 Kbps] <Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781034.jpg" />
+  <img src="Z:/picture/008/save_picture_781034.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Freac 1.1.2 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781011.jpg" />
+  <img src="Z:/picture/008/save_picture_781011.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Superbrush v1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781006.jpg" />
+  <img src="Z:/picture/008/save_picture_781006.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ LogViewPlus 2.4.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781005.jpg" />
+  <img src="Z:/picture/008/save_picture_781005.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Carbon Copy Cloner 5 v5.1.19 (build 6027) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780974.jpg" />
+  <img src="Z:/picture/008/save_picture_780974.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ UltraUXThemePatcher 3.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780969.jpg" />
+  <img src="Z:/picture/008/save_picture_780969.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Advanced SystemCare Pro 13.5.0.274 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780968.jpg" />
+  <img src="Z:/picture/008/save_picture_780968.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Open Shell (Classic Shell) 4.4.145 Nightly [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780963.jpg" />
+  <img src="Z:/picture/008/save_picture_780963.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Open Shell (Classic Shell) 4.4.142 Stable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780961.jpg" />
+  <img src="Z:/picture/008/save_picture_780961.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Marinko Spasodjevic, Vladimir Pecanac | Ultimate ASP.NET Core 3 Web API (2020) [
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780956.jpg" />
+  <img src="Z:/picture/008/save_picture_780956.jpg" />
 </div>
 
 

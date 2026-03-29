@@ -1,3 +1,107 @@
+###  Публикация: 1524933   (130388) от 18.01.2022
+
+ON1 HDR 2022.1 v16.1.0.11675 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130388.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 HDR создает безупречные, естественные фотографии HDR, которые в мгновение ока сочетают детали светлых и темных участков из набора экспозиций. Вы можете управлять движением, таким как облака и вода, с помощью предварительного просмотра в реальном времени. Затем улучшайте свои HDR-фотографии с помощью мощных инструментов и пресетов, которые демонстрируют ваше творчество. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BC06D8262684E19D1DBA705F730600F38D207F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524943   (130386) от 18.01.2022
+
+ON1 Resize 2022.1 v16.1.0.11675 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130386.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Resize (ранее известный как Perfect Resize Standard) - это простое приложение для изменения размера изображений, которое предоставляет набор инструментов, предназначенных для подготовки ваших фотографий к печати. Организовать и изменить размер. ON1 Изменение размера стало намного лучше. NEW ON1 Resize теперь включает в себя один из самых быстрых способов просмотра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70DA37E8CA0AA6A03A8ABFF4725130EEAD11454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524934   (130384) от 18.01.2022
+
+ON1 NoNoise AI 2022.1 v16.1.0.11675 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это лучшее программное обеспечение шумоподавления для фотографии. Быстро удаляйте шумы и получайте самые четкие детали на фотографиях с ON1 NoNoise AI. Приложение разумно удаляет все шумы изображения, разумно восстанавливая и улучшая детали. Оно интегрируется в ваш рабочий процесс, поддерживая распространенные фоторедакторы и форматы файлов, в том числе сохраняя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4498DFCF04ACD16615A1E3816DA08206A30B6B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524928   (130382) от 18.01.2022
+
+ON1 Effects 2022.1 v16.1.0.11675 [Multi/Rus]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D341D5BB990912B52ECCACC7DB3F674B45D6833F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524899   (130380) от 18.01.2022
 
 Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Rock>
@@ -6,7 +110,7 @@ Roxette - Look Sharp! (30th Anniversary Edition) (2022) [AAC|~333 Kbps] <Pop, Ro
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130380.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ RPN Calculator 4.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130368.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ EverWeb (Standalone) 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130351.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ PullTube 1.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130347.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Dato 3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130342.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Default Folder X 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130339.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ My PaintBrush Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130336.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Wondershare PDFelement Pro 8.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130331.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ TunesKit AceMovi Video Editor 4.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130328.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ PDF Reader Pro Edition 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130318.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ ProFind 1.9.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130306.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Transfer 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130304.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Music Tag Editor Pro 5.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130300.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ SnapMotion Unlimited 5.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130296.jpg" />
 </div>
 
 
@@ -382,7 +486,7 @@ SideNotes 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130294.jpg" />
 </div>
 
 
@@ -408,7 +512,7 @@ MacClean360 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130290.jpg" />
 </div>
 
 
@@ -434,7 +538,7 @@ Feeder 4 v4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130286.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ TunesKit Video Cutter 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130284.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ Downie 4 v4.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130280.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ FSNotes 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130275.jpg" />
 </div>
 
 
@@ -541,7 +645,7 @@ Adobe Lightroom Classic for Mac v11.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130239.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ Smart Disk Image Utilities 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130128.jpg" />
 </div>
 
 
@@ -578,113 +682,6 @@ Smart Disk Image Utilities - это мощный инструмент для с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC106969E33408C7D5B8C2DE0A2EDF2EBCB3C0C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525271   (130097) от 19.01.2022
-
-AnyTrans for iOS 8.9.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130097.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2022Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4AA4173199464449BB655B2C6C4EF2200490DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525246   (130091) от 19.01.2022
-
-Sketch 82 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 Sketch B.V.Поддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63F63B05273315609F6F24C0A0663FC8B0245E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525157   (130053) от 19.01.2022
-
-Aiseesoft Mac Video Enhancer 9.2.26 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Mac Video Enhancer - новый продукт от компании Aiseesoft. Позволяет существенно улучшить качество видео, повысить разрешение видео, удалить фоновый шум, повернуть или зеркально отразить видео, вырезать части ролика и добавить водяной знак.
-Возможности Video Enhancer:
-• Повысить разрешение видео. Это мощное программное обеспечение может повысить разрешение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2022Разработчик: © 2022 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A72988F0991761B1CF5C0488E0EAA0A6548A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525185   (130042) от 19.01.2022
-
-DoYourData Start Menu Pro 4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее меню «Пуск» для Mac - на вашем Mac все будет просто и быстро. OS X или macOS немного сложнее, чем ОС Windows для обычных пользователей. Теперь, с помощью DoYourData Start Menu для Mac, вы можете легко управлять своим Mac, как и в меню «Пуск» Windows.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: © 2022 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160F21E880C73973BD02CE2A0995E73EEFD045F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

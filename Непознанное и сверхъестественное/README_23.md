@@ -1,3 +1,55 @@
+###  Публикация: 942872   (451633) от 02.10.2015
+
+Земля. Территория загадок. Загадки южного континента (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антарктида мало чем отличается от Марса, разве что кислорода больше. Южный полюс таит в себе загадок гораздо больше, чем далекая красная планета. Платон был уверен, что материк – осколок большой Атлантиды. Именно здесь, как утверждают историки, проводили испытания летающих тарелок ученые Третьего Рейха, а полярники уже много раз встречали здесь странные объекты, (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E555E2975EBFE916BC26E38A237BCAB610C523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943041   (451624) от 02.10.2015
+
+Территория заблуждений с Игорем Прокопенко (2015.10.02) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D279272DC0CAA3584DFABF4E60AADD0500EF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550016   (450712) от 25.09.2012
 
 Мистические истории. Выпуск №34 (2012.09.20) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450712.jpg" />
+  <img src="Z:/picture/008/save_picture_450712.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450486.jpg" />
+  <img src="Z:/picture/008/save_picture_450486.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449572.jpg" />
+  <img src="Z:/picture/008/save_picture_449572.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448962.jpg" />
+  <img src="Z:/picture/008/save_picture_448962.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448639.jpg" />
+  <img src="Z:/picture/008/save_picture_448639.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445206.jpg" />
+  <img src="Z:/picture/008/save_picture_445206.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445205.jpg" />
+  <img src="Z:/picture/008/save_picture_445205.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444451.jpg" />
+  <img src="Z:/picture/008/save_picture_444451.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442769.jpg" />
+  <img src="Z:/picture/008/save_picture_442769.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441537.jpg" />
+  <img src="Z:/picture/008/save_picture_441537.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441253.jpg" />
+  <img src="Z:/picture/008/save_picture_441253.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441249.jpg" />
+  <img src="Z:/picture/008/save_picture_441249.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441243.jpg" />
+  <img src="Z:/picture/008/save_picture_441243.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440504.jpg" />
+  <img src="Z:/picture/008/save_picture_440504.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440234.jpg" />
+  <img src="Z:/picture/008/save_picture_440234.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439798.jpg" />
+  <img src="Z:/picture/008/save_picture_439798.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439510.jpg" />
+  <img src="Z:/picture/008/save_picture_439510.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439047.jpg" />
+  <img src="Z:/picture/008/save_picture_439047.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438317.jpg" />
+  <img src="Z:/picture/008/save_picture_438317.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438203.jpg" />
+  <img src="Z:/picture/008/save_picture_438203.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437275.jpg" />
+  <img src="Z:/picture/008/save_picture_437275.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436848.jpg" />
+  <img src="Z:/picture/008/save_picture_436848.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436769.jpg" />
+  <img src="Z:/picture/008/save_picture_436769.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436376.jpg" />
+  <img src="Z:/picture/008/save_picture_436376.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CDFA8E60B12FAB5F3D3D795647DD3E70E334FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645956   (435833) от 09.10.2015
-
-Таинственная Россия. Ставропольский край. Куда ведут знаки пришельцев? (2013.04.19) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша родина занимает огромную часть суши. Семнадцать миллионов квадратных километров. Четыре климатические зоны. Девять часовых поясов. Но все ли мы знаем об этой земле? Телеканал НТВ представляет цикл «Таинственная Россия» — документальный сериал о самых неизученных, самых загадочных местах на карте нашей страны.
-Мы привыкли жить — каждый внутри своей «скорлупы», (   Читать дальше...   )Жанр: Документальный, расследованиеПродолжительность: ~ 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675EA3D05CF44F44174DD97DCB0610FED2BE06DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063248   (434377) от 16.10.2016
-
-Битва экстрасенсов (2016.10.15) WEB-DL [H.264/720p] (сезон 17, выпуск 7)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434377.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6317BF3A10DE18D0335E676F728F890D6C9EC31B
 ```
 
 https://mybot314.ru/tekegram_catalog/

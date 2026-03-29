@@ -1,3 +1,171 @@
+###  Публикация: 1043024   (574660) от 15.08.2016
+
+VA - Убойное лето №5 Europa Plus (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574660.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga - I Want Your Love
+002. Leya Mouse & Dj Komandor - Самба Для Двоих
+003. Shermanology - Sweet Surrender
+004. Biffguyz - Ты Вкусно Пахнешь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BB8C98DCFAFFE65A2F1BDF2714F164B11E680B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362072   (574594) от 11.07.2011
+
+VA - Золотые Хиты Дискотек 80-х В Обработке  (2011) [MP3|192-256 kbps]<Pop / Disco >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop / DiscoПродолжительность: 07:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF150FF3DDA6D1D737EF6ED53FC158D2D006D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043102   (574574) от 15.08.2016
+
+VA - Super Summer Hits 2016 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unique Groove Feat. Ivy Channel - At Night (Radio Edit)
+02. Nils van Zandt Feat. Sharon Doorson - Feel Like Dancing (Radio Edit)
+03. Italobrothers - Kings And Queens (Video Edit)
+04. R.I.O. Feat. U-Jean - Cheers To The Club (Video Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1247CE0A93879081B8B61C41C757D24682E2E6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043028   (574424) от 15.08.2016
+
+VA - Русское радио. Убойное лето №4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инь-Ян - Мурашки
+002. Saro - Тебя Люблю
+003. Непара - Любимые Люди
+004. Elvira T - Я Еду Домой(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FCD3E74D90D883DA118CDEBDA29FA6E7109D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362305   (573500) от 12.07.2011
+
+VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 05:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22407C47F9447448CE4A276E198BCE90A9BB9938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043319   (572983) от 16.08.2016
+
+VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fifth Harmony - No Way
+002. Интонация - Давление
+003. The Dollyrots - Little Medusa
+004. Sasha - Всего Лишь Три Слова(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043323   (572841) от 16.08.2016
 
 VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +174,7 @@ VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572841.jpg" />
+  <img src="Z:/picture/008/save_picture_572841.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ VA - Turbo mix World Hits №6 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572832.jpg" />
+  <img src="Z:/picture/008/save_picture_572832.jpg" />
 </div>
 
 
@@ -64,7 +232,7 @@ VA - Наша летняя соточка №1 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572825.jpg" />
+  <img src="Z:/picture/008/save_picture_572825.jpg" />
 </div>
 
 
@@ -93,7 +261,7 @@ VA - Super Dance Party Vol.4 (2016) [MP3|320 Kbps] <Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572824.jpg" />
+  <img src="Z:/picture/008/save_picture_572824.jpg" />
 </div>
 
 
@@ -122,7 +290,7 @@ VA - 100 Хитов Любимой Музыки (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572695.jpg" />
+  <img src="Z:/picture/008/save_picture_572695.jpg" />
 </div>
 
 
@@ -151,7 +319,7 @@ VA - The Greatest 80's Collection (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572600.jpg" />
+  <img src="Z:/picture/008/save_picture_572600.jpg" />
 </div>
 
 
@@ -180,7 +348,7 @@ VA - Now Thats What I Call The 80s Hits (2016) [MP3|320 Kbps] <Pop, Disco, R&B, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572592.jpg" />
+  <img src="Z:/picture/008/save_picture_572592.jpg" />
 </div>
 
 
@@ -209,7 +377,7 @@ VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572389.jpg" />
+  <img src="Z:/picture/008/save_picture_572389.jpg" />
 </div>
 
 
@@ -238,7 +406,7 @@ VA - 60 лучших песен на французском языке (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572239.jpg" />
+  <img src="Z:/picture/008/save_picture_572239.jpg" />
 </div>
 
 
@@ -267,7 +435,7 @@ VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571810.jpg" />
+  <img src="Z:/picture/008/save_picture_571810.jpg" />
 </div>
 
 
@@ -296,7 +464,7 @@ VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 к�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571647.jpg" />
+  <img src="Z:/picture/008/save_picture_571647.jpg" />
 </div>
 
 
@@ -325,7 +493,7 @@ VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571542.jpg" />
+  <img src="Z:/picture/008/save_picture_571542.jpg" />
 </div>
 
 
@@ -351,7 +519,7 @@ VA - Летняя улетная вечеринка (2012) [MP3|256 кб/с]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571294.jpg" />
+  <img src="Z:/picture/008/save_picture_571294.jpg" />
 </div>
 
 
@@ -386,7 +554,7 @@ VA - Без тормозов: Super дискотека 10 (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571048.jpg" />
+  <img src="Z:/picture/008/save_picture_571048.jpg" />
 </div>
 
 
@@ -421,7 +589,7 @@ DJ.Amure - Best Remixes (2017) [MP3|320 Kbps] <Dance, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570357.jpg" />
+  <img src="Z:/picture/008/save_picture_570357.jpg" />
 </div>
 
 
@@ -450,7 +618,7 @@ VA - Power FM Hits 2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570229.jpg" />
+  <img src="Z:/picture/008/save_picture_570229.jpg" />
 </div>
 
 
@@ -479,7 +647,7 @@ Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570080.jpg" />
+  <img src="Z:/picture/008/save_picture_570080.jpg" />
 </div>
 
 
@@ -508,7 +676,7 @@ VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569817.jpg" />
+  <img src="Z:/picture/008/save_picture_569817.jpg" />
 </div>
 
 
@@ -537,7 +705,7 @@ VA - Абсолютные Хиты Лета 7 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568919.jpg" />
+  <img src="Z:/picture/008/save_picture_568919.jpg" />
 </div>
 
 
@@ -566,7 +734,7 @@ VA - Русский Размер Удовольствия (2012) [MP3|320 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568795.jpg" />
+  <img src="Z:/picture/008/save_picture_568795.jpg" />
 </div>
 
 
@@ -586,186 +754,6 @@ VA - Русский Размер Удовольствия (2012) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDD94CFFA7C5D7451866A7C7668F679771AE597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529051   (568703) от 30.07.2012
-
-VA - Лучшая сотка горячих хитов (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женя Вилль - Я Хочу Всегда
- 02. Влад Дарвин (Darwin) & Alyosha (Алеша) - Смысл Жизни (Dj Amor Remix)
- 03. Пропаганда - Нет-Да (Dance Version)
- 04. Амина - Дни-Недели (DJ Nariman Mix)
- 05. DJ Nu - Sky feat. Валерия Фоменко - Прочитай Любовь (Radio Mix)
- 06. Bobina feat. Винтаж - На-На-На
- 07. Любовные Истории - Шекспир
- 08. Жанна Фриске И Джиган (Geegun) - Ты Рядом
- 09. Dj Aristocrat - Необычная Любовь
- 10. Vilana - МореЖанр: PopПродолжительность: 06:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4FB0B433155F19DC99CD2A4395D6C725F66E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152022   (568565) от 21.07.2017
-
-VA - Summer Pop Mania 50+50 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вирус - Она звезда
-02. Denisse & Stephan - Move Your Body
-03. Елена Темникова - Подсыпал
-04. Davy Bee feat. The Romy - Summertime(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBA85D1C9F8B6663F6816636E46141B0DF0472D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044186   (567457) от 19.08.2016
-
-VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Френды - Смотри Как Я Танцую
-002. Fallulah - Vandalain
-003. Денис Барканов - Доченька
-004. Drowning Pool - Push(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043947   (567453) от 19.08.2016
-
-VA - Хитовые Летние Песни 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axero Feat. Tau - What For
-002. Эмма М - Душа
-003. John Newman Feat. Charlie Wilson - Tiring Game
-004. Зелим Бакаев - Иллюзия(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FBCA7A7DF56C1CABD996D92BDDA5BFE0C055EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044359   (567287) от 19.08.2016
-
-VA - Мега хиты хорошего настроения. Версия 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Букатара - Сила Воли
-002. Molly - Zoom
-003. Антон Азаров - Волк
-004. Little Mix - Omg(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACDD2C2CEA62066133A7567D4380B4B6495D80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044202   (567149) от 19.08.2016
-
-VA - Любимые хиты (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mseven — Листья
-02. Денис Любимов — На Постели Лета
-03. Иракли — На Бульварном
-04. Тимати — Девочка-Конфета(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0B05074A895041F4E60357909BAB8DFB9ECED
 ```
 
 https://mybot314.ru/tekegram_catalog/

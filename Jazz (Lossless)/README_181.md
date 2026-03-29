@@ -1,3 +1,131 @@
+###  Публикация: 552229   (445773) от 27.09.2012
+
+Chie Ayado - 3 альбома (2000-2007) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_445773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazing Grace [03:05]
+02. A Natural Woman [05:12]
+03. Your Song [05:38]
+04. El Condor Pasa (If I Could) [05:36]
+08. A Time for Love [04:38]
+09. Everything Must Change [04:49]
+07. The Way We Were [04:52]
+08. The Rose [05:25]
+09. Love [03:29]
+10. Wonderful Tonight [04:52](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550583   (445764) от 27.09.2012
+
+George Benson, Joe Pass & Wes Montgomery - Les Incontournables Guitare (2000) [FLAC|Lossless]<Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_445764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moanin' [05:49]
+02. Blues'n'Boogie [09:37]
+03. 'Round Midnight [04:55]
+04. Geno [02:57]
+05. D-Natural Blues [05:24]
+06. Movin' Along [05:40]
+07. Baubles, Bangles And Beads [02:22]
+08. Mister Walker [04:32]
+09. Twisted Blues [05:36]
+10. Freddie The Freeloader [05:17](   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550567   (445759) от 27.09.2012
+
+Youn Sun Nah - 3 альбома (2003 - 2011) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_445759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitter Ballad [04:08]
+02. Avec le Temps [05:06]
+03. Peace [03:21]
+04. Utviklingssang [06:08]Жанр: JazzПродолжительность: 00:18:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943942   (445339) от 05.10.2015
+
+Sam Most - Musically Yours (1956) /2014, Solid Records/[FLAC|tracks+.cue]<Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stella By Starlight [05:57]
+02.Hush-A-Bye [07:02]
+03.Obvious Conclusion [04:58]
+04.Autumn Leaves [04:49](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3984D915422A9FB098EA87BEBBC739069A1DFC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943947   (445338) от 05.10.2015
 
 Blue Mitchell - Step Lightly (1963) /2015, Universal/[FLAC|tracks+.cue]<Hard Bop>
@@ -6,7 +134,7 @@ Blue Mitchell - Step Lightly (1963) /2015, Universal/[FLAC|tracks+.cue]<Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445338.jpg" />
+  <img src="Z:/picture/008/save_picture_445338.jpg" />
 </div>
 
 
@@ -35,7 +163,7 @@ Gerry Mulligan - The Sound Of Jazz (1988) Master Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445127.jpg" />
+  <img src="Z:/picture/008/save_picture_445127.jpg" />
 </div>
 
 
@@ -64,7 +192,7 @@ Ellis Larkins & Ruby Braff - Duets, Vol.1 (1956) 1999, Vanguard Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444799.jpg" />
+  <img src="Z:/picture/008/save_picture_444799.jpg" />
 </div>
 
 
@@ -93,7 +221,7 @@ Charles Lloyd & the Marvels + Lucinda Williams - Vanished Gardens (2018) Blue No
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444786.jpg" />
+  <img src="Z:/picture/008/save_picture_444786.jpg" />
 </div>
 
 
@@ -122,7 +250,7 @@ The Cees Slinger Octet - Live At The North Sea Jazz Festival (1982) Remaster, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444780.jpg" />
+  <img src="Z:/picture/008/save_picture_444780.jpg" />
 </div>
 
 
@@ -151,7 +279,7 @@ Benny Golson - Horizon Ahead (2016) HighNote Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444779.jpg" />
+  <img src="Z:/picture/008/save_picture_444779.jpg" />
 </div>
 
 
@@ -180,7 +308,7 @@ Count Basie & His Orchestra - Do You Wanna Jump...? (1938) 1989, Hep[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444778.jpg" />
+  <img src="Z:/picture/008/save_picture_444778.jpg" />
 </div>
 
 
@@ -209,7 +337,7 @@ James Moody - Young At Heart (1996) Warner[FLAC|Lossless|tracks + .cue] <Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444775.jpg" />
+  <img src="Z:/picture/008/save_picture_444775.jpg" />
 </div>
 
 
@@ -238,7 +366,7 @@ Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444771.jpg" />
+  <img src="Z:/picture/008/save_picture_444771.jpg" />
 </div>
 
 
@@ -267,7 +395,7 @@ Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444767.jpg" />
+  <img src="Z:/picture/008/save_picture_444767.jpg" />
 </div>
 
 
@@ -296,7 +424,7 @@ Avishai Cohen - Arvoles (2019) Razdaz Recordz [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444702.jpg" />
+  <img src="Z:/picture/008/save_picture_444702.jpg" />
 </div>
 
 
@@ -325,7 +453,7 @@ Peggy Lee - Mirrors (1975) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444636.jpg" />
+  <img src="Z:/picture/008/save_picture_444636.jpg" />
 </div>
 
 
@@ -354,7 +482,7 @@ Luiz Bonfa - Le roi de la Bossa Nova (1963) 2005 [WavPack|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444618.jpg" />
+  <img src="Z:/picture/008/save_picture_444618.jpg" />
 </div>
 
 
@@ -383,7 +511,7 @@ Melody Gardot - 4 альбома (2005-2009) [FLAC|track+ .cue]<Jazz, Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_444426.jpg" />
+  <img src="Z:/picture/005/save_picture_444426.jpg" />
 </div>
 
 
@@ -412,7 +540,7 @@ Grandad Turner - My Friends, My Fam (2011) Fhammond Family Ent [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443935.jpg" />
+  <img src="Z:/picture/008/save_picture_443935.jpg" />
 </div>
 
 
@@ -441,7 +569,7 @@ Imelda May - No Turning Back (2007) [FLAC|Lossless]<Blues, Jazz, Swing, Rockabil
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443384.jpg" />
+  <img src="Z:/picture/005/save_picture_443384.jpg" />
 </div>
 
 
@@ -467,7 +595,7 @@ Turk Mauro - Hittin' The Jug (1995) Milestone [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443344.jpg" />
+  <img src="Z:/picture/008/save_picture_443344.jpg" />
 </div>
 
 
@@ -496,7 +624,7 @@ Gil Coggins - Better Late Than Never (2001, 2002) 2007, Smalls Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443343.jpg" />
+  <img src="Z:/picture/008/save_picture_443343.jpg" />
 </div>
 
 
@@ -525,7 +653,7 @@ Mel Torme - The Essentials (1946 - 1962) 2002, Warner [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443342.jpg" />
+  <img src="Z:/picture/008/save_picture_443342.jpg" />
 </div>
 
 
@@ -554,7 +682,7 @@ Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443341.jpg" />
+  <img src="Z:/picture/008/save_picture_443341.jpg" />
 </div>
 
 
@@ -583,7 +711,7 @@ June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443338.jpg" />
+  <img src="Z:/picture/008/save_picture_443338.jpg" />
 </div>
 
 
@@ -612,7 +740,7 @@ Art Pepper - Gettin' Together! (1960) /1997, Victor/ [FLAC|image+.cue]<Bop, West
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443117.jpg" />
+  <img src="Z:/picture/008/save_picture_443117.jpg" />
 </div>
 
 
@@ -626,122 +754,6 @@ Art Pepper - Gettin' Together! (1960) /1997, Victor/ [FLAC|image+.cue]<Bop, West
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DCA423A1F94C04C90467EFB46E2CE4371FF7FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944282   (443115) от 06.10.2015
-
-Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.After You've Gone [05:02]
-02.Fascinating Rhythm [04:23]
-03.Brazil [04:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0C8CD6CC8B17006F74C0DD15D2335549D48EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570436   (443033) от 17.08.2022
-
-Art Davis - A Time Remembered (1995) Jazz Planet [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evidence [7:18]
-02. A flower is a lovesome thing [8:00]
-03. Driftin' [7:20]
-04. Everybody's doing it [6:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1CFD23E647FCDBE4039CE8115B7E2CF9CA3289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570381   (443032) от 17.08.2022
-
-Benny Carter - Four Classic Albums: Second Set (1954 - 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443032.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Blue Heaven [4:03]
-02. Blues In B Flat [5:46]
-03. Street Of Dreams [3:52](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C356468EF2AB1556E2D9A3245994FAD3070B211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706594   (442620) от 03.10.2013
-
-VA - Norway Nights (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cover Me With Snow   (3:44)
-02.  Merciful (Herbert's We Mix)   (6:02)
-03.  Bella   (5:48)
-04.  Out Here, In There   (5:45)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD40DC3A6F8C185F5ECD82EECD4C78889518C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

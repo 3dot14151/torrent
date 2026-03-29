@@ -1,3 +1,81 @@
+###  Публикация: 1680322   (132513) от 03.12.2023
+
+Линчеватель / Мститель / Bijillanteo / Vigilante (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows, LE-Production
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Джи Ён поступает в полицейскую академию, чтобы найти убийцу своей матери. В будни Джи Ён - обычный студент, но в выходные дни он превращается в известного тёмного героя под псевдонимом Линчеватель, который выслеживает и наказывает нарушителей закона. На основе одноимённого вебтуна.Производство: Южная Корея / Studio NЖанр: криминал, боевик, триллерРежиссер: Чхве Джон-ёльАктеры: Нам Джу-хёк, Ю Джи-тхэ, Ли Джун-хёк, Ким Со-джин, Ли До-гун, Ан Сон-бон, Ён Джэ-ук, Ли Со-хванПеревод: Многоголосый профессиональный (TVShows), Многоголосый любительский (LE-Production)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (SDH), корейские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE7178F51B0CE3D21FF6E620C0111CDC21E4C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681756   (132292) от 04.12.2023
+
+Злой дух / Демон / Akgwi / Revenant (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Всё Сведено, Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная девушка Ку Сан-ён днём работает на полставки, а по вечерам готовится к экзамену на госслужащего. Однажды открывается дверь между мирами, и в Сан-ён вселяется демон. Потустороннюю сущность может видеть Ём Хэ-сан, университетский преподаватель корейского фольклора, и к своему ужасу мужчина понимает, что это тот самый злой дух, который много лет назад убил его (   Читать дальше...   )Производство: Южная Корея / BA Entertainment, Studio SЖанр: ужасы, детективРежиссер: Ли Джон-ним, Ким Джэ-хонАктеры: Ким Тхэ-ри, О Джон-сэ, Хон Гён, Ким Хэ-сук, Пак Чи-ён, Ким Вон-хэ, Ян Хе-джи, Ли Гю-хве, Чин Сон-гю, Е Су-джонПеревод: Многоголосый любительский (Всё Сведено), двухголосый любительский (Softbox)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D3138A8B4B2029CB4B42BA38FACF55BDB8D10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643570   (132290) от 04.12.2023
+
+Моё сердце бьётся / Gaseumi ttwinda / My Heart Is Beating (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полувампир-получеловек Сон У-хёль, который жаждет стать полностью человеком и упустил свой шанс ещё 100 лет назад, заселяется в гостевой дом и знакомится с его хозяйкой Чу Ин-хэ — девушкой из бедной семьи, которой пришлось выработать бессердечие и хладнокровие.Производство: Южная Корея, KBS, Monster UnionЖанр: мелодрама, фэнтези, комедияРежиссер: Ли Хён-сок, Ли Мин-суАктеры: Тхэгён, Вон Джи-ан, Пак Кан-хён, Юн Со-хи, Юн Бён-хи, Ко Гю-пхиль, Ким Ин-гвон, Сын Ю, Пэк Со-ху, Пэк Хён-джуПеревод: Двуголосый любительский (Softbox), многоголосый любительский (DublikTV)Язык озвучки: русский, корейскийСубтитры: Русские (forced, full), английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9214147E6E92A3F2321C259B7E05849003FAD3FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681669   (132275) от 04.12.2023
 
 Большее зло / Худшее из зол / Choeakui ak / The Worst of Evil (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) TVShows
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132275.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132003.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131985.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131967.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131716.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131349.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128279.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128164.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128011.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128005.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127444.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123758.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123445.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122840.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122271.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121412.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119540.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117863.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116791.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115289.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115232.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114778.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65261.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02FFFE9B391F89B745376D88F2E3FB09C5E5513C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705377   (63610) от 08.03.2024
-
-Чингисхан / Cheng Ji Si Han / Genghis Khan (2004) DVDRip [H.264] (сезон 1, серии 1-30 из 30)
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63610.jpg" />
-</div>
-
-
-###  Подробнее
-
-800 лет назад монгольская степь была заселена множеством племен, самыми многочисленными из которых были кераиты, меркиты, татары, найманы и монголы. Эти пять крупных племен были независимыми и не подчинялись друг другу. Династия Цзинь в отношении них осуществляла политику «разделяй и властвуй», проводила разбойные набеги, сокращая население этих племен. Эта вражда (   Читать дальше...   )Производство: Китай, Монголия / China Central Television (CCTV), Inner Mongolia TelevisionЖанр: история, биография, драма, боевикРежиссер: Ван ВэньцзэАктеры: Басэн Чжабу, Сыцинь Гаова, Чжао ХэнсюаньПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, китайскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98BA834A3B778F65A19898B82F9A66D2C81F859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713481   (60624) от 06.04.2024
-
-Паразит: Серый / Gisaengsu: Deo Geurei / Parasyte: The Grey (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) LE-Production
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество подвергается нападению паразитических инопланетных организмов, которые захватывают мозг, чтобы полностью контролировать тело и пожирать других людей. Один из таких паразитов не смог установить полный контроль над своей носительницей и теперь живёт в её руке.Производство: Южная Корея, Netflix, Climax Studio, Wow PointЖанр: фантастика, боевикРежиссер: Ён Сан-хоАктеры: Чон Со-ни, Ку Гё-хван, Ли Джон-хён, Ку Щи-ён, Ким Ин-Гвон, Квон Хэ-хёПеревод: Многоголосый профессиональный (LE-Production)Язык озвучки: русский, английский, корейскийСубтитры: русские, английские (SDH), корейские (SDH), украинскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9586463D41A4B2955CCE1EA6508128C1363422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683672   (60386) от 08.04.2024
-
-Чудесные братья / Gijeokui hyeongje / Miracle Brothers (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox Стажеры
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель-неудачник Юк Дон Джу, который по уши в долгах, встречает загадочного парня Кан Сана, обладающего невероятными способностями.Производство: Южная Корея / JTBCЖанр: детектив, фэнтези, драмаРежиссер: Пак Чхан-хонАктеры: Чон У, Пэ Хён-сон, Пак Ю-рим, Ли Ги-у, Чо Бон-нэ, О Ман-сок, Со Джэ-хи, Кан Маль-гым, Ли Сон-ук, Чхве Гван-ильПеревод: Двухголосый любительский (Softbox Стажеры)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3692999B7912ABB3BAA3127361738C455D9E873
 ```
 
 https://mybot314.ru/tekegram_catalog/

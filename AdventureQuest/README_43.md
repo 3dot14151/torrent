@@ -1,3 +1,81 @@
+###  Публикация: 1066480   (411081) от 26.10.2016
+
+Full Throttle (1995) [Ru/En] (2.0) Repack R.G. Catalyst
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Full Throttle - одно из самых лучших детищ Lucas Arts. Это увлекательный, динамечный и очень кинематографичный квест. Прекрасная графика, идеальная анимация, великолепная озвучка, 3D-шные модели мотоциклов и прочих механизмов, интересный сюжет, прекрасно поставленные заставки - всё это должно, несомненно, порадовать игрока.Тип издания: RepackРазработчик: LucasArts EntertainmentЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9ECD1A34D5BFE2486B249E7E490906759A8059E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413375   (409202) от 03.10.2020
+
+The Talos Principle (2014) [Ru/Multi] (1.0) License GOG [Gold Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409202.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything).Тип издания: LicenseРазработчик: CroteamЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE82D7E9C7CE2D74DAAD61651136E2F7DC7204D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066803   (409148) от 27.10.2016
+
+Ginger: Beyond the Crystal (2016) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409148.jpg" />
+</div>
+
+
+###  Подробнее
+
+"По ту сторону кристалла" — игра в ремонт мира с персонажами, дающими навыки для победы над врагами! Мир, разрушенный взрывом кристалла, угроза для обитателей и богиня, создающая героя. Они нужны, чтобы разгадать загадки и пройти зоны уровней. Готовы оказаться по ту сторону кристалла? Города в руинах, жители исчезли, но надежда ещё есть. Джинджер должен (   Читать дальше...   )Тип издания: LicenseРазработчик: Drakhar StudioЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491125655F4FECB2504D239CD1DDE71A25564D8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066813   (409076) от 27.10.2016
 
 The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
@@ -6,7 +84,7 @@ The Deep Paths: Labyrinth Of Andokost (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409076.jpg" />
+  <img src="Z:/picture/008/save_picture_409076.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tales from the Borderlands (2014-2015) [En] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408944.jpg" />
+  <img src="Z:/picture/008/save_picture_408944.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Figment (2017) [Ru/Multi] (1.0) Repack CoolGames
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408556.jpg" />
+  <img src="Z:/picture/008/save_picture_408556.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Church in the Darkness (2019) [Ru/Multi] (1.0.8) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408300.jpg" />
+  <img src="Z:/picture/008/save_picture_408300.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Observation (2019) [Ru/Multi] (1.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407750.jpg" />
+  <img src="Z:/picture/008/save_picture_407750.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Heaven's Vault (2019) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407317.jpg" />
+  <img src="Z:/picture/008/save_picture_407317.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Runaway 3: A Twist of Fate (2011) [En] (2.0.0.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407051.jpg" />
+  <img src="Z:/picture/008/save_picture_407051.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404662.jpg" />
+  <img src="Z:/picture/008/save_picture_404662.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Danganronpa V3: Killing Harmony (2017) [En/Ja/Ch] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402891.jpg" />
+  <img src="Z:/picture/008/save_picture_402891.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401687.jpg" />
+  <img src="Z:/picture/008/save_picture_401687.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398263.jpg" />
+  <img src="Z:/picture/008/save_picture_398263.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396407.jpg" />
+  <img src="Z:/picture/008/save_picture_396407.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Alter Ego (2010) [Ru] (1.07) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394556.jpg" />
+  <img src="Z:/picture/008/save_picture_394556.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Forgotten Land (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391652.jpg" />
+  <img src="Z:/picture/008/save_picture_391652.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1 202) R
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391034.jpg" />
+  <img src="Z:/picture/008/save_picture_391034.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Artania (2017) [Ru/Multi] (1.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389473.jpg" />
+  <img src="Z:/picture/008/save_picture_389473.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389469.jpg" />
+  <img src="Z:/picture/008/save_picture_389469.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386562.jpg" />
+  <img src="Z:/picture/008/save_picture_386562.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386127.jpg" />
+  <img src="Z:/picture/008/save_picture_386127.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Deponia Dilogy / Дилогия Депонии [Ru/En] (RePack/1.3/1.1.4) 2012 |
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384669.jpg" />
+  <img src="Z:/picture/008/save_picture_384669.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Manual Samuel (2016) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384151.jpg" />
+  <img src="Z:/picture/008/save_picture_384151.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Loco Parentis (2019) [Ru/En] (1.0.0.4242) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380364.jpg" />
+  <img src="Z:/picture/008/save_picture_380364.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378323.jpg" />
+  <img src="Z:/picture/008/save_picture_378323.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73EBFF6C3D3BF7EF846996E58CA10C20614D4CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021470   (377913) от 18.10.2017
-
-The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию очередной шедевр от создателя игры "Свет", Сергея Носкова - Поезд. Буквально за час вы проживёте целую жизнь одного человека. По мере прохождения вы испытаете множество различных эмоций - страх, ненависть, радость, разочарование. Какой будет ваша жизнь, как закончится ваша история - всё зависит от принимаемых вами решений. Игра (   Читать дальше...   )Тип издания: RepackРазработчик: Носков СергейЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5896455347024D270D59B680BE5AEDD591FC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021421   (377907) от 18.10.2017
-
-The Light / Свет (2012) [Ru/En] (1.0) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами отличная философская игра от российского разработчика Сергея Носкова. Игра "Свет" представляет из себя приключение, которое выполнено в стиле игры от первого лица. Вас ожидает отлично проработанный в графическом отношении мир. Игра сделана на новом графическом движке и отлично показывает его возможности. Особенно здорово смотрится игра света (   Читать дальше...   )Тип издания: RepackРазработчик: Носков СергейЖанр: Adventure, 1st Person, IndieЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5665AFF4110F62ADD9D06759ED867899F4E72935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175730   (376124) от 19.10.2017
-
-Teenagent (1994) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376124.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тихий летний полдень двое неизвестных в темных очках и длинных плащах похищают подростка. День перестает быть томным! Сверхсекретная разведслужба RGB уже полгода расследует пропажу золотых запасов из главного банка Европы. Все безуспешно. Гадалка, к которой они обратились от безысходности, посоветовала нанять именно вас. Вы – Марк Хоппер, обычный подросток, который (   Читать дальше...   )Тип издания: LicenseРазработчик: Metropolis SoftwareЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, ПольскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
 ```
 
 https://mybot314.ru/tekegram_catalog/

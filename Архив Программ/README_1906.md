@@ -1,3 +1,296 @@
+###  Публикация: 1675862   (159229) от 11.11.2023
+
+MailWasher Pro 7.12.184 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159229.jpg" />
+</div>
+
+
+###  Подробнее
+
+MailWasher Pro позволяет пользователям просматривать письма, находящиеся на различных почтовых аккаунтах, перед тем, как скачать их себе на компьютер. Благодаря MailWasher Pro вы сможете удалить или вернуть ненужные письма обратно отправителю с сообщением о том, что адресат неизвестен.
+MailWasher Pro включает антивирусную защиту, обеспечивает доступ по POP3, IMAP4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC94B54F205E40EA9C115D7BFE7D4D68B0957967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599918   (159222) от 25.12.2022
+
+Notepad++ 8.4.8 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091EEED535CBAED596731904C13E3303E131A05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675856   (159220) от 11.11.2023
+
+DVDFab StreamFab 6.1.4.9 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159220.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB85B3D380C39875272BAB9F10D38833C5072F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676046   (159206) от 11.11.2023
+
+PIDKey Lite 1.64.4 b36 Portable by Ratiborus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159206.jpg" />
+</div>
+
+
+###  Подробнее
+
+PIDKey Lite предназначена для просмотра, обновления и сохранения в базе информации о ключах для продуктов M$.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052A171B6024706735FA9923AD30ACE0EE6F92B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675987   (159190) от 11.11.2023
+
+Topaz Photo AI 2.1.1 (x64) RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ECD8E86AFC7B4029A38E5E5127EE082FAD7546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599740   (159189) от 25.12.2022
+
+Windows 10 (v22h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_22h2_
+updated_dec_2022_x64_dvd_5e52ebd1.iso
+Отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3430CC8852D6B1EFD1BA62922362B41B2A848F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676345   (158979) от 12.11.2023
+
+n-Track Studio Suite 10.0.0.8209 (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158979.jpg" />
+</div>
+
+
+###  Подробнее
+
+n-Track Studio — кроссплатформенный аудиоредактор с возможностью многодорожечной записи звука (цифровая звуковая рабочая станция), разработанный итальянской компанией n-Track Software. Программа поддерживает неограниченное число аудио- и MIDI-дорожек и позволяет использовать различные виртуальные инструменты (VST, VST3, AU и др.). Имеет нативную версию компьютеров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6064DACA706B2C24180ED339FCA9E6106562DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676315   (158955) от 12.11.2023
+
+Perfectly Clear WorkBench 4.6.0.2614 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6051857B835CA4896833D1ACDAFED7F0F48138B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676309   (158953) от 12.11.2023
+
+Radiant Photo 1.1.2.341 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Radiant Photo - это программа для редактирования фотографий, позволяющее пользователям изменять, улучшать и систематизировать их цифровые фотографии. Он предоставляет множество инструментов для настройки цвета, яркости, контрастности, насыщенности и других свойств изображения, а также возможностей для обрезки, вращения и изменения размеров изображений. Radiant Photo (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30E6FE7FC94326AE644610FC03CA847B50CCB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676304   (158951) от 12.11.2023
+
+TweakNow WinSecret Plus! 4.9.14 RePack (& Portable) by elchupacabra [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158951.jpg" />
+</div>
+
+
+###  Подробнее
+
+TweakNow WinSecret Plus! - позволяет пользователям исследовать скрытые настройки в Windows 10/11.
+Приложение группирует множество настроек реестра и предлагает их с помощью простого и удобного пользовательского интерфейса.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80804B4AA1D9F52E326EC6EB8CF5C3837626003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600167   (158948) от 26.12.2022
+
+KORG - Wavestate Native 1.1.1 Standalone, VSTi 3, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Korg выпустила программную версию синтезатора Wavestate. По словам компании, плагин идентичен своему аппаратному аналогу, благодаря чему пользователи могут обмениваться пресетами и патчами между ними.
+В основе виртуальной версий Korg Wavestate лежат те же технологии, что и в аппаратных изданиях синтезатора. Совместимость позволяет импортировать как созданные в плагинах (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF24305AAE0EC6A11BCD34B4A7EA055C71C406BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600165   (158944) от 26.12.2022
 
 KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
@@ -6,7 +299,7 @@ KORG - Modwave Native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158944.jpg" />
 </div>
 
 
@@ -32,7 +325,7 @@ One Commander Pro 3.28.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158938.jpg" />
 </div>
 
 
@@ -59,7 +352,7 @@ RSS Guard 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158931.jpg" />
 </div>
 
 
@@ -86,7 +379,7 @@ Sumatra PDF 3.5.15264 (x64) Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158922.jpg" />
 </div>
 
 
@@ -113,7 +406,7 @@ Extreme Picture Finder 3.65.11.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158897.jpg" />
 </div>
 
 
@@ -139,7 +432,7 @@ Nitro PDF 14.17.2.29 (x64) Pro Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158864.jpg" />
 </div>
 
 
@@ -165,7 +458,7 @@ PotPlayer 221215 (1.7.21862) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158863.jpg" />
 </div>
 
 
@@ -191,7 +484,7 @@ Rainmeter 4.5.17 Build 3700 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158861.jpg" />
 </div>
 
 
@@ -217,7 +510,7 @@ IObit Smart Defrag Pro 9.2.0.323 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158859.jpg" />
 </div>
 
 
@@ -243,7 +536,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra (x86/x64) Standard [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158852.jpg" />
 </div>
 
 
@@ -269,7 +562,7 @@ AIMP 5.10 Build 2418 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158843.jpg" />
 </div>
 
 
@@ -295,7 +588,7 @@ MetaProducts Offline Explorer Enterprise 8.5.0.4972 RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158831.jpg" />
 </div>
 
 
@@ -321,7 +614,7 @@ Maxon ZBrush 2022.0.6 (x64) RePack by OctaneS [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158817.jpg" />
 </div>
 
 
@@ -347,7 +640,7 @@ foobar2000 1.6.11 DarkOne + DUIFoon Portable by MC Web (04.12.2022) (Облег�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158801.jpg" />
 </div>
 
 
@@ -373,7 +666,7 @@ MInstAll v.25.12.2022 By Andreyonohov (ISO) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158764.jpg" />
 </div>
 
 
@@ -384,297 +677,6 @@ MInstAll v.25.12.2022 By Andreyonohov (ISO) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E8D099EFA0AB510D21750B8C7F3650B46DE3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600116   (158762) от 26.12.2022
-
-MInstAll v.25.12.2022 By Andreyonohov (Unpacked) [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 25 Декабря 2022 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862D5A04A788A72D72C784F0DC89F1B1EC28649E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967188   (158698) от 20.12.2015
-
-Wise Program Uninstaller 1.83.98 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8FE95791405B9A98CF8CD6751A604A4CAD2087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967228   (158691) от 20.12.2015
-
-MediaFire 1.8.12.11026 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158691.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaFire предоставляет полный и простой сервис управления вашими цифровыми ресурсами. Когда бы и куда бы вы не пошли, MediaFire сделает так, чтобы ваши файлы были с вами.Предлагая 50GB бесплатного хранилища, MediaFire предоставляет вам постоянный доступ ко всем вашим документам, фото и видео.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDE16327B11AB06E47F5D28690E8C770B85B58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967405   (158677) от 20.12.2015
-
-GiliSoft File Lock Pro 10.1.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158677.jpg" />
-</div>
-
-
-###  Подробнее
-
-GiliSoft File Lock Pro - это утилита с помощью которой можно быстро и безопасно спрятать или закрыть доступ к файлам, папкам или целым дискам на Вашем компьютере. Для защиты файлов программа использует 256-битное AES-шифрование (Encryption Standard Adopted by the US Government). Также поддерживается защита любых портативных носителей.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD6D5C675F3AE242FBAF7B89F2E6DDF858B616A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967231   (158676) от 20.12.2015
-
-MEGA Sync Client 2.5.3 (2bc7f) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158676.jpg" />
-</div>
-
-
-###  Подробнее
-
-MEGA (файлообменник) - безопасный сервис облачного хранения и обмена файлами, который предоставляет 50 ГБ надежного хранилища бесплатно. Вы можете расширить облачное хранилище, используя платный Pro-аккаунт, с 500 ГБ до 4 ТБ.
-В отличие от многих других провайдеров облачных систем хранения данных, с использованием Mega ваши данные шифруются и расшифровываются только (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242074E01AF8BB164AAB17C895DE867CAA833B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967154   (158668) от 20.12.2015
-
-Mozilla Firefox 43.0.1 Final Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер.
-Даная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков.
-Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3809A24719F4AE03CA8BA4D7FE3E2D79B1F782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967425   (158667) от 20.12.2015
-
-Starus FAT Recovery 2.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное восстановление данных с флешки или карты памяти. Инструмент восстановит не только отдельные файлы с разрушенного тома, но и также эффективно реанимирует всю файловую структуру расположения данных флеш-накопителя.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B773671876096584AA4CAE7742067ABC3031E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967230   (158662) от 20.12.2015
-
-Microsoft OneDrive 17.3.6281.1202 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft OneDrive (ранее SkyDrive) - настольный клиент для аккаунта OneDrive, предназначенного для онлайн хранения, синхронизации и обмена файлами в Интернете.
-Вместе с аккаунтом OneDrive вам будет доступно 15 ГБ онлайн-хранилища бесплатно. Вы сможете расширить пространство за годовую подписку (1 ТБ доступен подписчикам Office 365).
-При установке клиента на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EE594983A78AF4EF4435B71B3E89C1EC8CABE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967182   (158661) от 20.12.2015
-
-VideoCacheView 2.95 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа, которая дает возможность извлечь из кэша браузера видео, сохраненное там при просмотре в сети видеороликов. Успешно работает с Internet Explorer, Microsoft Edge, Mozilla Firefox, Google Chrome, Opera и многими другими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A155B100DC66CB70F51BC314B763AB04DB5FE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967428   (158660) от 20.12.2015
-
-Starus Office Recovery 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для восстановления удаленных файлов документов в форматах распространенных офисных приложений. Встроенный инструмент для просмотра документов не требует наличия сторонних приложений или инсталляции программ из пакета Microsoft Office.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331F01A98387C101F499576D08EF43095EDDB9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967424   (158657) от 20.12.2015
-
-Starus Excel Recovery 2.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление файлов электронных таблиц Microsoft Excel и Open Office, включая файлы со сбойных, отформатированных и заново разбитых на разделы накопителей. Контентный поиск считывает информацию в низкоуровневом режиме, позволяя восстанавливать файлы в самых сложных случаях.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF67F355516DA3C33239F41061578D9BBBAE732
 ```
 
 https://mybot314.ru/tekegram_catalog/

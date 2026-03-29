@@ -1,3 +1,112 @@
+###  Публикация: 1337084   (276312) от 09.11.2019
+
+Tipard Mac Video Enhancer 9.1.22 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard Mac Video Enhancer - видеоредактор для пост обработки видео, который применяет передовую технологию, позволяющую улучшить качество исходного материала, например, улучшить качество видео, убрать различные артефакты, повысить качество видео до более высокого (от 80p до 720p, 720p до 1080p и от 1080p до 4K), удалить фоновый шум и многое другое.
+
+Отлично устраняет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tipard Studio.Поддерживаемая ОС: Mac OS X 10.7или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC24D7691C79FE500BADA035E30A923791BAD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337230   (276309) от 09.11.2019
+
+Exposure Software Eye Candy 7 v7.2.3.85 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1690C135DF57898C012495CCF7574CCDF30A800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337144   (276242) от 09.11.2019
+
+Wifi Signal Strength 1.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wifi Signal Strength - отображение состояния уровня Wifi сигнала в строке меню.
+Программа также позволяет узнать мощность сигнала и другие параметры, такие как: Ваш IP-адрес, MAC-адрес, другие доступные сети, открытые или защищенные, BSSID, RSSI, Noise, Transmit Rate, PHY, Interface mode, Security type и тд.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2019Разработчик: Appyogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAB9EE929CE4F343B069AEFB4422034233CE6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083013   (276113) от 14.12.2016
+
+Feeder 3.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes.  Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
+
+С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 декабря 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D419FCF893661A4665090B87D01C824863D752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082937   (276110) от 14.12.2016
 
 PaintCode 3.1.1 [En]
@@ -6,7 +115,7 @@ PaintCode 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276110.jpg" />
+  <img src="Z:/picture/008/save_picture_276110.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Short Menu 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276089.jpg" />
+  <img src="Z:/picture/008/save_picture_276089.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ BBEdit 11.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276086.jpg" />
+  <img src="Z:/picture/008/save_picture_276086.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ AnyTrans 5.3.0 (20161212) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276025.jpg" />
+  <img src="Z:/picture/008/save_picture_276025.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ Adobe Audition 2020 13.0.0.519 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275989.jpg" />
+  <img src="Z:/picture/008/save_picture_275989.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ Exif Editor 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275981.jpg" />
+  <img src="Z:/picture/008/save_picture_275981.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ iFinance 4.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275922.jpg" />
+  <img src="Z:/picture/008/save_picture_275922.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Lyn 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275908.jpg" />
+  <img src="Z:/picture/008/save_picture_275908.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ Pixelmator Pro 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275849.jpg" />
+  <img src="Z:/picture/008/save_picture_275849.jpg" />
 </div>
 
 
@@ -253,7 +362,7 @@ iMazing 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275793.jpg" />
+  <img src="Z:/picture/008/save_picture_275793.jpg" />
 </div>
 
 
@@ -280,7 +389,7 @@ Dead Cells v.1.5 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275760.jpg" />
+  <img src="Z:/picture/008/save_picture_275760.jpg" />
 </div>
 
 
@@ -307,7 +416,7 @@ Adobe After Effects 2020 17.0.0.557 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275753.jpg" />
+  <img src="Z:/picture/008/save_picture_275753.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ Coda 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275684.jpg" />
+  <img src="Z:/picture/008/save_picture_275684.jpg" />
 </div>
 
 
@@ -362,7 +471,7 @@ GraphicConverter 10 v10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275227.jpg" />
+  <img src="Z:/picture/008/save_picture_275227.jpg" />
 </div>
 
 
@@ -388,7 +497,7 @@ RightFont 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275223.jpg" />
+  <img src="Z:/picture/008/save_picture_275223.jpg" />
 </div>
 
 
@@ -415,7 +524,7 @@ Path Finder 8.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275208.jpg" />
+  <img src="Z:/picture/008/save_picture_275208.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ Pixelmator 3.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275202.jpg" />
+  <img src="Z:/picture/008/save_picture_275202.jpg" />
 </div>
 
 
@@ -467,7 +576,7 @@ Pixelmator Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275151.jpg" />
+  <img src="Z:/picture/008/save_picture_275151.jpg" />
 </div>
 
 
@@ -495,7 +604,7 @@ Smooze 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275024.jpg" />
+  <img src="Z:/picture/008/save_picture_275024.jpg" />
 </div>
 
 
@@ -521,7 +630,7 @@ Music Tag Editor 2 v4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275021.jpg" />
+  <img src="Z:/picture/008/save_picture_275021.jpg" />
 </div>
 
 
@@ -549,7 +658,7 @@ Athentech Perfectly Clear Complete 3.9.0.1694 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275020.jpg" />
+  <img src="Z:/picture/008/save_picture_275020.jpg" />
 </div>
 
 
@@ -577,7 +686,7 @@ FilePane 1.10.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275018.jpg" />
+  <img src="Z:/picture/008/save_picture_275018.jpg" />
 </div>
 
 
@@ -588,115 +697,6 @@ FilePane - легкий, универсальный мультиинструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5992332573C4CD40FDD0163D6D88572FA3F6D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337319   (275016) от 10.11.2019
-
-Duplicate Manager Pro 1.3.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Manager Pro обнаруживает, управляет и удаляет:
-Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
-
-Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F3343D9BFF1305B279CFD8D950CF46A3863054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337334   (275012) от 10.11.2019
-
-Wirecast Pro 13.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74814393ACAF11C6D1B2F4FA670351D79C2BFE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337445   (275005) от 10.11.2019
-
-Elimisoft App Uninstaller 2.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elimisoft App Uninstaller разумно находит ВСЕ оставшиеся файлы (кеши, журналы, настройки, отчеты о сбоях) приложения и очищает ваш Mac. Освободите это ценное дисковое пространство.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083446   (274969) от 15.12.2016
-
-KCNcrew Pack 12-15-16 + Bonus [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274969.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
-
-База серийных номеров проекта KCNcrew по состоянию на декабрь 2016 года.Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350CF8634F9B16BFBA0792952B1F6A091FF84470
 ```
 
 https://mybot314.ru/tekegram_catalog/

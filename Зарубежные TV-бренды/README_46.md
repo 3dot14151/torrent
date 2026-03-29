@@ -1,3 +1,108 @@
+###  Публикация: 705086   (694164) от 20.06.2016
+
+BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In The Huddle (2013) HDTVRip [H.264/720p-LQ] [3 серии из 3]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Жанр: Документальный, познавательный, фауна, животный мир, пингвиныПеревод: Одноголосый закадровый (любительский)Субтитры: вшитые, отключаемыеЯзык субтитров: русский, английскийПродолжительность: 3 х ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242C9114A7E46EA3A45ACE857E4AD2C58E7E80EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907375   (694035) от 20.06.2016
+
+BBC: Времена года Британии / The Great British Year (2013) BDRemux [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великобритания - островное государство, со всех сторон окруженное морями и круглый год продуваемое ветрами. Нигде в мире больше нет столь уникальных условий, порождающих непредсказуемую, постоянно меняющуюся погоду, неповторимые Британские времена года... BBC давно известна своими замечательными документальными фильмами. Новый проект телеканала, состоящий из четырех (   Читать дальше...   )Жанр: Документальный, видовойРежиссер: Джеймс БриклПеревод: Одноголосый закадровый, профессиональный | студия "Омикрон"Язык субтитров: ГолландскийПродолжительность: 03:26:44 (00:51:40 + 00:51:36 + 00:51:19 + 00:52:09)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A3A1A8DBC649ACA3B9620B156A531D2DA68B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288766   (693918) от 12.03.2019
+
+NGW: Дикая Монголия: страна крайностей. Степь / Wild Mongolia. Land of Extremes (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расположенная в самом центре Азии, Монголия является домом для одних из самых жизнеспособных, адаптировавшихся к жизни в суровых условиях животных на земле.
+Монгольская степь раскинулась между таежными лесами на севере и пустыней Гоби на юге. Это дом для животных, вся жизнь которых вращается вокруг одной жизненно необходимой для них вещи - травы.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Нейджел ЛьяциПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CCBEE60592D4D2D09E82DEBDA14629D3DA6773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288598   (693914) от 12.03.2019
+
+NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Может ли человек пробежать марафон менее, чем за 2 часа? Текущий мировой рекорд равен 02:02:57. Его установил 28 сентября 2014 года кенийский спортсмен Деннис Киметто. Однако, три атлета (Лелиса Десиса, Зерсенай Тадесе и Элиуд Кипчоге) хотят преодолеть двухчасовой баръер. Это не просто сложно, а практически невозможно...Производство: США, National Geographic Studios LLC, Dirty RobberЖанр: Документальный, спортРежиссер: Мартин Десмонд РоуПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF2746822F2D853D5B99717FCCC333681C91CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288770   (693808) от 12.03.2019
 
 Animal Planet: Живой или вымерший. Белый ньюфаундлендский волк / Extinct or Alive (2018) HDTV [H.264/1080i]
@@ -6,7 +111,7 @@ Animal Planet: Живой или вымерший. Белый ньюфаундл
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693808.jpg" />
+  <img src="Z:/picture/008/save_picture_693808.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693801.jpg" />
+  <img src="Z:/picture/008/save_picture_693801.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693790.jpg" />
+  <img src="Z:/picture/008/save_picture_693790.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693320.jpg" />
+  <img src="Z:/picture/008/save_picture_693320.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693245.jpg" />
+  <img src="Z:/picture/008/save_picture_693245.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NGW: Дикая природа Новой Зеландии: затерянный
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692892.jpg" />
+  <img src="Z:/picture/008/save_picture_692892.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692375.jpg" />
+  <img src="Z:/picture/008/save_picture_692375.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691903.jpg" />
+  <img src="Z:/picture/008/save_picture_691903.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691843.jpg" />
+  <img src="Z:/picture/008/save_picture_691843.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691841.jpg" />
+  <img src="Z:/picture/008/save_picture_691841.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691734.jpg" />
+  <img src="Z:/picture/008/save_picture_691734.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691732.jpg" />
+  <img src="Z:/picture/008/save_picture_691732.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690769.jpg" />
+  <img src="Z:/picture/008/save_picture_690769.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690666.jpg" />
+  <img src="Z:/picture/008/save_picture_690666.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690657.jpg" />
+  <img src="Z:/picture/008/save_picture_690657.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Discovery. World's TOP 5. Super Trains / Пятёрка лучших. Супер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690547.jpg" />
+  <img src="Z:/picture/008/save_picture_690547.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690102.jpg" />
+  <img src="Z:/picture/008/save_picture_690102.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689974.jpg" />
+  <img src="Z:/picture/008/save_picture_689974.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689954.jpg" />
+  <img src="Z:/picture/008/save_picture_689954.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689553.jpg" />
+  <img src="Z:/picture/008/save_picture_689553.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ NGW: Дикая природа Китая. Царство дикой приро�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689423.jpg" />
+  <img src="Z:/picture/008/save_picture_689423.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ NGW: Глубоководные гиганты (Гиганты синей без
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689316.jpg" />
+  <img src="Z:/picture/008/save_picture_689316.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ NGW: Глубоководные гиганты (Гиганты синей без
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FF5EA8C6528935C482E148A4BFFEF5E5669C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222140   (689315) от 27.04.2018
-
-NGW: Фантастические существа Мадагаскара / Madagaskar's: Fantastic Creatures (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689315.jpg" />
-</div>
-
-
-###  Подробнее
-
-После отсоединения от Африки 160 млн. лет назад животные в поисках спасения попали на Мадагаскар, где креативности эволюции не было предела.Производство: Великобритания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Колин КоллесПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AADE738CA1BA9E46852E45F4CD48CE17A3F380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134208   (688876) от 15.05.2017
-
-BBC: Невидимые города Италии / Italy's Invisible Cities (2017) SATRip [H.264] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в долгое, приятное путешествие, постепенно узнавая Италию изнутри - ее великую историю, непревзойденное искусство, исключительную природу.Производство: Великобритания, ВВСЖанр: Документальный, научно-популярный, история, исследованияРежиссер: Харви ЛиллиПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:46+00:49:28+00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596F2B3A6393F7623A42FEFDE0928E0EFDC6CA4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684304   (688500) от 23.06.2016
-
-Discovery. World's TOP 5. Super Planes / Пятёрка лучших. Супер самолёты (2012) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688500.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пятерка лучших" - это новый документальный цикл на канале Дискавери, в котором представлены самые мощные, самые быстрые, самые совершенные автомобили, самолеты и поезда. В каждом новом выпуске встретятся пять представителей своего класса, чтобы начать беспрецедентное состязание. В этом соревновании участвуют не только транспортные средства, но и крупнейшие (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, научно-познавательный, техникаРежиссер: Элйес ГабельПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A3239A159269430AEB68479626E5BDB184EE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535081   (688217) от 05.03.2022
-
-Discovery: Встреча с инопланетянами / Alien Encounters (2012-2014) WEB-DLRip (сезон 1-3, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о гипотетическом контакте человечества с инопланетянами, а также о научных исследованиях и возможных вариантах дальнейшего развития событий.Телекомпания: Karga Seven Pictures, Discovery Science ChannelЖанр: Документальный, фантастикаРежиссер: Эмре Сахин, Клинт ЛилосПеревод: Одноголосый профессиональный (Кириллица)Продолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A4838071C9B469BA9DC2E14B6376A27130F2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

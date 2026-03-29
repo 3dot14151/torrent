@@ -1,3 +1,29 @@
+###  Публикация: 1414553   (150279) от 24.12.2020
+
+Ikebukuro West Gate Park | Западные ворота парка Икэбукуро [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В токийском районе Икебукуро Нищигучи Коэн (тот самый Икебукуро Уэст Гейт Парк) живёт 20-летний Макото Мадзима, сын торговца фруктами, известный под прозвищем Решала из Икебукуро. По большей части он бездельничает вместе со своими приятелями Щуном, Масой и Такащи (последний ещё и предводитель местной банды), но иногда, как правило, помимо воли, оказывается замешан (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: детективРежиссер: Косида ТомоакиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB1281682A851023D794B1BCA7AB27C2DBF272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500859   (150244) от 22.12.2021
 
 Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Puraore! Pride of Orange / Оранжевая гордость [2021, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150244.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru / Лучший в ми�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150111.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150094.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ani Tore! XX: Hitotsu Yane no Shita de / Тренировки с аниме! XX 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149371.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Bakumatsu: Ren'ai Bakumatsu Kareshi Gaiden | Бакумацу [2018, TV, 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149284.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Kishuku Gakkou no Juliet | Boarding School Juliet | Джульетта из шк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149162.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Selection Project / Отборочный проект [2021, TV, 13] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147750.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147614.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Scarlet Nexus / Алый Нексус [2021, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147544.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita. / YuShibu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147529.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Kuma Kuma Kuma Bear / Ми-ми-ми-мишка [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147323.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Adachi to Shimamura / Adachi and Shimamura / Адати и Симамура [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147140.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146894.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Mahou Shoujo Nante Mou Ii Desu kara. Second Season / Меня достало б�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146428.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Release the Spyce / Выпустить Спайс [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146331.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Ken En Ken: Aoki Kagayaki | Xuan Yuan Sword Luminary | Меч Жёлтого и�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146308.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Ore ga Suki na no wa Imouto Dakedo Imouto ja Nai / My Sister, My Writer / Я л�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146288.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146121.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Cheating Craft / Искусство обмана [2016, TV, 12 из 12] WEB-DLRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146031.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Soul Buster: Shousei Ran / Разрушитель душ [2016, TV, 12 из 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145511.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Chuukan Kanriroku Tonegawa | Менеджер среднего звена Тон
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144920.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Akudama Drive | Акума Драйв [2020, TV, 12 из 12 эп.] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144893.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144548.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Tesla Note | Заметки Теслы [2021, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144472.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144415.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Owarimonogatari | Истории финала [2015, TV, 12 эп.] HDTV 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F45984935653BF206530E2A0294808B3F5C6692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946674   (144358) от 28.12.2015
-
-Rakudai Kishi no Cavalry / Rakudai Kishi no Eiyuutan / Chivalry of a Failed Knight / Благородство Худшего Рыцаря [2015, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощь страны определяется числом и силой рыцарей-магов, и тут Япония, как и положено, впереди планеты всей. Именно поэтому в рыцарскую школу Хагун приезжает учиться Стелла Вермиллион по прозвищу Алая Принцесса – дома талантливая девушка достигла потолка, а в стране Ямато сильных соперников хоть отбавляй, есть куда расти. Каково же было удивление 15-летней наследницы (   Читать дальше...   )Жанр: приключения, школа, этти.Режиссер: Онума СинПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975F04BF72B3ED92713A71DFA46687E69F8CEBC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

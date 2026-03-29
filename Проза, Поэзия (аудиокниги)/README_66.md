@@ -1,3 +1,56 @@
+###  Публикация: 1064418   (424223) от 21.10.2016
+
+Пол Остер | Тимбукту (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды нью-йоркский поэт Вилли Гуревич вообразил, что послан в мир Санта-Клаусом. Узрев своего патрона в телевизоре, он поменял фамилию на Сочельник и отправился по стране творить добро в компании верного пса по кличке Мистер Зельц - которому и отведена роль рассказчика. Трогательная история их странствий изложена прославленным автором "Нью-йоркской трилогии" (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 06:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268D192C84EEC18AA1F4D04D98E0B487AD394688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064358   (424218) от 21.10.2016
+
+Франсуаза Саган | Неясный профиль. Смятая постель (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь-это лабиринт, за каждым поворотом которого открываются манящие дали. И в этом лабиринте хорошо двум влюбленным сердцам. Но когда в закоулки любви проникает третий, он или разрушает иллюзии, или навсегда соединяет двух людей, созданных друг для друга.
+Там, где бушуют настоящие страсти, нет места ничтожным страстишкам - об этом романы замечательной французской (   Читать дальше...   )Жанр: Авторский сборник. РоманыПродолжительность: 15:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB32CC80860970A4C39BB1AC559C80FE10CA4D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064656   (424216) от 21.10.2016
 
 Владимир Новиков | Сентиментальный дискурс, или Роман с языком (2011) [MP3]
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424216.jpg" />
+  <img src="Z:/picture/008/save_picture_424216.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424215.jpg" />
+  <img src="Z:/picture/008/save_picture_424215.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423892.jpg" />
+  <img src="Z:/picture/008/save_picture_423892.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423796.jpg" />
+  <img src="Z:/picture/008/save_picture_423796.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423612.jpg" />
+  <img src="Z:/picture/008/save_picture_423612.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421834.jpg" />
+  <img src="Z:/picture/008/save_picture_421834.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421767.jpg" />
+  <img src="Z:/picture/008/save_picture_421767.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421491.jpg" />
+  <img src="Z:/picture/008/save_picture_421491.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421380.jpg" />
+  <img src="Z:/picture/008/save_picture_421380.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421334.jpg" />
+  <img src="Z:/picture/008/save_picture_421334.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421330.jpg" />
+  <img src="Z:/picture/008/save_picture_421330.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421320.jpg" />
+  <img src="Z:/picture/008/save_picture_421320.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419463.jpg" />
+  <img src="Z:/picture/008/save_picture_419463.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419241.jpg" />
+  <img src="Z:/picture/008/save_picture_419241.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419206.jpg" />
+  <img src="Z:/picture/008/save_picture_419206.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418853.jpg" />
+  <img src="Z:/picture/008/save_picture_418853.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418744.jpg" />
+  <img src="Z:/picture/008/save_picture_418744.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418251.jpg" />
+  <img src="Z:/picture/008/save_picture_418251.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418200.jpg" />
+  <img src="Z:/picture/008/save_picture_418200.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418107.jpg" />
+  <img src="Z:/picture/008/save_picture_418107.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417327.jpg" />
+  <img src="Z:/picture/008/save_picture_417327.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416132.jpg" />
+  <img src="Z:/picture/008/save_picture_416132.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416127.jpg" />
+  <img src="Z:/picture/008/save_picture_416127.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415843.jpg" />
+  <img src="Z:/picture/008/save_picture_415843.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7565959BFE4712829B8B3FA622EB34B0D2AD4A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065417   (414648) от 25.10.2016
-
-Дорис Лессинг | Воспоминания выжившей (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414648.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мегаполисе недалекого будущего, где правительство давно отчаялось навести порядок, где население терроризируют крысы и банды беженцев, где на улице царит бессмысленное насилие, немолодая одинокая женщина вдруг загадочным образом получает на воспитание двенадцатилетнюю девочку, которую она должна спасти от надвигающегося всеобщего хаоса. Одно из лучших произведений (   Читать дальше...   )Жанр: зарубежная прозаПродолжительность: 05:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA6F136CAF3C209FF575EA9EBFE66E7D20668E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412578   (413735) от 01.10.2020
-
-Патрик Несс | Освобождение (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413735.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Освобождение" – новая книга Патрика Несса, автора бестселлеров «Голос монстра» и «Поступь хаоса», дважды лауреата медали Карнеги за выдающийся вклад в литературу. Адам Терн – семнадцатилетний подросток из семьи священника, живущей в сельской глубинке. Больше всего на свете он хочет избавиться от гнета строгих родителей и уехать из родного городка. И один (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38F7E7D63CE57EB56DFF99226885A6DB0C31795
 ```
 
 https://mybot314.ru/tekegram_catalog/

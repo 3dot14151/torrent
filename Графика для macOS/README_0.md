@@ -1,3 +1,30 @@
+###  Публикация: 1442969   (1036055) от 27.01.2021
+
+MetaImage 1.9.8 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036055.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaImage - это идеальный инструмент для чтения, записи и редактирования метаданных изображений. Это первый редактор, который позволяет редактировать теги EXIF, IPTC и XMP, а также MakerNotes в красивом и знакомом интерфейсе.
+Приложение разработано для улучшения вашего рабочего процесса. Пользователи могут создавать и управлять пресетами. Кроме того, для географических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2021Разработчик: NeededAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF0DB4370E39B5BC6C195B2EF3C3C5C4591BD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377788   (1035678) от 28.01.2021
 
 Pantone Color Manager 2.3.5 [En]
@@ -6,7 +33,7 @@ Pantone Color Manager 2.3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035678.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Corel AfterShot Pro 3.7.0.446 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035429.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ SVGMaker 1.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033564.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ Goldie Ap‪p 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033319.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ WaiFu2‪x 2.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033299.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ AirMagic 1.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033040.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Photolemur 3 1.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032994.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Morph Age 5.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032291.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ GraphicConverter 11.8.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031223.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ Flyer Design – Flyer Template for Indeisgn 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031206.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Flyer Design – Flyer Templates for Pages 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031173.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Flyer Creator - Poster Design 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031169.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Flyer Design – Flyer Templates for Word 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031159.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ Flyer Design – Flyer Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031152.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ Brochure Design - Templates for illustrator 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031148.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ Adobe Photoshop 2020 v21.2.5
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031006.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Kodak Preps 9 v9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030880.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Hexels 3 v3.1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028910.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Picture Colorizer Pro 2.0.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028365.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ Principle 6 v6.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027252.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ Kit for Affinity-Templates 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025997.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ Acorn 6 v6.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025857.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ WidsMob ImageConvert - JPG/PNG 2.17 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025840.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ WidsMob Portrait Pro 2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025803.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Artboard 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024451.jpg" />
 </div>
 
 
@@ -649,33 +676,6 @@ Artboard – инструмент создания векторных иллюс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB40BFA8AEA32EE2968070DE94E5E96FBA45246A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457419   (1024438) от 26.03.2021
-
-WidsMob Image Viewer 2.14 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повысьте качество просмотра фотографий с помощью приложения WidsMob Image Viewer, которое позволяет просматривать одно, несколько изображений или изображения на основе папок на вашем Mac с исключительно высокой скоростью одним щелчком мыши.
-Интуитивное управление изображениями - WidsMob Viewer - единственный органайзер и менеджер фотографий, который вам нужен для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4278BDAB69BE6D4D2A13645158BA17BB2C75030
 ```
 
 https://mybot314.ru/tekegram_catalog/

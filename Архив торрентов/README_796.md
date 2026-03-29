@@ -6,7 +6,7 @@ Access to Arasaka - Aleph (2011) [FLAC|Lossless|WEB-DL]<IDM, Downtempo, Abstract
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870008.jpg" />
+  <img src="Z:/picture/008/save_picture_870008.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Telegram Desktop 1.0.13 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869975.jpg" />
+  <img src="Z:/picture/008/save_picture_869975.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Polarr Photo Editor 3.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869973.jpg" />
+  <img src="Z:/picture/008/save_picture_869973.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Razer Cortex 7.0.135.11872 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869972.jpg" />
+  <img src="Z:/picture/008/save_picture_869972.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869969.jpg" />
+  <img src="Z:/picture/008/save_picture_869969.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Geometry Solver Pro v1.30 [Ru/Multi] - приложение для решени�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869966.jpg" />
+  <img src="Z:/picture/008/save_picture_869966.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Maretimo Sessions: The Lounge Playlist, Vol. 1 (2017) [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869963.jpg" />
+  <img src="Z:/picture/008/save_picture_869963.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ RoughAnimator v1.4.1 [En/Ru] - программа для создания пок
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869962.jpg" />
+  <img src="Z:/picture/008/save_picture_869962.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869955.jpg" />
+  <img src="Z:/picture/008/save_picture_869955.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ BurnAware Professional 10.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869947.jpg" />
+  <img src="Z:/picture/008/save_picture_869947.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Grotesque 250 (Mixed by RAM , Sean Tyas & Vini Vici) (2016) [FLAC|Lossless|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869942.jpg" />
+  <img src="Z:/picture/008/save_picture_869942.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Ashampoo Photo Commander 8.1.0 RePack by MKN [Rus/Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869847.jpg" />
+  <img src="Z:/picture/008/save_picture_869847.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Armik - Enamor (2017) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic guitar>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869842.jpg" />
+  <img src="Z:/picture/008/save_picture_869842.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Panorama (Compiled by Alexsoph) (2016) [FLAC|Lossless|tracks + .cue] <Psy-P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869841.jpg" />
+  <img src="Z:/picture/008/save_picture_869841.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869835.jpg" />
+  <img src="Z:/picture/008/save_picture_869835.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Advanced Renamer 3.74 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869829.jpg" />
+  <img src="Z:/picture/008/save_picture_869829.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Mirillis Action! 1.30.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869815.jpg" />
+  <img src="Z:/picture/008/save_picture_869815.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869805.jpg" />
+  <img src="Z:/picture/008/save_picture_869805.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ PrivaZer 4.0.30 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869798.jpg" />
+  <img src="Z:/picture/008/save_picture_869798.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ LDPlayer 4.0.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869797.jpg" />
+  <img src="Z:/picture/008/save_picture_869797.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869724.jpg" />
+  <img src="Z:/picture/008/save_picture_869724.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869718.jpg" />
+  <img src="Z:/picture/008/save_picture_869718.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869708.jpg" />
+  <img src="Z:/picture/008/save_picture_869708.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Beamer 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869701.jpg" />
+  <img src="Z:/picture/008/save_picture_869701.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869699.jpg" />
+  <img src="Z:/picture/008/save_picture_869699.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Windows 10 Manager 2.0.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869696.jpg" />
+  <img src="Z:/picture/008/save_picture_869696.jpg" />
 </div>
 
 

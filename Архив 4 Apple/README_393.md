@@ -1,3 +1,115 @@
+###  Публикация: 1573058   (416681) от 29.08.2022
+
+Wondershare PDFelement Pro OCR 9.0.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416681.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.08.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458D46D075A96C7F9A27BDC53E932C44365D4B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065921   (416621) от 24.10.2016
+
+Flowstate 1.22 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flowstate: текстовый редактор, который заставит вас писать
+Все слышали и наверняка пробовали различные дзен-редакторы с минималистичным интерфейсом, приятной фоновой музычкой и всякими distraction-free-штуками.
+
+Приложение Flowstate исповедует совершенно иную философию и меняет пряник на кнут. Чтобы заставить вас писать, оно просто берёт и удаляет весь напечатанный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 сентября 2016Разработчик: Overman, LLCПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB407C14ACBD87F4AAE5D2C9592806B929C0CB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325194   (416565) от 13.09.2019
+
+Carbon Copy Cloner 5.1.11 (5795) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA59AC213209850540BA8F717A9E393E39347349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325163   (416563) от 13.09.2019
+
+DxO PhotoLab 2 ELITE Edition 2.3.1.43 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D99731CD70F0E50952F81EB487AF28EC7C9C56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325174   (416536) от 13.09.2019
 
 PlistEdit Pro 1.9.1 [En]
@@ -6,7 +118,7 @@ PlistEdit Pro 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416536.jpg" />
+  <img src="Z:/picture/008/save_picture_416536.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ Wondershare Recoverit 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416505.jpg" />
+  <img src="Z:/picture/008/save_picture_416505.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ ForkLift 3.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416371.jpg" />
+  <img src="Z:/picture/008/save_picture_416371.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Reeder 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416368.jpg" />
+  <img src="Z:/picture/008/save_picture_416368.jpg" />
 </div>
 
 
@@ -113,7 +225,7 @@ Firetask - Project-oriented GTD Task Management 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416346.jpg" />
+  <img src="Z:/picture/008/save_picture_416346.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ Alien Skin Exposure X4 Bundle 4.5.6.130 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416207.jpg" />
+  <img src="Z:/picture/008/save_picture_416207.jpg" />
 </div>
 
 
@@ -168,7 +280,7 @@ Downcast 2.9.55 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416196.jpg" />
+  <img src="Z:/picture/008/save_picture_416196.jpg" />
 </div>
 
 
@@ -196,7 +308,7 @@ A Better Finder Attributes 7 v7.02b01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416195.jpg" />
+  <img src="Z:/picture/008/save_picture_416195.jpg" />
 </div>
 
 
@@ -222,7 +334,7 @@ Cisdem Duplicate Finder 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416193.jpg" />
+  <img src="Z:/picture/008/save_picture_416193.jpg" />
 </div>
 
 
@@ -250,7 +362,7 @@ Downie 4 v4.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416190.jpg" />
+  <img src="Z:/picture/008/save_picture_416190.jpg" />
 </div>
 
 
@@ -278,7 +390,7 @@ Get Backup Pro 3 v3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416181.jpg" />
+  <img src="Z:/picture/008/save_picture_416181.jpg" />
 </div>
 
 
@@ -304,7 +416,7 @@ Adobe InDesign 2022 17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416084.jpg" />
+  <img src="Z:/picture/008/save_picture_416084.jpg" />
 </div>
 
 
@@ -330,7 +442,7 @@ Adobe After Effects 2022 22.6.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416054.jpg" />
+  <img src="Z:/picture/008/save_picture_416054.jpg" />
 </div>
 
 
@@ -357,7 +469,7 @@ NanoBrowser 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416033.jpg" />
+  <img src="Z:/picture/008/save_picture_416033.jpg" />
 </div>
 
 
@@ -383,7 +495,7 @@ EazyDraw 9 v9.7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416031.jpg" />
+  <img src="Z:/picture/008/save_picture_416031.jpg" />
 </div>
 
 
@@ -409,7 +521,7 @@ Geekbench 5 v5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416029.jpg" />
+  <img src="Z:/picture/008/save_picture_416029.jpg" />
 </div>
 
 
@@ -438,7 +550,7 @@ Adguard 2.5.0 (896) beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416024.jpg" />
+  <img src="Z:/picture/008/save_picture_416024.jpg" />
 </div>
 
 
@@ -464,7 +576,7 @@ Color Folder Master 1.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416021.jpg" />
+  <img src="Z:/picture/008/save_picture_416021.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ CleanMyMac X 4.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415925.jpg" />
+  <img src="Z:/picture/008/save_picture_415925.jpg" />
 </div>
 
 
@@ -517,7 +629,7 @@ iSkysoft iTube Studio 7.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415699.jpg" />
+  <img src="Z:/picture/008/save_picture_415699.jpg" />
 </div>
 
 
@@ -546,7 +658,7 @@ WhatSize 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415621.jpg" />
+  <img src="Z:/picture/008/save_picture_415621.jpg" />
 </div>
 
 
@@ -572,7 +684,7 @@ Studies 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415607.jpg" />
+  <img src="Z:/picture/008/save_picture_415607.jpg" />
 </div>
 
 
@@ -585,112 +697,6 @@ Studies - это приложение, чтобы помочь вам освои
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4E4DBFC48F1EC41778FDFA0AC39C38D3DC7534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251585   (415606) от 02.10.2018
-
-WebScraper 4.5.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415606.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2254BCFE9D105F68805C0B5F7CD87AED002B5D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251702   (415511) от 02.10.2018
-
-Calendar 366 II v2.3.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
-
-Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.10.2018Разработчик: n.spektorПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский, Немецкий, Французский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C3924B8B014B88A1ADEBCAAD8F0A1BC694D4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251664   (415502) от 02.10.2018
-
-Garden Planner 3.6.35 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное каждый человек, имеющий свой сад, хотел бы, чтобы его сад был самым красивым, самым уютным и гармоничным. Это только на первый взгляд кажется, что сделать дизайн садового участка легко . На самом деле здесь не все так просто, тем более если вы не профессионал в этом деле. На данный момент существует множество фирм, оказывающих услуги по ландшафтному дизайну, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Artifact InteractiveПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456D7D678E2D989758AD0167CF52D96774AEC56F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412595   (415455) от 30.09.2020
-
-JetBrains GoLand 2020.2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415455.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это IDE от JetBrains, нацеленная на создание эргономичной среды для разработки Go. IDE расширяет платформу IntelliJ с помощью кодирования и интеграции инструментов, специфичных для языка Go. IDE анализирует ваш код, ищет соединения между символами, обеспечивает завершение кода, быструю навигацию, умный анализ ошибок, форматирование и рефакторинг.Тип издания: macOS SoftwareРелиз состоялся: 16.09.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A768F23738DBD6D0E7CA9929B65F1DC9A981F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1344940   (168994) от 12.12.2019
+
+Татьяна Замировская | Земля случайных чисел [сборник] (2019) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168994.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Земля случайных чисел» – это сборник Татьяны Замировской, куда вошло 23 рассказа в жанрах социальной прозы, мистицизма и урбанистической фантастики. Действие каждой истории происходит в параллельной реальности, похожей на нашу, но имеющей ряд кардинальных отличий. Здесь возможны путешествия во времени, мир может измениться в одно мгновение, знакомые исторические (   Читать дальше...   )Жанр: Социальная фантастика, городское фэнтези, мистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4D088CECE048B7D3E5F48C3896091C38CA6BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344920   (168863) от 12.12.2019
+
+Эйлин О'Коннор | Вы признаны опасными [сборник] (2019) [EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник - первая книга проекта Елены Михалковой «Записки на полях». В книге впервые собраны вместе лучшие рассказы и заметки знаменитой писательницы, до этого публиковавшиеся на Фейсбуке и Живом Журнале под псевдонимом Эйлин О'Коннор, где у автора более сорока тысяч подписчиков.
+
+Они пришли за вашим роботом и вашей привычной жизнью. Они подсунули вам хромого (   Читать дальше...   )Жанр: Научная фантастика, социальная фантастика, мистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C881EFDA9A4EC37BDB3390919D4FAC1C67EA6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344928   (168794) от 12.12.2019
 
 Питер Уоттс | Огнепад [сборник] (2019) [EPUB]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168794.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168743.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168736.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168700.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168670.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168269.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167837.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167582.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167354.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167335.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167282.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167266.jpg" />
 </div>
 
 
@@ -330,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167242.jpg" />
 </div>
 
 
@@ -359,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167214.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ Simon Spurrier | Warhammer 40K - Xenology (2006) [PDF] [En]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167149.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167057.jpg" />
 </div>
 
 
@@ -441,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166795.jpg" />
 </div>
 
 
@@ -467,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166786.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166733.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166708.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166681.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166644.jpg" />
 </div>
 
 
@@ -598,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166639.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166511.jpg" />
 </div>
 
 
@@ -638,59 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75298C972CD45B6FB74AE3AE1043D318DD58EF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430035   (166436) от 14.12.2020
-
-Стивен Кинг | Будет кровь [сборник] (2020) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стивен Кинг – писатель, любящий традиции. И одна из самых прекрасных и почитаемых миллионами его фанатов традиций – это публикация сборников, неизменно состоящих из четырех повестей. Так, мы все хорошо знакомы с книгами «Четыре сезона», «Четыре после полуночи», «Тьма, – и больше ничего».
-И на сей раз Стивен Кинг представляет читателям именно такой сборник, где каждое (   Читать дальше...   )Жанр: Мистика, Полицейские детективы, Триллеры, УжасыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E4848253D6E358EA7A1216D72DEC3E1367C624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345469   (166417) от 15.12.2019
-
-Джон Краули | Ка: Дарр Дубраули в руинах Имра (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дарр Дубраули — первая ворона за всю историю, обладающая именем, — родился две тысячи лет назад. Однажды Дарр получает возможность рассказать свою историю. Он начинает рассказ с того момента, когда юношей спустился в подземный мир и овладел бессмертием, предназначенным для людей, задолго до того, как Юлий Цезарь пришел в кельтские земли; как он плыл на Запад в Америку (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF890C5D376B221460DD1D43B65052BE02FB08AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

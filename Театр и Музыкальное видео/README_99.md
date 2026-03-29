@@ -1,3 +1,167 @@
+###  Публикация: 1331035   (334852) от 13.10.2019
+
+Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
+Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412046   (334501) от 18.11.2011
+
+Сурганова и Оркестр / День Рождения в клубе Космонавт (13.11.2011)  WebRip <Rock>
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Увидимся скоро
+ 02.Хвала
+ 03.SanctumSancturum
+ 04.Португальская(   Читать дальше...   )Жанр: RockПродолжительность: 02:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64BD365A4B1757BEF0EE9F2F8FAD3182AB4E6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258050   (334346) от 31.10.2018
+
+Квартирник на НТВ у Маргулиса. Денис Мажуков (10.27.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334346.jpg" />
+</div>
+
+
+###  Подробнее
+
+На легендарном «Квартирнике» побывал Денис Мажуков, который подарил зрителям незабываемый концерт с зажигательными ритмами. Музыкант рассказал, как началось его увлечение рок-н-роллом и когда состоялся его дебют на телевидении. Евгений Маргулис узнал у звездного гостя, как ему удалось сделать выбор в жизни между спортом и музыкой. Денис вспомнил, что травма ноги (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3A9D77B76412A22F8FFFC36DE93B6B1A5D91F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 410771   (334220) от 18.11.2011
+
+София Ротару - Концерт в Государственном Кремлёвском Дворце (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимица миллионов, обладательница необыкновенного голоса, народная артистка СССР - София Ротару - после длительного перерыва вновь выйдет на большую сцену.01. Червона рута
+02. Меланколие
+03. Иоане
+04. Кажут все мне(   Читать дальше...   )Жанр: Концерт, PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA513E8A9090538AA400C5B8733E0EDB2652ED5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955568   (333786) от 11.11.2015
+
+Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление на канале BBC Radio 2 в январе 2013Жанр: МузыкальныйАктеры: Bon JoviПеревод: ОтсутствуетПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770E39A1483A71B4593D44710B249A30DF01DB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 412540   (332701) от 19.11.2011
+
+Старомодная комедия (1978) DVDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332701.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной пьесе А.Арбузова в постановке Московского академического театра имени Вл.Маяковского.
+Трогательная и эксцентричная кассирша цирка вечно нарушает чинный распорядок санатория. Главврач устал уже делать ей предупреждения, но постепенно он обнаруживает, что испытывает к недисциплинированной пациентке чувство, вовсе не похожее на раздражение. Так начинается (   Читать дальше...   )Производство: 1978Жанр: мелодрама, спектакльРежиссер: Андрей Гончаров, Алина КазьминаАктеры: Лидия Сухаревская, Борис ТенинПродолжительность: 00:47:13 + 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D09EAA9FCAE4723CF82890742084280E3268910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420533   (332477) от 01.11.2020
 
 Квартирник НТВ у Маргулиса. Группа Tesla Boy (31.10.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +170,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332477.jpg" />
+  <img src="Z:/picture/008/save_picture_332477.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ Bon Jovi  - Keep The Faith An Evening With Bon Jovi (1993) VHSRip [MPEG2/480i]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332459.jpg" />
+  <img src="Z:/picture/008/save_picture_332459.jpg" />
 </div>
 
 
@@ -61,7 +225,7 @@ Avril Lavigne - Live at The Roxy Theatre (2007) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_331450.jpg" />
+  <img src="Z:/picture/005/save_picture_331450.jpg" />
 </div>
 
 
@@ -92,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331052.jpg" />
+  <img src="Z:/picture/008/save_picture_331052.jpg" />
 </div>
 
 
@@ -120,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330900.jpg" />
+  <img src="Z:/picture/008/save_picture_330900.jpg" />
 </div>
 
 
@@ -149,7 +313,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330833.jpg" />
+  <img src="Z:/picture/008/save_picture_330833.jpg" />
 </div>
 
 
@@ -178,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330815.jpg" />
+  <img src="Z:/picture/008/save_picture_330815.jpg" />
 </div>
 
 
@@ -206,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330805.jpg" />
+  <img src="Z:/picture/008/save_picture_330805.jpg" />
 </div>
 
 
@@ -235,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330798.jpg" />
+  <img src="Z:/picture/008/save_picture_330798.jpg" />
 </div>
 
 
@@ -263,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330742.jpg" />
+  <img src="Z:/picture/005/save_picture_330742.jpg" />
 </div>
 
 
@@ -289,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330717.jpg" />
+  <img src="Z:/picture/008/save_picture_330717.jpg" />
 </div>
 
 
@@ -317,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329903.jpg" />
+  <img src="Z:/picture/008/save_picture_329903.jpg" />
 </div>
 
 
@@ -346,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329896.jpg" />
+  <img src="Z:/picture/008/save_picture_329896.jpg" />
 </div>
 
 
@@ -375,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329843.jpg" />
+  <img src="Z:/picture/008/save_picture_329843.jpg" />
 </div>
 
 
@@ -403,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329769.jpg" />
+  <img src="Z:/picture/008/save_picture_329769.jpg" />
 </div>
 
 
@@ -431,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329761.jpg" />
+  <img src="Z:/picture/008/save_picture_329761.jpg" />
 </div>
 
 
@@ -460,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329573.jpg" />
+  <img src="Z:/picture/008/save_picture_329573.jpg" />
 </div>
 
 
@@ -489,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329121.jpg" />
+  <img src="Z:/picture/008/save_picture_329121.jpg" />
 </div>
 
 
@@ -518,7 +682,7 @@ Alice Cooper - Live at Bonnaroo Festival 2012 DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329078.jpg" />
+  <img src="Z:/picture/008/save_picture_329078.jpg" />
 </div>
 
 
@@ -547,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328500.jpg" />
+  <img src="Z:/picture/008/save_picture_328500.jpg" />
 </div>
 
 
@@ -558,182 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955806   (328404) от 16.11.2015
-
-Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия концерта, состоявшегося 1 мая 2004 года в театре Herodes Atticus в Афинах.
-Знаменателен первым совместным выступлением Дэниела Баренбойма в качестве пианиста и сэра Саймона Рэттла в качестве дирижера. Да, и Рэттл в этом концерте дирижировал Берлинским филармоническим также впервые.
-Надо сказать, что античное окружение вносит в музыку свой особенный колорит.За (   Читать дальше...   )- Piano Concerto No. 1 in D Minor, Op. 15
-- Piano Quartet No. 1 in G Minor, Op. 25
-orch. A. SchoenbergЖанр: Classical, концерт Большого симфонического оркестраПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FD1821D8D7F5DA2E5C5A05ED7AB5AA3DB261F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956832   (327604) от 17.11.2015
-
-Clan Of Xymox "Visible" (2008) 2хDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Clips
-1.1	Heroes (Slow Version)	4:08
-1.2	Dark Mood	3:55
-1.3	Stranger	8:10(   Читать дальше...   )Жанр: Darkwawe, Gothic, ElektronicРежиссер: Ronny MooringsПеревод: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93216CFB38C5E29B7F04C89C2628F8E81ADD565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957306   (327548) от 17.11.2015
-
-Bon Jovi - Super Rock (1984) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Bon Jovi на фестивале Japan Super Rock,
-Seibu Stadium, Tokyo, Japan, 11-08-198401. She don't know me
-02. Breakout
-03. Get ready
-04. RunawayЖанр: RockПродолжительность: 00:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967E014D1639B960ABBC83230C543389A4B6BFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956696   (327495) от 17.11.2015
-
-Дима Билан - 33 (2014) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет телевизионную версию новой концертной программы Димы Билана "33". Победитель "Евровидения" и ветеран "Голоса" отметил свое 33-летие масштабным, технологичным шоу, которое не оставит равнодушными телезрителей. Помимо признанных хитов прозвучат и новые песни ("Не молчи", "Телепорт", "Ты (   Читать дальше...   )1. Против правил.
-2. Ты должна рядом быть.
-3. Часы (дуэт с Андреем Цветковым, Голос-2).
-4. Телепорт.(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EBCE10A39B1F31DE047D68A0B67D6F7C25B211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674853   (327350) от 19.11.2014
-
-The London Rock and Roll Show (1972/2005) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлена запись рок-н-ролльного буйства 5 августа 1972 г. на лондонском стадионе Уэмбли. Несмотря на не самое лучшее качество видеосъемки, концерт НЕПЕРЕДАВАЕМО ХОРОШ! Потрясающий драйв, излучаемый такими гигантами рок-н-ролла как Little Richard, Chuck Berry, Jerry Lee Lewis не оставит равнодушным ни одного фаната рок-н-ролла!. Увидев этот концерт, немного начинаешь (   Читать дальше...   )01. Houseshakers- Be-Bop-A-Lula
-02. Bo Diddley - Road Runne
-03. Bo Diddley - Bring It to Jerome
-04. Bo Diddley - Mona(   Читать дальше...   )Жанр: Концерт, Rock'n'rollПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9353F08053E576DF224943B304A3B6469BD92C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957713   (326651) от 18.11.2015
-
-Wayra - Dreams of the Wind (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326651.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом DVD , Wayra играет на индейской флейте с естественным ритмом, полный эмоций и чувствительности .... трансцендентного за пределами слов. Его музыка предлагает очаровательные звуки родных музыкальных инструментов с одиночеством земли, неба и дарами природы, наполняя сердца миролюбием, которые могут длиться всю жизнь. Музыкальные и видео клипы на этой записи (   Читать дальше...   )01. Dreams of the Wind
-02. Ghost Dance
-03. The white Feather
-04. Voices of the Wind(   Читать дальше...   )Жанр: Native American, PanfluteПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
 ```
 
 https://mybot314.ru/tekegram_catalog/

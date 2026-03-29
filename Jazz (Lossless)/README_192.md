@@ -1,3 +1,119 @@
+###  Публикация: 948334   (411788) от 20.10.2015
+
+Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cubano Chant [03:07]
+ 02.Off Shore [03:57]
+ 03.Well, You Needn't [03:19]
+ 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948604   (411612) от 20.10.2015
+
+Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Coffee [04:20]
+ 02.Monterey Theme [03:08]
+ 03.I Remember Clifford [04:19]
+ 04.Far Away Places [07:17](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C5CEFDD0EFEBA4FDFE1ADBE66984B9120F656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948255   (411605) от 20.10.2015
+
+Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014) /Fremeaux & Associes/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slipped Disc [04:25]
+ 02.Dropsy [05:14]
+ 03.Cotton Tail [04:35]
+ 04.Amen [07:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A76F9848C97FD274527123F5A15C76637F1D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948328   (411604) от 20.10.2015
+
+Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gambler's Life [06:03]
+ 02.Rhodesian Thoroughfare [06:21]
+ 03.This Year's Dream [06:25]
+ 04.Star Borne [08:21](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E33B4DF130B8E0235D949A59D25454B5D3552D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252246   (411313) от 04.10.2018
 
 Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
@@ -6,7 +122,7 @@ Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411313.jpg" />
+  <img src="Z:/picture/008/save_picture_411313.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ European Jazz Trio - An Afternoon In Amsterdam (2009) M&I [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411311.jpg" />
+  <img src="Z:/picture/008/save_picture_411311.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jimmy Forrest - Most Much! (1961) 1989, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410686.jpg" />
+  <img src="Z:/picture/008/save_picture_410686.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Booker Ervin - Groovin' High (1964) 1996, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410685.jpg" />
+  <img src="Z:/picture/008/save_picture_410685.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Andrew Hill - Eternal Spirit (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410684.jpg" />
+  <img src="Z:/picture/008/save_picture_410684.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Eddy Louiss - Recit Proche (2001) Dreyfus Jazz [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410683.jpg" />
+  <img src="Z:/picture/008/save_picture_410683.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bob Rockwell Quartet - Shades of Blue (1996) SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410682.jpg" />
+  <img src="Z:/picture/008/save_picture_410682.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sonny Stitt - Mr. Bojangles (1973) 2013, Universal [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410613.jpg" />
+  <img src="Z:/picture/008/save_picture_410613.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410612.jpg" />
+  <img src="Z:/picture/008/save_picture_410612.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410550.jpg" />
+  <img src="Z:/picture/008/save_picture_410550.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ V.A. - Chilled Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410399.jpg" />
+  <img src="Z:/picture/008/save_picture_410399.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Lina Nyberg - Open (1998) Prophone [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410333.jpg" />
+  <img src="Z:/picture/008/save_picture_410333.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Cal Tjader - Plays the Contemporary Music of Mexico and Brazil (1962) 2008, Verv
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410332.jpg" />
+  <img src="Z:/picture/008/save_picture_410332.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Ahmad Jamal - Freeflight (1971) 1993, GRP[FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410269.jpg" />
+  <img src="Z:/picture/008/save_picture_410269.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Joe Lovano Quartet - Classic! Live At Newport (2005) 2016, Blue Note[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410268.jpg" />
+  <img src="Z:/picture/008/save_picture_410268.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Great Jazz Trio - Standard Collection Volume 2 (1988) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410182.jpg" />
+  <img src="Z:/picture/008/save_picture_410182.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Scott Hamilton - Organic Duke (1994) 2000,  Concord Jazz [APE|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410101.jpg" />
+  <img src="Z:/picture/008/save_picture_410101.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Elvin Jones - The Ultimate (1968) /2014, Universal/[FLAC|tracks+.cue]<Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409811.jpg" />
+  <img src="Z:/picture/008/save_picture_409811.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Billy Taylor Trio - A Touch Of Taylor (1955) /2013, Universal/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409800.jpg" />
+  <img src="Z:/picture/008/save_picture_409800.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Pharoah Sanders - Africa (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409654.jpg" />
+  <img src="Z:/picture/008/save_picture_409654.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Gerry Mulligan - Mosaic Select 3CD (1957-1958) /2006, Mosaic Records/[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409644.jpg" />
+  <img src="Z:/picture/008/save_picture_409644.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jeff Lorber & Chuck Loeb - Bop (2015) /Agate/[FLAC|tracks+.cue]<Bop, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409540.jpg" />
+  <img src="Z:/picture/008/save_picture_409540.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jeff Lorber & Chuck Loeb - Bop (2015) /Agate/[FLAC|tracks+.cue]<Bop, Mainstream 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91501D550EDFA82746318A862B39FEB92D538147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252530   (409436) от 05.10.2018
-
-The Four Freshmen - Greatest Hits (1993) Curb Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graduation Day [3:06]
-02. Day by Day [1:59]
-03. It's a Blue World [2:58]
-04. Charmaine [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC217A6CF2B5F20BBA59D907F181B11FE116EF0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252527   (409431) от 05.10.2018
-
-John Scofield - Bar Talk (1980) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beckon Call [7:03]
-02. New Strings Attached [6:12]
-03. Never [6:49]
-04. How to Marry a Millionaire [6:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6E7D4C43CA27ECB80B636F6597CB5FF3F91F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252464   (409088) от 05.10.2018
-
-Scott Bradlee's Postmodern Jukebox - Blue Mirror (2018) [FLAC|Lossless|WEB-DL|tracks] <Swing, Vocal Jazz, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Wants to Live Forever (feat. Morgan James)
-02. Africa (feat. Casey Abrams & Snuffy Walden)
-03. Life on Mars? (feat. Olivia Kuper Harris)
-04. High & Dry (feat. Carrie Manolakos)(   Читать дальше...   )Жанр: Swing, Vocal Jazz, CoversПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44413CF13DD8A444170FA37E43C25DD16B6466B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168506   (408945) от 24.09.2017
-
-Dave Brubeck - Time Was (2005) 4CD, Proper Box [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408945.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Playland-at-the-Beach:
-01. How High the Moon [06:54]
-02. Serenade's Suite [04:35]
-03. Playland at the Beach [01:31](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 05:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA1C5D3595F897AEF14265881EAC704FC65A6A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 1042908   (573161) от 16.08.2016
+
+Футбол. Чемпионат России 2016-2017. 3-й тур. Крылья Советов - Краснодар (13.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573161.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 августа 2016, суббота. 18:00 МСК
+3-й тур
+
+Стадион: Металлург (Самара, Россия) , 9 012 зрителей (27 % при вместимости 33 000)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Тимур Журавель)Продолжительность: 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF96204787DF920E4D113DF8FDFA736ACE3C8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043433   (573160) от 16.08.2016
+
+Футбол. Чемпионат России 2016-2017. 3-й тур. Обзор матчей (15.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 3-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов)Продолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD8C7A2BA022D9915256E52FA84F6174361F4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151409   (573086) от 19.07.2017
+
+Пляжный футбол. Евролига - 2017. 2-й Этап. Назаре (Португалия). Дивизион A. Группа A. 1 тур. Греция – Украина (07.07.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573086.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 июля 2017 года. 16:15 МСК
+Евролига 2017 по пляжному футболу. 2-й Этап. Назаре (Португалия). Дивизион A
+Группа A. 1 тур
+Греция – Украина(   Читать дальше...   )Телекомпания: Beach Soccer TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C9ADB70828CA2C31291AD3D01D3D859E142FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151406   (573077) от 19.07.2017
+
+Пляжный футбол. Евролига - 2017. 1-й Этап. Белград (Сербия). Дивизион A. 3 тур. Россия – Испания (25.06.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573077.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года. 17:55 МСК
+Евролига 2017 по пляжному футболу. 1-й Этап. Белград (Сербия). Дивизион A
+3 тур
+Россия – Испания(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0752A153AAFE9390CE28F5F1C7F1B7FEEEC793D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151232   (573062) от 19.07.2017
+
+Футбол. Чемпионат Европы 2017 U-19. Финал. Португалия – Англия (15.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573062.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 июля 2017 года, суббота. 19:00 МСК
+15-й Чемпионат Европы 2017 по футболу среди юношей до 19 лет
+Финал
+Португалия – Англия(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5821863C3E782E5AFDB81A4A37163CE3B6967D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043405   (572993) от 16.08.2016
+
+Лёгкая атлетика. Олимпийские игры 2016. День 4. Утро (15.08.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572993.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 августа 2016 года, понедельник. 15:30 МСК
+Лёгкая атлетика. День 4. Утро
+
+Арена: Олимпик Стэдиум (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: 02:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01D17FB96C3C0757196A7B93083A4B75BAD7F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043435   (572992) от 16.08.2016
 
 Футбол. Чемпионат Англии 2016-2017. 1-й тур. Челси - Вест Хэм (15.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
@@ -6,7 +177,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572992.jpg" />
+  <img src="Z:/picture/008/save_picture_572992.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572980.jpg" />
+  <img src="Z:/picture/008/save_picture_572980.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572978.jpg" />
+  <img src="Z:/picture/008/save_picture_572978.jpg" />
 </div>
 
 
@@ -90,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572786.jpg" />
+  <img src="Z:/picture/008/save_picture_572786.jpg" />
 </div>
 
 
@@ -119,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572749.jpg" />
+  <img src="Z:/picture/008/save_picture_572749.jpg" />
 </div>
 
 
@@ -148,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572656.jpg" />
+  <img src="Z:/picture/008/save_picture_572656.jpg" />
 </div>
 
 
@@ -177,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572654.jpg" />
+  <img src="Z:/picture/008/save_picture_572654.jpg" />
 </div>
 
 
@@ -206,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572652.jpg" />
+  <img src="Z:/picture/008/save_picture_572652.jpg" />
 </div>
 
 
@@ -235,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572646.jpg" />
+  <img src="Z:/picture/008/save_picture_572646.jpg" />
 </div>
 
 
@@ -264,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572637.jpg" />
+  <img src="Z:/picture/008/save_picture_572637.jpg" />
 </div>
 
 
@@ -293,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572634.jpg" />
+  <img src="Z:/picture/008/save_picture_572634.jpg" />
 </div>
 
 
@@ -322,7 +493,7 @@ NG: Последние тайны Третьего рейха: Деньги Ги
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572554.jpg" />
+  <img src="Z:/picture/008/save_picture_572554.jpg" />
 </div>
 
 
@@ -348,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572174.jpg" />
+  <img src="Z:/picture/008/save_picture_572174.jpg" />
 </div>
 
 
@@ -377,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571649.jpg" />
+  <img src="Z:/picture/008/save_picture_571649.jpg" />
 </div>
 
 
@@ -403,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571571.jpg" />
+  <img src="Z:/picture/008/save_picture_571571.jpg" />
 </div>
 
 
@@ -429,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571510.jpg" />
+  <img src="Z:/picture/008/save_picture_571510.jpg" />
 </div>
 
 
@@ -458,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571387.jpg" />
+  <img src="Z:/picture/008/save_picture_571387.jpg" />
 </div>
 
 
@@ -484,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571308.jpg" />
+  <img src="Z:/picture/008/save_picture_571308.jpg" />
 </div>
 
 
@@ -510,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571306.jpg" />
+  <img src="Z:/picture/008/save_picture_571306.jpg" />
 </div>
 
 
@@ -539,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571305.jpg" />
+  <img src="Z:/picture/008/save_picture_571305.jpg" />
 </div>
 
 
@@ -552,179 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA2028996486B9613321F3275F6292B083D6AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043555   (571304) от 17.08.2016
-
-Лёгкая атлетика. Олимпийские игры 2016. День 4. Вечер (15.08.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571304.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 августа 2016 года, вторник. 02:30 МСК
-Лёгкая атлетика. День 4. Вечер
-
-Арена: Олимпик Стэдиум (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: 03:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067B54E19CCA806AE3AD6FBD94E02E58FA586737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043462   (571303) от 17.08.2016
-
-Пляжный волейбол. Олимпийские игры 2016. Мужчины. 1/4 финала. Италия - Россия (2016.08.15) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571303.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа 2016 года, понедельник.
-Мужчины. 1/4 финала. Италия - Россия
-Арена: Копакабана (Рио-де-Жанейро, Бразилия)Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29530F477EAFD66DA6A9023C132123C1F476A465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043497   (571302) от 17.08.2016
-
-Водное поло. Олимпийские игры 2016. Женщины. 1/4 финала. Россия - Испания (15.08.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571302.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 августа 2016 года, вторник. 00:20 МСК
-Женщины. 1/4 финала. Россия - Испания
-
-Арена: Олимпик Акватикс (Рио-де-Жанейро, Бразилия)Телекомпания: Матч ТВ HDЖанр: СпортПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6403638786C0663A3AAEAC3548A9B1240E2EC985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043856   (571301) от 17.08.2016
-
-Гандбол. Олимпийские игры 2016. Женщины. 1/4 финала. Россия - Ангола (16.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571301.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 августа 2016 года, среда. 02:30 МСК.
-Гандбол. Женщины. 1/4 финала.
-
-Арена: Фьюче Арена (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Артём Шмельков, Сергей Пригородкин)Продолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BA3419F6EAD93D0645A9632DC1E8FF05E5BACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043347   (571300) от 17.08.2016
-
-Велоспорт. Олимпийские игры 2016. Трек. День 4 (14.08.2016) IPTV [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571300.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 августа 2016 года, воскресенье. 23:10 МСК
-Велоспорт. Трек. День 4:
-23:10 Трек. Мужчины. Спринт. За 3-е место. Денис Дмитриев (Россия) - Мэттью Глетцер (Австралия)
-23:10 Трек. Мужчины. Спринт. Финал. Джейсон Кенни (Великобритания) - Каллум Скиннер (Великобритания)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: 02:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187BD7F29E8241542F29E714E2BA91DC64D16CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043398   (571299) от 17.08.2016
-
-Синхронное плавание. Олимпийские игры 2016. Дуэты. Техническая программа. Квалификация (15.08.2016) WEB-DL [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571299.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа 2016 года, понедельник. 17:00 МСК
-Дуэты. Техническая программа. Квалификация
-
-Арена: Мария Ленк Акватик Сентер (Рио-де-Жанейро, Бразилия)Телекомпания: Матч! Наш спортЖанр: СпортПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBF4E728CFF55230FFF0BCC883642AB9944FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,144 @@
+###  Публикация: 1482443   (22237) от 07.04.2025
+
+Zerocoder, Вадим Михалев | Зерокодер мобильных приложений [Тариф Бизнес] (2021) PCRec [AD]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в СНГ курс по сверхбыстрой разработке приложений для IOS и Android без кода.
+Стоимость курса «Бизнес» 52 700 руб.
+Начало потока 31 марта 2021.
+(   Читать дальше...   )Производство: ZerocoderЖанр: Zerocoding, разработка мобильных приложенийПродолжительность: 23:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698212   (22236) от 07.04.2025
+
+Zerocoder | Станьте профессиональным зерокодером (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22236.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЗЕРОКОДИНГ — ЭТО ВСЕРЬЁЗ И НАДОЛГО
+    ✅Зерокодинг (или low- no- code) — современный способ до 3–5 раз дешевле и до 5–10 раз быстрее создавать прототипы и полноценные масштабируемые IT-продукты, автоматизировать свою работу с помощью готовых онлайн-инструментов без кода.
+    ✅Писать код и просить что-то сделать разработчиков больше не обязательно. No-code инструменты (   Читать дальше...   )Производство: ZerocoderЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 650:26:42Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590E11FA44F4915A87AD5B5BF9E6FB827021CD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865105   (22235) от 07.04.2025
+
+Школа современных технологий | Среда знаний. Javascript и HTML5: Работа с canvas (2014) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот семинар будет полезен вам, если:
+вы уже знаете основы javascript хотя бы на базовом уровне
+хотите познакомиться с полезными новшествами языка
+вы хотите учиться быстро и эффективно (а не гугл + книги)(   Читать дальше...   )Жанр: Программирование, Javascript. HTML5Продолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCE458A5AAC7BB67686B935F29364170C5A1C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687856   (22234) от 07.04.2025
+
+Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. | Нейросети от принципов к практике (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нейросети — одна из самых перспективных технологий, предлагающая массу новых возможностей: они могут самостоятельно написать текст по заданным условиям, найти данные, написать код, сгенерировать изображение, перевести любой текст или аудио и многое другое. Нейросети развиваются быстрее, чем мы успеваем их освоить и многие испытывают затруднения при попытке использования (   Читать дальше...   )Производство: ZerocoderЖанр: Программирование, AIЯзык озвучки: РусскийПродолжительность: 16:27:41Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565099   (21893) от 10.04.2025
+
+Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический курс-профессия по зерокодингу
+За 2 месяца научитесь создавать аналоги AirBnB, Яндекс.Еда, Авито и другие востребованные сервисы без навыков программирования
+• Реальный проект | Во время курса вы создадите реальное веб-приложение, на основе которого можно реализовать любую идею
+• Быстрый старт | Вход в нишу IT за 2 месяца. Уже во время обучения вы сможете (   Читать дальше...   )Производство: ZerocoderЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 11:15:27Реклама: Присутствуют сторонние наложения и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96AA2209DE7BEA36042968816619AF23A2EC27D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790069   (21394) от 15.04.2025
 
 Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux / Router / Tailwind CSS) (2025) WEB-DL
@@ -6,7 +147,7 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21394.jpg" />
 </div>
 
 
@@ -35,7 +176,7 @@ Udemy, Антон Ларичев | Docker + Ansible - с нуля, деплой 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21076.jpg" />
 </div>
 
 
@@ -61,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20952.jpg" />
 </div>
 
 
@@ -87,7 +228,7 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20350.jpg" />
 </div>
 
 
@@ -113,7 +254,7 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20337.jpg" />
 </div>
 
 
@@ -139,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19502.jpg" />
 </div>
 
 
@@ -165,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19501.jpg" />
 </div>
 
 
@@ -194,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19326.jpg" />
 </div>
 
 
@@ -223,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19224.jpg" />
 </div>
 
 
@@ -249,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18385.jpg" />
 </div>
 
 
@@ -278,7 +419,7 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Kubernetes и H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18375.jpg" />
 </div>
 
 
@@ -305,7 +446,7 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18047.jpg" />
 </div>
 
 
@@ -331,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16639.jpg" />
 </div>
 
 
@@ -359,7 +500,7 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16460.jpg" />
 </div>
 
 
@@ -385,7 +526,7 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15917.jpg" />
 </div>
 
 
@@ -413,7 +554,7 @@ PurpleSchool, Андрей Соколов, Антон Ларичев | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15904.jpg" />
 </div>
 
 
@@ -440,7 +581,7 @@ Udemy, Julien Deville | Blender 4.4 The complete training (2025) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15789.jpg" />
 </div>
 
 
@@ -466,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15402.jpg" />
 </div>
 
 
@@ -493,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15387.jpg" />
 </div>
 
 
@@ -522,7 +663,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15222.jpg" />
 </div>
 
 
@@ -548,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15196.jpg" />
 </div>
 
 
@@ -559,136 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801125   (15192) от 09.06.2025
-
-Валерия Ананян | Нейросети для маркетплейсов и соцсетей. Тариф PRO (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для тех, кто только начинает знакомиться с искусственным интеллектом, и для тех, кто уже имеет опыт работы с ИИ, но хочет расширить свои знания и навыки.Жанр: видеокурс, обучающий курс, нейросети, маркетплейсыЯзык озвучки: русскийПродолжительность: 04:56:41Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680759   (15004) от 11.06.2025
-
-Balun.Courses, Олег Козырев | Микросервисы, как в Bigtech-компаниях (2023) WEB-DL [RU]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научись разрабатывать высокопроизводительные и масштабируемые микросервисы, как в Ozon/Яндекс/Тинькофф/Kaspersky Lab/ВКонтакте,  и увеличь свои шансы на трудоустройство  в BigTech-компанию или получение новой должности. Преподаватель – Олег Козырев – Senior Software Engineer в Avito. Более 100 часов менторства и обучения. Более 100 учеников уже обучились (   Читать дальше...   )Производство: Balun.CoursesЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 25:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151DE6C2AEBC080D80AE6C24248F169243E2F224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871950   (14375) от 17.06.2025
-
-Lynda.com | CSS с LESS и SASS (2012) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не раз ловили себя на мысли, что хотите, чтобы в CSS были такие возможности, как переменные, функции, или используемые заново классы? Теперь это реальность. LESS и Sass - это инструменты для файлов стилей CSS, называющиеся препроцессорами, которые добавляют эти возможности, и даже больше, упрощая создание сложных стилей CSS. В этом курсе автор Джо Марини представит (   Читать дальше...   )Жанр: Программирование, CSS, LESS, SASSПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521BB25B401B29A1159E3EEC8694DC2C970B6934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803332   (13839) от 22.06.2025
-
-Дмитрий Зверев | Нейросети Китая - DeepSeek и Qwen (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для эффективного развития онлайн-проекта нужно много разнообразного контента. Для постов, статей, писем рассылок и воронок продаж, рекламы и так далее. И сегодня мы получаем уникальную возможность делать больше контента за меньшее время с помощью нейросетей. Это удивительно и это уже реальность. От нее нельзя отмахнуться и сказать что-то вроде: "для меня это (   Читать дальше...   )Жанр: видеокурс, обучающий курс, нейросетиЯзык озвучки: русскийПродолжительность: 04:10:49Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5513B22776921938C6CF79BC83317B20A3ADC461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803378   (13822) от 22.06.2025
-
-Stepik, Марина Эрштейн | ИИ-помощники в подготовке публичного выступления (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный мир требует быстроты и эффективности. Искусственный интеллект уже активно используется в самых разных сферах, и ораторское мастерство — не исключение. С помощью ИИ можно за считанные минуты создать отличный текст, подготовить убедительные аргументы, настроить эмоциональную подачу и даже смоделировать реакцию аудитории. На курсе вы узнаете о том, как и (   Читать дальше...   )Производство: StepikЖанр: видеокурс, обучающий курс, нейросети, ИИЯзык озвучки: русскийПродолжительность: 01:49:10Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

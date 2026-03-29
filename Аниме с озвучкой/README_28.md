@@ -1,3 +1,29 @@
+###  Публикация: 817779   (543965) от 01.09.2014
+
+Mikakunin de Shinkoukei / Engaged to the Unidentified / Помолвлена с незнакомцем [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кобэни Ёномори, симпатичная девушка и отличная хозяйка, получила на 16-й день рождения самый необычный подарок. Мать объявила, что по слову покойного деда, главы клана, Кобэни с детства помолвлена с наследником семьи Мицуминэ, своим ровесником по имени Хакуя. Сам суженый знатного рода, но вырос в горной деревне, и, чтобы обрести городской шик и приобщиться к цивилизации, отныне будет жить с ними – а вот, кстати, и он. Окончательно добило Ёномори-младшую явление вихря энергии в виде малышки Масиро Мицуминэ, которая (   Читать дальше...   )Жанр: комедия, повседневность, романтикаРежиссер: Фудзивара ЁсиюкиПеревод: Firegorn-TeamФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAC488221D3367D9ECFBF267B8DF42309CE7252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696397   (539589) от 03.09.2013
 
 Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080p raw+rus
@@ -6,7 +32,7 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539589.jpg" />
+  <img src="Z:/picture/008/save_picture_539589.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Shingeki no Kyojin Season 3 / Attack on Titan / Атака титанов [ТВ-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535644.jpg" />
+  <img src="Z:/picture/008/save_picture_535644.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533281.jpg" />
+  <img src="Z:/picture/008/save_picture_533281.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531950.jpg" />
+  <img src="Z:/picture/008/save_picture_531950.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Kill la Kill / Крошить-кромсать [2013, TV, 24 ep] BDRip Hi10p 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529572.jpg" />
+  <img src="Z:/picture/008/save_picture_529572.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Darling in the Franxx / Возлюбленный во «ФранКс» [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528456.jpg" />
+  <img src="Z:/picture/008/save_picture_528456.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527626.jpg" />
+  <img src="Z:/picture/008/save_picture_527626.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526940.jpg" />
+  <img src="Z:/picture/008/save_picture_526940.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526937.jpg" />
+  <img src="Z:/picture/008/save_picture_526937.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524098.jpg" />
+  <img src="Z:/picture/008/save_picture_524098.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524097.jpg" />
+  <img src="Z:/picture/008/save_picture_524097.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523309.jpg" />
+  <img src="Z:/picture/008/save_picture_523309.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522559.jpg" />
+  <img src="Z:/picture/008/save_picture_522559.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521453.jpg" />
+  <img src="Z:/picture/008/save_picture_521453.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518556.jpg" />
+  <img src="Z:/picture/008/save_picture_518556.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Yowamushi Pedal: Glory Line / Трусливый велосипедист: Че�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515742.jpg" />
+  <img src="Z:/picture/008/save_picture_515742.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515697.jpg" />
+  <img src="Z:/picture/008/save_picture_515697.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513325.jpg" />
+  <img src="Z:/picture/008/save_picture_513325.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Durarara!!x2 Shou / Дюрарара!! 2 (сезон первый) [2015, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512485.jpg" />
+  <img src="Z:/picture/008/save_picture_512485.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Aldnoah.Zero / Алдноа.Зеро (ТВ-2) [2015, TV, 12 ep] BDRip Hi10p 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512481.jpg" />
+  <img src="Z:/picture/008/save_picture_512481.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509915.jpg" />
+  <img src="Z:/picture/008/save_picture_509915.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Soredemo Sekai wa Utsukushii / SoreSeka / И всё-таки мир прекра
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509836.jpg" />
+  <img src="Z:/picture/008/save_picture_509836.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501913.jpg" />
+  <img src="Z:/picture/008/save_picture_501913.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501912.jpg" />
+  <img src="Z:/picture/008/save_picture_501912.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501880.jpg" />
+  <img src="Z:/picture/008/save_picture_501880.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ Hoshi o ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08E45C2F9E93BADE1A63DA246F7DAABC1731BDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543912   (499259) от 19.07.2022
-
-Тайна куноити Цубаки | Kunoichi Tsubaki no Mune no Uchi | In the Heart of Kunoichi Tsubaki [2022, TV, 13 из 13] WEBRip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В изолированном клане Аканэ, состоящем исключительно из девушек, обучаются молодые девушки-ниндзя — куноити. В клане действует одно правило, которого должны придерживаться все без исключений: «Мужчины опасны и любое взаимодействие с ними запрещено». Цубаки — перспективная ученица с многообещающим будущим, но у неё начинает появляется странное чувство в сердце... (   Читать дальше...   )Жанр: КомедияРежиссер: Какути ТакудайЯзык озвучки: Русский многоголосый, закадровый (SHIZA Project)Субтитры: Русские (софтсаб на надписи)
- - не во всех сериях вообще есть, все вопросы к (SHIZA Project)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEFE0B8AF1C568DB4D24BF8F092FC1C871FD10C
 ```
 
 https://mybot314.ru/tekegram_catalog/

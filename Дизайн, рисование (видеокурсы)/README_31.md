@@ -1,3 +1,31 @@
+###  Публикация: 1528331   (734889) от 01.02.2022
+
+Артём Слаква | Инструменты моделирования в Blender 2.78 (2016) PCRec [видеоуроки к книге]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоуроки к книге «Инструменты моделирования в Blender».
+
+Многое, за что можно поругать Blender, но лишь отчаянный станет критиковать его возможности моделирования объектов. Он неоднократно доказал свою гибкость и удобство при работе с объектами, и не останавливается на достигнутом. Но даже те, кто создают модели с его помощью ежедневно, не всегда знают всех его (   Читать дальше...   )Производство: Blender3DЖанр: 3D моделированиеЯзык озвучки: Озвучки нет, только музыкаПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D33B160A01B95989A507E07414E931A6FE1632B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528246   (734836) от 01.02.2022
 
 Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
@@ -6,7 +34,7 @@ Motion Design School | Animated Typefaces with Animography (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734836.jpg" />
+  <img src="Z:/picture/008/save_picture_734836.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734832.jpg" />
+  <img src="Z:/picture/008/save_picture_734832.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734827.jpg" />
+  <img src="Z:/picture/008/save_picture_734827.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ Motion Design School | CG Adventure (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734820.jpg" />
+  <img src="Z:/picture/008/save_picture_734820.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734404.jpg" />
+  <img src="Z:/picture/008/save_picture_734404.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Udemy, Jan Boode | Fighter Girl Character in Blender 2.91 Tutorial (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733925.jpg" />
+  <img src="Z:/picture/005/save_picture_733925.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733801.jpg" />
+  <img src="Z:/picture/008/save_picture_733801.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733720.jpg" />
+  <img src="Z:/picture/008/save_picture_733720.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733695.jpg" />
+  <img src="Z:/picture/008/save_picture_733695.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ Skillshare, Miguel Nogueira | Realistic Character Design for Games (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733510.jpg" />
+  <img src="Z:/picture/005/save_picture_733510.jpg" />
 </div>
 
 
@@ -278,7 +306,7 @@ Skillshare, Neil Bettison | Blender 3 The Ultimate Medieval Scene Course (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733509.jpg" />
+  <img src="Z:/picture/005/save_picture_733509.jpg" />
 </div>
 
 
@@ -307,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733336.jpg" />
+  <img src="Z:/picture/005/save_picture_733336.jpg" />
 </div>
 
 
@@ -333,7 +361,7 @@ CGCircuit, Matt Skonicki | Scratch to Substance Volume 2 (2018) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733077.jpg" />
+  <img src="Z:/picture/008/save_picture_733077.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733005.jpg" />
+  <img src="Z:/picture/008/save_picture_733005.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Rebelway, Igor Zanic | Water FX in Houdini (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732627.jpg" />
+  <img src="Z:/picture/008/save_picture_732627.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 2: Surface Detailing (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732455.jpg" />
+  <img src="Z:/picture/008/save_picture_732455.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Grant Warwick | Mastering Vray Part 1-12 (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732451.jpg" />
+  <img src="Z:/picture/008/save_picture_732451.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Pluralsight, Winston Powell | Game Character Rigging Fundamentals (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732443.jpg" />
+  <img src="Z:/picture/008/save_picture_732443.jpg" />
 </div>
 
 
@@ -496,7 +524,7 @@ VFX learning, Amin Sadeghvand | Advanced Facial Rig in Maya 2018 (2018) PCRec [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732442.jpg" />
+  <img src="Z:/picture/008/save_picture_732442.jpg" />
 </div>
 
 
@@ -522,7 +550,7 @@ The Gnomon Workshop, Perry Leijten | Creature Rigging for Production (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732414.jpg" />
+  <img src="Z:/picture/008/save_picture_732414.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ Mold3d academy, Gio Nakpil | Master organic Modeling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732406.jpg" />
+  <img src="Z:/picture/008/save_picture_732406.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ Udemy, Yassine Larayedh | The Ultimate Guide to 3D Environments in Blender 3.0 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732402.jpg" />
+  <img src="Z:/picture/008/save_picture_732402.jpg" />
 </div>
 
 
@@ -602,7 +630,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 5: Imaginary Subjects (2016) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728693.jpg" />
+  <img src="Z:/picture/008/save_picture_728693.jpg" />
 </div>
 
 
@@ -628,7 +656,7 @@ Udemy, Nexttut | Introduction to Blender 3.0 (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728565.jpg" />
+  <img src="Z:/picture/008/save_picture_728565.jpg" />
 </div>
 
 
@@ -655,7 +683,7 @@ Gumroad, Gianpietro "Ganjica" Fabre | Wastelander - Texture Breakdown in Substan
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728451.jpg" />
+  <img src="Z:/picture/008/save_picture_728451.jpg" />
 </div>
 
 
@@ -667,32 +695,6 @@ Gumroad, Gianpietro "Ganjica" Fabre | Wastelander - Texture Breakdown in Substan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD056224FC56DF7491E9149272A6459B33F40330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530594   (728450) от 11.02.2022
-
-CGMA, Tyler Edlin | Fundamentals of Design with Tyler Edlin (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728450.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни дизайн всегда вокруг нас. Люди, одежда, здания, транспорт и т.д. Как художники и дизайнеры мы должны разбираться во всех аспектах. Хороший дизайн включает в себя планирование и организацию рабочего процесса, наравне с теоретическими знаниями. В течение следующих 8 недель мы будем разбирать основные принципы дизайна, обсуждать техники и подходы. По возможности (   Читать дальше...   )Производство: CGMAЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CF1704BB26D20CD46D574297962D5FC774C3B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

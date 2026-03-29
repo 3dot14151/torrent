@@ -1,3 +1,55 @@
+###  Публикация: 1046283   (551628) от 27.08.2016
+
+Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) [Mod] Unofficial
+
+>>Win Старые Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами продолжение великолепного экшена из серии "Star Wars Jedi Knight: Jedi Academy", в котором вам предлагается пройти 13 новых уровней, сразиться с новыми противниками и выполнить еще более увлекательную и интригующую миссию. Escape Yavin IV - одно из самых глобальных дополнении к популярной "Star Wars: Jedi Academy".Тип издания: UnofficialРазработчик: Raven SoftwareЖанр: Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309440   (550862) от 19.06.2019
+
+Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта планета слишком тесна для вас троих. Несмотря на то, что война превратила Землю в пустыню, три группировки – «Выжившие», «Мутанты» и роботы Серии 9 – по-прежнему яростно дерутся за территорию и готовы повторить ядерный армагеддон, чтобы выиграть войну. Вы тоже не прочь урвать себе кусочек планеты, для чего вооружились танками и собрали армию наемников. Сражайтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Beam SoftwareЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046932   (550730) от 28.08.2016
 
 Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License GOG
@@ -6,7 +58,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550730.jpg" />
+  <img src="Z:/picture/008/save_picture_550730.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550723.jpg" />
+  <img src="Z:/picture/008/save_picture_550723.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546261.jpg" />
+  <img src="Z:/picture/008/save_picture_546261.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546099.jpg" />
+  <img src="Z:/picture/008/save_picture_546099.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545402.jpg" />
+  <img src="Z:/picture/008/save_picture_545402.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543378.jpg" />
+  <img src="Z:/picture/008/save_picture_543378.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542208.jpg" />
+  <img src="Z:/picture/008/save_picture_542208.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542087.jpg" />
+  <img src="Z:/picture/008/save_picture_542087.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540418.jpg" />
+  <img src="Z:/picture/008/save_picture_540418.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540331.jpg" />
+  <img src="Z:/picture/008/save_picture_540331.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Prehistorik 2 (1993) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540323.jpg" />
+  <img src="Z:/picture/008/save_picture_540323.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Prehistorik (1991) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540318.jpg" />
+  <img src="Z:/picture/008/save_picture_540318.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537883.jpg" />
+  <img src="Z:/picture/008/save_picture_537883.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537771.jpg" />
+  <img src="Z:/picture/008/save_picture_537771.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537023.jpg" />
+  <img src="Z:/picture/008/save_picture_537023.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536816.jpg" />
+  <img src="Z:/picture/008/save_picture_536816.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536088.jpg" />
+  <img src="Z:/picture/008/save_picture_536088.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534688.jpg" />
+  <img src="Z:/picture/008/save_picture_534688.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534677.jpg" />
+  <img src="Z:/picture/008/save_picture_534677.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534069.jpg" />
+  <img src="Z:/picture/008/save_picture_534069.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533842.jpg" />
+  <img src="Z:/picture/008/save_picture_533842.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532310.jpg" />
+  <img src="Z:/picture/008/save_picture_532310.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532303.jpg" />
+  <img src="Z:/picture/008/save_picture_532303.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532191.jpg" />
+  <img src="Z:/picture/008/save_picture_532191.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533378   (532188) от 10.08.2012
-
-Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kirill Games
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Различные формы изменения человеческого сознания такие как медитация, наркотики или телевидение - всё это остается в прошлом. Выведена новая формула - электронная смесь галлюцинаций и сновидений которая растворит зыбкую грань между мирами. Мы назвали её ЛИАТ. Лиат - это чистый квест, где действие происходит в сказочном мире. Технологии в этой игре немного отличаются от традиционных квестовых 'движков' - переходы между фонами теперь объединяются движущейся камерой. Следовательно, когда игрок перемещается в сцене, переход на следующий экран достоверно изображается перелётом (не скроллинг!) камеры для того, чтобы создать полностью связанную картину игры. Разрешение 640x480 точек позволяет показать все авторские детали и фотореализм фонов, чтобы вы смогли поверить в реальность этого мира.Тип издания: RePackЖанр: Квест, ПриключениеЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063463   (531956) от 04.07.2019
-
-Transport Giant (2004) [Ru/Multi] (2.30) License PROPHET [Steam Edition]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transport Giant - компьютерная игра, экономическая стратегия в реальном времени. Игрок выступает в качестве управляющего транспортной компании и пытается получить максимальную прибыль за счёт доставки пассажиров и грузов различными видами транспорта. Ремейк игры Transport Tycoon.Середина XIX века - эпоха стремительного развития промышленности и торговли, время роста (   Читать дальше...   )Тип издания: LicenseРазработчик: JoWooD Studio EbenseeЖанр: Strategy (RTS)Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
 ```
 
 https://mybot314.ru/tekegram_catalog/

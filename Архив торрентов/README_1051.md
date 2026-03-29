@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806088.jpg" />
+  <img src="Z:/picture/008/save_picture_806088.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806087.jpg" />
+  <img src="Z:/picture/008/save_picture_806087.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806086.jpg" />
+  <img src="Z:/picture/008/save_picture_806086.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806085.jpg" />
+  <img src="Z:/picture/008/save_picture_806085.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806084.jpg" />
+  <img src="Z:/picture/008/save_picture_806084.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ori Uplift - Uplifting Only Episode 215 (2017) [MP3|192 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806083.jpg" />
+  <img src="Z:/picture/008/save_picture_806083.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806078.jpg" />
+  <img src="Z:/picture/008/save_picture_806078.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Text Editor Pro 9.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806034.jpg" />
+  <img src="Z:/picture/008/save_picture_806034.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Pixelmator Pro 1.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806032.jpg" />
+  <img src="Z:/picture/008/save_picture_806032.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Revo Uninstaller Free 2.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806024.jpg" />
+  <img src="Z:/picture/008/save_picture_806024.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ Display Driver Uninstaller 18.0.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806020.jpg" />
+  <img src="Z:/picture/008/save_picture_806020.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Wise Auto Shutdown 1.7.7.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806019.jpg" />
+  <img src="Z:/picture/008/save_picture_806019.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Topaz DeNoise AI 3.3.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806014.jpg" />
+  <img src="Z:/picture/008/save_picture_806014.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PDF-XChange PRO 9.2.358.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806012.jpg" />
+  <img src="Z:/picture/008/save_picture_806012.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Best Of Crystalclouds Recordings Vol. 1 (Mixed by Angelica S & Science Deal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805998.jpg" />
+  <img src="Z:/picture/008/save_picture_805998.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805997.jpg" />
+  <img src="Z:/picture/008/save_picture_805997.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Trance Top 40 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805992.jpg" />
+  <img src="Z:/picture/008/save_picture_805992.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Icon Slate 4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805991.jpg" />
+  <img src="Z:/picture/008/save_picture_805991.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ iA Writer 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805987.jpg" />
+  <img src="Z:/picture/008/save_picture_805987.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805986.jpg" />
+  <img src="Z:/picture/008/save_picture_805986.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mr.Kitty - Life (North American Version) (2014) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805982.jpg" />
+  <img src="Z:/picture/008/save_picture_805982.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805976.jpg" />
+  <img src="Z:/picture/008/save_picture_805976.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Ian Hawgood - Wolven (A Modern Interpretation) (2013) [FLAC|Lossless]<Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805949.jpg" />
+  <img src="Z:/picture/008/save_picture_805949.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805911.jpg" />
+  <img src="Z:/picture/008/save_picture_805911.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805903.jpg" />
+  <img src="Z:/picture/008/save_picture_805903.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805902.jpg" />
+  <img src="Z:/picture/008/save_picture_805902.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1123934   (768226) от 26.01.2019
+
+Thief 2: The Metal Age / Thief 2: Эпоха металла (2000) [Multi] (1.26ND) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_768226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Thief™ II: The Metal Age предоставит вам шанс вновь выйти на мрачные улицы Города, преобразившиеся с приходом к власти Ордена Механистов – нового культа, который потеснил и принял в свои ряды Хаммеритов. В новом мире камер и роботов на паровом ходу Гаррету предстоит встретиться с новым врагом – шерифом Горманом Труартом, служителем закона, задумавшим избавить (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36591EBCEF0BC70E03FEC6173DD01AE81F78A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125750   (767716) от 15.04.2017
+
+Codename: Iceman (1990) [En] (1.033) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ныне практически забытый, а в своё время – почти культовый шпионский квест от Sierra. Вам предстоит играть за секретного агента Джонни Вестланда, отправленного на подводной лодке в Тунис, чтобы разведать обстановку около недавно обнаруженного крупного нефтяного месторождения и таинственных слухов вокруг него. Впрочем, это лишь начало: потом вам предстоит разоблачить (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: AdventureЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C18A880570B557BD90E11EB5199AB9B829ABAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393617   (766730) от 01.07.2020
 
 Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition]
@@ -6,7 +58,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766730.jpg" />
+  <img src="Z:/picture/008/save_picture_766730.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765991.jpg" />
+  <img src="Z:/picture/008/save_picture_765991.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Western Outlaw: Wanted Dead or Alive / Отчаянный (2003) [Ru/En] (1.0) U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765987.jpg" />
+  <img src="Z:/picture/008/save_picture_765987.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764148.jpg" />
+  <img src="Z:/picture/008/save_picture_764148.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763123.jpg" />
+  <img src="Z:/picture/008/save_picture_763123.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Crystal Key 2:The Far Realm / Evany: Key to a Distant Land / Кристальн�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762462.jpg" />
+  <img src="Z:/picture/008/save_picture_762462.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761032.jpg" />
+  <img src="Z:/picture/008/save_picture_761032.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757076.jpg" />
+  <img src="Z:/picture/005/save_picture_757076.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756434.jpg" />
+  <img src="Z:/picture/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Soldier of Fortune: Payback / Солдат Удачи: Расплата [Ru] (L)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754058.jpg" />
+  <img src="Z:/picture/005/save_picture_754058.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Praetorians (2003) [En] (1.04) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747477.jpg" />
+  <img src="Z:/picture/008/save_picture_747477.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747473.jpg" />
+  <img src="Z:/picture/008/save_picture_747473.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747391.jpg" />
+  <img src="Z:/picture/008/save_picture_747391.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ UAZ Racing 4x4 / Полный привод: УАЗ 4x4 [Ru] (L) 2006
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747160.jpg" />
+  <img src="Z:/picture/005/save_picture_747160.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742018.jpg" />
+  <img src="Z:/picture/008/save_picture_742018.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742007.jpg" />
+  <img src="Z:/picture/008/save_picture_742007.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742006.jpg" />
+  <img src="Z:/picture/008/save_picture_742006.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739937.jpg" />
+  <img src="Z:/picture/008/save_picture_739937.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738622.jpg" />
+  <img src="Z:/picture/008/save_picture_738622.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730279.jpg" />
+  <img src="Z:/picture/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726132.jpg" />
+  <img src="Z:/picture/008/save_picture_726132.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721942.jpg" />
+  <img src="Z:/picture/008/save_picture_721942.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719992.jpg" />
+  <img src="Z:/picture/008/save_picture_719992.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714037.jpg" />
+  <img src="Z:/picture/008/save_picture_714037.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130821   (712270) от 03.05.2017
-
-The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь к блистательным истокам знаменитой серии Journeyman Project в этой улучшенной версии, выпущенной к годовщине игры. Приготовьтесь к путешествию во времени в качестве Агента 5, который отчаянно пытается остановить таинственного террориста, ответственного за серию «разрывов» в пространственно-временном континууме. Побывайте в удивительных мирах, где вас ждут (   Читать дальше...   )Тип издания: LicenseРазработчик: Presto StudiosЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8892788555FF5FC81332839D66F0396183AC59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532814   (710319) от 21.02.2022
-
-Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в мир Древнего Египта, начиная с эпохи пирамид и заканчивая последними годами Нового царства. Вам подвластны все сферы жизни этой экзотической страны – от религии до торговли с далекими городами. Создавайте земледельческие хозяйства в долине Нила и откройте для себя важнейшую роль, которую эта река с ее непредсказуемыми разливами играла в жизни египтян. (   Читать дальше...   )Тип издания: LicenseРазработчик: Impressions GamesЖанр: Стратегия, Симулятор, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

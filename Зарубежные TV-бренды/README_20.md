@@ -1,3 +1,108 @@
+###  Публикация: 207124   (829565) от 16.03.2017
+
+NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (1991) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о новом оружии, с помощью которого Гитлер надеялся выиграть войну. Было ли оно эффективным или же в нем были технические дефекты?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381129   (829185) от 05.05.2020
+
+NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1080p] (сезон 2, серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Хэйзен Одел и он - инструктор по выживанию и проводник по дикой местности. Он жил и обучался в разных племенах по всему миру, благодаря чему он  овладел удивительными методами выживания в природе, свойственных коренному населению. Теперь он путешествует по самым удаленным уголкам планеты, чтобы подвергнуть суровым испытаниям свои знания, навыки и выносливость (   Читать дальше...   )Производство: Великобритания, Icon Films, National Geographic Channel InternationalЖанр: Документальный, приключения, экстримРежиссер: Саймон Мюриэль, Алекс Паркинсон, Бен Саутуэлл, Алистэр Смит, Хонор ПитерсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BE77F76F15079E1E4B1CD9633732A789DD0A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506184   (828481) от 11.04.2016
+
+Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/1080i] (3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Равнина Серенгети, восточная Африка, время здесь делится не только на день и ночь, но и на периоды ливневых дождей и обжигающей засухи. Животные обитающие в этих экстремальных условиях, также смертоносны как и климат. Это мир туманных высокогорий, широких долин и бескрайних саванн, и борьба за выживание здесь не прекращается ни на минуту! В это серии Вы увидите степную (   Читать дальше...   )Жанр: документальныйПеревод: Профессиональный одноголосыйСубтитры: Голландские вшитыеПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F3181E27BAD3DE436EF186B926E5CD64A4BE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312724   (828273) от 23.03.2011
+
+BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый 4-х серийный документальный фильм о природе красивейших островов Карибского моря и их необычных обитателях с комментариями Николая Дроздова.
+Эти волшебные острова находятся в Карибском море между Северной и Южной Америкой. Любой из островов Карибского бассейна — райское место для отдыха: белоснежные песчаные пляжи и изумрудные лагуны с коралловыми рифами (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, Познавательный, ПриродаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4x ~00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968F006F26B6D6892CBFBE6BD07A7A2582292F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115062   (827896) от 17.03.2017
 
 NG: Панорама 360° Объект всемирного наследия / Access 360° World Heritage (2012-2013) BDRip [H.264/720p]  (сезон 1, серии 1-2; 4-9 из 9)
@@ -6,7 +111,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827896.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827764.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824632.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824387.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824018.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822317.jpg" />
+  <img src="Z:/picture/008/save_picture_822317.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822187.jpg" />
+  <img src="Z:/picture/008/save_picture_822187.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821958.jpg" />
+  <img src="Z:/picture/008/save_picture_821958.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821481.jpg" />
+  <img src="Z:/picture/008/save_picture_821481.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820974.jpg" />
+  <img src="Z:/picture/008/save_picture_820974.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820971.jpg" />
+  <img src="Z:/picture/008/save_picture_820971.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820961.jpg" />
+  <img src="Z:/picture/008/save_picture_820961.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819260.jpg" />
+  <img src="Z:/picture/008/save_picture_819260.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819248.jpg" />
+  <img src="Z:/picture/008/save_picture_819248.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819162.jpg" />
+  <img src="Z:/picture/008/save_picture_819162.jpg" />
 </div>
 
 
@@ -407,7 +512,7 @@ BBC: Содержанки: настоящая цена спонсорских о
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819087.jpg" />
+  <img src="Z:/picture/008/save_picture_819087.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ BBC. Панорама: Неонацизм в Германии. Новая вол
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818801.jpg" />
+  <img src="Z:/picture/008/save_picture_818801.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818774.jpg" />
+  <img src="Z:/picture/008/save_picture_818774.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818561.jpg" />
+  <img src="Z:/picture/008/save_picture_818561.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ Discovery: Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818527.jpg" />
+  <img src="Z:/picture/008/save_picture_818527.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817592.jpg" />
+  <img src="Z:/picture/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817504.jpg" />
+  <img src="Z:/picture/008/save_picture_817504.jpg" />
 </div>
 
 
@@ -576,111 +681,6 @@ BBC: Признания серийного убийцы: Сэмюэл Литтл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9927F4A54351E1B08372EFCD00BF358F505AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755261   (817461) от 17.04.2016
-
-History Channel. Островное помешательство Гитлера / Hitler's Island Madness (2012) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нормандские острова стали первым и единственным регионом Британии, сломленным адской машиной Гитлеровского блиц-крига. Пропагандистская машина Германии постоянно крутила хронику о том, как немецкая армия сотрудничает с представителями английской власти на островах. Гитлер планировал сделать из них неприступные крепости и использовать для дальнейшего наступления на (   Читать дальше...   )Жанр: Документальный, история, WWIIПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE89DDDD91FFD90897CCA0ECD7076F328D2858F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832847   (817454) от 17.04.2016
-
-History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817454.jpg" />
-</div>
-
-
-###  Подробнее
-
-На северо-западе Испании, в Галисии кое-где на побережье можно увидеть окруженные стеной участки с необычными круглыми строениями из камня. Кому принадлежали эти крепости на холмах? От кого они защищали? Как жили люди, построившие их? Это археологические останки культуры Кастро. На земле изрезанных берегов, высоких скал море всегда оставалось связующим звеном между (   Читать дальше...   )Жанр: Документально-постановочный, историяПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990E15ED6CB364F87C7E74D90DC4BA966E119D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197055   (817132) от 06.01.2018
-
-NG: Гибель морского монстра / Death of a Sea Monster (2010) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шпицберген имеет много секретов, связанных с периодом, когда Пангея начала распадаться. Каждый год исследователи приезжают на этот арктический архипелаг, питая надежду обнаружить ранее неизвестные факты. Археологи обнаружили окаменелости ужасающих морских рептилий, которые могут изменить наше мнение об этой эпохе.
-Мы узнаем о гигантских морских рептилиях доисторического (   Читать дальше...   )Производство: США, National Geographic ChannelЖанр: Документальный, научно-популрный, палеонтология, исследованияРежиссер: Сью ХьютонПеревод: Одноголосый закадровый, профессиональный (АРК - ТВ)Субтитры: отсутствуютПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E17546BBD5091EF194730D68C351722198733B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382430   (817090) от 12.05.2020
-
-NGW: Самая большая в мире белая акула / World's Bigget Great White Shark? (2019) HDTVRip [H.264/1080p-LQ] [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа профессиональных дайверов и фотограф отправляются на небольшой лодке в море, чтобы заснять жизнь морских обитателей в их естественной среде. Они собираются вокруг кашалота, который дрейфует вблизи острова Оаху, гавайского архипелага. Герои смогли заснять одну из самых больших белых акул, когда-либо попавшихся на камеры.Производство: США, Spectrum Field Productions, LLS., Nat Geo WildЖанр: Документальный, Природа, Фауна, Флора, Реальное ТВРежиссер: Эрик Хардести, Бреннан БутПеревод: Одноголосый закадровый, профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95117546F8BFAF1B6FA0D5A5E8E960D97D2EFD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

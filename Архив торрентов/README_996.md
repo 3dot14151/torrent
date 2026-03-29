@@ -6,7 +6,7 @@ Viper FTP 5.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819412.jpg" />
+  <img src="Z:/picture/008/save_picture_819412.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Cookie 6.0.14 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819410.jpg" />
+  <img src="Z:/picture/008/save_picture_819410.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ WonderPen 1.7.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819408.jpg" />
+  <img src="Z:/picture/008/save_picture_819408.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Acon Digital Acoustica Premium Edition 7.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819402.jpg" />
+  <img src="Z:/picture/008/save_picture_819402.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ NeoFinder Business 7.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819401.jpg" />
+  <img src="Z:/picture/008/save_picture_819401.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ GeoGebra 6.0.671.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819389.jpg" />
+  <img src="Z:/picture/008/save_picture_819389.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Logic Pro X 10.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819384.jpg" />
+  <img src="Z:/picture/008/save_picture_819384.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ BluffTitler Ultimate 15.5.0.1 (x64) RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819383.jpg" />
+  <img src="Z:/picture/008/save_picture_819383.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Sugar Bytes - DrumComputer 1.2.4 STANDALONE, VSTi (X64) RePack [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819382.jpg" />
+  <img src="Z:/picture/008/save_picture_819382.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ App Pier 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819381.jpg" />
+  <img src="Z:/picture/008/save_picture_819381.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ VA - WMC Miami (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819379.jpg" />
+  <img src="Z:/picture/008/save_picture_819379.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Cookie 5.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819377.jpg" />
+  <img src="Z:/picture/008/save_picture_819377.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Fantastical 2 - Calendar and Reminders 2.3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819375.jpg" />
+  <img src="Z:/picture/008/save_picture_819375.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Kite Compositor 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819372.jpg" />
+  <img src="Z:/picture/008/save_picture_819372.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ NoteBurner iTunes DRM Audio Converter 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819371.jpg" />
+  <img src="Z:/picture/008/save_picture_819371.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819352.jpg" />
+  <img src="Z:/picture/008/save_picture_819352.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819341.jpg" />
+  <img src="Z:/picture/008/save_picture_819341.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819338.jpg" />
+  <img src="Z:/picture/008/save_picture_819338.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819330.jpg" />
+  <img src="Z:/picture/008/save_picture_819330.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819326.jpg" />
+  <img src="Z:/picture/008/save_picture_819326.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ save2pc Ultimate 5.45 Build 1541 Portable by PortableAppC [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819318.jpg" />
+  <img src="Z:/picture/008/save_picture_819318.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Internet Download Manager 6.25 Build 15 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819315.jpg" />
+  <img src="Z:/picture/008/save_picture_819315.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819303.jpg" />
+  <img src="Z:/picture/008/save_picture_819303.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Blocs 3.4.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819288.jpg" />
+  <img src="Z:/picture/008/save_picture_819288.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ SyMenu 6.16.7962 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819257.jpg" />
+  <img src="Z:/picture/008/save_picture_819257.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819249.jpg" />
+  <img src="Z:/picture/008/save_picture_819249.jpg" />
 </div>
 
 

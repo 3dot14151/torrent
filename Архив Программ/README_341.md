@@ -6,7 +6,7 @@ IObit Driver Booster Pro 7.4.0.721 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878367.jpg" />
+  <img src="Z:/picture/005/save_picture_878367.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MAGIX Sound Forge Pro 14.0 Build 43 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878361.jpg" />
+  <img src="Z:/picture/005/save_picture_878361.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 43 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878340.jpg" />
+  <img src="Z:/picture/005/save_picture_878340.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uninstall Tool 2.9.7 Build 5110 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878335.jpg" />
+  <img src="Z:/picture/005/save_picture_878335.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MyPhoneExplorer 1.8.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878258.jpg" />
+  <img src="Z:/picture/005/save_picture_878258.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AIDA64 Engineer Edition 6.25.5400 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878252.jpg" />
+  <img src="Z:/picture/005/save_picture_878252.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Movavi Video Editor Plus 20.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878248.jpg" />
+  <img src="Z:/picture/005/save_picture_878248.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Resistor 2.1.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878185.jpg" />
+  <img src="Z:/picture/005/save_picture_878185.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ FreeCAD 0.18.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878175.jpg" />
+  <img src="Z:/picture/005/save_picture_878175.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ AVG Remover 1.0.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878123.jpg" />
+  <img src="Z:/picture/005/save_picture_878123.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Allavsoft Video Downloader Converter 3.13.8.6256 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878122.jpg" />
+  <img src="Z:/picture/005/save_picture_878122.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ultra Adware Killer 5.6.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878119.jpg" />
+  <img src="Z:/picture/005/save_picture_878119.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878117.jpg" />
+  <img src="Z:/picture/005/save_picture_878117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Wise Disk Cleaner 9.43.659 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878113.jpg" />
+  <img src="Z:/picture/005/save_picture_878113.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ IObit Driver Booster Pro 7.4.0.721 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878079.jpg" />
+  <img src="Z:/picture/005/save_picture_878079.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Autodesk AutoCAD Mechanical 2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878064.jpg" />
+  <img src="Z:/picture/005/save_picture_878064.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Artweaver Free 6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878023.jpg" />
+  <img src="Z:/picture/005/save_picture_878023.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Dr.Web Remover 11.1.2.201701230 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878014.jpg" />
+  <img src="Z:/picture/005/save_picture_878014.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Display Driver Uninstaller 17.0.5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878010.jpg" />
+  <img src="Z:/picture/005/save_picture_878010.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Movavi Video Editor Plus 20.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877981.jpg" />
+  <img src="Z:/picture/005/save_picture_877981.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ AIDA64 Extreme/Engineer/Business/Network Audit 6.25.5400 RePack (& Portable) by 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877954.jpg" />
+  <img src="Z:/picture/005/save_picture_877954.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Autodesk AutoCAD LT 2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877951.jpg" />
+  <img src="Z:/picture/005/save_picture_877951.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Autodesk AutoCAD Architecture 2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877946.jpg" />
+  <img src="Z:/picture/005/save_picture_877946.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ PicPick 4.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877909.jpg" />
+  <img src="Z:/picture/005/save_picture_877909.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877899.jpg" />
+  <img src="Z:/picture/005/save_picture_877899.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ jv16 PowerTools 2017 4.1.0.1681 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877805.jpg" />
+  <img src="Z:/picture/005/save_picture_877805.jpg" />
 </div>
 
 

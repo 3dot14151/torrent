@@ -1,3 +1,135 @@
+###  Публикация: 1844926   (1050407) от 28.12.2025
+
+OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
+А ещё — в блокчейне и машинном обучении.
+На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 64:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC536E50A01EF13BD3281277BD09DFDE4C884832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844924   (1050406) от 28.12.2025
+
+OTUS, Владимир Елфимов | LLM Driven Development. Разработка и эксплуатация AI: полный курс для профессионалов (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс охватывает полный цикл разработки и внедрения больших языковых моделей — от основ архитектуры AI и подготовки данных до тонкостей MLOps, мониторинга и оптимизации. Программа основана на реальных кейсах и инструментах, которые уже сейчас востребованы в индустрии.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FEAD2DD7A36721F9EE7210800A7586FB548E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844620   (1050260) от 27.12.2025
+
+OTUS, Андрей Вилков | GitOps (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс сосредоточен на применении Git в качестве единственного источника для управления как инфраструктурой, так и приложениями. Ключевые аспекты: автоматизация развертывания, управление конфигурациями и мониторинг посредством использования Argo CD и Flux. Практическая часть подразумевает создание и настройку Git-репозиториев для инфраструктурного управления, а также (   Читать дальше...   )Производство: OtusЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 33:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D9F36FDBCF0FE88418218950ACF33CC97B833A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844664   (1050256) от 27.12.2025
+
+OTUS, Вячеслав Федосеев | CICD на основе GitLab (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс посвящён практическому применению CI/CD и DevOps-подходов с использованием GitLab как ключевого инструмента автоматизации. Программа ориентирована на специалистов, которые хотят осознанно использовать CI/CD в реальных проектах: от базовой настройки до построения сложных, безопасных и масштабируемых пайплайнов.Производство: OTUSЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 24:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEB19EF0C872FD6548D98654E97D8086A4F03B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844650   (1050244) от 27.12.2025
+
+Специалист, Павел Монахов | Администрирование Astra Linux 1.8 AL-1801/AL-1802/AL-1822/AL-1803/AL-1804/AL-1805 (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный набор официальных курсов по Astra Linux 1.8 от "для пользователя" до "для защиты информации".Производство: СпециалистЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 68:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F7ACA66754F98D50C5C68332889E69A3F1A8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844685   (1050241) от 27.12.2025
 
 Patreon, Timur Shemsedinov | Асинхронное программирование на JavaScript (2025) PCRec [RU]
@@ -6,7 +138,7 @@ Patreon, Timur Shemsedinov | Асинхронное программирован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050241.jpg" />
+  <img src="Z:/picture/005/save_picture_1050241.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ OTUS, Олег Каратаев | Архитектор 1С (2025) PCRec [AD] [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050091.jpg" />
+  <img src="Z:/picture/005/save_picture_1050091.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049294.jpg" />
+  <img src="Z:/picture/008/save_picture_1049294.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Stepik, Михаил Трунов | Командная строка для ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049293.jpg" />
+  <img src="Z:/picture/008/save_picture_1049293.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ Onskills, Семен Глушков | Онлайн-курс по нейросе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049292.jpg" />
+  <img src="Z:/picture/008/save_picture_1049292.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ TCM Security Academy, Andrew Prince | Security Operations 101 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048688.jpg" />
+  <img src="Z:/picture/008/save_picture_1048688.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ TCM Security Academy, Andrew Prince | Security Operations 201 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048687.jpg" />
+  <img src="Z:/picture/008/save_picture_1048687.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ EC-Council, Keith Rayle | EC-Council Certified DevSecOps Engineer (2024) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048611.jpg" />
+  <img src="Z:/picture/008/save_picture_1048611.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048370.jpg" />
+  <img src="Z:/picture/008/save_picture_1048370.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ Stepik, Pragmatic Programmer | SQL практикум. Полный курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048243.jpg" />
+  <img src="Z:/picture/008/save_picture_1048243.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ Julia Marketing, Алёна Волкова | Веб-дизайнер сайто�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047947.jpg" />
+  <img src="Z:/picture/008/save_picture_1047947.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047729.jpg" />
+  <img src="Z:/picture/008/save_picture_1047729.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047728.jpg" />
+  <img src="Z:/picture/008/save_picture_1047728.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047727.jpg" />
+  <img src="Z:/picture/008/save_picture_1047727.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047596.jpg" />
+  <img src="Z:/picture/008/save_picture_1047596.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ Stepik, Илья Фофанов | Профессия Python-разработчи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047513.jpg" />
+  <img src="Z:/picture/008/save_picture_1047513.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ IT Start, Дмитрий Тарасов | Курс по Python 3 (2024) PCRec [A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047510.jpg" />
+  <img src="Z:/picture/008/save_picture_1047510.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ Stepik, Дмитрий Фокеев | Курс по WordPress с нуля до �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047459.jpg" />
+  <img src="Z:/picture/008/save_picture_1047459.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ OTUS, Владимир Елфимов | LLM Driven Development. Разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047006.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ Rush Academy, Евгений Милованцев, Михаил Охотнико
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046800.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ Stepik, Василий Еремин | 1С программирование дл�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046777.jpg" />
 </div>
 
 
@@ -540,142 +672,6 @@ Stepik, Василий Еремин | 1С программирование дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009362F9D4B7B14CA5EFBFA4D675828764F4AA5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839789   (1046775) от 30.11.2025
-
-Дмитрий Зверев | Сервис Krea. Генерация нейросетевых картинок, фото и видео (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот инфопродукт специально для тех, кому нужна практичная и доступная для быстрого внедрения информация. После изучения курса вы сможете быстро и просто генерировать ваши нейросетевые картинки, фото и видео.Жанр: видеокурс, обучающий курс, фотография, нейросетиЯзык озвучки: русскийПродолжительность: 05:45:53Реклама: cторонние вставки и наложения на видео (плашка спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08143591DA52E680F9CD43F8015229F67DBB2FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839393   (1046559) от 28.11.2025
-
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
-А ещё — в блокчейне и машинном обучении.
-На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 68:23:24Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38D5594BA9B35E53B8C31C1E05E74A6FFBA345E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839402   (1046558) от 28.11.2025
-
-Олег Филиппов | Видеокурс по разработке ИИ агентов для 1С (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предлагает глубокое погружение в концепцию и практическую разработку автономных ИИ-Агентов, адаптированных для работы с платформой 1С:Предприятие. Основная цель — научить специалистов по 1С внедрять передовые технологии Генеративного ИИ (GenAI) для автоматизации сложных бизнес-процессов, которые не могут быть решены обычными методами Workflow.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:54:31Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25224573F49BEF67902E10C52EEA9C5F68E91DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600711   (1046381) от 01.01.2023
-
-N.E.C.O, Sergey Dragunov | Курс по созданию приложения "Gps Tracker" на Kotlin (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия уроков "Gps Tracker"
-На данном курсе создаем приложение для записи маршрутов бега или ходьбы с помощью Gps. Изучаем использование OSM (Open Street Maps) для отображения карты на экране смартфона, добавления маркеров, отрисовка маршрута, время прохождения маршрута, дистанция и средняя скорость. Используем базу данных и библиотеку Room для сохранения (   Читать дальше...   )Производство: N.E.C.O.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383C126DC9972CF35D0D39613F04D515A0399FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601716   (1046308) от 02.01.2023
-
-Devtodev, Александр Болотников | Разработка HTML5 игр (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите попасть в геймдев? Вы изучаете программирование и хотите прокачать свои скиллы в разработке программ? У вас есть идея игры, но вы не знаете, как подступиться к технической реализации?
-Этот курс для вас! В ходе обучения мы изучим популярный игровой фреймворк Phaser 3, используемый для создания уютных и ламповых HTML5 игр.
-
-Почему именно Phaser?(   Читать дальше...   )Производство: DevtodevЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D8C26E0ACEFBEE9FB86E8215EFD36EEE73EC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 1411744   (425183) от 26.09.2020
+
+Adobe XD 33.1.12.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3090D25873FEA596C1C06C3B54C97DDAE563E975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411751   (425166) от 26.09.2020
+
+Adobe Media Encoder 2020 14.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Media Encoder 2020 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C19A2B13F1595331F80D6728B734D9855978E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411701   (425062) от 26.09.2020
+
+Adobe After Effects 2020 17.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
+
+Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BDCAF46C4FFAF1873C74CEF03F79AA09B6DA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946778   (425041) от 14.10.2015
+
+Graphic 3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic - (бывший iDraw)  — это мощный многофункциональный и удобный редактор векторной графики и иллюстраций для Mac OS X.
+Graphic имеет все необходимые инструменты, чтобы создать все - от подробных технических иллюстраций, до красивых произведений искусства. С Graphic создавать замысловатые рисунки становится быстро и легко.
+
+C Graphic Вы можете импортировать  PSD, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 октября 2015Разработчик: Indeeo, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95116F95BCA23F13AA60EC372744EDAE24BDF6BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250587   (424874) от 28.09.2018
 
 Cookie 5 v5.9 [Multi]
@@ -6,7 +115,7 @@ Cookie 5 v5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424874.jpg" />
+  <img src="Z:/picture/008/save_picture_424874.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ Airmail 3 v3.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424873.jpg" />
+  <img src="Z:/picture/008/save_picture_424873.jpg" />
 </div>
 
 
@@ -63,7 +172,7 @@ SuperDuper! 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424871.jpg" />
+  <img src="Z:/picture/008/save_picture_424871.jpg" />
 </div>
 
 
@@ -89,7 +198,7 @@ Sip Pro 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424869.jpg" />
+  <img src="Z:/picture/008/save_picture_424869.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ Downcast 2.9.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424867.jpg" />
+  <img src="Z:/picture/008/save_picture_424867.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ UctoX 2 v2.6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424865.jpg" />
+  <img src="Z:/picture/008/save_picture_424865.jpg" />
 </div>
 
 
@@ -173,7 +282,7 @@ iA Writer 5 v5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424861.jpg" />
+  <img src="Z:/picture/008/save_picture_424861.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ Adobe Premiere Pro 2020 14.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424797.jpg" />
+  <img src="Z:/picture/008/save_picture_424797.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ Adobe Photoshop 2020 21.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424781.jpg" />
+  <img src="Z:/picture/008/save_picture_424781.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ Tri-BACKUP Pro 9 v9.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424762.jpg" />
+  <img src="Z:/picture/008/save_picture_424762.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ MediaHuman YouTube Downloader 3.9.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424760.jpg" />
+  <img src="Z:/picture/008/save_picture_424760.jpg" />
 </div>
 
 
@@ -306,7 +415,7 @@ PDF Squeezer 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424759.jpg" />
+  <img src="Z:/picture/008/save_picture_424759.jpg" />
 </div>
 
 
@@ -333,7 +442,7 @@ GIF'ted 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424750.jpg" />
+  <img src="Z:/picture/008/save_picture_424750.jpg" />
 </div>
 
 
@@ -359,7 +468,7 @@ WiFiSpoof 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424745.jpg" />
+  <img src="Z:/picture/008/save_picture_424745.jpg" />
 </div>
 
 
@@ -385,7 +494,7 @@ BBEdit 11.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424729.jpg" />
+  <img src="Z:/picture/008/save_picture_424729.jpg" />
 </div>
 
 
@@ -411,7 +520,7 @@ Anamorphic Pro 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424615.jpg" />
+  <img src="Z:/picture/008/save_picture_424615.jpg" />
 </div>
 
 
@@ -438,7 +547,7 @@ Apple MainStage 3.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424609.jpg" />
+  <img src="Z:/picture/008/save_picture_424609.jpg" />
 </div>
 
 
@@ -467,7 +576,7 @@ Logic Pro X 10.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424471.jpg" />
+  <img src="Z:/picture/008/save_picture_424471.jpg" />
 </div>
 
 
@@ -493,7 +602,7 @@ Microsoft Office Standard 2016 v15.15 (with License Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424248.jpg" />
+  <img src="Z:/picture/008/save_picture_424248.jpg" />
 </div>
 
 
@@ -521,7 +630,7 @@ FilePane 1.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424225.jpg" />
+  <img src="Z:/picture/008/save_picture_424225.jpg" />
 </div>
 
 
@@ -547,7 +656,7 @@ iFinance 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424059.jpg" />
+  <img src="Z:/picture/008/save_picture_424059.jpg" />
 </div>
 
 
@@ -573,7 +682,7 @@ Keka 1.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423754.jpg" />
+  <img src="Z:/picture/008/save_picture_423754.jpg" />
 </div>
 
 
@@ -585,117 +694,6 @@ Keka — это бесплатный архиватор для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5F1CAA6A91633635291E7C8EB992E9038676603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166506   (423460) от 17.09.2017
-
-DaVinci Resolve Studio 14.0 + easyDCP [En]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 сентября 2017Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB5252A59AFEB08557744F351A0FA20F1E39D608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411937   (423319) от 27.09.2020
-
-Acorn 6 v6.6.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
-
-Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2020Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDCE78754BF11E27F31242A97D47FFBF014BBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411950   (423168) от 27.09.2020
-
-Dropshare 5.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423168.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2020Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664368EEB6AE231519E7193D7971839F7BBAC1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411907   (423154) от 27.09.2020
-
-Adobe Zii 2020 - Universal Patcher 5.2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 26.09.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF555E30DA89C5965474BF56A1305135410B876
 ```
 
 https://mybot314.ru/tekegram_catalog/

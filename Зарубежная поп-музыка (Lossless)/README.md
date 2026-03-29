@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1861226   (1062619) от 
+
+VA - 90s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Have I Told You Lately (4:01)
+02. Pet Shop Boys - Go West (5:04)
+03. Beats International - Dub Be Good to Me (Norman Cook Remix) (3:37)
+04. Alanis Morissette - Ironic (3:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265987EB10BACED20015BE4A8641F01EFEF97610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861095   (1062147) от 
+
+VA - 10s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bruno Mars - That’s What I Like (3:25)
+002. Ed Sheeran - Shape of You (3:53)
+003. Charlie Puth - We Don’t Talk Anymore (3:37)
+004. Coldplay - A Sky Full of Stars (4:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDEC701D278A84074C661130C087DC451F6A72DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860854   (1062084) от 
+
+VA - 80s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Ha - Take On Me (3:48)
+02. Madonna - Like a Virgin (3:38)
+03. Starship - Nothing's Gonna Stop Us Now (4:30)
+04. Roxette - The Look (3:57)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0BFFC89EC37EA561208D06F6ABF3A9F951370F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860184   (1061877) от 
+
+VA - Greatest Ever! Love (The Definitive Collection) (2006) 3 x CD, Compilation Box Set [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry White - Just the Way You Are (5:38)
+02. Kool & The Gang - Cherish (3:58)
+03. The Real Thing - You to Me Are Everything (3:22)
+04. Mica Paris - My One Temptation (3:36)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 03:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E96918191DAAB6C131943570211EFE210EA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859996   (1061876) от 
+
+VA - Funk Classics The 70's (1995) [FLAC|Lossless|tracks + .cue] <Funk / Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool & the Gang - Hollywood Swinging (4:40)
+02. Parliament - Up for the Down Stroke (3:23)
+03. The Gap Band - Early in the Morning (6:31)
+04. Cameo - Shake Your Pants (4:27)(   Читать дальше...   )Жанр: Funk / Soul, R&BПродолжительность: 00:51:59.840 (137 584 944 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E83179817F4AF3E760BE3B565EC6D01641998CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859970   (1061875) от 
+
+VA - Magic 90s (2019) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robbie Williams - Angels (4:17)
+02. Whitney Houston - I Will Always Love You (4:14)
+03. Ronan Keating - When You Say Nothing At All (4:05)
+04. Celine Dion - My Heart Will Go On (4:30)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:16:20.533 (837 041 520 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FB150778EF6CA1DB2B70E533968010C722875C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860350   (1061870) от 
+
+VA - Greatest Ever! Nineties (The Definitive Collection) (2006) 3 x CD, Box Set [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamski & Seal - Killer (4:14)
+02. Freak Power - Turn On, Tune In, Cop Out (4:27)
+03. OMC - How Bizarre (3:47)
+04. Culture Beat - Mr Vain (5:39)(   Читать дальше...   )Жанр: Hip Hop, Rock, PopПродолжительность: 03:30:56.893 (558 168 996 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D9B2E2DCBDD813A0B7E1096B20C3542F9B3164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859679   (1061500) от 
 
 VA - This Is Your Life (1991) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -7,7 +210,7 @@ VA - This Is Your Life (1991) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061500.jpg" />
+  <img src="Z:/picture/005/save_picture_1061500.jpg" />
 </div>
 
 
@@ -36,7 +239,7 @@ VA - Greatest Ever Decade 70s (2021) 4 x CD, Compilation [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061455.jpg" />
+  <img src="Z:/picture/005/save_picture_1061455.jpg" />
 </div>
 
 
@@ -65,7 +268,7 @@ VA - The Classic 70s Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Funk
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061442.jpg" />
+  <img src="Z:/picture/005/save_picture_1061442.jpg" />
 </div>
 
 
@@ -94,7 +297,7 @@ VA - 00s Huge Hits (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061437.jpg" />
+  <img src="Z:/picture/005/save_picture_1061437.jpg" />
 </div>
 
 
@@ -123,7 +326,7 @@ VA - Lost Hits Of The 70s And 80s (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061361.jpg" />
+  <img src="Z:/picture/005/save_picture_1061361.jpg" />
 </div>
 
 
@@ -152,7 +355,7 @@ Chris Norman - Lifelines (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1060996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060996.jpg" />
 </div>
 
 
@@ -181,7 +384,7 @@ VA - 1990s R&B Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <R'n'B, Soul, Funk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060888.jpg" />
+  <img src="Z:/picture/005/save_picture_1060888.jpg" />
 </div>
 
 
@@ -210,7 +413,7 @@ VA - KuschelRock: Always & Forever (Wedding Edition) (2011) 3 x CD, Compilation 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060547.jpg" />
+  <img src="Z:/picture/005/save_picture_1060547.jpg" />
 </div>
 
 
@@ -239,7 +442,7 @@ Kim Wilde - Premium Gold Collection (1996) [FLAC|Lossless|tracks+.cue] <New Wave
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060273.jpg" />
+  <img src="Z:/picture/009/save_picture_1060273.jpg" />
 </div>
 
 
@@ -268,7 +471,7 @@ VA - Kuschelrock Rock Hymnen (2010) 2 x CD, Compilation, Special Edition [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060246.jpg" />
+  <img src="Z:/picture/009/save_picture_1060246.jpg" />
 </div>
 
 
@@ -297,7 +500,7 @@ VA - KuschelRock Special Edition - Lovesongs Of The 80's (2009) 2 x CD, Compilat
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060245.jpg" />
+  <img src="Z:/picture/009/save_picture_1060245.jpg" />
 </div>
 
 
@@ -326,7 +529,7 @@ Julio Iglesias - Starry Night (1990) [FLAC|Lossless|tracks + .cue] <Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060039.jpg" />
+  <img src="Z:/picture/005/save_picture_1060039.jpg" />
 </div>
 
 
@@ -355,7 +558,7 @@ Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059684.jpg" />
+  <img src="Z:/picture/005/save_picture_1059684.jpg" />
 </div>
 
 
@@ -384,7 +587,7 @@ VA - 100 Greatest Seventies (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059446.jpg" />
+  <img src="Z:/picture/005/save_picture_1059446.jpg" />
 </div>
 
 
@@ -413,7 +616,7 @@ VA - Best Of The 90's (2017) 3 x CD, Compilation [FLAC|Lossless|tracks + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059445.jpg" />
+  <img src="Z:/picture/005/save_picture_1059445.jpg" />
 </div>
 
 
@@ -442,7 +645,7 @@ VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058928.jpg" />
+  <img src="Z:/picture/005/save_picture_1058928.jpg" />
 </div>
 
 
@@ -471,7 +674,7 @@ VA - Seventies Top 100 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058774.jpg" />
+  <img src="Z:/picture/005/save_picture_1058774.jpg" />
 </div>
 
 
@@ -500,7 +703,7 @@ VA - 100 Hits 70s Heart Throbs (2016) 5 x CD, Compilation, Box Set [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058773.jpg" />
+  <img src="Z:/picture/005/save_picture_1058773.jpg" />
 </div>
 
 
@@ -529,7 +732,7 @@ VA - Greatest Ever! Smooth (The Definitive Collection) (2007) 3 x CD, Compilatio
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058772.jpg" />
+  <img src="Z:/picture/005/save_picture_1058772.jpg" />
 </div>
 
 
@@ -543,209 +746,6 @@ VA - Greatest Ever! Smooth (The Definitive Collection) (2007) 3 x CD, Compilatio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFA12A03FD7FE00FDAB5240B02523F6420C0F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855390   (1058149) от 22.02.2026
-
-VA - 70's Styles (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bread - Baby I'm-A Want You - (02:23)
- 02. Seals and Crofts - Summer Breeze - (03:22)
- 03. Donny Hathaway - Jealous Guy - (03:08)
- 04. Rod Stewart - Da Ya Think I'm Sexy - - (05:29)(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0546583D34E7E58A03E77AFD6C7E85A7D38B3D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854812   (1057721) от 19.02.2026
-
-VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Warren - Ordinary (Wedding) (3:06)
-02. Fleetwood Mac - Dreams (4:17)
-03. Teddy Swims - Lose Control (3:30)
-04. Bruno Mars - Love’s Train (5:07)(   Читать дальше...   )Жанр: PopПродолжительность: 03:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED490A4011DBDD5D0E554826F59AA6AD74EBFFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854422   (1057290) от 18.02.2026
-
-Backstreet Boys - Backstreet Boys (1997) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got It Goin' On [0:03:40.40]
-02. Quit Playing Games (With My Heart) [0:03:54.27]
-03. As Long as You Love Me [0:03:33.38]
-04. Everybody (Backstreet's Back) (extended version) [0:04:47.62](   Читать дальше...   )Жанр: Pop, Europop, BalladПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546475E79719DD4A48B9735270EEE3335855C130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853782   (1057055) от 14.02.2026
-
-King Sis - Late to the Party (Lover’s Deluxe) (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's My Q (03:34)
- 02. Situation (03:14)
- 03. Time Will Tell (02:48)
- 04. I Forgot (02:41)(   Читать дальше...   )Жанр: Pop, Alternative R&B, SoulПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F498F6541772492622ADDC7A074094E1DEE80D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853754   (1057047) от 14.02.2026
-
-VA - Pure Pop Peak (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057047.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Melanie Martinez - POSSESSION                                                      [03:07]
-002. Bruno Mars - I Just Might                                                          [03:32]
-003. Alex Warren - Ordinary                                                             [03:06]
-004. Ed Sheeran - Sapphire                                                              [02:59](   Читать дальше...   )Жанр: PopПродолжительность: 02:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC7017B37F34A9AC935C4161E725C1EBF51B3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854015   (1056911) от 15.02.2026
-
-VA - Pure... 80s Soul Grooves (2013) 4 x CD [FLAC|Lossless|tracks + .cue] <Pop, R&B, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Base & DJ E-Z Rock - Get On The Dance Floor (12 Inch Mix) (7:36)
-02. S-Express - Theme From S-Express (5:53)
-03. Breakwater - Release The Beast (4:57)
-04. Jacksons - Walk Right Now (6:30)(   Читать дальше...   )Жанр: Pop, R&B, Soul, DiscoПродолжительность: 05:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670E5D7B22059D64A4DE3DFA8641638FCCF84E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852972   (1056221) от 11.02.2026
-
-Michael Bolton - This Is the Time: The Christmas Album (1996) [FLAC|Lossless|tracks + .cue] <Pop, Classical, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Night [0:04:05.68]
-02. Santa Claus Is Coming to Town [0:04:05.58]
-03. Have Yourself a Merry Little Christmas [0:04:01.70]
-04. Joy to the World [0:04:06.52](   Читать дальше...   )Жанр: Pop, Classical, RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB098D4444482C78C29B50868415A45CDFD58ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

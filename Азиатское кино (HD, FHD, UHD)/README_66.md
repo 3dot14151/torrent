@@ -1,3 +1,134 @@
+###  Публикация: 1591163   (187521) от 17.11.2022
+
+Прощай, моя наложница / Ba wang bie ji / Farewell my concubine (1993) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187521.jpg" />
+</div>
+
+
+###  Подробнее
+
+История творческого пути двух актёров, игравших всю жизнь одну драму из репертуара Пекинской оперы — «Прощай, моя наложница», в которой наложница остаётся верна своему императору и кончает с собой в конце его пути... Экранизация одноимённого романа Лилиан Ли, действие которого происходит в политически бурном Китае XX века от Китайской республики до Культурной революции. (   Читать дальше...   )Производство: Китай, Гонконг, Beijing Film Studio, China Film Co-Production Corporation, Maverick Picture CompanyЖанр: драма, мелодрама, музыкаРежиссер: Кайгэ ЧэньАктеры: Лесли Чун, Чжан Фэнъи, Гун Ли, Ки Лу, Да Йинг, Гэ Ю, Чун Ли, Хань Ли, Ди Тонг, Минвэй Ма, Янг Фэй, Жи Йин, Дэн Ли, Вэньли Цзян, Итонг Жи, Дэвид Ву, Квинг КсуПеревод: профессиональный двухголосый (студия Акцент), авторский (Антон Алексеев; Алексей Михалёв)Субтитры: русские (Виктор Саров), английскиеПродолжительность: 02:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3907F1EEE096DFE3F52F89B9C637126E127B9B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591222   (187428) от 17.11.2022
+
+Битва у острова Хансан / Hansan: yongui chulhyeon / Hansan: Rising Dragon (2022) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187428.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 августа 1592 года. Морское сражение, состоявшееся между японским и корейским флотом у восточного побережья острова Хансан в ходе Имджинской войны. Первая битва третьей кампании Ли Сунсина, одна из крупнейших морских баталий этой войны.Производство: Корея Южная, Big Stone Pictures, Lotte EntertainmentЖанр: военный, боевик, историяРежиссер: Хан Мин КимАктеры: Пак Хэ-иль, Пён Ё-хан, Ан Сон-ги, Сон Хён-джу, Ким Сон-гю, Ким Сон-гюн, Ким Хян-ги, Тхэгён, Кон Мён, Пак Чи-хванПеревод: авторский (Юрий Сербин)Субтитры: английскиеПродолжительность: 02:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DAA267F4F0A776289C7C27167734EF12E3D9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590743   (187377) от 17.11.2022
+
+2046 / 2046 (2004) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чоу возвращается в Гонконг после нескольких лет, проведённых в Сингапуре. Он заселяется в дешёвый отель, где сначала хочет снять комнату 2046, поскольку этот номер напоминает ему о прошлом, но это оказывается невозможно, и Чоу селится в соседний номер, 2047. Большая часть фильма рассказывает об отношениях Чоу с постояльцами номера 2046...Производство: Гонконг, Китай, Франция, Италия, Германия, Jet Tone Production, Shanghai Film Group, Orly FilmsЖанр: фантастика, драма, мелодрамаРежиссер: Вонг Кар-ВайАктеры: Тони Люн Чу Вай, Гун Ли, Фэй Вон, Такуя Кимура, Чжан Цзыи, Карина Лау, Чан Чэнь, Дун Цзэ, Мэгги Чун, Тончай МакИнтайрПеревод: Многоголосый профессиональный (Кармен видео)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6064C45A3F042186DE178A7AE9E7E312CDD3FF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662943   (187271) от 19.09.2023
+
+Импостер / #Manhole (2023) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюнсукэ Кавамура — молодой успешный карьерист, у ног которого весь мир. Возвращаясь домой с мальчишника накануне собственной свадьбы, он падает в люк.
+Охваченный ужасом парень пытается спастись, используя социальные сети. Несколько постов Сюнсукэ за считанные минуты становятся невероятно популярными, а реакция пользователей заставляет задуматься: действительно ли (   Читать дальше...   )Производство: Япония / J StormЖанр: драма, триллерРежиссер: Кадзуёси КумакириАктеры: Юто Накадзима, Нао, Кэнто Нагаяма, Хару КурокиПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: Русские (Forced (hardsub), forced, full)Продолжительность: 01:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363EE40891DDC667C1903DE799AEC5FD098C5063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252478   (186963) от 18.11.2022
+
+Шоколад / Chocolate (2008) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_186963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зин, в прошлом участвовавшая в междоусобицах соперничающих бандитских группировок и ушедшая из теневого бизнеса из-за любви к японцу, члену Якудзы, вынуждена расстаться с ним, даже не сказав, что беременна. Родив девочку, Зин узнаёт страшный приговор — её дочери Зэн поставлен диагноз — аутизм. Однако по прошествии времени девочка, несмотря на кажущееся отрешение (   Читать дальше...   )Производство: ThailandЖанр: Боевик, ДрамаРежиссер: Прачья ПинкаюАктеры: Яанин Висмитананда, Хироси Абэ, Понгпат Вачирабунджонг, Тапхон Пхопванди, Аммара Сирипонг, Дечавут Чунтакаро, Хиро Сано, Арун Ванатсабадивонг, Анусук Джангаджит, Наттакит ТеачачевапонгПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 01:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C761D14B9128B2EF3A4659DBF992B95844F9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663264   (186908) от 20.09.2023
 
 Луна / Deo mun / The Moon (2023) WEB-DLRip [H.265/1080p-LQ] [MVO]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186908.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186904.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186861.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186858.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186850.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186777.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186776.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186723.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186193.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186192.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186166.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185795.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185119.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184400.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184220.jpg" />
+  <img src="Z:/picture/004/save_picture_184220.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183830.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183707.jpg" />
+  <img src="Z:/picture/004/save_picture_183707.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183362.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182957.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182782.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182775.jpg" />
+  <img src="Z:/picture/004/save_picture_182775.jpg" />
 </div>
 
 
@@ -539,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F9D6E16C25EEF2BA4CE1208519972F2563956CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665347   (182235) от 30.09.2023
-
-Безумная миссия 5 / San jui gaai paak dong / Aces Go Places V (1989) BDRip [H.265/1080p] [10-bit] [AVO] [Гонконгская версия]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередная, пятая часть комедийного сериала «Mad Mission» начинается с того, что неразлучные друзья Кинг Конг и Болди расстаются, обидевшись друг на друга во время очередного суперзадания.
-Так бы они и жили поодиночке, если бы парочке грабителей, Лесли и Кэгни не вздумалось украсть легендарный Экскалибур в масках именно этих двух героев. Теперь за Кинг Конгом и Болди (   Читать дальше...   )Производство: Гонконг / Cinema CityЖанр: боевик, комедия, криминалРежиссер: Лау Ка-ЛюнАктеры: Сэм Хуэй, Карл Мака, Лесли Чун, Нина Ли Чи, Конан Ли, Чи Чун Ха, Лу Янь, Чо Тат-Ва, Эллен Чань, Фенни ЮэньПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, китайскийСубтитры: английские, китайскиеПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557975492F15F361521E5B75DAD6438DDDCC9802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593030   (181914) от 25.11.2022
-
-Сводные братья / Ibo kyoudai / Stepbrothers (1957) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм охватывает несколько десятилетий. История начинается в 1921 году, когда старый вояка, капитан Хантаро Кидо приходит к молодой очаровательной горничной Риэ, которая позже становится его женой, и заканчивается в первый год после Второй мировой войны, когда домой возвращается только один из четырёх сыновей капитана, Томохидэ. По одноимённому роману Торахико Тамия (   Читать дальше...   )Производство: Япония / Nikkatsu CorporationЖанр: драмаРежиссер: Миёдзи ИэкиАктеры: Рэнтаро Микуни, Кинуё Танака, Тёко Иида, Ёсихидэ Морисита, Томоо Нага, Кацуо Накамура, Кодзи Намбара, Хидзуру ТакатихоПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B522EFB360CA79819A61314A0CA62DFC76A0796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428222   (180695) от 01.12.2020
-
-Под стук трамвайных колес / Dodeskaden (1970) BDRip [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страшная история об обществе, выброшенном на свалку. Страна, выброшенная на свалку истории. Национальная культура, вытесненная на свалку американской псевдокультурой. И мальчик-идиот, ездящий всеми днями на воображаемом трамвае и имитирующий стук колес: до-дес-каден, до-дес-каден. Но в этом-то звуке и есть какой-то проблеск надежды, как та радуга над свалкой. Японское (   Читать дальше...   )Производство: Япония / Yonki-no-Kai Productions, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Ёситака Дзуси, Кин Сугаи, Тосиюки Тономура, Синосукэ Минами, Юко Кусуноки, Дзюндзабуро Бан, Киёко Тангэ, Митио Хино, Кэйдзи Фуруяма, Таппэй СимокаваПеревод: Одноголосый любительскийСубтитры: Русские, французскиеПродолжительность: 02:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3170867E9C5AFE63EB38E23DA053D311F17206CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593574   (180384) от 27.11.2022
-
-Одна секунда / Yi miao zhong / One Second (2020) BDRip [H.264/720p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе "Преступник Лу Яньши" автора Гелинг Ян. Китай. Культурная революция в самом разгаре. Где-то в отдалённом поселке, затерянном в песках провинции Ганьсу, где кино показывают всего раз в два месяца, судьба сводит двоих незнакомцев. Каждый имеет свою причину. Девушка хочет сделать из плёнки абажур для лампы своего маленького брата. Мужчина (   Читать дальше...   )Производство: Китай, Huanxi Media Group, EDKO Film Ltd.Жанр: драма, историяРежиссер: Имоу ЧжанАктеры: Чжан И, Лю Хаоцюнь, Фань Вэй, Юй Айлэй, Чжан Шаобо, Ли Янь, Юй Ян, Лю Юньлун, Чан Хайцзюнь, Цао ЖуйПеревод: профессиональные многоголосые (Jaskier; Творческое объединение «Храм тысячи струн» при уч. Shangu и Eugene Greene)Субтитры: русские (тексты песен и полные), английскиеПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03BF063CD945D9F326147BA85F703EEAE11B623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666449   (179570) от 04.10.2023
-
-Врата дракона и тигра / Dragon Tiger Gate / Lung foo moon (2006) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179570.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о двух мастерах кунг-фу, которые должны продолжить дело своих отцов в битве со злом. Двое некровных брата должны защитить мир от злых сил бессмертного прозвавшего себя Черной Пагодой. Борьба добра и зла! Кто же победит в этой битве? На этот раз зло обладает великой силой, которой противостоять могут всего лишь два человека - два брата Тигр и Дракон.Производство: Гонконг, Китай / Mandarin Films Distribution, Beijing Poly-bona Film Publishing Company, Shanghai Film GroupЖанр: фэнтези, боевик, триллерРежиссер: Уилсон ИпАктеры: Юк Лонг Вонг, Луис Ку, Изабелла Люн, Элла Кун, Донни Йен, Николас Це, Шон Юе, Дун Цзэ, Ли Сяожань, Юэнь ВаПеревод: многоголосый профессиональныйЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A98CFB2BA2D34E7A361540928F47AD72A70CDC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

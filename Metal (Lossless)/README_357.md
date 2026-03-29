@@ -1,3 +1,90 @@
+###  Публикация: 1761965   (102990) от 23.11.2024
+
+Herod - For Whom the Gods Would Destroy (2004) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Those People 04:45
+02. Revelations 05:00
+03. I Will 04:37
+04. A New Hope 05:02(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C755DF5BD252BE2ABB15FD5F2468DD16943647F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761900   (102989) от 23.11.2024
+
+Bleed The Sky - Paradigm In Entropy (2005) [FLAC|Lossless|image + .cue] <Metalcore, Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minion 4:11
+02. Killtank 3:37
+03. Paradigm In Entropy 3:34
+04. Skin Un Skin 4:08(   Читать дальше...   )Жанр: Metalcore, Melodic Death Metal, Groove MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE15C1B9A85F214520B486EE5B49DD721337EB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761966   (102988) от 23.11.2024
+
+Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight (0:40)
+02. End The Night (4:25)
+03. Dive With Me (4:06)
+04. Chanceless (4:06)(   Читать дальше...   )Жанр: Power Progressive MetalПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1978E99AE8BCB7D7CE74E42EBE082F15AA6D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762189   (102984) от 24.11.2024
 
 Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal, Electronic>
@@ -6,7 +93,7 @@ Poppy - Negative Spaces (2024) [FLAC|Lossless|tracks + .cue] <Alternative Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102984.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Asgaard - When The Twilight Set In Again (1998) [FLAC|Lossless|image + .cue] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102978.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102962.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Hidden - Dead Land Energy (2011) [FLAC|Lossless|image + .cue] <Progressive Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102950.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Famishgod - Rotting Ceremony (2021) [FLAC|Lossless|image + .cue] <Doom Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102949.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Carrioned - Echoes of Abomination (2013) [FLAC|Lossless|image + .cue] <Brutal De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102948.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Zombie Death Stench - The Redeadening (2010) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102946.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Pero Defformero - (Jer to lici na taj nacin?) Jer to liči na taj način? (2014)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102945.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102942.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102941.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102940.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102939.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102938.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102937.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Castle - Castle (1994) [FLAC|Lossless|image + .cue] <Doom Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102932.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Famishgod - Roots Of Darkness (2016) [FLAC|Lossless|image + .cue] <Doom Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102931.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Veins - Innocence (2017) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102929.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Malediction - Reductio ad Absurdum (2008) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102928.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Trinakrius - Massacro (2010) [FLAC|Lossless|image + .cue] <Power Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102927.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Pero Defformero - Undergrand (2009) [FLAC|Lossless|image + .cue] <Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102926.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Ocean Chief & Runemagick - The Northern Lights (2007) Split [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102925.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Sacramental Sachem - Recrucifiction (1995) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102924.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102923.jpg" />
 </div>
 
 
@@ -654,90 +741,6 @@ R.O.D. - Death For All (2012) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A50607846548183DDBFE25D4F8BD52DA5E96B329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762328   (102922) от 24.11.2024
-
-Thargos - Killfukk (2003) [FLAC|Lossless|image + .cue] <Thrash Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral in GreenЖанр: Thrash Metal, Black MetalПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CA626D620975E41510E1823CB4274AB8084F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762067   (102920) от 24.11.2024
-
-Mellowtoy - Lies (2015) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nitro Dk 00:58
-02. Lies 03:48
-03. Visions 04:15
-04. Destroy Yourself 03:33(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC5EA37985F534427E2ADE4439072597233842A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762486   (102916) от 25.11.2024
-
-Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsung, Forlorn (2:08)
-02. Timeless Ones (4:30)
-03. Away I Flow (5:57)
-04. All That Blooms (Needs To Die) (6:24)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19AF50E3E6528F77453E1D6D73CF6E97D55507E
 ```
 
 https://mybot314.ru/tekegram_catalog/

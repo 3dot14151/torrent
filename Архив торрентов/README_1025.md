@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812248.jpg" />
+  <img src="Z:/picture/008/save_picture_812248.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Carbon Copy Cloner 6 v6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812224.jpg" />
+  <img src="Z:/picture/008/save_picture_812224.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sublime Text Dev 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812220.jpg" />
+  <img src="Z:/picture/008/save_picture_812220.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812191.jpg" />
+  <img src="Z:/picture/008/save_picture_812191.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Cabinet - Quick access for your photos 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812180.jpg" />
+  <img src="Z:/picture/008/save_picture_812180.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812167.jpg" />
+  <img src="Z:/picture/008/save_picture_812167.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Rewind Selecta, Vol.1 (2016) [MP3|320 кб/с] <Drum & Bass, Jump Up>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812166.jpg" />
+  <img src="Z:/picture/008/save_picture_812166.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Arq 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812165.jpg" />
+  <img src="Z:/picture/008/save_picture_812165.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812149.jpg" />
+  <img src="Z:/picture/008/save_picture_812149.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812144.jpg" />
+  <img src="Z:/picture/008/save_picture_812144.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812143.jpg" />
+  <img src="Z:/picture/008/save_picture_812143.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812142.jpg" />
+  <img src="Z:/picture/008/save_picture_812142.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812141.jpg" />
+  <img src="Z:/picture/008/save_picture_812141.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Ryo Nakamura - The Best Of (2018) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812133.jpg" />
+  <img src="Z:/picture/008/save_picture_812133.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Раскачай Авто (2011) [MP3|320 kbps]<Club, Dance, House, Electro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812117.jpg" />
+  <img src="Z:/picture/008/save_picture_812117.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Wise Disk Cleaner 10.7.2.800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812099.jpg" />
+  <img src="Z:/picture/008/save_picture_812099.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Macrorit Data Wiper 4.7.1 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812098.jpg" />
+  <img src="Z:/picture/008/save_picture_812098.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812096.jpg" />
+  <img src="Z:/picture/008/save_picture_812096.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Athentech Perfectly Clear WorkBench 3.12.2.2176 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812095.jpg" />
+  <img src="Z:/picture/008/save_picture_812095.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Macrorit Partition Expert 5.8.2 Unlimited Edition RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812093.jpg" />
+  <img src="Z:/picture/008/save_picture_812093.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Macrorit Partition Expert 5.8.2 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812090.jpg" />
+  <img src="Z:/picture/008/save_picture_812090.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812073.jpg" />
+  <img src="Z:/picture/008/save_picture_812073.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812069.jpg" />
+  <img src="Z:/picture/008/save_picture_812069.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ PhotoMill X (aka Reformator) 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812068.jpg" />
+  <img src="Z:/picture/008/save_picture_812068.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Downie 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812067.jpg" />
+  <img src="Z:/picture/008/save_picture_812067.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Mp3tag 2.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812064.jpg" />
+  <img src="Z:/picture/008/save_picture_812064.jpg" />
 </div>
 
 

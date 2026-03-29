@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254436.jpg" />
+  <img src="Z:/picture/005/save_picture_254436.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254424.jpg" />
+  <img src="Z:/picture/005/save_picture_254424.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254409.jpg" />
+  <img src="Z:/picture/005/save_picture_254409.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stack Overflow | CSS для профессионалов. Руководство
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254325.jpg" />
+  <img src="Z:/picture/005/save_picture_254325.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254088.jpg" />
+  <img src="Z:/picture/005/save_picture_254088.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252263.jpg" />
+  <img src="Z:/picture/004/save_picture_252263.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252262.jpg" />
+  <img src="Z:/picture/004/save_picture_252262.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252211.jpg" />
+  <img src="Z:/picture/004/save_picture_252211.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252206.jpg" />
+  <img src="Z:/picture/004/save_picture_252206.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Sveta Smirnova, Alkin Tezuysal | MySQL Cookbook, 4th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252201.jpg" />
+  <img src="Z:/picture/004/save_picture_252201.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Marten Deinum, и др. | Spring 6 Recipes: A Problem-Solution Approach to Sprin
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251949.jpg" />
+  <img src="Z:/picture/004/save_picture_251949.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Federico Kereki | Mastering JavaScript Functional Programming, 3rd Edition (2023
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251944.jpg" />
+  <img src="Z:/picture/004/save_picture_251944.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251940.jpg" />
+  <img src="Z:/picture/004/save_picture_251940.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251938.jpg" />
+  <img src="Z:/picture/004/save_picture_251938.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251922.jpg" />
+  <img src="Z:/picture/004/save_picture_251922.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251838.jpg" />
+  <img src="Z:/picture/004/save_picture_251838.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250941.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Logan S. Helmes | Python Cheat Sheet Encyclopedia (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250611.jpg" />
+  <img src="Z:/picture/004/save_picture_250611.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250427.jpg" />
+  <img src="Z:/picture/004/save_picture_250427.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250423.jpg" />
+  <img src="Z:/picture/004/save_picture_250423.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250418.jpg" />
+  <img src="Z:/picture/004/save_picture_250418.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Steve Santello, Alan R. Stagner | Building an RPG with Unreal / Построен
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250300.jpg" />
+  <img src="Z:/picture/004/save_picture_250300.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Dane Hillard | Publishing Python Packages (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250220.jpg" />
+  <img src="Z:/picture/004/save_picture_250220.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249927.jpg" />
+  <img src="Z:/picture/004/save_picture_249927.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249922.jpg" />
+  <img src="Z:/picture/004/save_picture_249922.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249573.jpg" />
+  <img src="Z:/picture/004/save_picture_249573.jpg" />
 </div>
 
 

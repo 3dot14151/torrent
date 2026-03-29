@@ -6,7 +6,7 @@ Light Alloy 4.9.3 Build 2538 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873037.jpg" />
+  <img src="Z:/picture/008/save_picture_873037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873031.jpg" />
+  <img src="Z:/picture/008/save_picture_873031.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Edge 93.0.961.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873018.jpg" />
+  <img src="Z:/picture/008/save_picture_873018.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Thunderbird 91.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873017.jpg" />
+  <img src="Z:/picture/008/save_picture_873017.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Balabolka 2.15.0.800 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873015.jpg" />
+  <img src="Z:/picture/008/save_picture_873015.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Macsome iTunes Converter 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872996.jpg" />
+  <img src="Z:/picture/008/save_picture_872996.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Synthetic Epiphany - Discography 11 Releases (2012-2014) [MP3|320 кб/с]<Dubst
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872986.jpg" />
+  <img src="Z:/picture/008/save_picture_872986.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Pixave 2.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872983.jpg" />
+  <img src="Z:/picture/008/save_picture_872983.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6745.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872969.jpg" />
+  <img src="Z:/picture/008/save_picture_872969.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Microsoft Office 2007 Standard SP3 12.0.6745.5000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872959.jpg" />
+  <img src="Z:/picture/008/save_picture_872959.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872948.jpg" />
+  <img src="Z:/picture/008/save_picture_872948.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ BBC: Ночное небо. Орион-охотник / The Sky at Night. Orion 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872947.jpg" />
+  <img src="Z:/picture/008/save_picture_872947.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - US Billboard Hot 100 2011 (26 February 2011) [M4a|256 kbps]<Pop, Rock, Danc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872939.jpg" />
+  <img src="Z:/picture/008/save_picture_872939.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872938.jpg" />
+  <img src="Z:/picture/008/save_picture_872938.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872927.jpg" />
+  <img src="Z:/picture/008/save_picture_872927.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872923.jpg" />
+  <img src="Z:/picture/008/save_picture_872923.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Theme-Pack 1k / сборник тем для Windows XP (29.03.10) [wadimus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_872904.jpg" />
+  <img src="Z:/picture/009/save_picture_872904.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ MKVToolNix 9.9.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872882.jpg" />
+  <img src="Z:/picture/008/save_picture_872882.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872876.jpg" />
+  <img src="Z:/picture/008/save_picture_872876.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Nox App Player 3.8.0.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872871.jpg" />
+  <img src="Z:/picture/008/save_picture_872871.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Stand Up (2017.02.19) SATRip (сезон 6, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872870.jpg" />
+  <img src="Z:/picture/008/save_picture_872870.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ ISO Workshop Free 10.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872854.jpg" />
+  <img src="Z:/picture/008/save_picture_872854.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Macsome Spotify Downloader 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872844.jpg" />
+  <img src="Z:/picture/008/save_picture_872844.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Grids for Instagram 6.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872843.jpg" />
+  <img src="Z:/picture/008/save_picture_872843.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ PhoneRescue for iOS 4.0.0.20200410 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872839.jpg" />
+  <img src="Z:/picture/008/save_picture_872839.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Airflow 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872838.jpg" />
+  <img src="Z:/picture/008/save_picture_872838.jpg" />
 </div>
 
 

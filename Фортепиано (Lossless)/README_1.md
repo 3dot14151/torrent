@@ -6,7 +6,7 @@ Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620850.jpg" />
+  <img src="Z:/picture/008/save_picture_620850.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sergey Slavsky - Gone (2015) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Pi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601860.jpg" />
+  <img src="Z:/picture/008/save_picture_601860.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598971.jpg" />
+  <img src="Z:/picture/008/save_picture_598971.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Brahms - Piano works (Claudio Arrau) (3CDs) (1991) [FLAC|image+.cue]<Classical, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598167.jpg" />
+  <img src="Z:/picture/008/save_picture_598167.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Vikingur Olafsson - Mozart & Contemporaries: Galuppi, C.P.E. Bach, Cimarosa, Hay
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593318.jpg" />
+  <img src="Z:/picture/008/save_picture_593318.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Grieg - Lyric Pieces (Balzs Szokolay) Vol.1 (1995) [FLAC|image +.cue]<Classical,
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580122.jpg" />
+  <img src="Z:/picture/008/save_picture_580122.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Sergei Prokofiev - The complete piano sonatas 2 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576516.jpg" />
+  <img src="Z:/picture/008/save_picture_576516.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565164.jpg" />
+  <img src="Z:/picture/008/save_picture_565164.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560435.jpg" />
+  <img src="Z:/picture/008/save_picture_560435.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Frederic Chopin - The Nocturnes (Claudio Arrau) (1978) 2CD [FLAC|Lossless]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520870.jpg" />
+  <img src="Z:/picture/008/save_picture_520870.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Mozart - The Piano Sonatas, Vol.1 (Glenn Gould) (2CDs) (1990) [FLAC|image +.cue]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513948.jpg" />
+  <img src="Z:/picture/008/save_picture_513948.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Jouni Somero - Palmgren: Complete Piano Works, Vol.4 (2022) [FLAC|Lossless|image
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513609.jpg" />
+  <img src="Z:/picture/008/save_picture_513609.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Chopin - Nocturnes (Nelson Freire) (1998) [FLAC| image +.cue]<Classical, Romanti
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505282.jpg" />
+  <img src="Z:/picture/008/save_picture_505282.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Nikita Magaloff - La Valse (1990) [FLAC|image +.cue]<Classical, Romantic Period,
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502324.jpg" />
+  <img src="Z:/picture/008/save_picture_502324.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Brahms - Works for solo piano (Julius Katchen) (1997) (6CDs)[FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497263.jpg" />
+  <img src="Z:/picture/008/save_picture_497263.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495106.jpg" />
+  <img src="Z:/picture/008/save_picture_495106.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464766.jpg" />
+  <img src="Z:/picture/008/save_picture_464766.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Beethoven - Piano Sonatas Nos.26, 27 & 29 (Solomon Cutner) (2000) [FLAC|image +.
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464759.jpg" />
+  <img src="Z:/picture/008/save_picture_464759.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Horowitz - Plays Hydn & Clementi (Vladimir Horowitz) (2003) [FLAC|image +.cue]<C
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457967.jpg" />
+  <img src="Z:/picture/008/save_picture_457967.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Schumann - Kinderszenen, Fantaisie, Arabeske (Vladimir Horowitz) (2003) [FLAC|im
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457818.jpg" />
+  <img src="Z:/picture/008/save_picture_457818.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.c
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457646.jpg" />
+  <img src="Z:/picture/008/save_picture_457646.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (19
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453558.jpg" />
+  <img src="Z:/picture/008/save_picture_453558.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, P
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452643.jpg" />
+  <img src="Z:/picture/008/save_picture_452643.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Schubert - Piano Sonatas D.960, D.840 “Relequie” (Rudolf Serkin) (2003) [FLA
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449442.jpg" />
+  <img src="Z:/picture/008/save_picture_449442.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Beethoven - Piano Sonatas Nos.8, 14, 23 (Rudolf Serkin) (2003) [FLAC|image +.cue
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449432.jpg" />
+  <img src="Z:/picture/008/save_picture_449432.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447232.jpg" />
+  <img src="Z:/picture/008/save_picture_447232.jpg" />
 </div>
 
 

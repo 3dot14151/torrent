@@ -1,3 +1,29 @@
+###  Публикация: 1602456   (200874) от 23.03.2023
+
+Revenger | Мститель [2023, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волею судьбы самурай Райдзо Курима становится членом организации «Мститель», которая сводит счёты с обидчиками беспомощных.Производство: Студия Ajia-dou / 亜細亜堂Жанр: приключенияРежиссер: Фудзимори МасаяПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136EC7684DE8B6827605DD1B97B8B63EAB4899AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602458   (200872) от 23.03.2023
 
 Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и его крутая коллега [2023, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +32,7 @@ Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200872.jpg" />
+  <img src="Z:/picture/005/save_picture_200872.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Теперь я не тв
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200850.jpg" />
+  <img src="Z:/picture/005/save_picture_200850.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200817.jpg" />
+  <img src="Z:/picture/005/save_picture_200817.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200804.jpg" />
+  <img src="Z:/picture/005/save_picture_200804.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200792.jpg" />
+  <img src="Z:/picture/005/save_picture_200792.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200774.jpg" />
+  <img src="Z:/picture/005/save_picture_200774.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Rougo ni Sonaete Isekai de 8-manmai no Kinka o Tamemasu | Накопление 8
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200765.jpg" />
+  <img src="Z:/picture/005/save_picture_200765.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200758.jpg" />
+  <img src="Z:/picture/005/save_picture_200758.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Boku no Hero Academia Season 6 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200752.jpg" />
+  <img src="Z:/picture/005/save_picture_200752.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Trigun Stampede | Триган: Ураган [2023, TV, 12 эп.] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200750.jpg" />
+  <img src="Z:/picture/005/save_picture_200750.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200717.jpg" />
+  <img src="Z:/picture/005/save_picture_200717.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200710.jpg" />
+  <img src="Z:/picture/005/save_picture_200710.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200706.jpg" />
+  <img src="Z:/picture/005/save_picture_200706.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Mononogatari | Malevolent Spirits | История о мононокэ [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200691.jpg" />
+  <img src="Z:/picture/005/save_picture_200691.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200681.jpg" />
+  <img src="Z:/picture/005/save_picture_200681.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ High Card | Старшая карта [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200678.jpg" />
+  <img src="Z:/picture/005/save_picture_200678.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигaнтскиe звeри Арсa [2023
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200675.jpg" />
+  <img src="Z:/picture/005/save_picture_200675.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Technoroid: Overmind | Технороид: Сверхразум [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200606.jpg" />
+  <img src="Z:/picture/005/save_picture_200606.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200500.jpg" />
+  <img src="Z:/picture/005/save_picture_200500.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Buddy Daddies | Папаши-подельники [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200479.jpg" />
+  <img src="Z:/picture/005/save_picture_200479.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Spy Kyoushitsu / Spy Classroom / Шпионский класс [2023, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200449.jpg" />
+  <img src="Z:/picture/005/save_picture_200449.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200444.jpg" />
+  <img src="Z:/picture/005/save_picture_200444.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Saikyou Onmyouji no Isekai Tenseiki | Реинкарнация сильнейш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200429.jpg" />
+  <img src="Z:/picture/005/save_picture_200429.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Tsurune: Tsunagari no Issha | Tsurune: The Linking Shot | Песнь тетив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200414.jpg" />
+  <img src="Z:/picture/005/save_picture_200414.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Wan Sheng Jie | All Saints Street | Улица всех святых [2020, Web,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200388.jpg" />
+  <img src="Z:/picture/005/save_picture_200388.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ Wan Sheng Jie | All Saints Street | Улица всех святых [2020, Web,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF41C3A385AB7162C7C6EF0A5B2ED68E27EB799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603271   (200376) от 02.04.2023
-
-Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отверженных [2023, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вистерия — девушка-сирота, живущая в Британской империи в конце XIX века. Её жизнь всегда была безрадостна и одинока, но только до встречи с Мальбусом — могущественным, но также одиноким звероподобным существом, которого преследуют охотники. Теперь Вистерия и Мальбус путешествуют по Британии, населённой людьми и человекоподобными зверями, в поисках места, где они (   Читать дальше...   )Производство: Студия Ashi Productions / 葦プロダクションЖанр: приключения, фэнтезиРежиссер: Ямамото ЯсутакаПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362ECF7B8F564FD9791979FB1DC7B515DC4D7D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

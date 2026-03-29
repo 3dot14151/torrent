@@ -1,3 +1,29 @@
+###  Публикация: 1126197   (765946) от 17.04.2017
+
+Asura (2017) [En/Ch] (1.0.27251) License PLAZA
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asura» - игра, в которой вы будете играть за демона низшего ранга. Вы будете проходить свой путь от самого начала и до конца, переживая сюжеты, которые происходят от случайно сгенерированных залов. Сюжет не сложен, а даже по-детски прост, а вот сам процесс игры в некоторых моментах заставит насладиться сложностями. Представленное вам дерево навыков будет постоянно (   Читать дальше...   )Тип издания: LicenseРазработчик: Ogre Head StudioЖанр: Arcade (Platform), 3D, 3rd PersonЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C2624BCAC27759499D101CCD0A7FDEF9A4734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126182   (765942) от 17.04.2017
 
 Mr Shifty (2017) [Multi] (1.0) License CODEX
@@ -6,7 +32,7 @@ Mr Shifty (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765942.jpg" />
+  <img src="Z:/picture/008/save_picture_765942.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764148.jpg" />
+  <img src="Z:/picture/008/save_picture_764148.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764084.jpg" />
+  <img src="Z:/picture/008/save_picture_764084.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761579.jpg" />
+  <img src="Z:/picture/008/save_picture_761579.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Unravel (2016) [Multi] (1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761017.jpg" />
+  <img src="Z:/picture/008/save_picture_761017.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760595.jpg" />
+  <img src="Z:/picture/008/save_picture_760595.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Trine (2014) [Ru/Multi] (2.12) Repack R.G. Catalyst [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759371.jpg" />
+  <img src="Z:/picture/008/save_picture_759371.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757675.jpg" />
+  <img src="Z:/picture/008/save_picture_757675.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756434.jpg" />
+  <img src="Z:/picture/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755217.jpg" />
+  <img src="Z:/picture/008/save_picture_755217.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755110.jpg" />
+  <img src="Z:/picture/008/save_picture_755110.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Koihime Enbu (2016) [En/Ja] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755105.jpg" />
+  <img src="Z:/picture/008/save_picture_755105.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Scrap Garden (2016) [Ru/Multi] (1.1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753206.jpg" />
+  <img src="Z:/picture/008/save_picture_753206.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ My Memory of Us (2018) [Ru/Multi] (1.13057.1) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751488.jpg" />
+  <img src="Z:/picture/008/save_picture_751488.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751184.jpg" />
+  <img src="Z:/picture/008/save_picture_751184.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749729.jpg" />
+  <img src="Z:/picture/008/save_picture_749729.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744836.jpg" />
+  <img src="Z:/picture/008/save_picture_744836.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Ghrian (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744504.jpg" />
+  <img src="Z:/picture/008/save_picture_744504.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ JUMP FORCE (2019) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743165.jpg" />
+  <img src="Z:/picture/008/save_picture_743165.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Moto Racing 3D (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743055.jpg" />
+  <img src="Z:/picture/008/save_picture_743055.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740669.jpg" />
+  <img src="Z:/picture/008/save_picture_740669.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740018.jpg" />
+  <img src="Z:/picture/008/save_picture_740018.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Hell Yeah: Wrath of the Dead Rabbit (2012) [Ru/En] (1.0u1) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739539.jpg" />
+  <img src="Z:/picture/008/save_picture_739539.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738654.jpg" />
+  <img src="Z:/picture/008/save_picture_738654.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738627.jpg" />
+  <img src="Z:/picture/008/save_picture_738627.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E09C5AD117C7038002FFD269BFC7BE126C4B60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526411   (737974) от 25.01.2022
-
-Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) License CODEX
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Cafe Simulator 2 - это комплексный и детализированный бизнес-симулятор интернет-кафе. Вторая игра серии содержит гораздо более подробную и иную новую механику. Постройте отличное интернет-кафе. Не позволяйте уличным бандитам и бандитам забирать ваши деньги. Они даже могут бросить бомбу в ваше кафе. Вы можете привлечь больше клиентов в дождливые дни. Увеличьте (   Читать дальше...   )Тип издания: LicenseРазработчик: Cheesecake DevЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BE43A2529487190371915FB44F954AF2B6DC3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

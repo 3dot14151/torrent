@@ -1,3 +1,90 @@
+###  Публикация: 1574261   (388037) от 04.09.2022
+
+Venus 5 - Venus 5 (2022) [FLAC|Lossless|image + .cue] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lioness (3:22)
+02. The Simulation (3:20)
+03. Nothing But A Heartache (3:09)
+04. Bride With Blackend Eyes (4:36)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BBD8B05B2E4631EE42AAD2C47127AC6DD41C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574331   (388036) от 04.09.2022
+
+Epica - Live At Paradiso (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hunab K'u (Live At Paradiso) [00:01:58]
+02 - Dance Of Fate (Live At Paradiso) [00:05:47]
+03 - Sensorium (Live At Paradiso) [00:04:58]
+04 - The Last Crusade (Live At Paradiso) [00:04:26](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 01:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1749CBC5218B86CAA4C9C302C2A12BA8C97B346B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252872   (388029) от 07.10.2018
+
+Dim Mak - Knives Of Ice (2006) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_388029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knives of Ice
+02. Seeing Crows in Silver
+03. Great Worm of Hell
+04. Devil Finding Mirror(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C2FB88ECC65CDAEA7F27A09F8DC3E9B55DFC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252881   (388022) от 07.10.2018
 
 Omnium Gatherum - The Burning Cold (Japan Edition) (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +93,7 @@ Omnium Gatherum - The Burning Cold (Japan Edition) (2018) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388022.jpg" />
+  <img src="Z:/picture/008/save_picture_388022.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Methedras - Katarsis (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387921.jpg" />
+  <img src="Z:/picture/008/save_picture_387921.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Obsidian Kingdom - MEAT MACHINE (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387893.jpg" />
+  <img src="Z:/picture/008/save_picture_387893.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Aisumasen - Tunguska (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge, doom, post me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387892.jpg" />
+  <img src="Z:/picture/008/save_picture_387892.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Kavee - Metempsychosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Psyched
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387891.jpg" />
+  <img src="Z:/picture/008/save_picture_387891.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Ward XVI - The Art of Manipulation (2017) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387888.jpg" />
+  <img src="Z:/picture/008/save_picture_387888.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Ward XVI - Metamorphosis (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387886.jpg" />
+  <img src="Z:/picture/008/save_picture_387886.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ OHM RUNE - Gargantua (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387880.jpg" />
+  <img src="Z:/picture/008/save_picture_387880.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Erdling - Yggdrasil (2020) 2xCD [FLAC|Lossless|image + .cue] <Industrial Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387862.jpg" />
+  <img src="Z:/picture/008/save_picture_387862.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Stephan Forte - Enigma Opera Black (2014) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387268.jpg" />
+  <img src="Z:/picture/008/save_picture_387268.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Dominion - Born God And Aware (2006) [FLAC|Lossless]<Brutal Death, Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_385960.jpg" />
+  <img src="Z:/picture/005/save_picture_385960.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Becoming The Archetype - I Am (2012) [FLAC|Lossless]<Deathcore, Progressive Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_385956.jpg" />
+  <img src="Z:/picture/005/save_picture_385956.jpg" />
 </div>
 
 
@@ -366,7 +453,7 @@ Dark Millennium - Diana Read Peace (1993) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385789.jpg" />
+  <img src="Z:/picture/008/save_picture_385789.jpg" />
 </div>
 
 
@@ -395,7 +482,7 @@ D-Wall - Mind Core Ruption (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385787.jpg" />
+  <img src="Z:/picture/008/save_picture_385787.jpg" />
 </div>
 
 
@@ -424,7 +511,7 @@ Infantry - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385786.jpg" />
+  <img src="Z:/picture/008/save_picture_385786.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ Endonomos - Endonomos (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385785.jpg" />
+  <img src="Z:/picture/008/save_picture_385785.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ Dark Millennium - Where Oceans Collide (2018) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385782.jpg" />
+  <img src="Z:/picture/008/save_picture_385782.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ Whitespade - Whitespade (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385780.jpg" />
+  <img src="Z:/picture/008/save_picture_385780.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ Entheogen - Transmogrify (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385778.jpg" />
+  <img src="Z:/picture/008/save_picture_385778.jpg" />
 </div>
 
 
@@ -569,7 +656,7 @@ Kull Trigger - Primal Abilities (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385777.jpg" />
+  <img src="Z:/picture/008/save_picture_385777.jpg" />
 </div>
 
 
@@ -598,7 +685,7 @@ Endigna - Otherside (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385711.jpg" />
+  <img src="Z:/picture/008/save_picture_385711.jpg" />
 </div>
 
 
@@ -627,7 +714,7 @@ Criminal Element - Abuse of Power (2022) [FLAC|Lossless|WEB-DL|tracks] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385704.jpg" />
+  <img src="Z:/picture/008/save_picture_385704.jpg" />
 </div>
 
 
@@ -656,7 +743,7 @@ Iron Savior - Reforged - Ironbound (2022) 2xCD [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385703.jpg" />
+  <img src="Z:/picture/008/save_picture_385703.jpg" />
 </div>
 
 
@@ -670,93 +757,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184A5FCB44365577BA25DF762B53132507DBD199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414369   (385626) от 08.10.2020
-
-Constancia - Finаl Сurtаin (2015) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Progressive Heavy Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Tread On My Heart
-02. Spectres
-03. Way To Life
-04. Live A Lie(   Читать дальше...   )Жанр: Progressive Heavy Metal, Progressive RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EA63AB4E0D4C22F288619996F3AD8042BF04C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414356   (385624) от 08.10.2020
-
-Touche Amore - Lament (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Heroine (2:50)
-02. Lament (3:20)
-03. Feign (2:48)
-04. Reminders (3:03)(   Читать дальше...   )Жанр: Melodic HardcoreПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198A270A3A63482E0B6A83C1BDAA8CB9FA0FA226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574348   (385606) от 05.09.2022
-
-Dark Millennium - Midnight in the Void (2016) [FLAC|Lossless|image + .cue] <Progressive Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strigoi Moon - Slave to the Void (05:28)
-02. Insanity Suck System (04:05)
-03. Dressed for Suicide (03:38)
-04. Something to Die for (04:12)(   Читать дальше...   )Жанр: Progressive Death, Doom MetalПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C75242D4C41CF8C3981CEBFE24F4FA66D92C5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

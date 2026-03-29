@@ -1,3 +1,60 @@
+###  Публикация: 1656707   (203031) от 31.08.2023
+
+Phil Campbell and the Bastard Sons - Kings Of The Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking In Circles [00:04:09]
+02. Too Much Is Never Enough [00:02:54]
+03. Hammer And Dance [00:03:13]
+04. Strike The Match [00:04:12](   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B688D6474B635BFB45F413BDDD2476528AF676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218644   (202668) от 15.02.2023
+
+Budgie - 19 Albums, 1 Box Set (1970 - 2006) 38 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_202668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не смотря на свое "легкое" название, Budgie (в пер. с англ. - Волнистый попугайчик), попугаи на обложках и причудливые названия песен, музыка банды - это тяжелые риффы в духе "Black Sabbath" и вокал а-ля "Rush". Команда появилась в Уэльсе еще в 1967 году, в Кардиффе. Только в 1971 году с помощью продюсора Rodger Bain (Black Sabbath) (   Читать дальше...   )1971 - Budgie
+1972 - Squawk
+1973 - Never Turn Your Back On A FriendЖанр: Hard RockПродолжительность: 33:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B9AC1E694E49E04A6A3D6CCEA22112A1F30941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830233   (202386) от 26.10.2025
 
 Deep Purple - Made In Japan (1972) BOX Set, 5 x CD, Reissue, 2025, Warner Records LLC, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +63,7 @@ Deep Purple - Made In Japan (1972) BOX Set, 5 x CD, Reissue, 2025, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202386.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Black Star Riders - 5 albums, 7 CD (2013-2023) [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202134.jpg" />
+  <img src="Z:/picture/004/save_picture_202134.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Wishbone Ash (Martin Turner) - 48 Albums, 1 Box Set, (1970 - 2020) 87 CD [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201836.jpg" />
+  <img src="Z:/picture/005/save_picture_201836.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Wig Wam - 6 albums, 7 CD (2004-2023) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201382.jpg" />
+  <img src="Z:/picture/005/save_picture_201382.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ The Dead Daisies - 6 studio albums (2013-2022) [FLAC|Lossless|image + .cue | tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200807.jpg" />
+  <img src="Z:/picture/005/save_picture_200807.jpg" />
 </div>
 
 
@@ -151,7 +208,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199459.jpg" />
+  <img src="Z:/picture/005/save_picture_199459.jpg" />
 </div>
 
 
@@ -180,7 +237,7 @@ Laura Wilde - Charmed + Dangerous (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196533.jpg" />
 </div>
 
 
@@ -209,7 +266,7 @@ Aerosmith - Greatest Hits (2023) [FLAC|24/96|tracks|WEB-DL] <Classic Rock, Blues
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194107.jpg" />
 </div>
 
 
@@ -235,7 +292,7 @@ Doro - Warriors Of The Sea (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193635.jpg" />
 </div>
 
 
@@ -264,7 +321,7 @@ Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193226.jpg" />
 </div>
 
 
@@ -293,7 +350,7 @@ The Fires Below - Masquerade (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193153.jpg" />
 </div>
 
 
@@ -322,7 +379,7 @@ Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193135.jpg" />
 </div>
 
 
@@ -351,7 +408,7 @@ Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193116.jpg" />
 </div>
 
 
@@ -380,7 +437,7 @@ Chris Manning - Reach the Sky - Reach the Sky (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193113.jpg" />
 </div>
 
 
@@ -409,7 +466,7 @@ H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193082.jpg" />
 </div>
 
 
@@ -438,7 +495,7 @@ Silver Phantom - Crimson Cabaret (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192999.jpg" />
+  <img src="Z:/picture/004/save_picture_192999.jpg" />
 </div>
 
 
@@ -467,7 +524,7 @@ Dead Man's Dirt - Dead Man's Dirt (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192985.jpg" />
+  <img src="Z:/picture/004/save_picture_192985.jpg" />
 </div>
 
 
@@ -496,7 +553,7 @@ Fans Of The Dark - Suburbia (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192971.jpg" />
+  <img src="Z:/picture/004/save_picture_192971.jpg" />
 </div>
 
 
@@ -525,7 +582,7 @@ Los Bastardos Finlandeses - Viva! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192967.jpg" />
+  <img src="Z:/picture/004/save_picture_192967.jpg" />
 </div>
 
 
@@ -554,7 +611,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192946.jpg" />
+  <img src="Z:/picture/004/save_picture_192946.jpg" />
 </div>
 
 
@@ -583,7 +640,7 @@ Ricky Loud - Kaming Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192787.jpg" />
 </div>
 
 
@@ -612,7 +669,7 @@ War Chile - War Chile (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192780.jpg" />
 </div>
 
 
@@ -641,7 +698,7 @@ Torrid Affair - Torrid Affair (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192776.jpg" />
 </div>
 
 
@@ -670,7 +727,7 @@ The Whiskey Dilemma - The Angels Crave a Devil's Heart (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192769.jpg" />
 </div>
 
 
@@ -684,64 +741,6 @@ The Whiskey Dilemma - The Angels Crave a Devil's Heart (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C0FEDC2DF5B9FE1A2226DF97623BF7590DB0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657335   (192765) от 03.09.2023
-
-Black Magic Six - Black Cloud Descending (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Goat [00:03:06]
-02. Evil Eye Powder [00:02:31]
-03. Blood of Babylon [00:02:45]
-04. Werewolf of Istanbul [00:03:13](   Читать дальше...   )Жанр: Hard-Rock, Alternative-RockПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64108A936A1652929C7C77DE4D0E5F90452FAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657232   (192758) от 03.09.2023
-
-Eclipse - Megalomanium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardest Part Is Losing You (3:25)
-02. Got It! (3:29)
-03. Anthem (3:26)
-04. Children of the Night (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7023BE389F5DC6BE6060294D5FD9D2F9F16DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

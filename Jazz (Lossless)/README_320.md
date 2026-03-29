@@ -1,3 +1,119 @@
+###  Публикация: 1717430   (111138) от 20.04.2024
+
+Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Should've Happened a Long Time Ago [6:07]
+02. Fiasco [7:49]
+03. Conception Vessel [4:32]
+04. Introduction [3:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D4AA38324B343EA6B303EB4082973D16C3155B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717647   (111118) от 21.04.2024
+
+Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Joy [4:35]
+02. The Archangel [6:52]
+03. Nothing Ever Was, Anyway [6:51]
+04. Gary [4:37](   Читать дальше...   )Жанр: Avant-Garde Jazz, Jazz FusionПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717644   (111117) от 21.04.2024
+
+Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [9:24]
+02. I Remember You [14:14]
+03. Yesterdays [11:17]
+04. Let's Do It [10:43](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7C35B49750BB2890CE72FD1B596D6F8B514C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717645   (111116) от 21.04.2024
+
+Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polka Dots and Moonbeams [3:37]
+02. Nina Never Knew [3:25]
+03. Crazy She Calls Me [3:34]
+04. Lush Life [3:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C989D2803536DA4CC077A02A1EFF35A5EDFA746C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717870   (111048) от 22.04.2024
 
 Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
@@ -6,7 +122,7 @@ Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111048.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111042.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111034.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111027.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111008.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111007.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111002.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110979.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110964.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110962.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110922.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110921.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110918.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Bobby Hutcherson - Landmarks (1984 - 1986) 1991, Landmark Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110830.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Gerald Albright - G (2016) Bright Music Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110828.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars: Recorded Live At The Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110822.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Ultimate Chillout Ambient Lounge II (2024) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110763.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Luxury Lifestyle Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110738.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110723.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Summer Jazzy Sounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110722.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ VA - Jump Up & Boogie: The New Swing Collection (1998) Elektra Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110719.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Luxury Lifestyle Classy Relaxing Jazz Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110716.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Luxury Lifestyle Classy Relaxing Jazz Instrumentals (2024) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63E6B0E00EC2013334E7D2BB1628D685D802010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718812   (110709) от 27.04.2024
-
-VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banda Brasileira - Napule è (4:10)
-02. Papik - Ancora Tu (5:12)
-03. Melania - Malafemmena (4:22)
-04. Walter Ricci - Tu Si Na Cosa Grande (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167FE2683BBF3E048C1C6B8BF6F8B8107D8F60F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718890   (110708) от 27.04.2024
-
-Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buzzard Song [4:11]
-02. Bess, You Is My Woman Now [5:15]
-03. Gone [3:41]
-04. Gone, Gone, Gone [2:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF54FD0F05E82CFD16A54F8C9D247BAD8FC71F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718904   (110702) от 27.04.2024
-
-Barbara Morrison featuring Houston Person - I Wanna Be Loved (2017) Savant [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [2:59]
-02. I Wanna Be Loved [4:17]
-03. This Time the Dream's on Me [3:13]
-04. I'll Close My Eyes [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0D1CD53327865A62DF960653C73A3285184249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718893   (110695) от 27.04.2024
-
-Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Comes Love [4:42]
-02. Dreams & Shadows (Delilah) [4:30]
-03. In Love in Vain [2:47]
-04. Photograph [2:37](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

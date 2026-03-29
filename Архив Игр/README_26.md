@@ -6,7 +6,7 @@ Max Payne 3 (Repack/1.0.0.22) [Multi8/+] 2012 l kuha
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673749.jpg" />
+  <img src="Z:/picture/008/save_picture_673749.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ American Truck Simulator (2016) [Ru/En] (1.3.1.1s/dlc) SteamRip R.G. ORiGiNS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673595.jpg" />
+  <img src="Z:/picture/008/save_picture_673595.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Layers of Fear (2016) [Ru/Multi] (1.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673581.jpg" />
+  <img src="Z:/picture/008/save_picture_673581.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Ru/Multi] (1.28/dlc) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671916.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671867.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Overfall (2016) [En] (6/28/2016) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671565.jpg" />
+  <img src="Z:/picture/008/save_picture_671565.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_669939.jpg" />
+  <img src="Z:/picture/005/save_picture_669939.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669863.jpg" />
+  <img src="Z:/picture/008/save_picture_669863.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ MONSTER HUNTER: WORLD (2018) [Ru/Multi] (1.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668400.jpg" />
+  <img src="Z:/picture/008/save_picture_668400.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668347.jpg" />
+  <img src="Z:/picture/005/save_picture_668347.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668345.jpg" />
+  <img src="Z:/picture/005/save_picture_668345.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru/En] (RePack) 2002 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668257.jpg" />
+  <img src="Z:/picture/005/save_picture_668257.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667025.jpg" />
+  <img src="Z:/picture/005/save_picture_667025.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ SolSuite Solitaire 2015 (2015) [Ru/En] (15.5) Repack D!akov
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665180.jpg" />
+  <img src="Z:/picture/008/save_picture_665180.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Incredible Adventures of Van Helsing III (2015) [En] (1.0.0.1) RePack SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664993.jpg" />
+  <img src="Z:/picture/008/save_picture_664993.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ B-Hunter (Rip) [En] 1999
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664804.jpg" />
+  <img src="Z:/picture/005/save_picture_664804.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Dominium (RePack) [En] 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664797.jpg" />
+  <img src="Z:/picture/005/save_picture_664797.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Ghostbusters​: Sanctum of Slime [Ru] 2011 | Zerstoren [RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664605.jpg" />
+  <img src="Z:/picture/008/save_picture_664605.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664422.jpg" />
+  <img src="Z:/picture/005/save_picture_664422.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_663387.jpg" />
+  <img src="Z:/picture/005/save_picture_663387.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Terraria (2011) [Ru/En] (1.2.4.1) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662855.jpg" />
+  <img src="Z:/picture/008/save_picture_662855.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Dark Half [En] (RePack) 1992 | RG games (Pilotus)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_662733.jpg" />
+  <img src="Z:/picture/005/save_picture_662733.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_662236.jpg" />
+  <img src="Z:/picture/005/save_picture_662236.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ DiRT 3 [Multi5\-] (L) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_662166.jpg" />
+  <img src="Z:/picture/005/save_picture_662166.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_661145.jpg" />
+  <img src="Z:/picture/005/save_picture_661145.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Magicka. Ну очень эпическая игра / Magicka (RePack/1.4.7.0) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661016.jpg" />
+  <img src="Z:/picture/008/save_picture_661016.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1072103   (355028) от 12.11.2016
+
+Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You And Me (The Universe) [04:20]
+ 02.That's When Your Heartaches Begin [04:22]
+ 03.Someday [03:27]
+ 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072137   (355022) от 12.11.2016
+
+Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectables Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Sound of Silence [03:02]
+ 02.I Got It Bad and That Ain't Good [03:28]
+ 03.MacArthur Park [04:02]
+ 04.Watch What Happens [02:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48424F9556A7C43F92C6886392C5CF1CE2AF850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577586   (354828) от 19.09.2022
+
+Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [7:46]
+02. Don't You Know the Time It Was [9:27]
+03. Caravan [9:12]
+04. Sweet Georgia Brown [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6B2F7D77CE4454FA10BACC9FD75E43E1966D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577736   (354649) от 19.09.2022
+
+V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Cole - Feelings
+02. Michael Broening - Summer In Blue
+03. Cindy Bradley - Love Yourself
+04. Mark Jaimes - Evenin'(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A457A05FBD3CBB09ACCD99066443F32210282FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329281   (354599) от 04.10.2019
 
 Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
@@ -6,7 +122,7 @@ Bud Shank & Bob Cooper - European Tour '57 (2006) Lone Hill Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354599.jpg" />
+  <img src="Z:/picture/008/save_picture_354599.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Tiny Grimes - Five Classic Albums (1958, 1959) 4CD, 2017, Real Gone Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354413.jpg" />
+  <img src="Z:/picture/008/save_picture_354413.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Les & Larry Elgart - Best Of Big Bands (1940-e) 1990, CBS [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354095.jpg" />
+  <img src="Z:/picture/008/save_picture_354095.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Tatum - Trio Days (1944) 1999, Ars Nova [FLAC|Lossless|tracks + .cue] <Strid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354093.jpg" />
+  <img src="Z:/picture/008/save_picture_354093.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nelson Riddle & His Orchestra - The Silver Collection (1972) 1989, MPS [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354082.jpg" />
+  <img src="Z:/picture/008/save_picture_354082.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Walt Dickerson Quartet - Impressions of a Patch of Blue (1965) /1999, Verve Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353792.jpg" />
+  <img src="Z:/picture/008/save_picture_353792.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dizzy Gillespie - One Night In Washington (1955) /2013, Warner/[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353790.jpg" />
+  <img src="Z:/picture/008/save_picture_353790.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Weather Report - Live In London (80-e) 2020, Angel Air [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353679.jpg" />
+  <img src="Z:/picture/008/save_picture_353679.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Glenn Miller Orchestra - The 40's Glenn Miller Orchestra (1993) [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353673.jpg" />
+  <img src="Z:/picture/008/save_picture_353673.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Harry Connick, Jr. - That Would Be Me (2015) /Columbia Records/[FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353669.jpg" />
+  <img src="Z:/picture/008/save_picture_353669.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Pat Metheny - Selected Recordings ECM (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353660.jpg" />
+  <img src="Z:/picture/008/save_picture_353660.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - The Future Sound of Jazz 3 (1998) [FLAC|tracks +.cue]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353656.jpg" />
+  <img src="Z:/picture/008/save_picture_353656.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Gregory Porter - Nat King Cole & Me (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353558.jpg" />
+  <img src="Z:/picture/008/save_picture_353558.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dave Koz - A New Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353534.jpg" />
+  <img src="Z:/picture/008/save_picture_353534.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Laurent Coq Blowing Trio - The Thing To Share (2006) Cristal Records[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352876.jpg" />
+  <img src="Z:/picture/008/save_picture_352876.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Boyd Raeburn - And His Orchestra 1945-1946 (2000) Storyville[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352875.jpg" />
+  <img src="Z:/picture/008/save_picture_352875.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Nicki Parrott - Sakura Sakura (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_352733.jpg" />
+  <img src="Z:/picture/005/save_picture_352733.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352460.jpg" />
+  <img src="Z:/picture/008/save_picture_352460.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352447.jpg" />
+  <img src="Z:/picture/008/save_picture_352447.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352380.jpg" />
+  <img src="Z:/picture/008/save_picture_352380.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Papik - Music Inside (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352292.jpg" />
+  <img src="Z:/picture/008/save_picture_352292.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Paolo Conte - Paris Milonga (2000) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352286.jpg" />
+  <img src="Z:/picture/008/save_picture_352286.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Paolo Conte - Paris Milonga (2000) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B08F52174DB237A9031F72A6DF639941EC785180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072626   (352281) от 13.11.2016
-
-Paolo Conte - Psiche (2008) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psiche (3:17)
-02. Il quadrato e il cerchio (3:17)
-03. Intimita' (3:28)
-04. Big Bill (3:44)(   Читать дальше...   )Жанр: Jazz-Pop, VocalПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2295AF55F6999040D2BCEB1872347857DCFD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072641   (352277) от 13.11.2016
-
-Papik - Papik Presents: Cocktail Martino (2013) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabato Sera
-02. Soli Tra la Gente
-03. The Girls From Ipanema
-04. Estate(   Читать дальше...   )Жанр: Vocal Jazz, Nu JazzПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F9EFB69238690CF44DF9B81E70492A6C029BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072453   (352012) от 13.11.2016
-
-Dexter Gordon - Dexter Rides Again (1945-1947) 1992, Savoy Jazz[FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dexter's Riff [02:47]
- 02.Settin' the Pace - Part 1 & 2 [05:56]
- 03.So Easy [03:44]
- 04.Long Tall Dexter [03:06](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2D726EB7008417F51FA9E78E6F8F6731CBA069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256742   (351995) от 23.10.2018
-
-Barney Kessel - Modern Jazz Performances From Bizet's Carmen (1958) 1986, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swingin' The Toreador [5:52]
-02. A Pad On The Edge Of Town [6:46]
-03. If You Dig Me [4:04]
-04. Free As A Bird [5:00](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D86429667A46EBE92B88A05CA7B313D17236CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

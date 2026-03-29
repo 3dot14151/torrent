@@ -1,3 +1,55 @@
+###  Публикация: 1046636   (552015) от 27.08.2016
+
+Секретные материалы 17. Мистика картин  (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что скрывают шедевры мировой живописи? Загадочные полотна Босха, проклятые портреты Репина, опасный натюрморт Моне – многие знаменитые картины буквально напичканы тайными знаками и символами. В чем заключается мистическая сторона искусства? Что такое цветотерапия? И как вылечиться с помощью красок?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A25739D0168B6577A878E372B81006D296D62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046586   (552011) от 27.08.2016
+
+Секретные материалы 17. От Хиросимы до Фукусимы (2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто виноват в трагедии Фукусимы? За всю историю человечество пережило не одну атомную катастрофу, в том числе и аварию на японской АЭС. Сегодня специалисты утверждают, что страшного взрыва можно было избежать. Почему же роковое событие все-таки произошло? И чему научил мир чернобыльский опыт?Телекомпания: Россия, МирЖанр: Документальный, ТелепередачаРежиссер: Алла ДерюгинаПродолжительность: 00:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058D683DB3F16FB3B46AACD66FA543462641CF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046649   (552009) от 27.08.2016
 
 Секретные материалы 17. Заговор хищников  (2016) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552009.jpg" />
+  <img src="Z:/picture/008/save_picture_552009.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552008.jpg" />
+  <img src="Z:/picture/008/save_picture_552008.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551946.jpg" />
+  <img src="Z:/picture/008/save_picture_551946.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551944.jpg" />
+  <img src="Z:/picture/008/save_picture_551944.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551849.jpg" />
+  <img src="Z:/picture/008/save_picture_551849.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551719.jpg" />
+  <img src="Z:/picture/008/save_picture_551719.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550869.jpg" />
+  <img src="Z:/picture/008/save_picture_550869.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548706.jpg" />
+  <img src="Z:/picture/008/save_picture_548706.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546473.jpg" />
+  <img src="Z:/picture/008/save_picture_546473.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546382.jpg" />
+  <img src="Z:/picture/008/save_picture_546382.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545797.jpg" />
+  <img src="Z:/picture/008/save_picture_545797.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545739.jpg" />
+  <img src="Z:/picture/008/save_picture_545739.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545558.jpg" />
+  <img src="Z:/picture/008/save_picture_545558.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545473.jpg" />
+  <img src="Z:/picture/008/save_picture_545473.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545397.jpg" />
+  <img src="Z:/picture/008/save_picture_545397.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536441.jpg" />
+  <img src="Z:/picture/008/save_picture_536441.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535372.jpg" />
+  <img src="Z:/picture/008/save_picture_535372.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535022.jpg" />
+  <img src="Z:/picture/008/save_picture_535022.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535012.jpg" />
+  <img src="Z:/picture/008/save_picture_535012.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534799.jpg" />
+  <img src="Z:/picture/008/save_picture_534799.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532512.jpg" />
+  <img src="Z:/picture/008/save_picture_532512.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532229.jpg" />
+  <img src="Z:/picture/008/save_picture_532229.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528079.jpg" />
+  <img src="Z:/picture/008/save_picture_528079.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526049.jpg" />
+  <img src="Z:/picture/008/save_picture_526049.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0A676BF31BC03EE3BD857BD2565413DC7872E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053521   (525915) от 17.09.2016
-
-Битва экстрасенсов (2016.09.17) DVB (сезон 17, выпуск 3)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525915.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338AFA056BA81848B6017A21EC57B7B2562F6924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157660   (525151) от 12.08.2017
-
-Засекреченные списки. Новые пророчества: Что ждёт Россию? (12.08.2017) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египетская царица-предсказатель обещает России страшные бедствия. Она предупреждает, что в 2018 году в России произойдет потоп. Неужели ливни и ураганы, пугавшие нас летом 2017 года, его предвестники. Самые шокирующие пророчества Ванги, кто на самом деле стоит за атакой на Россию. Откровения личного переводчика болгарской провидицы. Впервые на телеэкране эксклюзивное (   Читать дальше...   )Телекомпания: Россия, RenTV, Юнайтед медиаЖанр: ДокументальныйПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C64BE09E22195976947181F75EDDFC90FBA3CD08
 ```
 
 https://mybot314.ru/tekegram_catalog/

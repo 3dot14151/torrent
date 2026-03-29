@@ -1,3 +1,84 @@
+###  Публикация: 1430291   (174211) от 09.12.2020
+
+Евгения Пельтек | Пишите – не пишите. Психологическое руководство для авторов по работе с текстом и собой (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Пишите – не пишите» психолога и журналиста Евгении Пельтек – спасательный круг, за который можно ухватиться, когда парализован страхом чистого листа, путаешься в собственном тексте или погружаешься в пучину писательского самобичевания. Автор расскажет, как устроен мир пишущего человека, какие в нем действуют психологические механизмы и что делать, если какой-то (   Читать дальше...   )Жанр: О психологии популярно, Отраслевые издания, Творческая деятельностьФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DA6267545D8EFE45376895A8E9C8966E85CDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344249   (173853) от 09.12.2019
+
+Джон Хэнк, Трэвис Мэйси | Ультрамышление. Психология сверхнагрузок (2016) [PDF, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы пройти тяжёлые испытания, нужна мощная мотивация и сила воли. В этом смысле нам всем есть чему поучиться у ультрамарафонцев. Многочасовые, а то и многодневные гонки на выносливость, осложненные экстремальными условиями, – как возможно выдержать такие физические и психологические нагрузки?
+
+Автор этой книги прошел более сотни самых невероятных состязаний на (   Читать дальше...   )Жанр: Зарубежная прикладная литератураФормат: PDF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A6F03A66F4E35446BE75BDA4E5AB029B99F39B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826860   (173601) от 19.10.2025
+
+Янина Фишер | Трансформация травмы : рабочая тетрадь для переживших травму и для терапевтов (2024) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Травматический опыт оставляет "живое наследие", которое порой сохраняется в течение многих лет и десятилетий после окончания событий. Как справиться с этими последствиями? Доктор Янина Фишер, международный эксперт по психотравме, предлагает пошаговые стратегии, которые можно использовать самостоятельно или в сотрудничестве с терапевтом.
+В книгу включены (   Читать дальше...   )Жанр: Популярная психологияПеревод: с англ. Е.А. БакушевойИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3489CEA33D6695890B6ADA87EAC045C8290E2E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668782   (173342) от 13.10.2023
 
 Тобиас Морштедт | Плохие хорошие отцы. Как изменить роль мужчины в семье, чтобы выиграли все (2023) [PDF]
@@ -6,7 +87,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173342.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173320.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171851.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171340.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171325.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171317.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171314.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171137.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170940.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170918.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170599.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170473.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170421.jpg" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170314.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170275.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170105.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170093.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170004.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169440.jpg" />
 </div>
 
 
@@ -517,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169357.jpg" />
 </div>
 
 
@@ -544,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168733.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168662.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168501.jpg" />
 </div>
 
 
@@ -608,85 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5232319E4EB2035E94A5AD0FF0579EF09C3FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345170   (168040) от 13.12.2019
-
-Элис Крайп | Мечтай! Планируй! Действуй! (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка Элис долгое время искала себя и старалась быть не хуже других. Пыталась найти ответы на вопросы «Кто ты?», «Чем занимаешься?», как того требует современное общество. Но все попытки обрести «понятную» профессию не приносили никакого удовольствия. И понимание того, что нужно рисковать, не бояться ставить перед собой большие цели и не зависеть от чужого (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9B2761D1764644D985E6F941B1B2348E44BEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345055   (168010) от 13.12.2019
-
-Александр Рей | Между разумом и чувствами. Как приручить эмоции и победить страхи (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Александра Рея, автора бестселлера «Предназначение», психолога и просто счастливого человека. Она откроет для вас простой и эффективный метод «Самотерапия», позволяющий взять под контроль разум и чувства, избавиться от страхов и нерешительности и научиться решать любые жизненные задачи. Вы получите множество действительно работающих техник и инструментов, (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D626F1D5B8AD76478BD049D452735BE8E0AE9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344958   (167932) от 13.12.2019
-
-Кэролайн Уилльямс (ред.-сост.) | Мозг и сознание. Разгадка величайшей тайны человеческого мозга (2019) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сознание – удивительный феномен и одна из еще не разгаданных загадок науки. Но что это такое? Как и почему оно появилось? Как сложные переплетения нейронов создают ощущения, мысли, воспоминания и эмоции? Есть ли сознание у животных? Как на нас действует гипноз? Существует ли свобода воли? Какие бывают расстройства сознания?
-В этой книге собраны лучшие статьи ведущих (   Читать дальше...   )Жанр: Психология, нейропсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC8B31877FF641B06F2B4E7D32224A262DB83F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

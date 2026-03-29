@@ -1,3 +1,90 @@
+###  Публикация: 1681572   (132433) от 04.12.2023
+
+Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Towards A Twilight Kiss
+02. Of Beauty´s Embrace
+03. Razor
+04. From Ebony Skies(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF1361580A109506251F6850B98852A09F07AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681784   (132430) от 04.12.2023
+
+Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Livin' Song
+02. Doomdrugged
+03. Blackelectric
+04. Tomptrippin'(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCF535AFE67EC0CA72A48925963E05199E4989B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681653   (132429) от 04.12.2023
+
+Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nailwork
+02. Blades To Laughter
+03. Wormsong
+04. All Scissors Smile(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F532B666C722D799B5030B4F9A0BC504F4D5E530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681647   (132428) от 04.12.2023
 
 Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132428.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Night In Gales - Thunderbeast (1998) [APE|Lossless|image + .cue] <Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132426.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Deus Otiosus - Godless (2012) [FLAC|Lossless]<Old School Death / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132237.jpg" />
 </div>
 
 
@@ -97,7 +184,7 @@ Solitary - Nothing Changes (1998) Reissue, 2004, Casket Music [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132145.jpg" />
 </div>
 
 
@@ -126,7 +213,7 @@ Dark Fortress - 5 CD (2001-2008) [FLAC|Lossless]<Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132144.jpg" />
 </div>
 
 
@@ -160,7 +247,7 @@ Haissem - A Sleep of Primeval Ignorance (2022) [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132141.jpg" />
 </div>
 
 
@@ -189,7 +276,7 @@ Dyscrasia - Septical Stomach-Pumped Remnants (2004) [FLAC|Lossless]<Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132136.jpg" />
 </div>
 
 
@@ -221,7 +308,7 @@ Drowning Pool - Drowning Pool (2010) [FLAC|Lossless]<Alternative metal / Post-Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132060.jpg" />
 </div>
 
 
@@ -256,7 +343,7 @@ Solitary - Requiem (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131890.jpg" />
 </div>
 
 
@@ -285,7 +372,7 @@ Solitary - The Diseased Heart of Society (2017) [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131888.jpg" />
 </div>
 
 
@@ -314,7 +401,7 @@ Night In Gales - The Last Sunsets (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131886.jpg" />
 </div>
 
 
@@ -343,7 +430,7 @@ Night In Gales - Dawnlight Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131884.jpg" />
 </div>
 
 
@@ -372,7 +459,7 @@ Knife - Heaven Into Dust (2023) [FLAC|Lossless|image + .cue] <Speed Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131882.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ We Are Perspectives - Heritage (Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131541.jpg" />
 </div>
 
 
@@ -430,7 +517,7 @@ Daemon Grey - Daemonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Indus
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131531.jpg" />
 </div>
 
 
@@ -459,7 +546,7 @@ Strike Master - Up for the Massacre (2006) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131211.jpg" />
 </div>
 
 
@@ -488,7 +575,7 @@ Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131205.jpg" />
 </div>
 
 
@@ -517,7 +604,7 @@ Lyr - Lyr (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131192.jpg" />
 </div>
 
 
@@ -546,7 +633,7 @@ Spirits of Fire - Embrace the Unknown (2022) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131130.jpg" />
 </div>
 
 
@@ -575,7 +662,7 @@ Lacuna Coil - Live at Wacken (2007) + Swamped (Single) (2004) [FLAC|Lossless]<Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130875.jpg" />
 </div>
 
 
@@ -602,7 +689,7 @@ Blood Of Kingu - Sun In The House Of The Scorpion (2010) Reissue, 2020, Osmose P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130415.jpg" />
 </div>
 
 
@@ -631,7 +718,7 @@ Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130282.jpg" />
 </div>
 
 
@@ -660,7 +747,7 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130101.jpg" />
 </div>
 
 
@@ -674,93 +761,6 @@ Recon - Behind Enemy Lines (1990) [APE|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D2DBD29B81A8E0988A954E271A7BE9ED7E60548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525134   (130093) от 19.01.2022
-
-Twelve Foot Ninja - Vengeance (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start the Fire (04:10)
- 02. Long Way Home (03:02)
- 03. Vengeance (03:27)
- 04. IDK (03:03)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C06D060D5BA5903D2773EABB84E248BAC4565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525209   (130070) от 19.01.2022
-
-Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|tracks|Web-DL] <Melodic Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus of Doom [00:04:57]
-02. Wings of Light [00:04:07]
-03. Master of Illusion [00:04:08]
-04. Where Angels Fear to Fly [00:03:56](   Читать дальше...   )Жанр: Melodic Heavy Metal, Female VocalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2921FB762C8AA22F946F5CDD6D5E5BB96FB800FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050008   (130040) от 19.01.2022
-
-Cenotaph - Epic Rites (9 Epic Tales & Death Rites) (1996) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:41)
-02. Crying Frost (05:57)
-03. Lorn Ends (04:51)
-04. Navegate (05:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171081526FF3C6C144B6C407679540E013DD595E
 ```
 
 https://mybot314.ru/tekegram_catalog/

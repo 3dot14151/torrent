@@ -1,3 +1,176 @@
+###  Публикация: 200044   (780673) от 15.05.2010
+
+Yamato The Drummers of Japan (1995) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень понравился концерт. Переделал в .ави для уменьшения размера,стараясь без потери качества.
+Ультрасовременное, синтезирующее традиционную и авангардную музыку шоу японских барабанщиков с элементами театра и танца. В чистом виде «Wadaiko Yamato Show» представляет собой уникальное представление, соединяющее виртуозное мастерство исполнения и древние магические (   Читать дальше...   )01. Yamato — Prelude
+02. Yamato — Aozora
+03. Yamato — Kurenai
+04. Yamato — Kagiroi(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199920   (780639) от 15.05.2010
+
+Ромео и Джульетта / Romeo and Juliet (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МюзиклРежиссер: Gerard PresguvicАктеры: Romeo - Damien Sargue
+Juliette - Cecilia Cara
+Benvolio - Gregori Baquet
+Mercutio - Philippe D'Avilla(   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: RUПродолжительность: 02:29:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207493   (780556) от 18.02.2018
+
+Квартирник на НТВ у Маргулиса. Квартал (02.17.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780556.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла советская и российская рок-группа «Квартал», которая недавно отметила юбилей. Музыканты исполнили свои лучшие композиции для гостей и телезрителей. Евгений Маргулис вспомнил, как в 1988 году «Квартал» играл совместный концерт с «Машиной времени» и рассказал, что Татьяна Литвиненко, солистка группы, пела с легендарными «Би-2».
+Поздравить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F65E6F86218829F6819A3E703560892F2E7699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207087   (780169) от 20.02.2018
+
+Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-LQ] <Pop, Rock> [hand made реставрация]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полное собрание клипов и лучших живых выступлений шведского дуэта. Все видео прошло реставрационную обработку, звук в клипах заменен на CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK000 Intro
+001 Roxette - Neverending Love
+002 Roxette - Soul Deep
+003 Roxette - I Call Your Name(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BFEBC4B4A8525102F62EED27DB2241D693D402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208452   (779924) от 22.02.2018
+
+Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_779924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз группа 月亮龍 Production представляет  концерт исполнителя Nana Mizuki который стал заключительным в конце ее  тура по всем городам Японии в 2017 году.   Здесь вы найдете   полный релиз из 4-х дискового издания включившего в себя  2 концерта,  бонусные материалы записи  репетиций,   уникальные кадры  подготовки  второго концерта а так же бонусное выступление (   Читать дальше...   )1. Shimey Murasaki
+2. Power Gate
+3. Don't be long
+4. Pleasure Camelia(   Читать дальше...   )Производство: Япония, King Records Ltd.Жанр: J-popРежиссер: Urara SatoПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:55:22, 01:52:32, 01:31:52, 00:49:55, 02:11:49, 00:12:58, 00:06:28, 00:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9357B1152BBC9E3490B5412196293DE8301D33FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209180   (779491) от 25.02.2018
+
+Whitesnake - The Purple Tour Live (2018) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779491.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Purple Tour - концертный альбом группы Whitesnake, в который вошли классические хиты группы Whitesnake и Deep Purple времен Дэвида Кавердейла. В данном издании содержатся песни с нескольких студийных альбомов, записанных Дэвидом Ковердейлом в составе Deep Purple, в том числе Burn (1974), Stormbringer (1974) и Come Taste The Band (1975), а также You Fool No One, (   Читать дальше...   )01. Burn
+02. Bad Boys
+03. Love Ain't No Stranger
+04. The Gypsy(   Читать дальше...   )Производство: США, Rhino MusicЖанр: Rock, Hard RockПродолжительность: 01:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891A724B023E5EA8D103950937A77E4ADA4F5E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209171   (779483) от 25.02.2018
 
 Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
@@ -6,7 +179,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779483.jpg" />
 </div>
 
 
@@ -35,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779479.jpg" />
 </div>
 
 
@@ -62,7 +235,7 @@ Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779455.jpg" />
 </div>
 
 
@@ -91,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778837.jpg" />
 </div>
 
 
@@ -117,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778683.jpg" />
 </div>
 
 
@@ -144,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778680.jpg" />
 </div>
 
 
@@ -173,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778491.jpg" />
 </div>
 
 
@@ -200,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778460.jpg" />
 </div>
 
 
@@ -229,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778422.jpg" />
 </div>
 
 
@@ -258,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777221.jpg" />
+  <img src="Z:/picture/008/save_picture_777221.jpg" />
 </div>
 
 
@@ -284,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777219.jpg" />
+  <img src="Z:/picture/008/save_picture_777219.jpg" />
 </div>
 
 
@@ -310,7 +483,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777212.jpg" />
+  <img src="Z:/picture/008/save_picture_777212.jpg" />
 </div>
 
 
@@ -339,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777170.jpg" />
+  <img src="Z:/picture/008/save_picture_777170.jpg" />
 </div>
 
 
@@ -365,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777147.jpg" />
+  <img src="Z:/picture/008/save_picture_777147.jpg" />
 </div>
 
 
@@ -391,7 +564,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777139.jpg" />
+  <img src="Z:/picture/008/save_picture_777139.jpg" />
 </div>
 
 
@@ -420,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777128.jpg" />
+  <img src="Z:/picture/008/save_picture_777128.jpg" />
 </div>
 
 
@@ -446,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777078.jpg" />
+  <img src="Z:/picture/008/save_picture_777078.jpg" />
 </div>
 
 
@@ -472,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776783.jpg" />
+  <img src="Z:/picture/008/save_picture_776783.jpg" />
 </div>
 
 
@@ -498,7 +671,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776740.jpg" />
+  <img src="Z:/picture/008/save_picture_776740.jpg" />
 </div>
 
 
@@ -527,7 +700,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776704.jpg" />
+  <img src="Z:/picture/008/save_picture_776704.jpg" />
 </div>
 
 
@@ -541,171 +714,6 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97E6637362B38214E4D687A3C06CEF77340024E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212049   (776421) от 10.03.2018
-
-The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления The Doors на фестивале The Isle Of Wight 30.08.1970г.Видео и аудиоматериал после реставрации и ремастирования был выпущен на БД.Сам концерт по длительности небольшой,поэтому на оставшееся место добавлены фрагменты выступлений группы на ТВ (из изданных ранее на DVD фильмов "The Soft Parade - A Retrospective" и "Dance On Fire".The Soft Parade - A Retrospective
-01. The Changeling (1991 short film)
-02. Wishful Sinful (PBS TV show critique, April 28th, 1969)
-03. Wild Child (Recording studio, October 1968)(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Psychedelic Rock, Classic Rock, Acid Rock, BluesРежиссер: Murray LernerАктеры: The DoorsПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:39:34 + 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD19E5FEC30BABA92ED888A7A62D2203596B8F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212241   (776353) от 10.03.2018
-
-Вадим Галыгин и гр. Ленинград / 8 Марта (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное музыкально-художественное произведение создано для привлечения общественного внимания к проблеме отношений между мужчиной и женщиной.Производство: РоссияЖанр: ПопСубтитры: русскиеПродолжительность: 00:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0381696988B2863D616BFFB1D192C33049DE7B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212216   (776301) от 10.03.2018
-
-Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это полное собрание клипов и лучших концертных выступлений немецкой группы. Все видео взято с оригинальных блю рей и двд, звук не менял, так как он превосходный. Поскольку фирменный блю рей с клипами делался из обычного видео с низким разрешением и судя по всему учавствовали в этом процессе люди слабо разбирающиеся в видео, и состряпали халтуру. Выставили в некоторых (   Читать дальше...   )00 Intro
-01 Rammstein - Du riechst so gut
-02 Rammstein - Links 2 3 4
-03 Rammstein - Rammstein(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 03:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E930D1866A57759E9B9616E8D41F4534D94796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212202   (776273) от 10.03.2018
-
-VA - Весенний марафон № 229: (Новые Лучшие Зарубежные клипы) (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весенние (10.03.2018) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent - Deep In Your Eyes (Official Video) (3:06)
-2. AMI - Niste dragoste (Official Video) (3:17)
-3. Ashley Monroe - Hands On You (Official Music Video) (3:46)
-4. Camila Cabello - Never Be the Same (4:01)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Soul, House, TranceПродолжительность: 01.39.51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6484DACB8BC435EA6D611BF4C6710D546D3ECB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014175   (776101) от 08.05.2016
-
-Валентин Черных - День приезда - день отъезда (1978) TVRip (2 части) (Театр им. Моссовета)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по одноименной пьесе В. Черных в постановке Государственного академического театра имени Моссовета. Психологи Петров и Бурцева приезжают из Москвы в небольшой город по просьбе директора завода, чтобы выяснить причины сложившейся на предприятии напряженной обстановки, участившихся увольнений рабочих. Ученым удается выяснить подлинные причины создавшейся (   Читать дальше...   )Производство: СССР, ЦТ, Московский Государственный академический театр им. МоссоветаЖанр: Телеспектакль, драмаРежиссер: Павел Хомский, Юрий ЗавадскийАктеры: Георгий Тараторкин, Ия Саввина, Лариса Наумкина, Людмила Шапошникова, Юрий Кузьменков, Вячеслав Бутенко, Леонид Евтифьев, Александр Леньков, Михаил ПогоржельскийПродолжительность: 2 x ~ 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4849AE621263CF2FCF681D46113F3A25203E52D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212357   (776084) от 11.03.2018
-
-Квартирник на НТВ у Маргулиса. Brazzaville (03.10.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776084.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к ведущему Евгению Маргулису пришла инди-группа «Браззавиль», участники которой исполнили самые любимые композиции, рассказали об истории названия коллектива и семейных отношениях в группе, а также признались в любви к квартирникам.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303984AB7647485C4B5F95C31ECFF0189399967B
 ```
 
 https://mybot314.ru/tekegram_catalog/

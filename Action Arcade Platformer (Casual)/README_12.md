@@ -1,3 +1,59 @@
+###  Публикация: 562862   (404263) от 21.10.2012
+
+Rocketbirds: Hardboiled Chicken [En/Multi11] (L) 2012 | TiNYiSO
+
+>>След.
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404263.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-мерный экшн-платформер с петухом-коммандосом, противостоящим режиму пингвинов.
+
+Rocketbirds: Hardboiled Chicken наследует браузерную игру Rocketbirds: Revolution!, обогащаясь 4-мя новыми уровнями, заставками, дополнительным оружием и совместной кампанией. Действие происходит в Альбатрополисе – стране птиц, управляемой тоталитарным режимом пингвинов. Игрок управляет крутым петухом, желающим ликвидировать правителя Путцки.
+ В ходе миссии протагонист раскрывает секреты своего прошлого и выявляет реальных врагов Альбатрополиса. В одиночном режиме нужно уничтожать врагов, используя находимое оружие (пистолет, автомат, дробовик, гранаты и др.). Имеются головоломки и секции с полетом
+ на реактивном рюкзаке (джетпаке).(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ratloop AsiaЖанр: Платформер, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Multi11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB28071F1B1EFE0D65FE309C093E415AFCDC95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171101   (397335) от 03.10.2017
+
+Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_397335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Torchlight и Torchlight II представляют Hob — захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос.Тип издания: LicenseРазработчик: Runic GamesЖанр: Action, Arcade, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170970   (396406) от 04.10.2017
 
 Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
@@ -6,7 +62,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396406.jpg" />
+  <img src="Z:/picture/008/save_picture_396406.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Omega Strike (2017) [Ru/Multi] (1.0.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395423.jpg" />
+  <img src="Z:/picture/008/save_picture_395423.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382076.jpg" />
+  <img src="Z:/picture/008/save_picture_382076.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ Toby: The Secret Mine (2015) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382074.jpg" />
+  <img src="Z:/picture/008/save_picture_382074.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ Portal Knights (2017) [Ru/Multi] (1.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373571.jpg" />
+  <img src="Z:/picture/008/save_picture_373571.jpg" />
 </div>
 
 
@@ -136,7 +192,7 @@ Castle Crashers (2012) [Ru/Multi] (2.2.1/dlc) SteamRip Let'sРlay [Steam Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369280.jpg" />
+  <img src="Z:/picture/008/save_picture_369280.jpg" />
 </div>
 
 
@@ -162,7 +218,7 @@ Raiden IV: OverKill (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368350.jpg" />
+  <img src="Z:/picture/008/save_picture_368350.jpg" />
 </div>
 
 
@@ -188,7 +244,7 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367975.jpg" />
+  <img src="Z:/picture/008/save_picture_367975.jpg" />
 </div>
 
 
@@ -214,7 +270,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367970.jpg" />
+  <img src="Z:/picture/008/save_picture_367970.jpg" />
 </div>
 
 
@@ -240,7 +296,7 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365418.jpg" />
+  <img src="Z:/picture/008/save_picture_365418.jpg" />
 </div>
 
 
@@ -266,7 +322,7 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364707.jpg" />
+  <img src="Z:/picture/008/save_picture_364707.jpg" />
 </div>
 
 
@@ -292,7 +348,7 @@ The Mummy Demastered (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362293.jpg" />
+  <img src="Z:/picture/008/save_picture_362293.jpg" />
 </div>
 
 
@@ -318,7 +374,7 @@ Fly'N [En] (L) 2012 | SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359644.jpg" />
+  <img src="Z:/picture/008/save_picture_359644.jpg" />
 </div>
 
 
@@ -344,7 +400,7 @@ Final Exam (2013) [Ru/En] (1.0u3) RePack Audioslave
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355917.jpg" />
+  <img src="Z:/picture/008/save_picture_355917.jpg" />
 </div>
 
 
@@ -370,7 +426,7 @@ Candle (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353990.jpg" />
+  <img src="Z:/picture/008/save_picture_353990.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ ScourgeBringer (2020) [Ru/Multi] (1.42) License GOG [Supporter Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350644.jpg" />
+  <img src="Z:/picture/008/save_picture_350644.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350110.jpg" />
+  <img src="Z:/picture/008/save_picture_350110.jpg" />
 </div>
 
 
@@ -451,7 +507,7 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344131.jpg" />
+  <img src="Z:/picture/008/save_picture_344131.jpg" />
 </div>
 
 
@@ -477,7 +533,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339688.jpg" />
+  <img src="Z:/picture/008/save_picture_339688.jpg" />
 </div>
 
 
@@ -503,7 +559,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339101.jpg" />
+  <img src="Z:/picture/008/save_picture_339101.jpg" />
 </div>
 
 
@@ -529,7 +585,7 @@ Forge Quest (2015) [En] (1.56.5) Repack Hazestalker
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336546.jpg" />
+  <img src="Z:/picture/008/save_picture_336546.jpg" />
 </div>
 
 
@@ -555,7 +611,7 @@ ICEY (2016) [Muti] (1.0) License SKiDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335252.jpg" />
+  <img src="Z:/picture/008/save_picture_335252.jpg" />
 </div>
 
 
@@ -581,7 +637,7 @@ GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331907.jpg" />
+  <img src="Z:/picture/008/save_picture_331907.jpg" />
 </div>
 
 
@@ -607,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325409.jpg" />
+  <img src="Z:/picture/008/save_picture_325409.jpg" />
 </div>
 
 
@@ -618,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6893EEE752B311EE355F19A3C29975936B25FFE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820456   (324426) от 20.11.2015
-
-Shovel Knight (2014) [En/Multi] (2.01) Repack Let'sPlay
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shovel Knight - это классическая приключенческая игра с великолепным геймплеем, 8-битной графикой и запоминающимися, харизматичными персонажами. В ней вы найдёте зубодробительную смесь того, что накопил в себе этот жанр за долгие годы существования. Вам предстоит играть за маленького, но храброго рыцаря, перед которым стоит большая и серьёзная задача! Ему нужно победить (   Читать дальше...   )Тип издания: RepackРазработчик: Yacht Club GamesЖанр: Arcade (Platform)Язык озвучки: -//-Язык субтитров: -//-Язык интерфейса: Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEC90519BC59B738BD8CD9F38F0EB77F9D662C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412039   (324205) от 08.10.2022
-
-Cyber Hook (2020) [Ru/Multi] (1.2.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyber Hook - динамичный 3D-платформер, в котором тебе понадобятся навыки паркура и крюк, чтобы покорять самые неприступные стены, и лазерный палец-пистолет, чтобы устранять врагов и препятствия. Промчись по яркому миру в стиле ретровейв, чтобы испытать на прочность навыки паркура, но будь начеку: один неверный прыжок - и тебе конец.Тип издания: LicenseРазработчик: Blazing StickЖанр: Экшн, Аркада, ПлатформерЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFD0FEB47418962F663E11F3D0AF759B2FA27C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

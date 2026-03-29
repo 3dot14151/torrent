@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699764.jpg" />
+  <img src="Z:/picture/008/save_picture_699764.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BestReminder v2019.03.07.10 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699763.jpg" />
+  <img src="Z:/picture/008/save_picture_699763.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699761.jpg" />
+  <img src="Z:/picture/008/save_picture_699761.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Maxthon Browser 5.2.7.1100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699755.jpg" />
+  <img src="Z:/picture/008/save_picture_699755.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Ism - Micronui (2018) Organik Audio [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699754.jpg" />
+  <img src="Z:/picture/008/save_picture_699754.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Skype 7.25.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699732.jpg" />
+  <img src="Z:/picture/008/save_picture_699732.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Loaris Trojan Remover 2.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699731.jpg" />
+  <img src="Z:/picture/008/save_picture_699731.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ PhotoInstrument 7.5 Build 862 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699723.jpg" />
+  <img src="Z:/picture/008/save_picture_699723.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699722.jpg" />
+  <img src="Z:/picture/008/save_picture_699722.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699719.jpg" />
+  <img src="Z:/picture/008/save_picture_699719.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699718.jpg" />
+  <img src="Z:/picture/008/save_picture_699718.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AIMP 4.02 Build 1725 DC 17.06.2016 Final RePack (& Portable) by D!akov (with DFX
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699717.jpg" />
+  <img src="Z:/picture/008/save_picture_699717.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699716.jpg" />
+  <img src="Z:/picture/008/save_picture_699716.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Son Lux - Tomorrows I (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Experime
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699711.jpg" />
+  <img src="Z:/picture/008/save_picture_699711.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 07.08.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699705.jpg" />
+  <img src="Z:/picture/008/save_picture_699705.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Telegram Desktop 2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699703.jpg" />
+  <img src="Z:/picture/008/save_picture_699703.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699683.jpg" />
+  <img src="Z:/picture/005/save_picture_699683.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ EdgeView 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699661.jpg" />
+  <img src="Z:/picture/008/save_picture_699661.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ A-Zippr 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699640.jpg" />
+  <img src="Z:/picture/008/save_picture_699640.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ BluffTitler Ultimate 14.1.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699633.jpg" />
+  <img src="Z:/picture/008/save_picture_699633.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Comodo Dragon 72.0.3626.121 + Portable Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699621.jpg" />
+  <img src="Z:/picture/008/save_picture_699621.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Carbon Copy Cloner 4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699592.jpg" />
+  <img src="Z:/picture/008/save_picture_699592.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Malwarebytes Anti-Exploit Premium 1.08.1.2563 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699591.jpg" />
+  <img src="Z:/picture/008/save_picture_699591.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699588.jpg" />
+  <img src="Z:/picture/008/save_picture_699588.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699585.jpg" />
+  <img src="Z:/picture/008/save_picture_699585.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699578.jpg" />
+  <img src="Z:/picture/008/save_picture_699578.jpg" />
 </div>
 
 

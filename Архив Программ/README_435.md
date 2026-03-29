@@ -6,7 +6,7 @@ Torch Browser 69.2.0.1705 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819136.jpg" />
+  <img src="Z:/picture/008/save_picture_819136.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ RegCool 1.120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819126.jpg" />
+  <img src="Z:/picture/008/save_picture_819126.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ MediaInfo 0.7.93 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819103.jpg" />
+  <img src="Z:/picture/008/save_picture_819103.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ TechSmith Camtasia 2021.0.12 (Build 33438) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819088.jpg" />
+  <img src="Z:/picture/008/save_picture_819088.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CyberLink PowerDirector Ultimate 20.0.2204.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819085.jpg" />
+  <img src="Z:/picture/008/save_picture_819085.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ IObit Uninstaller Pro 11.1.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819075.jpg" />
+  <img src="Z:/picture/008/save_picture_819075.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Wise Program Uninstaller 2.1.5.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819047.jpg" />
+  <img src="Z:/picture/008/save_picture_819047.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ PT Photo Editor Pro Edition 3.2 RePack (& Portable) by 78Sergey-Dinis124 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819009.jpg" />
+  <img src="Z:/picture/008/save_picture_819009.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819007.jpg" />
+  <img src="Z:/picture/008/save_picture_819007.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ORPALIS PaperScan Professional 3.0.108 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818988.jpg" />
+  <img src="Z:/picture/008/save_picture_818988.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NirLauncher Package 1.23.21 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818974.jpg" />
+  <img src="Z:/picture/008/save_picture_818974.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Epic Privacy Browser 80.0.3987.87 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818973.jpg" />
+  <img src="Z:/picture/008/save_picture_818973.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ IObit Uninstaller Pro 9.5.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818971.jpg" />
+  <img src="Z:/picture/008/save_picture_818971.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ESET NOD32 Internet Security 15.0.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818920.jpg" />
+  <img src="Z:/picture/008/save_picture_818920.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.50.5800 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818915.jpg" />
+  <img src="Z:/picture/008/save_picture_818915.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Windows 11 21Н2 (build 22000.258) (3in1) by ivandubskoj 16.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818904.jpg" />
+  <img src="Z:/picture/008/save_picture_818904.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Aiseesoft Burnova 1.3.8 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818871.jpg" />
+  <img src="Z:/picture/008/save_picture_818871.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 63.0.3239.132 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818864.jpg" />
+  <img src="Z:/picture/008/save_picture_818864.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.38 (4/16/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818840.jpg" />
+  <img src="Z:/picture/008/save_picture_818840.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818833.jpg" />
+  <img src="Z:/picture/008/save_picture_818833.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Infix PDF Editor Pro 6.49 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818830.jpg" />
+  <img src="Z:/picture/008/save_picture_818830.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Autodesk AutoCAD Mechanical 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818824.jpg" />
+  <img src="Z:/picture/008/save_picture_818824.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe InCopy 2020 15.0.3.425 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818809.jpg" />
+  <img src="Z:/picture/008/save_picture_818809.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Light Image Resizer 5.0.5.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818799.jpg" />
+  <img src="Z:/picture/008/save_picture_818799.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ SpeedyFox 2.0.22 Build 125 Portable[En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818770.jpg" />
+  <img src="Z:/picture/008/save_picture_818770.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ MediaHuman YouTube Downloader 3.9.8.18 (3011) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818766.jpg" />
+  <img src="Z:/picture/008/save_picture_818766.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Mozilla Firefox 38.0 beta 8-2 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713626.jpg" />
+  <img src="Z:/picture/008/save_picture_713626.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.25 Build 21 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713583.jpg" />
+  <img src="Z:/picture/008/save_picture_713583.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ QTranslate 6.5.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713556.jpg" />
+  <img src="Z:/picture/008/save_picture_713556.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Loaris Trojan Remover 2.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713550.jpg" />
+  <img src="Z:/picture/008/save_picture_713550.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ DiskDigger 1.18.17.2417 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713540.jpg" />
+  <img src="Z:/picture/008/save_picture_713540.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SIV (System Information Viewer) 5.29 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713528.jpg" />
+  <img src="Z:/picture/008/save_picture_713528.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RadioBOSS Advanced 5.7.1.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713503.jpg" />
+  <img src="Z:/picture/008/save_picture_713503.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Run-Command 2.66 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713417.jpg" />
+  <img src="Z:/picture/008/save_picture_713417.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713371.jpg" />
+  <img src="Z:/picture/008/save_picture_713371.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Slimjet 27.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713354.jpg" />
+  <img src="Z:/picture/008/save_picture_713354.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe components: Flash Player 29.0.0.140 + AIR 29.0.0.112 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713349.jpg" />
+  <img src="Z:/picture/008/save_picture_713349.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ FastStone Capture 8.2 Final RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713340.jpg" />
+  <img src="Z:/picture/008/save_picture_713340.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Reg Organizer 7.11 Final RePack (& Portable) by elchupacabra [Ru/En] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713337.jpg" />
+  <img src="Z:/picture/008/save_picture_713337.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Soft Organizer 4.02 Final RePacK by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713328.jpg" />
+  <img src="Z:/picture/008/save_picture_713328.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MyLanViewer 4.18.8 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713314.jpg" />
+  <img src="Z:/picture/008/save_picture_713314.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FastStone Capture 8.2 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713295.jpg" />
+  <img src="Z:/picture/008/save_picture_713295.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Flash Player 18.0.0.107 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713240.jpg" />
+  <img src="Z:/picture/008/save_picture_713240.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Universal USB Installer 1.9.5.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713217.jpg" />
+  <img src="Z:/picture/008/save_picture_713217.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Rohos Logon Key 3.2 DC 09.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713210.jpg" />
+  <img src="Z:/picture/008/save_picture_713210.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Unity Pro 2019 4.5f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713184.jpg" />
+  <img src="Z:/picture/008/save_picture_713184.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Evaer Video Recorder for Skype 1.6.2.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713156.jpg" />
+  <img src="Z:/picture/008/save_picture_713156.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713153.jpg" />
+  <img src="Z:/picture/008/save_picture_713153.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713149.jpg" />
+  <img src="Z:/picture/008/save_picture_713149.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713136.jpg" />
+  <img src="Z:/picture/008/save_picture_713136.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Privacy Eraser Free 4.48.0 Build 2791 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713119.jpg" />
+  <img src="Z:/picture/008/save_picture_713119.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ SPC Plugins - ArcSyn 3.0.0 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713116.jpg" />
+  <img src="Z:/picture/008/save_picture_713116.jpg" />
 </div>
 
 

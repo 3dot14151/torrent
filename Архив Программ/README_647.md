@@ -6,7 +6,7 @@ PDF Shaper Professional 8.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724464.jpg" />
+  <img src="Z:/picture/008/save_picture_724464.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ScreenToGif 2.36 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724435.jpg" />
+  <img src="Z:/picture/008/save_picture_724435.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FileZilla Server 1.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724432.jpg" />
+  <img src="Z:/picture/008/save_picture_724432.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Waterfox Current G4.0.7 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724424.jpg" />
+  <img src="Z:/picture/008/save_picture_724424.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Internet Download Manager 6.28 Build 7 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724364.jpg" />
+  <img src="Z:/picture/008/save_picture_724364.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Macrium Reflect v 7.2.4063 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724326.jpg" />
+  <img src="Z:/picture/008/save_picture_724326.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JetBrains ReSharper Ultimate 2018.3.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724324.jpg" />
+  <img src="Z:/picture/008/save_picture_724324.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ventoy 1.0.67 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724268.jpg" />
+  <img src="Z:/picture/008/save_picture_724268.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Soft4Boost Any Audio Record 4.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724257.jpg" />
+  <img src="Z:/picture/008/save_picture_724257.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Soft4Boost Any Audio Grabber 5.9.7.399 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724256.jpg" />
+  <img src="Z:/picture/008/save_picture_724256.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Soft4Boost AMPlayer 3.8.3.295 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724252.jpg" />
+  <img src="Z:/picture/008/save_picture_724252.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ZD Soft Screen Recorder 9.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724246.jpg" />
+  <img src="Z:/picture/008/save_picture_724246.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ GreenCloud Printer Pro 7.8.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724234.jpg" />
+  <img src="Z:/picture/008/save_picture_724234.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ StartIsBack++ 2.8.2 StartIsBack+ 1.7.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724185.jpg" />
+  <img src="Z:/picture/005/save_picture_724185.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ R-Studio Network 9.0 Build 190295 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724127.jpg" />
+  <img src="Z:/picture/008/save_picture_724127.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 Final RePack by D!akov [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724105.jpg" />
+  <img src="Z:/picture/008/save_picture_724105.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ WinTools.net Premium 17.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724083.jpg" />
+  <img src="Z:/picture/008/save_picture_724083.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Glarysoft Malware Hunter PRO 1.10.0.21 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723953.jpg" />
+  <img src="Z:/picture/008/save_picture_723953.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Internet Download Manager 6.28 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723947.jpg" />
+  <img src="Z:/picture/008/save_picture_723947.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ F-Secure Freedome VPN 2.45.887.0 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723850.jpg" />
+  <img src="Z:/picture/008/save_picture_723850.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& Portable) by elchupacabra [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723844.jpg" />
+  <img src="Z:/picture/008/save_picture_723844.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Cent Browser 1.9.13.75 Portable by CheshireCat [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723743.jpg" />
+  <img src="Z:/picture/008/save_picture_723743.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ R-Studio 8.3 Build 167546 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723722.jpg" />
+  <img src="Z:/picture/008/save_picture_723722.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ SAP2000 Ultimate 18.1.1 Build 1228 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723632.jpg" />
+  <img src="Z:/picture/008/save_picture_723632.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Core Temp 1.0 RC9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723621.jpg" />
+  <img src="Z:/picture/008/save_picture_723621.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Winstep Xtreme 16.5 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723614.jpg" />
+  <img src="Z:/picture/008/save_picture_723614.jpg" />
 </div>
 
 

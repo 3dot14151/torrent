@@ -6,7 +6,7 @@ Windows 8 PE x86x64 Universal by Xemom1 22.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862177.jpg" />
+  <img src="Z:/picture/008/save_picture_862177.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862175.jpg" />
+  <img src="Z:/picture/008/save_picture_862175.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetBalancer 9.17.1 Build 2297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862160.jpg" />
+  <img src="Z:/picture/008/save_picture_862160.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862152.jpg" />
+  <img src="Z:/picture/008/save_picture_862152.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_862101.jpg" />
+  <img src="Z:/picture/009/save_picture_862101.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_862100.jpg" />
+  <img src="Z:/picture/009/save_picture_862100.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862096.jpg" />
+  <img src="Z:/picture/008/save_picture_862096.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.1.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862092.jpg" />
+  <img src="Z:/picture/008/save_picture_862092.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Oxenfree (2016) [Ru/En] (1.4.0f2) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862081.jpg" />
+  <img src="Z:/picture/008/save_picture_862081.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ziggurat (2014) [Ru/Multi] (1.0/upd 13) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862056.jpg" />
+  <img src="Z:/picture/008/save_picture_862056.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Google Chrome 81.0.4044.113 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862052.jpg" />
+  <img src="Z:/picture/008/save_picture_862052.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NetBalancer 9.17.1 Build 2297 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862051.jpg" />
+  <img src="Z:/picture/008/save_picture_862051.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ R-Drive Image Technician 6.3 Build 6301 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862046.jpg" />
+  <img src="Z:/picture/008/save_picture_862046.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Live Home 3D Pro Edition 3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862041.jpg" />
+  <img src="Z:/picture/008/save_picture_862041.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Lacey Free Music & Video Downloader 2.40 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862038.jpg" />
+  <img src="Z:/picture/008/save_picture_862038.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862023.jpg" />
+  <img src="Z:/picture/008/save_picture_862023.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862022.jpg" />
+  <img src="Z:/picture/008/save_picture_862022.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862020.jpg" />
+  <img src="Z:/picture/008/save_picture_862020.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861996.jpg" />
+  <img src="Z:/picture/008/save_picture_861996.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861983.jpg" />
+  <img src="Z:/picture/008/save_picture_861983.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861967.jpg" />
+  <img src="Z:/picture/008/save_picture_861967.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Rufus 2.8 (Build 886) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861947.jpg" />
+  <img src="Z:/picture/008/save_picture_861947.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Pixelmator Pro 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861932.jpg" />
+  <img src="Z:/picture/008/save_picture_861932.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Google Chrome 81.0.4044.113 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861930.jpg" />
+  <img src="Z:/picture/008/save_picture_861930.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Internet Download Manager 6.37 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861929.jpg" />
+  <img src="Z:/picture/008/save_picture_861929.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861928.jpg" />
+  <img src="Z:/picture/008/save_picture_861928.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 84001   (697277) от 28.02.2022
+
+Worms 3D (2003) [Ru] (1.0) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарные "червяки" возвращаются! Бравые вояки получили новую степень свободы! Трехмерные сражения до зубов вооруженных червяков-коммандос, веселых, злобных и готовых на все ради победы стали еще более насыщенными и красочными. Трехмерный игровой мир позволяет использовать массу тактических приемов, открывает простор для новых видов вооружений и всевозможных (   Читать дальше...   )Тип издания: LicenseРазработчик: Team17Жанр: Логические, СтратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4B4F2F5766BAD8484E36611936DD1F1D999116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402523   (697189) от 16.08.2020
+
+Тесла / Tesla (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его изобретениями пользуются все каждый день, даже не подозревая, что в их основе лежат его гениальные провидческие идеи. Никола Тесла. Невероятная жизнь, полная озарений, побед и разочарований. Захватывающая история человека, который изобрел ХХ век.Производство: США / Passage Pictures (II), RNG Entertainment, Campbell Grobman FilmsЖанр: драма, биографияРежиссер: Майкл АлмерейдаАктеры: Итан Хоук, Кайл МакЛоклен, Ив Хьюсон, Джим Гэффиган, Эбон Мосс-Бакрак, Ханна Гросс, Джош Хэмилтон, Джеймс Урбаняк, Eli A. Smith, Люси УолтерсПеревод: Многоголосый любительский (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5D351A9F9C40AF9238F9E4B067254C927BAE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332700   (697014) от 05.05.2011
+
+Generation П (2011) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанный на культовом романе Виктора Пелевина фильм «Generation П» во многом строится на галлюцинациях — включая речь Че Гевары о том, почему и как телевидение разрушает человека. Однако через изменённую реальность проступает кропотливо восстановленная атмосфера Москвы в 90-е годы, на фоне которой и разворачивается действие картины. Вавилен Татарский, нашедший (   Читать дальше...   )Производство: РоссияЖанр: фантастика, драма, комедияРежиссер: Виктор ГинзбургАктеры: Владимир Епифанцев, Михаил Ефремов, Андрей Фомин, Сергей Шнуров, Андрей Панин, Александр Гордон, Рената Литвинова, Владимир Меньшов, Олег Тактаров, Юрий СафаровПродолжительность: 01:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514A48737664986CF24FB6CF73E834C2DF73A8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824909   (696838) от 07.05.2015
+
+В поле зрения / Подозреваемый / Person of Interest (2014) WEB-DL [H.264/720p-LQ] (сезон 4, полный) (NewStudio)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предполагаемо погибший бывший агент ЦРУ Риз объединяется с таинственным миллионером чтобы предотвращать преступления. Подготовка Риза в проведении операций под прикрытием привлекает внимание миллионера Финча, гения-программиста, который изобрел программу, позволяющую предсказывать преступные склонности людей на базе анализа поведения. Используя последние достижения (   Читать дальше...   )Жанр: драма, детектив, криминалРежиссер: Ричард Дж. Льюис, Крис Фишер, Фред ТуаАктеры: Джеймс Кэвизел, Майкл Эмерсон, Stanislav Shkilnyi, Узиманн, Тараджи П. Хенсон, Кевин Чэпмен, Куртеней Тейлор, Крис Чок, Жермен Кроуфорд, Брайан Д’Арси Джеймс и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: MKVПродолжительность: ~00:43:37 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750C5501439BA21F5008AA40599395AE17925EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133081   (696474) от 11.05.2017
 
 ESET Smart Security 10.1.204.5 [Ru]
@@ -6,7 +110,7 @@ ESET Smart Security 10.1.204.5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696474.jpg" />
+  <img src="Z:/picture/008/save_picture_696474.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696362.jpg" />
+  <img src="Z:/picture/008/save_picture_696362.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696145.jpg" />
+  <img src="Z:/picture/005/save_picture_696145.jpg" />
 </div>
 
 
@@ -91,7 +195,7 @@ Red Giant Magic Bullet Suite 12.1.5 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695777.jpg" />
+  <img src="Z:/picture/008/save_picture_695777.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_695554.jpg" />
+  <img src="Z:/picture/005/save_picture_695554.jpg" />
 </div>
 
 
@@ -143,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695421.jpg" />
+  <img src="Z:/picture/008/save_picture_695421.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695059.jpg" />
+  <img src="Z:/picture/008/save_picture_695059.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694601.jpg" />
+  <img src="Z:/picture/008/save_picture_694601.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ Anvir Task Manager 8.1.2 DC 18.06.2016 Final RePack (& Portable) by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693884.jpg" />
+  <img src="Z:/picture/008/save_picture_693884.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693878.jpg" />
+  <img src="Z:/picture/008/save_picture_693878.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693871.jpg" />
+  <img src="Z:/picture/008/save_picture_693871.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693703.jpg" />
+  <img src="Z:/picture/008/save_picture_693703.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Parallels Desktop Business Edition 16.0.04 + Toolbox 4.0.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693610.jpg" />
+  <img src="Z:/picture/008/save_picture_693610.jpg" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693396.jpg" />
+  <img src="Z:/picture/008/save_picture_693396.jpg" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693130.jpg" />
+  <img src="Z:/picture/008/save_picture_693130.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ Perfect World: Legends of the Seas / Идеальный Мир: Легенды �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693102.jpg" />
+  <img src="Z:/picture/008/save_picture_693102.jpg" />
 </div>
 
 
@@ -433,7 +537,7 @@ VA - 333 Лучшие Детские Песни (2004) 12CD [MP3|320 кб/с]<Д
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693090.jpg" />
+  <img src="Z:/picture/008/save_picture_693090.jpg" />
 </div>
 
 
@@ -464,7 +568,7 @@ ESET Endpoint Security / Antivirus 6.1.2227.3 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693062.jpg" />
+  <img src="Z:/picture/008/save_picture_693062.jpg" />
 </div>
 
 
@@ -490,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693044.jpg" />
+  <img src="Z:/picture/008/save_picture_693044.jpg" />
 </div>
 
 
@@ -516,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693043.jpg" />
+  <img src="Z:/picture/008/save_picture_693043.jpg" />
 </div>
 
 
@@ -542,7 +646,7 @@ ICO Factory 1.0.0.0 [Ru] (авторское ПО)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692733.jpg" />
+  <img src="Z:/picture/008/save_picture_692733.jpg" />
 </div>
 
 
@@ -568,7 +672,7 @@ Adobe After Effects CC 2017 (v14.2.0) Multilingual Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692635.jpg" />
+  <img src="Z:/picture/008/save_picture_692635.jpg" />
 </div>
 
 
@@ -579,110 +683,6 @@ Adobe After Effects CC 2017 - популярная программа для р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEF7BA98A1B9E929C41ABC12EFF896B596A95AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133458   (692634) от 13.05.2017
-
-Защитники (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во времена Холодной войны секретная организация «Патриот» создала отряд супергероев, в который вошли участники из различных советских республик. Долгие годы героям приходилось скрывать свою сущность, однако в тяжелые для страны времена они вновь берутся за дело.Производство: Россия / Enjoy MoviesЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Сарик АндреасянАктеры: Антон Пампушный, Санжар Мади, Себастьян Сисак, Алина Ланина, Станислав Ширин, Валерия Шкирандо, Вячеслав Разбегаев, Александр Семенов, Владимир Бутенко, Мила МаксимоваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D0D64AF0155ADB4AF9F46D14748368636C5199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133674   (692629) от 13.05.2017
-
-Adobe Illustrator CC 2017.1.0 21.1.0.326 Portable by XpucT [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Illustrator СС является мощным инструментом работы с векторной графикой. Продукт Adobe Illustrator СС предназначен для профессиональных дизайнеров, разработчиков интерактивных проектов и web-страниц, аниматоров и специалистов в сфере видео. Adobe Mercury Performance System позволяет обрабатывать большие файлы с высокой скоростью и надежностью, предлагает современный (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876543A709206232436BA2415059F59CF8A506BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674430   (692288) от 30.06.2013
-
-Падение Олимпа / Olympus Has Fallen (2013) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визит корейского премьер-министра обернулся террористическим нападением на Белый дом, и все Соединенные Штаты с ужасом наблюдают безуспешные попытки властей справиться с ситуацией. Лишь бывший спецагент находит единственную возможность обуздать зарвавшихся экстремистов. И кажется, что всё под контролем у террористов, но знания и опыт Майка Бэннинга помогают ему справиться (   Читать дальше...   )Производство: США / Millennium Films, Nu-Image FilmsЖанр: Боевик, ТриллерРежиссер: Антуан ФукуаАктеры: Джерард Батлер, Аарон Экхарт, Морган Фриман, Рик Юн, Финли Якобсен, Анджела Бассетт, Рада Митчелл, Роберт Форстер, Дилан МакДермотт, Эшли ДжаддПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04A5A12B497B0010B5364F5F60F7C6006FE576A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525337   (691981) от 03.03.2022
-
-Карамора (2022) WEBRip (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в альтернативной предреволюционной России начала ХХ века. Молодой русский анархист по прозвищу Карамора теряет возлюбленную в столкновении с представителями тайной организации, защищающей интересы тех, кто веками управляет миром. Теперь он готов на все, чтобы отомстить за потерянную любовь. Раскрыв главную тайну врага, Карамора понимает, (   Читать дальше...   )Производство: Россия / DK Entertainment, КинопраймЖанр: фэнтези, триллерРежиссер: Данила КозловскийАктеры: Данила Козловский, Дарья Балабанова, Филипп Янковский, Андрей Смоляков, Никита Кукушкин, Нино Нинидзе, Дмитрий Чеботарёв, Дмитрий Поднозов, Артур Ваха, Один Ланд Байрон и др.Продолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D933BBC96A6AA3D8E01C19DCDC2FBEBF5586ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

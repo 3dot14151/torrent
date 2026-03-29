@@ -1,3 +1,119 @@
+###  Публикация: 1537902   (665586) от 18.03.2022
+
+Junior Mance Trio - Live At Cafe Loup (2007) JunGlo Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broadway [5:12]
+02. Blue Monk [8:51]
+03. For Dancers Only [9:06]
+04. What Is This Thing Called Love? [12:24](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D9BD8BF9B90694B0BE9C93CB68284580A8E2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224634   (664894) от 11.05.2018
+
+Helen Merrill - Parole E Musica (1960) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notte E Giorno [01:05]
+02. Night and Day [03:07]
+03. Accade Tutto A Me [01:19]
+04. Everything Happens to Me [02:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9505C805EF6D47E704A45ECC800FDDF1BEDE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138241   (664564) от 29.05.2017
+
+Alice Babs - There's Something About Me (1993) Bluebell [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for the Dreamer [03:54]
+02. Hodgy [02:34]
+03. My Ship [05:27]
+04. Flow Gently, Sweet Afton [04:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FF1D9078649B04CE5713458303B48186E0A3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138439   (664558) от 29.05.2017
+
+Alice Babs - What a Joy (2014) 2CD, Prophone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664558.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Swing it, magistern [02:53]
+02. Jag har en liten Radiola [02:44]
+03. Stigbergsgatan 8 [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BCE33AAD95B5B9905B55FAF0901C039CF76E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138247   (664557) от 29.05.2017
 
 Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Alice Babs - Early Recordings 1939-1949 (2005) Vax Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664557.jpg" />
+  <img src="Z:/picture/008/save_picture_664557.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Alice Babs - Far Away Star (1973 - 1976) Bluebell [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664500.jpg" />
+  <img src="Z:/picture/008/save_picture_664500.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
+  <img src="Z:/picture/008/save_picture_664485.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
+  <img src="Z:/picture/008/save_picture_664017.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
+  <img src="Z:/picture/008/save_picture_663249.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука �
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663248.jpg" />
+  <img src="Z:/picture/008/save_picture_663248.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jeff Kashiwa - Let It Ride (2012) Native Language Music [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663247.jpg" />
+  <img src="Z:/picture/008/save_picture_663247.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bobby Jaspar - Bobby Jaspar's New Jazz (1954) 2017, Sony Music [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662922.jpg" />
+  <img src="Z:/picture/008/save_picture_662922.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dr. Lonnie Smith - All In My Mind (2018) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662879.jpg" />
+  <img src="Z:/picture/008/save_picture_662879.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Nada Jovic & Dusko Goykovic (Goykovich) Quintet - Take Me In Your Arms (1966) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662426.jpg" />
+  <img src="Z:/picture/008/save_picture_662426.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Sonny Rollins - Modern Jazz Archive (1951 - 1954) 2CD, 2004, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662425.jpg" />
+  <img src="Z:/picture/008/save_picture_662425.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ John Abercrombie - Works (1988) [FLAC|Lossless|image + .cue] <Post Bop, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662424.jpg" />
+  <img src="Z:/picture/008/save_picture_662424.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Ben Webster & Harry Edison - The Quintet Studio Sessions (1958, 1962) 2006, Lone
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662423.jpg" />
+  <img src="Z:/picture/008/save_picture_662423.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Gilberto Gil - Luar (1981) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662418.jpg" />
+  <img src="Z:/picture/008/save_picture_662418.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Ida Sand - Meet Me Around Midnight (2007) [FLAC|Lossless|tracks + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662414.jpg" />
+  <img src="Z:/picture/008/save_picture_662414.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Junior Mance Trio & Orchestra - The Soul of Hollywood & That Lovin' Feelin' (196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662408.jpg" />
+  <img src="Z:/picture/008/save_picture_662408.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662101.jpg" />
+  <img src="Z:/picture/008/save_picture_662101.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ The John Klemmer Quartets - Involvement (2003) Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661958.jpg" />
+  <img src="Z:/picture/008/save_picture_661958.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Herb Steward / Marky Markowitz - The Three Horns of Herb Steward & Marky's Vibes
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661408.jpg" />
+  <img src="Z:/picture/008/save_picture_661408.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ The Chet Baker Quintet - Cools Out (1956) 1991 [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661404.jpg" />
+  <img src="Z:/picture/008/save_picture_661404.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Sonny Rollins - Road Shows, vol. 2 (2011) Doxy Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661402.jpg" />
+  <img src="Z:/picture/008/save_picture_661402.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661385.jpg" />
+  <img src="Z:/picture/008/save_picture_661385.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Chie Ayado & Junior Mance - Only You (1996) 2010, Ewe Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5229ACD1CDF703E68ACAEE6C397CCDEBCE8300D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139127   (661194) от 01.06.2017
-
-Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Step into My Time Machine
-02. Hush Hush Magazine
-03. Love Gun
-04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902367   (660886) от 28.05.2015
-
-Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Misunderstand
-02. Don't Talk
-03. It Gonna Come
-04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225380   (660819) от 15.05.2018
-
-Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monsieur Slide [04:23]
-02. Miniscropique Blues [04:26]
-03. No Monopoly On Hurt [05:45]
-04. Body And Blues [04:44](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE8E2BF54584D2A7C5A9542DC267CFA99B5D68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225383   (660817) от 15.05.2018
-
-Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunburst [04:11]
-02. Journey into Love [05:11]
-03. Floating Through Space [04:36]
-04. Bright Moments [06:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A7C8BA435076038F044895DBD607E9BBF51EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

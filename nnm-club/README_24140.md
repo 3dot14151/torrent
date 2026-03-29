@@ -1,210 +1,25 @@
-###  Публикация: 1768579   (101126) от 25.12.2024
+###  Публикация: 1761246   (103078) от 18.11.2024
 
-Преподобный Варсонофий Великий и др. | Руководство к духовной жизни (2011) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга наставлений древних палестинских отцов Варсонофия Великого и Иоанна Пророка, предлагаемая вниманию благочестивого читателя, издавна считается одним из важнейших пособий по практической аскетике. За советом и наставлением к преподобным обращались монашествующие и миряне, новоначальные и преуспевшие в духовной жизни, старцы и юноши, немощные и здоровые. И все (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2960FA313EDCE71F092503E9A4C317C68F562A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768647   (101125) от 25.12.2024
-
-Журнал | Дачный клуб №10 (163) (октябрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E170A7B221ED4574F494EC0DC4AE83F03677AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768684   (101124) от 25.12.2024
-
-Архимандрит Кирилл (Павлов) | Проповеди (2017) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возлюбленные во Христе братия и сестры! Святая Церковь, как нежная и чадолюбивая мать, которая заботится не только о спасении живых, но простирает свою заботу и о спасении душ отшедших от нас отцев и братий, собрала нас сегодня, чтобы мы вознесли молитвы ко Господу о упокоении всех усопших в месте светле, в месте покойне.Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768603   (101123) от 25.12.2024
-
-Архимандрит Кирилл (Павлов) | Похвала Божией Матери (2017) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге читатель сможет ознакомиться с проповедническими сочинениями духовника Свято-Троицкой Сергиевой Лавры, архимандрита Кирилла (Павлова). Поразительная глубина духовной мудрости и проникновенные слова назидания и утешения «духовника Патриархов» поддержат христианина в трудные минуты крестоношения, принесут умиротворение его душе и подвигнут на усердную и пламенную (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768652   (101122) от 25.12.2024
-
-Журнал | Дачный клуб №12 (165) (декабрь 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101122.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768597   (101121) от 25.12.2024
-
-Архимандрит Кирилл (Павлов) | Время покаяния (2018) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время земной жизни – краткий отрезок на пути в Вечность – дано человеку для покаяния. Но память человеческая слаба, и сам человек слаб и изменчив и оттого часто нуждается в напоминании: чего ради он создан, откуда ниспал, к чему призван. Душа его все больше спит, между тем как дни проходят, подобно бесследно исчезающим каплям дождя, и конец дольнего странствования (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768653   (101120) от 25.12.2024
-
-Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aces Strike Back (4:22)
-02. Wings of Unity (4:18)
-03. Riders of the Void (4:18)
-04. Starlight Siege (5:01)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768631   (101119) от 25.12.2024
-
-After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Wabi King - Turn over the Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. War of the Worlds (3:46)
-02. The Path (4:09)
-03. Cursed (5:02)
-04. Liber Fortitudinis (The Book of Destiny) (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:12
+01. Iron Face (3:48)
+02. We play Rock N Roll (3:37)
+03. Turn over The Game (3:37)
+04. I Got it That Go (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D10F4C7ECF9D7EA3A2C0AB6F9C70DEECDAEEB026
+magnet:?xt=urn:btih:FF652B526B33A53636D22B58EC836F7D6836A3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,138 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768574   (101118) от 25.12.2024
+###  Публикация: 1761250   (103077) от 18.11.2024
 
-Cтарец Иосиф Ватопедский | О кончине века и антихристе (2010) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101118.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как сказано в Священном Писании, всему свое время, и время всякой вещи под небом (Еккл. 3, 1). А потому пора и нам пристально рассмотреть и оценить дух нынешней эпохи, к чему побуждают нас многие из возлюбленных братий. Знамения времен, приковывающие внимание всех, кто размышляет о проблемах современного общества, – знамения эти ныне очевидны…».Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B12B64994FDF6FA0DB250F8C62D37127F7F319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768651   (101117) от 25.12.2024
-
-Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aces Strike Back (4:22)
-02. Wings of Unity (4:18)
-03. Riders of the Void (4:18)
-04. Starlight Siege (5:01)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA57DC45AC8DA81A5A10E89E27574FDA0C2E48DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768598   (101116) от 25.12.2024
-
-Архимандрит Кирилл (Павлов) | Ищите прежде Царствия Небесного (2018) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101116.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Почему так часто слово проповедника остается бездейственным в нас, погребается в наших душах, точно в могиле, не приносит никакого плода? Очевидно, что прежде всего виной тому мы сами, наше нерадение и нечувствие. Но вместе с тем очевидно, что живым и действенным – подобно слову Божию – может быть лишь то слово, которое подтверждено жизнью самого проповедника. То (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2239313377F011B2C5C8DF7B40FE9CC9E62794A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768633   (101115) от 25.12.2024
-
-Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starry Night (5:07)
-02. Night Dreams (5:04)
-03. Night Melody (5:06)
-04. A Magical Night (5:24)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768669   (101114) от 25.12.2024
-
-The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+Enforced - A Leap Into the Dark (2024) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Budapest in Winter (3:38)
-02. Windows of Warmth (3:13)
-03. Blessed Day (3:28)
-04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
+01. Betting on the End (3:42)
+02. A Leap into the Dark (4:16)
+03. Deafening Heartbeats (3:11)
+04. Casket (2024 Remaster) (1:54)(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:19:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
+magnet:?xt=urn:btih:7F56B5187C54F9F9E5CC5BED401E3C0D014EF5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768654   (101113) от 25.12.2024
+###  Публикация: 1761227   (103076) от 18.11.2024
 
-Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Singing River - Talkin' Destination Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock, Americana>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Summer- Feeling (3:16)
-02. Hungry for Love (4:08)
-03. I'm Here (3:14)
-04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
+01. Talkin' Destination Blues (2:29)
+02. A Hill Worth Climbing (3:13)
+03. I Keep Running (3:12)
+04. Gideons Bible (3:58)(   Читать дальше...   )Жанр: Blues, Rock, AmericanaПродолжительность: 00:25:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
+magnet:?xt=urn:btih:31DCC6592589897065D518ACB2666ADA87D681D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,27 +85,193 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768158   (101112) от 25.12.2024
+###  Публикация: 1761216   (103075) от 18.11.2024
 
-Футбол. Кубок Италии 2024/2025. 1/8 финала Интер - Удинезе (19.12.2024) TVRip [H.264]
+Divisive Echoes - Twilight Of The Round Table (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronicles Of The Chosen King (6:26)
+02. Crown Of Thorns (6:23)
+03. Crown Of Night (6:58)
+04. Knights Of The Unbreakable Oath (6:59)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBAF1D3266A0CFE7BB7D4FC7FB40F699EE17AA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761223   (103074) от 18.11.2024
+
+Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anymore (3:12)
+02. The Prisoner (4:14)
+03. Same Game (2:51)
+04. Facade (3:07)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C041DC2C6FC42CA5DCA4E6EDBEEF7801E69F4858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761243   (103073) от 18.11.2024
+
+Святитель Василий Великий | Письма (2007) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103073.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В эпистолярном наследии Святителя ярко отразился огромный духовный путь, который святитель Василий прошел от юношеской риторической экспрессии до сдержанной умудренной вдохновенности Писанием. Кроме того, письма святого Василия представляют собой и ценный исторический источник: по его письмам можно проследить, как разворачивалась борьба с различными ересями, противостоявшими (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0663E2CAE0BD9D968B28CFB626DC01CB38BF8A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761162   (103072) от 18.11.2024
+
+Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claymore Strike 04:16
+02. 20th Century 04:09
+03. Nevermore 05:27
+04. Lovebreak 05:29(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761242   (103071) от 18.11.2024
+
+Епископ Вениамин (Милов) | Пастырское богословие (2002) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое читателю собрание лекций по Пастырскому богословию с аскетикой исповедника веры Христовой епископа Саратовского и Балашовского Вениамина (Милова) (†1955) было читано автором в 1947–1948 учебном году в Московской Духовной Академии.
+
+Редакция надеется, что этот выдающийся памятник русской пасторологической науки середины прошлого века много послужит духовному (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42EC385FBC4E45DFD82768EF26E1099D56364BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761042   (103070) от 18.11.2024
+
+Своя игра (17.11.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103070.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFCE5A9E00359F49DDE11A8B506DFC6160DC459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761325   (103069) от 19.11.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Юта (18.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
->>Футбол
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-19 декабря 2024 Милан 1/8 кубка Италии
-Стадион: Джузеппе Меацца
-«Интер» в Лиге чемпионов занимает шестое место в таблице общего этапа. В Кубке Италии «нерадзурри» только начинают свой путь. В прошлом сезоне миланцы также стартовали с 1/8 финала, но тут же вылетели от «Болоньи». Отметим, что в итальянской Серии А «Интер» занимает третье место, а «Удинезе» - девятое. (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:28
+19 ноября 2024, вторник. 05:00 МСК. Стадион: Дельта-центр (Солт-Лейк-Сити, США), 11 131 зритель (80% при вместимости 14 000)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Коди Бич (Нанаймо, Канада); Линейный: Трэвис Туми (Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: SEGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E4B9418B8881CF3477214CFE06B220D7700F181
+magnet:?xt=urn:btih:9AA452B5D65094A4D5B415E3BB2A74655F4B3DDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,25 +279,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768658   (101111) от 25.12.2024
+###  Публикация: 1761252   (103068) от 19.11.2024
 
-Храброе дитя / Moeders dappere kind (1914) WEBRip
+Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103068.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. For All We Know (5:33)
+03. Pensativa (4:23)
+04. You'd Be So Nice To Come Home To (7:04)
+05. Just Squeeze Me (5:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE94B832CF9015BB09C7FDFD9F4025A4E75C62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761146   (103067) от 19.11.2024
+
+Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon [WavPack|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love and the Weather [6:32]
+02. It Don't Mean a Thing [6:21]
+03. Spring Is Here [6:07]
+04. Varsity Drag [6:56](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26BD72F2773AA3D1598CCC187ABCC476A87DE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761365   (103066) от 19.11.2024
+
+Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop, Drop, & Roll (2:40)
+02. Don't Mean a Thing (3:32)
+03. In-Between Times (4:41)
+04. The Last Time (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40176D7674E5ADDD5EF334158A8EC7607341311C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761297   (103065) от 19.11.2024
+
+Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D48B918FAD7B4EE9C974F90FD5AC81272D9A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761362   (103064) от 19.11.2024
+
+Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time for Forgiveness (3:04)
+02. Shattered Vows (3:29)
+03. Lost in This Sadness (2:12)
+04. Emotions on Hold (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E7335EE00861C2F5D6FE701CF53E493CE89CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761273   (103063) от 19.11.2024
+
+Mystyc Blade - The Master Is Inside (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Forget to Live 5:40
+02. Feel Invincible 4:08
+03. Stay Away... Last Warning 4:34
+04. Pyramids and Mystery 7:39(   Читать дальше...   )Жанр: Heavy-MetalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5EF0181B55CBE777D55186EFE992B9559038FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761295   (103062) от 19.11.2024
+
+Kreator - Live in Chile (April 2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C315838AA9207546388B465A60BA56EEDB17B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761200   (103061) от 19.11.2024
+
+Месье Пип выращивает грибы / Monsieur Pyp als Champignon-Zuchter (1913) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Своеобразная фильма. В самом начале видим двухминутный эпизод, который очевидно не относится к самому фильму, но тоже рассказывает о смелом ребенке, как будто это кусочек другой истории на ту же тему. Может изначально это был сборник фильмов о храбрых малолетках? Но сохранилось только то, что видим в этом релизе? Кто знает. Но я оставил все как есть. Сам фильм начинается (   Читать дальше...   )Производство: Нидерланды / Filmfabriek HollandiaЖанр: короткометражный, драма, немое киноРежиссер: Jan van Dommelen, Louis H. ChrispijnАктеры: Jan van Dommelen, Louis H. Chrispijn, Christine Chrispijn - van MeeterenПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:17:33
+Месье Пип бездельник, транжира и, как следствие, банкрот. Поправить свои дела он решил за счет своего состоятельного дяди. Причем довольно банально. Он наплел дяде, что мол, он начинает перспективный бизнес и скоро обогатится и вот только для начала надо вложиться и не мог бы дядя помочь (вполне по современному звучит, ага?). Дядя готов помочь, но, как человек не (   Читать дальше...   )Производство: Германия / MonopolfilmЖанр: короткометражный, комедия, немое киноРежиссер: Шарль ДекруаАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:18:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
+magnet:?xt=urn:btih:5D59073C556BCCB8A0A19AB587747C0558C723E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768637   (101110) от 25.12.2024
+###  Публикация: 1761370   (103060) от 19.11.2024
 
-Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Can't Wait (3:08)
-02. I've Said It (4:09)
-03. That Same Old Way (4:50)
-04. Never Worked It Out (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
+01. This Is Who We Are (4:12)
+02. Here In '68 (4:37)
+03. Can't Outrun A Memory (4:28)
+04. Just Drive (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
+magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,28 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768661   (101109) от 25.12.2024
+###  Публикация: 1761368   (103059) от 19.11.2024
 
-Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Workhouse Blues (3:06)
-02. Sometimes I Sit and Wonder (2:58)
-03. I'm off to Saint Louis (3:29)
-04. Shallow Heels (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:34
+01. Baby What You Want Me To Do (4:13)
+02. Steady Rollin' Man (5:21)
+03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
+04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DE7D9F98022FFDD5A1F8F0969D31E6250F71609
+magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768657   (101108) от 25.12.2024
+###  Публикация: 1761323   (103058) от 19.11.2024
 
-Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 1952 (1:09)
-02. Midnight Caravan (3:24)
-03. A Different Path (4:20)
-04. Wonders of the Crescent (2:19)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:05
+01. Cosa Nuestra [00:04:20]
+02. Déjame Entrar [00:04:14]
+03. Qué Pasaría... [00:03:11]
+04. Tú Con Él [00:04:49](   Читать дальше...   )Жанр: Pop, Reggaeton, R&B, TrapПродолжительность: 01:07:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
+magnet:?xt=urn:btih:7FF9C0128E9398DFB2892441FFE4F7FC6259B98E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768663   (101107) от 25.12.2024
+###  Публикация: 1761360   (103057) от 19.11.2024
 
-Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Wes Jeans - One Day at a Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Stepped Out Of A Dream (4:35)
-02. Reincarnation Of A Lovebird (6:28)
-03. Autumn Nocturne (3:47)
-04. Peace Of Mind / Dreams Come True (7:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:56
+01. Wes Jeans feat. Tommy Katona - No Tears Left to Cry (4:14)
+02. Wes Jeans feat. Tommy Katona - Graceland (4:51)
+03. Me & My Woman (3:52)
+04. Wes Jeans feat. Tommy Katona - Dimples (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36F874666BAAC23614D94AF75E387AD0ADB229F3
+magnet:?xt=urn:btih:227D86D46925AD706760C1761E786D008A689D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,167 +624,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768646   (101106) от 25.12.2024
+###  Публикация: 1761278   (103056) от 19.11.2024
 
-Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Lordi - Made Of Metal (Single) (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Of Metal 04:12Жанр: Heavy Metal, Hard RockПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DEA9E063467D0F6597B31871BC2C6FFA3A85C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761289   (103055) от 19.11.2024
+
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|image + .cue] <Brutal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stelae of Vultures
+02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to
+Eat Feces by the Four Apes
+03. To Strike with Secret Fang(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4BFCBD401D9D3DC51BA5CFBCE4FC8CC7F383AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761359   (103054) от 19.11.2024
+
+Infanticide - Extinction Scheme (2007) [FLAC|Lossless|image + .cue] <Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attention Whore
+02. No Fucking Way
+03. Do Not Think / Do Not Act
+04. Shitstorm(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4226FAB63F63ECA714772D024148D8509EC455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761590   (103053) от 21.11.2024
+
+About Us - Take A Piece (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Coffe Cup Romance (3:59)
-02. A Desk by the Window (3:22)
-03. All That Jazz (3:37)
-04. Blissful Reverie (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:06
+01. Come To You (3:53)
+02. Endure (3:45)
+03. Legion (3:29)
+04. Fire With Fire (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8C0666BEEC8F42FD7BCEA29B82260C723F63A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768578   (101105) от 25.12.2024
-
-Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной Церкви | Рука дающего не оскудеет. О добродетели милосердия (2001) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из самых светлых и отрадных явлений в жизни наших подвижников благочестия была горячая любовь их к страждущему или неимущему человеку. Удалившись от мира, они не забывали, что этот мир полон не только нравственной скверны, но и скорбей и бед, под бременем которых страждут их братья…Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A871BF36E3603675D648BA69BA5E8E659AC955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768020   (101104) от 25.12.2024
-
-Сергей Клушин - Я продлеваю эту ночь (2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я продлеваю эту ночь [00:03:14]
-02. Моя любовь [00:03:04]
-03. Тяжёлая [00:04:03]
-04. Погромче музыку [00:05:36](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768674   (101103) от 25.12.2024
-
-Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Ride (3:03)
-02. Get Got (3:25)
-03. 25 To Life (3:43)
-04. Bad Habits (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768641   (101102) от 25.12.2024
-
-Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next Generation (5:12)
-02. Crazy Time (5:00)
-03. Heart Rock (4:17)
-04. The Power of Protein (4:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F047CFC74F9D4A1A6352094E178DD0D9A78F788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768577   (101101) от 25.12.2024
-
-Святитель Василий Великий | Слова подвижнические (2001) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101101.jpg" />
-</div>
-
-
-###  Подробнее
-
-По милосердию и человеколюбию благого Бога, по благодати Господа нашего Иисуса Христа, по действию Святаго Духа избавленный от языческого заблуждения, от предков унаследованного, издавна с самого начала воспитанный христианскими родителями, от них с детства изучал я и священные письмена, ведущие меня к познанию истины. Когда же стал я мужем, тогда, предпринимая частые (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3482393C0DB9074434F232C7B239160060315A6E
+magnet:?xt=urn:btih:939CB4B52D2F7A9FE4AEAB78695C5FECF3B54A86
 ```
 
 https://mybot314.ru/tekegram_catalog/

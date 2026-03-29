@@ -6,7 +6,7 @@ Algoriddim djay Pro 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793664.jpg" />
+  <img src="Z:/picture/008/save_picture_793664.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Carbon Copy Cloner 5 v5.1.18 (build 6004) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793655.jpg" />
+  <img src="Z:/picture/008/save_picture_793655.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Notability 4.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793650.jpg" />
+  <img src="Z:/picture/008/save_picture_793650.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Movist Pro 2.2.18 CR2 (build 145) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793633.jpg" />
+  <img src="Z:/picture/008/save_picture_793633.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ A Better Finder Rename 10.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793625.jpg" />
+  <img src="Z:/picture/008/save_picture_793625.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Dannic - Live @ DJ Mag Poolside Sessions (2017) [MP3|320 Kbps] <House, Electro H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793624.jpg" />
+  <img src="Z:/picture/008/save_picture_793624.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Syntouch & Angel Falls - Alone (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793621.jpg" />
+  <img src="Z:/picture/008/save_picture_793621.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Upaya No Kensho - Western Mountain Aqueduct (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793616.jpg" />
+  <img src="Z:/picture/008/save_picture_793616.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Money 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793613.jpg" />
+  <img src="Z:/picture/008/save_picture_793613.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Trance Aesthetics (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793606.jpg" />
+  <img src="Z:/picture/008/save_picture_793606.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Daum PotPlayer 1.7.7150 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793600.jpg" />
+  <img src="Z:/picture/008/save_picture_793600.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793589.jpg" />
+  <img src="Z:/picture/008/save_picture_793589.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793582.jpg" />
+  <img src="Z:/picture/008/save_picture_793582.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Tumult Whisk 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793570.jpg" />
+  <img src="Z:/picture/008/save_picture_793570.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Registry Life 3.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793567.jpg" />
+  <img src="Z:/picture/008/save_picture_793567.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Freddie Gibbs & The Alchemist - Alfredo (2020) [FLAC|Lossless|WEB-DL|tracks] <Hi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793562.jpg" />
+  <img src="Z:/picture/008/save_picture_793562.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793555.jpg" />
+  <img src="Z:/picture/008/save_picture_793555.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793547.jpg" />
+  <img src="Z:/picture/008/save_picture_793547.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ John Wetton & Geoffrey Downes - Icon3 (2009) [FLAC|Lossless|image + .cue] <Progr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793520.jpg" />
+  <img src="Z:/picture/008/save_picture_793520.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Aiseesoft Burnova 1.0.6.61821 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793515.jpg" />
+  <img src="Z:/picture/008/save_picture_793515.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Nicky Romero - Live @ Ultra Music Festival 2017-03-25 [MP3|256 Kbps] <Electro Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793511.jpg" />
+  <img src="Z:/picture/008/save_picture_793511.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Adobe XD CC v4.0.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793495.jpg" />
+  <img src="Z:/picture/008/save_picture_793495.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Adobe Premiere Pro CC 2018 v12.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793482.jpg" />
+  <img src="Z:/picture/008/save_picture_793482.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AirFoil+Airfoil Satellite 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793475.jpg" />
+  <img src="Z:/picture/008/save_picture_793475.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PhotoLine 22.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793474.jpg" />
+  <img src="Z:/picture/008/save_picture_793474.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ iStatistica Pro 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793472.jpg" />
+  <img src="Z:/picture/008/save_picture_793472.jpg" />
 </div>
 
 

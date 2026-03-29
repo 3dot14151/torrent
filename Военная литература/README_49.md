@@ -1,3 +1,29 @@
+###  Публикация: 121058   (257727) от 20.11.2025
+
+Дэвид Дональд | Военные Винтовые самолёты [2008] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Военные винтовые самолёты" включает в себя описания 50 наиболее известных образцов винтовых самолетов со времен  Первой  мировой войны до наших дней. Каждый самолет представлен  полноцветными иллюстрациями в трех проекциях. В общей сложности в книге представлено 170 иллюстраций. Каждый самолет детально характеризуется ( указаны мощность двигательной (   Читать дальше...   )Жанр: Военная техникаИздательство: ОмегаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E2F62A25D7B4D9E6113A311C440699190E36F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499620   (256358) от 21.05.2012
 
 Булат Тынчеров | Штурмовые орудия в боях за Крым и Севастополь 1941-1942 [2010] [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256358.jpg" />
+  <img src="Z:/picture/005/save_picture_256358.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256105.jpg" />
+  <img src="Z:/picture/005/save_picture_256105.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254360.jpg" />
+  <img src="Z:/picture/005/save_picture_254360.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253974.jpg" />
+  <img src="Z:/picture/005/save_picture_253974.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253282.jpg" />
+  <img src="Z:/picture/005/save_picture_253282.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253266.jpg" />
+  <img src="Z:/picture/005/save_picture_253266.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252884.jpg" />
+  <img src="Z:/picture/005/save_picture_252884.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252097.jpg" />
+  <img src="Z:/picture/004/save_picture_252097.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251490.jpg" />
+  <img src="Z:/picture/004/save_picture_251490.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251021.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250079.jpg" />
+  <img src="Z:/picture/004/save_picture_250079.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249997.jpg" />
+  <img src="Z:/picture/004/save_picture_249997.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249985.jpg" />
+  <img src="Z:/picture/004/save_picture_249985.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249906.jpg" />
+  <img src="Z:/picture/004/save_picture_249906.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249570.jpg" />
+  <img src="Z:/picture/004/save_picture_249570.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248924.jpg" />
+  <img src="Z:/picture/004/save_picture_248924.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248623.jpg" />
+  <img src="Z:/picture/004/save_picture_248623.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248321.jpg" />
+  <img src="Z:/picture/004/save_picture_248321.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247991.jpg" />
+  <img src="Z:/picture/004/save_picture_247991.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247967.jpg" />
+  <img src="Z:/picture/004/save_picture_247967.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245441.jpg" />
+  <img src="Z:/picture/004/save_picture_245441.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242004.jpg" />
+  <img src="Z:/picture/004/save_picture_242004.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240645.jpg" />
+  <img src="Z:/picture/004/save_picture_240645.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237672.jpg" />
+  <img src="Z:/picture/004/save_picture_237672.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237380.jpg" />
+  <img src="Z:/picture/005/save_picture_237380.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576173   (235408) от 13.09.2022
-
-Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235408.jpg" />
-</div>
-
-
-###  Подробнее
-
-211-я книга серии Elite издательства Osprey посвящена SAS, одному из лучших подразделений специального назначения в мире. На примере 22-го полка SAS, в просторечии ‘the Regiment’, книга проливает свет на причастность SAS к беспорядкам в Северной Ирландии, на их операции в Ираке и Афганистане. Миссии SAS разнообразны: борьба с терроризмом дома и за рубежом; контрпартизанская (   Читать дальше...   )Жанр: Военная история, военное делоФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

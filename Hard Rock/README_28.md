@@ -6,7 +6,7 @@ Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243346.jpg" />
+  <img src="Z:/picture/004/save_picture_243346.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243096.jpg" />
+  <img src="Z:/picture/004/save_picture_243096.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mike Tramp - Songs of White Lion (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243088.jpg" />
+  <img src="Z:/picture/004/save_picture_243088.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jason Bieler And The Baron Von Bielski Orchestra - Postcards from the Asylum (20
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243069.jpg" />
+  <img src="Z:/picture/004/save_picture_243069.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Beyond The Touch - Strange Illusions (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242721.jpg" />
+  <img src="Z:/picture/005/save_picture_242721.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Crashdiet - Automaton (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241016.jpg" />
+  <img src="Z:/picture/004/save_picture_241016.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lee Small - The Last Man On Earth (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240617.jpg" />
+  <img src="Z:/picture/004/save_picture_240617.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Scarlet Dorn - Queen of Broken Dreams (2022) [MP3|320 Kbps] <Dark Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238412.jpg" />
+  <img src="Z:/picture/005/save_picture_238412.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Dirty Seeds - Beware The Beast Man (2023) [MP3|320 Kbps] <Heavy Rock, Stoner
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237209.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Heartbreak Remedy - 3 Albums (2015-2023) [MP3|320 Kbps] <Classic Rock, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236924.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Axel Rudi Pell - The Ballads VI (2023) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236637.jpg" />
+  <img src="Z:/picture/005/save_picture_236637.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234521.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Outer Head - Delirium (2023) [MP3|320 Kbps] <Psych Doom, Stoner, 70's>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234067.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233711.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ The Sonce - Rising with the Moon (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stone
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233346.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Kikimora - For A Broken Dime (2023) [MP3|320 Kbps] <Hard-Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233116.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Bang - Another Me (2023) [MP3|320 kbps] <Psychedelic Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231277.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ King’s X - In The New Age The Atlantic Recordings 1988-1995 (2023) [MP3|320 Kb
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231262.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Axeheart - Through The Seas And Time (2022) [MP3|320 Kbps] <Heavy Viking Metal, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228689.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228567.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Paul Gilbert - The Dio Album (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228508.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Lugnet - 2 Albums (2019-2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226819.jpg" />
+  <img src="Z:/picture/005/save_picture_226819.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Captain Black Beard - 6 Albums (2011-2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226664.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Lost Generation - Blues For My Ex-Friends (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225482.jpg" />
+  <img src="Z:/picture/005/save_picture_225482.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Sextrow - Addicted To Rock (2022) [MP3|320 Kbps] <Hard Glam Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225452.jpg" />
+  <img src="Z:/picture/005/save_picture_225452.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Cats In Boots - Kicked & Klawed (1989) Unofficial Release, EMI USA [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223379.jpg" />
+  <img src="Z:/picture/005/save_picture_223379.jpg" />
 </div>
 
 

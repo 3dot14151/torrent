@@ -1,3 +1,29 @@
+###  Публикация: 1754309   (33302) от 23.12.2024
+
+Raise wa Tanin ga Ii | Yakuza Fiance | Незнакомцы в другой жизни [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неожиданная помолвка как снег на голову обрушилась на Ёсино, внучку главного якудза всего кансайского региона. Дедушка хочет выдать её за Кирисиму, внука главы семьи Мияма. По плану двух лидеров подпольного мира, это станет первым шагом к перемирию между группировками. К удивлению Ёсино, Кирисима оказывается крайне приличным молодым человеком и совсем не похож на (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: романтика, драмаРежиссер: Кавасэ ТосифумиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745676055A6756533EB977E27987D19197857949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753995   (33295) от 23.12.2024
 
 Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника мифического духа 2 [2024, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Seirei Gensouki 2 / Seirei Gensouki: Spirit Chronicles 2 / Хроника миф
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33295.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ MF Ghost (2024) | MF Призрак 2 [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33293.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Rekishi ni Nokoru Akujo ni Naru zo | I'll Become a Villainess Who Goes Down in H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33191.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Love Live! Superstar!! 3 / Живая любовь! Суперзвёзды!! 3 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33173.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Natsume Yuujinchou Shichi | Natsume's Book of Friends Season 7 | Тетрадь 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33169.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Sengoku Youko / Ёко из Сэнгоку [2024, TV, 35] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33109.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Yarinaoshi Reijou wa Ryuutei Heika o Kouryakuchuu | На этот раз оде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33097.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Tasuketsu: Fate of the Majority | Tasuuketsu | Правило большинст
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33084.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Shin Tennis no Ouji-sama: U-17 World Cup Semifinal | Новый принц те�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33075.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Yeosin Gangnim | True Beauty | Истинная красота [2024, Web, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32886.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Blue Lock vs. U-20 Japan | Синяя тюрьма: Блю Лок [ТВ-2] [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32646.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Kami no Tou: Koubou-sen | Tower of God: Workshop Battle | Башня Бога: �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32550.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Kamonohashi Ron no Kindan Suiri 2nd Season  | Безумные расследо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32521.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Ishura | Исура [ТВ-1] [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31669.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Astarotte no Omocha! | Игрушка Астаротты [ТВ] [2011, TV, 12 + 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29711.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29225.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27279.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26106.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ S Rank Monster no "Behemoth" Dakedo, Neko to Machigawarete Elf Musume no Pet to 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24518.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24427.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24420.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24208.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24131.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23997.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23895.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D043BA1AD02B34BA4853AE142CBA3CF50CC78EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771473   (23791) от 23.03.2025
-
-Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только выпустившись из средней школы, Нацуко Хиросэ устроилась работать художником-аниматором. Благодаря своему необыкновенному таланту она сразу же начала делать большие успехи, и довольно быстро добралась до места режиссера. Её первое аниме стало настоящим хитом, вызвав общественный резонанс, что в итоге принесло ей признание и статус гениального молодого специалиста. (   Читать дальше...   )Производство: Студия MAPPAЖанр: приключенияРежиссер: Ямадзаки МицуэПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83F53CEECFEBF843D6DC8C98D10D8CC506FECA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 311329   (823972) от 19.03.2017
+
+Слушать в отсеках (1985) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героико-приключенческий фильм по одноименной повести Владимира Тюрина.
+Идут учения военно-морского флота. Командир подводной лодки Логинов и командир большого противолодочного корабля Золотницкий становятся условными противниками. Чувствуя ответственность за свои экипажи, командиры демонстрируют высокое мастерство, порядочность и дружескую взаимовыручку.
+Во время (   Читать дальше...   )Производство: СССРЖанр: приключенияРежиссер: Николай ЗасеевАктеры: Борис Щербаков, Игорь Старыгин, Кирилл Лавров, Георгий Мартынюк, Виталий Коняев, Степан Старчиков, Александр Костылев, Сергей Попович, Анатолий Переверзев, Игорь Черницкий, Вилорий Пащенко, Игорь СлободскойСубтитры: отсутствуютПродолжительность: 01:06:41 + 01:03:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117501   (814771) от 24.03.2017
 
 Гуттаперчевый мальчик (1957) DVD5
@@ -6,7 +34,7 @@
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814771.jpg" />
+  <img src="Z:/picture/008/save_picture_814771.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788908.jpg" />
+  <img src="Z:/picture/008/save_picture_788908.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787176.jpg" />
+  <img src="Z:/picture/008/save_picture_787176.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786943.jpg" />
+  <img src="Z:/picture/008/save_picture_786943.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786942.jpg" />
+  <img src="Z:/picture/008/save_picture_786942.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786939.jpg" />
+  <img src="Z:/picture/008/save_picture_786939.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786938.jpg" />
+  <img src="Z:/picture/008/save_picture_786938.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786937.jpg" />
+  <img src="Z:/picture/008/save_picture_786937.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786934.jpg" />
+  <img src="Z:/picture/008/save_picture_786934.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786933.jpg" />
+  <img src="Z:/picture/008/save_picture_786933.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786927.jpg" />
+  <img src="Z:/picture/008/save_picture_786927.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775418.jpg" />
+  <img src="Z:/picture/008/save_picture_775418.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_772295.jpg" />
+  <img src="Z:/picture/005/save_picture_772295.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767863.jpg" />
+  <img src="Z:/picture/008/save_picture_767863.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767095.jpg" />
+  <img src="Z:/picture/008/save_picture_767095.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766402.jpg" />
+  <img src="Z:/picture/008/save_picture_766402.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763334.jpg" />
+  <img src="Z:/picture/008/save_picture_763334.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739283.jpg" />
+  <img src="Z:/picture/008/save_picture_739283.jpg" />
 </div>
 
 
@@ -478,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735771.jpg" />
+  <img src="Z:/picture/008/save_picture_735771.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735770.jpg" />
+  <img src="Z:/picture/008/save_picture_735770.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735764.jpg" />
+  <img src="Z:/picture/008/save_picture_735764.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708357.jpg" />
+  <img src="Z:/picture/008/save_picture_708357.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705082.jpg" />
+  <img src="Z:/picture/008/save_picture_705082.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696500.jpg" />
+  <img src="Z:/picture/005/save_picture_696500.jpg" />
 </div>
 
 
@@ -634,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689825.jpg" />
+  <img src="Z:/picture/008/save_picture_689825.jpg" />
 </div>
 
 
@@ -645,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518196   (680418) от 19.05.2017
-
-Зеркало для героя (1987) DVD5
-
->>След.
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое случайных знакомых, Сергей Пшеничный и Андрей Немчинов, волею загадочных обстоятельств переносятся почти на 40 лет назад. Этот день — 8 мая 1949 года — начинает повторяться для них с неумолимым постоянством. Каждому из героев судьба дает свой шанс: Андрей может предотвратить гибель людей в обветшавшей шахте, Сергей — по-новому взглянуть на своих родителей и (   Читать дальше...   )Жанр: Драма, ФантастикаРежиссер: Владимир ХотиненкоАктеры: Сергей Колтаков, Иван Бортник, Борис Галкин, Александр ПесковСубтитры: отсутствуютПродолжительность: 02:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B102D6B363BFD2C3983475FD9DBC55F887AF8F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

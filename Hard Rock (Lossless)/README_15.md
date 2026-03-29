@@ -1,3 +1,61 @@
+###  Публикация: 980493   (954426) от 30.01.2016
+
+AC/DC - Back In Black (1980) Germany Original Press, 1988 - 1989 [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hells Bells (5:13)
+02. Shoot To Thrill (5:20)
+03. What Do You Do For Money Honey (3:36)
+04. Given The Dog A Bone (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B52F8EFD8D7D5949237529A1A7BE5AC5C9735D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981297   (953061) от 31.01.2016
+
+Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Rautalanka>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elämä on katiska (3:22)
+02. Mantelinmakuinen (3:50)
+03. Rottinki (4:58)
+04. Puolikulkijat (3:58)(   Читать дальше...   )Жанр: Hard Rock, RautalankaПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362489   (949609) от 23.02.2020
 
 H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ H.e.a.t - H.e.a.t II (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949609.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Deep Purple - The House Of Blue Light (1987) Remastered, 1999, Mercury [WavPack|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946732.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944367.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943782.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Confess - Burn 'em All (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942406.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ace Frehley - Frehley's Comet (1987) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942201.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942121.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ L.A. Guns - Golden Bullets (2003) [FLAC|Lossless|image + .cue] <Glam, Hard'n'Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941020.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Scorpions - Best Ballads (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939622.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ The Who - My Generation (1965) 5CD Box Set, 2016,  Brunswick [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937228.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Scorpions - Deadly Sting (1995) Compilation [FLAC|Lossless|image + .cue] <Rock ,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933931.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Lionville - 3 альбома Discography (2011-2017) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933814.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Houston - 4 альбома (2010-2014) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933706.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933705.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Martina Edoff - We Will Align (2017) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933702.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Scorpions - Pure Instinct (1996) [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933676.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Gotthard - Silver (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932363.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Deep Purple - The Audio Fidelity Collection (2013) 4CD Box Set, 24K Gold, Audio 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931742.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Shakra - Mad World (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930794.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ The Brew - Shake the Tree (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Class
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927848.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Confess - 3 Albums (2014 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Gla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927387.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Kingdom Come - In Your Face (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927271.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sweet & Lynch (Stryper, Dokken) - Only To Rise (2015) Japanese Edition [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927146.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ King Kobra - Thrill Of A Lifetime (1986) Limited Edition, Remastered, 2000, Axe 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926137.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ King Kobra - Thrill Of A Lifetime (1986) Limited Edition, Remastered, 2000, Axe 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E1BDBEA91636C5025A3F41695410A512605F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987534   (925903) от 17.02.2016
-
-Alice Cooper - Classicks (1995) Compilation [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Poison 04:30
-02. 	Hey Stoopid 04:33
-03. 	Feed My Frankenstein 04:44
-04. 	Love's A Loaded Gun 04:11(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C4E52FA6D970F4DDB22DAF87E8057A45E9D80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366227   (925887) от 10.03.2020
-
-Eric Martin - I'm Goin' Sane (2002) (voice Mr.Big) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Disease
-02. Spaceman
-03. Goin' Sane
-04. Free Of It(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

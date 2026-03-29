@@ -6,7 +6,7 @@ VA - Classical Piano Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110856.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Timeless Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110672.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Great Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110396.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Emma Shapplin - 8 Albums (1997-2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109838.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109822.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cr
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109809.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108424.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Classical & Baroque Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108225.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Aythis - Lost Lighthouse (2024) [FLAC|Lossless|WEB-DL|tracks] <neoclassical, eth
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107869.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Maurice Ravel - The Complete Works (2020) 21CD [MP3|320 Kbps] <Classics>
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107719.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Tarja - Best of: Living the Dream: Tarja's Non-Rock Specials (2024) [FLAC 24/44.
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106388.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Johann-Strauss-Orchester - Opernball (2008) [WavPack|Lossless|image + .cue] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105347.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Classical Music Inspired by Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105073.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Enrico Caruso - Grosse Tenore Der Musikgeschichte Vol.3 (2006) 2CD [WavPack|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105015.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Relax Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104725.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Jascha Heifetz - The Master Violinist (2008) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102480.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - Autumn Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100932.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - The Magic of Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100585.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Johann Sebastian Bach-Famous Organ Works: organ Helmut Walcha (1957-1972)/1985, 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90857.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Johann Sebastian Bach – Fluten Sonaten BWV 1020, 1030-32, 1013, Nicolet & Rich
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90629.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Johann Sebastian Bach – Weihnachtsoratorium Christmas Oratorio: VA (1734) 2CD,
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89415.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89017.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Antonio Vivaldi, Antonio Salieri, Gioacchino Rossini, Antonio Paskulli - Works f
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88986.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di Sa
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88811.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88662.jpg" />
 </div>
 
 
@@ -762,7 +762,7 @@ C. H. Graun, J. A. Hasse, G. F. Handel, J. Mattheson – Cleopatra, soprano Isab
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88211.jpg" />
 </div>
 
 

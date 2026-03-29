@@ -1,3 +1,162 @@
+###  Публикация: 933295   (505818) от 01.09.2015
+
+Stasis (2015) [Ru/Multi] (1.04) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505818.jpg" />
+</div>
+
+
+###  Подробнее
+
+STASIS – это приключенческая игра «укажи и щелкни» в жанре научной фантастики/ужасов с уникальной изометрической игровой перспективой. В игре STASIS мрачное повествование переплетается с геймплеем в приключенческом ретро-стиле. Комбинируйте предметы, взаимодействуйте с компьютерами и решайте головоломки в напряженной атмосфере.Тип издания: Лицензия GOGРазработчик: THE BROTHERHOODЖанр: Action (Survival horror) / IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Испанский, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8E1CB9932B623CCB42B28C488602BB539BA88E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933412   (505817) от 01.09.2015
+
+Юрий Ключевский | Профессия верстальщика (2015) PCRec [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь собирать сайты с нуля! Вы сможете верстать страницы для десктопа и мобильных устройств, узнаете как работать с чужим кодом и правильно публиковать сайты в сети, соберете портфолио из 2-3 сайтов.Жанр: Верстка, HTML5, CSS3Продолжительность: 17:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F0575E79B77FE4178585E861B695E925811EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933286   (505815) от 01.09.2015
+
+Microsoft Office Standard 2016 Volume License Edition v15.13.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.
+
+Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область «Форматирование (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 августа 2015Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624F364C98B16A6BA4EAF855D3B58C662CA67488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931954   (505814) от 01.09.2015
+
+Call of Duty: Black Ops III (2015) [En] (Beta 3.7.17.4) SteamRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Black Ops III объединяет 3 режима: кампанию, сетевую игру и «Зомби», являя фанатам самую захватывающую и амбициозную игру серии. Кампанию можно проходить в одиночку или в кооперативном режиме, поддерживающем до 4 игроков. Сетевой режим станет самым впечатляющим в серии, благодаря новым возможностям повышения ранга, настройкам персонализации и подготовки (   Читать дальше...   )Тип издания: SteamRipРазработчик: TreyarchЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A375CB614EE635CB33D27B2513A0325482012247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915166   (505809) от 01.09.2015
+
+На грани / The Brink (2015) HDTV [H.264/720p-LQ] (cезон 1, серии 1-10 из 10) Кубик в Кубе
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство и армия США пытаются предотвратить Третью мировую войну, в то время как в мире царит геополитический кризис.Производство: США | HBOЖанр: комедияРежиссер: Джон Полл, Джей Роуч, Скотт УинантАктеры: Тим Роббинс, Джек Блэк, Маус Джексон, Икбал Теба, Мелани Каннокада, Марк Пэрриш, Бернард Уайт, Дэвид Диаан, Ношин Финикс, Анджини Танеджа Азар и др.Перевод: Двухголосый закадровый, профессиональный - Кубик в КубеЯзык субтитров: английскийПродолжительность: ~ 00:33:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14ED02003DDFFABB6D9C3098FC5B79779A21A9C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316462   (505764) от 26.07.2019
+
+Colin McRae: DiRT 2 (2009) [Ru/En] (1.1) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_505764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть знаменитого хита Colin McRae: DiRT от создателей Race Driver: GRID готова ворваться в ряды лучших гонок планеты! Лучшие традиции автосимуляторов приумножены великолепием современных технологий. Вас ожидает невероятный и захватывающий тур по Америке, Европе и Азии. Представленные на выбор трассы сразят наповал даже самых продвинутых поклонников жанра. (   Читать дальше...   )Тип издания: RepackРазработчик: Codemasters StudiosЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE1E29F6EFDA31834302915AFDAB7AC5C48D97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538132   (505232) от 27.08.2012
 
 The Elder Scrolls V: Skyrim [Ru/En] (Lossless RePack/1.7.7.06/HD Texture Pack) 2011 l R.G. Catalyst
@@ -6,7 +165,7 @@ The Elder Scrolls V: Skyrim [Ru/En] (Lossless RePack/1.7.7.06/HD Texture Pack) 2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505232.jpg" />
+  <img src="Z:/picture/008/save_picture_505232.jpg" />
 </div>
 
 
@@ -36,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505129.jpg" />
+  <img src="Z:/picture/008/save_picture_505129.jpg" />
 </div>
 
 
@@ -62,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_504993.jpg" />
+  <img src="Z:/picture/005/save_picture_504993.jpg" />
 </div>
 
 
@@ -89,7 +248,7 @@ BlueStacks App Player 0.10.0.4321 (Android 4.4.2) Mod by AJacobs [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504992.jpg" />
+  <img src="Z:/picture/008/save_picture_504992.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ Pillars of Eternity [Patch] (2015) (2.0.0.0706) Official GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504989.jpg" />
+  <img src="Z:/picture/008/save_picture_504989.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_504169.jpg" />
+  <img src="Z:/picture/005/save_picture_504169.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ Microsoft уравнял французский и инопланетный яз
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_504102.jpg" />
+  <img src="Z:/picture/005/save_picture_504102.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ The Elder Scrolls V: Skyrim (RePack/1.7.7.0.6/2 DLC) [Ru/En] 2011 l R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504016.jpg" />
+  <img src="Z:/picture/008/save_picture_504016.jpg" />
 </div>
 
 
@@ -222,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504015.jpg" />
+  <img src="Z:/picture/008/save_picture_504015.jpg" />
 </div>
 
 
@@ -248,7 +407,7 @@ Armed Assault 2 / ArmA 2: Тактика современной войны + Ope
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504011.jpg" />
+  <img src="Z:/picture/008/save_picture_504011.jpg" />
 </div>
 
 
@@ -275,7 +434,7 @@ Rescue USB 16 Gb (BuTaJ1 Edition) 3.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503945.jpg" />
+  <img src="Z:/picture/008/save_picture_503945.jpg" />
 </div>
 
 
@@ -304,7 +463,7 @@ BELOFF 2019.8 Unpacked
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503878.jpg" />
+  <img src="Z:/picture/008/save_picture_503878.jpg" />
 </div>
 
 
@@ -330,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503047.jpg" />
+  <img src="Z:/picture/008/save_picture_503047.jpg" />
 </div>
 
 
@@ -357,7 +516,7 @@ SoftMaker Office Professional 2016 rev 742.0829 RePack (& portable) by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503046.jpg" />
+  <img src="Z:/picture/008/save_picture_503046.jpg" />
 </div>
 
 
@@ -383,7 +542,7 @@ Total Commander VIM 9.00 Matros Edition [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503001.jpg" />
+  <img src="Z:/picture/008/save_picture_503001.jpg" />
 </div>
 
 
@@ -409,7 +568,7 @@ Fallout: New Vegas Ultimate Edition + 6 DLC [Ru/En] (Repack/1.4.0.525) 2012 | R.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502969.jpg" />
+  <img src="Z:/picture/008/save_picture_502969.jpg" />
 </div>
 
 
@@ -438,7 +597,7 @@ PROMT Expert 11 Build 9.0.556 Portable by bumburbia [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502958.jpg" />
+  <img src="Z:/picture/008/save_picture_502958.jpg" />
 </div>
 
 
@@ -464,7 +623,7 @@ Microsoft Office 2016 Professional Plus Preview 16.0.4229.1021 (x86-x64) by Rati
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502953.jpg" />
+  <img src="Z:/picture/008/save_picture_502953.jpg" />
 </div>
 
 
@@ -490,7 +649,7 @@ CorelDRAW Graphics Suite X7 17.6.0.1021 Retail RePack by Krokoz [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502949.jpg" />
+  <img src="Z:/picture/008/save_picture_502949.jpg" />
 </div>
 
 
@@ -517,7 +676,7 @@ Factorio (2013) [Ru/Multi] (alpha 0.12.6) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502947.jpg" />
+  <img src="Z:/picture/008/save_picture_502947.jpg" />
 </div>
 
 
@@ -528,164 +687,6 @@ Factorio (2013) [Ru/Multi] (alpha 0.12.6) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D11AEA3CE59055325FE84D8C0D2BC67D4090551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194673   (502207) от 16.07.2022
-
-Битва полов / Battle of the Sexes (2017) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502207.jpg" />
-</div>
-
-
-###  Подробнее
-
-История соперничества между 55-летним чемпионом Уимблдона Бобби Риггсом и 29-летней теннисисткой Билли Джин Кинг. Легендарный матч, прошедший в 1973 году, собрал возле экранов более 50 миллионов американцев и доказал, что профессиональные спортсменки способны на равных состязаться с коллегами-мужчинами.Производство: Великобритания, США / Cloud Eight Films, Decibel Films, Fox Searchlight Pictures, TSG EntertainmentЖанр: драма, комедия, биография, спортРежиссер: Джонатан Дэйтон , Валери ФэрисАктеры: Эмма Стоун, Стив Карелл, Андреа Райзборо, Натали Моралес, Сара Силверман, Билл Пуллман, Алан Камминг, Элизабет Шу, Эрик Кристиан Олсен, Фред Армисен, Марта МакАйзек, Лорен КляйнПеревод: Многоголосый закадровый (Лицензия BD EUR)Субтитры: Русские (полные)Продолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6059E88B8C17979FA35B01BB05CF986F237C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061180   (502196) от 16.07.2022
-
-Радио онлайн - PCRadio v2.6.0.2 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио онлайн стало доступно для прослушивания благодаря новому, быстрому и современному радио плееру - PCRADIO 2016. Мы отобрали тысячи онлайн радио для прослушивания в плеере, который экономит трафик, проигрывая радиостанции с высоким качеством звука. Плеер прекрасно работает на "урезанном" мобильном интернете и в сетях 2G, 3G, LTE. Благодаря специальной (   Читать дальше...   )Тип издания: Пиратка (Mod, разблокирован Premium)Релиз состоялся: 12.07.2022Разработчик: PCRADIOПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE2C83D93930C20D98AD3A9C95FF26D76EEE2D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317239   (502051) от 30.07.2019
-
-Kerish Doctor 2019 4.75 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerish Doctor — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом Windows. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CA77002B057FBFA0EF8F23143EB04DF77167EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317110   (502035) от 30.07.2019
-
-Dolby Atmos 3.20403.417.0 Win10 x64 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dolby Atmos обеспечивает потрясающую детализацию, точность и реализм в играх или при просмотре фильмов за счет того, что звуки распространяются со всех сторон, в том числе сверху и сзади слушателя. Dolby Atmos использует пространственный звук для создания более полных и иммерсивных ощущений в играх и фильмах.
-• В играх Dolby Atmos позволяет точно определять положения (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006EFFB1BC2064C3F35CC9436434F366C9B8DE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167723   (502034) от 30.07.2019
-
-Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка в тяжелые годы Великой депрессии. Всюду безработица, бедность, люди уезжают из родных мест в поиска лучшей доли на чужбине и берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что весьма сомнительный «крупнейший в мире» танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье (   Читать дальше...   )Производство: США, American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: ДрамаРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: Дублированный, многоголосый закадровый, двухголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C40861047AFCB7FAB1ADFD7969510A97EBB0310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934189   (501989) от 05.09.2015
-
-Большинство интернет-пользователей не доверяют паролям и готовы от них отказаться
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_501989.jpg" />
-</div>
-
-
-###  Подробнее
-
-84% пользователей хотели бы отказаться от паролей
-Согласно опросу, проведенному компанией LaunchKey, занимающейся мобильной аутентификацией, 84% пользователей хотели бы заменить пароли на другие способы авторизации. В исследовании было опрошено 522 человека, и большинство участников (84%) хотело бы заменить пароли на более простую и в то же время надежную систему (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

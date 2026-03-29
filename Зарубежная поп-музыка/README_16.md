@@ -6,7 +6,7 @@ VA - Retro Halloween 2021 (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799482.jpg" />
+  <img src="Z:/picture/008/save_picture_799482.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Halloween Party 2021 (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799481.jpg" />
+  <img src="Z:/picture/008/save_picture_799481.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799412.jpg" />
+  <img src="Z:/picture/008/save_picture_799412.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
+  <img src="Z:/picture/008/save_picture_799402.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - EDM Rave Dance Music Explosion: Top 100 Massive Festival Hits 2019 - Goa Ps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798741.jpg" />
+  <img src="Z:/picture/008/save_picture_798741.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - 100 Hits 60s (2015) 5CD [MP3|320 Kbps] <Pop, Rock, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798729.jpg" />
+  <img src="Z:/picture/008/save_picture_798729.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MARUV - No Name (2021) [MP3|320 Kbps] <Dance, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798273.jpg" />
+  <img src="Z:/picture/008/save_picture_798273.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dino Solera - Classically Dino Solera (1977) [MP3|320 кб/с] <Disco, Funk, Sou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797639.jpg" />
+  <img src="Z:/picture/008/save_picture_797639.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Mel & Kim - F.L.M. (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797204.jpg" />
+  <img src="Z:/picture/008/save_picture_797204.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Summer Pop 100 (2020) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797191.jpg" />
+  <img src="Z:/picture/008/save_picture_797191.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ABBA - Voyage (2021) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797187.jpg" />
+  <img src="Z:/picture/008/save_picture_797187.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - 90's Forgotten Pop Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797159.jpg" />
+  <img src="Z:/picture/008/save_picture_797159.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Penny McLean - 3 Albums (1975-1978) LP [MP3|320 кб/с] <Disco, Funk, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796980.jpg" />
+  <img src="Z:/picture/008/save_picture_796980.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Giorgio Moroder - On The Groove Train 1974-1993 (Vol.1,2) (2012, 2013) 4CD 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796844.jpg" />
+  <img src="Z:/picture/008/save_picture_796844.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Top 100 Hits (2020) [MP3|320 Kbps] <Euro Dance, Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796650.jpg" />
+  <img src="Z:/picture/008/save_picture_796650.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Muddyloop - We Are Light (2017) [MP3|320 Kbps] <Synthpop, 80's Retrowave, R'n'B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796454.jpg" />
+  <img src="Z:/picture/008/save_picture_796454.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ TUBA Stockholm - The Spin (2017) [MP3|320 Kbps] <Synthpop, Nu Disco, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796420.jpg" />
+  <img src="Z:/picture/008/save_picture_796420.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Running Playlist (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796352.jpg" />
+  <img src="Z:/picture/008/save_picture_796352.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Beyonce - Lemonade (2016) [MP3|320 кб/с] <Pop, Funk & Soul, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796101.jpg" />
+  <img src="Z:/picture/008/save_picture_796101.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Best 80s Hits (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795869.jpg" />
+  <img src="Z:/picture/008/save_picture_795869.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795273.jpg" />
+  <img src="Z:/picture/008/save_picture_795273.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Latin Music Summer Party (2020) [MP3|320 Kbps] <Latin, Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795264.jpg" />
+  <img src="Z:/picture/008/save_picture_795264.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lady Gaga - Chromatica (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795194.jpg" />
+  <img src="Z:/picture/008/save_picture_795194.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795049.jpg" />
+  <img src="Z:/picture/008/save_picture_795049.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Kar
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795048.jpg" />
+  <img src="Z:/picture/008/save_picture_795048.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Marzio - Smoke On The Volcano (1980) LP [MP3|320 Kbps] <Electronic, Space Rock, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794917.jpg" />
+  <img src="Z:/picture/008/save_picture_794917.jpg" />
 </div>
 
 

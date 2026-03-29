@@ -1,3 +1,90 @@
+###  Публикация: 1837305   (256813) от 15.11.2025
+
+Нина Гарская | Парцифаль (Инсценировка) (2022) [MP3, Всеволод Абдулов, Алексей Борзунов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
+Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
+Инсценировка Нины Гарской о герое куртуазного эпоса – Персивале, также Паерцифаль, Паерсифаль. Миф о Персивале образует одну из ветвей сказания о короле Артуре и его рыцарях, входит в цикл романов Круглого стола.
+Легенды (   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A485BDB9BF315F6B6D557DEE478FC938C654BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837306   (256812) от 15.11.2025
+
+Нина Гарская | Тангейзер (Инсценировка) (2022) [MP3, Георгий Менглет, Нина Архипова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
+Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
+Инсценировка Нины Гарской о немецком средневековом поэте периода позднего миннезанга – Тангейзере.
+(   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5CA7B679D0837ADF9C29B4D603BE26A0C6E8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837309   (256811) от 15.11.2025
+
+Нина Гарская | Тристан и Изольда (Инсценировка) (2022) [MP3, Георгий Менглет, Нина Архипова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям, «В фонотеку школьника. Былины и сказания».
+Нина Викторовна Гарская – автор инсценировок для Всесоюзного радио CCCР.
+Инсценировка по материалам издания французского учёного и писателя Жозефа Бедье – «Роман о Тристане и Изольде».
+В средние века Европа зачитывалась повестью о страстной и трагической любви Тристана и Изольды. «Быть любимым, (   Читать дальше...   )Жанр: Литература для детей, приключения, легенды и сказанияИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68604B08828E7F55A960D15608FD4AABACA9737C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837366   (256762) от 16.11.2025
 
 Эллен МакГир | Нескучное половое воспитание (2024) [MP3, Ирина Патракова]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256762.jpg" />
+  <img src="Z:/picture/005/save_picture_256762.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256711.jpg" />
+  <img src="Z:/picture/005/save_picture_256711.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256710.jpg" />
+  <img src="Z:/picture/005/save_picture_256710.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255128.jpg" />
+  <img src="Z:/picture/005/save_picture_255128.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254818.jpg" />
+  <img src="Z:/picture/005/save_picture_254818.jpg" />
 </div>
 
 
@@ -146,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254776.jpg" />
+  <img src="Z:/picture/005/save_picture_254776.jpg" />
 </div>
 
 
@@ -172,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254747.jpg" />
+  <img src="Z:/picture/005/save_picture_254747.jpg" />
 </div>
 
 
@@ -199,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251987.jpg" />
+  <img src="Z:/picture/004/save_picture_251987.jpg" />
 </div>
 
 
@@ -225,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251986.jpg" />
+  <img src="Z:/picture/004/save_picture_251986.jpg" />
 </div>
 
 
@@ -251,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251689.jpg" />
+  <img src="Z:/picture/004/save_picture_251689.jpg" />
 </div>
 
 
@@ -279,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251678.jpg" />
+  <img src="Z:/picture/004/save_picture_251678.jpg" />
 </div>
 
 
@@ -306,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251676.jpg" />
+  <img src="Z:/picture/004/save_picture_251676.jpg" />
 </div>
 
 
@@ -334,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251139.jpg" />
 </div>
 
 
@@ -362,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251126.jpg" />
 </div>
 
 
@@ -390,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250734.jpg" />
+  <img src="Z:/picture/004/save_picture_250734.jpg" />
 </div>
 
 
@@ -416,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249368.jpg" />
+  <img src="Z:/picture/004/save_picture_249368.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249364.jpg" />
+  <img src="Z:/picture/004/save_picture_249364.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246421.jpg" />
+  <img src="Z:/picture/004/save_picture_246421.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246395.jpg" />
+  <img src="Z:/picture/004/save_picture_246395.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246101.jpg" />
 </div>
 
 
@@ -550,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245897.jpg" />
+  <img src="Z:/picture/004/save_picture_245897.jpg" />
 </div>
 
 
@@ -576,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245878.jpg" />
+  <img src="Z:/picture/004/save_picture_245878.jpg" />
 </div>
 
 
@@ -602,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245862.jpg" />
+  <img src="Z:/picture/004/save_picture_245862.jpg" />
 </div>
 
 
@@ -613,85 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C87721997F6933B13A9A424B0C7A45C13F09FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448955   (245555) от 19.02.2021
-
-Андрей Усачев | Что было в сумке у кенгуру (2018) [Сборник] [MP3
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«О чем этот спектакль, вы, наверное, и сами догадались. Правильно, конечно, об Австралии. Чего только нет в удивительной стране: и кенгуру, и утконосы, и ехидны, и коала… А вот мифов и сказок о них, действительно, почти нет. Поэтому мне и захотелось написать эту книгу.»
-(От автора, из официальной аннотации)Жанр: Детская литература. СказкаПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2D34A8C521726FCC0942BC64C08E61D3F80C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610078   (244576) от 05.02.2023
-
-Виктор Драгунский | Гусиное горло (2021) [MP3, Елена Фортушнова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая история о том, что самый лучший подарок - это сделанный своими руками и от всей души!Жанр: Детская литератураПродолжительность: 00:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575FC72BD1413582C1EB1B6D16A2E8650CFABC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625849   (244399) от 11.04.2023
-
-Луиджи Капуана | Говорящее дерево (2021) [MP3, Совушка Сонюшка]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если у тебя есть все сокровища мира, кроме одного? Волшебного говорящего дерева. А что будет дальше - если это волшебное дерево - заколдованная принцесса?..Жанр: Детская литература. СказкаПродолжительность: 00:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2D0DB760D8D7B0C15B88F17F0C59663676039F
 ```
 
 https://mybot314.ru/tekegram_catalog/

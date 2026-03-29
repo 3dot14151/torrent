@@ -1,3 +1,194 @@
+###  Публикация: 1460325   (1022800) от 04.04.2021
+
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2021. Гран-При Дохи / MotoGP 2021. Doha GP (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022800.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE74B7CEDE1C9BD68017816939BC6BFD45509617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460214   (1022787) от 04.04.2021
+
+Спортивный детектив (2016-2017) DVB (серии 1-7 из ?) (Обновляемая)
+
+>>Спорт и активный отдых
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальное расследование - самые загадочные и интригующие спортивные драмы. По сути - это сборник детективов, но детективов особого плана - в них так или иначе задействована сфера спорта, затронут его мир.Телекомпания: Россия / Матч ТВЖанр: Документальный, Спорт, ИсторияСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692F5CC5D32A422C2A505C98E096413A778413E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459870   (1022741) от 04.04.2021
+
+Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (02.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022741.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 апреля 2021, суббота. 02:00 МСК
+Стадион: Пруденшиал-центр (Ньюарк, США), 3 600 зрителей (20 % при вместимости 17 625)
+Главный судья: Дин Мортон (Питерборо, Канада); Главный судья: Гислейн Эбер (Батерст, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6089CA0127B1832C6E946C2375362EB8D935A1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460134   (1022715) от 04.04.2021
+
+Хоккей. НХЛ 2020-2021. Детройт Ред Уингз - Тампа-Бэй Лайтнинг (03.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022715.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 апреля 2021, суббота. 20:00 МСК
+Стадион: Амали-Арена (Тампа, США), 3 800 зрителей (19 % при вместимости 19 500)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Иэн Уолш (Филадельфия, США)Телекомпания: FOXSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EDF66D6AC364CA5F437D07B1F223AA400C8AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459641   (1022709) от 04.04.2021
+
+Хоккей. НХЛ 2020-2021. Питтсбург Пингвинз - Бостон Брюинз (01.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022709.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 апреля 2021, пятница. 02:00 МСК
+Стадион: Ти-Ди Гарден (Бостон, США), 2 191 зритель (12 % при вместимости 17 850)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Дэн О'Рурк (Калгари, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9591EC6EDD660F187990A12870C33D7F8C8C2B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460141   (1022708) от 04.04.2021
+
+Хоккей. НХЛ 2020-2021. Питтсбург Пингвинз - Бостон Брюинз (03.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022708.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 апреля 2021, суббота. 20:00 МСК
+Стадион: Ти-Ди Гарден (Бостон, США), 2 191 зритель (12 % при вместимости 17 850)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Брайан Почмара (Детройт, США)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2467D1790F20CD4AFED5E805021EAEDBD099C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458425   (1022690) от 04.04.2021
+
+Формула 1. Сезон 2021. Этап 1. Гран-при Бахрейна. Гонка (28.03.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022690.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 марта 2021, воскресенье. 18:00 МСК
+Этап 1, Сахир, Бахрейн. Арена: Международный автодром Бахрейна (Сахир). Гран-при Бахрейна. ГонкаТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E388FB563CCDFF67394C04E180B0D475DBE5BF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460363   (1022539) от 05.04.2021
 
 MotoGP. Этап 02. Гран-При Дохи. Гонка. (04.04.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +197,7 @@ MotoGP. Этап 02. Гран-При Дохи. Гонка. (04.04.2021) WEBRip [
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022539.jpg" />
 </div>
 
 
@@ -32,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022415.jpg" />
 </div>
 
 
@@ -60,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022398.jpg" />
 </div>
 
 
@@ -88,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022277.jpg" />
 </div>
 
 
@@ -117,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022269.jpg" />
 </div>
 
 
@@ -146,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022184.jpg" />
 </div>
 
 
@@ -174,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022183.jpg" />
 </div>
 
 
@@ -202,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022180.jpg" />
 </div>
 
 
@@ -230,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022096.jpg" />
 </div>
 
 
@@ -259,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021947.jpg" />
 </div>
 
 
@@ -288,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021862.jpg" />
 </div>
 
 
@@ -316,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021861.jpg" />
 </div>
 
 
@@ -344,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021858.jpg" />
 </div>
 
 
@@ -372,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021741.jpg" />
 </div>
 
 
@@ -400,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021733.jpg" />
 </div>
 
 
@@ -428,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021625.jpg" />
 </div>
 
 
@@ -454,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021596.jpg" />
 </div>
 
 
@@ -483,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021581.jpg" />
 </div>
 
 
@@ -509,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021514.jpg" />
 </div>
 
 
@@ -522,195 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D512971C9D44F4292005652765D7F8C5F172A985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462076   (1021443) от 12.04.2021
-
-Смешанные единоборства. UFC on ABC 2: Марвин Веттори - Кевин Холлэнд / UFC on ABC 2: Vettori vs. Holland. Prelims & Main Card (10.04.2021) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021443.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 апреля в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC on ABC 2. Главным событием которого стал бой в среднем весе: Кевин Холлэнд – Марвин Веттори. Изначально, Веттори должен был провести бой против Даррена Тилла, однако, травма ключицы заставила британца покинуть кард ивента. Со-главное событие: бой в полулегком весе Содик Юсуфф (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F5AA3D7EF80ACFA26BF8F5F4C795B3CE946122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461949   (1021441) от 12.04.2021
-
-Чемпионат мира по шоссейно-кольцевым гонкам Формула Е. Сезон 2021. Этап 4. Рим. Квалификация 2, Гонка 2 / Formula E. 2021. R4. Rome E-Prix. Quali 2, Race 2 (11.04.2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021441.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 этап электрической формулы Formula E в Риме, Италия.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:25:32 + 01:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65474FBE94A49E4F1EFC5C4ACA6680AB73D95B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462073   (1021420) от 12.04.2021
-
-Хоккей. НХЛ 2020-2021. Питтсбург Пингвинз - Нью-Джерси Дэвилз (09.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021420.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 2021, понедельник. 02:00 МСК
-Стадион: Пруденшиал-центр (Ньюарк, США), 3 600 зрителей (20 % при вместимости 17 625)
-Главный судья: Тревор Хансон (Ричмонд, Канада); Главный судья: Дин Мортон (Питерборо, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEAE9B6958B31B9C68893393AAE7BE3A1B681F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462071   (1021410) от 12.04.2021
-
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Бостон Брюинз (11.04.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021410.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 2021, понедельник. 02:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 2 191 зритель (12 % при вместимости 17 850)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Рид Андерсон (Калгари, Канада)Телекомпания: NBCS-WSHЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC7D359AA6D56A7CD74D2C966509EC560180A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462321   (1021221) от 14.04.2021
-
-Серия Кубков NASCAR 2021. Этап 8. Блю-Эму Максимум Пэйн Релиф. Гонка / NASCAR Cup Series 2021. Blue-Emu Maximum Pain Relief 500 (2021) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FEC2B892046C0D7029C5116715D1677D0100FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462347   (1021204) от 14.04.2021
-
-Футбол. Лига Чемпионов 2020-2021. 1/4 финала. Обзор матчей (13.04.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2020-2021. 1/4 финала. Обзор матчей (13.04.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7E279959FDD954BB71F1FB27658B690A02B165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462344   (1021199) от 14.04.2021
-
-Футбол. Лига Чемпионов 2020-2021.1/4 финала. Челси (Лондон, Англия) - Порту (Португалия) (13.04.2021) HDTVRip [H.264/720p] [hand made 50 fps]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2020-2021. 1/4 финала. Ответный матч. Челси (Лондон, Англия) - Порту (Португалия) (13.04.2021)
-СУДЬЯ Тюрпен Клеман (Улинс, Франция)
-Судья на линии 1: Дано Николя (Франция)
-Судья на линии 2: Грингор Сириль (Франция)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4ACE15AFE041ED6AD1B451BBD0DD5C47915761
 ```
 
 https://mybot314.ru/tekegram_catalog/

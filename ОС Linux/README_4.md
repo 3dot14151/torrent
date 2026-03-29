@@ -6,7 +6,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839538.jpg" />
+  <img src="Z:/picture/008/save_picture_839538.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837788.jpg" />
+  <img src="Z:/picture/008/save_picture_837788.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836433.jpg" />
+  <img src="Z:/picture/008/save_picture_836433.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836327.jpg" />
+  <img src="Z:/picture/008/save_picture_836327.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Red Hat Enterprise Linux 8.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834399.jpg" />
+  <img src="Z:/picture/008/save_picture_834399.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832902.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832585.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832510.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832479.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831250.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830608.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Q4OS 1.4.9 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830264.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [amd64] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828598.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828029.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827287.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827280.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826518.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Debian Edu - Skolelinux 11.1.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826404.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Parrot Security OS 4.9 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825928.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825078.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824630.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820510.jpg" />
+  <img src="Z:/picture/008/save_picture_820510.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820505.jpg" />
+  <img src="Z:/picture/008/save_picture_820505.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817961.jpg" />
+  <img src="Z:/picture/008/save_picture_817961.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815577.jpg" />
+  <img src="Z:/picture/008/save_picture_815577.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ BackBox Linux 4.7 [Анализ безопасности, хакинг] [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814431.jpg" />
+  <img src="Z:/picture/008/save_picture_814431.jpg" />
 </div>
 
 

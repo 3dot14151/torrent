@@ -1,3 +1,107 @@
+###  Публикация: 1515743   (168323) от 08.12.2021
+
+NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) WEBRip [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168323.jpg" />
+</div>
+
+
+###  Подробнее
+
+От диких пустынь и действующих вулканов до огромных озер и рек - Африка - страна крайностей. На этом впечатляющем континенте звери дикой природы сражаются за выживание в самых суровых условиях мира.Производство: Нидерланды / Off the Fence B. V., National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Надеге ЛайчиПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516119   (167509) от 09.12.2021
+
+NG: Война Гитлера против прессы / Hitler's Battle Against the Press (2018) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1920-х годах журналисты газеты «Мюнхенер Пост» (Münchner Post) уже видели опасность, исходившую от Гитлера. Решительно и бесстрашно они писали об угрозе национал-социализма. Гитлер называл эту газету «мастерской дьявола» и угрожал её сотрудникам с помощью своих головорезов. Сегодня эти смелые редакторы и их газета оказались в полном забвении. Только одна книга (   Читать дальше...   )Производство: США, Германия / National Geographic ChannelЖанр: Документальный, ИсторияРежиссер: Уте Бёнэн, Геральд ЭндресПеревод: Одноголосый профессиональный (Студия «Велес»)Субтитры: ОтсутствуютПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216190   (167182) от 13.12.2020
+
+NG: С точки зрения науки: Предотвратить конец света / Naked Science: Preventing Armageddon (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом эпизоде мы следим за работой ученых, которые пытаются предотвратить столкновение крупного астероида с землей, в результате которого наша планета может погибнуть. Как утверждает геолог Рэй Андерсон, огромная скала весом в 50 миллионов тонн неотвратимо движется к земле со скоростью 60000 миль в час. Удар такого астероида при столкновении с нашей планетой в 10 (   Читать дальше...   )Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Мартин ГорстПеревод: Одноголосый профессиональныйПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516225   (166657) от 10.12.2021
+
+NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun (2020) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце содержит в себе 99,9% всего вещества нашей солнечной системы и выделяет горячую плазму со скоростью почти миллион миль в час. Температура в его ядре достигает 27 миллионов градусов по Фаренгейту. Оно конвульсирует, пылает, и даже издает звуки. Ученые считают солнце одной из самых удивительных физических лабораторий во вселенной. Теперь, с помощью космических (   Читать дальше...   )Производство: США / Duncan Copp LTD, National Geographic, NOVA/WGBH BostonЖанр: ДокументальныйРежиссер: Дункан КоппПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345573   (166174) от 15.12.2019
 
 NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166174.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165810.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165794.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164991.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163448.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Экстремальное путешествие: Вторая мирова
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163345.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162504.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162132.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158871.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158639.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Nat Geo Wild: Дикая Австралия / Wild Australia [серии 1-4 и�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158056.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158006.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NGW: Дикие места Африки. Величайшие архитекто
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157309.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157140.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156835.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156138.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Расследования Авиакатастроф / Спецвыпуск
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155565.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155421.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155030.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153378.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153250.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886A650D1842F49BE90AFE544BFD489ECA674E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199430   (152773) от 22.12.2019
-
-NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простираясь на 11 часовых поясов и расположившись на территории двух континентов, от центра Европы до Тихого океана, эта огромная страна поражает своим размахом и нетронутыми природными богатствами, которые в их первозданной красоте таят необъятные Российские просторы, раскинувшиеся вдали от шумных и тесных мегаполисов - Москвы и Санкт-Петербурга. Получив уникальную (   Читать дальше...   )Телекомпания: A Studio Hamburg ProduktionЖанр: Документальный, ВидовойПеревод: ДублированныйПродолжительность: 6х ~00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2F25E39B865A58D6E3551F7408E5823CBDB31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086471   (152735) от 24.12.2016
-
-Последний рейс "Андреа Дориа" / Last Voyage of the Andrea Doria (1996) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152735.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1956 году лайнер «Андреа Дориа» в 101-ый раз пересекал Атлантику. По палубам прогуливалась богема того времени, а на капитанском мостике за правильным курсом следили лучшие моряки Италии. Однако июльским утром 1956 жители побережья Нантаки увидели страшную картину: огромный корабль лежал на боку и медленно погружался в воду. Как такое могло случиться с современным (   Читать дальше...   )Телекомпания: США / National GeographicЖанр: Документальный, ИсторияПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EAF2A607EFD1138282055DD0224C084324B3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271261   (152218) от 22.12.2018
-
-NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти млекопитающие проявляют малоизвестные нам черты характера, становясь могущественными, хитрыми и беспощадными животными.Производство: Новая Зеландия, Natural History New Zeland, Ltd., National GeographicЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2024014A776B4CA20DED7FAD73940D97483B4FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347553   (151507) от 23.12.2019
-
-NG: Службы безопасности портов: Гамбург / Port Security: Hamburg (2019) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гамбургский порт является ключевым транспортным хабом Германии, через который осуществляются экспортно-импортные поставки различных товаров в интересах немецкого бизнеса. Контрабандисты со всего мира пытаются использовать его для своей нелегальной деятельности, включая провоз наркотиков, оружия и контрабанды. Мы увидим, как проводятся спецоперации по задержанию подозрительных (   Читать дальше...   )Производство: Германия, National GeographicЖанр: Документальный, контрабанда, полицияРежиссер: Юсиф Аль-ЧалабиПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45480C307B95CA06F98B25D18FB677A520823D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

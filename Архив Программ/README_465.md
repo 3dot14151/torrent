@@ -6,7 +6,7 @@ GPU-Z 2.6.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801033.jpg" />
+  <img src="Z:/picture/008/save_picture_801033.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FileZilla 3.30.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801031.jpg" />
+  <img src="Z:/picture/008/save_picture_801031.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Cent Browser 3.1.5.51 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801020.jpg" />
+  <img src="Z:/picture/008/save_picture_801020.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WhatsApp 0.2.3699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801007.jpg" />
+  <img src="Z:/picture/008/save_picture_801007.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PrivaZer 4.0.32 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800981.jpg" />
+  <img src="Z:/picture/008/save_picture_800981.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2184 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800975.jpg" />
+  <img src="Z:/picture/008/save_picture_800975.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ LibreOffice 5.4.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800964.jpg" />
+  <img src="Z:/picture/008/save_picture_800964.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ TurboMosaic 3.0.4 Professional Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800963.jpg" />
+  <img src="Z:/picture/008/save_picture_800963.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Torch Browser 60.0.0.1508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800951.jpg" />
+  <img src="Z:/picture/008/save_picture_800951.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Wise Care 365 Pro 4.7.9.462 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800950.jpg" />
+  <img src="Z:/picture/008/save_picture_800950.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GPU Caps Viewer 1.38.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800948.jpg" />
+  <img src="Z:/picture/008/save_picture_800948.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Volume2 1.1.6.409 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800946.jpg" />
+  <img src="Z:/picture/008/save_picture_800946.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ dBpowerAMP Music Converter 16.4 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800945.jpg" />
+  <img src="Z:/picture/008/save_picture_800945.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SoftMaker Office Professional 2016 rev 766.0331 RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800943.jpg" />
+  <img src="Z:/picture/008/save_picture_800943.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Passware Kit Forensic 2017.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800942.jpg" />
+  <img src="Z:/picture/008/save_picture_800942.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Do Your Data Recovery Pro 7.5 [En] (промо-акция COMSS)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800933.jpg" />
+  <img src="Z:/picture/008/save_picture_800933.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ reaConverter Pro 7.580 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800923.jpg" />
+  <img src="Z:/picture/008/save_picture_800923.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800921.jpg" />
+  <img src="Z:/picture/008/save_picture_800921.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CoolUtils Total Doc Converter 5.1.0.236 (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800913.jpg" />
+  <img src="Z:/picture/008/save_picture_800913.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slate Digital & Murda Beatz - Murda Melodies 1.0.3 (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800898.jpg" />
+  <img src="Z:/picture/008/save_picture_800898.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ MediaHuman YouTube Downloader 3.9.9.61 (2910) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800890.jpg" />
+  <img src="Z:/picture/008/save_picture_800890.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Internet Download Manager 6.39 Build 8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800889.jpg" />
+  <img src="Z:/picture/008/save_picture_800889.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ GOM Player Plus 2.3.70.5334 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800888.jpg" />
+  <img src="Z:/picture/008/save_picture_800888.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ashampoo Burning Studio 19.0.1.6 Portable by punsh [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800879.jpg" />
+  <img src="Z:/picture/008/save_picture_800879.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Adobe components: Flash Player 28.0.0.137 + AIR 28.0.0.127 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800871.jpg" />
+  <img src="Z:/picture/008/save_picture_800871.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ AusLogics BoostSpeed 10.0.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800868.jpg" />
+  <img src="Z:/picture/008/save_picture_800868.jpg" />
 </div>
 
 

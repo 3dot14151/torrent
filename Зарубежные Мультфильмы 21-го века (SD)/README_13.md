@@ -1,3 +1,82 @@
+###  Публикация: 654731   (823279) от 11.05.2013
+
+Дочурка Граффало / The Gruffalo's Child (2011) DVD5 [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений храброго мышонка. Теперь в существование большого злобного мыша предстоит поверить дочурке Граффало. Экранизация одноименной британской сказки Джулии Дональдсон и Акселя Шеффлера.Производство: Германия, ВеликобританияЖанр: Детский, Анимационный, КороткометражныйРежиссер: Уве Хеидсшоттер / Uwe Heidschötter, Йоханнес Вейланд / Johannes WeilandПерсонажи: Хелена Бонем Картер, Ширли Хендерсон, Робби Колтрейн, Роб Брайдон, Джон Хёрт, Том Уилкинсон, Джеймс Корден, Фиби Гиврон-Тейлор, Сэм ЛьюисПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 00:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E390FC8A52DA6A14011ADB46EA685F6BC0B91406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 654710   (823208) от 11.05.2013
+
+Граффало / The Gruffalo (2009) DVD5 [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация книги-бестселлера Джулия Дональдсон и Аксель Шеффлер о маленьком и сообразительном мышонке, который используя рассказы о выдуманном чудовище Груффало, обманул голодного Лиса, глупого Филина и болотного Змея.Производство: Германия, ВеликобританияЖанр: Детский, Анимационный, КороткометражныйРежиссер: Джейкоб Шух / Jakob Schuh, Макс Лэнг / Max LangПерсонажи: Хелена Бонем Картер / Helena Bonham Carter (рассказчик), Джеймс Корден / James Corden (мышонок), Том Уилкинсон/ Tom Wilkinson (Лис),
+Джон Херт / John Hurt (Филин), Роб Брайдон / Rob Brydon (Змей), Робби Колтрейн / Robbie Coltrane (Груффало)Язык субтитров: АнглийскиеПродолжительность: 00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA76BCA818DBAD55B8D02A7AC720CF074598FCCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007038   (822462) от 14.04.2016
+
+Обитель зла: Проклятие / Biohazard: Damnation (2012) HDRip [H.264] [hand made 60fps]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной компьютерной анимации «Обитель зла: Вырождение». Леон Кеннеди отправляется в Восточную Европу на борьбу с монстрами — порождениями корпорации Амбрела. Больше монстров, больше пушек, больше экшена.Производство: Япония | Digital Frontier, Sony Pictures Entertainment, Capcom CompanyЖанр: Компьютерная анимация, Для взрослыхРежиссер: Макото КамияПерсонажи: Робин Сакс, Кортни Тейлор, Кэролин Лоуренс, Мэттью Мерсер, Уэнди Ли, Дейв Уиттенберг, Салли Саффиоти, Вэл Тассо, Элисон КортПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B604603D94A772E77407B9A861303C01D834CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 881689   (822334) от 26.03.2015
 
 Флинстоуны: борцы каменного века / The Flintstones and WWE: Stone Age Smackdown (2015) HDRip [Line]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822334.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822245.jpg" />
+  <img src="Z:/picture/008/save_picture_822245.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822164.jpg" />
+  <img src="Z:/picture/008/save_picture_822164.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822040.jpg" />
+  <img src="Z:/picture/008/save_picture_822040.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821207.jpg" />
+  <img src="Z:/picture/008/save_picture_821207.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820316.jpg" />
+  <img src="Z:/picture/008/save_picture_820316.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819602.jpg" />
+  <img src="Z:/picture/008/save_picture_819602.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819143.jpg" />
+  <img src="Z:/picture/008/save_picture_819143.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818313.jpg" />
+  <img src="Z:/picture/008/save_picture_818313.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818218.jpg" />
+  <img src="Z:/picture/008/save_picture_818218.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816840.jpg" />
+  <img src="Z:/picture/008/save_picture_816840.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814571.jpg" />
+  <img src="Z:/picture/008/save_picture_814571.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814027.jpg" />
+  <img src="Z:/picture/008/save_picture_814027.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813958.jpg" />
+  <img src="Z:/picture/008/save_picture_813958.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813401.jpg" />
+  <img src="Z:/picture/008/save_picture_813401.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812106.jpg" />
+  <img src="Z:/picture/008/save_picture_812106.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811302.jpg" />
+  <img src="Z:/picture/008/save_picture_811302.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810820.jpg" />
+  <img src="Z:/picture/008/save_picture_810820.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810578.jpg" />
+  <img src="Z:/picture/008/save_picture_810578.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ LEGO Скуби-ду: Призрачный Голливуд / Lego Scooby-Doo!: 
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808983.jpg" />
+  <img src="Z:/picture/008/save_picture_808983.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807992.jpg" />
+  <img src="Z:/picture/008/save_picture_807992.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807751.jpg" />
+  <img src="Z:/picture/008/save_picture_807751.jpg" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805090.jpg" />
+  <img src="Z:/picture/008/save_picture_805090.jpg" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:263FBCD437AA05FD898C9486150A93C2D05A4603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884589   (804597) от 04.04.2015
-
-Книга жизни / The Book of Life (2014) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме описывается романтическая история любви на фоне празднования Дня мертвых в Мексике.Производство: США / Twentieth Century FoxЖанр: Фэнтези, Мелодрама, Комедия, Приключения, СемейныйРежиссер: Хорхе Р. Гутьеррес / Jorge R. GutiérrezАктеры: Диего Луна, Зои Салдана, Ченнинг Татум, Рон Перлман, Кристина Эпплгейт, Айс Кьюб, Кейт дель Кастильо, Гектор Элизондо, Дэнни Трехо, Карлос АласракиПеревод: Дублированный (iTunes Russia)Субтитры: Вшитые (Отключаемые)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4B7E2A6B7B2AF8265E5DAA00514F614C65B762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884588   (804486) от 04.04.2015
-
-Книга жизни / The Book of Life (2014) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804486.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме описывается романтическая история любви на фоне празднования Дня мертвых в Мексике.Производство: США / Twentieth Century FoxЖанр: Фэнтези, Мелодрама, Комедия, Приключения, СемейныйРежиссер: Хорхе Р. Гутьеррес / Jorge R. GutiérrezАктеры: Диего Луна, Зои Салдана, Ченнинг Татум, Рон Перлман, Кристина Эпплгейт, Айс Кьюб, Кейт дель Кастильо, Гектор Элизондо, Дэнни Трехо, Карлос АласракиПеревод: Дублированный (iTunes Russia)Продолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B80E3778C0CB39824EDB05E03396545B7A344AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505562   (804367) от 27.10.2021
-
-Спирит Непокорный / Spirit Untamed (2021) DVD9 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаки Прескотт — юная бунтарка, совсем как ее мама, легендарная бесстрашная наездница, которую дочь почти не помнит. После очередной шалости заботливая тетушка Кора, вырастившая девочку, отправляет ее жить к отцу. Теперь все, о чем мечтает Лаки — вырваться на волю из крошечного сонного городка. Все меняется, когда она знакомится со Спиритом — диким мустангом, таким (   Читать дальше...   )Производство: США, Япония / Universal Pictures, DreamWorks Animation, Walden MediaЖанр: Мультфильм, приключения, семейный, вестернРежиссер: Илэйн Боган, Эннио ТорресанАктеры: Изабела Мерсед, Джулианна Мур, Джейк Джилленхол, Марсаи Мартин, Маккенна Грэйс, Уолтон Гоггинс, Гари А. Хэккер, Эйса Гонсалес, Андре Брауэр, Люсиан ПересПеревод: Дублированный (Пифагор)Субтитры: Русские, английскиеПродолжительность: 01:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89DC536BBF0CC59D7CBC5155B7F2DF89ABF5338
 ```
 
 https://mybot314.ru/tekegram_catalog/

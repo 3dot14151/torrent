@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835393.jpg" />
+  <img src="Z:/picture/008/save_picture_835393.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835392.jpg" />
+  <img src="Z:/picture/008/save_picture_835392.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835391.jpg" />
+  <img src="Z:/picture/008/save_picture_835391.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Various Artists - Die Geburt Des Jahrtausends (2002) [MP3|320 kbps] <Industrial,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835371.jpg" />
+  <img src="Z:/picture/008/save_picture_835371.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835346.jpg" />
+  <img src="Z:/picture/008/save_picture_835346.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Permute 2.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835341.jpg" />
+  <img src="Z:/picture/008/save_picture_835341.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Platipus - Archive 11 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835338.jpg" />
+  <img src="Z:/picture/008/save_picture_835338.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ VA - TFB Records Best of 2016 Part 2 (Mixed by J-Host) (2017) [FLAC|Lossless|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835335.jpg" />
+  <img src="Z:/picture/008/save_picture_835335.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Trancespotting Vol. 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835332.jpg" />
+  <img src="Z:/picture/008/save_picture_835332.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835327.jpg" />
+  <img src="Z:/picture/008/save_picture_835327.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ USDownloader 1.3.5.9 Portable (13.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835303.jpg" />
+  <img src="Z:/picture/008/save_picture_835303.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Syncopy Recordings Trance Anthems (Mixed by NG Rezonance) (2017) [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835298.jpg" />
+  <img src="Z:/picture/008/save_picture_835298.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Downie 2.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835294.jpg" />
+  <img src="Z:/picture/008/save_picture_835294.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835287.jpg" />
+  <img src="Z:/picture/008/save_picture_835287.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835284.jpg" />
+  <img src="Z:/picture/009/save_picture_835284.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Allavsoft Video Downloader Converter 3.14.1.6281 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835245.jpg" />
+  <img src="Z:/picture/008/save_picture_835245.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ FileZilla 3.25.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835242.jpg" />
+  <img src="Z:/picture/008/save_picture_835242.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ummy Video Downloader 1.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835238.jpg" />
+  <img src="Z:/picture/008/save_picture_835238.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Contacts Sync for Google Gmail 6.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835237.jpg" />
+  <img src="Z:/picture/008/save_picture_835237.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Stellarium 0.90.0.9172 TEST + classic [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835236.jpg" />
+  <img src="Z:/picture/008/save_picture_835236.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VA - A State Of Trance Top 20 – March 2017  [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835234.jpg" />
+  <img src="Z:/picture/008/save_picture_835234.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ MacBooster 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835227.jpg" />
+  <img src="Z:/picture/008/save_picture_835227.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835221.jpg" />
+  <img src="Z:/picture/008/save_picture_835221.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835210.jpg" />
+  <img src="Z:/picture/008/save_picture_835210.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Vocal Trance Classics 007 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835185.jpg" />
+  <img src="Z:/picture/008/save_picture_835185.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Ultra Adware Killer 5.7.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835180.jpg" />
+  <img src="Z:/picture/008/save_picture_835180.jpg" />
 </div>
 
 

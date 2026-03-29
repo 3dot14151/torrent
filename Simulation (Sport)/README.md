@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1861524   (1062426) от 
+
+Everybody's Golf Hot Shots (2025) [Multi] (1.0.8) Scene Rune
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всеми любимая игра о гольфе наконец получила продолжение! Выбирайте среди множества уникальных персонажей и полей для гольфа, и играйте в онлайн- или офлайн-режиме. Испытайте новые режимы игры, которые заставят вас и ваших друзей побороться за выход в следующий раунд! Интуитивно понятное и невероятно простое управление. Просто прицельтесь и нажмите кнопку три раза (   Читать дальше...   )Тип издания: SceneРазработчик: HYDE, Inc.Жанр: СпортЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD939A3B484D20C9887E2475B4D9CFF4C831D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860726   (1062012) от 
+
+Skate Story (2025) [Ru/Multi] (20260124) Scene Rune
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - демон из преисподней, ваше тело соткано из боли и стекла. Дьявол дал вам скейтборд с одним простым условием: прокатитесь до луны и поглотите ее. И тогда вы будете свободны. Олли, кикфлип, гринд? Выучите эти трюки и пройдите сквозь пепел и дым Пустых земель, расправляясь с почти невыполнимым заданием. Научитесь контролировать свой вес и движения, чтобы завоевать (   Читать дальше...   )Тип издания: SceneРазработчик: by Sam EngЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СпортЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E028973ADBE3EFD814992AD22E9A17751ED6622D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858166   (1060141) от 09.03.2026
 
 Streetdog BMX (2026) [Ru/Multi] (1.0.31) Repack FitGirl
@@ -7,7 +59,7 @@ Streetdog BMX (2026) [Ru/Multi] (1.0.31) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060141.jpg" />
+  <img src="Z:/picture/009/save_picture_1060141.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050626.jpg" />
+  <img src="Z:/picture/005/save_picture_1050626.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ FIFA 22 (2021) [Ru/Multi] (1.0.77.45722) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050625.jpg" />
+  <img src="Z:/picture/005/save_picture_1050625.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Project Hunt (2024) [Ru/Multi] (20251217/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049982.jpg" />
+  <img src="Z:/picture/005/save_picture_1049982.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ TIEBREAK+: Official Game of the ATP and WTA (2024) [Ru/Multi] (1.0.6099/dlc) Rep
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049430.jpg" />
+  <img src="Z:/picture/008/save_picture_1049430.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ FIFA 20 (2019) [Ru/Multi] (1.0.66.8249) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049233.jpg" />
+  <img src="Z:/picture/008/save_picture_1049233.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Rugby League 26 (2025) [Multi] (1.0.3326) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048730.jpg" />
+  <img src="Z:/picture/008/save_picture_1048730.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Cricket 22 (2021) [En] (0.1.3221) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047630.jpg" />
+  <img src="Z:/picture/008/save_picture_1047630.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ AFL 26 (2025) [En] (1.0.1672) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047577.jpg" />
+  <img src="Z:/picture/008/save_picture_1047577.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Rugby 25 (2024) [Multi] (1.0.4016) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047576.jpg" />
+  <img src="Z:/picture/008/save_picture_1047576.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Cricket 24 (2023) [En] (0.2.5521) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047361.jpg" />
+  <img src="Z:/picture/005/save_picture_1047361.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ AFL 23 (2023) [En] (1.0.6618) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047350.jpg" />
+  <img src="Z:/picture/005/save_picture_1047350.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ EA SPORTS FIFA 21 (2020) [Ru/Multi] (1.0.72.32477) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047235.jpg" />
+  <img src="Z:/picture/005/save_picture_1047235.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ EA SPORTS FIFA 21 (2020) [Ru/Multi] (1.0.72.32477) Repack seleZen
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047234.jpg" />
+  <img src="Z:/picture/005/save_picture_1047234.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Football Manager 2023 (2022) [Ru/Multi] (23.2.0/dlc) Repack DjDI
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038477.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Tennis Manager 2022 (2022) [Multi] (2.3.4) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037432.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ NBA 2K21 (2020) [Multi] (1.07) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037019.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ WE ARE FOOTBALL (2021) [Ru/Multi] (1.0h) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010876.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Anthology FIFA 1997-2013 [Ru/En] (RePack) 1996 - 2012 | Scorp1oN
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998161.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984394.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ NBA 2K20 (2019) [Multi] (1.07) Repack xatab
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980750.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Mutant Football League (2017) [En] (1.01.2020smb/hf/dlc) Repack HOODLUM [Dynasty
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976294.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ LHL 14 (2008-2013) [Ru] (1.0) Repack/Mod =nemos=
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975295.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ FIFA 13 [Ru/En] (Repack/1.7) 2012 | a1chem1st
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969081.jpg" />
 </div>
 
 
@@ -622,62 +674,6 @@ FIFA 13 воплощает драматизм и накал страстей н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822F6AC115622ED7CAF3C10078AC70DBD54B7D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356330   (968339) от 08.02.2020
-
-AO Tennis 2 (2020) [Ru/En] (1.0.1422) Repack xatab
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968339.jpg" />
-</div>
-
-
-###  Подробнее
-
-AO Tennis 2 — уникальная игра, сделанная любителями тенниса для любителей тенниса. Создавайте собственных игроков, стадионы и проводите легендарные матчи. Участвуйте в соревнованиях и займите первую строчку мирового рейтинга в карьерном режиме.Тип издания: RepackРазработчик: Big Ant StudiosЖанр: Спортивные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB460ADDC6A9AAB41BF8188A6D60899E3BF3BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624438   (951830) от 28.02.2013
-
-FIFA 13 [Ru/Multi] (Origin-Rip/1.7.0.0) 2012 l R.G. Игроманы
-
->>След.
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951830.jpg" />
-</div>
-
-
-###  Подробнее
-
-FIFA13 воплощает драматизм и накал страстей настоящего футбола.
-Пять революционных изменений, представленных в свежем сезоне знаменитого футбольного симулятора, выводят на качественно новый уровень искусственный интеллект, систему дриблинга, контроль над мячом и силовую борьбу. Теперь соперничество за мяч на каждом участке поля будет еще более напряженным и непредсказуемым — совсем как в реальном футболе.
-Кроме того, в игре появилось два новых вида передачи мяча. Рефери стали точнее определять фолы и обоснованно выносить предупреждения, вратари — действовать четче, а в тактику обороны введен вариант, позволяющий сдвигать защитные порядки поперек поля. Добавлены новые анимации ударов в прыжке и с разворотом на 180 градусов, а также ликования по поводу забитого мяча.
-Не изменяет FIFA 13 традиции аутентичности: в игре представлено более 500 официально лицензированных клубов и 15 000 спортсменов.
-(   Читать дальше...   )Тип издания: Цифровая лицензия (Origin-Rip)Разработчик: EA CanadaЖанр: Sport (Soccer) / 3DЯзык озвучки: РусскийЯзык субтитров: Русский, MultiЯзык интерфейса: Русский, Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18E42D4281E7174E2DFEDBBDB5B84F5FDF54436
 ```
 
 https://mybot314.ru/tekegram_catalog/

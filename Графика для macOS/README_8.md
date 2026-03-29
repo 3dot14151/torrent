@@ -1,3 +1,30 @@
+###  Публикация: 1522804   (756886) от 08.01.2022
+
+Tweak Photos - Image Editor 2.8 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756886.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Все любят фотографировать. Но насколько хорошо Вы можете редактировать тысячи снимком, используя Ваш Mac является большим вопросом" - говорят разработчики Приложения.
+Компания Systweak разработала совершенно новое приложение для пакетного редактирования изображений на Mac - Tweak Photos. С помощью Tweak Photos , редактирование тысячи Ваших фотографий - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 Systweak Software Private LimitedПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAC94D73D96DE0E8A728D7717802912662EFFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215727   (756345) от 27.03.2018
 
 Artista Impresso Pro 1.8.3 [En]
@@ -6,7 +33,7 @@ Artista Impresso Pro 1.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756345.jpg" />
+  <img src="Z:/picture/005/save_picture_756345.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Paletter 4 v4.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755317.jpg" />
+  <img src="Z:/picture/008/save_picture_755317.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ PhotosCollage 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753612.jpg" />
+  <img src="Z:/picture/008/save_picture_753612.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ PhotoReflector 1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753611.jpg" />
+  <img src="Z:/picture/008/save_picture_753611.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ PatterNodes 2 v2.4.12 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751675.jpg" />
+  <img src="Z:/picture/008/save_picture_751675.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ FxFactory Pro 7.2.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751268.jpg" />
+  <img src="Z:/picture/008/save_picture_751268.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ ExifEditor 1.2.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749805.jpg" />
+  <img src="Z:/picture/008/save_picture_749805.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ SILKYPIX Developer Studio Pro 7.0.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747969.jpg" />
+  <img src="Z:/picture/008/save_picture_747969.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ onOne Software Plug-In Suite 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_747175.jpg" />
+  <img src="Z:/picture/005/save_picture_747175.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Magic Hider PRO 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743856.jpg" />
+  <img src="Z:/picture/008/save_picture_743856.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Instant: The Polaroid Instant Photos 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743701.jpg" />
+  <img src="Z:/picture/008/save_picture_743701.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ Adobe DNG Converter 11.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743521.jpg" />
+  <img src="Z:/picture/008/save_picture_743521.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ EzeeGD 2.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739902.jpg" />
+  <img src="Z:/picture/008/save_picture_739902.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739080.jpg" />
+  <img src="Z:/picture/008/save_picture_739080.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738462.jpg" />
+  <img src="Z:/picture/008/save_picture_738462.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ Hej Stylus! v3 3.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737825.jpg" />
+  <img src="Z:/picture/008/save_picture_737825.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ Exposure Software Snap Art 4 v4.1.3.392 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737807.jpg" />
+  <img src="Z:/picture/008/save_picture_737807.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ Exposure Software Eye Candy 7 v7.2.3.189 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737798.jpg" />
+  <img src="Z:/picture/008/save_picture_737798.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ Image Tricks Pro 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737400.jpg" />
+  <img src="Z:/picture/008/save_picture_737400.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ Acon 1.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736423.jpg" />
+  <img src="Z:/picture/008/save_picture_736423.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ SkyLab Studio 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732082.jpg" />
+  <img src="Z:/picture/008/save_picture_732082.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ Image Vectorizer 1.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731967.jpg" />
+  <img src="Z:/picture/008/save_picture_731967.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ PaintCode for Sketch 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731903.jpg" />
+  <img src="Z:/picture/008/save_picture_731903.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ ApolloOne - Photo Video Viewer 2.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731712.jpg" />
+  <img src="Z:/picture/008/save_picture_731712.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Sketch 3.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730351.jpg" />
+  <img src="Z:/picture/008/save_picture_730351.jpg" />
 </div>
 
 
@@ -657,33 +684,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90DDC346E61BD85A46E6FD0E68AAB03CCA043E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128534   (727442) от 25.04.2017
-
-Folder Icon Maker 1.5.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Icon Make является инструментом для настройки значков на ваших папках в  Mac OS X  с файлами PNG. Folder Icon Make обеспечивает эффективный способ , чтобы импортировать ваши личные и индивидуальные иконки для создания привлекательных папок .
-Folder Icon Make имеет 4 разных стиля цвета и 2 варианта , чтобы дать вам различные индивидуальные эффекты для значка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: CokeSoftПоддерживаемая ОС: OS X 10.6.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D8E3C00968C3565ED14C21F26DC3BF4BD91DF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

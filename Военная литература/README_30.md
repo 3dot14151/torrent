@@ -1,3 +1,29 @@
+###  Публикация: 1306692   (555440) от 06.06.2019
+
+Книжная серия | Военная авиация XX века [18 книг] (2012-2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555440.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная авиация XX века» - серия книг о военных самолетах XX века. История создания, испытания, производство, вооружение, характеристики и другие интересные и малодоступные сведения.Жанр: История авиации, Военная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A8E08D4B6637AA6633EB2F83EF6C3F8932D9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307193   (555006) от 09.06.2019
 
 Артем Драбкин | Война. Я помню. Проект Артема Драбкина [3 книги] (2018-2019) [FB2]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555006.jpg" />
+  <img src="Z:/picture/008/save_picture_555006.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552809.jpg" />
+  <img src="Z:/picture/008/save_picture_552809.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549812.jpg" />
+  <img src="Z:/picture/008/save_picture_549812.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549647.jpg" />
+  <img src="Z:/picture/008/save_picture_549647.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547502.jpg" />
+  <img src="Z:/picture/008/save_picture_547502.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545674.jpg" />
+  <img src="Z:/picture/008/save_picture_545674.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543785.jpg" />
+  <img src="Z:/picture/008/save_picture_543785.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540930.jpg" />
+  <img src="Z:/picture/008/save_picture_540930.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537060.jpg" />
+  <img src="Z:/picture/008/save_picture_537060.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536999.jpg" />
+  <img src="Z:/picture/008/save_picture_536999.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536436.jpg" />
+  <img src="Z:/picture/008/save_picture_536436.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535308.jpg" />
+  <img src="Z:/picture/008/save_picture_535308.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535081.jpg" />
+  <img src="Z:/picture/008/save_picture_535081.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535071.jpg" />
+  <img src="Z:/picture/008/save_picture_535071.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535068.jpg" />
+  <img src="Z:/picture/008/save_picture_535068.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534988.jpg" />
+  <img src="Z:/picture/008/save_picture_534988.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534983.jpg" />
+  <img src="Z:/picture/008/save_picture_534983.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534982.jpg" />
+  <img src="Z:/picture/008/save_picture_534982.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534971.jpg" />
+  <img src="Z:/picture/008/save_picture_534971.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534657.jpg" />
+  <img src="Z:/picture/008/save_picture_534657.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534650.jpg" />
+  <img src="Z:/picture/008/save_picture_534650.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531560.jpg" />
+  <img src="Z:/picture/008/save_picture_531560.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531488.jpg" />
+  <img src="Z:/picture/008/save_picture_531488.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531219.jpg" />
+  <img src="Z:/picture/008/save_picture_531219.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530945.jpg" />
+  <img src="Z:/picture/008/save_picture_530945.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF7C3BA399EFE7052967F1DFAAF5B07C9F7CB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051933   (530681) от 12.09.2016
-
-Алексей Исаев и др. | Танковый удар [Советские танки в боях, 1942–1943] (2007) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник посвящен действиям советских танковых войск на переломном этапе Великой Отечественной войны — с осени 1942-го по лето 1943 года, от наступления под Сталинградом до Курской битвы. Именно тогда наши танковые и механизированные корпуса впервые продемонстрировали искусство глубокой операции, умение не только прорывать оборону противника и громить его тылы, (   Читать дальше...   )Жанр: История, Военная техника и вооружениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45055FDE7D4FAC0B16DE3774C6554213E6C5E74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

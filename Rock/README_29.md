@@ -1,3 +1,32 @@
+###  Публикация: 1023208   (726728) от 04.06.2016
+
+Ourlives - Den Of Lions (2014) [MP3|320 кб/с] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blissful Ignorance    03:54
+02. Out of Place    03:26
+03. Blurry Eyes    04:04
+04. Nuna    04:28(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6304B2AD36EADB17F5A27E473634D5D1DF17118D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023129   (726724) от 04.06.2016
 
 Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
@@ -6,7 +35,7 @@ Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726724.jpg" />
+  <img src="Z:/picture/008/save_picture_726724.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Beth Lee and the Breakups - Keep Your Mouth Shut (2016) [MP3|320 кб/с] <Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726713.jpg" />
+  <img src="Z:/picture/008/save_picture_726713.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Rolling Stones - Totally Stripped (2016) Live [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726202.jpg" />
+  <img src="Z:/picture/008/save_picture_726202.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Green Seagull - Cloud Cover (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725216.jpg" />
+  <img src="Z:/picture/008/save_picture_725216.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Rock Legends: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724890.jpg" />
+  <img src="Z:/picture/008/save_picture_724890.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Billy Satellite - Billy Satellite 1 (1984) Re-release, 2000, ATM Records [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724655.jpg" />
+  <img src="Z:/picture/008/save_picture_724655.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724548.jpg" />
+  <img src="Z:/picture/008/save_picture_724548.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723188.jpg" />
+  <img src="Z:/picture/005/save_picture_723188.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Mgzavrebi - Krebuli (The Best) (2018) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721385.jpg" />
+  <img src="Z:/picture/008/save_picture_721385.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Pink Floyd - Wall In Progress 1978-1979 (1979) [MP3|320 кб/с] <Progressive ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719841.jpg" />
+  <img src="Z:/picture/008/save_picture_719841.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - Essential Rockabilly. The Mercury Story (2012) 2CD [MP3|320 кб/с]<Rockab
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719756.jpg" />
+  <img src="Z:/picture/008/save_picture_719756.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ VA - 100 Hits Rock Classics (5CD) (2012) [MP3|256 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719214.jpg" />
+  <img src="Z:/picture/008/save_picture_719214.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Randy Pie - 6 Albums (1974-1986) Collection [MP3|320 Kbps] <Krautrock, Prog Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718814.jpg" />
+  <img src="Z:/picture/008/save_picture_718814.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ The Mamas & The Papas - All The Leaves Are Brown: The Golden Era Collection (2CD
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717437.jpg" />
+  <img src="Z:/picture/005/save_picture_717437.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717193.jpg" />
+  <img src="Z:/picture/005/save_picture_717193.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716681.jpg" />
+  <img src="Z:/picture/008/save_picture_716681.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Mike Tramp - Stray From The Flock (2019) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714921.jpg" />
+  <img src="Z:/picture/008/save_picture_714921.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713581.jpg" />
+  <img src="Z:/picture/008/save_picture_713581.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712539.jpg" />
+  <img src="Z:/picture/008/save_picture_712539.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712207.jpg" />
+  <img src="Z:/picture/008/save_picture_712207.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - The Best Air Guitar Album in the World... II (2002) 2CD [MP3|320 кб/с] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712058.jpg" />
+  <img src="Z:/picture/008/save_picture_712058.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Rock Poetry (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711305.jpg" />
+  <img src="Z:/picture/008/save_picture_711305.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ The Police - Дискография (5 альбомов) (1978-1983) [MP3|320 kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_711089.jpg" />
+  <img src="Z:/picture/005/save_picture_711089.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710191.jpg" />
+  <img src="Z:/picture/008/save_picture_710191.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock &
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710041.jpg" />
+  <img src="Z:/picture/008/save_picture_710041.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0EE16BFA7D3E651A36E8766DC5898684D8EB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220199   (708173) от 17.04.2018
-
-Blackball Bandits - The Lost Mission (2018) [MP3|320 Kbps] <60's Surf Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackball Stomp
-02. The Lost Mission
-03. Great Sand Tune
-04. Slalom Under the Pier(   Читать дальше...   )Жанр: 60's Surf Rock, InstrumentalПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E8ECC5361FBF6177E9C34873C789930F5DA98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

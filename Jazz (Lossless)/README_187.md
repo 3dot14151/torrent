@@ -1,3 +1,119 @@
+###  Публикация: 1063983   (430369) от 18.10.2016
+
+Janet Klein & Her Parlor Boys - Put A Flavor To Love (2002) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Put A Flavor To Love [04:26]
+ 02.Troubled Waters [04:23]
+ 03.If I Could Be With You One Hour Tonight [03:00]
+ 04.My Bundle Of Love [02:44](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9771905342D03747FDF00B33BC58F10A91809440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064142   (430347) от 18.10.2016
+
+Burton, Corea, Metheny, Haynes, Holland - Like Minds (1998) [WavPack|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Question And Answer (6:23)
+02. Elucidation (5:21)
+03. Windows (6:17)
+04. Futures (10:41)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41471CD56C872B3B89BD3764EB5B351A10D5DFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411134   (429994) от 24.09.2020
+
+Bob Brookmeyer - Mosaic Select 9 (1954 - 1958) 2004, 3CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429994.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Liberty Belle [2:49]
+02. Have You Met Miss Jones [3:34]
+03. Isn't It Romantic [2:38](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 03:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4F24572EBB07EA696282D332C3F6629ACF7CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411136   (429975) от 24.09.2020
+
+Wynton Marsalis & Arturo Sandoval - Los Elefantes (1999) in-akustik [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Giants Talking to Dizz [1:45]
+02. Tunisias Blues [7:16]
+03. Wheel Within a Wheel [6:35]
+04. Los Elefantes [6:53](   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94483B43E6ED08A1BA95136D8BCCD4ADC975DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571702   (429843) от 23.08.2022
 
 Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981) 3CD, 1992, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Big Band>
@@ -6,7 +122,7 @@ Woody Shaw - The Complete CBS Studio Recordings Of Woody Shaw (1977, 1979, 1981)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429843.jpg" />
+  <img src="Z:/picture/008/save_picture_429843.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ John Coltrane - Interstellar Space (1967) /2015, Universal/[FLAC|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429412.jpg" />
+  <img src="Z:/picture/008/save_picture_429412.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Four Freshmen with Stan Kenton And His Orchestra - Live At Butler University
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429380.jpg" />
+  <img src="Z:/picture/008/save_picture_429380.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Four Freshmen - More 4 Freshmen and 5 Trombones & In Person, Vol. 2 (1963, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429372.jpg" />
+  <img src="Z:/picture/008/save_picture_429372.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ruby Braff - Linger Awhile (1953 - 1955) 1999, Vanguard Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429353.jpg" />
+  <img src="Z:/picture/008/save_picture_429353.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Four Freshmen - Voices in Love & Love Lost (1958, 1959) 1998, Collectors' Ch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429271.jpg" />
+  <img src="Z:/picture/008/save_picture_429271.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Miles Davis Quintet - Winter in Europe 1967 (2006) Gambit Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428657.jpg" />
+  <img src="Z:/picture/008/save_picture_428657.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eva Cortes - El Mar De Mi Vida (2010) Universal [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428509.jpg" />
+  <img src="Z:/picture/008/save_picture_428509.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Peggy Lee - Rendezvous With Peggy Lee (1946-1949) 2000, Vocalion[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428388.jpg" />
+  <img src="Z:/picture/008/save_picture_428388.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Gary Burton & Friends - Departure (1997) [WavPack|Lossless|image + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428378.jpg" />
+  <img src="Z:/picture/008/save_picture_428378.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Peggy Lee - Black Coffee: Best Of The Decca Years (1952-1956) 1997, Half Moon[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428371.jpg" />
+  <img src="Z:/picture/008/save_picture_428371.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Oliver Nelson - The Argo, Verve And Impulse Big Band Studio Sessions (1963 - 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427621.jpg" />
+  <img src="Z:/picture/008/save_picture_427621.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Arni Egilsson, Ray Brown, Pete Jolly - Basses Loaded (1996) Cambria [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427523.jpg" />
+  <img src="Z:/picture/008/save_picture_427523.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sonny Criss - Plays Cole Porter (1956) 2006, Toshiba [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426920.jpg" />
+  <img src="Z:/picture/008/save_picture_426920.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sun Ra and The Arkestra - Sound of Joy (1957) 2003, Delmark[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426397.jpg" />
+  <img src="Z:/picture/008/save_picture_426397.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Joey Alexander - Countdown (2016) Motema Music[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426395.jpg" />
+  <img src="Z:/picture/008/save_picture_426395.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Duke Ellington - Duke Ellington's Greatest Hits (1968) 1997 [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426257.jpg" />
+  <img src="Z:/picture/008/save_picture_426257.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ James Moody - 1951 (2005) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425726.jpg" />
+  <img src="Z:/picture/008/save_picture_425726.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Red Garland - Misty Red (1982) 1991, Timeless [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425606.jpg" />
+  <img src="Z:/picture/008/save_picture_425606.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Herman Foster - The One And Only (1984) /2015, Solid Records/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425349.jpg" />
+  <img src="Z:/picture/008/save_picture_425349.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Tete Montoliu - Live At The Keystone Corner (1979) /2015, Solid Records/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425347.jpg" />
+  <img src="Z:/picture/008/save_picture_425347.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Art Blakey & The Jazz Messengers - The Freedom Rider (1961) /2015, Universal/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425266.jpg" />
+  <img src="Z:/picture/008/save_picture_425266.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Art Blakey & The Jazz Messengers - The Freedom Rider (1961) /2015, Universal/[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82D49A3584DA5292AD358BCE7BE2E8B3B5E4A19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946449   (425263) от 14.10.2015
-
-Bill Evans - Jazzhouse (1969) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.How Deep Is The Ocean [06:01]
-02.How My Heart Sings [04:06]
-03.Good Bye [03:53]
-04.Autumn Leaves [05:49](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABE0A4A10DFBC9954D9E9F23E63E59369EBC843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946429   (425256) от 14.10.2015
-
-Elvin Jones - Live At The Lighthouse Vol. 1 (1972) /2013, EMI Music/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction: Bill Chappell / Announcer: Rick Holmes [01:43]
-02.Fancy Free [21:07]
-03.New Breed [12:07]
-04.Small One [07:11](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC37245F35D29F1B3E4AEAFE8285310A37F3C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946439   (425252) от 14.10.2015
-
-Elvin Jones - Live At The Lighthouse Vol. 2 (1972) /2013, EMI Music/[FLAC|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction / Happy Birthday Greeting [00:54]
-02.Sweet Mama [15:32]
-03.I'm A Fool To Want You [11:35]
-04.The Children, Save The Children [08:01](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C462A07AFD8F4C60BC9566C43597E756D1DB3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946786   (425250) от 14.10.2015
-
-Jonathan Fritzen - Fritzenized (2015) [FLAC|image + .cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fingers on Fire (4:11)
-02. Euphoria (feat. Paul Taylor) (4:29)
-03. A Funky Night (feat. Laila Adele) (4:09)
-04. Enchantment (4:27)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C749DDE73AE5D4C3347F56C735CF4CFE61CF1D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

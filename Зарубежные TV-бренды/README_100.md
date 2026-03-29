@@ -1,3 +1,107 @@
+###  Публикация: 1338650   (268744) от 16.11.2019
+
+NG: Чудища морей. Доисторическое Приключение / Sea Monsters. A Prehistoric Adventure (2007) BDRemux [H.264/1080p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-путешествие в малоизученный мир «необычных» — подводных — динозавров. Здесь тесно переплетаются красочная фотореалистическая анимация и уникальные палеонтологические находки со всего мира — сокровища, которые пролили свет на жизнь персонажей фильма.Производство: США, National GeographicЖанр: Документальный, палеонтология, реконструкцияРежиссер: Шон Маклеод ФиллипсПеревод: Одноголосый закадровый, любительскийСубтитры: АнглийскиеПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7B336A42AEEED44ABA0782761EE989031E3D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275306   (268728) от 28.12.2010
+
+BBC: Мир природы. Китовая акула / Natural World. Whale Shark (2008) DVDRip [118 серия]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китовая акула - самая крупная рыба в мире и, вместе с тем, одна из самых загадочных и малоизученных. Ее длина может достигать 15 метров, а вес - 12 тонн! Несмотря на огромные размеры, китовая акула для человека абсолютно безопасна, так как питается исключительно планктоном и прочими мелкими организмами, которых она фильтрует, втягивая в себя воду. Большую часть года (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DB5DC85364A8A14C42C48E11B8E49578D3388E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339028   (267985) от 17.11.2019
+
+NG: С точки зрения науки: Апокалипсис каменного века / Stone Age Apocalypse (2009) HDTV [H.264/1080i-LQ](Сезон 4, серия 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267985.jpg" />
+</div>
+
+
+###  Подробнее
+
+100 000 лет назад по Земле бродило до миллиона человек. А примерно 70 000 лет назад население численностью всего в несколько тысяч человек возможно породило всех современных людей. Что-то произошло... что-то значительное, нечто, что изменило ход эволюции человека. Как это произошло? И грозит ли нашей цивилизации XXI века такая же страшная угроза?Производство: США, Granada Production / National Geographic ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Гарет УильямсПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3AEB3304600D7903740F74702B166B80C8F264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339053   (267891) от 17.11.2019
+
+Discovery. Миллионы Пабло Эскобара / Finding Escobar’s Millions (2017) HDTVRip [H.264/720p-LQ] [50fps] (серии 6 из 6)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267891.jpg" />
+</div>
+
+
+###  Подробнее
+
+По официальным данным, самый богатый наркобарон в истории Пабло Эскобар при жизни обладал состоянием более 30 млрд долларов, однако не исключено, что денег у него было еще больше. Новая программа «Миллионы Пабло Эскобара» призвана пролить свет на эту тайну. Два бывших агента ЦРУ в сопровождении съемочной группы отправятся на поиски миллионов, спрятанных, если верить (   Читать дальше...   )Производство: США, Blackfin, Pixeldust Studios, Discovery Communications, LLC.Жанр: Документальный, криминал, поискиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B7830C467F200008D01A15FBC731267AA4724D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338873   (267757) от 17.11.2019
 
 NGW. Дикая природа Средиземноморья: Последний средиземноморский лес / WildMed: The Last Mediterranean Forest (2014) HDTVRip [H.264/720p-LQ]
@@ -6,7 +110,7 @@ NGW. Дикая природа Средиземноморья: Последни�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267757.jpg" />
+  <img src="Z:/picture/008/save_picture_267757.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Дикие места Африки. Битва полов / Africa's Wild S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267725.jpg" />
+  <img src="Z:/picture/008/save_picture_267725.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ NG. Экстремальный Китай. Подземный Ханжонг / E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267722.jpg" />
+  <img src="Z:/picture/008/save_picture_267722.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NGW: Изгои среди животных (Животные-разбойник
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267716.jpg" />
+  <img src="Z:/picture/008/save_picture_267716.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ History Channel: Тайны китайских колесниц / Secret of the 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266836.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266740.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266673.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266480.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266357.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266023.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ NGW: Потерянный рай Колумбии / Wild Colombia's Lost Eden (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265725.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ NG: Последняя львица / The Last Lioness (2009) HDTVRip 720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265631.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ NG: История о нас с Морганом Фрименом / The Story of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265583.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265582.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265580.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ NG: Охотники за вирусами / Virus Hunters (2008) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265578.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265574.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265572.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Discovery. Планета мутантов / Mutant Planet (2010) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265568.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ BBC: Империя чужих. Насекомые / Alien Empire (2001) [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265529.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ NG: Известная Вселенная. У Пределов Познания 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265525.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265524.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ National Geographic: Острова. Галапагосы / Islands. Galapagos (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:998431315AC8551FD5D619BB087BD5E3A29662B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191811   (265498) от 07.12.2018
-
-BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (1996) DVDRip (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Дневник большой кошки» рассказывает нам о судьбах африканских больших кошек: львов, леопардов и гепардов.
-Съемочная группа из 8-ми операторов наблюдает за жизнью этих животных в заповеднике Масаи-Мара в Кении. Авторы фильма не просто рассказывают о больших кошках, как о видах, но и прослеживают судьбы каждого конкретного животного день за днём, неделя за неделей, (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Discovery ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6648B436703B798B533DC85A83C9AEEE5AD81A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140798   (264933) от 12.12.2017
-
-Лучшая десятка шедевров архитектуры / Top 10 the Art of Architecture (2015) DVB [H.264] (серии 10 из 10)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество наделено великими дарами. Возможно, самый великий из них – это наше воображение, потому что именно воображение даёт нам возможность преображать окружающий мир. Самые очевидные примеры этого – прекрасные здания, архитектура вокруг нас. Но какие произведения архитектуры мы должны увидеть хотя бы однажды? Узнать это нам поможет программа "Десятка лучших (   Читать дальше...   )Производство: Чехия, США, KM plus Media & Big MediaЖанр: Документальный, архитектура, строительствоРежиссер: Макс Серио, Войтех ФилчевПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1666A76C02C82D01009481F21242A46B6A2AA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262273   (264798) от 08.12.2018
-
-Династии / Dynasties (2018) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-5 из 5) [EN / RU Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный цикл является духовным наследником фильмов Планета Земля и Голубая Планета. Автор - знаменитый документалист Дэвид Аттенборо, в рассказах которого раскрываются настоящие истории о пяти из самых знаменитых, но находящихся в опасности видов животных: пингвины, шимпанзе, львы, гиены и тигры. Эти животные живут семьями, героически сражаясь против своих соперников (   Читать дальше...   )Производство: США, Великобритания, BBC America, BBC Studios, France TélévisionsЖанр: Документальный, природа, путешествие, исследование, флора, фаунаРежиссер: Рози ТомасПеревод: ОтсутствуетСубтитры: Русские, английские (отдельным файлом)Продолжительность: серии x ~00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91401C8CC45AA7175C8CE8D93BEC47348CD5082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340579   (263551) от 24.11.2019
-
-Неизведанные Территории / No Maps for These Territories (2000) DVDRip [AVO]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм-интервью с Уильямом ГибсономПроизводство: Великобритания, Mark Neale ProductionsЖанр: Документальный, загадки, путешествияРежиссер: Марк НилПеревод: Одноголосый закадровый, авторскийСубтитры: отсутствуютПродолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3D3DC45A126ADC0D0AC8DD0B1EBB1D65E255FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

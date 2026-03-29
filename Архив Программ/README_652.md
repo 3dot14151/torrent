@@ -6,7 +6,7 @@ YouTube By Click Premium 2.2.135 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721180.jpg" />
+  <img src="Z:/picture/008/save_picture_721180.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wonderfox HD Video Converter Factory Pro 19.1 RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721179.jpg" />
+  <img src="Z:/picture/008/save_picture_721179.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Edge 84.0.522.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721176.jpg" />
+  <img src="Z:/picture/008/save_picture_721176.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ LDPlayer 4.0.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721175.jpg" />
+  <img src="Z:/picture/008/save_picture_721175.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ MKVToolNix 49.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721172.jpg" />
+  <img src="Z:/picture/008/save_picture_721172.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FinePrint 9.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721166.jpg" />
+  <img src="Z:/picture/008/save_picture_721166.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Flash Player 29.0.0.140 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721164.jpg" />
+  <img src="Z:/picture/008/save_picture_721164.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ W10Privacy 3.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721160.jpg" />
+  <img src="Z:/picture/008/save_picture_721160.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721158.jpg" />
+  <img src="Z:/picture/008/save_picture_721158.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ AOMEI Backupper Technician Plus 4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721154.jpg" />
+  <img src="Z:/picture/008/save_picture_721154.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Adobe Flash Player 29.0.0.140 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721153.jpg" />
+  <img src="Z:/picture/008/save_picture_721153.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by elchupaсabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721152.jpg" />
+  <img src="Z:/picture/008/save_picture_721152.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Freemake Video Converter 4.1.6.2 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721119.jpg" />
+  <img src="Z:/picture/008/save_picture_721119.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DPS Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721116.jpg" />
+  <img src="Z:/picture/008/save_picture_721116.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Transmission-Qt 2.84.3 + Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721110.jpg" />
+  <img src="Z:/picture/008/save_picture_721110.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Kinza Browser 5.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721074.jpg" />
+  <img src="Z:/picture/008/save_picture_721074.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Vivaldi 2.3.1440.57 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721073.jpg" />
+  <img src="Z:/picture/008/save_picture_721073.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Pale Moon 28.12.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721067.jpg" />
+  <img src="Z:/picture/008/save_picture_721067.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VueScan Pro 9.7.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721061.jpg" />
+  <img src="Z:/picture/008/save_picture_721061.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe XD 31.2.12.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721057.jpg" />
+  <img src="Z:/picture/008/save_picture_721057.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Serif Affinity Photo 1.8.4.693 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721056.jpg" />
+  <img src="Z:/picture/008/save_picture_721056.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ OCCT 6.1.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721055.jpg" />
+  <img src="Z:/picture/008/save_picture_721055.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Kaspersky Lab Products Remover 1.0.1309 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721048.jpg" />
+  <img src="Z:/picture/008/save_picture_721048.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721042.jpg" />
+  <img src="Z:/picture/008/save_picture_721042.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Futuremark 3DMark 1.5.893 Professional Edition [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720997.jpg" />
+  <img src="Z:/picture/008/save_picture_720997.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ WinUtilities Pro 15.48 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720952.jpg" />
+  <img src="Z:/picture/008/save_picture_720952.jpg" />
 </div>
 
 

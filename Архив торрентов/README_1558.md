@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697907.jpg" />
+  <img src="Z:/picture/008/save_picture_697907.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Airflow 3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697906.jpg" />
+  <img src="Z:/picture/008/save_picture_697906.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe components: Flash Player 22.0.0.192 | AIR 22.0.0.153 | Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697900.jpg" />
+  <img src="Z:/picture/008/save_picture_697900.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Luxion Keyshot Pro 6.2.85 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697899.jpg" />
+  <img src="Z:/picture/008/save_picture_697899.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697898.jpg" />
+  <img src="Z:/picture/008/save_picture_697898.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VKMusic 4.67 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697896.jpg" />
+  <img src="Z:/picture/008/save_picture_697896.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Permute 3 v3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697875.jpg" />
+  <img src="Z:/picture/008/save_picture_697875.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ RapidWeaver 8 v 8.1.7 (20665b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697867.jpg" />
+  <img src="Z:/picture/008/save_picture_697867.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ System Toolkit 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697820.jpg" />
+  <img src="Z:/picture/008/save_picture_697820.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Kit for Affinity-Templates 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697817.jpg" />
+  <img src="Z:/picture/008/save_picture_697817.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697815.jpg" />
+  <img src="Z:/picture/008/save_picture_697815.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697812.jpg" />
+  <img src="Z:/picture/008/save_picture_697812.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ JRiver Media Center 26.0.106 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697810.jpg" />
+  <img src="Z:/picture/008/save_picture_697810.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ YT Downloader 7.0.19 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697807.jpg" />
+  <img src="Z:/picture/008/save_picture_697807.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697795.jpg" />
+  <img src="Z:/picture/008/save_picture_697795.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ VA - Matrix Downloaded 002 (2013) [MP3|320 кб/с] <dark electro, ebm, industri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697791.jpg" />
+  <img src="Z:/picture/008/save_picture_697791.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ VA - Matrix Downloaded 004 (2015) [MP3|320 кб/с] <dark electro, ebm, industri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697789.jpg" />
+  <img src="Z:/picture/008/save_picture_697789.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ VA - Matrix Downloaded 001 (2011) [MP3|320 кб/с] <dark electro, ebm, industri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697788.jpg" />
+  <img src="Z:/picture/008/save_picture_697788.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ VA - Matrix Downloaded 005 (2015) [MP3|320 кб/с] <dark electro, ebm, industri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697787.jpg" />
+  <img src="Z:/picture/008/save_picture_697787.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ VA - Matrix Downloaded 003 (2014) [MP3|320 кб/с] <dark electro, ebm, industri
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697786.jpg" />
+  <img src="Z:/picture/008/save_picture_697786.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697784.jpg" />
+  <img src="Z:/picture/008/save_picture_697784.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697776.jpg" />
+  <img src="Z:/picture/008/save_picture_697776.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697775.jpg" />
+  <img src="Z:/picture/008/save_picture_697775.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ File Juicer 4.73 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697767.jpg" />
+  <img src="Z:/picture/008/save_picture_697767.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697763.jpg" />
+  <img src="Z:/picture/008/save_picture_697763.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Ashampoo Photo Commander 16.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697711.jpg" />
+  <img src="Z:/picture/008/save_picture_697711.jpg" />
 </div>
 
 

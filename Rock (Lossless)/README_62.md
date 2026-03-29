@@ -1,3 +1,163 @@
+###  Публикация: 1137544   (666712) от 27.05.2017
+
+Los Colognes - The Wave (2017) [FLAC|Lossless|tracks] <Classic Rock, Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneakin' Breadcrumbs 04:40
+02. Flying Apart 04:53
+03. Unspoken 03:58
+04. Molly B Good 04:30(   Читать дальше...   )Жанр: Classic Rock, Art Rock, Prog RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCB262112F7D9CF06D041B1A2CA4C99D01CAA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137500   (666652) от 27.05.2017
+
+Warren Zevon - Stand in the Fire (1980) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_666652.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "Stand In The Fire" – 3:26
+2. "Jeannie Needs A Shooter" (Bruce Springsteen, Zevon) – 4:00
+3. "Excitable Boy" (LeRoy Marinell, Zevon) – 3:52
+4. "Mohammed's Radio" – 4:45(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6DD77BB7758E09AC356E122967935AAF4B81D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512035   (665914) от 17.06.2012
+
+Sleep - 5 albums (1991-2009) [FLAC/APE|Lossless] <Stoner Doom Metal, Sludge, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_665914.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: (00:48:46)
+01. From Beyond (14:20)
+02. Proceeds The Weedeon (04:42)
+03. The Druid (05:41)
+04. Some Grass (02:50)
+05. Aquarian (09:29)
+06. Evil Gypsy (08:21)
+07. Nain's Baptism (03:21)1991-2009Жанр: Stoner Doom Metal, Sludge, Stoner RockПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512430   (664686) от 18.06.2012
+
+Acid King - 5 albums (1997-2006) [FLAC|Lossless] <Stoner Rock, Stoner Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_664686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lead Paint (04:31)
+02. Blasting Cap (04:40)
+03. Drop (06:30)
+04. The Midway (02:03)
+05. Evil Satan (07:55)
+06. If I Burn (03:43)
+07. One Ninety-Six (04:22)
+08. Vertigate #1 (03:47)
+09. Tank (03:53)
+10. Dry Run (04:16)(   Читать дальше...   )1997-2006Жанр: Stoner Rock, Stoner Doom MetalПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511957   (664530) от 18.06.2012
+
+Ozric Tentacles - 28 albums (1984-2011) [FLAC/APE/WavPack|Lossless] <Progressive / Rsychedelic / Space Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_664530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attack of the Vapours (05:22)
+02. Lemon Kush (06:15)
+03. Flying Machines (06:26)
+04. Knurl (06:08)
+05. Lost in the Sky (07:20)
+06. Paper Monkeys (07:17)
+07. Plowm (07:52)
+08. Will of the Wisps (10:42)
+09. Air City (03:53)1984-2011Жанр: Progressive / Rsychedelic / Space Rock, InstrumentalПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137947   (664482) от 29.05.2017
 
 Geisha - Die Verbrechen Der Liebe (2008) [FLAC|Lossless|image + .cue] <Space Rock, Psychedelic Rock, Noise Rock>
@@ -6,7 +166,7 @@ Geisha - Die Verbrechen Der Liebe (2008) [FLAC|Lossless|image + .cue] <Space Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664482.jpg" />
+  <img src="Z:/picture/008/save_picture_664482.jpg" />
 </div>
 
 
@@ -35,7 +195,7 @@ Sign X - Back To Eden (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664393.jpg" />
+  <img src="Z:/picture/008/save_picture_664393.jpg" />
 </div>
 
 
@@ -64,7 +224,7 @@ Barrows - Obsidion (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664193.jpg" />
+  <img src="Z:/picture/008/save_picture_664193.jpg" />
 </div>
 
 
@@ -93,7 +253,7 @@ The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664112.jpg" />
+  <img src="Z:/picture/008/save_picture_664112.jpg" />
 </div>
 
 
@@ -122,7 +282,7 @@ Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664088.jpg" />
+  <img src="Z:/picture/008/save_picture_664088.jpg" />
 </div>
 
 
@@ -151,7 +311,7 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) 50th Anniversary, Sup
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664055.jpg" />
+  <img src="Z:/picture/008/save_picture_664055.jpg" />
 </div>
 
 
@@ -180,7 +340,7 @@ Dirty Sound Magnet - DSM III (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663374.jpg" />
+  <img src="Z:/picture/008/save_picture_663374.jpg" />
 </div>
 
 
@@ -209,7 +369,7 @@ Robert Tepper - Better Than The Rest (2019) [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663372.jpg" />
+  <img src="Z:/picture/008/save_picture_663372.jpg" />
 </div>
 
 
@@ -238,7 +398,7 @@ Vince DiCola - Only Time Will Tell (2021) Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663369.jpg" />
+  <img src="Z:/picture/008/save_picture_663369.jpg" />
 </div>
 
 
@@ -267,7 +427,7 @@ A Tribe of Horsman - On The Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedeli
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663365.jpg" />
+  <img src="Z:/picture/008/save_picture_663365.jpg" />
 </div>
 
 
@@ -296,7 +456,7 @@ Knuckle Head - Holsters and Rituals (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663278.jpg" />
+  <img src="Z:/picture/008/save_picture_663278.jpg" />
 </div>
 
 
@@ -325,7 +485,7 @@ Humanotone - Humanotone (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662457.jpg" />
+  <img src="Z:/picture/008/save_picture_662457.jpg" />
 </div>
 
 
@@ -354,7 +514,7 @@ Chas Cronk - Liberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662407.jpg" />
+  <img src="Z:/picture/008/save_picture_662407.jpg" />
 </div>
 
 
@@ -383,7 +543,7 @@ VA - Thunderstruck (2017) Compilation [FLAC|Lossless|tracks] <Blues Rock, Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662118.jpg" />
+  <img src="Z:/picture/008/save_picture_662118.jpg" />
 </div>
 
 
@@ -412,7 +572,7 @@ Manfred Mann's Earth Band - 20 Years Of Manfred Mann's Earth Band 1971-1991 (199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662038.jpg" />
+  <img src="Z:/picture/008/save_picture_662038.jpg" />
 </div>
 
 
@@ -441,7 +601,7 @@ Zombies - Rock & Pop Legends (1995) Compilation [FLAC|Lossless|image + .cue] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661884.jpg" />
+  <img src="Z:/picture/008/save_picture_661884.jpg" />
 </div>
 
 
@@ -470,7 +630,7 @@ Bay City Rollers - Bye Bye Baby (1993) Compilation [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661875.jpg" />
+  <img src="Z:/picture/008/save_picture_661875.jpg" />
 </div>
 
 
@@ -499,7 +659,7 @@ Gary Glitter - Rock & Pop Legends (1995) Compilation [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661808.jpg" />
+  <img src="Z:/picture/008/save_picture_661808.jpg" />
 </div>
 
 
@@ -528,7 +688,7 @@ Misleading - Missing (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661458.jpg" />
+  <img src="Z:/picture/008/save_picture_661458.jpg" />
 </div>
 
 
@@ -557,7 +717,7 @@ Shiny Gnomes - Otherness (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661389.jpg" />
+  <img src="Z:/picture/008/save_picture_661389.jpg" />
 </div>
 
 
@@ -586,7 +746,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661309.jpg" />
+  <img src="Z:/picture/008/save_picture_661309.jpg" />
 </div>
 
 
@@ -600,151 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7A6822423EA5F50A1097A12A2898B79C7688E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139193   (661206) от 01.06.2017
-
-Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Rise
-02. Take Me Down Nasty
-03. Who Cries Now
-04. To Be Your Everything(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538852   (661180) от 22.03.2022
-
-Kid Rock - Bad Reputation (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Tell Me How To Live (00:04:04)
-02 - We The People (00:04:09)
-03 - My Kind of Country (00:03:56)
-04 - Bad Reputation (00:04:09)(   Читать дальше...   )Жанр: Alternative, Southern RockПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FD432D742C61FA996CE62A1365D5A2D11EDC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139167   (660995) от 01.06.2017
-
-Roger Waters - Is This The Life We Really Want? (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Art-Rock, Progressive-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When We Were Young 1:40
-02.  Deja Vu 4:27
-03.  The Last Refugee 4:13
-04.  Picture That 6:48(   Читать дальше...   )Жанр: Rock, Art-Rock, Progressive-RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB815DE421B2F3412543AA1D9757B6361932D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139242   (660271) от 02.06.2017
-
-Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tristana (6:41)
-2. Nella Vita, Un Pianto (11:04)
-3. Viaggio Nel Tempo (6:33)
-4. La Casa del Lago (6:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139211   (660185) от 02.06.2017
-
-Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|image + .cue] <Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660185.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Guitar Craft Theme I: Invocation
-2. The Tight Muscle Party at Love Beach - Robert Fripp, Essex, Andrew
-3. Chords That Bind
-4. Guitar Craft Theme III: Eye of the Needle(   Читать дальше...   )Жанр: Prog-RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

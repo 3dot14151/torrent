@@ -1,3 +1,85 @@
+###  Публикация: 1356201   (980487) от 29.01.2020
+
+Маргарет Митчелл | Унесенные ветром (2020) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Унесенные ветром» один из лучших образцов американской прозы, правдиво и точно отражающий события гражданской войны 1861-1865 годов и период Реконструкции в США. В центре романа – пленительный женский образ главной героини – Скарлетт О’Хара, дочери французской аристократки и ирландского плантатора. Зеленоглазая красавица, капризная и своенравная, но, вместе (   Читать дальше...   )Жанр: Американская классическая прозаИздательство: СОЮЗПродолжительность: 47:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDC183ED21BBA928565964D47BA45177663C85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165245   (979851) от 12.01.2010
+
+Михаил Булгаков | Записки покойника [2007] [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979851.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Записки покойника" - острый, проницательный и грустный "роман с театром" Булгакова-драматурга, которому довелось пройти все круги театрального механизма, познать его трагическую и сладкую горечь и тайну.
+"Записки покойника" - сатирическая, язвительная, лирическая трагикомедия; увлекательная история "закулисного мира", где (   Читать дальше...   )Жанр: классика
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165569   (979557) от 12.01.2010
+
+Михаил Лермонтов | Герой нашего времени [1979] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Герой нашего времени» — одна из ярчайших страниц творчества М. Ю. Лермонтова.
+
+Он состоит из пяти отдельных повестей («Бэла», «Максим Максимыч», «Тамань», «Княжна Мэри», «Фаталист»), связанных воедино образом главного героя — Печорина.
+(   Читать дальше...   )Жанр: приключения, радиоспектакльФормат: MP3Продолжительность: 5:27:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166545   (975863) от 15.01.2010
 
 Л.Н. Толстой | Анна Каренина [MP3, А.К. Тарасова, Н.П. Хмелёв и др.]
@@ -6,7 +88,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975863.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975022.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974726.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973723.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973302.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970972.jpg" />
 </div>
 
 
@@ -168,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970751.jpg" />
 </div>
 
 
@@ -194,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966661.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965688.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964643.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963553.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962406.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956504.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956099.jpg" />
 </div>
 
 
@@ -377,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953975.jpg" />
 </div>
 
 
@@ -404,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952229.jpg" />
 </div>
 
 
@@ -430,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951324.jpg" />
 </div>
 
 
@@ -458,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950382.jpg" />
 </div>
 
 
@@ -484,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947037.jpg" />
 </div>
 
 
@@ -510,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946427.jpg" />
 </div>
 
 
@@ -536,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946388.jpg" />
 </div>
 
 
@@ -562,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945550.jpg" />
 </div>
 
 
@@ -588,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943872.jpg" />
 </div>
 
 
@@ -600,90 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42B4378B4349BD70FC08F39D389A69D8C64A2ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175220   (942013) от 13.02.2010
-
-А.С. Грибоедов | Горе от ума (Аудиоспектакль) [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль Государственного академического Малого театра СССР по знаменитой комедии А.С. Грибоедова «Горе от ума», а также диалог Фамусова и Чацкого в исполнении Михаила Царева.
-
-Александр Сергеевич Грибоедов писал о своем произведении: «Портреты и только портреты входят в состав комедии... в них, однако, есть черты, свойственные многим другим лицам, а иные всему (   Читать дальше...   )Жанр: Пьеса
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089326   (941538) от 10.01.2017
-
-Максим Горький | Городок Окуров (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941538.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1909 году Горьким была написана злободневная повесть «Городок Окуров», тематически связанная с эпохой 1905 года.
-«Городок Окуров» можно назвать книгой о мещанстве как общественном слое, взятом во всей его сложности и пестроте, со всеми его противоречиями: здесь и зажиточное мещанство, преимущественно торгаши, и беднота слободская, главным образом мастеровые, ремесленники. (   Читать дальше...   )Жанр: КлассикаПродолжительность: 05:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF5FED99667F4F0A195D215E57777FB801DF7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091130   (941424) от 10.01.2017
-
-Антон Чехов и др. | Рождественские рассказы русских писателей (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Грин "Новогодний праздник отца и маленькой дочери", читает Ольга Остроумова
-02. Антон Чехов "Ванька", читает Владимир Симонов
-03. Антон Чехов "'Мошенники поневоле", читает Владимир Симонов
-04-05. Александр Куприн "Чудесный доктор", читает Игорь Костолевский(   Читать дальше...   )Жанр: Классика,АудиокнигаПродолжительность: 02:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BA1CEEBFBDF44DBB1A7A7B0E9B0298639BDE38
 ```
 
 https://mybot314.ru/tekegram_catalog/

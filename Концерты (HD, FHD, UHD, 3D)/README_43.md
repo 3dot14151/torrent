@@ -1,3 +1,93 @@
+###  Публикация: 1822137   (94506) от 05.10.2025
+
+Праздничный концерт ко Дню учителя (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телеверсию большого концерта, посвященного Дню учителя. Со сцены прозвучали самые любимые песни и самые теплые пожелания педагогам.Телекомпания: Россия | «Первый канал»Жанр: Поп, эстрадаУчастники: Юрий Антонов, Лариса Долина, Полина Гагарина, Shaman, Стас Михайлов, Александр Иванов, Стас Пьеха, Александр Панайотов, Дмитрий Колдун, Денис Майданов, Александра Воробьева, Дмитрий Маликов, «Домисолька», «Тодес», «Непоседы» и др.Продолжительность: 01:34:59 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC801CC8F5E9A376456B00AA5D8C4DF26D4DA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489047   (91070) от 27.04.2012
+
+Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блю-рей издание концерта01. Lie to Me
+02. Time
+03. Message of Love
+04. My Baby
+05. Talk of the Town
+06. You Know Who Your Friends Are
+07. Time the Avenger
+08. The Homecoming
+09. Up the Neck
+10. Fools Must Die(   Читать дальше...   )Жанр: RockПродюсер: Geoff KempinАктеры: Chrissie Hynde, Adam Seymour, Martin Chambers, Andy Hobson, Zeben JamesonПеревод: Отсутствует, оригиналПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485490   (89736) от 20.04.2012
+
+Григорий Лепс: Научись летать Live (2011) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89736.jpg" />
+</div>
+
+
+###  Подробнее
+
+23, 25, 26 февраля и 7 марта 2011 года в концертном зале Crocus City Hall прошли концерты одного из самых ярких артистов российской сцены - Григория Лепса. Зрители услышали не только любимые хиты, но и смогли первыми оценить абсолютно новые песни с альбома "Пенсне"! Такого концерта еще не было! Такого драйва, искрометности, креатива, такого зрительского (   Читать дальше...   )01. Научись летать
+02. Клуб одиноких сердец подполковника Пеппера
+03. Зима
+04. Настоящая женщина(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485475   (89683) от 20.04.2012
 
 Григорий Лепс: Научись летать Live (2011) [720p] BDRip
@@ -6,7 +96,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89683.jpg" />
 </div>
 
 
@@ -35,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88265.jpg" />
 </div>
 
 
@@ -64,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86673.jpg" />
 </div>
 
 
@@ -99,7 +189,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -134,7 +224,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86175.jpg" />
 </div>
 
 
@@ -169,7 +259,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -204,7 +294,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85784.jpg" />
 </div>
 
 
@@ -230,7 +320,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85765.jpg" />
 </div>
 
 
@@ -259,7 +349,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85761.jpg" />
 </div>
 
 
@@ -288,7 +378,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85018.jpg" />
 </div>
 
 
@@ -317,7 +407,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84954.jpg" />
 </div>
 
 
@@ -343,7 +433,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84631.jpg" />
 </div>
 
 
@@ -379,7 +469,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -408,7 +498,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81105.jpg" />
 </div>
 
 
@@ -434,7 +524,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80643.jpg" />
 </div>
 
 
@@ -460,7 +550,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79558.jpg" />
 </div>
 
 
@@ -496,7 +586,7 @@ Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77580.jpg" />
 </div>
 
 
@@ -525,7 +615,7 @@ Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77221.jpg" />
 </div>
 
 
@@ -560,7 +650,7 @@ Foreigner: Greatest Hits/Soundstage (2008)[720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77184.jpg" />
 </div>
 
 
@@ -586,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76800.jpg" />
 </div>
 
 
@@ -612,7 +702,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76767.jpg" />
 </div>
 
 
@@ -638,7 +728,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76762.jpg" />
 </div>
 
 
@@ -665,100 +755,13 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76266.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Жанр: RockПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450623   (76117) от 14.02.2012
-
-Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockФормат: TS
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452021   (75999) от 13.02.2012
-
-U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление группы U2 на фестивале Glastonbury Festival of Contemporary Performing Arts 2011.Жанр: Rock
-1. Even Better Than the Real Thing (Remix version)
-2. The Fly
-3. Mysterious Ways (with "Independent Women" snippet)
-4. Until the End of the World
-5. One
-6. Where the Streets Have No Name (with "Jerusalem" intro)
-7. I Will Follow
-8. I Still Haven't Found What I'm Looking For (with "Movin' On Up" snippet)
-9. Stay (Faraway, So Close!)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451008   (75776) от 12.02.2012
-
-Андреа Бочелли: Вечерний концерт в Центральном парке Нью-Йорка / Andrea Bocelli: Concerto One Night in Central Park (2011) Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Классическая музыка, Вокал, Поп, КроссоверРежиссер: Дэвид ХорнПеревод: ОтсутствуетПродолжительность: 02:05:25+00:28:19
 
 ## Скачать торент
 ```bash

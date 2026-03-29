@@ -1,3 +1,107 @@
+###  Публикация: 1828946   (199940) от 24.10.2025
+
+Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199940.jpg" />
+</div>
+
+
+###  Подробнее
+
+По Лос-Анджелесу разносится смертоносный вирус, превращающий носителей в зомби. Укус, заражение и больше чем просто иммунитет: узнайте правду об эпидемии и выясните, кем - или чем - вы стали. Выживание и эволюция - таков путь истребителя зомби!Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74F6AD769E502509248CF85969C2122AE211A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636578   (197624) от 01.06.2023
+
+System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197624.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock 2023 - ремейк легендарного иммерсив-сима в сеттинге киберпанка, переносящая игрока в 2072 год и дающая почувствовать себя непревзойденным хакером, чтобы помешать планам злобного искусственного интеллекта SHODAN. Сюжет игры стартует с момента, когда хакера, пытающийся взломать доступ станции Цитадель, ловит корпорация TriOptimum. Эдвардом Диего - глава (   Читать дальше...   )Тип издания: RepackРазработчик: Nightdive StudiosЖанр: Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95149C9423C2A2CB6840743593EBF7A4A2556280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640174   (196917) от 16.06.2023
+
+System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпичный платформер-головоломка с элементами экшена и потрясающей научно-фантастической вселенной, где на ваших глазах разворачивается по-настоящему захватывающая история. На дворе 2155 год, технологический прогресс не просто шагнул вперед, а совершил революционный прорыв и теперь люди способны перемещать свои сознания в подготовленных компанией ION андроидов. Главный (   Читать дальше...   )Тип издания: SceneРазработчик: Chaotic LabЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDB317A910781437A20B761AAD00DC1C384DFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636815   (196792) от 19.06.2023
+
+Impaler (2022) [Ru/Multi] (1.0.475) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Impaler является динамичной стрелялкой, где пользователям приходится сражаться с большим количеством опасных монстров. Предстоит насладиться геймплейными механиками в стиле олдскульных арена-шутеров от первого лица, где присутствуют элементы роуглайт. Геймерам придется использовать специальный призыв шипов, которыми можно создавать преграды и смертельные ловушки (   Читать дальше...   )Тип издания: LicenseРазработчик: ApptivusЖанр: Шутеры, Экшны, FPPЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4CEF4A0145528997E1B83FCA60198CA23A119B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641398   (196740) от 22.06.2023
 
 Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
@@ -6,7 +110,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196740.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195301.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195241.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195204.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194693.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ World War Z (2019) [Ru/Multi] (27.06.2023/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194603.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194193.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194029.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193988.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193767.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193563.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193466.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Metal Eden (2025) [Ru/Multi] (85667) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193461.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wante
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193385.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192430.jpg" />
+  <img src="Z:/picture/004/save_picture_192430.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191874.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191049.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191043.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191030.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190715.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190446.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189514.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Lempo (2023) [Multi] (0.111) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E849AF471E49A320B967622821E190ADC29B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662716   (187225) от 19.09.2023
-
-Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на передовую боевых действий в Strike Force 3! В роли высококвалифицированного элитного оперативника вас ждут интенсивные огневые бои, адреналин наполняющие скрытые миссии и сложные испытания, которые проверят ваши навыки. Исследуйте потрясающие пустынные каньоны и разрушенные войной города в борьбе за освобождение Аль-Тарика от крепкой хватки террора. (   Читать дальше...   )Тип издания: SceneРазработчик: Polygon ArtЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7FA6AFF0EC945AB0A1E2218E64A59E006A334A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492150   (184990) от 26.09.2023
-
-Quake II RTX (2019) [En] (1.7.0) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вскоре после приземления на инопланетной поверхности вы узнаете, что сотни ваших людей были уменьшены всего до нескольких. Теперь вы должны пробиться через тяжело укрепленные военные сооружения, понизить оборону города и остановить военную машину врага. Только тогда будет известна судьба человечества.Тип издания: LicenseРазработчик: Lightspeed Studios™Жанр: Шутеры, От первого лица, ХоррорЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780B581D2E2A795F3E5BAC2706E9A56604EC85D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591747   (184749) от 20.11.2022
-
-Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instinct рассказывает альтернативную историю событий, произошедших в горах Янгандо, которая имела место в реальности 13 сентября 2004 года. У разработчиков появилась своя версия, которую они положили в основу игры. В северокрейской провинции под названием Янгандо происходит странный взрыв. В секретных лабораториях, расположенных вблизи огромной горы, проводились (   Читать дальше...   )Тип издания: RepackРазработчик: Digital Spray Studios, Newtonic Studio, VNeroGAMEsЖанр: Action (Shooter), 3D, 1st Person, HorrorЯзык озвучки: Русский, ЧешскийЯзык субтитров: Русский, Английский, ЧешскийЯзык интерфейса: Русский, Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C356233F224E32901B022AFDC261AB5E6C5C4CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592448   (183309) от 22.11.2022
-
-Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апокалипсис обрушился на небольшой город. Его жители превращаются в кровожадных упырей, нападая на тех, кто остался человеком и безнадежно пытается спастись. Ситуация крайне ужасная, но, возможно, вы сможете ее исправить. Узнайте, что или кто вызвал это и с какой целью. Для этого вам понадобится разное огнестрельное оружие, внимательно изучать предметы и заметки, (   Читать дальше...   )Тип издания: RepackРазработчик: Honor GamesЖанр: Action (Survival Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30DE3EDD01DAE01AF4B0497BECF9157C6678BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

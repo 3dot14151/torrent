@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802821.jpg" />
+  <img src="Z:/picture/008/save_picture_802821.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802745.jpg" />
+  <img src="Z:/picture/008/save_picture_802745.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802040.jpg" />
+  <img src="Z:/picture/008/save_picture_802040.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801986.jpg" />
+  <img src="Z:/picture/008/save_picture_801986.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801882.jpg" />
+  <img src="Z:/picture/008/save_picture_801882.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801868.jpg" />
+  <img src="Z:/picture/008/save_picture_801868.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VA - Chillout Orange, Vol. 5: Relaxing Chillout Vibes (2021) [AAC|~316 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801822.jpg" />
+  <img src="Z:/picture/008/save_picture_801822.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Free Floating: Chillout Your Mind (2021) [AAC|~320 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801821.jpg" />
+  <img src="Z:/picture/008/save_picture_801821.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Chillout Orange, Vol. 4: Relaxing Chillout Vibes (2021) [AAC|~323 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801815.jpg" />
+  <img src="Z:/picture/008/save_picture_801815.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hazell Dean - The Dean & Ware Collection, Vol. 1 (2021) [AAC|~311 Kbps] <Pop, Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801814.jpg" />
+  <img src="Z:/picture/008/save_picture_801814.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Chillout Orange, Vol. 7: Relaxing Chillout Vibes (2021) [AAC|~340 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801812.jpg" />
+  <img src="Z:/picture/008/save_picture_801812.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Chillout Orange, Vol. 6: Relaxing Chillout Vibes (2021) [AAC|~315 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801811.jpg" />
+  <img src="Z:/picture/008/save_picture_801811.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801708.jpg" />
+  <img src="Z:/picture/008/save_picture_801708.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801632.jpg" />
+  <img src="Z:/picture/008/save_picture_801632.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Tony Bennett, Lady Gaga - Love For Sale (Deluxe) (2021) [AAC|~294 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801578.jpg" />
+  <img src="Z:/picture/008/save_picture_801578.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801558.jpg" />
+  <img src="Z:/picture/008/save_picture_801558.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Ad Infinitum - Chapter II - Legacy (2021) [AAC|~311 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801390.jpg" />
+  <img src="Z:/picture/008/save_picture_801390.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 2 (2021) [AAC|~327 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801161.jpg" />
+  <img src="Z:/picture/008/save_picture_801161.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ VA - Living Lounge (Music For Your Soul) (2021) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801160.jpg" />
+  <img src="Z:/picture/008/save_picture_801160.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - Chill out Mood, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801159.jpg" />
+  <img src="Z:/picture/008/save_picture_801159.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Vanlife Chill, Vol. 8 (2021) [AAC|~312 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801157.jpg" />
+  <img src="Z:/picture/008/save_picture_801157.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Electric Light Orchestra - Ballads (2021) [AAC|~338 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801154.jpg" />
+  <img src="Z:/picture/008/save_picture_801154.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801119.jpg" />
+  <img src="Z:/picture/008/save_picture_801119.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Spiritual Spa, Vol. 3 (2021) [AAC|~295 Kbps] <Downtempo, Balearic, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801116.jpg" />
+  <img src="Z:/picture/008/save_picture_801116.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Ibiza Winter Session 2022 (The House Hotties) (2021) [AAC|~328 Kbps] <Elect
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801103.jpg" />
+  <img src="Z:/picture/008/save_picture_801103.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800954.jpg" />
+  <img src="Z:/picture/008/save_picture_800954.jpg" />
 </div>
 
 

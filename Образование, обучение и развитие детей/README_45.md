@@ -1,3 +1,55 @@
+###  Публикация: 931137   (513019) от 25.08.2015
+
+Фёдор Наливкин (изд.) | Детство знаменитых людей (1847) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный автор выбрал в назидание маленьким читателям тридцать две знаменитых в Европе персоны, о чьем детстве сохранились некоторые сведения. Среди этих людей известные ученые, писатели и поэты, государственные деятели, проповедники, юристы, художники, музыканты, но все они в детстве были трудолюбивы и достигали успехов благодаря своей усидчивости, усердию и (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5D0D67A0CC0CB9DF9218A53F34299ECD2E68CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931129   (513014) от 25.08.2015
+
+Разговоры нянюшки с детьми (1840) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание «Разговоры нянюшки с детьми» – типичный пример познавательной литературы для детей второй половины XIX века. Такого рода книги охотно издавала Университетская типография. «Разговоры нянюшки...» – это десять небольших рассказов: «Корова», «Овца», «Петух», «Птица» и др., которые знакомят детей в основном с представителями животного мира, с их повадками и образом (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E7D4A167E83BDF5BC92B79F2BD5482D21828C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931142   (513012) от 25.08.2015
 
 Галерея умных животных, или Собрание новых Анекдотов, любопытных замечаний из лучших авторов об инстинкте, нравах и умственных качествах животных (1850) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513012.jpg" />
+  <img src="Z:/picture/008/save_picture_513012.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513009.jpg" />
+  <img src="Z:/picture/008/save_picture_513009.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513008.jpg" />
+  <img src="Z:/picture/008/save_picture_513008.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513006.jpg" />
+  <img src="Z:/picture/008/save_picture_513006.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512877.jpg" />
+  <img src="Z:/picture/008/save_picture_512877.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512864.jpg" />
+  <img src="Z:/picture/008/save_picture_512864.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512729.jpg" />
+  <img src="Z:/picture/008/save_picture_512729.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512559.jpg" />
+  <img src="Z:/picture/008/save_picture_512559.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511693.jpg" />
+  <img src="Z:/picture/008/save_picture_511693.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510753.jpg" />
+  <img src="Z:/picture/008/save_picture_510753.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510200.jpg" />
+  <img src="Z:/picture/008/save_picture_510200.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510049.jpg" />
+  <img src="Z:/picture/008/save_picture_510049.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509360.jpg" />
+  <img src="Z:/picture/008/save_picture_509360.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508100.jpg" />
+  <img src="Z:/picture/008/save_picture_508100.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507245.jpg" />
+  <img src="Z:/picture/008/save_picture_507245.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506165.jpg" />
+  <img src="Z:/picture/008/save_picture_506165.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505657.jpg" />
+  <img src="Z:/picture/008/save_picture_505657.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505367.jpg" />
+  <img src="Z:/picture/008/save_picture_505367.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505364.jpg" />
+  <img src="Z:/picture/008/save_picture_505364.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504339.jpg" />
+  <img src="Z:/picture/008/save_picture_504339.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504337.jpg" />
+  <img src="Z:/picture/008/save_picture_504337.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ HSP | Сборник адаптированных  книг / Harcourt Leveled R
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503982.jpg" />
+  <img src="Z:/picture/008/save_picture_503982.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503138.jpg" />
+  <img src="Z:/picture/008/save_picture_503138.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502222.jpg" />
+  <img src="Z:/picture/008/save_picture_502222.jpg" />
 </div>
 
 
@@ -627,62 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E5C919AC08A175A326B74D9DC67816A0F4248A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541108   (502109) от 30.08.2012
-
-В.Н. Дубровский , А.Т. Калинин | Математические головоломки [1990] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Головоломки относятся к познавательным играм. Занятия с ними учат логически мыслить, развивают пространственное воображение, тренируют память. Они счастливо соединяют в себе умственный труд и игру, учение и развлечение. Центральный вопрос, который рассматривается в книге: "Как научиться решать головоломки?". Показана связь логических игр, таких как кубик Рубика, с областями серьезной математики - комбинаторикой и алгеброй.
-Книга рассчитана на самый широкий круг читателей - взрослых и детей, родителей, педагогов, всех любителей игр и головоломок.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131BD6375466AD28D0FF041CFC2B5666B51AF8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380086   (501867) от 25.08.2011
-
-Е.В. Колесникова | Лицей для малышей 2-3 лет. Тесты для детей 3 лет (2004) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501867.jpg" />
-</div>
-
-
-###  Подробнее
-
-У книги два основных значения:
-
-1. Оказать практическую помощь родителям и педагогам в обучении и развитии ребенка 2-3-х лет, предоставив им систему учебно-игровых заданий.
-(   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680AC9FAF20BEF620D64D949511595DE85DB70C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

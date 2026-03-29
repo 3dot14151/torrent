@@ -1,3 +1,73 @@
+###  Публикация: 593356   (134986) от 24.12.2012
+
+VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:09:45
+ 01. Don’t Forget Me (Way Out West’s Dust Biter Mix) - Way Out West
+ 02. Feel the Vibe (Eric Prydz Remix) - Axwell
+ 03. Without You Near (Gabriel & Dresden Mix) - Markus Schulz, Departure & Gabriel & Dresden
+ 04. Resurrection (Gabriel & Dresden Vocal Mix) - Nicol Sponberg
+ 05. Dark Side of the Moon - Ernesto vs Bastian
+ 06. Lyteo (Rank 1 Remix) - Mr. Sam
+ 07. More Than A Life Away - Marco V
+ 08. Pleasure Island (Vocal Mix) - Randy Katana
+ 09. The Loves We Lost (Vocal Mix) - Tiësto(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593885   (134981) от 24.12.2012
+
+VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozo Effy - Eve (Original Mix) 07:17
+ 02. Orjan Nilsen - Copperfield (Original Mix) 07:09
+ 03. Nds & Blue Vs Spark7 - Your Love (Original Mix) 07:39
+ 04. Neev Kennedy, Adrian&Raz - This Heart Is Yours (Philippe El Sisi Remix) 07:13
+ 05. Matt Bukovski - Blissful Time (Original Mix) 06:38
+ 06. Kenan Teke - Black Tulips (Original Mix) 07:11
+ 07. Markus Schulz Feat. Ana Diaz - Nothing Without Me (Beat Service Remix) 07:12
+ 08. Paul Webster - Engaged (Indecent Noise Remix) 06:20
+ 09. Fisher & Fredda.L - Into The Light (Original Mix) 06:42
+ 10. Juventa - 405 (Original Mix) 07:22(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2573CDF60885FD17C74A0B9BC2A3C9894B0CC6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593960   (134864) от 24.12.2012
 
 VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +76,7 @@ VA - Fashion Cafe: A Journey Into Selected Lounge and Chillout Grooves (2012) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134864.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Ibiza Beach Merry XMAS: Winter Island Cafe Lounge Greatest (2012) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134853.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134831.jpg" />
 </div>
 
 
@@ -105,7 +175,7 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134823.jpg" />
 </div>
 
 
@@ -134,7 +204,7 @@ VA - Rare Groove Moods: Chillout Lounge Bootleg Classics Vol.1 (2012) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134779.jpg" />
 </div>
 
 
@@ -169,7 +239,7 @@ VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134272.jpg" />
 </div>
 
 
@@ -204,7 +274,7 @@ VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134230.jpg" />
 </div>
 
 
@@ -239,7 +309,7 @@ VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134185.jpg" />
 </div>
 
 
@@ -268,7 +338,7 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133287.jpg" />
 </div>
 
 
@@ -303,7 +373,7 @@ VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133246.jpg" />
 </div>
 
 
@@ -338,7 +408,7 @@ VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132654.jpg" />
 </div>
 
 
@@ -369,7 +439,7 @@ VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132339.jpg" />
 </div>
 
 
@@ -398,7 +468,7 @@ VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132312.jpg" />
 </div>
 
 
@@ -433,7 +503,7 @@ VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132293.jpg" />
 </div>
 
 
@@ -468,7 +538,7 @@ VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132215.jpg" />
 </div>
 
 
@@ -503,7 +573,7 @@ VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132202.jpg" />
 </div>
 
 
@@ -538,7 +608,7 @@ VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132149.jpg" />
 </div>
 
 
@@ -573,7 +643,7 @@ VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131751.jpg" />
 </div>
 
 
@@ -608,7 +678,7 @@ VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131046.jpg" />
 </div>
 
 
@@ -637,7 +707,7 @@ VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130954.jpg" />
 </div>
 
 
@@ -672,7 +742,7 @@ VA - 60 Minutes. Old School Dance Music vol.5 (mixed by Dj V)(2021) [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130414.jpg" />
 </div>
 
 
@@ -701,7 +771,7 @@ VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129985.jpg" />
 </div>
 
 
@@ -736,7 +806,7 @@ Rene LaVice - Все треки 2010-2012 (2010-2012) [MP3|320 кб/с]<Drum and
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129694.jpg" />
 </div>
 
 
@@ -771,7 +841,7 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129252.jpg" />
 </div>
 
 
@@ -785,64 +855,6 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525380   (129247) от 21.01.2022
-
-VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep House, Soft Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы не любите работать в тишине, а ваши пальцы лучше всего стучат по клавишам под фоновую музыку, тогда новый 395-й релиз от Beatport именно для Вас. Такая музыка позволят Вам зарядиться энергией для работы и эффективно реализовать свои творческие замыслы.001. Bliz Nochi - Tender Touch
-002. Owen Ni - Instant Message
-003. State Of Low - Kikimora
-004. Peter Mac - Flying(   Читать дальше...   )Жанр: Chill, Deep House, Soft ElectronicПродолжительность: 10:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525373   (129240) от 21.01.2022
-
-VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps] <Club House, Pumping House, Dancecore, Eurotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Klubbheads & Mark Van Dale - Raise Your Hands (Klubbheads Old School Mix)
-02-Cunaro & Dean - Its About Time (Freak & Mac Zimms Remix)
-03-Dj Boozywoozy - Everybody Dance
-04-South East Players - The Drummachine (The Sax Brothers Mix)(   Читать дальше...   )Жанр: Club House, Pumping House, Dancecore, EurotranceПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE06CC1DD19204A0EE4E6BEE31460A03E4E0F360
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Yanni - Sensuous Chill (2016) [FLAC|Lossless|image+cue] <New Age, Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948096.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители (Music from the HBO 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947936.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Arnold & Michael Price - Sherlock - Original Television Soundtrack Music F
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947932.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Louis Landon - Soul Healing Piano Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947508.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947004.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945975.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945857.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945798.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945773.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - 60 Minutes Relaxing Music (Non Stop Mix) (2016) [MP3|320 кб/с] <Relaxati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945389.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945299.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945217.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressiv
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944765.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progre
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944704.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Me
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944646.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressi
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944638.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944548.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943937.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943609.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Ruaidhri - Celtic Goddess (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943012.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Erik Scott - In the Company of Clouds (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942992.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Secret Garden - Live at Kilden: 20th Anniversary Concert (2016) [FLAC|Lossless|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942736.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942587.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossle
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942549.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942410.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Paweі Bіaszczak - Dying Light Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942400.jpg" />
 </div>
 
 

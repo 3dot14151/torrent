@@ -6,7 +6,7 @@
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gears of War: Judgment [XBOX360] [FreeBoot] [RUSSOUND] (2013)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931160.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ XBOX HDD ready (J-Q) (2001-2008) [Xbox] [NTSC] 5101 [СофтМод] [Repack] [E
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930003.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ XBOX HDD ready (R-Z) (2001-2008) [Xbox] [NTSC] 5101 [СофтМод] [Repack] [E
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929999.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ XBOX HDD ready (#-I) (2001-2008) [Xbox] [NTSC] 5101 [СофтМод] [Repack] [E
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929989.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Ethan: Meteor  Hunter / Итан: Охотник за метеоритами (20
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929974.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Resident Evil 5: Gold Edition (2010) [PS3] [EUR] 3.30 [Repack / 1.04] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929871.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ James Bond 007: Blood Stone (2010) [Xbox360] [RegionFree] 14699 [FreeBoot] [Lice
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928666.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Bulletstorm: Duke of Switch Edition (2019) [Switch] [NSP] [8.1.0] [License] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928575.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Quantum Theory (2010) [Xbox360] [PAL] 8955 [Freeboot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928548.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ XBOX HDD ready (EUR-JPN) (2001-2008) [Xbox] [NTSC/PAL] 5101 [СофтМод] [Re
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928523.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ City Crisis (2001) [PS2] [PAL] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927473.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ HELL YEAH! Wrath of the Dead Rabbit (2012) [Xbox360] [RegionFree] 16537 / Freebo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927440.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ BlackSite: Area 51 (2007) [Xbox360] [RegionFree] 8955 / Freeboot [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927328.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ TimeShift (2007) [Xbox360] [RegionFree] [5776 / LT+ 1.9] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927319.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Arslan: The Warriors of Legend (2016) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927189.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Yoga [Wii] [PAL] [Eng/It] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926189.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Dragon Quest Builders (2016) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925614.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Far Cry 4 (2014) [PS3] [EUR] 4.55 [Repack / 1.06 / 4 DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925465.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Resident Evil 6 / BioHazard 6  [PS3] [EUR] [Ru] [4.21] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924931.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Under Defeat HD Deluxe Edition [PS3] [PSN] [USA] [En] [3.55] [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924278.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ S.O.S.: The Final Escape Disaster Report (2003) [PS2] [PAL] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922071.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Dragon Quest Builders (2016) [PS3] [JAP] 4.21 [Cobra ODE / E3 ODE PRO ISO] [PSN 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920073.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Monkey Island: Special Edition Collection (2011) [PS3] [EUR] 3.55 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916896.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Onimusha: Dawn Of Dreams [PS2] [RUS] [NTSC] (2006)
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916021.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Tom Clancy's Ghost Recon: Advanced Warfighter: Dilogy (2006 - 2007) [Xbox360] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914758.jpg" />
 </div>
 
 

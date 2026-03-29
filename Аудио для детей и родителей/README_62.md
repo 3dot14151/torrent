@@ -1,3 +1,87 @@
+###  Публикация: 414925   (326678) от 25.11.2011
+
+Илья и Елена Челноковы - 5 альбомов (2002-2008) [MP3|128-320 kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детские песни и минусовкиПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47755C2BE90C6B36FF70D5DB7470223DEBA9E5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416602   (324007) от 28.11.2011
+
+VA - Новогоднее рождество (2008) [MP3|320 kbps]<Детские песенки и музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. О.Юдахина и И.Жишанов - Новый Год +/-
+2. Е.Зарицкая и Н.Денисов – Карнавал +/-
+3. Е.Зарицкая и И.Шевчук – Белоснежка +/-
+4. С.Брюхно - Рождество +/-(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBC4BE8E9EA2C6C05777D945DF8700B95BC7F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 416610   (323902) от 28.11.2011
+
+VA - Новогоднее волшебство (2009) [MP3|320 kbps]<Детские песенки и музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Р.Гуцалюк и Н.Соловьева – Снегопад +/-
+2. Л.Кулинова – Метелица +/-
+3. Л.Кулинова – Новогоднее волшебство +/-
+4. Л.Кулинова – Новый год +/-(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241B8E07567ECC12B85531E09DE03F3A134461CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 843823   (323887) от 23.11.2014
 
 Джанни Родари, Лабуле Эдуард | Приключения Чиполлино. Зербино-дровосек (1995) [MP3, Алексей Консовский и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323887.jpg" />
+  <img src="Z:/picture/008/save_picture_323887.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322211.jpg" />
+  <img src="Z:/picture/008/save_picture_322211.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ VA - Новогодний хоровод (2008) [MP3|320 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321720.jpg" />
+  <img src="Z:/picture/008/save_picture_321720.jpg" />
 </div>
 
 
@@ -88,7 +172,7 @@ VA - Новогодний карнавал (2008) [MP3|320 kbps]<Детские 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321602.jpg" />
+  <img src="Z:/picture/008/save_picture_321602.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321402.jpg" />
+  <img src="Z:/picture/008/save_picture_321402.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319873.jpg" />
+  <img src="Z:/picture/008/save_picture_319873.jpg" />
 </div>
 
 
@@ -172,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319760.jpg" />
+  <img src="Z:/picture/008/save_picture_319760.jpg" />
 </div>
 
 
@@ -198,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319447.jpg" />
+  <img src="Z:/picture/008/save_picture_319447.jpg" />
 </div>
 
 
@@ -227,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319399.jpg" />
+  <img src="Z:/picture/008/save_picture_319399.jpg" />
 </div>
 
 
@@ -253,7 +337,7 @@ Baby Einstein - Baby Mozart (2000) [MP3|192 kbps]<Классическая му�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319313.jpg" />
+  <img src="Z:/picture/008/save_picture_319313.jpg" />
 </div>
 
 
@@ -282,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319229.jpg" />
+  <img src="Z:/picture/008/save_picture_319229.jpg" />
 </div>
 
 
@@ -311,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318153.jpg" />
+  <img src="Z:/picture/008/save_picture_318153.jpg" />
 </div>
 
 
@@ -337,7 +421,7 @@ VA - Хор Венских мальчиков (2000) [MP3|320 kbps]<Класси
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318147.jpg" />
+  <img src="Z:/picture/008/save_picture_318147.jpg" />
 </div>
 
 
@@ -363,7 +447,7 @@ VA - Новогодний подарок (2006) [MP3|192 kbps]<Детские п
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318139.jpg" />
+  <img src="Z:/picture/008/save_picture_318139.jpg" />
 </div>
 
 
@@ -392,7 +476,7 @@ VA - Союз Детский 3 (2016) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317188.jpg" />
+  <img src="Z:/picture/008/save_picture_317188.jpg" />
 </div>
 
 
@@ -421,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316780.jpg" />
+  <img src="Z:/picture/008/save_picture_316780.jpg" />
 </div>
 
 
@@ -447,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316380.jpg" />
+  <img src="Z:/picture/008/save_picture_316380.jpg" />
 </div>
 
 
@@ -473,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316354.jpg" />
+  <img src="Z:/picture/008/save_picture_316354.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315637.jpg" />
+  <img src="Z:/picture/008/save_picture_315637.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315534.jpg" />
+  <img src="Z:/picture/008/save_picture_315534.jpg" />
 </div>
 
 
@@ -555,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314941.jpg" />
+  <img src="Z:/picture/008/save_picture_314941.jpg" />
 </div>
 
 
@@ -581,7 +665,7 @@ VA - Осенних песен листопад... (2015) [MP3]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314914.jpg" />
+  <img src="Z:/picture/008/save_picture_314914.jpg" />
 </div>
 
 
@@ -610,7 +694,7 @@ VA - Песенки-веселушки (2012) [MP3|320 kbps] <детские п�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314913.jpg" />
+  <img src="Z:/picture/008/save_picture_314913.jpg" />
 </div>
 
 
@@ -624,87 +708,6 @@ VA - Песенки-веселушки (2012) [MP3|320 kbps] <детские п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5E49642E027F433B90331EE4A211B2960DB12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076210   (314088) от 25.11.2016
-
-Игорь Акимушкин | Беспозвоночные. Ископаемые животные (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314088.jpg" />
-</div>
-
-
-###  Подробнее
-
-та книга завершает четырехтомный цикл рассказов о животных. Первая часть — беспозвоночные. Они обитают повсюду: пронизывают и воздух, и землю, и воды земные от поверхности до самых больших глубин. Как устроен осьминог и каковы его повадки? Может ли спрут потопить корабль? Миф или факт, что скорпион, окруженный кольцом из раскаленных углей, убивает себя? Об этом поведает (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 27:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C76095E4A6B26ADBCEE2C038B935C142E0FBEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728922   (313906) от 30.11.2013
-
-Сергей Козлов | Ежик в тумане и другие сказки (2013) [MP3, Александр Клюквин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый известный и популярный персонаж детского писателя Сергея Козлова — Ёжик приглашает вас еще раз окунуться в волшебный и неповторимый мир сказок. В сборнике кроме всеми любимого Ёжика в тумане вас также ждут и другие сказки.Жанр: Детская литератураИздательство: Покидышевъ и сыновьяПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A1EB3EE5B3899D24ADAB904B9796631000A3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265399   (313128) от 02.12.2010
-
-Давид Тухманов, Юрий Энтин | Багдадский вор и черная магия [1997] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселая музыкальная сказка с хитовыми песнями, восточными колоритными персонажами и сокровищами.
-Это пьеса – экстраваганца!
-33 песни! 22 танца!
-Каждая песня – убойный хит!(   Читать дальше...   )Жанр: Музыкальная сказка - аудиоспектакль для детейПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC39CEA3C967E43E47628FBF01CEF15FAEC2B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

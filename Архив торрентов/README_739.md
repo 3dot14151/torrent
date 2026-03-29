@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885468.jpg" />
+  <img src="Z:/picture/005/save_picture_885468.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Argent Client 10.0.3.15 Light Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885457.jpg" />
+  <img src="Z:/picture/005/save_picture_885457.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Private Room - The Lounge Session, Vol. 16 (2016) [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885451.jpg" />
+  <img src="Z:/picture/005/save_picture_885451.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Uninstall Tool 3.5.2 Build 5557 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885442.jpg" />
+  <img src="Z:/picture/005/save_picture_885442.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ uTorrent 3.5.5 Build 46090 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885440.jpg" />
+  <img src="Z:/picture/005/save_picture_885440.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ MediaHuman YouTube Downloader 3.9.8.8 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885435.jpg" />
+  <img src="Z:/picture/005/save_picture_885435.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Mozilla Firefox Quantum ESR 68.6.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885422.jpg" />
+  <img src="Z:/picture/005/save_picture_885422.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EditReady 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885408.jpg" />
+  <img src="Z:/picture/005/save_picture_885408.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ OmniGraffle Pro 7 v7.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885406.jpg" />
+  <img src="Z:/picture/005/save_picture_885406.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ SlimBrowser 12.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885386.jpg" />
+  <img src="Z:/picture/005/save_picture_885386.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Firefox Browser 74.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885373.jpg" />
+  <img src="Z:/picture/005/save_picture_885373.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885368.jpg" />
+  <img src="Z:/picture/005/save_picture_885368.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bandizip 7.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885351.jpg" />
+  <img src="Z:/picture/005/save_picture_885351.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ FileMenu Tools 7.2 Full RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885342.jpg" />
+  <img src="Z:/picture/005/save_picture_885342.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Adguard 2.4.6.754 nightly (CL - 1.5.238) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885338.jpg" />
+  <img src="Z:/picture/005/save_picture_885338.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ ESET NOD32 Internet Security 14.2.24.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885332.jpg" />
+  <img src="Z:/picture/005/save_picture_885332.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885323.jpg" />
+  <img src="Z:/picture/005/save_picture_885323.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Audio Hijack 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885304.jpg" />
+  <img src="Z:/picture/005/save_picture_885304.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Complete Internet Repair 5.2.3.4060 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885302.jpg" />
+  <img src="Z:/picture/005/save_picture_885302.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ReviverSoft Driver Reviver 5.33.3.2 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885287.jpg" />
+  <img src="Z:/picture/005/save_picture_885287.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wonderfox HD Video Converter Factory Pro 18.9 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885279.jpg" />
+  <img src="Z:/picture/005/save_picture_885279.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ GiliSoft Video Editor 8.0.0 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885249.jpg" />
+  <img src="Z:/picture/005/save_picture_885249.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Techsmith Snagit 13.1.0 Build 7494 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885246.jpg" />
+  <img src="Z:/picture/005/save_picture_885246.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Aml Maple 4.32 Build 650 + Portable GOTD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885235.jpg" />
+  <img src="Z:/picture/005/save_picture_885235.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885228.jpg" />
+  <img src="Z:/picture/005/save_picture_885228.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Google Chrome 80.0.3987.163 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885208.jpg" />
+  <img src="Z:/picture/005/save_picture_885208.jpg" />
 </div>
 
 

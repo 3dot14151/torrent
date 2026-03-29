@@ -6,7 +6,7 @@ Bandicam 3.4.0.1227 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725766.jpg" />
+  <img src="Z:/picture/008/save_picture_725766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Longtion Application Builder 5.6.0.583 Enterprise Edition [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725753.jpg" />
+  <img src="Z:/picture/005/save_picture_725753.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dism++ 10.1.5.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725714.jpg" />
+  <img src="Z:/picture/008/save_picture_725714.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Jetico BestCrypt 9.02.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725622.jpg" />
+  <img src="Z:/picture/008/save_picture_725622.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Winstep Xtreme 16.5 Full RePack by Nemo [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725614.jpg" />
+  <img src="Z:/picture/008/save_picture_725614.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Topaz Labs Photoshop Plugins Bundle 2016 (03.06.2016) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725613.jpg" />
+  <img src="Z:/picture/008/save_picture_725613.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ oCam Screen Recorder 107.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725584.jpg" />
+  <img src="Z:/picture/008/save_picture_725584.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinSnap 4.5.5 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725568.jpg" />
+  <img src="Z:/picture/008/save_picture_725568.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CyberLink PowerDVD Ultra 16.0.1713.60 RePack by qazwsxe [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725540.jpg" />
+  <img src="Z:/picture/008/save_picture_725540.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft SQL Server 2016 13.0.1601.5 (RTM) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725447.jpg" />
+  <img src="Z:/picture/008/save_picture_725447.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft SQL Server 2016 13.0.1601.5 (RTM) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725445.jpg" />
+  <img src="Z:/picture/008/save_picture_725445.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Adobe Flash Player 18.0.0.95 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725409.jpg" />
+  <img src="Z:/picture/008/save_picture_725409.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ AutoRuns 13.30 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725325.jpg" />
+  <img src="Z:/picture/008/save_picture_725325.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CCleaner 5.05.5176 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725260.jpg" />
+  <img src="Z:/picture/008/save_picture_725260.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ CoolUtils Total Audio Converter 5.2.0.113 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725250.jpg" />
+  <img src="Z:/picture/008/save_picture_725250.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Skype 7.4.0.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725132.jpg" />
+  <img src="Z:/picture/008/save_picture_725132.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Advanced Installer 14.7 Build 9cf640d4e3 RePack by Alex Zaguzin [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725102.jpg" />
+  <img src="Z:/picture/008/save_picture_725102.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Auslogics Registry Cleaner 7.0.8.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725094.jpg" />
+  <img src="Z:/picture/008/save_picture_725094.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Privacy Eraser Free 5.2 Build 3611 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725084.jpg" />
+  <img src="Z:/picture/008/save_picture_725084.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Glary Utilities Pro 5.147.0.173 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725078.jpg" />
+  <img src="Z:/picture/008/save_picture_725078.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Text Editor Pro 9.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725066.jpg" />
+  <img src="Z:/picture/008/save_picture_725066.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Microsoft Windows 10 Core Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725063.jpg" />
+  <img src="Z:/picture/008/save_picture_725063.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Reg Organizer 8.50 RePack & Portable by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724998.jpg" />
+  <img src="Z:/picture/008/save_picture_724998.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Balabolka 2.15.0.750 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724987.jpg" />
+  <img src="Z:/picture/008/save_picture_724987.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ OCCT 6.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724986.jpg" />
+  <img src="Z:/picture/008/save_picture_724986.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Internet Download Manager 6.38 Build 2 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724982.jpg" />
+  <img src="Z:/picture/008/save_picture_724982.jpg" />
 </div>
 
 

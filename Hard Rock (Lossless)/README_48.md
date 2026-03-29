@@ -1,3 +1,67 @@
+###  Публикация: 1246016   (465653) от 09.09.2018
+
+Clutch - Book of Bad Decisions (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gimme the Keys (3:33)
+ 2. Spirit of '76 (3:39)
+ 3. Book of Bad Decisions (3:23)
+ 4. How to Shake Hands (3:52)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C379579DB9535DFA5552731A802B8AC227A2F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387589   (465278) от 14.09.2011
+
+Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Play Dirty
+03. Skin To Skin
+04. Find Another Way
+05. Up Against The Wall
+06. Hold On Tonight
+07. Can’t Catch Me
+08. Bad Reputation
+09. Daddy’s Little Girl
+10. Is That All You Want?(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248700   (465262) от 21.08.2019
 
 Andrew W.K. - I Get Wet (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -6,7 +70,7 @@ Andrew W.K. - I Get Wet (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465262.jpg" />
+  <img src="Z:/picture/008/save_picture_465262.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ D.F.M. - Streets of Rage (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464217.jpg" />
+  <img src="Z:/picture/008/save_picture_464217.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Vypera - Eat Your Heart Out (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464216.jpg" />
+  <img src="Z:/picture/008/save_picture_464216.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ All Them Witches - Nothing as the Ideal (2020) [FLAC|Lossless|tracks + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462591.jpg" />
+  <img src="Z:/picture/008/save_picture_462591.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [FLAC|(image+.cue)]<Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462244.jpg" />
+  <img src="Z:/picture/008/save_picture_462244.jpg" />
 </div>
 
 
@@ -151,7 +215,7 @@ Edge Of Forever - Feeding The Fire (2004) Jараnеsе Еditiоn [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462115.jpg" />
+  <img src="Z:/picture/008/save_picture_462115.jpg" />
 </div>
 
 
@@ -180,7 +244,7 @@ Sass Jordan - Rats (1994) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461831.jpg" />
+  <img src="Z:/picture/008/save_picture_461831.jpg" />
 </div>
 
 
@@ -209,7 +273,7 @@ Orianthi - Live from Hollywood (2022) Japanese Edition [FLAC|Lossless|tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461808.jpg" />
+  <img src="Z:/picture/008/save_picture_461808.jpg" />
 </div>
 
 
@@ -238,7 +302,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) South Korea, Bonus Tracks [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461558.jpg" />
+  <img src="Z:/picture/008/save_picture_461558.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ Debauchery vs. Blood God - Demons Of Rock 'n' Roll (2022) 2xCD [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459930.jpg" />
+  <img src="Z:/picture/008/save_picture_459930.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) Japan [FLAC|Lossless|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459236.jpg" />
+  <img src="Z:/picture/008/save_picture_459236.jpg" />
 </div>
 
 
@@ -325,7 +389,7 @@ Andrew W.K. - The Wolf (2003) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459234.jpg" />
+  <img src="Z:/picture/008/save_picture_459234.jpg" />
 </div>
 
 
@@ -354,7 +418,7 @@ The Union - 3 Albums (2010 - 2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459175.jpg" />
+  <img src="Z:/picture/008/save_picture_459175.jpg" />
 </div>
 
 
@@ -382,7 +446,7 @@ Bonafide - Ultimate Rebel (2012) [FLAC|Lossless]<Hard-Rock, Blues-Rock, Heavy Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458106.jpg" />
+  <img src="Z:/picture/008/save_picture_458106.jpg" />
 </div>
 
 
@@ -411,7 +475,7 @@ Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456816.jpg" />
+  <img src="Z:/picture/008/save_picture_456816.jpg" />
 </div>
 
 
@@ -440,7 +504,7 @@ Van Halen - Balance (1995) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456793.jpg" />
+  <img src="Z:/picture/008/save_picture_456793.jpg" />
 </div>
 
 
@@ -469,7 +533,7 @@ Shiraz Lane - Forgotten Shades Of Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453831.jpg" />
+  <img src="Z:/picture/008/save_picture_453831.jpg" />
 </div>
 
 
@@ -498,7 +562,7 @@ Dirty White Boyz - Down And Dirty (2017) [FLAC|Lossless|tracks + .cue] < Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452704.jpg" />
+  <img src="Z:/picture/008/save_picture_452704.jpg" />
 </div>
 
 
@@ -527,7 +591,7 @@ Grace - Hope (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451821.jpg" />
+  <img src="Z:/picture/008/save_picture_451821.jpg" />
 </div>
 
 
@@ -556,7 +620,7 @@ Collective Soul - Vibrating (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451801.jpg" />
+  <img src="Z:/picture/008/save_picture_451801.jpg" />
 </div>
 
 
@@ -585,7 +649,7 @@ Bomber - Nocturnal Creatures (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451799.jpg" />
+  <img src="Z:/picture/008/save_picture_451799.jpg" />
 </div>
 
 
@@ -614,7 +678,7 @@ Sunstorm - Afterlife (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451662.jpg" />
+  <img src="Z:/picture/008/save_picture_451662.jpg" />
 </div>
 
 
@@ -643,7 +707,7 @@ Nordic Union - Animalistic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451655.jpg" />
+  <img src="Z:/picture/008/save_picture_451655.jpg" />
 </div>
 
 
@@ -672,7 +736,7 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451649.jpg" />
+  <img src="Z:/picture/008/save_picture_451649.jpg" />
 </div>
 
 
@@ -686,64 +750,6 @@ H.E.A.T - Force Majeure (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AB415B4709E29415734292BDD910BD8B4728B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408965   (451602) от 14.09.2020
-
-Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Of My Life (04:15)
-02. Lost (04:01)
-03. Friends (04:09)
-04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408951   (451598) от 14.09.2020
-
-Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Dark (03:33)
-02. Laws Of Attraction (feat. Jeff Scott Soto) (04:47)
-03. Let Me Be Me (04:27)
-04. Free (03:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049250DA0C4F8C7B1063459253A08F948B0DC845
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 530311   (562672) от 02.08.2012
+
+Беспокойная весна (1956) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562672.jpg" />
+</div>
+
+
+###  Подробнее
+
+О формировании характера юноши, участника борьбы за хлеб на целине. Группа комсомольцев основала на целинных землях Казахстана совхоз "Май-Балык". Среди юношей и девушек, будущих хлеборобов, выделяется легкомысленный, франтоватый парень Женька Омега. В первые же дни пребывания на целине Женька совершил ряд "подвигов": променял резиновые сапоги на гитару, попытался увильнуть от работы, ушел с курсов трактористов. Руководство совхоза и товарищи понимают, что Омеге нельзя доверить трактор, и несмотря на возмущение паренька, его назначают водовозом. Идет время. Омега, ставший желанным гостем во всех бригадах, начинает проникаться уважением к своей профессии. Вскоре юноше приходится пройти через новое испытание: любимая им девушка Ольга отдает свое сердце молодому трактористу, казаху Идрису. Неудачная любовь не сломила Омегу. Наконец пришла к нему первая большая радость: став трактористом, он вспахал последнюю борозду на целине..Жанр: КомедияРежиссер: Александр МедведкинАктеры: Сергей Гурзо, Римма Шорохова, Идрис Ногайбаев, Нина Гребешкова, Владимир Борискин, Владимир Тягушев, Иван Лобызовский, Г. Федоровский, Павел Кайров, Шахан Мусин, Кененбай Кожабеков, Л. Ольшевский, Надежда Самсонова, Ольга Дуссан, Тамара Думная, Виктор Уральский, Мухтар БахтыгереевПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 225840   (562222) от 10.08.2010
+
+Анна и командор (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматург Вадим Петрович решает написать сценарий об Александре. Естественно, первым делом, он знакомится с его женой. Анна, тяжело пережив смерть своего любимого, свято и верно хранит память о Командоре — именно так его называли близкие и друзья. Ее жизнь хранит воспоминания, которые живее и ярче, чем реалии повседневной жизни. Перед глазами драматурга проплывают (   Читать дальше...   )Производство: СССР. Киностудия им. А. ДовженкоЖанр: Драма, МелодрамаРежиссер: Евгений ХринюкАктеры: Алиса Фрейндлих, Василий Лановой, Иннокентий Смоктуновский, Виктор Полищук, Виктор Маляревич, Владимир Козел, Леон Кукулян, Неонила Гнеповская, Сергей Карнович-Валуа, Алексей ЧерновПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E36E05E6543D10931FFF375A852FC5A2EBC330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235252   (561922) от 10.07.2018
 
 Послесловие (1983) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561922.jpg" />
+  <img src="Z:/picture/008/save_picture_561922.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561518.jpg" />
+  <img src="Z:/picture/008/save_picture_561518.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561227.jpg" />
+  <img src="Z:/picture/008/save_picture_561227.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561079.jpg" />
+  <img src="Z:/picture/008/save_picture_561079.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560913.jpg" />
+  <img src="Z:/picture/008/save_picture_560913.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560810.jpg" />
+  <img src="Z:/picture/008/save_picture_560810.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560710.jpg" />
+  <img src="Z:/picture/008/save_picture_560710.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560655.jpg" />
+  <img src="Z:/picture/008/save_picture_560655.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560648.jpg" />
+  <img src="Z:/picture/008/save_picture_560648.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560605.jpg" />
+  <img src="Z:/picture/008/save_picture_560605.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560602.jpg" />
+  <img src="Z:/picture/008/save_picture_560602.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560416.jpg" />
+  <img src="Z:/picture/008/save_picture_560416.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559436.jpg" />
+  <img src="Z:/picture/008/save_picture_559436.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558964.jpg" />
+  <img src="Z:/picture/008/save_picture_558964.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558959.jpg" />
+  <img src="Z:/picture/008/save_picture_558959.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558953.jpg" />
+  <img src="Z:/picture/008/save_picture_558953.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558726.jpg" />
+  <img src="Z:/picture/005/save_picture_558726.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558655.jpg" />
+  <img src="Z:/picture/005/save_picture_558655.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556548.jpg" />
+  <img src="Z:/picture/008/save_picture_556548.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556509.jpg" />
+  <img src="Z:/picture/008/save_picture_556509.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554975.jpg" />
+  <img src="Z:/picture/008/save_picture_554975.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554297.jpg" />
+  <img src="Z:/picture/008/save_picture_554297.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552692.jpg" />
+  <img src="Z:/picture/008/save_picture_552692.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552244.jpg" />
+  <img src="Z:/picture/008/save_picture_552244.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3215EB876215E1AE0EFC6AA4C3BDC0866A97265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237541   (551406) от 24.07.2018
-
-Портрет жены художника (1982) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551406.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа Юрия Нагибина "Берендеев лес".
-Сюжет фильма составляют события нескольких дней, проведенных героями - художником Павлом Алексеевичем и его женой Ниной - в небольшом загородном пансионате. Обычная жизнь отдыхающих - походы за грибами, лодочные прогулки, костюмированный бал... Нине начинает казаться, что она мешает мужу, углубленному в (   Читать дальше...   )Производство: СССР / МосфильмЖанр: МелодрамаРежиссер: Александр ПанкратовАктеры: Сергей Шакуров, Валентина Теличкина, Никита Михалков, Татьяна Конюхова, Всеволод Шиловский, Леонид Трутнев, Ольга Гобзева, Олег Голубицкий, Елена Тонунц, Михаил Семаков, Клара БеловаПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A58EC9804E680685E9D64DD506DB0EF7A5B7435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309338   (550967) от 19.06.2019
-
-Сердце бьется вновь (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550967.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести Владимира Дягилева "Доктор Голубев".
-Солдат Балашов спасает товарища, тонувшего в ледяной воде и сам заболел воспалением лёгких, осложнившимся затем тяжёлым заболеванием сердца. Молодой доктор Голубев допустил диагностическую ошибку. Осознав, что он ошибся, Голубев идёт на всё, чтобы спасти жизнь Балашова.Производство: СССР, МосфильмЖанр: Драма, мелодрама, экранизацияРежиссер: Абрам РоомАктеры: Вячеслав Тихонов, Николай Симонов, Андрей Абрикосов, Кирилл Столяров, Людмила Гурченко, Нинель Мышкова, Григорий Абрикосов, Юлиана БугаеваПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922B293C54E24617571164CDB65BA27DCC375F36
 ```
 
 https://mybot314.ru/tekegram_catalog/

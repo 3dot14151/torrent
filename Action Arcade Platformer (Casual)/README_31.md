@@ -1,3 +1,55 @@
+###  Публикация: 1809750   (9653) от 01.08.2025
+
+Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ninja Gaiden: Ragebound - совершенно новая игра с боковой прокруткой в серии Ninja Gaiden от разработчиков Blasphemous - меняет представление о классических сюжетных платформерах в зрелищном, захватывающем и сложном приключении ниндзя.Тип издания: SceneРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA024FFE9E885AB1265620F4C6A0D3C67F9B129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809974   (9556) от 02.08.2025
+
+NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9556.jpg" />
+</div>
+
+
+###  Подробнее
+
+NINJA GAIDEN: Ragebound - совершенно новая игра с боковой прокруткой в серии Ninja Gaiden от разработчиков Blasphemous - меняет представление о классических сюжетных платформерах в зрелищном, захватывающем и сложном приключении ниндзя. Наше повествование начинается с того, как Рю Хаябуса отправляется в Америку, чтобы исполнить волю своего отца. Пока героя нет, барьер (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081AB5CC852A9F8CC70F38D80CD866A05F546AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810282   (9437) от 03.08.2025
 
 Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
@@ -6,7 +58,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36158) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9437.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Choo Choo Survivor (2023) [Ru/Multi] (Build 18689660) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8528.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Eridani Survivors (2025) [Multi] (12.08.2025) Repack AIexandro
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7751.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (2.3) License GOG [Director’s 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7569.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs36928) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7319.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6719.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6559.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6217.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadow Labyrinth (2025) [Multi] (1.0.4/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5782.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (cs37290) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5730.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5620.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5519.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Primal Planet (2025) [Ru/Multi] (Avgust 25th 2025 v1) Repack Let'sРlay [Dino Su
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5458.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Dragon Is Dead (2024) [Multi] (1.0783) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5311.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Residual (2021) [Ru/Multi] (1.3.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5281.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Panzer Knights (2020) [Ru/Multi] (1.1.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5249.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Astral Ascent (2023) [Ru/Multi] (2.2.3/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5058.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5012.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Risk of Rain Returns (2023) [Ru/Multi] (1.1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4848.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Rusty Rangers (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4549.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.28) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4535.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3522.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ ION Shift (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3284.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3222.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Planet of Lana – это грандиозный квест-головоломк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF1F97E953A71D96577CC9E87DC03DE5A32D1CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817957   (2847) от 14.09.2025
-
-Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atari 50: The Anniversary Celebration приглашает игроков в интерактивное путешествие по 50-летней истории видеоигр с помощью интервью с дизайнерами, разработчиками и лидерами отрасли, документальных кадров, документации по дизайну продукции, оригинальных иллюстраций в высоком разрешении и тщательно отобранного списка из более чем 90 игр, в которые можно играть.Тип издания: LicenseРазработчик: Digital EclipseЖанр: Экшены, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23230238D1669F1FC7DE708CF3BE87F1AA44C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818017   (2835) от 14.09.2025
-
-X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРlay [Complete Pack]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное сочетание шутера с видом сверху и стратегии в жанре Tower Defense. Вы - захватчик! Используйте оружие или заманите врага в смертоносный лабиринт защитных башен. Планируйте атаку в режиме строительства, возводя разнообразные башни, или сразу ворвитесь в самую гущу боя.Тип издания: RepackРазработчик: EXOR StudiosЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

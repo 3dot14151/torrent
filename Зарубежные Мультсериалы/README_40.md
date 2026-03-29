@@ -1,3 +1,56 @@
+###  Публикация: 496646   (253849) от 17.05.2012
+
+Финес и Ферб / Phineas and Ferb (1 сезон, 26 серии из 26) (2007-2008) [H.264/720p] HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о двух сводных братьях на летних каникулах, живущих в пригороде. Каждый день они придумывают безумные планы и строят невероятные изобретения, из-за чего они часто конфликтуют со своей сестрой. Наряду с этим домашний любимец мальчиков утконос Пэрри, действующий как секретный агент, пытается все время остановить злейшего, но придурковатого ученого по имени (   Читать дальше...   )Жанр: Компьютерная анимацияРежиссер: Захари Монкриф, Дэн Повенмайр, Роберт ХьюзПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 26x ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A279D22344A990E7B9A175DAEE059BAA11FE307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588290   (251772) от 04.06.2023
+
+Симпсоны / The Simpsons (2022) WEBRip [H.264/1080p-LQ] (сезон 34, серии 1-22 из 22)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпсоны - пародия на американский уклад жизни. Семейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери, Лиза и Мэгги, и несносный подросток Барт.Производство: США / 20th Television Animation, Curiosity Company, The, Fox Television Animation, Gracie FilmsЖанр: мультфильм, комедияРежиссер: Микель Б. Андерсон, Джим Рирдон, Марк КерклэндАктеры: Дэн Кастелланета, Нэнси Картрайт, Гарри Ширер, Джули Кавнер, Ярдли Смит, Хэнк Азария, Памела Хейден, Тресс МакНилл, Мэгги Росвэлл, Крис ЭджерлиПеревод: Профессиональный (многоголосый закадровый) HDrezka Studio, TVShows
+Любительский (многоголосый закадровый) OMSKBIRDЯзык озвучки: русский, английскийСубтитры: русские (Forced), английские (SDH)Продолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69B7D8060878486139171DD03337839B6F4CCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565321   (249429) от 23.07.2022
 
 Бэймакс! / Baymax! (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Red Head Sound
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249429.jpg" />
+  <img src="Z:/picture/004/save_picture_249429.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249425.jpg" />
+  <img src="Z:/picture/004/save_picture_249425.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEBR
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248586.jpg" />
+  <img src="Z:/picture/004/save_picture_248586.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247830.jpg" />
+  <img src="Z:/picture/004/save_picture_247830.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Splinter Cell: Караул смерти / Splinter Cell: Deathwatch (2025) WEB-
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247716.jpg" />
+  <img src="Z:/picture/004/save_picture_247716.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247676.jpg" />
+  <img src="Z:/picture/004/save_picture_247676.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247673.jpg" />
+  <img src="Z:/picture/004/save_picture_247673.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247211.jpg" />
+  <img src="Z:/picture/004/save_picture_247211.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247176.jpg" />
+  <img src="Z:/picture/004/save_picture_247176.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246923.jpg" />
+  <img src="Z:/picture/004/save_picture_246923.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246271.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246266.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246102.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246077.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245581.jpg" />
+  <img src="Z:/picture/004/save_picture_245581.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245361.jpg" />
+  <img src="Z:/picture/004/save_picture_245361.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244770.jpg" />
+  <img src="Z:/picture/004/save_picture_244770.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244208.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243787.jpg" />
+  <img src="Z:/picture/004/save_picture_243787.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243492.jpg" />
+  <img src="Z:/picture/004/save_picture_243492.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243461.jpg" />
+  <img src="Z:/picture/004/save_picture_243461.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243120.jpg" />
+  <img src="Z:/picture/004/save_picture_243120.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242681.jpg" />
+  <img src="Z:/picture/005/save_picture_242681.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242512.jpg" />
+  <img src="Z:/picture/005/save_picture_242512.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E052884EC245F4B630706AE2F8BD04BA6DDA9618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568900   (242483) от 10.08.2022
-
-Я есть Грут / I Am Groot (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [EN / RU, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия небольших короткометражек, которые рассказывают о приключениях забавного малыша Грута и его друзей.Производство: США / Marvel StudiosЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Керстен ЛепореПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: ~00:04:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3FC60661FBD3FDD2378449D5AC016274B0C462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624014   (242419) от 04.04.2023
-
-Гэри и его демоны / Gary and His Demons (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) 2x2, NewStation, Т.О Друзей
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гэри — ветеран правительственного департамента по отлову и уничтожению демонов, который был создан после масштабного вторжения сил зла в наш мир. В войне с силами Ада он потерял много друзей и любимую, но приобрёл стальной цинизм, язвительное чувство юмора и желание уйти на пенсию. Но вот беда, ему до сих пор не нашли замену. И снова ему одному приходится тянуть (   Читать дальше...   )Производство: Канада, Mondo MediaЖанр: Для взрослых, ужасы, фэнтези, боевик, драма, комедияРежиссер: Марк Литтл, Лу СолисАктеры: Марк Литтл, Кайл Дули, Кайла Лоретт, Мигель Ривас, Сара Гарсиа, Эмма Хантер, Палома Нунез, Дэвид БерниПеревод: многоголосый (2x2, NewStation 18+), одноголосый (Т.О Друзей 18+)Язык озвучки: русский, английскийСубтитры: русские (18+), английские, французскиеПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2031D5158321760CD2E9DF85672D1F07756EEFA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

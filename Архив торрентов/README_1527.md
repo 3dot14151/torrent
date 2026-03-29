@@ -6,7 +6,7 @@ Opera 84.0.4316.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704998.jpg" />
+  <img src="Z:/picture/008/save_picture_704998.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EF Commander 2022.02 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704994.jpg" />
+  <img src="Z:/picture/008/save_picture_704994.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Soft4Boost Document Converter 4.8.7.547 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704946.jpg" />
+  <img src="Z:/picture/008/save_picture_704946.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704942.jpg" />
+  <img src="Z:/picture/008/save_picture_704942.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Cyberfox 52.1.2 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704940.jpg" />
+  <img src="Z:/picture/008/save_picture_704940.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Active Life: Extreme Challenge [Wii] [NTSC] [Eng] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704937.jpg" />
+  <img src="Z:/picture/008/save_picture_704937.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ iGallery Pro — Best Instagram Uploader 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704932.jpg" />
+  <img src="Z:/picture/008/save_picture_704932.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Disk Map 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704928.jpg" />
+  <img src="Z:/picture/008/save_picture_704928.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704925.jpg" />
+  <img src="Z:/picture/008/save_picture_704925.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Clipboard Fusion Pro+portable+MSI 5.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704922.jpg" />
+  <img src="Z:/picture/008/save_picture_704922.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ NVIDIA GeForce Desktop 419.35 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704919.jpg" />
+  <img src="Z:/picture/008/save_picture_704919.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Display Driver Uninstaller 15.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704904.jpg" />
+  <img src="Z:/picture/008/save_picture_704904.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704902.jpg" />
+  <img src="Z:/picture/008/save_picture_704902.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704879.jpg" />
+  <img src="Z:/picture/008/save_picture_704879.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Ultra Adware Killer 5.8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704820.jpg" />
+  <img src="Z:/picture/008/save_picture_704820.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ PDF24 Creator 8.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704818.jpg" />
+  <img src="Z:/picture/008/save_picture_704818.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Privacy Eraser Free 4.24.0 Build 2321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704817.jpg" />
+  <img src="Z:/picture/008/save_picture_704817.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Kaleidoscope 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704816.jpg" />
+  <img src="Z:/picture/008/save_picture_704816.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Adobe Flash Player 26.0.0.94 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704806.jpg" />
+  <img src="Z:/picture/008/save_picture_704806.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ cdrtfe 1.5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704803.jpg" />
+  <img src="Z:/picture/008/save_picture_704803.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Total Directory Report 7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704801.jpg" />
+  <img src="Z:/picture/008/save_picture_704801.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nvidia DriverPack v.419.35 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704797.jpg" />
+  <img src="Z:/picture/008/save_picture_704797.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704795.jpg" />
+  <img src="Z:/picture/008/save_picture_704795.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VideoHata v1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704790.jpg" />
+  <img src="Z:/picture/008/save_picture_704790.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Exiland Backup Standard 5.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704785.jpg" />
+  <img src="Z:/picture/008/save_picture_704785.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704783.jpg" />
+  <img src="Z:/picture/008/save_picture_704783.jpg" />
 </div>
 
 

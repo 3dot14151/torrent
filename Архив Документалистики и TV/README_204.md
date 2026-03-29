@@ -1,3 +1,174 @@
+###  Публикация: 1050239   (540771) от 07.09.2016
+
+Футбол. Товарищеский матч. Россия - Гана (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540771.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 19:00 МСК
+Товарищеские матчи 1
+
+Стадион: Локомотив (Москва, Россия) , вместимость: 28800(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Шнякин, Владислав Батурин)Продолжительность: 02:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFB9B5A46DC06F456AB5EDBEE6DE68ADC339912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050226   (540770) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 1-й тур. Швеция - Голландия (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540770.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 21:45 МСК
+Группа A. 1-й тур
+
+Стадион: Френдс-Арена (Стокгольм, Швеция) , вместимость: 54329(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8BDA00F9ED7519B2BFF6465744B42F17018B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050224   (540769) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 1-й тур. Беларусь - Франция (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540769.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 21:45 МСК
+Группа A. 1-й тур
+
+Стадион: Борисов-Арена (Борисов, Беларусь) , вместимость: 13126(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Константин Генич)Продолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2386E64A40234EAC732F074AFB1612429092CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049718   (540768) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа D. 1-й тур. Грузия - Австрия (05.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540768.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 сентября 2016, понедельник. 19:00 МСК
+Группа D. 1-й тур
+
+Стадион: Динамо-Арена - Борис Пайчадзе (Тбилиси, Грузия) , вместимость: 54549(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Михаил Мельников, Сергей Кривохарченко)Продолжительность: 01:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB654C5D734883EA1F07BC8C15F03B1F5999AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050297   (540767) от 07.09.2016
+
+Открытая студия.  «Исламофобия: страх или глупость?» (07.09.2016) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой конфликт в одной из тамбовских школ разросся до всероссийского скандала. Девочку из мусульманской семьи учителя не пустили на уроки только потому, что она пришла на занятия в белом платке. Педагоги сослались на строгий единый стандарт школьной формы, который несколько лет назад был принят в области. Его правила запрещают ученикам носить любые головные уборы. (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824FB489205AE2B9F5275447EA3A3276CCD8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050208   (540753) от 07.09.2016
+
+Теннис. US Open 2016. Мужчины. Одиночный разряд. 1 й круг. Ф. Вердаско (Испания) - С. Вавринка (Швейцария) (30.08.2016) DVBRip [H.264/1080i][RU/EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_540753.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 августа 2016 года, вторник. 20:15 МСК
+Открытый чемпионат США 2016. Мужчины. Одиночный разряд. 1 й круг
+Фернандо Вердаско (Испания) - Стэн Вавринка (Швейцария, 3)
+(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: 1.Русский, 2.АнглийскийПродолжительность: 01:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E868C363ECD6686F80A6873A9230A14884DB908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532126   (540747) от 06.08.2012
 
 Каникулы в Мексике - 2. Ночь на вилле. Выпуск №111 (2012.08.06) (2012) SATRip
@@ -6,7 +177,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540747.jpg" />
+  <img src="Z:/picture/008/save_picture_540747.jpg" />
 </div>
 
 
@@ -32,7 +203,7 @@ Verizon IndyCar Series 2016. Этап 15. Grand prix at the Glen. Watkins Glen I
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540656.jpg" />
+  <img src="Z:/picture/008/save_picture_540656.jpg" />
 </div>
 
 
@@ -59,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540652.jpg" />
+  <img src="Z:/picture/008/save_picture_540652.jpg" />
 </div>
 
 
@@ -88,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540599.jpg" />
+  <img src="Z:/picture/008/save_picture_540599.jpg" />
 </div>
 
 
@@ -117,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540326.jpg" />
+  <img src="Z:/picture/008/save_picture_540326.jpg" />
 </div>
 
 
@@ -145,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540173.jpg" />
+  <img src="Z:/picture/008/save_picture_540173.jpg" />
 </div>
 
 
@@ -180,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539309.jpg" />
+  <img src="Z:/picture/008/save_picture_539309.jpg" />
 </div>
 
 
@@ -206,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539285.jpg" />
+  <img src="Z:/picture/008/save_picture_539285.jpg" />
 </div>
 
 
@@ -235,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539284.jpg" />
+  <img src="Z:/picture/008/save_picture_539284.jpg" />
 </div>
 
 
@@ -264,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539188.jpg" />
+  <img src="Z:/picture/008/save_picture_539188.jpg" />
 </div>
 
 
@@ -290,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539085.jpg" />
+  <img src="Z:/picture/008/save_picture_539085.jpg" />
 </div>
 
 
@@ -316,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538706.jpg" />
+  <img src="Z:/picture/008/save_picture_538706.jpg" />
 </div>
 
 
@@ -342,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538678.jpg" />
+  <img src="Z:/picture/008/save_picture_538678.jpg" />
 </div>
 
 
@@ -368,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538436.jpg" />
+  <img src="Z:/picture/008/save_picture_538436.jpg" />
 </div>
 
 
@@ -397,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538435.jpg" />
+  <img src="Z:/picture/008/save_picture_538435.jpg" />
 </div>
 
 
@@ -426,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538434.jpg" />
+  <img src="Z:/picture/008/save_picture_538434.jpg" />
 </div>
 
 
@@ -455,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538433.jpg" />
+  <img src="Z:/picture/008/save_picture_538433.jpg" />
 </div>
 
 
@@ -484,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538431.jpg" />
+  <img src="Z:/picture/008/save_picture_538431.jpg" />
 </div>
 
 
@@ -513,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538430.jpg" />
+  <img src="Z:/picture/008/save_picture_538430.jpg" />
 </div>
 
 
@@ -542,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538429.jpg" />
+  <img src="Z:/picture/008/save_picture_538429.jpg" />
 </div>
 
 
@@ -553,171 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3185BC8A1DD34BAE43F1F28E8064FFBB5604FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532324   (538411) от 07.08.2012
-
-Путешествия по Москве (1981) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы-путешествия рассказывают об исторических и архитектурных памятниках, знакомят с достопримечательностями и памятными местами Москвы.Жанр: Документальный, ТелепередачаПродолжительность: 10 x ~ 00:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAD7B553F9D11495AA160CC7326F2157868E847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311801   (538025) от 01.07.2019
-
-Футбол. Кубок Америки 2019. 1/4 Финала. Уругвай — Перу (2019) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538025.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 июня 2019, суббота. 22:00 МСК
-Кубок Америки по футболу 2019. Салвадор (Бразилия)
-1/4 Финала.
-Уругвай — Перу(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B5ADFD1C2EF1C62DFB4974ED5397A010FBD468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311936   (537923) от 01.07.2019
-
-Плавание. Champions Swim Series 2019. Индианаполис (США). 3-й Этап. День 2 (2019) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 июня 2019 года
-Champions Swim Series 2019 – новый Международный турнир по плаванию. Индианаполис (США)
-"Champions Swim Series" включает призеров Олимпийских игр 2016 года, призеров чемпионата мира 2017 года, обладателей рекордов мира и лидеров мирового рейтинга FINA 2018 года.
-3-й Этап. День 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E812782FF36092F7C91F6093F3F8499ED6C5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696977   (537892) от 04.09.2013
-
-Рестлинг / WWE Monday Night RAW 02.09.13 + Русская версия от IWN (2013) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной выпуск шоу WWE Monday Night RAWЖанр: ТелепередачаПеревод: Двуголосый закадровый, любительский ( Русская версия от IWN)Продолжительность: 2:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA04D3F1F294E308CBB95E5EC7518CF011E522D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366890   (537431) от 23.07.2011
-
-Формула 1 Гран-При Германии 3 свободная практика (2011) HDTV
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несжатый HD со спутника, канал Спорт 1, ошибки в потоке отсутствуют (лог ниже). Рекламы нет, запись с первой до последней секунды трансляции.Жанр: СпортПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DBB63AE6767DD5F2DC2944281A6FEBADA84C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155015   (537304) от 01.08.2017
-
-Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 3-го тура (31.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537304.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 июля 2017 года
-РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 3-го тура
-29.07.2017, 15:00 МСК	Урал – Уфа
-29.07.2017, 15:00 МСК	ЦСКА – СКА-Хабаровск(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF97D83B8458FFCC6F925E23D6B48468F32BF76
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1186867   (281894) от 27.11.2017
+
+Стивен Кинг | Четыре сезона (2015) [PDF, DJVU, FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре сезона ужаса. Четыре времени года, и каждое - страшный сон, ставший реальностью. Весна - и невинный человек приговорен к пожизненному заключению в тюремном аду, где нет надежды, откуда нет выхода... Лето - и где-то в маленьком городке медленно сходит с ума тихий отличник, ставший способным учеником нацистского преступника... Осень - и четверо изнывающих от (   Читать дальше...   )Жанр: Фантастика, мистикаПеревод: В. В. АнтоновФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8A5A90DAF77439B192C6E5B1A8F6D8D5AB5B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081631   (281852) от 10.12.2016
+
+Стивен Кинг | Пост сдал (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_281852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Трилогия Билла Ходжеса».
+
+В больничной палате номер 217 пробудилось нечто ужасное. Нечто, скрывающееся внутри Брейди Хартсфилда, одержимого маньяка по прозвищу Мистер Мерседес. Хотя он по-прежнему не в состоянии говорить и двигаться, его сознание бодрствует.
+Но кто способен даже на мгновение предположить, что за потрясшей город серией таинственных (   Читать дальше...   )Жанр: Зарубежное фэнтези, Зарубежные детективы, Современные детективы, Триллеры, Ужасы и МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E232533EC19C409D5A5EE22902B3040A5813C90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964566   (281811) от 11.12.2015
 
 Артем Мичурин, Вячеслав Хватов | Полведра студёной крови (2015) [FB2]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281811.jpg" />
+  <img src="Z:/picture/008/save_picture_281811.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281809.jpg" />
+  <img src="Z:/picture/008/save_picture_281809.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281078.jpg" />
+  <img src="Z:/picture/008/save_picture_281078.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280800.jpg" />
+  <img src="Z:/picture/008/save_picture_280800.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280666.jpg" />
+  <img src="Z:/picture/008/save_picture_280666.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280664.jpg" />
+  <img src="Z:/picture/008/save_picture_280664.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280526.jpg" />
+  <img src="Z:/picture/008/save_picture_280526.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280446.jpg" />
+  <img src="Z:/picture/008/save_picture_280446.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280314.jpg" />
+  <img src="Z:/picture/008/save_picture_280314.jpg" />
 </div>
 
 
@@ -248,13 +303,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280310.jpg" />
+  <img src="Z:/picture/008/save_picture_280310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-﻿Тебя похитили инопланетяне? Возможно, все не так ужасно, как кажется на первый взгляд. Все гораздо хуже!
+Тебя похитили инопланетяне? Возможно, все не так ужасно, как кажется на первый взгляд. Все гораздо хуже!
 Тебя заставят участвовать в запрещенном конкурсе на выживание, обзовут ведьмой и пригрозят сдать на опыты. Ведь девушки с Земли — это не просто экзотические зверушки для развлечения космических богачей, но и носители уникального генетического материала, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
 
 ## Скачать торент
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280303.jpg" />
+  <img src="Z:/picture/008/save_picture_280303.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280290.jpg" />
+  <img src="Z:/picture/008/save_picture_280290.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280270.jpg" />
+  <img src="Z:/picture/008/save_picture_280270.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Wargon.exe | X14. Исповедь странника (2016) [FB2]
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280167.jpg" />
+  <img src="Z:/picture/008/save_picture_280167.jpg" />
 </div>
 
 
@@ -384,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280009.jpg" />
+  <img src="Z:/picture/008/save_picture_280009.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279879.jpg" />
+  <img src="Z:/picture/008/save_picture_279879.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279756.jpg" />
+  <img src="Z:/picture/008/save_picture_279756.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279466.jpg" />
+  <img src="Z:/picture/008/save_picture_279466.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279465.jpg" />
+  <img src="Z:/picture/008/save_picture_279465.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279409.jpg" />
+  <img src="Z:/picture/008/save_picture_279409.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279405.jpg" />
+  <img src="Z:/picture/008/save_picture_279405.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278946.jpg" />
+  <img src="Z:/picture/008/save_picture_278946.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278828.jpg" />
+  <img src="Z:/picture/008/save_picture_278828.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278759.jpg" />
+  <img src="Z:/picture/008/save_picture_278759.jpg" />
 </div>
 
 
@@ -643,62 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD228B7BB96FF61C5EE3B27C604A0A2C7D220540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336625   (278695) от 07.11.2019
-
-Дмитрий Лазарев | Цикл "Пандемониум" [5 книг] (2006 - 2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не очень далекое, но такое неожиданное будущее. В результате неудачного научного эксперимента в Мироздании образовалась трещина, через которую на нашу старушку-Землю проникли другие обитаемые миры, изменив ее до неузнаваемости. Теперь она превратилась в Пандемониум, в котором нет ничего невозможного.
-И на этом фоне вам предлагается головокружительный коктейль. В (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97E423C31E78599C76F2DCB6612B357BA3A7C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187651   (278607) от 29.11.2017
-
-Элисон Гудман | Клуб «Темные времена» (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Леди Хелен».
-
-Поклонники «Орудий смерти» и «Адских механизмов», не пропустите этот восхитительный роман, ставший бестселлером The New York Times!
-Лондон, 1812 год. Великобритания на грани войны с Америкой. Десять лет продолжается борьба с Францией и Наполеоном Бонапартом.(   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Историческое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B919A960E7417E0594C9EEFA742EF22DBF80B363
 ```
 
 https://mybot314.ru/tekegram_catalog/

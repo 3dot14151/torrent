@@ -1,3 +1,87 @@
+###  Публикация: 429167   (266369) от 29.12.2011
+
+Анна Петряшева - Я рисую (2009) [MP3|320 kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1+ /-11 Мама
+2+/-12  Все ли можно сосчитать?
+3+/-13 Чучело
+4+/-14 Песенка сладкоежек(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE9BF4EEA1D3216147EE12832B8F61AEB4A463C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 429229   (266307) от 29.12.2011
+
+Маша Воинова - Алексей Воинов - Разноцветное лето (2008) [MP3|320 kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266307.jpg" />
+</div>
+
+
+###  Подробнее
+
+1+/-9. Альбом
+2+/-10. Разноцветное лето
+3+/-11. В двух шагах
+4+/-12. Волшебный дом(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB8976E716E672A2837320470EDA264FFC17927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267693   (265806) от 07.12.2018
+
+Жан-Клод Мурлева | Река, текущая вспять (2000) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы взять каплю воды из реки, текущей вспять, каплю, способную сделать человека бессмертным, маленький лавочник Томек совершит долгое и сложное путешествие. Пройдя через множество препятствий, он станет смелым, стойким, находчивым юношей, найдёт свою любовь и приобретёт настоящих друзей, прежде чем поймёт, что смерть — не больше и не меньше, чем часть жизни.Жанр: СказкаПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F122D4268F0E4BAF22DB2F7046DCA0D48FB63EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267929   (265124) от 08.12.2018
 
 Памела Трэверс | Мэри Поппинс рассказывает сказку (1973) [MP3]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265124.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264706.jpg" />
 </div>
 
 
@@ -60,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264699.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264677.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264674.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264673.jpg" />
 </div>
 
 
@@ -164,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263618.jpg" />
 </div>
 
 
@@ -190,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262927.jpg" />
 </div>
 
 
@@ -216,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262625.jpg" />
 </div>
 
 
@@ -242,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262346.jpg" />
 </div>
 
 
@@ -268,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262327.jpg" />
 </div>
 
 
@@ -294,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262046.jpg" />
 </div>
 
 
@@ -323,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261300.jpg" />
+  <img src="Z:/picture/005/save_picture_261300.jpg" />
 </div>
 
 
@@ -352,7 +436,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [FLAC
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260551.jpg" />
 </div>
 
 
@@ -387,7 +471,7 @@ VA - Детские Песни (Созвездие Хитов 3 CD) (2004) [MP3|
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260549.jpg" />
 </div>
 
 
@@ -422,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259824.jpg" />
+  <img src="Z:/picture/005/save_picture_259824.jpg" />
 </div>
 
 
@@ -450,7 +534,7 @@ VA - Mini Disco/Мини Диско 108 песен (1970-2012) [MP3|128 кб/с]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259729.jpg" />
+  <img src="Z:/picture/005/save_picture_259729.jpg" />
 </div>
 
 
@@ -485,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259689.jpg" />
+  <img src="Z:/picture/005/save_picture_259689.jpg" />
 </div>
 
 
@@ -511,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259681.jpg" />
+  <img src="Z:/picture/005/save_picture_259681.jpg" />
 </div>
 
 
@@ -538,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259428.jpg" />
+  <img src="Z:/picture/005/save_picture_259428.jpg" />
 </div>
 
 
@@ -564,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259065.jpg" />
+  <img src="Z:/picture/005/save_picture_259065.jpg" />
 </div>
 
 
@@ -590,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258610.jpg" />
+  <img src="Z:/picture/005/save_picture_258610.jpg" />
 </div>
 
 
@@ -616,7 +700,7 @@ VA - Мои Любимые Песенки - Песни В.Шаинского (20
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258135.jpg" />
+  <img src="Z:/picture/005/save_picture_258135.jpg" />
 </div>
 
 
@@ -636,90 +720,6 @@ VA - Мои Любимые Песенки - Песни В.Шаинского (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B050C561CDDE066832D4CF84A1F87924427D7BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838046   (257780) от 20.11.2025
-
-Григорий Остер | Союзмультфильм. Котёнок по имени Гав (2006) [MP3, Александр Пожаров и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союзмультфильм.
-Весёлые истории о крепкой дружбе маленького котёнка Гав и щенка, которые попадают в различные веселые истории.
-Если ты забыл, как тебя зовут, надо у кого-нибудь спросить. Главное – не ошибиться, кого спрашивать. Только тот, кто по-настоящему любит, сумеет ответить на этот вопрос. Но если котёнка зовут Гав – неприятностей не избежать…
-(   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: ФГУП Киностудия «Союзмультфильм», ТВИК-ЛИРЕКПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F3BF0DC44004E3D42E14FF7D77C687426014834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838049   (257777) от 20.11.2025
-
-Жорж Санд | В гостях у сказки. Великан Иеус (2006) [MP3, Дмитрий Полонский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: В гостях у сказки.
-Имя Жорж Санд в начале XIX века для русской и западной интеллигенции было синонимом женской независимости, передовых идей, стремлений к изменению общественного строя и всемирному братству. Мало кому известно, что на исходе своей литературной деятельности Санд создала замечательные, добрые и светлые произведения «Воспоминания и впечатления» (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Тамара ГаббеИздательство: Издательский дом «Союз»Продолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1522187D55AB728913BB33C7086084137889DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837540   (257510) от 17.11.2025
-
-Алексей Николаевич Толстой | Поди туда - не знаю куда, принеси то - не знаю что… (1996) [MP3, Вера Васильева, Валерий Золотухин]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир детства.
-Алексей Николаевич Толстой (1882–1945) – русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических романов, повестей и рассказов, публицистических произведений.
-Русская народная сказка в литературной обработке писателя Алексея Николаевича Толстого. В некотором царстве жил-был (   Читать дальше...   )Жанр: Литература для детей, классика, русская народная сказкаИздательство: РМГ РекордзПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54431C151232C4C20F5DC39A2EE4A519737C2728
 ```
 
 https://mybot314.ru/tekegram_catalog/

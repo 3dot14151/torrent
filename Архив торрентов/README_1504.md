@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710999.jpg" />
+  <img src="Z:/picture/008/save_picture_710999.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Travis Tritt - Ten Feet Tall And Bulletproof (1994) [FLAC|Lossless|tracks + .cue
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710987.jpg" />
+  <img src="Z:/picture/008/save_picture_710987.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ashampoo Photo Commander 12.0.10 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710967.jpg" />
+  <img src="Z:/picture/008/save_picture_710967.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Plugin Boutique - Scaler 1.7 VSTi (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710965.jpg" />
+  <img src="Z:/picture/008/save_picture_710965.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Windows Firewall Control 4.4.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710951.jpg" />
+  <img src="Z:/picture/008/save_picture_710951.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Process Lasso Pro 8.0.6.4 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710941.jpg" />
+  <img src="Z:/picture/008/save_picture_710941.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ GeoGebra 6.0.689.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710938.jpg" />
+  <img src="Z:/picture/008/save_picture_710938.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Novicorp WinToFlash 0.9.0000 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710932.jpg" />
+  <img src="Z:/picture/008/save_picture_710932.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ArtIcons Pro 5.45 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710930.jpg" />
+  <img src="Z:/picture/008/save_picture_710930.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Cool Record Edit Deluxe 7.9.2 [Eng | Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710919.jpg" />
+  <img src="Z:/picture/005/save_picture_710919.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710911.jpg" />
+  <img src="Z:/picture/005/save_picture_710911.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710900.jpg" />
+  <img src="Z:/picture/008/save_picture_710900.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ FontViewOK 7.37 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710893.jpg" />
+  <img src="Z:/picture/008/save_picture_710893.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ ApowerREC 1.5.5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710883.jpg" />
+  <img src="Z:/picture/008/save_picture_710883.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Format Factory 5.4.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710882.jpg" />
+  <img src="Z:/picture/008/save_picture_710882.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VidCoder 7.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710880.jpg" />
+  <img src="Z:/picture/008/save_picture_710880.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Movavi Slideshow Maker 5.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710851.jpg" />
+  <img src="Z:/picture/008/save_picture_710851.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Secure Eraser Pro 5.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710839.jpg" />
+  <img src="Z:/picture/008/save_picture_710839.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Windows Repair (All In One) 3.1.4 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710821.jpg" />
+  <img src="Z:/picture/008/save_picture_710821.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710804.jpg" />
+  <img src="Z:/picture/008/save_picture_710804.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ BELOFF [dp] 2019.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710800.jpg" />
+  <img src="Z:/picture/008/save_picture_710800.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Deep Space Trance Progressive (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710781.jpg" />
+  <img src="Z:/picture/008/save_picture_710781.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Neil Young Archives: Volume 1 (1963-1969) 2009, Blu-Ray [LPCM Audio 2.0 | DTS 5.
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_710755.jpg" />
+  <img src="Z:/picture/005/save_picture_710755.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Luminar 3.0.2.2186 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710744.jpg" />
+  <img src="Z:/picture/008/save_picture_710744.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Core Temp 1.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710740.jpg" />
+  <img src="Z:/picture/008/save_picture_710740.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ GoldWave 6.60 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710737.jpg" />
+  <img src="Z:/picture/008/save_picture_710737.jpg" />
 </div>
 
 

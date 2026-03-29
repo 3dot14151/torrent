@@ -1,3 +1,81 @@
+###  Публикация: 1840121   (1047081) от 03.12.2025
+
+DiskDigger 2.0.13.4139 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047081.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DE06A46D93393EE9737B455543527141224DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839464   (1046663) от 29.11.2025
+
+O&O DiskImage Professional 21.2.207 RePack by elchupacabra [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046663.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94748353E54D888BC9C5FE7A71C1DCCB7C124B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839463   (1046608) от 29.11.2025
+
+R-Studio Network 9.5 Build 191648 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E75369712F0DC32C20CF5D5DEC4CA4F9C8A824B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839428   (1046569) от 28.11.2025
 
 R-Studio Network 9.5 Build 191648 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -6,7 +84,7 @@ R-Studio Network 9.5 Build 191648 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046569.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ R-Studio Network Technician 8.15 Build 180125  [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042639.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MiniTool Power Data Recovery Business Technician 9.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037676.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Active Disk Image Professional 10.0.3 [Multi/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037640.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Wondershare Recoverit Premium 11.0.0.13 [x64] [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033071.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Acronis True Image 2020 Build 38530 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031012.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Resilio Sync v 2.7.2.1375 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030822.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ CardRecovery 6.30 Build 0216 RePack (& Portable) by elchupacabra [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030365.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ R-Drive Image 6.3 Build 6309 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029865.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ R-Drive Image 6.3 Build 6309 + BootCD [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029127.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Transcend RecoveRx 4.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028801.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Macrium Reflect v 7.3.5672 x64 Server Plus [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027798.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ CardRecovery 6.10 Build 1210 [MULTi + Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999475.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ SyncBackPro 6.3.7.0 [Multi / Русский]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989903.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Paragon Migrate OS to SSD 4.0 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986498.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Seagate DiscWizard 2019.22800 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980823.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ Ontrack EasyRecovery Technician 14.0.0.0 RePack (& Portable) by elchupacabra [Mu
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956586.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Active Data Studio 15.0.0.1 + BootCD [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953888.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952394.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ Roadkil's Unstoppable Copier 5.2 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946755.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ FreeFileSync 7.8 + Portable [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944909.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Zero Assumption Recovery 10.0.595 Technician Edition RePack (& Portable) by Trov
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943990.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ Starus File Recovery 3.8 Commercial Edition Portable by PortableAppC [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941551.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ Starus File Recovery - Мгновенное восстановление уда�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D232151146CEBC54891B4BEFDC4443B0203480F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984069   (941352) от 07.02.2016
-
-Active@ File Recovery Professional 14.5.0 [En]
-
->>След.
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Active File Recovery - одна из лучших программ для восстановления повреждённых и удалённых файлов. Программа обеспечивает восстановление данных, потерянных в результате случайного удаления, повреждения, вирусной атаки или форматирования. Может работать с файловыми системами NTFS, FAT/FAT32/exFAT, HFS+, UFS, Ext2/Ext3/Ext4/BtrFS; HDD, SSD, USB, IDE, SATA, SCSI hard (   Читать дальше...   )Язык интерфейса: Английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49D3B5D2BA64D0F672A29A5511A4967AF69F36D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984502   (938020) от 09.02.2016
-
-Starus Partition Recovery 2.5 Commercial Edition Portable by PortableAppC [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starus Partition Recovery является главным продуктом линейки программ для восстановления повреждённых разделов и утерянных данных. Уникальный алгоритм программы находит все доступные и не доступные логические разделы. Инструмент быстро и эффективно восстановит логические диски, созданные ранее и впоследствии удаленные или переформатированные в другую файловую систему. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51CE610A0423D296006A5139D009F791FC784E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094778   (927556) от 19.01.2017
-
-Wondershare Data Recovery 5.0.7.8 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Data Recovery - мощная и простая в использовании программа, которая может восстановить удаленные, отформатированные, потерянные и недоступные данные с ПК, USB-диска, внешнего жесткого диска, мобильного телефона, цифрового фотоаппарата, Ipod, MP3/MP4-плеера и других носителей информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED6BE185623D289E14D653C2C89F9566E73E1C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

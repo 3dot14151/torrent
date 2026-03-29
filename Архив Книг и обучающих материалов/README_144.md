@@ -1,3 +1,29 @@
+###  Публикация: 947421   (420396) от 16.10.2015
+
+Ольга Тарасевич | Тайна «Красной Москвы» (2015) [FB2, EPUB]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Духи «Красная Москва» и сегодня покоряют многих женщин своим роскошным ярким ароматом. Этот аромат сыновья парфюмера Генриха Брокара подарили императрице Александре Федоровне. В наши дни за старинным флаконом «Красной Москвы» идет настоящая охота. Он нужен убийце, который платит за аромат чужими жизнями… Писательница Лика Вронская получила на день рождения подарок (   Читать дальше...   )Жанр: Современные детективыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E579D78A8A897BDC8236885C3589D7A8F64BDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947295   (420385) от 16.10.2015
 
 Вячеслав Рыбаков | Письмо живым людям [Сборник] (2004) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420385.jpg" />
+  <img src="Z:/picture/008/save_picture_420385.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420362.jpg" />
+  <img src="Z:/picture/008/save_picture_420362.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420110.jpg" />
+  <img src="Z:/picture/008/save_picture_420110.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419959.jpg" />
+  <img src="Z:/picture/008/save_picture_419959.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419830.jpg" />
+  <img src="Z:/picture/008/save_picture_419830.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419760.jpg" />
+  <img src="Z:/picture/008/save_picture_419760.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419673.jpg" />
+  <img src="Z:/picture/005/save_picture_419673.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419603.jpg" />
+  <img src="Z:/picture/008/save_picture_419603.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419561.jpg" />
+  <img src="Z:/picture/008/save_picture_419561.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419358.jpg" />
+  <img src="Z:/picture/005/save_picture_419358.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418523.jpg" />
+  <img src="Z:/picture/008/save_picture_418523.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418494.jpg" />
+  <img src="Z:/picture/008/save_picture_418494.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418256.jpg" />
+  <img src="Z:/picture/008/save_picture_418256.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417826.jpg" />
+  <img src="Z:/picture/008/save_picture_417826.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417737.jpg" />
+  <img src="Z:/picture/008/save_picture_417737.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417525.jpg" />
+  <img src="Z:/picture/005/save_picture_417525.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417472.jpg" />
+  <img src="Z:/picture/008/save_picture_417472.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417393.jpg" />
+  <img src="Z:/picture/005/save_picture_417393.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417248.jpg" />
+  <img src="Z:/picture/008/save_picture_417248.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417233.jpg" />
+  <img src="Z:/picture/008/save_picture_417233.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417199.jpg" />
+  <img src="Z:/picture/008/save_picture_417199.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417057.jpg" />
+  <img src="Z:/picture/008/save_picture_417057.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416882.jpg" />
+  <img src="Z:/picture/008/save_picture_416882.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416863.jpg" />
+  <img src="Z:/picture/008/save_picture_416863.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Wrath | Animalpak [Vol.1-5] (2006) DVDRip
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416481.jpg" />
+  <img src="Z:/picture/008/save_picture_416481.jpg" />
 </div>
 
 
@@ -655,35 +681,6 @@ Wrath | Animalpak [Vol.1-5] (2006) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C71AE45D1E57DD45B853AAE276FEAE9E79F0D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558153   (416459) от 09.10.2012
-
-Андрей Захаров | Новые россы (2012) [FB2, EPUB, PDF, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Перекресток времен».
-
-Никто из наших современников, решивших поехать отдохнуть на берега таинственного озера в Чернобыльской зоне отчуждения, не ожидал, что эта поездка так изменит их дальнейшую судьбу.
-Природный катаклизм, встреча с бойцами Красной армии, попавшими в окружение под Киевом в 1941 году, и с отрядом белогвардейцев из 1919 года не (   Читать дальше...   )Жанр: Историческая фантастикаФормат: FB2, EPUB, (PDF сконвертирован из FB2), RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9009D12105EB8989C84D1BD8D034FA416B5BEE79
 ```
 
 https://mybot314.ru/tekegram_catalog/

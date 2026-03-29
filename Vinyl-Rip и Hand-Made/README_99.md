@@ -1,3 +1,235 @@
+###  Публикация: 1605933   (22308) от 06.04.2025
+
+Gotthard - Studio Albums (14 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gotthard — швейцарская рок-группа, основанная Стивом Ли и Лео Леони. Группа сформировалась в начале 1989 года. Первоначально она называлась «Krak».1992 - Gotthard
+1994 - Dial Hard
+1996 - G.
+1999 - OpenЖанр: Hard Rock, Heavy MetalПродолжительность: 12:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571447   (22281) от 06.04.2025
+
+Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
+2012 - Formshifter
+2014 - Elements of the Infinite
+2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306071   (22104) от 08.04.2025
+
+Gary Moore - Ballads & Blues 1 & 2 (1995/1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Ballads>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ballads & Blues 1
+SIDE A:
+01. Always Gonna Love You
+02. Still Got The Blues(   Читать дальше...   )Жанр: Blues Rock, BalladsПродолжительность: 02:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598761   (21968) от 09.04.2025
+
+Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист/вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
+2009 - House Of Dreams
+2012 - Emotional Fire
+2016 - Edge Of Tomorrow(   Читать дальше...   )Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 06:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551047   (21792) от 11.04.2025
+
+Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
+2005 - Consign To Oblivion
+2007 - The Divine Conspiracy
+2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791518   (21109) от 17.04.2025
+
+Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21109.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Osculetur Me	2:55
+A2 Trahe Me	2:50
+A3 Nigra Sum, Sed Formosa	4:25
+A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548427   (20958) от 19.04.2025
+
+Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arch Enemy (от англ. arch-enemy — заклятый враг) — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
+1998 - Stigmata
+1999 - Burning Bridges
+2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 15:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603407   (20464) от 24.04.2025
+
+Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535212   (20431) от 24.04.2025
 
 Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
@@ -6,7 +238,7 @@ Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20431.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20404.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Nachtblut - Studio Albums (7 releases) (2007-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20398.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ H.E.A.T - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20179.jpg" />
 </div>
 
 
@@ -125,7 +357,7 @@ Sacred Steel - Studio Albums (10 releases) (1997-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20167.jpg" />
 </div>
 
 
@@ -154,7 +386,7 @@ Orbit Culture - Studio Albums (8 releases) (2013-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20048.jpg" />
 </div>
 
 
@@ -183,7 +415,7 @@ Smokie/Смоуки - Bright Lights & Back Alleys/Яркий Свет И Тем�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19838.jpg" />
 </div>
 
 
@@ -212,7 +444,7 @@ Eternal Storm - Studio Albums (3 releases) (2013-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19754.jpg" />
 </div>
 
 
@@ -240,7 +472,7 @@ Barren Earth - Studio Albums (4 releases) (2010-2018) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19565.jpg" />
 </div>
 
 
@@ -269,7 +501,7 @@ VA - Heavy Artillery (1990) Unofficial Release [FLAC 2.0|44.1/24|image +.cue|MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19564.jpg" />
 </div>
 
 
@@ -298,7 +530,7 @@ W.A.S.P. - Studio Albums (16 releases) (1984-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19219.jpg" />
 </div>
 
 
@@ -328,7 +560,7 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19040.jpg" />
 </div>
 
 
@@ -357,7 +589,7 @@ Believer - Extraction from Mortality (1989) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19039.jpg" />
 </div>
 
 
@@ -386,7 +618,7 @@ Bekor Qilish - Throes of Death From the Dreamed Nihilism (2022) Released, 2023, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19035.jpg" />
 </div>
 
 
@@ -415,7 +647,7 @@ Believer - Extraction From Mortality (1989) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18829.jpg" />
 </div>
 
 
@@ -444,7 +676,7 @@ Bad Boys Blue - The Fifth (1989) 2016 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18767.jpg" />
 </div>
 
 
@@ -473,7 +705,7 @@ Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18739.jpg" />
 </div>
 
 
@@ -500,7 +732,7 @@ Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18737.jpg" />
 </div>
 
 
@@ -515,239 +747,6 @@ Nemesea — голландская симфо-метал-группа.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796886   (18393) от 13.05.2025
-
-Лили Иванова - Поет Лили Иванова (1968) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18393.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Море Молодости
-А2 Трудный Танец
-А3 Венера
-А4 Без Радио Не Могу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1ECC3BEEAB1160D25E5A6E945F8C2727A74B07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797056   (18300) от 14.05.2025
-
-Олег Анофриев - Песни Из К-ф «Коллеги» и «Артист Из Кохановки» (1963) [FLAC 1.0|88.2/24|tracks|Vinyl-Rip] <Pop, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня Из К-ф «Коллеги»
-(Ю. Левитин – Г. Шпаликов)
-02. Песня Из К-ф «Артист Из Кохановки»
-(О. Сандлер – О. Анофриев)(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797190   (18083) от 16.05.2025
-
-Сергей Лемешев - Концерт. Русские песни (1956) [FLAC|Lossless|image + .cue] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18083.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Лучинушка
-А2 Эх Ты, Ваня
-А3 У Ворот, Ворот
-А4 Не Одна Во Поле Дороженька(   Читать дальше...   )Жанр: FolkПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798047   (17669) от 20.05.2025
-
-Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17669.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тебе • To You
-A2 Инквизитор • Inquisitor
-A3 Посвящение • Dedication
-A4 Русская Рулетка • Russian Roulette(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798193   (17533) от 21.05.2025
-
-Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain
-02. Shining Kingdom
-03. Angel's Decay
-04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810409   (17341) от 04.08.2025
-
-Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Darkwave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcana — шведская группа, созданная в 1994 году Петером Бьяргё.
-Творчество группы часто сравнивают с Dead Can Dance1996 - Dark Age Of Reason
-1997 - Cantar De Procella
-2000 - ...The Last Embrace
-2002 - Inner Pale SunЖанр: Neoclassical DarkwaveПродолжительность: 06:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F266C0245DD4BDBDD788F68303F9828FC19BCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810399   (17340) от 04.08.2025
-
-VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till Gladje (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17340.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Linda Hutchens - Det Ar Langesen
-A2 Linda Hutchens - Harlig Ar Jorden
-A3 Linda Hutchens - Operator
-A4 Bobby Jones & New Life - Amazing Grace(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631B51482C395D4E3EA54C67960B5FB85C840B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586285   (17002) от 25.05.2025
-
-Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Onslaught — британская трэш-метал-группа из Бристоля, существовавшая с 1983 по 1991 годы и вновь собравшаяся в 2004 году.1985 - Power From Hell
-1986 - The Force
-1989 - In Search of Sanity
-2007 - Killing PeaceЖанр: Thrash MetalПродолжительность: 08:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
 ```
 
 https://mybot314.ru/tekegram_catalog/

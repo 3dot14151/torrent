@@ -1,3 +1,136 @@
+###  Публикация: 1526073   (738796) от 23.01.2022
+
+VideoSolo Video Cutter 1.0.8 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение VideoSolo Video Cutter - это ваш помощник при работе с видео-файлами
+• Обрежьте ненужные сегменты и оставьте нужные клипы
+• Объединение нескольких клипов в один файл
+• Вращайте и переворачивайте видеофайл, чтобы получить правильный угол(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2021Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3461B8049C3E6BF8B8B95777D7CB11C1635211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526238   (738785) от 23.01.2022
+
+PDF Converter OCR 6.2.1 fix [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738785.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Converter OCR - это эффективный инструмент, который работает для вашего удобства и полностью подходит для получения содержимого из отсканированных PDF или изображений, а также обычных файлов PDF. Он позволяет полностью конвертировать PDF в 15 форматов документов, включая .pages, .key, .pptx, .doc, .docx, .xlsx, .epub, .html, .text, .rtfd, кроме того, одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08517D698638BEEC9179FA8B9C563FB45641670D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526064   (738783) от 23.01.2022
+
+VideoSolo Blu-ray Player 1.1.22 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blu-ray Player без потерь качества для Mac. VideoSolo Blu-ray Player в основном предназначен для воспроизведения Blu-ray на компьютере, например, для воспроизведения Blu-ray на Mac OS. Он также может воспроизводить DVD и обычное видео. С передовой технологией дешифрования Blu-ray, VideoSolo Blu-ray Player обеспечивает кинематографическое впечатление от просмотра (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2021Разработчик: VideoSoloПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEB8204907289AE2F8D2F4DBA69BF91C8A75A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526197   (738782) от 23.01.2022
+
+PDF to EPUB Converter 6.2.1 fix [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертируйте PDF в EPUB с высокой скоростью. Конвертер PDF в EPUB будет сначала анализировать данные PDF, выявлять абзацы и организовывать их в EPUB. Даже если PDF-файл содержит несколько столбцов, приложение также может правильно преобразовать содержимое.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44903B49C1090E7FA1D26060E49E98D8F5F87E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526248   (738780) от 23.01.2022
+
+PDF to Word OCR 6.2.1 fix [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738780.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF to Word для Mac — это мощное и интуитивно понятное приложение, позволяющее преобразовывать PDF в Microsoft Word (docx, doc). Он может конвертировать сложные PDF-файлы с несколькими столбцами, графикой, форматированием, таблицами и идеально сохранять все в Microsoft Word. Редактирование или повторное использование PDF в Word не может быть проще.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06303CE485940F1807973DE2C06FD0B0F46FB17A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526198   (738773) от 23.01.2022
 
 PDF to Excel Converter 6.2.1 fix [Multi/Ru]
@@ -6,7 +139,7 @@ PDF to Excel Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738773.jpg" />
+  <img src="Z:/picture/008/save_picture_738773.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Sidify Spotify Music Converter Pro for Mac 2.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738734.jpg" />
+  <img src="Z:/picture/008/save_picture_738734.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Sidify Apple Music Converter 3.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738693.jpg" />
+  <img src="Z:/picture/008/save_picture_738693.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Mirror for Toshiba TV 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738513.jpg" />
+  <img src="Z:/picture/008/save_picture_738513.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ XCOrganizer 1.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738510.jpg" />
+  <img src="Z:/picture/008/save_picture_738510.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738462.jpg" />
+  <img src="Z:/picture/008/save_picture_738462.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ PDF to Word Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738388.jpg" />
+  <img src="Z:/picture/008/save_picture_738388.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ iMuscle 2 v3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738207.jpg" />
+  <img src="Z:/picture/008/save_picture_738207.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ Mirror for Sharp TV 3.6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738169.jpg" />
+  <img src="Z:/picture/008/save_picture_738169.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ HighTop Full 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738164.jpg" />
+  <img src="Z:/picture/008/save_picture_738164.jpg" />
 </div>
 
 
@@ -268,7 +401,7 @@ SnippetsLab 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738162.jpg" />
+  <img src="Z:/picture/008/save_picture_738162.jpg" />
 </div>
 
 
@@ -294,7 +427,7 @@ PopDo 2021.2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737836.jpg" />
+  <img src="Z:/picture/008/save_picture_737836.jpg" />
 </div>
 
 
@@ -320,7 +453,7 @@ Twitterrific 5 v5.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737830.jpg" />
+  <img src="Z:/picture/008/save_picture_737830.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ Hej Stylus! v3 3.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737825.jpg" />
+  <img src="Z:/picture/008/save_picture_737825.jpg" />
 </div>
 
 
@@ -374,7 +507,7 @@ iBarcoder 3.12.11 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737810.jpg" />
+  <img src="Z:/picture/008/save_picture_737810.jpg" />
 </div>
 
 
@@ -400,7 +533,7 @@ Exposure Software Snap Art 4 v4.1.3.392 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737807.jpg" />
+  <img src="Z:/picture/008/save_picture_737807.jpg" />
 </div>
 
 
@@ -426,7 +559,7 @@ Exposure Software Eye Candy 7 v7.2.3.189 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737798.jpg" />
+  <img src="Z:/picture/008/save_picture_737798.jpg" />
 </div>
 
 
@@ -452,7 +585,7 @@ YTD Video Downloader PRO 4.16.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737793.jpg" />
+  <img src="Z:/picture/008/save_picture_737793.jpg" />
 </div>
 
 
@@ -478,7 +611,7 @@ Bill Express 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737408.jpg" />
+  <img src="Z:/picture/008/save_picture_737408.jpg" />
 </div>
 
 
@@ -504,7 +637,7 @@ Image Tricks Pro 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737400.jpg" />
+  <img src="Z:/picture/008/save_picture_737400.jpg" />
 </div>
 
 
@@ -530,7 +663,7 @@ aText 2.40.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737392.jpg" />
+  <img src="Z:/picture/008/save_picture_737392.jpg" />
 </div>
 
 
@@ -541,137 +674,6 @@ AText ускоряет вашу запись, заменяя сокращени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D364F566733E54800F275D5FD5D264C1DBD47BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527121   (737361) от 27.01.2022
-
-OmniGraffle Pro 7 v7.19.4 [Multi/Ru]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737361.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2000-2022 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CA81910C94B7D175A8B178E0A8908CEA7ECE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527533   (736936) от 28.01.2022
-
-Mirror for Panasonic TV 3.7.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется.
-Mirror for Panasonic позволяет отображать экран вашего Mac на любом телевизоре Panasonic Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527367   (736915) от 28.01.2022
-
-Project Office Pro 9.6 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC61DE8A053D78051BD64C65BC8EAF702F724B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527419   (736912) от 28.01.2022
-
-Cleaner-App Pro 8.2.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cleaner-App - это приложение «все в одном», которое помогает легко освободить место на вашем Mac. Если ваш диск заполнен, у вас есть тонны дубликатов файлов или вы просто хотите посмотреть, что занимает ваше место, Cleaner-App - это идеальное решение для вас.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0AC78C541120AC48D04FABEA4C92FC20D9C9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527455   (736888) от 28.01.2022
-
-Dependency Walker 1.4.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dependency Walker — это утилита, которая сканирует любые 32-битные или 64-битные исполняемые файлы Mach-O (исполняемые, то есть dylib или kext) любых архитектур (i386, x86_64, ppc, ppc64, arm и arm64) и строит иерархическую древовидную диаграмму всех зависимых модулей. Для каждого найденного модуля в нем перечислены все функции, которые экспортируются этим модулем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2015Разработчик: © 2013-2015 Little Big Monster Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED17C70049B9890AD4A0CBCBD4F85C1229AAE992
 ```
 
 https://mybot314.ru/tekegram_catalog/

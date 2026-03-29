@@ -1,3 +1,55 @@
+###  Публикация: 1355665   (23912) от 22.03.2025
+
+Vampire: The Masquerade - Redemption (2000) [Ru/En] (1.1) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23912.jpg" />
+</div>
+
+
+###  Подробнее
+
+До своего падения вы возглавляли крестовый поход против нечисти. Теперь вы сами стали вампиром – тем злом, с которым сражались. В мире Тьмы вам придется столкнуться со своим заклятым врагом – могущественным вампиром Вукодлаком. Ваше злобное противостояние начнется в средневековой Европе и не утихнет до наших дней. Цель преследования и вечной схватки – уничтожить (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihilistic SoftwareЖанр: Ролевая игра, Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B672DE64497531BEF3D97E0F6A247CAE1F513C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786764   (23850) от 22.03.2025
+
+N.I.C.E. 2 / BreakNeck (2000) [Multi] (1.1.0) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение "Have a N.I.C.E. day!" с множеством улучшений: вместо 3 автомобилей теперь вы можете выбирать между более чем 42 автомобилями, 24 трассами с 96 вариациями и множеством новых гоночных режимов. Наиболее важной особенностью является новый мощный графический движок, способный отображать гораздо больше полигонов и имеющий несколько приятных новых (   Читать дальше...   )Тип издания: LicenseРазработчик: Synetic GmbHЖанр: Экшены, Приключенческие игры, Гонки, СимуляторыЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4F97D1B65F2AEFF72E4FFB972ECB46EB1339F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786761   (23823) от 22.03.2025
 
 Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
@@ -6,7 +58,7 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23823.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Men of Valor (2004) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22935.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Men of Valor (2004) [Ru] (1.3) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22910.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Jagged Alliance 2 (1999) [Ru/En] (26614298) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22832.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Heroes of Might and Magic IV (4) (2004) [Ru/En] (3.0/dlc) Repack Wanterlude [Com
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22768.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22219.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Jagged Alliance 2/1 Metavira (2013) [Ru] (1.0.8) Repack/Mod dark_elf2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22098.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Prey (2006) [Ru] (1.4) Repack/Mod seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21902.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ O.D.T.: Escape... or Die Trying (1998) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20632.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20497.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ The Blackwell Epiphany (2014) [En] (3.3c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20439.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Resonance (2012) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20427.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Blackwell Convergence (2009) [En] (3.1c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20414.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Robin Hood: The Legend of Sherwood / Робин Гуд. Легенда Шерв�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20041.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Garry's Mod (2006) [Ru/Multi] (2025.04.30) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19718.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19678.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ The Elder Scrolls IV: Oblivion (2007) [Ru/En] (1.2.0416cs/dlc) Repack dixen18 [G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19645.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19621.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Cannon Fodder (1993) [En] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19589.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Warlords III: Darklords Rising (1998) [En] (1.0.2) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19408.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18945.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hitman 2: Silent Assassin (2002) [En] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15510.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ RollerCoaster Tycoon 3 (2006) [Ru/Multi] (1.0) License GOG [Complete Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15246.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15176.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01EB6593669FDDE07EEE28726D4C1ACB3F494DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801817   (14783) от 13.06.2025
-
-I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License Акелла
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14783.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой игре, вдохновлённой фильмами о монстрах 50-х годов, вы сможете примерить на себя роль атомного мутанта, который будет уничтожать людей и их города. I was an Atomic Mutant! - это захватывающий 3D-экшн, в котором вы становитесь гигантским монстром, способным разрушать города и сражаться с крошечными военными силами, посланными, чтобы остановить вас.Тип издания: LicenseРазработчик: Canopy GamesЖанр: Arcade, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072683   (14676) от 14.06.2025
-
-Creatures: Village (2004) [En] (1.11) License GOG
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норны - сообразительные фантастические существа. Вам предстоит заботится о них, играть с ними и исследовать гигантский мир Деревни Норнов, где вас ожидает знакомство с местной фауной и противостояние с подлыми эттинами и заразными гренделями. Приключения начинаются!Тип издания: LicenseРазработчик: Gameware DevelopmentЖанр: Logic, Virtual petsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
 ```
 
 https://mybot314.ru/tekegram_catalog/

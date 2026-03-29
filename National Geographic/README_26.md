@@ -1,3 +1,109 @@
+###  Публикация: 549556   (457270) от 22.09.2012
+
+В ожидании конца света - Сезон 1 / Doomsday Preppers - Season 1 (12 серий из ?) (2012) IPTVRip [EN]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457270.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ожидании конца света - это документальный сериал сериал на канале National Geographic. Герои сериала – это самые разные люди: мужчины и женщины, молодые и пожилые; они живут обычной жизнью и работают так же, как все. Их объединяет лишь жгучее желание быть во всеоружии, когда наступит мировая катастрофа, привычные удобства станут недоступны, а хаос и жестокость превратятся в повседневную реальность. Отец, обучающий детей особым навыкам выживания. Семья, сделавшая запасы 23 000 кг еды и 14 000 литров дождевой воды. Фермер, соорудивший центр связи, функционирующий без электричества...
+
+Борцы за выживание или параноики? И есть ли здравый смысл во всех этих приготовлениях? Эксперты организации «Practical Preppers», состоящей из старожилов течения борьбы за выживание, анализируют шансы на спасение каждого из героев сериала.Жанр: ДокументальныйПеревод: ОтсутствуетПродолжительность: 09:43:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058848   (457239) от 06.10.2016
+
+NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это самый крупный убийца, когда-либо ходивший по земле. Острые как бритва зубы… Метровые челюсти… Серповидные когти. И если вы думаете, что мы говорим о Ти-рексе, подумайте ещё раз. Это — спинозавр. Его огромные размеры — и двухметровый парус на всю длину спины — делают его одним из самых странных существ, когда-либо найденных. Новый скелет был выкопан в Сахаре, (   Читать дальше...   )Телекомпания: США, National Geographic Studios And Nova/WGBH Boston For National Geogpaphic Cannels In Association With ZDFЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058867   (457159) от 06.10.2016
+
+NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерные игры из серии "Злые птицы" популярны у детей, но как на самом деле дикие птицы выживают, находят пищу и растят свое потомство?Телекомпания: Германия, NDR Naturfilm doclights GmbHЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F798C4ABF1A51E640FA1A51E10E83508549C0AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247026   (456831) от 13.09.2018
+
+NG. Легенда о хрустальном черепе / Legend of the Crystal Skulls (2008) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из самых таинственных и противоречивых предметов в мире - хрустальный череп, который называют "роковым" черепом. Легенда о нем легла в основу голливудского блокбастера 2008 г, а человек, сделавший его знаменитым, был Индианой Джонсом, который в реальной жизни был отчаянным авантюристом и археологом-грабителем. Этот и другие черепа положили начало (   Читать дальше...   )Производство: Великобритания, Picture Films, Smithsonian Networks, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Тилман РеммПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247322   (454733) от 14.09.2018
 
 NG: Взгляд изнутри: Северная Корея - тогда и сейчас / Inside North Korea: Then and Now (2017) DVB
@@ -6,7 +112,7 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454733.jpg" />
+  <img src="Z:/picture/008/save_picture_454733.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454684.jpg" />
+  <img src="Z:/picture/008/save_picture_454684.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454640.jpg" />
+  <img src="Z:/picture/008/save_picture_454640.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453852.jpg" />
+  <img src="Z:/picture/008/save_picture_453852.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453386.jpg" />
+  <img src="Z:/picture/008/save_picture_453386.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453376.jpg" />
+  <img src="Z:/picture/008/save_picture_453376.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453076.jpg" />
+  <img src="Z:/picture/008/save_picture_453076.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ NG. Нападение нацистов на США (Атака нацистов
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452648.jpg" />
+  <img src="Z:/picture/008/save_picture_452648.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ National Geographic: Американские транссексуалы / Ameri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450279.jpg" />
+  <img src="Z:/picture/008/save_picture_450279.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448481.jpg" />
+  <img src="Z:/picture/008/save_picture_448481.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448476.jpg" />
+  <img src="Z:/picture/008/save_picture_448476.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ NGW: Национальные парки Америки / America's National Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448320.jpg" />
+  <img src="Z:/picture/008/save_picture_448320.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444658.jpg" />
+  <img src="Z:/picture/008/save_picture_444658.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443578.jpg" />
+  <img src="Z:/picture/008/save_picture_443578.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442721.jpg" />
+  <img src="Z:/picture/008/save_picture_442721.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442251.jpg" />
+  <img src="Z:/picture/008/save_picture_442251.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442248.jpg" />
+  <img src="Z:/picture/008/save_picture_442248.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441303.jpg" />
+  <img src="Z:/picture/008/save_picture_441303.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439983.jpg" />
+  <img src="Z:/picture/008/save_picture_439983.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435147.jpg" />
+  <img src="Z:/picture/008/save_picture_435147.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434953.jpg" />
+  <img src="Z:/picture/008/save_picture_434953.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434704.jpg" />
+  <img src="Z:/picture/005/save_picture_434704.jpg" />
 </div>
 
 
@@ -566,111 +672,6 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249825   (431043) от 25.09.2018
-
-NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в Финляндии начинают таять болота, на них обнажаются останки замерзших тел животных. Это территория бурых медведей, и каждую весну они отправляются за своими трофеями. Но теперь у них появился конкурент в виде серой волчицы.Производство: ЮАР, Earth Touch, Nat Geo Wild, SmithsonianЖанр: Документальный, природа, флора, фаунаРежиссер: Грэм ДуэйнПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2394F7B9B80EDAC94659DB56179A191B3C2C799A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249936   (430738) от 25.09.2018
-
-NG. Пропавшие города Амазонии: Легенда становится реальностью / Lost Cities of the Amazon. The Legend is Real (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории о древних цивилизациях, затерянных в глубинах Амазонии, пережили столетия. Но что если они на самом деле сущеcтвовали? В 2008 году Nat Geo последовал за двумя археологическими экспедициями, которые доказали, что древние города действительно существовали. В 2018 году самые последние открытия показали, что в этом регионе существовали развитые цивилизации, охватывавшие (   Читать дальше...   )Производство: США, Edge West Productions, Edge West, National GeographicЖанр: Документальный, исследование, путешествиеРежиссер: Филип Джи ДэйПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B201BFC42E6CE2372F4C7C60EF150F9D5B2C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 123784   (430550) от 25.09.2018
-
-NG: Зыбучие пески: невидимая опасность / Danger Quicksand (2005) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите под ноги! Ведь Национальное Географическое Общество исследует смертоносные глубины коварной природной ловушки, от которой подчас невозможно спастись, распространенной куда шире, чем кажется многим из нас. Имя этому топкому убийце - зыбучий песок или плывун.
-Узнаете о реальных опасностях, которые несет этот привычный атрибут голливудских фильмом ужасов, и (   Читать дальше...   )Телекомпания: National Geographic VideoЖанр: ДокументальныйРежиссер: Эми БучерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2B9C612A75CD58FEFF003224646CCAED686D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249956   (428933) от 26.09.2018
-
-NGW: Прекрасная Америка: Дикий Юго-Запад. Мышиное царство Bat-Nado / Wild Southwest. Bat-Nado (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техас - это передний край наступления летней жары, когда миллионы бульдоговых летучих мышей пробираются в пещеру Брекен Кейв, создавая там самую большую на земле колонию.Производство: США, Red Rock Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3715963A9846C185090D80375D09004B2F1A2CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

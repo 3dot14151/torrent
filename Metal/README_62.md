@@ -6,7 +6,7 @@ Jack Starr's Burning Starr - Souls Of The Innocent (2022) [MP3|320 Kbps] <Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503717.jpg" />
+  <img src="Z:/picture/008/save_picture_503717.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Sinner - Brotherhood (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503712.jpg" />
+  <img src="Z:/picture/008/save_picture_503712.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Behold! The Monolith - From The Fathomless Deep (2022) [MP3|320 Kbps] <Stoner, S
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503520.jpg" />
+  <img src="Z:/picture/008/save_picture_503520.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Five Finger Death Punch - 6 Albums+19 Singles+2 Live+1EP (2007-2015) [MP3|160-32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502950.jpg" />
+  <img src="Z:/picture/008/save_picture_502950.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Disciples of the Apocalypse - Disciples of the Apocalypse 2: Hell on Earth (2022
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502698.jpg" />
+  <img src="Z:/picture/008/save_picture_502698.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Black Majesty - Cross Of Thorns (2015) [MP3|320 кб/с]<Heavy Metal, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502406.jpg" />
+  <img src="Z:/picture/008/save_picture_502406.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mantar - Pain is Forever and This is the End (2022) [MP3|320 Kbps] <Black Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501732.jpg" />
+  <img src="Z:/picture/008/save_picture_501732.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501722.jpg" />
+  <img src="Z:/picture/008/save_picture_501722.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Fellowship - The Saberlight Chronicles (2022) [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501677.jpg" />
+  <img src="Z:/picture/008/save_picture_501677.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Grave Digger - Clash Of The Gods (2012) [MP3|320 Kbps] <Heavy Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501234.jpg" />
+  <img src="Z:/picture/008/save_picture_501234.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bloodstained Ground - Horrors of a Withered Dimension (2022) [MP3|320 Kbps] <MDM
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500597.jpg" />
+  <img src="Z:/picture/008/save_picture_500597.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Napalm Records Prog Sampler 2022 (2022) [MP3|320 Kbps] <Prog-Rock, Prog-Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500596.jpg" />
+  <img src="Z:/picture/008/save_picture_500596.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dalriada - Aldas (2015) [MP3|320 кб/с]<Folk Metal, Epic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500556.jpg" />
+  <img src="Z:/picture/008/save_picture_500556.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Crystal Ball - 2020 (2019) 2CD [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500417.jpg" />
+  <img src="Z:/picture/008/save_picture_500417.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fear Factory - Genexus (2015) Japanese Edition [MP3|320 кб/с]<Industrial Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500400.jpg" />
+  <img src="Z:/picture/008/save_picture_500400.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Volbeat - Rewind, Replay, Rebound (2019) Deluxe Edition [MP3|320 Kbps] <Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500360.jpg" />
+  <img src="Z:/picture/008/save_picture_500360.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Desert - Fortune Favors the Brave (2019) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497797.jpg" />
+  <img src="Z:/picture/008/save_picture_497797.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Narnia - From Darkness to Light (2019) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497752.jpg" />
+  <img src="Z:/picture/008/save_picture_497752.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Oceans of Slumber - Starlight and Ash (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497726.jpg" />
+  <img src="Z:/picture/008/save_picture_497726.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Stratovarius - Eternal (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497331.jpg" />
+  <img src="Z:/picture/008/save_picture_497331.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Slayer - Repentless (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497262.jpg" />
+  <img src="Z:/picture/008/save_picture_497262.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tarja Turunen - Ave Maria - En Plein Air (2015) [MP3|320 кб/с]<Neo-Classical,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495934.jpg" />
+  <img src="Z:/picture/008/save_picture_495934.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Unleash The Archers - Abyss (2020) 2CD [MP3|320 Kbps] <Melodic Death, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495278.jpg" />
+  <img src="Z:/picture/008/save_picture_495278.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mosara - Only the Dead Know Our Secrets (2022) [MP3|320 Kbps] <Atavistic Doom Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495005.jpg" />
+  <img src="Z:/picture/008/save_picture_495005.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bells and Ravens - What Death Cannot End (2022) [MP3|320 Kbps] <Progressive Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495003.jpg" />
+  <img src="Z:/picture/008/save_picture_495003.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Moonshade - As We Set The Skies Ablaze (2022) [MP3|320 Kbps] <Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494994.jpg" />
+  <img src="Z:/picture/008/save_picture_494994.jpg" />
 </div>
 
 

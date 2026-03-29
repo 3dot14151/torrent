@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770673.jpg" />
+  <img src="Z:/picture/008/save_picture_770673.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reg Organizer 7.10 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770666.jpg" />
+  <img src="Z:/picture/008/save_picture_770666.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tails 1.3.2 [анонимный доступ в сети] [i386] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770663.jpg" />
+  <img src="Z:/picture/008/save_picture_770663.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770641.jpg" />
+  <img src="Z:/picture/008/save_picture_770641.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MediaHuman YouTube Downloader 3.9.9.40 (1706) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770622.jpg" />
+  <img src="Z:/picture/008/save_picture_770622.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ CrystalDiskInfo 8.6.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770620.jpg" />
+  <img src="Z:/picture/008/save_picture_770620.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Tor Browser Bundle 4.0.7 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770611.jpg" />
+  <img src="Z:/picture/008/save_picture_770611.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Opera 28.0.1750.51 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770602.jpg" />
+  <img src="Z:/picture/008/save_picture_770602.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770597.jpg" />
+  <img src="Z:/picture/008/save_picture_770597.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Etcher 1.5.100 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770591.jpg" />
+  <img src="Z:/picture/008/save_picture_770591.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Movavi Photo Editor 6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770580.jpg" />
+  <img src="Z:/picture/008/save_picture_770580.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Google Chrome 83.0.4103.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770572.jpg" />
+  <img src="Z:/picture/008/save_picture_770572.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770569.jpg" />
+  <img src="Z:/picture/008/save_picture_770569.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Desktop Calendar 2.3.75.4910 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770553.jpg" />
+  <img src="Z:/picture/008/save_picture_770553.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770547.jpg" />
+  <img src="Z:/picture/008/save_picture_770547.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770544.jpg" />
+  <img src="Z:/picture/008/save_picture_770544.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] HDTV 72
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770530.jpg" />
+  <img src="Z:/picture/008/save_picture_770530.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770526.jpg" />
+  <img src="Z:/picture/008/save_picture_770526.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Raindance II (Compiled by Samsara and Dj Furvus) (2016) [MP3|320 кб/с] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770494.jpg" />
+  <img src="Z:/picture/008/save_picture_770494.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770483.jpg" />
+  <img src="Z:/picture/008/save_picture_770483.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ GetWindowText 3.66 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770482.jpg" />
+  <img src="Z:/picture/008/save_picture_770482.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Faderhead - Atoms & Emptiness (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, EBM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770480.jpg" />
+  <img src="Z:/picture/008/save_picture_770480.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770479.jpg" />
+  <img src="Z:/picture/008/save_picture_770479.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770477.jpg" />
+  <img src="Z:/picture/008/save_picture_770477.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Faderhead - FH1 (2006) [APE|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770471.jpg" />
+  <img src="Z:/picture/008/save_picture_770471.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770465.jpg" />
+  <img src="Z:/picture/008/save_picture_770465.jpg" />
 </div>
 
 

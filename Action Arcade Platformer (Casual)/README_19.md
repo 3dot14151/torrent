@@ -1,3 +1,55 @@
+###  Публикация: 1681575   (121781) от 21.01.2024
+
+Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Risk of Rain Returns - это культовый roguelike-экшен, который вернулся, чтобы порадовать своих поклонников еще большим разнообразием и возможностями! Новые стили игры, уникальная добыча, новые выжившие, обновленный многопользовательский режим и все любимые особенности из Risk of Rain 2 - все это ждет вас в этой захватывающей игре. Исследуйте Петрикор V, на пути к (   Читать дальше...   )Тип издания: SceneРазработчик: Hopoo GamesЖанр: ЭкшеныЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D014FEDB4F86D3DC91BD05753C45EF1C638AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693979   (121347) от 23.01.2024
+
+Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luna's Fishing Garden - двумерное приключение, механики которого завязаны на исследовании, рыбалке и строительстве. Путешествуя по окрестным водам, требуется ловить рыбу, чтобы продавать ее лисице. На вырученные деньги строится сад мечты. Героиня может высаживать деревья и растения, конструировать водные объекты, а также заселять животных на развивающихся островах.Тип издания: LicenseРазработчик: Coldwild Games, illufinchЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AC6E3F960C1E297249DBCF90C578546631E9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681585   (120397) от 29.01.2024
 
 The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
@@ -6,7 +58,7 @@ The Last Faith (2023) [Ru/Multi] (1.5.0) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120397.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ GINSHA (2023) [Multi] (1.1.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120391.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Cub (2024) [Multi] (Build 13219220) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120059.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Great Rebellion (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118837.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117879.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Ultros (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116441.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Slave Zero X (2024) [Ru/Multi] (1.00) Repack FitGirl [Digital Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114916.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Mobius Machine (2024) [Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114271.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ TY the Tasmanian Tiger 4 (2015) [Multi] (1.0) Scene SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107639.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Paper Trail (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107282.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106584.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Magical Delicacy (2024) [Multi] (1.0) Scene Razor 1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106133.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105736.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104916.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_114) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104470.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Who's That Flying?! (2011) [En] (1.0) Scene PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104136.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Steel Rain (2015) [Multi] (1.9.0b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100562.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100559.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91315.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91222.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bomber-Mario (P) [En] 2010
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87445.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Deadly 30 (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87277.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Treasures of the Deep / Сокровища глубин (P) [Ru] 2009 | Fyrrion
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87201.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Coloropus (P) [En] 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84609.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Coloropus (P) [En] 2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:598D1A0769599CE96CE069BD3553E673FF5E98D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472632   (84146) от 24.03.2012
-
-Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в невероятное путешествие за легендарной рыбой! Докажите, что вы можете выдержать все испытания: что ни ядовитые скорпионы, ни знойное солнце пустыни, ни ледяные пустоши не смогут остановить вас! А ведь все начиналось довольно буднично – нашему герою было скучно одним пасмурным летним днем.Тип издания: ЛицензияРазработчик: Alawar GamesЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский (официальная версия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA0912B9C6D2D5026B7666656860E9BB578FB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471707   (83777) от 22.03.2012
-
-[RePack] Limbo {1.0r6} [Ru] 2011 l Naitro
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Limbo представляет собой платформер, в котором игроку придется проявить способности к логике. Разработчики выбрали черно-белый стиль нуар в графике, придающий игре загадочности и мистичности. Вы играете за паренька, который ищет свою исчезнувшую сестру. Слово "limbo" происходит от латинского "limbus", что значит "край ада". Именно туда отправляется главный герой игры. Геймплей игры построен на физическом взаимодействии главного героя с окружением (ящики, деревья и так далее) для избегания смертельных ловушек и продвижения вперед по миру игры. По мере прохождения сложность и изощренность ловушек возрастает. Особенностью геймплея является бессмертие главного героя: погибая, мальчик тут же оживает и снова старается обойти ловушку.(   Читать дальше...   )Тип издания: RePackЖанр: Инди, 2D, Аркада, Платформер, ГоловоломкаЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

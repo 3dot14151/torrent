@@ -1,3 +1,116 @@
+###  Публикация: 626832   (941224) от 07.03.2013
+
+Андрей Сапунов - Звон (1993) [MP3|320 кб/с]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РокПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5056AB3716EDB0CDD44B53EF5576739F823E63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 626992   (941065) от 07.03.2013
+
+Фёдор Чистяков - Правило Игры (2013) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Видеомонтаж (06:30)
+02. День рождения умершего (09:20)
+03. Колёсико (05:28)
+04. Искусство (06:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835CB73245AA23813E311455AC18688BD7DE8391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984235   (939816) от 08.02.2016
+
+Оргия Праведников - Для тех, кто видит сны Vol.2 (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flores de Muertos
+02. Вдаль, по синей воде
+03. Звёздной тропой
+04. Чёрная земля(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF753BC47343E0CD7F17239F8644C3BD3706384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092696   (938862) от 12.01.2017
+
+Хартыга и Андрей Бардин - Фуга для степи с органом (2016) [MP3|320 Kbps] <Ethno Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938862.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тулаа-Шынаа
+2. Дагларым
+3. Чугуруктер
+4. Кынгыргай-Кон(   Читать дальше...   )Жанр: Ethno Rock, FolkПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0813670377401C8C0A5521759E9C8DFFE7E0F969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364120   (937964) от 02.03.2020
 
 Архипанк - Антиутопия (2020) [MP3|320 Kbps] <Nu-Metal, Hardcore-Punk, Female Extreme Vocal>
@@ -6,7 +119,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937964.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936458.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Skrin - Синтетика (2020) [MP3|320 Kbps] <Modern Metal, Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936412.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935529.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Sellout - Я остаюсь (2020) [MP3|320 Kbps] <Punk Rock, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935030.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Король И Шут. Трибьют (2014) [MP3|192 кб/с] <Punk, Alte
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934951.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934751.jpg" />
 </div>
 
 
@@ -206,7 +319,7 @@ Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933904.jpg" />
 </div>
 
 
@@ -235,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933760.jpg" />
 </div>
 
 
@@ -264,7 +377,7 @@ VA - Охота 92 (2020) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932251.jpg" />
 </div>
 
 
@@ -293,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932122.jpg" />
 </div>
 
 
@@ -322,7 +435,7 @@ NТерапия - Время и Смерть (2013) [MP3|320 кб/с]<Depressive
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931931.jpg" />
 </div>
 
 
@@ -357,7 +470,7 @@ VA - Прощай, оружие, ч.1: Замкнутый круг (2020) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931803.jpg" />
 </div>
 
 
@@ -386,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930593.jpg" />
 </div>
 
 
@@ -415,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928939.jpg" />
 </div>
 
 
@@ -444,7 +557,7 @@ Ease Of Disgust - 6 Releases (2009-2014) [MP3|320 кб/с]<Deathcore, Death Meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927573.jpg" />
 </div>
 
 
@@ -473,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927391.jpg" />
 </div>
 
 
@@ -502,7 +615,7 @@ VA - Из Нави В Явь (Compilation) (2011-2014) [MP3|~190 Kbps (V2)] <Pag
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927268.jpg" />
 </div>
 
 
@@ -531,7 +644,7 @@ VA - Славянский Хардкор (Compilation) (2013-2017) [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927263.jpg" />
 </div>
 
 
@@ -560,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925916.jpg" />
 </div>
 
 
@@ -589,7 +702,7 @@ Stay Away - Дисклеймер. Часть 2 (2019) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925846.jpg" />
 </div>
 
 
@@ -618,7 +731,7 @@ Sergey Golovin - Satellite (2019) [MP3|320 kbps] <Progressive Metal, Djent, Inst
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925832.jpg" />
 </div>
 
 
@@ -632,128 +745,6 @@ Sergey Golovin - Satellite (2019) [MP3|320 kbps] <Progressive Metal, Djent, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267CDF03B3830BC95FA5F8449FF307423EF1D691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366142   (925644) от 10.03.2020
-
-VA - Tribute to Смута - 15 (2020) [MP3|320 Kbps] <Viking Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ethnor - В путь (Смута Cover) [00:05:54]
-02 Mjød - Вслед За Марой (Смута Cover) [00:03:33]
-03 Изморозь - Встать, как Один! (Смута Cover) [00:03:26]
-04 Moon Far Away - Солнце Красное (Смута Cover) [00:04:44](   Читать дальше...   )Жанр: Viking Metal, Folk MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366176   (925603) от 10.03.2020
-
-Louna - Live Show Re:Public Minsk Belarus (2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro 2019 (Live)
-2. Мы — это LOUNA (Live)
-3. Бойцовский клуб (Live)
-4. Огня (Live)(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178610   (924714) от 25.02.2010
-
-Оргия Праведников - Для тех, кто видит сны Vol.1 (2010) [MP3|320 кб/с]<Rock/Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гимн
-2. Школа мудрости
-3. The catcher in the rye
-4. Белое на белом
-5. Путь во льдах
-6. Дорога Ворона
-7. По тонкому льду
-8. Огонь и Я (Phoenix)
-9. Скименъ (Крепка яко смерть любы)
-10. Вперед и вверх! (Для тех, кто видит сны)Жанр: Rock/AlternativeПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987529   (924228) от 18.02.2016
-
-Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год - альбом "Русские"
-1991 год - альбом "Шаг навстречу"
-1996 год - альбом "Очарована, околдована"
-2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739173.jpg" />
+  <img src="Z:/picture/008/save_picture_739173.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EdgeView 3 v3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739142.jpg" />
+  <img src="Z:/picture/008/save_picture_739142.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Image Exif Editor 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739141.jpg" />
+  <img src="Z:/picture/008/save_picture_739141.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Meta 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739140.jpg" />
+  <img src="Z:/picture/008/save_picture_739140.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ DVD-Cloner 2022 v9.00.727 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739139.jpg" />
+  <img src="Z:/picture/008/save_picture_739139.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739134.jpg" />
+  <img src="Z:/picture/008/save_picture_739134.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DearMob iPhone Manager 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739108.jpg" />
+  <img src="Z:/picture/008/save_picture_739108.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ WinX HD Video Converter for Mac 6.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739105.jpg" />
+  <img src="Z:/picture/008/save_picture_739105.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ AnyMP4 Android Data Recovery for Mac 2.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739074.jpg" />
+  <img src="Z:/picture/008/save_picture_739074.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Process Lasso Pro 10.4.2.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739065.jpg" />
+  <img src="Z:/picture/008/save_picture_739065.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ PrivaZer 4.0.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739064.jpg" />
+  <img src="Z:/picture/008/save_picture_739064.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ AnyMP4 Mac Video Converter Ultimate 9.2.8 [Rus/Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739042.jpg" />
+  <img src="Z:/picture/008/save_picture_739042.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.18 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739038.jpg" />
+  <img src="Z:/picture/008/save_picture_739038.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ DiskDigger 1.59.19.3203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738996.jpg" />
+  <img src="Z:/picture/008/save_picture_738996.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Spotify 1.1.77.643 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738987.jpg" />
+  <img src="Z:/picture/008/save_picture_738987.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Vit Registry Fix Pro 14.6.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738986.jpg" />
+  <img src="Z:/picture/008/save_picture_738986.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ TreeSize Professional 8.2.2.1626 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738984.jpg" />
+  <img src="Z:/picture/008/save_picture_738984.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738972.jpg" />
+  <img src="Z:/picture/008/save_picture_738972.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738952.jpg" />
+  <img src="Z:/picture/008/save_picture_738952.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Dato 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738837.jpg" />
+  <img src="Z:/picture/008/save_picture_738837.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mirror for Hitachi TV 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738836.jpg" />
+  <img src="Z:/picture/008/save_picture_738836.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ LaunchControl 1.52.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738835.jpg" />
+  <img src="Z:/picture/008/save_picture_738835.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Dropzone 4 Pro v4.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738834.jpg" />
+  <img src="Z:/picture/008/save_picture_738834.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ AnyMP4 iOS Toolkit for Mac 9.0.66 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738829.jpg" />
+  <img src="Z:/picture/008/save_picture_738829.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ iCompta 6 v6.0.53 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738828.jpg" />
+  <img src="Z:/picture/008/save_picture_738828.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Cisdem Video Converter 7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738827.jpg" />
+  <img src="Z:/picture/008/save_picture_738827.jpg" />
 </div>
 
 

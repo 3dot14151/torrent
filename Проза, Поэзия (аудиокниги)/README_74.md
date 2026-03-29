@@ -1,3 +1,56 @@
+###  Публикация: 1182972   (312199) от 12.11.2017
+
+Курт Воннегут | Мать Тьма (1992) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании вниманию читателей предлагается роман К.Воннегута "Мать Тьма", в котором хладнокровно и с бесподобным висельным юмором исследуется роль отдельно взятого шпиона в судьбах наций.
+В романе Курта Воннегута «Мать Тьма» повествование идет от имени американского шпиона в фашистской Германии, где он работал на радио и в своих передачах настолько (   Читать дальше...   )Жанр: ДрамаПродолжительность: 05:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F524FEE1448FB110BF33D9DE0E0794E7EC4415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076140   (311737) от 26.11.2016
+
+Юстейн Гордер | Апельсиновая девушка (2004) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Апельсиновая Девушка» — это трогательное и мудрое повествование, в центре которого удивительная история любви. Пятнадцатилетний мальчик читает письмо отца, которое тот написал ему перед своей смертью 11 лет назад. Это история знакомства и любви героя и загадочной Апельсиновой девушки. Это книга, которую отец и сын пишут вместе о том, что «жизнь — это гигантская (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 06:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8B2E49B1EA630E47CB06C761A36BB46A4B90E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 71405   (311134) от 21.10.2019
 
 Андрей Андрианов | Ежи и Петруччо
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311134.jpg" />
+  <img src="Z:/picture/008/save_picture_311134.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310193.jpg" />
+  <img src="Z:/picture/008/save_picture_310193.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309720.jpg" />
+  <img src="Z:/picture/008/save_picture_309720.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308947.jpg" />
+  <img src="Z:/picture/008/save_picture_308947.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308720.jpg" />
+  <img src="Z:/picture/008/save_picture_308720.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307792.jpg" />
+  <img src="Z:/picture/008/save_picture_307792.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307705.jpg" />
+  <img src="Z:/picture/008/save_picture_307705.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307701.jpg" />
+  <img src="Z:/picture/008/save_picture_307701.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307645.jpg" />
+  <img src="Z:/picture/008/save_picture_307645.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306158.jpg" />
+  <img src="Z:/picture/008/save_picture_306158.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305544.jpg" />
+  <img src="Z:/picture/008/save_picture_305544.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305107.jpg" />
+  <img src="Z:/picture/008/save_picture_305107.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305105.jpg" />
+  <img src="Z:/picture/008/save_picture_305105.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305100.jpg" />
+  <img src="Z:/picture/008/save_picture_305100.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305097.jpg" />
+  <img src="Z:/picture/008/save_picture_305097.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305094.jpg" />
+  <img src="Z:/picture/008/save_picture_305094.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305002.jpg" />
+  <img src="Z:/picture/008/save_picture_305002.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304830.jpg" />
+  <img src="Z:/picture/008/save_picture_304830.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304822.jpg" />
+  <img src="Z:/picture/008/save_picture_304822.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303381.jpg" />
+  <img src="Z:/picture/008/save_picture_303381.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301453.jpg" />
+  <img src="Z:/picture/008/save_picture_301453.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301358.jpg" />
+  <img src="Z:/picture/008/save_picture_301358.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301077.jpg" />
+  <img src="Z:/picture/008/save_picture_301077.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300864.jpg" />
+  <img src="Z:/picture/008/save_picture_300864.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54CAFA47EA1FDCAB8984A295EFF3E8D80408A59C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077945   (300848) от 01.12.2016
-
-Ёко Тавада | Подозрительные пассажиры твоих ночных поездов (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня - молодая японская танцовщица, гастролирующая по Европе на поезде. Каждая глава - это новый город на пути героини, приключение, сон, мечта. С этого поезда невозможно сойти. Жизнь - долгое путешествие в вагоне на нижней полке… Путешествие в город, которого нет… Ты садишься в ночной поезд и едешь. Расстояния между городами измеряются не километрами, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2302211C6BDEC6058D5E7774B2D016BF772B416D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070647   (300582) от 12.11.2018
-
-Алексей Иванов | Ненастье (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300582.jpg" />
-</div>
-
-
-###  Подробнее
-
-«2008 год. Простой водитель, бывший солдат Афганской войны, в одиночку устраивает дерзкое ограбление спецфургона, который перевозит деньги большого торгового центра. Так в миллионном, но захолустном городе Батуеве завершается долгая история могучего и деятельного союза ветеранов Афганистана – то ли общественной организации, то ли бизнес-альянса, то ли криминальной (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 20:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19366D6883DB1DB357CD31B6F064BD80DEDD511
 ```
 
 https://mybot314.ru/tekegram_catalog/

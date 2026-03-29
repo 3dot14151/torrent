@@ -1,3 +1,133 @@
+###  Публикация: 1210728   (778560) от 04.03.2018
+
+Лев Николаевич Толстой | Рассказы из детской жизни (1912) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38BB5B06A9093D2C490E45D744E499051DB44CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210483   (778555) от 04.03.2018
+
+Владимир Ильич Ленин (ред.)| Огоньки (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рождественский альманах для детей младшего возраста.Жанр: Детская проза, Сказки, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC7BCC02EEEC824E2CE8B55ACAB80996B24C983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210729   (778544) от 04.03.2018
+
+Лев Николаевич Толстой | Басни (1912) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Басни для младшего и среднего школьного возраста.Жанр: Детская проза, БасниФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC20BF41E33B955852CB51C9327C8D687013DBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210739   (778538) от 04.03.2018
+
+Лев Николаевич Толстой | Сказки для детей (1912) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF3A0B7276C58C63E60E6172863C0B8B5CE94B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012819   (778401) от 02.05.2016
+
+С. Семенов | Подпасок Федька (1928) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ ив жизни деревенского мальчика, которого мать отдала в подпаски в надежде на то, что отработав лето, он заработает денег на покупку коровы. Работа близилась к концу, мальчик не переставал мечтать о покупке коровы, когда во время его сна, стадо забрело в соседнее поле помещика и мальчика оштрафовали.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F24F47A3EB3134C702F9DFCA72AED8141733C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012846   (778333) от 02.05.2016
 
 Ольга Ушакова | Откуда пришли слова. Этимологический словарик школьника (2008) [FB2]
@@ -6,7 +136,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778333.jpg" />
 </div>
 
 
@@ -34,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778311.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778272.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_778259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_778259.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778245.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778243.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778240.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778233.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777940.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777936.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777909.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777660.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777639.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777581.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777545.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777443.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777283.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777274.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777269.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777245.jpg" />
+  <img src="Z:/picture/008/save_picture_777245.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777236.jpg" />
+  <img src="Z:/picture/008/save_picture_777236.jpg" />
 </div>
 
 
@@ -541,139 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A381B24E9F45BAE99C58CB95BF5C08F7462C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211386   (777234) от 08.03.2018
-
-Дмитрий Мамин-Сибиряк | Аленушкины сказки (1913) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E3A3757E15B3E8CE4C32F017B9AC8D89407C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211388   (777196) от 08.03.2018
-
-Л. Н. Толстой и др. | Рождественский Гость и другие рассказы разных авторов (1913) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA1E102BA6965EE12B6F9FFBC99CEA8CACAF230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211234   (777190) от 08.03.2018
-
-Протоиерей М. Шполянский, диакон Г. Максимов, А. Фомин | Азы Православия для детей (2013) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как объяснить ребёнку на доступном языке суть Православной веры. Кто такой Бог.
-Что такое Причастие. Зачем ходить в храм и молиться. В изложении диакона Георгия Максимова, священника Михаила Шполянского, Алексея Фомина
-"Всё, что ты узнаешь из этой книги, существует в действительности рядом с тобой, и это не сказка. Но это — удивительнее и чудеснее любой сказки. (   Читать дальше...   )Жанр: Православие, обучающая литература для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBD22F7D2BF7C59E3FF39D781BCFC879C0060FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211667   (777154) от 08.03.2018
-
-Подшивка журналов | Живая природа (1926,1927) [PDF] [Обновляемая]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малоизвестный двухнедельный естественно-педагогический журнал для учащихся школ, педагогов в области естествознания, кружков юных натуралистов и любителей природы 20х годов прошлого века. Выходил под ред. Б.Е. Райкова и В.Ф. Натали в Ленинграде. В журнале рассматривались материалы для практического изучения и наблюдения природы в школе и дома, материалы для "живых (   Читать дальше...   )Жанр: Естественнонаучный, педагогический, природоведение, биология, экологияФормат: PDF - OCR с ошибками
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B0E0692B957FD0F3CBBE9E6CA92D6008CC181D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014026   (776952) от 06.05.2016
-
-Валерий Ермоленко | Первопроходцы дальних берегов (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первопроходцы дальних берегов. Уроженцы Беларуси в географических открытиях.
-Книга содержит сведения о выдающихся белорусских учёных: человеке необычайной судьбы, исследователе Африки А.Булатовиче, дипломате, путешественнике-натуралисте, учёном-языковеде И. Гошкевиче, геологе и географе мирового масштаба И. Домейко. Подготовленная на основании литературных источников (   Читать дальше...   )Жанр: Познавательная литература, историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AB4FE83985D2E552C05F0BFE13B18AD69D7E87
 ```
 
 https://mybot314.ru/tekegram_catalog/

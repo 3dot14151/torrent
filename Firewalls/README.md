@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1860774   (1062134) от 
+
+Windows Firewall Control 6.30.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Firewall Control - утилита, с помощью которой, вы получите доступ к наиболее часто используемым опциям встроенного брандмауэра операционных систем Windows. После инсталляции программа располагается в системном трее и дает возможность эффективно управлять различными параметрами при помощи контекстного меню, например можно быстро разрешить/запретить другим (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3EB79F38A8C749E31C837E62AA18230A06E03E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860398   (1061842) от 
 
 Malwarebytes Windows Firewall Control 6.30.0.0 [Multi/Ru]
@@ -7,7 +33,7 @@ Malwarebytes Windows Firewall Control 6.30.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061842.jpg" />
+  <img src="Z:/picture/005/save_picture_1061842.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Minimal Firewall 2.7.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061326.jpg" />
+  <img src="Z:/picture/005/save_picture_1061326.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Malwarebytes Windows Firewall Control 6.29.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060281.jpg" />
+  <img src="Z:/picture/009/save_picture_1060281.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Minimal Firewall 2.6.8 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059744.jpg" />
+  <img src="Z:/picture/005/save_picture_1059744.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Malwarebytes Windows Firewall Control 6.26.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058541.jpg" />
+  <img src="Z:/picture/005/save_picture_1058541.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Malwarebytes Windows Firewall Control 6.24.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047427.jpg" />
+  <img src="Z:/picture/005/save_picture_1047427.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032813.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Microsoft Forefront Threat Management Gateway 2010 [Eng] [Оригинальны
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806457.jpg" />
+  <img src="Z:/picture/008/save_picture_806457.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ ZoneAlarm Free Firewall 2019 15.4.260.17960 [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636782.jpg" />
+  <img src="Z:/picture/008/save_picture_636782.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Comodo Firewall 8.2.0.4674 Final [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540260.jpg" />
+  <img src="Z:/picture/008/save_picture_540260.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ SterJo NetStalker 1.2 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538505.jpg" />
+  <img src="Z:/picture/008/save_picture_538505.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ GlassWire Elite 2.2.241 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480482.jpg" />
+  <img src="Z:/picture/008/save_picture_480482.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Malwarebytes Windows Firewall Control 6.23.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255893.jpg" />
+  <img src="Z:/picture/005/save_picture_255893.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Evorim Free Firewall 2.6.2 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208197.jpg" />
+  <img src="Z:/picture/005/save_picture_208197.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Firewall App Blocker (Fab) 1.9 Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206793.jpg" />
+  <img src="Z:/picture/005/save_picture_206793.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Minimal Firewall 2.5.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202450.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Malwarebytes Windows Firewall Control 6.20.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136756.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Minimal Firewall 2.5.0 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126089.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Fort Firewall 3.19.9 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124458.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Minimal Firewall 2.4.3 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104456.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Minimal Firewall 2.4.2 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100988.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Re: Minimal Firewall 2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98595.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Windows Firewall Control 6.11.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56308.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Malwarebytes Windows Firewall Control 6.19.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52056.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16271.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03FB78389977D75EA4DB73C7D2D72D9CF4F53D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821037   (8544) от 30.09.2025
-
-Minimal Firewall 2.2.6 Portable [En]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B65B6798798F1FF7FA37A74F852E02C67126F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

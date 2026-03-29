@@ -1,3 +1,32 @@
+###  Публикация: 1528953   (733529) от 04.02.2022
+
+Robertas Semeniukas Aleksandr Belkin - Amber Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_733529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby What You Want Me To Do (03:12)
+ 02. Broke And Hungry (03:50)
+ 03. You Gotta Move (03:58)
+ 04. Blues Stay Away From Me (02:50)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73F0ACF0A5DBD79319B91ED797F71D6B19DA7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529145   (733072) от 05.02.2022
 
 Micki Free - Turquoise Blue (2022) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -6,7 +35,7 @@ Micki Free - Turquoise Blue (2022) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733072.jpg" />
+  <img src="Z:/picture/008/save_picture_733072.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <W
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732175.jpg" />
+  <img src="Z:/picture/008/save_picture_732175.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bridget Kelly Band - 2 Альбома (2013, 2016) [MP3|320 кб/с] <Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732086.jpg" />
+  <img src="Z:/picture/008/save_picture_732086.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dustin Douglas & The Electric Gentlemen - Dustin Douglas & The Electric Gentleme
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729997.jpg" />
+  <img src="Z:/picture/008/save_picture_729997.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Songhoy Blues - Music In Exile (2015) [MP3|320 кб/с] <Ethnic Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729984.jpg" />
+  <img src="Z:/picture/008/save_picture_729984.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Slow Soul: Bedroom Jams (2019) [MP3|320 Kbps] <Soul, Disco, RnB>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728868.jpg" />
+  <img src="Z:/picture/008/save_picture_728868.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vargas Blues Band - Cambalache & Bronca (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728666.jpg" />
+  <img src="Z:/picture/008/save_picture_728666.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Gary Clark jr. - This Land (2019) [MP3|320 Kbps] <Blues-Rock, Modern Blues, Neo-
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727762.jpg" />
+  <img src="Z:/picture/008/save_picture_727762.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mike Bloomfield - The Prime of Mike Bloomfield (2019) [MP3|320 Kbps] <Chicago Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727757.jpg" />
+  <img src="Z:/picture/008/save_picture_727757.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ana Popovic - Trilogy (2016) 3CD [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727591.jpg" />
+  <img src="Z:/picture/008/save_picture_727591.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Boo Boo Weavils - Who The Hell Are The Boo Boo Weavils (2016) [MP3|320 кб/с] 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724639.jpg" />
+  <img src="Z:/picture/008/save_picture_724639.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Wax & Boogie - Lost In A Dream (Milano Club Blues Nights) (2012) [MP3|320 кб/�
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724408.jpg" />
+  <img src="Z:/picture/008/save_picture_724408.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fantastic Negrito - The Last Days Of Oakland (2016) [MP3|320 кб/с] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724109.jpg" />
+  <img src="Z:/picture/008/save_picture_724109.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Karen Lovely - Fish Outta Water (2017) [MP3|320 Kbps] <Blues, Blues Jazz, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722500.jpg" />
+  <img src="Z:/picture/008/save_picture_722500.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Blue Floyd - Begins (2008) 2CD [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720571.jpg" />
+  <img src="Z:/picture/008/save_picture_720571.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Wille And The Bandits - Steal (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718829.jpg" />
+  <img src="Z:/picture/008/save_picture_718829.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Justin Johnson - Drivin' It Down (2017) 2 CD [MP3|320 Kbps] <Blues, Roots, Ameri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718429.jpg" />
+  <img src="Z:/picture/008/save_picture_718429.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Uphill - Uphill (2009) [MP3|320 кб/с] <Swamp Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716213.jpg" />
+  <img src="Z:/picture/008/save_picture_716213.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Tyler Dow Bryant - Born In Texas (2007) [MP3|~170 кб/с] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716132.jpg" />
+  <img src="Z:/picture/008/save_picture_716132.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Beth Hart - Front And Center (Live From New York) (2018) [MP3|320 Kbps] <Blues, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715359.jpg" />
+  <img src="Z:/picture/008/save_picture_715359.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Diggin' Roots Band - Bring It Home (2016) [MP3|320 кб/с] <Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712221.jpg" />
+  <img src="Z:/picture/008/save_picture_712221.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Ed Deane - Wireless Set (2016) [MP3|320 кб/с] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712209.jpg" />
+  <img src="Z:/picture/008/save_picture_712209.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Martha High - Singing for the Good Times (2016) [MP3|320 кб/с] <Soul, Funk, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710109.jpg" />
+  <img src="Z:/picture/008/save_picture_710109.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708211.jpg" />
+  <img src="Z:/picture/008/save_picture_708211.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706093.jpg" />
+  <img src="Z:/picture/008/save_picture_706093.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220623   (702335) от 20.04.2018
-
-VA - Women Of Blues (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruth Brown – Takin’ Care Of Business (2:19)
-02. Betty Lavette – Here I Am (Single Version) (2:48)
-03. Louise Hoffsten – When It Rains It Really Pours (4:34)
-04. Aretha Franklin – Today I Sing The Blues (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29769AF04524CFAFDACE3B7B9CECEF56BA5F554B
 ```
 
 https://mybot314.ru/tekegram_catalog/

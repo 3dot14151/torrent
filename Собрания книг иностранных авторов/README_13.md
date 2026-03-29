@@ -1,3 +1,84 @@
+###  Публикация: 1268379   (227856) от 10.12.2018
+
+Эрик Эмблер | Сборник произведений [9 книг] (2003-2013) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_227856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрик Эмблер (англ. Eric Ambler; 28 июня 1909 – 22 октября 1998) - английский писатель, один из создателей, наряду с Сомерсетом Моэмом и Грэмом Грином, жанра политического триллера.
+До войны Амблер опубликовал 6 триллеров, первый из которых - "Темная граница" - вышел в 1936 году.
+Во время Второй мировой войны Амблер добровольцем вступил в артиллерийские (   Читать дальше...   )Жанр: Детектив, политический и шпионский детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5854BFAF8C6965B6F6CE68DEA7312D05C2D9A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311258   (226336) от 17.11.2020
+
+Блейк Пирс | Собрание произведений [51 книга] (2015-2020) [FB2] [Обновляемая]
+
+>>След.
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блейк Пирс — автор мистических триллеров и детективов. На его счету огромное количество произведений, которые очень полюбились современным читателям, так как в них сочетается напряженный сюжет и шокирующая развязка. Главными же героями выступают молодые женщины с тяжелой судьбой.
+О жизни самого писателя известно очень мало. С раннего детства он любил триллеры и детективы (   Читать дальше...   )Жанр: Детектив, Триллер, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD1A3F5691397B95A5BF5F8E328996397D0EF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586721   (225928) от 09.12.2012
+
+Питер Джеймс (Peter James) - 21 книга [1988 - 2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам представлено собрание книг известного британского писателя, сценариста, продюсера Питера Джеймса (Peter James). Совсем недавно его назвали одним из самых раскрученных английских писателей в США. Романы Джеймса переведены более чем на 30 языков. Все произведения автора отличает глубокий интерес к медицине, науке и сверхъестественному.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1D4B8D18CD05572AB19A83BFFC16CF9CF7190F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586562   (225390) от 09.12.2012
 
 Джеймс Хэрриот | Сборник произведений (9 книг) [1987-1994] [FB2, DJVU]
@@ -6,7 +87,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225390.jpg" />
+  <img src="Z:/picture/005/save_picture_225390.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223227.jpg" />
+  <img src="Z:/picture/005/save_picture_223227.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218664.jpg" />
+  <img src="Z:/picture/005/save_picture_218664.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218537.jpg" />
+  <img src="Z:/picture/005/save_picture_218537.jpg" />
 </div>
 
 
@@ -118,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215411.jpg" />
+  <img src="Z:/picture/005/save_picture_215411.jpg" />
 </div>
 
 
@@ -144,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215400.jpg" />
+  <img src="Z:/picture/005/save_picture_215400.jpg" />
 </div>
 
 
@@ -170,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215216.jpg" />
+  <img src="Z:/picture/005/save_picture_215216.jpg" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215075.jpg" />
+  <img src="Z:/picture/005/save_picture_215075.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213292.jpg" />
+  <img src="Z:/picture/005/save_picture_213292.jpg" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213214.jpg" />
+  <img src="Z:/picture/005/save_picture_213214.jpg" />
 </div>
 
 
@@ -278,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213020.jpg" />
+  <img src="Z:/picture/005/save_picture_213020.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211939.jpg" />
+  <img src="Z:/picture/005/save_picture_211939.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210020.jpg" />
+  <img src="Z:/picture/005/save_picture_210020.jpg" />
 </div>
 
 
@@ -361,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208476.jpg" />
+  <img src="Z:/picture/005/save_picture_208476.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207961.jpg" />
+  <img src="Z:/picture/005/save_picture_207961.jpg" />
 </div>
 
 
@@ -415,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207393.jpg" />
+  <img src="Z:/picture/005/save_picture_207393.jpg" />
 </div>
 
 
@@ -441,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206855.jpg" />
+  <img src="Z:/picture/005/save_picture_206855.jpg" />
 </div>
 
 
@@ -469,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206512.jpg" />
+  <img src="Z:/picture/005/save_picture_206512.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204554.jpg" />
+  <img src="Z:/picture/004/save_picture_204554.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_202051.jpg" />
+  <img src="Z:/picture/005/save_picture_202051.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201664.jpg" />
+  <img src="Z:/picture/005/save_picture_201664.jpg" />
 </div>
 
 
@@ -579,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201651.jpg" />
+  <img src="Z:/picture/005/save_picture_201651.jpg" />
 </div>
 
 
@@ -608,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201577.jpg" />
+  <img src="Z:/picture/005/save_picture_201577.jpg" />
 </div>
 
 
@@ -620,89 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8831D1F20621BC0FEF4F1F65AE0816EBC7A6A50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618794   (201306) от 15.03.2023
-
-Герт Нюгордсхауг | Сборник произведений [3 книги] (1986-2023) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герт Нюгордсхауг (Gert Nygårdshaug) родился 22 марта 1946 года в Тюнсете (Норвегия).
-Дебютировал в 1966 году. Пишет стихи, криминальные романы и детские книги.
-В 2007 году его роман "Mengele Zoo" (Зоопарк доктора Менгеле) был признан лучшей норвежской книгой всех времён.
-Особую популярность Нюгордсхауг приобрёл за счёт своих криминальных романов о (   Читать дальше...   )Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409283E9A5125FDB4FDC30B0E5970F031A7230E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425650   (196096) от 05.07.2023
-
-Андреа Камиллери | Сборник произведений [13 книг] (2004-2023) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа Камиллери (итал. Andrea Camilleri, 6 сентября 1925, Порто-Эмпедокле, провинция Агридженто, Сицилия — 17 июля 2019, Рим) — итальянский писатель, сценарист и режиссёр.
- Первый роман писателя был опубликован в 1978 году, но известность к Камиллери пришла в 1994 году с выходом романа “Форма воды” – первым из серии об инспекторе Монтальбано. Камиллери стал всемирно (   Читать дальше...   )Жанр: Детектив, Военная прозаИздательство: Иностранка, Мир книги, Азбука-классика, Издательский дом МещеряковаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1024F2DBB29982CC55547209FDAC170C222A471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512086   (195618) от 17.07.2023
-
-Клер Макинтош | Сборник произведений [5 книг] (2015-2023) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клер Макинтош — известная журналистка и писательница из Великобритании. Пишет книги, статьи для радиопередач и журналов. Она работала с такими изданиями как the Guardian, Sainsbury’s Magazine, the Daily Mail, The Green Parent и многими другими. Сейчас она пишет статьи для Cotswold Life и Writing Magazine.
-До 2011 года года Клер Макинтош 12 лет проработала в полиции, (   Читать дальше...   )Жанр: Детектив, триллер, современная прозаИздательство: Книжный клуб "Клуб семейного досуга". Харьков, АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4343BD8C871661B8C0F8A313FAB7FD04B384F89
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1249270   (434630) от 23.09.2018
+
+Doll of Resurrection (2018) [En/Ch] (1.0) License HOODLUM
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Doll of Resurrection - это игра в жанре экшен и rpg, разрабатываемая KX Games для платформы PC. Наш персонаж - надувная кукла, она была брошена, поэтому она мстит людям. Надувные куклы в игре демонстрируются в нижнем белье.Тип издания: LicenseРазработчик: KX GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53098D169EFEF39B4D57D835D6AB023ECFA5904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165293   (434165) от 12.09.2017
+
+The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такой судьбы не пожелаешь даже злейшему врагу…  Казалось, что угроза осталась позади и главному герою – заключенному по имени Торк, удалось навсегда покинуть адский остров, кишащий омерзительными тварями. Но ужас настиг его и в родном городе – Балтимор захвачен такими же кошмарными чудовищами. Отбиваясь от тошнотворных адских порождений, Торк продолжает вспоминать (   Читать дальше...   )Тип издания: LicenseРазработчик: Surreal SoftwareЖанр: Action, Shooter, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5400102AD2493FF799B71160C8591ADD1340B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165201   (434157) от 12.09.2017
+
+Tomb Raider (2013) [Ru] (1.01.748.0/dlc) Repack xatab [Game of The Year Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о том, как закаляется характер, о том, как неопытная девушка превращается в бесстрашную расхитительницу гробниц. В ее арсенале – лишь врожденные инстинкты и желание выжить любой ценой. Против нее – жестокая природа и таинственные силы.Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972A32FC444C280DA6027EB950936EDB4775B622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410727   (433286) от 22.09.2020
+
+Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433286.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Adventure, Action (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32747F031A27A951FF298E3CC6CFB9FA0B86913F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063791   (431802) от 17.10.2016
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack Dok2
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встаньте плечом к плечу с братьями, сразитесь вместе в канализации, в подземке и на улицах Нью-Йорка и одолейте злодейскую организацию клана Фут, возглавляемую Шреддером и Кранком. Используйте специальные боевые навыки и мощные командные комбинации, чтобы спасти Манхеттен от орд тёмных сил, наращивающих свою мощь в его тенях.Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D934920880422795322C36B3F6EA78EE88A43471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571823   (429285) от 23.08.2022
+
+Mafia II: Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть криминальной саги Mafia - 40-е и 50-е годы, Эмпайр-Бэй, Нью-Йорк. Игра выпущена в HD-разрешении. Станьте гангстером в золотую эпоху организованной преступности. Чтобы расплатиться с долгами отца, герой войны Вито Скалетта связывается с мафией. Он работает вместе со своим приятелем Джо. Совершая преступления, он зарабатывает всё больший авторитет в криминальной (   Читать дальше...   )Тип издания: LicenseРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B361747D047E819288A17ECB3D5FBB46449AB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946273   (428459) от 12.10.2015
 
 Damnation (2009) [Ru] (1.0) Repack =nemos=
@@ -6,7 +162,7 @@ Damnation (2009) [Ru] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428459.jpg" />
+  <img src="Z:/picture/008/save_picture_428459.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Mafia: Definitive Edition (2020) [Ru/Multi] (1.0.3) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427198.jpg" />
+  <img src="Z:/picture/008/save_picture_427198.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Devil May Cry 3: Dantes Awakening Special Edition /  Devil May Cry 3: Dantes Awa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425695.jpg" />
+  <img src="Z:/picture/005/save_picture_425695.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ The Surge (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421708.jpg" />
+  <img src="Z:/picture/008/save_picture_421708.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Midnight Fight Express (2022) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420567.jpg" />
+  <img src="Z:/picture/008/save_picture_420567.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Sky Break (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420464.jpg" />
+  <img src="Z:/picture/008/save_picture_420464.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420356.jpg" />
+  <img src="Z:/picture/008/save_picture_420356.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ RAD (2019) [Ru/Multi] (1.0/upd1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420300.jpg" />
+  <img src="Z:/picture/008/save_picture_420300.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Transformers: Fall of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419085.jpg" />
+  <img src="Z:/picture/008/save_picture_419085.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Agents of Mayhem (2017) [Ru/En] (1.03) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418708.jpg" />
+  <img src="Z:/picture/008/save_picture_418708.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4376604/dlc) License FAIRLIGHT
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418345.jpg" />
+  <img src="Z:/picture/008/save_picture_418345.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ ECHO (2017) [En/Ge/Fr] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416448.jpg" />
+  <img src="Z:/picture/008/save_picture_416448.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416434.jpg" />
+  <img src="Z:/picture/008/save_picture_416434.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2797) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415906.jpg" />
+  <img src="Z:/picture/008/save_picture_415906.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ Sky Break (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415645.jpg" />
+  <img src="Z:/picture/008/save_picture_415645.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ Transformers: Fall Of Cybertron / Трансформеры: Падение Ки�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414063.jpg" />
+  <img src="Z:/picture/008/save_picture_414063.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ Saints Row Дилогия [En/Ru] (Repack) 2009-2011 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413397.jpg" />
+  <img src="Z:/picture/008/save_picture_413397.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ Resident Evil 3 (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413318.jpg" />
+  <img src="Z:/picture/008/save_picture_413318.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ The Deadly Tower of Monsters (2016) [Ru/Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413304.jpg" />
+  <img src="Z:/picture/008/save_picture_413304.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ HellGate: London (2007) [Ru/Multi] (1.2) License ViTALiTY
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413299.jpg" />
+  <img src="Z:/picture/008/save_picture_413299.jpg" />
 </div>
 
 
@@ -516,164 +672,6 @@ HellGate: London (2007) [Ru/Multi] (1.2) License ViTALiTY
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69477A88EF9FE70E6232974FA696BC704D157DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066199   (413292) от 25.10.2016
-
-Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.668.1/dlc) SteamRip Let'sРlay [Digital Deluxe Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rise of the Tomb Raider расскажет о первой экспедиции Лары Крофт, которая сделала ее больше, чем просто искательницей приключений. Лара должна исследовать самые отдаленные и опасные уголки Сибири, чтобы найти секрет бессмертия раньше беспощадной организации "Троица". В этой игре на выживание нового поколения вас ждут динамичные приключения, прекрасные и (   Читать дальше...   )Тип издания: SteamRipРазработчик: Crystal DynamicsЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25324034B95657F0865D4EFDAE22B9196A03265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504698   (413208) от 10.10.2012
-
-Max Payne Трилогия [En/Ru] (RePack) 2001-2012 | Martin (Audioslave)
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под палящим солнцем Бразилии
-
-После событий Max Payne 2 прошло восемь лет. Макс уже не коп — он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной (   Читать дальше...   )Тип издания: RipРазработчик: Remedy EntertainmentЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948327   (412918) от 19.10.2015
-
-Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412918.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Assassin’s Creed® Liberation HD» – новая глава о предыстории Американской революции в саге «Assassin’s Creed» – впервые для HD-консолей и ПК. Улучшенный геймплей, продуманный сюжет и HD-графика «Liberation» позволяют полностью погрузиться в мир «Assassin’s Creed». 1765 год. Накал революционных настроений на севере вынуждает испанцев взять под свой контроль южный (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Sofia и Ubisoft MontréalЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDEAAF304D069F7B67F0EAA02947A42CFD97320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066882   (409070) от 27.10.2016
-
-Rogue Trooper (2006) [Ru/En] (1.0) License GOG
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409070.jpg" />
-</div>
-
-
-###  Подробнее
-
-За контроль над планетой Nu Earth уже много лет ведется война между северянами (Norts) и южанами (Southers). Весь сыр-бор разгорелся из-за аномалии, которую прозвали Black Hole, то бишь Черная дыра - единственный путь к звездам для человечества. Nu Earth оказалась ближайшей к дыре планетой. За время противоборства Nu Earth стала абсолютно непригодной для жизни - (   Читать дальше...   )Тип издания: LicenseРазработчик: RebellionЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D1A5507A1BD0C39621A75B412D0BCD7B1CC7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326014   (408312) от 17.09.2019
-
-Daymare: 1998 (2019) [Ru/Multi] (9731) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408312.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAYMARE: 1998 – это хоррор-игра на выживание от третьего лица со сверхсложной механикой выживания и живучими врагами. Она требует стратегического подхода к боям и головоломкам и предлагает посмотреть на историю глазами трех персонажей, чтобы узнать о глубоком и темном мире игры. Действие разворачивается на секретной исследовательской базе со смертельным химическим (   Читать дальше...   )Тип издания: RepackРазработчик: Invader StudiosЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA86F222EBFC282B8D81C73298E8BB56BB42D293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326018   (408310) от 17.09.2019
-
-Daymare: 1998 (2019) [Ru/Multi] (9731) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408310.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAYMARE: 1998 – это хоррор-игра на выживание от третьего лица со сверхсложной механикой выживания и живучими врагами. Она требует стратегического подхода к боям и головоломкам и предлагает посмотреть на историю глазами трех персонажей, чтобы узнать о глубоком и темном мире игры. Действие разворачивается на секретной исследовательской базе со смертельным химическим (   Читать дальше...   )Тип издания: LicenseРазработчик: Invader StudiosЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25FAF43F647BE30324806F17EE419E8A0274A3A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

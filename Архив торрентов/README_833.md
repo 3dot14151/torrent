@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860310.jpg" />
+  <img src="Z:/picture/008/save_picture_860310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860305.jpg" />
+  <img src="Z:/picture/008/save_picture_860305.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Network Scanner 4.2.0 build 207 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860304.jpg" />
+  <img src="Z:/picture/008/save_picture_860304.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860302.jpg" />
+  <img src="Z:/picture/008/save_picture_860302.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860298.jpg" />
+  <img src="Z:/picture/008/save_picture_860298.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860296.jpg" />
+  <img src="Z:/picture/008/save_picture_860296.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Adobe Acrobat Pro DC 2015.010.20060 Lite Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860295.jpg" />
+  <img src="Z:/picture/008/save_picture_860295.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860289.jpg" />
+  <img src="Z:/picture/008/save_picture_860289.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860281.jpg" />
+  <img src="Z:/picture/008/save_picture_860281.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Q-Dir 8.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860275.jpg" />
+  <img src="Z:/picture/008/save_picture_860275.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ PureSync 5.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860271.jpg" />
+  <img src="Z:/picture/008/save_picture_860271.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wondershare PDFelement Pro 7.6.1.3037 (OCR) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860269.jpg" />
+  <img src="Z:/picture/008/save_picture_860269.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860265.jpg" />
+  <img src="Z:/picture/008/save_picture_860265.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860262.jpg" />
+  <img src="Z:/picture/008/save_picture_860262.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Wise System Monitor 1.5.2.126 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860257.jpg" />
+  <img src="Z:/picture/008/save_picture_860257.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ultra Mood - UFO (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860247.jpg" />
+  <img src="Z:/picture/008/save_picture_860247.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860244.jpg" />
+  <img src="Z:/picture/008/save_picture_860244.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wi-Fi Scanner 3.3.0 build 119 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860180.jpg" />
+  <img src="Z:/picture/008/save_picture_860180.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860172.jpg" />
+  <img src="Z:/picture/008/save_picture_860172.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Viber 12.8.0.75 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860171.jpg" />
+  <img src="Z:/picture/008/save_picture_860171.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ K-Lite Codec Pack Update 15.4.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860168.jpg" />
+  <img src="Z:/picture/008/save_picture_860168.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ TagScanner 6.1.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860162.jpg" />
+  <img src="Z:/picture/008/save_picture_860162.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860160.jpg" />
+  <img src="Z:/picture/008/save_picture_860160.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ EssentialPIM Pro Business Edition 8.66.1 RePack (& portable) by KpoJIuK [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860149.jpg" />
+  <img src="Z:/picture/008/save_picture_860149.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Internet Download Manager 6.37 Build 9 (17.04.2020) RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860145.jpg" />
+  <img src="Z:/picture/008/save_picture_860145.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iMazing 2.11.5 (Build 13649) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860138.jpg" />
+  <img src="Z:/picture/008/save_picture_860138.jpg" />
 </div>
 
 

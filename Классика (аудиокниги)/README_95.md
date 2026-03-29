@@ -1,3 +1,114 @@
+###  Публикация: 394082   (24136) от 20.03.2025
+
+Александр Грибоедов | Горе от ума (Аудиоспектакль) (2008) [MP3, Герман Садченков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Антология русской классической литературы.
+Александр Сергеевич Грибоедов (1795–1829) – русский писатель и дипломат.
+Основной идеей создания коллекции «Антология русской классической литературы» стало желание донести до уважаемой публики полный авторский текст великих русских авторов в жанре аудиоспектакля.
+Издатели намеренно не использовали в работе над (   Читать дальше...   )Жанр: Русская литература, классика, комедияИздательство: Квадро-ДискПродолжительность: 02:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBC0E82332203C74C74E032A3B4AE4D0842CAE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789380   (22517) от 04.04.2025
+
+Джордж Оруэлл | 1984 (2021) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уинстон Смит – сотрудник отдела документации министерства Правды Лондона. В его обязанности входит внесение уточнений в документы, которые содержат факты, противоречащие партийной пропаганде. Он, также, как и тысячи других граждан объединенного государства – Океании, находится под постоянным и абсолютным контролем партии. За каждым шагом жителей следит Старший брат. (   Читать дальше...   )Жанр: Зарубежная фантастикаИздательство: СОЮЗПродолжительность: 09:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3BBA4B5195AF147DAA36AD893B8FE29B202D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789948   (22249) от 06.04.2025
+
+Франсуа Рабле | Гаргантюа и Пантагрюэль (2014) [MP3, Михаил Полежаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед нами книга, составившая эпоху в истории французской общественной мысли и вошедшая в фонд мировой классической литературы. Четыреста лет живет она, расширяя круг своих читателей по мере роста культуры и образованности среди народов мира.
+Роман великого французского писателя Франсуа Рабле «Гаргантюа и Пантагрюэль» – крупнейший памятник эпохи французского Ренессанса. (   Читать дальше...   )Жанр: РоманИздательство: Нигде не купишьПродолжительность: 31:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5B9661CD46505D94254BF98BEEEA4ACA7B6B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792308   (21014) от 18.04.2025
+
+Николай Гоголь | Петербургские повести (1952-2007) [MP3, Игорь Дмитриев, Бруно Фрейндлих, Евгений Лебедев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Библиотека школьника.
+Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
+«Петербургские повести» – общее название цикла повестей Николая Гоголя, объединённых местом действия – Санкт-Петербургом 1830–1840-х годов.
+К циклу относятся пять повестей: «Невский проспект», (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 04:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F4B820D1B5F21E6712EBCF00ABF7B1581509B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792323   (21010) от 18.04.2025
 
 Николай Гоголь | Миргород. Том II (Радиоспектакль) (1950, 1996) [MP3, Иван Краско, Василий Меркурьев и др.]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21010.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21008.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20800.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20695.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20650.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20649.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20646.jpg" />
 </div>
 
 
@@ -195,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20645.jpg" />
 </div>
 
 
@@ -222,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20642.jpg" />
 </div>
 
 
@@ -249,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20176.jpg" />
 </div>
 
 
@@ -276,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19776.jpg" />
 </div>
 
 
@@ -304,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19773.jpg" />
 </div>
 
 
@@ -333,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19768.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19753.jpg" />
 </div>
 
 
@@ -390,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19245.jpg" />
 </div>
 
 
@@ -418,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19144.jpg" />
 </div>
 
 
@@ -447,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19033.jpg" />
 </div>
 
 
@@ -475,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19024.jpg" />
 </div>
 
 
@@ -503,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17634.jpg" />
 </div>
 
 
@@ -531,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17525.jpg" />
 </div>
 
 
@@ -560,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17294.jpg" />
 </div>
 
 
@@ -588,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16679.jpg" />
 </div>
 
 
@@ -599,118 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18246896AB37BFE1FDEFA57F525DBF77BD3E087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811267   (16350) от 08.08.2025
-
-Джонатан Свифт | Путешествия Гулливера (2023) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное произведение мировой литературы на стыке фантастики и социальной сатиры «Путешествия Гулливера» уже почти три столетия остаются актуальными для читателей всех возрастов. Поборник справедливости и уличитель невежества, Джонатан Свифт не только высмеивал человеческие пороки, но ещё лихо закручивал сюжет и придумывал уникальные миры. Вас ждут путешествия (   Читать дальше...   )Жанр: зарубежная классика, литература XIX века, сказки-притчи, социальная проза, социальная сатираПеревод: Адриан ФранковскийИздательство: ВимбоПродолжительность: 15:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091F15C09A7BD98C29DF2EFC5184F59A2E0D2E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800471   (15741) от 03.06.2025
-
-Гайто Газданов | Судьба Саломеи (Радиоспектакль) (2025) [MP3, Анна Алексахина, Александр Баргман и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Гайто (Георгий) Иванович Газданов (1903–1971) – писатель, литературный критик, один из самых ярких и значительных прозаиков русского зарубежья.
-Рассказ «Судьба Саломеи» (1959) Гайто Газданова о людях и их сложных судьбах, о покорности обстоятельствам, выборе и ошибках…
-Впервые опубликован «Новый журнал», №58, 1959 г.(   Читать дальше...   )Жанр: Русская литература, классика, драма, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065C44BC389F46B233CD3AE545B13117073DBF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801847   (14719) от 13.06.2025
-
-Иван Бунин | Таня. В Париже (Инсценировка) (2025) [MP3, Иван Жуков, Татьяна Михалевкина и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
-Рассказы «Таня» и «В Париже» И.А. Бунина, входят в цикл «Тёмные аллеи». Произведения написаны в 1940 году, впервые опубликованы в 1943 году.
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803486   (13682) от 23.06.2025
-
-Александр Пушкин | Станционный смотритель (Радиопостановка) (1973) [MP3, Игорь Дмитриев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская страничка. Библиотека школьника.
-Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
-«Станционный смотритель» – повесть А.С. Пушкина из цикла «Повестей покойного Ивана Петровича Белкина». Написана в 1830 году, издана в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918B8A9A4BD20372A5EF610CA5E54CA1E53069B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

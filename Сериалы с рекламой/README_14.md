@@ -6,7 +6,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700210.jpg" />
+  <img src="Z:/picture/008/save_picture_700210.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698257.jpg" />
+  <img src="Z:/picture/008/save_picture_698257.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696716.jpg" />
+  <img src="Z:/picture/008/save_picture_696716.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696345.jpg" />
+  <img src="Z:/picture/008/save_picture_696345.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692381.jpg" />
+  <img src="Z:/picture/008/save_picture_692381.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691795.jpg" />
+  <img src="Z:/picture/008/save_picture_691795.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690647.jpg" />
+  <img src="Z:/picture/008/save_picture_690647.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690633.jpg" />
+  <img src="Z:/picture/008/save_picture_690633.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690054.jpg" />
+  <img src="Z:/picture/008/save_picture_690054.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690052.jpg" />
+  <img src="Z:/picture/008/save_picture_690052.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689685.jpg" />
+  <img src="Z:/picture/008/save_picture_689685.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688764.jpg" />
+  <img src="Z:/picture/008/save_picture_688764.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688654.jpg" />
+  <img src="Z:/picture/008/save_picture_688654.jpg" />
 </div>
 
 
@@ -336,6 +336,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075688   (688651) от 15.05.2017
+
+Библиотекари / The Librarians (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) LostFilm [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_688651.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Библиотекари» — это приключенческий фэнтезийный сериал, спин-офф полнометражной трилогии «Библиотекарь». Создатели проекта вдохновлялись классическими авантюрными сюжетами, которые часто становятся основой зрелищных голливудских блокбастеров, таких как «Индиана Джонс» и «Сокровище нации». В сериале органично существуют мифы и легенды различных народов, а его непринужденная (   Читать дальше...   )Производство: СШАЖанр: фантастика, приключенияРежиссер: Дин Девлин, Джонатан ФрэйксАктеры: Ноа Уайли, Ребекка Ромейн, Кристиан Кэйн , Линди Бут, Джон Ким, Джон Ларрокетт, Мэтт Фрюэр, Боб Ньюхарт, Джейн Кертин и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:42:00 серияРеклама: присутствуют заставка и логотип LostFilm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE02B98563ED5ADC897524DA87EAFA03ECE297D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079521   (688647) от 15.05.2017
 
 Корпорация / Incorporated (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) LostFilm [AD]
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688647.jpg" />
+  <img src="Z:/picture/008/save_picture_688647.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684555.jpg" />
+  <img src="Z:/picture/008/save_picture_684555.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684441.jpg" />
+  <img src="Z:/picture/008/save_picture_684441.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682256.jpg" />
+  <img src="Z:/picture/008/save_picture_682256.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682253.jpg" />
+  <img src="Z:/picture/008/save_picture_682253.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682095.jpg" />
+  <img src="Z:/picture/008/save_picture_682095.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682003.jpg" />
+  <img src="Z:/picture/008/save_picture_682003.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680539.jpg" />
+  <img src="Z:/picture/008/save_picture_680539.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680403.jpg" />
+  <img src="Z:/picture/008/save_picture_680403.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680397.jpg" />
+  <img src="Z:/picture/008/save_picture_680397.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680393.jpg" />
+  <img src="Z:/picture/008/save_picture_680393.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680391.jpg" />
+  <img src="Z:/picture/008/save_picture_680391.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDF5B261745AB57E37A4E372E1BD5DEEB371A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201812   (678700) от 02.05.2018
-
-Из Лос-Анджелеса в Вегас / LA to Vegas (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) OMSKBIRD [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678700.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета компания неутомимых авантюристов. Последние годы каждого из них преследовала череда неудач, но они решили использовать свой последний шанс вытянуть счастливый билет. На последние сбережения они отправляются в город, где сбываются мечты Лас-Вегас. Каждый из героев планирует разбогатеть и начать новую жизнь. Исполнит ли заветный авиарейс из Лос-Анджелеса (   Читать дальше...   )Производство: США / Briskets Big Yellow House, Gary Sanchez ProductionsЖанр: комедияРежиссер: Лон ЗимметАктеры: Петер Стормаре, Нэйтан Ли Грэхэм, Оливия Маклин, Дилан МакДермотт, Амир Талай, Кимберли Матула, Эд Викс, Бун Нельсон, Эдвин Хэбакон и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E05919EDB0515CEB45E06C6BBAD63F9ADA93C6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

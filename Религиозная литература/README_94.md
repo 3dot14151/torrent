@@ -1,3 +1,81 @@
+###  Публикация: 1637690   (239729) от 05.06.2023
+
+Святитель Игнатий (Брянчанинов) | В помощь кающимся (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239729.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой брошюре, составленной по творениям святителя Игнатия (Брянчанинова), даются самые начальные сведения о греховных страстях и проистекающих из них грехах, а также о противоположных им христианских добродетелях. Несмотря на краткость изложения, информация представлена очень ёмко и системно; возможно именно поэтому эта маленькая книжечка стала настоящим откровением (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411DF09748FB1746182485A209F9D04E3E4F7F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621986   (239428) от 27.03.2023
+
+Белорусский Экзархат (изд.) | Новый Заветъ [Новый Завет Господа нашего Иисуса Христа] (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_239428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Евангелие. Новый Завет Господа нашего Иисуса Христа на церковнославянском языке.Жанр: Священное Писание. ПравославиеЯзык: ЦерковнославянскийФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78F1179C8A87319F079810856D0A86513BC6D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474086   (239369) от 01.06.2021
+
+Филарет (изд.) | Канон и акафист великомученику Георгию Победоносцу (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой Георгий Победоносец был ангелом и покровителем нескольких великих строителей русской государственности и русской военной мощи. Сын святого равноапостольного Владимира, Ярослав Мудрый, во святом крещении Георгий (†1054), много способствовал почитанию святого в Русской Церкви. Он построил город Юрьев, основал Юрьевский монастырь в Новгороде, воздвиг храм святого (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7332CEEACBBAF8637F720133EDDBC6FF50BE14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622237   (239360) от 28.03.2023
 
 Епископ Аммон | О житии преподобных Пахомия Великого и Феодора Освященного (2002) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239360.jpg" />
+  <img src="Z:/picture/005/save_picture_239360.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239250.jpg" />
+  <img src="Z:/picture/005/save_picture_239250.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239206.jpg" />
+  <img src="Z:/picture/004/save_picture_239206.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239198.jpg" />
+  <img src="Z:/picture/004/save_picture_239198.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_239139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_239139.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239006.jpg" />
+  <img src="Z:/picture/004/save_picture_239006.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238999.jpg" />
+  <img src="Z:/picture/004/save_picture_238999.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238991.jpg" />
+  <img src="Z:/picture/004/save_picture_238991.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238984.jpg" />
+  <img src="Z:/picture/005/save_picture_238984.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238966.jpg" />
+  <img src="Z:/picture/005/save_picture_238966.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238964.jpg" />
+  <img src="Z:/picture/005/save_picture_238964.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238594.jpg" />
+  <img src="Z:/picture/005/save_picture_238594.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238407.jpg" />
+  <img src="Z:/picture/005/save_picture_238407.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238386.jpg" />
+  <img src="Z:/picture/005/save_picture_238386.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238339.jpg" />
+  <img src="Z:/picture/005/save_picture_238339.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238312.jpg" />
+  <img src="Z:/picture/004/save_picture_238312.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238304.jpg" />
+  <img src="Z:/picture/004/save_picture_238304.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238227.jpg" />
+  <img src="Z:/picture/004/save_picture_238227.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ Jiddu Krishnamurti | Nobody Can Teach You About Yourself (2021) [PDF]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238201.jpg" />
+  <img src="Z:/picture/004/save_picture_238201.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237919.jpg" />
+  <img src="Z:/picture/004/save_picture_237919.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237915.jpg" />
+  <img src="Z:/picture/004/save_picture_237915.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237908.jpg" />
+  <img src="Z:/picture/004/save_picture_237908.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237880.jpg" />
 </div>
 
 
@@ -605,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA01A1A47F5817540022F8E866EA86E7BDC5FF43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625460   (237857) от 09.04.2023
-
-Протоиерей Александр Шаргунов | Великая Тайна Причащения (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя протоиерея Александра Шаргунова хорошо известно православному читателю. Это, пожалуй, один из лучших проповедников нашего времени. В книге собраны проповеди, посвящённые главному Таинству Церкви - Святому Причащению.
-
-Все мы, православные христиане, со страхом Божиим и верой приступаем к Чаше со Святыми Дарами. Но бывает, что с годами мы начинаем относиться к (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5827F0DD33F2A75AB5061F7ED16C1CD9737B96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639972   (237852) от 15.06.2023
-
-Символик | О Ленине, Сталине и «православных коммунистах» (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящее время в России среди некоторых патриотов стало распространяться мнение, что православие и коммунизм – это фактически одно и то же. КПРФ провозглашает себя носителем христианских ценностей, а Иисуса Христа, Сына Божия, называет первым в истории коммунистом. Так ли это на самом деле? Как православный человек должен относиться к коммунизму? Можно ли поставить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D967022557AAC53A99E37D7AEF60E0504B8EFEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625457   (237850) от 09.04.2023
-
-Сатисъ | Канонник в различных нуждах (2010) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник канонов – второе, исправленное и дополненное издание – предлагается для келейного (домашнего) употребления. Каноны, вошедшие в него, – о самых насущных духовных и житейских нуждах. Да услышит Всеблагий Господь наши молитвы.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090E1A909FC72BB0C4DC870CACB6D0C687371A51
 ```
 
 https://mybot314.ru/tekegram_catalog/

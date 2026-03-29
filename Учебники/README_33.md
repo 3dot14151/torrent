@@ -1,3 +1,57 @@
+###  Публикация: 1527274   (736843) от 28.01.2022
+
+Л.Д.Кудрявцев | Курс математического анализа [3 книги] (1988 - 1989) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание курса математического анализа проф. МФТИ Л. Д. Кудрявцева.
+
+Учебник соответствует новой программе для вузов. Особое внимание в учебнике обращено на изложение качественных и аналитических методов, в нем нашли отражение и некоторые геометрические приложения анализа. Предназначается студентам университетов и физико-математических, инженерно-физических (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083877E677DAC991F9DF33762FB5FC0D11DBA356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528361   (734929) от 01.02.2022
+
+О.В. Хухлаева, О.Е. Хухлаев | Психологическое консультирование и психологическая коррекция (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное издание ставит перед собой задачу познакомить студентов с основными положениями психологического консультирования и психологической коррекции. Представлены ведущие тенденции, стратегии и технологии психологической поддержки людей различных возрастных групп. Особое внимание в учебнике уделяется основным принципам и особенностям психологического консультирования (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D6929925AD3E33AE8371C699E23BE965D57CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126502   (732081) от 21.04.2017
 
 В.И. Тельнов (ред.) | Задачи по механике и теории относительности (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732081.jpg" />
+  <img src="Z:/picture/008/save_picture_732081.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731624.jpg" />
+  <img src="Z:/picture/008/save_picture_731624.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731578.jpg" />
+  <img src="Z:/picture/008/save_picture_731578.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731461.jpg" />
+  <img src="Z:/picture/008/save_picture_731461.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730847.jpg" />
+  <img src="Z:/picture/008/save_picture_730847.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730004.jpg" />
+  <img src="Z:/picture/008/save_picture_730004.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729955.jpg" />
+  <img src="Z:/picture/008/save_picture_729955.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726270.jpg" />
+  <img src="Z:/picture/008/save_picture_726270.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725189.jpg" />
+  <img src="Z:/picture/008/save_picture_725189.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724085.jpg" />
+  <img src="Z:/picture/008/save_picture_724085.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723964.jpg" />
+  <img src="Z:/picture/008/save_picture_723964.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723480.jpg" />
+  <img src="Z:/picture/008/save_picture_723480.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722682.jpg" />
+  <img src="Z:/picture/008/save_picture_722682.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722298.jpg" />
+  <img src="Z:/picture/008/save_picture_722298.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721585.jpg" />
+  <img src="Z:/picture/008/save_picture_721585.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721554.jpg" />
+  <img src="Z:/picture/008/save_picture_721554.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721277.jpg" />
+  <img src="Z:/picture/008/save_picture_721277.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721273.jpg" />
+  <img src="Z:/picture/008/save_picture_721273.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720553.jpg" />
+  <img src="Z:/picture/008/save_picture_720553.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720549.jpg" />
+  <img src="Z:/picture/008/save_picture_720549.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720509.jpg" />
+  <img src="Z:/picture/008/save_picture_720509.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720450.jpg" />
+  <img src="Z:/picture/008/save_picture_720450.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720448.jpg" />
+  <img src="Z:/picture/008/save_picture_720448.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720445.jpg" />
+  <img src="Z:/picture/008/save_picture_720445.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D514A7AC698AA102D1760571B607FA8903E559DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129499   (720441) от 29.04.2017
-
-О.А. Козадеров, А.В. Введенский | Современные химические источники тока (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основы теории электрохимической энергоконверсии, а также описаны принципы работы, базовые конструкции и физико-химические особенности функционирования современных химических источников тока: солевых и щелочных гальванических элементов с цинковым или литиевым анодом; свинцово-кислотных, никельметаллогидридных, литий-ионных вторичных элементов и аккумуляторов (   Читать дальше...   )Жанр: Химия, электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC6B4426518E3C17246B49C3C395ABD71003132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229577   (720407) от 26.02.2019
-
-Дрофа | Школьная программа в таблицах и формулах [1998] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720407.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике представлен в обобщенном виде теоретический материал по предметам школьного курса. Табличная форма позволяет наглядно представить основные положения школьной программы, способствует формированию и развитию мыслительных навыков, навыков логического анализа. Правила не преподносятся в готовом виде, но выводятся логическим путем из предлагаемой таблицы. (   Читать дальше...   )Жанр: Образование, справочное издание.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45955A18E2F8EB6C0798CA6CCFBA6BA8D77F60CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

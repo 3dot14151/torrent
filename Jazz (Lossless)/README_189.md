@@ -1,3 +1,119 @@
+###  Публикация: 1064937   (421893) от 22.10.2016
+
+Peggy Lee - Classics & Collectibles (1952-1956) 2CD, 2003, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421893.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Classics:
+01.Mr. Wonderful [03:22]
+02.He's A Tramp [02:43]
+03.Black Coffee [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E746E36A67C3956577D5437B2B953DBBF9400D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324749   (421501) от 11.09.2019
+
+Pearl Bailey - The Best of Pearl Bailey (1950-e) 2012, Hallmark [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takes Two to Tango [2:43]
+02. That's Good Enough for Me [2:56]
+03. Row, Row, Row [2:12]
+04. Legalize My Name [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A4ABD429496D7CC716981A52188E01E58A336D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324748   (421499) от 11.09.2019
+
+Katie Thiroux - Off Beat (2017) Capri Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off Beat [3:15]
+02. When Lights Are Low [5:24]
+03. Why Did I Choose You? [5:09]
+04. Slow Dance with Me [5:59](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB849933B6446A68958E404702D8D288165D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324752   (421498) от 11.09.2019
+
+Chet Baker With The Per Husby Trio - The Improviser (1983) 1995, Cadence Jazz Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Margarine [9:37]
+02. Polka Dots and Moonbeams [8:15]
+03. Beatrice [9:04]
+04. Gnid [10:26](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93468F02D5B1526864D07ACD73326136848F135F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324833   (421133) от 11.09.2019
 
 VA - Smooth Sax (2018) Compilation, 2CD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -6,7 +122,7 @@ VA - Smooth Sax (2018) Compilation, 2CD [FLAC|Lossless|image + .cue] <Mainstream
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421133.jpg" />
+  <img src="Z:/picture/008/save_picture_421133.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Joshua Redman, Brad Mehldau, Christian McBride, Brian Blade - Round Again (2020)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420782.jpg" />
+  <img src="Z:/picture/008/save_picture_420782.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Swing... Not Spring! (1948 - 1952) 1992, Savoy Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420640.jpg" />
+  <img src="Z:/picture/008/save_picture_420640.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mark Murphy - The Best of Mark Murphy: The Capitol Years (1950-e) 1997, Capitol 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420407.jpg" />
+  <img src="Z:/picture/008/save_picture_420407.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Mark Murphy - That's How I Love the Blues! (1962) 1989, Original Jazz Classics [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420406.jpg" />
+  <img src="Z:/picture/008/save_picture_420406.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Hayati Kafe - The Copenhagen Session (2007) Riviera Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420405.jpg" />
+  <img src="Z:/picture/008/save_picture_420405.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bryan Lubeck - Acoustic Vineyard (2004) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419883.jpg" />
+  <img src="Z:/picture/005/save_picture_419883.jpg" />
 </div>
 
 
@@ -214,7 +330,7 @@ The Singers Unlimited - Feeling Free (1975) 2006, Universal [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419729.jpg" />
+  <img src="Z:/picture/008/save_picture_419729.jpg" />
 </div>
 
 
@@ -243,7 +359,7 @@ Larry Coryell, Badi Assad, John Abercrombie - Three Guitars (2003) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419689.jpg" />
+  <img src="Z:/picture/005/save_picture_419689.jpg" />
 </div>
 
 
@@ -278,7 +394,7 @@ Os 3 Morais - Os 3 Morais -1971 (2015 Japan Edition), [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419640.jpg" />
+  <img src="Z:/picture/008/save_picture_419640.jpg" />
 </div>
 
 
@@ -307,7 +423,7 @@ Nat King Cole - Every Time I Feel The Spirit (1958) 2007, Collectors' Choice Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419638.jpg" />
+  <img src="Z:/picture/008/save_picture_419638.jpg" />
 </div>
 
 
@@ -336,7 +452,7 @@ Tommy Chase - Groove Merchant (1987) Stiff Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419559.jpg" />
+  <img src="Z:/picture/008/save_picture_419559.jpg" />
 </div>
 
 
@@ -365,7 +481,7 @@ Gordon Goodwin's Little Phat Band - An Elusive Man (2016) [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419542.jpg" />
+  <img src="Z:/picture/008/save_picture_419542.jpg" />
 </div>
 
 
@@ -394,7 +510,7 @@ Marcella Puppini - Everything Is Beautiful (2015) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419398.jpg" />
+  <img src="Z:/picture/008/save_picture_419398.jpg" />
 </div>
 
 
@@ -423,7 +539,7 @@ Vulfpeck - Thrill of the Arts (2015) [FLAC|Lossless|WEB-DL|tracks] <Funk, Jam Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419337.jpg" />
+  <img src="Z:/picture/008/save_picture_419337.jpg" />
 </div>
 
 
@@ -452,7 +568,7 @@ Yusef Lateef - Live At Ronnie Scott's (1966) 2017, Gearbox Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419002.jpg" />
+  <img src="Z:/picture/008/save_picture_419002.jpg" />
 </div>
 
 
@@ -481,7 +597,7 @@ Catherine Hunter - Dream Maker (2006) ABC Jazz [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418994.jpg" />
+  <img src="Z:/picture/008/save_picture_418994.jpg" />
 </div>
 
 
@@ -510,7 +626,7 @@ Sean Jones - Im•pro•vise Never Before Seen (2014) Mack Avenue Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418990.jpg" />
+  <img src="Z:/picture/008/save_picture_418990.jpg" />
 </div>
 
 
@@ -539,7 +655,7 @@ Vulfpeck - The Beautiful Game (2016) [FLAC|Lossless|WEB-DL|tracks] <Funk,Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418928.jpg" />
+  <img src="Z:/picture/008/save_picture_418928.jpg" />
 </div>
 
 
@@ -568,7 +684,7 @@ Connie Evingson - 6 альбомов (1999 - 2012) [FLAC|Lossless]<Jazz Vocal, G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418856.jpg" />
+  <img src="Z:/picture/005/save_picture_418856.jpg" />
 </div>
 
 
@@ -603,7 +719,7 @@ Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418397.jpg" />
+  <img src="Z:/picture/008/save_picture_418397.jpg" />
 </div>
 
 
@@ -632,7 +748,7 @@ Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418395.jpg" />
+  <img src="Z:/picture/008/save_picture_418395.jpg" />
 </div>
 
 
@@ -646,122 +762,6 @@ Attila Zoller - Common Cause (1979) /2005, Enja/[FLAC|tracks+.cue]<Jazz Fusion, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE62C1BAB50CD1289E6E88756A1506DC1D423893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947415   (418393) от 17.10.2015
-
-Feyza - I Wish I Knew (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Knew
-02. Look Of Love
-03. Bye Blackbird
-04. Never Let Me Go(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227BA328A50F84875C03FFD22B328139EE51B134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947439   (418392) от 17.10.2015
-
-Rocio Guitard & Moises P. Monk - Marriage & Other Novellas (2015) [FLAC|image+.cue]<Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napoleon's Groove (Here Comes The Tiger)
-02. Play Me Like A Cello (What She Wants)
-03. Tango De Museo (They Meet)
-04. El Tigre (Same Story Another Bed)(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D56C5042BE4FAC2BB271FF372EF90E653A053E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947703   (418390) от 17.10.2015
-
-Chet Baker - Mr. B (1983) /2015, Solid Records/[FLAC|tracks+.cue]<Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dolphin Dance [06:25]
- 02.Ellen And David [06:18]
- 03.Strollin' [07:25]
- 04.In Your Own Sweet Way [07:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3012CA0BAD09AB5666E93C0C66F557802452D62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947363   (418388) от 17.10.2015
-
-Bobby Hutcherson - Color Schemes (1986) /Landmark Records/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Recorda-me [05:53]
- 02.Bemsha Swing [04:52]
- 03.Rosemary, Rosemary [05:09]
- 04.Second-Hand Brown [05:27](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049DB9010C6AB2397DBF141F1744C16F4FEFEF12
 ```
 
 https://mybot314.ru/tekegram_catalog/

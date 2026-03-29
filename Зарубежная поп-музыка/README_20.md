@@ -6,7 +6,7 @@ Kongas - 2 Albums (1977,1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Tribal, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782547.jpg" />
+  <img src="Z:/picture/008/save_picture_782547.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782139.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ OFF - 2 Albums (1988,1989) CD [MP3|320 Kbps] <Electronic, Pop, New Beat, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782138.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Black Eyed Peas - Translation (2020) [MP3|320 Kbps] <Pop, Rap>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781418.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ I Break Horses - Warnings (2020) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781077.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Telex - 11 Studio Albums (1978 - 2006) Discography [MP3|320 Kbps] <Electronic, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780815.jpg" />
+  <img src="Z:/picture/008/save_picture_780815.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Natasha Barnes - Real (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780599.jpg" />
+  <img src="Z:/picture/008/save_picture_780599.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kim Wilde - 13 Studio Albums (1981-2013) 16CD [MP3|320 Kbps] <Electronic, Pop Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780388.jpg" />
+  <img src="Z:/picture/008/save_picture_780388.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Christie Lamb (Кристи Лэмб) - All She Wrote (2014) ABC Music [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780100.jpg" />
+  <img src="Z:/picture/008/save_picture_780100.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Christie Lamb (Кристи Лэмб) - Loaded (2017) ABC Music [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780093.jpg" />
+  <img src="Z:/picture/008/save_picture_780093.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Trace Adkins (Трэйси Эдкинс) - Something's Going On (2017) Wheelhous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779542.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Trace Adkins (Трэйси Эдкинс) - Comin' On Strong (2003) Capitol Recor
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779541.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779531.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Trace Adkins (Трэйси Эдкинс) - The Definitive Greatest Hits: Til The
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779517.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Creatures - 6 Albums, 1 Compilations (1982-1999) [MP3|320 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779287.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Love: Box Set (2018) 3CD [MP3|320 Kbps] <Pop, Soul, Pop/Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779275.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Donna Summer - The Journey. The Very Best Of Donna Summer (2003) 2CD [MP3|320 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779106.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Elli & Jacno - 4 Albums (1979-1984) [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778859.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Leo Sayer - The Gold Collection (2018) 3CD, Compilation, Remastered [MP3|320 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778846.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Scotch - 2 Albums (1984, 1987) Reissue, Deluxe CD Music, 2016 [MP3|320 Kbps] <El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778840.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Black Gorilla - 1 Album, 1 Single (1976, 1979) [MP3|320 Kbps] <Electronic, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778722.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ ABBAcadabra - Revival. Flight One: Tribute to ABBA (1997) [MP3|320 Kbps] <Pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778513.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Now That's What I Call Fitness (2016) [MP3|256 кб/с] <Pop, Club, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778355.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Ultimate - Dance (2016) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778314.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Armenian Navy Band - New Apricot (1999) İmaj [MP3|192 Kbps] <Folk, World, Count
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778271.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Armenian Navy Band - How Much Is Yours? (2005) D. Svota Music [MP3|192 Kbps] <Fo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778241.jpg" />
 </div>
 
 

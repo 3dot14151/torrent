@@ -1,3 +1,179 @@
+###  Публикация: 1360605   (959408) от 16.02.2020
+
+VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Roddy Ricch - The Box
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979618   (958434) от 27.01.2016
+
+VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 2 Night - Under the Sun (Eurodance Remix) [04:33]
+02. Real 2 Day Ft B.P. - Change Our Life (Radio Mix) [03:12]
+03. B.P.M - No End No Limit (Radio Mix) [03:27]
+04. Shilton - Don't Stop Your Dreams (Eurodance Radio Mix) [03:00](   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979642   (958202) от 27.01.2016
+
+Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always Have, Always Will
+02. Wonderful Life
+03. Dr. Sun
+04. All That She Wants(   Читать дальше...   )Жанр: Disco , EurodanceПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360849   (958082) от 17.02.2020
+
+VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anessa Kay - Уходи (3:00)
+2.Elbrus - Я Не Верю (3:07)
+3.Gezweirdo feat. Nomovoln - Цепи (3:18)
+4.HammAli & Navai - Где Ты Была (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856531   (957579) от 05.01.2015
+
+VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую первый в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
+02. Philip George - Wish You Were Mine  (2:58)
+03. Ed Sheeran - Thinking Out Loud  (4:42)
+04. Ben Haenow - Something I Need  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980014   (957218) от 28.01.2016
+
+VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geraldine Cordeau - Space And Time `84 (5:29)
+02. Logic System - Orient Express `82 (4:14)
+03. Kraftwerk - Spacelab `78 (5:55)
+04. Supersempfft - Roboterwerke `79 (4:31)(   Читать дальше...   )Жанр: Disco, Electonic, Space rockПродолжительность: 05:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980480   (956288) от 29.01.2016
 
 2011stress - Ген Счастья (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic Styling>
@@ -6,7 +182,7 @@
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956288.jpg" />
 </div>
 
 
@@ -35,7 +211,7 @@ VA - Extra Latin Sensation (2016) [MP3|320 кб/с] <Latin, Dance, Pop, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956273.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ VA - 100 Greatest Dance Anthems (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955493.jpg" />
 </div>
 
 
@@ -93,7 +269,7 @@ VA - Piano Collection (2017) [MP3|320 Kbps] <Classical, Piano>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955061.jpg" />
 </div>
 
 
@@ -122,7 +298,7 @@ VA - Новинки С  Разных Популярных MP3 сайтов Вы�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955060.jpg" />
 </div>
 
 
@@ -151,7 +327,7 @@ VA - Hits of My Soul Vol. 20 (2016) [MP3|320 кб/с]<Pop, Dance, Retro>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955009.jpg" />
 </div>
 
 
@@ -183,7 +359,7 @@ VA - My Favourite Hits of 1971 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Ch
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954626.jpg" />
 </div>
 
 
@@ -212,7 +388,7 @@ VA - The Best World Ballads - 28 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954482.jpg" />
 </div>
 
 
@@ -241,7 +417,7 @@ VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954199.jpg" />
 </div>
 
 
@@ -270,7 +446,7 @@ VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954163.jpg" />
 </div>
 
 
@@ -299,7 +475,7 @@ VA - Listen Life: Neo Classical Collection (2020) [MP3|320 Kbps] <Neo Classical,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953748.jpg" />
 </div>
 
 
@@ -328,7 +504,7 @@ VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Elect
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953739.jpg" />
 </div>
 
 
@@ -357,7 +533,7 @@ VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шанс
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953593.jpg" />
 </div>
 
 
@@ -386,7 +562,7 @@ VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953490.jpg" />
 </div>
 
 
@@ -415,7 +591,7 @@ VA - DFM: Итоговый D-Chart Top50 (2016) [MP3|320 Kbps] <House, Pop, Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953183.jpg" />
 </div>
 
 
@@ -444,7 +620,7 @@ VA - Carnival 2016 (Best of Dance, House, Electro & EDM) (2016) [MP3|320 кб/с
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953081.jpg" />
 </div>
 
 
@@ -473,7 +649,7 @@ VA - Турбо Модные Хиты В Зимний Вечер (2016) [MP3|225
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952809.jpg" />
 </div>
 
 
@@ -502,7 +678,7 @@ VA - Billboard Hot 100 Singles Chart 23.01.2016 (2016) [MP3|320 кб/с] <Pop, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952781.jpg" />
 </div>
 
 
@@ -531,7 +707,7 @@ VA - Наша Музыка (Лучшее 2014 - 2015) [MP3|256 кб/с] <Поп,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952680.jpg" />
 </div>
 
 
@@ -560,7 +736,7 @@ VA - Pussy Brats - Vintage American Adult Film Soundtrack Music (2013) [MP3|~245
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952542.jpg" />
 </div>
 
 
@@ -574,181 +750,6 @@ VA - Pussy Brats - Vintage American Adult Film Soundtrack Music (2013) [MP3|~245
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3713EB37AB99AC285795B1FD65A27CC40A95CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361944   (952240) от 21.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 21.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Billie Eilish - Everything I Wanted (4:05)
-2.Carla Morrison - Disfruto (Audioiko Remix) (3:15)
-3.The Weeknd - Blinding Lights (3:21)
-4.Anthony Keyrouz - Love Yourself (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96FB5A960A359CDB82956F915DE252DB6B387F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089308   (951813) от 03.01.2017
-
-VA - DFM Top 50 (2016) итоговый (2016) [MP3|224-320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla’s Dreams — Sub Pielea Mea (Midi Culture Remix) (5:08)
-02. Burak Yeter feat. Danelle Sandoval — Tuesday (DJ Noiz Remix) (3:18)
-03. LP — Lost On You (Swanky Tunes & Going Deeper Extended Remix) (4:36)
-04. Eva Simons ft. Sidney Samson — Bludfire (3:10)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 03:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43570023E40A2368F3B2427CCB396EB5A7C08CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089307   (951668) от 03.01.2017
-
-VA - RECORD radio TOP 100 итоговый (2016) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker — Faded (Tiesto’s Northern Lights Remix) (4:12)
-002. KSHMR feat. Sidnie Tipton — Wild Card (Original Mix) (3:17)
-003. Carla’s Dreams — Sub Pielea Mea (Midi Culture Remix) (5:08)
-004. The Chainsmokers feat. Daya — Don’t Let Me Down (Original Mix) (3:28)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 06:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15BCC7335A3184C89E8D9FF3ACBF561A7F6FC037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750210   (951482) от 27.01.2014
-
-VA - The Official UK Top 40 Singles Chart (26-01-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. Обращаю Ваше внимание, что в пятерке лучших - три новичка! Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Clean Bandit Feat Jess Glynne - Rather Be (3:48)
-02. Pharrell Williams - Happy (3:53)
-03. The Vamps - Wild Heart (3:11)
-04. Neon Jungle - Braveheart (Explicit Edit) (3:44)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Other |Продолжительность: 02:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF866455AEF7C5091C4B04C06C076FB0CB20743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981797   (951294) от 01.02.2016
-
-VA - Best Ballads Of Love (2016) [MP3|320 кб/с] <Lyric, Pop, Rock, Ballad>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ray Wilson - Wait For Better Days
-002. Gavin DeGraw - Belief
-003. Plumb - Restored
-004. Ben Moody - Nothing Left Of Me(   Читать дальше...   )Жанр: Lyric, Pop, Rock, BalladПродолжительность: 07:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B5C3FD9814DE368F885FF7DBB8B6D249BCCCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981796   (951030) от 01.02.2016
-
-VA - Color Climax - Porn Music From The Library (1975) [MP3|192 кб/с] <Electronic, Adult Soundtrack>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Vickers - In the Beginning (02:30)
-02. Clark Gault - Silhouette (04:36)
-03. C. Adamowic - Creme De Menthe (04:17)
-04. Keith Mansfield - Before Summer Ends (04:40)(   Читать дальше...   )Жанр: Electronic, Adult SoundtrackПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECFB2901C8E210B491CA39DFF9DB815B85D9272
 ```
 
 https://mybot314.ru/tekegram_catalog/

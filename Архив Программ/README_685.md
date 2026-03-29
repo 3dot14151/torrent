@@ -6,7 +6,7 @@ NetWorx 5.5.4 DC 14.06.2016 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703840.jpg" />
+  <img src="Z:/picture/008/save_picture_703840.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinUtilities Pro 13.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703838.jpg" />
+  <img src="Z:/picture/008/save_picture_703838.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YouTube Video Downloader PRO 5.7 (20160610) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703833.jpg" />
+  <img src="Z:/picture/008/save_picture_703833.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Glarysoft Malware Hunter PRO 1.12.0.26 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703831.jpg" />
+  <img src="Z:/picture/008/save_picture_703831.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Norton 360 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703830.jpg" />
+  <img src="Z:/picture/008/save_picture_703830.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Norton AntiVirus 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703825.jpg" />
+  <img src="Z:/picture/008/save_picture_703825.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ScreenToGif 2.26.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703803.jpg" />
+  <img src="Z:/picture/008/save_picture_703803.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AdwCleaner 5.200 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703706.jpg" />
+  <img src="Z:/picture/008/save_picture_703706.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Xilisoft Video Converter Ultimate 7.8.17 Build 20160613 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703704.jpg" />
+  <img src="Z:/picture/008/save_picture_703704.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Norton Internet Security 22.7.0.75 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703700.jpg" />
+  <img src="Z:/picture/008/save_picture_703700.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ UnHackMe 11.90.0.990 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703685.jpg" />
+  <img src="Z:/picture/008/save_picture_703685.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Ant Download Manager Pro 1.19.1 Build 70778 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703684.jpg" />
+  <img src="Z:/picture/008/save_picture_703684.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ RAM Saver Professional 20.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703669.jpg" />
+  <img src="Z:/picture/008/save_picture_703669.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WinUtilities Professional Edition 15.51 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703621.jpg" />
+  <img src="Z:/picture/008/save_picture_703621.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Master PDF Editor 5.3.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703613.jpg" />
+  <img src="Z:/picture/008/save_picture_703613.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ R-Wipe&Clean 11.3 Build 2118 RePack by Dinis124 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703561.jpg" />
+  <img src="Z:/picture/008/save_picture_703561.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Download Master 6.9.1.1517 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703559.jpg" />
+  <img src="Z:/picture/008/save_picture_703559.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703538.jpg" />
+  <img src="Z:/picture/008/save_picture_703538.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703533.jpg" />
+  <img src="Z:/picture/008/save_picture_703533.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Comsol Multiphysics 4.0.0.937 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703520.jpg" />
+  <img src="Z:/picture/005/save_picture_703520.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Opera 58.0.3135.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703467.jpg" />
+  <img src="Z:/picture/008/save_picture_703467.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703460.jpg" />
+  <img src="Z:/picture/008/save_picture_703460.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Macgo Windows Blu-ray Player 2.11.4.1945 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703439.jpg" />
+  <img src="Z:/picture/008/save_picture_703439.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Start Menu X 5.87 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703437.jpg" />
+  <img src="Z:/picture/008/save_picture_703437.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Adobe Media Encoder CC 2015.2 9.2.0.26 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703431.jpg" />
+  <img src="Z:/picture/008/save_picture_703431.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Futuremark 3DMark 2.0.2530 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703426.jpg" />
+  <img src="Z:/picture/008/save_picture_703426.jpg" />
 </div>
 
 

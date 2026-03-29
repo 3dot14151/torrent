@@ -1,3 +1,61 @@
+###  Публикация: 1292486   (646807) от 29.03.2019
+
+Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip, Slip, Slippin' In (feat. Eddie Bond & The Stompers)
+02. Carol (feat. Bill Black's Combo)
+03. A Touch of the Blues (feat. Bobby "Blue" Bland)
+04. Dream Baby (feat. Jerry Lee Lewis)(   Читать дальше...   )Жанр: Eclectic, Guitar RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CF37E6D103E01D1693D09C90A77BB2043E9D38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227290   (646708) от 26.05.2018
+
+Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Beautiful Song
+02 – Helpless
+03 – You Will Know My Love
+04 – El Farol(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F3397C370A18E81ED5BA95E8E3DA19B8BF3C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227326   (646588) от 26.05.2018
 
 Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
@@ -6,7 +64,7 @@ Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646588.jpg" />
+  <img src="Z:/picture/008/save_picture_646588.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Romantic String Orhcestra - Very Special Songs Of The '70s: The World's Most
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646417.jpg" />
+  <img src="Z:/picture/008/save_picture_646417.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646156.jpg" />
+  <img src="Z:/picture/008/save_picture_646156.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645610.jpg" />
+  <img src="Z:/picture/008/save_picture_645610.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645454.jpg" />
+  <img src="Z:/picture/008/save_picture_645454.jpg" />
 </div>
 
 
@@ -158,7 +216,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645428.jpg" />
+  <img src="Z:/picture/008/save_picture_645428.jpg" />
 </div>
 
 
@@ -187,7 +245,7 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645424.jpg" />
+  <img src="Z:/picture/008/save_picture_645424.jpg" />
 </div>
 
 
@@ -216,7 +274,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644712.jpg" />
+  <img src="Z:/picture/008/save_picture_644712.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Too
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644706.jpg" />
+  <img src="Z:/picture/008/save_picture_644706.jpg" />
 </div>
 
 
@@ -274,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644260.jpg" />
+  <img src="Z:/picture/008/save_picture_644260.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644034.jpg" />
+  <img src="Z:/picture/008/save_picture_644034.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644027.jpg" />
+  <img src="Z:/picture/008/save_picture_644027.jpg" />
 </div>
 
 
@@ -361,7 +419,7 @@ Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643987.jpg" />
+  <img src="Z:/picture/005/save_picture_643987.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643795.jpg" />
+  <img src="Z:/picture/008/save_picture_643795.jpg" />
 </div>
 
 
@@ -425,7 +483,7 @@ VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrum
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643658.jpg" />
+  <img src="Z:/picture/008/save_picture_643658.jpg" />
 </div>
 
 
@@ -454,7 +512,7 @@ VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643578.jpg" />
+  <img src="Z:/picture/008/save_picture_643578.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643508.jpg" />
+  <img src="Z:/picture/008/save_picture_643508.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643320.jpg" />
+  <img src="Z:/picture/005/save_picture_643320.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
+  <img src="Z:/picture/005/save_picture_643313.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643184.jpg" />
+  <img src="Z:/picture/008/save_picture_643184.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642902.jpg" />
+  <img src="Z:/picture/008/save_picture_642902.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642881.jpg" />
+  <img src="Z:/picture/008/save_picture_642881.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642704.jpg" />
+  <img src="Z:/picture/008/save_picture_642704.jpg" />
 </div>
 
 
@@ -709,7 +767,7 @@ Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar in
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642606.jpg" />
+  <img src="Z:/picture/008/save_picture_642606.jpg" />
 </div>
 
 
@@ -723,64 +781,6 @@ Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar in
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032698   (642101) от 09.07.2016
-
-Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gospel>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  How Great Thou Art    04:04
-02.  Were You There    02:58
-03.  Abide With Me    03:16
-04.  Come You Thankful People    03:11(   Читать дальше...   )Жанр: New Age, Piano, Christian & GospelПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEE4AD081B45F930CA63AADE88E55BD0B4CE68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032833   (642004) от 09.07.2016
-
-VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры, были добавлены 2 трека (Которые были в русской версии игры)01. Jungle 1
-02. Jungle 2
-03. Jungle 3
-04. Jungle 4(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

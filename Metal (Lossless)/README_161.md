@@ -1,3 +1,90 @@
+###  Публикация: 1250168   (427193) от 27.09.2018
+
+Finsterforst - Weltenkraft (2007) 2CD, Reissued, 2008 [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Des Waldes Macht (5:30)
+02-Die Suche Nach Dem Licht (6:21)
+03-Lauf Der Welt (8:10)
+04-Traumwald (5:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83EFB459F17A406573B98AADB45F9AC014126AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250169   (427191) от 27.09.2018
+
+Fortíð - Völuspá Part III: Fall of the Ages (2010) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Fornir Salir (5:55)
+02-Austursins Heimsenda Her (8:10)
+03-Fall Aldanna (4:45)
+04-Jafnvaegi Endurheimt (5:42)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E7A4D8E2345CD19300314BF52E0C844F233E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250161   (427187) от 27.09.2018
+
+Demonical - Chaos Manifesto (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Void Most Obscure
+02. Towards Greater Gods
+03. Sung to Possess
+04. Välkommen undergång(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF4C07388E5816A50B41C8F7B6967E89700217E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166337   (426919) от 16.09.2017
 
 Root - Hell Symphony (1991) [APE|Lossless|image + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Root - Hell Symphony (1991) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426919.jpg" />
+  <img src="Z:/picture/008/save_picture_426919.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Boris - Dear (2017) Deluxe Japanese Version [FLAC|Lossless|Web-DL|tracks] <Drone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426916.jpg" />
+  <img src="Z:/picture/008/save_picture_426916.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Drowning the Light - Varcolaci Rising (2017) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426879.jpg" />
+  <img src="Z:/picture/008/save_picture_426879.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Quiet Riot - Road Rage (2017) [FLAC|Lossless|tracks + .cue] <Glam Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426802.jpg" />
+  <img src="Z:/picture/008/save_picture_426802.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Draupnir - In Culpa Versari (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425980.jpg" />
+  <img src="Z:/picture/008/save_picture_425980.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Messiah - Fracmont (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425979.jpg" />
+  <img src="Z:/picture/008/save_picture_425979.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Ebony Tears - Evil As Hell (2001) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425977.jpg" />
+  <img src="Z:/picture/008/save_picture_425977.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Summoning - With Doom We Come (2018) Box Set, Deluxe Limited Edition [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425721.jpg" />
+  <img src="Z:/picture/008/save_picture_425721.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Decameron - My Shadow (1996) Reissue, 2020, 	No Fashion Records [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425608.jpg" />
+  <img src="Z:/picture/008/save_picture_425608.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Sinistral King - Serpent Uncoiling (2020) [FLAC|Lossless|image + .cue] <Black, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425607.jpg" />
+  <img src="Z:/picture/008/save_picture_425607.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Stass - The Darkside (2017) project by Felix Stass (Crematory) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425604.jpg" />
+  <img src="Z:/picture/008/save_picture_425604.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Lord - Ascendence (2007) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425345.jpg" />
+  <img src="Z:/picture/008/save_picture_425345.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Akashic - Timeless Realm (2001) [FLAC|image +.cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425264.jpg" />
+  <img src="Z:/picture/008/save_picture_425264.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Lord - Set In Stone (2009) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425258.jpg" />
+  <img src="Z:/picture/008/save_picture_425258.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Lord - Digital Lies (2013) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425254.jpg" />
+  <img src="Z:/picture/008/save_picture_425254.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Powerwolf - The Sacrament Of Sin (2018) 2CD, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424606.jpg" />
+  <img src="Z:/picture/008/save_picture_424606.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Paradise Lost - Medusa (2017) Limited Edition [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424093.jpg" />
+  <img src="Z:/picture/008/save_picture_424093.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Metonic - The Priest (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423680.jpg" />
+  <img src="Z:/picture/008/save_picture_423680.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Voodoo Gods - The Divinity of Blood (2020) [FLAC|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423677.jpg" />
+  <img src="Z:/picture/008/save_picture_423677.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Dynazty - Final Advent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423673.jpg" />
+  <img src="Z:/picture/008/save_picture_423673.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Montana Sagrada - The Living Green (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423326.jpg" />
+  <img src="Z:/picture/008/save_picture_423326.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Signs of Omnicide - Era of Omniscience (2018) [WavPack|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423325.jpg" />
+  <img src="Z:/picture/008/save_picture_423325.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Music as a Weapon II (2004) [FLAC|Lossless|WEB-DL|tracks] <Metal, Nu-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423320.jpg" />
+  <img src="Z:/picture/008/save_picture_423320.jpg" />
 </div>
 
 
@@ -658,94 +745,6 @@ VA - Music as a Weapon II (2004) [FLAC|Lossless|WEB-DL|tracks] <Metal, Nu-Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D391063642788AB23331E1D2853576D651D98C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412024   (423316) от 27.09.2020
-
-Firespawn - Abominate (2019) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gallows End (4:34)
-02. Death and Damnation (4:28)
-03. Abominate (3:42)
-04. Heathen Blood (2:53)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ACF1599C8E5344EAA7000CBE5A03EE670BA8B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411905   (423312) от 27.09.2020
-
-UADA - Djinn (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djinn
-02. The Great Mirage
-03. No Place Here
-04. In The Absence Of Matter(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95F1F944FC6F6D8865E7A08E3891CEC92781099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411957   (423310) от 27.09.2020
-
-Shrine of Malice - 4 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obyrith [00:05:19]
-02. Chainbreaker [00:04:31]
-03. The One Far Above [00:03:56]
-04. Tablet of Destinies [00:06:31](   Читать дальше...   )Жанр: Blackened Brutal Deathcore
-Страна исполнителя (группы): Las Vegas, Nevada (USA)Продолжительность: 4 CD, 03:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF224655E6E34ACAD1525818616176B8C7E711F
 ```
 
 https://mybot314.ru/tekegram_catalog/

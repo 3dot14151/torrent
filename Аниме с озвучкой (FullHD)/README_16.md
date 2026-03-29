@@ -1,3 +1,29 @@
+###  Публикация: 1544708   (526940) от 24.06.2022
+
+RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526940.jpg" />
+</div>
+
+
+###  Подробнее
+
+История начинается через 15 лет после того, как король демонов был побеждён и воцарился мир. Только что окончившая школу юная волшебница Котоне обращается в связанную с властями королевства компанию «RPG недвижимость», чтобы найти новый дом. Эта же компания становится первым местом работы Котоне. Вместе с получеловеком Фа, священницей Руфурией и воином Ракирой она (   Читать дальше...   )Производство: Япония, студия Doga KoboЖанр: комедия, фэнтезиРежиссер: Косида ТомоакиЯзык озвучки: Русский закадровый (AniStar), (AniMaunt), (AniDub)Субтитры: Русские надписи, русские, Multi-8 (софтсаб)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843466A3F27B29B8B7F2F0DC241E883E6FCF7094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543440   (526937) от 24.06.2022
 
 Игра друзей | Tomodachi Game [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526937.jpg" />
+  <img src="Z:/picture/008/save_picture_526937.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524098.jpg" />
+  <img src="Z:/picture/008/save_picture_524098.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524097.jpg" />
+  <img src="Z:/picture/008/save_picture_524097.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523309.jpg" />
+  <img src="Z:/picture/008/save_picture_523309.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522559.jpg" />
+  <img src="Z:/picture/008/save_picture_522559.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Kono Healer, Mendokusai | Don't Hurt Me, My Healer! | Этот хилер мен
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518556.jpg" />
+  <img src="Z:/picture/008/save_picture_518556.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Boku no Hero Academia the Movie: Futari no Hero | My Hero Academia the Movie: Th
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515697.jpg" />
+  <img src="Z:/picture/008/save_picture_515697.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513325.jpg" />
+  <img src="Z:/picture/008/save_picture_513325.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Gekijouban Trigun: Badlands Rumble / Trigun the Movie / Триган: Переп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509915.jpg" />
+  <img src="Z:/picture/008/save_picture_509915.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501913.jpg" />
+  <img src="Z:/picture/008/save_picture_501913.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499259.jpg" />
+  <img src="Z:/picture/008/save_picture_499259.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498379.jpg" />
+  <img src="Z:/picture/008/save_picture_498379.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Vampire Hunter D / Ди - охотник на вампиров [1985, Movie] BDr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498103.jpg" />
+  <img src="Z:/picture/008/save_picture_498103.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Gekijouban Blood-C: The Last Dark | Кровь-С: Последняя тьма [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484681.jpg" />
+  <img src="Z:/picture/008/save_picture_484681.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Big Order | Приказ свыше [2016, TV, 10] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476684.jpg" />
+  <img src="Z:/picture/008/save_picture_476684.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Canaan | Ханаан [2009, TV, 13 из 13 эп.] BDRip 1080p Hi10P raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476390.jpg" />
+  <img src="Z:/picture/008/save_picture_476390.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Aho Girl | Дурочка [2017, TV, 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474786.jpg" />
+  <img src="Z:/picture/008/save_picture_474786.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467924.jpg" />
+  <img src="Z:/picture/008/save_picture_467924.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446262.jpg" />
+  <img src="Z:/picture/008/save_picture_446262.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444482.jpg" />
+  <img src="Z:/picture/008/save_picture_444482.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444044.jpg" />
+  <img src="Z:/picture/008/save_picture_444044.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Koukaku Kidoutai S.A.C. 2nd GIG | Ghost in the Shell: Stand Alone Complex 2nd GI
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444043.jpg" />
+  <img src="Z:/picture/008/save_picture_444043.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437124.jpg" />
+  <img src="Z:/picture/008/save_picture_437124.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431317.jpg" />
+  <img src="Z:/picture/008/save_picture_431317.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Gekijouban Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426994.jpg" />
+  <img src="Z:/picture/008/save_picture_426994.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ Gekijouban Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:401061B940E80134B3435C3392A750904910A5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303264   (424979) от 09.09.2019
-
-Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 1080p rus + raw
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424979.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования (если это можно так назвать) три школьницы: Юа, Рен и Хоми, каждая из которых любит носить колготки разной толщины, от совсем прозрачных до весьма плотных.
-@kino-govno.comПроизводство: Япония, студия Yokohama Animation LabЖанр: комедия, романтикаРежиссер: Огава ЮкиЯзык озвучки: Русский Профессиональный (закадровый) | студия AmberСубтитры: русские (Zero), русские (LookerA), английские, французскиеПродолжительность: 13 эпизодов по 5 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA8CA14410704EDAE16AB66B44A6BF02005AE5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

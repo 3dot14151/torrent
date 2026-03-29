@@ -1,3 +1,90 @@
+###  Публикация: 1568407   (462097) от 08.08.2022
+
+Anathema - A Vision of a Dying Embrace (Live in Krakow 1996) (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Restless Oblivion (00:07:51)
+02 - Shroud of Frost (00:07:07)
+03 - We, The Gods (00:06:10)
+04 - Sunset of Age (00:06:45)(   Читать дальше...   )Жанр: Doom, Gothic, Death MetalПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1416833DD40020465ABF3A420B95D2717636A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568536   (462096) от 08.08.2022
+
+Oceans of Slumber - Starlight And Ash (2022) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Waters Rising (04:22)
+02. Hearts of Stone (03:56)
+03. The Lighthouse (03:34)
+04. Red Forest Roads (04:08)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730B0D8ECF90CBCC48E4D7CC4398A1A5BDFCD009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568385   (461814) от 08.08.2022
+
+Arch Enemy - Deceivers (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Handshake with Hell (5:39)
+02. Deceiver, Deceiver (3:52)
+03. In the Eye of the Storm (4:09)
+04. The Watcher (4:58)(   Читать дальше...   )Жанр: Melodic Death Metal, Heavy MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF78E5A701E77616EB29C70F01CFA956E539BAB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246460   (461417) от 11.09.2018
 
 Beyond The Black - Heart Of The Hurricane (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Female Vocal>
@@ -6,7 +93,7 @@ Beyond The Black - Heart Of The Hurricane (2018) Japanese Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461417.jpg" />
+  <img src="Z:/picture/008/save_picture_461417.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Circadian Pulse - Elements Of Existence (2018) [FLAC|Lossless|image + .cue] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461330.jpg" />
+  <img src="Z:/picture/008/save_picture_461330.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Gorgon - Titanomachy (2016) [FLAC|Lossless|image + .cue] <Sympho Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461224.jpg" />
+  <img src="Z:/picture/008/save_picture_461224.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Explorers Club - Raising the Mammoth (2002) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461223.jpg" />
+  <img src="Z:/picture/008/save_picture_461223.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Circadian Pulse - In The Blink Of An Eye (2012) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461222.jpg" />
+  <img src="Z:/picture/008/save_picture_461222.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sabbtail - Night Church (2004) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461220.jpg" />
+  <img src="Z:/picture/008/save_picture_461220.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Transience - Temple (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461219.jpg" />
+  <img src="Z:/picture/008/save_picture_461219.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Behold… The Arctopus - Hapeleptic Overtrove (2020) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460353.jpg" />
+  <img src="Z:/picture/008/save_picture_460353.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Harakiri For The Sky - Arson (2018) [FLAC|Lossless|image + .cue] <Post Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460351.jpg" />
+  <img src="Z:/picture/008/save_picture_460351.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Harakiri For The Sky - Harakiri For The Sky (2012) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460237.jpg" />
+  <img src="Z:/picture/008/save_picture_460237.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Malevolent Creation - The 13th Beast (2019) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460236.jpg" />
+  <img src="Z:/picture/008/save_picture_460236.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Apocryphus - Eternal Suffering (2019) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460084.jpg" />
+  <img src="Z:/picture/008/save_picture_460084.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Age Of Agony - Machinery of Hatred (2011) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459950.jpg" />
+  <img src="Z:/picture/008/save_picture_459950.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ April Weeps - Comma (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459946.jpg" />
+  <img src="Z:/picture/008/save_picture_459946.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Sadist - Hyaena (2015) Digipak [FLAC|Lossless|image + .cue] <Progressive Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459944.jpg" />
+  <img src="Z:/picture/008/save_picture_459944.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Sadist - Firescorched (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459941.jpg" />
+  <img src="Z:/picture/008/save_picture_459941.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ April Weeps - Outer Calm, Pain Within (2013) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459939.jpg" />
+  <img src="Z:/picture/008/save_picture_459939.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Tensile - Regression of Humanity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459937.jpg" />
+  <img src="Z:/picture/008/save_picture_459937.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ April Weeps - Cataclastic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459935.jpg" />
+  <img src="Z:/picture/008/save_picture_459935.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ My Dying Bride - Feel The Misery (2015) [FLAC|Lossless|image+.cue]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459901.jpg" />
+  <img src="Z:/picture/008/save_picture_459901.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Aposento - Retorno a la muerte (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459876.jpg" />
+  <img src="Z:/picture/008/save_picture_459876.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Rammstein - In Amerika (2015) Live from Madison Square Garden [FLAC|tracks|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459707.jpg" />
+  <img src="Z:/picture/008/save_picture_459707.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Titanium - Аtоmiс Number 22 (2016) Japanese Еdition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459706.jpg" />
+  <img src="Z:/picture/008/save_picture_459706.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Titanium - Аtоmiс Number 22 (2016) Japanese Еdition [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A4852A83890B0F71316BB56D7CD5F44B1D1C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059719   (459705) от 05.10.2016
-
-The Heretic - Chemistry For The Soul (2002) [APE|Lossless|image + .cue] <Melodic Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.- The ROllercoaster Suite
-2.- Love Is As Dreadful As Death
-3.- Diesel Motor Soul
-4.- Dead Hearts In Living Men(   Читать дальше...   )Жанр: Melodic Technical Death MetalПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935298C0BFBD4D63B735E1B4A1A448FACD62838A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059700   (459696) от 05.10.2016
-
-Leverage - Circus Colossus (2009) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise (Instrumental)
-02. Wolf and The Moon
-03. Movie Gods
-04. Worldbeater(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE5E12A8267986773128ED206173C9107E22C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059676   (459691) от 05.10.2016
-
-Symphonity - King Of Persia (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Persia
-02. The Choice
-03. In The Name Of God
-04. Flying(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3A055334DE574EB2E622AB2EE7EB1382ED57F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

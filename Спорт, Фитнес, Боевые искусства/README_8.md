@@ -1,3 +1,56 @@
+###  Публикация: 906708   (641145) от 10.06.2015
+
+Мартин Дж. Догерти | Рукопашный бой по системе спецназа (2011) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убойные приемы рукопашного боя от признанного эксперта самообороны, обладателя черного пояса по джиу-джитсу Мартина Дж.Догерти!
+То, чему обучают только в элитных войсках, теперь доступно и вам. Джебы и кроссы, хуки и апперкоты, удары по голове и по корпусу, блокирующие приемы, захваты и броски, крюки и подсечки, ведение боя из разных положений, из боксерской и борцовской (   Читать дальше...   )Жанр: СамозащитаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570D25F3598E425FC445CB8FCDEBB8FE72AA3565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142906   (639219) от 16.06.2017
+
+Joel Snape, Jon Lipsey | Ultimate Training Bible (2016) [PDF] [En]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальная Библия тренировок, написанная экспертами мужского журнала Men's Fitness, книга, которая несомненно изменит вашу жизнь к лучшему. В конце концов, каждый ищет 12-недельный план тренировок, которые приносят удивительные результаты, но редко кто задает вопрос: что происходит на 13 неделе? Эта книга отвечает на этот вопрос. Эксперты Men's Fitness собрали полное (   Читать дальше...   )Жанр: БодибилдингФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73223314AD19B43EBDA0C758E38C337F3F104A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907650   (637319) от 12.06.2015
 
 Вадим Уфимцев | Легендарные маятниковые движения. Комплексы для сотрудников спецподразделений (2009) [FB2]
@@ -6,7 +59,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637319.jpg" />
+  <img src="Z:/picture/008/save_picture_637319.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634976.jpg" />
+  <img src="Z:/picture/008/save_picture_634976.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634943.jpg" />
+  <img src="Z:/picture/008/save_picture_634943.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634656.jpg" />
+  <img src="Z:/picture/008/save_picture_634656.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633235.jpg" />
+  <img src="Z:/picture/008/save_picture_633235.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633228.jpg" />
+  <img src="Z:/picture/008/save_picture_633228.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632111.jpg" />
+  <img src="Z:/picture/008/save_picture_632111.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631882.jpg" />
+  <img src="Z:/picture/008/save_picture_631882.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629631.jpg" />
+  <img src="Z:/picture/008/save_picture_629631.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629461.jpg" />
+  <img src="Z:/picture/008/save_picture_629461.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628053.jpg" />
+  <img src="Z:/picture/008/save_picture_628053.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627932.jpg" />
+  <img src="Z:/picture/008/save_picture_627932.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627924.jpg" />
+  <img src="Z:/picture/008/save_picture_627924.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627263.jpg" />
+  <img src="Z:/picture/008/save_picture_627263.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624066.jpg" />
+  <img src="Z:/picture/008/save_picture_624066.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623418.jpg" />
+  <img src="Z:/picture/008/save_picture_623418.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623408.jpg" />
+  <img src="Z:/picture/008/save_picture_623408.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616894.jpg" />
+  <img src="Z:/picture/008/save_picture_616894.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614087.jpg" />
+  <img src="Z:/picture/008/save_picture_614087.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612295.jpg" />
+  <img src="Z:/picture/008/save_picture_612295.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ A.A.Чумаков | Школа парусного спорта [1981] [DJVU]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611453.jpg" />
+  <img src="Z:/picture/008/save_picture_611453.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610687.jpg" />
+  <img src="Z:/picture/008/save_picture_610687.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610622.jpg" />
+  <img src="Z:/picture/008/save_picture_610622.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610516.jpg" />
+  <img src="Z:/picture/008/save_picture_610516.jpg" />
 </div>
 
 
@@ -629,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:463B02098F139C5E5EE17B3B0412432EAF4B8951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912793   (608449) от 27.06.2015
-
-Н. В. Молчанова | Основы ныряния с задержкой дыхания (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии излагаются современные представления об основах фридайвинга в оригинальном освещении 16-ти кратной чемпионки мира и обладательницы 32 рекордов мира по фридайвингу Натальи Молчановой.
-Издание второе, исправленное и дополненное.Жанр: Спорт, фитнесФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE59B120CB1324C78159639579FAA6147271973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912845   (605267) от 29.06.2015
-
-М. Чибурданидзе, Г. Кузьмин | Олимпиада-90 (1991) [DJVU]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырнадцать лет находится на шахматном Олимпе Майя Чибурданидзе. Именно она и ее тренер Геннадий Кузьмин являются авторами этой книги, которая наверняка вызовет живой интерес у любителей игры, любимой на всех континентах.
-В книге рассмотрены многие партии Олимпиады-90 в Нови-Саде, даны любопытные комментарии, включая моменты «как не нужно играть», рассказано о ведущих (   Читать дальше...   )Жанр: Спорт, ШахматыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3ED31B8AE4CABB92C6BE06655AB8913EA21D1D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

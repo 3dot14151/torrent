@@ -1,3 +1,298 @@
+###  Публикация: 1635605   (197969) от 26.05.2023
+
+Piriform Recuva 1.53.2095 All Editions RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Recuva - небольшая, но весьма эффективная утилита для восстановления файлов, которые были случайно или преднамеренно удалены (потеряны) на жестких дисках компьютера, а также и съемных носителях.Язык интерфейса: Русский, английский, украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D843E4E134327A629DADE2743412BC5F39D379F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635159   (197966) от 24.05.2023
+
+Foxit PDF Editor Pro 2023.1.0.15510 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_197966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Business) - является профессиональным программным решением для создания PDF файлов.
+Помимо основной функции, утилита обладает большим количеством дополнительных возможностей, таких как шифрование, преобразование и встроенный PDF Editor.
+Программа может похвастаться интуитивно понятным интерфейсом, который (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:033BF9D35115FBC8D2E5C4D395BCA7CCDD74902C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635240   (197956) от 24.05.2023
+
+Total Commander 10.52 Extended 23.5 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_197956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность! Lite - версия отличается от старшего брата отсутствием встроенных программ.
+Total Commander Extended - это x86 и x64 версии Total Commander в одном инсталляторе. Оптимальный набор программ и плагинов. Поддерживает интеграцию дополнительных (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3F7ED07F1B2159DD1851562B7E7B409D0912C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635593   (197949) от 26.05.2023
+
+Phase One Capture One 23 Enterprise 16.2.1.1384 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phase One Capture One - один из лучших профессиональных конверторов цифровых фотографий в формате RAW он поддерживает широкий спектр современных фотокамер (Canon, Nikon, Epson, Fuji, Konica Minolta, Leica, Mamiya, Olympus, Pentax, Sony), в том числе самые последние модели, и обеспечивает конвертирование исходных снимков в формате RAW в читаемые форматы JPEG, TIFF, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E056C7C61A4342D802266BEDA4B50F8E2FF5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635679   (197947) от 26.05.2023
+
+Tixati 3.19 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tixati — это полноценный и бесплатный клиент сети BitTorrent, простой и легкий в использовании. Предоставляет пользователю расширенные возможности по управлению раздачами, как в отношении локальных файлов, так и сетевых соединений. Программа не требовательна к системным ресурсам, потребляет меньше оперативной памяти по сравнению с последними версиями µTorrent. Приятным (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16008095455BF4B876AAE90D9A83E9B653D39388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635845   (197939) от 27.05.2023
+
+AIDA64 Extreme Edition 6.88.6423 Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197939.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную проверку (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E931F4FF1A0404BD20886D080700D222345AE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635927   (197936) от 27.05.2023
+
+LIII BitTorrent Client  0.1.1.19 (Pre-Release) + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197936.jpg" />
+</div>
+
+
+###  Подробнее
+
+LIII BitTorrent Client — это утилита для обмена файлами с открытым исходным кодом, способная загружать торренты с минимальным воздействием на системные ресурсы. Программное обеспечение отличается от конкурентов минималистичным, серьезным интерфейсом и легкодоступными опциями. Наряду со стандартными функциями, LIII BitTorrent Client предлагает удобное управление загрузками, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304CAA82D44BFFCB76D6301BBC903757C17686E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635900   (197933) от 27.05.2023
+
+PotPlayer 230523 (1.7.21916) Stable + Portable (x86/x64) by SamLab [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daum PotPlayer - бесплатный мультимедийный проигрыватель, от автора KMPlayer со всеми его функциями и схожим интерфейсом, но заметно усовершенствованный. Отличительными чертами плеера является высокое качество воспроизведения, поддержка всех современных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Плеер оснащен современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068BAEF459318EBCCD58EE8B3B6456AB53941D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635835   (197916) от 27.05.2023
+
+Windows 10 (v22h2) x64 PRO by KulHunter v8 (esd) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MSDN: en-us_windows_10_consumer_editions_version_22h2_
+updated_may_2023_x64_dvd_8ae93bf4.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол SMB.
+Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD23BF78CC0E526FF82228679773CB60A22D746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635670   (197880) от 26.05.2023
+
+Everything 1.4.1.1024 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everything – это поисковый движок для Windows. Everything позволяет мгновенно находить файлы и/или папки по их именам. Для найденных результатов, в окне программы, применимы основные файловые операции доступные обычно из контекстного меню Windows Explorer. Everything не использует при работе индексирование содержимого файлов поэтому поиск происходит моментально, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D377C0E616A83E0775741DDA4A52F41EA3202E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635502   (197866) от 26.05.2023
+
+Windows 7 (3in1) x64 by Updated Edition (10.05.2023) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на базе оригинальных образов от MSDN:ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso
+ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671.iso
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso
+Интегрированы обновления по 10.05.2023г. с помощью UpdatePack7R2 от Simplix, версия 23.5.10. Присутствует поддержка NVMe и USB3. Присутствует (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C19A160DFCA7B6A93E6D231C3A812056019A646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635641   (197862) от 26.05.2023
 
 PotPlayer 230523 (1.7.21916) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
@@ -6,7 +301,7 @@ PotPlayer 230523 (1.7.21916) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197862.jpg" />
 </div>
 
 
@@ -32,7 +327,7 @@ qBittorrent 4.5.3 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197827.jpg" />
 </div>
 
 
@@ -58,7 +353,7 @@ WinToUSB Free / Pro / Enterprise / Technician 7.9 Release 1 RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197826.jpg" />
 </div>
 
 
@@ -84,7 +379,7 @@ Windows 11 Debloater 1.9.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197814.jpg" />
 </div>
 
 
@@ -110,7 +405,7 @@ Windows 10 (v22h2) x64 HSL/PRO by KulHunter v8 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197804.jpg" />
 </div>
 
 
@@ -139,7 +434,7 @@ ChrisPC Win Experience Index 7.17.25 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197803.jpg" />
 </div>
 
 
@@ -166,7 +461,7 @@ qBittorrent 4.5.3 Portable by PortableApps + Themes (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197795.jpg" />
 </div>
 
 
@@ -193,7 +488,7 @@ The Bat! Professional 10.4.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197791.jpg" />
 </div>
 
 
@@ -219,7 +514,7 @@ TreeSize Pro 9.0.0.1822 (x64) + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197767.jpg" />
 </div>
 
 
@@ -245,7 +540,7 @@ KeePassXC 2.7.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197760.jpg" />
 </div>
 
 
@@ -271,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197748.jpg" />
 </div>
 
 
@@ -297,7 +592,7 @@ Adobe InDesign 2023 18.3.0.50 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197745.jpg" />
 </div>
 
 
@@ -323,7 +618,7 @@ NVIDIA GeForce Desktop Game Ready 535.98 WHQL + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197734.jpg" />
 </div>
 
 
@@ -349,7 +644,7 @@ Windows 7 (3in1) x86 by Updated Edition (10.05.2023) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197725.jpg" />
 </div>
 
 
@@ -378,7 +673,7 @@ R-Drive Image Technician 7.1 Build 7107 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197724.jpg" />
 </div>
 
 
@@ -389,299 +684,6 @@ R-Drive Image — является эффективной утилитой дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8BB5F0B5AED1805CD36D1A85CA464754222B2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636510   (197720) от 30.05.2023
-
-78RePack 1.9.5 New (WimLib 1.14.1) Portable by conty9 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197720.jpg" />
-</div>
-
-
-###  Подробнее
-
-78RePack (утилита для конвертации архивов Wim/Esd/Swm/Rwm) это GUI для WimLib (альтернативный @MS набор библиотек для работы с wim-архивами). GUI сделан с помощью скрипта PECMD2012. Возможности утилиты: преобразование архивов Wim/Esd/Swm/Rwm, просмотр информации выбранного архива, проверка архива на целостность, распаковка архива в выбранную папку. Работает независимо (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673A56F814C94C9DBC585FA2B2C0193F33E05E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636513   (197719) от 30.05.2023
-
-The Bat! Professional 10.4 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197719.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2E1487B64DB012A402F0CE6293408158D6A0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636834   (197713) от 01.06.2023
-
-Firefox Browser ESR 102.12.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517E96641477C4DC0D5070C6C93718E4F1EEBEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636966   (197711) от 01.06.2023
-
-Psiphon 3 build 179 (01.06.2023) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CDC397E2B494F802D7366C1D5B9BAF1CB7F04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636491   (197708) от 30.05.2023
-
-Windows 11 PE x64 by Xemom1 (29.05.23) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11 PE x64 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.
-Список программ смотрите на скриншотах.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44A4FDFD1242D529ADF998529A25A898A17ABEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636952   (197697) от 01.06.2023
-
-Windows 11 PE x64 by Xemom1 (01.06.23) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11 PE x64 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.
-Список программ смотрите на скриншотах.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E32D00E742F0C4F218923C9C77E1703358302AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636863   (197693) от 01.06.2023
-
-VSDC Video Editor Pro 8.2.1.470 (x64) Portable by FC Portables [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ищете профессиональный видеоредактор, в котором сочетаются широкий функционал и низкие системные требования? Встречайте VSDC Pro.
-VSDC Pro создан для тех, кто хочет освоить нелинейный монтаж и не готов при этом работать в программах с заоблачной стоимостью. VSDC идеально подойдёт как для быстрой обработки видео, так и для создания роликов с нуля с использованием (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982F6360EAC99799EF7B9D12A89BFE56C336201D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636875   (197687) от 01.06.2023
-
-Exposure X7 7.1.7.5 (x64) [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exposure X7 сочетает в себе профессиональную настройку фотографий, огромную библиотеку великолепных изображений и эффективный дизайн, которым приятно пользоваться.
-Exposure X7 понравится всем тем, кто ценит фотоискусство, ведь теперь вы сможете очень легко изменить фотографии добавив к ним различные эффекты, например имитацию кадра из художественного фильма, а можно (   Читать дальше...   )Язык интерфейса: Английский, немецкий и др. (русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E6DFD9A544E81C353F4B5A9C78EC08C991579F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636405   (197684) от 30.05.2023
-
-Windows 7 (6in1) x86-x64 by Updated Edition (10.05.2023) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на базе оригинальных образов от MSDN:ru_windows_7_professional_with_sp1_vl_build_x86_dvd_u_677853.iso
-ru_windows_7_enterprise_with_sp1_x86_dvd_u_677692.iso
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
-ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774.iso(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6853AC2F47A3EBCF1C235CA3C6EC3653F913C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636565   (197671) от 31.05.2023
-
-qBittorrent 4.5.3 (x64) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197671.jpg" />
-</div>
-
-
-###  Подробнее
-
-qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975BF893F59AF153D8E918D872F9A663D76343F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637183   (197669) от 02.06.2023
-
-WinToHDD 6.0 Release 2 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197669.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinToHDD - программа 3-в-1, которая позволяет выполнить установку, переустановку и клонирование ОС Windows 10/8.1/8/7 без использования CD/DVD дисков или USB-флешек (нужен только ISO образ). С помощью WinToHDD можно установить операционку на любой диск, подключенный к компьютеру (кроме текущего системного).Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D43D19090651C305BD292DCF23C54C9F762AF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

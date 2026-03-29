@@ -6,7 +6,7 @@ djay - DJ App & AI Mixer 3.1.7 fix  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799489.jpg" />
+  <img src="Z:/picture/008/save_picture_799489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Serial Box & SerialSeeker/iSerial Reader 2021- 11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799488.jpg" />
+  <img src="Z:/picture/008/save_picture_799488.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799487.jpg" />
+  <img src="Z:/picture/008/save_picture_799487.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Java SE Development Kit 11.0.13 LTS [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799483.jpg" />
+  <img src="Z:/picture/008/save_picture_799483.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Autodesk AutoCAD Electrical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799480.jpg" />
+  <img src="Z:/picture/008/save_picture_799480.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Spotify 1.1.71.560 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799455.jpg" />
+  <img src="Z:/picture/008/save_picture_799455.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Firefox Browser ESR 91.3.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799448.jpg" />
+  <img src="Z:/picture/008/save_picture_799448.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Donna the Buffalo - Dance in the Street (2018) [FLAC|Lossless|tracks + .cue] <Bl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799446.jpg" />
+  <img src="Z:/picture/008/save_picture_799446.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Ant Download Manager Pro 2.4.2 Build 80118 RePack (& Portable) by xetrin [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799445.jpg" />
+  <img src="Z:/picture/008/save_picture_799445.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Firefox Browser 94.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799443.jpg" />
+  <img src="Z:/picture/008/save_picture_799443.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ ThisIsWin11 0.90.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799438.jpg" />
+  <img src="Z:/picture/008/save_picture_799438.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Minstall Portable by Nomer001 2017.04 FINAL [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799437.jpg" />
+  <img src="Z:/picture/008/save_picture_799437.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ USB 16GB Portable-Soft 02.04.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799434.jpg" />
+  <img src="Z:/picture/008/save_picture_799434.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799408.jpg" />
+  <img src="Z:/picture/008/save_picture_799408.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Bandizip 6.19 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799406.jpg" />
+  <img src="Z:/picture/008/save_picture_799406.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ BestReminder v2019.01.03.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799405.jpg" />
+  <img src="Z:/picture/008/save_picture_799405.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ CJ Rise - Lost Empire (2019) [MP3|320 Kbps] <Spacesynth, Synthwave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799400.jpg" />
+  <img src="Z:/picture/008/save_picture_799400.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Athentech Perfectly Clear Complete 3.6.3.1400 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799395.jpg" />
+  <img src="Z:/picture/008/save_picture_799395.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799393.jpg" />
+  <img src="Z:/picture/008/save_picture_799393.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Spotify 1.1.71.560 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799382.jpg" />
+  <img src="Z:/picture/008/save_picture_799382.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Serif Affinity Photo 1.10.4.1198 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799378.jpg" />
+  <img src="Z:/picture/008/save_picture_799378.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Process Hacker 3.0.4372 Nightly + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799376.jpg" />
+  <img src="Z:/picture/008/save_picture_799376.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ JetBrains Rider 2018.3.1 Build #RD-183.5253.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799366.jpg" />
+  <img src="Z:/picture/008/save_picture_799366.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Opera 57.0.3098.110 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799362.jpg" />
+  <img src="Z:/picture/008/save_picture_799362.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ 2.13.1033  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799360.jpg" />
+  <img src="Z:/picture/008/save_picture_799360.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Pixelmator Pro 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799359.jpg" />
+  <img src="Z:/picture/008/save_picture_799359.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1077001   (306787) от 28.11.2016
+
+Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306787.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. If You Don't Like Hank Williams (2:09)
+ 2. The Law Is For Protection Of The People (3:28)
+ 3. Band Introduction (1:28)
+ 4. The Pilgrim, Chapter 33 (3:27)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077171   (306601) от 28.11.2016
+
+Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All I Want for Christmas (02:51)
+02.  Baby, It's Cold Outside (03:29)
+03.  Breath of Heaven (04:41)
+04. Christmas Time Is Here (02:24)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BD4A63FEE01471B573143A2AE0C759144CC26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332802   (305513) от 24.10.2019
 
 Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
@@ -6,7 +64,7 @@ Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305513.jpg" />
+  <img src="Z:/picture/008/save_picture_305513.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Midnight Club 3 DUB Edition Remix Soundtrack (2006) [MP3|~245 кб/с (V0)]
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305469.jpg" />
+  <img src="Z:/picture/008/save_picture_305469.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Sander van Zanten - Deliver Us the Moon (Original Game Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305269.jpg" />
+  <img src="Z:/picture/008/save_picture_305269.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 1 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305197.jpg" />
+  <img src="Z:/picture/008/save_picture_305197.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304459.jpg" />
+  <img src="Z:/picture/008/save_picture_304459.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304290.jpg" />
+  <img src="Z:/picture/008/save_picture_304290.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304168.jpg" />
+  <img src="Z:/picture/008/save_picture_304168.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304167.jpg" />
+  <img src="Z:/picture/008/save_picture_304167.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304166.jpg" />
+  <img src="Z:/picture/008/save_picture_304166.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304160.jpg" />
+  <img src="Z:/picture/008/save_picture_304160.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304158.jpg" />
+  <img src="Z:/picture/008/save_picture_304158.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304155.jpg" />
+  <img src="Z:/picture/008/save_picture_304155.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303581.jpg" />
+  <img src="Z:/picture/008/save_picture_303581.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303364.jpg" />
+  <img src="Z:/picture/008/save_picture_303364.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303280.jpg" />
+  <img src="Z:/picture/008/save_picture_303280.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Ta
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303247.jpg" />
+  <img src="Z:/picture/008/save_picture_303247.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303228.jpg" />
+  <img src="Z:/picture/008/save_picture_303228.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303128.jpg" />
+  <img src="Z:/picture/008/save_picture_303128.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303089.jpg" />
+  <img src="Z:/picture/008/save_picture_303089.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Bale
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302838.jpg" />
+  <img src="Z:/picture/008/save_picture_302838.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Eas
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302765.jpg" />
+  <img src="Z:/picture/008/save_picture_302765.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302656.jpg" />
+  <img src="Z:/picture/008/save_picture_302656.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302640.jpg" />
+  <img src="Z:/picture/008/save_picture_302640.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302173.jpg" />
+  <img src="Z:/picture/008/save_picture_302173.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846600   (301941) от 02.12.2014
-
-Иван Купала - Звездная Серия (2001) [MP3|320 кб/с]<Folk, Electronic, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:40)
-02. Коляда (04:15)
-03. Брови (Fiesta Mix) (03:33)
-04. Виноград (03:38)(   Читать дальше...   )Жанр: Folk, Electronic, CountryПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15703C6A1D6F435CB372E5ED3A543AD3B8341EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333403   (301447) от 26.10.2019
-
-Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [MP3|320 кб/с]<Soundtrack, Electronic, New Wave>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Was Our House (From "Breathing") (02:01)
-02. Where Did You Go (04:05)
-03. Breathing (02:50)
-04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141378520F75BB3E46C284416AC333B32D906D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

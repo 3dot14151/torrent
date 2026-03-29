@@ -1,3 +1,148 @@
+###  Публикация: 1798611   (17245) от 23.05.2025
+
+John Lennon - Acoustic (2004) Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acoustic - сборник демо-записей, студийных и живых выступлений John Lennon'а, в которых он использовал акустическую гитару, выпущенный в 2004 году. Хотя он не попал в чарты в Великобритании, Acoustic достиг 31-го места в Соединенных Штатах, став лучшим посмертным релизом John Lennon'а в США с момента выхода в 1988 году саундтрека Imagine: John Lennon. Он продержался (   Читать дальше...   )01. Working Class Hero (4:00)
+02. Love (2:32)
+03. Well Well Well (1:17)
+04. Look at Me (2:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA0639A67C3594CFBEF9E5533C8D1AB045B06BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810823   (16841) от 06.08.2025
+
+38 Special - Extended Versions: The Encore Collection (2000) [FLAC|Lossless|tracks + .cue] <Classic Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin’ Into the Night (4:54)
+02. Twentieth Century Fox (4:02)
+03. Back Where You Belong (4:31)
+04. Wild‐Eyed Southern Boys (5:20)(   Читать дальше...   )Жанр: Classic Rock, Southern RockПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCAB8AAD282410C9DAA9EB2B6D50A9544B1C9C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799452   (16699) от 27.05.2025
+
+VA - Rock Klassiker (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Green Day - American Idiot (2:54)
+02.  Deep Purple - Hush (2014 Remaster) (4:24)
+03.  Skillet - Hero (3:07)
+04.  Jet - Are You Gonna Be My Girl (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1935CF577DCF5CBF27F93BC95C48686B4C201E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811003   (16692) от 07.08.2025
+
+Good Charlotte - Motel Du Cap (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Check in at Motel Du Cap (01:45)
+ 02 - Rejects (02:55)
+ 03 - Stepper (03:17)
+ 04 - I Don’t Work Here Anymore (03:41)(   Читать дальше...   )Жанр: Alt. Rock, Pop PunkПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A325A1952BD9CD00F97EC92C94E584170F72335E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799450   (16669) от 27.05.2025
+
+VA - Pride Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Linkin Park - The Emptiness Machine (3:10)
+02.  Halestorm - Get Lucky (3:09)
+03.  GAYLE - abcdefu (2:49)
+04.  Lizzo - Love in Real Life (2:34)(   Читать дальше...   )Жанр: RockПродолжительность: 03:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995AF51FF9EF7DC11CA086EB8B3EFBA596B6E62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799444   (16655) от 27.05.2025
 
 VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Las Mejores Baladas del Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16655.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16605.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Suzi Quatro - If You Knew Suzi… (1978) 2017 Remaster, Chrysalis Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16521.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Paul McCartney - McCartney II (1980) Japanese Edition, SHM-CD, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15859.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Rolling Stones - Studio Albums 28, Live 37, Compilations 42, Singles 16, Box
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15709.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Paul McCartney - Tug Of War (1982) Japanese Edition, SHM-CD, Reissue, Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15630.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Paul McCartney - Pipes Of Peace (1983) Japanese Edition, SHM-CD, Reissue, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15575.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Jeff Lynne's ELO - Wembley or Bust (2017) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15573.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Foreigner - Extended Versions (2011) Compilation [FLAC|Lossless|image + .cue] <S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15542.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Paul McCartney - Снова В СССР (1988) Japanese Edition, SHM-CD, Reissue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15345.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Chicago - Greatest Hits 1982-1989 (1989) CD, Compilation, Club Edition [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15339.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Paul McCartney - Flowers In The Dirt (1989) Japanese Edition, SHM-CD, Reissue, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15153.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Caught In Action - Out Of The Cold (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15035.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Bon Jovi - Bon Jovi + 7800° Fahrenheit (1999) Compilation, Reissue, 2009, Unive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15027.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Queen - Epic (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14752.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14726.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14725.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14716.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ ELO - Balance of Power (1986) 2007 Remastered + 7 Bonus Tracks, Sony BMG [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14514.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13799.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13683.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEFCA9CFDB398192BC013110A188FE520B2E9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804066   (13285) от 27.06.2025
-
-Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attention (03:48)
- 02. Some Kind of Feeling (04:44)
- 03. What I've Been Looking (05:15)
- 04. Sharp Dressed Man (02:46)(   Читать дальше...   )Жанр: Pop Rock, Blues RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED368C480F71A6E4FD8F442E067CB52B4A8F21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804126   (13258) от 27.06.2025
-
-Jakko Jakszyk - Son Of Glen (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ode to Ballina
-02. Somewhere Between then and Now
-03. How Did I Let You Get So Old?
-04. This Kiss Never Lies(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59D8CBE7E7C9F177DD11CE3B5FC682DAB6E94E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804173   (13141) от 28.06.2025
-
-Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hammer To Fall (Remastered 2011) [4:26]
-02 - One Vision (Remastered 2011) [5:12]
-03 - I'm In Love With My Car (Remastered 2011) [3:06]
-04 - Keep Yourself Alive (2024 Mix) [3:46](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CC6B92978F735791D24D3657FAFDEAC7671110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804510   (12945) от 30.06.2025
-
-Wilco - Being There (1996) Reissue, Remastered, Deluxe Edition, Box Set, 2017, Reprise Records [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Country Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Misunderstood [6:30]
-02 - Far, Far Away [3:21]
-03 - Monday [3:33]
-04 - Outtasite (Outta Mind) [2:35](   Читать дальше...   )Жанр: Rock, Alternative Rock, Country Rock, AcousticПродолжительность: 03:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F10D7C9CD97590460B76625A8EE44A18A59786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804911   (12646) от 03.07.2025
-
-Bruce Springsteen - Lost And Found (Selections From The Lost Albums) (2025) Compilation [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12646.jpg" />
-</div>
-
-
-###  Подробнее
-
-from LA Garage Sessions '83:
-01 - Follow That Dream [3:54]
-02 - Seven Tears [1:52]
-03 - Unsatisfied Heart [5:46](   Читать дальше...   )Жанр: Folk Rock, Pop Rock, RockПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9B35366E30B8E7B7C2F9FB509451F71575718
 ```
 
 https://mybot314.ru/tekegram_catalog/

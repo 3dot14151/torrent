@@ -1,3 +1,32 @@
+###  Публикация: 1622910   (1029809) от 30.03.2023
+
+The Who & Isobel Griffiths Orchestra - Live At Wembley (2023) 2CD [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ball And Chain [04:37]
+02. The Real Me [04:12]
+03. I'm One [02:56]
+04. The Punk And The Godfather [05:12](   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F45C563D847CDF709D0E688AE2B8BC5C8063902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622566   (1029785) от 30.03.2023
 
 Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
@@ -6,7 +35,7 @@ Ville Valo - Neon Noir (2023) [MP3|320 Kbps] <Gothic-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029785.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Die Vision - Torture (серия "Другие восьмидесятые") (199
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029731.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ New Candys - Vyvyd (2021) [MP3|320 Kbps] <Alternative Rock, Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029627.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alice Cooper - Detroit Stories (2021) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029315.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ SBB - Live Cuts: Enger 1977 (2022)[MP3|320 Kbps] <Rock, Prog Rock, Fusion, Jazz 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029231.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Santiano - Sea Shanty – Wellerman (2021) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027956.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027939.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027726.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027712.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027399.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Utopia Press - Utopia Press (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027250.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Van-Zant - Van-Zant (1985) Reissue, 1997, Unidisc [MP3|320 Kbps] <AOR, Melodic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027245.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Benjamin Orr - The Lace (1986) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027237.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Arc Angel - Arc Angel (1983) Reissue, 1990, Portrait [MP3|320 Kbps] <AOR, Melodi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027108.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Tane Cain - Tane Cain (1982) Reissue, 2015, Rock Candy [MP3|320 Kbps] <AOR, Melo
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027103.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Chez Kane - Chez Kane (2021) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026952.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Blackmore's Night - Nature's Light (2021) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026925.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sea Mouse - Tropical Fish (2021) [MP3|320 Kbps] <Sea Mouse, Rock, Alternative Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026775.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Popa Chubby - Tinfoil Hat (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026562.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Shawn Pittman - Stompin' Solo (2021) [MP3|320 Kbps] <Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026451.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Toby Jepson - Viewfinder (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026438.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ King Kong - King Kong (1981) LP [MP3|320 Kbps] <Electronic, Blues Rock, Krautroc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026230.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025839.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Ne
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025825.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (202
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025799.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455371   (1025646) от 19.03.2021
-
-U.D.O. - Live In Bulgaria (2020) Pandemic Survival Show, 2021 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tongue Reaper (Live) [00:04:37]
-02 - Make the Move (Live) [00:05:37]
-03 - Midnight Mover (Live) [00:03:23]
-04 - Wrong Side of Midnight (Live) [00:04:32](   Читать дальше...   )Жанр: RockПродолжительность: 02:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD55143E6A0E02CE1BF7E086D55C542EB796DA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

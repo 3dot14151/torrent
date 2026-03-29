@@ -6,7 +6,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17442.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17230.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14865.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7128.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77606.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cephei MC - Beat and Piano (Сборник красивой и чувствен�
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77161.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75516.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71822.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71820.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69368.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, F
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67761.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66542.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Chillhop Essentials Summer (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66168.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66061.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ SanMinor - The Remix (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Rap, Hip Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66054.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66010.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, P
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65965.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossles
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65949.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65945.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65922.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65841.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <R
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65809.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Macan - Bratland (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65122.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ UB40 - UB45 (2024) [MP3|320 Kbps] <Reggae, Ska>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59192.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ White Hot Ice - Rastaman (2007) [WavPack|Lossless|image + .cue] <HipHop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58972.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ UB40 - UB45 (2024) [FLAC|Lossless|image + .cue] <Reggae>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58139.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Ghostface Killah - Set The Tone (Guns & Roses) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56778.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, 
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54992.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54986.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53106.jpg" />
 </div>
 
 

@@ -1,3 +1,114 @@
+###  Публикация: 1074985   (336239) от 20.11.2016
+
+SSH Config Editor 1.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования  с графическим предварительным просмотром ), а также любой другой вариант SSH конфигурации.
+
+Особенности:
+• Добавление / изменение файлы удостоверений(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 ноября 2016Разработчик: Petr HejkalПоддерживаемая ОС: macOS10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FB910FB7463B1528DD10F1ACD0E3EA970A2454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420125   (335897) от 30.10.2020
+
+Slidepad 1.0.37 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335897.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575FA95204BB06C23FA93F275C76D34B36E49EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420129   (335895) от 30.10.2020
+
+Usher 2.0 Beta 4566 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
+С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2020Разработчик: Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9999B3ADA3417F876AE529647795F079A621FD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420045   (335824) от 30.10.2020
+
+Nova 2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.14.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42B885438E2CA2065509A32C750BFE37D045B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419954   (335822) от 30.10.2020
 
 Money Pro - Personal Finance 2.6.2 [Multi/Ru]
@@ -6,7 +117,7 @@ Money Pro - Personal Finance 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335822.jpg" />
+  <img src="Z:/picture/008/save_picture_335822.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ FontExplorer X Pro 7 v7.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335818.jpg" />
+  <img src="Z:/picture/008/save_picture_335818.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ Wondershare UniConverter 12.0.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335705.jpg" />
+  <img src="Z:/picture/008/save_picture_335705.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ Debit & Credit - Учет финансов 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335594.jpg" />
+  <img src="Z:/picture/008/save_picture_335594.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ Downie 3.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335591.jpg" />
+  <img src="Z:/picture/008/save_picture_335591.jpg" />
 </div>
 
 
@@ -145,7 +256,7 @@ VueScan Pro 9.5.91 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335471.jpg" />
+  <img src="Z:/picture/008/save_picture_335471.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ Money Pro 1.8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335460.jpg" />
+  <img src="Z:/picture/008/save_picture_335460.jpg" />
 </div>
 
 
@@ -200,7 +311,7 @@ MiniTube 2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335366.jpg" />
+  <img src="Z:/picture/008/save_picture_335366.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ Disk Drill Enterprise 4.0.130 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335355.jpg" />
+  <img src="Z:/picture/008/save_picture_335355.jpg" />
 </div>
 
 
@@ -254,7 +365,7 @@ Beyond Compare 4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335293.jpg" />
+  <img src="Z:/picture/008/save_picture_335293.jpg" />
 </div>
 
 
@@ -283,7 +394,7 @@ Downcast 2.9.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335123.jpg" />
+  <img src="Z:/picture/008/save_picture_335123.jpg" />
 </div>
 
 
@@ -311,7 +422,7 @@ PullTube 1.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335122.jpg" />
+  <img src="Z:/picture/008/save_picture_335122.jpg" />
 </div>
 
 
@@ -337,7 +448,7 @@ Artstudio Pro 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335121.jpg" />
+  <img src="Z:/picture/008/save_picture_335121.jpg" />
 </div>
 
 
@@ -363,7 +474,7 @@ Swinsian 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335120.jpg" />
+  <img src="Z:/picture/008/save_picture_335120.jpg" />
 </div>
 
 
@@ -392,7 +503,7 @@ Amadeus Pro 2.6.2 (2217) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335119.jpg" />
+  <img src="Z:/picture/008/save_picture_335119.jpg" />
 </div>
 
 
@@ -418,7 +529,7 @@ JixiPix Spektrel Art 1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335118.jpg" />
+  <img src="Z:/picture/008/save_picture_335118.jpg" />
 </div>
 
 
@@ -444,7 +555,7 @@ VirtualHostX 8 v8.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335117.jpg" />
+  <img src="Z:/picture/008/save_picture_335117.jpg" />
 </div>
 
 
@@ -472,7 +583,7 @@ Folder-Factory 5.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335115.jpg" />
+  <img src="Z:/picture/008/save_picture_335115.jpg" />
 </div>
 
 
@@ -501,7 +612,7 @@ MacX MediaTrans 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335006.jpg" />
+  <img src="Z:/picture/008/save_picture_335006.jpg" />
 </div>
 
 
@@ -529,7 +640,7 @@ RightFont 5 v5.7.0 (2726)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335005.jpg" />
+  <img src="Z:/picture/008/save_picture_335005.jpg" />
 </div>
 
 
@@ -556,7 +667,7 @@ JixiPix Hand Tint Pro 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335003.jpg" />
+  <img src="Z:/picture/008/save_picture_335003.jpg" />
 </div>
 
 
@@ -582,7 +693,7 @@ iMazing 2.12.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334939.jpg" />
+  <img src="Z:/picture/008/save_picture_334939.jpg" />
 </div>
 
 
@@ -594,116 +705,6 @@ iMazing - отличная альтернатива iTunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76F9266B16C46A0C956334F5C6E4A8B9AA6CF7F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331111   (334856) от 13.10.2019
-
-Macsome iTunes Converter 2.4.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все айдио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
-Macsome iTunes Music Converter позволяет преобразовывать M4P в MP3, конвертировать Аудиокниги, AAC в MP3 а так же из M4P в AAC (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE6B5D071BEA5C5B5DA13831148A459AC4F02A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331125   (334846) от 13.10.2019
-
-Ummy Video Downloader 1.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ummy Video Downloader – для быстрого скачивания любого видео с YouTube. Ummy Video Downloader поможет Вам сохранить ролик YouTube на компьютер как в одном из популярных форматов видео, так и в аудио. Вы сможете сохранять в локальную папку любой ролик в доступном для него формате и качестве. В любое время Вы сможете просмотреть и прослушать сохраненный материал, даже (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.2019Разработчик: UmmySoftПоддерживаемая ОС: OS X 10.9 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C66BA1D5B8E91763D8716B5473103C790D2FC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331062   (334845) от 13.10.2019
-
-Commander One PRO Pack 2 v2.3 (3105) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
-
-Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3325273F7CB7331B591D6EF9C63D80B424445037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258702   (334711) от 31.10.2018
-
-SpamSieve 2.9.34 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
-
-Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04332B3EE0FB7024203E6C0965B5DBD8A4D4EB1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 935318   (498961) от 08.09.2015
+
+Onikira - Demon Killer (2015) [En] (1.0) License RELOADED
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра в стиле beat'em up с элементами двухмерного сайд-скроллинга, расскажет о вымышленных событиях времен феодализма в Японии. Вам предстоит вжиться в шкуру мужественного бойца, который неустанно сражается с силами мертвецов, норовящих попасть в людской мир.Тип издания: ЛицензияРазработчик: Digital Furnace GamesЖанр: Arcade (Platform)Язык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BDCBACF5C9EF0350D96DE7632D8CFF87A1A4FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935595   (498124) от 09.09.2015
+
+Leo’s Fortune - HD Edition (2015) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leo’s Fortune - это платформенная приключенческая игра, в которой вы выслеживаете загадочного и коварного вора, укравшего ваше золото. Прекрасно прорисованные уровни делают приключение Лео по-настоящему реалистичным. "Я вернулся домой и увидел, что мое золото украдено! С какой-то странной целью вор рассыпал мои монеты в лесу, как крошки хлеба. Несмотря на то, (   Читать дальше...   )Тип издания: ЛицензияРазработчик: 1337 & Senri ABЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французcкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французcкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76E5B35B81ED86B59A5016753E1615C3183BEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565614   (491820) от 24.07.2022
 
 Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
@@ -6,7 +58,7 @@ Platypus Adventures (2022) [En] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491820.jpg" />
+  <img src="Z:/picture/008/save_picture_491820.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485592.jpg" />
+  <img src="Z:/picture/008/save_picture_485592.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack R.G. Alkad
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484446.jpg" />
+  <img src="Z:/picture/008/save_picture_484446.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Blade Kitten (2010) [En/Multi] (1.0/dlc) RePack Let'sPlay [Re-Release Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483193.jpg" />
+  <img src="Z:/picture/008/save_picture_483193.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Messenger (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481514.jpg" />
+  <img src="Z:/picture/008/save_picture_481514.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Dark Matter (2013) [Ru/En/Ge] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471270.jpg" />
+  <img src="Z:/picture/008/save_picture_471270.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Selma and the Wisp (2016) [Ru/Multi] (1.0/u2/dlc) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461460.jpg" />
+  <img src="Z:/picture/008/save_picture_461460.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) License GOG [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454301.jpg" />
+  <img src="Z:/picture/008/save_picture_454301.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Tiny Echo (2017) [En] (1.0) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454237.jpg" />
+  <img src="Z:/picture/008/save_picture_454237.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Gateways (2012) [En] (1.15) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450216.jpg" />
+  <img src="Z:/picture/008/save_picture_450216.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Teslagrad (2015) [Ru/Multi] (1.4.1) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448822.jpg" />
+  <img src="Z:/picture/008/save_picture_448822.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Small Tanks [En] (RePack) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445431.jpg" />
+  <img src="Z:/picture/008/save_picture_445431.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Deadlings: Rotten Edition (2014) [Ru/Multi] (0.0.51) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439558.jpg" />
+  <img src="Z:/picture/008/save_picture_439558.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Monkey King: Master of the Clouds (2018) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435130.jpg" />
+  <img src="Z:/picture/008/save_picture_435130.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ BLACKHOLE (2015) [Ru/Multi] (1.11/dlc) Repack R.G. Catalyst [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434626.jpg" />
+  <img src="Z:/picture/008/save_picture_434626.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432476.jpg" />
+  <img src="Z:/picture/008/save_picture_432476.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Lost in Play (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431261.jpg" />
+  <img src="Z:/picture/008/save_picture_431261.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cut the Rope [Ru/Multi4] (L) 2012
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430427.jpg" />
+  <img src="Z:/picture/008/save_picture_430427.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Hollow Knight (2017) [Ru/Multi] (1.4.3.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426282.jpg" />
+  <img src="Z:/picture/008/save_picture_426282.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Lost Socks: Naughty Brothers (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422943.jpg" />
+  <img src="Z:/picture/008/save_picture_422943.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Odallus: The Dark Call (2015) [Ru/Multi] (1.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422826.jpg" />
+  <img src="Z:/picture/008/save_picture_422826.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ The Misadventures of P.B. Winterbottom [Ru/Multi6] (RePack) 2010 | NSIS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418408.jpg" />
+  <img src="Z:/picture/008/save_picture_418408.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Castle Crashers (2012) [Ru/Multi] (2.1/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415216.jpg" />
+  <img src="Z:/picture/008/save_picture_415216.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Overloop (2022) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414009.jpg" />
+  <img src="Z:/picture/008/save_picture_414009.jpg" />
 </div>
 
 
@@ -618,62 +670,6 @@ Overloop (2022) [En] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E25326CF7984E1727037E43709512D80E03E388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562862   (404263) от 21.10.2012
-
-Rocketbirds: Hardboiled Chicken [En/Multi11] (L) 2012 | TiNYiSO
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404263.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-мерный экшн-платформер с петухом-коммандосом, противостоящим режиму пингвинов.
-
-Rocketbirds: Hardboiled Chicken наследует браузерную игру Rocketbirds: Revolution!, обогащаясь 4-мя новыми уровнями, заставками, дополнительным оружием и совместной кампанией. Действие происходит в Альбатрополисе – стране птиц, управляемой тоталитарным режимом пингвинов. Игрок управляет крутым петухом, желающим ликвидировать правителя Путцки.
- В ходе миссии протагонист раскрывает секреты своего прошлого и выявляет реальных врагов Альбатрополиса. В одиночном режиме нужно уничтожать врагов, используя находимое оружие (пистолет, автомат, дробовик, гранаты и др.). Имеются головоломки и секции с полетом
- на реактивном рюкзаке (джетпаке).(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Ratloop AsiaЖанр: Платформер, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Multi11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB28071F1B1EFE0D65FE309C093E415AFCDC95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171101   (397335) от 03.10.2017
-
-Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Torchlight и Torchlight II представляют Hob — захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос.Тип издания: LicenseРазработчик: Runic GamesЖанр: Action, Arcade, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

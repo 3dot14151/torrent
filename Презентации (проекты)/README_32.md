@@ -1,3 +1,107 @@
+###  Публикация: 919068   (582691) от 19.07.2015
+
+Проекты - VideoHive - Minimal and Essential Portfolio [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите показать свои видео в очень удобном и простом портофолио ?? Тогда проект "Minimal and Essential Portfolio" для вас. PDF файл помощи включен.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFE318F6F93E415AE3D8E51549FC5C40CE334EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919721   (579932) от 22.07.2015
+
+Проекты - VideoHive - Funky Show Intro [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Funky Show Intro - это полезное и краткое вступление. Идеально подходит для веб-сериалов и шоу ! Есть аудио-бонус с разнообразием треков для этого проекта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B4AC1C6759AE0723922DB74EE274D1DA3E7F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919913   (579927) от 22.07.2015
+
+Проекты - VideoHive - Fashion And Stone [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0FA84D97915769D1CCA2708200985625CCA6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919477   (579918) от 22.07.2015
+
+Проекты - VideoHive - Dynamic Opener - 10855672 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic Opener - элегантный проектик для начала вашего фильма, или рекламы в динамическом стиле. Обучение включено.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C03445060D9D1192EF8FA930F380A298BC2F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919409   (579745) от 22.07.2015
 
 Проекты - VideoHive - Women Awards Package - 8127877 [AEP]
@@ -6,7 +110,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579745.jpg" />
+  <img src="Z:/picture/008/save_picture_579745.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578192.jpg" />
+  <img src="Z:/picture/008/save_picture_578192.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577984.jpg" />
+  <img src="Z:/picture/008/save_picture_577984.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ VideoHive - Magazine Animation Pro - 3410790 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577939.jpg" />
+  <img src="Z:/picture/008/save_picture_577939.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577831.jpg" />
+  <img src="Z:/picture/008/save_picture_577831.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577641.jpg" />
+  <img src="Z:/picture/008/save_picture_577641.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577412.jpg" />
+  <img src="Z:/picture/008/save_picture_577412.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Pond5 - Business Presentation 13 - 37218574 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576215.jpg" />
+  <img src="Z:/picture/008/save_picture_576215.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575980.jpg" />
+  <img src="Z:/picture/008/save_picture_575980.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575974.jpg" />
+  <img src="Z:/picture/008/save_picture_575974.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575615.jpg" />
+  <img src="Z:/picture/008/save_picture_575615.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575603.jpg" />
+  <img src="Z:/picture/008/save_picture_575603.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575275.jpg" />
+  <img src="Z:/picture/008/save_picture_575275.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575270.jpg" />
+  <img src="Z:/picture/008/save_picture_575270.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575199.jpg" />
+  <img src="Z:/picture/008/save_picture_575199.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574110.jpg" />
+  <img src="Z:/picture/008/save_picture_574110.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574085.jpg" />
+  <img src="Z:/picture/008/save_picture_574085.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573359.jpg" />
+  <img src="Z:/picture/008/save_picture_573359.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ Videohive - Creative Video Wall Presentation [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572431.jpg" />
+  <img src="Z:/picture/008/save_picture_572431.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572303.jpg" />
+  <img src="Z:/picture/008/save_picture_572303.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572296.jpg" />
+  <img src="Z:/picture/008/save_picture_572296.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572172.jpg" />
+  <img src="Z:/picture/008/save_picture_572172.jpg" />
 </div>
 
 
@@ -575,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80632517E03B5B95820F0662416C6D47D0FC0CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043177   (572013) от 16.08.2016
-
-Проекты - Motion Array -  Newspaper Opener - 13918 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Newspaper Opener - газетная открывалка является идеальным интро для новостей, рекламы и многого другого. Это хороший способ, чтобы отобразить некоторые заголовки в вашем основном материале. Просто перетащите изображения или видео, измените текст и цвета. Этот шаблон вмещает 28 изображений или видео заполнителей и 36 названий. Наслаждайтесь!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DEB669B81403521AEA832312CBA54897AB5E15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043169   (572007) от 16.08.2016
-
-Проекты - Motion Array - Dynamic Promo - 13660 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Promo - идеально подходит для презентаций, промо или любой видео-заставки, для которых необходим энергичный стиль. Просто перетащите изображения или видео, измените текст, редактируйте цвета и визуализируйте. Проект включает 30 изображений или видео держателей и 7 редактируемых текстовых строк, которые вы можете легко изменить.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6DA8F538257A5E78776265696A0FF6D56D5203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921264   (571508) от 27.07.2015
-
-Проекты - VideoHive - DVD Case Advertisement [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феерическая презентация вашего DVD-диска.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B5F83567274CAA97BC6743DDB7B77A601B37CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043728   (570477) от 17.08.2016
-
-Проекты - RocketStock - Medley [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Medley - это яркая рекламная анимация, которая идеально подходит для демонстрации продукции или продвижения услуг. Этот шаблон включает в себя невероятное количество вставок (110) для изображений или видео-слайдов, чтобы продемонстрировать Ваши товары или возможности Ваших услуг. Помимо этого шаблон имеет 16 блоков для титров, что бы Вы имели возможность не только (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2340D58C3BEE47F992DE281791E5702E0F68E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

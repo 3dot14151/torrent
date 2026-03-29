@@ -1,3 +1,110 @@
+###  Публикация: 329556   (709222) от 29.04.2011
+
+AMD Catalyst 11.4 [Multilanguage+Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709222.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMD выпустила новую версию драйвера Catalyst 11.4 WHQL. Этот выпуск поддерживает видеокарты серий Radeon HD 2000, HD 3000, HD 4000, HD 5000 и HD 6000, а также чипсеты Radeon 3000 и 4000.Язык интерфейса: Multilanguage+Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025607   (709178) от 12.06.2016
+
+Autodesk AutoCAD 2017 HF3 x86-x64 RUS-ENG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709178.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544238C7AE9E51CFF996877F666410DE1A268336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286764   (708722) от 04.03.2019
+
+Сколько россияне тратят на бензин
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_708722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше всего россиян - 42 процента - тратят на бензин в месяц свыше 4 тысяч рублей. К такому выводу пришли эксперты аналитического агентства "Автостат", проведя онлайн-опрос российских автомобилистов. Примерно каждый пятый (20,6 процента) ежемесячно выделяет из своего бюджета на топливо от 3 до 4 тысяч рублей, а почти каждый шестой (17,2 процента) - от (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286749   (708608) от 04.03.2019
+
+Ярослав Брин | Фитнес модель за 4 месяца - 5.0 (2018) HDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговый Видео - Тренинг по Вашему Преображению.
+За 4 месяца произойдет самая Яркая и Адски Тяжелая трансформация вашего тела и сознания.
+Никаких соплей из Рубрики Полюби себя такой, какая ты есть, Хорошего человека должно быть много, Главное Внутренний мир.
+Это мы оставим психологам, торговцам шаурмой и продавцам из магазина одежды больших размеров.Производство: РоссияЖанр: Видеотренинг по жиросжиганиюПродолжительность: 69:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6AF9EFB49CBC2F9836B5CEA199BF58E6799C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 894115   (708540) от 01.05.2015
 
 Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7147.5001 SP2 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +113,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7147.5001
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708540.jpg" />
+  <img src="Z:/picture/008/save_picture_708540.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Assassin’s Creed Chronicles: China / Китай (2015) [Ru/Multi] (1.0.10897.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708534.jpg" />
+  <img src="Z:/picture/008/save_picture_708534.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708532.jpg" />
+  <img src="Z:/picture/008/save_picture_708532.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Remote Desktop Manager Enterprise 2022.1.13.0 + Portable  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708495.jpg" />
+  <img src="Z:/picture/008/save_picture_708495.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708327.jpg" />
+  <img src="Z:/picture/008/save_picture_708327.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708319.jpg" />
+  <img src="Z:/picture/008/save_picture_708319.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ Adobe After Effects CC 2017.2 14.2.0.198 Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708263.jpg" />
+  <img src="Z:/picture/008/save_picture_708263.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708262.jpg" />
+  <img src="Z:/picture/008/save_picture_708262.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708257.jpg" />
+  <img src="Z:/picture/008/save_picture_708257.jpg" />
 </div>
 
 
@@ -240,7 +347,7 @@ Sygic: GPS Navigation v16.4.14 + полный комплект карт 215 ст
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708253.jpg" />
+  <img src="Z:/picture/008/save_picture_708253.jpg" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707853.jpg" />
+  <img src="Z:/picture/005/save_picture_707853.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707789.jpg" />
+  <img src="Z:/picture/005/save_picture_707789.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.6 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707665.jpg" />
+  <img src="Z:/picture/008/save_picture_707665.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Update 04.2018 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707656.jpg" />
+  <img src="Z:/picture/008/save_picture_707656.jpg" />
 </div>
 
 
@@ -374,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707652.jpg" />
+  <img src="Z:/picture/008/save_picture_707652.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.6 Build 1590 Stable + Portable
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707224.jpg" />
+  <img src="Z:/picture/008/save_picture_707224.jpg" />
 </div>
 
 
@@ -426,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706561.jpg" />
+  <img src="Z:/picture/008/save_picture_706561.jpg" />
 </div>
 
 
@@ -452,7 +559,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.2) SteamRip Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706463.jpg" />
+  <img src="Z:/picture/008/save_picture_706463.jpg" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705749.jpg" />
+  <img src="Z:/picture/008/save_picture_705749.jpg" />
 </div>
 
 
@@ -504,7 +611,7 @@ macOS Sierra 10.12 Developer Preview (16A201w) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705281.jpg" />
+  <img src="Z:/picture/008/save_picture_705281.jpg" />
 </div>
 
 
@@ -532,7 +639,7 @@ The Chronicles of Riddick: Assault on Dark Athena / Хроники Риддик�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705275.jpg" />
+  <img src="Z:/picture/008/save_picture_705275.jpg" />
 </div>
 
 
@@ -558,7 +665,7 @@ Homeworld Remastered Collection (2015) [Ru/Multi] (2.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705273.jpg" />
+  <img src="Z:/picture/008/save_picture_705273.jpg" />
 </div>
 
 
@@ -569,111 +676,6 @@ Homeworld Remastered Collection, переиздание классической
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0EDA965AAADA49F488B460F9D232DE0DCC98CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287181   (705061) от 06.03.2019
-
-"Матвиенко предложила регулярно замерять индекс счастья россиян."
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_705061.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Спикер Совета Федерации Валентина Матвиенко заявила, что уровень счастья россиян нужно замерять каждый год.Как пишет Интерфакс, эти исследования помогут выяснить насколько люди стали более счастливы в результате действий и решений властей. То есть, организовать своеобразное «министерство счастья».«Так делают Арабские Эмираты. Ведь у них любое решение, которое (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330981   (704977) от 01.05.2011
-
-Grand Theft Auto: Vice City [Ru/En] (RePack) 2003 | R.G. NoLimits-Team GameS
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Город Порока — Vice City, огромный людской муравейник, где есть все: золотые пляжи и зловонные болота, блеск и нищета, дворцы и трущобы. Самый громкий хит года, Vice City позволит вам заглянуть в яркий, полный черного юмора и насилия преступный мир гигантского мегаполиса, чрезвычайно напоминающего Майами. Теперь и у вас есть шанс пройти путь от обычного уличного вышибалы до представителя элиты преступного мира.
-Прибыв в мегаполис, полный соблазнов и наслаждений, главный герой Томми Верчетти теряет все в первой же сделке. Он хочет получить назад свои деньги, но на его пути встают банды байкеров, кубинские гангстеры и продажные политики. Похоже, весь Vice City ополчился против Томми. Остается только одно: отвечать ударом на удар — и, в конце концов, прибрать город к рукам!Тип издания: RepackЖанр: Action (Shooter) / Arcade / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1084AC6449F9D2193270323BE14B9FD9B9AAE6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286884   (704689) от 06.03.2019
-
-Android 9 сделали доступным на десятках старых смартфонов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия операционной системы LineageOS делает Android 9 (Pie) доступным на устаревших смартфонах и планшетах, давно переставших получать официальные обновления прошивки. В список поддерживаемых устройств входят около 30 моделей, включая OnePlus One, Google Nexus 6 и несколько вариантов Samsung Galaxy S5 (вышли в 2014-м), Galaxy Tab S2 2016 года релиза, а также (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282271   (704679) от 06.03.2019
-
-Гадалка (2018) SATRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — столичный майор Алексей Потапов и девушка из маленького провинциального городка Люся Некрасова — на первый взгляд, странный тандем, занимающийся расследованием сложных преступлений. Люся — необычная девушка: она видит людей, места, детали преступлений.Производство: Россия / Горад / ВВП АльянсЖанр: детектив, триллерРежиссер: Илья КазанковАктеры: Михаил Пореченков, Екатерина Олькина, Яна Крайнова, Юлия Ауг, Дмитрий Репин, Михаил Парыгин, Владимир Капустин, Василий Бочкарёв, Борис Щербаков, Анна Тараторкина и др.Продолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3193589BB88B954A4D9DE9C8983C6AB5B1D47B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Torchlight II [En] (RePack/1.12.2.7) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420901.jpg" />
+  <img src="Z:/picture/008/save_picture_420901.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Saints Row: The Third + 19 DLC [Ru/Multi9] (Steam-Rip) 2011 | R.G. Игрома�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_420765.jpg" />
+  <img src="Z:/picture/005/save_picture_420765.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420358.jpg" />
+  <img src="Z:/picture/008/save_picture_420358.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418999.jpg" />
+  <img src="Z:/picture/005/save_picture_418999.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ NBA 2K13 [En] (Repack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418515.jpg" />
+  <img src="Z:/picture/008/save_picture_418515.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ The Testament of Sherlock Holmes [Multi] [Crack] 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418509.jpg" />
+  <img src="Z:/picture/008/save_picture_418509.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Spec Ops: The Line + 2 DLC [Ru/En] (Steam-Rip/1.0.6890.0) 2012 l R.G. Игром
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418232.jpg" />
+  <img src="Z:/picture/008/save_picture_418232.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Spellforce 2: Shadow Wars (2006) [En] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418186.jpg" />
+  <img src="Z:/picture/008/save_picture_418186.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Spellforce 2: Dragon Storm (2007) [Ru/En] (2.01) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418177.jpg" />
+  <img src="Z:/picture/008/save_picture_418177.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6813b) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417640.jpg" />
+  <img src="Z:/picture/008/save_picture_417640.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ The Testament of Sherlock Holmes [Ru] (RePack) 2012 l R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415975.jpg" />
+  <img src="Z:/picture/008/save_picture_415975.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.0.3-19962/DLC) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415127.jpg" />
+  <img src="Z:/picture/008/save_picture_415127.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.0.4/dlc) License PLAZA [Royal Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413921.jpg" />
+  <img src="Z:/picture/008/save_picture_413921.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Sleeping Dogs [Ru/En] (Steam-Rip/1.5/3 DLC) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413558.jpg" />
+  <img src="Z:/picture/005/save_picture_413558.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ The Testament of Sherlock Holmes [Ru/En] (RePack) 2012 l Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413406.jpg" />
+  <img src="Z:/picture/008/save_picture_413406.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Halcyon 6: Starbase Commander (2016) [En] (1.0.0.8) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413293.jpg" />
+  <img src="Z:/picture/008/save_picture_413293.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Max Payne 3 [Ru/Muli7] (RePack/1.0.0.57) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413216.jpg" />
+  <img src="Z:/picture/008/save_picture_413216.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ryse: Son of Rome (2014) [Ru/Multi] (1.0.0.150 Upd2) SteamRip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411630.jpg" />
+  <img src="Z:/picture/008/save_picture_411630.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Krampus (2016) [En] (1.0.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411224.jpg" />
+  <img src="Z:/picture/008/save_picture_411224.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Lithium: Inmate 39 (2016) [Ru/Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411082.jpg" />
+  <img src="Z:/picture/008/save_picture_411082.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Victor Vran (2015) [Ru/Multi] (2.07b.161025/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410919.jpg" />
+  <img src="Z:/picture/008/save_picture_410919.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License CODEX [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410917.jpg" />
+  <img src="Z:/picture/008/save_picture_410917.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Dreamfall: The Longest Journey / Dreamfall: Бесконечное путеше�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410773.jpg" />
+  <img src="Z:/picture/008/save_picture_410773.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Blocks That Matter [Ru/Multi3] (RePack/1.1.0.2) 2011 | NSIS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409367.jpg" />
+  <img src="Z:/picture/008/save_picture_409367.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bad Piggies [En] (RePack/1.0.0) 2012 | Repack by R.G. UPG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_409235.jpg" />
+  <img src="Z:/picture/005/save_picture_409235.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Kyurinaga's Revenge (2016) [Multi] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409140.jpg" />
+  <img src="Z:/picture/008/save_picture_409140.jpg" />
 </div>
 
 

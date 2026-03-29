@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861271   (1062560) от 
+
+Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У меня нет любовницы! (А, может, и есть?!) [2025, TV, 12 эп.] BDRip HEVC 10-bit 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэнако Амаори стремится оставить позади своё неловкое и одинокое существование в средней школе, чтобы стать нормальной девушкой и завести подруг в старшей школе. Эффектная и уверенная Май Оудзука — полная противоположность Рэнако. Она богатая, общительная и, буквально, фотомодель. Вопреки всему, между девочками мгновенно образуется связь. Рэнако думает, что нашла (   Читать дальше...   )Производство: Япония, MotherЖанр: Комедия, романтика, сёдзё-айРежиссер: Нацуми УтинумаЯзык озвучки: Японский и русский (ТО «Beloved»)Продолжительность: 12 серий по 24 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0819F372DA415A60E5876C9271654417E877FDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859583   (1061107) от 
 
 Нежеланно бессмертный авантюрист [ТВ-1] | Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1061107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059742.jpg" />
+  <img src="Z:/picture/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058504.jpg" />
+  <img src="Z:/picture/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058503.jpg" />
+  <img src="Z:/picture/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058339.jpg" />
+  <img src="Z:/picture/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056847.jpg" />
+  <img src="Z:/picture/005/save_picture_1056847.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055922.jpg" />
+  <img src="Z:/picture/005/save_picture_1055922.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055391.jpg" />
+  <img src="Z:/picture/005/save_picture_1055391.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055362.jpg" />
+  <img src="Z:/picture/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055233.jpg" />
+  <img src="Z:/picture/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054898.jpg" />
+  <img src="Z:/picture/005/save_picture_1054898.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054897.jpg" />
+  <img src="Z:/picture/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054116.jpg" />
+  <img src="Z:/picture/005/save_picture_1054116.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054115.jpg" />
+  <img src="Z:/picture/005/save_picture_1054115.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054114.jpg" />
+  <img src="Z:/picture/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054113.jpg" />
+  <img src="Z:/picture/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054112.jpg" />
+  <img src="Z:/picture/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054111.jpg" />
+  <img src="Z:/picture/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054110.jpg" />
+  <img src="Z:/picture/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054109.jpg" />
+  <img src="Z:/picture/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053425.jpg" />
+  <img src="Z:/picture/005/save_picture_1053425.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053032.jpg" />
+  <img src="Z:/picture/005/save_picture_1053032.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053007.jpg" />
+  <img src="Z:/picture/005/save_picture_1053007.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052970.jpg" />
+  <img src="Z:/picture/005/save_picture_1052970.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052909.jpg" />
+  <img src="Z:/picture/005/save_picture_1052909.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE82DBDE77E442AA1B83D331683FD8D9D2F61874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847892   (1052435) от 15.01.2026
-
-Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слушайтесь папу! [2012, TV, 12 эп. + спэшл] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юта Сэгава рано остался сиротой, его вырастила и воспитала старшая сестра Юри. Когда брат пошел в старшую школу, Юри вышла замуж за мужчину с двумя дочерьми (обе от разных браков). Хотя Юта очень любил сестру, он не одобрил этот союз и стал жить отдельно, хотя и не терял контакт с самым близким человеком. Герой окончил школу и поступил в университет. Увы, познавать (   Читать дальше...   )Производство: Япония, FeelЖанр: комедия, драма, повседневностьРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (AniLibria - Eladiel & Zendos)Продолжительность: ТВ, 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

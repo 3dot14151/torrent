@@ -1,3 +1,29 @@
+###  Публикация: 1337619   (273692) от 11.11.2019
+
+Image2Icon Pro 2.10 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image2Icon Pro - простая в использовании программа для создания иконок файлов и папок. Создание иконок еще никогда не было проще, чем с использованием Image2Icon. Достаточно перетащить нужное изображение, настроить вид стилизованного изображения и выбрать формат экспортируемого файла - и все.Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2019Разработчик: Shiny Frog Ltd.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45339C6E1B620B6CDA2B279E94AD35152F789C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265862   (273038) от 29.11.2018
 
 SILKYPIX Developer Studio 8E v8.1.27.0 [En]
@@ -6,7 +32,7 @@ SILKYPIX Developer Studio 8E v8.1.27.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273038.jpg" />
+  <img src="Z:/picture/008/save_picture_273038.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Vectoraster 7 v7.4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271648.jpg" />
+  <img src="Z:/picture/008/save_picture_271648.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_270118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270118.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Adobe Lightroom Classic 2020 9.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269304.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Principle 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268256.jpg" />
+  <img src="Z:/picture/008/save_picture_268256.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ PhotoStyler 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267835.jpg" />
+  <img src="Z:/picture/008/save_picture_267835.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ LRTimelapse Pro 5.0.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265072.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Movavi Photo Manager 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264237.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ ON1 Photo RAW 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262333.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ON1 Resize 2019.7 (build 13.7.0.8098) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262318.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Kodak Preps 8 v8.4.0 (build 128) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262292.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Alien Skin Photo Bundle 2012 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260119.jpg" />
+  <img src="Z:/picture/005/save_picture_260119.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Adobe® Creative Suite® 6 Master Collection [En, Jp]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256240.jpg" />
+  <img src="Z:/picture/005/save_picture_256240.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Picture Instruments Preset Converter Pro 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254843.jpg" />
+  <img src="Z:/picture/005/save_picture_254843.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Adobe Illustrator 2026 30.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252417.jpg" />
+  <img src="Z:/picture/005/save_picture_252417.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Nikon Camera Control Pro 2.34.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249627.jpg" />
+  <img src="Z:/picture/004/save_picture_249627.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ OnOne Perfect Photo Suite 6.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248643.jpg" />
+  <img src="Z:/picture/005/save_picture_248643.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247407.jpg" />
+  <img src="Z:/picture/004/save_picture_247407.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ Adobe Lightroom Classic for Mac v.11.5 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247319.jpg" />
+  <img src="Z:/picture/004/save_picture_247319.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ SizeMyPics 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245951.jpg" />
+  <img src="Z:/picture/004/save_picture_245951.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ PowerPhotos 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245926.jpg" />
+  <img src="Z:/picture/004/save_picture_245926.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ Fontography - Text on Picture‪s‬ 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245837.jpg" />
+  <img src="Z:/picture/004/save_picture_245837.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ Optimage 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245519.jpg" />
+  <img src="Z:/picture/004/save_picture_245519.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Sketch n Cartoonize 3.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245384.jpg" />
+  <img src="Z:/picture/004/save_picture_245384.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Sketch 95.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245367.jpg" />
+  <img src="Z:/picture/004/save_picture_245367.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Sketch - это инструмент для векторного дизайна 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39B1D09EDBAA8BDB521AA9121951AE5CA7F2169A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609137   (245173) от 02.02.2023
-
-Creative Convert 1.4.3 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creative Convert - это простое и красивое приложение для преобразования файлов PDF, Ai, PSD и  EPS в отдельные форматы графических файлов.Тип издания: macOS SoftwareРелиз состоялся: 01.02.2023Разработчик: © 2023 Splash ColorsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA602133512F264A1A5634AFF38D02A2381F7B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

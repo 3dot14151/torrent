@@ -1,3 +1,108 @@
+###  Публикация: 1695534   (120246) от 29.01.2024
+
+OmniReader Pro for Mac 2.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120246.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: © 2024 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C7B789A94A961B1043075C57236D88736D54A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695616   (120110) от 30.01.2024
+
+HitPaw Video Converter for Mac 4.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конвертируйте видео и музыку без потерь с невероятной скоростью в/из более чем 1000 форматов: MP4, MOV, AVI, VOB, MKV и т. д. Не только для обычных кодеков, но и для продвинутых кодировщиков VP9, ​​ProRes и Opus. Это решает все ваши проблемы с неподдерживаемыми форматами и позволяет воспроизводить ваши видео на любой платформе и устройстве.
+Скачивайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73ABC83F4EC028AFD0F4BBDBD5EC261A12AD8FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695816   (120099) от 30.01.2024
+
+Infuse PRO 7.6.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB19789CC053ED32A8668554781298B53D232F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695664   (120096) от 30.01.2024
+
+AltTab for Mac 6.65.0 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C659B3A494897B1264717F5F3F4B53AE4B8B5B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695799   (120090) от 30.01.2024
 
 Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
@@ -6,7 +111,7 @@ Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120090.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ ForkLift 4 v.4.0.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120083.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ File List Export for Mac 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120081.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120077.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Iris 1.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120076.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ MWeb Pro 4.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120074.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120072.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ Stats 2.9.22 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120070.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ JetBrains PhpStorm for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119996.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Dropshare 5 v.5.46 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119941.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ SponsorBlock for YouTube 5.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119940.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Wondershare UniConverter for Mac 15.5.0 Intel/ARM [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119928.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ EdgeView 4.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119921.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ Sound Siphon 3.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119920.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ Dato 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119919.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ JetBrains PyCharm Professional for Mac 2023.3.3 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119850.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ XMind Pro 2024 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119821.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ Topaz Gigapixel AI for Mac 7.0.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119794.jpg" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119785.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ MediaInfo for Mac 24.01 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119771.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ Serial Box & SerialSeeker 02-2024 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119767.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ Room Arranger 9 fo Mac 9.8.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119765.jpg" />
 </div>
 
 
@@ -572,113 +677,6 @@ Room Arranger - программа специально предназначен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62457B3021B3BB8081E068A75BB2F63455FBC38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696234   (119754) от 01.02.2024
-
-Texifier 1.9.25 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Texifier — это редактор LaTeX, предназначенный для простой навигации, редактирования и верстки проектов любого размера. Откройте корневой файл LaTeX, и Texifier просканирует его, откроет все файлы, на которые есть ссылки, извлечет структуру документа для отображения в представлении схемы и настроит наборщик в соответствии с пакетами и инструментами, используемыми (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2024Разработчик: © 2011-202$ Valletta Ventures (UK) Ltd.Поддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C172E2172CD96EB96203B217DBDFBDECE5995E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696428   (119655) от 02.02.2024
-
-PDF Reader Pro 3.3.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119655.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.02.2024Разработчик: © 2024 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13C953477297591880CF0FF961F9CB1C85D62B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696491   (119648) от 02.02.2024
-
-Wondershare UniConverter for Mac 15.5.1 Intel/ARM [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-Самое быстрое универсальное решение для развлечений с цифровым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 (Intel) macOS 11.0 (Apple Silicon)Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C60E66D6B178632CB1ECF7F27EDE4A67C4B317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696395   (119621) от 02.02.2024
-
-Downie 4 v.4.7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BB760FF868557730B4A213EDF6F236D23ACAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1718521   (58564) от 25.04.2024
+
+FonePaw Android Data Recovery 6.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58564.jpg" />
+</div>
+
+
+###  Подробнее
+
+FonePaw Android Data Recovery - эффективная программа для обнаружения и восстановления удаленных или потерянных данных с Android устройств. Программа обладает дружественным интерфейсом с простой и понятной навигацией. Сочетая в себе мощные алгоритмы восстановления данных и поддержку множества устройств Android и различных версий ОС Android, программа может стать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E458A58CB01332CB9E01F815FC300F9A5DCC77E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720410   (57780) от 03.05.2024
+
+MiniTool ShadowMaker Pro 4.2.0.66 (x64) Portable by 7997 [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57780.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTool ShadowMaker Pro – программа, которая позволяет создавать резервные копии вашей операционной системы Windows, важных файлов и папок, выбранных разделов и дисков в целом.
+С помощью созданной резервной копии вы сможете восстановить данные в случае сбоя – например, падения системы, неисправности жесткого диска и т.д. MiniTool ShadowMaker Pro представляет собой (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683801DC24172CC61FEB989A7A66A8556C5077E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724521   (55964) от 20.05.2024
+
+GetDataBack Pro 5.71 [En]
+
+>>Утилиты, Офис, Интернет
+>>Резервирование и восстановление данных
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флагманский продукт GetDataBack Pro является самым мощным программным обеспечением для восстановления данных. Молниеносно, для NTFS, FAT, exFAT, EXT, HFS+ и APFS. Восстановите ваши потерянные данные сейчас!Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884F4CD99D1935975A9564D33F579E5D206A363F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725388   (55577) от 24.05.2024
 
 Reboot Restore Rx Professional 12.7 Build 2709799653 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +85,7 @@ Reboot Restore Rx Professional 12.7 Build 2709799653 RePack by KpoJIuK [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55577.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ FBackup 9.9.926 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51310.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Recuva Professional / Business / Technician 1.54.120 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50936.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ iFind Data Recovery Enterprise 9.2.2.0 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50554.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ Aiseesoft Data Recovery 1.8.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49948.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ AOMEI Backupper Technician Plus 7.4.0 WinPE by Updated Edition [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47791.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ DiskGenius Pro 5.6.1.1580 (x64) Portable by Жека [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44247.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ RollBack Rx Professional 12.7 Build 2710121211 RePack by KpoJIuK [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43720.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Veeam Agent 6.2.0.121 [En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42132.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ Eassos DiskGenius Professional 5.6.1.1580 RePack (& Portable) by elchupacabra [M
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41535.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ Wise Data Recovery Pro 6.2.0.517 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41504.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ Acronis Boot Disk 2024 05.10.24 Grub4Dos+EFI:GRUB2x64 by Bombokot [Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41436.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ Macrium Reflect 8.1.8017 [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40244.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ Macrium Reflect Server Plus v 7.3.5672 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34198.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ iFind Data Recovery 9.7.40.0 RePack (& Portable) by elchupacabra [Multi]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29227.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ Hetman Recovery Software 2024 Portable by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28942.jpg" />
 </div>
 
 
@@ -435,7 +514,7 @@ R-Studio Network 9.4 Build 191430 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28315.jpg" />
 </div>
 
 
@@ -461,7 +540,7 @@ IsoBuster Pro 5.52 Build 5.5.2.00 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28291.jpg" />
 </div>
 
 
@@ -487,7 +566,7 @@ Macrium Reflect Server Plus v 8.0.7175 x64 BootCD [Ru/En]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27887.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ Aiseesoft FoneLab for Android 5.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26492.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ R-Drive Image Technician 7.3 Build 7302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25983.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ Disk Drill 5.7.917 Enterprise (x64) [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23503.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ Macrium Reflect Server Plus 8.0.7175 x64 [Multi/Ru]
 >>Резервирование и восстановление данных
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21301.jpg" />
 </div>
 
 
@@ -606,84 +685,6 @@ Macrium Reflect – профессиональный инструмент рез
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FDDADDA285BD72B6D6C23EAA51B4340A09475FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794149   (20073) от 27.04.2025
-
-MiniTool Power Data Recovery 12.5 Full (Standard-Deluxe-Enterprise-Technician) RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20073.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Power Data Recovery - это инструмент предназначенный для восстановления данных с наиболее распространенных на сегодняшний день типов карт памяти, а также с жестких дисков и прочих носителей информации. Программа достаточно компактна, однако список ее основных возможностей включает как восстановление файлов с жестких дисков, флеш карт памяти, CD/DVD дисков, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35EA54D1C81A9CF2803925FF44A5A9D5E03200F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798161   (17610) от 21.05.2025
-
-AOMEI Backupper Technician Plus 7.5.0 Repack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17610.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF980D844AF429D78ADAD66B0CB43DED64D71BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800185   (16019) от 01.06.2025
-
-AOMEI Backupper Technician Plus 7.5.0 WinPE by FC Portables [En]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16019.jpg" />
-</div>
-
-
-###  Подробнее
-
-AOMEI Backupper – программа для создания резервной копии или восстановления системы, а также дисков и нужных вам разделов. Обратите внимание, что работает программа с технологией Microsoft VSS , что позволит вам без прерывания работы на компьютере вести создание резервной копии. Приложение прекрасно работает со всеми устройствами хранения вашей информации, в том (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EA0A0FD7EEB2E522A8C6876F37D9548A2014A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

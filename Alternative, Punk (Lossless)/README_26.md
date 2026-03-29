@@ -1,3 +1,32 @@
+###  Публикация: 1293817   (633752) от 05.04.2019
+
+Meat Puppets - Dusty Notes (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_633752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warranty (3:58)
+02. Nine Pins (4:04)
+03. On (3:22)
+04. Unfrozen Memory (4:23)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4608B95E449F3970FA0E7F5951B4D6675C92AFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293849   (633746) от 05.04.2019
 
 Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Singer-Songwriter>
@@ -6,7 +35,7 @@ Lucy Rose - No Words Left (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633746.jpg" />
+  <img src="Z:/picture/008/save_picture_633746.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nine Inch Nails - Strobe Light (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633619.jpg" />
+  <img src="Z:/picture/008/save_picture_633619.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Papa Roach - Ego Trip (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633566.jpg" />
+  <img src="Z:/picture/008/save_picture_633566.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633444.jpg" />
+  <img src="Z:/picture/008/save_picture_633444.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632908.jpg" />
+  <img src="Z:/picture/008/save_picture_632908.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631207.jpg" />
+  <img src="Z:/picture/008/save_picture_631207.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631066.jpg" />
+  <img src="Z:/picture/008/save_picture_631066.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
+  <img src="Z:/picture/008/save_picture_630029.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628487.jpg" />
+  <img src="Z:/picture/008/save_picture_628487.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lucy Rose - 7 releases (2012 - 2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628481.jpg" />
+  <img src="Z:/picture/008/save_picture_628481.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Music Inspired by the Film Roma (2019) [FLAC|Lossless|tracks + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628370.jpg" />
+  <img src="Z:/picture/008/save_picture_628370.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Michel Cloup Duo - Danser Danser Danser Sur Les Ruines (2019) [FLAC|Lossless|tra
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627319.jpg" />
+  <img src="Z:/picture/008/save_picture_627319.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Explosions in the Sky - The Wildernes (2016) Bella Union [FLAC|Lossless|tracks+.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627318.jpg" />
+  <img src="Z:/picture/008/save_picture_627318.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Coral - Move Through the Dawn (2018) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626264.jpg" />
+  <img src="Z:/picture/008/save_picture_626264.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624339.jpg" />
+  <img src="Z:/picture/008/save_picture_624339.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624121.jpg" />
+  <img src="Z:/picture/008/save_picture_624121.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622827.jpg" />
+  <img src="Z:/picture/008/save_picture_622827.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Wolf Alice - My Love Is Cool (2015) [FLAC|Lossless|WEB-DL]<Rock, Alternative, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621783.jpg" />
+  <img src="Z:/picture/008/save_picture_621783.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Priests - The Seduction of Kansas (2019) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620769.jpg" />
+  <img src="Z:/picture/008/save_picture_620769.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Hollerado - Born Yesterday (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619832.jpg" />
+  <img src="Z:/picture/008/save_picture_619832.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Charly Bliss - Guppy (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619803.jpg" />
+  <img src="Z:/picture/008/save_picture_619803.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Jeff Beck - Loud Hailer (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618899.jpg" />
+  <img src="Z:/picture/008/save_picture_618899.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ PUP - Morbid Stuff (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock, Pop Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618816.jpg" />
+  <img src="Z:/picture/008/save_picture_618816.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618815.jpg" />
+  <img src="Z:/picture/008/save_picture_618815.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618714.jpg" />
+  <img src="Z:/picture/008/save_picture_618714.jpg" />
 </div>
 
 
@@ -716,34 +745,6 @@ Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326166308D1E63BAC471BC2DD53E41074C1CA3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295780   (617095) от 14.04.2019
-
-Haunts - A Lack of Empathy (2017) EP [FLAC|Lossless|tracks + .cue] <Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creep Pulse (6:28)
- 02. No Glory, No Steam, No Fire (9:54)
- 03. Crux (12:23)Жанр: Post RockПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CAFA90B390AE89E2F3C2AF8A7A359132D70218
 ```
 
 https://mybot314.ru/tekegram_catalog/

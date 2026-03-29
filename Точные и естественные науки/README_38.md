@@ -1,3 +1,136 @@
+###  Публикация: 1715436   (111571) от 12.04.2024
+
+К. Дей, Д. Селбин | Теоретическая неорганическая химия (1976) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой руководство по теоретической неооганической химии и охватывает квантовую химию, методы валентных связей и молекулярных орбиталей. периодический закон, теорию химической связи, стереохимию неорганических соединений, теорию кислот и оснований, химию координационных соединений
+и неводных растворов. Настоящая книга является переводом второго (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8F3FF8ADD2AD91D4717F88E4A6379E545A2D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725415   (109035) от 24.05.2024
+
+А.Н. Тихонов, А.А. Самарский | Уравнения математической физики (1977) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются задачи математической физики, приводящие к уравнениям с частными производными. Расположение материала соответствует основным типам уравнений.
+Изучение каждого типа уравнений начинается с простейших физических задач, приводящих к уравнениям рассматриваемого типа. Особое внимание уделяется математической постановке задач, строгому изложению (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725422   (109028) от 24.05.2024
+
+А.И. Ахиезер, И.А. Ахиезер | Электромагнетизм и электромагнитные волны (1985) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109028.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассмотрены входящие в курс общей физики вопросы физики электромагнитных явлений, включая оптику и основы теории относительности. От аналогичных книг пособие отличается широтой охвата и методом изложения — один из авторов, академик АН УССР А. И. Ахиезер, известен своими фундаментальными теоретическими работами в области электродинамики. В первом и втором (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B14BE6C7550020E9D37823627AEFD9F6CD5FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726036   (108830) от 27.05.2024
+
+С. Бенсон | Термохимическая кинетика (1971) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского кинетика С. Бенсона посвящена проблемам, лежащим в пограничной области между химической кинетикой и термохимией, - направлению, интенсивно развивающемуся как в нашей стране, так и за рубежом. В книге рассматривается разработанный автором новый оригинальный метод, позволяющий рассчитывать кинетические параметры элементарных химических (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3CB647C5ECC14475A5DA50028F6BA39EC0755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734805   (107061) от 05.07.2024
+
+Д.М. Блейкли | Поверхностная диффузия (1965) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий обзор, написанный одни из исследователей в этой области Д.М. Блейкли, содержит наиболее доступный для наблюдения случай поверхностной диффузии в однокомпонентных системах, то есть поверхностной самодиффузии.
+Рассмотрены не только основные экспериментальны методы, но и состояние теории вопроса.Жанр: ФизикаИздательство: МеталлургияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7764BEC3E1C21192888ED7684E468C4C3BC1CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735008   (107034) от 06.07.2024
 
 П. Джурс, Т. Айзенауэр | Распознавание образов в химии (1977) [PDF]
@@ -6,7 +139,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107034.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107032.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106477.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ P. Bettiol, R.B. Vinter | Principles of Dynamic Optimization (2024) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106363.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104645.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104003.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102442.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100993.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100578.jpg" />
 </div>
 
 
@@ -242,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100572.jpg" />
 </div>
 
 
@@ -268,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83107.jpg" />
 </div>
 
 
@@ -294,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83099.jpg" />
 </div>
 
 
@@ -320,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83063.jpg" />
 </div>
 
 
@@ -346,7 +479,7 @@ Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71747.jpg" />
 </div>
 
 
@@ -372,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71642.jpg" />
 </div>
 
 
@@ -398,7 +531,7 @@ C.П. Костычев | О брожениях (1914) [PDF]
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71357.jpg" />
 </div>
 
 
@@ -424,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71266.jpg" />
 </div>
 
 
@@ -450,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70477.jpg" />
 </div>
 
 
@@ -476,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69378.jpg" />
 </div>
 
 
@@ -502,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68889.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67355.jpg" />
 </div>
 
 
@@ -540,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D669AB209B516BC5572DF791D2AAB20D7891BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794266   (67352) от 28.04.2025
-
-Ф. Клейн | Высшая геометрия (1939) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося немецкого математика Ф.Клейна (1849--1925) создана на основе лекций по высшей геометрии, прочитанных им в Гёттингенском университете и подготовленных к печати его учениками и последователями. Автор разделяет геометрию на две отдельные части: геометрия в ограниченной части пространства, к которой относятся почти все применения дифференциальных и (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное объединённое научно-техническое издательствоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C220314137370CCCA37324F6D146E5C5E40E371B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808855   (64852) от 27.07.2025
-
-М.М. Кацнельсон | Приготовление синтетических химико-фармацевтических препаратов (1933) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64852.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Приготовление синтетических химико-фармацевтических препаратов» М. Кацнельсона – книга известного ученого, содержащая практические работы для химиков, медиков и фармацевтов.Жанр: ХимияИздательство: ГосхимтехиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA471CFDBC217909DE56BE182B84A88F706423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706320   (63208) от 12.03.2024
-
-Т.Г. Петров и др. | Выращивание кристаллов из растворов (1983) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены методы выращивания кристаллов из растворов при атмосферном давлении и умеренной температуре (до 100 °С), наиболее доступные и часто применяющиеся в лабораторных условиях. Описаны техническое оснащение кристаллизационной лаборатории, приемы работ, меры борьбы с неоднородностями, возникающими в кристаллах при их росте, подбор оптимальных условий для выращивания (   Читать дальше...   )Жанр: ХимияИздательство: НедраФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA8DAA1F66AA6681E488966C28FA620C8915AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716051   (59697) от 14.04.2024
-
-С. Перри, Р. Амос, П. Брюер | Практическое руководство по жидкостной хроматографии (1974) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по подготовке и проведению анализов методами жидкостной колоночной хроматографии и хроматографии в тонких слоях. Она продолжает серию, в которую вошли такие книги, как «Введение в газовую хроматографию» Мак-Нейра и Бонелли, «Количественная хроматография на бумаге и в тонком слое» Шелларда, «Основы жидкостной хроматографии» (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1CEAB11715F8615DF6C61CDE51909059C3FBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718466   (58540) от 25.04.2024
-
-И.Н. Бронштейн, К.А. Семендяев | Справочник по математике для инженеров и учащихся втузов (1962) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58540.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник по математике для инженеров и учащихся втузов» — распространённый советский справочник по прикладной математике, впервые опубликованный в 1945 году. Авторы справочника — советские математики И. Н. Бронштейн и К. А. Семендяев. Широта охвата материала, ориентация на практические нужды пользователей, доступность стиля, наличие продуманных алгоритмов и таблиц (   Читать дальше...   )Жанр: МатематикаИздательство: Государственное издательство физико-математической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E447B6023090559FF7E156684B8B162FB24366
 ```
 
 https://mybot314.ru/tekegram_catalog/

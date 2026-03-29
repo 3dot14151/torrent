@@ -1,3 +1,119 @@
+###  Публикация: 1736839   (106582) от 14.07.2024
+
+Herbie Mann's Californians - Great Ideas Of Western Mann (1957) 2001, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Theme [6:43]
+02. Lady Bird [8:59]
+03. Get Out of Town [5:33]
+04. Is It True What They Say About Dixie? [5:33](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A782A8D10774044E1B2B3D006FD2EF535699E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736837   (106579) от 14.07.2024
+
+Stan Getz - Four Classic Albums (1955 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four [7:37]
+02. Suddenly It's Spring [7:00]
+03. Night in Tunisia [6:13]
+04. Summertime [6:08](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 02:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F708FADF20988632A8312C9888E7456A9680FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737028   (106569) от 16.07.2024
+
+Renato Sellani Trio - Grand Piano: The Music Of Michel Legrand (2010) Philology [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. His Eyes Her Eyes [3:02]
+02. How Do You Keep the Music Going [4:33]
+03. I'll Wait For You [4:10]
+04. Once Upon a Summertime [4:42](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2C797A4B65C4A759CC52ACB2B4C3D14A5DF86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737171   (106556) от 16.07.2024
+
+Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mister Basie [5:55]
+02. Ralph's New Blues [7:10]
+03. Blues for Edith [4:55]
+04. Recado Bossa Nova [6:42](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62013B4255E23E237316B0BCBD6D7B07C4BBCF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737173   (106555) от 16.07.2024
 
 The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Bop>
@@ -6,7 +122,7 @@ The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106555.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106551.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nat Adderley - Introducing Nat Adderley (1955) 2001, Verve Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106522.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Anne Sajdera - New Year (2018) Bijuri Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106521.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nat Adderley Quintet - The Old Country (1990) 1992, Enja Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106520.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Idyllic Vacation Tranquil Vacation Getaway Instrumentals for Leisure and Pl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106517.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Idyllic Vacation Chilly Lounge Vacation Getaway Instrumentals for Leisure a
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106516.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ T.S. Monk - Take One (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106499.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Patton - Soul Connection (1983) 2008, Just A Memory [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106498.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Junior Mance - Holy Mama (1976) 2008, Test Of Time Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106494.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106493.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106479.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106441.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ George Benson & The Robert Farnon Orchestra - Dreams Do Come True: When George B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106408.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Junior Mance - Harlem Lullaby & I Believe To My Soul (1967, 1968) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106403.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Bud Powell - The Complete RCA Trio Sessions (1956, 1957) 2009, EJC [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106359.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Richard "Groove" Holmes - Groove (1961) 1990, Pacific Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106356.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106296.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106294.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106290.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Richard "Groove" Holmes - Comin' On Home (1971) 2002, Blue Note [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106289.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106279.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Richard "Groove" Holmes - Legends Of Acid Jazz: Spicy (1966) 1999, Prestige [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164408F6B5A5998C547318C3E440F3F4363019DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738403   (106274) от 23.07.2024
-
-Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moment In Time (3:41)
-02. Sasafrass (4:09)
-03. Pacific Lounge (4:34)
-04. Groovin Out Back (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D35350D7E2462690FC25C94FF6AA15D4340514B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738698   (106248) от 24.07.2024
-
-Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Crown [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 77 Sunset Strip [3:04]
-02. The Fugitive [2:02]
-03. Get Back [2:55]
-04. La pioggia [2:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87E7C3B7319AF6A383D2CFAFB97A13686EA104E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738978   (106218) от 25.07.2024
-
-Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MoonDial (6:24)
-02. La Crosse (4:48)
-03. You're Everything (2:38)
-04. Here, There and Everywhere (4:24)(   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Latin JazzПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D81F0E8F0FCAFAD220EE081E1726E4FDA8840FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738857   (106204) от 25.07.2024
-
-Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 - 1998) 10CD, 2013, CAM [FLAC|Lossless|tracks + .cue] <Post-Bop, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trying Hard to Be [12:44]
-02. A Star Trying [4:35]
-03. Too Hard to Be a Star [8:23]
-04. I Must Try [4:00](   Читать дальше...   )Жанр: Post-Bop, Free Improvisation, Piano JazzПродолжительность: 09:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721981DDE7E42638B5617C8BD01F7D7A521AE437
 ```
 
 https://mybot314.ru/tekegram_catalog/

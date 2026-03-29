@@ -6,7 +6,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793038.jpg" />
+  <img src="Z:/picture/008/save_picture_793038.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Cockos REAPER 6.41 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793037.jpg" />
+  <img src="Z:/picture/008/save_picture_793037.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ GoodTask 6.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793036.jpg" />
+  <img src="Z:/picture/008/save_picture_793036.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Things 3 v3.15.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793035.jpg" />
+  <img src="Z:/picture/008/save_picture_793035.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Principle 6 v6.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793034.jpg" />
+  <img src="Z:/picture/008/save_picture_793034.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Music Tag Editor 5.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793033.jpg" />
+  <img src="Z:/picture/008/save_picture_793033.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Breaking Wheel (2017) [Ru/Multi] (4.14) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793031.jpg" />
+  <img src="Z:/picture/008/save_picture_793031.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Michael Elliot - 5 (EP) + 4 (Single) (2011-2018) [MP3|320 Kbps] <Synthwave, Retr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793017.jpg" />
+  <img src="Z:/picture/008/save_picture_793017.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Pacifist 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792985.jpg" />
+  <img src="Z:/picture/008/save_picture_792985.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Dynaper - Dynamic Wallpapers 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792984.jpg" />
+  <img src="Z:/picture/008/save_picture_792984.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Prism 9 v9.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792982.jpg" />
+  <img src="Z:/picture/008/save_picture_792982.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Submerge 3 v3.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792979.jpg" />
+  <img src="Z:/picture/008/save_picture_792979.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ myTracks 4.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792978.jpg" />
+  <img src="Z:/picture/008/save_picture_792978.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ PhotoReflector 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792976.jpg" />
+  <img src="Z:/picture/008/save_picture_792976.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Movist 2.5.6 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792973.jpg" />
+  <img src="Z:/picture/008/save_picture_792973.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ MP3 Gain - Audio Normalization 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792972.jpg" />
+  <img src="Z:/picture/008/save_picture_792972.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ MP3 Encoder 2.18 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792967.jpg" />
+  <img src="Z:/picture/008/save_picture_792967.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Luminar 3 v3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792959.jpg" />
+  <img src="Z:/picture/008/save_picture_792959.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Audirvana Plus 3.2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792952.jpg" />
+  <img src="Z:/picture/008/save_picture_792952.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Picture Collage Maker 3 v3.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792944.jpg" />
+  <img src="Z:/picture/008/save_picture_792944.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Acon Digital Acoustica Premium Edition 7.3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792943.jpg" />
+  <img src="Z:/picture/008/save_picture_792943.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ CollageIt 3 Pro v3.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792940.jpg" />
+  <img src="Z:/picture/008/save_picture_792940.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Focusplan Pro - Mind Map 1.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792938.jpg" />
+  <img src="Z:/picture/008/save_picture_792938.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Cinemagraph Pro 2.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792925.jpg" />
+  <img src="Z:/picture/008/save_picture_792925.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Secure Eraser Pro 5.1.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792918.jpg" />
+  <img src="Z:/picture/008/save_picture_792918.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792913.jpg" />
+  <img src="Z:/picture/008/save_picture_792913.jpg" />
 </div>
 
 

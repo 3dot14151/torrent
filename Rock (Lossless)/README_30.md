@@ -1,3 +1,148 @@
+###  Публикация: 994715   (888193) от 09.03.2016
+
+Billy Rankin - Growin' Up Too Fast (1984) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный сольный альбом гитариста Nazareth!01. Baby Come Back
+02. Rip It Up
+03. Think I'm In Love
+04. Where Are You Now(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830B768E939A12D0C8560177681BAAE621124C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103106   (887886) от 11.02.2017
+
+Cold Blood - Lydia (1974) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock, Funk, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887886.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ready To Live (Lonnie Hewitt, Paul Edward Smith) - 5:24
+2. Simple Love Life (Paul Edward Smith, R. Smith) - 3:18
+3. Under Pressure (Fred Gowdy, Larry Wilkins) - 3:30
+4. When My Love Hand Comes Down (Gloria Jones, Pam Sawyer) - 4:23(   Читать дальше...   )Жанр: Rock, Funk, SoulПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A8E5CA9ED4B70A89A103199682FD577CB9FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103044   (887804) от 11.02.2017
+
+Submarine Silence - Journey Through Mine (2016) ex-Moongarden [FLAC|Lossless|image + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Astrographic Temple (Instrumental) (8:22)
+2. Black Light Back (9:48)
+3. Swirling Contour (7:34)
+4. Canova's Gypsoteque (Instrumental) (8:02)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046D47FBBDB4AFED91916DD727FFED816D0DD5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103051   (887722) от 11.02.2017
+
+IQ - Live On The Road Of Bones (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+1. Intro (1:53)
+2. Sacred Sound (11:47)
+3. Outer Limits (6:50)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D6846622F122CC166DFA0B34466DF365708A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494505   (887699) от 08.09.2021
+
+VA - Just Like .... Rock Legends Playing The Songs Of Pink Floyd (2008) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887699.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01.   Adrian Belew & Keith Emerson / In The Flesh   [3:04]
+ 02.   Dweezil Zappa & Keith Emerson / Run Like Hell   [5:10]
+ 03.   Ian Anderson / The Thin Ice   [2:29](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF8046159CC25638390F57769007D284E12DC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494829   (886086) от 09.09.2021
 
 Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +151,7 @@ Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886086.jpg" />
+  <img src="Z:/picture/005/save_picture_886086.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Blackfield - V (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885913.jpg" />
+  <img src="Z:/picture/005/save_picture_885913.jpg" />
 </div>
 
 
@@ -66,7 +211,7 @@ VA - Love Rock Hits (2000) 3CD Box [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884494.jpg" />
+  <img src="Z:/picture/005/save_picture_884494.jpg" />
 </div>
 
 
@@ -95,7 +240,7 @@ VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884318.jpg" />
+  <img src="Z:/picture/005/save_picture_884318.jpg" />
 </div>
 
 
@@ -124,7 +269,7 @@ Dwayne Ford - Neadless Freaking (1981) 2016, Epic [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883863.jpg" />
+  <img src="Z:/picture/005/save_picture_883863.jpg" />
 </div>
 
 
@@ -153,7 +298,7 @@ Mighty Baby - At A Point Between Fate And Destiny (The Complete Recordings): 6CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883787.jpg" />
+  <img src="Z:/picture/005/save_picture_883787.jpg" />
 </div>
 
 
@@ -182,7 +327,7 @@ John Garcia - The Coyote Who Spoke In Tongues (2017) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883506.jpg" />
+  <img src="Z:/picture/005/save_picture_883506.jpg" />
 </div>
 
 
@@ -211,7 +356,7 @@ Ekseption - 12 Albums, 14CD (1969-2019) [FLAC|Lossless|image + .cue] <Electric P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883503.jpg" />
+  <img src="Z:/picture/005/save_picture_883503.jpg" />
 </div>
 
 
@@ -240,7 +385,7 @@ Sniff'n'The Tears - Fickle Heart (1978) Remastered, 2005, Chiswick Records [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882963.jpg" />
+  <img src="Z:/picture/005/save_picture_882963.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ Peter H Nilsson - Sign Of Myself (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882477.jpg" />
+  <img src="Z:/picture/005/save_picture_882477.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ Space Debris - Behind the Gate (2017) [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881880.jpg" />
+  <img src="Z:/picture/005/save_picture_881880.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Canned Heat - The Best Of (1997) [FLAC|Lossless|image + .cue] <Rock, Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881872.jpg" />
+  <img src="Z:/picture/005/save_picture_881872.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ Cliff Richard - From A Distance - The Event (1990) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881758.jpg" />
+  <img src="Z:/picture/005/save_picture_881758.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ The Dear Hunter - Act III : Life And Death (2009) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881210.jpg" />
+  <img src="Z:/picture/008/save_picture_881210.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ The Dear Hunter - Act IV : Rebirth In Reprise (2015) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880748.jpg" />
+  <img src="Z:/picture/005/save_picture_880748.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Yes - Fly From Here (2011) Limited Edition Box Set SHM-CD /Avalon/ [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880629.jpg" />
+  <img src="Z:/picture/005/save_picture_880629.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ J.E.T. - Fede Speranza Carità (1972) 2CD [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880428.jpg" />
+  <img src="Z:/picture/005/save_picture_880428.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ All Them Witches - Sleeping Through the War (2017) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880109.jpg" />
+  <img src="Z:/picture/005/save_picture_880109.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Chuck Berry - Gold (2005) 2CD [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879065.jpg" />
+  <img src="Z:/picture/005/save_picture_879065.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Cosmos - 4 Albums (1994 - 2012)[FLAC|Lossless|image + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878966.jpg" />
+  <img src="Z:/picture/005/save_picture_878966.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ UFO - Force It (1975) Deluxe Edition, 2021, Remaster [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878928.jpg" />
+  <img src="Z:/picture/005/save_picture_878928.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ UFO - Force It (1975) Deluxe Edition, 2021, Remaster [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA26D6B4D6C740B596608CD22833CAD3CA9A114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104705   (878224) от 16.02.2017
-
-Young Flowers - 1968-1969 (1997) [APE|Lossless|image + .cue] <Blues Rock, Heavy Psych, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture - Take Warning (4:15)
-02. The Moment Life Appeared (2:16)
-03. 25 øre (8:00)
-04. Oppe i træet (3:18)(   Читать дальше...   )Жанр: Blues Rock, Heavy Psych, Psychedelic RockПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DE1ABF9ECF71809A4A087A412859887082BDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104855   (878126) от 16.02.2017
-
-Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Who Can It Be Now?  3:26
-02.  I Can See It In Your Eyes  3:33
-03.  Down Under  3:46
-04.  Underground  3:08(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ECBAF4CE8A03FD93D95F0A55A6CADE174EEE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495670   (877556) от 14.09.2021
-
-Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sista båten från Shanghai - 05:04
-2. Svedolfs telefonkiosk - 03:38
-3. Vägar - 04:36
-4. Surayya - 03:29(   Читать дальше...   )Жанр: Jazz-Rock, Prog Rock, FusionПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495759   (877551) от 14.09.2021
-
-Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only Make Believin 3:27
-02. Nirvana 2:52
-03. Carousel 2:32
-04. Into the Kama 5:51(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105133   (876474) от 17.02.2017
-
-Cliff Richard - Always Guaranteed (1987) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Night (04:30)
-02. Once Upon A Time (04:32)
-03. Some People (03:51)
-04. Forever (04:02)(   Читать дальше...   )Жанр: Pop/Rock, VocalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3B2D79A9201116E5D6D82A548D13A7F057512E
 ```
 
 https://mybot314.ru/tekegram_catalog/

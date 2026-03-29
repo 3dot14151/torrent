@@ -1,3 +1,119 @@
+###  Публикация: 913407   (607239) от 28.06.2015
+
+Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tarante
+02. Blues Zen
+03. Il Canto di Sadone
+04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913410   (607235) от 28.06.2015
+
+Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude in E minor Op 28 No 4
+02. Prelude in D flat major Op 28 No 15
+03. Mazurek in F major Op 68 No 4
+04. Grande Valse Brillante Op 32 No 2(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD08ECCC260F0C2DC3A0B953EF831A10A8FB44C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231288   (607059) от 17.06.2018
+
+Les Double Six Meets Quincy Jones (1960 - 1962) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Lena And Lennie [4:10]
+02. Rat Race [2:38]
+03. Stockholm Sweetin' [5:41]
+04. Boo's Bloos [5:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED71B1BD50C4DCE00120D7F85EE85446083D40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231291   (607058) от 17.06.2018
+
+Gigi Gryce & Clifford Brown Sextet - Jazz Time Paris (1953) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strictly Romantic [4:19]
+02. Baby [5:47]
+03. No Start, No End [11:46]
+04. Minority [5:29](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EA84F2CA46CA0CACF0A15217302FD27A1E34DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231345   (607047) от 17.06.2018
 
 Tony Bennett - Les Jazz RTL - Profession Crooner (2012) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
@@ -6,7 +122,7 @@ Tony Bennett - Les Jazz RTL - Profession Crooner (2012) 2CD [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607047.jpg" />
+  <img src="Z:/picture/008/save_picture_607047.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Tom Harrell - First Impressions: Debussy And Ravel Project (2015) HighNote [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606924.jpg" />
+  <img src="Z:/picture/008/save_picture_606924.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ George Adams & Don Pullen Quartet - Live At Montmartre (1985) Remaster, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606902.jpg" />
+  <img src="Z:/picture/008/save_picture_606902.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Three Sounds - Black Orchid (1962) Remaster, 2015, Universal[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606899.jpg" />
+  <img src="Z:/picture/008/save_picture_606899.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Johnny Hodges - The Complete Verve Johnny Hodges Small Group Sessions (1956 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606272.jpg" />
+  <img src="Z:/picture/008/save_picture_606272.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Phil Woods - A Jazz Life (1956-1988) 1992, Philology [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605820.jpg" />
+  <img src="Z:/picture/008/save_picture_605820.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Johnny Colon - Keeping It Real (2007) Johnny Colon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605819.jpg" />
+  <img src="Z:/picture/008/save_picture_605819.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Larry Coryell's 11th House - Seven Secrets (2016) Savoy Jazz [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605754.jpg" />
+  <img src="Z:/picture/008/save_picture_605754.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Stan Getz - The Best Of Two Worlds featuring Joao Gilberto (1975) 2016, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605173.jpg" />
+  <img src="Z:/picture/008/save_picture_605173.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Blue Mitchell - A Sure Thing (1962) 1994, OJC[FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605151.jpg" />
+  <img src="Z:/picture/008/save_picture_605151.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Johnny Hodges Quintet - Buenos Aires Blues & The Eleventh Hour (1962, 1963) 2009
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605063.jpg" />
+  <img src="Z:/picture/008/save_picture_605063.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ruby Braff & Dick Hyman - America, The Beautiful (2002) Arbors Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604835.jpg" />
+  <img src="Z:/picture/008/save_picture_604835.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Budapest Ragtime Band - Kitten On The Keys (2003) BRB Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604609.jpg" />
+  <img src="Z:/picture/008/save_picture_604609.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Noordpool Orchestra - Radiohead, A Jazz Symphony (2012) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604486.jpg" />
+  <img src="Z:/picture/008/save_picture_604486.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Harry Allen - If Ever You Were Mine (2003) BMG Music [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604476.jpg" />
+  <img src="Z:/picture/008/save_picture_604476.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jackie McLean - 4, 5 and 6 (1956) 2012, Analogue Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604474.jpg" />
+  <img src="Z:/picture/008/save_picture_604474.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Harry Allen & Joe Temperley - Cocktails For Two (2007) Sackville [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604473.jpg" />
+  <img src="Z:/picture/008/save_picture_604473.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Harry Allen Duo / Trio - I'll Never Be the Same (1995) N/A [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604405.jpg" />
+  <img src="Z:/picture/008/save_picture_604405.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Hank Mobley, Al Cohn, John Coltrane, Zoot Sims - Tenor Conclave (1956) 2014, Ana
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604402.jpg" />
+  <img src="Z:/picture/008/save_picture_604402.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604319.jpg" />
+  <img src="Z:/picture/008/save_picture_604319.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604250.jpg" />
+  <img src="Z:/picture/008/save_picture_604250.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604154.jpg" />
+  <img src="Z:/picture/008/save_picture_604154.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Larry Vuckovich - Somethin' Special (2011) Tetrachord Music [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B304D685D618D5AB8D5DC5A557CFC548474FA366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231648   (604153) от 19.06.2018
-
-Larry Vuckovich Trio - Street Scene (2006) Tetrachord Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dexter's Mode [5:58]
-02. Street Scene [6:43]
-03. News For Lulu [6:07]
-04. As Time Goes By Mambo [4:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B3AB3FC39141AA7090E32FE61AFF49D833571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231642   (604152) от 19.06.2018
-
-The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: They say it's wonderful / How deep is the ocean? / I don't stand a gh... [10:15]
-02. Between The Devil And The Deep Blue Sea [6:56]
-03. La Ronde [2:12]
-04. Night In Tunisia [6:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78958390464660F67B9A25875E3B97B51DFC1813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231646   (604142) от 19.06.2018
-
-Larry Vuckovich - Blue Balkan Then And Now (2002) Inner City [FLAC|Lossless|tracks + .cue] <World Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serbo Samba [5:51]
-02. Blue Balkan [8:47]
-03. Suite Sanna: Struttin' / Dance / Beboppin' [8:40]
-04. Belgrade Blues [6:55](   Читать дальше...   )Жанр: World Fusion, Post-BopПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FCA12AAF89CE4BC222C8C40741F76A3CECAF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297456   (604070) от 22.04.2019
-
-The Charles McPherson Group - Follow The Bouncing Ball (1989) Discovery Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passport [6:24]
-02. Where Are You [4:59]
-03. Follow the Bouncing Ball [4:34]
-04. Blues for Mac [6:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393F290082BAC04EAB42F699904B8C1D454B50D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

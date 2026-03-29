@@ -1,3 +1,81 @@
+###  Публикация: 1600840   (153670) от 29.12.2022
+
+Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Riddle of the Sphinx The Awakening дает возможность погулять по главным достопримечательностям Египта. Здесь можно исследовать Большого сфинкса и Пирамиду Хеопса. По сюжету герой пытается разгадать археологические тайны и понять, что же на самом деле в себе скрывают эти древнейшие постройки. Создатели предложили свою трактовку.Тип издания: LicenseРазработчик: Old World StudiosЖанр: Adventure, Puzzle, Detective, MysteryЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600913   (153259) от 29.12.2022
+
+Titan Station (2022) [Ru/Multi] (1.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Titan Station погружает пользователей в приключения на борту космической станции, где оказывается протагонист. Сюжет показывает 1999 год, когда персонаж по имени Дэвид устроился на новую работу в качестве оператора одного научного комплекса-станции. Герой вынужден столкнуться с ужасными вещами, что застают его в новом месте. Придется бродить по коридорам и комнатам (   Читать дальше...   )Тип издания: LicenseРазработчик: Joakim LarsenЖанр: Приключение, От первого лица, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170144   (153010) от 26.12.2017
+
+Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oxenfree – это триллер о сверхъестественных силах, повествующий о группе друзей, которые случайно открывают проход в мир призраков. Вы играете за Алекс – умную, но своенравную девушку-тинейджера, которая берет своего нового сводного брата Джонаса на вечеринку с ночевкой на острове. Вечеринка оборачивается кошмаром, когда вы по незнанию открываете жуткие врата, являющиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Night School StudiosЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784335   (153001) от 27.12.2014
 
 Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
@@ -6,7 +84,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153001.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152690.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151870.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151737.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151256.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151091.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151005.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150968.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150884.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150229.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149739.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149106.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149081.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148564.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146594.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145967.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145884.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145640.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145630.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144970.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144821.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144680.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144447.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087618   (144142) от 28.12.2016
-
-Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.3/dlc) License PROPHET
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой игры Даниэль приходит в себя в старинном замке, не понимая, кто он, как сюда попал и что произошло. Единственное, что он испытывает, — леденящее чувство тревоги, как будто что-то преследует его и время, отведённое ему, уходит.Тип издания: LicenseРазработчик: Frictional GamesЖанр: Adventure, 3D, HorrorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DE54F5CDA097992E93FE8191C2130A4630122C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087634   (144025) от 28.12.2016
-
-Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий дракон (2003) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джорджу Стоббарду и Николь Коллар вновь предстоит отправиться в кругосветное путешествие, преодолевая опасности, собрать все улики и раскрыть тайну Спящего дракона. Зло стремится овладеть древней силой невероятной мощи, и наши герои оказываются втянутыми в этот заговор. Обстоятельства, таинственные совпадения и сама судьба сводят их вместе, и теперь они должны дать (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution SoftwareЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087616   (143856) от 28.12.2016
-
-The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
 ```
 
 https://mybot314.ru/tekegram_catalog/

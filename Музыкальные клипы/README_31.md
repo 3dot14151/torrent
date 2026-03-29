@@ -1,3 +1,87 @@
+###  Публикация: 1187879   (276877) от 30.11.2017
+
+Сборник клипов - Казахстанские клипы от ALEXnROCK (2017) WEBRip (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276877.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 1я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопФормат: AVIПродолжительность: 03:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE8850CBD30062B5EF47F539EAD4F429CBE0496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082753   (275429) от 14.12.2016
+
+Сборник - This is a Beautiful World (2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё один отличный сборник клипов специально подобранные для отдыха и интима вдвоем, где присуствуют красивые лирические мелодии в современной электронной аранжировке. Эта музыка создает особую атмосферу интима и сближения....01. Enigma - Between Generations [04:34]
+02. Leo Rojas - Winnetou [04:42]
+03. Stive Morgan - Back In The Past [04:41]
+04. Flaer Smin–November 23 [03:47](   Читать дальше...   )Жанр: Ambient, Chillout, New Age, LoungeПродолжительность: 04:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3D02C966DB881B2CCB3D879883331098D5B0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273832   (272327) от 24.12.2010
+
+Вера Брежнева - Любовь спасет мир (Подарочное издание) (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272327.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD с нового Альбома Веры Брежневой "Любовь спасет мир (Подарочное издание)Актеры: Вера БрежневаПеревод: ОригинальныйПродолжительность: (00:03:28+00:03:57+00:04:04+00:03:32+00:03:52)=00:17:73
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189068   (271125) от 05.12.2017
 
 Def Leppard - Visualize, Video Archive (2001) DVD9
@@ -6,7 +90,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271125.jpg" />
+  <img src="Z:/picture/008/save_picture_271125.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267324.jpg" />
+  <img src="Z:/picture/008/save_picture_267324.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264071.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264066.jpg" />
 </div>
 
 
@@ -123,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262025.jpg" />
 </div>
 
 
@@ -152,7 +236,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256139.jpg" />
+  <img src="Z:/picture/005/save_picture_256139.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255052.jpg" />
+  <img src="Z:/picture/005/save_picture_255052.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253449.jpg" />
+  <img src="Z:/picture/005/save_picture_253449.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253405.jpg" />
+  <img src="Z:/picture/005/save_picture_253405.jpg" />
 </div>
 
 
@@ -258,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252049.jpg" />
+  <img src="Z:/picture/004/save_picture_252049.jpg" />
 </div>
 
 
@@ -287,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251223.jpg" />
 </div>
 
 
@@ -313,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251044.jpg" />
 </div>
 
 
@@ -339,7 +423,7 @@ VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | K
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248236.jpg" />
+  <img src="Z:/picture/004/save_picture_248236.jpg" />
 </div>
 
 
@@ -365,7 +449,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230982.jpg" />
+  <img src="Z:/picture/005/save_picture_230982.jpg" />
 </div>
 
 
@@ -395,7 +479,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229407.jpg" />
+  <img src="Z:/picture/004/save_picture_229407.jpg" />
 </div>
 
 
@@ -421,7 +505,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225379.jpg" />
+  <img src="Z:/picture/005/save_picture_225379.jpg" />
 </div>
 
 
@@ -450,7 +534,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223829.jpg" />
+  <img src="Z:/picture/005/save_picture_223829.jpg" />
 </div>
 
 
@@ -476,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222452.jpg" />
+  <img src="Z:/picture/005/save_picture_222452.jpg" />
 </div>
 
 
@@ -505,7 +589,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222117.jpg" />
+  <img src="Z:/picture/005/save_picture_222117.jpg" />
 </div>
 
 
@@ -534,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217523.jpg" />
+  <img src="Z:/picture/005/save_picture_217523.jpg" />
 </div>
 
 
@@ -563,7 +647,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214661.jpg" />
+  <img src="Z:/picture/005/save_picture_214661.jpg" />
 </div>
 
 
@@ -592,7 +676,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213444.jpg" />
 </div>
 
 
@@ -618,7 +702,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213443.jpg" />
 </div>
 
 
@@ -629,84 +713,6 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E3701A49AC5B5679C04469CF2AE285719C54035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832135   (213442) от 30.10.2025
-
-SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832132   (213441) от 30.10.2025
-
-Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: BalladПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832119   (213440) от 30.10.2025
-
-Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
 ```
 
 https://mybot314.ru/tekegram_catalog/

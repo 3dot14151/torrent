@@ -1,3 +1,111 @@
+###  Публикация: 1538115   (664512) от 19.03.2022
+
+rcmd • App Switcher 1.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переосмысленная вкладка Command. Мы переосмыслили Command-Tab, чтобы переключать приложения без суеты.Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2021 The low-tech guysПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F631A6D86DB6FBEC20A40838533C22B7EC3200B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538099   (664511) от 19.03.2022
+
+Nova 9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
+Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2022Разработчик: © 2020–2021 Panic, IncПоддерживаемая ОС: macOS 10.15.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690B71F7F70329CEC114745C7187CBB28A6A9A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538170   (664506) от 19.03.2022
+
+Photomatix Pro 6 v6.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photomatix Pro – приложение для профессиональных фотографов и продвинутых любителей. Photomatix Pro комбинирует любое число различных кадров в сцене с высокой контрастностью в одно изображение с деталями и всеми тенями. Photomatix Pro – автономная система, которая расширяет динамический диапазон фотографов.
+Photomatix может автоматически создавать HDR изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2022Разработчик: © 2022 HDRsoftПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB18DB12E40A0331366B915B0ABBB6D5957D3BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138497   (664494) от 29.05.2017
+
+Downie 2.8.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 мая 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36410CD1B5493E9CD6BABAB3FE997773A14C551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538110   (664403) от 19.03.2022
 
 DoYourData Start Menu Pro 4.7 [En]
@@ -6,7 +114,7 @@ DoYourData Start Menu Pro 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664403.jpg" />
+  <img src="Z:/picture/008/save_picture_664403.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ MacX MediaTrans 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664392.jpg" />
+  <img src="Z:/picture/008/save_picture_664392.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Video to GIF Maker v1.0.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664314.jpg" />
+  <img src="Z:/picture/008/save_picture_664314.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Broken Age v. 2.1.0 (2014) [Multi] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664311.jpg" />
+  <img src="Z:/picture/008/save_picture_664311.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ dBpoweramp Music Converter 17.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664289.jpg" />
+  <img src="Z:/picture/008/save_picture_664289.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ PitStop Pro 13 (577239) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664075.jpg" />
+  <img src="Z:/picture/008/save_picture_664075.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ Cutter - Cut & Crop Video 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663366.jpg" />
+  <img src="Z:/picture/008/save_picture_663366.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ iFinance 4.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663244.jpg" />
+  <img src="Z:/picture/008/save_picture_663244.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ Runway v1.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663104.jpg" />
+  <img src="Z:/picture/008/save_picture_663104.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ HazeOver v1.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663097.jpg" />
+  <img src="Z:/picture/008/save_picture_663097.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ QuarkXPress 2015 v11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663020.jpg" />
+  <img src="Z:/picture/008/save_picture_663020.jpg" />
 </div>
 
 
@@ -299,7 +407,7 @@ Invisible, Inc. v.1.0 (12.05.2015) [Multi] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662963.jpg" />
+  <img src="Z:/picture/008/save_picture_662963.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ RightFont 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662462.jpg" />
+  <img src="Z:/picture/008/save_picture_662462.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ FSNotes 5.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662461.jpg" />
+  <img src="Z:/picture/008/save_picture_662461.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ Screegle - Clean Screen Sharing 2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662460.jpg" />
+  <img src="Z:/picture/008/save_picture_662460.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ xSearch for Safari 1.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662456.jpg" />
+  <img src="Z:/picture/008/save_picture_662456.jpg" />
 </div>
 
 
@@ -431,7 +539,7 @@ Slidepad 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662454.jpg" />
+  <img src="Z:/picture/008/save_picture_662454.jpg" />
 </div>
 
 
@@ -459,7 +567,7 @@ CloudMounter 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662415.jpg" />
+  <img src="Z:/picture/008/save_picture_662415.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ Desktop Stickers 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662404.jpg" />
+  <img src="Z:/picture/008/save_picture_662404.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Apeaksoft Blu-ray Player 1.1.58 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662395.jpg" />
+  <img src="Z:/picture/008/save_picture_662395.jpg" />
 </div>
 
 
@@ -541,7 +649,7 @@ Typora 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662391.jpg" />
+  <img src="Z:/picture/008/save_picture_662391.jpg" />
 </div>
 
 
@@ -567,7 +675,7 @@ TG Pro (Temperature Gauge Pro) 2.68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662390.jpg" />
+  <img src="Z:/picture/008/save_picture_662390.jpg" />
 </div>
 
 
@@ -579,114 +687,6 @@ TG Pro — контроль температуры и вентиляторов �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31FDF5610D44BD53434C9968806B1D0D79A6C6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138806   (662322) от 31.05.2017
-
-Calendar 366 Plus 1.4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calendar 366 Plus - календарь событий и напоминаний для меню бара
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
-
-Нажмите на иконку и получите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 мая 2017Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43476224A539D9EE4181D843295B13B0048E3963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113188   (662313) от 31.05.2017
-
-Swinsian 1.13.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swinsian - Альтернативный музыкальный проигрыватель для Mac OS X.
-Swinsian демонстрирует простой, но вместе с тем очень приятный интерфейс. Здесь мы видим привычные нам элементы управления, родную кнопку для раскрытия окошка на весь рабочий стол, привычные кнопки для сворачивания и разворачивания проигрывателя. Мы можем импортировать медиатеку iTunes, либо же некую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 мая 2017Разработчик: SwinsianПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4F7B6357B27EE4305CA669DAE41D781316CE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538735   (662301) от 21.03.2022
-
-Infuse PRO 7 v7.3.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2022Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB872061935BE42A6FF8C6746F498057CF90020A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538605   (662300) от 21.03.2022
-
-Image Optimizer - Compression 2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662300.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageOptim - это приложение для сжатия изображений (PNG, JPG, TIF, GIF, BMP, PSD, HEIC). Уменьшите размер файла на 75% -98% с помощью сжатия без потерь.Тип издания: macOS SoftwareРелиз состоялся: 21.03.2022Разработчик: ElimisoftПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC15D533158F1BE2061719402CCE39198C855C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1842322   (1048624) от 15.12.2025
+
+Looper Tactics (2023) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Looper Tactics - карточная ролевая стратегия, геймплей которой выстраивается вокруг исследования мира и раскрытия тайн древней цивилизации. С появлением фракции людей в распоряжение геймеров поступают новые тактические возможности, основанные на 5 уникальных боевых механиках. Эти умения позволяют временно объединять существ, жертвовать одних бойцов ради усиления (   Читать дальше...   )Тип издания: LicenseРазработчик: Inkstone AtelierЖанр: Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык озвучки: КитайскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE24D603F4F8B66BEFE0F677C9366B2B4446DF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842128   (1048483) от 14.12.2025
+
+Crypt of the Necrodancer (2014) [Ru/Multi] (4.2.0-b5599/dlc) Repack FitGirl [Ultimate Pack]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crypt of the NecroDancer – популярная и хардкорная ритм-игра в стиле roguelike. Маневрируйте под музыку и делайте кульбиты под бит! Оттягивайтесь под саундтрек от Дэнни Барановски или выберите музыку из собственной mp3-коллекции. Двигайтесь в такт музыке и выбивайте ритм на черепах врагов!Тип издания: RepackРазработчик: Brace Yourself GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFC9D796AEA94D2A6F6116829EF1E3F2E93AA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840926   (1047700) от 08.12.2025
+
+Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1047700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в успокаивающее путешествие в средние века с Inn Tycoon - спокойной и расслабляющей игрой, где вы формируете умиротворение прошлой эпохи. Вкусные блюда и ледяные напитки ждут вас для обслуживания клиентов. Увеличивайте свою репутацию с различными вариантами номеров и индивидуальной мебелью. Ваша мечтательная гостиница ждет вас, чтобы испытать эту великолепную (   Читать дальше...   )Тип издания: RepackРазработчик: Evil Goose GamesЖанр: Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F5D21BBC66E5CDE4FB2684DEA10724D0306934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591925   (1044787) от 18.01.2023
 
 Flat Eye (2022) [Multi] (1.2.1v2) License GOG
@@ -6,7 +84,7 @@ Flat Eye (2022) [Multi] (1.2.1v2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044787.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Project AURA (2018) [Ru/Multi] (1.1.8) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044090.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Prison Architect (2015) [Ru/Multi] (11011/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040956.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ ICBM (2020) [Ru/Multi] (1.02.03) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039719.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Rise of Industry (2019) [Ru/Multi] (2.3.11301a/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038905.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Anno 1800 (2019) [Ru/En] (9.2.972600/dlc) Repack West4it [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038618.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0.7583.25061) License GOG [Soundtrack Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036918.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Last Haven (2023) [Ru/Multi] (3.02.26) Scene TENOKE
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036080.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Trasamire Campaigns (2023) [En] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034267.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Dwarf Fortress (2022) [En] (50.07) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031520.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Planetbase (2015) [Ru/Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030305.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021346.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Jurassic World Evolution (2018) [Ru/En] (1.12.4.52769/dlc) Repack Other s [Premi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021234.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017144.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012624.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009740.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003027.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Rockefeller Das schwarze Gold [En/Gr] (L) 2013 | 0x0007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999479.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997639.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Sol 0: Mars Colonization (2016) [En] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969163.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Cities XL Platinum 2013 [En] (L) 2013 | COGENT
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963680.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953284.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953277.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089179   (953211) от 02.01.2017
-
-Sid Meier's Railroads! (2006) [Multi] (1.100) License GOG
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развивайте железнодорожную сеть, отстраивайте города и мегаполисы, налаживайте перевозку грузов, наблюдайте за тем, как созданный вами мир оживает. Увлекательная многопользовательская игра по локальной сети: саботируйте работу ваших конкурентов и станьте монополистом в сфере железнодорожных грузоперевозок! Постройте железную дорогу своей мечты и утрите нос этим задавакам (   Читать дальше...   )Тип издания: LicenseРазработчик: Firaxis GamesЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE81E557DB456F2B1763A1CE85572CD294D59129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624163   (953130) от 27.02.2013
-
-Impire + 2 DLC [Ru] (Repack/1.0.1.2) 2012 | Fenixx
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699BD6C057847D668D543F23FC2800F3D968A25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089807   (950033) от 04.01.2017
-
-Kingdom: New Lands (2016) [Ru/Multi] (1.2.1) Repack Other s
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom: New Lands, расширенное и дополненное издание невероятно красивой и непохожей на другие игры двухмерной стратегии. Что может быть лучше прогулки верхом по землям чудесного виртуального королевства? Мудрый правитель вершит правосудие среди подданных и щедро раздает золото.Тип издания: RepackРазработчик: NoioЖанр: Strategy (Manage, Busin., Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C4B91BA0E4E6197E6032D425555CA10F8606A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

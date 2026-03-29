@@ -1,3 +1,142 @@
+###  Публикация: 975989   (970750) от 16.01.2016
+
+YouTubeHunter Pro 5.6.2 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загружайте видео на Ваш компьютер!
+Это занимает всего несколько секунд, чтобы найти и скачать видео с YouTube, Vimeo, DailyMotion, VEVO и др. YouTubeHunter загружает в видео в 15 раз быстрее, чем просмотр в реальном времени и поддерживает одновременные загрузки. YouTubeHunter имеет встроенные возможности поиска и просмотра. Получить видео в доступном URL-адресе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 января 2016Разработчик: YouTubeHunterПоддерживаемая ОС: Mac OS X 10.4 +Язык интерфейса: Английский, Итальянский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A482B96C8618F819949F3BE8AB1C866F73EF395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358233   (969480) от 07.02.2020
+
+Disk Drill Enterprise 3.8.965 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Enterprise - самое популярное приложение для восстановлени данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
+
+После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2020Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4293E7519BDACD11DE281777DB643F520C0843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745202   (968886) от 13.01.2014
+
+Disk Order 3.2.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Order – это двухпанельный файловый менеджер для Mac OS со встроенным FTP-клиентом.Отличный выбор для тех, кому приходится много работать с файлами. Также идеально подходит для пользователей Mac, которые недавно перешли с PC. Большинство файловых операций проводятся с клавиатуры, что очень удобно для обладателей ноутбуков.
+
+Утилита Disk Order является отличной (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 31 октября 2013Разработчик: LikeMac Group.Поддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C99858684B6F2487AEB777E2E759E22C46CBC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168682   (968215) от 22.01.2010
+
+Disco 1.0.3 [Rus] (2008)
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для записи CD/DVD (+DL DVD) и работы с образами (DMG/ISO/CDR).Есть возможность дописывать.
+Программа маленькая и легкая - но работает эффективно.2008Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977000   (967789) от 19.01.2016
+
+Tublme for Tumblr 1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tumblr: новый взгляд на сервис микроблогов
+Tumblr. Это очень удобный социальный инструмент, который делает упор не столько на особенности размещения пользовательского контента, сколько на сортировку данных на просторах этой социальной сети. Сервис обзавелся отличным сайтом, где каждый может создать индивидуальный блог, выбрав одну из предложенных тем
+
+Tumblr (клиент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 января 2016Разработчик: Raken StudioПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E79A8F63DB8714E2712F465D89820367A8B9FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976985   (967750) от 19.01.2016
 
 Grids for Instagram 3.1.1 [Multi/Ru]
@@ -6,7 +145,7 @@ Grids for Instagram 3.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967750.jpg" />
 </div>
 
 
@@ -35,7 +174,7 @@ Apple iMovie 10.1.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966323.jpg" />
 </div>
 
 
@@ -63,7 +202,7 @@ IconFly 3.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966288.jpg" />
 </div>
 
 
@@ -91,7 +230,7 @@ Wizard Pro 1.9.36 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966279.jpg" />
 </div>
 
 
@@ -118,7 +257,7 @@ Adobe Photoshop Elements 2020.1 v18.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965895.jpg" />
 </div>
 
 
@@ -144,7 +283,7 @@ Nvidia Web Driver for 10.11.3 346.03.05f01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965594.jpg" />
 </div>
 
 
@@ -171,7 +310,7 @@ Nvidia Web Driver for 10.11.4 346.03.06b01 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965415.jpg" />
 </div>
 
 
@@ -198,7 +337,7 @@ DropDMG 3.5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965229.jpg" />
 </div>
 
 
@@ -225,7 +364,7 @@ iFlicks 3 v3.4.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965125.jpg" />
 </div>
 
 
@@ -253,7 +392,7 @@ Screaming Frog SEO Spider 12.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964880.jpg" />
 </div>
 
 
@@ -279,7 +418,7 @@ Xcode 7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964384.jpg" />
 </div>
 
 
@@ -307,7 +446,7 @@ Arq 4.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963576.jpg" />
 </div>
 
 
@@ -336,7 +475,7 @@ EdgeView 2 v2.842 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963275.jpg" />
 </div>
 
 
@@ -365,7 +504,7 @@ Back-In-Time 5 v5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961935.jpg" />
 </div>
 
 
@@ -392,7 +531,7 @@ Flexiglass 1.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961934.jpg" />
 </div>
 
 
@@ -419,7 +558,7 @@ Aiseesoft Mac PDF to Excel Converter 3.3.20 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961898.jpg" />
 </div>
 
 
@@ -447,7 +586,7 @@ Aiseesoft Mac PDF to Word Converter 3.3.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961896.jpg" />
 </div>
 
 
@@ -473,7 +612,7 @@ Paragon ExtFS for Mac 11.3.30 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961750.jpg" />
 </div>
 
 
@@ -501,7 +640,7 @@ Troga 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961054.jpg" />
 </div>
 
 
@@ -528,7 +667,7 @@ Fuel for Keynote 2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960788.jpg" />
 </div>
 
 
@@ -557,7 +696,7 @@ Adobe Acrobat Pro DC 20.006.20034 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960290.jpg" />
 </div>
 
 
@@ -568,141 +707,6 @@ Acrobat DC — это полностью обновленная настольн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9208FEABBA70C069CC02CED6AD27CB6DC2717AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979411   (959647) от 26.01.2016
-
-iSkysoft iMedia Converter Deluxe 4.7.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактируйте, конвертируйте, скачивайте, записывайте и конечно же просматривайте видео на вашем iPhone, iPad и iPod. iSkysoft iMedia Converter Deluxe воспроизводит, редактирует, записывает и изменяет любые видео файлы без потери качества.
-
-iSkysoft iMedia Converter Deluxe – мощный комбайн: медиа конвертер популярных аудио и видео форматов, риппер DVD, копирование (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 декабря 2015Разработчик: iSkysoft StudioПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76B0B1AE53D7866CA12A1FC29C45EDB616DA741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360694   (959406) от 16.02.2020
-
-Adze 1.4.12 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adze предоставляет вам инструменты для редактирования документов GPX: создавать, изменять и удалять треки, планировать маршруты, отмечать путевые точки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Kobot SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AD4998F0767F05E1222D7BC38212FA2187A74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979504   (959380) от 26.01.2016
-
-LUT Utility for Final Cut Pro X and Motion 1.44 (upd 29.10.2015) [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Применение 3D LUT-ов  прямо в Final Cut Pro X, используя этот удивительный плагин от colorgradingcentral. 
-
-Вы можете эмулировать различные пленки, включая Fuji 3510, Kodak 2393 и процессы Technicolor. Плагин поддерживает материалы: Arri Alexa Log C, Blackmagic Cinema Camera, Technicolor Cinestyle, Sony SLOG и т.д. и т.п. Кроме того, можно импортировать цветокоррекцию (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 октября 2015Разработчик: СolorgradingcentralПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC2AEEEDD76D7739D2D12E99588BF337125DE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360664   (959081) от 16.02.2020
-
-Paragon Camptune X v10.13.433 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы работаете в среде Windows® на компьютере Mac? Тогда у Вас двойное преимущество. Во-первых, надежное оборудование и операционная система от Apple, а во-вторых, широкий спектр ПО для MS Windows. Встроенная программа Apple Boot Camp прекрасно устраняет проблемы взаимодействия MS Windows и macOS, пока дело не доходит до перераспределения свободного места на жестком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: ParagonПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0464227226461051D6FD3112BFA3A768816FBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979716   (958355) от 27.01.2016
-
-Boinx FotoMagico 4.6.8 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958355.jpg" />
-</div>
-
-
-###  Подробнее
-
-FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
-В состав  программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 января 2016Разработчик: Boinx Software Ltd.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский (by yagger), Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67645A7A467234418124C3116CD5CFDAA22E594
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1331394   (332166) от 15.10.2019
+
+Native Instruments Maschine 2 v2.8.7 Standalone AU VST [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maschine – это рабочая станция для создания битов со встроенным барабанным секвенсором, функциями семплирования и нарезки лупов, являющаяся самым актуальным на данный момент результатом инициативы Native Instruments по созданию гибридных аппаратно-программных инструментов.
+Программный компонент запускается как самостоятельное приложение или в качестве AU/VST/RTAS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2134A2E019AE34D2406578950B387C62CA696BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840919   (332055) от 14.11.2014
+
+Компас++ PRO 3.3 [iOS 6.1 + jailbreak] [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Compass предлагает уникальные HD-темы компаса для iPhone и iPad. iPad имеет встроенный цифровой компас, однако приложение для его использования на устройстве отсутствует, и мы поможем вам решить эту проблему.
+Теперь вы никогда не потеряетесь, а компас будет очень стильным.
+Приложение для компаса поддерживает распознавание сетчатки на устройствах iPhone и iPad. Проводите пальцем по экрану вправо или влево и переключайтесь между 15+ красивыми темами.Тип издания: iPad / iPhoneРазработчик: OnDemandWorld LimitedЯзык интерфейса: русский, упрощенный китайский, японский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7949CBE7A98A95A85BBE69FBB1163D0AFC411F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955774   (331939) от 12.11.2015
+
+Apple iWork: Keynote 6.6.1, Numbers 3.6.1 & Pages 5.6.1 (upd 11.11.2015) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331939.jpg" />
+</div>
+
+
+###  Подробнее
+
+iWork — это самый простой способ создания великолепных документов, таблиц и презентаций. В Pages очень легко набирать тексты и создавать макеты страниц. Numbers поможет просто и эффективно работать с данными. А новые анимации, переходы и эффекты кинематографического качества в Keynote восхитят вашу аудиторию. Кроме того, пакет iWork работает с Microsoft Office, поэтому (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2015Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10.4 +Язык интерфейса: Русский, Английский, Голландский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC3A4C6154C99D57E952567871A018DEEEEA2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331501   (331754) от 15.10.2019
+
+Sketch 59 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B468D24AA549A420183E2D41B581B16E94001B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420972   (331414) от 02.11.2020
 
 ProFind 1.8.4 [En]
@@ -6,7 +114,7 @@ ProFind 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331414.jpg" />
+  <img src="Z:/picture/008/save_picture_331414.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Find Any File (FAF) 2.1.2b6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331411.jpg" />
+  <img src="Z:/picture/008/save_picture_331411.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Soulver 3 v3.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331408.jpg" />
+  <img src="Z:/picture/008/save_picture_331408.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ Flashcard Hero 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331365.jpg" />
+  <img src="Z:/picture/008/save_picture_331365.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ App Tamer 2 v2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331359.jpg" />
+  <img src="Z:/picture/008/save_picture_331359.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ MiniTube 3.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331281.jpg" />
+  <img src="Z:/picture/008/save_picture_331281.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ Serial Box 11.2020 + iSerial Reader 2.0.24 + SerialSeeker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331274.jpg" />
+  <img src="Z:/picture/008/save_picture_331274.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ dBpoweramp Music Converter 17.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331272.jpg" />
+  <img src="Z:/picture/008/save_picture_331272.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Elmedia Player Pro 7.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331198.jpg" />
+  <img src="Z:/picture/008/save_picture_331198.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ Divvy 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331055.jpg" />
+  <img src="Z:/picture/008/save_picture_331055.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ IP Scanner Pro 3.41.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330279.jpg" />
+  <img src="Z:/picture/008/save_picture_330279.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ Cookie 4.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330275.jpg" />
+  <img src="Z:/picture/008/save_picture_330275.jpg" />
 </div>
 
 
@@ -333,7 +441,7 @@ CleanApp 5.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330201.jpg" />
+  <img src="Z:/picture/008/save_picture_330201.jpg" />
 </div>
 
 
@@ -361,7 +469,7 @@ iMazing 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330178.jpg" />
+  <img src="Z:/picture/008/save_picture_330178.jpg" />
 </div>
 
 
@@ -388,7 +496,7 @@ PDF Expert 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329396.jpg" />
+  <img src="Z:/picture/008/save_picture_329396.jpg" />
 </div>
 
 
@@ -417,7 +525,7 @@ Bitdefender Antivirus 4.0.0 (10079) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329168.jpg" />
+  <img src="Z:/picture/008/save_picture_329168.jpg" />
 </div>
 
 
@@ -444,7 +552,7 @@ Sketch 3.4.2 (15857) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328276.jpg" />
+  <img src="Z:/picture/008/save_picture_328276.jpg" />
 </div>
 
 
@@ -471,7 +579,7 @@ BlueHarvest 6.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327557.jpg" />
+  <img src="Z:/picture/008/save_picture_327557.jpg" />
 </div>
 
 
@@ -500,7 +608,7 @@ Downie 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327486.jpg" />
+  <img src="Z:/picture/008/save_picture_327486.jpg" />
 </div>
 
 
@@ -528,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326713.jpg" />
+  <img src="Z:/picture/008/save_picture_326713.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ iPulse 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326706.jpg" />
+  <img src="Z:/picture/008/save_picture_326706.jpg" />
 </div>
 
 
@@ -581,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326646.jpg" />
+  <img src="Z:/picture/008/save_picture_326646.jpg" />
 </div>
 
 
@@ -592,113 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4657061F98285A6FC921DEFF92324439B4EB5796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957645   (326596) от 18.11.2015
-
-Blocs 1.5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой способ создания красивых сайтов.
-Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
-
-Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2015Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6167ED6EBB5C1D13EE4A013CAF7AA885E13607CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957795   (326590) от 18.11.2015
-
-Path Finder 7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: CocoatechПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15112CFFD3E2CC290CC95DB6E25A8EDF293C4CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957649   (326468) от 18.11.2015
-
-On1 Photo 10 (10.0.0.2241) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326468.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo 10 — набор мощных приложений от известной компании onOne Software, представленный в едином пакете. Включает в себя 6 автономных программ и плагинов для Adobe Photoshop, Lightroom и др.. Он предназначен для профессиональных и продвинутых фотографов и просто любителей фотографии, который предоставит интуитивно понятные инструменты для применения фотографических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2015Разработчик: ON1, Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8D303A866344E7E994D90CCA71B48A83E41402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957634   (326307) от 18.11.2015
-
-SketchUp Pro 2016 (16.0.19913) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326307.jpg" />
-</div>
-
-
-###  Подробнее
-
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2015Разработчик: Trimble Navigation LimitedПоддерживаемая ОС: Mac OS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D6CC18BBF7703E671649C4E3895BABC2E80A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

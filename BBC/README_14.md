@@ -6,7 +6,7 @@ BBC: Выдающиеся женщины ХХ столетия. Агата Кр�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620695.jpg" />
+  <img src="Z:/picture/008/save_picture_620695.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Выдающиеся женщины ХХ столетия. Одри Хеп�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620546.jpg" />
+  <img src="Z:/picture/008/save_picture_620546.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Преступники Британии: разбойники, пираты
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618734.jpg" />
+  <img src="Z:/picture/008/save_picture_618734.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616884.jpg" />
+  <img src="Z:/picture/008/save_picture_616884.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613309.jpg" />
+  <img src="Z:/picture/008/save_picture_613309.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612350.jpg" />
+  <img src="Z:/picture/008/save_picture_612350.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Происхождение человека / Origins of Us (2011) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612054.jpg" />
+  <img src="Z:/picture/008/save_picture_612054.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610563.jpg" />
+  <img src="Z:/picture/008/save_picture_610563.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607520.jpg" />
+  <img src="Z:/picture/008/save_picture_607520.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. Большой Барьерный риф / Great Barrier Reef (3 серии
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607065.jpg" />
+  <img src="Z:/picture/008/save_picture_607065.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606710.jpg" />
+  <img src="Z:/picture/008/save_picture_606710.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606330.jpg" />
+  <img src="Z:/picture/008/save_picture_606330.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605430.jpg" />
+  <img src="Z:/picture/008/save_picture_605430.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Восхождение женщины / The Ascent of Woman (2015) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603177.jpg" />
+  <img src="Z:/picture/008/save_picture_603177.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ BBC: Век природы / The Age of Nature (2020) HDTVRip [H.264/720p] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602868.jpg" />
+  <img src="Z:/picture/008/save_picture_602868.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602479.jpg" />
+  <img src="Z:/picture/008/save_picture_602479.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602245.jpg" />
+  <img src="Z:/picture/008/save_picture_602245.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599430.jpg" />
+  <img src="Z:/picture/008/save_picture_599430.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596970.jpg" />
+  <img src="Z:/picture/008/save_picture_596970.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC. Horizon: В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595702.jpg" />
+  <img src="Z:/picture/008/save_picture_595702.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC: Выдающиеся женщины ХХ столетия. Индира Г�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595581.jpg" />
+  <img src="Z:/picture/008/save_picture_595581.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC: Выдающиеся женщины ХХ столетия. Коко Шан�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595457.jpg" />
+  <img src="Z:/picture/008/save_picture_595457.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591335.jpg" />
+  <img src="Z:/picture/008/save_picture_591335.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC: Дикая Африка и Маленькие гиганты / Wild Africa 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587015.jpg" />
+  <img src="Z:/picture/008/save_picture_587015.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585586.jpg" />
+  <img src="Z:/picture/008/save_picture_585586.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Голубая планета / The Blue Planet (2001) [DVDRip] [8 сери
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_585582.jpg" />
+  <img src="Z:/picture/005/save_picture_585582.jpg" />
 </div>
 
 

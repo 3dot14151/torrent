@@ -1,3 +1,29 @@
+###  Публикация: 1270034   (214893) от 17.12.2018
+
+Рома / Roma (2018) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214893.jpg" />
+</div>
+
+
+###  Подробнее
+
+История мексиканской семьи среднего класса, живущей в начале 1970-х годов. Отец редко бывает дома, мать воспитывает четырех детей, опираясь на помощь двух служанок из Индии. Судьбу героев переламывают студенческие волнения во время католического праздника 10 июня 1971 года, когда демонстранты были расстреляны солдатами.Производство: Мексика, США / Esperanto Filmoj, Participant MediaЖанр: ДрамаРежиссер: Альфонсо КуаронАктеры: Ялица Апарисио, Марина Де Тавира, Диего Кортина Отри, Карлос Перальта, Марко Граф, Даниэла Демеса, Нэнси Гарсия, Диего Ди Корт, Латин Ловер, Фернандо ГредиагаПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 02:14:57Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3EAC86C39C25AE6B82D802212B5597DF3453A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270119   (214885) от 17.12.2018
 
 Запретное могущество / Forbidden Power (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214885.jpg" />
+  <img src="Z:/picture/005/save_picture_214885.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214844.jpg" />
+  <img src="Z:/picture/005/save_picture_214844.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214682.jpg" />
+  <img src="Z:/picture/005/save_picture_214682.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214584.jpg" />
+  <img src="Z:/picture/005/save_picture_214584.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214406.jpg" />
+  <img src="Z:/picture/005/save_picture_214406.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214284.jpg" />
+  <img src="Z:/picture/005/save_picture_214284.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214120.jpg" />
+  <img src="Z:/picture/005/save_picture_214120.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214098.jpg" />
+  <img src="Z:/picture/005/save_picture_214098.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214056.jpg" />
+  <img src="Z:/picture/005/save_picture_214056.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214047.jpg" />
+  <img src="Z:/picture/005/save_picture_214047.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214010.jpg" />
+  <img src="Z:/picture/005/save_picture_214010.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213976.jpg" />
+  <img src="Z:/picture/005/save_picture_213976.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213890.jpg" />
+  <img src="Z:/picture/005/save_picture_213890.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213846.jpg" />
+  <img src="Z:/picture/005/save_picture_213846.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213765.jpg" />
+  <img src="Z:/picture/005/save_picture_213765.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213130.jpg" />
+  <img src="Z:/picture/005/save_picture_213130.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212891.jpg" />
+  <img src="Z:/picture/005/save_picture_212891.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212844.jpg" />
+  <img src="Z:/picture/005/save_picture_212844.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212821.jpg" />
+  <img src="Z:/picture/005/save_picture_212821.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212818.jpg" />
+  <img src="Z:/picture/005/save_picture_212818.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212791.jpg" />
+  <img src="Z:/picture/005/save_picture_212791.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212787.jpg" />
+  <img src="Z:/picture/005/save_picture_212787.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212786.jpg" />
+  <img src="Z:/picture/005/save_picture_212786.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212782.jpg" />
+  <img src="Z:/picture/005/save_picture_212782.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212780.jpg" />
+  <img src="Z:/picture/005/save_picture_212780.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:866E4D729FC7B458C04196F891BF0816CA6156AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562931   (212672) от 11.07.2022
-
-Тень кота / La Sombra Del Gato / Shadow of the Cat (2021) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмма живёт с отцом и его странным другом по кличке Тень на ферме вдали от цивилизации. С детства её учили верить в зловредность разных современных финтифлюшек. Но однажды она тайком приезжает в город с отцом и находит мобильный телефон...Производство: Аргентина / LouLou Productions, Shock House S.R.L., Tieless MediaЖанр: Фэнтези, приключенияРежиссер: Хосе Мария СикалаАктеры: Моника Антонопулос, Рита Кортесе, Матиас Десидерио, Клара Ковачич, Heinz K. Krattiger, Мэйти Ланата, Луис Мачин, Канделария Мольфесе, Джей Монтальво, Питер О’Брайэн, Денни ТрехоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: Английские (Hardsub)Продолжительность: 01:27:49Реклама: Присутствуют аудио и видео вставки рекламы, баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C2E6AE737B6DF702D50AA5E2A2A3A430A1BD43
 ```
 
 https://mybot314.ru/tekegram_catalog/

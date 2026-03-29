@@ -1,3 +1,116 @@
+###  Публикация: 1193475   (262116) от 21.12.2017
+
+Fenetre 0.5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15 декабря 2017Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14545CD2F9F4681A3D8B1A702695C83653A8BCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193467   (262106) от 21.12.2017
+
+Viscosity 1.7.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viscosity является OpenVPN клиентом для Mac, с простым и понятным интерфейсом пользователя для создания, редактирования и управления VPN соединениями. Приложение обеспечивает полную поддержку решения OpenVPN для macOS и не требует никакого дополнительного программного обеспечения.
+
+Viscosity может подключаться к любому серверу OpenVPN серверу и позволяет полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: SparkLabsПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB184F72DE5FF34356A38E58D18E2347893F851B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193446   (262076) от 21.12.2017
+
+Mate – Dictionary, Translator (мгновенный переводчик) 4.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекращайте изучать языки и заниматься переводом старыми неэффективными способами. Загружайте переводчик Mate Translate для Mac уже сегодня! Mate Translate – это исчерпывающие словари 103 языков мира, разговорники, синхронизация переводов и фраз между всеми вашими устройствами и прямой доступ через вашу панель меню Mac.
+
+Mate Translate обладает невероятно полной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: Twopeople Software LLCПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE98B33C73271F330A665EB17B8A58A4A2482DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193408   (262068) от 21.12.2017
+
+Luminar 2018 v1.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C0420E3645E2DFD79CE5CF27BF918C4AE581A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193407   (262033) от 21.12.2017
 
 Sketch 48.2 [En]
@@ -6,7 +119,7 @@ Sketch 48.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262033.jpg" />
 </div>
 
 
@@ -33,7 +146,7 @@ PDF Expert 2.2.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261983.jpg" />
 </div>
 
 
@@ -62,7 +175,7 @@ ExpanDrive 6.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261937.jpg" />
 </div>
 
 
@@ -91,7 +204,7 @@ Money Pro 1.8.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261907.jpg" />
 </div>
 
 
@@ -119,7 +232,7 @@ iFinance 4.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261808.jpg" />
 </div>
 
 
@@ -145,7 +258,7 @@ PDF Expert 2.2.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261776.jpg" />
 </div>
 
 
@@ -174,7 +287,7 @@ Pixave 2.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261740.jpg" />
 </div>
 
 
@@ -201,7 +314,7 @@ Adobe® Creative Suite® 6 Design & Web Premium [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259506.jpg" />
+  <img src="Z:/picture/005/save_picture_259506.jpg" />
 </div>
 
 
@@ -227,7 +340,7 @@ One Switch 1.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255551.jpg" />
+  <img src="Z:/picture/005/save_picture_255551.jpg" />
 </div>
 
 
@@ -253,7 +366,7 @@ Master of Typing 3 - Practice 15.13.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255548.jpg" />
+  <img src="Z:/picture/005/save_picture_255548.jpg" />
 </div>
 
 
@@ -279,7 +392,7 @@ System Dashboard Pro 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255509.jpg" />
+  <img src="Z:/picture/005/save_picture_255509.jpg" />
 </div>
 
 
@@ -305,7 +418,7 @@ PDF Expert 3.0.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254920.jpg" />
+  <img src="Z:/picture/005/save_picture_254920.jpg" />
 </div>
 
 
@@ -332,7 +445,7 @@ Infuse PRO 7.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254912.jpg" />
+  <img src="Z:/picture/005/save_picture_254912.jpg" />
 </div>
 
 
@@ -358,7 +471,7 @@ uDock 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254847.jpg" />
+  <img src="Z:/picture/005/save_picture_254847.jpg" />
 </div>
 
 
@@ -384,7 +497,7 @@ Sketch 96.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254814.jpg" />
+  <img src="Z:/picture/005/save_picture_254814.jpg" />
 </div>
 
 
@@ -410,7 +523,7 @@ Unclutter 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254812.jpg" />
+  <img src="Z:/picture/005/save_picture_254812.jpg" />
 </div>
 
 
@@ -437,7 +550,7 @@ Aiseesoft Mac Data Recovery  1.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254808.jpg" />
+  <img src="Z:/picture/005/save_picture_254808.jpg" />
 </div>
 
 
@@ -464,7 +577,7 @@ SketchUp Pro 2023 v23.0.418 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254733.jpg" />
+  <img src="Z:/picture/005/save_picture_254733.jpg" />
 </div>
 
 
@@ -490,7 +603,7 @@ CleanMyMac X 4.13.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254441.jpg" />
+  <img src="Z:/picture/005/save_picture_254441.jpg" />
 </div>
 
 
@@ -516,7 +629,7 @@ VMware Fusion Pro 12 v12.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250270.jpg" />
+  <img src="Z:/picture/004/save_picture_250270.jpg" />
 </div>
 
 
@@ -543,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250099.jpg" />
+  <img src="Z:/picture/004/save_picture_250099.jpg" />
 </div>
 
 
@@ -570,7 +683,7 @@ Nik Complete 5 Collection by DxO v5.0.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250016.jpg" />
+  <img src="Z:/picture/004/save_picture_250016.jpg" />
 </div>
 
 
@@ -582,112 +695,6 @@ Nik Complete 5 Collection by DxO v5.0.2 U2B [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A85AD24328B46620D5C8AFEE3D25AF519CFA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563766   (249998) от 15.07.2022
-
-Commander One PRO Pack 3 v3.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1B1F0B3AC19D921822CF948C78F1A574CB40CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563895   (249945) от 16.07.2022
-
-ON1 Portrait AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249945.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Portrait AI – новый инструмент обработки портретов, который использует технологии искусственного интеллекта, он способен автоматически обнаружить лица людей на фотографии и тут же обработать их, причём без необходимости каких-то настроек и вообще вмешательства оператора. Представляя программу, вице-президент ON1 Дэн Харлахер (Dan Harlacher), в частности, сказал, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © 2022 ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF2AFF5D068A6775F390D10777C544B3E6DAF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564071   (249878) от 17.07.2022
-
-iTubeGo YouTube Downloader Pro 5.3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачивайте видео в формате Full HD/4K/8K с YouTube и более чем с 10 000 веб-сайтов на высокой скорости.
-Являясь мощным загрузчиком HD-видео для YouTube, Dailymotion, Facebook и других потоковых сайтов, iTubeGo HD Video Downloader обеспечивает в 10 раз более высокую скорость для массовой загрузки высококачественных видео. Кроме того, он предоставляет встроенный браузер (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 iTubeGoПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1709AD83EBD36E2DD75E81AC1044A5953835E765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564608   (249728) от 19.07.2022
-
-Adobe Substance 3D Painter 8.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Substance 3D Painter есть инструменты, необходимые для текстурирования ваших 3D-ресурсов, от расширенных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2014-2021 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E292B3D152CC3E8268BB732F7C0F088BE5B229
 ```
 
 https://mybot314.ru/tekegram_catalog/

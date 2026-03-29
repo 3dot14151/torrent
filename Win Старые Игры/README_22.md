@@ -1,3 +1,55 @@
+###  Публикация: 1185929   (288875) от 23.11.2017
+
+The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отстройте собственное королевство с помощью охотников, воинов, кораблестроителей и других подданных. Возведите продуманные поселения, используя более 25 типов построек. Выберите одну из 49 карт или используйте простой в освоении редактор уровней, чтобы создать новые миры с непроходимыми чащами, могучими вулканами, внушительными горными цепями. Постройте флот, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Byte StudioЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185964   (288867) от 23.11.2017
+
+Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боги, должно быть, сошли с ума! Сначала Всемогущий ОН, отец всех богов, за обычную попойку отправил Юпитера, Гора и Чиб-Ю на сверхтяжелое состязание. Затем трех богов попросту выставили на посмешище: К'нкура, богиня амазонок, нарочно проиграла им битву, и вместо триумфа их ждал позор и осмеяние. Settlers® III: Ultimate Collection – красочная стратегия, симулятор (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Byte StudioЖанр: Стратегия, В реальном времени, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080487   (287377) от 07.12.2016
 
 Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
@@ -6,7 +58,7 @@ Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287377.jpg" />
+  <img src="Z:/picture/008/save_picture_287377.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Albion (1995) [Multi] (1.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285370.jpg" />
+  <img src="Z:/picture/008/save_picture_285370.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Descent 3 (2000) [En] (1.4/dlc) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285338.jpg" />
+  <img src="Z:/picture/008/save_picture_285338.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285199.jpg" />
+  <img src="Z:/picture/008/save_picture_285199.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Screamer (1995) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284110.jpg" />
+  <img src="Z:/picture/008/save_picture_284110.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Screamer 2 (1996) [En] (1.00) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283937.jpg" />
+  <img src="Z:/picture/008/save_picture_283937.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Silent Hunter 2 (2001) [En] (1.00.06) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281980.jpg" />
+  <img src="Z:/picture/008/save_picture_281980.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Startopia (2001) [En] (1.00) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281867.jpg" />
+  <img src="Z:/picture/008/save_picture_281867.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Descent (1996) [En] (1.4a) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281756.jpg" />
+  <img src="Z:/picture/008/save_picture_281756.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Nox (2000) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281625.jpg" />
+  <img src="Z:/picture/008/save_picture_281625.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Descent 2 (1996) [En] (1.1) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279999.jpg" />
+  <img src="Z:/picture/008/save_picture_279999.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Freedom Fighters (2003) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279900.jpg" />
+  <img src="Z:/picture/008/save_picture_279900.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Afterlife (1996) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279139.jpg" />
+  <img src="Z:/picture/008/save_picture_279139.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276703.jpg" />
+  <img src="Z:/picture/008/save_picture_276703.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276180.jpg" />
+  <img src="Z:/picture/008/save_picture_276180.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275939.jpg" />
+  <img src="Z:/picture/008/save_picture_275939.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275073.jpg" />
+  <img src="Z:/picture/008/save_picture_275073.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275060.jpg" />
+  <img src="Z:/picture/008/save_picture_275060.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274157.jpg" />
+  <img src="Z:/picture/008/save_picture_274157.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Sensible Soccer 2006 (2006) [En] (1.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273100.jpg" />
+  <img src="Z:/picture/008/save_picture_273100.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273084.jpg" />
+  <img src="Z:/picture/008/save_picture_273084.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273001.jpg" />
+  <img src="Z:/picture/008/save_picture_273001.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268498.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265252.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:434B09EEE841988EF0698CAFC43DB80FEC732ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191350   (264344) от 13.12.2017
-
-Sherlock Holmes: The Case of the Silver Earring / Шерлок Холмс. Загадка серебряной сережки (2004) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264344.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Шерлок Холмс: Загадка серебряной сережки» – оригинальный квест, разработанный компанией Frogwares и озвученный «лучшим Холмсом современности», актером Василием Ливановым. Действие игры начинается с загадочного убийства. Устроив торжественный прием в честь возвращения любимой дочери Лавинии, сэр Бромсби и не подозревал, что этот ужин окажется для него последним. (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Квест, ДетективЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06054824574DFE95AFEC8B274861789A815B3897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453604   (263795) от 23.11.2019
-
-Toyland Racing / Игрушечные гонки [Ru] (L) 1998
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детская ездилка под названием"Toyland Racing" от компании "Revistronic Industrial Programs" переносит нас в забавный игрушечный мир, в котором регулярно проводятся всевозможные чемпионаты. Правда, поначалу вам в них никто покататься не даст, сперва придется заработать лицензию, выполняя несложные задания. А уже потом участвовать и в самих соревнованиях. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: RevistronicЖанр: Arcade RacingЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57236DEAD08F00D3D7A023CE28C7BCA88250941
 ```
 
 https://mybot314.ru/tekegram_catalog/

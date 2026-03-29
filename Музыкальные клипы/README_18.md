@@ -1,3 +1,88 @@
+###  Публикация: 1038600   (597094) от 31.07.2016
+
+Сборник клипов - Philizz "I covered the 80s" (season 1, episode 1-5) (2016) WEB-DLRip [H.264/720-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_597094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "I covered the 80s" - фирменный видеомикс от голландского ви-джея Philizz, составленный из небольших фрагментов клипов.
+Ваши любимые композиции 80-х годов - в современной обработке.
+- Разбивка по трекам отсутствует.Episode 1:
+Modern Talking - You're My Heart, You're My Soul '98
+Rickrollerz - Never Gonna Give You Up
+Alyssa Reid ft. Jump Smokers - Alone Again(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: от 00:26:12 до 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81AD374E008576E08C2BFE220E1458938578EACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548829   (596035) от 04.05.2022
+
+Владимир Пресняков – Странная (2020) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596035.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кадре, в главной роли появляется необычная девушка, она выглядит неординарно, а сыграла ее Соня Александрова. Именно она вызвала большой интерес к данному клипу. Многие оценили игру модели, клип получился яркий, необычный, данная новинка достойна внимания. Так же отметили, что девушка отлично меняет свои образы, необычно танцует, что добавляет клипу особую изюминку. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B736FC8CA127F78096D00F95C53892A41723491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038778   (595606) от 01.08.2016
+
+The Sweet – Action (The Ultimate Story) (2015) DVDReMux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну что сказать про Свит? Для моего поколения они тоже одни из символов времени. Некоторые их треки (Co-Co, например) даже появлялись на пластинках Мелодии. Но, конечно, наиболее сильное впечатление на меня произвел их альбом Fanny Adams, который я услышал году этак в 75-ом. AC-DC - сила! :mrgreen:
+
+Одним словом, перед вами одна из моих ностальгических раздач, которая (   Читать дальше...   )Жанр: Hard rock, Glam rockПродолжительность: 00:58:44 (Music Videos) + 00:58:57 (On TV)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B373167992AB8C8796BD867D44C83D870FF52B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549637   (593352) от 07.05.2022
 
 Валерия - Чтобы все было хорошо (2022) WEBRip [H.264/1080p]
@@ -6,7 +91,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593352.jpg" />
+  <img src="Z:/picture/008/save_picture_593352.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590341.jpg" />
+  <img src="Z:/picture/008/save_picture_590341.jpg" />
 </div>
 
 
@@ -58,7 +143,7 @@ VA - Летний марафон № 176 / Видеоклипы (Самые Но
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590321.jpg" />
+  <img src="Z:/picture/008/save_picture_590321.jpg" />
 </div>
 
 
@@ -87,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588575.jpg" />
+  <img src="Z:/picture/008/save_picture_588575.jpg" />
 </div>
 
 
@@ -116,7 +201,7 @@ France Gall - видеозаписи (1963 - 1984)/ VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_588165.jpg" />
+  <img src="Z:/picture/005/save_picture_588165.jpg" />
 </div>
 
 
@@ -143,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585895.jpg" />
+  <img src="Z:/picture/008/save_picture_585895.jpg" />
 </div>
 
 
@@ -169,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580788.jpg" />
+  <img src="Z:/picture/008/save_picture_580788.jpg" />
 </div>
 
 
@@ -195,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579075.jpg" />
+  <img src="Z:/picture/008/save_picture_579075.jpg" />
 </div>
 
 
@@ -224,7 +309,7 @@ MEDINA - FOR ALTID (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578611.jpg" />
+  <img src="Z:/picture/008/save_picture_578611.jpg" />
 </div>
 
 
@@ -250,7 +335,7 @@ Beyonce - Best Thing I Never Had (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576955.jpg" />
+  <img src="Z:/picture/008/save_picture_576955.jpg" />
 </div>
 
 
@@ -276,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576949.jpg" />
+  <img src="Z:/picture/008/save_picture_576949.jpg" />
 </div>
 
 
@@ -302,7 +387,7 @@ Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573316.jpg" />
+  <img src="Z:/picture/008/save_picture_573316.jpg" />
 </div>
 
 
@@ -328,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570750.jpg" />
+  <img src="Z:/picture/008/save_picture_570750.jpg" />
 </div>
 
 
@@ -354,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567083.jpg" />
+  <img src="Z:/picture/008/save_picture_567083.jpg" />
 </div>
 
 
@@ -383,7 +468,7 @@ The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564934.jpg" />
+  <img src="Z:/picture/008/save_picture_564934.jpg" />
 </div>
 
 
@@ -409,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564326.jpg" />
+  <img src="Z:/picture/008/save_picture_564326.jpg" />
 </div>
 
 
@@ -438,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562894.jpg" />
+  <img src="Z:/picture/008/save_picture_562894.jpg" />
 </div>
 
 
@@ -467,7 +552,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560052.jpg" />
+  <img src="Z:/picture/008/save_picture_560052.jpg" />
 </div>
 
 
@@ -494,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559355.jpg" />
+  <img src="Z:/picture/008/save_picture_559355.jpg" />
 </div>
 
 
@@ -520,7 +605,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558877.jpg" />
+  <img src="Z:/picture/008/save_picture_558877.jpg" />
 </div>
 
 
@@ -549,7 +634,7 @@ VA - Летний марафон № 178 / Видеоклипы (Зажигат�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558871.jpg" />
+  <img src="Z:/picture/008/save_picture_558871.jpg" />
 </div>
 
 
@@ -578,7 +663,7 @@ Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558870.jpg" />
+  <img src="Z:/picture/008/save_picture_558870.jpg" />
 </div>
 
 
@@ -607,7 +692,7 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557234.jpg" />
+  <img src="Z:/picture/008/save_picture_557234.jpg" />
 </div>
 
 
@@ -621,93 +706,6 @@ VA - Летний марафон № 179 / Видеоклипы (Зарубеж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693067   (550320) от 25.08.2013
-
-VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Level 42 - Hot Water 1984
-02. Level 42 - Lessons In Love
-03. Lionel Richie - Hello 1984
-04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694564   (546670) от 29.08.2013
-
-VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alexander Popov - Moscow Subway (Official Music Video)
-02.Ali - Cocoon (Official Music Video)
-03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
-04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238537   (546127) от 30.07.2018
-
-Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
-001 Andreea Balan - Trippin
-002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
-003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

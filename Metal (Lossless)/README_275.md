@@ -1,3 +1,90 @@
+###  Публикация: 1664105   (186289) от 24.09.2023
+
+Aneurisma - Carodatavermibus (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Illusion [00:09:23]
+02. Aneurisma [00:09:20]
+03. Two Thousand Years of Battle [00:08:52]
+04. Circulo de Sangre [00:05:54](   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F3E5C2085A955B1ECC029E5646512651830E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664230   (186068) от 25.09.2023
+
+Bhargest - Ritual of Death (2017) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:51)
+02. A Godless Vision of Fire (05:52)
+03. Barghest (03:15)
+04. Ritual of Death (04:05)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9896F2F2BBD3D01F0CC1FF4F7D2511B7F8F603B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664157   (186064) от 25.09.2023
+
+Ataraxie - Live Doomination (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral Hymn (7:29)
+02. The Other Path (7:22)
+03. The Other Path Pt. II (6:15)
+04. The Isle of the Dead (6:05)(   Читать дальше...   )Жанр: Funeral Doom, Death MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0595FD1E8FFA67ED18E99FF545C2B6040E9F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664121   (186013) от 25.09.2023
 
 Ignea - Dreams of Lands Unseen (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Melodic Death Metal, Oriental, Symphonic, Female Vocal>
@@ -6,7 +93,7 @@ Ignea - Dreams of Lands Unseen (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186013.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Raspy Junker - Bad Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Fem
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186007.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Atrophy - Lexical Occultation 1.618 The Veil From Beyond (2009) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185989.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Tulus - Old Old Death (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185642.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Gaupa - Myriad (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185639.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Nocny Kochanek - O Jeden Most Za Daleko (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185631.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185629.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Without Warning - Making Time (1993) 2003 reissue [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185622.jpg" />
+  <img src="Z:/picture/004/save_picture_185622.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Without Warning - Believe (1995) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185616.jpg" />
+  <img src="Z:/picture/004/save_picture_185616.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Wardog - A Sound Beating (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185612.jpg" />
+  <img src="Z:/picture/004/save_picture_185612.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Hollow Haze - Between Wild Landscapes And Deep Blue Seas (2019) Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185609.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Vigilance - Secrecy (1997) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185608.jpg" />
+  <img src="Z:/picture/004/save_picture_185608.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185604.jpg" />
+  <img src="Z:/picture/004/save_picture_185604.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185588.jpg" />
+  <img src="Z:/picture/004/save_picture_185588.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185578.jpg" />
+  <img src="Z:/picture/004/save_picture_185578.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185576.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Vigilance - Behind The Mask (1996) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185566.jpg" />
+  <img src="Z:/picture/004/save_picture_185566.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Tungsten - We Will Rise (2019) Japanese Edition [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185548.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Nils Patrik Johansson - The Great Conspiracy (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185543.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Wardog - Scorched Earth (1996) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185540.jpg" />
+  <img src="Z:/picture/004/save_picture_185540.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Sweet Oblivion - Sweet Oblivion (2019) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185537.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Ataraxie - The Other Path (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185536.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Prospective - Haunt Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_185533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_185533.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Prospective - Haunt Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555FFBDB5A86952DBA497504A3B7C20C02C3C56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591821   (185524) от 20.11.2022
-
-Otus - Torch (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Tenebris 01:21
-02. Through the Flesh 07:24
-03. The Vessel 12:15
-04. Apnea 05:37(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344BE5507F7DFFF5F20FFC49A9D7F00B2593D887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664597   (185522) от 26.09.2023
-
-Bio-Cancer - Revengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Citizen... Down! (05:05)
-02 - 44 Days in Hell (06:35)
-03 - Footprints on My Back (05:19)
-04 - Revengeance (05:11)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E09D6E9AD4F90B9BE9966DA37CF4738FF00A772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426918   (185518) от 26.11.2020
-
-Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Fear
-02. Purge My Stain!
-03. Bred To Kill
-04. IV - Vote Of No Confidence(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40;12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

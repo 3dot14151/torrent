@@ -6,7 +6,7 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476306.jpg" />
+  <img src="Z:/picture/008/save_picture_476306.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468156.jpg" />
+  <img src="Z:/picture/008/save_picture_468156.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446680.jpg" />
+  <img src="Z:/picture/008/save_picture_446680.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446618.jpg" />
+  <img src="Z:/picture/008/save_picture_446618.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ VA - 100 Instrumental - Hits (2008) 5CD [APE|Lossless]<Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_441945.jpg" />
+  <img src="Z:/picture/005/save_picture_441945.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437174.jpg" />
+  <img src="Z:/picture/008/save_picture_437174.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ François Mardirossian - Moondog Piano Works (2019) [FLAC|Lossless|tracks + .cue
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433867.jpg" />
+  <img src="Z:/picture/008/save_picture_433867.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ VA - Meesters Der Sfeermuziek 2 - De beste Orkesten (2002) 3 CD [FLAC|Lossless|i
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433862.jpg" />
+  <img src="Z:/picture/008/save_picture_433862.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Mattias Uneback - Voyage Beneath The Sea: The Adventurous Sounds of Mattias Uneb
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431825.jpg" />
+  <img src="Z:/picture/008/save_picture_431825.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Malando & His Tango Orchestra - Malando Best Selection (2019) [FLAC|Lossless|ima
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431642.jpg" />
+  <img src="Z:/picture/008/save_picture_431642.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ VA - Romantic Guitars (1995) [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429483.jpg" />
+  <img src="Z:/picture/008/save_picture_429483.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Lo Yan - Audiophile Latin Guitar (2010) [FLAC|Lossless]<Guitar, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402794.jpg" />
+  <img src="Z:/picture/005/save_picture_402794.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Manuel Granada - The Hi-Fi Sound of Spanish Guitar (2007) [FLAC|Lossless]<Guitar
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402789.jpg" />
+  <img src="Z:/picture/005/save_picture_402789.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
+  <img src="Z:/picture/008/save_picture_345182.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335562.jpg" />
+  <img src="Z:/picture/008/save_picture_335562.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327551.jpg" />
+  <img src="Z:/picture/008/save_picture_327551.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327503.jpg" />
+  <img src="Z:/picture/008/save_picture_327503.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325628.jpg" />
+  <img src="Z:/picture/008/save_picture_325628.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323152.jpg" />
+  <img src="Z:/picture/008/save_picture_323152.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321528.jpg" />
+  <img src="Z:/picture/008/save_picture_321528.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304158.jpg" />
+  <img src="Z:/picture/008/save_picture_304158.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303089.jpg" />
+  <img src="Z:/picture/008/save_picture_303089.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299651.jpg" />
+  <img src="Z:/picture/008/save_picture_299651.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hug
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299056.jpg" />
+  <img src="Z:/picture/008/save_picture_299056.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
+  <img src="Z:/picture/008/save_picture_279028.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266983.jpg" />
+  <img src="Z:/picture/008/save_picture_266983.jpg" />
 </div>
 
 

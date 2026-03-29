@@ -6,7 +6,7 @@ Jet skies - 13 (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237340.jpg" />
+  <img src="Z:/picture/005/save_picture_237340.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Otto Dix - Vantablack (2023) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, Alternativ
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237091.jpg" />
+  <img src="Z:/picture/005/save_picture_237091.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237083.jpg" />
+  <img src="Z:/picture/005/save_picture_237083.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roman Rain - 31.0345 Years of Dread (2007) Remake, 2023, M2BA [FLAC|Lossless|WEB
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237001.jpg" />
+  <img src="Z:/picture/005/save_picture_237001.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236844.jpg" />
+  <img src="Z:/picture/005/save_picture_236844.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236790.jpg" />
+  <img src="Z:/picture/005/save_picture_236790.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236772.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Egor Lappo - Trancevoicer (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236716.jpg" />
+  <img src="Z:/picture/005/save_picture_236716.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Shabnak - Fusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Tribal Metal, Industrual 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236647.jpg" />
+  <img src="Z:/picture/005/save_picture_236647.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Delorian Domain - Alchemilla (2017) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236617.jpg" />
+  <img src="Z:/picture/005/save_picture_236617.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236543.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melanc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236513.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236504.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236446.jpg" />
+  <img src="Z:/picture/005/save_picture_236446.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236129.jpg" />
+  <img src="Z:/picture/005/save_picture_236129.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ AHTOH SKALD (Anton Gruzinsky) - Enigma Of Time (2022) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235933.jpg" />
+  <img src="Z:/picture/005/save_picture_235933.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Electric Crown - Prophecy of Doom (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235744.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Nuclear Cthulhu - Desecration (2016) [FLAC|Lossless|WEB-DL|tracks] <Black Metal,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235613.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Woab - Для этого мира (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235605.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Melancholy - Чернъ (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235540.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Koldovstvo - Ни Царя, Ни Бога (2021) [FLAC|Lossless|Web-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235530.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Loengreen - Огненные цветы (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235223.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nemezida - Война. Голод (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234964.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234902.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234899.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234859.jpg" />
 </div>
 
 

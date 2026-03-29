@@ -6,7 +6,7 @@ Adobe Media Encoder 2022 22.0.0.107 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801308.jpg" />
+  <img src="Z:/picture/008/save_picture_801308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801304.jpg" />
+  <img src="Z:/picture/008/save_picture_801304.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Amsterdam Trance Sessions Vol.9 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801282.jpg" />
+  <img src="Z:/picture/008/save_picture_801282.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Later - Create Quick Reminders With Presets 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801280.jpg" />
+  <img src="Z:/picture/008/save_picture_801280.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ TextLab 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801277.jpg" />
+  <img src="Z:/picture/008/save_picture_801277.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801273.jpg" />
+  <img src="Z:/picture/008/save_picture_801273.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ The Holy Terrors - Lolitaville (1994) [FLAC|Lossless|image + .cue] <Punk Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801272.jpg" />
+  <img src="Z:/picture/008/save_picture_801272.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Smultron: Easy-to-use, powerful text editor 9.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801271.jpg" />
+  <img src="Z:/picture/008/save_picture_801271.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ FSMonitor 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801270.jpg" />
+  <img src="Z:/picture/008/save_picture_801270.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801269.jpg" />
+  <img src="Z:/picture/008/save_picture_801269.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ MediaInfo 0.7.94 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801264.jpg" />
+  <img src="Z:/picture/008/save_picture_801264.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801253.jpg" />
+  <img src="Z:/picture/008/save_picture_801253.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801251.jpg" />
+  <img src="Z:/picture/008/save_picture_801251.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Money Pro 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801250.jpg" />
+  <img src="Z:/picture/008/save_picture_801250.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ USDownloader 1.3.5.9 Portable (01.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801247.jpg" />
+  <img src="Z:/picture/008/save_picture_801247.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801240.jpg" />
+  <img src="Z:/picture/008/save_picture_801240.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801228.jpg" />
+  <img src="Z:/picture/008/save_picture_801228.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801221.jpg" />
+  <img src="Z:/picture/008/save_picture_801221.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801220.jpg" />
+  <img src="Z:/picture/008/save_picture_801220.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Bop - Not Your Cup Of Tea EP (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Drum n B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801216.jpg" />
+  <img src="Z:/picture/008/save_picture_801216.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Insofta Cover Commander 5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801212.jpg" />
+  <img src="Z:/picture/008/save_picture_801212.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801208.jpg" />
+  <img src="Z:/picture/008/save_picture_801208.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Insofta Cover Commander 5.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801206.jpg" />
+  <img src="Z:/picture/008/save_picture_801206.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Wirecast Pro 7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801199.jpg" />
+  <img src="Z:/picture/008/save_picture_801199.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BurnAware Professional 10.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801198.jpg" />
+  <img src="Z:/picture/008/save_picture_801198.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801196.jpg" />
+  <img src="Z:/picture/008/save_picture_801196.jpg" />
 </div>
 
 

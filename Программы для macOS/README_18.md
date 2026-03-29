@@ -1,3 +1,138 @@
+###  Публикация: 1354925   (986220) от 24.01.2020
+
+Image Crop 1.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрезайте, конвертируйте и переименуйте тысячи файлов изображений в пакетном режиме с помощью Image Crop. Обрезайте изображения, чтобы удалить нежелательные области или дать им конкретное соотношение сторон. Кроме того, если ваши исходные файлы изображений плохо названы, вы можете использовать Image Crop, чтобы дать им значащие имена, чтобы их легче находить и идентифицировать.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2020Разработчик: Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812CD3177F45A677A483BF6DFDE1B3AB36D0783C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354996   (986155) от 24.01.2020
+
+Micromat Checkmate 1.1.9 (build 3382) [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Checkmate, программное обеспечение для мониторинга работоспособности компьютера от Micromat. Мы создали Checkmate, чтобы стать мощным продуктом для компьютерной диагностики, не мешая вашей работе.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2020Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59177027B189B4A88533A81B6D1DF711774D1916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354827   (985961) от 24.01.2020
+
+Adobe Zii 2020 - Universal Patcher v5.1.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D4DF6A6F0340E7AE381A5CCCCA8E469B137132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971634   (985945) от 03.01.2016
+
+IconKit 4.7.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
+
+Основные возможности:
+• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 декабря 2015Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FC6774207594ECDF356D0D865944015724942D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971679   (985861) от 03.01.2016
+
+Sip Pro 3.2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sip - код оттенков на экране
+Крошечная, но очень полезная программа разработанная Rui Aureliano для людей, которые тесно связаны с веб-дизайном.
+При помощи данной программы можно определить код цвета на любом участке экрана.  После установки в системном меню появляется ярлык программы. Далее все просто. Выбираем Pick Color и увеличительную площадь наводим на область, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2015Разработчик: Rui AurelianoПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2172655585CE720793A30B80BBD7AE262D9901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971647   (985858) от 03.01.2016
 
 Temps 1.13 [Multi/Ru]
@@ -6,7 +141,7 @@ Temps 1.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985858.jpg" />
 </div>
 
 
@@ -35,7 +170,7 @@ SMARTReporter 3.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985763.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ CameraBag 2 v2.8.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985757.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ Living Earth - Desktop Weather & World Clock 1.24 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985677.jpg" />
 </div>
 
 
@@ -113,7 +248,7 @@ Disk Diag 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985675.jpg" />
 </div>
 
 
@@ -142,7 +277,7 @@ Weather Live 1.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985565.jpg" />
 </div>
 
 
@@ -171,7 +306,7 @@ iConvert Icons 2.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985475.jpg" />
 </div>
 
 
@@ -198,7 +333,7 @@ Nvidia Web Driver for 10.11.2 346.03.04f02 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984361.jpg" />
 </div>
 
 
@@ -225,7 +360,7 @@ PitStop Pro 13 Update 1 (626770) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984291.jpg" />
 </div>
 
 
@@ -253,7 +388,7 @@ Boxy: email client for "Inbox by Gmail" 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983291.jpg" />
 </div>
 
 
@@ -282,7 +417,7 @@ CuteFTP Pro 3.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983195.jpg" />
 </div>
 
 
@@ -308,7 +443,7 @@ Sorenson Squeeze Pro 10.1.0.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983007.jpg" />
 </div>
 
 
@@ -334,7 +469,7 @@ Solid Converter 2.1.57 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983001.jpg" />
 </div>
 
 
@@ -362,7 +497,7 @@ CCleaner Pro 1.11.336 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982907.jpg" />
 </div>
 
 
@@ -389,7 +524,7 @@ ABBYY FineReader Express 8.5.676060 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982623.jpg" />
 </div>
 
 
@@ -415,7 +550,7 @@ Reflector 2.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978941.jpg" />
 </div>
 
 
@@ -442,7 +577,7 @@ HandBrake 0.9.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978313.jpg" />
 </div>
 
 
@@ -469,7 +604,7 @@ Mocha Pro 4.1.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977979.jpg" />
 </div>
 
 
@@ -497,7 +632,7 @@ Outline 3.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976813.jpg" />
 </div>
 
 
@@ -525,7 +660,7 @@ Permute 2.0.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976810.jpg" />
 </div>
 
 
@@ -552,7 +687,7 @@ The Tagger 1.6.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976707.jpg" />
 </div>
 
 
@@ -565,145 +700,6 @@ The Tagger - представляет собой редактор тегов в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E219CFE6A7F3442D88124E3AA09A5098CC3000D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975989   (970750) от 16.01.2016
-
-YouTubeHunter Pro 5.6.2 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загружайте видео на Ваш компьютер!
-Это занимает всего несколько секунд, чтобы найти и скачать видео с YouTube, Vimeo, DailyMotion, VEVO и др. YouTubeHunter загружает в видео в 15 раз быстрее, чем просмотр в реальном времени и поддерживает одновременные загрузки. YouTubeHunter имеет встроенные возможности поиска и просмотра. Получить видео в доступном URL-адресе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 января 2016Разработчик: YouTubeHunterПоддерживаемая ОС: Mac OS X 10.4 +Язык интерфейса: Английский, Итальянский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A482B96C8618F819949F3BE8AB1C866F73EF395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358233   (969480) от 07.02.2020
-
-Disk Drill Enterprise 3.8.965 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill Enterprise - самое популярное приложение для восстановлени данных на вашем Mac, которая поможет вернуть удалённые файлы с жёстких дисков, флешек, карт памяти и других носителей с файловыми системами HFS, HFS+, FAT16, FAT32, NTFS, EXT3, EXT4.
-
-После запуска приложение определит все подключённые диски и отобразит доступные для них режимы и функции. Особенно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2020Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.8.5 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4293E7519BDACD11DE281777DB643F520C0843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745202   (968886) от 13.01.2014
-
-Disk Order 3.2.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Order – это двухпанельный файловый менеджер для Mac OS со встроенным FTP-клиентом.Отличный выбор для тех, кому приходится много работать с файлами. Также идеально подходит для пользователей Mac, которые недавно перешли с PC. Большинство файловых операций проводятся с клавиатуры, что очень удобно для обладателей ноутбуков.
-
-Утилита Disk Order является отличной (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 31 октября 2013Разработчик: LikeMac Group.Поддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C99858684B6F2487AEB777E2E759E22C46CBC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168682   (968215) от 22.01.2010
-
-Disco 1.0.3 [Rus] (2008)
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для записи CD/DVD (+DL DVD) и работы с образами (DMG/ISO/CDR).Есть возможность дописывать.
-Программа маленькая и легкая - но работает эффективно.2008Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977000   (967789) от 19.01.2016
-
-Tublme for Tumblr 1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tumblr: новый взгляд на сервис микроблогов
-Tumblr. Это очень удобный социальный инструмент, который делает упор не столько на особенности размещения пользовательского контента, сколько на сортировку данных на просторах этой социальной сети. Сервис обзавелся отличным сайтом, где каждый может создать индивидуальный блог, выбрав одну из предложенных тем
-
-Tumblr (клиент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 января 2016Разработчик: Raken StudioПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E79A8F63DB8714E2712F465D89820367A8B9FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

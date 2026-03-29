@@ -1,3 +1,55 @@
+###  Публикация: 1546264   (607842) от 23.04.2022
+
+Корни и кроны. По городам и весям / Des Racines et des Ailes. Des Racines & des Ailes (2017-2019) DVB (часть 6, серии 1-20 из 20) [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский документальный цикл в виде тележурнала "Корни и кроны / По городам и весям" создан Патриком де Каролисом / Patrick de Carolis и Патриком Шарлем / Patrick Charles в 1997 году. Выходит дважды в квартал по каналу France 3 с ретрансляцией по TV5. Патрик де Каролис вел программу до 2005 года, когда он был избран Президентом France Télévisions, (   Читать дальше...   )Производство: Франция, France 3 Production Lille, Infotainment ChinaЖанр: документально-познавательный, путешествияРежиссер: Патрик Шарль, Жан-Люк ОрабонаПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Пичугиной, И.Безлюдной, Éclair Group), , английские, французские, немецкие, нидерландские, румынские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 40:05:09 (20x ~02:00:00)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CBDEA22E7487B10DE60BB7BAE8AC4741E9B1EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546206   (607684) от 23.04.2022
+
+Как река становится морем. Гаронна / Au Bout c'est la Mer. Garonne (2020) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гаронна - шестая по длине река Франции, берет свое начало в центральных Пиренеях. Будучи бурным горным потоком, она быстро спускается по пиренейским склонам. Первые 50 километров своего пути река проходит по территории Испании.Гаронна выступает естественной границей между двумя крупными государствами Западной Европы - Испанией и Францией, после чего река спускается (   Читать дальше...   )Производство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Вильям ЖаффеПеревод: двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5911143FDF9A15272063A62E18B6525A9B00AC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913280   (606913) от 28.06.2015
 
 Мир Наизнанку. Сезон №6. Выпуск №12. Южная (Латинская) Америка (2015.06.28) SATRip
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606913.jpg" />
+  <img src="Z:/picture/008/save_picture_606913.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606656.jpg" />
+  <img src="Z:/picture/008/save_picture_606656.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605623.jpg" />
+  <img src="Z:/picture/008/save_picture_605623.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605580.jpg" />
+  <img src="Z:/picture/008/save_picture_605580.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605052.jpg" />
+  <img src="Z:/picture/008/save_picture_605052.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604740.jpg" />
+  <img src="Z:/picture/008/save_picture_604740.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603680.jpg" />
+  <img src="Z:/picture/008/save_picture_603680.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603549.jpg" />
+  <img src="Z:/picture/008/save_picture_603549.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603073.jpg" />
+  <img src="Z:/picture/008/save_picture_603073.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603068.jpg" />
+  <img src="Z:/picture/008/save_picture_603068.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602546.jpg" />
+  <img src="Z:/picture/008/save_picture_602546.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602543.jpg" />
+  <img src="Z:/picture/008/save_picture_602543.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602540.jpg" />
+  <img src="Z:/picture/008/save_picture_602540.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602532.jpg" />
+  <img src="Z:/picture/008/save_picture_602532.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600298.jpg" />
+  <img src="Z:/picture/008/save_picture_600298.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600289.jpg" />
+  <img src="Z:/picture/008/save_picture_600289.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600127.jpg" />
+  <img src="Z:/picture/008/save_picture_600127.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599714.jpg" />
+  <img src="Z:/picture/008/save_picture_599714.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597899.jpg" />
+  <img src="Z:/picture/008/save_picture_597899.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596331.jpg" />
+  <img src="Z:/picture/008/save_picture_596331.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594741.jpg" />
+  <img src="Z:/picture/008/save_picture_594741.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592263.jpg" />
+  <img src="Z:/picture/008/save_picture_592263.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592146.jpg" />
+  <img src="Z:/picture/008/save_picture_592146.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592099.jpg" />
+  <img src="Z:/picture/008/save_picture_592099.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668DCAEDDD8A107F91D65BF0464DCEF2AD1B288F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915792   (591821) от 06.07.2015
-
-Землетрясение на Эвересте / The Day Everest Shook (2015) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм раскрывает истории выживания и борьбы людей после недавнего землетрясения в Непале глазами очевидцев, а также знакомит с научными данными об этой разрушительной природной катастрофе. Первые удары землетрясений произошли 25 апреля 2015 года, самый мощный толчок был с магнитудой 7,8 балла по шкале Рихтера.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451E1B64566AAD2FB78A5BE2B2645E62D7C117C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916126   (591405) от 07.07.2015
-
-Ростов Великий. Ярославские путешествия (2014) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ростов - один из древнейших городов России, официальное летосчисление ведёт с 862 года. С X века Ростов являлся одним из центров Ростово-Суздальской земли. В XI — начале XIII веков входил во Владимиро-Суздальское княжество. С начала XII века именовался Ростов Великий.
-На территории Ростова имеется 326 памятников культуры, треть из которых являются памятниками федерального (   Читать дальше...   )Телекомпания: ИА "Верхняя Волга"Жанр: ДокументальныйПродолжительность: 00:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0406945D1C3AB3DABE25D9361C0300E6503553
 ```
 
 https://mybot314.ru/tekegram_catalog/

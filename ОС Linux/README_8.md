@@ -6,7 +6,7 @@ Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696876.jpg" />
+  <img src="Z:/picture/008/save_picture_696876.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696789.jpg" />
+  <img src="Z:/picture/008/save_picture_696789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Debian GNU/Linux 8.8 Live Jessie (free + nonfree) [amd64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696601.jpg" />
+  <img src="Z:/picture/008/save_picture_696601.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ JonDo 0.9.79 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693934.jpg" />
+  <img src="Z:/picture/008/save_picture_693934.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Parrot OS 4.10 (Security + Home) [Хакинг, аудит, безопаснос
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691900.jpg" />
+  <img src="Z:/picture/008/save_picture_691900.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fedora 19 Schrödinger's Cat Live [i686]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688809.jpg" />
+  <img src="Z:/picture/008/save_picture_688809.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Fedora 19 Schrödinger's Cat Live [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688740.jpg" />
+  <img src="Z:/picture/008/save_picture_688740.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Fedora 24 [i386] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688247.jpg" />
+  <img src="Z:/picture/008/save_picture_688247.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Fedora 24 [x86-64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688099.jpg" />
+  <img src="Z:/picture/008/save_picture_688099.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ JonDo 0.9.79.1 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685634.jpg" />
+  <img src="Z:/picture/008/save_picture_685634.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676115.jpg" />
+  <img src="Z:/picture/008/save_picture_676115.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Netrunner 16.0 Ozymandias (Plasma 5.3)  [64bit] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674843.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670892.jpg" />
+  <img src="Z:/picture/008/save_picture_670892.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Q4OS 1.4.12 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669906.jpg" />
+  <img src="Z:/picture/008/save_picture_669906.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Fedora 22 Live (KDE, XFCE, MATE Compiz, LXDE, SoaS) [i686] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663122.jpg" />
+  <img src="Z:/picture/008/save_picture_663122.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Fedora 22 Server + Server netinstall [i386, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663071.jpg" />
+  <img src="Z:/picture/008/save_picture_663071.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Fedora 22 Workstation Live [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663052.jpg" />
+  <img src="Z:/picture/008/save_picture_663052.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ CentOS 7.5 (1804) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662667.jpg" />
+  <img src="Z:/picture/008/save_picture_662667.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ JonDo 0.9.80 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661998.jpg" />
+  <img src="Z:/picture/008/save_picture_661998.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ ROSA Desktop Fresh R9 GNOME Desktop Fresh R9 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661927.jpg" />
+  <img src="Z:/picture/008/save_picture_661927.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Fedora 22 Live (KDE, XFCE, MATE Compiz, LXDE, SoaS) [x86-64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661797.jpg" />
+  <img src="Z:/picture/008/save_picture_661797.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654254.jpg" />
+  <img src="Z:/picture/008/save_picture_654254.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651355.jpg" />
+  <img src="Z:/picture/008/save_picture_651355.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Slackware 14.2 [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650912.jpg" />
+  <img src="Z:/picture/008/save_picture_650912.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649051.jpg" />
+  <img src="Z:/picture/008/save_picture_649051.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 3xDVD, update DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645325.jpg" />
+  <img src="Z:/picture/008/save_picture_645325.jpg" />
 </div>
 
 

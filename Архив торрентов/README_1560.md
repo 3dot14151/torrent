@@ -6,7 +6,7 @@ HitmanPro 3.7.14 Build 265 RePack by norton46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697561.jpg" />
+  <img src="Z:/picture/008/save_picture_697561.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kingdom Wars 2: Battles (2016) [Ru/Multi] (1.6/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697554.jpg" />
+  <img src="Z:/picture/008/save_picture_697554.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Beyond Compare Pro 4.1.6 build 21095 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697551.jpg" />
+  <img src="Z:/picture/008/save_picture_697551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697534.jpg" />
+  <img src="Z:/picture/008/save_picture_697534.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ GeoGebra 6.0.691.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697518.jpg" />
+  <img src="Z:/picture/008/save_picture_697518.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ FireAlpaca 2.7.6 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697517.jpg" />
+  <img src="Z:/picture/008/save_picture_697517.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ BitComet 1.86 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697511.jpg" />
+  <img src="Z:/picture/008/save_picture_697511.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SiteSucker 2.11.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697506.jpg" />
+  <img src="Z:/picture/008/save_picture_697506.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Avast Secure Browser 72.0.1174.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697500.jpg" />
+  <img src="Z:/picture/008/save_picture_697500.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Wise Registry Cleaner Pro 10.1.6.677 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697499.jpg" />
+  <img src="Z:/picture/008/save_picture_697499.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Garden Planner 3.6.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697498.jpg" />
+  <img src="Z:/picture/008/save_picture_697498.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Topaz Video Enhance AI 1.5.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697449.jpg" />
+  <img src="Z:/picture/008/save_picture_697449.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ UltraISO Premium Edition 9.7.5.3716 [DC 16.08.2020] RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697433.jpg" />
+  <img src="Z:/picture/008/save_picture_697433.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Slimjet 3.1.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697416.jpg" />
+  <img src="Z:/picture/008/save_picture_697416.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ TG Pro (Temperature Gauge Pro) 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697414.jpg" />
+  <img src="Z:/picture/008/save_picture_697414.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ball Adventures 1.0.12 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697412.jpg" />
+  <img src="Z:/picture/008/save_picture_697412.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PrivaZer 2.31.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697408.jpg" />
+  <img src="Z:/picture/008/save_picture_697408.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ SMPlayer 22.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697401.jpg" />
+  <img src="Z:/picture/008/save_picture_697401.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Colibri 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697382.jpg" />
+  <img src="Z:/picture/008/save_picture_697382.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ MediaHuman YouTube Downloader 3.9.9.13 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697378.jpg" />
+  <img src="Z:/picture/008/save_picture_697378.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697342.jpg" />
+  <img src="Z:/picture/008/save_picture_697342.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697341.jpg" />
+  <img src="Z:/picture/008/save_picture_697341.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697340.jpg" />
+  <img src="Z:/picture/008/save_picture_697340.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697339.jpg" />
+  <img src="Z:/picture/008/save_picture_697339.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ubuntu 18.04.5 Bionic Beaver LTS [amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697338.jpg" />
+  <img src="Z:/picture/008/save_picture_697338.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697334.jpg" />
+  <img src="Z:/picture/008/save_picture_697334.jpg" />
 </div>
 
 

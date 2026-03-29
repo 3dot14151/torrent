@@ -1,3 +1,235 @@
+###  Публикация: 1787578   (68726) от 26.03.2025
+
+Switch Opens - Switch Opens (2009) Released, 2010, GMR Music Group [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Stoner Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68726.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Express Death
+A2 - Pyramids
+A3 - Paper Walls
+A4 - He Dives Down(   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787788   (68695) от 27.03.2025
+
+Savatage - Handful of Rain (1994) Released, 2022, Ear Music Classics [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy, Power Metal, Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68695.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Taunting Cobras
+A2 Handful Of Rain
+A3 Chance
+A4 Stare Into The Sun(   Читать дальше...   )Жанр: Heavy, Power Metal, Progressive Metal, RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012233B976E2A9AB6A96E12318C15A43C8D46876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787875   (68689) от 27.03.2025
+
+Nightwish - Over the Hills and Far Away (2001) EP, Released, 2014, Music On Vinyl [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Hills and Far Away
+02. 10th Man Down
+03. Away
+04. Astral Romance (2001 Version)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA8A0410D5CA6AB68FACF5C5FA72E0C4F61AB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787816   (68679) от 27.03.2025
+
+Autopsy - The Tomb Within (2010) EP, Released, 2017, Peaceville [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68679.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Tomb Within
+A2 My Corpse Shall Rise
+A3 Seven Skulls
+B1 Human Genocide(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C42351CC132EC48D8684BF6FEE7708ED4650FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787812   (68678) от 27.03.2025
+
+Einherjer - Odin Owns Ye All (1998) Released, 2020, Funeral Industries [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68678.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Leve Vikingeaanden
+A2 - Out Of Ginnungagap
+A3 - Clash Of The Elder
+A4 - Odin Owns Ye All(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC5B3B682582B7E87E18E645C86925DC3F39649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788043   (68645) от 28.03.2025
+
+Metallica - Load (1996) Released, 2001, Vertigo [FLAC|24/192|tracks|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68645.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ain‘t My Bitch
+A2. 2x4
+A3. The House Jack Built
+A4. Until It Sleeps(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3901D96D44B5F27A793A0853381638E7C3E6F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788103   (68635) от 28.03.2025
+
+Nightwish - Century Child (2002) Released, 2007, Universal Music Group International [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless the Child
+02. End of All Hope
+03. Dead to the World
+04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787999   (68619) от 28.03.2025
+
+Solefald - Norron livskunst (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Post-Black Metal, Avant-garde>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68619.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Song Til Stormen
+A2 - Hugferdi
+A3 - Tittentattenteksti
+B1 - Stridsljod / Blackabilly(   Читать дальше...   )Жанр: Post-Black Metal, Avant-gardeПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFBA7B32CA4FBFFD904673A99A77E8B834C8392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788267   (68595) от 29.03.2025
 
 Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
@@ -6,7 +238,7 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68595.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68574.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <De
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68561.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68560.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Nightwish - Once (2004) Released, 2013, Nuclear Blast [FLAC|24/192|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68535.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Don Dokken - Up From The Ashes (1990) [APE|24/96|image + .cue|Vinyl-Rip] <Hard R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68534.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Defacement - Defacement (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Blac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68522.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68486.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68469.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68467.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Einherjer - Dragons of the North XX (1996) Released, 2016, Circle Of The 111 Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68466.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68435.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68420.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68419.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68418.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68389.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Korgull the Exterminator - War of the Voivodes (2010) Reissue, 2014, Doomentia R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68330.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Persefone - Studio Albums (7 releases) (2004-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68327.jpg" />
 </div>
 
 
@@ -512,237 +744,6 @@ Persefone — андорранская прогрессив-/мелодик-дэ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32C16BCEFBF973E7F52BBA698FEF545BB852EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789497   (68308) от 04.04.2025
-
-Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martyr
-02. Leechmaster
-03. Scapegoat
-04. Crisis(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1775CC07957D90414BDE74C7A396FCD909571E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789276   (68303) от 04.04.2025
-
-Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Elan (Album Version) (04:49)
-02 - Sagan (04:48)
-03 - Elan (Alternative Version) (04:23)
-04 - Elan (Radio Edit) (04:05)Жанр: Sympho Power MetalПродолжительность: 00:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF392143174B25ECAA490780A20E5591EBC14111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732437   (68261) от 05.04.2025
-
-Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frantic Amber — метал-группа с женским вокалом, в состав которой входят участники из четырех разных стран (Швеция, Норвегия, Дания и Япония)2015 - Burning Insight
-2019 - Bellatrix
-2025 - Death Becomes HerЖанр: Melodic Death MetalПродолжительность: 02:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3058D7D8DF78CC841FE566549FD4E2792F885D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789539   (68253) от 05.04.2025
-
-Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Poet and the Pendulum
-02. Bye Bye Beautiful
-03. Amaranth
-04. Cadence of Her Last Breath(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A923C525758C4E7ABFEF868315057A498F9C75AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789587   (68231) от 05.04.2025
-
-Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ne Obliviscaris - австралийская метал-группа из Мельбурна, сформированная в апреле 2003 года.2012 - Portal Of I
-2014 - Citadel
-2015 - Hiraeth (EP)
-2015 - Sarabande To Nihil (EP)Жанр: Extreme Progressive MetalПродолжительность: 04:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783158   (68217) от 06.04.2025
-
-Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fatal Embrace - трэш-метал-группа из Берлина, Германия, образованная в начале 1993 года под названием Nosferatu.2000 - The Ultimate Aggression
-2002 - Legions Of Armageddon
-2006 - Dark Pounding Steel
-2010 - The Empires Of InhumanityЖанр: Thrash MetalПродолжительность: 05:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD947D813C35DC373CEE754CA10FFBE71E514546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789703   (68209) от 06.04.2025
-
-Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68209.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Death Tone
-A2 Metal Daze
-A3 Fast Taker
-A4 Shell Shock(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2ED05EF6FE0C72B96C9CE05E069E1EE027D524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789640   (68207) от 06.04.2025
-
-Fear Factory - Fear Is the Mindkiller (1993) (EP) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martyr (Suffer Bastard Mix)
-02. Self Immolation (Vein Tap Mix)
-03. Scapegoat (Pigfuck Mix)
-04. Scumgrief (Deep Dub Trauma Mix)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D44B320084E461C851CC99C60CF820B566F894
 ```
 
 https://mybot314.ru/tekegram_catalog/

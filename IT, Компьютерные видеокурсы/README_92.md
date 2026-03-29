@@ -1,3 +1,141 @@
+###  Публикация: 1667633   (176360) от 08.10.2023
+
+Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176360.jpg" />
+</div>
+
+
+###  Подробнее
+
+HashiCorp Vaultэто инструмент с открытым исходным кодом, который обеспечивает безопасный и надежный способ хранения и распространения секретов, таких как ключи API, токены доступа и пароли. Программное обеспечение, такое как Vault, может быть критически важным при развертывании приложений, требующих использования секретов или конфиденциальных данных.
+✅10 живых (   Читать дальше...   )Производство: RebrainЖанр: ПрактикумЯзык озвучки: РусскийПродолжительность: 15:28:40Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665812   (176348) от 08.10.2023
+
+Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершенно новый интерактивный опыт обучения, который учит вас создавать богатые и динамичные веб-приложения с использованием React.
+Давайте будем честными. Учить React - это сложно.
+За последние несколько лет React стал неотъемлемым навыком для фронтенд-разработчиков. Почти каждая вакансия указывает его как предпосылку!
+Однако, если вы пытались изучить React, то (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 22:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0B99F12EE625D0820A6C3FADB694B75A43FD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429581   (176288) от 06.12.2020
+
+Node University | Подборка курсов по разработке на Node.JS (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка курсов от Node University по разработке на Node.JS:
+Node Микросервисы / Node Microservices
+Паттерны Node / Node Patterns
+Аутентификация в Node / Node Authentication(   Читать дальше...   )Производство: Node UniversityЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D79A34FF87B5B5A4407F2223D3B3BA26D08A514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429631   (175634) от 07.12.2020
+
+Udemy, Zoran Horvat | Рефакторинг под паттерны проектирования на примере / Refactoring to Design Patterns by Example (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс начинается с изучения реалистичного приложения, которое плохо продумано и не содержит шаблонов проектирования. Демонстрационное приложение преобразует текст в субтитры для видео, что делает его весьма полезным на практике. Тем не менее, поддерживать и развивать это приложение в дальнейшем практически невозможно из-за его плохой структуры и дизайна.
+Это (   Читать дальше...   )Производство: UdemyЖанр: ПрограмированиеЯзык озвучки: АнглийскийПродолжительность: 04:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429670   (175627) от 07.12.2020
+
+Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектирования / Selenium WebDriver and Design Patterns (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паттерны проектирования - это повторяемые и многократно используемые решения для проблем, связанных с проектированием программного обеспечения. Этот курс поможет вам познакомиться с некоторыми из часто используемых шаблонов проектирования в сообществе разработчиков программного обеспечения, а также продемонстрирует, как мы можем использовать их в автоматизации тестирования (   Читать дальше...   )Производство: UdemyЖанр: ПрограмированиеЯзык озвучки: АнглийскийПродолжительность: 07:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429632   (175447) от 07.12.2020
 
 OTUS, Павел Пархомец и др. | Безопасность веб-приложений (2020) PCRec
@@ -6,7 +144,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175447.jpg" />
+  <img src="Z:/picture/004/save_picture_175447.jpg" />
 </div>
 
 
@@ -35,7 +173,7 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174893.jpg" />
+  <img src="Z:/picture/004/save_picture_174893.jpg" />
 </div>
 
 
@@ -63,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174674.jpg" />
+  <img src="Z:/picture/004/save_picture_174674.jpg" />
 </div>
 
 
@@ -89,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174658.jpg" />
+  <img src="Z:/picture/004/save_picture_174658.jpg" />
 </div>
 
 
@@ -118,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173521.jpg" />
 </div>
 
 
@@ -147,7 +285,7 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173512.jpg" />
 </div>
 
 
@@ -176,7 +314,7 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173511.jpg" />
 </div>
 
 
@@ -204,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173477.jpg" />
 </div>
 
 
@@ -232,7 +370,7 @@ Udemy, Meta Brains | ChatGPT Coding Express: Fast-Track Coding with ChatGPT (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173136.jpg" />
 </div>
 
 
@@ -259,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173134.jpg" />
 </div>
 
 
@@ -288,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173112.jpg" />
 </div>
 
 
@@ -315,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173104.jpg" />
 </div>
 
 
@@ -344,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173076.jpg" />
 </div>
 
 
@@ -373,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172942.jpg" />
 </div>
 
 
@@ -400,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172930.jpg" />
 </div>
 
 
@@ -427,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172929.jpg" />
 </div>
 
 
@@ -456,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172926.jpg" />
 </div>
 
 
@@ -483,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172912.jpg" />
 </div>
 
 
@@ -511,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172911.jpg" />
 </div>
 
 
@@ -540,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172536.jpg" />
 </div>
 
 
@@ -569,7 +707,7 @@ Udemy, Steve Avon | Trending Stocks with Python, Reddit, Twitter, and ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171475.jpg" />
 </div>
 
 
@@ -580,141 +718,6 @@ In this comprehensive hands-on course, you'll delve into the world of stock anal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF56C3393AC0BEE2D7E4E754D2C07A7967813C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671581   (171108) от 25.10.2023
-
-Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171108.jpg" />
-</div>
-
-
-###  Подробнее
-
-За 7 дней узнайте все о Prometheus
-Научимся:
-    ✅Устанавливать и настраивать систему мониторинга Prometheus.
-    ✅Разбираться в инцидентах и понимать причину, а также получать уведомления о неработоспособности серверов через мессенджеры.(   Читать дальше...   )Производство: RebrainЖанр: Онлайн-тренажерЯзык озвучки: РусскийПродолжительность: 03:14:00Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFADD4D87C1AF98E26FE7CB7A41FF333FD2FB567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825908   (170962) от 19.10.2025
-
-Skill.Im, Екатерина Нечипоренко | Visual Basic for Application для Excel. Курсы базовый, продвинутый и создание интерфейса (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для тех, кто хочет решать более сложные задачи в Excel, мы подготовили интересный самоучитель, который будет полезен как начинающим, которые никогда не занимались программированием, так и людям, которые знакомы с Visual Basic, но хотят усовершенствовать свои знания.
-
-В целом, наш самоучитель состоит из трех разделов: продвинутый, базовый и мастерский. (   Читать дальше...   )Производство: Skill.ImЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0BF92DC84681EDA76CDBCCE0270B4430DB8EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826486   (170945) от 19.10.2025
-
-Михаил Рыбков | Организационное и правовое обеспечение информационной безопасности (2021) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обеспечение информационной безопасности в любой организации является комплексной задачей, включающей организационные и технические мероприятия. Для разработки организационных и технических мероприятий, направленных на обеспечение безопасности в организации, необходимы разносторонние знания нормативно-правовых основ защиты информации и умения их применять на практике. (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C722F58246DAA6974784BB126291AF7BB332BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826766   (170939) от 19.10.2025
-
-Udemy, Георгий Черняк | Инженер тендерного отдела [44-ФЗ]  (2017)  PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе вы изучите весь процесс получения госконтрактов с примерами всех ошибок из практики. У вас всё ещё возникает вопрос, что делает Инженер тендерного отдела и какие его функции? Давайте по порядку…Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515040   (170898) от 05.12.2021
-
-Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Course for 2021 (2021) WEB-DL [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс Python Networking. Здесь вы узнаете, как использовать Python для сетевого программирования, извлекать данные в различных форматах через Интернет, а также запрашивать и извлекать веб-ресурсы. Вы будете использовать различные протоколы и модифицировать системы через Интернет с помощью DNS и IP-сетей. Мы начнем с самых основ установки python (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
 ```
 
 https://mybot314.ru/tekegram_catalog/

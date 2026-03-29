@@ -1,3 +1,83 @@
+###  Публикация: 1646398   (231890) от 14.07.2023
+
+Митрополит Платон (Левшин) | К чести духовного чина (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231890.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании впервые объемно и с научно-концептуальной выверкой представлено творческое православное наследие Московского митрополита Платона (Левшина; 1737-1812) и его учено-монашеской школы в лице Московского архиепископа Августина (Виноградского; 1766-1819), Санкт-Петербургских и Новгородских митрополитов: Амвросия (Подобедова; 1742-1818) и Михаила (Десницкого; (   Читать дальше...   )Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4AB80D007D5CE1E8272EF3A5889B4651272E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646412   (231873) от 14.07.2023
+
+Архиепископ Аверкий (Таушев) | Современность в свете Слова Божия (2012) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге публикуются главные произведения выдающегося русского богослова и духовного писателя архиепископа Аверкия (Таушева) (1906 – 1976).
+
+Русский народ, считал архиепископ Аверкий, виновен в том, что он проявил себя слишком наивным и доверчивым к обольстившим его врагам своим, поддался их лукавой пропаганде и не оказал достаточно сильного сопротивления. Его пророчески (   Читать дальше...   )Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3218BAF65E8C086F6D2D68379918C774358EDF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646403   (231859) от 14.07.2023
+
+Святитель Филарет Московский | Меч духовный (2010) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231859.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны самые выдающиеся духовные произведения святителя Филарета, митрополита Московского, одного из величайших подвижников и богословов Русской церкви. Всю свою жизнь он подчинил воле Божией и трудился ради славы Божией. За великую ревность о Господе и великие труды Бог дал святителю Филарету благодатные дары прозорливости и исцелений. Он стал основоположником (   Читать дальше...   )Жанр: ПравославиеИздательство: Институт русской цивилизацииФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE4999573257E83F87E3A77124B0E2A0CDC084F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647434   (231718) от 18.07.2023
 
 Святой Николай Кавасила | Изъяснение Божественной Литургии, обрядов и священных одежд (2015) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231718.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231700.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231695.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231656.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231548.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231520.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231515.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231488.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231370.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231320.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231305.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231218.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231200.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230748.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230664.jpg" />
+  <img src="Z:/picture/004/save_picture_230664.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229922.jpg" />
+  <img src="Z:/picture/005/save_picture_229922.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229565.jpg" />
+  <img src="Z:/picture/004/save_picture_229565.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229484.jpg" />
+  <img src="Z:/picture/004/save_picture_229484.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228856.jpg" />
+  <img src="Z:/picture/004/save_picture_228856.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228688.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227187.jpg" />
+  <img src="Z:/picture/005/save_picture_227187.jpg" />
 </div>
 
 
@@ -563,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227171.jpg" />
+  <img src="Z:/picture/005/save_picture_227171.jpg" />
 </div>
 
 
@@ -589,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226393.jpg" />
+  <img src="Z:/picture/005/save_picture_226393.jpg" />
 </div>
 
 
@@ -601,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:845EB21B4FC2EE0E6AC3F5124D8D6131A5D5E40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965313   (226055) от 14.12.2015
-
-Г. Е. Светлов | Путь богов [синто в истории Японии] (1985) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа посвящена исследованию национальной религии Японии — синто. В ней анализируются специфические особенности этой религии, позволившие правящим кругам довоенной Японии использовать ее для культивирования национализма, оправдания агрессивной политики японского империализма. Автор критически рассматривает попытки возродить былое влияние синто в современных условиях.Жанр: История, религиоведение, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77535DC8A700FA8547E69A84B8F313C1CE66614F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424759   (225986) от 18.11.2020
-
-М. Вострышев | Патриарх Тихон. Божий избранник (2013) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о жизни и великом духовном и человеческом подвиге святителя Тихона, патриарха Московского и всея России. С ноября 1917 года, когда в России было восстановлено патриаршество, ему выпала непомерно тяжёлая доля возглавить угнетаемую и разрушаемую Русскую Церковь, сохранить в чистоте Православную веру. Новое издание книги дополнено подробной хроникой (   Читать дальше...   )Жанр: Православие. ИсторияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A138D43460C454CD649EF7A5E07F5D8A31F5044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759621   (225583) от 18.11.2020
-
-Прп. Иоанн Дамаскин | Полное собрание творений св. Иоанна Дамаскина. Том 1 (1913) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иоанн Дамаскин (ок. 675 — 753 (777?) гг.) (греч. Ιωαννης ο Δαμασκηνος — Иоанн из Дамаска) — преподобный святой, один из Отцов Церкви, богослов и гимнограф. Носил наследственное прозвище Мансура («победительный»). Его отец Сергий (Ибн-Серджун) служил при дворе калифа в Дамаске (   Читать дальше...   )Жанр: Религиозная литература, православиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3D0566DBB613F95C8C36C91013183CD65F56C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

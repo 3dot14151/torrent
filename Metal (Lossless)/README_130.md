@@ -1,3 +1,90 @@
+###  Публикация: 1049009   (544980) от 04.09.2016
+
+Far From Mind - Breakpoint' 33 (2009) [FLAC|Lossless|image + .cue] <Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 33: The Freedom Path
+02. Anytime (Nothing's For Granted)
+03. One Click Away (Requiem)
+04. Emotions(   Читать дальше...   )Жанр: Black Metal, Gothic MetalПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A850C83FA14E73A0724BD0902235E818BD08C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049072   (544975) от 04.09.2016
+
+Вiо-Месhаnical Degenerаtiоn - Wаrbeats (2016) [FLAC|Lossless|image + .cue] <Industrial, EBM, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They're Coming!
+02. Lies For Answers
+03. Invisible Threat
+04. Machine Men(   Читать дальше...   )Жанр: Industrial, EBM, ElectronicПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493467FD16A074BFBD69B6BEC882870DE87B4A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049001   (544972) от 04.09.2016
+
+Ghosthill - Embrace of a Chasm (2010) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Billion Years of Torments (instrumental)
+02. The Last Dimension
+03. Cyclonic Death
+04. The Mist(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE292599ED682ABD12AEA40ABB311E51716EAAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048964   (544969) от 04.09.2016
 
 Mencea - Pyrophoric (2012) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
@@ -6,7 +93,7 @@ Mencea - Pyrophoric (2012) [FLAC|Lossless|image + .cue] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544969.jpg" />
+  <img src="Z:/picture/008/save_picture_544969.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ F.R.A.M. - Двери апреля (2010) [FLAC|Lossless|image + .cue] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544967.jpg" />
+  <img src="Z:/picture/008/save_picture_544967.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544924.jpg" />
+  <img src="Z:/picture/008/save_picture_544924.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544923.jpg" />
+  <img src="Z:/picture/008/save_picture_544923.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Scum of the Earth - The Devil Made Me Do It (2012) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544851.jpg" />
+  <img src="Z:/picture/008/save_picture_544851.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Stormwind - Burning Wheels (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544657.jpg" />
+  <img src="Z:/picture/008/save_picture_544657.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Astral Doors - Astral Doors - 10 albums, 13CD (2003-2019) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543614.jpg" />
+  <img src="Z:/picture/008/save_picture_543614.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Zandelle - Perseverance (2015) [FLAC|image+.cue]<Heavy/Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543163.jpg" />
+  <img src="Z:/picture/008/save_picture_543163.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ U.D.О - Navy Metal Night (2015) Live 2CD [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543081.jpg" />
+  <img src="Z:/picture/008/save_picture_543081.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Cult Of Endtime - In Charnel Lights (2015) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542831.jpg" />
+  <img src="Z:/picture/008/save_picture_542831.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Evoken - Atra Mors (2012) [FLAC|Lossless]<Death Doom Metal/Funeral Doom>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542745.jpg" />
+  <img src="Z:/picture/008/save_picture_542745.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ The Levitation Hex - The Levitation Hex (2012) [FLAC|Lossless]<Progressive Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542736.jpg" />
+  <img src="Z:/picture/008/save_picture_542736.jpg" />
 </div>
 
 
@@ -363,7 +450,7 @@ Stray Gods - Storm The Walls (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542699.jpg" />
+  <img src="Z:/picture/008/save_picture_542699.jpg" />
 </div>
 
 
@@ -392,7 +479,7 @@ Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542697.jpg" />
+  <img src="Z:/picture/008/save_picture_542697.jpg" />
 </div>
 
 
@@ -421,7 +508,7 @@ Dee Snider - For the Love of Metal (2018) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542508.jpg" />
+  <img src="Z:/picture/008/save_picture_542508.jpg" />
 </div>
 
 
@@ -450,7 +537,7 @@ Haunter - Discarnate Ails (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541226.jpg" />
+  <img src="Z:/picture/008/save_picture_541226.jpg" />
 </div>
 
 
@@ -478,7 +565,7 @@ Milopkl - Heavy Stuff (2022) [FLAC|Lossless|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541225.jpg" />
+  <img src="Z:/picture/008/save_picture_541225.jpg" />
 </div>
 
 
@@ -507,7 +594,7 @@ Abbath - Dread Reaver (2022) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541139.jpg" />
+  <img src="Z:/picture/008/save_picture_541139.jpg" />
 </div>
 
 
@@ -536,7 +623,7 @@ Malphas - Divinity's Fall (2022) [FLAC|Lossless|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541133.jpg" />
+  <img src="Z:/picture/008/save_picture_541133.jpg" />
 </div>
 
 
@@ -565,7 +652,7 @@ Masterplan - PumpKings (2017) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540934.jpg" />
+  <img src="Z:/picture/008/save_picture_540934.jpg" />
 </div>
 
 
@@ -594,7 +681,7 @@ Enemies Swe - Behind Enemy Lines (2005) [FLAC|Lossless|image + .cue] <Sleaze, Gl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540764.jpg" />
+  <img src="Z:/picture/008/save_picture_540764.jpg" />
 </div>
 
 
@@ -623,7 +710,7 @@ Lycanthia - Oligarchy (2012) [FLAC|Lossless]<Gothic Metal/Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540751.jpg" />
+  <img src="Z:/picture/008/save_picture_540751.jpg" />
 </div>
 
 
@@ -656,7 +743,7 @@ Saralee - Darkness Between (2006) [FLAC|Lossless]<Gothic Metal, Love Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540744.jpg" />
+  <img src="Z:/picture/008/save_picture_540744.jpg" />
 </div>
 
 
@@ -670,95 +757,6 @@ Saralee - Darkness Between (2006) [FLAC|Lossless]<Gothic Metal, Love Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531353   (540593) от 06.08.2012
-
-Tempestuous Fall - The Stars Would Not Awake You (2012) [FLAC|Lossless]<Epic Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old & Grey (10:39)
-02. Beneath a Stone Grave (14:09)
-03. Marble Tears (13:16)
-04. The Stars Would Not Awake You (10:56)
-05. A Cold Stale Goodbye (14:33)Жанр: Epic Funeral Doom MetalПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239132   (540498) от 04.08.2018
-
-Liquid Tension Experiment - Liquid Tension Experiment 2 (1999) [FLAC|Lossless|image + .cue] <Instrumental Prog Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquid Tension Experiment — супергруппа из США, сайд-проект участников группы Dream Theater Майка Портного и Джона Петруччи. В проекте также принимали участие Тони Левин, бас-гитарист King Crimson и клавишник Dixie Dregs Джордан Рудесс. После выхода второго альбома Рудесс заменил Дерека Шериняна в группе Dream Theater.
-В 1997 году звукозаписывающая компания Magna (   Читать дальше...   )01. Acid Rain (6:36)
-02. Biaxident (7:41)
-03. 914 (4:01)
-04. Another Dimension (9:51)(   Читать дальше...   )Жанр: Instrumental Prog Rock, Heavy MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3DB19FB2A6122365FB9C4F74EEE8FC42FA7086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311687   (540068) от 30.06.2019
-
-The Black Dahlia Murder - Deflorate (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Valor (3:09)
- 02. Necropolis (3:30)
- 03. A Selection Unnatural (2:50)
- 04. Denounced, Disgraced (3:43)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B6C315BD09CB9A2A2587CC89337CE7936CE2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 938210   (482092) от 18.09.2015
+
+Mike Goudreau - Je Reste Accroche (2015) [MP3|320 кб/с]<Chicago & Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_482092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Envoie ma belle (04:29)
+02. Je reste accroche (03:30)
+03. Arrete de boire (03:54)
+04. Melon d'eau Boogaloo (03:27)(   Читать дальше...   )Жанр: Chicago & Texas BluesПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E84FC99E78F23FE94D1A67518DE531F56CB17A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405815   (481486) от 31.08.2020
 
 Levi Platero - Levi Platero Band (2020) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Levi Platero - Levi Platero Band (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481486.jpg" />
+  <img src="Z:/picture/008/save_picture_481486.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ G.E. Smith & LeRoy Bell - Stony Hill (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481481.jpg" />
+  <img src="Z:/picture/008/save_picture_481481.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jimmy Rogers - Complete Shelter Recordings: Chicago Blues Masters, Vol. 2 (1995)
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480090.jpg" />
+  <img src="Z:/picture/008/save_picture_480090.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Muddy Waters - Chicago Blues Masters, Vol. 1 (1995) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480008.jpg" />
+  <img src="Z:/picture/008/save_picture_480008.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dani Wilde - Heal My Blues (2008) [MP3|320 кб/с]<Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480005.jpg" />
+  <img src="Z:/picture/008/save_picture_480005.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dahman Beck Band - Show A Little Soul (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479606.jpg" />
+  <img src="Z:/picture/008/save_picture_479606.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Deb Ryder - Grit Grease & Tears (2016) [MP3|320 Kbps] <Modern Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479407.jpg" />
+  <img src="Z:/picture/008/save_picture_479407.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Joanne Shaw Taylor - White Sugar (2009) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477909.jpg" />
+  <img src="Z:/picture/008/save_picture_477909.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Howlin' Wolf, Muddy Waters, Bo Diddley - The Super Super Blues Band (2018) [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474909.jpg" />
+  <img src="Z:/picture/008/save_picture_474909.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Blues Hits (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474781.jpg" />
+  <img src="Z:/picture/008/save_picture_474781.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Deborah Coleman - The Essential Deborah Coleman (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473552.jpg" />
+  <img src="Z:/picture/008/save_picture_473552.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Sabrina Weeks & Swing Cat Bounce - Got My Eye On You (2013) [MP3|320 Kbps] <Swin
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473175.jpg" />
+  <img src="Z:/picture/008/save_picture_473175.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sena Ehrhardt - The Essential (2015) [MP3|320 кб/с]<Contemporary Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471519.jpg" />
+  <img src="Z:/picture/008/save_picture_471519.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Lauren Anderson - Truly Me (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467027.jpg" />
+  <img src="Z:/picture/008/save_picture_467027.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Billy Walton Band - Dark Hour (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466551.jpg" />
+  <img src="Z:/picture/008/save_picture_466551.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Danielle Nicole - Wolf Den (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464909.jpg" />
+  <img src="Z:/picture/008/save_picture_464909.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Omar & The Howlers Featuring Gary Primich - Too Much Is Not Enough (2012) [MP3|3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464277.jpg" />
+  <img src="Z:/picture/008/save_picture_464277.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ The Geoff Everett Band - The Quick And The Dead (2012) [MP3|320 Kbps] <Blues Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464165.jpg" />
+  <img src="Z:/picture/008/save_picture_464165.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Muddy Waters & Rory Gallagher - The London Muddy Waters Sessions (1996) [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464116.jpg" />
+  <img src="Z:/picture/008/save_picture_464116.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ The Dirty Mojo Blues Band - Made Cents At The Time (2017) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463558.jpg" />
+  <img src="Z:/picture/008/save_picture_463558.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Arlen Roth - Slide Guitar Summit (2015) [MP3|320 кб/с]<Blues Rock, Slide Guit
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462858.jpg" />
+  <img src="Z:/picture/008/save_picture_462858.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - Blues Guitar Duels (1997) [MP3|256 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462724.jpg" />
+  <img src="Z:/picture/008/save_picture_462724.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462709.jpg" />
+  <img src="Z:/picture/008/save_picture_462709.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Venom Blues - Recoil (2007) [MP3|320 kbps]<Electric blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458917.jpg" />
+  <img src="Z:/picture/008/save_picture_458917.jpg" />
 </div>
 
 
@@ -709,7 +738,7 @@ VA - Simply Sixties (4CD) (2016) [MP3|320 Kbps] <Soul, Funk, Disco, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457170.jpg" />
+  <img src="Z:/picture/008/save_picture_457170.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE230496BA24F34577CE5505DAB07C9ED047E0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162559   (456821) от 02.09.2017
-
-Elles Bailey - Wildfire (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildfire (04:34)
-02. Same Flame (03:23)
-03. What If I (03:33)
-04. Barrel Of Your Gun (03:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A92A9DEFE24DA4CFA32D03E9499F06757F37F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

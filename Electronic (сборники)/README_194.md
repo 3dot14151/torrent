@@ -1,3 +1,61 @@
+###  Публикация: 1607674   (208939) от 27.01.2023
+
+VA - Dream Dance Vol 94 - The Annual (2023) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_208939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance - Make It Better (Edit) (3:04)
+02. Armin van Buuren & Gareth Emery feat. Owl City - Forever & Always (Extended Mix) (6:52)
+03. Cosmic Gate & Nathan Nicholson - Follow You Anywhere (Extended Mix) (7:51)
+04. Jam & Spoon x FREY x Amfree feat. Plavka - Right In The Night (Extended Mix) (3:31)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 04:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A244D76827CD12009D58836F4C608EA2F450D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646894   (208716) от 16.07.2023
+
+VA - Record Super Chart 15.07.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Belite - All Eyez on Me (2:45)
+02. Playmen & Hadley - Luv You (2:45)
+03. Purple Disco Machine feat. Kungs - Substitution (3:01)
+04. Loreen - Tattoo (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74BC1EC2ADB8395237E84DFBFD0B62C8C4B21D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610387   (207988) от 07.02.2023
 
 Devaldi - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
@@ -6,7 +64,7 @@ Devaldi - Compilation (2023) [MP3|320 Kbps] <Electronic, New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207988.jpg" />
+  <img src="Z:/picture/005/save_picture_207988.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Summer Light Deep 2023 [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207795.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Trance Energy 2023: New Tracks July [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207355.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Summer House 2023 [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207169.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Lo-Fi Chill - Relaxing Beats (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo F
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206757.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Calm and Relaxed (2023) [MP3|320 Kbps] <Electronic, Lounge, Relax, Meditati
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206518.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Trance In Motion Vol.363 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206401.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - DOWN LOW 3 (2023) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206215.jpg" />
+  <img src="Z:/picture/005/save_picture_206215.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ DJ PafTron - TechnoTron Transformers (2023) [MP3|320 Kbps] <Techno, Hard Techno,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206197.jpg" />
+  <img src="Z:/picture/005/save_picture_206197.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Радио Рекорд Итоговый Суперчарт 2022 - 100 лу
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204430.jpg" />
+  <img src="Z:/picture/004/save_picture_204430.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Car Music Mix 3 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204367.jpg" />
+  <img src="Z:/picture/004/save_picture_204367.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Record Super Chart 26.08.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204165.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - I'm Listening Now 4 (2023) [MP3|320 Kbps] <Club, House, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203956.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Sonic Blade: Synthwave Electronic Mix (2023) [MP3|320 Kbps] <Synthwave,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203124.jpg" />
+  <img src="Z:/picture/004/save_picture_203124.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202939.jpg" />
+  <img src="Z:/picture/004/save_picture_202939.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202825.jpg" />
+  <img src="Z:/picture/004/save_picture_202825.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Dive Into Darkwave (2023) [MP3|320 Kbps] <Darkwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202605.jpg" />
+  <img src="Z:/picture/004/save_picture_202605.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - TOP Non-Stop - Deep House and Chillout Before 2000. Part 2 (2022) [MP3|192-
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202214.jpg" />
+  <img src="Z:/picture/004/save_picture_202214.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - 60 minutes. Old School Dance Music vol.29 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201787.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - TOP Non-Stop 2000-2009 - Lounge & Chillout. Volume 3 (2022) [MP3|192-320 Kb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201498.jpg" />
+  <img src="Z:/picture/005/save_picture_201498.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - The Ethnic Electro House (2023) [MP3|320 Kbps] <Ethnic House, Afro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201492.jpg" />
+  <img src="Z:/picture/005/save_picture_201492.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Fantasy Friday: Future House Party (2023) [MP3|320 Kbps] <Future-House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201395.jpg" />
+  <img src="Z:/picture/005/save_picture_201395.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Hypnotic Sound Scape: Trance Live Set (2023) [MP3|320 Kbps] <Trance, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201388.jpg" />
+  <img src="Z:/picture/005/save_picture_201388.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Beach club records & Ken Martina compilation (2023) [MP3|320 Kbps] <Italo D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201170.jpg" />
+  <img src="Z:/picture/005/save_picture_201170.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Beach club records & Ken Martina compilation (2023) [MP3|320 Kbps] <Italo D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576A4DB82129502DE346C629F6E0F94F2EB1D2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619197   (201153) от 17.03.2023
-
-VA - Lo-Fi And Lounge Selections (2023) [MP3|320 Kbps] <Lounge, Downtempo, Lo Fi>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201153.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allume - Wellfare [03:48]
-002. Don Pascal - Cape Verdean Bruk [05:38]
-003. Jazzbois & Dom Beats - Danubian Sunrise [08:30]
-004. Soulavenue - Try [05:02](   Читать дальше...   )Жанр: Lounge, Downtempo, Lo FiПродолжительность: 08:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB4238BC9DE9774371202F08ED04C0250A67419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619808   (201148) от 17.03.2023
-
-VA - Beach club records & Ken Martina part 2 (2023) [MP3|320 Kbps] <Italo Disco, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Blue - Tears (Instrumental Radio Mix)
-02. Dean Corporation - App Me (Short Instrumental Fasten Mix)
-03. Emy Care - Fly in the Sky (Pleaser Instrumental Radio Mix)
-04. Limelight - If You Don't Love Me (Extended Instrumental Italian Style Mix)(   Читать дальше...   )Жанр: Italo Disco, SynthpopПродолжительность: 21:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518CFF8AF862A67CB068A7AB46FF61AA2E53C6C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1843429   (1049409) от 20.12.2025
+
+Uncanny Tales: 1992 (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uncanny Tales - эпизодический хоррор, где самое страшное прячется не в монстрах или мистике, а в самих людях. Каждая история - это новый пугающий эпизод, вдохновлённый реальными страхами и жуткими ситуациями из жизни. Uncanny Tales: 1992 - Второй эпизод серии. Антон, 14-летний подросток, вместе с родителями переезжает в небольшой провинциальный город. Времени на (   Читать дальше...   )Тип издания: RepackРазработчик: VYASTUDIOЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75720674CF1C084075AEF137022C4FAFE66EB082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843485   (1049395) от 20.12.2025
+
+Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карио Ито прибывает в деревню, дабы навестить родственников, но это светлое место из воспоминаний очернили ужасные существа, бродящие по улицам в поисках свежей плоти. Героине предстоит пробиться к истине сквозь паутину кошмаров, использовать с умом окружение, перемещаясь между реальным миром и потусторонним Отражением. Наслаждайтесь сочетанием ретро-графики и современного (   Читать дальше...   )Тип издания: RepackРазработчик: Spectra teamЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C04874CA3750D13711A3A001B31B12E887E90A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843482   (1049394) от 20.12.2025
+
+Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049394.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Mourningwood Lodge уединённая вилла становится местом проведения древнего, зловещего ритуала. Игрок берёт на себя роль наследника секты Фансянь Дао, оказавшись втянутым в продуманный заговор. Обвинённому в убийстве главному герою предстоит объединиться с другими обитателями, чтобы выжить и найти путь к спасению. Основная задача - сорвать церемонию, продвигаясь (   Читать дальше...   )Тип издания: SceneРазработчик: MYSTERY CROWN, 火蜥蜴文化Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Русский, Английский, Испанский, Японский и другиеЯзык интерфейса: Русский, Английский, Испанский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D07178653C47D291066E31EFDEFD1752669ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843479   (1049393) от 20.12.2025
 
 Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
@@ -6,7 +84,7 @@ Misty Judgment / 迷雾审判 (2025) [Multi] (1.0) Scene TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049393.jpg" />
+  <img src="Z:/picture/008/save_picture_1049393.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049375.jpg" />
+  <img src="Z:/picture/008/save_picture_1049375.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049373.jpg" />
+  <img src="Z:/picture/008/save_picture_1049373.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049372.jpg" />
+  <img src="Z:/picture/008/save_picture_1049372.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Gravewood High (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049371.jpg" />
+  <img src="Z:/picture/008/save_picture_1049371.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049370.jpg" />
+  <img src="Z:/picture/008/save_picture_1049370.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049369.jpg" />
+  <img src="Z:/picture/008/save_picture_1049369.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Escape the Backrooms (2022) [Ru/Multi] (1.2510) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049279.jpg" />
+  <img src="Z:/picture/008/save_picture_1049279.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ SUFFOCATE (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049278.jpg" />
+  <img src="Z:/picture/008/save_picture_1049278.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.1.10242025.58358/dlc) Repack F
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049275.jpg" />
+  <img src="Z:/picture/008/save_picture_1049275.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.2.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049274.jpg" />
+  <img src="Z:/picture/008/save_picture_1049274.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Berlin Apartment (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049230.jpg" />
+  <img src="Z:/picture/008/save_picture_1049230.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.22) Repack HardwareMi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049228.jpg" />
+  <img src="Z:/picture/008/save_picture_1049228.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Cybernetic Fault (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048643.jpg" />
+  <img src="Z:/picture/008/save_picture_1048643.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.12.0/dlc) Repack Hardw
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048584.jpg" />
+  <img src="Z:/picture/008/save_picture_1048584.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Hoomanz! (2025) [Ru/Multi] (0.3.26) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048541.jpg" />
+  <img src="Z:/picture/008/save_picture_1048541.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Sanatorium: A Mental Asylum Simulator (2025) [Ru/Multi] (0.99) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047670.jpg" />
+  <img src="Z:/picture/008/save_picture_1047670.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ SILENT HILL f (2025) [Ru/Multi] (1.2.381918 build 20599177/dlc) Repack HardwareM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047632.jpg" />
+  <img src="Z:/picture/008/save_picture_1047632.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Art of Reflection (2025) [Ru/Multi] (2465) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047481.jpg" />
+  <img src="Z:/picture/008/save_picture_1047481.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Simon the Sorcerer Origins (2025) [Ru/Multi] (1.0.2.11062025.41663/dlc) Repack L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047467.jpg" />
+  <img src="Z:/picture/008/save_picture_1047467.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Midnight Scenes: A Safe Place (2024) [En] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047325.jpg" />
+  <img src="Z:/picture/005/save_picture_1047325.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Midnight Scenes: From the Woods (2023) [En] (1.1a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047324.jpg" />
+  <img src="Z:/picture/005/save_picture_1047324.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047323.jpg" />
+  <img src="Z:/picture/005/save_picture_1047323.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Uninvited / Unwelcome (2022) [En] (1.14a) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F12BDF918789BFB08BC0924F4AEFF5AB6DA476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840646   (1047322) от 06.12.2025
-
-Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047322.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Няня" - это короткая интерактивная история ужасов о сверхъестественном. Следуйте за братьями и сестрами Оливером и Тиной в их поисках своей няни после того, как она исчезла посреди ночи. Добро пожаловать в новое измерение ужаса. Добро пожаловать в "Полуночные сцены". В сегодняшнем эпизоде "Полуночных сцен" мы следим за Оливером и Тиной, (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59FD3D98B39346CCC7AEF8E9FD445F69BAF90AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840641   (1047321) от 06.12.2025
-
-Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047321.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сегодняшней серии «Полуночных сцен» мы с доктором Ричардом П. Гриффином отправимся в самый ужасный полет в его жизни. Вы попали в измерение ужаса. Добро пожаловать в Midnight Scenes. Погасите свет и окунитесь в таинственный мир Midnight Scenes: The Goodbye Note. Знакомьтесь с миром игры, решайте загадки, очень сильно бойтесь. Атмосферный черно-белый пиксельный (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72A769D12E34077E322FC75C16001445932B3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840636   (1047320) от 06.12.2025
-
-The Librarian (2020) [Ru/Multi] (1.03a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047320.jpg" />
-</div>
-
-
-###  Подробнее
-
-В библиотеку Лиз пробралось что-то неизведанное. Ей нужно все выяснить. Она же библиотекарь, в конце-то концов. В библиотеке что-то не так. Налейте себе чашечку кофе и насладитесь таинственным миром игры Tihe Librarian. Исследуйте, решайте загадки и спасите библиотеку! Кропотливо прорисованный колоритный пиксель-арт. Много загадок для вашего развлечения. Атмосферный (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651AD829CAF8C53F570499AEB6C200292B3975CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1115245   (827977) от 17.03.2017
+
+Адаптация - Radio Resistance (2017) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827977.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Сборник лучших, на мой взгляд, песен «Адаптации», написанных в 90-х годах прошлого века. Тогда мы смогли придумать эти песни, но не сумели записать их как следует. У нас не было хороших инструментов и профессиональных студий, не хватало умений и навыков. Накануне 25-летия «Адаптации» мне захотелось перезаписать важнейшие старые песни — нынешним нашим составом, (   Читать дальше...   )1. Живой
+2. Бищара-рай
+3. Мой город будет стоять
+4. Маяк над соломенным городом(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294CE224FF9DE0A3C8F000EFAE3BDC035C51D7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115242   (827608) от 17.03.2017
+
+Би-2 - Би-2 & Prague Metropolitan Symphonic Orchestra Vol. 2 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва
+02. Хипстер
+03. Забрали в армию
+04. Касаясь земли (feat. Renars Kaupers & Найк Борзов)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5EC48D5B1BC1E96E3381F9DD271B4F5DEBA305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502655   (826505) от 15.10.2021
+
+Максим Леонидов - Седьмое небо (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В твоём городе осень
+2. В зоне доступа твоих губ
+3. Убить дракона
+4. Кот(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BC55F43CFBE61590E38BCEB6965CA4D484A469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115650   (825962) от 18.03.2017
+
+Дельфин - 04-15 (2017) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нечестно
+02. Девять
+03. QT
+04. Всё(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCC9EEADF01A4811A783C24D73967CE2FC7CDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115647   (825956) от 18.03.2017
 
 Дельфин - 97<01 (2017) [MP3|320 Kbps] <Rock, Alternative>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825956.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824589.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824581.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824568.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824140.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823482.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Stay Away - Можно спрятаться, сбежать нельзя (2021) 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822924.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Zmey Gorynich - Malafya (2016) (EP) [MP3|320 Kbps] <Folkcore, Metalcore, Pagan M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822761.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Animal ДжаZ - Любовь к полётам (2017) EP [MP3|320 Kbps] <Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822609.jpg" />
 </div>
 
 
@@ -263,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822410.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822367.jpg" />
 </div>
 
 
@@ -321,7 +437,7 @@ bAbA yAgA - 3 альбома (1992-1999) [MP3|320 Kbps] <Folk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820796.jpg" />
+  <img src="Z:/picture/008/save_picture_820796.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820531.jpg" />
+  <img src="Z:/picture/008/save_picture_820531.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819454.jpg" />
+  <img src="Z:/picture/008/save_picture_819454.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819400.jpg" />
+  <img src="Z:/picture/008/save_picture_819400.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819059.jpg" />
+  <img src="Z:/picture/008/save_picture_819059.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817599.jpg" />
+  <img src="Z:/picture/008/save_picture_817599.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817290.jpg" />
+  <img src="Z:/picture/008/save_picture_817290.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817245.jpg" />
+  <img src="Z:/picture/008/save_picture_817245.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817045.jpg" />
+  <img src="Z:/picture/008/save_picture_817045.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815578.jpg" />
+  <img src="Z:/picture/008/save_picture_815578.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Mordor - Власть (2016) [MP3|320 кб/с] <Rock, Industrial Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815368.jpg" />
+  <img src="Z:/picture/008/save_picture_815368.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ Mordor - Власть (2016) [MP3|320 кб/с] <Rock, Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D98BDFBAC25E029481901588CEA407CFDC3D3720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504190   (814064) от 22.10.2021
-
-НАИВ & Симфонический оркестр «Глобалис» - Симфопанк (2021) [MP3|320 Kbps] <Symphonic Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. НАИВная увертюра
-2. 20 лет одиночества
-3. Я панк-рокер и алкоголик
-4. ННННЗ(   Читать дальше...   )Жанр: Symphonic Punk RockПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7ABDD09D7A2A5FD2E9CD2E09CC1A03308163C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008643   (813256) от 19.04.2016
-
-Александр Кутиков, группа "Нюанс" - Бесконечномгновенно (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё так просто
- 02. Родина моя
- 03. Дорогой слов и откровений
- 04. Одна(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FE955AB294538D9C7F02F87D7284A07357CB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118443   (813189) от 25.03.2017
-
-Алексей Фролов - Огнем и мечом (2016) [MP3|320 Kbps] <Romantic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Огнём и мечом
-02.Волки
-03.Чужая
-04.Разбей моё сердце(   Читать дальше...   )Жанр: Romantic RockПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C07BD2B38EC96B61BAFA3A4AEC1FC5A1F93505C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503954   (812294) от 23.10.2021
-
-АнДем - 4 альбома (2008-2015) [MP3|320 Kbps] <Metal, Sympho Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812294.jpg" />
-</div>
-
-
-###  Подробнее
-
-«АнДем» — российская мелодик-метал-группа с женским вокалом. Была признана «открытием 2008 года на российской сцене» по результатам читательского опроса журнала «Dark City».01. Интро [1:18]
-02. Девять кругов ада [4:17]
-03. Из ничего [4:17]
-04. Я вижу взгляд [4:58](   Читать дальше...   )Жанр: Metal, Sympho Metal, Melodic MetalПродолжительность: 02:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919CE4F91E578702CD21F92CCA6B604BF5A41309
 ```
 
 https://mybot314.ru/tekegram_catalog/

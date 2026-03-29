@@ -1,3 +1,31 @@
+###  Публикация: 1385819   (795102) от 28.05.2020
+
+Даниил Волосатов | Основы коммерческого веб-дизайна 3.0 (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучающий курс включает 107 уроков (объединённых в 4 модуля) и 26 домашних заданий. Его длительность – 15 часов (только видеоуроков). Начиная с самого нуля, ты создашь профессиональный сайт и лендинг, которые не стыдно презентовать в своем портфолио.
+
+Преимущества курса – особые авторские приемы: Даниил делится своим опытом в ценообразовании и масштабных проектах. (   Читать дальше...   )Производство: https://photoshop-master.orgЖанр: ДизайнПродолжительность: ~15:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6CBCE365D86D070B9EF654AE75330368911960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509409   (794657) от 12.11.2021
 
 Skillshare, Neil Bettison | Blender 2.9 Creating a Medieval Castle Kitbash Modular Set (2021) PCRec [EN]
@@ -6,7 +34,7 @@ Skillshare, Neil Bettison | Blender 2.9 Creating a Medieval Castle Kitbash Modul
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794657.jpg" />
+  <img src="Z:/picture/008/save_picture_794657.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Lynda.com | SketchUp 2017 Essential Training (2016) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794508.jpg" />
+  <img src="Z:/picture/008/save_picture_794508.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - Medieval Windmill (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793678.jpg" />
+  <img src="Z:/picture/008/save_picture_793678.jpg" />
 </div>
 
 
@@ -91,7 +119,7 @@ Udemy, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Gallows 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793672.jpg" />
+  <img src="Z:/picture/008/save_picture_793672.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Blender Foundations | Blenderella, Моделирование Персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792065.jpg" />
+  <img src="Z:/picture/008/save_picture_792065.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ CG Masters | Моделирование и Текстурирование Авт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792059.jpg" />
+  <img src="Z:/picture/008/save_picture_792059.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ Udemy, Santiago Pereira Carrasco | Vector Displacement in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791951.jpg" />
+  <img src="Z:/picture/008/save_picture_791951.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ CG Masters | Полное создание автомобиля в Blender / Com
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790199.jpg" />
+  <img src="Z:/picture/008/save_picture_790199.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Mar
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789150.jpg" />
+  <img src="Z:/picture/008/save_picture_789150.jpg" />
 </div>
 
 
@@ -252,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788879.jpg" />
+  <img src="Z:/picture/008/save_picture_788879.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788844.jpg" />
+  <img src="Z:/picture/008/save_picture_788844.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788836.jpg" />
+  <img src="Z:/picture/008/save_picture_788836.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Ctrl + Paint, Matt Kohr | Edge Control (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788802.jpg" />
+  <img src="Z:/picture/008/save_picture_788802.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 06: Paintover Demo (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788800.jpg" />
+  <img src="Z:/picture/008/save_picture_788800.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 01: First Steps (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788795.jpg" />
+  <img src="Z:/picture/008/save_picture_788795.jpg" />
 </div>
 
 
@@ -411,7 +439,7 @@ Ctrl + Paint, Matt Kohr | House Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788793.jpg" />
+  <img src="Z:/picture/008/save_picture_788793.jpg" />
 </div>
 
 
@@ -438,7 +466,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 2 Form and Design (2012) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788786.jpg" />
+  <img src="Z:/picture/008/save_picture_788786.jpg" />
 </div>
 
 
@@ -464,7 +492,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 1 The Basics (2012) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788776.jpg" />
+  <img src="Z:/picture/008/save_picture_788776.jpg" />
 </div>
 
 
@@ -491,7 +519,7 @@ Ctrl + Paint, Matt Kohr | World Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788766.jpg" />
+  <img src="Z:/picture/008/save_picture_788766.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ Udemy, Motion Guru | Complete Curse of Blender version 2.93 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788762.jpg" />
+  <img src="Z:/picture/008/save_picture_788762.jpg" />
 </div>
 
 
@@ -545,7 +573,7 @@ Ctrl + Paint, Matt Kohr | Basic Photoshop Rendering Volumes 1-4 (2014) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788756.jpg" />
+  <img src="Z:/picture/008/save_picture_788756.jpg" />
 </div>
 
 
@@ -571,7 +599,7 @@ Ctrl + Paint, Мэтт Корр | Цифровая живопись от "Ctrl +
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788754.jpg" />
+  <img src="Z:/picture/008/save_picture_788754.jpg" />
 </div>
 
 
@@ -599,7 +627,7 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788733.jpg" />
+  <img src="Z:/picture/008/save_picture_788733.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788351.jpg" />
+  <img src="Z:/picture/008/save_picture_788351.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788332.jpg" />
+  <img src="Z:/picture/008/save_picture_788332.jpg" />
 </div>
 
 
@@ -665,33 +693,6 @@ Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23458554CBA17E08CF582BB473F096990DE0274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511587   (788322) от 22.11.2021
-
-Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788322.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видео, каждый из нас будет проектировать набор иконок для видеоигры. Хотя я рассказываю о своих личных процессах и методах, задача состоит не в копировании моего дизайна – в центре внимания ваш проект.
-Иконки и пользовательский интерфейс(UI) часто упускаются из виду начинающими концепт-художниками. Вы-художник, а не графический дизайнер, правильно? Нет. Графический (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13D0DB8B3398EECDF9A6C667683AB39D0561C29
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 661094   (1036687) от 01.03.2023
+
+Nomicon - Halla (2001) [FLAC|Lossless|image + .cue] <Progressive Gothic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival 03:51
+02. God Weaker Than Me 04:28
+03. Denial 03:58
+04. Saint 03:58(   Читать дальше...   )Жанр: Progressive Gothic Black MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684CA66215BDA422F85422C51F6939E2D3A82821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442301   (1036665) от 25.01.2021
+
+Red Cain - Kindred Act I, Act II (2019-2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kindred [00:05:06]
+02. Demons [00:04:40]
+03. Precipice of Man [00:05:18]
+04. Baltic Fleet [00:04:53](   Читать дальше...   )Жанр: Progressive Groove MetalПродолжительность: 01:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF947184C4FAE2E9B9F9996674598D2BBB0E8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442358   (1036664) от 25.01.2021
+
+Belzebubs - Pantheon of the Nightside Gods (2020) [FLAC|Lossless|image + .cue] <Melodic Black Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cathedrals of Mourning
+02.The Faustian Alchemist
+03.Blackened Call
+04.Acheron(   Читать дальше...   )Жанр: Melodic Black Death MetalПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:576640F9B77E835DF0BD24B6F5827A50FD0C3A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442355   (1036631) от 25.01.2021
 
 Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +93,7 @@ Mors Principium Est - Seven (2020) [FLAC|Lossless|image + .cue] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036631.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Necropolis - Incertidumbre (1999) [FLAC|Lossless|image + .cue] <Technical Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036365.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Absurdus - No Heaven in Sight (1998) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036364.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Serious Black - Suite 226 (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036356.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Therion - Leviathan (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036328.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Hammerlin - La Sombra de la Luna (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036164.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Moyra - Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Female V
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036161.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Diabulus In Musica - Euphonic Entropy (2020) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036044.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Father Befouled - Crowned In Veneficum (2022) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035878.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Anguish Force - Novum Ordinem Vetus Emblem (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035877.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Entheos - Time Will Take Us All (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035874.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Enemy of Reality - Where Truth May Lie (2023) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035868.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Steel Panther - On The Prowl (2023) Limited Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035862.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ DeadRisen - DeadRisen (2020) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035781.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Conception - Stаtе Оf Dесерtiоn (2020) 2xCD, Jараnese Еditiоn [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035777.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Children Of Bodom - Hate Crew Deathroll (2003) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035762.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Children Of Bodom - Hatebreeder (1999) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035751.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Soen - Imperial (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035748.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ And Oceans - Cosmic World Mother (2020) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035733.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Therion - Leviathan (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035720.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Children Of Bodom - Something Wild (1997) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035718.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Children of Bodom - Hexed (2019) Limited Edition [FLAC|lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035701.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Accept - Too Mean To Die (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035691.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Accept - Too Mean To Die (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED9A5421367C2710CA01E2FF64FC7E3550790AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616994   (1035623) от 05.03.2023
-
-When Hearts Wither - This Is Where It Ends (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Could I Know? [00:12:11]
-02. With Tears Unspoken [00:08:07]
-03. Reflection of You [00:09:51]
-04. My Home, My Temple, My Heart [00:11:07](   Читать дальше...   )Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C642ECE7A0A3F69F72B5C5642ACC78BBE38B5C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617161   (1035613) от 05.03.2023
-
-Elysian Gates - Beyond The Gates (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadows
-02. Out of Control
-03. Endless Rain
-04. Once(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EADFBF895AD98397CA495FC1DC0E3688181D684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617125   (1035579) от 05.03.2023
-
-Twilight Force - At The Heart Of Wintervale (2023) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Force (4:12)
-02. At the Heart of Wintervale (4:51)
-03. Dragonborn (4:00)
-04. Highlands of the Elder Dragon (10:33)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C29DE9E5EE670E015C1F1D49B1ACB466284EC5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

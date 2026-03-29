@@ -1,3 +1,29 @@
+###  Публикация: 1654875   (204718) от 23.08.2023
+
+PhotoRoom 4.6.5 Mod by Maximoff [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204718.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.08.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F25161E804E586F47DB9EEBCDFE7EDA62CF03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655369   (204601) от 25.08.2023
 
 WPS Office + PDF 18.1 Mod by Balatan [Ru/Multi]
@@ -6,7 +32,7 @@ WPS Office + PDF 18.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204601.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ YouTube ReVanced Extended 18.33.37 (RVP v2.188.2) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204599.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ HiPER Calc Pro (Scientific Calculator) 10.3.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204523.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ FiLMiC Pro v7.1 Mod by Timozhai [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204488.jpg" />
+  <img src="Z:/picture/004/save_picture_204488.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ PhotoDirector - Редактор фото 18.3.5 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204446.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ PhotoRoom 4.6.6 Mod by Maximoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204406.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ WPS Office-PDF, Word, Excel, PPT v16.8.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204386.jpg" />
+  <img src="Z:/picture/004/save_picture_204386.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ PhotoRoom 4.6.6 Mod by 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204379.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Photo Lab PRO v3.12.66 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204347.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ RAR for Android v6.23 build 117 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204346.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Textra SMS v4.66 Pro Mod by Balatan  [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204342.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ YouTube ReVanced Extended 18.33.40 (RVP v2.189.0) Mod by YT-Advanced + Micro G [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204167.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Plus Messenger (Telegram+) v10.0.4.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204143.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Phrasebook - Learn Languages / Разговорник v17.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204068.jpg" />
+  <img src="Z:/picture/004/save_picture_204068.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Navier HUD 3 v3.4.16 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204066.jpg" />
+  <img src="Z:/picture/004/save_picture_204066.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ VPN Inf - Security Fast VPN 7.5.815 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203948.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ PDF Extra: сканер и редактор 10.5.2117 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203844.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ PhotoRoom 4.6.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203704.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Kodi 20.0 (Nexus) for Android [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203477.jpg" />
+  <img src="Z:/picture/004/save_picture_203477.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Offline Maps / Офлайн карты для путешественников v
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203140.jpg" />
+  <img src="Z:/picture/004/save_picture_203140.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203139.jpg" />
+  <img src="Z:/picture/004/save_picture_203139.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.35
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202924.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ VPN Inf - Security Fast VPN 7.5.822 Mod by ModdingUnited [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202923.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202920.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Smart Launcher 6.3 build 012 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202909.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD63542803A908FE9587F9305FE6FD54EB4C7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656904   (202893) от 01.09.2023
-
-YouTube ReVanced Extended 18.34.37 (RVP v2.189.1) Mod by YT-Advanced + Micro G [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202893.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube ReVanced - это реинкарнация проекта YouTube Vanced. В YouTube ReVanced все функции такие же, как и в предшественнике. Все премиум-функции также доступны и усовершенствованы. В настоящее время вы смотрите видео без рекламы. Поддержка поиска, фонового воспроизведения, плавающего окна и MicroG для входа в систему.Тип издания: ModРелиз состоялся: 31.08.2023Разработчик: ReVanced TeamПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F915AD5C6C3BDB22E4ACAC0170AB905EA6839DDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

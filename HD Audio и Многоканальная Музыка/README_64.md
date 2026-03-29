@@ -1,3 +1,232 @@
+###  Публикация: 1665422   (182286) от 30.09.2023
+
+Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magical (3:14)
+02. England (3:47)
+03. Amazing (4:06)
+04. Plastic Bag (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665293   (182262) от 30.09.2023
+
+Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The City Never Sleeps At Night (2:53)
+02. The Last Of The Secret Agents (2:51)
+03. My Baby Cried All Night Long (3:04)
+04. Shades (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5504FA1391480DBAC149DB67730818BCEDE90335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665542   (182244) от 30.09.2023
+
+LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden (3:27)
+02. Wild (3:01)
+03. Dayglow (3:31)
+04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBEC5DF9FD29A735488F1C4F5EE88DE622477CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665496   (182242) от 30.09.2023
+
+Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honey (Are U Coming?) (2:47)
+02. Own My Mind (3:12)
+03. Gossip (2:48)
+04. Timezone (3:00)(   Читать дальше...   )Жанр: Glam-rockПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A625EDF3BD5E00DD9BE20B186D8F32140A1D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665507   (182215) от 30.09.2023
+
+Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Ground (4:40)
+02. Eternal Reign (4:32)
+03. Master of All (Extended Version) (5:03)
+04. Rapture (4:08)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A00286A0FB36A6B151A9FC4E3EF766B93525E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665286   (182129) от 30.09.2023
+
+Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Punk, alternative-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Punk, alternative-rockПродолжительность: 5CD, 03:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875BEF69C6A17BB82E6323F296C0E105B6BEA922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665698   (181626) от 01.10.2023
+
+Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultra Ultimate Opus Power [00:02:35]
+02. Hard Day [00:03:29]
+03. Bargain [00:03:29]
+04. Subway Anthem [00:04:04](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665572   (181613) от 01.10.2023
+
+October Falls - Tuoni (2003) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181613.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Quiet Shores
+A2 Usher
+A3 Tuoni
+A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665820   (181600) от 01.10.2023
 
 Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +235,7 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181600.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181585.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181583.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181570.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181566.jpg" />
 </div>
 
 
@@ -151,7 +380,7 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181557.jpg" />
 </div>
 
 
@@ -180,7 +409,7 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181553.jpg" />
 </div>
 
 
@@ -209,7 +438,7 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181528.jpg" />
 </div>
 
 
@@ -238,7 +467,7 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181497.jpg" />
 </div>
 
 
@@ -267,7 +496,7 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181468.jpg" />
 </div>
 
 
@@ -296,7 +525,7 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181450.jpg" />
 </div>
 
 
@@ -325,7 +554,7 @@ Orbital - Optical Delusion (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181438.jpg" />
 </div>
 
 
@@ -353,7 +582,7 @@ Smokie - Ансамбль «Смоуки» (1980) Reissue, Licensed From – EMI
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181262.jpg" />
 </div>
 
 
@@ -382,7 +611,7 @@ October Falls - Marras (2005) [FLAC|24/192|image + .cue|Vinyl-Rip]<Atmospheric B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180956.jpg" />
 </div>
 
 
@@ -411,7 +640,7 @@ Diablo (Diablo Brothers) - Studio Albums (8 releases) (2000-2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180860.jpg" />
 </div>
 
 
@@ -440,7 +669,7 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180753.jpg" />
 </div>
 
 
@@ -469,7 +698,7 @@ Portishead - Dummy (1994) 2008, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180664.jpg" />
+  <img src="Z:/picture/005/save_picture_180664.jpg" />
 </div>
 
 
@@ -498,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180623.jpg" />
 </div>
 
 
@@ -512,237 +741,6 @@ CD-1 (45:42)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428056   (180596) от 01.12.2020
-
-Massive Attack - Mezzanine  (1998) 2013, Europe, Reissue [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Trip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180596.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Angel
-A2 Risingson
-A3 Teardrop
-B1 Inertia Creeps(   Читать дальше...   )Жанр: Trip HopПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F856FFF29F9FC2FC57918BCF9FF411AA729D221F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593366   (180375) от 27.11.2022
-
-Creed (Tremonti, Scott Stapp) - Studio Albums (4 releases) (1997-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Grunge, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creed — американская рок-группа из Таллахасси, США. Основателями группы стали Скотт Стэпп и Марк Тремонти, которые учились вместе во Флоридском университете. Вскоре к ним присоединились Брайан Маршалл и Скотт Филлипс.1997 - My Own Prison
-1999 - Human Clay
-2001 - Weathered
-2009 - Full CircleЖанр: Post-Grunge, Hard RockПродолжительность: 04:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033080AE11A8FAB841BABB0F6D12C6BB5E892E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666276   (180373) от 03.10.2023
-
-Till The Dirt - Outside The Spiral (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starring Role [00:03:57]
-02. Outside The Spiral [00:03:58]
-03. Privilege [00:04:21]
-04. As it Seems [00:04:36](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B1143EBF96FD5A1E405C988AC27F33010CF203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666126   (180368) от 03.10.2023
-
-October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_180368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I
-02. II
-03. III
-04. IVЖанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666207   (180360) от 03.10.2023
-
-Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Social Network
-02. Leeches
-03. Blanket Stealer
-04. One Up(   Читать дальше...   )Жанр: Death Metal, HardcoreПродолжительность: 00:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593635   (180353) от 27.11.2022
-
-SHeDaisy - Whole SHebang (2003) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|DVD-Audio] <Folk, World, & Country>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180353.jpg" />
-</div>
-
-
-###  Подробнее
-
-SHeDAISY — одна из тех современных кантри-групп, которые кантри только по названию. Три сестры Осборн — Кристин, Келси и Кэссиди — создали коллекцию современной кантри-поп, которая звучит во многом как современная поп-музыка лишь с элементами кантри. Ключом к успеху альбома является не только гармония сестер, которая очень хороша, но и прекрасные песни, написанные (   Читать дальше...   )01. Little Good-Byes 03:20
-02. I Will...But 03:40
-03. This Woman Needs 03:20
-04. Before You and Me 03:09(   Читать дальше...   )Жанр: CountryПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD88E73A3F3508433F4B6C9941BBCFF520EED56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666054   (180285) от 03.10.2023
-
-YqpY - Near (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire [00:03:04]
-02. Gravitation [00:03:33]
-03. Signal [00:03:35]
-04. Magnetism [00:03:31](   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD93CD5633F0EEDD62B57ECE5F536BB089227816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666081   (180259) от 03.10.2023
-
-Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipped] [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every single day (Original radio edit)
-02. Every single day (Original extended mix)
-03. Every single day (Club version)Жанр: ElectronicПродолжительность: 00:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98631A0DF3C6DBD774A515BF58FF272763772C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

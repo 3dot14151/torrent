@@ -1,3 +1,139 @@
+###  Публикация: 1350322   (1003491) от 05.01.2020
+
+Typeface 2 v2.6.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typeface 2 поможет вам выбрать идеальный шрифт из коллекции.
+
+Хорошая типография прекрасна и является одним из важнейших аспектов дизайна. Но зачастую трудно найти шрифт, который передает только нужные эмоции, особенно если вы не уверены, что ищете.
+С минимальным интерфейсом и полным вниманием к вашим шрифтам Typeface старается сделать просмотр вашей коллекции увлекательным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2020Разработчик: Floor SteegПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C4D0B620A2BE2B5A6AF1E580C9C856C5FED6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351276   (1002508) от 09.01.2020
+
+Enolsoft PDF Converter with OCR 6.8.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enolsoft PDF конвертер с OCR - это эффективный инструмент, который работает для вашего удобства и полностью подходит для получения содержимого из отсканированных PDF или изображений, а также обычных файлов PDF. Он позволяет полностью конвертировать PDF в 15 форматов документов, включая .pages, .key, .pptx, .doc, .docx, .xlsx, .epub, .html, .text, .rtfd, кроме того, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnolsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C572B09B131B5D6FD5945DF8D302949269AABD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351285   (1002481) от 09.01.2020
+
+Enolsoft PDF to Word with OCR 6.8.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко конвертировать PDF в редактируемые файлы DOC / DOCX. Помимо собственных PDF-файлов, PDF в Word с OCR применяет оптическое распознавание символов, чтобы точно идентифицировать текст в отсканированном PDF или изображениях, а затем быстро преобразовать их в Word.
+
+Enolsoft PDF to Word с OCR (оптическое распознавание символов) для Mac может точно распознавать текст, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnoltsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122232790C710AD1D1F74AC14786A4683A384F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351270   (1002470) от 09.01.2020
+
+Enolsoft PDF Creator 4.4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enolsoft PDF Creator помогает создавать PDF-файлы в течение трех шагов, вы можете быстро конвертировать файлы в PDF, такие как DOCX, EPUB, Text, PPTX, CHM, RTFD, HTML, JPG, PNG, GIF, TIFF и многое другое. Более того, без изменения макета, поэтому файлы с печатью будут более «приятными».Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: EnolsoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB7AD5DB6A366F6F4CCA572E067566FC69EF21E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351350   (1002465) от 09.01.2020
+
+Cheetah3D 7 v7.4.2 [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cheetah3D - программа для 3D моделирования, рендеринга и анимации, являющаяся Cocoa-приложением.
+Программа была написана с нуля в Cocoa и предлагает множество мощных инструментов, в том числе текстуры, импорт PDF, HDRI и многое другое. Cheetah3D - это мощный, интуитивно понятный программный продукт с элегантным и интуитивно понятным пользовательским интерфейсом.Тип издания: macOS SoftwareРелиз состоялся: 07.01.2020Разработчик: Dr. Martin WengenmayerПоддерживаемая ОС: macOS 10.8.5+Язык интерфейса: Английский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F092576A317A950C1CCD7100BCA7137260C5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351056   (1002436) от 09.01.2020
 
 Divvy 1.5.2 [En]
@@ -6,7 +142,7 @@ Divvy 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002436.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ ACD Systems Canvas Draw 6.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002427.jpg" />
 </div>
 
 
@@ -62,7 +198,7 @@ BusyContacts 1.4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002260.jpg" />
 </div>
 
 
@@ -90,7 +226,7 @@ Wimoweh 1.1.68 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002257.jpg" />
 </div>
 
 
@@ -116,7 +252,7 @@ vGuru - Video Player 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002178.jpg" />
 </div>
 
 
@@ -142,7 +278,7 @@ Adobe Zii 2020 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001907.jpg" />
 </div>
 
 
@@ -168,7 +304,7 @@ MathWorks MATLAB R2019b 9.7.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001827.jpg" />
 </div>
 
 
@@ -194,7 +330,7 @@ Colorful Folders - Easy to use and design folder 2.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001676.jpg" />
 </div>
 
 
@@ -220,7 +356,7 @@ Data Recovery Essential Pro 3.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001649.jpg" />
 </div>
 
 
@@ -246,7 +382,7 @@ ChronoSync 4.9.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001646.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ Hot Door CADtools v.12.1.1 and Control Plug-ins v1.7 ONLY for Adobe Illustrator 
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001540.jpg" />
 </div>
 
 
@@ -301,7 +437,7 @@ Paintstorm Studio 2.43 (build 120120) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001249.jpg" />
 </div>
 
 
@@ -327,7 +463,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000908.jpg" />
 </div>
 
 
@@ -353,7 +489,7 @@ Omni Remover 3 v3.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000903.jpg" />
 </div>
 
 
@@ -379,7 +515,7 @@ EverWeb 3 v3.1.7 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000891.jpg" />
 </div>
 
 
@@ -407,7 +543,7 @@ Adobe Zii 2020 - Universal Patcher v5.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000853.jpg" />
 </div>
 
 
@@ -433,7 +569,7 @@ Perian 1.2.3 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000106.jpg" />
 </div>
 
 
@@ -459,7 +595,7 @@ Snapseed 1.2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997678.jpg" />
 </div>
 
 
@@ -486,7 +622,7 @@ Alarm Clock Pro 9.5.2 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996833.jpg" />
 </div>
 
 
@@ -518,7 +654,7 @@ iSonics 1.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996650.jpg" />
 </div>
 
 
@@ -548,7 +684,7 @@ Nik Software HDR Efex Pro 2.003 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995712.jpg" />
 </div>
 
 
@@ -560,144 +696,6 @@ HDR Efex Pro 2 - вторая версия плагина HDR Efex Pro для Ph
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606955   (994635) от 22.01.2013
-
-Dynamic Photo HDR 5.2.0 [Eng]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Photo HDR - программа для создания и редактирования динамических HDR фотографий. Проста в использовании, позволяет создавать HDR из одной фотографии, добавлять различные эффекты, что особенно полезно для владельцев фотокамер без функции автобрекетинга, умеет работать с файлами формата RAW, полученными с разных цифровых камер, позволяет корректировать изображения по ключевым точкам вручную и автоматически.
-
-Многие любители фотографировать и добавлять различные эффекты фотографиям, слышали о HDR снимках, но никогда не пробовали их делать сами. Если Вы не знаете что такое HDR (High Dynamic Range Imaging), то самое время попробовать Dynamic PHOTO HDR. Вам понравится после фотографирования с различной экспозицией - добавлять различные эффекты фотографиям, оптимизировать их, делать их более четкими и реалистичными. Программа расчитана на обработку динамических снимков. При совмещении снимков снятых с различной экспозицией убирает муар и лишние детали.Название программы: Dynamic Photo HDRТип издания: Mac OS XЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608136   (993866) от 24.01.2013
-
-PreSonus Studio One Pro 2.5 [Eng]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studio One Pro - мощный, профессиональный аудио/MIDI-секвенсор, снабжен не только всеми профессиональными функциями, необходимыми музыканту и аранжировщику в процессе производства музыки, но и некоторыми новыми разработками, выделяющими эту программу из ряда традиционных аудио-приложений. В основе работы Studio One Pro лежит механизм автоматического переключения между 32 и 64 битной разрядностью вычислений с плавающей запятой.Название программы: PreSonus Studio One ProРелиз состоялся: 30 ноября 2012 годаТип издания: Mac OS X softwareЯзык интерфейса: английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353083   (993323) от 16.01.2020
-
-Ortelius 2 v2.2.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ortelius - полнофункциональное векторное приложение для рисования, в частности для дизайна карты. Рисуйте на карте, используя встроенные функции - дороги, реки, береговые линии, здания, символы и контуры. Ortelius известен своими уникальными «подключаемыми дорожками» и экспертными сложными стилями, которые упрощают рисование утомительных карт. Каждый объект поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Mapdiva, Pty LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46509973059F29DA882CB7E4058AFBE20B09875A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353010   (993321) от 16.01.2020
-
-ClearDisk 2.12 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993321.jpg" />
-</div>
-
-
-###  Подробнее
-
-ClearDisk очищает ваш диск, удаляет ненужные файлы, а также ускоряет вашу систему через 5 минут!
-ClearDisk - простая и эффективная утилита, которая находит ненужные файлы на жестком диске, и позволяет удалить их, чтобы освободить место с помощью всего лишь нескольких щелчков мыши!
-
-Временные файлы создаются во время обычной работы системы, многие из которых не удаляются (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NektonyПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F55CF7F4DA0E3D2C0D171016DE3DB98E424992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353021   (993319) от 16.01.2020
-
-Logicly 1.11.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научите логически управлять цифровыми схемами эффективно - с Logicly
-
-● Создавайте схемы быстро и легко с современным и интуитивно понятным пользовательским интерфейсом с помощью перетаскивания, копирования / вставки, масштабирования и многого другого.
-● Возьмите под контроль отладку, приостановив симуляцию и наблюдая за распространением сигнала по мере (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Bowler Hat LLCПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28901A169B4FB44D253A4DDF2C0C0D2F1D53E2FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

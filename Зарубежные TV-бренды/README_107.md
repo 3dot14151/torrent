@@ -1,3 +1,108 @@
+###  Публикация: 1643785   (209885) от 03.07.2023
+
+BBC. Белая королева и ее соперницы / The Real White Queen and Her Rivals (2013) IPTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная британская писательница Филиппа Грегори расскажет о трех женщинах, ставших жертвами жестоких предательств и оказавшихся в очаге кровавой династической борьбы, известной как война Алой и Белой розы. Эта война была обусловлена соперничеством за английский престол между двумя ветвями династии Плантагенетов – Ланкастерами и Йорками, герб одних украшала алая (   Читать дальше...   )Производство: Великобритания, Oxsford Scientic Films for BBCЖанр: документально-постановочный, реконструкция, биография, историяРежиссер: Сара Джоблинг, Ричард СандерсУчастники: Филиппа ГрегориПеревод: одноголосый профессиональный (SDI Media)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EB21A1D24EB3BE249CF2C22013B734BA1F8CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644953   (209593) от 07.07.2023
+
+Время атома / Атомная энергетика сегодня / Nuclear Now / Nuclear (2022) WEBRip [H.264/720p] [DVO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209593.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине XX века атомная энергетика становится альтернативой сжигания ископаемого топлива, которое загрязняет планету и меняет климат. Однако инновационная технология мирного атома на протяжении долгого времени не находит должного отклика у мирового общества, поскольку крупные нефтяные и угольные корпорации запускают масштабную PR-кампанию по запугиванию людей (   Читать дальше...   )Производство: СШАЖанр: документальныйРежиссер: Оливер СтоунПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FAFDEBBDB4B0B624A490F51E90886356B437CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645264   (209490) от 08.07.2023
+
+Квантовая история с Брайаном Грином / Exploring Quantum History with Brian Greene (2015) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все наши физические действия в повседневной жизни обычно легко предсказуемы. Если нам нужно налить кофе и взять в руки чашку, мы делаем это не задумываясь, не прилагая особых усилий. Конечно, может случиться неожиданное, но даже тогда наши действия порождают предсказуемые результаты, которые можно описать, используя тот же самый набор законов физики, которые Исаак (   Читать дальше...   )Производство: США, CuriosityStreamЖанр: документальный, история, исследованияУчастники: Брайан ГринПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 03x ~00:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEF6B99DDFA9B47395A29DDD4A5A59FCD6B4977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645765   (209280) от 11.07.2023
+
+PBS. Охотники за воспоминаниями / Memory Hackers (2016) WEBRip [EN / RU Sub]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Память- это то, что определяет личность человека. Без нее мы были бы узниками настоящего, неспособными использовать уроки прошлого для изменения нашего будущего.
+Но как она работает на самом деле? В фильме показано, как ученые-нейробиологи исследуют мозг, чтобы раскрыть его секреты. Демонстрируется то, как формируются воспоминания, а также новые технологии, используемые (   Читать дальше...   )Производство: США, NOVA Production, WGBH, Public Broadcasting Service (PBS)Жанр: документальный, познавательный, научно-популярныйРежиссер: Анна Ли СтраханПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские (отдельным файлом)Продолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598792BACE4723A8C9E8E50930DD9A5473847C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646724   (208942) от 15.07.2023
 
 Космическое путешествие "Хаббла" / Hubble's Cosmic Journey (2014) WEB-DL [H.264/1080p]
@@ -6,7 +111,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208942.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208846.jpg" />
+  <img src="Z:/picture/005/save_picture_208846.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208694.jpg" />
+  <img src="Z:/picture/005/save_picture_208694.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208686.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208643.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208464.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208343.jpg" />
+  <img src="Z:/picture/005/save_picture_208343.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208212.jpg" />
+  <img src="Z:/picture/005/save_picture_208212.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208081.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208049.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207777.jpg" />
+  <img src="Z:/picture/005/save_picture_207777.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207459.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207391.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206964.jpg" />
+  <img src="Z:/picture/005/save_picture_206964.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206960.jpg" />
+  <img src="Z:/picture/005/save_picture_206960.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206807.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ NG: Апокалипсис: Первая мировая война (5 серий
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206647.jpg" />
+  <img src="Z:/picture/005/save_picture_206647.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206572.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206091.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206065.jpg" />
+  <img src="Z:/picture/005/save_picture_206065.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C06DFC811457C8C682869C22C0D0320774AC7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616475   (206051) от 02.03.2023
-
-Забытые гробницы древних майя / Lost Tombs of the Ancient Maya (2021) HDTVRip (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зачем майя строили огромные храмовые комплексы, а потом покидали их? Как они связывали себя с загробным миром и во что верили? Какие новые тайны удалось раскрыть современным археологам и ученым, использующие мюонную визуализацию?Производство: Великобритания, Япония, Windfall Films, NHKЖанр: документальный, история, археология, исследованияРежиссер: Белла ФалькПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55119FF44FD39AD07AB28A15B539A5664DF47AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616436   (206023) от 02.03.2023
-
-Микробы, которыми мы дышим / Le peuple des airs (2021) HDTVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бактерии, вирусы, а также споры грибов, водоросли, пыльца и даже насекомые: микроорганизмы постоянно витают в небе. Как такое количество живых существ может попасть в воздух и циркулировать в нашей атмосфере? Как они выживают? Биоразнообразие, здоровье, климат - учёные только сейчас открывают, насколько сильно этот незаметный в воздухе "планктон" влияет (   Читать дальше...   )Производство: Франция, Les Films en Vrac pour ARTE FranceЖанр: документальный, познавательный, аэробиологияРежиссер: Клод-Жули ПаризоПеревод: двуголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2FBCCCBFAD2FFC294FF991F56D50B388B280CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616776   (205978) от 03.03.2023
-
-Проект: Динозавр / T.Rex: Autopsy (2015) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что правительству одного из государств удалось обнаружить сохранившееся целиком тело одного из динозавров... А затем собрало ведущих палеонтологов, чтобы провести тайное вскрытие. Имея доступ только к останкам, ведущие умы мира не могут установить, как именно жили эти гиганты. И теперь, впервые за всю историю выдающиеся ученые могут изучить тело одного (   Читать дальше...   )Производство: Великобритания, Impossible Factual LTD, National GeographicЖанр: документальный, история, палеонтологияРежиссер: Ричард ДэйлПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B61326E2BF4E5F73FF868B222DB3AA93E891CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583684   (205839) от 15.10.2022
-
-Discovery. Отравление в Солсбери / Secrets of the Salisbury Poisonings (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший российский шпион лежит в больнице Уилтшира в тяжёлом состоянии. Предполагается, что это результат действия боевого отравляющего вещества "Новичок", несколько его капель может убить десятки тысяч человек. Это крупный инцидент покушения на убийство с применением нервно-паралитического агента. Впервые за сто лет в Западной Европе использовали химическое (   Читать дальше...   )Производство: Великобритания, DSP (Darlow Smithson Productions)Жанр: документальный, история, расследованиеРежиссер: Ник ПойнцПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02010BA89EA4B710F870D858DAD1189BB43DBFBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

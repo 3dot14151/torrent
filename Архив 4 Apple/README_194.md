@@ -6,7 +6,7 @@ Lyn 2.0.11 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792846.jpg" />
+  <img src="Z:/picture/008/save_picture_792846.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Persecond 1.5 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792845.jpg" />
+  <img src="Z:/picture/008/save_picture_792845.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wondershare Filmora Х v10.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792843.jpg" />
+  <img src="Z:/picture/008/save_picture_792843.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ uDock 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792839.jpg" />
+  <img src="Z:/picture/008/save_picture_792839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Yoink 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792837.jpg" />
+  <img src="Z:/picture/008/save_picture_792837.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Movist Pro 2.6.7 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792832.jpg" />
+  <img src="Z:/picture/008/save_picture_792832.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cinemagraph Pro 2.9 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792829.jpg" />
+  <img src="Z:/picture/008/save_picture_792829.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792809.jpg" />
+  <img src="Z:/picture/008/save_picture_792809.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792807.jpg" />
+  <img src="Z:/picture/008/save_picture_792807.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Imagenomic Professional Suite  for Photoshop СС2015.5-СС2019 v1709 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792798.jpg" />
+  <img src="Z:/picture/008/save_picture_792798.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Carbon Copy Cloner 6 v6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792772.jpg" />
+  <img src="Z:/picture/008/save_picture_792772.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Maxon Cinema 4D Studio R25.015 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792760.jpg" />
+  <img src="Z:/picture/008/save_picture_792760.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BetterTouchTool 2.685 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792737.jpg" />
+  <img src="Z:/picture/008/save_picture_792737.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Carbon Copy Cloner 5.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792735.jpg" />
+  <img src="Z:/picture/008/save_picture_792735.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ PDF Checkpoint 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792704.jpg" />
+  <img src="Z:/picture/008/save_picture_792704.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Dash 5.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792696.jpg" />
+  <img src="Z:/picture/008/save_picture_792696.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ MarkMyWords 1.12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792683.jpg" />
+  <img src="Z:/picture/008/save_picture_792683.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ MiniTube 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792567.jpg" />
+  <img src="Z:/picture/008/save_picture_792567.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ FSMonitor 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792525.jpg" />
+  <img src="Z:/picture/008/save_picture_792525.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Mitti 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792499.jpg" />
+  <img src="Z:/picture/008/save_picture_792499.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ iThoughtsX 4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792488.jpg" />
+  <img src="Z:/picture/008/save_picture_792488.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Coda 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792454.jpg" />
+  <img src="Z:/picture/008/save_picture_792454.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Koingo Alarm Clock Pro 10.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792451.jpg" />
+  <img src="Z:/picture/008/save_picture_792451.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Adobe InDesign CC 2017.1 (12.1.0) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792380.jpg" />
+  <img src="Z:/picture/008/save_picture_792380.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wondershare PDFelement 6 Pro 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792375.jpg" />
+  <img src="Z:/picture/008/save_picture_792375.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Adobe Illustrator CC2017.1 (21.1.0) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792339.jpg" />
+  <img src="Z:/picture/008/save_picture_792339.jpg" />
 </div>
 
 

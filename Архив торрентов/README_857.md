@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853418.jpg" />
+  <img src="Z:/picture/008/save_picture_853418.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ R-Drive Image Technician 6.3 Build 6302 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853413.jpg" />
+  <img src="Z:/picture/008/save_picture_853413.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Backupper Technician Plus 5.7.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853412.jpg" />
+  <img src="Z:/picture/008/save_picture_853412.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wise Disk Cleaner 10.2.8.779 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853411.jpg" />
+  <img src="Z:/picture/008/save_picture_853411.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Techsmith Snagit 13.1.1 Build 7662 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853358.jpg" />
+  <img src="Z:/picture/008/save_picture_853358.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Tenorshare iCareFone 4.0.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853355.jpg" />
+  <img src="Z:/picture/008/save_picture_853355.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853349.jpg" />
+  <img src="Z:/picture/008/save_picture_853349.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AdminPE 3.7 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853346.jpg" />
+  <img src="Z:/picture/008/save_picture_853346.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853345.jpg" />
+  <img src="Z:/picture/008/save_picture_853345.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Affinity Designer 1.5.2.58 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853344.jpg" />
+  <img src="Z:/picture/008/save_picture_853344.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853342.jpg" />
+  <img src="Z:/picture/008/save_picture_853342.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853339.jpg" />
+  <img src="Z:/picture/008/save_picture_853339.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Stellarium 0.20.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853280.jpg" />
+  <img src="Z:/picture/008/save_picture_853280.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853276.jpg" />
+  <img src="Z:/picture/008/save_picture_853276.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Adobe Audition 2020 13.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853270.jpg" />
+  <img src="Z:/picture/008/save_picture_853270.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853239.jpg" />
+  <img src="Z:/picture/008/save_picture_853239.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853231.jpg" />
+  <img src="Z:/picture/008/save_picture_853231.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Windows 7 Manager 5.1.9.2 RePack (& portable) by KpoJIuK (02.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_853225.jpg" />
+  <img src="Z:/picture/009/save_picture_853225.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Microsoft Windows and Office ISO Download Tool 8.35.0.141 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853147.jpg" />
+  <img src="Z:/picture/008/save_picture_853147.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DaVinci Resolve Studio 16 v16.2.1.017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853144.jpg" />
+  <img src="Z:/picture/008/save_picture_853144.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Scanner Pro: PDF Doc Scan 1.0.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853141.jpg" />
+  <img src="Z:/picture/008/save_picture_853141.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ AOMEI Backupper Pro 5.7.0 (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853140.jpg" />
+  <img src="Z:/picture/008/save_picture_853140.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853126.jpg" />
+  <img src="Z:/picture/008/save_picture_853126.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Atiq & Enk - Fear Of The Unknown (2013) Tympanik Audio | Mindtrick Records [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853087.jpg" />
+  <img src="Z:/picture/008/save_picture_853087.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Foxit Reader 9.7.2.29539 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853050.jpg" />
+  <img src="Z:/picture/008/save_picture_853050.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Foxit PhantomPDF Business 9.7.2.29539 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853044.jpg" />
+  <img src="Z:/picture/008/save_picture_853044.jpg" />
 </div>
 
 

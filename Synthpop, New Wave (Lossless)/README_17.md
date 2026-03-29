@@ -1,3 +1,32 @@
+###  Публикация: 1419171   (339871) от 28.10.2020
+
+R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander (5:35)
+02. Very Nice (4:19)
+03. Space Melody (Flemming Dalum Instr. Remix) (5:16)
+04. Clock War (5:28)(   Читать дальше...   )Жанр: Italo-Disco, Synthpop, New WaveПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330661   (339097) от 11.10.2019
 
 SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
@@ -6,7 +35,7 @@ SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339097.jpg" />
+  <img src="Z:/picture/008/save_picture_339097.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Future Synth - Somewhere In The Galaxy (2019) [FLAC|Lossless|WEB-DL|tracks] <Spa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338991.jpg" />
+  <img src="Z:/picture/008/save_picture_338991.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Laserdance - Trans Space Express (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337987.jpg" />
+  <img src="Z:/picture/008/save_picture_337987.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ LIGHTSPEAR - Meteor (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337800.jpg" />
+  <img src="Z:/picture/008/save_picture_337800.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ LIGHTSPEAR - Metro (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Chillwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337693.jpg" />
+  <img src="Z:/picture/008/save_picture_337693.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Marcel De Van - It's Magic (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Ita
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335750.jpg" />
+  <img src="Z:/picture/008/save_picture_335750.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Marcel De Van - The Best of the Album the World of the Synthesizer Dance (2018) 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335729.jpg" />
+  <img src="Z:/picture/008/save_picture_335729.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Marcel De Van - Faith Island (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, I
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335720.jpg" />
+  <img src="Z:/picture/008/save_picture_335720.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Retrowave 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334998.jpg" />
+  <img src="Z:/picture/008/save_picture_334998.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ KOMPROMAT - Traum Und Existenz (2019) [FLAC|Lossless|tracks + .cue] <Synthpop, N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334982.jpg" />
+  <img src="Z:/picture/008/save_picture_334982.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - SYNTH JUNIPERO - A Retrowave Compilation (2019) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332342.jpg" />
+  <img src="Z:/picture/008/save_picture_332342.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Surge - Wings of Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332138.jpg" />
+  <img src="Z:/picture/008/save_picture_332138.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Surge - Tales from a Lost Universe, Pt. 1-2 (2019) [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332012.jpg" />
+  <img src="Z:/picture/008/save_picture_332012.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ NIGHT TRAVELER - Dreams You Don't Forget (2020) EP [FLAC|Lossless|WEB-DL|tracks]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331195.jpg" />
+  <img src="Z:/picture/008/save_picture_331195.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Jeremiah Kane - Ronin (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Industria
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329927.jpg" />
+  <img src="Z:/picture/008/save_picture_329927.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Waveshaper - Forgotten Shapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327216.jpg" />
+  <img src="Z:/picture/008/save_picture_327216.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Occams Laser - Occult 91 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323481.jpg" />
+  <img src="Z:/picture/008/save_picture_323481.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Tesla Boy - Remedy (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323386.jpg" />
+  <img src="Z:/picture/008/save_picture_323386.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Human League - Anthology: A Very British Synthesizer Group (2CD) (2016) [FLA
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323155.jpg" />
+  <img src="Z:/picture/008/save_picture_323155.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Cars - Just What I Needed (1995) [FLAC|tracks+.cue]<New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319266.jpg" />
+  <img src="Z:/picture/008/save_picture_319266.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Sunlover Records Compilation Vol.2 - Maximum Workout (2015) [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317061.jpg" />
+  <img src="Z:/picture/008/save_picture_317061.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Martini Ranch - Holy Cow (1988) Sire Records [FLAC|Lossless|tracks + .cue] <Elec
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316778.jpg" />
+  <img src="Z:/picture/008/save_picture_316778.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Hurts - Desire (2017) Sony Music [FLAC|Lossless|tracks + .cue] <Electronic, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316415.jpg" />
+  <img src="Z:/picture/008/save_picture_316415.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Space - Magic Fly (1977) 1983, Compilation [FLAC|Lossless|image + .cue] <Electro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316134.jpg" />
+  <img src="Z:/picture/008/save_picture_316134.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electrop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314831.jpg" />
+  <img src="Z:/picture/008/save_picture_314831.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Parralox - Aeronaut (2015) Limited Edition [FLAC|Lossless|image + .cue]<Electrop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D49BAC4F7847F65C813B8A8302051768E8D8A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583224   (314507) от 13.10.2022
-
-St. Lucia - Utopia (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. () [00:01:06]
-02. Separate World [00:04:52]
-03. Another Lifetime [00:04:37]
-04. Rocket On My Feet [00:04:07](   Читать дальше...   )Жанр: Synthpop, IndieПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6675CC20522AD4E7D6E5F21BBAF452D9F4AEEDEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

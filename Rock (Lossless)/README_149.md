@@ -1,3 +1,148 @@
+###  Публикация: 1664935   (184043) от 28.09.2023
+
+Joachim Witt - Rubezahl (2018) [FLAC|Lossless|image + .cue] <Goth Rock, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herr Der Berge
+02. Ich Will Leben
+03. Dämon
+04. Goldrausch(   Читать дальше...   )Жанр: Goth Rock, DarkwaveПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED890B8B92981480131EB5DEBC73AB1C4D66B387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592254   (183896) от 22.11.2022
+
+Christopher Esse - Resonance Part 1-4 (2019-2022) 4CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Prog Related, Rock Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Resonance Part 1: John Doe Saves The World
+2019 - Resonance Part 2: Digital Rain
+2019 - Resonance Part 3: Trillionaire Zero(   Читать дальше...   )Жанр: Progressive Rock, Prog Related, Rock OperaПродолжительность: 4 CD, 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA077518A3D782900E6DF9579251B9DF06547F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592332   (183851) от 22.11.2022
+
+Red Lama - 4 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Psychodelia, Psychodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentleman [00:04:02]
+02. Airborne [00:05:10]
+03. Memory Terrain [00:03:48]
+04. Flammende Sjælland [00:03:13](   Читать дальше...   )Жанр: Neo-Psychodelia, Psychodelic RockПродолжительность: 4 CD, 02:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C209BA2D3E2A2D9E240AE7E0D62EF5FDB824074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427479   (183490) от 28.11.2020
+
+She Hates Emotions - Melancholic Maniac (2020) [FLAC|Lossless|tracks + .cue] <Gothic Rock, Darkwave, Synth Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's A Dreamer (Intro)
+02. Edge Of The Night
+03. City Lights
+04. The Final Dance(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Synth GothicПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874634A3199E3D2EB7FA360735EE0C8465C152DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427513   (183444) от 28.11.2020
+
+Jon Anderson - Song of Seven (1980) 2020 Remastered & Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For You for Me (2020 Remaster) (4:24)
+02. Some Are Born (2020 Remaster) (4:06)
+03. Don't Forget (Nostalgia) [2020 Remaster] (2:59)
+04. Heart of the Matter (2020 Remaster) (4:22)(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19665126D6683516F003DFD091C4CF9A2F62A371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665175   (183293) от 29.09.2023
 
 Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock, Psychedelic Rock>
@@ -6,7 +151,7 @@ Graveyard - 6 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183293.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Asia - Asia (1982) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183065.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Grateful Dead - Wake of the Flood (1973) 50th Anniversary Deluxe Edition, Remast
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182802.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Violet - Illusions (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182533.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Jonne Aaron - Onnen Vuodet (2013) [FLAC|Lossless|image + .cue] <Glam Rock, Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182457.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Big Country - Peace in Our Time (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182454.jpg" />
+  <img src="Z:/picture/005/save_picture_182454.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Eliza Jaye - Middle Child (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182449.jpg" />
+  <img src="Z:/picture/005/save_picture_182449.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Southeast of Saturn (2020) [FLAC|Lossless|WEB-DL|tracks] <Shoegaze, Dream P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182385.jpg" />
+  <img src="Z:/picture/005/save_picture_182385.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Jimmy Buffett - Songs You Dont Know By Heart (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182373.jpg" />
+  <img src="Z:/picture/005/save_picture_182373.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Steely Dan - Aja (1977) Reissue, 2023, Geffen [FLAC 24/192|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_182352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_182352.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Cats in Space - Atlantis (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182310.jpg" />
+  <img src="Z:/picture/005/save_picture_182310.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Taï Phong (Tai Phong) - 6 albums, 13 CD (1975-2017) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182277.jpg" />
+  <img src="Z:/picture/005/save_picture_182277.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Acoustic Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock, Acoustic, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182264.jpg" />
+  <img src="Z:/picture/005/save_picture_182264.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Guitar Rock Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal, Oth
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182171.jpg" />
+  <img src="Z:/picture/005/save_picture_182171.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Pattern-Seeking Animals - Only Passing Through (2022) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181956.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Electric Jaguar Baby - Psychic Death Safari (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181945.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Asia - Alpha (1983) Japanese Edition, Reissue, 2022, Universal [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181767.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Relat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181534.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Mystery - Caught In The Whirlwind Of Time (2020) Live [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181510.jpg" />
+  <img src="Z:/picture/005/save_picture_181510.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Collapse Under The Empire - Recurring (2023) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181493.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ John Lennon - TRUTH. (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181490.jpg" />
+  <img src="Z:/picture/005/save_picture_181490.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ John Lennon - TRUTH. (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DBC1A69E824556730AC3F21EACAFCD6663CF276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427933   (181451) от 30.11.2020
-
-Cliff Richard - Music ... The Air That I Breathe (2020) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling For You (3:13)
-02. & Albert Hammond - The Air That I Breath (4:22)
-03. Here Comes The Sun (3:02)
-04. & Sheila Walsh - It Is Well (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3990EA3AC575D5BE1F39ED5A5BCF9EACB0E6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427943   (181444) от 30.11.2020
-
-Omega - Testamentum (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sotetseg Kapuja (Nyitany)
-02. A Fold Arnyekos Oldalan
-03. A Langolo Huszadik Szazad
-04. Varazslatos, Feher Ko(   Читать дальше...   )Жанр: Progressive Rock, Hard Rock, Symphonic RockПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF3337EF0DD913FCE51A5A491B5B72DB2EBC029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665702   (181352) от 01.10.2023
-
-V.A. - Melodic Rock 100 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Foreigner - That Was Yesterday
-002. Jefferson Starship - Jane
-003. Cheap Trick - Love Me for a Minute
-004. Tommy Shaw - Ambition(   Читать дальше...   )Жанр: RockПродолжительность: 06:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37AD4BE22E0D9F229E8EDA9B61632C3CEF8C7ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593210   (181197) от 26.11.2022
-
-Jordsjo - Jord Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Prog Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over Vidda [00:01:48]
-02. Abstraksjoner fra et dunkelt kammer [00:06:51]
-03. Jord I [00:06:24]
-04. I Momos Trädgård [00:02:31](   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Prog FolkПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99465ABDF704E23952AE14FBD357DFE1AA889333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593194   (181141) от 26.11.2022
-
-Tom Petty And The Heartbreakers - Live at the Fillmore (1997) Deluxe Edition, 2022, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pre-show (spoken interlude) (0:41)
-02. Around and Around (2:26)
-03. Jammin' Me (4:21)
-04. Runnin' Down a Dream (4:53)(   Читать дальше...   )Жанр: RockПродолжительность: 04:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE60197006C43C97671165AB4117A10E23C82E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1615353   (1037816) от 25.02.2023
+
+VA - German Top 100 Single Charts 24.02.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Udo Lindenberg & Apache 207 - Komet (2:47)
+002. Miley Cyrus - Flowers (3:20)
+003. AYLIVA feat. MERO - Sie weiß (feat. Mero) (2:31)
+004. Raye feat. 070 Shake - Escapism. (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE931D471ABA2CC66B179B3AF10D3C42FEEFCBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441496   (1037376) от 22.01.2021
+
+VA - Party Retro Hits 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда самые известные, а ныне немного подзабытые популярные мелодии из прошедшего столетия в лонгплее под названием "Party Retro Hits 80s", накатят волну ностальгии и как и прежде порадуют Вас своими заводными мелодиями.001. Kylie Minogue - Hand On Your Heart
+002. The Whispers - And The Beat Goes On
+003. Re-Flex - The Politics Of Dancing
+004. Clannad, Bono - In A Lifetime(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D6C921A1EECF1E3987DF0BE2F33CFCB51380CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441871   (1037178) от 23.01.2021
 
 VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037178.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Big Retro Hits 90s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036455.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Festa Italiana (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035727.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, D
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034222.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - International Pop Party (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034212.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - 90s Retro Dance Hits (2021) [MP3|320 Kbps] <Dance, Pop, Electro Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033708.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - National Pop Dance Music (Vol. 11) (2021) [MP3|320 Kbps] <Pop, Folk, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033270.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - German Top 100 Single Charts 05.02.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032986.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Greatest Ever 70S Vol.04 (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032044.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - National Pop Dance Vol.12 (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031137.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - German Top 100 Single Charts 19.02.2021[MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030012.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - 90s Megamix (Vol.05) (2021) [MP3|256-320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029838.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Fresh Beats: Hard Dance Compilation (2021) [MP3|320 Kbps] <Hardstyle, Hard 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029568.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Loud Hits Of The 90s (2021) [MP3|320 Kbps] <Pop, Dance, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029183.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Hit Music (весна 2021) от Мяу (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028798.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Winter Pop Music Show (2021) [MP3|320 Kbps] <Dance, Pop, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028211.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - National Pop Dance Music (Vol.13) (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028210.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Shazam Хит-парад World Top 200 Февраль (2021) [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028137.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Новички в попсе Vol 7 (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027897.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - 8 марта: Золотые хиты (2021) [MP3|~245 Kbps (V0)] <Pop, Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027877.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027552.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - German Top 100 Single Charts 12.03.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026617.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Fresh Pop (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026378.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026166.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44839DDE3242CDE35CB2D17961C72757B3384716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456061   (1025298) от 21.03.2021
-
-VA - German Top 100 Single Charts 19.03.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
-02. Bausa & Apache 207 - Madonna
-03. Tiësto - The Business
-04. Masked Wolf - Astronaut In The Ocean(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F8202B7AEA59838B4069E9266EDDB8DB874C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456357   (1025111) от 22.03.2021
-
-VA - Welcome To Spring (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка поп музыки от европейских исполнителей, завёрнутая в весеннюю обертку солнечного позитива! Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, солнечную погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Little Mix - Break Up Song
-002. Baby Queen - Raw Thoughts
-003. Itzy - Wannabe
-004. Koda Kumi - I'm Lovin'(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172C4F64A7DC3A4EC4BF1F8C149ED58D37CBA12F
 ```
 
 https://mybot314.ru/tekegram_catalog/

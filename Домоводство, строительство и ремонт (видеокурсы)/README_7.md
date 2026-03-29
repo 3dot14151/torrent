@@ -1,3 +1,60 @@
+###  Публикация: 1637724   (197414) от 05.06.2023
+
+Archtutors, Андрей Кузьменко | Научитесь проектировать деревянные дома в Revit architecture (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдя курс, вы получите подробный алгоритм моделирования и сборки сооружений из дерева в соответствии с реальностью монтажных работ. Все технологии, вложенные в этот курс, были успешно реализованы на практике, таким образом вы получаете только качественные знания с осязаемым результатом.
+
+Если у вас уже есть опыт работы в Revit, пройдя этот курс вы сможете значительно (   Читать дальше...   )Производство: ArchtutorsЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 06:38:07Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7419DB58954654A6EE7AC347A41B6BF4A8940F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645207   (196020) от 08.07.2023
+
+Runn.consulting, Николай Русанов | Умный дом как бизнес. Уровень 1. Частный подрядчик (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-курс, который научит вас эффективно работать с системами домашней автоматизации.
+Курс подходит вам, если:Есть желание выйти на новый уровень — стать инсталляционной компанией или подрядчиком высокого класса
+Объём и стоимость заказов нужно увеличить
+Результат не всегда радует клиента(   Читать дальше...   )Производство: Runn.consultingЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:17:53Реклама: Наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE0A49D05E48E50CD5DE03A830A489798FD270B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646069   (195779) от 12.07.2023
 
 УОМ & Novikov school | Интегративная и функциональная кулинария. Модули 1-8 (2023) WEB-DL [AD] [RU] [Обновляемая]
@@ -6,7 +63,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195779.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Geometrium, Павел Герасимов | Стань дизайнером ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195481.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195183.jpg" />
 </div>
 
 
@@ -90,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195121.jpg" />
 </div>
 
 
@@ -119,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193930.jpg" />
 </div>
 
 
@@ -148,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193873.jpg" />
 </div>
 
 
@@ -177,7 +234,7 @@ SchoolHomesPro, Александр Кузнецов | Отопление, вод
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191668.jpg" />
 </div>
 
 
@@ -206,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_186528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186528.jpg" />
 </div>
 
 
@@ -232,7 +289,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_182867.jpg" />
+  <img src="Z:/picture/004/save_picture_182867.jpg" />
 </div>
 
 
@@ -258,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182753.jpg" />
 </div>
 
 
@@ -287,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178689.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178627.jpg" />
+  <img src="Z:/picture/005/save_picture_178627.jpg" />
 </div>
 
 
@@ -344,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177259.jpg" />
 </div>
 
 
@@ -373,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176492.jpg" />
 </div>
 
 
@@ -401,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176416.jpg" />
 </div>
 
 
@@ -430,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176387.jpg" />
 </div>
 
 
@@ -459,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173157.jpg" />
 </div>
 
 
@@ -488,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173152.jpg" />
 </div>
 
 
@@ -516,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173144.jpg" />
 </div>
 
 
@@ -545,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173079.jpg" />
 </div>
 
 
@@ -571,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172717.jpg" />
 </div>
 
 
@@ -600,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172169.jpg" />
 </div>
 
 
@@ -628,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171833.jpg" />
 </div>
 
 
@@ -655,7 +712,7 @@ Legacy Woodworking Machinery| Фрезерный стол с ручным при
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171622.jpg" />
 </div>
 
 
@@ -669,62 +726,6 @@ Legacy Woodworking Machinery| Фрезерный стол с ручным при
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D447875ED9AA743E1E643F15C5DA1A86E05BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671400   (171318) от 24.10.2023
-
-Novak Dekor | Франшиза производства Гибкого камня, Каменных обоев и Термопанелей с рисунком (2023) CamRip [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171318.jpg" />
-</div>
-
-
-###  Подробнее
-
-B тexнoлогию входит вeсь неoбходимый мaтеpиал чтобы зaпустить свой бизнес вaм оcтаeтcя толькo зaкупить мaтeриал (поcтaвщики в комплекте) и повтоpят всe по инcтpукции
-1. Матeриaл: пoлный тexнoлогичeский процесс (замес основы, формирование текстуры, дисперсии, линия и тд.)
-2. Текстовые документы: какие дисперсии использовать, соотношение дисперсий, изготовление смесей, (   Читать дальше...   )Производство: Novak DekorЖанр: Обучающий курс, технологический процессЯзык озвучки: РусскийПродолжительность: 41:00:49Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFFD75B18D431147E4ACE78538A32966972ED45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671453   (171311) от 24.10.2023
-
-Гастроинкубатор, Николай Ильин | Базовый поварской онлайн-курс  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс для любителей и профи. Для тех, кто хочет расширить кулинарный репертуар и удивлять близких.
-Если мечтаете стать поваром, шефом или открыть свой ресторан, если любите готовить и хотите делать это на мировом уровне — добро пожаловать на Онлайн базовые поварские курсы!
-Для прохождения курса НЕ понадобится каких-то особенных продуктов и оборудования и продукты (   Читать дальше...   )Производство: ГастроинкубаторЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 29:13:16Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63820E9B780BE2A8EED57A523BA23DECD3BCFF46
 ```
 
 https://mybot314.ru/tekegram_catalog/

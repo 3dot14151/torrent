@@ -1,3 +1,61 @@
+###  Публикация: 1282025   (746309) от 11.02.2019
+
+AC / DC - The Best (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jack
+02. Highway To Hell
+03. Touch Too Much
+04. Back In Black(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B760A8B0C22D14BD7284DE0C2EA77EF6CC1A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020118   (745300) от 26.05.2016
+
+Human Zoo - My Own God (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Direction (3:50)
+02. Cry Baby Cry (3:24)
+03. Love Train (2:55)
+04. A Day to Remember (4:38)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E39DC8811CC6670155FB8B0C02911C00AE9D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524293   (745206) от 15.01.2022
 
 Peter H Nilsson - Sign Of Myself (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ Peter H Nilsson - Sign Of Myself (2021) [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745206.jpg" />
+  <img src="Z:/picture/008/save_picture_745206.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Stardust Reverie - Proclamation Of Shadows (2015) [FLAC|Lossless|image + .cue]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742313.jpg" />
+  <img src="Z:/picture/008/save_picture_742313.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Axxis - Retrolution (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741003.jpg" />
+  <img src="Z:/picture/008/save_picture_741003.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Poison - The Best Of Poison: 20 Years Of Rock (2006) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740902.jpg" />
+  <img src="Z:/picture/008/save_picture_740902.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Rainbow - Live in Japan (1984) 2015, Digital remaster [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740798.jpg" />
+  <img src="Z:/picture/008/save_picture_740798.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Rata Blanca - The Forgotten Kingdom (2009) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739362.jpg" />
+  <img src="Z:/picture/008/save_picture_739362.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Tony Mitchell - Hot Endless Summer Nights (2021) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739122.jpg" />
+  <img src="Z:/picture/008/save_picture_739122.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738824.jpg" />
+  <img src="Z:/picture/008/save_picture_738824.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Nightfox - White Cobra (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737820.jpg" />
+  <img src="Z:/picture/008/save_picture_737820.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Giant - Shifting Time (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737811.jpg" />
+  <img src="Z:/picture/008/save_picture_737811.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Magnum -  The Monster Roars (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737794.jpg" />
+  <img src="Z:/picture/008/save_picture_737794.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Snakepit Rebels - Dustsucker (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736700.jpg" />
+  <img src="Z:/picture/008/save_picture_736700.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Electric Food - Electric Food ⁄ Flash (2004) [FLAC|Lossless|tracks + .cue] <Ps
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735878.jpg" />
+  <img src="Z:/picture/008/save_picture_735878.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Cream - 11 albums, 4 Box Set, 54CD (1966-2020) [FLAC|Lossless|image + .cue | tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735767.jpg" />
+  <img src="Z:/picture/008/save_picture_735767.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Praying Mantis - Katharsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735386.jpg" />
+  <img src="Z:/picture/005/save_picture_735386.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Reckless Souls - Timeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734440.jpg" />
+  <img src="Z:/picture/008/save_picture_734440.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733572.jpg" />
+  <img src="Z:/picture/008/save_picture_733572.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Tony Martin - Thorns (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733565.jpg" />
+  <img src="Z:/picture/005/save_picture_733565.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Ian Gillan Band - Higher And Higher (2005) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733133.jpg" />
+  <img src="Z:/picture/008/save_picture_733133.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Jolly Joker - Loud & Proud (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732678.jpg" />
+  <img src="Z:/picture/008/save_picture_732678.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Bonfire - Byte The Bullet (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732073.jpg" />
+  <img src="Z:/picture/008/save_picture_732073.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Tallan Noble Latz - Tallan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731978.jpg" />
+  <img src="Z:/picture/008/save_picture_731978.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Bad Habit - Autonomy (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731876.jpg" />
+  <img src="Z:/picture/008/save_picture_731876.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Modern Art Featuring Ted Poley - Modern Art (2018) Japanese Edition [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731059.jpg" />
+  <img src="Z:/picture/008/save_picture_731059.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Modern Art Featuring Ted Poley - Modern Art (2018) Japanese Edition [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B259557DF261B7A0BEFCBFD55BDE5FC0FCBD5236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283591   (731026) от 19.02.2019
-
-Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Free (04:14)
-02. In The Name Of Love (03:54)
-03. Heart Of Stone (05:26)
-04. We Can’t Choose (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A25DAAAC8EBB7FA30D5ADA3CCDB33CBB893FB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283827   (730863) от 19.02.2019
-
-Geordie - A Band From Geordieland 1972-1996 (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Do That
-02. Francis Was A Rocker
-03. Ain't It Just Like A Woman
-04. All Because Of You(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51282BA4F5B61670596B9822F428DA2C13F4977F
 ```
 
 https://mybot314.ru/tekegram_catalog/

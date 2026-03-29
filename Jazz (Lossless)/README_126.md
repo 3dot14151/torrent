@@ -1,3 +1,119 @@
+###  Публикация: 1228899   (632191) от 03.06.2018
+
+Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluemantique [5:32]
+02. Passepied nouveau [4:53]
+03. L'autre ballade [5:38]
+04. Romance [5:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2309A16B5CDBCB5E6432F2568F98DFCA4DEE4F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543228   (631834) от 10.04.2022
+
+Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961) 10CD, 2018, The Intense Media [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - The Louis Armstrong Story Vol.1 & Vol.2:
+01. Muskrat Ramble [2:33]
+02. Heebie Jeebies [2:55]
+03. Gut Bucket Blues [2:43](   Читать дальше...   )Жанр: Dixieland, Swing, Vocal JazzПродолжительность: 12:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119798F2140AD5D4519DB82D8974862FAFF5D7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144031   (631799) от 20.06.2017
+
+Houston Person - All Soul (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Not [06:00]
+02. All Soul [04:28]
+03. Bossa For Baby [05:59]
+04. Wonderland [04:29](   Читать дальше...   )Жанр: Post-Bop, Soul JazzПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3665EC405356BE838413930097A545F1E986E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144027   (631798) от 20.06.2017
+
+Tony Bennett - The Beat Of My Heart (1957) 2017, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Begin [02:03]
+02. Lullaby of Broadway  [02:28]
+03. Let There Be Love  [02:06]
+04. Love for Sale  [03:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3179161FF8BEC0132CBAC18BFCC69C100B73F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144038   (631644) от 20.06.2017
 
 Rufus Harley - The Pied Piper of Jazz (1966, 1967) 2000, Label M [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -6,7 +122,7 @@ Rufus Harley - The Pied Piper of Jazz (1966, 1967) 2000, Label M [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631644.jpg" />
+  <img src="Z:/picture/008/save_picture_631644.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Elvin Jones, James Moody, Clark Terry - Summit Meeting (1977) Vanguard[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630595.jpg" />
+  <img src="Z:/picture/008/save_picture_630595.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Illinois Jacquet - The Definitive Black & Blue Sessions: God Bless My Solo (1978
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630313.jpg" />
+  <img src="Z:/picture/008/save_picture_630313.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Milt Jackson - And The Thelonious Monk Quintet (2013) [FLAC|Lossless]<Jazz, Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630220.jpg" />
+  <img src="Z:/picture/008/save_picture_630220.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Wynton Marsalis - The Music of America (2012) 2CD /Sony Masterworks/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630219.jpg" />
+  <img src="Z:/picture/008/save_picture_630219.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Joey DeFrancesco - In The Key Of The Universe (2019) Mack Avenue [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630104.jpg" />
+  <img src="Z:/picture/008/save_picture_630104.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tal Farlow - Three Classic Albums Plus (1954 - 1959) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630102.jpg" />
+  <img src="Z:/picture/008/save_picture_630102.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Matthew Shipp Trio and Nicole Mitchell - All Things Are (2019) [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630100.jpg" />
+  <img src="Z:/picture/008/save_picture_630100.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Peggy Lee - A Portrait of Peggy Lee 1941-1942 (1986) Sony [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630098.jpg" />
+  <img src="Z:/picture/008/save_picture_630098.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Chet Baker & Gerry Mulligan - Original Quartet 1952, 1953 (2018) 2CD, Jazz Image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630087.jpg" />
+  <img src="Z:/picture/008/save_picture_630087.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629989.jpg" />
+  <img src="Z:/picture/008/save_picture_629989.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Nicki Parrott - From New York To Paris (2019) [FLAC|Lossless|WEB-DL|tracks] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629981.jpg" />
+  <img src="Z:/picture/008/save_picture_629981.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jackie McLean - The Jackie Mac Attack Live (1991) Birdology [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629785.jpg" />
+  <img src="Z:/picture/008/save_picture_629785.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Kenny Drew - Undercurrent (1961) Remaster, 2011, Audio Wave [WavPack|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629660.jpg" />
+  <img src="Z:/picture/008/save_picture_629660.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Heads Of State - Four In One (2017) Smoke Sessions Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629658.jpg" />
+  <img src="Z:/picture/008/save_picture_629658.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ George Gershwin - The Original Gershwin Collection (2011) BoxSet 5CD[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629091.jpg" />
+  <img src="Z:/picture/005/save_picture_629091.jpg" />
 </div>
 
 
@@ -480,7 +596,7 @@ VA - Verve - Unmixed2 & Remixed2 (2003) 2CD [FLAC|Lossless]<Downtempo, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628983.jpg" />
+  <img src="Z:/picture/008/save_picture_628983.jpg" />
 </div>
 
 
@@ -515,7 +631,7 @@ McCoy Tyner - Dimensions (1984) /2005, Collectables/[FLAC|tracks+.cue]<Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628583.jpg" />
+  <img src="Z:/picture/008/save_picture_628583.jpg" />
 </div>
 
 
@@ -544,7 +660,7 @@ Sammy Davis, Jr. & Carmen McRae - Boy Meets Girl & Porgy and Bess (1957, 1959) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628222.jpg" />
+  <img src="Z:/picture/008/save_picture_628222.jpg" />
 </div>
 
 
@@ -573,7 +689,7 @@ Jerome Sabbagh - Plugged In (2012) Bee Jazz [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627911.jpg" />
+  <img src="Z:/picture/008/save_picture_627911.jpg" />
 </div>
 
 
@@ -602,7 +718,7 @@ Idrees Sulieman & Benny Bailey - Swiss Radio Days: Jazz Live Trio Concert Series
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627906.jpg" />
+  <img src="Z:/picture/008/save_picture_627906.jpg" />
 </div>
 
 
@@ -631,7 +747,7 @@ VA - The Real... Bossa Nova (The Ultimate Bossa Nova Collection) (2014) 3CD [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627476.jpg" />
+  <img src="Z:/picture/008/save_picture_627476.jpg" />
 </div>
 
 
@@ -645,122 +761,6 @@ VA - The Real... Bossa Nova (The Ultimate Bossa Nova Collection) (2014) 3CD [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D79E1BBEFBE81A01787A58EC0B54EC6E9D41AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802625   (626611) от 06.07.2014
-
-Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful 4:26
-02. Peel Me A Grape 5:49
-03. Pick Yourself Up 3:01
-04. Frim Fram Sauce 5:00(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:059C094309B73986BA7807BF173001295C6E7834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229488   (626571) от 06.06.2018
-
-Chet Baker - For Lovers (1952 - 1959) 3CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626571.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Funny Valentine #1 [2:20]
-02. I Fall In Love Too Easily #1 [2:06]
-03. How Long Has This Been Going On? [4:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 03:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEEE959CAE44218AAAE2CD56E849D1716D1ED3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294810   (626269) от 09.04.2019
-
-Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon Records [FLAC|Lossless|tracks + .cue] <Swedish Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626269.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Vem kan segla forutan vind [3:20]
-02. Herr Peder och Malfred [2:06]
-03. Vi skall stalla till med en roliger dans [3:13](   Читать дальше...   )Жанр: Swedish Jazz, Post-Bop, Piano JazzПродолжительность: 01:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255CB74E7879E4BB0A4B168217F80CAB74B93B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294711   (626266) от 09.04.2019
-
-Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terê (4:30)
-02. L’Aube (2:05)
-03. Lenga Lenga (3:06)
-04. Debandada (4:35)(   Читать дальше...   )Жанр: Jazz, Brazilian JazzПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F2B854EF5ABA86598E48038031FEAE8ED66B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

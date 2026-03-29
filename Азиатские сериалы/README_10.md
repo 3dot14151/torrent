@@ -1,3 +1,81 @@
+###  Публикация: 1596627   (168829) от 11.12.2022
+
+Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 12) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168829.jpg" />
+</div>
+
+
+###  Подробнее
+
+2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, английский, корейскийСубтитры: русские, украинские, английскиеПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7690970BE55E39870FE5C6E2AAE8453525F97E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596623   (168792) от 11.12.2022
+
+Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 12) HDRezka, TVShows
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168792.jpg" />
+</div>
+
+
+###  Подробнее
+
+2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Многоголосый профессиональный (HDRezka, TVShows)Язык озвучки: русский, корейскийПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3CE5BF563BF1B18B1693C340ED448DDDCA6426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596633   (168712) от 11.12.2022
+
+Бумажный дом: Корея / Jongiui jip: gongdonggyeongjeguyeok / Money Heist: Korea - Joint Economic Area (2022) WEB-DL [H.264/1080p] (сезон 1, серии 7-12 из 12) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168712.jpg" />
+</div>
+
+
+###  Подробнее
+
+2025 год. Север и Юг объединились и выпустили единую валюту, но обещанное правительством экономическое процветание оказалось не для всех: социальное расслоение увеличилось, богатые стали богаче, а бедные — беднее. Преступник-комбинатор по прозвищу Профессор планирует украсть 4 триллиона вон из монетного двора, расположенного в объединённой экономической зоне, и берёт (   Читать дальше...   )Производство: Южная Корея / BH Entertainment Co. Ltd., BH Entertainment, Zium ContentЖанр: триллер, криминал, драмаРежиссер: Ким Хон-сонАктеры: Ю Джи-тхэ, Ким Юн-джин, Пак Хэ-су, Чон Джон-со, Ли Вон-джон, Пак Мён-хун, Ким Сон-о, Ким Джи-хун, Чан Юн-джу, Ли Джу-бинПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейскийСубтитры: русские, украинские, английские, французскиеПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A2D008E96EEEF692BCA0631825426E33FEA718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431537   (166563) от 14.12.2020
 
 Незнакомец / Лес тайн / Bimilui sup / Stranger / Secret Forest (2020) WEB-DL [H.264/720p-LQ] (сезон 2, серии 1-16 из 16) Baibako
@@ -6,7 +84,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166563.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166557.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166380.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165708.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165563.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162797.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162688.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162537.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159518.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156822.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155258.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155207.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155172.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155140.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155128.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154965.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153485.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151829.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142820.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142764.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138870.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137189.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137075.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C75E52F6C545F1B295250ED50E9A3B3BE148DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680322   (132513) от 03.12.2023
-
-Линчеватель / Мститель / Bijillanteo / Vigilante (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows, LE-Production
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Джи Ён поступает в полицейскую академию, чтобы найти убийцу своей матери. В будни Джи Ён - обычный студент, но в выходные дни он превращается в известного тёмного героя под псевдонимом Линчеватель, который выслеживает и наказывает нарушителей закона. На основе одноимённого вебтуна.Производство: Южная Корея / Studio NЖанр: криминал, боевик, триллерРежиссер: Чхве Джон-ёльАктеры: Нам Джу-хёк, Ю Джи-тхэ, Ли Джун-хёк, Ким Со-джин, Ли До-гун, Ан Сон-бон, Ён Джэ-ук, Ли Со-хванПеревод: Многоголосый профессиональный (TVShows), Многоголосый любительский (LE-Production)Язык озвучки: Русский, корейскийСубтитры: Русские, английские (SDH), корейские (SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE7178F51B0CE3D21FF6E620C0111CDC21E4C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681756   (132292) от 04.12.2023
-
-Злой дух / Демон / Akgwi / Revenant (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Всё Сведено, Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная девушка Ку Сан-ён днём работает на полставки, а по вечерам готовится к экзамену на госслужащего. Однажды открывается дверь между мирами, и в Сан-ён вселяется демон. Потустороннюю сущность может видеть Ём Хэ-сан, университетский преподаватель корейского фольклора, и к своему ужасу мужчина понимает, что это тот самый злой дух, который много лет назад убил его (   Читать дальше...   )Производство: Южная Корея / BA Entertainment, Studio SЖанр: ужасы, детективРежиссер: Ли Джон-ним, Ким Джэ-хонАктеры: Ким Тхэ-ри, О Джон-сэ, Хон Гён, Ким Хэ-сук, Пак Чи-ён, Ким Вон-хэ, Ян Хе-джи, Ли Гю-хве, Чин Сон-гю, Е Су-джонПеревод: Многоголосый любительский (Всё Сведено), двухголосый любительский (Softbox)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D3138A8B4B2029CB4B42BA38FACF55BDB8D10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643570   (132290) от 04.12.2023
-
-Моё сердце бьётся / Gaseumi ttwinda / My Heart Is Beating (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полувампир-получеловек Сон У-хёль, который жаждет стать полностью человеком и упустил свой шанс ещё 100 лет назад, заселяется в гостевой дом и знакомится с его хозяйкой Чу Ин-хэ — девушкой из бедной семьи, которой пришлось выработать бессердечие и хладнокровие.Производство: Южная Корея, KBS, Monster UnionЖанр: мелодрама, фэнтези, комедияРежиссер: Ли Хён-сок, Ли Мин-суАктеры: Тхэгён, Вон Джи-ан, Пак Кан-хён, Юн Со-хи, Юн Бён-хи, Ко Гю-пхиль, Ким Ин-гвон, Сын Ю, Пэк Со-ху, Пэк Хён-джуПеревод: Двуголосый любительский (Softbox), многоголосый любительский (DublikTV)Язык озвучки: русский, корейскийСубтитры: Русские (forced, full), английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9214147E6E92A3F2321C259B7E05849003FAD3FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

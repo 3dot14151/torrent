@@ -6,7 +6,7 @@ Dark Princess - Phoenix (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Gothic M
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240858.jpg" />
+  <img src="Z:/picture/004/save_picture_240858.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ PensiOi!ners - Капсаицин (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240842.jpg" />
+  <img src="Z:/picture/004/save_picture_240842.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240659.jpg" />
+  <img src="Z:/picture/004/save_picture_240659.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240655.jpg" />
+  <img src="Z:/picture/004/save_picture_240655.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240633.jpg" />
+  <img src="Z:/picture/004/save_picture_240633.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blaze To Raise - Blaze to Raise (2023) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240621.jpg" />
+  <img src="Z:/picture/004/save_picture_240621.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Roobanok - Космос умеет прощать (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240313.jpg" />
+  <img src="Z:/picture/004/save_picture_240313.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Пипл про | To Purple. Российско-Белорусское по
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240170.jpg" />
+  <img src="Z:/picture/004/save_picture_240170.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Black Scum - .INI (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240028.jpg" />
+  <img src="Z:/picture/004/save_picture_240028.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sweetlee - Двери (2019) [FLAC|Lossless|WEB-DL|tracks] <grange, psychedelic,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239185.jpg" />
+  <img src="Z:/picture/005/save_picture_239185.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238993.jpg" />
+  <img src="Z:/picture/005/save_picture_238993.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238973.jpg" />
+  <img src="Z:/picture/005/save_picture_238973.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238923.jpg" />
+  <img src="Z:/picture/005/save_picture_238923.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238905.jpg" />
+  <img src="Z:/picture/005/save_picture_238905.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238784.jpg" />
+  <img src="Z:/picture/005/save_picture_238784.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Hyperomm - Designing Apocalypse (2023) [FLAC|Lossless|image + .cue] <Melodic Dea
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238614.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238465.jpg" />
+  <img src="Z:/picture/005/save_picture_238465.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238356.jpg" />
+  <img src="Z:/picture/004/save_picture_238356.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238334.jpg" />
+  <img src="Z:/picture/005/save_picture_238334.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238175.jpg" />
+  <img src="Z:/picture/004/save_picture_238175.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Loners - Отражения (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238105.jpg" />
+  <img src="Z:/picture/004/save_picture_238105.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237886.jpg" />
+  <img src="Z:/picture/004/save_picture_237886.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237807.jpg" />
+  <img src="Z:/picture/004/save_picture_237807.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237747.jpg" />
+  <img src="Z:/picture/004/save_picture_237747.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237728.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Your Best Adornment - Инфант (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237462.jpg" />
+  <img src="Z:/picture/005/save_picture_237462.jpg" />
 </div>
 
 

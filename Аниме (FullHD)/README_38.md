@@ -1,3 +1,161 @@
+###  Публикация: 602851   (345274) от 08.10.2019
+
+Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коко Хекматияр, непредсказуемый оружейный дилер, все так же кочует со своей командой по белу свету. Водоворот судьбы, что крутится вокруг главной героини, затягивает коллег и конкурентов, бандитов и клиентов, старых кровников и агентов ЦРУ. Но пока простые люди пытаются выжить, кинуть ближнего и заработать денег, другие, более серьезные, понимают, что в деяниях группы (   Читать дальше...   )Жанр: приключения, боевикРежиссер: Мотонага КэйтароСубтитры: русские отПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8724C5DFB323C368C31E12DBC8B6BC2F044E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299534   (345263) от 08.10.2019
+
+Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [2019, TV, 12 из 12] WEB-DL 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345263.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суровом японском обществе проблемных сирот выбрасывают из приюта на улицу – живи как хочешь. Именно так юный Ацуси Накадзима отправился «в большую жизнь» без гроша в кармане. Умирающий с голода изгой решил ограбить первого встречного – а вместо того вытащил из реки какую-то подозрительную личность. Спасенный по имени Осаму Дадзай оказался хорошим парнем, суицидальным (   Читать дальше...   )Производство: BONESЖанр: приключения, мистикаРежиссер: Игараси ТакуяСубтитры: Русские | АнглийскиеПродолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8004B419FE2D3361B0B5E185665057F18B1B1AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545109   (345125) от 08.10.2019
+
+Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345125.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Господь сотворил людей, а Сэм Кольт сделал их равными», - такой поговоркой руководствуются торговцы оружием. Люди воевали и будут воевать; прогресс идет, а смертельных игрушек нужно все больше. Спрос удовлетворяют транснациональные корпорации, охватившие всю планету, словно мировой змей из легенд. Коко Хекматияр – дочь транспортного магната, работающая под крышей (   Читать дальше...   )Жанр: приключения, экшенРежиссер: Мотонага Кэйтаро ОсамуСубтитры: русские отПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAE03B34A50DFDDE914785561C37A808D0DFB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257827   (343439) от 27.10.2018
+
+Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вакаба – одна из тех несчастных младшеклассниц-духовидиц, которые есть почти во всякой анимешной школе. Она видит призраков и духов, за что единодушно нелюбима классом: считается, что у того, кто позвонит или напишет Вакабе, непременно поднимется температура, а тот, кто сядет с ней на одну парту, сляжет с простудой.
+
+Но вот в один прекрасный (без кавычек) день в (   Читать дальше...   )Производство: студия AIC PLUSЖанр: повседневность, мистика, комедияРежиссер: Судзуки КаоруПеревод: 1) AniPanic; 2) NekoSubs; 3) Sa4ko aka KiyosoЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 15 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0618EEE3C45765C0BF0D6C1C8B8371A087A0053B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257824   (343438) от 27.10.2018
+
+Fumikiri Jikan | Crossing Time | Железнодорожный переезд [2018, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся наша жизнь состоит из сплошной суеты. Люди всё время куда-то спешат, торопятся, бегут… В головокружительной будничной суете нам порой некогда даже перевести дух. Но во всём должен существовать баланс. И если мы не можем сами вовремя остановиться, то город сделает это за нас. На то существуют светофоры, на которых можно затормозить и провести минутку в простом (   Читать дальше...   )Производство: студия Ekachi EpilkaЖанр: повседневность, комедияРежиссер: Судзуки ЁсиоПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597AB7604DD3157BD1A9755391FF4BFF96A851D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257841   (343125) от 27.10.2018
+
+Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания вооруженных девушек [2017, TV, 12 эп. + 1 OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343125.jpg" />
+</div>
+
+
+###  Подробнее
+
+В академии сожительства Аичи ношение оружия - дело совершенно обычное. Для девушек. Каждая из них в качестве самообороны носит с собой, например, биту. Когда-то давно в этой элитной академии обучали только девушек, и бояться им было нечего. Но с тех пор, как туда начали зачислять и парней, ситуация изменилась, и из-за страха девушки начали вооружаться. В академии (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Татибана ХидэкиПеревод: 1) AniPlay; 2) SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF5F28B95035058701B65DE5F2E9D4F3CD59E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237289   (343124) от 27.10.2018
 
 Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебниц [2018, TV, 12 эп.] BDrip 1080p raw
@@ -6,7 +164,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343124.jpg" />
+  <img src="Z:/picture/008/save_picture_343124.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342935.jpg" />
+  <img src="Z:/picture/008/save_picture_342935.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342913.jpg" />
+  <img src="Z:/picture/008/save_picture_342913.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341794.jpg" />
+  <img src="Z:/picture/008/save_picture_341794.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341432.jpg" />
+  <img src="Z:/picture/008/save_picture_341432.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341074.jpg" />
+  <img src="Z:/picture/008/save_picture_341074.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340907.jpg" />
+  <img src="Z:/picture/008/save_picture_340907.jpg" />
 </div>
 
 
@@ -188,7 +346,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340429.jpg" />
+  <img src="Z:/picture/005/save_picture_340429.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339848.jpg" />
+  <img src="Z:/picture/008/save_picture_339848.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339716.jpg" />
+  <img src="Z:/picture/008/save_picture_339716.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339360.jpg" />
+  <img src="Z:/picture/008/save_picture_339360.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338971.jpg" />
+  <img src="Z:/picture/008/save_picture_338971.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338885.jpg" />
+  <img src="Z:/picture/008/save_picture_338885.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338866.jpg" />
+  <img src="Z:/picture/008/save_picture_338866.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338865.jpg" />
+  <img src="Z:/picture/008/save_picture_338865.jpg" />
 </div>
 
 
@@ -399,7 +557,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338856.jpg" />
+  <img src="Z:/picture/008/save_picture_338856.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338745.jpg" />
+  <img src="Z:/picture/008/save_picture_338745.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338744.jpg" />
+  <img src="Z:/picture/008/save_picture_338744.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338737.jpg" />
+  <img src="Z:/picture/008/save_picture_338737.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336317.jpg" />
+  <img src="Z:/picture/008/save_picture_336317.jpg" />
 </div>
 
 
@@ -516,163 +674,6 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781DC2B7E6363C7B2C00FAB70612B61B3336F733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181122   (335187) от 06.11.2017
-
-Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Sequence| Коллекционная флотилия на большом экране [2016, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335187.jpg" />
-</div>
-
-
-###  Подробнее
-
-После успешного завершения операции МИ и разгрома сил Бездны в Коралловом море Девы Флота занимают базу на Соломоновых островах и готовятся к дальнейшем наступлению. Однако вскоре многие девушки начинают слышать таинственный голос, который зовёт их куда-то вдаль. И вместе с этим морские воды окрашиваются в красный цвет. Чтобы выяснить причину этого странного явления, (   Читать дальше...   )Производство: студия Studio Barcelona / ディオメディアЖанр: приключения, меха-мусумеРежиссер: Кусакава КэйдзоПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6533E11863ADEDA51F5F9C6A9058BB207B916AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257837   (334446) от 31.10.2018
-
-Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Animation | Перекрестки в лабиринтах чужих городов [2011, TV, 12 эп. + 1 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж, последняя четверть XIX столетия. Давно отгремели войны и революции, в недавнем прошлом остались баррикады Коммуны. Франция времен Третьей республики – все еще мировая держава, а ее столица – центр европейской культуры. И вот в магазине вывесок в знаменитой торговой «Королевской галерее» появляется его основатель Оскар Клодель, некогда знатный кузнец, ныне (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: повседневность, комедияРежиссер: Ясуда КэндзиПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 1 SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB808EB62F1263C89C6F5C6169FB07AB212A12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887183   (334099) от 28.09.2022
-
-Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (фильм-компиляция) [2015, MV] BDRip 1080p Raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334099.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем Земля была уничтожена космическими пришельцами Гауна. Ее жители бежали в космос, превратив осколки родной планеты в гигантские корабли, но сбить врага со следа не удалось. «Сидония» - один из кораблей-миров, что ищет новый дом, отбиваясь от Гауна, монстров-оборотней с каменной броней. Главная защита ковчега - боевые роботы-Стражи, обладающие оружием, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Сидзуно КобунПеревод: SeshaRimСубтитры: Формат: MKVПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ACDF5FFEA960A934154B4EF256CEB37B6E9CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580066   (333217) от 29.09.2022
-
-Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333217.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2041 году в Японии запрещена религия и распространение любой информации о сверхъестественных явлениях. Любое нарушение жестоко карается законом. В это же время из одного исследовательского института выбираются два брата, обладающие необычными способностями, и сталкиваются с враждебным к ним миром.Производство: Студия Shirogumi / 白組Жанр: приключения, фантастикаРежиссер: Хиракава ТакамицуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D907C07DA9BFC351F0370A3CE673A1BA857EF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331463   (332272) от 15.10.2019
-
-Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Явара!: Задайте жару, слабаки! [1992, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Явара помогает группе детей справиться с их страхом и достойно выступить на соревнованиях по дзюдо.
-  Один из детей - кузен Ханазоно-куна, а вторая выглядит совсем как сама Явара.Производство: Madhouse Studios / マッドハウスЖанр: комедия, спортРежиссер: Токита ХирокоПеревод: HajimeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707E7FE1221E03D79758F534562085E3FC93D29C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331462   (332263) от 15.10.2019
-
-Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — Явара Инокума, старшеклассница. Её дедушка Джигоро Инокума, бывший чемпион Японии по дзюдо, годами тренирует её, вынашивая мечту, что в один прекрасный день она выиграет золотую медаль на Олимпийских играх и Национальную премию. Джигоро готов пойти на всё, не считаясь с мнением внучки, чтобы это произошло. В то же время, Яваре уже надоело всё, связанное (   Читать дальше...   )Производство: Madhouse Studios / マッドハウス, Kitty Films / キティ・フィルムЖанр: комедия, романтика, спортРежиссер: Токита ХирокоПеревод: HajimeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 124 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4563474AA5E9A4A6BC8B60E1B7334B1ED83CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

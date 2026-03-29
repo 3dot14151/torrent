@@ -6,7 +6,7 @@ PhotoScape X Pro 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791679.jpg" />
+  <img src="Z:/picture/008/save_picture_791679.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791678.jpg" />
+  <img src="Z:/picture/008/save_picture_791678.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791672.jpg" />
+  <img src="Z:/picture/008/save_picture_791672.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Automatic Tag Editor v1.8.2.13 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791660.jpg" />
+  <img src="Z:/picture/008/save_picture_791660.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Sticky Password Premium 8.2.1.226 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791656.jpg" />
+  <img src="Z:/picture/008/save_picture_791656.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791654.jpg" />
+  <img src="Z:/picture/008/save_picture_791654.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ SUMo Pro 5.8.10.412 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791652.jpg" />
+  <img src="Z:/picture/008/save_picture_791652.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Task Office 6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791650.jpg" />
+  <img src="Z:/picture/008/save_picture_791650.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Theine 3.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791649.jpg" />
+  <img src="Z:/picture/008/save_picture_791649.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Aspect Ratio X 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791648.jpg" />
+  <img src="Z:/picture/008/save_picture_791648.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Project Office Pro 8.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791646.jpg" />
+  <img src="Z:/picture/008/save_picture_791646.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Lunar Pro for Mac 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791644.jpg" />
+  <img src="Z:/picture/008/save_picture_791644.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Downie 4 v4.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791642.jpg" />
+  <img src="Z:/picture/008/save_picture_791642.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Nevercenter CameraBag Pro 2021.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791641.jpg" />
+  <img src="Z:/picture/008/save_picture_791641.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791640.jpg" />
+  <img src="Z:/picture/008/save_picture_791640.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791639.jpg" />
+  <img src="Z:/picture/008/save_picture_791639.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ SyncTime 3.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791637.jpg" />
+  <img src="Z:/picture/008/save_picture_791637.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ GraphicConverter 11 v11.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791636.jpg" />
+  <img src="Z:/picture/008/save_picture_791636.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Django Django - Marble Skies (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psyche
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791630.jpg" />
+  <img src="Z:/picture/008/save_picture_791630.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791624.jpg" />
+  <img src="Z:/picture/008/save_picture_791624.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Movavi Screen Capture Pro 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791620.jpg" />
+  <img src="Z:/picture/008/save_picture_791620.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ CPU-Z 1.83.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791619.jpg" />
+  <img src="Z:/picture/008/save_picture_791619.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Mozilla Thunderbird 52.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791616.jpg" />
+  <img src="Z:/picture/008/save_picture_791616.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Core Temp 1.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791604.jpg" />
+  <img src="Z:/picture/008/save_picture_791604.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791600.jpg" />
+  <img src="Z:/picture/008/save_picture_791600.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ DrawOutX 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791595.jpg" />
+  <img src="Z:/picture/008/save_picture_791595.jpg" />
 </div>
 
 

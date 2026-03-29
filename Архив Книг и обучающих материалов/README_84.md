@@ -1,3 +1,34 @@
+###  Публикация: 525918   (605586) от 22.07.2012
+
+Стив Альтен | Серия "Завещание майя" [2009-2010] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Завещание майа
+21 декабря 2012 года наступит конец света — так гласит предсказание древних майя.
+Каким он будет? Есть ли шанс спастись? Археолог Юлиус Гэбриэл посвятил всю свою жизнь разгадке этой тайны и умер от сердечного приступа на кафедре университета, осмеянный коллегами, которые не поверили ни единому слову ученого. Его сын Мик знает, что делать, ему во что бы то ни стало нужно попасть в древний город майя Чичен-Ицу, но есть одна проблема: вот уже одиннадцать лет он находится в психиатрической клинике под усиленным надзором. Надежда на побег появляется у Мика, когда с ним начинает работу интерн Доминика Вазкез, девушка, в жилах которой течет майяская кровь.
+
+2. Воскрешение майя
+Предотвратив глобальную техногенную катастрофу, Майкл Гэбриэл исчезает в пасти инопланетного монстра. Его сыновьям-близнецам, родившимся через месяц после этого события, предначертано, согласно футуристической легенде древних майя, отправиться на космическом корабле в некий Нижний мир, чтобы освободить отца из заточения и спасти (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7759E623BED2876BFBD800A5AAA340E363DA112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526060   (605516) от 22.07.2012
 
 О.А.Довбня, Л.С.Макарова (ред.) | "Через трупы врага на благо народа". "Кулацкая операция" в Украинской ССР. 1937-1941гг. в 2 т. Том-1 [2010] [PDF]
@@ -6,7 +37,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605516.jpg" />
+  <img src="Z:/picture/008/save_picture_605516.jpg" />
 </div>
 
 
@@ -32,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605491.jpg" />
+  <img src="Z:/picture/008/save_picture_605491.jpg" />
 </div>
 
 
@@ -58,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605440.jpg" />
+  <img src="Z:/picture/008/save_picture_605440.jpg" />
 </div>
 
 
@@ -84,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605439.jpg" />
+  <img src="Z:/picture/008/save_picture_605439.jpg" />
 </div>
 
 
@@ -110,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605438.jpg" />
+  <img src="Z:/picture/008/save_picture_605438.jpg" />
 </div>
 
 
@@ -136,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605413.jpg" />
+  <img src="Z:/picture/008/save_picture_605413.jpg" />
 </div>
 
 
@@ -162,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605369.jpg" />
+  <img src="Z:/picture/008/save_picture_605369.jpg" />
 </div>
 
 
@@ -188,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605366.jpg" />
+  <img src="Z:/picture/008/save_picture_605366.jpg" />
 </div>
 
 
@@ -214,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605364.jpg" />
+  <img src="Z:/picture/008/save_picture_605364.jpg" />
 </div>
 
 
@@ -240,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605363.jpg" />
+  <img src="Z:/picture/008/save_picture_605363.jpg" />
 </div>
 
 
@@ -268,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605361.jpg" />
+  <img src="Z:/picture/008/save_picture_605361.jpg" />
 </div>
 
 
@@ -294,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605360.jpg" />
+  <img src="Z:/picture/008/save_picture_605360.jpg" />
 </div>
 
 
@@ -320,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605358.jpg" />
+  <img src="Z:/picture/008/save_picture_605358.jpg" />
 </div>
 
 
@@ -346,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605357.jpg" />
+  <img src="Z:/picture/008/save_picture_605357.jpg" />
 </div>
 
 
@@ -372,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605356.jpg" />
+  <img src="Z:/picture/008/save_picture_605356.jpg" />
 </div>
 
 
@@ -399,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605353.jpg" />
+  <img src="Z:/picture/008/save_picture_605353.jpg" />
 </div>
 
 
@@ -425,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605351.jpg" />
+  <img src="Z:/picture/008/save_picture_605351.jpg" />
 </div>
 
 
@@ -451,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605284.jpg" />
+  <img src="Z:/picture/008/save_picture_605284.jpg" />
 </div>
 
 
@@ -477,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605281.jpg" />
+  <img src="Z:/picture/008/save_picture_605281.jpg" />
 </div>
 
 
@@ -503,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605277.jpg" />
+  <img src="Z:/picture/008/save_picture_605277.jpg" />
 </div>
 
 
@@ -529,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605276.jpg" />
+  <img src="Z:/picture/008/save_picture_605276.jpg" />
 </div>
 
 
@@ -555,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605269.jpg" />
+  <img src="Z:/picture/008/save_picture_605269.jpg" />
 </div>
 
 
@@ -581,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605212.jpg" />
+  <img src="Z:/picture/008/save_picture_605212.jpg" />
 </div>
 
 
@@ -607,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605210.jpg" />
+  <img src="Z:/picture/008/save_picture_605210.jpg" />
 </div>
 
 
@@ -633,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605202.jpg" />
+  <img src="Z:/picture/008/save_picture_605202.jpg" />
 </div>
 
 
@@ -644,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27DD1C088ECFF54667585E060DD11F073FAFE771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038577   (604953) от 29.07.2016
-
-Журнал | История от "Русской Семёрки" №3 (май 2016) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редакционную концепцию журнала лучше всего характеризует знаменитое высказывание Уинстона Черчилля: «Россия - это загадка, завёрнутая или окутанная мистикой, внутри головоломки».
-История России содержит столько интриг, собственных «кодов да Винчи», которых бы хватило на добрых семь сотен романов-бестселлеров для авторов, вроде Дэна Брауна. Задача редакции журнала (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BCEF80ACC3352D74EA133C35BD2E7930B40704
 ```
 
 https://mybot314.ru/tekegram_catalog/

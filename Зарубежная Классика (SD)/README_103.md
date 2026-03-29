@@ -1,3 +1,85 @@
+###  Публикация: 58878   (217216) от 22.11.2020
+
+Два миссионера / Подставь и другую щеку / (Porgi l'altra guancia / Two Missionaries) (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незабываемая парочка киногероев, созданная Теренсом Хиллом и Бадом Спенсером, снова на экране. Хилл - высокий улыбчивый блондинчик, Спенсер - медведеподобный молчаливый бородач. За свою долгую жизнь они кого только не сыграли! Поваров, пиратов, полицейских, ковбоев.
+В этом фильме они предстают в образе католических монахов. Падре Педро (Бад Спенсер) и падре Гоо (Теренс (   Читать дальше...   )Жанр: КомедияРежиссер: Франко Росси / Franco RossiАктеры: В главных ролях:
+Теренс Хилл / Terence Hill - Падре Го
+Бад Спенсер / Bud Spencer - Падре Педро
+Роберт Лодджиа / Robert Loggia - Маркиз ГонзагоПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 1 ч 29 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F10B5800F58A8E8169847620E668F7CA9C5B31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341331   (217206) от 06.12.2019
+
+Дорога / La strada (1954) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артист бродячего цирка Дзампано, суровый и жестокий силач, нанимает, а, фактически, покупает себе помощницу Джельсомину, девушку из бедной семьи, маленькую, наивную и немного сумасшедшую. И начинается их Дорога, «сказка странствий» наоборот: жизнь в цирковом вагончике, выступления в городках и деревнях, постоянный калейдоскоп пейзажей, людей и событий. Дзампано – (   Читать дальше...   )Производство: Италия / Ponti-De Laurentiis CinematograficaЖанр: ДрамаРежиссер: Федерико ФеллиниАктеры: Энтони Куинн, Джульетта Мазина, Ричард Бейсхарт, Альдо Сильвани, Марселла Ровере, Ливия Вентурини, Густаво Джиорджи, Ями КамадеваПеревод: Дублированный, двухголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029543EC786C4649D72B3183063D8A169EC52ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145624   (216706) от 16.12.2018
+
+Безжалостные люди / Ruthless People (1986) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самой заветной мечтой Сэма Стоуна было избавиться от своей сварливой женушки. И вот его день настал: жену похитили с целью получить кругленькую сумму. Естественно, что у Сэма даже в мыслях нет расставаться со своими кровными в обмен на «любимую» супругу. Но он еще не подозревает, что его жена обладает способностью наладить дружеские отношения даже с бандитами.Производство: США /  Touchstone Pictures, Silver Screen Partners II, Zucker Brothers ProductionsЖанр: Комедия, ДетективРежиссер: Джим Абрахамс, Дэвид Цукер, Джерри ЦукерАктеры: Дэнни ДеВито, Бетт Мидлер, Джадж Райнхолд, Хелен Слейтер, Анита Моррис, Билл Пуллман, Уильям Дж. Шиллинг, Арт Эванс, Кларенс Фелдер, Дж.Э. ФрименПеревод: Авторский одноголосый (А.Михалев, Л.Володарский)Продолжительность: 1:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10735F1D8087CB849051516CD4FDE0229199CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585400   (216467) от 26.10.2022
 
 Сирокко / Sirokko (1969) HDRip [AVO]
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216467.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216245.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216104.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216063.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215785.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215679.jpg" />
+  <img src="Z:/picture/005/save_picture_215679.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215509.jpg" />
+  <img src="Z:/picture/005/save_picture_215509.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215460.jpg" />
+  <img src="Z:/picture/005/save_picture_215460.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215225.jpg" />
+  <img src="Z:/picture/005/save_picture_215225.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214929.jpg" />
+  <img src="Z:/picture/005/save_picture_214929.jpg" />
 </div>
 
 
@@ -267,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214706.jpg" />
+  <img src="Z:/picture/005/save_picture_214706.jpg" />
 </div>
 
 
@@ -293,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214394.jpg" />
+  <img src="Z:/picture/005/save_picture_214394.jpg" />
 </div>
 
 
@@ -319,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214122.jpg" />
 </div>
 
 
@@ -345,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214073.jpg" />
+  <img src="Z:/picture/005/save_picture_214073.jpg" />
 </div>
 
 
@@ -371,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214067.jpg" />
+  <img src="Z:/picture/005/save_picture_214067.jpg" />
 </div>
 
 
@@ -397,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213790.jpg" />
+  <img src="Z:/picture/005/save_picture_213790.jpg" />
 </div>
 
 
@@ -424,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213318.jpg" />
+  <img src="Z:/picture/005/save_picture_213318.jpg" />
 </div>
 
 
@@ -450,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213268.jpg" />
+  <img src="Z:/picture/005/save_picture_213268.jpg" />
 </div>
 
 
@@ -476,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213224.jpg" />
+  <img src="Z:/picture/005/save_picture_213224.jpg" />
 </div>
 
 
@@ -502,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213075.jpg" />
+  <img src="Z:/picture/005/save_picture_213075.jpg" />
 </div>
 
 
@@ -528,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212562.jpg" />
+  <img src="Z:/picture/005/save_picture_212562.jpg" />
 </div>
 
 
@@ -554,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212519.jpg" />
+  <img src="Z:/picture/005/save_picture_212519.jpg" />
 </div>
 
 
@@ -581,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212513.jpg" />
+  <img src="Z:/picture/005/save_picture_212513.jpg" />
 </div>
 
 
@@ -592,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6F05CAD37E7C01B7DEBED6631EC6D47A612AEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562723   (212342) от 20.07.2022
-
-Кабаре / Cabaret (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская певица Салли Боулз развлекает Берлин эпохи Веймарской республики на подмостках кабаре Kit-Kat club. За дверями клуба — политический и экономический хаос, восхождение к власти нацистов, еврейские погромы. Внутри — вечный праздник. Перемены в относительно беззаботную жизнь Салли вносят встреча с Брайаном — англичанином, подрабатывающим уроками, которые (   Читать дальше...   )Производство: США / ABC Pictures Corporation, Allied Artists Pictures Corporation, Bavaria Film, Feuer and Martin Production, AЖанр: Драма,МюзиклРежиссер: Боб ФоссиАктеры: Лайза Миннелли, Майкл Йорк, Хельмут Грим, Джоэл Грей, Фриц Веппер, Мариза Беренсон, Элизабет Нойман-Виртель, Хелен Вита, Сигрид фон Рихтхофен, Герд ВесперманнПеревод: Многоголосый профессиональный, двуголосый профессиональный, одноголосый профессиональный, авторскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424E15D1E8D8E898F8D11DDEF70ED190138B5CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563307   (212328) от 21.07.2022
-
-Огневая мощь / Firepower (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212328.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах Адель Таски погибает в собственной конторе её муж, обнаруживший преступные махинации с лекарствами некоего Карла Стегнера, третьего по богатству человека в мире. Как ни странно, именно от него вдова получает предложение о помощи и защите. Одновременно она просит полицию, чтобы для поисков и захвата Стегнера, скрывающегося где-то на островах Карибского бассейна, (   Читать дальше...   )Производство: Великобритания / ITC Entertainment, ITC Films, Scimitar ProductionsЖанр: Боевик, Триллер, Драма, Криминал, ПриключенияРежиссер: Майкл УиннерАктеры: Софи Лорен, Джеймс Коберн, О. Джей Симпсон, Илай Уоллак, Энтони Франчоза, Джордж Гриззард, Винсент Гардения, Фред Статмен, Ричард Кэлдикот, Франк Сингино, Фред Статмен, Виктор МэтьюрПеревод: Многоголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7882CE82DA71B10B0A267A11998201089E9F879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831368   (212107) от 29.10.2025
-
-Сказочное приключение Марко Поло / La fabuleuse aventure de Marco Polo (1965) HDRip [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Марко едет в Китай, чтобы участвовать в освободительной борьбе Хана Кублая против мятежников, возглавляемых его собственным сыном. Участники сражений впервые применяют новое изобретение — порох.Производство: Франция, Италия, Афганистан, Египет, Югославия / CFS Avala Film, Cine Custodia Film AG Zuerich, Italaf KaboulЖанр: приключения, биографияАктеры: Хорст Буххольц, Грегуар Аслан, Робер Оссейн, Эльза Мартинелли, Аким Тамирофф, Омар Шариф, Энтони Куинн, Орсон Уэллс, Массимо Джиротти, Фолько ЛюллиПеревод: Авторский (Сергей Кузнецов)Язык озвучки: Русский, Французский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA7B3508CB60AA06403C9C6BCB7B87C04D514201
 ```
 
 https://mybot314.ru/tekegram_catalog/

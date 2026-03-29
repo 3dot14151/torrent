@@ -1,3 +1,32 @@
+###  Публикация: 1269134   (223263) от 13.12.2018
+
+VA - 90's Running Songs (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sledge - We Are Family (Sure Is Pure Remix)
+02. Deee-Lite - Runaway
+03. The Supernaturals - Smile
+04. Kym Sims - Take My Advice(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5098310A4EF064537127C7C18C41C15FE7804212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269019   (223210) от 13.12.2018
 
 VA - Driven By The 70s (2018) 5CD [MP3|320 Kbps] <Pop, New Wave, Indie, Hard Rock>
@@ -6,7 +35,7 @@ VA - Driven By The 70s (2018) 5CD [MP3|320 Kbps] <Pop, New Wave, Indie, Hard Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223210.jpg" />
+  <img src="Z:/picture/005/save_picture_223210.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - NOW That's What I Call Music! Vol. 86 (2023) CD, Compilation [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223104.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222832.jpg" />
+  <img src="Z:/picture/005/save_picture_222832.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Belinda Carlisle - Wilder Shores (2017) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222780.jpg" />
+  <img src="Z:/picture/005/save_picture_222780.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Car Booster Vol. 1 (2022) CD, Compilation [MP3|320 Kbps] <Electro Pop, Danc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222674.jpg" />
+  <img src="Z:/picture/005/save_picture_222674.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Laura Branigan - The Best Of Branigan (1995) [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222667.jpg" />
+  <img src="Z:/picture/005/save_picture_222667.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - 50 Chart Hits of 2020 The Winter Workout Album [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222633.jpg" />
+  <img src="Z:/picture/005/save_picture_222633.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - 100 Greatest Running Tracks (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222467.jpg" />
+  <img src="Z:/picture/005/save_picture_222467.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Bravo The Hits (2022) 2CD, Compilation [MP3|320 Kbps] <Electro Pop, Dance, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222270.jpg" />
+  <img src="Z:/picture/005/save_picture_222270.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mylene Farmer - Desir Amoureux - Greatest Hits (2008) 2 CD [OGG Vorbis|480 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222226.jpg" />
+  <img src="Z:/picture/005/save_picture_222226.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221764.jpg" />
+  <img src="Z:/picture/005/save_picture_221764.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - The Party Album (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221357.jpg" />
+  <img src="Z:/picture/005/save_picture_221357.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Mylene Farmer - Greatest Hits (2013) 2 CD, Unofficial Release [OGG Vorbis|480 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221281.jpg" />
+  <img src="Z:/picture/005/save_picture_221281.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Pussycat - Unreleased Demos 1983 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221144.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Drezden - Эдельвейс (2019) [MP3|320 Kbps] <Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221137.jpg" />
+  <img src="Z:/picture/005/save_picture_221137.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Die Hit Rekorde Champions der 90er (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220983.jpg" />
+  <img src="Z:/picture/005/save_picture_220983.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dan Lacksman - Electric Dreams (2013) CD [MP3|320 Kbps] <Electronic, Synth-pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220934.jpg" />
+  <img src="Z:/picture/005/save_picture_220934.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - ZYX Italo Disco [New Generation 7'' Collection] (2016) [MP3|320 Kbps] <Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220836.jpg" />
+  <img src="Z:/picture/005/save_picture_220836.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Tina Turner - The Collected Recordings - Sixties To Nineties [3CD Box Set] (1994
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220762.jpg" />
+  <img src="Z:/picture/005/save_picture_220762.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220497.jpg" />
+  <img src="Z:/picture/005/save_picture_220497.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220305.jpg" />
+  <img src="Z:/picture/005/save_picture_220305.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220114.jpg" />
+  <img src="Z:/picture/005/save_picture_220114.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Joe Dassin - Grand Collection (2001) [MP3|320 кб/с]<Chanson, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219905.jpg" />
+  <img src="Z:/picture/005/save_picture_219905.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ VA - Ballermann Fruehlingsalarm (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219608.jpg" />
+  <img src="Z:/picture/005/save_picture_219608.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219565.jpg" />
+  <img src="Z:/picture/005/save_picture_219565.jpg" />
 </div>
 
 
@@ -734,35 +763,6 @@ VA - Ballermann: Die Mallorca Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:256A79790F8A26F3B0175037EFB57DA5E8FB538F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585856   (219559) от 24.10.2022
-
-VA - Ballermann Schlager Hits (2022) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melanie Mueller Joerg Draeger - Fuer eine Nacht
-02. Celina Mars - Heut Nacht
-03. Nancy Franck - Korken knallen
-04. Marry - Wir feiern den DJ(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 02:10:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6F905FEAA2FD136699B1E7D444722768AD4243
 ```
 
 https://mybot314.ru/tekegram_catalog/

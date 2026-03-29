@@ -1,3 +1,57 @@
+###  Публикация: 1293038   (637135) от 03.04.2019
+
+Наталья Тимошенко, Лена Обухова | Сотканная из тумана (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Войтех Дворжак и его команда основали Институт исследований необъяснимого. Теперь они рассматривают заявки всех, кто столкнулся с явлениями, несомненно имеющими мистическую природу. На этот раз друзьям предстоит выяснить, что за сущность поселилась в далекой глухой деревне. Но как обнаружить то, что появляется ночами под покровом тумана и убивает, практически (   Читать дальше...   )Жанр: Современная отечественная фантастика, МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7432925F18AEDCA57AE2A9830F4D0CFB84E37090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291761   (637128) от 03.04.2019
+
+Дмитрий Емец | Замороженный мир (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десятая книга цикла «ШНыр».
+
+Сашка сам не знает, как вышло, что он собственными руками разрушил темницу, в которой вот уже много веков был заточен древний эльб. Но когда перед тобой выбор — помочь человеку, попавшему в беду, или бросить его на­едине с его проблемами, то не особо размышляешь, просто делаешь, что просят. Несколько сотен лет назад рогрик, сильный эльб, (   Читать дальше...   )Жанр: Героическое фэнтези, Книги про волшебниковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8449EDB37AD4EC11660FA5C75DE88C6A83958A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293195   (637126) от 03.04.2019
 
 Генри Лайон Олди | Сын Ветра (2019) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637126.jpg" />
+  <img src="Z:/picture/008/save_picture_637126.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637074.jpg" />
+  <img src="Z:/picture/008/save_picture_637074.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637070.jpg" />
+  <img src="Z:/picture/008/save_picture_637070.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636980.jpg" />
+  <img src="Z:/picture/008/save_picture_636980.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636938.jpg" />
+  <img src="Z:/picture/008/save_picture_636938.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636895.jpg" />
+  <img src="Z:/picture/008/save_picture_636895.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636822.jpg" />
+  <img src="Z:/picture/008/save_picture_636822.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635926.jpg" />
+  <img src="Z:/picture/008/save_picture_635926.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635814.jpg" />
+  <img src="Z:/picture/008/save_picture_635814.jpg" />
 </div>
 
 
@@ -252,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635720.jpg" />
+  <img src="Z:/picture/008/save_picture_635720.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635713.jpg" />
+  <img src="Z:/picture/008/save_picture_635713.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635695.jpg" />
+  <img src="Z:/picture/008/save_picture_635695.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635622.jpg" />
+  <img src="Z:/picture/008/save_picture_635622.jpg" />
 </div>
 
 
@@ -362,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635573.jpg" />
+  <img src="Z:/picture/008/save_picture_635573.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635273.jpg" />
+  <img src="Z:/picture/008/save_picture_635273.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635201.jpg" />
+  <img src="Z:/picture/008/save_picture_635201.jpg" />
 </div>
 
 
@@ -443,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635061.jpg" />
+  <img src="Z:/picture/008/save_picture_635061.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635057.jpg" />
+  <img src="Z:/picture/008/save_picture_635057.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634973.jpg" />
+  <img src="Z:/picture/008/save_picture_634973.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634899.jpg" />
+  <img src="Z:/picture/008/save_picture_634899.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634787.jpg" />
+  <img src="Z:/picture/008/save_picture_634787.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634765.jpg" />
+  <img src="Z:/picture/008/save_picture_634765.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634748.jpg" />
+  <img src="Z:/picture/008/save_picture_634748.jpg" />
 </div>
 
 
@@ -636,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634126.jpg" />
+  <img src="Z:/picture/008/save_picture_634126.jpg" />
 </div>
 
 
@@ -650,60 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E579A942B834165A41984C65D09B97458D585A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034490   (634047) от 13.07.2016
-
-Павел Мешков | Черный корректор (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драконам нельзя верить, с Драконами не стоит вести дела, от Драконов лучше держаться подальше. Но именно они сохраняют баланс между Той Стороной и Этой и всегда делают все за чужой счет. Возможно, иначе нельзя… Но почему счета выставляются обычным браконьерам с острова в дельте Волги? Астраханский портал практически находится под контролем — здесь врага знают в лицо.Жанр: Юмористическое фэнтези, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FBEE49AFAD0AA5F8658DD2A45B15D733BE1461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034579   (634036) от 13.07.2016
-
-Вероника Орлова, Ульяна Соболева | Позови меня… (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лия Милантэ – популярная писательница, автор мистических, эротических триллеров. Таинственный уровень Интернета «Тихий дом», тот самый, где таится черная бездна неизвестности и жутких сетевых лабиринтов с мертвыми сайтами, открывает Лие врата в самый настоящий Ад. Потому что после посещения одного из них грани вымысла и реальности для нее полностью стираются.
-
-Нейл (   Читать дальше...   )Жанр: Социальная фантастика, Эротическая литература, Любовно-фантастические романыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1708040D2A7E224D845479BCB8CB7D0FC0F2537B
 ```
 
 https://mybot314.ru/tekegram_catalog/

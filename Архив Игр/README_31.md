@@ -6,7 +6,7 @@ S.T.A.L.K.E.R. Чистое Небо - Продолжение (RePack) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628321.jpg" />
+  <img src="Z:/picture/008/save_picture_628321.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628035.jpg" />
+  <img src="Z:/picture/008/save_picture_628035.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Outward (2019) [Ru/Multi] (1.0/upd1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627324.jpg" />
+  <img src="Z:/picture/008/save_picture_627324.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Storm: Frontline Nation (L) [Multi5\-] 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626875.jpg" />
+  <img src="Z:/picture/008/save_picture_626875.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Oxenfree (2016) [Ru/En] (2.1.0F26) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625901.jpg" />
+  <img src="Z:/picture/008/save_picture_625901.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504u1.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625321.jpg" />
+  <img src="Z:/picture/008/save_picture_625321.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Men of War: Assault Squad 2 / В тылу врага: Штурм 2 (2014) [Ru/En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625058.jpg" />
+  <img src="Z:/picture/008/save_picture_625058.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Dear Esther (RePack/1.0u5) [Ru/En] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624697.jpg" />
+  <img src="Z:/picture/008/save_picture_624697.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Dear Esther / Дорогая Эстер (RePack/1.0u5) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624527.jpg" />
+  <img src="Z:/picture/008/save_picture_624527.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ D4: Dark Dreams Don’t Die (2015) [Multi] (1.0) Repack R.G. Механики [S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623082.jpg" />
+  <img src="Z:/picture/008/save_picture_623082.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Firewatch (2016) [Ru/Multi] (1.06 а) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623000.jpg" />
+  <img src="Z:/picture/008/save_picture_623000.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Air Conflicts: Secret Wars / Air Conflicts: Secret Wars. Асы двух вой�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622972.jpg" />
+  <img src="Z:/picture/008/save_picture_622972.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_622642.jpg" />
+  <img src="Z:/picture/005/save_picture_622642.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Hard Reset: Extended Edition + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622538.jpg" />
+  <img src="Z:/picture/008/save_picture_622538.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Hard Reset + 2 DLC (Repack/1.51.0.0) [Ru] 2011 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622409.jpg" />
+  <img src="Z:/picture/008/save_picture_622409.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Dear Esther / Дорогая Эстер (Steam-Rip) [Ru/En/Multi14] 2012 l R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622394.jpg" />
+  <img src="Z:/picture/008/save_picture_622394.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ The Elder Scrolls V: Skyrim Ultimate HD Edition 2013 [Ru/En] (Repack/1.6.89.0.6)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622093.jpg" />
+  <img src="Z:/picture/008/save_picture_622093.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Endless Space (Repack/1.0.5) [En/Multi2] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618177.jpg" />
+  <img src="Z:/picture/008/save_picture_618177.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Deponia (RePack/1.1) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616730.jpg" />
+  <img src="Z:/picture/008/save_picture_616730.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Shank (RePack/1.0u3) [Ru] 2010 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616609.jpg" />
+  <img src="Z:/picture/008/save_picture_616609.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Hard Reset. Extended Edition [Ru/En] (L/Steam-Rip/1.51.0.0) 2011 | R.G. Игро
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616332.jpg" />
+  <img src="Z:/picture/008/save_picture_616332.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Memento Mori / Memento Mori: Помни о смерти [Ru] (L) 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616306.jpg" />
+  <img src="Z:/picture/008/save_picture_616306.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616190.jpg" />
+  <img src="Z:/picture/008/save_picture_616190.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.312843) Repack R.G. Catalyst [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615531.jpg" />
+  <img src="Z:/picture/008/save_picture_615531.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Deponia (Repack) [En] 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615097.jpg" />
+  <img src="Z:/picture/008/save_picture_615097.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ ASTRONEER (2019) [Ru/Multi] (1.0.15) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614716.jpg" />
+  <img src="Z:/picture/008/save_picture_614716.jpg" />
 </div>
 
 

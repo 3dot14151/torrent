@@ -6,7 +6,7 @@ Opera 58.0.3135.65 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742462.jpg" />
+  <img src="Z:/picture/008/save_picture_742462.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 72.0.3626.109 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742460.jpg" />
+  <img src="Z:/picture/008/save_picture_742460.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dear Reality - dearVR music 1.2.2 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742453.jpg" />
+  <img src="Z:/picture/008/save_picture_742453.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total CSV Converter 3.1.1.181 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742402.jpg" />
+  <img src="Z:/picture/008/save_picture_742402.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 07.2020
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742390.jpg" />
+  <img src="Z:/picture/008/save_picture_742390.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Process Lasso Pro 9.0.0.582 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742349.jpg" />
+  <img src="Z:/picture/008/save_picture_742349.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CoolUtils Total Audio Converter 5.3.0.196 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742346.jpg" />
+  <img src="Z:/picture/008/save_picture_742346.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dear Reality - dearVR pro 1.2.2 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742342.jpg" />
+  <img src="Z:/picture/008/save_picture_742342.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Insofta Cover Commander 5.7.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742336.jpg" />
+  <img src="Z:/picture/008/save_picture_742336.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Extreme Picture Finder 3.43.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742335.jpg" />
+  <img src="Z:/picture/008/save_picture_742335.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2903) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742277.jpg" />
+  <img src="Z:/picture/008/save_picture_742277.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Vivaldi 1.14.1077.60 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742275.jpg" />
+  <img src="Z:/picture/008/save_picture_742275.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VideoSolo Video Converter Ultimate 1.0.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742272.jpg" />
+  <img src="Z:/picture/008/save_picture_742272.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ K-Lite Codec Pack Update 16.7.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742252.jpg" />
+  <img src="Z:/picture/008/save_picture_742252.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Kid3 3.9.1 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742249.jpg" />
+  <img src="Z:/picture/008/save_picture_742249.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ HDCleaner 2.013 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742248.jpg" />
+  <img src="Z:/picture/008/save_picture_742248.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Audiority - Space Station UM282 1.0.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742247.jpg" />
+  <img src="Z:/picture/008/save_picture_742247.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Privacy Eraser Free 5.19.2 Build 4129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742244.jpg" />
+  <img src="Z:/picture/008/save_picture_742244.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Bandicam 4.3.3.1498 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742234.jpg" />
+  <img src="Z:/picture/008/save_picture_742234.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Telegram Desktop 1.5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742232.jpg" />
+  <img src="Z:/picture/008/save_picture_742232.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Google Chrome 72.0.3626.109 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742230.jpg" />
+  <img src="Z:/picture/008/save_picture_742230.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Astra Image PLUS 5.5.3.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742227.jpg" />
+  <img src="Z:/picture/008/save_picture_742227.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Plugin Alliance & DS Audio - Thorn 1.2.0 VSTi, VSTi3, AAX (x86/x64) RePack by VR
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742221.jpg" />
+  <img src="Z:/picture/008/save_picture_742221.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ LibreOffice 7.2.5.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742156.jpg" />
+  <img src="Z:/picture/008/save_picture_742156.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ digiKam 7.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742155.jpg" />
+  <img src="Z:/picture/008/save_picture_742155.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742135.jpg" />
+  <img src="Z:/picture/008/save_picture_742135.jpg" />
 </div>
 
 

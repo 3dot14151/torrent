@@ -1,3 +1,110 @@
+###  Публикация: 1139388   (660175) от 02.06.2017
+
+DMG Canvas 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660175.jpg" />
+</div>
+
+
+###  Подробнее
+
+DMG Canvas - создание образов дисков (.dmg)
+Многие программы, утилиты да и просто пачки файлов разнообразного содержания распространяются под OS X в виде DMG файлов. Действительно, что может быть проще: смонтировал, скопировал нужные файлы и выбросил ненужный образ. Всяко интереснее возни с ZIP или TGZ архивами, тем более что DMG файл можно симпатично оформить, поменяв (   Читать дальше...   )Тип издания: OS X softwareРелиз состоялся: 01 июня 2017Разработчик: Araelium GroupПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD85D0DD29B7933C84FBB5243F1C24EB3C0036A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539038   (660165) от 23.03.2022
+
+Sublime Text Dev Build 4130 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2022Разработчик: © 2006-2021 Sublime HQ Pty LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB14E8EADE6D2B10E882F9EA73332DBF5C0A235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139296   (660113) от 02.06.2017
+
+Cocktail Sierra Edition 10.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cocktail  - комплекс утилит по всестороннему обслуживанию вашего Mac, который помогает каждый день получить от своего компьютера максимальную отдачу. Приложение позволяет: исправить права доступа к файлам, оптимизировать сетевое соединение, очистить всевозможные кеши (системные и пользовательские), воспользоваться скрытыми настройками, автоматизировать выбранные процессы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.05.2017Разработчик: MaintainПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB51809BAF81C78C9D02B0ED32F96CF9F798BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139505   (660108) от 02.06.2017
+
+MiniTube 2.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660108.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniTube - просмотр видео с YouTube.
+MiniTube - просто замечательная, невероятно удобная программа для воспроизведения видео-роликов с сервиса YouTube. Данный клиент выполенен в виде проигрывателя с простым интерфейсом, создающим впечатление, как буд-то вы смотрите киношку или что-то другое, в телевизоре. Все, что необходимо сделать для начала просмотра, это ввести (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 июня 2017Разработчик: Flavio TordiniЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE3AE894D0EEBF282B5BC01A03E1CA43601C1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139401   (660104) от 02.06.2017
 
 DEVONthink Pro Office 2.9.12 [En]
@@ -6,7 +113,7 @@ DEVONthink Pro Office 2.9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660104.jpg" />
+  <img src="Z:/picture/008/save_picture_660104.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Capo 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660020.jpg" />
+  <img src="Z:/picture/008/save_picture_660020.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-4 v. 1.0 (2015) [En] [OS X N
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659830.jpg" />
+  <img src="Z:/picture/008/save_picture_659830.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Red Giant Magic Bullet Suite 12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659640.jpg" />
+  <img src="Z:/picture/008/save_picture_659640.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ Red Giant Shooter Suite 12.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659635.jpg" />
+  <img src="Z:/picture/008/save_picture_659635.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Little Snitch 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659526.jpg" />
+  <img src="Z:/picture/008/save_picture_659526.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Network Radar 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659375.jpg" />
+  <img src="Z:/picture/008/save_picture_659375.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Doo - Get Things Done 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659369.jpg" />
+  <img src="Z:/picture/008/save_picture_659369.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ Serial 1.3.2
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659293.jpg" />
+  <img src="Z:/picture/008/save_picture_659293.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ Vectoraster 7.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659190.jpg" />
+  <img src="Z:/picture/008/save_picture_659190.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ Sublime Text 3 Dev (3133) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659105.jpg" />
+  <img src="Z:/picture/008/save_picture_659105.jpg" />
 </div>
 
 
@@ -305,7 +412,7 @@ VueScan Pro 9.5.79 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659090.jpg" />
+  <img src="Z:/picture/008/save_picture_659090.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ Wondershare PDFelement 6 Pro 6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659003.jpg" />
+  <img src="Z:/picture/008/save_picture_659003.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ Audio Hijack 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658390.jpg" />
+  <img src="Z:/picture/008/save_picture_658390.jpg" />
 </div>
 
 
@@ -385,7 +492,7 @@ Meta 1.6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658273.jpg" />
+  <img src="Z:/picture/008/save_picture_658273.jpg" />
 </div>
 
 
@@ -412,7 +519,7 @@ TripMode 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658030.jpg" />
+  <img src="Z:/picture/008/save_picture_658030.jpg" />
 </div>
 
 
@@ -439,7 +546,7 @@ MediaHuman YouTube Downloader 3.9.8.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658028.jpg" />
+  <img src="Z:/picture/008/save_picture_658028.jpg" />
 </div>
 
 
@@ -468,7 +575,7 @@ Serial Box 06-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658021.jpg" />
+  <img src="Z:/picture/008/save_picture_658021.jpg" />
 </div>
 
 
@@ -497,7 +604,7 @@ Life Is Strange (Episode 1-2-3) v.1.0.0 (2015) [Ru] [OS X WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657566.jpg" />
+  <img src="Z:/picture/008/save_picture_657566.jpg" />
 </div>
 
 
@@ -523,7 +630,7 @@ CleanMyMac 3.8.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657538.jpg" />
+  <img src="Z:/picture/008/save_picture_657538.jpg" />
 </div>
 
 
@@ -552,7 +659,7 @@ Sid Meier's Civilization V: Complete v1.4.0 (2010) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657430.jpg" />
+  <img src="Z:/picture/008/save_picture_657430.jpg" />
 </div>
 
 
@@ -578,7 +685,7 @@ BusyContacts 1.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656995.jpg" />
+  <img src="Z:/picture/008/save_picture_656995.jpg" />
 </div>
 
 
@@ -591,116 +698,6 @@ BusyContacts приносит в управление контактами те 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D43276AC3FA7DCE7AC05B3B9261863A061C5DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140305   (656994) от 05.06.2017
-
-IINA 0.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.06.2017Разработчик: Collider LIПоддерживаемая ОС: macOS 10.10+, 10.12 RecommendedЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83708252900A66C580E6EFFB1122BDEF26AF769B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097985   (656926) от 05.06.2017
-
-Check Off - A Task Manager 5.5.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Check Off  представляет собой приложение для управления задачами, которая работает как автономное приложение или в строке меню.
-
-Особенности:
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2017Разработчик: ChromeDome SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D4D6BD2360A0C8F094759118FC5015205A4256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140313   (656920) от 05.06.2017
-
-Permute 2.4.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 июня 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0DFDCF76C26A6B219FE028828CEB8D7179E2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140365   (656688) от 05.06.2017
-
-Drive Genius 5.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Drive Genius от Prosoft Engineering обладает полным набором утилит для жесткого диска, привлекательно упакованным в удобный интерфейс, что позволяет интуитивно выжимать максимум производительности из жесткого диска.
-
-Drive Genius включает в себя большую часть функций Disk Utility, таких как безопасное форматирование, переразбивка и инициализация, а также обладает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Prosoft Engineering, Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA3132A654A4B28825DB73E767851BAFDCE3142
 ```
 
 https://mybot314.ru/tekegram_catalog/

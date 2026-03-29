@@ -6,7 +6,7 @@ SoundSource 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766309.jpg" />
+  <img src="Z:/picture/008/save_picture_766309.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Duplicate File Finder Pro 6.7.3 (build 344) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766308.jpg" />
+  <img src="Z:/picture/008/save_picture_766308.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Serial 2 v2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766301.jpg" />
+  <img src="Z:/picture/008/save_picture_766301.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766298.jpg" />
+  <img src="Z:/picture/008/save_picture_766298.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Privacy Eraser Free 5.1 Build 3567 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766297.jpg" />
+  <img src="Z:/picture/008/save_picture_766297.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766294.jpg" />
+  <img src="Z:/picture/008/save_picture_766294.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Softorino YouTube Converter 1.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766282.jpg" />
+  <img src="Z:/picture/008/save_picture_766282.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Stand Up (2017.04.16) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 9)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766276.jpg" />
+  <img src="Z:/picture/008/save_picture_766276.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ SSDReporter 1.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766273.jpg" />
+  <img src="Z:/picture/008/save_picture_766273.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766272.jpg" />
+  <img src="Z:/picture/008/save_picture_766272.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ save2pc Ultimate 5.4.8 Build 1565 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766271.jpg" />
+  <img src="Z:/picture/008/save_picture_766271.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Movist Pro 2.4.0 (build 147) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766267.jpg" />
+  <img src="Z:/picture/008/save_picture_766267.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Be Focused Pro - Focus Timer 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766264.jpg" />
+  <img src="Z:/picture/008/save_picture_766264.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Unity Pro 2019.4.0f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766254.jpg" />
+  <img src="Z:/picture/008/save_picture_766254.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766235.jpg" />
+  <img src="Z:/picture/008/save_picture_766235.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Microsoft Visual Studio 2019 Professional 16.6.2 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766210.jpg" />
+  <img src="Z:/picture/008/save_picture_766210.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Microsoft Visual Studio 2019 Community 16.6.2 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766208.jpg" />
+  <img src="Z:/picture/008/save_picture_766208.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766207.jpg" />
+  <img src="Z:/picture/008/save_picture_766207.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Movavi Video Editor Plus 2020 v20.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766204.jpg" />
+  <img src="Z:/picture/008/save_picture_766204.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sketch 67.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766201.jpg" />
+  <img src="Z:/picture/008/save_picture_766201.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ LibreOffice 6.4.5.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766198.jpg" />
+  <img src="Z:/picture/008/save_picture_766198.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Marked 2 v2.5.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766195.jpg" />
+  <img src="Z:/picture/008/save_picture_766195.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ PullTube 0.11.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766193.jpg" />
+  <img src="Z:/picture/008/save_picture_766193.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Money Pro 2.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766192.jpg" />
+  <img src="Z:/picture/008/save_picture_766192.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ RightFont 5 v5.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766191.jpg" />
+  <img src="Z:/picture/008/save_picture_766191.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Tap Forms Organizer 5 v5.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766189.jpg" />
+  <img src="Z:/picture/008/save_picture_766189.jpg" />
 </div>
 
 

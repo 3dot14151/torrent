@@ -6,7 +6,7 @@ OpenMPT 1.28.10.00 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861918.jpg" />
+  <img src="Z:/picture/008/save_picture_861918.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ MP3 Cutter v3.7.1 Pro [Ru/En] и v3.8.2 Ad-Free [Ru/En]  - Создаем сво
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861914.jpg" />
+  <img src="Z:/picture/008/save_picture_861914.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861910.jpg" />
+  <img src="Z:/picture/008/save_picture_861910.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861909.jpg" />
+  <img src="Z:/picture/008/save_picture_861909.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ DAEMON Tools Ultra 5.0.1.0551 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861899.jpg" />
+  <img src="Z:/picture/008/save_picture_861899.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861884.jpg" />
+  <img src="Z:/picture/008/save_picture_861884.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Fausto Papetti - Фаусто Папетти (1984) [FLAC 2.0 24/192|traks(Vinil
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861867.jpg" />
+  <img src="Z:/picture/008/save_picture_861867.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ DJ Hidden - The Words Below (2009) [MP3|192-320 kbps]<Drum'n'Bass/DarkSide D'n'B
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_861857.jpg" />
+  <img src="Z:/picture/009/save_picture_861857.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861851.jpg" />
+  <img src="Z:/picture/008/save_picture_861851.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Balrum (2016) [En] (1.07) Repack VseTop
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861848.jpg" />
+  <img src="Z:/picture/008/save_picture_861848.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Windows 7 PE x86 compact by Xemom1 22.03.16 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861846.jpg" />
+  <img src="Z:/picture/008/save_picture_861846.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Aishen Qiaokeli-ING... / Cupid's Chocolates / Амурный шоколад [201
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861841.jpg" />
+  <img src="Z:/picture/008/save_picture_861841.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861838.jpg" />
+  <img src="Z:/picture/008/save_picture_861838.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ LibreOffice 6.4.3.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861808.jpg" />
+  <img src="Z:/picture/008/save_picture_861808.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Windows 10 Manager 3.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861806.jpg" />
+  <img src="Z:/picture/008/save_picture_861806.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Wise Care 365 Pro 5.5.3.548 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861801.jpg" />
+  <img src="Z:/picture/008/save_picture_861801.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Comodo Dragon 80.0.3987.163 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861800.jpg" />
+  <img src="Z:/picture/008/save_picture_861800.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Movavi Screen Recorder 11.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861797.jpg" />
+  <img src="Z:/picture/008/save_picture_861797.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Shotcut 20.04.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861795.jpg" />
+  <img src="Z:/picture/008/save_picture_861795.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Shironeko Project: Zero Chronicle / White Cat Project / Проект «Бела�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861793.jpg" />
+  <img src="Z:/picture/008/save_picture_861793.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861792.jpg" />
+  <img src="Z:/picture/008/save_picture_861792.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861777.jpg" />
+  <img src="Z:/picture/008/save_picture_861777.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Apple Remote Desktop 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861773.jpg" />
+  <img src="Z:/picture/008/save_picture_861773.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861761.jpg" />
+  <img src="Z:/picture/008/save_picture_861761.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861742.jpg" />
+  <img src="Z:/picture/008/save_picture_861742.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861718.jpg" />
+  <img src="Z:/picture/008/save_picture_861718.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1545800   (609618) от 22.04.2022
+
+Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609618.jpg" />
+</div>
+
+
+###  Подробнее
+
+From Nashville with Love (1966)
+01. La Fiesta (2:56)
+02. The Song from Moulin Rouge (2:21)
+03. Something Tender (3:03)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE241779760CDBF30B67CFA31AB1AAC465D3191B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222010   (609412) от 27.07.2010
+
+Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_609412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adiemus (Adiemus I - 1999 Version) (3:57)
+02. Pie Jesu (Requiem) (4:33)
+03. Hymn Before Action (The Armed Man) (2:38)
+04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231098   (608849) от 16.06.2018
 
 Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
+  <img src="Z:/picture/008/save_picture_608849.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
+  <img src="Z:/picture/008/save_picture_608534.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607895.jpg" />
+  <img src="Z:/picture/008/save_picture_607895.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Organ Plays Sentimental Favorites (1999) [FLAC|Lossless|image + .cue] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607606.jpg" />
+  <img src="Z:/picture/008/save_picture_607606.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Romantic Moods Of The Great Instrumentalists (2000) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607511.jpg" />
+  <img src="Z:/picture/008/save_picture_607511.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607330.jpg" />
+  <img src="Z:/picture/008/save_picture_607330.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Navajo - Native American Dance Trance (2000) [MP3|320 кб/с]<Native American, 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607089.jpg" />
+  <img src="Z:/picture/008/save_picture_607089.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606793.jpg" />
+  <img src="Z:/picture/008/save_picture_606793.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606601.jpg" />
+  <img src="Z:/picture/008/save_picture_606601.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Coo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604487.jpg" />
+  <img src="Z:/picture/008/save_picture_604487.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604425.jpg" />
+  <img src="Z:/picture/008/save_picture_604425.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604312.jpg" />
+  <img src="Z:/picture/008/save_picture_604312.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Francis Goya/Франсис Гойя - Романтический альбом (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604199.jpg" />
+  <img src="Z:/picture/008/save_picture_604199.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604141.jpg" />
+  <img src="Z:/picture/008/save_picture_604141.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604132.jpg" />
+  <img src="Z:/picture/008/save_picture_604132.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [APE|Lossless|image + .cue] <Po
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603802.jpg" />
+  <img src="Z:/picture/008/save_picture_603802.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603483.jpg" />
+  <img src="Z:/picture/008/save_picture_603483.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Teddy Pendergrass - The Real... Teddy Pendergrass (The Ultimate Collection) (201
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603412.jpg" />
+  <img src="Z:/picture/008/save_picture_603412.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603350.jpg" />
+  <img src="Z:/picture/008/save_picture_603350.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603195.jpg" />
+  <img src="Z:/picture/008/save_picture_603195.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603182.jpg" />
+  <img src="Z:/picture/008/save_picture_603182.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603095.jpg" />
+  <img src="Z:/picture/008/save_picture_603095.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603090.jpg" />
+  <img src="Z:/picture/008/save_picture_603090.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603089.jpg" />
+  <img src="Z:/picture/008/save_picture_603089.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297558   (603082) от 24.04.2019
-
-Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My World) (2:18)
-02. Arrival of the Jelly Bubbles (4:25)
-03. Bb's Nest Building (2:32)
-04. Bb's Working Their Magic (2:41)(   Читать дальше...   )Жанр: New age, WorldПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297778   (603075) от 24.04.2019
-
-Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loitsu (5:33)
-02. Valoa (3:36)
-03. Marian rukous (6:26)
-04. Aiti Maa (4:32)(   Читать дальше...   )Жанр: New age, World Music, EthnoПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

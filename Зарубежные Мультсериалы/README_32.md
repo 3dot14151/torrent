@@ -1,3 +1,56 @@
+###  Публикация: 1169906   (401079) от 29.09.2017
+
+Даша-путешественница / Dora the Explorer (2000-2014) TVRip, HDTVRip [H.264] (Сезон 1-8, серии 1-176 из 176)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сериала — семилетняя американская девочка Даша и ее друзья. Это интерактивный мультфильм, подразумевающий активное участие маленьких зрителей в каждом приключении героев и построенный по типу обучающей компьютерной игры. В каждой серии Даша приглашает зрителей отправиться с ней в поход с конкретной целью. Подруга Даши живая Карта подсказывает маршрут (   Читать дальше...   )Производство: Канада, США / Nickelodeon StudiosЖанр: Детский, Приключения, Обучающий, Рисованная анимацияРежиссер: Генри Мэдден, Гари Конрад, Кэти МакУэйнПерсонажи: Марк Уэйнер, Харрисон Чад, Кэтлин Херлс, Саша Торо, Риган Мизрахи, Александрия Суарез, Эшли Флеминг, Джейк Барбеидж, Хосе Зелайа, Кэйтлин СанчезПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 168 серий по ~00:24:00, 8 серий по ~00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB6339DA6D111523C98AD0D506C271017311385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170839   (398385) от 02.10.2017
+
+Вольтрон: Защитник Вселенной. Львиный Вольтрон / Voltron: Defender of the Universe. Lion Force (1984) DVDRip (Серии 1-72 из 72 + Voltron: Fleet of Doom)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398385.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Из далёкого прошлого, из необъятных космических просторов пришла к нам легенда о подвигах Вольтрона, защитника вселенной, непобедимого робота что внушал любовь людям добрым и ужас - злым. В ту пору в мире царили спокойствие и благоденствие. Созданный на планете Земля Галактический альянс, в который вошли обитаемые планеты солнечной системы, поддерживал во вселенной (   Читать дальше...   )Производство: США, ЯпонияЖанр: Рисованная анимация, мультфильм, фантастика, семейныйРежиссер: Франклин КофодПеревод: Дублированный, многоголосый закадровый,
+профессиональный (22 и 23, 69-72 серии)Субтитры: отсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB3EF70C52D0A98030584381249C1FD285CFB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170956   (397392) от 03.10.2017
 
 Вольтрон: Защитник Вселенной. Транспортный Вольтрон / Voltron: Defender of the Universe. Vehicle force (1984) DVDRip (Серии 1-37, 39-52 из 52)
@@ -6,7 +59,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397392.jpg" />
+  <img src="Z:/picture/008/save_picture_397392.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394907.jpg" />
+  <img src="Z:/picture/008/save_picture_394907.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394612.jpg" />
+  <img src="Z:/picture/008/save_picture_394612.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394474.jpg" />
+  <img src="Z:/picture/005/save_picture_394474.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393707.jpg" />
+  <img src="Z:/picture/008/save_picture_393707.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390950.jpg" />
+  <img src="Z:/picture/008/save_picture_390950.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389987.jpg" />
+  <img src="Z:/picture/008/save_picture_389987.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389984.jpg" />
+  <img src="Z:/picture/008/save_picture_389984.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389178.jpg" />
+  <img src="Z:/picture/008/save_picture_389178.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389144.jpg" />
+  <img src="Z:/picture/005/save_picture_389144.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388601.jpg" />
+  <img src="Z:/picture/008/save_picture_388601.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387010.jpg" />
+  <img src="Z:/picture/008/save_picture_387010.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386856.jpg" />
+  <img src="Z:/picture/008/save_picture_386856.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386488.jpg" />
+  <img src="Z:/picture/008/save_picture_386488.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385387.jpg" />
+  <img src="Z:/picture/008/save_picture_385387.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385257.jpg" />
+  <img src="Z:/picture/008/save_picture_385257.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385175.jpg" />
+  <img src="Z:/picture/008/save_picture_385175.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384839.jpg" />
+  <img src="Z:/picture/008/save_picture_384839.jpg" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384397.jpg" />
+  <img src="Z:/picture/008/save_picture_384397.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383418.jpg" />
+  <img src="Z:/picture/008/save_picture_383418.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382508.jpg" />
+  <img src="Z:/picture/008/save_picture_382508.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382446.jpg" />
+  <img src="Z:/picture/008/save_picture_382446.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ Bugged (48 серий) / Bugged (2009-2010) SATRip
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378102.jpg" />
+  <img src="Z:/picture/008/save_picture_378102.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377929.jpg" />
+  <img src="Z:/picture/008/save_picture_377929.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A80BCDDAAE7060C7C455330E11B8109ABAAD3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254084   (377265) от 12.10.2018
-
-София Прекрасная / Sofia the First (2017) WEB-DL [H.264/720p-LQ] (Сезон 4, серий 26 из 26) [UKR, EN]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая девочка, которая скоро станет принцессой, снова приглашает в гости своих лучших друзей! Тебя ждут музыка, веселье и волшебство!
-Какая девочка не мечтает однажды проснуться принцессой! И прежде чем София сможет занять законное место на троне, вас ждут удивительные приключения: представление в зачарованном цирке, знакомство с ручным дракончиком и полет на (   Читать дальше...   )Производство: СШАЖанр: мультфильм, мюзикл, фэнтези, семейныйРежиссер: Джэми Митчелл, Сэм Ригел, Ларри ЛэйчлитерПеревод: ОтсутствуетОзвучка / Автор перевода: ПлюсПлюсЯзык озвучки: украинский, английскийСубтитры: отсутствуютПродолжительность: 23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAD907CE492CF20D28E08E2204DE9A23542F8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415016   (375759) от 12.10.2020
-
-Новые приключения Бэтмена / The New Batman Adventures (1997-1999) BDRip [H.264] (сезон 1-2, серии 01-24 из 24)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериала "Бэтмен" 1992 года. Сюжет сериала больше фокусируется на помощниках Бэтмена — Робине, Найтвинге и Бэтгёрл. Помимо основных персонажей в мультфильме появляются и «приглашённые звёзды»: Супергёрл, Электра, демон Этриган и Крипер, персонажи, позже получившие полноценное развитие в Лиге Справедливости (Justice League Animated) и Безграничной (   Читать дальше...   )Производство: США / Warner Bros. AnimationЖанр: Рисованная анимация, ПриключенияРежиссер: Дэн Риба, Курт Геда, Батч ЛукичПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 24 серий по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9259CBD009C9DFF87A8B977C33E40CD6292C5631
 ```
 
 https://mybot314.ru/tekegram_catalog/

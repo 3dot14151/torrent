@@ -1,3 +1,63 @@
+###  Публикация: 560176   (407190) от 14.10.2012
+
+Ралли (1978) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407190.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1944 году из Рижского художественного музея при отступлении нацистов
+была похищена картина Энгра "Рафаэль и Форнарина". Прошли годы. Во
+время международного ралли один из автогонщиков обнаружил полотно в
+дверце автомобиля. Он подумал, что картину контрабандой перевозил его
+старший напарник-штурман, но тот убедил парня, что полотно им
+подложили, чтобы они не могли попасть в олимпийскую сборную. Он не
+поверил, но и сдать картину начальнику пробега не решился. Происходят и
+другие загадочные события. А за ними уже следили. Самое важное - выйти
+на тех, кто должен забрать украденное произведение искусства.Жанр: ДетективРежиссер: Алоиз БренчАктеры: Витаутас Томкус, Роландс Загорскис, Валентина Титова, Александр   Вокач, Интс Буранс, Лелде Викмане, Улдис Думпис, Эдуард Изотов, Юрис   Каминскис, Виктор Лоренц, Виктор Плют, Алексей Михайлов, Херманис   Ваздикс, Александр Белявский, Улдис Ваздикс, Арно Упениекс, Имантс   Адерманис, Таливалдис Аболиньш, Юрис Леяскалнс, Арнольд Лининьш, Айварс   СилиньшПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E2622CE539E4F9A1C485F7847EFA290F0A2FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410467   (407025) от 05.10.2020
+
+Премия (1974) HDTVRip
+
+>>След.
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в течение полутора-двух часов в одной комнате, где проходит не совсем обычное заседание парткома строительного треста. В повестке дня - отказ целой бригады строителей от премии за «липовые» трудовые достижения!Производство: СССР / ЛенфильмЖанр: ДрамаРежиссер: Сергей МикаэлянАктеры: Евгений Леонов, Владимир Самойлов, Олег Янковский, Михаил Глузский, Армен Джигарханян, Нина Ургант, Виктор Сергачёв, Леонид Дьячков, Борислав Брондуков, Светлана Крючкова, Александр ПашутинСубтитры: ОтсутствуютПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F49AA3BD6AC164C7B81C20C4C10E5DAE7D9477A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561049   (406353) от 16.10.2012
 
 Незабываемое (1967) DVDRip
@@ -6,7 +66,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406353.jpg" />
+  <img src="Z:/picture/008/save_picture_406353.jpg" />
 </div>
 
 
@@ -33,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406338.jpg" />
+  <img src="Z:/picture/008/save_picture_406338.jpg" />
 </div>
 
 
@@ -59,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406113.jpg" />
+  <img src="Z:/picture/008/save_picture_406113.jpg" />
 </div>
 
 
@@ -85,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405900.jpg" />
+  <img src="Z:/picture/008/save_picture_405900.jpg" />
 </div>
 
 
@@ -111,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405516.jpg" />
+  <img src="Z:/picture/008/save_picture_405516.jpg" />
 </div>
 
 
@@ -137,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405465.jpg" />
+  <img src="Z:/picture/008/save_picture_405465.jpg" />
 </div>
 
 
@@ -164,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404754.jpg" />
+  <img src="Z:/picture/008/save_picture_404754.jpg" />
 </div>
 
 
@@ -192,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404701.jpg" />
+  <img src="Z:/picture/008/save_picture_404701.jpg" />
 </div>
 
 
@@ -220,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404690.jpg" />
+  <img src="Z:/picture/008/save_picture_404690.jpg" />
 </div>
 
 
@@ -246,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403865.jpg" />
+  <img src="Z:/picture/008/save_picture_403865.jpg" />
 </div>
 
 
@@ -272,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403775.jpg" />
+  <img src="Z:/picture/008/save_picture_403775.jpg" />
 </div>
 
 
@@ -298,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403507.jpg" />
+  <img src="Z:/picture/008/save_picture_403507.jpg" />
 </div>
 
 
@@ -324,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403500.jpg" />
+  <img src="Z:/picture/008/save_picture_403500.jpg" />
 </div>
 
 
@@ -350,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402281.jpg" />
+  <img src="Z:/picture/008/save_picture_402281.jpg" />
 </div>
 
 
@@ -376,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402236.jpg" />
+  <img src="Z:/picture/008/save_picture_402236.jpg" />
 </div>
 
 
@@ -402,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400901.jpg" />
+  <img src="Z:/picture/008/save_picture_400901.jpg" />
 </div>
 
 
@@ -428,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398116.jpg" />
+  <img src="Z:/picture/008/save_picture_398116.jpg" />
 </div>
 
 
@@ -455,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397460.jpg" />
+  <img src="Z:/picture/008/save_picture_397460.jpg" />
 </div>
 
 
@@ -481,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397056.jpg" />
+  <img src="Z:/picture/008/save_picture_397056.jpg" />
 </div>
 
 
@@ -508,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396993.jpg" />
+  <img src="Z:/picture/008/save_picture_396993.jpg" />
 </div>
 
 
@@ -534,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396929.jpg" />
+  <img src="Z:/picture/008/save_picture_396929.jpg" />
 </div>
 
 
@@ -561,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396920.jpg" />
+  <img src="Z:/picture/008/save_picture_396920.jpg" />
 </div>
 
 
@@ -587,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396826.jpg" />
+  <img src="Z:/picture/008/save_picture_396826.jpg" />
 </div>
 
 
@@ -614,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396765.jpg" />
+  <img src="Z:/picture/008/save_picture_396765.jpg" />
 </div>
 
 
@@ -626,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4698A3EE2C1AF140646ACD5D22688F1C48445FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568476   (395036) от 31.10.2012
-
-Белые грёзы (1984) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395036.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа В.Тотовенца “Голуби”.
-Действие происходит в конце XIX века в провинциальном армянском городке. Мастер-брадобрей Акоп больше всего на свете любил голубей и свою дочь Лило. С самого детства она была помолвлена с Ара, сыном купца Тумаса. К тому времени, когда дети повзрослели и пришло время устраивать свадьбу, купец стал более богатым, а Акоп, кроме (   Читать дальше...   )Жанр: МелодрамаРежиссер: Сергей ИсраелянАктеры: Сос Саркисян, Генрих Алавердян, Жанна Аветисян, Размик Ароян, Галя Новенц, Нелли Херанян, Грачья Арутюнян, Азат Гаспарян, Александр Оганесян, Микаэл ДжанибекянПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B51E7849DA39E0767544AB8BFDBEF2997390BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568204   (394955) от 31.10.2012
-
-Остров Колдун (1964) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394955.jpg" />
-</div>
-
-
-###  Подробнее
-
-По повести Евгения Рысса. Состарившемуся капитану Коновалову, которому врачи по состоянию здоровья запретили ходить в промысловые рейсы , поручили командовать ботом «Книжник» — плавучей лавочкой, развозящей по рыбачьим cтановищам книги, тетради. Обидно старому моряку, но это лучше, чем совсем отказаться от моря. В безопасное береговое плаванье Коновалов берёт с собой несколько ребят. В открытом море мотор заглох, так как механик Жгутов, вместо того чтобы его проверить и прочистить перед рейсом, всю ночь пропьянствовал с приятелями. Вскоре начинается шторм, и бот выбрасывает на остров Колдун - голую скалу в мореЖанр: Приключения, МелодрамаРежиссер: Татьяна ЛукашевичАктеры: Николай Волков (старший), Инна Журавель, Алексей Зайцев, Таня Демушкина, Юрий Бондаренко, Юра Лешов, Борис Юрченко, Раиса Куркина, Сергей Бобров, Иван ВороновПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1727A9FB3F74E8944E2C4C7FD8FC2DAE7CB605
 ```
 
 https://mybot314.ru/tekegram_catalog/

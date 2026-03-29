@@ -6,7 +6,7 @@ FontExplorer X Pro 7 v7.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769244.jpg" />
+  <img src="Z:/picture/008/save_picture_769244.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Image Resizer – Resize Photos 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769242.jpg" />
+  <img src="Z:/picture/008/save_picture_769242.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769235.jpg" />
+  <img src="Z:/picture/008/save_picture_769235.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Re:AMP 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769229.jpg" />
+  <img src="Z:/picture/008/save_picture_769229.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ PTE AV Studio Pro 10.0.11 Build 8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769226.jpg" />
+  <img src="Z:/picture/008/save_picture_769226.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769223.jpg" />
+  <img src="Z:/picture/008/save_picture_769223.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Export for iTunes 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769218.jpg" />
+  <img src="Z:/picture/008/save_picture_769218.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Dropzone Pro 4 v4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769217.jpg" />
+  <img src="Z:/picture/008/save_picture_769217.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ XnViewMP 0.96.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769203.jpg" />
+  <img src="Z:/picture/008/save_picture_769203.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ GridinSoft Anti-Malware 4.1.51.4977 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769202.jpg" />
+  <img src="Z:/picture/008/save_picture_769202.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ YouTube By Click Premium 2.2.131 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769198.jpg" />
+  <img src="Z:/picture/008/save_picture_769198.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ WinCatalog 19.8.0.624 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769193.jpg" />
+  <img src="Z:/picture/008/save_picture_769193.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.6 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769191.jpg" />
+  <img src="Z:/picture/008/save_picture_769191.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Media Player Classic Home Cinema 1.9.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769188.jpg" />
+  <img src="Z:/picture/008/save_picture_769188.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769178.jpg" />
+  <img src="Z:/picture/008/save_picture_769178.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Disk Drill Enterprise 3.8.975 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769177.jpg" />
+  <img src="Z:/picture/008/save_picture_769177.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769169.jpg" />
+  <img src="Z:/picture/008/save_picture_769169.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Audacity 2.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769134.jpg" />
+  <img src="Z:/picture/008/save_picture_769134.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1800 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769121.jpg" />
+  <img src="Z:/picture/008/save_picture_769121.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ MediaHuman Youtube Downloader 3.9.9.40 (build 1706) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769120.jpg" />
+  <img src="Z:/picture/008/save_picture_769120.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Soulver 3 v3.4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769118.jpg" />
+  <img src="Z:/picture/008/save_picture_769118.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Daylight - Far from Home (2019) [MP3|320 Kbps] <Spacesynth, Dance-pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769104.jpg" />
+  <img src="Z:/picture/008/save_picture_769104.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ eM Client Pro 8.0.2751.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769087.jpg" />
+  <img src="Z:/picture/008/save_picture_769087.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ App Cleaner & Uninstaller Pro 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769072.jpg" />
+  <img src="Z:/picture/008/save_picture_769072.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Microsoft Edge 83.0.478.56 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769069.jpg" />
+  <img src="Z:/picture/008/save_picture_769069.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769066.jpg" />
+  <img src="Z:/picture/008/save_picture_769066.jpg" />
 </div>
 
 

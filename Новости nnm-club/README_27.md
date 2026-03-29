@@ -1,3 +1,107 @@
+###  Публикация: 942507   (964213) от 22.01.2016
+
+Armikrog (2015) [Ru/Multi] (1.04 b20161201) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armikrog – это уникальное пластилиновое приключение в жанре ""point and click"" от создателей таких шедевров, как Earthworm Jim и The Neverhood. Составьте компанию космическому разведчику Томминоту и его слепому говорящему псу-инопланетянину по кличке Бик-Бик – они как раз должны сбежать из таинственной крепости, попутно решая загадки и головоломки!Тип издания: ЛицензияРазработчик: Doug TenNapel / Pencil Test StudiosЖанр: Adventure (Puzzle), LogicЯзык озвучки: АнглийскийЯзык субтитров: Русский,  Немецкий, Французский, Итальянский, Испанский, ПольскийЯзык интерфейса: Русский,  Немецкий, Французский, Итальянский, Испанский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8AF315A6C8660954AA3C8542FB7AC57DB296E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978078   (964210) от 22.01.2016
+
+Лунная афера / Moonwalkers (2015) WEB-DLRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайный агент ЦРУ отправляется в Лондон, чтобы разыскать там Стэнли Кубрика и заказать ему фильм про высадку астронавтов на лунную поверхность на случай провала реальной миссии. Но вместо Кубрика агент нарывается на афериста Джонни, который устраивает съемки сверхсекретного видео на стремной студии порнофильмов, где невесомость достигается благодаря крепкому косяку…Производство: ФранцияЖанр: КомедияРежиссер: Антуан Бардо-ЖакеАктеры: Руперт Гринт, Рон Перлман, Роберт Шиэн, Джинн Абрахам, Керри Шейл, Джей Бенедикт, Эрик Лёмпарт, Дэн Пул, Том Ауденарт, Джон ФландерсПеревод: Любительский одноголосый (kim-de-form_jr)Субтитры: ОтсутствуютПродолжительность: 01:36:22Реклама: Oтсутствует какая-либо реклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8C5DE52CE56406FB4FD826CEC7B51D31E600D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359211   (963951) от 12.02.2020
+
+Ученые открывают новую квазичастицу: Пи-Тон
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи находят ранее неизвестную квазичастицу в компьютерных симуляциях. Получивший название pi-ton, он содержит 2 электрона и 2 отверстия. Некоторые эксперименты, проведенные на материале титаната Самария, дают убедительные доказательства существования pi-ton.уществует несколько типов частиц, например, элементарные частицы, которые классифицируются в соответствии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358986   (963944) от 12.02.2020
+
+Интернет-пользователи назвали главные научные достижения 2019 года
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ко дню российской науки, который отмечается сегодня, 8 февраля, Mail.ru Group вместе с НИТУ "МИСиС" спросили интернет -пользователей, какие научные открытия потрясли их больше всего. На основе ответов составили рейтинг главных достижений российской науки в 2019 году.Но для начала эксперты проанализировали "научные" запросы в поисковике mail.ru. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359452   (962980) от 13.02.2020
 
 Ученые нашли способ согнуть алмаз
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962980.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962868.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ JetBrains PhpStorm 2019.3.3 Build #PS-192.5728.108 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962811.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Windows 10 Pro 1909 b18363.657 x64 ru by SanLex (edition 2020-02-12) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962806.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 [Ru/En/Multi34] (L/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962240.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962169.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962028.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ FX Club | Биржевая торговля от А до Я [2008] DVD9
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961964.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Nero 2016 Platinum 17.0.02300 Full RePack by Vahe-91 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961824.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ Kaspersky Reset Trial 5.1.0.7 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961823.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961818.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ Telegram запустит собственный подпольный интер
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961717.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961635.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ CamStudio v.2.5 Beta Portable / Rus
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961135.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ Tom Clancy's H.A.W.X. 2 [Ru] (L) 2010 | МалышШок
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961065.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960836.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960750.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960610.jpg" />
 </div>
 
 
@@ -486,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960609.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960608.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ Red Giant Universe 1.6.0 CE Repack by TeamVR [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960603.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960283.jpg" />
 </div>
 
 
@@ -575,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCE966A505215103CB4383AB0BCBC006055AD100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345852   (960279) от 15.02.2020
-
-macOS INSTALLERS (WIN/BDU & MAC/DU) - ACTUALLY BUILDS (LITE VERSION) [MULTI/RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик: Apple Inc.Язык интерфейса: русский + английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4EEEA64E4C5783D57FCAF0793B417978AB9BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979360   (959603) от 26.01.2016
-
-Начаты работы по созданию чипа-имплантата, способного преобразовать сигналы всех нейронов мозга в двоичный код
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представители Управления перспективных исследовательских программ Пентагона DARPA объявили о начале новой программы, нацеленной на создание чипа-имплантата, способного стать высокоэффективным "мостом" между человеческим мозгом и цифровыми электронными устройствами. Технологии, разработанные в рамках программы Neural Engineering System Design (NESD), позволят (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979061   (959537) от 26.01.2016
-
-Найдено новое простое число с рекордным количеством цифр, которое составляет 22.3 миллиона знаков
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые-математики из университета Центрального Миссури (University of Central Missouri), возглавляемые профессором математики и информатики Кертисом Купером (Curtis Cooper), рассчитали очередное простое число, количество знаков в котором столь велико, что для его распечатки потребуется приблизительно 6 тысяч стандартных листов бумаги. Это новое число является 49-м известным числом ряда простых чисел Мерсенна и четвертым, рассчитанным учеными из этого университета.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979534   (959371) от 26.01.2016
-
-Wifislax 4.10.1 [Аудит безопасности, хакинг] [x86, х64] 1xDVD [ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз Wifislax – специализированного Slackware-based Live CD с комплектом инструментов для проверки безопасности компьютерных сетей. Главной особенностью Wifislax является интеграция в ядро Linux значительного количества неофициальных сетевых драйверов – тем самым «из коробки» обеспечивается поддержка многих проводных и беспроводных сетевых карт.
-
-За время разработки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22648C5E7C8F6F2D7292E39B366F4FB8B3A9565
 ```
 
 https://mybot314.ru/tekegram_catalog/

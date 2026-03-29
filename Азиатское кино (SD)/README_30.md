@@ -1,3 +1,31 @@
+###  Публикация: 719684   (581141) от 15.05.2019
+
+Время не ждет / Shun liu Ni liu / Time and Tide (2000) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый боевик от мастера жанра action в стиле восточных единоборств, режиссера Колонии и Взрывателя Тсуи Харка. Прекрасная постановка боевых сцен и молниеносное развитие сюжета объясняют тот факт, что картина была удостоена премии Венецианского кинофестиваля, беспрецедентная награда для фильмов этого жанра.
+
+Сюжет разворачивается в ритме опасного восточного танца (   Читать дальше...   )Производство: Гонконг, КитайЖанр: Боевик, Криминал, ТриллерРежиссер: Цуй ХаркАктеры: Николас Тсе, Ву Бай, Кэнди Ло, Кэти Цуй, Энтони Вонг Чау-Санг, Джан Кунг, Арсенио Бой Агпун, Альберт, Тсу Чун Бон, Анджело КармонесПеревод: Многоголосый закадровыйПродолжительность: 01:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A25E7E586727F627502756612115EA7B8C94C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877192   (581084) от 15.05.2019
 
 Люпен III / Lupin III (2014) DVDRip
@@ -6,7 +34,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581084.jpg" />
+  <img src="Z:/picture/008/save_picture_581084.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581010.jpg" />
+  <img src="Z:/picture/008/save_picture_581010.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580749.jpg" />
+  <img src="Z:/picture/008/save_picture_580749.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580055.jpg" />
+  <img src="Z:/picture/008/save_picture_580055.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579948.jpg" />
+  <img src="Z:/picture/008/save_picture_579948.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578954.jpg" />
+  <img src="Z:/picture/008/save_picture_578954.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578941.jpg" />
+  <img src="Z:/picture/008/save_picture_578941.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578855.jpg" />
+  <img src="Z:/picture/008/save_picture_578855.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578713.jpg" />
+  <img src="Z:/picture/008/save_picture_578713.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576963.jpg" />
+  <img src="Z:/picture/008/save_picture_576963.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575571.jpg" />
+  <img src="Z:/picture/008/save_picture_575571.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573828.jpg" />
+  <img src="Z:/picture/008/save_picture_573828.jpg" />
 </div>
 
 
@@ -319,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573590.jpg" />
+  <img src="Z:/picture/008/save_picture_573590.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568475.jpg" />
+  <img src="Z:/picture/008/save_picture_568475.jpg" />
 </div>
 
 
@@ -371,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568425.jpg" />
+  <img src="Z:/picture/008/save_picture_568425.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568386.jpg" />
+  <img src="Z:/picture/008/save_picture_568386.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567023.jpg" />
+  <img src="Z:/picture/008/save_picture_567023.jpg" />
 </div>
 
 
@@ -450,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566316.jpg" />
+  <img src="Z:/picture/008/save_picture_566316.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565602.jpg" />
+  <img src="Z:/picture/008/save_picture_565602.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564580.jpg" />
+  <img src="Z:/picture/008/save_picture_564580.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563001.jpg" />
+  <img src="Z:/picture/008/save_picture_563001.jpg" />
 </div>
 
 
@@ -555,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562534.jpg" />
+  <img src="Z:/picture/008/save_picture_562534.jpg" />
 </div>
 
 
@@ -581,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562366.jpg" />
+  <img src="Z:/picture/008/save_picture_562366.jpg" />
 </div>
 
 
@@ -607,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560723.jpg" />
+  <img src="Z:/picture/008/save_picture_560723.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560229.jpg" />
+  <img src="Z:/picture/008/save_picture_560229.jpg" />
 </div>
 
 
@@ -644,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20278AA57B64819B6D6137727679E2C0DB733313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045224   (558981) от 23.08.2016
-
-Спасти мистера Ву / Jie jiu Wu xian sheng / Saving Mr. Wu (2015) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях, которые произошли с китайским актёром в 2004 году. Трое мужчин, переодетые в форму полицейских, выкрали актёра и потребовали выкуп в три миллиона юаней.Производство: КитайЖанр: боевик, триллер, драма, криминалРежиссер: Дин ШэнАктеры: Энди Лау, Лю Е, Цяньюан Ванг, Рафу Ву, Ксиорай Джау, Лу ПенгПеревод: Двухголосый закадровый, любительский (DeadSno & den904)Язык субтитров: АнглийскийПродолжительность: 01:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD647011915BA320D9BB3A0EC72680DE7F9805F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

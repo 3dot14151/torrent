@@ -1,3 +1,82 @@
+###  Публикация: 1375877   (863517) от 15.04.2020
+
+Себастьян Хафнер | История одного немца. Частный человек против тысячелетнего рейха (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания немецкого журналиста и историка Себастьяна Хафнера (1907–1999), написанные в эмиграции в 1939 году, охватывают период с 1914 по 1933 год. Автор пытается ответить на вопрос, как события этого десятилетия подготовили немцев к принятию власти нацистов, как создавалась и удобрялась многослойная социально-политическая почва, на которой был возведен третий (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистикаПеревод: Никита Львович ЕлисеевФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9383B0BFC6D6A6840464254CACDBE5C62046539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375882   (863516) от 15.04.2020
+
+Бретт Кинг | Эпоха дополненной реальности (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863516.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге Бретт Кинг, автор бестселлеров, эксперт-футуролог, известный журналист и телеведущий, рисует яркую картину будущего. Это время, когда дополненная реальность – интернет-медицина, искусственный интеллект, роботы, умные вещи и города – станет повседневной нормой. Ближайшие два десятилетия принесут человечеству намного больше изменений, чем минувшие 250 (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC96AE8F5A496811A9DDE7B26DF95480F0EDF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999550   (862771) от 23.03.2016
+
+Анатолий Вассерман | Хронические комментарии к российской истории (2014) [FB2, DOCX]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый интеллектуал ведет свою хронику российской истории со свойственными ему обстоятельностью, остроумием и необычным углом зрения.
+Вы сможет по-другому взглянуть на многие события последних лет - начиная от нового срока президента Путина, заканчивая кризисом, который нам обещают. Кроме того, Вассерман рассказывает о последствиях всех этих событий, ожидающих (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6346A1CCDB35F9204592FB8AC27225B1DDE9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375923   (862156) от 16.04.2020
 
 Филипп Честерфилд | Письма к сыну. Максимы. Характеры [сборник] (2019) [EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862156.jpg" />
+  <img src="Z:/picture/008/save_picture_862156.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862043.jpg" />
+  <img src="Z:/picture/008/save_picture_862043.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861931.jpg" />
+  <img src="Z:/picture/008/save_picture_861931.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860833.jpg" />
+  <img src="Z:/picture/008/save_picture_860833.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859264.jpg" />
+  <img src="Z:/picture/008/save_picture_859264.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858928.jpg" />
+  <img src="Z:/picture/008/save_picture_858928.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858792.jpg" />
+  <img src="Z:/picture/008/save_picture_858792.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858561.jpg" />
+  <img src="Z:/picture/008/save_picture_858561.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856894.jpg" />
+  <img src="Z:/picture/008/save_picture_856894.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856670.jpg" />
+  <img src="Z:/picture/008/save_picture_856670.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856564.jpg" />
+  <img src="Z:/picture/008/save_picture_856564.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854929.jpg" />
+  <img src="Z:/picture/008/save_picture_854929.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854915.jpg" />
+  <img src="Z:/picture/008/save_picture_854915.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853591.jpg" />
+  <img src="Z:/picture/008/save_picture_853591.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852202.jpg" />
+  <img src="Z:/picture/008/save_picture_852202.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852054.jpg" />
+  <img src="Z:/picture/008/save_picture_852054.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851646.jpg" />
+  <img src="Z:/picture/008/save_picture_851646.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849902.jpg" />
+  <img src="Z:/picture/008/save_picture_849902.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849901.jpg" />
+  <img src="Z:/picture/008/save_picture_849901.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848493.jpg" />
+  <img src="Z:/picture/008/save_picture_848493.jpg" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848428.jpg" />
+  <img src="Z:/picture/008/save_picture_848428.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848414.jpg" />
+  <img src="Z:/picture/008/save_picture_848414.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847159.jpg" />
+  <img src="Z:/picture/008/save_picture_847159.jpg" />
 </div>
 
 
@@ -595,86 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00EAFFC33C38200D10B39FF98656AC69EFF1C8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002639   (847004) от 01.04.2016
-
-Александр Викторович Кожевников | По тонкому льду. О нравах в хоккее (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему голеадор мечтал попасть именно в московский «Спартак»? Разве можно в атмосфере коррупции подготовить будущих олимпийских чемпионов? Отчего не женился на американке, хотя прожил за океаном целых шесть лет? Каким образом теплолюбивые армяне заиграли в хоккей? Как избежал «тюрьмы», нарушая спортивный режим?
-Ярчайшая звезда отечественного и мирового хоккея, двукратный (   Читать дальше...   )Жанр: Биографии и Мемуары, Спорт, фитнес, Публицистика: прочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732330EE89BD8420F46A469AAA866FC23C022977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002645   (846847) от 01.04.2016
-
-Аглая Топорова | Украина трех революций (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист и социолог Аглая Топорова, заместитель главного редактора газеты «Коммерсантъ — Украина», прожила в Киеве с 1999 по 2014 год. Общественно-политическую жизнь Украины этих лет она знает не понаслышке. Будучи киевским жителем, она оставалась гражданкой России — это придает ее взгляду на новейшую политическую историю Украины уникальность: это взгляд изнутри (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF31A105795A29F87443F6518084E4351C279B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378603   (846530) от 25.04.2020
-
-Юнис Теймурханлы | «Upgrade». Записки отельера (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга от автора бестселлеров «Do not disturb. Записки отельера» и «Room service. Записки отельера» – владельца и генерального менеджера отеля «Гельвеция» Юниса Теймурханлы.
-«Гельвеция» вновь приглашает читателей в мир гостиничного бизнеса, возвращаясь с новыми историями – смешными и трогательными, поучительными и грустными, но неизменно живыми и яркими. А все (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41238B704D8CC22525973897EECBA17A37DBEAE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

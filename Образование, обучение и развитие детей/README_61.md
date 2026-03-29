@@ -1,3 +1,56 @@
+###  Публикация: 728254   (317271) от 29.11.2013
+
+С.А Субханкулова | Математика: элективный курс. Задачи с параметрами (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие может быть использовано при подготовке к экзаменам в вузы, а также окажет помощь студентам педагогических вузов, учителям, работающим в классах с углубленным изучением математики, при проведении факультативных занятий.
+Пособие состоит из 13 параграфов, к каждому из которых приведены примеры решений задач, предлагавшихся в основном на вступительных экзаменах в различные вузы страны. Приведены также упражнения трех уровней сложности А, В, С для самостоятельного решения, отдельные из них снабжены указаниями или решениями. Для удобства работы с текстом все содержание материала разбито на 34 часа учебного времени.Формат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC880C26C7044F132057B97E6DF46FD6D4CF905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728265   (317266) от 29.11.2013
+
+Л.Д. Лаппо, А.А. Сапожников | Решение экзаменационных задач по Алгебре за 9 класс (2002) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пособие, основанно на учебнике "Алгебра. Сборник заданий для проведения письменного экзамена по алгебре за курс основной школы". При помощи этой книги Вы сможете запросто решить любой пример, или же проверить решенноеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20F486A4DC27A0BF372B17B845807FC53F91512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 728397   (317260) от 29.11.2013
 
 Лев Успенский | Слово о словах. Почему не иначе? (1971) [RTF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317260.jpg" />
+  <img src="Z:/picture/008/save_picture_317260.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316902.jpg" />
+  <img src="Z:/picture/008/save_picture_316902.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315973.jpg" />
+  <img src="Z:/picture/008/save_picture_315973.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315663.jpg" />
+  <img src="Z:/picture/008/save_picture_315663.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315516.jpg" />
+  <img src="Z:/picture/008/save_picture_315516.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315465.jpg" />
+  <img src="Z:/picture/008/save_picture_315465.jpg" />
 </div>
 
 
@@ -172,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315037.jpg" />
+  <img src="Z:/picture/008/save_picture_315037.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314944.jpg" />
+  <img src="Z:/picture/008/save_picture_314944.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314937.jpg" />
+  <img src="Z:/picture/008/save_picture_314937.jpg" />
 </div>
 
 
@@ -255,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314933.jpg" />
+  <img src="Z:/picture/008/save_picture_314933.jpg" />
 </div>
 
 
@@ -282,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314932.jpg" />
+  <img src="Z:/picture/008/save_picture_314932.jpg" />
 </div>
 
 
@@ -308,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314931.jpg" />
+  <img src="Z:/picture/008/save_picture_314931.jpg" />
 </div>
 
 
@@ -335,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314819.jpg" />
+  <img src="Z:/picture/008/save_picture_314819.jpg" />
 </div>
 
 
@@ -369,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314815.jpg" />
+  <img src="Z:/picture/008/save_picture_314815.jpg" />
 </div>
 
 
@@ -395,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314809.jpg" />
+  <img src="Z:/picture/008/save_picture_314809.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314794.jpg" />
+  <img src="Z:/picture/008/save_picture_314794.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314672.jpg" />
+  <img src="Z:/picture/008/save_picture_314672.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314655.jpg" />
+  <img src="Z:/picture/008/save_picture_314655.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314651.jpg" />
+  <img src="Z:/picture/008/save_picture_314651.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314569.jpg" />
+  <img src="Z:/picture/008/save_picture_314569.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314494.jpg" />
+  <img src="Z:/picture/008/save_picture_314494.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314489.jpg" />
+  <img src="Z:/picture/008/save_picture_314489.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314464.jpg" />
+  <img src="Z:/picture/008/save_picture_314464.jpg" />
 </div>
 
 
@@ -635,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314323.jpg" />
+  <img src="Z:/picture/008/save_picture_314323.jpg" />
 </div>
 
 
@@ -648,58 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9C9F7DF98F96012F2263E93DE41213928645E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728848   (314294) от 30.11.2013
-
-Синтез | Математические формулы. Краткий справочник (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный небольшой справочник, который всегда удобно иметь под рукой. В книге собраны самые основные формулы по элементарной и высшей математике. Материал размещен сжато и компактно. Учитывая также хорошее качество pdf файла, достаточно распечатать отдельную страницу, и шпаргалка по соответствующему разделу математики готова.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BB3A0B2DEE229C0FC2F20A117833F7F5B81F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260007   (314051) от 06.11.2018
-
-Я.И. Перельман | Живая математика. Издание 3-е (1949) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга покойного Я.И. Перельмана принадлежит к числу наиболее доступных книг из известного цикла автора, посвященного занимательным вопросам математики. Здесь собраны разнообразные математические головоломки, из которых многие облечены в форму маленьких рассказов. Для их решения достаточно знакомства с элементарной арифметикой и простейшими сведениями из геометрии. (   Читать дальше...   )Жанр: Познавательная литература, Учебное пособие, задачник, головоломкиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E945829B5B0714029E3E19EAC69E426AC33CF152
 ```
 
 https://mybot314.ru/tekegram_catalog/

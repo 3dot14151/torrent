@@ -1,3 +1,32 @@
+###  Публикация: 1221958   (689672) от 27.04.2018
+
+Goldmund - Occasus (2018) Western Vinyl [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_689672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before (03:25)
+ 02. Above (02:36)
+ 03. Bounded (03:10)
+ 04. Breaking (03:06)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE614C2B775D777B9C44D9F08CA9A8D72ECBC058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222144   (689306) от 27.04.2018
 
 Tangerine Dream - Quantum Gate / Quantum Key (2018) Kscope [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
@@ -6,7 +35,7 @@ Tangerine Dream - Quantum Gate / Quantum Key (2018) Kscope [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689306.jpg" />
+  <img src="Z:/picture/008/save_picture_689306.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688850.jpg" />
+  <img src="Z:/picture/008/save_picture_688850.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sigur Rós - Route One (2018) Ess Err [FLAC|Lossless|WEB-DL|tracks] <Abstract, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687359.jpg" />
+  <img src="Z:/picture/008/save_picture_687359.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682076.jpg" />
+  <img src="Z:/picture/008/save_picture_682076.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Mind the Gap #137 (2019) Gonzo Circus [FLAC|Lossless|tracks + .cue] <Electr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672463.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ L A N D (Land) - Anoxia (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670837.jpg" />
+  <img src="Z:/picture/008/save_picture_670837.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ L A N D (Land) - Night Within (2012) [FLAC|Lossless|tracks + .cue] <Dark Ambient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670835.jpg" />
+  <img src="Z:/picture/008/save_picture_670835.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Future Sound Of London - Music For 3 Books (2021) Compilation [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670744.jpg" />
+  <img src="Z:/picture/008/save_picture_670744.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ V I C I M - Convenience (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668916.jpg" />
+  <img src="Z:/picture/008/save_picture_668916.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tangerine Dream - Raum (2022) [FLAC|Lossless|tracks + .cue] <Ambient, Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667713.jpg" />
+  <img src="Z:/picture/008/save_picture_667713.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Selected Moments I (2008) Shoreless Recordings [FLAC|Lossless|tracks+.cue] 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667236.jpg" />
+  <img src="Z:/picture/008/save_picture_667236.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ocralab - Sonitum Nubium (2018) Space Of Variants [FLAC|Lossless|tracks+.cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660818.jpg" />
+  <img src="Z:/picture/008/save_picture_660818.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Halftribe - For The Summer, Or Forever (2018) Dronarivm [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655945.jpg" />
+  <img src="Z:/picture/008/save_picture_655945.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648850.jpg" />
+  <img src="Z:/picture/008/save_picture_648850.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Tomoyoshi Date, Stijn Huwels - Hochu-Ekki-Tou (2019) [FLAC|Lossless|tracks + .cu
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648844.jpg" />
+  <img src="Z:/picture/008/save_picture_648844.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ A Cerulean State - Singles 2015 (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648706.jpg" />
+  <img src="Z:/picture/008/save_picture_648706.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Klaus Schulze - Silhouettes (2018) SPV, Oblivion [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646699.jpg" />
+  <img src="Z:/picture/008/save_picture_646699.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645086.jpg" />
+  <img src="Z:/picture/008/save_picture_645086.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Arbre Noir - Collection 5 Releases (2000-2006) Polymorph Records [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644866.jpg" />
+  <img src="Z:/picture/008/save_picture_644866.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639195.jpg" />
+  <img src="Z:/picture/008/save_picture_639195.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Woob - 新 プログラム (2018) Time Limited [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635944.jpg" />
+  <img src="Z:/picture/008/save_picture_635944.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spot
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634116.jpg" />
+  <img src="Z:/picture/008/save_picture_634116.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Elect
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633748.jpg" />
+  <img src="Z:/picture/008/save_picture_633748.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628371.jpg" />
+  <img src="Z:/picture/008/save_picture_628371.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619831.jpg" />
+  <img src="Z:/picture/008/save_picture_619831.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Steve Gibbs - Adrift (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74DE6FDAB5FF639537AD1818D0465318B522CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036560   (619256) от 21.07.2016
-
-Interference Of Frequencies - The Orphic Continuum (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slowform (17:10)
-02. Reach it (14:15)
-03. Frozen Sadness (13:26)
-04. Secret Place (08:27)(   Читать дальше...   )Жанр: Ambient, Experimental, DowntempoПродолжительность: 01:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB448BE96E1CF5105705DE40A43C78C4EB498D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

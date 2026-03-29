@@ -1,3 +1,32 @@
+###  Публикация: 1360117   (961856) от 14.02.2020
+
+David Bowie - Is It Any Wonder? (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Man Who Sold The World (ChangesNowBowie Version)
+2. I Can't Read '97
+3. Stay '97
+4. Baby Universal '97(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D31E4CAC475727EEA1B14B428B1C499FBD380E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361104   (957069) от 18.02.2020
 
 VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957069.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956165.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954596.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953047.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Ultimate Rock - 4CDs of great rock music (2015) [MP3|320 кб/с] <Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952607.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Alpha To Omega - A Life (1976) Reissue CD, 1997, Black Rills Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952447.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Chris Rea - Still So Far To Go...The Best Of (2009) 2CD [MP3|140~234 кб/с (V2
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951302.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Beat City Tubeworks - Top Rock (2020) [MP3|320 Kbps] <Rock'n'Roll, 70's>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951011.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Creedence Clearwater Revival - (Collected) (2008) [MP3|192-320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948748.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Elton John - Wonderful Crazy Night (2016) Deluxe Edition  [MP3|320 кб/с] <Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946658.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945977.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944487.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ The Detroit Cobras - Life, Love And Leaving (2001) [MP3|320 Kbps] <Garage Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943024.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Cold Body Radiation - The Orphean Lyre (2017) [MP3|320 Kbps] <Post-Rock, Shoegaz
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943020.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942351.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941683.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Hozier - Hozier (2014) Deluxe Edition [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940066.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Edgar Winter - Live On Stage (Feat. Leon Russell) (2019) [MP3|320 Kbps] <Rock, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939241.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - Pigs and Pyramids (An All Star Lineup Performing the Songs of Pink Floyd) (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938743.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Omega - Дискография (16 альбомов + сингл)(1968-1998) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938290.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [MP3|320 Kbps] <Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937743.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ VA - Deuses da Guitarra (2009) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935848.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ The xx - I See You (2017) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935154.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Blues Dimension - 2 Original Albums (2014) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934115.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Platonick Dive - Overflow (2015) [MP3|320 Kbps] <Post Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933968.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Platonick Dive - Overflow (2015) [MP3|320 Kbps] <Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:495D0C8F645DD13F3D20EB981BE1DEC49BEBCF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093458   (933854) от 15.01.2017
-
-Breed 77 - Acoustic Rarities (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember That Day (04:35)
-02. Low (04:15)
-03. One More Time (03:58)
-04. The River (03:56)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1489A828F32313E5D5B22F8305CF6A7EE5A4DF28
 ```
 
 https://mybot314.ru/tekegram_catalog/

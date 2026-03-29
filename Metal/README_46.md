@@ -6,7 +6,7 @@ Carach Angren - Dance And Laugh Amongst The Rotten (2017) Deluxe Edition [MP3|32
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648505.jpg" />
+  <img src="Z:/picture/008/save_picture_648505.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Rammstein - Deutschland (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648393.jpg" />
+  <img src="Z:/picture/008/save_picture_648393.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
+  <img src="Z:/picture/008/save_picture_648023.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Pr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647957.jpg" />
+  <img src="Z:/picture/008/save_picture_647957.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647931.jpg" />
+  <img src="Z:/picture/008/save_picture_647931.jpg" />
 </div>
 
 
@@ -161,7 +161,7 @@ Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647831.jpg" />
+  <img src="Z:/picture/008/save_picture_647831.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ VA - Metal Hammer Collection (2СD) (2000) [MP3|320 кб/с]<Gothic Metal, Doom/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647050.jpg" />
+  <img src="Z:/picture/008/save_picture_647050.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ellende - Lebensnehmer (2019) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Blac
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646900.jpg" />
+  <img src="Z:/picture/008/save_picture_646900.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Conquest - Taste of Life (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645878.jpg" />
+  <img src="Z:/picture/008/save_picture_645878.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Bonded By Blood - The Aftermath (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645826.jpg" />
+  <img src="Z:/picture/008/save_picture_645826.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Sensorium - The Art Of Living (2015) [MP3|320 кб/с]<Power Metal, Female Vocal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645802.jpg" />
+  <img src="Z:/picture/008/save_picture_645802.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Burning Point - Burning Point (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645779.jpg" />
+  <img src="Z:/picture/008/save_picture_645779.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Neurotech - Stigma (2015) [MP3|320 кб/с]<Industrial, Cyber Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645651.jpg" />
+  <img src="Z:/picture/008/save_picture_645651.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Bloodbound - Rise of the Dragon Empire (2019) Japanese Edition [MP3|320 Kbps] <H
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645087.jpg" />
+  <img src="Z:/picture/008/save_picture_645087.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Nemesis - The Day of Retribution (1984) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644852.jpg" />
+  <img src="Z:/picture/008/save_picture_644852.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Manowar - The Final Battle I (2019) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644701.jpg" />
+  <img src="Z:/picture/008/save_picture_644701.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Trick Or Treat - Rabbits' Hill Pt. 2 (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644112.jpg" />
+  <img src="Z:/picture/008/save_picture_644112.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Q5 - New World Order (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644033.jpg" />
+  <img src="Z:/picture/008/save_picture_644033.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Ad Metalla - Gemelli Siamesi (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643821.jpg" />
+  <img src="Z:/picture/008/save_picture_643821.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Inner Odyssey - Ascension (2015) [MP3|320 кб/с]<Progressive Metal, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643818.jpg" />
+  <img src="Z:/picture/008/save_picture_643818.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Tanzwut - Schreib Es Mit Blut (2016) [MP3|320 кб/с]<Folk Metal, Neue Deutsche
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643800.jpg" />
+  <img src="Z:/picture/008/save_picture_643800.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Withering Soul - Adverse Portrait (2015) [MP3|320 кб/с]<Melodic Black / Gothi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643713.jpg" />
+  <img src="Z:/picture/008/save_picture_643713.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Our Last Crusade - The Ideal & The Actual (2015) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643710.jpg" />
+  <img src="Z:/picture/008/save_picture_643710.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Kroda - Ginnungagap-Ginnungagaldr-Ginnungakaos (2015) [MP3|320 кб/с]<Pagan Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643704.jpg" />
+  <img src="Z:/picture/008/save_picture_643704.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ Killer - Monsters Of Rock (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643702.jpg" />
+  <img src="Z:/picture/008/save_picture_643702.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Rise To Fall - End vs. Beginning (2015) [MP3|320 кб/с]<Melodic Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643582.jpg" />
+  <img src="Z:/picture/008/save_picture_643582.jpg" />
 </div>
 
 

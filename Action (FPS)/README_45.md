@@ -1,3 +1,107 @@
+###  Публикация: 1737616   (49587) от 19.07.2024
+
+Crysis (2007) [Ru/En] (1.1.1.6156) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди не раз представляли конец света, приписывая роковую роль палача то наводнению, то страшной болезни, то ядерной войне. На деле все получилось несколько экзотичнее. Рухнувший на один из отдаленных островов астероид оказался огромным космическим кораблем, способным полностью изменить климат Земли. Отправившиеся на изучение аномалии отряды Северной Кореи и США оказались (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C03FB9EFF9E57CE635D2414B01EEF9E136A832A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737912   (49443) от 20.07.2024
+
+Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Scene PROPHET
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Cartel - игра-вестерн от первого лица. Играйте за работника правоохранительных органов в городе Лос-Анджелес. Сюжет разворачивается из-за одного террористического действия, подстроенного крупным наркоторговцем. Пострадало много невинных людей, и полиция решает не терпеть более подобных выходок.Тип издания: SceneРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5384F20094FAAA66C79339D2715F144D2A89931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706689   (49381) от 21.07.2024
+
+STAR WARS: Dark Forces Remaster (2024) [Multi] (1.0.4) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: Dark Forces Remaster был воплощен в жизнь командой Nightdive Studios и полностью переработан с помощью собственного движка KEX, что позволяет игре работать на современных игровых устройствах с разрешением до 4K и частотой 120 кадров в секунду. Новым и вернувшимся игрокам понравится обновленный игровой процесс Star Wars: Dark Forces Remaster, текстуры высокого (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, LucasArtsЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, НемецкийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F89FE767F9413FBBD7A3CEFCABA344CD71B4D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738702   (49007) от 24.07.2024
+
+Succubus (2021) [Ru/Multi] (15112813/dlc) Scene Rune [Ultimate Edition] [18+]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Succubus позволит игроку стать сексуальным и опасным демоном. Истинная владычица Ада планирует вернуть свое господство над миром тьмы. Для этого ей придется использовать все свои силы, дабы уничтожить каждого несогласного с ее волей. Преисподняя пока-что принадлежит Нимроду, единственной душе, способной держать это место под контролем. Когда-то и главная героиня (   Читать дальше...   )Тип издания: SceneРазработчик: Madmind StudioЖанр: Экшны, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E336690C2D72553BF01829244C559F6D87E05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738881   (48933) от 25.07.2024
 
 Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
@@ -6,7 +110,7 @@ Sniper: Ghost Warrior 2 (2013) [Ru/En] (1.0.9/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48933.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Borderlands 3 (2019) [Ru/Multi] (11919094/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48712.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48608.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ No Man's Sky (2016) [Ru/Multi] (5.00.1/dlc) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48606.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Chornobyl Liquidators (2024) [Ru/Multi] (0.9.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48599.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Trepang2 (2023) [Ru/Multi] (77.00/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48447.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48242.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Trepang2 (2023) [Ru/Multi] (2471/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47826.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ POSTAL 4: No Regerts (2022) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47808.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Deadlink (2022) [Ru/Multi] (1.2.27806) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47757.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Apartment No 129 (2024) [Ru/Multi] (Build 15267401) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47701.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Chernobylite (2019) [Ru/Multi] (49522.s04_black_smoke/dlc) Repack Decepticon [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47620.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.0.0.6) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47591.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47311.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ STAR WARS: Battlefront (2015) [Ru/Multi] (1.0.7.64833) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47305.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Hexen: Beyond Heretic (1995) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47273.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47094.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Wine Hunt: Aim Fidelity (2024) [En] (2.0.1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47077.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Unreal 2: The Awakening (2003) [Ru/En] (build 2001) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46758.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Trepang2 (2023) [Ru/Multi] (72.00/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46580.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ POSTAL 4: No Regerts (2022) [En] (1.4.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46562.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Decepticon [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46240.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525179   (45626) от 26.08.2024
-
-Succubus (2021) [Ru/Multi] (1.15.18327/dlc) License GOG [Ultimate Edition] [18+]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – суккуб: дикий и похотливый демон, отказавшийся быть королевой адской бездны. С исчезновением настоящих правителей ада оставшиеся демоны признали Нимрода своим королем, ибо сила лишь его души могла совладать с могущественным Зверем. Выстраивая новую империю на трупах грешников, новые король и королева (вы) смогли обуздать хаос, оставленный прежними властителями. (   Читать дальше...   )Тип издания: LicenseРазработчик: Madmind StudioЖанр: Экшны, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01A545B959E0C5DF3896A77796B8AAA4E3A0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745621   (45525) от 27.08.2024
-
-DOOM (2016) [Ru/Multi] (Build 13954591/dlc) Lossy Repack Decepticon
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный исследовательский комплекс Объединенной аэрокосмической корпорации на Марсе заполонили кровожадные демоны, готовящиеся покорить наш мир. И только один человек стоит у них на пути... DOOM возвращается. Легендарная игра, определившая саму суть жанра шутеров, снова с нами. Жестокий, агрессивный, бескомпромиссный и очень кровавый боевик разрабатывается силами (   Читать дальше...   )Тип издания: Lossy RepackРазработчик: id SoftwareЖанр: Action, Shooter, FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725B76256FD7B43B59CF262F0131CC25009F703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746077   (45325) от 29.08.2024
-
-FOOTAGE BODYCAM / FOOTAGE REC (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть лучше революционного шутера на одного игрока с видом от 1-ого лица? Где была эффективно задействована такая передовая технология, как Unreal Engine 5… Во-первых, стоит отметить гиперреалистическое графическое исполнение и освещение, которые в совокупности создают ощущение максимальной погруженности.Тип издания: RepackРазработчик: kc6067Жанр: Экшены, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E001E7AB82679089A7E898C9F2ABDC8F1BB11A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737770   (44977) от 01.09.2024
-
-Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44977.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel! происходят в промежутке между Borderlands и Borderlands 2Тип издания: RepackРазработчик: 2K Australia, Gearbox SoftwareЖанр: Action (Shooter), RPG, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3EFF08A388370EBB1076F9813F8435A2C6307A
 ```
 
 https://mybot314.ru/tekegram_catalog/

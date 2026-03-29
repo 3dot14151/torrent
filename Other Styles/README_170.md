@@ -1,3 +1,61 @@
+###  Публикация: 1784720   (69537) от 12.03.2025
+
+Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of Peace (4:44)
+02. Like In The Water (3:38)
+03. Regret (3:16)
+04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785163   (69266) от 16.03.2025
+
+Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gitano Amor (04:18)
+02. Tears In Paradise (04:56)
+03. Libertad (04:00)
+04. Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784919   (69235) от 16.03.2025
 
 Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
@@ -6,7 +64,7 @@ Greg Mancol - Chill Passion (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69235.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68805.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68453.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Chris Janson - Everybody (2017) [FLAC|Lossless|tracks + .cue] <Folk, World, & Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68361.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68344.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67767.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WE
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67760.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67544.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66626.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66609.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chin
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66430.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ George Strait - One Step at a Time (1998) CD, HDCD, Album [FLAC|Lossless|tracks 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66386.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66208.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66086.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65998.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Ultimate Broadway (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65834.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Willie Nelson - Natural Renegade: Opus Collection (2007) CD, Compilation [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65832.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65819.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ You+Me - Rose Ave (2014) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65423.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Trisha Yearwood - (Songbook) A Collection Of Hits (1997) CD, HDCD, Compilation, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65416.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ John Denver - Windsong (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Soft Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65408.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Jo Dee Messina - A Joyful Noise (2002) CD, Album [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65373.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Cesaria Evora - Cafe Atlantico (1999) [FLAC|Lossless|image + .cue] <Latin, Folk,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63393.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63385.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87DA9521E5E95950A368E45A77F43D536B190941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705603   (63382) от 10.03.2024
-
-VA - The Orient Collective - Moonlight Desert Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noam Garcia, Diego Galloso, Tibetania - Mantra (9:12)
-02. Tibetania, Air Paradise - Shawarma (6:14)
-03. Soldatov, Tibetania - Pegasus (4:17)
-04. Tibetania, Lost Bird - Jara (5:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:12:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0066449E8CE10F74618F1698450786B5ABFB80D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705267   (63183) от 12.03.2024
-
-Various Artists - Sazz & Jaz (2013) [FLAC|Lossless|image + .cue] <Ethno, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reincarnation - Qani Vur Jan Im....
-02. Jazz Trio Levon Malkhasyan - Lorik
-03. Inga and Anush Arshakyans - Hala, Hala
-04. Mr. Avant-Garde Folk Arto Tunçboyaciyan, Armenian Navy Band - Gulo(   Читать дальше...   )Жанр: Ethno JazzПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F857080E734CC5B0D1144525405D0A44FF2AAA68
 ```
 
 https://mybot314.ru/tekegram_catalog/

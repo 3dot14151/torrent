@@ -1,3 +1,135 @@
+###  Публикация: 1337586   (273693) от 11.11.2019
+
+MetaMovie 2.4.3 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы создаете свою собственную библиотеку фильмов в iTunes, тогда вы хотите, чтобы она выглядела идеально. Представьте себе, что у вас есть вся информация о фильме под рукой - актеры, дата выхода, режиссеры, обзор и т. Д. И, конечно же, вам нужны красивые обложки для вашей библиотеки. MetaMovie приносит все это в ваши фильмы.
+
+Просто оставьте свои видеофайлы в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2019Разработчик: Holger JansenПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FE8DEF3E8CC6EA152355F44D13C5E07681D139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337619   (273692) от 11.11.2019
+
+Image2Icon Pro 2.10 [En/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image2Icon Pro - простая в использовании программа для создания иконок файлов и папок. Создание иконок еще никогда не было проще, чем с использованием Image2Icon. Достаточно перетащить нужное изображение, настроить вид стилизованного изображения и выбрать формат экспортируемого файла - и все.Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2019Разработчик: Shiny Frog Ltd.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45339C6E1B620B6CDA2B279E94AD35152F789C2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188772   (273510) от 03.12.2017
+
+Debit & Credit - Учет финансов 2.5.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете программу для учета личных финансов, которая является максимально удобной, но в тоже время обладает достаточным количеством функций, то Debit & Credit - это лучший выбор для вас. Обычно учет финансов требует времени и усилий. Но теперь с Debit & Credit этот процесс наконец-то стал намного удобней.Тип издания: macOS SoftwareРелиз состоялся: 30.11.2017Разработчик: Ivan Pavlov Pty LtdПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6984558A200F780879A4079072D912B9F040C523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337637   (273358) от 11.11.2019
+
+Adobe InDesign 2020 v15.0.0.155 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение для настольных систем Adobe InDesign CC 2020 представляет собой универсальное приложение для публикации контента, которое обеспечивает точный контроль над дизайном и типографикой на уровне пикселов. Скачав портативное приложение на macx.ws, вы сможете создавать стильные выразительные страницы для печати, планшетных ПК и других экранов. Удобная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3FB21E73572BCF90E79AD5CAED254BB6B68575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188900   (273159) от 03.12.2017
+
+Templates for Excel by GN 4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные шаблоны для MS Excel от компании Graphic Node предлагают 350 разнообразных и практичных шаблонов. Вы можете использовать шаблоны для деловых или личных целей. Персонализируйте шаблоны в соответствии с вашими требованиями: создавайте таблицы, выполняйте вычисления, рисуете диаграммы, вставляйте изображения, работая эффективно и без проблем. Все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24EFA918DF1FE7120752D880410B5F9D908C24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188627   (273155) от 03.12.2017
 
 Complete Anatomy 2018 + Courses 3.2.0 [En]
@@ -6,7 +138,7 @@ Complete Anatomy 2018 + Courses 3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273155.jpg" />
+  <img src="Z:/picture/008/save_picture_273155.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ SILKYPIX Developer Studio 8E v8.1.27.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273038.jpg" />
+  <img src="Z:/picture/008/save_picture_273038.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ AMS Ringtone Maker 2.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272973.jpg" />
+  <img src="Z:/picture/008/save_picture_272973.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ Boardfish 1.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272486.jpg" />
+  <img src="Z:/picture/008/save_picture_272486.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ NightTone (Night light filter) 2.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272224.jpg" />
+  <img src="Z:/picture/008/save_picture_272224.jpg" />
 </div>
 
 
@@ -138,7 +270,7 @@ Weather Guru 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272217.jpg" />
+  <img src="Z:/picture/008/save_picture_272217.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ Dropzone 3 v3.6.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272213.jpg" />
+  <img src="Z:/picture/008/save_picture_272213.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ Vectoraster 7 v7.4.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271648.jpg" />
+  <img src="Z:/picture/008/save_picture_271648.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ SketchUp Pro 2019 v19.3.252 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271178.jpg" />
+  <img src="Z:/picture/008/save_picture_271178.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271024.jpg" />
+  <img src="Z:/picture/008/save_picture_271024.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ Tower 2.6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271022.jpg" />
+  <img src="Z:/picture/008/save_picture_271022.jpg" />
 </div>
 
 
@@ -298,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_270118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270118.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ DriveDx 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269184.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ AnyTrans for iOS 7.0.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269152.jpg" />
 </div>
 
 
@@ -378,7 +510,7 @@ HD Video Converter Movavi 6.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269096.jpg" />
 </div>
 
 
@@ -404,7 +536,7 @@ Mirror for Samsung TV 2.1.7 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268645.jpg" />
 </div>
 
 
@@ -433,7 +565,7 @@ Principle 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268256.jpg" />
+  <img src="Z:/picture/008/save_picture_268256.jpg" />
 </div>
 
 
@@ -460,7 +592,7 @@ SoftRAID 5.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268135.jpg" />
+  <img src="Z:/picture/008/save_picture_268135.jpg" />
 </div>
 
 
@@ -489,7 +621,7 @@ PhotoStyler 5.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267835.jpg" />
+  <img src="Z:/picture/008/save_picture_267835.jpg" />
 </div>
 
 
@@ -515,7 +647,7 @@ Micro Snitch 1.3.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267276.jpg" />
+  <img src="Z:/picture/008/save_picture_267276.jpg" />
 </div>
 
 
@@ -543,7 +675,7 @@ Antivirus Cyber Byte Pro 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267127.jpg" />
+  <img src="Z:/picture/008/save_picture_267127.jpg" />
 </div>
 
 
@@ -555,142 +687,6 @@ Mac, как правило, считается безопасным и наде�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F78ADDF539BAE1538F1D5FBAEF93A920AE243089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339274   (267054) от 18.11.2019
-
-TunesKit Audio Converter 3.2.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это полнофункциональный инструмент для преобразования звука, который позволяет конвертировать все виды аудиофайлов, включая защищенную и незащищенную музыку FairPlay DRM, аудиокниги в MP3, M4A, AAC, FLAC, WAV, M4B для прослушивания на всех устройствах.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F61390898BE3C13C0BF46D27ACE436A8E4AF266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190805   (266920) от 10.12.2017
-
-Liquid | Flow Pro 15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquid один из самых быстрых и мощных способов использовать Ваш Mac.
-Liquid - интегрированные shortcuts для обычных ежедневных задач.
-Когда вы используете Liquid, команды становятся такими быстрыми, что вы начнете пролетать через вашу информацию - вы будете работать со скоростью мысли, а не со скоростью охоты за иконками. Посмотрите на неофициальном сайте, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 декабря 2017Разработчик: Frode HeglandПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1528E9960BB4C5FB9845E6D5F9A73FCB420B1610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186964   (265687) от 11.12.2017
-
-TunesKit Apple Music Converter 2.0.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265687.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit Apple Music Converter - программное обеспечение позволяющее удалять DRM защиту для Apple Music. Программа позволяет разблокировать шифрование DRM Apple Music, и конвертировать защищенные Apple Music M4P в незащищенные форматы, такие как: MP3, AAC, WAV, FLAC, M4A, или M4B с сохранением ID тегов.
-
-Программа преобразует Apple Music файлы на высокой скорости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DE9BC52459160A7D4187C13E1FC1FAD2934B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339735   (265369) от 20.11.2019
-
-Cookie 6.0.6 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C838E3E602F0671B8BA56DA84CB8C23D3A18513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339507   (265367) от 20.11.2019
-
-Declutter 2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Declutter является решением проблемы, с которой сталкивается каждый пользователь Mac - беспорядок на рабочем столе. Declutter позволяет создавать интеллектуальные папки с помощью правил, основанных на именах файлов и расширениях, так что Программа может автоматически перемещать файлы в соответствующие папки на рабочем столе и сохранять рабочий стол всегда чистым.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2018Разработчик: George Sargunaraj CПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FF991F9B2531BB48E08E92958464C187B328D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

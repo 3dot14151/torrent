@@ -1,3 +1,84 @@
+###  Публикация: 182542   (898517) от 14.03.2010
+
+Лига Справедливости: Кризис двух Миров / Justice League: Crisis on Two Earths (2010) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый полнометражный мультфильм ДиСи. В нём пойдёт речь о противостоянии Лиги Справедливости с Преступным Синдикатом-параллельной версии Лиги Справедливости, которые захвотили власть на своей Земле.
+Лекс Лутор, который явился из параллельного мира, чтобы нанять Лигу Справедливости для борьбы с Криминальным Синдикатом.
+
+Противостояние добра и зла приводит обе Земли (   Читать дальше...   )Производство: СШАЖанр: мультфильм, фантастика, боевик, фэнтезиРежиссер: Сэм Лью, Лоурен Монтгомери (Sam Liu, Lauren Montgomery)Персонажи: Марк Хэрмон, Джеймс Вудс, Крис Нот, Уильям Болдуин, Джина Торрес, Роберт Инглунд, Кевин Майкл Ричардсон, Брюс Дэвисон, Джошуа Китон, Чарльз АдлерПеревод: Любительский (многоголосый, закадровый)Продолжительность: 01:15:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637859   (897739) от 01.04.2013
+
+Побег с планеты Земля / Escape from Planet Earth (2013) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897739.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Жанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Каллэн БрункерПерсонажи: Джессика Альба, Брендан Фрейзер, Сара Джессика Паркер, Джейн Линч, Кэйтлин Олсен, Джеймс Гандольфини, Роб Кордри, Пол Рубенс, Крэйг Робинсон, Джошуа Раш, Грегг Бинкли, Джонатан Морган Хейт, Люси Девенпорт, Ник БарнсПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9ABDC2CEA316DADFEC2C1E4245B77A2FE3A8C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761430   (897479) от 27.02.2014
+
+Лего. Фильм / The Lego Movie (2014) CamRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычная лего-фигурка, ошибочно считающая себя фигуркой из элитного набора, соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / LEGO, Lin Pictures, Animal Logic, Warner Bros. PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Фил Лорд, Кристофер МиллерАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Элисон Бри, Дэвид Берроуз, Энтони Дэниелс, Чарли ДэйПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E30FDAA7060CEA08A7B1DA137093230A3BB013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100806   (897177) от 05.02.2017
 
 Барби и её сестры в погоне за щенками / Barbie & Her Sisters in a Puppy Chase (2016) HDRip
@@ -6,7 +87,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897177.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897083.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896948.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895020.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894572.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893795.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893515.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893466.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892047.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891993.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890159.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889053.jpg" />
+  <img src="Z:/picture/005/save_picture_889053.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_888568.jpg" />
+  <img src="Z:/picture/009/save_picture_888568.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888422.jpg" />
+  <img src="Z:/picture/005/save_picture_888422.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888374.jpg" />
+  <img src="Z:/picture/005/save_picture_888374.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888359.jpg" />
+  <img src="Z:/picture/005/save_picture_888359.jpg" />
 </div>
 
 
@@ -427,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888332.jpg" />
+  <img src="Z:/picture/005/save_picture_888332.jpg" />
 </div>
 
 
@@ -453,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887527.jpg" />
+  <img src="Z:/picture/005/save_picture_887527.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ LEGO Супергерои DC: Лига Справедливости – Косм
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887508.jpg" />
+  <img src="Z:/picture/005/save_picture_887508.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887493.jpg" />
+  <img src="Z:/picture/005/save_picture_887493.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887473.jpg" />
+  <img src="Z:/picture/005/save_picture_887473.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887448.jpg" />
+  <img src="Z:/picture/005/save_picture_887448.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886678.jpg" />
+  <img src="Z:/picture/005/save_picture_886678.jpg" />
 </div>
 
 
@@ -596,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BC5A3031CF7C1A6924C58F4886853AB47EE044A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372195   (886668) от 02.04.2020
-
-Семейка Аддамс / The Addams Family (2019) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папа любит долгие прогулки в ненастную погоду. Мама считает, что черный цвет самый яркий. У детей кладбище — любимая площадка для игр. Бабушка выпивает пару капель яда перед сном. Вы все еще думаете, что ваши родственники странные? Знакомьтесь — семейка Аддамс.Производство: Канада, США / Metro-Goldwyn-Mayer (MGM), Universal Pictures, Bron StudiosЖанр: Мультфильм, ужасы, фэнтези, комедия, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BC71790D85BA1D3522D5568E02DB524E08DE11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372168   (886665) от 02.04.2020
-
-Эверест / Abominable (2019) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: США, Китай / Universal Pictures, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017324C628035C64C08486FB25AA4B0B2AC81C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372179   (886649) от 02.04.2020
-
-Эверест / Abominable (2019) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный науке мохнатый зверь сбегает из лаборатории, оказывается посреди шумного мегаполиса и в панике прячется на крыше одного из домов. Вскоре там его обнаруживает школьница Лу и, поняв, что находка хоть и дикая, но вполне симпатичная и, скорее всего, волшебная, решает во чтобы то ни стало помочь животному спастись от злых учёных и вернуться домой в горы. За (   Читать дальше...   )Производство: США, Китай / Universal Pictures, DreamWorks Animation, Pearl StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джилл Калтон, Тодд ВилдерманПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовскиеПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06EBB7443D3F8DDF742171B2C4C2E650C572F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

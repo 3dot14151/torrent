@@ -1,3 +1,110 @@
+###  Публикация: 1543728   (627890) от 12.04.2022
+
+Permute 3 v3.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEDC8FEB152B114C0F7D6E20879CFB86666BC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543724   (627740) от 12.04.2022
+
+Downie 4 v4.5 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4346EEF776567E9B4F748D0ABBD28F9E772D94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543677   (627726) от 12.04.2022
+
+Bookends 14.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bookends - мощное приложение, которое представляет собой полнофункциональную библиографическую, справочно-информационную систему для студентов и профессионалов. Доступ к данным приложения можно получить из программ: Mellel, Nisus Writer Pro, MS Word (включая MS Word 2011), а так же Apple Pages и OpenOffice.
+Bookends позволяет сканировать существующие файлы и автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2022Разработчик: © 2022 Sonny SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE90FFEF1836902B5345EB8BE63A9774EF794E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144640   (627606) от 22.06.2017
+
+AirFoil 5.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627606.jpg" />
+</div>
+
+
+###  Подробнее
+
+ AirFoil – специальная программа, позволяющая транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую воспроизводит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 мая 2017Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AB13E8FCF961EFADD1AC3EC5F7ACEA9E8DA728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144555   (627603) от 22.06.2017
 
 Beamer 3.3 [En]
@@ -6,7 +113,7 @@ Beamer 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627603.jpg" />
+  <img src="Z:/picture/008/save_picture_627603.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ Capture One Pro 12 v12.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627445.jpg" />
+  <img src="Z:/picture/008/save_picture_627445.jpg" />
 </div>
 
 
@@ -61,7 +168,7 @@ Audirvana Plus 3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627364.jpg" />
+  <img src="Z:/picture/008/save_picture_627364.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ FxFactory Pro 5.0.4 (4595) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627249.jpg" />
+  <img src="Z:/picture/008/save_picture_627249.jpg" />
 </div>
 
 
@@ -118,7 +225,7 @@ Red Giant Trapcode Suite 12.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627161.jpg" />
+  <img src="Z:/picture/008/save_picture_627161.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ Red Giant Magic Bullet Suite 12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627151.jpg" />
+  <img src="Z:/picture/008/save_picture_627151.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ Car Mechanic Simulator 2015 v. 1.0.4.7 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627048.jpg" />
+  <img src="Z:/picture/008/save_picture_627048.jpg" />
 </div>
 
 
@@ -196,7 +303,7 @@ Spy Cam 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626579.jpg" />
+  <img src="Z:/picture/008/save_picture_626579.jpg" />
 </div>
 
 
@@ -225,7 +332,7 @@ Integrity Pro 12.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626097.jpg" />
+  <img src="Z:/picture/008/save_picture_626097.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ Integrity Plus 12.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626096.jpg" />
+  <img src="Z:/picture/008/save_picture_626096.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ GarageSale 9.0b15 Beta U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626095.jpg" />
+  <img src="Z:/picture/008/save_picture_626095.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ Path Finder 2129 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626090.jpg" />
+  <img src="Z:/picture/008/save_picture_626090.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ Darkroom: Photo & Video Editor 6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626089.jpg" />
+  <img src="Z:/picture/008/save_picture_626089.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Infuse PRO 7 v7.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625956.jpg" />
+  <img src="Z:/picture/008/save_picture_625956.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ EditReady 22.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625954.jpg" />
+  <img src="Z:/picture/008/save_picture_625954.jpg" />
 </div>
 
 
@@ -411,7 +518,7 @@ PlistEdit Pro 1.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625919.jpg" />
+  <img src="Z:/picture/008/save_picture_625919.jpg" />
 </div>
 
 
@@ -438,7 +545,7 @@ PullTube 1.7.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625789.jpg" />
+  <img src="Z:/picture/008/save_picture_625789.jpg" />
 </div>
 
 
@@ -464,7 +571,7 @@ Pixelmator Pro 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625783.jpg" />
+  <img src="Z:/picture/008/save_picture_625783.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ WebVideoHunter 5.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625752.jpg" />
+  <img src="Z:/picture/008/save_picture_625752.jpg" />
 </div>
 
 
@@ -518,7 +625,7 @@ DxO ViewPoint 2.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625681.jpg" />
+  <img src="Z:/picture/008/save_picture_625681.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ MAMP & MAMP PRO 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625675.jpg" />
+  <img src="Z:/picture/008/save_picture_625675.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ Export for iTunes 3.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625662.jpg" />
+  <img src="Z:/picture/008/save_picture_625662.jpg" />
 </div>
 
 
@@ -582,113 +689,6 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3DCE41AC239857F366033EB7AC6D3FC239000C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294746   (625581) от 09.04.2019
-
-Adobe Audition CC 2019 v12.1.180 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdobeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730EEE62B254474173A349C70124C99593EDF56C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909791   (625561) от 18.06.2015
-
-DxO Optics Pro Elite 10.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625561.jpg" />
-</div>
-
-
-###  Подробнее
-
-DxO Optics Pro — один из лучших RAW конвертеров и редакторов изображений. Программа использует современные запатентованные технологии, с помощью которых можно отрегулировать яркость, контрастность, цветовой баланс, устранить искажения и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, отрегулировать баланс белого цвета с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2015Разработчик: DxO LabsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF76E75AF9F4D5FCC480341072A9F8EBC8E7D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909605   (625550) от 18.06.2015
-
-LRTimelapse Pro 4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625550.jpg" />
-</div>
-
-
-###  Подробнее
-
-LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
-
-Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C336EC6994BE1B9EA4D70227863E7BFAD0784000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543963   (625538) от 13.04.2022
-
-Rhinoceros 7 v7.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
-Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 1993-2022 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1606337BC686B78E3E178EC67B59AF567098559
 ```
 
 https://mybot314.ru/tekegram_catalog/

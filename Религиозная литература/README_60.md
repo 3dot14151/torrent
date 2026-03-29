@@ -1,3 +1,81 @@
+###  Публикация: 1234195   (572921) от 04.07.2018
+
+Преподобный Нил Синайский | «О восьми лукавых духах» и другие аскетические творения (2013) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Нил Синайский (Анкирский) († около 430) — ученик свт. Иоанна Златоуста и великий отец Синайской пустыни. В книге помещены его нравственно-аскетические произведения: «О восьми лукавых духах», «О том, что пребывающие в безмолвии в пустынях преимуществуют пред живущими в городах», «Увещание к монахам», «Мысли, которые человека отводят от тленного и прилепляют (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23388107F851ACCE43BF816983A84A9DE6DE7860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922055   (571792) от 27.07.2015
+
+М. И. Шахнович | Гойа против папства и инквизиции (1955) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571792.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге повествуется о борьбе великого испанского художника с папством и инквизицией. Разоблачаются буржуазные взгляды на его творчество. Раскрываются связи с народными движениями Испании. Книга иллюстрирована офортами и гравюрами Гойи на антиклерикальную тематику.Жанр: История, политология, религиоведение, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD3E183E8BDBDE68BDE2008FF0E750DAB43FFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043601   (571063) от 17.08.2016
+
+В. Россович | С крестом или с ножом (1947) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571063.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре освещается реакционная антинародная сущность униатской церкви на территории Западной Украины.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE56BF2906CC2CB32577A47798B3B36C3990073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234618   (569351) от 06.07.2018
 
 Оливье Клеман | Тэзе. От тревоги к доверию (2015) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569351.jpg" />
+  <img src="Z:/picture/008/save_picture_569351.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569336.jpg" />
+  <img src="Z:/picture/008/save_picture_569336.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569334.jpg" />
+  <img src="Z:/picture/008/save_picture_569334.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569314.jpg" />
+  <img src="Z:/picture/008/save_picture_569314.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569036.jpg" />
+  <img src="Z:/picture/008/save_picture_569036.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568685.jpg" />
+  <img src="Z:/picture/008/save_picture_568685.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568357.jpg" />
+  <img src="Z:/picture/008/save_picture_568357.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568352.jpg" />
+  <img src="Z:/picture/008/save_picture_568352.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567450.jpg" />
+  <img src="Z:/picture/008/save_picture_567450.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567360.jpg" />
+  <img src="Z:/picture/008/save_picture_567360.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566005.jpg" />
+  <img src="Z:/picture/008/save_picture_566005.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565715.jpg" />
+  <img src="Z:/picture/008/save_picture_565715.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565701.jpg" />
+  <img src="Z:/picture/008/save_picture_565701.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565683.jpg" />
+  <img src="Z:/picture/008/save_picture_565683.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565676.jpg" />
+  <img src="Z:/picture/008/save_picture_565676.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565669.jpg" />
+  <img src="Z:/picture/008/save_picture_565669.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565555.jpg" />
+  <img src="Z:/picture/008/save_picture_565555.jpg" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565550.jpg" />
+  <img src="Z:/picture/008/save_picture_565550.jpg" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564190.jpg" />
+  <img src="Z:/picture/008/save_picture_564190.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564097.jpg" />
+  <img src="Z:/picture/008/save_picture_564097.jpg" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563160.jpg" />
+  <img src="Z:/picture/008/save_picture_563160.jpg" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562266.jpg" />
+  <img src="Z:/picture/008/save_picture_562266.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562149.jpg" />
+  <img src="Z:/picture/008/save_picture_562149.jpg" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E6FC1D6B3C13CF43A85ECDACB380DC18A36A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304685   (562091) от 27.05.2019
-
-Старец Иосиф Ватопедский | Афонское свидетельство (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562091.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Афонское свидетельство» — одно из сочинений достоблаженного старца Иосифа Ватопедского об аскетическом делании, вынесенном из многолетнего ученичества у старца Иосифа Исихаста. Но само название этой книги, чрезвычайно символичное, распространяется и на все труды старца Иосифа. Ведь в них действительно заключено свидетельство о том сокровенном житии, которое совершается (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47319F9E0C39E660F6C46E6C7F636469BB5B5D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304719   (562089) от 27.05.2019
-
-Монахиня Евфросиния (сост.) | Краткие поучения христианам во спасение (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание вошли поучения святых отцов и подвижников благочестия христианам во спасение.
-
-«Для малоумных и малодушных вся жизнь, все радости — мир сей. А для сынов и дщерей Вышнего Иерусалима мир сей — темница. Обман, прельщение — вот его радости и сладости!»
-Преподобный Анатолий Старший Оптинский(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3923130232CB7C4BC672099F38595985DBB33FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235313   (560520) от 11.07.2018
-
-Митрополит Иоанн (Снычёв) | Стояние в Вере (2013) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560520.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русь Святая, храни веру Православную, в ней же тебе утверждение», - проповедовал недавний наш современник - великий православный мыслитель и богослов митрополит Ладожский и Санкт-Петербургский высокопреосвященнейший Иоанн (Снычёв), признанный лидер православно-патриотических сил России, автор выдающихся очерков русского самосознания «Самодержавие духа». Настоящая (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E23AC3EA5238705A8434364D50C1818D875A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

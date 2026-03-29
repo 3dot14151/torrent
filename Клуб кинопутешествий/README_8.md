@@ -1,3 +1,55 @@
+###  Публикация: 1102804   (888885) от 10.02.2017
+
+Орел и решка. Шопинг (2016) SATRip (cезон 5) (Полный сезон!!!)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA38DAFE71EBD3538EE430801BF80373F567622F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073738   (888576) от 10.02.2017
+
+Орел и решка. Кругосветка (2016) SATRip (сезон 12: Полный сезон!!!)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A8DABD0936C399D8D0A80641F9D348BD05BD2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494905   (885980) от 09.09.2021
 
 Жажда странствий / Extreme Treks: Sacred Mountains of China (2014) HDTV [H.264/1080i] (сезон 1, серии 1-4 из 4)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885980.jpg" />
+  <img src="Z:/picture/005/save_picture_885980.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885779.jpg" />
+  <img src="Z:/picture/005/save_picture_885779.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885571.jpg" />
+  <img src="Z:/picture/005/save_picture_885571.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884606.jpg" />
+  <img src="Z:/picture/005/save_picture_884606.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883212.jpg" />
+  <img src="Z:/picture/005/save_picture_883212.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883210.jpg" />
+  <img src="Z:/picture/005/save_picture_883210.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882408.jpg" />
+  <img src="Z:/picture/005/save_picture_882408.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882392.jpg" />
+  <img src="Z:/picture/005/save_picture_882392.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881055.jpg" />
+  <img src="Z:/picture/005/save_picture_881055.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880550.jpg" />
+  <img src="Z:/picture/005/save_picture_880550.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879291.jpg" />
+  <img src="Z:/picture/005/save_picture_879291.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878694.jpg" />
+  <img src="Z:/picture/005/save_picture_878694.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878585.jpg" />
+  <img src="Z:/picture/005/save_picture_878585.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ K2: Сирена Гималаев / K2: Siren of the Himalayas (2012) WEB-DL [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874200.jpg" />
+  <img src="Z:/picture/005/save_picture_874200.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873531.jpg" />
+  <img src="Z:/picture/008/save_picture_873531.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873530.jpg" />
+  <img src="Z:/picture/008/save_picture_873530.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873527.jpg" />
+  <img src="Z:/picture/008/save_picture_873527.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873046.jpg" />
+  <img src="Z:/picture/008/save_picture_873046.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872873.jpg" />
+  <img src="Z:/picture/008/save_picture_872873.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872172.jpg" />
+  <img src="Z:/picture/008/save_picture_872172.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872031.jpg" />
+  <img src="Z:/picture/008/save_picture_872031.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867983.jpg" />
+  <img src="Z:/picture/008/save_picture_867983.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867950.jpg" />
+  <img src="Z:/picture/008/save_picture_867950.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866614.jpg" />
+  <img src="Z:/picture/008/save_picture_866614.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C9FC7246D7DD8DF16CB9243CB66B1F00446057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497360   (866463) от 21.09.2021
-
-Бургундия, сердце Франции / Bourgogne, le coeur de France (2018) HDTVRip [H.264/720p-LQ] [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бургундия славится не только красотой пейзажей, но у уникальным, любовно сохраненным историческим наследием. Она сберегла для нас памятники европейской цивилизации Средних веков. Виноградники замков и монастырей издавна украшают эту землю. Бургундия - это прежде всего вино. Красота природы, изысканная кухня, жизнелюбие создают яркую гамму незабываемых ощущений.Производство: Франция, TV5MONDE Europe HDЖанр: Документальный, путешествияРежиссер: Эрик БакоПеревод: ОтсутствуетЯзык озвучки: французскийСубтитры: русские (неотключаемые, Hiventy)Продолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DCD8E0FA366CCC71F4C47E33CF11FACC77E893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497362   (866344) от 21.09.2021
-
-Дикие люди. Возвращение (Бен Фогл: Возвращение в дикую природу) (Новая Зеландия) / Ben Fogle: Return To The Wild (2020) HDTV [H.264/1080i] (сезон 2, серия 1)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск о семье из Британии поселившихся на северных островах в Новой ЗеландииПроизводство: Великобритания, Renegade Pictures, GroupM Entertainment, BBCЖанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D436A1C894106B952F351E2434B49A4D76F6809
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1401513   (709055) от 10.08.2020
+
+Звуковые библиотеки - Boom Library - Trains [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709055.jpg" />
+</div>
+
+
+###  Подробнее
+
+TRAINS библиотека предоставляет вам огромный выбор чистых высококачественных звуковых эффектов. Она включает звуки практически любого поезда и двигателя. Тяжелые грузовые поезда, старые и современные пассажирские поезда с электрическими, паровыми и дизельными двигателями. Записи были сделаны в разных местах, таких как кабина, вагоны, машинные отделения, кабины и (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13776EF5BBA7EBFA1F5A4872AC097B9CE46D885E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 793134   (703747) от 05.06.2014
 
 Boom Library - CREATURES [WAV]
@@ -6,7 +32,7 @@ Boom Library - CREATURES [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703747.jpg" />
+  <img src="Z:/picture/008/save_picture_703747.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Boom Library - GUNS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703745.jpg" />
+  <img src="Z:/picture/008/save_picture_703745.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NNM-Club Sound Cleaner Collection from STouR - Album 5-2020
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697448.jpg" />
+  <img src="Z:/picture/008/save_picture_697448.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695571.jpg" />
+  <img src="Z:/picture/008/save_picture_695571.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Boom Library - FLOWING WATER [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693846.jpg" />
+  <img src="Z:/picture/008/save_picture_693846.jpg" />
 </div>
 
 
@@ -130,6 +156,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794974   (693845) от 10.06.2014
+
+Boom Library - WINDS OF NATURE [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom Library - Winds Of Nature является второй библиотекой звуковых эффектов из нашей серии совершенно потрясающих записей природы. Winds Of Nature содержит 130 тщательно записанных звуков ветра охватывает полный диапазон интенсивности, от легкого ветра до шторма, записанных в натуральных условиях и обстановке. Эти записи отличаются от других звуковых библиотек, (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCFDC36A90C5E2D786C2C1CD95847D3F673825F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794970   (693843) от 10.06.2014
 
 Boom Library - BIRDS OF PREY [WAV]
@@ -138,7 +190,7 @@ Boom Library - BIRDS OF PREY [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693843.jpg" />
+  <img src="Z:/picture/008/save_picture_693843.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Boom Library - THE INTERFACE [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693832.jpg" />
+  <img src="Z:/picture/008/save_picture_693832.jpg" />
 </div>
 
 
@@ -186,6 +238,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795113   (691769) от 11.06.2014
+
+Boom Library - SCI-FI [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi: Construction Kit содержит более 550 высококлассных футуристических сэмплов. Разнообразные оружейные звуковые эффекты, движение воздушных судов,компьютеризированные и механизированные эффекты и многое другое.
+ Для обеспечения наиболее быстрого и простого процесса все файлы содержат метаданные.
+
+ SCI-FI Designed является отличным выбором для быстрого и профессионального (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4CEE365DB6823E182407DFE8CA8E4FCB3C8D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221677   (691120) от 26.04.2018
 
 Звуковые библиотеки -  Icons8 - UI Sounds / 1000 UI Звуковых эффектов [WAV, OGG, CAF]
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691120.jpg" />
+  <img src="Z:/picture/008/save_picture_691120.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ Boom Library - HISTORICAL FIREARMS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689636.jpg" />
+  <img src="Z:/picture/008/save_picture_689636.jpg" />
 </div>
 
 
@@ -248,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688029.jpg" />
+  <img src="Z:/picture/008/save_picture_688029.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ Boom Library - MEDIEVAL WEAPONS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677118.jpg" />
+  <img src="Z:/picture/008/save_picture_677118.jpg" />
 </div>
 
 
@@ -300,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662017.jpg" />
+  <img src="Z:/picture/008/save_picture_662017.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661071.jpg" />
+  <img src="Z:/picture/008/save_picture_661071.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659948.jpg" />
+  <img src="Z:/picture/008/save_picture_659948.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659946.jpg" />
+  <img src="Z:/picture/008/save_picture_659946.jpg" />
 </div>
 
 
@@ -406,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659525.jpg" />
+  <img src="Z:/picture/008/save_picture_659525.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652297.jpg" />
+  <img src="Z:/picture/008/save_picture_652297.jpg" />
 </div>
 
 
@@ -460,7 +541,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652090.jpg" />
+  <img src="Z:/picture/008/save_picture_652090.jpg" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648721.jpg" />
+  <img src="Z:/picture/008/save_picture_648721.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645153.jpg" />
+  <img src="Z:/picture/008/save_picture_645153.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ Prime Loops - High Voltage Solo Guitars[WAV][английский]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640594.jpg" />
+  <img src="Z:/picture/005/save_picture_640594.jpg" />
 </div>
 
 
@@ -571,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639364.jpg" />
+  <img src="Z:/picture/008/save_picture_639364.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634960.jpg" />
+  <img src="Z:/picture/008/save_picture_634960.jpg" />
 </div>
 
 
@@ -610,90 +691,6 @@ NNM-Club Sound Cleaner - Чистые музыкальные треки с Audio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53FE234CBD19FCFB4AEDA49736FD1060996F1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520551   (630455) от 09.07.2012
-
-Organic Loops - Frontline Producer: Studio Bass [Ableton Live|WAV|AIFF|REX/RMX|NN19 & NN-XT|Exs24][английский]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Organic Loops Frontline Producer: Studio Bass
-Frontline Producer: Studio Bass - коллекция сэмплов и лупов бас-гитары с темпом 130 - 175 BPM. Фантастически исполненные и записанные сэмплы, с вдохновляющими мелодиями, уан-шот-сэмплами и патчами, созданные для продюсеров House, Drum & Bass, Electro, Indie, Funk и композиторов ТВ/фильмов.Название программы: Organic Loops - Frontline Producer: Studio BassЯзык интерфейса: английскийФормат: Ableton Live, WAV, AIFF, REX/RMX, NN19 & NN-XT, Exs24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229503   (626164) от 06.06.2018
-
-Звуковые библиотеки - Loopmasters - Production Master - Neurosys [WAV, ADG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых больших пакетов сэмплов на сегодняшний день, предоставляющий огромный выбор инструментов, необходимых для создания нейро-музыки жанров D&B/Neurohop/Dubstep/Drumstep
-
-Пожалуйста, обратите внимание: вам потребуется Ableton Live, чтобы в полной мере использовать этот продуктФормат: WAV, ADG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93932F45F0AF4AC5A0B5F550D9B2C98ACD81B048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 59172   (616152) от 16.07.2012
-
-Sound Ideas The Series 6000 "The General" Sound Effect Library [MP3]
-
->>След.
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Ideas The Series 6000 "The General" Sound Effect Library
-Принято считать, что Sound Ideas Series 6000 General Sound Effects Library - одна из наибольших и лучших библиотек продакшн в мире
-Библиотека Sound Ideas Series 6000 представляет собой коллекцию звуковых эффектов, собранных в разных уголках света и записанных в цифровом формате.
-Коллекция содержит (   Читать дальше...   )Продолжительность: 50:00:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

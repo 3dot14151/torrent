@@ -1,3 +1,31 @@
+###  Публикация: 1162050   (461193) от 31.08.2017
+
+Лууле Виилма | Очищение организма на физическом и энергетическом уровнях (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опираясь на опыт врача-практика Л. Виилма не только раскрывает суть своего учения о самопомощи через принятие и прощение, но и показывает, как применять учение на практике.
+Чем больше стрессов у людей, тем больше они воспринимают все лично.
+Человек ищет виновных, находит, плачет от жалости к самому себе либо озлобляется, обнаружив виновных, однако все это не помогает. (   Читать дальше...   )Жанр: Здоровье, Дом и СемьяФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B22A6C22A0F4DBA41C7598F15B5F99A2EEE7461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161957   (461063) от 31.08.2017
 
 Геннадий Кибардин | Су-Джок лечит: мигрень, кашель, боль в спине, тяжесть в желудке (2016) [FB2, EPUB]
@@ -6,7 +34,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461063.jpg" />
+  <img src="Z:/picture/008/save_picture_461063.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459041.jpg" />
+  <img src="Z:/picture/008/save_picture_459041.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458965.jpg" />
+  <img src="Z:/picture/008/save_picture_458965.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458904.jpg" />
+  <img src="Z:/picture/008/save_picture_458904.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458888.jpg" />
+  <img src="Z:/picture/008/save_picture_458888.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457634.jpg" />
+  <img src="Z:/picture/008/save_picture_457634.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456883.jpg" />
+  <img src="Z:/picture/008/save_picture_456883.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455869.jpg" />
+  <img src="Z:/picture/008/save_picture_455869.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452261.jpg" />
+  <img src="Z:/picture/008/save_picture_452261.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451620.jpg" />
+  <img src="Z:/picture/008/save_picture_451620.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449907.jpg" />
+  <img src="Z:/picture/008/save_picture_449907.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449903.jpg" />
+  <img src="Z:/picture/008/save_picture_449903.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449598.jpg" />
+  <img src="Z:/picture/008/save_picture_449598.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447700.jpg" />
+  <img src="Z:/picture/008/save_picture_447700.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444745.jpg" />
+  <img src="Z:/picture/008/save_picture_444745.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442513.jpg" />
+  <img src="Z:/picture/008/save_picture_442513.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440366.jpg" />
+  <img src="Z:/picture/008/save_picture_440366.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438201.jpg" />
+  <img src="Z:/picture/008/save_picture_438201.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438070.jpg" />
+  <img src="Z:/picture/008/save_picture_438070.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433469.jpg" />
+  <img src="Z:/picture/008/save_picture_433469.jpg" />
 </div>
 
 
@@ -538,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430191.jpg" />
+  <img src="Z:/picture/008/save_picture_430191.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430189.jpg" />
+  <img src="Z:/picture/008/save_picture_430189.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429373.jpg" />
+  <img src="Z:/picture/008/save_picture_429373.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427242.jpg" />
+  <img src="Z:/picture/008/save_picture_427242.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426870.jpg" />
+  <img src="Z:/picture/008/save_picture_426870.jpg" />
 </div>
 
 
@@ -656,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7C0077B00D73B022CB817CA616BBBD21BCB553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411798   (425075) от 26.09.2020
-
-Тим Спектор | Мифы о диетах. Наука о том, что мы едим (2020) [EPUB]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вопросы, связанные с питанием и диетами, интересуют очень многих. Однако чем сильнее мы будем углубляться в тему, тем скорее увидим, что на вопросы «почему мы набираем вес?» и «какие продукты нужно есть, чтобы не поправиться?» нельзя ответить абсолютно однозначно. Тим Спектор показывает, что многие кажущиеся незыблемыми постулаты на самом деле заблуждения, что потенциальный (   Читать дальше...   )Жанр: Здоровье, Здоровое и правильное питаниеПеревод: Ольга ПоборцеваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0959ED67CFB8181ABCF758D2AE3C4136886797E
 ```
 
 https://mybot314.ru/tekegram_catalog/

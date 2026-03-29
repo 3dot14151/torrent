@@ -6,7 +6,7 @@ ImageUSB 1.5.1001 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856566.jpg" />
+  <img src="Z:/picture/008/save_picture_856566.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CyberLink PhotoDirector Ultra 11.0.2516.0 (unofficial pack) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856467.jpg" />
+  <img src="Z:/picture/008/save_picture_856467.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF-XChange Editor Plus 8.0.337.0 Portable + RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856465.jpg" />
+  <img src="Z:/picture/008/save_picture_856465.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Internet Download Manager 6.37 Build 10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856454.jpg" />
+  <img src="Z:/picture/008/save_picture_856454.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Altium Designer 20.0.14 build 345 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856346.jpg" />
+  <img src="Z:/picture/008/save_picture_856346.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ foobar2000 1.4.5 DarkOne + DUIFoon Portable by MC Web (19.04.2020) [Ru/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856335.jpg" />
+  <img src="Z:/picture/008/save_picture_856335.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ HDCleaner 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856052.jpg" />
+  <img src="Z:/picture/008/save_picture_856052.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Opera 79.0.4143.66 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856050.jpg" />
+  <img src="Z:/picture/008/save_picture_856050.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ ScreenToGif 2.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856043.jpg" />
+  <img src="Z:/picture/008/save_picture_856043.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Comodo Dragon 92.0.4515.159 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856038.jpg" />
+  <img src="Z:/picture/008/save_picture_856038.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Notepad++ 8.1.5 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855903.jpg" />
+  <img src="Z:/picture/008/save_picture_855903.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Video Thumbnails Maker Platinum 15.3.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855901.jpg" />
+  <img src="Z:/picture/008/save_picture_855901.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Adobe Acrobat Pro DC 2021.007.20091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855795.jpg" />
+  <img src="Z:/picture/008/save_picture_855795.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ SiSoftware Sandra Lite 2021.10.31.40 (R6 31.40) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855793.jpg" />
+  <img src="Z:/picture/008/save_picture_855793.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Windows Repair Toolbox 3.0.3.4 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855709.jpg" />
+  <img src="Z:/picture/008/save_picture_855709.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Stellarium 0.14.78.1 Test [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855635.jpg" />
+  <img src="Z:/picture/008/save_picture_855635.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Citrio 48.0.2564.269 (5730.1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855632.jpg" />
+  <img src="Z:/picture/008/save_picture_855632.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Slimjet 13.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855610.jpg" />
+  <img src="Z:/picture/008/save_picture_855610.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.0 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855580.jpg" />
+  <img src="Z:/picture/008/save_picture_855580.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Stellarium 0.14.3 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855547.jpg" />
+  <img src="Z:/picture/008/save_picture_855547.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ MEGA Sync Client 2.8.0 (c5b19) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855536.jpg" />
+  <img src="Z:/picture/008/save_picture_855536.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft OneDrive 17.3.6302.0225 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855529.jpg" />
+  <img src="Z:/picture/008/save_picture_855529.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Stellarium 0.14.3 classic Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855465.jpg" />
+  <img src="Z:/picture/008/save_picture_855465.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ AdwCleaner 5.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855461.jpg" />
+  <img src="Z:/picture/008/save_picture_855461.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Junkware Removal Tool 8.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855453.jpg" />
+  <img src="Z:/picture/008/save_picture_855453.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Advanced Renamer 3.72 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855422.jpg" />
+  <img src="Z:/picture/008/save_picture_855422.jpg" />
 </div>
 
 

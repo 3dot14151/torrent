@@ -6,7 +6,7 @@ GridinSoft Anti-Malware 3.0.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759028.jpg" />
+  <img src="Z:/picture/008/save_picture_759028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759019.jpg" />
+  <img src="Z:/picture/008/save_picture_759019.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zoner Photo Studio Professional 17 Build 9 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758985.jpg" />
+  <img src="Z:/picture/008/save_picture_758985.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YouTube Video Downloader PRO 4.8.9 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758977.jpg" />
+  <img src="Z:/picture/008/save_picture_758977.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VSO ConvertXToDVD 6.0.0.38 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758965.jpg" />
+  <img src="Z:/picture/008/save_picture_758965.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows 10 Manager 1.1.3 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758961.jpg" />
+  <img src="Z:/picture/008/save_picture_758961.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WinUtilities Professional Edition 11.36 RePack by Loginvovchyk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758925.jpg" />
+  <img src="Z:/picture/008/save_picture_758925.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Anvir Task Manager Pro 8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758908.jpg" />
+  <img src="Z:/picture/008/save_picture_758908.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Inno Setup Compiler 5.5.9 (a) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758901.jpg" />
+  <img src="Z:/picture/008/save_picture_758901.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VKMusic 4.63 RePack (& Portable) by Trovel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758875.jpg" />
+  <img src="Z:/picture/008/save_picture_758875.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wondershare Video Converter Ultimate 8.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758859.jpg" />
+  <img src="Z:/picture/008/save_picture_758859.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Auslogics Disk Defrag Pro 4.6.0.0 DC 07.04.2015 RePack (& Portable) by D!akov [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758856.jpg" />
+  <img src="Z:/picture/008/save_picture_758856.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BurnAware Professional 13.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758837.jpg" />
+  <img src="Z:/picture/008/save_picture_758837.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Skype 8.62.0.83 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758836.jpg" />
+  <img src="Z:/picture/008/save_picture_758836.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4823.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758827.jpg" />
+  <img src="Z:/picture/008/save_picture_758827.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Notepad++ 6.9.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758821.jpg" />
+  <img src="Z:/picture/008/save_picture_758821.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ AIMP 4.70 Build 2221 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758754.jpg" />
+  <img src="Z:/picture/008/save_picture_758754.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Athentech Perfectly Clear Complete 3.10.0.1803 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758750.jpg" />
+  <img src="Z:/picture/008/save_picture_758750.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ FBackup 8.7.331 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758749.jpg" />
+  <img src="Z:/picture/008/save_picture_758749.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Opera 69.0.3686.57 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758743.jpg" />
+  <img src="Z:/picture/008/save_picture_758743.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Microsoft Edge 83.0.478.61 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758741.jpg" />
+  <img src="Z:/picture/008/save_picture_758741.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Mp3tag 2.93 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758725.jpg" />
+  <img src="Z:/picture/008/save_picture_758725.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ ApowerREC 1.3.4.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758722.jpg" />
+  <img src="Z:/picture/008/save_picture_758722.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SolveigMM Video Splitter 5.2.1603.29 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758717.jpg" />
+  <img src="Z:/picture/008/save_picture_758717.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ ESET Smart Security 9.0.381.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758715.jpg" />
+  <img src="Z:/picture/008/save_picture_758715.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ ESET NOD32 Antivirus 9.0.381.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758708.jpg" />
+  <img src="Z:/picture/008/save_picture_758708.jpg" />
 </div>
 
 

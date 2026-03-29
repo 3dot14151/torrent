@@ -1,3 +1,81 @@
+###  Публикация: 1621908   (239650) от 26.03.2023
+
+MotoGP. Этап 01. Гран-при Португалии. Гонка (26.03.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239650.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2023, воскресенье. 15:45 МСК. Этап 1, Портимау. Гран-при Португалии. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F323500755E28DC4B1FF458651EA821E8A700A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574413   (239280) от 04.09.2022
+
+MotoGP. Этап 14. Гран-при Сан-Марино. Квалификация (03.09.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239280.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 сентября 2022, суббота. 15:10 МСК, Этап 14, Мизано-Адриатико, Италия. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A9A34766DB78525DB675B9F00650E57EC92B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623887   (238331) от 03.04.2023
+
+MotoGP. Этап 02. Гран-при Аргентины. Гонка (02.04.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238331.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 апреля 2023, воскресенье. 19:55 МСК. Этап 2, Термас де Рио Ондо. Гран-при Аргентины. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC951743F3BBDF84B8DF0D9090EB1FEF0B33BBAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626762   (237600) от 15.04.2023
 
 MotoGP. Этап 03. Гран-при США. Квалификация (15.04.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ MotoGP. Этап 03. Гран-при США. Квалификация (15.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237600.jpg" />
+  <img src="Z:/picture/004/save_picture_237600.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MotoGP. Этап 06. Гран-при Италии. Гонка (11.06.2023) WEBRi
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237173.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 07. Гран-при Германии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236435.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 07. Гран-при Германии. Спринт (17.06.2023)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236252.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 07. Гран-при Германии. Гонка (18.06.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236190.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235838.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235789.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 01. Гран-При Катара. Квалификация. (27
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235750.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235736.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235720.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ MotoGP. Этап 08. Гран-при Нидерландов. Гонка (25.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235158.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ MotoGP. Этап 05. Гран-при Франции. Гонка (14.05.2023) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234579.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ MotoGP. Этап 02. Гран-при Аргентины. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233841.jpg" />
+  <img src="Z:/picture/005/save_picture_233841.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ MotoGP. Этап 08. Гран-при Нидерландов. Спринт (24.06
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233447.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ MotoGP. Этап 15. Гран-при Арагона. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233238.jpg" />
+  <img src="Z:/picture/005/save_picture_233238.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230649.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229340.jpg" />
+  <img src="Z:/picture/004/save_picture_229340.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229291.jpg" />
+  <img src="Z:/picture/004/save_picture_229291.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ MotoGP. Этап 13. Гран-При Валенсии. Гонка. (15.11.2020) 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229212.jpg" />
+  <img src="Z:/picture/004/save_picture_229212.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ MotoGP. Чемпионат мира по шоссейно-кольцевым м�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229067.jpg" />
+  <img src="Z:/picture/004/save_picture_229067.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ MotoGP. Этап 18. Гран-при Австралии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228848.jpg" />
+  <img src="Z:/picture/004/save_picture_228848.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ WRC. Чемпионат мира по ралли. Обзоры / World Rally Cha
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228109.jpg" />
+  <img src="Z:/picture/005/save_picture_228109.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ MotoGP. Этап 18. Гран-при Австралии. Гонка (16.10.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227892.jpg" />
+  <img src="Z:/picture/005/save_picture_227892.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ MotoGP. Этап 18. Гран-при Австралии. Гонка (16.10.2022)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09EE866480E3D53F21384F4028039B0F6F564A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584139   (226302) от 17.10.2022
-
-RDS GP 21 - Шинная борьба (2022) WEB-DL [H.264/1080p] (серии 1-7 из 7)
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм «Шинная борьба» – это хроники соревнований 12-го сезона RDS GP, ставшего одним из самых мощных и сильных в мировом дрифте. Зрителю открывается вся «внутренняя кухня» чемпионата, сложности на заездах, драматизм переживаний участников и выступления лучших дрифт-гонщиков планеты.Производство: Россия, 29 ProductionЖанр: документальный, спорт, экстримПродолжительность: серии по ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95646FD0A7185D7A245BB76517ABE6915C6A2335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425009   (224307) от 19.11.2020
-
-Бразильская автоспортивная серия гоночных грузовиков. Сезон 2020. Этап 3. Каскавел. Гонка 1-2 / Copa Truck-2020 (ex- Formula Truck). Cascavel/PR (04.10.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Copa Truck — бразильская автоспортивная серия гоночных грузовиков, до 2017 года она называлась Formula Truck.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 50:11 + 52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665D4BC5A4B20DD782B8C3F9D1BCAA472AE2C205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651214   (223370) от 05.08.2023
-
-MotoGP. Этап 09. Гран-при Великобритании. Квалификация (05.08.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223370.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 августа 2023, суббота. 12:50 МСК. Этап 9 Сильверстоун. Гран-при Великобритании. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6245E99E5AFEFEDC4F5270AD0CF1FDFE65CC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1275147   (791066) от 10.01.2019
+
+Шрифты - Creative Market - Shrewdy Script | Version 1.0 - 536374 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы ищете кисть ручной работы со смелыми, но стильными символами, Shrewdy для вас! Он включает в себя основные знаки препинания, цифры, римский и кириллический шрифт и специальные глифы, поэтому шрифт можно использовать с большинством европейских языков.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193DA934D4BB56C57DA667991558D26F5A6D0878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275088   (791045) от 10.01.2019
+
+Шрифты - Creative Market - Bubble Kids - 597557 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bubble Kids - Забавный улыбающийся шрифт, включает простые и выделенные буквы и юмористический стиль, чтобы направлять водяные пузыри в письме, типографская форма, вдохновленная стилем брызг воды.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275143   (791044) от 10.01.2019
+
+Шрифты - Creative Market - Gora – full pack - 781102 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gora - Многоязычный симпатичный, оригинальный шрифт с засечками в 5 видах: обычный, жирный, обычный трафаретный, трафаретный полужирный и грубый. Так же включает в себя множество функций: лигатуры, дроби, цифры, нижние и верхние индексы, стрелки и символы валют. Отличный выбор для заголовков и небольших объемов текста, логотипов и иллюстраций, этикеток и упаковки.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB286F04766C38B6F25CD7F6ED73DDEDA150B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275144   (791043) от 10.01.2019
+
+Шрифты - Creative Market - Laqonic 4F Unicase (Family) - 526666 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laqonic 4F Unicase - Простой и в тоже время интересный лаконический шрифт для Ваших будущих надписей.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275145   (791042) от 10.01.2019
 
 Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
@@ -6,7 +110,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
+  <img src="Z:/picture/008/save_picture_791042.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791038.jpg" />
+  <img src="Z:/picture/008/save_picture_791038.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789788.jpg" />
+  <img src="Z:/picture/008/save_picture_789788.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789784.jpg" />
+  <img src="Z:/picture/008/save_picture_789784.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789754.jpg" />
+  <img src="Z:/picture/008/save_picture_789754.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789751.jpg" />
+  <img src="Z:/picture/008/save_picture_789751.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789380.jpg" />
+  <img src="Z:/picture/008/save_picture_789380.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789337.jpg" />
+  <img src="Z:/picture/008/save_picture_789337.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789335.jpg" />
+  <img src="Z:/picture/008/save_picture_789335.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789331.jpg" />
+  <img src="Z:/picture/008/save_picture_789331.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789326.jpg" />
+  <img src="Z:/picture/008/save_picture_789326.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789254.jpg" />
+  <img src="Z:/picture/008/save_picture_789254.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789227.jpg" />
+  <img src="Z:/picture/008/save_picture_789227.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788537.jpg" />
+  <img src="Z:/picture/008/save_picture_788537.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788510.jpg" />
+  <img src="Z:/picture/008/save_picture_788510.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788503.jpg" />
+  <img src="Z:/picture/008/save_picture_788503.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788502.jpg" />
+  <img src="Z:/picture/008/save_picture_788502.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784952.jpg" />
+  <img src="Z:/picture/008/save_picture_784952.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784951.jpg" />
+  <img src="Z:/picture/008/save_picture_784951.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784943.jpg" />
+  <img src="Z:/picture/008/save_picture_784943.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784924.jpg" />
+  <img src="Z:/picture/008/save_picture_784924.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780053.jpg" />
+  <img src="Z:/picture/008/save_picture_780053.jpg" />
 </div>
 
 
@@ -566,116 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDE81A172C7546D2687E91FADFC7608A880F430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277598   (775645) от 21.01.2019
-
-Шрифты - Creative Market - Ze Typeface + Extras - 329890 [TTF, OTF, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ze Typeface - небольшое уютное семейство шрифтов, включающий 4 уникальных шрифта. Этот рукописный шрифт хорошо подходит для создания многих типов дизайнов. На изображениях ниже вы сможете получить представление о возможностях этого шрифта.Формат: TTF, OTF, AI, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B2D700CF39FD4AED9D987CA7ED313D684DCEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277597   (775638) от 21.01.2019
-
-Шрифты - Creative Market - Script Calm + 100 Elements + Bonus - 299597 [TTF, OTF, AI, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Script Calm Family - стильный игривый шрифт семейства, который предлагает множество развлечений. Существует 6 подходящих шрифтов, которые отлично работают вместе и позволят вам предложить огромный выбор ваших дизайнов. Буквы очень легко читаются, поэтому этот шрифт подходит как для цифровых, так и для печатных изданий.Формат: TTF, OTF, AI, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480EA6C03DD37193DEEE0B91BE81337C193E155E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125515   (767763) от 15.04.2017
-
-Шрифты - Bobz Type [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество / Штук: 2
-Разработчик: Mohammad Fariz Ikhsan
-
-Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FF2B4B2DD004BFF0741AC3C4FE53FD28E90537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106209   (759450) от 25.03.2018
-
-Шрифты NNM-Club - Astakhov First One Stripe - 1106209 [OTF, TTF, EOT, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное семейство шрифтов (в т.ч. OFL)
-Количество / Штук: 6
-Разработчик: D. Astakhov
-(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C5641974C318B3D383CD2757D68FD035C2BEC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

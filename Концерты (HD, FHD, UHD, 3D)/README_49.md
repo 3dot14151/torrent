@@ -1,3 +1,90 @@
+###  Публикация: 1792698   (20857) от 20.04.2025
+
+Квартирник у Маргулиса. Бонд с кнопкой (19.04.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультиинструментальная группа «Бонд с кнопкой» была образована в 2017 году, а их дебютный альбом «Путешествие» вышел осенью 2023-го. Их творчество отличается особой лирикой, аутентичным вокалом, а также диапазоном аранжировок, в которых гитара и клавиши сочетаются с виолончелью, скрипкой и саксофоном. «Бонд с кнопкой» — одна из главных инди-сенсаций последнего времени: (   Читать дальше...   )00:00:06 Плач
+00:04:47 Даль
+00:08:42 Камушки
+00:15:04 Кухни(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-фолкЯзык: РусскийПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793993   (20066) от 27.04.2025
+
+Квартирник у Маргулиса. Слот (26.04.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «СЛОТ» была основана в 2002 году и с тех пор прочно закрепила за собой звание одной из самых популярных альтернативных команд страны. Их первый же тур захватил более 40 городов. Музыканты и сейчас славятся продолжительными гастролями и могут давать концерты больше года подряд.00:00:05  С.М.Г.О.
+00:07:18  Мертвые звезды
+00:15:01  Одни
+00:20:33  Ангел или демон(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок, рэп, металЯзык: РусскийПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF2078BE66A7BE09BE6FA51451958D9694A355C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796521   (18706) от 10.05.2025
+
+Квартирник у Маргулиса. 80 лет Победе в Великой Отечественной войне (10.05.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18706.jpg" />
+</div>
+
+
+###  Подробнее
+
+На НТВ — специальный выпуск «Квартирника НТВ у Маргулиса», посвященный юбилею Победы в Великой Отечественной войне. В этот вечер со сцены прозвучала композиция «Минута молчания», ставшая саундтреком фильма «В списках не значился». А в гости к Евгению Маргулису пришли народные артисты России Владимир Машков и Николай Расторгуев, а также сенатор РФ и ветеран группы (   Читать дальше...   )00:00:05  «Минута молчания»
+00:04:54  «Солдат»
+00:14:40  «Бери шинель»
+00:18:26  «Смуглянка»(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: ПопЯзык: РусскийПродолжительность: 01:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78770089F8346B587DA5D05C7E546CA188684D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794000   (18093) от 16.05.2025
 
 Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
@@ -6,7 +93,7 @@ Scooter - Live in Moscow (2000) VHSRip [H.264/1080p-LQ] [hand made upscale AI]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18093.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Scooter - Live at Rock Am Ring festival (2022) WEB-DL [H.265/2160p] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18087.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17974.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17785.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17378.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16970.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16071.jpg" />
 </div>
 
 
@@ -203,7 +290,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15963.jpg" />
 </div>
 
 
@@ -233,7 +320,7 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15947.jpg" />
 </div>
 
 
@@ -262,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15833.jpg" />
 </div>
 
 
@@ -289,7 +376,7 @@ Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15233.jpg" />
 </div>
 
 
@@ -316,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14420.jpg" />
 </div>
 
 
@@ -345,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14186.jpg" />
 </div>
 
 
@@ -372,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13780.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13677.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13070.jpg" />
 </div>
 
 
@@ -457,7 +544,7 @@ Scooter - Live at Parookaville festival (2024) IPTVRip [H.265/2160p] [hand made 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11936.jpg" />
 </div>
 
 
@@ -486,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11535.jpg" />
 </div>
 
 
@@ -514,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10915.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10579.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10433.jpg" />
 </div>
 
 
@@ -593,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10276.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7796.jpg" />
 </div>
 
 
@@ -633,84 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812549   (7759) от 15.08.2025
-
-Роджер Уотерс - Это не учения - Концерт в Праге / Roger Waters: This Is Not a Drill - Live from Prague (2025) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812728   (7516) от 16.08.2025
-
-Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812940   (7322) от 17.08.2025
-
-Кино. Последний концерт в Лужниках (1990) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний концерт группы «Кино», который прошел на Большой спортивной арене Лужников 24 июня 1990 года, незадолго до трагической гибели Виктора Цоя. Во время шоу, на котором присутствовали 70 тысяч зрителей, зажгли Олимпийский огонь Игр-1980, а по окончании 45-минутного выступления группы «Кино» прогремел салют.Телекомпания: Россия | Первый каналЖанр: РокУчастники: Виктор Цой (вокал, гитара), Юрий Каспарян (соло-гитара), Георгий Гурьянов (драм-машина, ударные) и Игорь Тихомиров (бас-гитара)Продолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
 ```
 
 https://mybot314.ru/tekegram_catalog/

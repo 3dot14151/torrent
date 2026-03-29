@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2019.010.20069 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792001.jpg" />
+  <img src="Z:/picture/008/save_picture_792001.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AdminPE 4.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791999.jpg" />
+  <img src="Z:/picture/008/save_picture_791999.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Daum PotPlayer 1.7.7150 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791979.jpg" />
+  <img src="Z:/picture/008/save_picture_791979.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MKVToolNix 63.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791967.jpg" />
+  <img src="Z:/picture/008/save_picture_791967.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TweakPower 2.003 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791966.jpg" />
+  <img src="Z:/picture/008/save_picture_791966.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.17 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791957.jpg" />
+  <img src="Z:/picture/008/save_picture_791957.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ESET Internet Security 11.0.159.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791942.jpg" />
+  <img src="Z:/picture/008/save_picture_791942.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Tor Browser Bundle 7.5 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791933.jpg" />
+  <img src="Z:/picture/008/save_picture_791933.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ RadioMaximus 2.29.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791926.jpg" />
+  <img src="Z:/picture/008/save_picture_791926.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Freemake Video Converter 4.1.13.106 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791925.jpg" />
+  <img src="Z:/picture/008/save_picture_791925.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Google Chrome 96.0.4664.45 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791922.jpg" />
+  <img src="Z:/picture/008/save_picture_791922.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ StartAllBack 3.0.6 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791918.jpg" />
+  <img src="Z:/picture/008/save_picture_791918.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ ESET NOD32 Antivirus 11.0.159.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791902.jpg" />
+  <img src="Z:/picture/008/save_picture_791902.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ WinSetupFromUSB 1.8 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791889.jpg" />
+  <img src="Z:/picture/008/save_picture_791889.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Topaz Video Enhance AI 2.6.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791883.jpg" />
+  <img src="Z:/picture/008/save_picture_791883.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MAGIX Vegas Pro 19.0 Build 424 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791880.jpg" />
+  <img src="Z:/picture/008/save_picture_791880.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Windows 11 Classic Context Menu v1.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791879.jpg" />
+  <img src="Z:/picture/008/save_picture_791879.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Tor Browser Bundle 11.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791874.jpg" />
+  <img src="Z:/picture/008/save_picture_791874.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ MAGIX Vegas Pro 19.0 Build 424 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791869.jpg" />
+  <img src="Z:/picture/008/save_picture_791869.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Adobe Photoshop 2021 22.5.3.561 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791868.jpg" />
+  <img src="Z:/picture/008/save_picture_791868.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Process Lasso 9.8.0.54 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791837.jpg" />
+  <img src="Z:/picture/008/save_picture_791837.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Q-Dir 8.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791819.jpg" />
+  <img src="Z:/picture/008/save_picture_791819.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Glary Utilities Pro 5.143.0.169 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791811.jpg" />
+  <img src="Z:/picture/008/save_picture_791811.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Advanced Installer 17.1.1 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791804.jpg" />
+  <img src="Z:/picture/008/save_picture_791804.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Viber 13.1.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791802.jpg" />
+  <img src="Z:/picture/008/save_picture_791802.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ PrivaZer 4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791800.jpg" />
+  <img src="Z:/picture/008/save_picture_791800.jpg" />
 </div>
 
 

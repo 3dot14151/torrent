@@ -1,3 +1,55 @@
+###  Публикация: 1639813   (234608) от 14.06.2023
+
+RTG. Малые музеи Петербурга. Искусство веера (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно открывшийся в Петербурге музей "Искусство веера" расположился в здании особняка начала XX века. Интерьер и внутренняя обстановка соответствуют тематике музея – здесь есть старинные дворцовые люстры и несколько каминов, стены затянуты дорогими тканями, двери выполнены из дерева драгоценных пород и украшены бронзовыми вставками. Экспонаты находятся (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, историяРежиссер: Олег ПечерскийУчастники: Игорь МаксименкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E37F6B79D8DBA3E1D35A10FAFB9221DF155D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639696   (234584) от 14.06.2023
+
+RTG. Экстремальный водный туризм на Северном Кавказе (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Северный Кавказ богат водными маршрутами для туристов. Одни позволяют совершить неспешные путешествия, другие - требуют профессиональных навыков и серьезной физической подготовки. История «обручения с водой» из уст профессиональных рафтеров, чьи жизни после знакомства с реками Кавказа изменились навсегда.Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Алексей СтарченкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F750D6773591D0AAA10938A377E5F5554ADFD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643707   (234557) от 02.07.2023
 
 Самая красивая французская деревня 2022 / Le village prefere des Francais (2022) DVB [FR / RU Sub]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234557.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ RTG. Сад-гигант (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234540.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ RTG. Малые музеи Петербурга. История трамвая (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234529.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ RTG. Малые музеи Петербурга. Микроминиатюра (2
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234514.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ RTG. Мансарды Петербурга (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234481.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234269.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ RTG. Путешествие на Соловецкие острова (2012) HDTV
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234100.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233589.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ RTG. Город Юрьевец (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233507.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233489.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233481.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ RTG. Прогулка по Ленинградскому зоопарку (2013) 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233462.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ RTG. Саблинские пещеры (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233435.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233281.jpg" />
+  <img src="Z:/picture/004/save_picture_233281.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233213.jpg" />
+  <img src="Z:/picture/005/save_picture_233213.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233088.jpg" />
+  <img src="Z:/picture/004/save_picture_233088.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ RTG. Каменные загадки долины реки Малая Лаба (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232876.jpg" />
+  <img src="Z:/picture/004/save_picture_232876.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ RTG. Краснодар - город цветов (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232612.jpg" />
+  <img src="Z:/picture/004/save_picture_232612.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ RTG. Курская магнитная аномалия (2014) HDTV [H.264/1080i
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232557.jpg" />
+  <img src="Z:/picture/004/save_picture_232557.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231444.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ RTG. Природный парк «Вепсский лес» (2013) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230843.jpg" />
+  <img src="Z:/picture/004/save_picture_230843.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230695.jpg" />
+  <img src="Z:/picture/004/save_picture_230695.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ RTG. Прогулка по Краснодару (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230683.jpg" />
+  <img src="Z:/picture/004/save_picture_230683.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ RTG. Прогулка по Выборгу (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230677.jpg" />
+  <img src="Z:/picture/004/save_picture_230677.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ RTG. Прогулка по Выборгу (2013) HDTV [H.264/1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9A4B402FD57F386F9C91AF860A5F4932813D4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637689   (230672) от 05.06.2023
-
-RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уютной бухте Черноморского побережья России расположился Геленджик. Статус города он получил лишь в 1915 году, но с давних времен к берегам Геленджикской бухты приходили торговые суда: здесь было сначала поселение, потом и крепость. Сегодня одна из границ города проходит прямо по морю, с другой стороны его защищают Кавказские горы. Разнообразные курортные учреждения (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Игорь ЧернышевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407BA97A5E7CB8982E15728726ADA23D0171426C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424399   (229159) от 16.11.2020
-
-Охотники за вулканами. Камчатка / Chasseurs de volcans (2017) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полуостров Камчатка - край медведей и вулканов. Здесь есть две сотни вулканов, тридцать из которых - действующие.Производство: Франция, MC4&VoyageЖанр: Документальный, познавательный, путешествияРежиссер: Бертран ХомассПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB23AFA7CAEEE2D16C1FBDE6443E845B080B069
 ```
 
 https://mybot314.ru/tekegram_catalog/

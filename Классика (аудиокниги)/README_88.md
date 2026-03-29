@@ -1,3 +1,111 @@
+###  Публикация: 380313   (51892) от 27.06.2024
+
+Александр Пушкин | Повести Белкина (2007) [MP3, Иннокентий Смоктуновский и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+В конце октября 1831 года вышел в свет знаменитый прозаический цикл А. С. Пушкина «Повести покойного Ивана Петровича Белкина. Цикл был напечатан анонимно, с предисловием «издателя» и включал (   Читать дальше...   )Жанр: Классика, повестьПродолжительность: 02:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6CE2F0CFC72AD6B2A93B2CE11B1AC1625CC4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733524   (51623) от 29.06.2024
+
+Михаил Салтыков-Щедрин | За рубежом (2006) [MP3, Сергей Юрский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Словесность. Тексты.
+Михаил Евграфович Салтыков-Щедрин (1826–1889), русский писатель-сатирик и публицист, автор романов, повестей, очерков, рассказов, сказок. Его творчество, несомненно, стало одним из ярчайших явлений русской и мировой литературы второй половины XIX века.
+«За рубежом» Салтыкова-Щедрина – одна из великих русских книг о Западе. Она стоит (   Читать дальше...   )Жанр: Русская литература, классика, сатира, очеркИздательство: Запись эфира Радио «Культура»Продолжительность: 06:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E823B8C43A92C9279064F6A99C4841D2905521E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736571   (50124) от 13.07.2024
+
+Александр Дюма | Граф Монте-Кристо (2022) [MP3, Никита Петров (Петроник)]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моряк Эдмон Дантес осуждён за преступление, которого он не совершал. Бежав из тюрьмы и став графом Монте-Кристо, он осуществляет правосудие, воздавая своим врагам по их заслугам.Жанр: зарубежная классика, исторические приключенияИздательство: ИДДКПродолжительность: 48:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C6A4BBE5D444B9C73FFBA46267335CAFD24724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737642   (49598) от 18.07.2024
+
+Артур Конан Дойль | Приключения в загородном доме (2013) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур Конан Дойль (1859–1930) – знаменитый английский писатель, один из основателей детективного жанра, автор всеми любимых произведений о высокоинтеллектуальном и ироничном аристократе Шерлоке Холмсе и его друге докторе Ватсоне, блестяще раскрывающих любые самые запутанные преступления.
+Роман Артура Конан Дойля «Приключения в загородном доме» – признанный шедевр (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 03:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15A080E7C2B32E814B508D9B976488AAF76A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737625   (49595) от 18.07.2024
 
 Артур Конан Дойль | Письма Старка Монро (2013) [MP3, Пётр Таганов]
@@ -6,7 +114,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49595.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48476.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48435.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48129.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48102.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47583.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47581.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47557.jpg" />
 </div>
 
 
@@ -222,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47495.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47441.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47228.jpg" />
 </div>
 
 
@@ -302,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47084.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47081.jpg" />
 </div>
 
 
@@ -358,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47080.jpg" />
 </div>
 
 
@@ -385,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47074.jpg" />
 </div>
 
 
@@ -414,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47069.jpg" />
 </div>
 
 
@@ -441,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47063.jpg" />
 </div>
 
 
@@ -468,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47056.jpg" />
 </div>
 
 
@@ -495,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47053.jpg" />
 </div>
 
 
@@ -522,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47050.jpg" />
 </div>
 
 
@@ -550,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47049.jpg" />
 </div>
 
 
@@ -578,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47046.jpg" />
 </div>
 
 
@@ -590,117 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:727FB9299EAA6C7D0A159205E3D2FD8367122AC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414401   (46553) от 17.08.2024
-
-Чингиз Айтматов | Плаха (2008) [MP3, Пётр Коршунков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Чингиз Тоpекулович Айтматов (1928–2008) – киргизский писатель, писавший на киргизском и русском языках. Член редакционного совета «Библиотеки всемирной литературы».
-«Школьная библиотека» продолжает знакомить своих слушателей с творчеством Чингиза Айтматова – живого классика русской и киргизской литературы.
-«Плаха» – роман-крик, одно (   Читать дальше...   )Жанр: Классика советской литературы, романИздательство: Аудиокнига (АСТ)Продолжительность: 14:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CEE4ADBBEBE3A1D289E9B5C8DC377C44D57AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414451   (46526) от 17.08.2024
-
-Чингиз Айтматов | Плач перелетной птицы (1994) [MP3, Чингиз Айтматов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Современная русская проза
-Чингиз Тоpекулович Айтматов (1928–2008) – советский писатель, писавший на киргизском и русском языках. Член редакционного совета «Библиотеки всемирной литературы».
-Во избежание сурового наказания за дезертирство Исмаил прячется в горах недалеко от родного аула и иногда тайком ночью пробирается домой, где его всякий раз ждет жена (   Читать дальше...   )Жанр: Классика советской литературы, повесть-притчаИздательство: ФабулаПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58BBDF524B770367C7B13DA9814B3BC9C1E3459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409413   (46439) от 18.08.2024
-
-Николай Гоголь | Записки сумасшедшего (2009) [MP3, Виктор Раков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь (1809–1852) – прозаик, драматург, поэт, критик, публицист, широко признанный одним из классиков русской литературы.
-Блестящий талант Гоголя с необычайной достоверностью раскрывает тот мир, где реальность и фантасмагорична, и одновременно достоверна до мельчайших бытовых деталей. В каком бы жанре не выступал Гоголь, о чем бы не писал – это (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: СиДиКом, ЭлитайлПродолжительность: 02:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC83337581F75FA5696DE1CEC3EC279C45C2208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418004   (46416) от 18.08.2024
-
-Вера Панова | Спутники (Радиоспектакль) (2009) [MP3, Всеволод Якут и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр FM с Мариной Багдасарян. Из архива «Гостелерадиофонда».
-Повесть Веры Федоровны Пановой (1905–1973) «Спутники» является классикой советской прозы о Великой Отечественной войне. В ней воссоздан подвиг советских людей на фронте и в тылу, глубоко раскрыты нравственные истоки победы над фашизмом. Во время войны Панова совершила в военно-санитарном поезде (   Читать дальше...   )Жанр: Классика советской литературы, повестьВ ролях: Всеволод Якут, Федор Корчагин, Семен Гушанский и др.Продолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF005829E8741E61039F8A8670617EBA32B5D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

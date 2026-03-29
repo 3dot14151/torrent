@@ -6,7 +6,7 @@ Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884509.jpg" />
+  <img src="Z:/picture/005/save_picture_884509.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883861.jpg" />
+  <img src="Z:/picture/005/save_picture_883861.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883852.jpg" />
+  <img src="Z:/picture/005/save_picture_883852.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883851.jpg" />
+  <img src="Z:/picture/005/save_picture_883851.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883783.jpg" />
+  <img src="Z:/picture/005/save_picture_883783.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Ho
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883754.jpg" />
+  <img src="Z:/picture/005/save_picture_883754.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Becko - Genesis (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883627.jpg" />
+  <img src="Z:/picture/005/save_picture_883627.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ BvdLvd - BALLYMORY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883625.jpg" />
+  <img src="Z:/picture/005/save_picture_883625.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ INSTASAMKA - MAMACITA (2020) [MP3|320 Kbps] <Rap, Trap, Mumble>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883614.jpg" />
+  <img src="Z:/picture/005/save_picture_883614.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882161.jpg" />
+  <img src="Z:/picture/005/save_picture_882161.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Thundercat - It Is What It Is (2020) [FLAC|Lossless|Web-DL|tracks] <R'n'B, Funk,
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881879.jpg" />
+  <img src="Z:/picture/005/save_picture_881879.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Chillhop Raw Cuts (2017) [FLAC|Lossless|Web-DL|tracks] <Chill Hop, Hip-Hop,
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879610.jpg" />
+  <img src="Z:/picture/005/save_picture_879610.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879271.jpg" />
+  <img src="Z:/picture/005/save_picture_879271.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ zavet - Жилы (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873156.jpg" />
+  <img src="Z:/picture/008/save_picture_873156.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Young P&H - Квартал делает числа (2020) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873007.jpg" />
+  <img src="Z:/picture/008/save_picture_873007.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ etnaise - NEO (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873003.jpg" />
+  <img src="Z:/picture/008/save_picture_873003.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ T-Fest - Выйди и зайди нормально (2020) [MP3|320 Kbps] <Rap,
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872988.jpg" />
+  <img src="Z:/picture/008/save_picture_872988.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Bahh Tee - 10 лет спустя (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872842.jpg" />
+  <img src="Z:/picture/008/save_picture_872842.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sadistik - Delirium (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872693.jpg" />
+  <img src="Z:/picture/008/save_picture_872693.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Jonny Craig - Find Your Home (2020) [MP3|320 Kbps] <R&B, Hip-Hop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872330.jpg" />
+  <img src="Z:/picture/008/save_picture_872330.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ CENTR - Качели (2007) [FLAC|Lossless|tracks + .cue] <Rap>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869812.jpg" />
+  <img src="Z:/picture/008/save_picture_869812.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Centr - Система (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869552.jpg" />
+  <img src="Z:/picture/008/save_picture_869552.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Loc-Dog - Крылья (2017) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867550.jpg" />
+  <img src="Z:/picture/008/save_picture_867550.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865627.jpg" />
+  <img src="Z:/picture/008/save_picture_865627.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Chillhop Essentials Fall (2021) [FLAC|Lossless|Web-DL|tracks] <Chillhop, In
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864771.jpg" />
+  <img src="Z:/picture/008/save_picture_864771.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Anacondaz - Выходи за меня (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863906.jpg" />
+  <img src="Z:/picture/008/save_picture_863906.jpg" />
 </div>
 
 

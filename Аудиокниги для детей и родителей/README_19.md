@@ -1,3 +1,83 @@
+###  Публикация: 1506528   (800183) от 31.10.2021
+
+Светлана Белл | Территория F. Крылатый лев, или Тайна цветных облаков (2021) [MP3, Дмитрий Рыбин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Белл – автор из Уфы, журналист и главный редактор газеты, посвящённой ветеранам. Ведёт работу в социальной сфере, активно участвует в общественной жизни региона.
+Роман «Крылатый лев, или Тайна цветных облаков» занял в конкурсе второе место и получил специальный приз «Серебряная буква». Также книга вошла в лонг-лист Международной детской литературной премии (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 07:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635C173FA12BCB787496188571DAA4AF07822A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506511   (800175) от 31.10.2021
+
+Хельга Воджик | Территория F. Монстры под лестницей (2021) [MP3, Дмитрий Рыбин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Монстры под лестницей» была написана Хельгой Воджик для литературного конкурса детской и подростковой фантастики «Территория F» и принесла автору победу.
+Герою книги Максу неполных одиннадцать, но он умён не по годам. Однако жизнь складывается не лучшим образом. У мальчика нет отца: тот однажды загадочно исчез, не оставив следов. Почти нет у Макса и друзей, (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПродолжительность: 05:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C012DF4BD1BC47787DB0F5F789CA3C963A2B9EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506506   (800174) от 31.10.2021
+
+Анна Овчинникова | Территория F. Принц, нищий и планета Везуха (2021) [MP3, Дмитрий Филимонов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Роберта по прозвищу «скиолитовый король» – могущественный человек: он мультимиллиардер, владелец собственного космического города и стоит у руля целой промышленной империи по добыче энергетических кристаллов-скиолитов. Но десятилетний Роберт – обычный мальчик, и в голове у него то же, что и у других мальчишек: приключения, тайны и преодоление опасностей. У него (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 08:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673000E71E8775A28AE850C74B0B002064FA6156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506531   (800099) от 31.10.2021
 
 Сергей Пефтеев | Территория F. В плену у Жадности (2021) [MP3, Дмитрий Филимонов]
@@ -6,7 +86,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800099.jpg" />
+  <img src="Z:/picture/008/save_picture_800099.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799837.jpg" />
+  <img src="Z:/picture/008/save_picture_799837.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799836.jpg" />
+  <img src="Z:/picture/008/save_picture_799836.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799833.jpg" />
+  <img src="Z:/picture/008/save_picture_799833.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799772.jpg" />
+  <img src="Z:/picture/008/save_picture_799772.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798482.jpg" />
+  <img src="Z:/picture/008/save_picture_798482.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ DeAgostini Disney | Волшебные сказки Disney (2020) [MP3, DeAgosti
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797965.jpg" />
+  <img src="Z:/picture/008/save_picture_797965.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797791.jpg" />
+  <img src="Z:/picture/008/save_picture_797791.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797104.jpg" />
+  <img src="Z:/picture/008/save_picture_797104.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796586.jpg" />
+  <img src="Z:/picture/008/save_picture_796586.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795669.jpg" />
+  <img src="Z:/picture/008/save_picture_795669.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795240.jpg" />
+  <img src="Z:/picture/008/save_picture_795240.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794732.jpg" />
+  <img src="Z:/picture/008/save_picture_794732.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794321.jpg" />
+  <img src="Z:/picture/008/save_picture_794321.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794012.jpg" />
+  <img src="Z:/picture/008/save_picture_794012.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793679.jpg" />
+  <img src="Z:/picture/008/save_picture_793679.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793626.jpg" />
+  <img src="Z:/picture/008/save_picture_793626.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793163.jpg" />
+  <img src="Z:/picture/008/save_picture_793163.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793151.jpg" />
+  <img src="Z:/picture/008/save_picture_793151.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792971.jpg" />
+  <img src="Z:/picture/008/save_picture_792971.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792946.jpg" />
+  <img src="Z:/picture/008/save_picture_792946.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792937.jpg" />
+  <img src="Z:/picture/008/save_picture_792937.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792931.jpg" />
+  <img src="Z:/picture/008/save_picture_792931.jpg" />
 </div>
 
 
@@ -599,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAF9AF7B302C855F87EB663E1D212D372DA557B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387064   (792575) от 31.05.2020
-
-Наталья Широкова | Волшебные сказки о детях-героях (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792575.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли 30 сказок, в основе которых лежат реальные истории подвигов и добрых поступков современных детей. Своими примерами они доказывают: героем можно стать без магии и суперспособностей, если быть неравнодушным. Книгу выпустила команда проекта «Подвиги обычных людей».Жанр: детские рассказы, сказкиПродолжительность: 03:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0598BFED8CB80166CB7CF7C1849F348AEEEA9EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275037   (791078) от 10.01.2019
-
-Александр Сергеевич Пушкин | Сказка о мёртвой царевне и семи богатырях (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сказка о мертвой царевне и семи богатырях
-2. Сказка о царе БерендееЖанр: Детская сказкаПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1AF51578F2B148703A351CA75DFDA00264F610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276686   (787632) от 17.01.2019
-
-Марк Ефетов | Валдайские колокольцы (1982) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навсегда останется в памяти автора суровый лесной край Валдай, где он впервые побывал ребенком в гостях у фронтового друга своего дяди. Прямы, открыты и добры люди, живущие здесь; в непростых условиях приходится им трудиться. Коллективизм и взаимовыручка, готовность всегда прийти на помощь - на этом строится и жизнь колхозов. И секретарь райкома партии под стать (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0CC1A8720FE6AB5F3A09A2D475379CC0DE3C18
 ```
 
 https://mybot314.ru/tekegram_catalog/

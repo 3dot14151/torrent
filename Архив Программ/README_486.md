@@ -6,7 +6,7 @@ Microsoft Windows Server 2016 Technical Preview 5 (10.0.14300) MSDN [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795144.jpg" />
+  <img src="Z:/picture/008/save_picture_795144.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ASUS Xonar D1 Driver 8.0.8.1812 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795139.jpg" />
+  <img src="Z:/picture/008/save_picture_795139.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ NVIDIA GeForce Desktop 446.14 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795138.jpg" />
+  <img src="Z:/picture/008/save_picture_795138.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Google Earth Pro 7.3.3.7721 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795137.jpg" />
+  <img src="Z:/picture/008/save_picture_795137.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795127.jpg" />
+  <img src="Z:/picture/008/save_picture_795127.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Windows 10 Manager 3.2.7.0 Final RePack (& Portable) by KpoJIuK
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795125.jpg" />
+  <img src="Z:/picture/008/save_picture_795125.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ MAGIX Vegas Pro 17.0 Build 452 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795104.jpg" />
+  <img src="Z:/picture/008/save_picture_795104.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 10 (v2004) x64 HSL/PRO by KulHunter v2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795090.jpg" />
+  <img src="Z:/picture/008/save_picture_795090.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ SketchUp Pro 2020 20.1.235 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795080.jpg" />
+  <img src="Z:/picture/008/save_picture_795080.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Adobe Illustrator 2020 24.1.3.428 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795078.jpg" />
+  <img src="Z:/picture/008/save_picture_795078.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Futuremark 3DMark 2.11.6911 Developer Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795075.jpg" />
+  <img src="Z:/picture/008/save_picture_795075.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794992.jpg" />
+  <img src="Z:/picture/008/save_picture_794992.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794989.jpg" />
+  <img src="Z:/picture/008/save_picture_794989.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794987.jpg" />
+  <img src="Z:/picture/008/save_picture_794987.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ CoolUtils Total CSV Converter 3.1.1.180 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794968.jpg" />
+  <img src="Z:/picture/008/save_picture_794968.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ CoolUtils Total PDF Converter 6.1.0.141 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794967.jpg" />
+  <img src="Z:/picture/008/save_picture_794967.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Cyberfox 52.6.1 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794961.jpg" />
+  <img src="Z:/picture/008/save_picture_794961.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wise Auto Shutdown 1.7.4.93 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794939.jpg" />
+  <img src="Z:/picture/008/save_picture_794939.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ MassTube Plus 12.9.8.351 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794924.jpg" />
+  <img src="Z:/picture/008/save_picture_794924.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Wise Memory Optimizer 3.6.4.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794921.jpg" />
+  <img src="Z:/picture/008/save_picture_794921.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Cyberfox 52.6.1 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794909.jpg" />
+  <img src="Z:/picture/008/save_picture_794909.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Aiseesoft Screen Recorder 1.1.28 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794908.jpg" />
+  <img src="Z:/picture/008/save_picture_794908.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ K-Lite Codec Pack Update 13.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794898.jpg" />
+  <img src="Z:/picture/008/save_picture_794898.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AllDup 4.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794881.jpg" />
+  <img src="Z:/picture/008/save_picture_794881.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ BandLab - Cakewalk 2021.11 (Build 018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794880.jpg" />
+  <img src="Z:/picture/008/save_picture_794880.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Calibre 5.32.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794841.jpg" />
+  <img src="Z:/picture/008/save_picture_794841.jpg" />
 </div>
 
 

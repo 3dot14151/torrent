@@ -1,3 +1,119 @@
+###  Публикация: 1778964   (70794) от 10.02.2025
+
+VA - Winter Deep House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alban Chela - Vida Loca (2:20)
+02. Barış Çakır - Sunshine (3:00)
+03. Deepest - Bastanna (I'll Wait) (3:00)
+04. MIRAC SARI - My Focus Is You (2:02)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B92E020DBC291B3F768F7B8F354D07A76D35FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779291   (70719) от 12.02.2025
+
+VA - Beast Mode Activated in the Gym (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pardison Fontaine - Backin’ It Up (feat. Cardi B) (3:10)
+02. Charli XCX - 360 (2:13)
+03. Benson Boone - Cry (3:06)
+04. The Academy Segunda Misión - LA RANGER (feat. Myke Towers) (3:49)(   Читать дальше...   )Жанр: Rap, House, DanceПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F5CBC95F90B8312A742C1886712B12D65CB577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779609   (70634) от 14.02.2025
+
+VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fluction - XTC's (3:08)
+02. Amiy - Make Your Mind (2:26)
+03. Nikk - My Zone (3:02)
+04. Rush - Fruity (2:45)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BC9CACEEE4EA595F5A47B72818B4F29A0A9614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780108   (70534) от 16.02.2025
+
+Jan Blomqvist - MUTE (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Unsaid [00:02:17]
+02. Underwater [00:04:06]
+03. Destination Lost [00:03:39]
+04. Midnight Sun [00:03:24](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EB08860CDA0C2BD25DA0BBA2CBC4256487C894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780520   (70449) от 18.02.2025
 
 djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -6,7 +122,7 @@ djdtime - Vocal Progressive House & Melodic Techno, Vol. 2 (2025) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70449.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ djdtime - Relaxing Deep House & Tech House Mix Vol. 1 (2024) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70448.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70384.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70364.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70291.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ LP Giobbi - Dotr (2024) Remixes, 2025, Counter Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69817.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Sport Mixtape (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69658.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ djdtime - Minimal Tech House Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69417.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Melodica 2025 (Tibetania Rituals) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68990.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Milk & Sugar Miami Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68593.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68452.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Black Dog - Live at the ICA (London 2024) (2025) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68339.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68133.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68123.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68091.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68045.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68013.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Beach Relax Home (To Get Lost in the Music) (2025) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67520.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Organica (2025) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67421.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Earthbound Collection 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67391.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Ibiza Lounge Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67342.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Ibiza Beach Vibes (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67098.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Ibiza Beach Vibes (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABD31A5254DD1EB24D10F469D7000645A2B86DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796466   (66991) от 10.05.2025
-
-VA - Beach Mode ON (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N - Where I Wanna Go (Radio Edit) (2:46)
-02. Ballester - On the Edge (3:18)
-03. Kvant - Sunlight (6:20)
-04. Sandro Marini - Dingindaya (3:46)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240687E5C384629BA2F8E9EB2B24C71107BDFE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796423   (66989) от 10.05.2025
-
-VA - Ibiza Summerhouse Megamix 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvatore Mancuso - Have You Ever Seen the Rain (2:36)
-02. Plastik Funk - In My Arms (2:33)
-03. The Disco Boys - Goin' Back (2:47)
-04. Mikerobenics - The Cat and the Canary (Hackfreed Remix) (5:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6442DFDACAB342D81EC4D37F40F2FA5EA6EA4455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796888   (66896) от 13.05.2025
-
-VA - Chilled Beach Songs (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmonize - Show Me Love (5:10)
-02. Ilnurg - Mind (3:03)
-03. V.O.P. - Tell Me That (2:43)
-04. sælent - Metamorphosis (2:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C8BBC38F2CAFC0E339E369520BDE1120ABD896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797628   (66797) от 17.05.2025
-
-Carlita - fabric presents Carlita (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easttown - Wavy (5:44)
-02. Garrett David & Maudi - Mi Casa (6:27)
-03. Jesse Maas - Gross Weight (6:29)
-04. Mehdi M - Funky Version (4:04)(   Читать дальше...   )Жанр: Electronic, Deep House, Indie DanceПродолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4ADF18D64B27D138B1185F8B84AE7778D568DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

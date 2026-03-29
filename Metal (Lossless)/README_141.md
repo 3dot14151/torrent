@@ -1,3 +1,96 @@
+###  Публикация: 1563603   (503727) от 15.07.2022
+
+Primal Fear - Primal Fear (1997) Deluxe Edition, Remastered, 2022 [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primal Fear (Re-mastered) (0:35)
+02. Chainbreaker (Re-mastered) (4:25)
+03. Silver & Gold (Re-mastered) (3:13)
+04. Promised Land (Re-mastered) (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6368C2DC77166C9E3F32EDD57FF6E94F000AF88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539808   (503378) от 29.08.2012
+
+Katatonia - Dead End Kings (Limited Edition) (2012) [FLAC|Lossless]<Progressive / Depressive Rock / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Parting (4:52)
+02. The One You Are Looking For Is Not Here (3:52)
+03. Hypnone (4:07)
+04. The Racing Heart (4:06)
+05. Buildings (3:28)
+06. Leech (4:23)
+07. Ambitions (5:09)
+08. Undo You (4:56)
+09. Lethean (4:39)
+10. First Prayer (4:26)(   Читать дальше...   )Жанр: Progressive / Depressive Rock / Doom MetalПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563747   (502762) от 16.07.2022
+
+Mirage - The Sequel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Days Of Rama
+02. Guiding Light
+03. The Emperor
+04. Far Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A530D6CA29B8663B92CFFD1F4D4D08E22FA99134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563383   (502759) от 16.07.2022
 
 Acacia - Tills döden skiljer oss åt (2013) Digipak, Limited edition [FLAC|Lossless|image + .cue] <Doom, Black Metal>
@@ -6,7 +99,7 @@ Acacia - Tills döden skiljer oss åt (2013) Digipak, Limited edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502759.jpg" />
+  <img src="Z:/picture/008/save_picture_502759.jpg" />
 </div>
 
 
@@ -35,7 +128,7 @@ Graveshadow - The Uncertain Hour (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502758.jpg" />
+  <img src="Z:/picture/008/save_picture_502758.jpg" />
 </div>
 
 
@@ -64,7 +157,7 @@ Celestial Wizard - Winds Of The Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502757.jpg" />
+  <img src="Z:/picture/008/save_picture_502757.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ Honey Bone Rush - Reptilia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502714.jpg" />
+  <img src="Z:/picture/008/save_picture_502714.jpg" />
 </div>
 
 
@@ -122,7 +215,7 @@ Infernal Legion - Beast Reborn (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502712.jpg" />
+  <img src="Z:/picture/008/save_picture_502712.jpg" />
 </div>
 
 
@@ -151,7 +244,7 @@ Depressed Mode - 2 albums (2007 - 2009) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502708.jpg" />
+  <img src="Z:/picture/008/save_picture_502708.jpg" />
 </div>
 
 
@@ -180,7 +273,7 @@ Jason Richardson - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, J
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502707.jpg" />
+  <img src="Z:/picture/008/save_picture_502707.jpg" />
 </div>
 
 
@@ -209,7 +302,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502702.jpg" />
+  <img src="Z:/picture/008/save_picture_502702.jpg" />
 </div>
 
 
@@ -238,7 +331,7 @@ The Sorrow - Misery Escape (2012) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501735.jpg" />
+  <img src="Z:/picture/008/save_picture_501735.jpg" />
 </div>
 
 
@@ -267,7 +360,7 @@ Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501675.jpg" />
+  <img src="Z:/picture/008/save_picture_501675.jpg" />
 </div>
 
 
@@ -296,7 +389,7 @@ Fallen Sanctuary - Terranova (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501674.jpg" />
+  <img src="Z:/picture/008/save_picture_501674.jpg" />
 </div>
 
 
@@ -325,7 +418,7 @@ Heretic - A Time Of Crisis (2012) [FLAC|Lossless]<Power Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501501.jpg" />
+  <img src="Z:/picture/008/save_picture_501501.jpg" />
 </div>
 
 
@@ -360,7 +453,7 @@ Ensiferum - Unsung Heroes (2012) [FLAC|Lossless]<Viking Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501141.jpg" />
+  <img src="Z:/picture/008/save_picture_501141.jpg" />
 </div>
 
 
@@ -395,7 +488,7 @@ Besatt - Demonicon (2010) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500676.jpg" />
+  <img src="Z:/picture/008/save_picture_500676.jpg" />
 </div>
 
 
@@ -424,7 +517,7 @@ Khariot - Esoteric (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500674.jpg" />
+  <img src="Z:/picture/008/save_picture_500674.jpg" />
 </div>
 
 
@@ -453,7 +546,7 @@ Ablaze in Hatred - 2 albums (2006-2009) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500672.jpg" />
+  <img src="Z:/picture/008/save_picture_500672.jpg" />
 </div>
 
 
@@ -482,7 +575,7 @@ Khariot - Disymposium (2011) [FLAC|Lossless|image + .cue] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500670.jpg" />
+  <img src="Z:/picture/008/save_picture_500670.jpg" />
 </div>
 
 
@@ -511,7 +604,7 @@ Infernal Legion - Sculptured Humans (2001) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500659.jpg" />
+  <img src="Z:/picture/008/save_picture_500659.jpg" />
 </div>
 
 
@@ -540,7 +633,7 @@ Lethal Prayer - Spiritual Decay (1996) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499752.jpg" />
+  <img src="Z:/picture/008/save_picture_499752.jpg" />
 </div>
 
 
@@ -569,7 +662,7 @@ Leucosis - Leucosis (2013) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499741.jpg" />
+  <img src="Z:/picture/008/save_picture_499741.jpg" />
 </div>
 
 
@@ -598,7 +691,7 @@ Allen-Olzon - Worlds Apart (2020) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499677.jpg" />
+  <img src="Z:/picture/008/save_picture_499677.jpg" />
 </div>
 
 
@@ -627,7 +720,7 @@ Lunar Aurora - Hoagascht (2012) [WavPack|Lossless]<Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499607.jpg" />
+  <img src="Z:/picture/008/save_picture_499607.jpg" />
 </div>
 
 
@@ -660,7 +753,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|Lossless|WEB-DL]<Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499460.jpg" />
+  <img src="Z:/picture/008/save_picture_499460.jpg" />
 </div>
 
 
@@ -674,93 +767,6 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|Lossless|WEB-DL]<Industrial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C9FA9092B5E6147DED75DE99D847E3BB6645640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564718   (498633) от 20.07.2022
-
-LVME - The Blazing Iniquity (2019) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Third Flame Of Disorder (10:37)
-02 - Unveiling Saar (9:56)
-03 - The Fiery Sword (11:13)
-04 - Perdition's Clay (11:24)Жанр: Black MetalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD2B3F886AE4C8ECEEE51B45BAC9C6B54CC4752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564724   (498630) от 20.07.2022
-
-Magnus - Scarlet Slaughterer (1989) Nuclear War Now! Productions, 2021  [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498630.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Trash Attack (02:42)
-2. Tomb (04:22)
-3. Pharisee (04:08)
-4. Confession (04:00)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5343ECE3ADB1F1E9015D4E0895030A502335DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318184   (497813) от 04.08.2019
-
-Distorted Harmony - Chain Reaction (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time She Smiles (6:49)
-02. Children of Red (5:13)
-03. Misguided (8:33)
-04. Nothing (But the Rain) (2:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E578E7C062F920FCCA063A9E816056FE2E9137F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

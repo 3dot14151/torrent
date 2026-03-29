@@ -6,7 +6,7 @@ iZotope - Neutron Advanced 2.01.3071 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707786.jpg" />
+  <img src="Z:/picture/008/save_picture_707786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Coda 2.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707785.jpg" />
+  <img src="Z:/picture/008/save_picture_707785.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Backupper Technician Plus 4.1.0 (16.04.2018) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707784.jpg" />
+  <img src="Z:/picture/008/save_picture_707784.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707762.jpg" />
+  <img src="Z:/picture/008/save_picture_707762.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707761.jpg" />
+  <img src="Z:/picture/008/save_picture_707761.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Tipard Video Converter Ultimate 9.0.22 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707759.jpg" />
+  <img src="Z:/picture/008/save_picture_707759.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707747.jpg" />
+  <img src="Z:/picture/008/save_picture_707747.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707744.jpg" />
+  <img src="Z:/picture/005/save_picture_707744.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ YouTube Video Downloader PRO 5.7 (20160511) Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707729.jpg" />
+  <img src="Z:/picture/008/save_picture_707729.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707723.jpg" />
+  <img src="Z:/picture/008/save_picture_707723.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707696.jpg" />
+  <img src="Z:/picture/008/save_picture_707696.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Downie 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707695.jpg" />
+  <img src="Z:/picture/008/save_picture_707695.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Hazel 4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707688.jpg" />
+  <img src="Z:/picture/008/save_picture_707688.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chromium 84.0.4147.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707683.jpg" />
+  <img src="Z:/picture/008/save_picture_707683.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Reg Organizer 8.11 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707674.jpg" />
+  <img src="Z:/picture/008/save_picture_707674.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Microsoft Windows 7 (x86-5in1 x64-4in1 DVD5) update 15.04.2018 by 1Pawel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707673.jpg" />
+  <img src="Z:/picture/008/save_picture_707673.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Radiocent 3.5.0.88 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707630.jpg" />
+  <img src="Z:/picture/008/save_picture_707630.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Hardware Monitor 5.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707627.jpg" />
+  <img src="Z:/picture/008/save_picture_707627.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ UC Browser 5.6.13108.1008 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707618.jpg" />
+  <img src="Z:/picture/008/save_picture_707618.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707616.jpg" />
+  <img src="Z:/picture/008/save_picture_707616.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707611.jpg" />
+  <img src="Z:/picture/005/save_picture_707611.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Microsoft Edge 84.0.522.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707582.jpg" />
+  <img src="Z:/picture/008/save_picture_707582.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Elmedia Player Pro 7.14 (build 2226)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707581.jpg" />
+  <img src="Z:/picture/008/save_picture_707581.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Sketch 68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707578.jpg" />
+  <img src="Z:/picture/008/save_picture_707578.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Allegorithmic Substance Designer 2020.1.3 (build 3587) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707577.jpg" />
+  <img src="Z:/picture/008/save_picture_707577.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Autorun Organizer 4.42 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707575.jpg" />
+  <img src="Z:/picture/008/save_picture_707575.jpg" />
 </div>
 
 

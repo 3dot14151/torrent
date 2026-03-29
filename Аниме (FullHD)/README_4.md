@@ -1,3 +1,161 @@
+###  Публикация: 1467023   (1018040) от 02.05.2021
+
+Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: Осознание - Страж перерождения [2017, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокая девушка по имени Кардия жила в заброшенном особняке на окраине Лондона, сокрытая от всего мира и связанная обещанием со своим отцом. Её тело таит в себе опасный яд, способный заставить расплавиться и сгнить всё, что коснётся её кожи, из-за этого местные прозвали девушку «чудовищем». Два года назад отец Кардии пропал, напоследок наказав ей никогда не влюбляться (   Читать дальше...   )Производство: Студия M.S.C. / エム・エス・シーЖанр: приключения, романтикаРежиссер: Ямамото ХидэёПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D832AEE01DA735EB9CF5FABD921AB5767DC9417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467271   (1017895) от 03.05.2021
+
+Great Pretender | Великий притворщик [2020, Web, 23 из 23] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не будет преувеличением сказать, что Масато Эдамура, вероятно, величайший в Японии мошенник. На пару с подельником Кудо он решает провернуть аферу в Асакусе и обмануть некоего Француза, однако в итоге оказывается обманут сам. Ведь Француз, которого они так неудачно пытались обдурить, оказался не кем-нибудь, а самим Лораном Тьерри — человеком такого высокого уровня, (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA9233470D4AFA9ED642BBB3F05C4CA9AE142BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467087   (1017860) от 03.05.2021
+
+Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021, Web, 12 из 12] WEBRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017860.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах шестнадцатилетней Юри Хондзё только что незнакомому мужчине раскроили топором голову. В ужасе девушка понимает, что теперь её очередь и странный убийца в маске направляется к ней. Юри, которая ещё секунду назад находилась в родной школе, даже предположить не может, где она очутилась и каким образом. Ясно одно — нужно спасаться. Выбежав в ближайшую дверь, (   Читать дальше...   )Производство: Zero-GЖанр: Триллер, фантастикаРежиссер: Таката МасахироСубтитры: Русские, АнглийскиеПродолжительность: 12 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492D17A8604C5342E228A6A68A3DC3D8B31B3507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467492   (1017365) от 06.05.2021
+
+Yasuke | Ясукэ [2021, ONA, 6 из 6] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой лодочник, прежде известный под прозвищем Черный самурай, берет под крыло девочку с загадочными способностями, и ему приходится снова выйти на тропу войны. © NetflixПроизводство: MAPPAЖанр: Приключения, фэнтезиРежиссер: Лешон Томас и Такэси СатоСубтитры: РусскиеПродолжительность: 6 серий по 30 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4B1E69C7DBD5F86387C706FA038E261042819C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468062   (1017357) от 06.05.2021
+
+Kono Minikuku mo Utsukushii Sekai | This Ugly yet Beautiful World | Этот ужасный и прекрасный мир [2004, TV, 12 из 12] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученик старшей японской школы Такэру Такэмото подрабатывает курьером, доставляя различные товары на своём мотоцикле. Когда однажды во время работы он подвозил своего лучшего друга Рё Ниномию, над ними пролетел странный светящейся объект, который затем упал в лесу. На месте падения они обнаружили обнажённую девушку, которой дали имя «Хикари» (Свет). Друзья не успели (   Читать дальше...   )Производство: Gainax / ガイナックス, Shaft / シャフトЖанр: романтика, фантастика, комедия, эттиРежиссер: Саэки СёдзиПеревод: A.k.M., КириллЯзык озвучки: японский, английскийСубтитры: русскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7B94DD2CBC449E52CE172366598D2F6282FF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468324   (1017266) от 07.05.2021
+
+Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017266.jpg" />
+</div>
+
+
+###  Подробнее
+
+История происходит за 500 лет до истории Сайюки. Ребенок-еретик с золотыми глазами попадает на Небеса. Он неохотно передан на попечение второстепенного божества по имени Конзэн, племянника Милосердной Богини Канзеон Босацу.
+
+Конзен в конце концов дает ребенку имя «Гоку». Гоку подружился с двумя другими второстепенными богами, маршалом Тенпу и генералом Кенреном из (   Читать дальше...   )Производство: Студия Anpro / アンプロЖанр: приключения, мистикаРежиссер: Кудзуя НаоюкиПеревод: Xellos Slayer; KasandraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. + SP по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68A1E54775695BC936C6D09DBB779D4E4DF935A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468886   (1016910) от 09.05.2021
 
 Boku no Hero Academia: Ikinokore! Kesshi no Survival Kunren | Моя геройская академия: Сделай это! Тренировка на выживание [2020, Web, 2 эп.] WEBRip 1080p raw
@@ -6,7 +164,7 @@ Boku no Hero Academia: Ikinokore! Kesshi no Survival Kunren | Моя герой�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016910.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Boku no Hero Academia (2017) | My Hero Academia Season 2 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016893.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016891.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Ai Yori Aoshi | Bluer Than Indigo | Все оттенки синевы | Тем�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015619.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Ai Yori Aoshi ~Enishi~ | Bluer Than Indigo ~Fate~ | Все оттенки син
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015611.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014504.jpg" />
 </div>
 
 
@@ -162,7 +320,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014145.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ Natsume Yuujinchou Go | Тетрадь дружбы Нацумэ (ТВ-5) [2016,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013707.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ Gekijouban Natsume Yuujinchou: Utsusemi ni Musubu | Тетрадь дружбы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013695.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013657.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012705.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012600.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012547.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012445.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011700.jpg" />
 </div>
 
 
@@ -404,7 +562,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011497.jpg" />
 </div>
 
 
@@ -430,7 +588,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011411.jpg" />
 </div>
 
 
@@ -458,7 +616,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011370.jpg" />
 </div>
 
 
@@ -484,7 +642,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011341.jpg" />
 </div>
 
 
@@ -510,7 +668,7 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011337.jpg" />
 </div>
 
 
@@ -521,163 +679,6 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD691AECF6CAD9F49024A909E1E6BF29305C70AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477120   (1011335) от 13.06.2021
-
-Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Votoms: Roots of Ambition | Бронированные воины Вотомы: Предательство [1988, OVA, 1 из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высшее военное руководство только начинает подозревать о личных планах полковника Пейлсена на взвод Красноплечих. Для этого они решают заслать в Красноплечих группу своих людей, в которую попадает и Кирико. Однако, прибыв на военную базу, всех новоприбывших сразу же с борта шаттла отправляют на учебный бой, который обернулся настоящей кровавой бойней.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 56 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E257A309D7F3082F7D80D288C175124F94D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477116   (1011333) от 13.06.2021
-
-Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Red Shoulder | Бронированные воины Вотомы: Последний красноплечий [1985, OVA, 1 из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается уже после завершения войны и расформирования группы элитных воинов-пилотов Вотомс, которые пытаются отомстить своему бывшему командиру за искалеченные судьбы.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 53 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915BC6F9FC372DD7CCCD819E2E91E1FAA58AF88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477126   (1011331) от 13.06.2021
-
-Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Бронированные воины Вотомы: Материалы по делу Пейлсена [2007, OVA, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77976AF6182DBE2EF2A50B6B4CF97A281B89787C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477133   (1011328) от 13.06.2021
-
-Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Бронированные воины Вотомы: Призрачная арка [2010, OVA, 6 из 6] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Призрачная арка" повествует о событиях, произошедших спустя 30 лет после событий оригинального аниме, выпущенного ещё в далёком 1983 году. Серия вполне самостоятельная, не обязательно пересматривать оригинальный сериал.
-Тем не менее, давайте коснемся сюжета. В оригинальном сериале главным героем был Кирико Кьюви, бывший член Отряда Красноплечих - (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EE23AEC1664FA947976F5ADD171CBA2DCD341C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477118   (1011325) от 13.06.2021
-
-Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Бронированные воины Вотомы: Большая битва [1986, OVA, 1 из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Галактика Астрагиус. Во время краткого перемирия после Столетней войны Баларант и Гильгамеш готовятся к новым битвам. В лабораториях Баларанта разрабатывают технологию массового производства Совершенных Солдат. Испытания проводятся на боевой арене, где на радость публике сражаются ветераны войны, оставшиеся в мирное время не у дел. Но обладающий нечеловеческой силой (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF756F10271BB6607510DC70131C921C7D820D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477112   (1011315) от 13.06.2021
-
-Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные воины Вотомы [1983, TV, 52 из 52] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Кирико Кьюви, бывший член Отряда Красноплечих - элитного подразделения конфедерации Гильгамеш, сражавшегося против Баларанта. Эти две космические нации уже сто лет сражаются в войне, причина которой давно забыта. Наконец, когда война казалось бы уже закончилась, Кирико внезапно поручают подозрительную миссию, выполнение которой повлекло за собой захватывающие (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 52 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7642EAF9EC59C18790226BEA9E31DDDA0BE7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

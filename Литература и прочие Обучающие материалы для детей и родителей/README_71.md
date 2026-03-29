@@ -1,3 +1,135 @@
+###  Публикация: 1356509   (977540) от 31.01.2020
+
+Санде Уоррен, Санде Картер | Привет, мир! Компьютерное программирование для детей и других начинающих [3-е издание] (2019) [PDF, EPUB] [En]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Привет, мир! Компьютерное программирование для детей и других начинающих» представляет мир компьютерного программирования в ясном и веселом стиле. Использование Python, языка программирования, предназначенного для легкого обучения, делает каждый урок интересным и учит навыкам, которые применимы к любому виду программирования. Это привносит в жизнь основные (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07009E61441C21B07FF397DA9D5F89C324F1F2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356685   (977535) от 31.01.2020
+
+Яков Перельман | Большая книга головоломок, задач и фокусов (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977535.jpg" />
+</div>
+
+
+###  Подробнее
+
+С «Большой книгой головоломок, задач и фокусов» Якова Перельмана читатель точно не соскучится: здесь собраны самые интересные игры, загадки, головоломки, фокусы, задачи, занимательные рисунки и обманы зрения. Многие из предоставленных математических задач входят в программы школьных олимпиад и не теряют актуальности по сей день. Эта книга поможет развить хорошую (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD3D2B96CABE44255E8C56A03D951CC96A3C3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974326   (976888) от 11.01.2016
+
+Уильям Джейкобс | Под чужим флагом (2008) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Уаймарк Джейкобc (1863-1943) - замечательный английский писатель-юморист.
+Большинство рассказов Джейкобса посвящено морской теме. Его герои, вечно попадающие в комические ситуации, - простодушные боцманы и забулдыги-матросы, старые капитаны и мальчишки-юнги.Жанр: Детская проза, морские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A9F0F83F974534BEB839CABF98E3877064B2E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974361   (976700) от 11.01.2016
+
+Николай Самокиш | Рисунок пером (1959) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рисунок пером — Художнику-офортисту положительно необходимо вполне владеть техникой рисования пером, но и всем другим, занимающимся рисованием и живописью, работа пером в высшей степени полезна.
+Это — отличная школа воспитания верности руки и глаза. Исправления рисунка, которые очень просты и легки при работе карандашом или углем, здесь чрезвычайно затруднительны, (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49DF53D22138684682C1B6CFE6BB598262B872B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 438376   (976362) от 18.01.2012
+
+Александр Кочаров | Удивительный мир животных. Орлы [2004] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимись вместе с орлом в небо, и пусть он понесет тебя на своих широких крыльях над лугами и лесами! Он расскажет тебе, как подрастают орлята, какие трудности они испытывают, обучаясь летать, как они становятся охотниками и ещё много-много всего интересного!Жанр: Детская литература, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E8D78789A3A47338ABD7EEA1C8650DE32B1E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974646   (975875) от 12.01.2016
 
 Борис Костин | Митины открытия (1983) [PDF]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975875.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975870.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975816.jpg" />
 </div>
 
 
@@ -89,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975680.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975617.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975586.jpg" />
 </div>
 
 
@@ -169,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975542.jpg" />
 </div>
 
 
@@ -197,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975477.jpg" />
 </div>
 
 
@@ -223,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975469.jpg" />
 </div>
 
 
@@ -249,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975461.jpg" />
 </div>
 
 
@@ -275,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974993.jpg" />
 </div>
 
 
@@ -303,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974928.jpg" />
 </div>
 
 
@@ -331,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974748.jpg" />
 </div>
 
 
@@ -358,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974594.jpg" />
 </div>
 
 
@@ -384,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974393.jpg" />
 </div>
 
 
@@ -411,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974381.jpg" />
 </div>
 
 
@@ -437,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974363.jpg" />
 </div>
 
 
@@ -465,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974332.jpg" />
 </div>
 
 
@@ -492,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973427.jpg" />
 </div>
 
 
@@ -518,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973257.jpg" />
 </div>
 
 
@@ -545,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973088.jpg" />
 </div>
 
 
@@ -557,140 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2CC90122C8822AF0B087AA7E05C7A6A2D824C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357572   (973009) от 04.02.2020
-
-студия Диафильм | Странствия Одиссея (1973) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мифы Древней Греции.
-
-Диафильм представляет собой последовательность из 30—50 диапозитивов размером 18×24 мм, отпечатанных на общем рулоне позитивной 35-мм киноплёнки. Кадры диафильма выстроены в определённом порядке и сопровождаются титрами, превращающими фильм в иллюстрированный рассказ. В диафильмах чаще всего использовались репродукции рисунков, специально (   Читать дальше...   )Жанр: Детская проза,Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52550995BBE25DCDA71501DFDF7D82832CA74C8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743735   (972973) от 10.01.2014
-
-Е.В. Колесникова | Я составляю числа. Рабочая тетрадь для детей 5-7 лет (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга подготовлена в соответствии с авторской программой "Математические ступеньки" (из опыта работы) и предназначена для занятий с детьми 5-7 лет.
-Она способствует лучшему усвоению программной задачи - составлению числа из двух меньших, а в целом - развитию математических способностей.
-Рекомендуется педагогам дошкольных образовательных учреждений, психологам, гувернерам и родителям для самостоятельной подготовки детей к школе.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC75852B38AD0D4B73CBE6DEDC7208A5F0188C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975285   (972966) от 14.01.2016
-
-Артём Патрикеев | Подвижная зима (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима – не время для того, чтобы сидеть дома, особенно детям! Это время, когда можно делать интересные открытия: наблюдать за тем, как летят снежинки, играть среди пушистых сугробов. Это время, когда падать (догоняя или убегая от кого-то) не так страшно. Когда не нужны никакие аттракционы, потому что у нас есть ледяные горки и дорожки, санки, лыжи, коньки, а главное (   Читать дальше...   )Жанр: Подвижные игрыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994B067B5719481FD645F693257A784BF9D32A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975277   (972962) от 14.01.2016
-
-Питер Фермин | Сделай сам. Работающие механические модели из подручного материала (1995) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги - англичанин Питер Фермин, создатель механических моделей и кукол для классифеских английских детских телесериалов Клэнтерс и Бэгптусс. Он рассказывает о том, как самому сделать всевозможные работающие машины из ненужного хлама, который взрослые обычно выбрасывают. На рисунках дается подробное пояснение технологии сбора и принципы действия механизмов. (   Читать дальше...   )Жанр: Самоделки, сделай самФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F3FB9BD99038F668923436175790CE97D1AE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744374   (972235) от 11.01.2014
-
-В.Д. Кучиев | История Осетии. XX век (2011) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник истории для старших классов общеобразовательных школ.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B7FFCE671FB2D00A8298346707463F9BC11154
 ```
 
 https://mybot314.ru/tekegram_catalog/

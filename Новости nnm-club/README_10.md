@@ -1,3 +1,107 @@
+###  Публикация: 1453713   (1026279) от 14.03.2021
+
+По наклонной / Cherry (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армейский медик Нико Уокер вернулся из Ирака с недиагностированным посттравматическим синдромом. В попытке совладать с тяжёлыми воспоминаниями о войне он начинает злоупотреблять опиатами и в итоге, чтобы поддержать свою зависимость, берётся грабить банки.Производство: США / The Hideaway Entertainment, AGBO, Kasbah FilmsЖанр: Драма, криминалРежиссер: Энтони Руссо, Джо РуссоАктеры: Том Холланд, Сиэра Браво, Джек Рейнор, Майкл Рисполи, Джеффри Уолберг, Форрест Гудлак, Майкл Гандольфини, Дэниэл Р. Хилл, Фионн О’Ши, Edward KagutuziПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full, SDH), английские (Full, SDH), немецкие, эстонские, латышские, литовские, украинские (Full, SDH)Продолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CCC80B11C2B94ABD5E5B59421ACDCBF5F19445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433553   (1026273) от 14.03.2021
+
+Movavi Video Suite 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite - пакет программ на русском языке, предназначенный для создания клипа, фильма или слад-шоу. Даже если вы новичок в создании собственных видеороликов, не беда, с Movavi Video Suite вы сможете произвольно, не имея особых навыков создать шедевр, по своей душе и желанию. Добавляйте текст, переходы, стильные и современные эффекты, творите что душе угодно, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85517D46322BD0B492A795D5F8DE8BFBCDE197A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454384   (1026213) от 15.03.2021
+
+Очередное достижение: 4000 релизов от dimanoid333!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые одноклубники!Сегодня наш друг и неутомимый релизерdimanoid333(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373296   (1026167) от 15.03.2021
+
+Universal TV Remote Pro v1.0.23 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338433   (1026030) от 16.03.2021
 
 Александр Башибузук | Собрание произведений [28 книг] (2013 - 2021) [FB2] [Обновляемая]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026030.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025683.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ The KMPlayer 4.2.2.50 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025516.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Kaspersky Total Security 2021 21.3.10.391 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025503.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Adobe Photoshop 2021 v22.3+ Neural Filters [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025329.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Adobe Lightroom Classic v10.2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025325.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025324.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025170.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025149.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Surviving Mars (2018) [Ru/Multi] (1001551/dlc) Repack Other s [Digital Deluxe Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025146.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Apple оштрафована в Бразилии на 2 млн долларов 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025016.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Windows 10 20H2 (19042.870) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024973.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024966.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ BELOFF 2021.03 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024965.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024800.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ Mushoku Tensei: Перерождение безработного | Реинка
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024789.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024654.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024653.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024650.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Microsoft готова купить геймерский чат за 10 млрд
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024501.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024465.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024276.jpg" />
 </div>
 
 
@@ -565,114 +669,6 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457502   (1024270) от 26.03.2021
-
-Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для онлайн установки Microsoft Office 2013-2021 на ваш ПК.
-Преимуществом программы есть возможность установки отдельных компонентов офис 2013-2021, а так же выбора языка устанавливаемого офисного пакета и выполнить активацию
-
-Помимо нового дизайна, выполненного в стилистике Windows 10, пакет получил несколько важных нововведений в плане функциональности.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8658006EAAC03DBD7BF6901B4288C22C578A4836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449967   (1024103) от 27.03.2021
-
-Спрут / La Piovra (1984-1998) DVDRip (сезон 1-10, серии 1-48 из 48) ЦТ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024103.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
-На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Производство: Италия, Франция, Великобритания, ФРГ / RAI Radiotelevisione Italiana, Télécip, France 2 (FR2)Жанр: Мелодрама, драма, криминал.Режиссер: Дамиано Дамиани, Луиджи Перелли.Актеры: Микеле Плачидо, Николь Жаме, Барбара Де Росси, Каридди Нардулли, Анджело Инфанти, Франсуа Перье, Массимо Бонетти, Флоринда Болкан, Поль Гер, Пино Колицци.Перевод: Многоголосый профессиональный (ЦТ СССР)Продолжительность: ~01:00:00 серия (сезон 1-3);  ~01:40:00 серия (сезон 4-10)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD731884C98E377FEB73CD71069EE752CBE2BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422395   (1023886) от 28.03.2021
-
-Метод (2020) SATRip (сезон 2, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023886.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти Меглина прошел год, но Есеня не может забыть о том, что произошло. Не может и не хочет. Призраки прошлого снова и снова возвращают её в тот день, когда она потеряла Меглина. Есеня пытается начать жить заново — рядом с ней муж, подрастает дочь, но всё, о чем она мечтает — это поскорее вернуться к работе. Такой шанс представляется, когда в городе происходит (   Читать дальше...   )Производство: Россия / кинокомпания "Среда"Жанр: триллер, детективРежиссер: Александр ВойтинскийАктеры: Паулина Андреева, Константин Хабенский, Александр Петров, Макар Запорожский, Егор Корешков,     Виталий Кищенко, Сергей Сосновский, Евгения Симонова, Полина Лунегова, Анастасия ПоповаПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A4A19C7586A226480BACE42E415ECFF04230AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457987   (1023753) от 29.03.2021
-
-Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге за 2020 год
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге по данным отчета IQAir за 2020 год. Об этом сообщается на официальном сайте мэра Москвы.«Москва вошла в список 30 лучших столиц по качеству воздуха в мировом рейтинге за 2020 год. В его основе лежат данные о содержании в атмосфере мелких твердых частиц (PM2.5), эти показатели поступают с наземных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

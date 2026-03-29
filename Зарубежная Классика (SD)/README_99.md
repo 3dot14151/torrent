@@ -1,3 +1,82 @@
+###  Публикация: 1615061   (241765) от 07.04.2023
+
+Больше, чем секретарша / More Than a Secretary (1936) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кэрол Болдуин и Хелен Дэвис являются владельцами и инструкторами Высшей секретарской школы. Фред Гилберт - редактор журнала "Тело и мозг", звонит Кэрол, чтобы пожаловаться. Он уволил многих выпускниц её школы. Она идёт к нему в офис, чтобы узнать из первых рук, чего он ожидает. Он ошибочно принимает её за новую секретаршу и велит ей приходить на работу (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: комедияРежиссер: Альфред Э. ГринАктеры: Джин Артур, Джордж Брент, Лайонел Стэндер, Рут Доннелли, Реджинальд Денни, Дороти Кент, Чарльз Хэлтон, Джеральдин Холл, Ник Коуплэнд, Том РикеттсПеревод: Авторский  (Алексей Яковлев)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E5FE491A9C3B5C58E2A433671AE25625A94B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615037   (241749) от 07.04.2023
+
+Буря в стакане воды / Storm in a Teacup (1937) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франк Бердон — новый репортер в провинциальной шотландской газете. Ему поручено взять интервью у местного политического деятеля Уильяма Гоу. Журналист узнает о скандальной истории с Гоу и решает опубликовать ее, вместо ожидаемого положительного репортажа. Отношения накаляются и перерастают в уголовное дело, но одновременно, Бердон влюбляется в дочь Гоу, Викторию.Производство: Великобритания, London Film Productions, Victor Saville ProductionsЖанр: мелодрама, комедияРежиссер: Йен Далримпл, Виктор СавиллАктеры: Вивьен Ли, Рекс Харрисон, Сесил Паркер, Сара Оллгуд, Урсула Джинс, Гас МакНотон, Эдгар К. Брюс, Роберт Хейл, Квентин МакФирсон, Артур УонтнерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714D3967544B87067F9E50AE539638C5B282FE51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615147   (241693) от 08.04.2023
+
+Жестокое море / The Cruel Sea (1953) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этого фильма - мужчины и их корабли. И единственный злодей среди них — жестокое море.
+Жизнь и смерть английского конвойного корвета К-49 и его капитана Эриксона во время боев с немцами в Атлантике. Война на море и в океане - без прикрас и без ура-патриотизма, сильные характеры, обреченный героизм.Производство: Великобритания / Ealing Studios, Michael Balcon ProductionsЖанр: драма, военный, историяРежиссер: Чарльз ФрендАктеры: Джек Хокинс, Дональд Синден, Джон Стрэттон, Денхолм Эллиотт, Джон Уорнер, Стенли Бейкер, Брюс Сетон, Лайам Редмонд, Вирджиния МакКенна, Мойра ЛистерПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB3549C699807C532BB2AE1FE704F075BB3EEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539428   (241406) от 16.04.2022
 
 Туз / Asso (1981) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241406.jpg" />
+  <img src="Z:/picture/004/save_picture_241406.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241373.jpg" />
+  <img src="Z:/picture/004/save_picture_241373.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241114.jpg" />
+  <img src="Z:/picture/004/save_picture_241114.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241053.jpg" />
+  <img src="Z:/picture/004/save_picture_241053.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241045.jpg" />
+  <img src="Z:/picture/004/save_picture_241045.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240488.jpg" />
+  <img src="Z:/picture/004/save_picture_240488.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240478.jpg" />
+  <img src="Z:/picture/004/save_picture_240478.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240434.jpg" />
+  <img src="Z:/picture/004/save_picture_240434.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239775.jpg" />
+  <img src="Z:/picture/004/save_picture_239775.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239725.jpg" />
+  <img src="Z:/picture/004/save_picture_239725.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239703.jpg" />
+  <img src="Z:/picture/004/save_picture_239703.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239677.jpg" />
+  <img src="Z:/picture/004/save_picture_239677.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239587.jpg" />
+  <img src="Z:/picture/004/save_picture_239587.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239523.jpg" />
+  <img src="Z:/picture/004/save_picture_239523.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239419.jpg" />
+  <img src="Z:/picture/005/save_picture_239419.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238444.jpg" />
+  <img src="Z:/picture/005/save_picture_238444.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238333.jpg" />
+  <img src="Z:/picture/005/save_picture_238333.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238231.jpg" />
+  <img src="Z:/picture/004/save_picture_238231.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237947.jpg" />
+  <img src="Z:/picture/004/save_picture_237947.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237937.jpg" />
+  <img src="Z:/picture/004/save_picture_237937.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237647.jpg" />
+  <img src="Z:/picture/004/save_picture_237647.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237640.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237639.jpg" />
+  <img src="Z:/picture/004/save_picture_237639.jpg" />
 </div>
 
 
@@ -591,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630437   (237184) от 30.04.2023
-
-Марни / Marnie (1964) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного произведения Уинстона Грехема
-Героиня фильма Марни Эдгар устраивается на работу в различные фирмы под чужим именем и, проработав некоторое время, исчезает с деньгами компаний, не оставляя никаких следов. Она неуловима, так как постоянно меняет не только имена, но и внешность. Марк Ратлэнд, деловой партнер одной из бывших жертв Марни, разоблачает (   Читать дальше...   )Производство: США / Alfred J. Hitchcock ProductionsЖанр: триллер, драма, мелодрама, детектив, криминал, экранизацияРежиссер: Альфред ХичкокАктеры: Типпи Хедрен, Мартин Габел, Шон Коннери, Луиз Лэтэм, Дайан Бэйкер, Алан Напье, Боб Суини, Милтон Зельцер, Генри Бекман, Эдит ЭвансонПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D543340ECA332C40DD4BEDC094F73FAF8CA7510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637229   (237136) от 19.06.2023
-
-Маленький человек – что же дальше? / Little Man, What Now? (1934) HDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на одноименном романе Ханса Фаллады. Немецкий служащий, тот самый маленький человек, что находится на нижней ступени социальной лестницы, который может рассчитывать, только на неквалифицированную малооплачиваемую работу, еле-еле позволяющую сводить концы с концами. Ситуация осложняется тем, что в семье ожидается пополнение, его девушка Эмма забеременела (   Читать дальше...   )Производство: США / Universal PicturesЖанр: драма, мелодрамаРежиссер: Фрэнк БорзегиАктеры: Маргарет Саллаван, Дугласс Монтгомери, Алан Хейл, Катрин Дусе, Девитт Дженнингс, Бодил Росинг, Мюриэль Керклэнд, Дональд Хайнс, Джордж Микер, Пол ФиксПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: русские, английские - отдельноПродолжительность: 01:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E53B6027B170CA86F4E08999D7497EE325223F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630820   (237125) от 02.05.2023
-
-Преданные / Betrayed (1954) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237125.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Голландии, во время Второй мировой войны Карлу Ван Овен посылают шпионить на союзников, хотя и подозревают, что она прибегала однажды к помощи нацистов. Полковник голландской разведки Питер Девентер соглашается, что она может присоединиться к Движению Сопротивления. Но сразу после этого команда начинает нести тяжелые потери и Карлу обвиняют в предательстве...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, мелодрама, военный, историяРежиссер: Готфрид РейнхартАктеры: Кларк Гейбл, Лана Тернер, Виктор Мэтьюр, Луи Кэлхерн, О.Э. Хассе Уилфрид Хайд-Уайт, Йен Кармайкл, Ниалл МакГиннис, Нора Суинбёрн, Роланд КалверПеревод: Авторский (А.Яковлев)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A5EEBB5B3A5863163DAA356816DC24484FA80C
 ```
 
 https://mybot314.ru/tekegram_catalog/

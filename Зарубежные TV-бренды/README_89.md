@@ -1,3 +1,107 @@
+###  Публикация: 1253987   (377379) от 12.10.2018
+
+BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In The Huddle (2013) BDRip (1-3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Производство: Великобритания, John Downer Productions Ltd., British Broadcasting Corporation (BBC), NHK BS PremiumЖанр: Документальный, познавательный, фаунаРежиссер: Джон ДоунерПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: отсутствуютПродолжительность: 3 х ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33AD8986A313E76DFF52154E88EBAC8401861325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253989   (377373) от 12.10.2018
+
+BBC: Пингвин: Шпион под прикрытием / Penguins - Spy In The Huddle (2013) BDRemux [H.264/1080i] (1-3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пингвины - за их вздорным очарованием скрывается удивительный характер. Эти нахальные птицы вынуждены выращивать своих птенцов сталкиваясь с самыми невероятными трудностями. Скрытые камеры помогут узнать настолько они на самом деле необыкновенные. От ледяной Антарктики до раскаленных тропиков - это рассказ о самых преданных родителях в мире - снятый так, как никогда (   Читать дальше...   )Производство: Великобритания, John Downer Productions Ltd., British Broadcasting Corporation (BBC), NHK BS PremiumЖанр: Документальный, познавательный, фаунаРежиссер: Джон ДоунерПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: Русские, английскиеПродолжительность: 3 х ~ 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACED283697999C4BF01EDD6155A65431699754F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252594   (377283) от 12.10.2018
+
+NG. Годы опасной жизни / Years of Living Dangerously (2016) DVB (Сезон 2, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробный рассказ о самых важных проблемах изменения климата угрожающих Земле, и о реальных решениях для них. От Индии и Китая до Африки и США - этот фильм покажет убедительные и важные истории о людях, сообществах и правительствах, которые сталкиваются с необходимостью сделать важный выбор, который повлияет на жизни миллионов людей следующих поколений.Производство: США, The Years Project, National Geographic, Showtime Networks, 20th Century Fox Home Entertainment, Discovery Channel, FilmRise, NHK BS1Жанр: Документальный, исследование, экологияПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD61D544840A84AD2B0BC2CF7050C443096A3417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253985   (377167) от 12.10.2018
+
+NG. Титаник: 20 лет спустя с Джеймсом Кэмероном / Titanic: 20 Years Later with James Cameron (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через 20 лет после начала мирового проката "Титаника" Джеймс Кэмерон собирает группу экспертов, чтобы повторно проанализировать факты, собранные об этой катастрофе, и спросить себя: "Знаем ли мы правду?"Производство: США, Earthship Productions, Mob Scene, National Geographic ChannelЖанр: Документальный, расследование, драмаРежиссер: Томас С. ГрэйнПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD57F5AEDCA72976273F62A6A6D89CE60209BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575359   (376897) от 09.09.2022
 
 NG. 9/11: Один день из жизни Америки / 9/11: One Day in America (2021) WEB-DL [H.264/1080p] (серии 1-6 из 6)
@@ -6,7 +110,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376897.jpg" />
+  <img src="Z:/picture/008/save_picture_376897.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: В поисках сокровищ: змеиный остров / Tre
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376706.jpg" />
+  <img src="Z:/picture/008/save_picture_376706.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. Загадки планеты Земля / What on Earth? HDTVRip (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375366.jpg" />
+  <img src="Z:/picture/008/save_picture_375366.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NG: Самые странные в мире / World's Weirdest (2011-2016) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375003.jpg" />
+  <img src="Z:/picture/008/save_picture_375003.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374942.jpg" />
+  <img src="Z:/picture/008/save_picture_374942.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Discovery: Звездное выживание с Беаром Гриллсом 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374726.jpg" />
+  <img src="Z:/picture/008/save_picture_374726.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374609.jpg" />
+  <img src="Z:/picture/008/save_picture_374609.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Discovery: Загадки планеты Земля / What on Earth? (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374601.jpg" />
+  <img src="Z:/picture/008/save_picture_374601.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373880.jpg" />
+  <img src="Z:/picture/008/save_picture_373880.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ BBC: Цивилизация / Civilisation (1969) BDRip [H.264/720p-LQ] (Сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372647.jpg" />
+  <img src="Z:/picture/008/save_picture_372647.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BBC. В краю муссонов: Народы муссонов / Wonders of th
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372586.jpg" />
+  <img src="Z:/picture/008/save_picture_372586.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Discovery: Разрушители легенд. Скрытая угроза / My
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372212.jpg" />
+  <img src="Z:/picture/008/save_picture_372212.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Дикая Скандинавия / Wild Nordic (2019) HDTV [H.264/1080i] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371865.jpg" />
+  <img src="Z:/picture/008/save_picture_371865.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ BBC: Как преуспеть ... / How to Get Ahead (2014) HDTVRip [H.264/720p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371468.jpg" />
+  <img src="Z:/picture/008/save_picture_371468.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG. 2000-е: Величайшие трагедии / The 2000s Greatest Tragedie
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370514.jpg" />
+  <img src="Z:/picture/008/save_picture_370514.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370131.jpg" />
+  <img src="Z:/picture/008/save_picture_370131.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ BBC: Океанская одиссея / BBC: Deep Ocean (2006) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_368330.jpg" />
+  <img src="Z:/picture/005/save_picture_368330.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367688.jpg" />
+  <img src="Z:/picture/008/save_picture_367688.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ NG: Секретные материалы древности. Святой гр�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367604.jpg" />
+  <img src="Z:/picture/008/save_picture_367604.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Discovery: Хакер в дикой природе / Hacking the Wild (2017) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367069.jpg" />
+  <img src="Z:/picture/008/save_picture_367069.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ BBC: Голубая планета (Голубая бездна) / The Blue Plan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366431.jpg" />
+  <img src="Z:/picture/008/save_picture_366431.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366049.jpg" />
+  <img src="Z:/picture/008/save_picture_366049.jpg" />
 </div>
 
 
@@ -569,112 +673,6 @@ BBC: Авиакатастрофа в Мюнхене / The Munich Air Disaster (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40FDE812B4351ECDF4F61D6719830815FEB948E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217857   (365550) от 17.10.2018
-
-History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip [H.264/720p-LQ] (10 серий из 10)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
-Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9EDB0D3F96D677334B8FBBD2904DB1002E310D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217862   (365420) от 17.10.2018
-
-History Channel: Хит-парад древности. Первая десятка / Ancient Top 10 (2016) HDTVRip (10 серий из 10)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробный рассказ о том, как работали древние технологии. В программе принимают участие Беттани Хьюз и Эндри Торбет, которые познакомят зрителей с десятью выдающимися изобретениями древности.
-Каждая серия будет посвящена определенной теме: «Самое смертоносное оружие», «Тайны Египта», «Древний Рим». Удивительно, каким «продвинутым» был древний мир.Производство: США, History, A&E Television NetworksЖанр: Документальный, научно-популярный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 10 x ~ 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C36E36DF18DA9CB46FC847D362DF1BF3FE17CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950185   (365203) от 28.10.2015
-
-BBC. Человеческая Вселенная / Human Universe (2014) BDRip [H.264/720p-LQ] [Сезон 1, серия 4]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Брайан Кокс задаст самые важные вопросы какие только мы можем задать. Одни ли мы? Почему мы здесь? Какое наше будущее? Присоединитесь к нему в потрясающем торжестве жизни человека, как он исследует свои истоки, наше место и нашу судьбу во Вселенной.Жанр: Документальный, научно-познавательныйПеревод: Двухголосый закадровый, профессиональный (Омикрон)Субтитры: АнглийскиеПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915C1E477BE7B9947AD1241B95728106A4F5E1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406819   (365186) от 05.11.2011
-
-NG: Секретные материалы древности. Кровь Христа. Фестский диск / Ancient X-files (2011) SATRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рассмотрим нерешенные загадки прошлого и исследуем артефакты, существование которых не поддается рациональному объяснению.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E42E53F5CE7EFF944E6A0745C3FD416C50FFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

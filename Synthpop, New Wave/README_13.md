@@ -1,3 +1,32 @@
+###  Публикация: 1697397   (118929) от 06.02.2024
+
+Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Warriors
+02.  Dead Star
+03.  New Adventure
+04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697671   (118775) от 07.02.2024
 
 Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -6,7 +35,7 @@ Laserdance - The Guardian Of Forever (1995) [OGG Vorbis|480 Kbps] <Electronic, S
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118775.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Laserdance - Hypermagic (1993) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118767.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Laserdance - Fire On Earth (1994) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118739.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Laserdance - Force Of Order (2016) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118289.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Laserdance Orchestra - Volume 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Spaces
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118288.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Laserdance - Trans Space Express (2018) [OGG Vorbis|480 Kbps] <Electronic, Space
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118286.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Laserdance - Strikes Back (2000) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118281.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117225.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116393.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Cyber Space - Cyber Space Plays A Tribute To Hotsound (2011) [MP3|320 Kbps] <Spa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112646.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Carter The Unstoppable Sex Machine - 1992_ The Love Album (1992) Remaster, 2023,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111549.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Sy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111411.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pet Shop Boys - Nonetheless (2024) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110898.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Syst3m Glitch - The Brave Ones (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110573.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Intru.Der - The First Journey (2013) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109789.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Robotic attacks - Robot is here (2014) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109787.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Erasure - Cowboy (1997) Expanded Edition, 2024, BMG [MP3|320 Kbps] <Synthpop, Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108514.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105455.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Kalax - LOST (2024) [MP3|320 Kbps] <Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105353.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101117.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Karl Bartos (ex-Kraftwerk) - Communication (Limited Edition) (2003) [MP3|320 Kbp
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100533.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89844.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89837.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85590.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83246.jpg" />
 </div>
 
 
@@ -740,41 +769,6 @@ Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458625   (79326) от 01.03.2012
-
-Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal 04:22
-02. Burial 04:20
-03. Silvia 06:25
-04. Song for No One 04:09
-05. Black & Blue 03:39
-06. Sans Soleil 04:25
-07. A Horse is Not A Home 04:11
-08. Cult Logic 03:54
-09. Plastic Jungle 03:52
-10. In Search of 05:14(   Читать дальше...   )2009Жанр: Electro-popПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51C742ABD9BF5DE14B347DEA735FB40ACB98096
 ```
 
 https://mybot314.ru/tekegram_catalog/

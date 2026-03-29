@@ -1,3 +1,108 @@
+###  Публикация: 755261   (817461) от 17.04.2016
+
+History Channel. Островное помешательство Гитлера / Hitler's Island Madness (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нормандские острова стали первым и единственным регионом Британии, сломленным адской машиной Гитлеровского блиц-крига. Пропагандистская машина Германии постоянно крутила хронику о том, как немецкая армия сотрудничает с представителями английской власти на островах. Гитлер планировал сделать из них неприступные крепости и использовать для дальнейшего наступления на (   Читать дальше...   )Жанр: Документальный, история, WWIIПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE89DDDD91FFD90897CCA0ECD7076F328D2858F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832847   (817454) от 17.04.2016
+
+History Channel. Наследие кельтов / The Celtic Legacy (2011) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817454.jpg" />
+</div>
+
+
+###  Подробнее
+
+На северо-западе Испании, в Галисии кое-где на побережье можно увидеть окруженные стеной участки с необычными круглыми строениями из камня. Кому принадлежали эти крепости на холмах? От кого они защищали? Как жили люди, построившие их? Это археологические останки культуры Кастро. На земле изрезанных берегов, высоких скал море всегда оставалось связующим звеном между (   Читать дальше...   )Жанр: Документально-постановочный, историяПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990E15ED6CB364F87C7E74D90DC4BA966E119D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197055   (817132) от 06.01.2018
+
+NG: Гибель морского монстра / Death of a Sea Monster (2010) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шпицберген имеет много секретов, связанных с периодом, когда Пангея начала распадаться. Каждый год исследователи приезжают на этот арктический архипелаг, питая надежду обнаружить ранее неизвестные факты. Археологи обнаружили окаменелости ужасающих морских рептилий, которые могут изменить наше мнение об этой эпохе.
+Мы узнаем о гигантских морских рептилиях доисторического (   Читать дальше...   )Производство: США, National Geographic ChannelЖанр: Документальный, научно-популрный, палеонтология, исследованияРежиссер: Сью ХьютонПеревод: Одноголосый закадровый, профессиональный (АРК - ТВ)Субтитры: отсутствуютПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E17546BBD5091EF194730D68C351722198733B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382430   (817090) от 12.05.2020
+
+NGW: Самая большая в мире белая акула / World's Bigget Great White Shark? (2019) HDTVRip [H.264/1080p-LQ] [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа профессиональных дайверов и фотограф отправляются на небольшой лодке в море, чтобы заснять жизнь морских обитателей в их естественной среде. Они собираются вокруг кашалота, который дрейфует вблизи острова Оаху, гавайского архипелага. Герои смогли заснять одну из самых больших белых акул, когда-либо попавшихся на камеры.Производство: США, Spectrum Field Productions, LLS., Nat Geo WildЖанр: Документальный, Природа, Фауна, Флора, Реальное ТВРежиссер: Эрик Хардести, Бреннан БутПеревод: Одноголосый закадровый, профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95117546F8BFAF1B6FA0D5A5E8E960D97D2EFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 710136   (816993) от 06.01.2018
 
 Discovery. Северная Америка / North America (2013) HDTVRip [H.264/720p-LQ] [Сезон 1, 7 серий из 7]
@@ -6,7 +111,7 @@ Discovery. Северная Америка / North America (2013) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816993.jpg" />
+  <img src="Z:/picture/008/save_picture_816993.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ BBC. "Испанка". Грипп, унесший 50 миллионов жизн
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816943.jpg" />
+  <img src="Z:/picture/008/save_picture_816943.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816857.jpg" />
+  <img src="Z:/picture/008/save_picture_816857.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815852.jpg" />
+  <img src="Z:/picture/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815280.jpg" />
+  <img src="Z:/picture/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814797.jpg" />
+  <img src="Z:/picture/008/save_picture_814797.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ BBC. Полиамория: Любовь без границы / Louis Theroux's 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814675.jpg" />
+  <img src="Z:/picture/008/save_picture_814675.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Discovery. Аполлон: найденные видео / Apollo: The Forgotten
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813844.jpg" />
+  <img src="Z:/picture/008/save_picture_813844.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813517.jpg" />
+  <img src="Z:/picture/008/save_picture_813517.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ BBC. Купи моего ребенка / Louis Theroux's Altered States: Take M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813457.jpg" />
+  <img src="Z:/picture/008/save_picture_813457.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813451.jpg" />
+  <img src="Z:/picture/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813311.jpg" />
+  <img src="Z:/picture/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813102.jpg" />
+  <img src="Z:/picture/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811699.jpg" />
+  <img src="Z:/picture/008/save_picture_811699.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811639.jpg" />
+  <img src="Z:/picture/008/save_picture_811639.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811534.jpg" />
+  <img src="Z:/picture/008/save_picture_811534.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811462.jpg" />
+  <img src="Z:/picture/008/save_picture_811462.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811399.jpg" />
+  <img src="Z:/picture/008/save_picture_811399.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811184.jpg" />
+  <img src="Z:/picture/008/save_picture_811184.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810963.jpg" />
+  <img src="Z:/picture/008/save_picture_810963.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810274.jpg" />
+  <img src="Z:/picture/008/save_picture_810274.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809988.jpg" />
+  <img src="Z:/picture/008/save_picture_809988.jpg" />
 </div>
 
 
@@ -574,110 +679,6 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA562569CF76B1E7741675791699C55E52741BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198103   (809986) от 10.01.2018
-
-BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2016) DVB [H.264/1080i]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых больших музыкальных фестивалей Европы, организованный BBC Radio 1. Невероятный лайнап 2016 года: Джесс Глинн, Крейг Дэвид, Меган Трейнор, Bastille, Том Оделл, Mumford & Sons, Kygo, OneRepublic, Ник Джонас, Элли Гудинг, Coldplay, The Weekend, Игги Азалиа и многие-многие другие.Телекомпания: Великобритания / BBC Music, BBC Radio 1, BBC Visual RadioЖанр: Документальный, МузыкаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: РусскиеПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D351420B4D886FBBB5A4919B56F308CB7C3033B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504508   (809921) от 24.10.2021
-
-Подводная Одиссея команды Жака Кусто: Мир без Солнца / Le monde sans soleil (1964) BDRip [H.264/] [VO]
-
->>Зарубежные TV-бренды
->>Одиссея Жака Кусто
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм начинается с кадров, на которых из тёмной водной толщи появляется двухместный глубоководный обитаемый аппарат «Дениза» («ныряющее блюдце»). Судно, передвигающееся за счёт водомётных движителей, вплывает в специальный ангар. Голос за кадром сообщает: «Впервые в истории подводная лодка помещается на подводной базе». При помощи 4-тонной лебёдки подлодка вытягивается (   Читать дальше...   )Производство: США, Франция, Италия / C.E.I.A.P., Filmad, Orsay FilmsЖанр: документальныйРежиссер: Жак Ив КустоПеревод: профессиональный одноголосый (Селена Интернешнл)Субтитры: нетПродолжительность: 01:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C6D8692FCA907475A7D1FB9BFB7A9BE31C4995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504687   (809918) от 24.10.2021
-
-BBC: Как это работает. Таинственный Мир Материалов / How It Works. The Mysterious World of Materials (2011) HDTVRip [H.264/720p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Марк Медовник посвятил жизнь раскрытию тайн материалов. В документальном цикле "Таинственный мир материалов" он знакомит зрителя с историей, особенностями и безграничными возможностями, которые новые материалы предоставляют современной цивилизацииПроизводство: Великобритания, BBC ScotlandЖанр: Документальный, научно-популярныйРежиссер: Джон Стивентон, Дэвид Бриггс, Ишбель ХоллПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: Русские, английскиеПродолжительность: 3 x ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A169BE5C792C5DDDE76B1BFC5EF19B0772EAEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197985   (809842) от 10.01.2018
-
-NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080i-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глэйд - это райское место среди иссохших равнин национального парка Руаха в Танзании. Вода здесь не переводится круглый год. Это природное изобилие рождает странные отношения львиного прайда и стаи бабуинов, которые вопреки всем законам природы живут в гармонии. Но однажды перемирию в Глэйде приходит конец...Производство: Великобритания, Австрия, Terra Mater Factual Studios, Doclights, NDR Naturfilm, ARTE France, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Оуэн ПрюммПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 3 х ~ 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

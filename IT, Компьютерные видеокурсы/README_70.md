@@ -1,3 +1,138 @@
+###  Публикация: 584820   (305082) от 05.12.2012
+
+Lynda.com | Building Templates in Word - Работаем с шаблонами в Word [2012] [EN] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305082.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе, Mariann Siegert показывает как использовать на полную мощь возможности шаблонов Microsoft Word, а также использовать их для более эффективного документооборота. Курс не только посвящен основам использования и применения шаблонов, но и показывает, как создавать шаблоны c пользовательскими свойствами, макросами, элементами управления содержимым, блоками и стилями. Также Вы узнаете, как копировать стили, макросы, и автотекст между шаблонами; изменять шаблон по умолчанию и многое другое.
+Файлы упражнений прилагаются к курсу.
+Дополнительная информация на офсайте.Жанр: Word 2007, 2010Продолжительность: 01:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183129   (304764) от 15.11.2017
+
+Павел Тарасов | Интенсив. Основы программирования (2017) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программист - профессия будущего. Программное обеспечение нужно всем - от бизнеса до науки. В Москве программист с опытом получает зарплату более 100 000 рублей.
+Стать программистом - значит надолго обеспечить себя работой. Вы сможете создавать приложения, игры, сервисы и сайты и получать деньги за эту работу. Написание кода - это и творчество, и решение логических (   Читать дальше...   )Производство: GeekbrainsЖанр: ПрограммированиеПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00C3A7521D48A55526B241DBB198DD6E267CC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584465   (304522) от 05.12.2012
+
+Александр Касянчук. | Разработка компонентов Joomla! 2.5 [2012] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_304522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для тех, кто знаком с языками PHP и MySQL и до этого работал с Joomla! CMS.
+Содержит краткий обзор материалов по созданию компонентов Joomla 2.5 с использованием MVC.Жанр: Обучающий видеокурсПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F6F75C89D94D8B78974991E072FC7FF367A052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423039   (303892) от 11.11.2020
+
+LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полезные хитрости (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте работу на Mac полезной и приятной
+Это второй класс по работе с macOS, который призван показать множество полезных фишек операционной системы Mac даже для опытных пользователей. Готовы узнать новые трюки и секреты? А сделать несколько настроек, которые на практике сильно облегчат вам жизнь? Дмитрий Ларионов покажет вам, как оптимально подстроить систему под (   Читать дальше...   )Производство: LiveClassesЖанр: Обучающее видеоПродолжительность: 02:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88AA0BEFB1639F2E1F8B0F66F00D159A99F27AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077488   (303803) от 29.11.2016
+
+ITVDN | C# Стартовый на примерах из GTA 5 (2016) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы начали изучать C#, то этот курс станет для вас лучшей практикой! За пять уроков на примере создания модов к популярной игре GTA 5, вы разберете не только основные синтаксические конструкции, которые проходили на C# Старт, но научитесь их применять на практике. Все сложное и запутанное легко станет явным и понятным вместе с Романом Самчуком. Курс будет интересен (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 03:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FE4DC559C5B901DA5FBD59835F53CB5F78B293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423142   (301533) от 12.11.2020
 
 Skillbox | Управление digital-проектами (2017) PCRec
@@ -6,7 +141,7 @@ Skillbox | Управление digital-проектами (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301533.jpg" />
+  <img src="Z:/picture/008/save_picture_301533.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299085.jpg" />
+  <img src="Z:/picture/008/save_picture_299085.jpg" />
 </div>
 
 
@@ -60,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298262.jpg" />
+  <img src="Z:/picture/008/save_picture_298262.jpg" />
 </div>
 
 
@@ -89,7 +224,7 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297340.jpg" />
+  <img src="Z:/picture/008/save_picture_297340.jpg" />
 </div>
 
 
@@ -116,7 +251,7 @@ Udemy, Samuel Hinton | Python для статистического анализ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297331.jpg" />
+  <img src="Z:/picture/008/save_picture_297331.jpg" />
 </div>
 
 
@@ -144,7 +279,7 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297330.jpg" />
+  <img src="Z:/picture/008/save_picture_297330.jpg" />
 </div>
 
 
@@ -173,7 +308,7 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297329.jpg" />
+  <img src="Z:/picture/008/save_picture_297329.jpg" />
 </div>
 
 
@@ -199,7 +334,7 @@ Udemy, Денис Пугачев | Docker Swarm на практике (2020) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297186.jpg" />
+  <img src="Z:/picture/008/save_picture_297186.jpg" />
 </div>
 
 
@@ -226,7 +361,7 @@ Udemy, Валерий Жданов | Как создать сайт на Node JS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297064.jpg" />
+  <img src="Z:/picture/008/save_picture_297064.jpg" />
 </div>
 
 
@@ -255,7 +390,7 @@ Udemy, Alexandr Tyurin | Интерактивная веб-анимация 2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297063.jpg" />
+  <img src="Z:/picture/008/save_picture_297063.jpg" />
 </div>
 
 
@@ -281,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291198.jpg" />
+  <img src="Z:/picture/008/save_picture_291198.jpg" />
 </div>
 
 
@@ -309,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290698.jpg" />
+  <img src="Z:/picture/008/save_picture_290698.jpg" />
 </div>
 
 
@@ -337,7 +472,7 @@ ITVDN | SharePoint Администрирование (2015) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287382.jpg" />
+  <img src="Z:/picture/008/save_picture_287382.jpg" />
 </div>
 
 
@@ -363,7 +498,7 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286905.jpg" />
+  <img src="Z:/picture/008/save_picture_286905.jpg" />
 </div>
 
 
@@ -391,7 +526,7 @@ Lynda.com | HTML5: File API in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285659.jpg" />
+  <img src="Z:/picture/008/save_picture_285659.jpg" />
 </div>
 
 
@@ -419,7 +554,7 @@ Lynda.com | HTML5: Drag and Drop in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285648.jpg" />
+  <img src="Z:/picture/008/save_picture_285648.jpg" />
 </div>
 
 
@@ -448,7 +583,7 @@ Lynda.com | Techniques and Concepts of Big Data (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285492.jpg" />
+  <img src="Z:/picture/008/save_picture_285492.jpg" />
 </div>
 
 
@@ -476,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283486.jpg" />
+  <img src="Z:/picture/008/save_picture_283486.jpg" />
 </div>
 
 
@@ -505,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283369.jpg" />
+  <img src="Z:/picture/008/save_picture_283369.jpg" />
 </div>
 
 
@@ -531,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282269.jpg" />
+  <img src="Z:/picture/008/save_picture_282269.jpg" />
 </div>
 
 
@@ -557,7 +692,7 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281794.jpg" />
+  <img src="Z:/picture/008/save_picture_281794.jpg" />
 </div>
 
 
@@ -570,138 +705,6 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336131   (281779) от 05.11.2019
-
-Владилен Минин | React JS с Нуля до Профи. Полное руководство (2019) PCRec [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281779.jpg" />
-</div>
-
-
-###  Подробнее
-
-При правильном использовании инструкций и приемов из курса, вы на наглядных примерах с полного нуля научитесь создавать динамические, реактивные, полностью адаптивные SPA-приложения и веб-сайты на библиотеке React.js.Производство: UdemyЖанр: Программирование, JavaScript, React.js, ReduxПродолжительность: 39:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C9E00807A4CE288F7600F65FF09659189A91A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223926   (281777) от 05.11.2019
-
-HTML Academy | Интенсивный онлайн‑курс  Профессиональный PHP, уровень 1 (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интенсив рассчитан на новичков без навыков программирования. Для прохождения интенсива желательны навыки HTML и CSS, для получения которых достаточно пройти бесплатные интерактивные курсы на HTML Academy.Производство: HTML AcademyЖанр: Программирование, PHPПродолжительность: 16:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E746401F9BC8768370A2EA1F279CD28D3F6709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264312   (278789) от 24.11.2018
-
-Coursera | Машинное обучение и анализ данных (2018) WEB-DL [H.264/720p-LQ]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы покажем, как проходит полный цикл анализа, от сбора данных до выбора оптимального решения и оценки его качества. Вы научитесь пользоваться современными аналитическими инструментами и адаптировать их под особенности конкретных задач.Жанр: Программирование, Анализ данных, Машинное обучениеПродолжительность: 38:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE99EE24988C1F27A08AC5DA601B749C5C653C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336602   (278455) от 07.11.2019
-
-Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе автор расскажет про современную и актуальную версию React.js 16.7. Расскажет как использовать React вместе с Redux 4 и React-Router 4. Вы научитесь создавать Single Page Applications с возможностью регистрации и авторизации. Научитесь взаимодействовать с REST API. Использовать CSS-фреймворк Bootstrap 4. А так же загружать готовое приложение на бесплатный (   Читать дальше...   )Производство: UdemyЖанр: Программирование, JavaScript, React, ReduxПродолжительность: 05:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFB0C77532A3F8E93EEEEEA7E33CCD0F647D892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336609   (278344) от 07.11.2019
-
-jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Понятный JavaScript» — это комплексная программа обучения, которая позволит тебе полностью изучить с нуля главный язык Frontend разработчика. Уже через 3 месяца ты будешь знать JavaScript на очень достойном уровне.
-
-Проверенный временем курс проведет вас от самых основ (история возникновения языка, типы данных, циклы, условия) до серьезных, продвинутых знаний (   Читать дальше...   )Производство: jsexpertЖанр: Программирование, JavaScriptПродолжительность: 14:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25360AB443EF70D31CDB16F440F6E98E17BD491F
 ```
 
 https://mybot314.ru/tekegram_catalog/

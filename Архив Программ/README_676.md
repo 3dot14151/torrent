@@ -6,7 +6,7 @@ Novicorp WinToFlash Professional 0.9.0000 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708946.jpg" />
+  <img src="Z:/picture/008/save_picture_708946.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ StartIsBack++ 2.9.2 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708920.jpg" />
+  <img src="Z:/picture/008/save_picture_708920.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Kazrog - True Iron 1.3.2 VST, VST3, AAX (x64) Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708875.jpg" />
+  <img src="Z:/picture/008/save_picture_708875.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Whale Browser 3.13.131.36 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708870.jpg" />
+  <img src="Z:/picture/008/save_picture_708870.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Disk Cleaner 10.8.3.803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708865.jpg" />
+  <img src="Z:/picture/008/save_picture_708865.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EaseUS Data Recovery Wizard Professional 13.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708828.jpg" />
+  <img src="Z:/picture/008/save_picture_708828.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BELOFF 2020.08 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708815.jpg" />
+  <img src="Z:/picture/008/save_picture_708815.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Total Commander Ultima Prime 6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708802.jpg" />
+  <img src="Z:/picture/008/save_picture_708802.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Replay Video Capture 8.8.4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708780.jpg" />
+  <img src="Z:/picture/008/save_picture_708780.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Coolmuster PDF Converter Pro 2.1.21 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708779.jpg" />
+  <img src="Z:/picture/008/save_picture_708779.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AnyMP4 Video Converter Ultimate 7.2.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708778.jpg" />
+  <img src="Z:/picture/008/save_picture_708778.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ OBS Studio 27.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708753.jpg" />
+  <img src="Z:/picture/008/save_picture_708753.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ AIMP 5.02 Build 2365 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708747.jpg" />
+  <img src="Z:/picture/008/save_picture_708747.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ CCleaner 5.54.7088 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708732.jpg" />
+  <img src="Z:/picture/008/save_picture_708732.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Internet Download Manager 6.32 Build 6 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708723.jpg" />
+  <img src="Z:/picture/008/save_picture_708723.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Aiseesoft Video Converter Ultimate 9.2.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708687.jpg" />
+  <img src="Z:/picture/008/save_picture_708687.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Magic DVD Copier 9.0.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708685.jpg" />
+  <img src="Z:/picture/008/save_picture_708685.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Icecream Image Resizer 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708684.jpg" />
+  <img src="Z:/picture/008/save_picture_708684.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ oCam 395.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708683.jpg" />
+  <img src="Z:/picture/008/save_picture_708683.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tipard Video Downloader 5.0.28 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708680.jpg" />
+  <img src="Z:/picture/008/save_picture_708680.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Insofta Cover Commander 5.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708678.jpg" />
+  <img src="Z:/picture/008/save_picture_708678.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708638.jpg" />
+  <img src="Z:/picture/008/save_picture_708638.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ GlassWire Elite 2.1.152 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708618.jpg" />
+  <img src="Z:/picture/008/save_picture_708618.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708611.jpg" />
+  <img src="Z:/picture/008/save_picture_708611.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Insofta 3D Text Commander 4.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708584.jpg" />
+  <img src="Z:/picture/008/save_picture_708584.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Calibre 2.84 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708583.jpg" />
+  <img src="Z:/picture/008/save_picture_708583.jpg" />
 </div>
 
 

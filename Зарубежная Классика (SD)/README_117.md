@@ -1,3 +1,81 @@
+###  Публикация: 1702318   (115357) от 27.02.2024
+
+Приговорённый к смерти бежал, или Дух веет, где хочет / Un condamne a mort sest echappe... (1956) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на мемуарах Андре Девиньи, который во время Второй мировой войны был узником тюрьмы Монлюк... В 1943 году участник движения Сопротивления лейтенант Фонтен был арестован фашистами и заключён в лионскую тюрьму Монлюк. Помещённый в камеру 107 на самом верхнем этаже, он планомерно готовится к побегу, несмотря на скептическое отношение к его замыслу других (   Читать дальше...   )Производство: Франция / Gaumont, Nouvelles Éditions de FilmsЖанр: драма, военный, триллерРежиссер: Робер БрессонАктеры: Франсуа Летерье, Шарль Ле Кленш, Морис Беерблок, Ролан Моно, Жак Эрто, Жан-Поль Делюмо, Роже Треэрн, Жан-Филипп Деламарр, Сезар ГаттеньоПеревод: профессиональный одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BE1B4AD4B6C68705490E80864FE3F22F36368D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699429   (115221) от 28.02.2024
+
+Время развлечений / Playtime (1967) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115221.jpg" />
+</div>
+
+
+###  Подробнее
+
+В значительной степени сымпровизированный на съёмочной площадке, фильм показывает уродливость современных мегаполисов. Действие происходит в футуристическом, гиперпотребительском Париже. История состоит из шести эпизодов, связанных двумя персонажами, которые неоднократно сталкиваются друг с другом в течение дня: Барбарой, молодой американской туристкой, посещающей (   Читать дальше...   )Производство: Франция, Италия / Jolly Film, Specta FilmsЖанр: комедияРежиссер: Жак ТатиАктеры: Жак Тати, Барбара Деннек, Рита Мэйден, Жаклин Леконт, Франс Рюмилли, Франс Делахаль, Валери Камиль, Эрика Денцлер, Николь Рэй, Ивет Дюкрё, Натали ДжемПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 02:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E903A17BB025DE675CA0D04D1C5370116897E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699949   (115044) от 29.02.2024
+
+Правила игры / La Regle du jeu / The Rules of the Game (1939) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме изображены представители высшего класса французского общества и их слуги незадолго до начала Второй мировой войны... Совершив трансатлантический перелёт за рекордно короткое время, авиатор Андре Жюрье сообщает по радио о своем разочаровании - некая персона не пришла в аэропорт, чтобы его поприветствовать. Этим человеком была Кристина, австрийка и жена коллекционера (   Читать дальше...   )Производство: Франция / New Japan Pro-Wrestling Co, Nouvelles Éditions de FilmsЖанр: драма, комедияРежиссер: Жан РенуарАктеры: Жан Ренуар, Гастон Модо, Поль Франкёр, Пьер Манье, Нора Грегор, Полетт Дюбо, Мила Парели, Одетт Талазак, Клер Жерар, Anne Mayen, Лизе Элина, Марсель Далио, Жюльен Каретт, Ролан ТутенПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712FB7B92B822EB50E46C9720A38EEB8E83D637D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703479   (115003) от 29.02.2024
 
 Последний человек / Der letzte Mann (1924) BDRip [H.264] [DE / RU Sub]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115003.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114914.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114208.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114202.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113909.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113807.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112308.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110995.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110888.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107319.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107023.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106307.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105232.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105195.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103432.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103382.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103259.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103097.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102659.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102309.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101470.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101218.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100592.jpg" />
 </div>
 
 
@@ -594,89 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CAF330710BD23A5D47F2392A91E6638B10948B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822207   (99925) от 05.10.2025
-
-Юлий Цезарь / Julius Caesar (1953) WEB-DLRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённой пьесы  У. Шекспира.
-Разгромив войска Помпея, римский полководец Цезарь стал главой государства. Он обладал пожизненными полномочиями диктатора, ему было дано исключительное право распоряжаться войском и казной. В честь него была воздвигнута статуя с надписью «Полубогу». Кассий и Брут возглавили заговор против Цезаря.
-
-Жена Цезаря Кальпурния (   Читать дальше...   )Производство: США / Metro-Goldwyn-MayerЖанр: драма, история, экранизацияРежиссер: Джозеф Лео МанкевичАктеры: Марлон Брандо, Джеймс Мэйсон, Джон Гилгуд, Луис Калхёрн, Эдмонд О’Брайен, Грир Гарсон, Дебора Керр, Джордж Макреди, Майкл Пэйт, Ричард ХейлПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36D7B69BB7D59EACFB4324D78B0C44C36614539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479762   (99449) от 12.04.2012
-
-Последняя охота / The Last Hunt (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой Роберта Тэйлора — Чарли Гилсон — удачливый и быстрый охотник, которому все дается очень легко. А вот Сэнди МакКензи наоборот, слишком скрытен и медлителен, что никак не дает ему встать на ноги.
-И вот однажды они решают объединиться для Большой Охоты на бизонов. В их компанию также попадают старый одноногий скорняк по прозвищу Лесная Лапа и полукровка-индеец Джимми, совсем еще мальчишка.
-Никто из компании пока не знал, что Чарли Гилсон, который когда-то сражался на войне, да и теперь подобрал себе исключительно кровавую работенку — отстреливать довольно безобидных бизонов — просто одержим жаждой смерти и убийства.Жанр: Вестерн, боевик, приключенияРежиссер: Ричард БруксАктеры: Роберт Тэйлор, Стюарт Грэйнджер, Ллойд Нолан, Дебра Пейджит, Расс Тэмблин, Констанс Форд, Джо Де Сантис, Эйнсли Прайор, Ралф Муди, Фред Грэм, Эд ЛонехиллПеревод: Многоголосый закадровыйПродолжительность: 01:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EFC40C5DFBDC2E14906644E9677606B809EA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475793   (98632) от 04.04.2012
-
-[EN] Вернись, малышка Шеба / Come Back, Little Sheba (1952) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сентиментальные, с некоторым оттенком сожаления, мечты и воспоминания женщины-домохозяйки Лолы Делани (Ширли Бут) о том далеком, и, к сожалению, уже невозратном прошлом, где она - молодая, красивая девушка, а её вечно пьяный супруг - красавец-мужчина (Берт Ланкастер).Жанр: ДрамаРежиссер: Дэниэл МаннАктеры: Берт Ланкастер, Ширли Бут, Терри Мур, Ричард Джэкел, Филип Обер, Эдвин Макс, Лиза Голм, Уолтер Келли, Нед Глэсс, Уильям Хааде, Вирджиния Холл, Энтони Джоким, Питер Лидз, Китти МакХью, Пол МакВей, Вирджиния МалленПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D903726D14975E06D9DC916D87A9A09CFBA1534B
 ```
 
 https://mybot314.ru/tekegram_catalog/

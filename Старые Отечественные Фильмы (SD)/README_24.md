@@ -1,3 +1,56 @@
+###  Публикация: 535743   (774626) от 23.05.2013
+
+Сирано Де Бержерак (1989) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименной пьесе Эдмона Ростана.
+Талантливый поэт Сирано де Бержерак считает, что его отталкивающая внешность не дает ему право открыть свою любовь прекрасной Роксане, которую он давно предано любит. Благородный и самоотверженный человек, он помогает своему молодому другу завоевать сердце девушки, надеясь, что это принесет счастье Роксане.Жанр: ДрамаРежиссер: Наум БирманАктеры: Григорий Гладий, Ольга Кабо, Андрей Подошьян, Валерий Ивченко, Виктор Степанов, Сергей Мигицко, Михаил Светин, Ирина Губанова, Сергей Бехтерев, Игорь ДмитриевПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10584CF289FD9A1CFD18294FF4B51A1288DA3AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213116   (773080) от 15.03.2018
+
+Такси-блюз (1990) WEB-DLRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодраматическая история о том, как жизнь соединила двоих ни в чем не схожих людей — практичного таксиста и безвольного спившегося музыканта.Производство: СССР, ФранцияЖанр: Драма, комедияРежиссер: Павел ЛунгинАктеры: Петр Мамонов, Петр Зайченко, Наталья Коляканова, Елена Сафонова, Владимир Кашпур, Хол Сингер, Сергей Газаров, Евгений Герчаков, Дмитрий Пригов, Игорь Золотовицкий, Валерий ХлевинскийСубтитры: ОтсутствуютПродолжительность: 01:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BC199A1B0E594E4C52783E9F63978302974C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547875   (772553) от 12.05.2016
 
 Уходя – уходи (1978) DVDRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_772553.jpg" />
+  <img src="Z:/picture/005/save_picture_772553.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772465.jpg" />
+  <img src="Z:/picture/008/save_picture_772465.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771878.jpg" />
+  <img src="Z:/picture/008/save_picture_771878.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771513.jpg" />
+  <img src="Z:/picture/008/save_picture_771513.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771222.jpg" />
+  <img src="Z:/picture/008/save_picture_771222.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771185.jpg" />
+  <img src="Z:/picture/008/save_picture_771185.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771104.jpg" />
+  <img src="Z:/picture/008/save_picture_771104.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771065.jpg" />
+  <img src="Z:/picture/008/save_picture_771065.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770608.jpg" />
+  <img src="Z:/picture/008/save_picture_770608.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770604.jpg" />
+  <img src="Z:/picture/008/save_picture_770604.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770221.jpg" />
+  <img src="Z:/picture/008/save_picture_770221.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770113.jpg" />
+  <img src="Z:/picture/008/save_picture_770113.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768400.jpg" />
+  <img src="Z:/picture/008/save_picture_768400.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767753.jpg" />
+  <img src="Z:/picture/008/save_picture_767753.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767484.jpg" />
+  <img src="Z:/picture/008/save_picture_767484.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767297.jpg" />
+  <img src="Z:/picture/008/save_picture_767297.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766876.jpg" />
+  <img src="Z:/picture/008/save_picture_766876.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766754.jpg" />
+  <img src="Z:/picture/008/save_picture_766754.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766682.jpg" />
+  <img src="Z:/picture/008/save_picture_766682.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765323.jpg" />
+  <img src="Z:/picture/008/save_picture_765323.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765254.jpg" />
+  <img src="Z:/picture/008/save_picture_765254.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765236.jpg" />
+  <img src="Z:/picture/008/save_picture_765236.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765207.jpg" />
+  <img src="Z:/picture/008/save_picture_765207.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765187.jpg" />
+  <img src="Z:/picture/008/save_picture_765187.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA91D1859FA3B9ECD7E22E12E36DA82163D7E03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126060   (764475) от 19.04.2017
-
-Потому что люблю (1974) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летчик-истребитель Николай Муравьев переживает личную драму: жена с сыном уехали на материк — надоела им жизнь за Полярным кругом. Полковник Белый, подумав о том, что жена вернется к мужу, если тот будет служить на материке, посылает Николая в командировку. В новой части Муравьев встречает своего сокурсника Евгения Шелеста. Друзьям предстоит летать в паре.Производство: СССР, БеларусьфильмЖанр: ВоенныйРежиссер: Игорь ДобролюбовАктеры: Геннадий Корольков, Юрий Кузьменков, Николай Рыбников, Валентина Теличкина, Александра Климова, Василий Бочкарёв, Наталья Величко, Наталья ГвоздиковаПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DEA96033F1F257738967248E2D3DC4D8734A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125938   (764315) от 19.04.2017
-
-Дети Дон Кихота (1965) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764315.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дети Дон Кихота» — история обычной на первый взгляд семьи. Чета врачей и три сына. Старший Виктор — молодой художник; средний Дима — растёт и ищет любовь, для младшего Юры жизнь — это тёмный зал кинотеатра со своим другом-одноклассником вместо школы. Средний решает жениться, младший собирается бежать в Африку освобождать угнетённых негров, старший решает, что он (   Читать дальше...   )Производство: СССР, киностудия "Мосфильм"Жанр: КомедияРежиссер: Евгений КареловАктеры: Анатолий Папанов, Вера Орлова, Владимир Коренев, Лев Прыгунов, Андрей Бельянинов, Наталья Фатеева, Николай Парфёнов, Наталья Седых, Наталья Зорина, Валентина Березуцкая, Саша Благовещенский, Зоя Василькова, Мария Кремнева, Валентина Ананьина и др.Продолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DB94E228C4D783C6AF563EAACA1C820959B795
 ```
 
 https://mybot314.ru/tekegram_catalog/

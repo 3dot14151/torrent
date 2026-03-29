@@ -6,7 +6,7 @@ Adobe Photoshop Lightroom 6.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713047.jpg" />
+  <img src="Z:/picture/008/save_picture_713047.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Capture 8.2 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713031.jpg" />
+  <img src="Z:/picture/008/save_picture_713031.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinPE8.0 (x86/Native x86) WinPE10 (x64) Sergei Strelec 2016.06.09 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713025.jpg" />
+  <img src="Z:/picture/008/save_picture_713025.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Thunderbird 78.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713001.jpg" />
+  <img src="Z:/picture/008/save_picture_713001.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 72.0.3626.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712981.jpg" />
+  <img src="Z:/picture/008/save_picture_712981.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USB Safely Remove 5.3.8.1233 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712933.jpg" />
+  <img src="Z:/picture/008/save_picture_712933.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4678.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712919.jpg" />
+  <img src="Z:/picture/008/save_picture_712919.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adobe Premiere Pro CC 2018 12.1.0.186 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712916.jpg" />
+  <img src="Z:/picture/008/save_picture_712916.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Acronis True Image 2018 Build 11530  RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712914.jpg" />
+  <img src="Z:/picture/008/save_picture_712914.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712913.jpg" />
+  <img src="Z:/picture/008/save_picture_712913.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wise Care 365 Pro 5.2.7.522 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712878.jpg" />
+  <img src="Z:/picture/008/save_picture_712878.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DMG Audio – Plugins Bundle (2019.2.2) VST, VST3, AAX, RTAS (x86/x64) RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712876.jpg" />
+  <img src="Z:/picture/008/save_picture_712876.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Google Chrome 72.0.3626.121 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712864.jpg" />
+  <img src="Z:/picture/008/save_picture_712864.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ HWiNFO x32/x64 6.02-3670 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712854.jpg" />
+  <img src="Z:/picture/008/save_picture_712854.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ DSP pack 1.41 (Winamp / Aimp3) RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712848.jpg" />
+  <img src="Z:/picture/008/save_picture_712848.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ XMind 6 Pro 3.5.2 Build 201504270119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712811.jpg" />
+  <img src="Z:/picture/008/save_picture_712811.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Balabolka 2.15.0.812 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712784.jpg" />
+  <img src="Z:/picture/008/save_picture_712784.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Foxit Reader 10.0.1.35811 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712709.jpg" />
+  <img src="Z:/picture/008/save_picture_712709.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Microsoft Windows 10 Pro / Enterprise Insider Preview 10.0.10074 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712702.jpg" />
+  <img src="Z:/picture/008/save_picture_712702.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10102 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712694.jpg" />
+  <img src="Z:/picture/008/save_picture_712694.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Reg Organizer 7.11 Final RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712683.jpg" />
+  <img src="Z:/picture/008/save_picture_712683.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Universal USB Installer 1.9.9.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712626.jpg" />
+  <img src="Z:/picture/008/save_picture_712626.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Avira Phantom VPN Pro 2.20.1.23980 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712591.jpg" />
+  <img src="Z:/picture/008/save_picture_712591.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Daum PotPlayer 1.7.17508 Stable Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712589.jpg" />
+  <img src="Z:/picture/008/save_picture_712589.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Windows 10 Transformation Pack 3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712584.jpg" />
+  <img src="Z:/picture/008/save_picture_712584.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Mandelbulber 2 2.27.0 + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712581.jpg" />
+  <img src="Z:/picture/008/save_picture_712581.jpg" />
 </div>
 
 

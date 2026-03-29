@@ -1,3 +1,174 @@
+###  Публикация: 950933   (368153) от 27.10.2015
+
+Структура Момента (27.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_368153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общественное мнение на Западе относительно российской военной операции в Сирии, возможно, начинает меняться. Раздаются голоса, как представляется, косвенно поддерживающие российскую политику, появляются трактовки прошлых событий. Так, бывший премьер-министр Великобритании Тони Блэр заявил об ошибках, которые были совершены, когда была начата военная операция, в первую (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программа, политикаПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E40B31A9E0DB095C0D58EF0BB5F3042A807771D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176795   (367760) от 23.10.2017
+
+NHL 2017-2018. Regular Season. On The Fly 13.10.2017 (14.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей регулярного чемпионата НХЛ 2017-2018 за 13.10.2017:
+Коламбус Блю Джекетс – Нью-Йорк Рейнджерс
+Нью-Джерси Дэвилз – Вашингтон Кэпиталз
+Калгари Флэймз – Оттава Сенаторз(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E7B7406A6E73E81FDDCC439340D2C326853DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176787   (367758) от 23.10.2017
+
+Хоккей. НХЛ 2017-2018. Вегас Голден Найтс – Детройт Ред Уингз (13.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367758.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2017 года, суббота. 05:30 МСК
+НХЛ 2017-2018. Регулярный чемпионат
+Вегас Голден Найтс – Детройт Ред Уингз
+Стадион: Ти-Мобайл Арена (Парадайс, США), 17645 зрителей (101 % при вместимости 17500)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C3FE3FFC0D421B17CC224C7F12D9891AAA1441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176794   (367757) от 23.10.2017
+
+Хоккей. НХЛ 2017-2018. Нью-Джерси Дэвилз – Вашингтон Кэпиталз (13.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367757.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 октября 2017 года, суббота. 02:00 МСК
+НХЛ 2017-2018. Регулярный чемпионат
+Нью-Джерси Дэвилз – Вашингтон Кэпиталз
+Стадион: Пруденшиал-центр (Ньюарк, США), 13458 зрителей (76 % при вместимости 17625)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6E4399989B3EF466BE2D76E80827722161097E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176637   (367756) от 23.10.2017
+
+Хоккей. НХЛ 2017-2018. Питтсбург Пингвинз - Тампа-Бэй Лайтнинг (21.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367756.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 октября 2017 года, воскресенье. 05:00 МСК
+НХЛ 2017-2018. Регулярный чемпионат
+Питтсбург Пингвинз - Тампа-Бэй Лайтнинг
+Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Setanta SportsЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFC20C92537CCFEE9B1EB6B03FFEBEA8F570125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176866   (367649) от 23.10.2017
+
+Фигурное катание. Гран-при 2017-2018. 1-й Этап. Кубок Ростелекома 2017. Москва (Россия). 1 День (20.10.2017) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367649.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 октября 2017 года, пятница
+Серия Гран-при по фигурному катанию сезона 2017-2018.
+«Rostelecom Cup 2017» — 1-й Этап Гран-при. Москва (Россия).
+1. Мужчины. Короткая программа(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:29:05—01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095D59E109FE4F8DF2814B5DD76551807C0E6C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176882   (367648) от 23.10.2017
 
 Фигурное катание. Гран-при 2017-2018. 1-й Этап. Кубок Ростелекома 2017. Москва (Россия). Церемония открытия (20.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +177,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367648.jpg" />
+  <img src="Z:/picture/008/save_picture_367648.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367647.jpg" />
+  <img src="Z:/picture/008/save_picture_367647.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367641.jpg" />
+  <img src="Z:/picture/008/save_picture_367641.jpg" />
 </div>
 
 
@@ -93,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367637.jpg" />
+  <img src="Z:/picture/008/save_picture_367637.jpg" />
 </div>
 
 
@@ -122,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367600.jpg" />
+  <img src="Z:/picture/008/save_picture_367600.jpg" />
 </div>
 
 
@@ -148,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367092.jpg" />
+  <img src="Z:/picture/008/save_picture_367092.jpg" />
 </div>
 
 
@@ -177,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367090.jpg" />
+  <img src="Z:/picture/008/save_picture_367090.jpg" />
 </div>
 
 
@@ -206,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367089.jpg" />
+  <img src="Z:/picture/008/save_picture_367089.jpg" />
 </div>
 
 
@@ -235,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367088.jpg" />
+  <img src="Z:/picture/008/save_picture_367088.jpg" />
 </div>
 
 
@@ -264,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367087.jpg" />
+  <img src="Z:/picture/008/save_picture_367087.jpg" />
 </div>
 
 
@@ -293,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367086.jpg" />
+  <img src="Z:/picture/008/save_picture_367086.jpg" />
 </div>
 
 
@@ -322,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367085.jpg" />
+  <img src="Z:/picture/008/save_picture_367085.jpg" />
 </div>
 
 
@@ -351,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367084.jpg" />
+  <img src="Z:/picture/008/save_picture_367084.jpg" />
 </div>
 
 
@@ -380,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367083.jpg" />
+  <img src="Z:/picture/008/save_picture_367083.jpg" />
 </div>
 
 
@@ -406,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367011.jpg" />
+  <img src="Z:/picture/008/save_picture_367011.jpg" />
 </div>
 
 
@@ -432,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367006.jpg" />
+  <img src="Z:/picture/008/save_picture_367006.jpg" />
 </div>
 
 
@@ -461,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367003.jpg" />
+  <img src="Z:/picture/008/save_picture_367003.jpg" />
 </div>
 
 
@@ -490,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366882.jpg" />
+  <img src="Z:/picture/008/save_picture_366882.jpg" />
 </div>
 
 
@@ -519,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366752.jpg" />
+  <img src="Z:/picture/008/save_picture_366752.jpg" />
 </div>
 
 
@@ -548,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366656.jpg" />
+  <img src="Z:/picture/008/save_picture_366656.jpg" />
 </div>
 
 
@@ -562,162 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A973CD853696E047DF47B69810AF6A9290BF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406420   (366518) от 05.11.2011
-
-Замбези: Источник жизни / The Zambezi: Source Of Life (2010) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замбези - четвертая по протяженности река в Африке, ее длина составляет более 2650 км. И для животных, и для людей она является источником жизниЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9578D3A950480F8C4FDCC967BCB5E28B0D7C91EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576404   (366456) от 16.11.2012
-
-В поисках племен охотников.  Охота ради выживания / Man Hunt. Kill To Survive. Серия №2 (Охота в Калахари) (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Племя намал, обитающее на острове Танна, просит у вулкана удачи перед охотой на кабанов, которые служат им как пищей, так и "деньгами".Жанр: ДокументальныйПродюсер: Nicola HammondПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: ~ 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE29047FEEDA745C6B34345A2160A91A8E5E3DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576304   (366436) от 16.11.2012
-
-NG:В поисках племен охотников.  Охота ради выживания / Man Hunt. Kill To Survive. Серия №1 (Острозубые кочевники) (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Племя намал, обитающее на острове Танна, просит у вулкана удачи перед охотой на кабанов, которые служат им как пищей, так и "деньгами".Жанр: ДокументальныйПродюсер: Nicola HammondПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: ~ 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9599407BD80625296A9DC6F61E994AF3C6903CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950649   (366343) от 28.10.2015
-
-Футбол. Чемпионат Италии 2015-16. Серия А. 9 тур. Фиорентина - Рома (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Италии 2015-16. Серия А. 9 тур. Фиорентина - Рома.Телекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:55:34 + 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37394286F29BD1C60DD9EA3E94FA22E9060595D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950646   (366341) от 28.10.2015
-
-Футбол. Чемпионат Испании 2015-16. Liga BBVA. 9 тур. Барселона - Эйбар (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2015-16. Liga BBVA. 9 тур. Барселона - Эйбар.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:52:19 + 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9152EE19F4EEFF573AB3C2BDE6910B82A87EA86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950651   (366339) от 28.10.2015
-
-Футбол. Чемпионат Франции 2015-2016. Ligue 1. 11 тур. Лилль – Олимпик Марсель (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Франции 2015-2016. Ligue 1. 11 тур. Лилль – Олимпик Марсель.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:48:49 + 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB93CCF0C9BB3BD2D4D5F64F8DA26AC4DC99DFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

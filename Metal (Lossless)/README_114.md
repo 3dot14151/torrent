@@ -1,3 +1,90 @@
+###  Публикация: 1035981   (622665) от 19.07.2016
+
+Be'lakor - Vessels (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622665.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Luma
+2. An Ember's Arc
+3. Withering Strands
+4. Roots To Sever(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 0:88:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353AA2CE79A64DDB886E55485D03235DE7531446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229756   (622621) от 08.06.2018
+
+Lordi - Sexorcism (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexorcism
+02. Your Tongue's Got the Cat
+03. Romeo Ate Juliet
+04. Naked in My Cellar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB94B2A2371B41222467F96612BD395AC4B0A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295023   (622378) от 11.04.2019
+
+Eluveitie - Ategnatos (2019) Limited Bonus Edition [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ategnatos (4:53)
+02. Ancus (0:11)
+03. Deathwalker (4:53)
+04. Black Water Dawn (4:18)(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEF41903C0F72B1F69C72FDC7A2F5B59E96DCF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544166   (622215) от 15.04.2022
 
 Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -6,7 +93,7 @@ Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622215.jpg" />
+  <img src="Z:/picture/008/save_picture_622215.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Luca Turilli's Rhapsody - Prometheus, Symphonia Ignis Divinus (2015) Limited Edi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621778.jpg" />
+  <img src="Z:/picture/008/save_picture_621778.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lindemann - Skills in Pills (2015) [FLAC|tracks +.cue]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621355.jpg" />
+  <img src="Z:/picture/008/save_picture_621355.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621150.jpg" />
+  <img src="Z:/picture/005/save_picture_621150.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621141.jpg" />
+  <img src="Z:/picture/005/save_picture_621141.jpg" />
 </div>
 
 
@@ -163,7 +250,7 @@ Periphery - Periphery II: This Time It's Personal (2012) Limited Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_620819.jpg" />
+  <img src="Z:/picture/005/save_picture_620819.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ Absolva - Flames Of Justice (2012) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620802.jpg" />
+  <img src="Z:/picture/008/save_picture_620802.jpg" />
 </div>
 
 
@@ -227,7 +314,7 @@ Crystal Ball - Liferider (2015) Limited Edition [FLAC|image+.cue]<Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620535.jpg" />
+  <img src="Z:/picture/008/save_picture_620535.jpg" />
 </div>
 
 
@@ -256,7 +343,7 @@ Creation from Crisis - Atrophy (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620466.jpg" />
+  <img src="Z:/picture/008/save_picture_620466.jpg" />
 </div>
 
 
@@ -285,7 +372,7 @@ Luca Turilli's Dreamquest (ex.Rhapsody) - Lost Horizons (2006) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619980.jpg" />
+  <img src="Z:/picture/008/save_picture_619980.jpg" />
 </div>
 
 
@@ -314,7 +401,7 @@ Adrenaline Mob - We The People (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619813.jpg" />
+  <img src="Z:/picture/008/save_picture_619813.jpg" />
 </div>
 
 
@@ -343,7 +430,7 @@ Dust Bolt - Mass Confusion (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619252.jpg" />
+  <img src="Z:/picture/008/save_picture_619252.jpg" />
 </div>
 
 
@@ -372,7 +459,7 @@ Morning Dwell - Morning Dwell (2014) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619248.jpg" />
+  <img src="Z:/picture/008/save_picture_619248.jpg" />
 </div>
 
 
@@ -401,7 +488,7 @@ Gone Is Gone - Gone Is Gone EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619245.jpg" />
+  <img src="Z:/picture/008/save_picture_619245.jpg" />
 </div>
 
 
@@ -430,7 +517,7 @@ M.O.D. - The Rebel You Love to Hate (2003) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619148.jpg" />
+  <img src="Z:/picture/008/save_picture_619148.jpg" />
 </div>
 
 
@@ -459,7 +546,7 @@ Periphery - Periphery III: Select Difficulty (2016) [FLAC|tracks|WEB-DL]<Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618996.jpg" />
+  <img src="Z:/picture/008/save_picture_618996.jpg" />
 </div>
 
 
@@ -488,7 +575,7 @@ Frozen Crown - Crowned In Frost (2019) [FLAC|Lossless|tracks + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618715.jpg" />
+  <img src="Z:/picture/008/save_picture_618715.jpg" />
 </div>
 
 
@@ -517,7 +604,7 @@ Shadows Of Steel - Twilight II (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618482.jpg" />
+  <img src="Z:/picture/008/save_picture_618482.jpg" />
 </div>
 
 
@@ -546,7 +633,7 @@ Semblant - Vermilion Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618478.jpg" />
+  <img src="Z:/picture/008/save_picture_618478.jpg" />
 </div>
 
 
@@ -575,7 +662,7 @@ The Great Discord - Duende (2015) [FLAC|image+.cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618417.jpg" />
+  <img src="Z:/picture/008/save_picture_618417.jpg" />
 </div>
 
 
@@ -604,7 +691,7 @@ Holy Hell - Blasphemous Transformation (2022) [FLAC|Lossless|WEB-DL|tracks] <Gro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618404.jpg" />
+  <img src="Z:/picture/008/save_picture_618404.jpg" />
 </div>
 
 
@@ -633,7 +720,7 @@ Motorjesus - Wheels Of Purgatory (2010) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617406.jpg" />
+  <img src="Z:/picture/008/save_picture_617406.jpg" />
 </div>
 
 
@@ -662,7 +749,7 @@ Roland Grapow - Solo Projects (Japanese Edition): 2 Albums, 1 Single, 3 CD (1997
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617384.jpg" />
+  <img src="Z:/picture/008/save_picture_617384.jpg" />
 </div>
 
 
@@ -676,93 +763,6 @@ Roland Grapow - Solo Projects (Japanese Edition): 2 Albums, 1 Single, 3 CD (1997
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:557338A09AADBA49108684A74210A800626C8261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295781   (617096) от 14.04.2019
-
-Hexis - XII (2017) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Derelictus (1:02)
- 02. Nefarius (4:27)
- 03. Famelicus (3:50)
- 04. Miseria (2:05)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D5D007CA7E665E26F6F30E7930BD01EF237864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295782   (617094) от 14.04.2019
-
-Bastions - Verses (2012) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seagulls (1:07)
- 02. Monument (2:25)
- 03. We Will All Sink (2:14)
- 04. Fathoms (1:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2396C7D4E8BCD4D5CAEA58924C0086F94DB68F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295778   (617091) от 14.04.2019
-
-36 Crazyfists - Lanterns (2017) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Eater (4:18)
- 02. Wars to Walk Away From (3:44)
- 03. Better to Burn (3:59)
- 04. Damaged Under Sun (3:05)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCEAA68405E0755049FA1AFAF5DCFC09266BD7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 969472   (146546) от 27.12.2015
+
+Тупик / Standoff (2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран войны Картер с дробовиком наперевес вынужден защищать двенадцатилетнюю девочку, ставшую свидетелем убийства.Производство: Goldrush Entertainment, First Point Entertainment, Maple Leaf FilmsЖанр: ТриллерРежиссер: Адам АллекаАктеры: Томас Джейн, Лоренс Фишбёрн, Элла Бэллентайн, Джим Уотсон,
+Джон Тенч, Лаура ДеКартере, Тед Атертон, Джоанна ДугласПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E7268B9143CDFC59F330B8084E114EC9137116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087375   (146390) от 27.12.2016
+
+Повесть о любви и тьме / A Tale of Love and Darkness (2015) WEB-DL [H.264/1080p-LQ] [HEB / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнометражный дебют Натали Портман в качестве режиссёра. Фильм основан на одноимённом автобиографическом романе израильского писателя и журналиста Амоса Оза (род. 1939), опубликованном в 2002 году. Его воспоминания о детстве, прошедшем в Иерусалиме 1940-х годов в период становления Израильского государства.Производство: Израиль, США / Avi Chai fund, Gesher Fund, Handsomecharlie Films, Israel Film Council, Israel Fund for Film Production, Jerusalem Film and Television FundЖанр: Драма, БиографияРежиссер: Натали ПортманАктеры: Натали Портман, Шира Хаас, Томер Капон, Амир Тесслер, Макрам Хури, Охад Кноллер, Джилад Кахана, Мони Мошонов, Ротем Кейнан, Нета Рискин ...Перевод: ОтсутствуетЯзык озвучки: ИвритЯзык субтитров: АнглийскийПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB18FF1A9313EA113FF90ED67F110CF5450A2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271723   (146199) от 25.12.2018
+
+Братья Систерс / The Sisters Brothers (2018) WEB-DL [H.264/1080p-LQ] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья-беспредельщики по фамилии Систерс по заданию таинственного Командора должны прикончить некоего Уорма, золотоискателя-авантюриста. Фартовые по жизни охотники за головами гонятся за новой жертвой, не подозревая, что их разведчик не так-то прост… Начинается игра на выживание: острый ум против безбашенной силы.Производство: Франция, Испания, Румыния, США, Бельгия / Why Not Productions, Annapurna Pictures, Page 114 ProductionsЖанр: Драма, Комедия, Криминал, Вестерн, ПриключенияРежиссер: Жак ОдиарАктеры: Джон Си Райли, Хоакин Феникс, Джейк Джилленхол, Риз Ахмед, Ребекка Рут, Эллисон Толман, Рутгер Хауэр, Кэрол Кейн, Патрис Коссоно, Зак Эбботт и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69705A953AB8A603C3B0A6EF58129D7A1C936255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434833   (145341) от 27.12.2020
+
+Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/720p-LQ] [EN / EN Sub] [IMAX Edition]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Влиятельный и успешный бизнесмен Лорд мечтает стать богом среди смертных. Для этого он не жалеет средств и собирает со всех уголков света разнообразные магические артефакты, пытаясь найти тот, который сможет подарить ему безграничную силу и могущество. В поисках ему помогает специалист по древней истории доктор Барбара Энн Минерва. Так в руки Минервы попадает некий (   Читать дальше...   )Производство: США, Великобритания, Испания / Atlas Entertainment, DC Comics, DC Entertainment, The Stone Quarry, Warner Bros.Жанр: Фэнтези, Боевик, ПриключенияРежиссер: Пэтти ДженкинсАктеры: Галь Гадот, Крис Пайн, Кристен Уиг, Педро Паскаль, Робин Райт, Конни Нильсен, Лилли Аспелл, Амр Вакед, Кристоффер Полаха, Наташа Ротуэлл и другиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH)Продолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B88B326699C353DAE70BC56E94BA6DB32A5507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434823   (145244) от 27.12.2020
 
 Чудо-женщина: 1984 / Wonder Woman 1984 (2020) WEB-DL [H.264/1080p-LQ] [EN / EN, ES Sub] [IMAX Edition]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145244.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145083.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142548.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142430.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141929.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141813.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141449.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140493.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140257.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139159.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138987.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138606.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137978.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137890.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137367.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134469.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133704.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133685.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133294.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133278.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132862.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128972.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4EDC7BEB33C3D0D42DF376669CC39D1541C6FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824541   (128855) от 15.10.2025
-
-Снова ярость / Furioza Again / Inside Furioza (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-полицейский угрожает бывшему парню тюремным сроком, если тот не будет шпионить за бандой хулиганов.Производство: Польша / Netlix FilmЖанр: драмаРежиссер: Циприан Т. ОленцкиАктеры: Матеуш Даменцки, Дэвид МастерсонПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские (18+), Английские (forced, full, SDH)Продолжительность: 02:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F0D3A9E144C455772C9DFBED2E3DEC8E7F2CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684353   (127912) от 15.12.2023
-
-Семейный план / The Family Plan (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Морган очень разноплановый: преданный муж, любящий отец, успешный продавец автомобилей. А еще он бывший наемный убийца. Когда его настигает прошлое, он вынужден взять ничего не подозревающую семью в уникальное путешествие.Производство: США / Apple Original Films, Skydance MediaЖанр: боевик, комедияРежиссер: Саймон Селлан ДжонсАктеры: Мишель Монахэн, Марк Уолберг, Мэгги Кью, Киран Хайндс, Зои Маргарет Коллетти, Джонатан Койн, Фелиция Пирсон, Саид Тагмауи, Аниса Ниэлл Джонсон, Майлз ДолеакПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full, SDH), multisubsПродолжительность: 01:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A83802AA81A0809081A0CD28CE6EBD8F6039B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684389   (127849) от 15.12.2023
-
-Крупный улов / Finestkind (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата оказываются втянуты в сделку с преступным синдикатом Бостона.Производство: США / 101 Studios, Bosque Ranch ProductionsЖанр: триллер, драма, криминалРежиссер: Брайан ХелгелендАктеры: Бен Фостер, Тоби Уоллес, Дженна Ортега, Томми Ли Джонс, Тим Дейли, Клейн Кроуфорд, Лолита Давидович, Исмаэль Крус Кордова, Аарон Стэнфорд, Меган ЛитерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 02:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FF1CAC1F145596BC634F62563C921D35991AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685678   (127128) от 19.12.2023
-
-Немая ярость / Silent Night (2023) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127128.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе бандитской разборки случайная пуля лишает счастливую семью маленького сына, а его отца — голоса. Спустя год усиленной подготовки папа мальчика становится кошмаром для врагов в любой перестрелке, погоне или рукопашной. В годовщину трагедии он намерен разыграть безостановочную симфонию возмездия всем, кто встанет у него на пути. Теперь его действия скажут всё (   Читать дальше...   )Производство: США, Мексика / A Better Tomorrow Films, Capstone Studios, Corazón FilmsЖанр: боевикРежиссер: Джон ВуАктеры: Юэль Киннаман, Кид Кади, Арольд Торрес, Каталина Сандино Морено, Ёко Хамамура, Valeria Santaella, Винни О’Брайэн, Acoyani Chacon, Alejandro Monteros, Анджелес ВуПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английские (full, SDH)Продолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AEAA0DC5234F1583B9E0AC001135882D27ACEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

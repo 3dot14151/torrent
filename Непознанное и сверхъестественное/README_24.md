@@ -1,3 +1,56 @@
+###  Публикация: 645956   (435833) от 09.10.2015
+
+Таинственная Россия. Ставропольский край. Куда ведут знаки пришельцев? (2013.04.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша родина занимает огромную часть суши. Семнадцать миллионов квадратных километров. Четыре климатические зоны. Девять часовых поясов. Но все ли мы знаем об этой земле? Телеканал НТВ представляет цикл «Таинственная Россия» — документальный сериал о самых неизученных, самых загадочных местах на карте нашей страны.
+Мы привыкли жить — каждый внутри своей «скорлупы», (   Читать дальше...   )Жанр: Документальный, расследованиеПродолжительность: ~ 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675EA3D05CF44F44174DD97DCB0610FED2BE06DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063248   (434377) от 16.10.2016
+
+Битва экстрасенсов (2016.10.15) WEB-DL [H.264/720p] (сезон 17, выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434377.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6317BF3A10DE18D0335E676F728F890D6C9EC31B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945536   (433713) от 10.10.2015
 
 Территория заблуждений с Игорем Прокопенко (2015.10.10) SATRip
@@ -6,7 +59,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433713.jpg" />
+  <img src="Z:/picture/008/save_picture_433713.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433249.jpg" />
+  <img src="Z:/picture/008/save_picture_433249.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432950.jpg" />
+  <img src="Z:/picture/008/save_picture_432950.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431604.jpg" />
+  <img src="Z:/picture/008/save_picture_431604.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431143.jpg" />
+  <img src="Z:/picture/008/save_picture_431143.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429335.jpg" />
+  <img src="Z:/picture/008/save_picture_429335.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429164.jpg" />
+  <img src="Z:/picture/008/save_picture_429164.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428495.jpg" />
+  <img src="Z:/picture/008/save_picture_428495.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426742.jpg" />
+  <img src="Z:/picture/008/save_picture_426742.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426676.jpg" />
+  <img src="Z:/picture/008/save_picture_426676.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426590.jpg" />
+  <img src="Z:/picture/008/save_picture_426590.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426509.jpg" />
+  <img src="Z:/picture/008/save_picture_426509.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426499.jpg" />
+  <img src="Z:/picture/005/save_picture_426499.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426483.jpg" />
+  <img src="Z:/picture/005/save_picture_426483.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425049.jpg" />
+  <img src="Z:/picture/008/save_picture_425049.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425045.jpg" />
+  <img src="Z:/picture/008/save_picture_425045.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424975.jpg" />
+  <img src="Z:/picture/008/save_picture_424975.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424412.jpg" />
+  <img src="Z:/picture/005/save_picture_424412.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424243.jpg" />
+  <img src="Z:/picture/005/save_picture_424243.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424239.jpg" />
+  <img src="Z:/picture/005/save_picture_424239.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424087.jpg" />
+  <img src="Z:/picture/008/save_picture_424087.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424067.jpg" />
+  <img src="Z:/picture/008/save_picture_424067.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423902.jpg" />
+  <img src="Z:/picture/008/save_picture_423902.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422558.jpg" />
+  <img src="Z:/picture/008/save_picture_422558.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895FFC2CF8302F73FCAFA2C547209048B4016340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250925   (421829) от 29.09.2018
-
-Битва экстрасенсов (2018.09.29) SATRip (сезон 19, выпуск 2)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый долгожданный сезон. Люди, которые называют себя ясновидящими, вновь будут доказывать зрителям ТНТ наличие у себя необычных способностей. Кто из них станет сильнейшим, покажет время.Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: 01:08:01Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DD3A359E0A3AB24D0872FFA5E755E71D5B49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065264   (421628) от 22.10.2016
-
-Территория заблуждений с Игорем Прокопенко (2016.10.22) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13ECCDFF2B0C36C39FD1AFD6693682AD70991DEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

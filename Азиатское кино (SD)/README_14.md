@@ -1,3 +1,29 @@
+###  Публикация: 1376313   (860624) от 17.04.2020
+
+Длинная рука закона 4 / Saang gong kei bing 4 / Long Arm of the Law 4 / Underground Express (1990) DVDRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Июнь 1989 года, после студенческих демонстраций власти разыскивают их лидеров, которых укрывают в том числе иностранные посольства. Чтобы вывезти группу таких активисток на территорию Гонконга, а затем переправить в Штаты, лидер гонконгской организации помощи студентам нанимает группу материковых бандитов, в прошлом солдат. Те соглашаются помочь за круглую сумму, (   Читать дальше...   )Производство: Гонконг / Johnny Mak ProductionsЖанр: Боевик, триллер, криминалРежиссер: Джонни МакАктеры: Элвис Цуй, Джин Чен, Сю-Люн Чинг, Фрэнки Чин, Кэм Тонг Вонг, Жаклин ЭнДжиПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: отсутствуютПродолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDBA27F871D0E4D7348364181CB69192E90999B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376320   (860623) от 17.04.2020
 
 Неписаный закон / Fat ngoi ching / The Unwritten Law (1985) DVDRip [VO]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860623.jpg" />
+  <img src="Z:/picture/008/save_picture_860623.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860621.jpg" />
+  <img src="Z:/picture/008/save_picture_860621.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860619.jpg" />
+  <img src="Z:/picture/008/save_picture_860619.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860610.jpg" />
+  <img src="Z:/picture/008/save_picture_860610.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860603.jpg" />
+  <img src="Z:/picture/008/save_picture_860603.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860502.jpg" />
+  <img src="Z:/picture/008/save_picture_860502.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860501.jpg" />
+  <img src="Z:/picture/008/save_picture_860501.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860497.jpg" />
+  <img src="Z:/picture/008/save_picture_860497.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860496.jpg" />
+  <img src="Z:/picture/008/save_picture_860496.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860492.jpg" />
+  <img src="Z:/picture/008/save_picture_860492.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859731.jpg" />
+  <img src="Z:/picture/008/save_picture_859731.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859033.jpg" />
+  <img src="Z:/picture/008/save_picture_859033.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859031.jpg" />
+  <img src="Z:/picture/008/save_picture_859031.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859029.jpg" />
+  <img src="Z:/picture/008/save_picture_859029.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859027.jpg" />
+  <img src="Z:/picture/008/save_picture_859027.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859023.jpg" />
+  <img src="Z:/picture/008/save_picture_859023.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858925.jpg" />
+  <img src="Z:/picture/008/save_picture_858925.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858919.jpg" />
+  <img src="Z:/picture/008/save_picture_858919.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858804.jpg" />
+  <img src="Z:/picture/008/save_picture_858804.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858031.jpg" />
+  <img src="Z:/picture/008/save_picture_858031.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857785.jpg" />
+  <img src="Z:/picture/008/save_picture_857785.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857018.jpg" />
+  <img src="Z:/picture/008/save_picture_857018.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857016.jpg" />
+  <img src="Z:/picture/008/save_picture_857016.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856906.jpg" />
+  <img src="Z:/picture/008/save_picture_856906.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856764.jpg" />
+  <img src="Z:/picture/008/save_picture_856764.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C584034EFBF786303D5AC65BD5080ED032A1AC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498058   (855792) от 27.09.2021
-
-Дзокки / Zokki (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзокки - экранизация раннего творчества знаменитого автора манги Охаси Хироюки. В фильме пять историй, в основе которых семь оригинальных работ мангаки. Три из них снял Такэнака Наото и по одной Ямада Такаюки и Сайто Такуми. Но там есть еще одна скрытая история, о существовании которой не читавшие мангу зрители могут узнать только из заключительных титров и ее авторами (   Читать дальше...   )Производство: Япония, ZOKKI Production CommitteeЖанр: Драма, комедияРежиссер: Такуми Сайто, Наото Такэнака, Такаюки ЯмадаАктеры: Юнхо, Мицусима Синносукэ, Кирю Май, Кунимура Джун, Андо Масанобу, Мацуда Рюхэй, Мацуи Рэна, Янаги Юрина, Ёсиока Рихо, Кода Куми, Исидзака Кодзи, Ватанабэ Ютаро, Судзуки Фуку, Такэхара Пистол, Мори Юсаку, Пьер Таки, Минами СараПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Английские (хардсаб)Продолжительность: 01:53:32Реклама: Видеоряд содержит логотип РГ АрхзиAsia в верхнем правом углу
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A61EA60A908F17404498B8246AA126E8D4F2D09
 ```
 
 https://mybot314.ru/tekegram_catalog/

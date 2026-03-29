@@ -1,3 +1,55 @@
+###  Публикация: 1019643   (746600) от 25.05.2016
+
+О.С. Комаров (ред.) | Материаловедение и технология конструкционных материалов (2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный учебник является третьим изданием учебника «Технология конструкционных материалов». Даны основные сведения о материаловедении черных и цветных металлов. Описаны традиционные способы обработки металлов (термическая, литьем, давлением, сваркой, резанием, электрохимическая, электрофизическая). Подробно рассмотрены новые технологические методы получения и обработки (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62DDEF982749582226F23F548B80591BBA8AFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019914   (746344) от 25.05.2016
+
+М.А. Жаворонков, А.В. Кузин | Электротехника и электроника (2010) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные понятия теории электричества. Приведены анализ и методы расчета однофазных и трехфазных электрических цепей; переходных процессов в электрических цепях, нелинейных и магнитных цепей. Даны основы теории электрических трансформаторов и электрических машин, их основные характеристики, а также основы электропривода и электроснабжения. Рассмотрены (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CE89E5CD3BEF7BC4259D78B719CB02D3854949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282182   (745312) от 12.02.2019
 
 В.Г. Харазов (ред.) | Автоматизация процессов нефтепереработки (2015) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745312.jpg" />
+  <img src="Z:/picture/008/save_picture_745312.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745250.jpg" />
+  <img src="Z:/picture/008/save_picture_745250.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745238.jpg" />
+  <img src="Z:/picture/008/save_picture_745238.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743567.jpg" />
+  <img src="Z:/picture/008/save_picture_743567.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743550.jpg" />
+  <img src="Z:/picture/008/save_picture_743550.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742341.jpg" />
+  <img src="Z:/picture/008/save_picture_742341.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742238.jpg" />
+  <img src="Z:/picture/008/save_picture_742238.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742147.jpg" />
+  <img src="Z:/picture/008/save_picture_742147.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742048.jpg" />
+  <img src="Z:/picture/008/save_picture_742048.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742025.jpg" />
+  <img src="Z:/picture/008/save_picture_742025.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741953.jpg" />
+  <img src="Z:/picture/008/save_picture_741953.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740742.jpg" />
+  <img src="Z:/picture/008/save_picture_740742.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740128.jpg" />
+  <img src="Z:/picture/008/save_picture_740128.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740120.jpg" />
+  <img src="Z:/picture/008/save_picture_740120.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740113.jpg" />
+  <img src="Z:/picture/008/save_picture_740113.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739607.jpg" />
+  <img src="Z:/picture/008/save_picture_739607.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739601.jpg" />
+  <img src="Z:/picture/008/save_picture_739601.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739561.jpg" />
+  <img src="Z:/picture/008/save_picture_739561.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739557.jpg" />
+  <img src="Z:/picture/008/save_picture_739557.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739529.jpg" />
+  <img src="Z:/picture/008/save_picture_739529.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738735.jpg" />
+  <img src="Z:/picture/008/save_picture_738735.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738709.jpg" />
+  <img src="Z:/picture/008/save_picture_738709.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737337.jpg" />
+  <img src="Z:/picture/008/save_picture_737337.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737325.jpg" />
+  <img src="Z:/picture/008/save_picture_737325.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84CDEE9A4A6FA242087B1E02151F21C22E791B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527274   (736843) от 28.01.2022
-
-Л.Д.Кудрявцев | Курс математического анализа [3 книги] (1988 - 1989) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание курса математического анализа проф. МФТИ Л. Д. Кудрявцева.
-
-Учебник соответствует новой программе для вузов. Особое внимание в учебнике обращено на изложение качественных и аналитических методов, в нем нашли отражение и некоторые геометрические приложения анализа. Предназначается студентам университетов и физико-математических, инженерно-физических (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083877E677DAC991F9DF33762FB5FC0D11DBA356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528361   (734929) от 01.02.2022
-
-О.В. Хухлаева, О.Е. Хухлаев | Психологическое консультирование и психологическая коррекция (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное издание ставит перед собой задачу познакомить студентов с основными положениями психологического консультирования и психологической коррекции. Представлены ведущие тенденции, стратегии и технологии психологической поддержки людей различных возрастных групп. Особое внимание в учебнике уделяется основным принципам и особенностям психологического консультирования (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D6929925AD3E33AE8371C699E23BE965D57CDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

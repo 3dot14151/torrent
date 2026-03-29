@@ -1,3 +1,148 @@
+###  Публикация: 1582343   (323577) от 09.10.2022
+
+Backman Johanson And The Others - At Last (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut And Paste (4:02)
+02. I Don’t Have The Heart (4:25)
+03. Let You Know (4:25)
+04. Me And You Day (3:50)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26500A8DC7AC824C46415AB6FB2EB83AB9E053E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075154   (323576) от 21.11.2016
+
+Bobby Kimball - We're Not In Kansas Anymore (2016) [FLAC|Lossless|image + .cue] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Far Behind [3:39]
+02. On My Feet [3:48]
+03. Hey It's Me [2:52]
+04. One Day [3:59](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B492DC61061F4333E4C0EE4DE1070A52808FDE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582347   (323480) от 09.10.2022
+
+Young Gun Silver Fox - AM Waves (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight In Richmond (4:14)
+02. Lenny (4:03)
+03. Take It Or Leave It (4:03)
+04. Underdog (4:40)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4875AF874BC4611B1B57C3411E31C80D2092D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075140   (323447) от 21.11.2016
+
+Ligabue - Made in Italy (2016) [FLAC|Lossless|tracks + .cue] <Pop rock, Soft rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vita facile [4:46]
+02. Mi chiamano tutti Riko [3:59]
+03. E' venerdì non mi rompete i coglioni [3:57]
+04. Vittime e complici [3:37](   Читать дальше...   )Жанр: Pop rock, Soft rockПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F251BFDC1E9712FF55DAA49386749576B9F812EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259073   (323384) от 02.11.2018
+
+Marianne Faithfull - Negative Capability (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_323384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misunderstanding (04:04)
+02. The Gypsy Faerie Queen (03:40)
+03. As Tears Go By (03:52)
+04. In My Own Particular Way (04:21)(   Читать дальше...   )Жанр: Folk, Pop-RockПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698B3DED8A41D2D47D3172E62651843A6638B8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075019   (323312) от 21.11.2016
 
 The Kinks - Live at Kelvin Hall (1967) Reissue, 2001, Sanctuary Records [FLAC|Lossless|image + .cue] <Rock>
@@ -6,7 +151,7 @@ The Kinks - Live at Kelvin Hall (1967) Reissue, 2001, Sanctuary Records [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323312.jpg" />
+  <img src="Z:/picture/008/save_picture_323312.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Motley Crue - The End (Live In Los Angeles) (2016) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323299.jpg" />
+  <img src="Z:/picture/008/save_picture_323299.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Tangent - Songs from the hard shoulder (2022) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323161.jpg" />
+  <img src="Z:/picture/008/save_picture_323161.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Iain Matthews - Excerpts from Swine Lake (1998) 1999, Tangible Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321521.jpg" />
+  <img src="Z:/picture/008/save_picture_321521.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Jeremy Irons & The Ratgang Malibus - Spirit Knife (2014) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321399.jpg" />
+  <img src="Z:/picture/008/save_picture_321399.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Chris Rea - The Very Best (2001) [FLAC|Lossless|image + .cue] <Blues Rock, Soft-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321306.jpg" />
+  <img src="Z:/picture/008/save_picture_321306.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Mr. Big - Lean Into It (1991) Japan, 2009 [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320848.jpg" />
+  <img src="Z:/picture/008/save_picture_320848.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Yes - Yes 50 Live (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320656.jpg" />
+  <img src="Z:/picture/008/save_picture_320656.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Mr. Big - Bump Ahead (1993) Japan, 2009 [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320654.jpg" />
+  <img src="Z:/picture/008/save_picture_320654.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Denny Laine - Collection Hits [2CD] (2012) [FLAC|Lossless]<Pop, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_320337.jpg" />
+  <img src="Z:/picture/005/save_picture_320337.jpg" />
 </div>
 
 
@@ -302,7 +447,7 @@ Fish - A Feast Of Consequences (2013) [FLAC|image + .cue]<Symphonic Rock, Altern
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319276.jpg" />
+  <img src="Z:/picture/008/save_picture_319276.jpg" />
 </div>
 
 
@@ -331,7 +476,7 @@ Gentle Giant - Octopus (Steven Wilson Remix) (2015) [FLAC|tracks +.cue]<Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319263.jpg" />
+  <img src="Z:/picture/008/save_picture_319263.jpg" />
 </div>
 
 
@@ -360,7 +505,7 @@ The Metrolites - In Spy-Fi (2004) [FLAC|Lossless|tracks + .cue] <Surf, Garage Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319171.jpg" />
+  <img src="Z:/picture/008/save_picture_319171.jpg" />
 </div>
 
 
@@ -389,7 +534,7 @@ The Metrolites - For The People (2006) [FLAC|Lossless|tracks + .cue] <Surf, Gara
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319163.jpg" />
+  <img src="Z:/picture/008/save_picture_319163.jpg" />
 </div>
 
 
@@ -418,7 +563,7 @@ The Flow - A Change Of Seasons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316942.jpg" />
+  <img src="Z:/picture/008/save_picture_316942.jpg" />
 </div>
 
 
@@ -447,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316940.jpg" />
+  <img src="Z:/picture/008/save_picture_316940.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ Silver People - Gnome Country (2022) [FLAC|Lossless|WEB-DL|tracks] <psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316937.jpg" />
+  <img src="Z:/picture/008/save_picture_316937.jpg" />
 </div>
 
 
@@ -505,7 +650,7 @@ Klint - Klint (2002) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316911.jpg" />
+  <img src="Z:/picture/008/save_picture_316911.jpg" />
 </div>
 
 
@@ -534,7 +679,7 @@ The Presidents of the United States of America - These Are the Good Times People
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316680.jpg" />
+  <img src="Z:/picture/008/save_picture_316680.jpg" />
 </div>
 
 
@@ -563,7 +708,7 @@ The Presidents of the United States of America - Love Everybody (2004) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316679.jpg" />
+  <img src="Z:/picture/008/save_picture_316679.jpg" />
 </div>
 
 
@@ -592,7 +737,7 @@ The Presidents of the United States of America - The Presidents of the United St
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316670.jpg" />
+  <img src="Z:/picture/008/save_picture_316670.jpg" />
 </div>
 
 
@@ -606,157 +751,6 @@ The Presidents of the United States of America - The Presidents of the United St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCB72BEA6ACC21F55B5E7E33DD8063A82F03C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332205   (316039) от 19.10.2019
-
-Chris Rea - On The Beach (1986) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Beach (2019 Remaster)
-02. Little Blonde Plaits (2019 Remaster)
-03. Giverny (2019 Remaster)
-04. Lucky Day (2019 Remaster)(   Читать дальше...   )Жанр: Blues Rock, Soft Rock |Продолжительность: 01:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAE9C7054258CB877C29BF1F8677218897B5C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331942   (316034) от 19.10.2019
-
-Chris Rea - One Fine Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Still Dream? 4:10
-02. Loving You 3:54
-03. One Fine Day 4:06
-04. One Sweet and Tender Touch 4:43(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813F3DA7864BF9C2C76BF3771DBFF6126C7B4D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332211   (316026) от 19.10.2019
-
-Chris Rea - The Road To Hell (1989) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell, Pt. I (2019 Remaster)
-02. The Road To Hell, Pt. II (2019 Remaster)
-03. You Must Be Evil (2019 Remaster)
-04. Texas (2019 Remaster)(   Читать дальше...   )Жанр: Blues Rock, Soft Rock |Продолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3259EDEBB39122B2A592F17D8992BFB4510ED29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583073   (315481) от 01.12.2012
-
-H.E.A.T - Address The Nation (2012) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Silence (04:50)
-02. Living On The Run (04:55)
-03. Falling Down (03:33)
-04. The One And Only (05:07)
-05. Better Off Alone (04:00)
-06. In And Out Of Trouble (04:55)
-07. Need Her (03:56)
-08. Heartbreaker (03:05)
-09. It's All About Tonight (03:34)
-10. Downtown (04:33)Жанр: Melodic Hard RockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421983   (315435) от 06.11.2020
-
-Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling from Above (07:41)
-02. Double E (05:32)
-03. Devil's Sidewalk (06:22)
-04. Leave The Driving (06:34)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AAED62528E247FBACA7B1EA6B4C0F0E6639DBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1499310   (849196) от 01.10.2021
+
+Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стань огромным игральным кубиком на ножках и сражайся до конца в постоянно меняющихся подземельях! В новом динамичном карточном roguelike, который создали Terry Cavanagh (Super Hexagon, VVVVVV), Chipzel и Marlowe Dobbe, тебе предстоит сражаться с монстрами, добывать лучшее снаряжение и повышать уровень своих персонажей, стремящихся одолеть саму Госпожу Удачу, богиню (   Читать дальше...   )Тип издания: LicenseРазработчик: Terry CavanaghЖанр: Card Game, Strategy, RoguelikeЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C8E6CC7136E304EEF0E5C42FF0AF88DDB00273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002239   (848216) от 31.03.2016
 
 X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
@@ -6,7 +32,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848216.jpg" />
+  <img src="Z:/picture/008/save_picture_848216.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835795.jpg" />
+  <img src="Z:/picture/008/save_picture_835795.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834538.jpg" />
+  <img src="Z:/picture/008/save_picture_834538.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Worlds of Magic (2015) [Ru/Multi] (1.0) Repack xGhost
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831043.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Europa Universalis IV (2013-2016) [En/Multi] (1.16.1.0/60a9/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829989.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827479.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825815.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815252.jpg" />
+  <img src="Z:/picture/008/save_picture_815252.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814993.jpg" />
+  <img src="Z:/picture/008/save_picture_814993.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ War for the Overworld (2015) [Ru/Multi] (1.5.2f4/dlc) SteamRip Let'sPlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810744.jpg" />
+  <img src="Z:/picture/008/save_picture_810744.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Crusader Kings II/2 (2012) [Multi] (2.1.3/41dlc) SteamRip DWORD [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809867.jpg" />
+  <img src="Z:/picture/008/save_picture_809867.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Ultimate General: Gettysburg (2014) [En] (1.8mpfix2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809739.jpg" />
+  <img src="Z:/picture/008/save_picture_809739.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Gnomoria (2016) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809095.jpg" />
+  <img src="Z:/picture/008/save_picture_809095.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805461.jpg" />
+  <img src="Z:/picture/008/save_picture_805461.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801499.jpg" />
+  <img src="Z:/picture/008/save_picture_801499.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Humankind (2021) [Ru/Multi] (1.0.05.0517-S10/dlc) License CODEX [Digital Deluxe 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798328.jpg" />
+  <img src="Z:/picture/008/save_picture_798328.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797828.jpg" />
+  <img src="Z:/picture/008/save_picture_797828.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796780.jpg" />
+  <img src="Z:/picture/008/save_picture_796780.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Thea: The Awakening (2015) [Ru/Multi] (1.20.36220/dlc) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796725.jpg" />
+  <img src="Z:/picture/008/save_picture_796725.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796476.jpg" />
+  <img src="Z:/picture/008/save_picture_796476.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Warhammer 40000: Dawn of War – Soulstorm (2008) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796471.jpg" />
+  <img src="Z:/picture/008/save_picture_796471.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Heroes of Might and Magic IV / Heroes of Might and Magic 4 (2004) [Ru/En] (3.0/d
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795740.jpg" />
+  <img src="Z:/picture/008/save_picture_795740.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Punk Wars (2021) [Ru/Multi] (1.0.6) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794606.jpg" />
+  <img src="Z:/picture/008/save_picture_794606.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791355.jpg" />
+  <img src="Z:/picture/008/save_picture_791355.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Europa Universalis IV / Europa Universalis 4 (2013) [Multi] (1.32/dlc) License C
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789545.jpg" />
+  <img src="Z:/picture/008/save_picture_789545.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76EB9765044B9BFAFBDF7FC2B45B2C3E64434BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511913   (787787) от 23.11.2021
-
-Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) License FAIRLIGHT [Complete Edition]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гладиус Прайм был известен среди Имперских ученых, как планета богатая на археологические находки. Во время его колонизации были найдены древние реликвии, намекающие на окутанное тайной прошлое планеты. Находки оказались нечто большим, чем реликвиями. Пробудился ужасный отголосок древнего прошлого, и жители Гладиуса оказались втянуты в смертельную войну за выживание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Proxy StudiosЖанр: Пошаговая стратегия 4XЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB2AF30C6DAE18F3F265405120B17CD2A88941B
 ```
 
 https://mybot314.ru/tekegram_catalog/

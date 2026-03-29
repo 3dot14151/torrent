@@ -1,3 +1,138 @@
+###  Публикация: 455474   (77819) от 22.02.2012
+
+А. Н. Малов| Объектно-ориентированное программирование [2010] DVDRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеозаписи курса лекций по Объектно-ориентированному программированию + материалы к лабораторным работам (методические задания и примеры). Курс лекций читается на 2 курсе специальности ПС (Программное обеспечение вычислительной техники и автоматизированных систем) Факультета Информатики и Вычислительной Техники МарГТУ.Жанр: Учебный курсПродолжительность: 20:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D04267CBA7E5A60F35AA23C7D6667D2730A7572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780354   (70467) от 18.02.2025
+
+JUG Ru Group | Mobius 2024 Autumn. Конференция для мобильных разработчиков (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobius 2024 Autumn - конференция для мобильных разработчиков. Несколько десятков докладов об iOS, Android, кроссплатформенной разработке, инструментах, фреймворках и многом другом.Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 37:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8E44B93CAA82DD34C77D504ED27D4C009A73E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705320   (63651) от 08.03.2024
+
+Церебро Таргет | ChatGPT для бизнеса и рекламы от А до Я (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63651.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChatGPT запустился чуть больше года назад и уже стал самым желанным инструментом для многих, но научиться его грамотно применять удалось далеко не всем.
+
+В результате за несколько месяцев разработали систему работы, с помощью которой можно получить выделенный ChatGPT, обученный особенностям вашего бизнеса и вашей целевой аудитории. И вот этот «обученный под вас ChatGPT» (   Читать дальше...   )Производство: Церебро ТаргетЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 08:03:28Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4224D7ACB4EC657102281E419DCABF5F6A59E72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702701   (63145) от 13.03.2024
+
+Slurm (Слёрм), Павел Калашников | Linux для разработчиков (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс для разработчиков, решивших сделать Linux своей основной ОС. Благодаря полученным знаниям вы сможете нативно подключаться к серверу, работать с технологиями рабочего продакшена и использовать Linux для решения профессиональных задач.Производство: Slurm (Слёрм)Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 03:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706442   (63131) от 13.03.2024
+
+WebForMySelf | Закрытый клуб для веб-мастеров. Подписка (2021-2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продление подписки на премиум уроки по созданию сайтов от WebForMySelf 2021-2022
+Доступ ко всем 70 Премиум курсам (более 350 часов видео)
+Доступ к новым ежемесячным урокам (более 60 в год)
+(   Читать дальше...   )Производство: WebForMySelfЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 460:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2543A818258A478D1F9347DC6E00BAA842CB9490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706501   (63119) от 13.03.2024
 
 Balun.Courses, Максим Фатин | Подготовка к алгоритмическому собеседованию в BigTech (2023) WEB-DL [RU]
@@ -6,7 +141,7 @@ Balun.Courses, Максим Фатин | Подготовка к алгорит�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63119.jpg" />
 </div>
 
 
@@ -35,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62931.jpg" />
 </div>
 
 
@@ -63,7 +198,7 @@ Udemy, Александр Сокирка | Руководство по WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62842.jpg" />
 </div>
 
 
@@ -91,7 +226,7 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62511.jpg" />
 </div>
 
 
@@ -117,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62384.jpg" />
 </div>
 
 
@@ -145,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62096.jpg" />
 </div>
 
 
@@ -174,7 +309,7 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62068.jpg" />
 </div>
 
 
@@ -200,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62000.jpg" />
 </div>
 
 
@@ -227,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61997.jpg" />
 </div>
 
 
@@ -256,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61886.jpg" />
 </div>
 
 
@@ -282,7 +417,7 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61473.jpg" />
 </div>
 
 
@@ -311,7 +446,7 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61349.jpg" />
 </div>
 
 
@@ -338,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61336.jpg" />
 </div>
 
 
@@ -367,7 +502,7 @@ Academind Pro, Udemy, Maximilian Schwarzmüller | HTMX - The Practical Guide (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61331.jpg" />
 </div>
 
 
@@ -396,7 +531,7 @@ Vueschool | Курсы по Vue3 (2024) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61036.jpg" />
 </div>
 
 
@@ -422,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60919.jpg" />
 </div>
 
 
@@ -451,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60903.jpg" />
 </div>
 
 
@@ -477,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60810.jpg" />
 </div>
 
 
@@ -505,7 +640,7 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60616.jpg" />
 </div>
 
 
@@ -531,7 +666,7 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60615.jpg" />
 </div>
 
 
@@ -560,7 +695,7 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60457.jpg" />
 </div>
 
 
@@ -574,145 +709,6 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75ACE4A14BBB2BB23C1A2DE9CEF4F20B5C5A22C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712543   (59129) от 20.04.2024
-
-Swiftbook | Junior iOS-Developer (2023) WEB-DL [RU] [Части 1-6 из 6]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройди обучение и получи профессию разработчика на iOS за полгода.
-У нас есть все, чтобы ты освоил новую профессию: опытные преподаватели и кураторы, авторские курсы и вебинары, видеоуроки и статьи, чат единомышленников и iOS-инкубатор.
-Swiftbook — это комьюнити и среда, в которой ты будешь постоянно расти и развиваться, если захочешь.
-(   Читать дальше...   )Производство: SwiftbookЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 112:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717674   (59059) от 21.04.2024
-
-javascript.ru, Егор Сидоров | Интенсив по "продвинутой" разработке на Angular (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель интенсивного курса - изучение особенностей работы Angular, углубление знаний о функционале, изучение новых функций и освоение последних обновлений и техник в использовании Angular.
-Задача курса - научиться эффективно использовать Angular для программирования, применять лучшие практики и проверенные методы, а также повышать производительность уже разработанных (   Читать дальше...   )Производство: javascript.ruЖанр: ИнтенсивЯзык озвучки: РусскийПродолжительность: 13:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1ACD321A8CD8868C6FD8274431E2A63BC82CFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697472   (59048) от 21.04.2024
-
-JavaScript.Ninja | Учись реальности, Crash Course (Пакет Базовый) (2023-2024) WEB-DL [RU] [Обновляемая]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаг за шагом мы пройдем все этапы разработки реального проекта, воссозданные детально благодаря записанным видео. Мы будем обсуждать решения, узнавать какие решения были приняты тогда и анализировать последствия.
-Нужны ли нам тесты? Какие? Какие библиотеки? Какие паттерны? Какие архитектурные решения? Какие инструменты?
-Какие риски мы ждем на каждом этапе? Какие (   Читать дальше...   )Производство: JavaScript.NinjaЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 46:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEF7161DC0EA4711F24561E227BFBC354DE728D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718239   (58742) от 24.04.2024
-
-Pikuma, Gustavo Pezzi | 3D Computer Graphics Programming (2024) WEB-DLRip [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс является полным погружением в основы компьютерной графики! Вы узнаете, как работает программный 3D-движок «под капотом», и научитесь использовать язык программирования C для написания полноценного программного растеризатора с нуля, включая текстуры, камеру, обрезку и загрузку сложных OBJ-файлов. Пиксель за пикселем, треугольник за треугольником, меш за (   Читать дальше...   )Производство: PikumaЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 37:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E58AAF85EC23CAE422ABC3396B4BFAC5FE2BC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718320   (58726) от 24.04.2024
-
-JUG Ru Group | GoFunc 2024. Конференция по разработке на Go (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58726.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoFunc 2024 - конференция по разработке на Go от JUG Ru Group. Обсуждаем эффективный продакшен-код на Go, современные фреймворки и подходы, большие данные и нагруженные системы.
-
-GoFunc - конференция для тех, кто использует Go в своих проектах.
-(   Читать дальше...   )Производство: JUG Ru GroupЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 16:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9535B84A5E8BEED3A7C6B94B999A7BF7AE18BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

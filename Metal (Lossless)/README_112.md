@@ -1,3 +1,90 @@
+###  Публикация: 907838   (630315) от 16.06.2015
+
+The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonderkommando
+02. Wishing Well Of Bones
+03. Aktion T4
+04. Silent Ghosts Of Babi Yar(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B685FB71238E83214EC99F137C74D8F5FD4F7AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907784   (630221) от 16.06.2015
+
+Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Silent Desire
+03. Emptiness Of Night
+04. Elegy Of Doom(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294278   (630103) от 07.04.2019
+
+Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing With Such Abandon (4:48)
+02. Where Every Word Spoken, Speaks (3:01)
+03. And Every Glance Given Has Only One Meaning (4:35)
+04. Spirit (3:53)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0C9976ED8D404A2463A4430AD5ECB265F7D181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294225   (630101) от 07.04.2019
 
 Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cue] <Metalcore, Mathcore>
@@ -6,7 +93,7 @@ Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630101.jpg" />
+  <img src="Z:/picture/008/save_picture_630101.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630097.jpg" />
+  <img src="Z:/picture/008/save_picture_630097.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629848.jpg" />
+  <img src="Z:/picture/008/save_picture_629848.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crown Compass - The Drought (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629786.jpg" />
+  <img src="Z:/picture/008/save_picture_629786.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Edguy - The Savage Poetry, 2CD (2000) Remastered, 2021, Fono [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629520.jpg" />
+  <img src="Z:/picture/008/save_picture_629520.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Rhарsоdу Оf Fire - Legеndаrу Yeаrs (2017) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629504.jpg" />
+  <img src="Z:/picture/008/save_picture_629504.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ In Mourning - The Weight of Oceans (2012) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629305.jpg" />
+  <img src="Z:/picture/005/save_picture_629305.jpg" />
 </div>
 
 
@@ -214,7 +301,7 @@ Klandestyn - Wounds Bleeding Black (2009) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628682.jpg" />
+  <img src="Z:/picture/008/save_picture_628682.jpg" />
 </div>
 
 
@@ -243,7 +330,7 @@ Thanatos - Angelic Encounters (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628680.jpg" />
+  <img src="Z:/picture/008/save_picture_628680.jpg" />
 </div>
 
 
@@ -272,7 +359,7 @@ Evol - The Saga of the Horned King (1995) [APE|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628679.jpg" />
+  <img src="Z:/picture/008/save_picture_628679.jpg" />
 </div>
 
 
@@ -301,7 +388,7 @@ The Resistance - Coup de grâce (2016) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628677.jpg" />
+  <img src="Z:/picture/008/save_picture_628677.jpg" />
 </div>
 
 
@@ -330,7 +417,7 @@ Hellwitch - Anthropophagi (1994) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628675.jpg" />
+  <img src="Z:/picture/008/save_picture_628675.jpg" />
 </div>
 
 
@@ -359,7 +446,7 @@ Mortuorial Eclipse - The Aethyrs' Call (2012) [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628674.jpg" />
+  <img src="Z:/picture/008/save_picture_628674.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ Wolf - Wolf (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628645.jpg" />
+  <img src="Z:/picture/008/save_picture_628645.jpg" />
 </div>
 
 
@@ -417,7 +504,7 @@ Doro - Strong And Proud / 30 Years Of Rock And Metal (2016) Live [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628624.jpg" />
+  <img src="Z:/picture/008/save_picture_628624.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ Quasimodo - Cancer City (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627968.jpg" />
+  <img src="Z:/picture/008/save_picture_627968.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ Go Ahead And Die - Go Ahead And Die (2021) [FLAC|Lossless|image + .cue] <Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627901.jpg" />
+  <img src="Z:/picture/008/save_picture_627901.jpg" />
 </div>
 
 
@@ -504,7 +591,7 @@ Your Highness - Cults 'n' Cunts (2011) [FLAC|Lossless|image + .cue] <Sludge,  St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627757.jpg" />
+  <img src="Z:/picture/008/save_picture_627757.jpg" />
 </div>
 
 
@@ -533,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627752.jpg" />
+  <img src="Z:/picture/008/save_picture_627752.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ The Murder Of My Sweet - Bye Bye Lullaby (2012) [FLAC|Lossless]<Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626931.jpg" />
+  <img src="Z:/picture/005/save_picture_626931.jpg" />
 </div>
 
 
@@ -591,7 +678,7 @@ Steel Raiser - Unstoppable (2015) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626770.jpg" />
+  <img src="Z:/picture/008/save_picture_626770.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ Kissin' Dynamite - Money, Sex & Power (2012) Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626721.jpg" />
+  <img src="Z:/picture/008/save_picture_626721.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Tanzwut - Schreib Es Mit Blut (2016) [FLAC|Lossless|image + .cue] <Folk Metal, I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626706.jpg" />
+  <img src="Z:/picture/008/save_picture_626706.jpg" />
 </div>
 
 
@@ -663,92 +750,6 @@ Tanzwut - Schreib Es Mit Blut (2016) [FLAC|Lossless|image + .cue] <Folk Metal, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9BF8D1F69073AF83EC67E2180151186F2A6619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035575   (626391) от 17.07.2016
-
-Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Bleed Metal
-02. All Hail the King
-03. Against All the Gods
-04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543913   (626093) от 13.04.2022
-
-James Norbert Ivanyi - Sigil (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Spectre Departed (00:10:48)
-02 - The Clairvoyant Coil (00:10:02)
-03 - Our Revenant Sigil (00:11:04)Жанр: Progressive MetalПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB80099B23DAFF7C41F1AAEF8CC50593D71A37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543662   (625957) от 13.04.2022
-
-Stargazery - Eye On The Sky (2011) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dying
-02. Everytime I Dream Of You
-03. Eye On The Sky
-04. How Many Miles(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316B099CECFB9A951A1679D41246E3F67EC54422
 ```
 
 https://mybot314.ru/tekegram_catalog/

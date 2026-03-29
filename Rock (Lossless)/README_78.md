@@ -1,3 +1,154 @@
+###  Публикация: 1151139   (574352) от 18.07.2017
+
+Universal Hippies - Mother Nature Blues (2017) [FLAC|Lossless|image + .cue] <Instrumental, Heavy Blues, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Redemption Day  (05:17) 
+02.  Homo Sapiens  (07:20) 
+03.  Mariner's Dream  (04:45) 
+04.  Sacred Land  (04:20) (   Читать дальше...   )Жанр: Instrumental, Heavy Blues, Psychedelic RockПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08D39A8DD2D4449E62107B50AEB5176A402C484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554767   (574017) от 01.06.2022
+
+Cross - Opus Eleven (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574017.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Light's Out (6:04)
+2. Million Billions (5:02)
+3. Looking for Silver (10:04)
+4. Towards the New (4:31)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8060BD2CC6C49E3005E9A2CE3A300E248EDE6B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921889   (573520) от 26.07.2015
+
+Eagles - Greatest Hits (2011)2CD Compilation/2011,Warner Music Group[FLAC|image + .cue]<Country Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel California
+02. The Best Of My Love
+03. Lyin' Eyes
+04. New Kid In Town(   Читать дальше...   )Жанр: Country Rock, Folk RockПродолжительность: 02:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D424EF00CA6420AB23FC554AFE1726EE843D69B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528323   (573396) от 28.07.2012
+
+Panic Room - Skin (2012) [FLAC|Lossless]<Progressive Rock, Crossover Prog, Female Vocalists>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_573396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Song For Tomorrow (06:16)
+2. Chameleon (06:52)
+3. Screens (04:43)
+4. Chances (05:54)
+5. Tightrope Walking (07:09)
+6. Promises (05:24)
+7. Velvet & Stars (03:15)
+8. Freefalling (06:12)
+9. Skin (05:19)
+10.Hiding The World (05:19)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303110   (573097) от 21.05.2019
+
+Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Dakota Sky (04:51)
+02. Mystery Lady (05:07)
+03. Everytime (05:15)
+04. Kentucky Heartbreak (03:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043290   (572989) от 16.08.2016
 
 Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Southern Rock>
@@ -6,7 +157,7 @@ Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572989.jpg" />
+  <img src="Z:/picture/008/save_picture_572989.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572987.jpg" />
+  <img src="Z:/picture/008/save_picture_572987.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572952.jpg" />
+  <img src="Z:/picture/008/save_picture_572952.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Donnie Iris - The Best Of Donnie Iris (2001) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572942.jpg" />
+  <img src="Z:/picture/008/save_picture_572942.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572829.jpg" />
+  <img src="Z:/picture/008/save_picture_572829.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572685.jpg" />
+  <img src="Z:/picture/008/save_picture_572685.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572595.jpg" />
+  <img src="Z:/picture/008/save_picture_572595.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ VA - Audio's Audiophile Vol.17 - In Concert (2001) Compilation, Live [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572568.jpg" />
+  <img src="Z:/picture/008/save_picture_572568.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ Jonathan Cain - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572527.jpg" />
+  <img src="Z:/picture/008/save_picture_572527.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ Jon Bon Jovi - Destination Anywhere (1997) Japanese Edition, 1999 [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572349.jpg" />
+  <img src="Z:/picture/008/save_picture_572349.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ The Moody Marsden Band - Never Turn Our Back On The Blues (1992) Live [APE|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571746.jpg" />
+  <img src="Z:/picture/008/save_picture_571746.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ Kelly Richey & Kelly Richey Band - 13 альбомов (1994 - 2016) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571054.jpg" />
+  <img src="Z:/picture/008/save_picture_571054.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ Rob Moratti - Transcendent (2016) [FLAC|Lossless|image + .cue] <Melodic Rock, AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571053.jpg" />
+  <img src="Z:/picture/008/save_picture_571053.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ The Grandmothers - A Mother Of An Anthology (1993) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571030.jpg" />
+  <img src="Z:/picture/008/save_picture_571030.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ Kellermensch - Goliath (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571014.jpg" />
+  <img src="Z:/picture/008/save_picture_571014.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ Maklak - The Age of Anxiety (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570966.jpg" />
+  <img src="Z:/picture/008/save_picture_570966.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ Joe Jackson - Fool (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570964.jpg" />
+  <img src="Z:/picture/008/save_picture_570964.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Jo Harman - Dirt On My Tongue (2013) [FLAC|Lossless|image + .cue] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570917.jpg" />
+  <img src="Z:/picture/008/save_picture_570917.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ Paul Gilbert - Behold Electric Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Inst
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570670.jpg" />
+  <img src="Z:/picture/008/save_picture_570670.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ Soft Machine - 44 издания / 57 CD (1967-2015) [WavPack|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570319.jpg" />
+  <img src="Z:/picture/008/save_picture_570319.jpg" />
 </div>
 
 
@@ -586,7 +737,7 @@ Wintersleep - In The Land Of (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569480.jpg" />
+  <img src="Z:/picture/008/save_picture_569480.jpg" />
 </div>
 
 
@@ -600,151 +751,6 @@ Wintersleep - In The Land Of (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2740C1436DE52443104ECC609908E7A5335E70E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555473   (568904) от 04.06.2022
-
-Gene Clark - Collected (2021) Compilation [FLAC|Lossless|tracks + .cue] <Folk-Rock, Country-Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568904.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. I’ll Feel a Whole Lot Better  02:33
-02. I Knew I’d Want You   02:14
-03. Set You Free This Time   02:50(   Читать дальше...   )Жанр: Folk-Rock, Country-Rock, Pop-RockПродолжительность: 03:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F023032F50A0EBE61D417161370031D51DE2F1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922832   (568120) от 29.07.2015
-
-Joe Cocker - With A Little Help From My Friends (1969) Hybrid SACD, Limited Edition /2015, Audio Fidelity/ [FLAC|image + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeling Alright [4:16]
-02. Bye Bye Blackbird [3:31]
-03. Change In Louise [3:26]
-04. Marjorine [2:17](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367B287FAF5245D763E03F6F1C259E540DD56A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234633   (567961) от 07.07.2018
-
-Chris Smither - Happier Blue (1993) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Contemporary Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happier Blue (Chris Smither) 04:18
-02. Memphis in the Meantime (John Hiatt) 03:45
-03. The Devil's Real (Chris Smither) 04:59
-04. No More Cane on the Brazos / Mail Order Mystics (Traditional / Chris Smither) 06:07(   Читать дальше...   )Жанр: Folk-Rock, Contemporary BluesПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787C8C327B2680B5E229FE84A43C7A547B0C7FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234646   (567950) от 07.07.2018
-
-Ray Davies - Our Country: Americana Act II (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Country 03:16
-02. The Invaders (Spoken Word) 02:30
-03. Back in the Day 02:41
-04. Oklahoma U.S.A. 04:11(   Читать дальше...   )Жанр: Pop-Rock, Singer-SongwriterПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7B0BCE1C77539CBC6B41A4E38577A8214AAB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234657   (567873) от 07.07.2018
-
-Livin' Blues - Blue Breeze (1976) Limited Edition, Reissue, 1997, Pseudonym [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shylina (5:38)
-02. Back Stage (5:55)
-03. Midnight Blues (3:19)
-04. Pisces (1:27)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D7E7B3FD74393040EEC7079D4ACAB0B69F43E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

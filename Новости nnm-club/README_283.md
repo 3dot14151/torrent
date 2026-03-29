@@ -1,3 +1,162 @@
+###  Публикация: 1744528   (45825) от 24.08.2024
+
+Российские геймеры в июле потратили 20 млрд рублей на игровых персонажей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российские геймеры в июле потратили на внутриигровые покупки 20,4 млрд рублей. Об этом «Известиям» сообщили аналитики онлайн-школы в сфере геймдева и компьютерной графики XYZ. Внутриигровые покупки геймеров стали фактически превышать траты на покупку игр.Специалисты уточнили, что на сегодняшний день существуют две основных модели монетизации игр: первая — с единоразовой (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745108   (45732) от 25.08.2024
+
+Собиратель душ / Longlegs (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45732.jpg" />
+</div>
+
+
+###  Подробнее
+
+По оценкам ФБР, лишь один из пяти серийных убийц попадает в руки закона, а остальные остаются на свободе. Агент Ли Харкер охотится за одним из таких неуловимых чудовищ по прозвищу Собиратель душ. Более десяти лет его жертвами становились целые семьи, члены которых по непонятными причинам убивали друг друга. Чем ближе Харкер подбирается к разгадке личности убийцы, (   Читать дальше...   )Производство: США, Канада / C2 Motion Picture GroupЖанр: триллер, детектив, ужасыРежиссер: Осгуд ПеркинсАктеры: Майка Монро, Николас Кейдж, Блэр Андервуд, Алисия Уитт, Мишель Чхве-Ли, Дакота Долби, Лорен Акала, Кирнан Шипка, Майла Хоси, Джейсон ДэйПеревод: Многоголосый (HDrezka Studio, LineFilm), двуголосый (ViruseProject)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C087D3E908BF385419964BF2D181C86D24475038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745120   (45531) от 27.08.2024
+
+В Норвегии заработала первая в Европе фабрика по производству LFP-аккумуляторов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежцы первыми в Европе начали тестовое производство литий-железо-фосфатных (LFP) аккумуляторов. На днях там официально открылась первая в этой части света фабрика по выпуску перспективных аккумуляторов. Мощность производства составит 1 ГВт·ч в год с перспективой многократного роста до внушительных 43 ГВт·ч в год к 2028 году.Четыре года назад завод по выпуску первых (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745757   (45521) от 27.08.2024
+
+Windows 11 PRO 23H2 22631.4037 Update 10 by Ghost Spectre [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрано из en-us_windows_11_business_editions_version_23h2_updated_aug_2024_x64_dvd_4b6aa6b4.iso
+
+Что такое Compact / Superlite:
+— Superlite эта версия уже настроена - для опытных пользователей - подходит для игр и стриминга.(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2375BFF3166F736EECAAD8C30B053E1D6562996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744554   (45310) от 29.08.2024
+
+Наутилус / Nautilus (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийский принц Немо, потерявший трон после восстания против Британии, становится капитаном подводной лодки «Наутилус» и решает отомстить англичанам, которые отняли у него все.Производство: Великобритания / All3Media, Moonriver, Seven Stories ProductionsЖанр: боевик, драма, приключенияРежиссер: Майкл Мэтьюз, Бен С. Лукас, Isabelle SiebАктеры: Шазад Латиф, Джейкоб Коллинс-Леви, Камерон Каффе, Бенедикт Харди, Джорджия Флуд, Тьерри Фремон, Селин Менвиль, Kayden Price, Tyrone Ngatai, Арло ГринПеревод: Многоголосый (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A564F4B8AC168F8A6CE18FE8E22A668DBA9652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745448   (45295) от 29.08.2024
+
+Автомобили Tesla начали проезжать на красный свет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владельцы автомобилей Tesla столкнулись с новой проблемой: их машины иногда проезжают на красный свет. Это происходит из-за ошибок в последней версии программного обеспечения для автономного вождения.Одним из пользователей Reddit, столкнувшимся с этой проблемой, был водитель, который написал: «К счастью, я остановил автомобиль до того, как он проехал на светофоре, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745901   (45199) от 30.08.2024
 
 Биокомпьютер на живых клетках человеческого мозга теперь можно арендовать за $500 в месяц
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45199.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45106.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.08.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45100.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45088.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45085.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44998.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44691.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.4 [Ru/En] (Разблокировка YouTube)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44579.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44578.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44575.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44563.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44366.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44268.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44057.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ SpaceX запустила корабль с туристами, которые �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43857.jpg" />
 </div>
 
 
@@ -400,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43855.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ Adobe Photoshop 2024 25.12.0.806 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43525.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43421.jpg" />
 </div>
 
 
@@ -478,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43332.jpg" />
 </div>
 
 
@@ -504,169 +663,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43098.jpg" />
 </div>
 
 
 ###  Подробнее
 
 10 сентября на сайте государственных закупок США был опубликован  документ  от Армейского инженерного корпуса (US Army Corps of Engineers, ERDC). В нем сообщается о заключении контракта с "единственным поставщиком" компанией Terra Analytics, Inc. для дальнейшей разработки и оптимизации программного комплекса AgriShock.AgriShock — это специализированный инструмент (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750242   (43013) от 20.09.2024
-
-Discord запускает DAVE: безопасность общения выходит на новый уровень
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики уверяют в надёжности и эффективности нового протокола.Discord представил новый протокол шифрования DAVE, который обеспечит полную безопасность аудио- и видеозвонков на платформе. Пользователи смогут общаться через Discord с полным шифрованием данных, что исключает возможность доступа к контенту третьих лиц, включая саму платформу.Сквозное шифрование (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750555   (43005) от 20.09.2024
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2024.09.20) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76800AA49982F19B436D7F2F96FCF7F079905DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750431   (42913) от 21.09.2024
-
-ФСТЭК назвала стоимость российского ПО чрезмерно высокой
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стоимость отечественного программного обеспечения очень завышена, заявил заместитель директора Федеральной службы по техническому и экспортному контролю (ФСТЭК) Виталий Лютиков на пленарной сессии BIS Summit.Замдиректора отметил, что российские производители подняли цены в десятки раз из-за спроса на свои товары и отсутствия конкуренции с популярными европейскими (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749129   (42898) от 21.09.2024
-
-Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42898.jpg" />
-</div>
-
-
-###  Подробнее
-
-STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: SceneРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750550   (42895) от 21.09.2024
-
-Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20114 (2024.09) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office LTSC 2024 предоставляет привычный набор приложений, таких как Word, Excel, PowerPoint, Outlook, OneNote, OneDrive и Access, и включает функции, представленные в корпоративных версиях Microsoft 365. Среди нововведений — динамические диаграммы в Excel, улучшенные возможности поиска и создания встреч в Outlook, а также улучшения производительности, безопасности (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1DB6CC46CA6294B39C2AE5765A0C7A416417CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750486   (42801) от 22.09.2024
-
-Палата представителей США заявила: все новые автомобили должны быть оснащены AM-радио
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автопроизводители сопротивляются по экономическим и техническим причинам.Конгресс размышляет, следует ли требовать от новых транспортных средств включать AM-радио, технологию, которую многие автопроизводители считают устаревшей и от которой потребители все чаще отказываются в пользу цифрового потокового вещания. Однако есть аргументы в пользу ее включения, такие (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

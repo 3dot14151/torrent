@@ -1,3 +1,61 @@
+###  Публикация: 961103   (302942) от 30.11.2015
+
+Юрий Корчевский | Самоход. «Прощай, Родина!» (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внецикловый роман.
+Он попал на Великую Отечественную из нынешней Российской Армии.
+
+Он не спецназовец, не разведчик, не диверсант, а простой солдат-срочник, наводчик противотанкового орудия «Рапира».(   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74100470F9ACBA4846F440840E40358F24A341DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961101   (302935) от 30.11.2015
+
+Юрий Корчевский | Истребитель. Ас из будущего (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внецикловый роман.
+Он взлетел в наши дни – а приземлился на перепаханном бомбами аэродроме 22 июня 1941 года.
+Он чудом выжил в первые недели войны, сражаясь на «небесном тихоходе» У-2.
+Он стал воздушным разведчиком и ночным бомбардировщиком, был ранен, но вернулся в строй.(   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD1139B21772A21E350F7D6147C66F2FDF12925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961107   (302751) от 30.11.2015
 
 Алексей Осадчук | Цитадель (2015) [FB2]
@@ -6,7 +64,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302751.jpg" />
+  <img src="Z:/picture/008/save_picture_302751.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302742.jpg" />
+  <img src="Z:/picture/008/save_picture_302742.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302628.jpg" />
+  <img src="Z:/picture/008/save_picture_302628.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302523.jpg" />
+  <img src="Z:/picture/008/save_picture_302523.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302400.jpg" />
+  <img src="Z:/picture/008/save_picture_302400.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302176.jpg" />
+  <img src="Z:/picture/008/save_picture_302176.jpg" />
 </div>
 
 
@@ -175,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302163.jpg" />
+  <img src="Z:/picture/008/save_picture_302163.jpg" />
 </div>
 
 
@@ -202,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302158.jpg" />
+  <img src="Z:/picture/008/save_picture_302158.jpg" />
 </div>
 
 
@@ -228,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302119.jpg" />
+  <img src="Z:/picture/008/save_picture_302119.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302097.jpg" />
+  <img src="Z:/picture/008/save_picture_302097.jpg" />
 </div>
 
 
@@ -282,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302021.jpg" />
+  <img src="Z:/picture/008/save_picture_302021.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302011.jpg" />
+  <img src="Z:/picture/008/save_picture_302011.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301937.jpg" />
+  <img src="Z:/picture/008/save_picture_301937.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301797.jpg" />
+  <img src="Z:/picture/008/save_picture_301797.jpg" />
 </div>
 
 
@@ -391,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301775.jpg" />
+  <img src="Z:/picture/008/save_picture_301775.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301445.jpg" />
+  <img src="Z:/picture/008/save_picture_301445.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301442.jpg" />
+  <img src="Z:/picture/008/save_picture_301442.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301345.jpg" />
+  <img src="Z:/picture/008/save_picture_301345.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301285.jpg" />
+  <img src="Z:/picture/008/save_picture_301285.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301066.jpg" />
+  <img src="Z:/picture/008/save_picture_301066.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300924.jpg" />
+  <img src="Z:/picture/008/save_picture_300924.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300897.jpg" />
+  <img src="Z:/picture/008/save_picture_300897.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300772.jpg" />
+  <img src="Z:/picture/008/save_picture_300772.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300658.jpg" />
+  <img src="Z:/picture/008/save_picture_300658.jpg" />
 </div>
 
 
@@ -650,62 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6BDED070F3BB2BDA66DFC05BB788F1918C5C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585723   (300617) от 07.12.2012
-
-Кай Майер | Цикл "Семь Печатей" [2004-2006] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семь Печатей - один из циклов немецкого писателя Кая Майера, книги которого переведены на 27 языков.
-
-Заканчивается 999 год... Все с ужасом ожидают конца тысячелетия и вместе с ним конца света. А для двенадцатилетней Деа начинается захватывающее и полное приключений путешествие в неизвестность, потому что цель путешествия ясна только ее спутнику - Готену - охотнику за ведьмами и демонами. Но что связывает Готена со зловещим Абакусом, который постоянно встречается им на пути? И что скрывает Арканум - странный тайный союз? Деа пытается выяснить правду и оказывается в волшебном мире - мире Семи Печатей, где силы добра и зла борются за власть над новым тысячелетием.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750777F7C7F3C3C298D8F44E5D08BD716BB6EF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261732   (300371) от 12.11.2018
-
-Артем Каменистый | Восемнадцать с плюсом (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Читер».
-
-Цели бывают разные. Некоторые легко даются даже начинающим стрелкам, другие устоят перед самыми опытными, если тем не улыбнется удача. У Читера все прекрасно и с меткостью, и Фортуна на его стороне. У него все задатки победителя, а победители не промахиваются. Однако его главная цель не из тех, где все решает один удачный выстрел. Она (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2D90331590C434B7FC94EDE936A6B995A8C2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

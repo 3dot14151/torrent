@@ -1,3 +1,107 @@
+###  Публикация: 1080486   (274399) от 15.12.2016
+
+History. Кругосветное путешествие Оззи и Джека / Ozzy & Jack's World Detour (2016) HDTVRip [H.264/1080i-LQ] (сезон 1, серии 1-10 из 10) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274399.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Крестный отец хэви-метала» великий и ужасный Оззи Осборн вместе со своим сыном Джеком отправляется в захватывающее путешествие по миру. Однако это не стандартная туристическая поездка, включающая в себя беглое изучение основных достопримечательностей, а серьезное исследование знаковых исторических мест, таких как Стоунхендж, мемориал Рашмор, Джеймстаун, Розуэлл (   Читать дальше...   )Телекомпания: США / Osbourne Media, T Group ProductionsЖанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: ~ 00:40:00 (серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A9BDA17DB7126F223D26BAC78C920B8427DC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188292   (274248) от 02.12.2017
+
+Тайны шести жен с Люси Уорсли / Secrets of the Six Wives with Lucy Worsley (2016) DVB (Сезон 1, серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал показывает нам драматическую реконструкцию, в которой Люси Уорсли пересматривает ключевые события в жизни шести жен Генриха VIII, раскрывает те моменты, в которых каждая из них пыталась оказать влияние на короля и суд Тюдоров. Люси вникает в записи личных моментов и личных чувств в жизни этих женщин, которые в конечном итоге формируют ход истории.Производство: Великобритания, Wall to Wall South LtdЖанр: Документальный, драма, биография, историяРежиссер: Расселл ИнглэндПеревод: Многоголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3x~00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D543E044E579ACA399AF475026895E62EE282F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265463   (274073) от 28.11.2018
+
+NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окаванго - это то место, где природа создала самые разнообразные среды обитания на земле. Это место, где десятки тысяч животных каждый год переживают удивительные драмы, вызванные могущественой природной силой под названием "Большой потоп".Производство: США, Icon Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд БестелингПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7ECEBEBDB52F2F17315700B3B91A8D4D2B94D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265470   (274064) от 28.11.2018
+
+NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 2018 года НАСА запустило первую в истории миссию полета на звезду. Это поистине исторический квест, посвященный исследованию самого крупного объекта нашей солнечной системы - Солнца. Для его реализации был создан самый быстрый из когда-либо созданных на Земле летательных аппаратов, который будет лететь со скоростью 450000 миль в час. Его невероятная по своей (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэниел М. СмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2C14D5B0BEB86F182A80A2D8E386DEA0F9BAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188547   (273237) от 03.12.2017
 
 Тайны китайских колесниц / Secret of the Chinese Chariot (2016) DVB
@@ -6,7 +110,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273237.jpg" />
+  <img src="Z:/picture/008/save_picture_273237.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Эд Стаффорд: Выживший / Ed Stafford: Left for Dead 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273149.jpg" />
+  <img src="Z:/picture/008/save_picture_273149.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272974.jpg" />
+  <img src="Z:/picture/008/save_picture_272974.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272873.jpg" />
+  <img src="Z:/picture/008/save_picture_272873.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272347.jpg" />
+  <img src="Z:/picture/008/save_picture_272347.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271443.jpg" />
+  <img src="Z:/picture/008/save_picture_271443.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271433.jpg" />
+  <img src="Z:/picture/008/save_picture_271433.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271432.jpg" />
+  <img src="Z:/picture/008/save_picture_271432.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271425.jpg" />
+  <img src="Z:/picture/008/save_picture_271425.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271379.jpg" />
+  <img src="Z:/picture/008/save_picture_271379.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270890.jpg" />
+  <img src="Z:/picture/008/save_picture_270890.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270452.jpg" />
+  <img src="Z:/picture/008/save_picture_270452.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270404.jpg" />
+  <img src="Z:/picture/008/save_picture_270404.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270394.jpg" />
+  <img src="Z:/picture/008/save_picture_270394.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270211.jpg" />
+  <img src="Z:/picture/008/save_picture_270211.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_270125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270125.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269992.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NG: Марсоход Curiosity / Curiosity. Life of a Mars Rover (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269980.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ Discovery: Битва за Чернобыль / Battle of Chernobyl (2006) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269847.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269782.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ NG. Место жительства - Марс (Заселение Марса) /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269153.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ PBS Nature: Попугаи в стране Oз / Parrots in the Land of Oz (2008
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268750.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ PBS Nature: Попугаи в стране Oз / Parrots in the Land of Oz (2008
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B3D9511CC54058820BA323761F26B9B419E5602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338650   (268744) от 16.11.2019
-
-NG: Чудища морей. Доисторическое Приключение / Sea Monsters. A Prehistoric Adventure (2007) BDRemux [H.264/1080p] [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-путешествие в малоизученный мир «необычных» — подводных — динозавров. Здесь тесно переплетаются красочная фотореалистическая анимация и уникальные палеонтологические находки со всего мира — сокровища, которые пролили свет на жизнь персонажей фильма.Производство: США, National GeographicЖанр: Документальный, палеонтология, реконструкцияРежиссер: Шон Маклеод ФиллипсПеревод: Одноголосый закадровый, любительскийСубтитры: АнглийскиеПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7B336A42AEEED44ABA0782761EE989031E3D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275306   (268728) от 28.12.2010
-
-BBC: Мир природы. Китовая акула / Natural World. Whale Shark (2008) DVDRip [118 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китовая акула - самая крупная рыба в мире и, вместе с тем, одна из самых загадочных и малоизученных. Ее длина может достигать 15 метров, а вес - 12 тонн! Несмотря на огромные размеры, китовая акула для человека абсолютно безопасна, так как питается исключительно планктоном и прочими мелкими организмами, которых она фильтрует, втягивая в себя воду. Большую часть года (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DB5DC85364A8A14C42C48E11B8E49578D3388E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339028   (267985) от 17.11.2019
-
-NG: С точки зрения науки: Апокалипсис каменного века / Stone Age Apocalypse (2009) HDTV [H.264/1080i-LQ](Сезон 4, серия 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267985.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 000 лет назад по Земле бродило до миллиона человек. А примерно 70 000 лет назад население численностью всего в несколько тысяч человек возможно породило всех современных людей. Что-то произошло... что-то значительное, нечто, что изменило ход эволюции человека. Как это произошло? И грозит ли нашей цивилизации XXI века такая же страшная угроза?Производство: США, Granada Production / National Geographic ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Гарет УильямсПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3AEB3304600D7903740F74702B166B80C8F264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339053   (267891) от 17.11.2019
-
-Discovery. Миллионы Пабло Эскобара / Finding Escobar’s Millions (2017) HDTVRip [H.264/720p-LQ] [50fps] (серии 6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267891.jpg" />
-</div>
-
-
-###  Подробнее
-
-По официальным данным, самый богатый наркобарон в истории Пабло Эскобар при жизни обладал состоянием более 30 млрд долларов, однако не исключено, что денег у него было еще больше. Новая программа «Миллионы Пабло Эскобара» призвана пролить свет на эту тайну. Два бывших агента ЦРУ в сопровождении съемочной группы отправятся на поиски миллионов, спрятанных, если верить (   Читать дальше...   )Производство: США, Blackfin, Pixeldust Studios, Discovery Communications, LLC.Жанр: Документальный, криминал, поискиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B7830C467F200008D01A15FBC731267AA4724D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1356102   (980547) от 29.01.2020
+
+Необычный друг (1975) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980547.jpg" />
+</div>
+
+
+###  Подробнее
+
+О том, как мальчик мечтал подружиться с носорогом.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Стелла АристакесоваАктеры: Татьяна Пельтцер, Светлана Харлап, Евгений Леонов, Елена КамбуроваСубтитры: ОтсутствуютПродолжительность: 00:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F54674EC02CEA226D861226BAEA5E26F7DDE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356106   (980518) от 29.01.2020
+
+Бездомные домовые (1981) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980518.jpg" />
+</div>
+
+
+###  Подробнее
+
+О двух маленьких домовых, которых злая хозяйка прогнала из дома.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Станислав СоколовАктеры: Вячеслав Богачёв, Юрий Волынцев, Нина Русланова, Борис НовиковСубтитры: ОтсутствуютПродолжительность: 00:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B183DE3D5F24293214942BB4785208D7DF1EB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356122   (980507) от 29.01.2020
+
+Лесная хроника (1970) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о том, как жадный волк, который отнимал у зверюшек их собственность, был наказан, попав в капкан, который он принял за ценную вещь.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Петр НосовАктеры: Юрий Хржановский, Анатолий Папанов, Клара Румянова, Юлия ЮльскаяСубтитры: ОтсутствуютПродолжительность: 00:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506A4CFB12D81FDBFA2D6E256B22206F66BB17BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356462   (979020) от 30.01.2020
+
+Младший брат (1976) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм «Младший брат» рассказывает о мальчике Вове, который предпочитает больше времени проводить со своим котенком, чем с маленьким братиком, у которого тем временем просыпается талант фотографа.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Леонид КаюковСубтитры: ОтсутствуютПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B34421E3A84846692E58119401532F92DB18CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356414   (979015) от 30.01.2020
+
+Разрешите погулять с вашей собакой (1984) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979015.jpg" />
+</div>
+
+
+###  Подробнее
+
+О мальчике, который очень любил собак и выгуливал собак своих знакомых.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Мария РудаченкоСубтитры: ОтсутствуютПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20870E6D89257831E40FDC618BB195D094F746FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356433   (978904) от 30.01.2020
 
 Мой друг зонтик (1982) WEBRip [H.264/1080p-LQ] [PR]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978904.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977851.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977838.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976773.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975541.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975535.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974290.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973094.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973089.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973082.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961778.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868566.jpg" />
+  <img src="Z:/picture/008/save_picture_868566.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858058.jpg" />
+  <img src="Z:/picture/008/save_picture_858058.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857806.jpg" />
+  <img src="Z:/picture/008/save_picture_857806.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854187.jpg" />
+  <img src="Z:/picture/008/save_picture_854187.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837996.jpg" />
+  <img src="Z:/picture/008/save_picture_837996.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835187.jpg" />
+  <img src="Z:/picture/008/save_picture_835187.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833635.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833542.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829994.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822813.jpg" />
 </div>
 
 
@@ -542,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA266A6E0F0C23C28A10F63B6B92E9A92BB9B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503826   (817783) от 20.10.2021
-
-Как слон в яму угодил (1981) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817783.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, как Дятел и Зяблик наказали упрямоro слона и научили его доброте.Производство: СССР / Грузия-фильмЖанр: Рисованная анимация, мультфильм, короткометражкаРежиссер: Борис СтариковскийПеревод: Не требуетсяСубтитры: отсутсвуютПродолжительность: 00:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA5FE700B9509DF0778697807816AA5BF274FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504037   (815949) от 21.10.2021
-
-Полусказка (1975) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм, рассказывающий о том, как важно беречь и охранять природу.Производство: СССР / Рижская киностудияЖанр: кукольный мультфильм, короткометражкаРежиссер: Арвидс НориньшПеревод: ДублированныйСубтитры: отсутсвуютПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63255842C59FDD03C707623A1A9F636A79E7BA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504279   (812217) от 23.10.2021
-
-Сапожки аиста (1984) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812217.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки Аурелиу Бусуйок. Собрался аист к лисе на день рождения, и вдруг обнаружил, что сапог у него нет...Производство: СССР / Молдова-фильмЖанр: мультфильм, короткометражкаРежиссер: Наталия СидоренкоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DB859E4A8BBE6670ADFEFB8A38B642D83F1767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504447   (812208) от 23.10.2021
-
-Такая любовь (1982) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шуточный сюжет про инопланетянина, влюбившегося в земную девушку и решившего остаться на Земле.Производство: СССР / Грузия-фильмЖанр: рисованная анимация, мультфильм, короткометражкаРежиссер: Константин МацаберидзеПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26ECEC1482290CCE22E756DE288BCA421BF2CBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505094   (808083) от 25.10.2021
-
-Я не курю (1987) WEBRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808083.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, как заяц-чемпион растерял спортивность, начав курить.
-По заказу Министерства Здравоохранения СССРПроизводство: СССР / ЛеннаучфильмЖанр: мультфильм, короткометражкаРежиссер: Юрий СоловьёвПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2753AD560D5D6519760301E71738998587FA5670
 ```
 
 https://mybot314.ru/tekegram_catalog/

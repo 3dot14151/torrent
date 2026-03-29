@@ -6,7 +6,7 @@ CameraBag Cinema 1.0.103 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742312.jpg" />
+  <img src="Z:/picture/008/save_picture_742312.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742311.jpg" />
+  <img src="Z:/picture/008/save_picture_742311.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742307.jpg" />
+  <img src="Z:/picture/008/save_picture_742307.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742306.jpg" />
+  <img src="Z:/picture/008/save_picture_742306.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742300.jpg" />
+  <img src="Z:/picture/008/save_picture_742300.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742278.jpg" />
+  <img src="Z:/picture/008/save_picture_742278.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2903) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742277.jpg" />
+  <img src="Z:/picture/008/save_picture_742277.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Things 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742276.jpg" />
+  <img src="Z:/picture/008/save_picture_742276.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Vivaldi 1.14.1077.60 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742275.jpg" />
+  <img src="Z:/picture/008/save_picture_742275.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VideoSolo Video Converter Ultimate 1.0.16 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742272.jpg" />
+  <img src="Z:/picture/008/save_picture_742272.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ VA - Question (DJ Pita B Dj Mix) (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742267.jpg" />
+  <img src="Z:/picture/008/save_picture_742267.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ José Soberanes - The Rising Tide (2016) whitelabrecs [FLAC 2.0|48/24|tracks|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742260.jpg" />
+  <img src="Z:/picture/008/save_picture_742260.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ EdgeView 3 v3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742259.jpg" />
+  <img src="Z:/picture/008/save_picture_742259.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Wondershare PDFelement Pro OCR 8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742257.jpg" />
+  <img src="Z:/picture/008/save_picture_742257.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ K-Lite Codec Pack Update 16.7.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742252.jpg" />
+  <img src="Z:/picture/008/save_picture_742252.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Kid3 3.9.1 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742249.jpg" />
+  <img src="Z:/picture/008/save_picture_742249.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ HDCleaner 2.013 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742248.jpg" />
+  <img src="Z:/picture/008/save_picture_742248.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Audiority - Space Station UM282 1.0.0 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742247.jpg" />
+  <img src="Z:/picture/008/save_picture_742247.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ AYVY 1.17.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742246.jpg" />
+  <img src="Z:/picture/008/save_picture_742246.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Privacy Eraser Free 5.19.2 Build 4129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742244.jpg" />
+  <img src="Z:/picture/008/save_picture_742244.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ WiFi Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742240.jpg" />
+  <img src="Z:/picture/008/save_picture_742240.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742237.jpg" />
+  <img src="Z:/picture/008/save_picture_742237.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Bandicam 4.3.3.1498 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742234.jpg" />
+  <img src="Z:/picture/008/save_picture_742234.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Telegram Desktop 1.5.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742232.jpg" />
+  <img src="Z:/picture/008/save_picture_742232.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Google Chrome 72.0.3626.109 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742230.jpg" />
+  <img src="Z:/picture/008/save_picture_742230.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Astra Image PLUS 5.5.3.0 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742227.jpg" />
+  <img src="Z:/picture/008/save_picture_742227.jpg" />
 </div>
 
 

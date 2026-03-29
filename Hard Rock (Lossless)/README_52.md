@@ -1,3 +1,61 @@
+###  Публикация: 1066591   (410084) от 27.10.2016
+
+Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until You're Gone 04:20
+02. Drift Away 03:33
+03. Deep End 03:41
+04. Out of My Heart 06:07(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0088C19CE6DBFC79195F8783876520187ECA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066593   (410083) от 27.10.2016
+
+Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Lose It 04:09
+02. Dirty Little Secret 04:33
+03. It's Not Me 04:20
+04. Hard Life 05:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D43AA6E1B0B7E016A1BE684B866BFF73AEC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130713   (408612) от 17.09.2019
 
 Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -6,7 +64,7 @@ Art Nation - Liberation (2017) Sony Music [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408612.jpg" />
+  <img src="Z:/picture/008/save_picture_408612.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Steve Lee (Gotthard) - The Eyes of a Tiger: In Memory of Our Unforgotten Friend!
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408340.jpg" />
+  <img src="Z:/picture/008/save_picture_408340.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ David Lee Roth - 8 Albums, 1 EP (1985 - 2013) 10 CD [FLAC|Lossless|image + .cue|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408098.jpg" />
+  <img src="Z:/picture/008/save_picture_408098.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Alter Bridge - Live At The Royal Albert Hall Featuring The Parallax Orchestra (2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407909.jpg" />
+  <img src="Z:/picture/008/save_picture_407909.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Cinderella - The Mercury Years (2018) 5CD Box Set [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407810.jpg" />
+  <img src="Z:/picture/008/save_picture_407810.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ King's X - Three Sides Of One (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407491.jpg" />
+  <img src="Z:/picture/008/save_picture_407491.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Slade - Cum On Feel the Hitz: The Best of Slade (2020) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407128.jpg" />
+  <img src="Z:/picture/008/save_picture_407128.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Billy Idol - The best (1994) [FLAC|Lossless|image + .cue] <Punk Rock,  Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404895.jpg" />
+  <img src="Z:/picture/008/save_picture_404895.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Twisted Sister - 11 альбомов, 19CD (1982-2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404727.jpg" />
+  <img src="Z:/picture/008/save_picture_404727.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Baroness - Yellow & Green (2012) 2CD [FLAC|Lossless]<Stoner / Progressive Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404184.jpg" />
+  <img src="Z:/picture/008/save_picture_404184.jpg" />
 </div>
 
 
@@ -298,7 +356,7 @@ Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399837.jpg" />
+  <img src="Z:/picture/008/save_picture_399837.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ UFO - The Salentino Cuts (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398515.jpg" />
+  <img src="Z:/picture/008/save_picture_398515.jpg" />
 </div>
 
 
@@ -361,7 +419,7 @@ Survivor - 8 Albums, 5 Compilations, 1 Live (1979 - 2006) 36 CD [FLAC|APE|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397437.jpg" />
+  <img src="Z:/picture/008/save_picture_397437.jpg" />
 </div>
 
 
@@ -390,7 +448,7 @@ Jimi Jamison (Target, Cobra and Solo Albums) - 9 Albums (1976 - 2012) [FLAC|APE|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394725.jpg" />
+  <img src="Z:/picture/008/save_picture_394725.jpg" />
 </div>
 
 
@@ -419,7 +477,7 @@ Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388047.jpg" />
+  <img src="Z:/picture/008/save_picture_388047.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ Pat Travers - The Art of Time Travel (2022) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388044.jpg" />
+  <img src="Z:/picture/008/save_picture_388044.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ Femme Fatale - One More For The Road (2016) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388040.jpg" />
+  <img src="Z:/picture/008/save_picture_388040.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387526.jpg" />
+  <img src="Z:/picture/008/save_picture_387526.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Sven Gali - Sven Gali (1993) Japan [APE|Lossless|image + .cue] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385118.jpg" />
+  <img src="Z:/picture/008/save_picture_385118.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ Monster Truck - 3 Albums (2013-2018) [FLAC|Lossless|image + .cue] <Hard Rock, So
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381623.jpg" />
+  <img src="Z:/picture/008/save_picture_381623.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ It's A Beautiful Day - Pacific High Recording Studios (1971) live, 2022, Pacific
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381549.jpg" />
+  <img src="Z:/picture/008/save_picture_381549.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Voltage - Tomorrow Hits Today (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379503.jpg" />
+  <img src="Z:/picture/008/save_picture_379503.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ Place Vendome - 4 Albums (2005-2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378780.jpg" />
+  <img src="Z:/picture/008/save_picture_378780.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Atomic Rooster - 11 альбомов, 25CD (1970-2016) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378466.jpg" />
+  <img src="Z:/picture/008/save_picture_378466.jpg" />
 </div>
 
 
@@ -694,64 +752,6 @@ Atomic Rooster — британская рок-группа, образовав�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B140319C0344511F5C0929E5FF121EB42512ED74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253920   (377371) от 12.10.2018
-
-Nazareth - Tattooed on My Brain (2018) Frontiers Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Dance with the Devil (3:00)
- 02. Tattooed on My Brain (2:50)
- 03. State of Emergency (3:42)
- 04. Rubik's Romance (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFA1FB15563F1F70555AA60AB4A26600C8F5D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327339   (376845) от 24.09.2019
-
-Jimi Anderson Group - I Belong (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brave New World[3:58]
- 02 - Holdin' On To The Night[4:05]
- 03 - If All I Need Is You[4:09]
- 04 - Until Then[3:40](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E533EC5E389F84614A5BF8EB02B5EB5BBAD6D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

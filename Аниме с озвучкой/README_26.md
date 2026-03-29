@@ -1,3 +1,30 @@
+###  Публикация: 1300450   (593034) от 06.05.2019
+
+Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сакура Минамото — школьница, поступившая во второй класс старшей школы. В свой первый учебный день она была полна энтузиазма — она хотела подать заявление на кастинг, чтобы стать поп-идолом! Да вот незадача — её сбила машина, стоило ей только выйти из дома.
+Спустя 10 лет после гибели девушки её оживляет профессиональный стилист Котаро Тацуми, желающий создать группу (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Сакай МунэхисаПеревод: AniLibria ASS полныеЯзык озвучки: Японский и русский (Профессиональный многоголосый (Kansai) , Любительский двухголосный (AniDUB)Субтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CBDB8ABE12AE846CEAEF0D97BFA6DC7BEC2820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300415   (592677) от 07.05.2019
 
 Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 из 12] HDRip 400p raw+rus
@@ -6,7 +33,7 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592677.jpg" />
+  <img src="Z:/picture/008/save_picture_592677.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591992.jpg" />
+  <img src="Z:/picture/008/save_picture_591992.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Grisaia no Rakuen / The Eden of Grisaia / Эдем в серых тонах [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591285.jpg" />
+  <img src="Z:/picture/008/save_picture_591285.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Fantastic Children / Фантастические дети [2004, TV, 26] DVDrip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591251.jpg" />
+  <img src="Z:/picture/008/save_picture_591251.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Cowboy Bebop | Ковбой Бибоп [1998, TV, 26 эп.] BDRip 720p Hi10p raw
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587495.jpg" />
+  <img src="Z:/picture/008/save_picture_587495.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | ЦубаКума! | Наша служа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586889.jpg" />
+  <img src="Z:/picture/008/save_picture_586889.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Tonari no Kaibutsu-kun | My Little Monster | Монстр за соседней 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585914.jpg" />
+  <img src="Z:/picture/008/save_picture_585914.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Samurai Seven | Семь Самураев | 7 самураев [2004, TV, 26] HD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584898.jpg" />
+  <img src="Z:/picture/008/save_picture_584898.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Galilei Donna | Девы Галилея [2013, TV, 01-11 из 11] BDRip 400p raw
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581915.jpg" />
+  <img src="Z:/picture/008/save_picture_581915.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Darling in the Franxx | Любимый во Франксе [2018, TV, 01-24 из
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581913.jpg" />
+  <img src="Z:/picture/008/save_picture_581913.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Ryuu to Sobakasu no Hime | Belle | Красавица и дракон [2021, Mov
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581719.jpg" />
+  <img src="Z:/picture/008/save_picture_581719.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Pokemon: Advanced (6 Season) / Покемон: Новое поколение (6 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580140.jpg" />
+  <img src="Z:/picture/008/save_picture_580140.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ No Game No Life: Zero | Нет игры - нет жизни: Начало [2018,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579961.jpg" />
+  <img src="Z:/picture/008/save_picture_579961.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25] BDRip 400
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579960.jpg" />
+  <img src="Z:/picture/008/save_picture_579960.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Psycho-pass | Психопаспорт (два сезона) [2012-2014, TV, 22 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577382.jpg" />
+  <img src="Z:/picture/008/save_picture_577382.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ Pandora Hearts / Сердца Пандоры [2009, TV, 25] DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577381.jpg" />
+  <img src="Z:/picture/008/save_picture_577381.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Aoki Hagane no Arpeggio: Ars Nova / Arpeggio of Blue Steel / Арпеджио г
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575889.jpg" />
+  <img src="Z:/picture/008/save_picture_575889.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575543.jpg" />
+  <img src="Z:/picture/008/save_picture_575543.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ Rean no Tsubasa | The Wings of Rean | Крылья Рин [2005, ONA, 6 эп.] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575542.jpg" />
+  <img src="Z:/picture/008/save_picture_575542.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Shinpi no Sekai El Hazard | El Hazard - The Magnificent World | Удивител
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575541.jpg" />
+  <img src="Z:/picture/008/save_picture_575541.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575540.jpg" />
+  <img src="Z:/picture/008/save_picture_575540.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ Gekijouban Hunter x Hunter: Phantom Rouge / Охотник х Охотник (ф
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574778.jpg" />
+  <img src="Z:/picture/008/save_picture_574778.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ Isshuukan Friends / One Week Friends / Друзья на неделю [2014, TV,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571688.jpg" />
+  <img src="Z:/picture/008/save_picture_571688.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Sasameki Koto / Whispered Words / Я тихо прошепчу [2009, TV, 13 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571214.jpg" />
+  <img src="Z:/picture/008/save_picture_571214.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570878.jpg" />
+  <img src="Z:/picture/008/save_picture_570878.jpg" />
 </div>
 
 
@@ -654,33 +681,6 @@ Nobunagun / Пушка Нобунаги [2014, TV, 13] BDRip Hi10p 720p Raw+Rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E12DB9FC72C36D6D92DDAAD7437AA1D50E2B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837746   (567911) от 29.07.2015
-
-Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x5(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что нужно настоящему японскому школьнику? Хорошая физическая форма, богатое воображение, моральная стойкость и, конечно, решительность! Арата Касуга, узнав, что неведомые магические силы грубо вмешались в его жизнь, похитив любимую кузину Хидзири, не стал в истерике кататься по полу, размазывая слезы, а твердо решил сам овладеть магией и рассчитаться с обидчиками. (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Нисикиори ХиросиПеревод: Русские субтитры от GMC
-Переводчик: Elven_tankman, Редакторы: Koushin, Nerevar, Оформление: SurokuneСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420D0B6BEB1202CB48D783918021830859B0B4B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

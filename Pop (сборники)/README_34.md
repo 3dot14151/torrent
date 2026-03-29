@@ -1,3 +1,61 @@
+###  Публикация: 1015884   (772971) от 12.05.2016
+
+VA - Mуз-сливки хит-парадов. Русский выпуск (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772971.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Даша Столбова - Баллада
+002. Brainstorm - Пропуск
+003. Kristina Si - Не Обижай Меня
+004. Алексей Завьялов Feat. Анна Дуванова - Моя Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4030799D87C52A1784518B7234F9E00DA05F1DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015992   (772813) от 12.05.2016
+
+VA - 80s Heart Soul Hits (2016) [MP3|320 кб/с] <Euro Disco, New Wave, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (Remix) 08:49
+02. Lian Ross - Say You'll Never 06:36
+03. Bad Boys Blue - I Wanna Hear Your Heartbeat (Sunday Girl) 06:29
+04. Mike Mareen - Don't Talk To The Snake 08:01(   Читать дальше...   )Жанр: Euro Disco, New Wave, SynthpopПродолжительность: 03:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279CC95CC3AA33A46ABF21D265FC1663306DE7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015908   (772671) от 12.05.2016
 
 VA - Хиты для хорошего настроения (2016) [MP3|256-320 кб/с] <Pop>
@@ -6,7 +64,7 @@ VA - Хиты для хорошего настроения (2016) [MP3|256-320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772671.jpg" />
+  <img src="Z:/picture/008/save_picture_772671.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Empire Records - Church (2018) [MP3|320 Kbps] <Pop, Pop-Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771859.jpg" />
+  <img src="Z:/picture/008/save_picture_771859.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ E-Type - Russian Lullaby (1998) [MP3|320 Kbps] <Eurodance, Euro-House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771854.jpg" />
+  <img src="Z:/picture/008/save_picture_771854.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Главная дискотека. Майская (2016) [MP3|256-320 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771468.jpg" />
+  <img src="Z:/picture/008/save_picture_771468.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Союз 58 (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771252.jpg" />
+  <img src="Z:/picture/008/save_picture_771252.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Romantic 80s (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771184.jpg" />
+  <img src="Z:/picture/008/save_picture_771184.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Зажигательный молодежный музыкайф на Europ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770270.jpg" />
+  <img src="Z:/picture/008/save_picture_770270.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Anca Pop - Anca Pop (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769685.jpg" />
+  <img src="Z:/picture/008/save_picture_769685.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Весна пришла 8 (2016) [MP3|256 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769627.jpg" />
+  <img src="Z:/picture/008/save_picture_769627.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - German Top 100 Single Charts 26.06.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768970.jpg" />
+  <img src="Z:/picture/008/save_picture_768970.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Radio DFM Top D-Chart Июнь 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768288.jpg" />
+  <img src="Z:/picture/008/save_picture_768288.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Shazam Хит-парад Russia Top 100 Июнь (2020) [MP3|320 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768243.jpg" />
+  <img src="Z:/picture/008/save_picture_768243.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Club Dance Ambience Vol.170 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768218.jpg" />
+  <img src="Z:/picture/008/save_picture_768218.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Pop Doll Vol.02 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767631.jpg" />
+  <img src="Z:/picture/008/save_picture_767631.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Положительный заряд Hit FM. Сборник № 7 (2017) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767118.jpg" />
+  <img src="Z:/picture/008/save_picture_767118.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Hot Rotation Party Hits: Die besten Hits 2017 fur deine Party  [MP3|320 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766319.jpg" />
+  <img src="Z:/picture/008/save_picture_766319.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Unknown 80's (part VI) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766152.jpg" />
+  <img src="Z:/picture/008/save_picture_766152.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766118.jpg" />
+  <img src="Z:/picture/008/save_picture_766118.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Драйвовый молодежный весенний музон. Вып
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765553.jpg" />
+  <img src="Z:/picture/008/save_picture_765553.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Русский отрыв Русского радио. Выпуск № 2 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765546.jpg" />
+  <img src="Z:/picture/008/save_picture_765546.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Музыкальный подарок на Europa Plus. Сборник № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765543.jpg" />
+  <img src="Z:/picture/008/save_picture_765543.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Весенние заводные хиты. Сборник № 5 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765541.jpg" />
+  <img src="Z:/picture/008/save_picture_765541.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Высшая лига. Весна выпуск № 3 (2017) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765539.jpg" />
+  <img src="Z:/picture/008/save_picture_765539.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Душевный сборник Русского радио (2017) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765534.jpg" />
+  <img src="Z:/picture/008/save_picture_765534.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Душевный сборник Русского радио (2017) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CED56503EF24AB27C8B5F6161ABF68878B8B253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126455   (765532) от 18.04.2017
-
-VA - Популярные весенние новинки выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Тинс - Прощай И Прости Меня 3:28
-002. Hann - На Больничном 4:04
-003. Loren - Люби 3:36
-004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3028DD3199D73822DC9D85A4B1ED0CF040BC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126610   (765478) от 18.04.2017
-
-VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lalo Project - Честная Весна 2:58
-002. Tiana - Мне Так Жаль 3:44
-003. Pasha Leem - Чую 3:47
-004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

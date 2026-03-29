@@ -1,3 +1,29 @@
+###  Публикация: 1062289   (279803) от 11.12.2016
+
+Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! Старшая Карасуно против академии Сираторидзава [ТВ-3] [2016, TV, 10 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279803.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний Сёё Хината увидел по телевизору несколько матчей – и влюбился в волейбол. Три года парень работал на свою мечту – и в последний год средней школы смог собрать команду и вывести ее на настоящий турнир. А там, понятно, новичков, набранных «с бору по сосенке», побили в первом же круге, причем жуткий разгром им устроил, чуть ли не в одиночку, гениальный плеймейкер (   Читать дальше...   )Жанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: AOS TeamСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 10 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC0B453E12BE0136C195F2E8ECE3555691160FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 425017   (276547) от 20.12.2011
 
 Hoshi wo Ou Kodomo / Ловцы забытых голосов [2011, MV] BDrip 720p raw + rus
@@ -6,7 +32,7 @@ Hoshi wo Ou Kodomo / Ловцы забытых голосов [2011, MV] BDrip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276547.jpg" />
+  <img src="Z:/picture/008/save_picture_276547.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273833.jpg" />
+  <img src="Z:/picture/008/save_picture_273833.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gyakusatsu Kikan / Genocidal Organ / Орган Геноцида [2017, MV] BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265607.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gekijouban Sword Art Online: Ordinal Scale / Мастера Меча Онлай�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264908.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Robomasters / Робомастера [2017, TV, 6 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262721.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken / My Girlfriend is Shobitch / М
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262641.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [201
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262003.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ballroom e Youkoso / Welcome to the Ballroom / Добро пожаловать �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261842.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254233.jpg" />
+  <img src="Z:/picture/005/save_picture_254233.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247000.jpg" />
+  <img src="Z:/picture/004/save_picture_247000.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237615.jpg" />
+  <img src="Z:/picture/004/save_picture_237615.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Neko no Ongaeshi | The Cat Returns | Возвращение кота (2002) BDRi
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237411.jpg" />
+  <img src="Z:/picture/005/save_picture_237411.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222937.jpg" />
+  <img src="Z:/picture/005/save_picture_222937.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206728.jpg" />
+  <img src="Z:/picture/005/save_picture_206728.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200669.jpg" />
+  <img src="Z:/picture/005/save_picture_200669.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Megaton-kyuu Musashi 2nd Season | Мегатон 2 [2022, TV, 15 эп.] HDTVRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199249.jpg" />
+  <img src="Z:/picture/005/save_picture_199249.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Douluo Dalu | Dou Luo Da Lu | Soul Land | Боевой континент [2018-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194490.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158138.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156161.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -646,34 +672,6 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344C2830313FAEFE276049311C14D35EF92518FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150000   (154501) от 25.12.2017
-
-Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Пороге Войны [2017, TV, 24 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тогрул Махмуд - юный паша, преданно служащий своей стране, над которой начинают сгущаться тучи войны из-за угрозы нападения со стороны агрессивно настроенной Империи. Да и внутри государства не все гладко, население разделилось на пацифистов и тех, кто жаждет войны.
-
-Махмуд отправляется в поход, чтобы сохранить мир любой ценой. Всё глубже и глубже погружаясь в политические (   Читать дальше...   )Жанр: драма, сёнен, приключения, исторический, фантастикаРежиссер: Фурухаси КадзухироЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA32CA65CDC14FC37EF8279E83138B14715A5B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

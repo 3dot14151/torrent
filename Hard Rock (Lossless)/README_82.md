@@ -1,3 +1,61 @@
+###  Публикация: 1427492   (183025) от 28.11.2020
+
+AC/DC - Power Up (2020) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_183025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Realize 3:37
+02 Rejection 4:06
+03 Shot In The Dark 3:05
+04 Through The Mists Of Time 3:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA44706DB6D209AAFA2887132ECA3ACE79566C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592664   (182592) от 24.11.2022
+
+Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sin & Wine
+02 Drag Me Down
+03 Soma (Part I)
+04 Wandering Dog(   Читать дальше...   )Жанр: Heavy Rock, Stoner, GrungeПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D42A85C605543D3E381C10136B476948AC8E341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592653   (182553) от 24.11.2022
 
 Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
@@ -6,7 +64,7 @@ Iron Fist - Mettlehead Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182553.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Liquify - Beyond The Frozen Horizon (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182503.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181815.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ XYZ - XYZ (1989) Japanese Edition, Reissue, 1990, Enigma Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181723.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ B.O.W - Chasing Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181560.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181517.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Dust - 2 albums, 3 CD (1971-2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181498.jpg" />
+  <img src="Z:/picture/005/save_picture_181498.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Jorn - 50 Years On Earth [The Anniversary Box Set] (2018) 12CD [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_181403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181403.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181319.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Burnt Out Wreck - Stand and Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181201.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Skarlett Roxx - Skarlett's Web (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181179.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181159.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181139.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180905.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180874.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Trillion Ton Beryllium Ships - TTBS (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180051.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Paterikon - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180048.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Rocket Boy - Resolute (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180038.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Erik's Iridescent Tent - Peter Piper Pepperidge Farm at the Gates of Dawn Deterg
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180032.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Cowboys & Aliens - Burn! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180011.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Bad Baron - Ace Of Hearts (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180003.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Steve Holliday - Stark Raving Mad (1997) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179997.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Wildness - Wildness (2017) Reissue, 2022, ERFX Productions [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179991.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179983.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66B4312F91BFF41FB693BE829BF557AC500ADBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593318   (179982) от 28.11.2022
-
-Steelwings - Still Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell or High Water [00:04:40]
-02. Stand up and Fight [00:03:09]
-03. Break of Day [00:05:16]
-04. Hey Hey [00:03:35](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FF4FB0B4E0543468E2B6C98372B0D90CB2F3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593351   (179913) от 28.11.2022
-
-Lee Aaron - Elevate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Bottom Revolution (00:04:04)
-02 - Trouble Maker (00:03:53)
-03 - The Devil U Know (00:04:13)
-04 - Freak Show (00:04:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F272A767F0E5DAC15B921F4525B3C37A00235BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

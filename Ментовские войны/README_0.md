@@ -6,7 +6,7 @@
 >>Ментовские войны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85042.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ментовские войны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13126.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ментовские войны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13056.jpg" />
 </div>
 
 

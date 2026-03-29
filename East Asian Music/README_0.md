@@ -6,7 +6,7 @@ VA - Livin'G. Phleng Sawan Ban Na. Mon Spa Luk Thung (3CD) (2009) [MP3|320 кб/
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999327.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Tenor Ga Tsuzuru Kayokyoku (2007) [MP3|320 кб/с]<JPop Instrumental, Easy
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998806.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Shi Jin - 2 albums (2011, 2012) [MP3|320 кб/с]<Neoclassical, Instrumental, Pi
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998231.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Bao Zhao Ke - Ma Tou Qin's Legend (2006) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997496.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Nozomi Sasaki - 1 альбом, 3 сингла, 1 компиляция (2010-201
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995758.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Brilliant Music Vol.1-3 (2006-2008) [MP3|320 кб/с]<Instrumental Folk>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995567.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ VA - Popular Zheng (2CD) (1995) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995203.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Ning Lin - Golden Whistle /2CD/ (2008) [MP3|320 кб/с]<Instrumental, Whistle>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994869.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Katsu Ohta - Micronist II (2015) [WavPack|Lossless|image + .cue] <Neoclassical M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993276.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Onmyo-Za - Kumikyoku "Yoshitsune" - Muma-Enjou (2004) [WavPack|Lossless|image + 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992577.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Wu Qian - 2 albums  (2011-2012) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990072.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BABYMETAL - 5 синглов (2011-2013) [MP3|320 кб/с]<J-Pop, Metal, J-Rock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989777.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ HERO - 4 альбома, 4 компиляции, 12 синглов (2008-2012) [
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985835.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Buddhist Music Played By Piano (6CD) (1991-1992) [MP3|320 кб/с]<Meditati
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985380.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Utsu-P - 4 Albums (2009-2012) Discography [MP3|320 кб/с]<Jrock, Vocaloid, Nu 
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983729.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Hiromi Sano - Mood Sax Best of Sorrow (2CD) (2008) [MP3|320 кб/с]<Instrumenta
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981078.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Mechanical Teddy - Mecharopolis (2010) [MP3|320 кб/с]<Melodic Death Metal\Met
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968601.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hiroyuki Oda - Discography (2006-2012) [MP3|320 кб/с]<Trance>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966271.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Matenrou Opera - ChiKyu (2016) [MP3|320 кб/с] <Symphonic Power Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965418.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Matsushita Yuya - 2 альбома, 16 синглов (2008-2012) [MP3|320 кб/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962690.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Joe Hisaishi - Another Piano Stories (2009) [MP3|320 kbps]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962471.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Lia - 6 альбомов, 4 Best Albums, 10 компиляций, 2 Live Albums,
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961305.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ the brilliant green - discography (1997-2010) [MP3|320 кб/с]<JRock>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958804.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Kanae Nozawa - Planet (2014) [MP3|320 кб/с] <Instrumental Folk, New Age, Rela
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952511.jpg" />
 </div>
 
 
@@ -759,7 +759,7 @@ BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947840.jpg" />
 </div>
 
 
@@ -788,7 +788,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939712.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1370519   (896437) от 27.03.2020
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2020.03.27) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896437.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF33DFD8CE0B70CD1DDA1EB09CAE909427D1F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370863   (894925) от 28.03.2020
+
+Женский Stand Up (28.03.2020) WEB-DL [H.264/1080p-LQ] (выпуск 11)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ты думаешь, что женщины не ругаются, не жалуются на детей, не шутят о сексе и еще множество всяких «не», то это шоу докажет обратное! Для героинь «Женского стендапа» нет запретных тем. Они честно говорят о том, что их не устраивает в отношениях, высмеивают стереотипы семейной жизни и откровенно заявляют, что быть хорошей матерью вообще-то очень сложно. Хочешь (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66902BCDEC709290DDE894CABE021D73BB38BBB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371179   (891486) от 30.03.2020
+
+Концерт Юлии Ахмедовой / Harassment. Нет Харассменту (2020) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый сольный концерт Юлии Ахмедовой, в рамках которого она выскажет свою точку зрения на самые актуальные проблемы. Юлия перенесется на 15 лет назад в Воронеж и вспомнит, как ее преследовал извращенец на велосипеде, и как ее отец устраивал анти-маньячные учения. Даст пару советов для девушек по сохранению фигуры, которые она подсмотрела у дальнобойщиков. Расскажет, (   Читать дальше...   )Телекомпания: ТНТ, Comedy Club ProductionЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC27253722DA0022CCF16735CF41055EC1326DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371581   (889839) от 31.03.2020
 
 Stand Up (29.03.2020) WEB-DLRip (сезон 7, выпуск 18)
@@ -6,7 +84,7 @@ Stand Up (29.03.2020) WEB-DLRip (сезон 7, выпуск 18)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889839.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887692.jpg" />
+  <img src="Z:/picture/005/save_picture_887692.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887333.jpg" />
+  <img src="Z:/picture/005/save_picture_887333.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884875.jpg" />
+  <img src="Z:/picture/005/save_picture_884875.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883356.jpg" />
+  <img src="Z:/picture/005/save_picture_883356.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882233.jpg" />
+  <img src="Z:/picture/005/save_picture_882233.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881945.jpg" />
+  <img src="Z:/picture/005/save_picture_881945.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876417.jpg" />
+  <img src="Z:/picture/005/save_picture_876417.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876316.jpg" />
+  <img src="Z:/picture/005/save_picture_876316.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872460.jpg" />
+  <img src="Z:/picture/008/save_picture_872460.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872211.jpg" />
+  <img src="Z:/picture/008/save_picture_872211.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871078.jpg" />
+  <img src="Z:/picture/008/save_picture_871078.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Stand Up (2017.02.19) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871045.jpg" />
+  <img src="Z:/picture/008/save_picture_871045.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870919.jpg" />
+  <img src="Z:/picture/008/save_picture_870919.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870917.jpg" />
+  <img src="Z:/picture/008/save_picture_870917.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870916.jpg" />
+  <img src="Z:/picture/008/save_picture_870916.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Stand Up (05.04.2020) WEB-DLRip (сезон 7, выпуск 19)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866858.jpg" />
+  <img src="Z:/picture/008/save_picture_866858.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Stand Up (12.04.2020) WEB-DLRip (сезон 7, выпуск 20)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866854.jpg" />
+  <img src="Z:/picture/008/save_picture_866854.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863355.jpg" />
+  <img src="Z:/picture/008/save_picture_863355.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Stand Up (2021) WEBRip (сезон 9, выпуски 1-4 из ??) (обновл�
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862744.jpg" />
+  <img src="Z:/picture/008/save_picture_862744.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861104.jpg" />
+  <img src="Z:/picture/008/save_picture_861104.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859854.jpg" />
+  <img src="Z:/picture/008/save_picture_859854.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859421.jpg" />
+  <img src="Z:/picture/008/save_picture_859421.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E62B0C0CAE58BA2C1284C299E5FEBCBD756AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498146   (859303) от 25.09.2021
-
-Однажды в России (24.09.2021) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: Юмористическое тв-шоуАктеры: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11579F7BAD9531610B04C2DDC57576CF8DCC9D8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498063   (859232) от 25.09.2021
-
-Азбука Уральских пельменей. Щ (24.09.2021) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859232.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что осталось за кадром! Цикл выпусков с невошедшими миниатюрами и скетчами. А также самые смешные ляпы и оговорки!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923484744CEF0A764815C87FD6E0460644BA4D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109296   (858888) от 27.02.2017
-
-Stand Up (2017.02.26) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 2)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1720678CBCB5B516EBAD781881DCCC055422DB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

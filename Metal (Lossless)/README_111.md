@@ -1,3 +1,90 @@
+###  Публикация: 681575   (636021) от 20.07.2013
+
+Manowar - Warriors of the World (2002) 10th Anniversary Remastered Edition / 2013, Magic Circle Records / [FLAC|Lossless]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_636021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	 Call to Arms
+02.	 The Fight for Freedom
+03.	 Nessun Dorma
+04.	 Valhalla(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143321   (635534) от 18.06.2017
+
+Mood - Volume 1 (1996) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	The Shell 03:28
+02.	Demons from the Inside Pocket 05:12
+03.	Plastic Man 03:04
+04.	Four Winds Are Blowing 06:42(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5001453C58AC4C43CFC8533A07371A62B9B9ADC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143335   (635531) от 18.06.2017
+
+Mood - Wombocosmic (1999) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Intro 01:17
+02.	I the Bloodstained Embyro 03:42
+03.	The Untold 02:04
+04.	Circles 05:39(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6591B6E821D96D17A5D87E0E14A91EAB343F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143347   (635528) от 18.06.2017
 
 Warning - Metamorphose (1984) Reissued-2015 [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Warning - Metamorphose (1984) Reissued-2015 [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635528.jpg" />
+  <img src="Z:/picture/008/save_picture_635528.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Fleshgrind - Destined For Defilement (1997) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635527.jpg" />
+  <img src="Z:/picture/008/save_picture_635527.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Mallevs Maleficarvm - Homo Homini Lupus (2017) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635511.jpg" />
+  <img src="Z:/picture/008/save_picture_635511.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mood - Slow Down (1997) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635508.jpg" />
+  <img src="Z:/picture/008/save_picture_635508.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Omen - Hammer Damage (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635389.jpg" />
+  <img src="Z:/picture/008/save_picture_635389.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sherpa - El Rock Me Mata (2007) (ex - Baron Rojo) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635385.jpg" />
+  <img src="Z:/picture/008/save_picture_635385.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Angel Nation - Antares (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635160.jpg" />
+  <img src="Z:/picture/008/save_picture_635160.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Wolfpakk - Wolves Reign (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635097.jpg" />
+  <img src="Z:/picture/008/save_picture_635097.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Valor - The Yonder Answer (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634237.jpg" />
+  <img src="Z:/picture/008/save_picture_634237.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Mors Principium Est - Liberate The Unborn Inhumanity (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633818.jpg" />
+  <img src="Z:/picture/008/save_picture_633818.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Shabti - Trembling and Shorn (2019) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633756.jpg" />
+  <img src="Z:/picture/008/save_picture_633756.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Accuser - Reflections (1994) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633754.jpg" />
+  <img src="Z:/picture/008/save_picture_633754.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Cea Serin - The Vibrant Sound Of Bliss And Decay (2014) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633750.jpg" />
+  <img src="Z:/picture/008/save_picture_633750.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ WarKings - Reborn (2018) [FLAC|lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633736.jpg" />
+  <img src="Z:/picture/008/save_picture_633736.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Battle Beast - No More Hollywood Endings (2019) [FLAC|Lossless|tracks + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633622.jpg" />
+  <img src="Z:/picture/008/save_picture_633622.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kissin' Dynamite - Addicted To Metal (2010) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632670.jpg" />
+  <img src="Z:/picture/008/save_picture_632670.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Adrenaline Mob - Men Of Honor (2014) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632592.jpg" />
+  <img src="Z:/picture/008/save_picture_632592.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Periphery - Periphery IV: Hail Stan (2019) [FLAC|Lossless|tracks + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631853.jpg" />
+  <img src="Z:/picture/008/save_picture_631853.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Rammstein - Zick Zack (2022) Single [FLAC|lossless|WEB-DL|tracks] <Industrial Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631364.jpg" />
+  <img src="Z:/picture/008/save_picture_631364.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Born of Osiris - The Simulation (2019) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631234.jpg" />
+  <img src="Z:/picture/008/save_picture_631234.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Serj Tankian - Harakiri (2012) [FLAC (tracks+cue)|Lossless]<Alternative Metal, E
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630851.jpg" />
+  <img src="Z:/picture/005/save_picture_630851.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ Amethyst - The Maze Of Destiny (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630519.jpg" />
+  <img src="Z:/picture/008/save_picture_630519.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630318.jpg" />
+  <img src="Z:/picture/008/save_picture_630318.jpg" />
 </div>
 
 
@@ -663,93 +750,6 @@ Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A4AFE32B1C43BE861CC1AC0B77F866B4C4E0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907838   (630315) от 16.06.2015
-
-The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonderkommando
-02. Wishing Well Of Bones
-03. Aktion T4
-04. Silent Ghosts Of Babi Yar(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B685FB71238E83214EC99F137C74D8F5FD4F7AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907784   (630221) от 16.06.2015
-
-Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Silent Desire
-03. Emptiness Of Night
-04. Elegy Of Doom(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294278   (630103) от 07.04.2019
-
-Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing With Such Abandon (4:48)
-02. Where Every Word Spoken, Speaks (3:01)
-03. And Every Glance Given Has Only One Meaning (4:35)
-04. Spirit (3:53)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0C9976ED8D404A2463A4430AD5ECB265F7D181
 ```
 
 https://mybot314.ru/tekegram_catalog/

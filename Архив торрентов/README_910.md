@@ -6,7 +6,7 @@ TNA Impact [PS3] [EUR] [ENG] [3.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839834.jpg" />
+  <img src="Z:/picture/008/save_picture_839834.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Sandboxie 5.52.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839827.jpg" />
+  <img src="Z:/picture/008/save_picture_839827.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Balabolka 2.15.0.802 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839825.jpg" />
+  <img src="Z:/picture/008/save_picture_839825.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PDF24 Creator 10.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839812.jpg" />
+  <img src="Z:/picture/008/save_picture_839812.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839795.jpg" />
+  <img src="Z:/picture/008/save_picture_839795.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VMware Fusion Pro 8.5.4 (5115894) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839788.jpg" />
+  <img src="Z:/picture/008/save_picture_839788.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ ATMSSPHERO - VCVBTRVP VIII (2015) [MP3|320 Kbps] <Witch House, Darkwave, Experim
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839783.jpg" />
+  <img src="Z:/picture/008/save_picture_839783.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839775.jpg" />
+  <img src="Z:/picture/008/save_picture_839775.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ DJ Aligator - Sky (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839764.jpg" />
+  <img src="Z:/picture/008/save_picture_839764.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Commander One PRO 1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839762.jpg" />
+  <img src="Z:/picture/008/save_picture_839762.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839756.jpg" />
+  <img src="Z:/picture/008/save_picture_839756.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Panda Free Antivirus 2016 16.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839753.jpg" />
+  <img src="Z:/picture/008/save_picture_839753.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839749.jpg" />
+  <img src="Z:/picture/008/save_picture_839749.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Bandizip 7.20 Build 44995 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839704.jpg" />
+  <img src="Z:/picture/008/save_picture_839704.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Opera 80.0.4170.16 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839699.jpg" />
+  <img src="Z:/picture/008/save_picture_839699.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ MAGIX Video Pro X13 19.0.1.123 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839691.jpg" />
+  <img src="Z:/picture/008/save_picture_839691.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ UltraUXThemePatcher 3.1.10 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839647.jpg" />
+  <img src="Z:/picture/008/save_picture_839647.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Kaspersky Lab Products Remover 1.0.1238 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839642.jpg" />
+  <img src="Z:/picture/008/save_picture_839642.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Process Lasso Pro 8.9.8.100 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839641.jpg" />
+  <img src="Z:/picture/008/save_picture_839641.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839639.jpg" />
+  <img src="Z:/picture/008/save_picture_839639.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ TapinRadio Pro 1.72.6 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839636.jpg" />
+  <img src="Z:/picture/008/save_picture_839636.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ URL Manager Pro 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839633.jpg" />
+  <img src="Z:/picture/008/save_picture_839633.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839629.jpg" />
+  <img src="Z:/picture/008/save_picture_839629.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839626.jpg" />
+  <img src="Z:/picture/008/save_picture_839626.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ PDF Eraser Pro 1.5.0 DC 30.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839621.jpg" />
+  <img src="Z:/picture/008/save_picture_839621.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ BitTorrent Free 7.9.6 Build 42095 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839620.jpg" />
+  <img src="Z:/picture/008/save_picture_839620.jpg" />
 </div>
 
 

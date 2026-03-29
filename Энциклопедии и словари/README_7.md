@@ -1,3 +1,31 @@
+###  Публикация: 535431   (517633) от 15.08.2012
+
+Словарь Академии Российской (6 книг) (Раритетное издание) [1789-1794] [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый словарь Российской Академии, являющийся первым толковым словарем русского языка. Словарь содержит свыше 43000 слов в 6 частях. Работа над словарем началась в 1783 году и заняла 11 лет. 6 частей словаря были изданы в период с 1789-1794 гг.
+
+ Словарь содержит элементы этимологического словаря: слова располагаются по общему корню, образуя разветвлённые смысловые гнезда. По нему можно определить, откуда произошло слово, кроме того, он включает множество новых слов в русском языке, введённых, в частности, Ломоносовым в науку.Жанр: Раритеты / Словари / ЯзыкознаниеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE034CFB0D09D8826D717F5F509A0A40745D1F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535920   (515398) от 17.08.2012
 
 Б.Г. Мещерякова, В.П. Зинченко | Большой психологический словарь. [2002] [DOC]
@@ -6,7 +34,7 @@
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515398.jpg" />
+  <img src="Z:/picture/008/save_picture_515398.jpg" />
 </div>
 
 
@@ -36,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507845.jpg" />
+  <img src="Z:/picture/008/save_picture_507845.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497204.jpg" />
+  <img src="Z:/picture/008/save_picture_497204.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495980.jpg" />
+  <img src="Z:/picture/008/save_picture_495980.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491063.jpg" />
+  <img src="Z:/picture/008/save_picture_491063.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489942.jpg" />
+  <img src="Z:/picture/008/save_picture_489942.jpg" />
 </div>
 
 
@@ -169,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489931.jpg" />
+  <img src="Z:/picture/008/save_picture_489931.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489926.jpg" />
+  <img src="Z:/picture/008/save_picture_489926.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488537.jpg" />
+  <img src="Z:/picture/008/save_picture_488537.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487839.jpg" />
+  <img src="Z:/picture/008/save_picture_487839.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486894.jpg" />
+  <img src="Z:/picture/008/save_picture_486894.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483412.jpg" />
+  <img src="Z:/picture/008/save_picture_483412.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477418.jpg" />
+  <img src="Z:/picture/008/save_picture_477418.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475650.jpg" />
+  <img src="Z:/picture/008/save_picture_475650.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474883.jpg" />
+  <img src="Z:/picture/008/save_picture_474883.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472631.jpg" />
+  <img src="Z:/picture/008/save_picture_472631.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468628.jpg" />
+  <img src="Z:/picture/008/save_picture_468628.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466762.jpg" />
+  <img src="Z:/picture/008/save_picture_466762.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461914.jpg" />
+  <img src="Z:/picture/008/save_picture_461914.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461030.jpg" />
+  <img src="Z:/picture/008/save_picture_461030.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457338.jpg" />
+  <img src="Z:/picture/008/save_picture_457338.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453235.jpg" />
+  <img src="Z:/picture/008/save_picture_453235.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452666.jpg" />
+  <img src="Z:/picture/008/save_picture_452666.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452585.jpg" />
+  <img src="Z:/picture/008/save_picture_452585.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448192.jpg" />
+  <img src="Z:/picture/008/save_picture_448192.jpg" />
 </div>
 
 
@@ -653,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2D30DB2417027FA6D0BDD2E140D82EC4908DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409364   (446928) от 16.09.2020
-
-И.В. Блохина и др. | Большая книга для каждого образованного человека. 10000 фактов, дат, событий (2018) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все события человеческой жизни так или иначе взаимосвязаны. Откройте эту книгу – и у вас появится возможность оценить беспристрастным взглядом 10000 фактов, дат и событий, так или иначе повлиявших на нашу жизнь. Казалось бы, огромная цифра, но образованному читателю, на которого ориентирована эта книга, такая задача представится и занимательной, и полезной.
-Факты (   Читать дальше...   )Жанр: Энциклопедия, Научно-популярная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D82799EC144ED218A8D7A992F5DEACC5E80A7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

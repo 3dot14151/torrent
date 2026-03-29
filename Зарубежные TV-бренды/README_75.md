@@ -1,3 +1,107 @@
+###  Публикация: 432436   (514815) от 22.08.2018
+
+BBC. Мир природы. Королева морских дьяволов / The Natural World. Queen of the Manta Rays (2009) BDRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андреа Маршалл переехала в Мозамбик, чтобы посвятить себя изучению морских дьяволов – самого крупного и развитого вида в семействе акул и скатов. Размах крыла морского дьявола достигает пяти метров. Этот вид отличается низким темпом размножения, так что морские биологи должны поторопиться, чтобы обеспечить будущее страдающим от рыбного промысла морским дьяволам. (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярный, фаунаРежиссер: Марк ВудвордПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7F0A267F98FAF6A948D90283D7107413EC6D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924273   (513794) от 24.08.2015
+
+Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/720p] [Серии 1-6 из 6]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поклонники фэнтези наверняка мечтают, чтобы на нашей планете, пусть даже в недрах гор или дремучих лесах, жили гномы, умеющие ковать невероятное оружие и наделять его силой стихий. А что, если они действительно существуют, причем не где-нибудь, а рядом с нами? Например, герой программы «Гигантские мечи» сварщик Майк Крохвэлл, который кует действительно легендарное (   Читать дальше...   )Телекомпания: США, DiscoveryЖанр: Документальный, ТелепередачаПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CEF44058B8FE4592DEC51BF6176EF9BC25C40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315367   (513727) от 19.07.2019
+
+Discovery. Нашествие гигантских медуз / Attack of The Giant Jellyfish (2010) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир по угрозой! Армия бескровных, бескостных фантомов с океанских глубин, их становится всё больше.Производство: США, Discovery, Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Карстен ОбландерПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104CE1C799DF057422CDA7C7DDA7B12E1A30FEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537049   (513263) от 19.08.2012
+
+BBC. Horizon: Питание, голодание и долголетие / Eat, Fast and Live Longer (2012) SATRip [En] sub
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Мосли поставил перед собой по- настоящему амбициозную задачу: он хочет прожить долгую жизнь, оставаясь при этом молодым и здоровым и в качестве бонуса – сбросить лишний вес. При этом, он не хочет вносить каких - либо значительных изменений в свой образ жизни. Он узнает о научных исследованиях, которые изменяют устоявшиеся представления о диетах и голодании. Испытывая результаты этих исследований на себе, Майкл понимает, что голодая, можно добиться значительных результатов в деле укрепления здоровья, все еще получая при этом удовольствие от еды.Жанр: ДокументальныйПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C286A4DB8C55BE6795275AE2C7D46B591F944388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562153   (512355) от 07.07.2022
 
 Затерянные сокровища Майя  Lost Treasures of the Maya (2019) WEB-DL [H.264/1080p] (серии 1-4 из 4)
@@ -6,7 +110,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512355.jpg" />
+  <img src="Z:/picture/008/save_picture_512355.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512272.jpg" />
+  <img src="Z:/picture/008/save_picture_512272.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511439.jpg" />
+  <img src="Z:/picture/008/save_picture_511439.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511436.jpg" />
+  <img src="Z:/picture/008/save_picture_511436.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510458.jpg" />
+  <img src="Z:/picture/008/save_picture_510458.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ History Channel: Детективы морских глубин-5. Алекса�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510452.jpg" />
+  <img src="Z:/picture/008/save_picture_510452.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510365.jpg" />
+  <img src="Z:/picture/008/save_picture_510365.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510039.jpg" />
+  <img src="Z:/picture/008/save_picture_510039.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Discovery: Джек Потрошитель. Первый серийный уби
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509719.jpg" />
+  <img src="Z:/picture/008/save_picture_509719.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507050.jpg" />
+  <img src="Z:/picture/008/save_picture_507050.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506829.jpg" />
+  <img src="Z:/picture/008/save_picture_506829.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Animal Planet. Дикие жёны саванны / Wildwives of Savannah Lane (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506814.jpg" />
+  <img src="Z:/picture/008/save_picture_506814.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Animal Planet. Снежный барс в зелёном Лондоне / Snow L
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505834.jpg" />
+  <img src="Z:/picture/008/save_picture_505834.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Animal Planet. Самые большие и страшные жуки в мир�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505331.jpg" />
+  <img src="Z:/picture/008/save_picture_505331.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505285.jpg" />
+  <img src="Z:/picture/008/save_picture_505285.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504684.jpg" />
+  <img src="Z:/picture/008/save_picture_504684.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504589.jpg" />
+  <img src="Z:/picture/008/save_picture_504589.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504534.jpg" />
+  <img src="Z:/picture/008/save_picture_504534.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504113.jpg" />
+  <img src="Z:/picture/008/save_picture_504113.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504039.jpg" />
+  <img src="Z:/picture/008/save_picture_504039.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504037.jpg" />
+  <img src="Z:/picture/008/save_picture_504037.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503704.jpg" />
+  <img src="Z:/picture/008/save_picture_503704.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDA9EF16D00F3615CF8578A7725180E0782296CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261430   (503207) от 29.07.2019
-
-BBC. Наша Первая мировая / Our World War (2014) HDTV [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные методы войны безжалостны, сто лет назад они были невообразимыми. Только побывавшие там, знают, на что это было похоже. Во время Первой мировой войны, британские войска сталкиваются с ужасами битвы при Монсе в 1914 году, внутренними противоречиями в 1916 году и новой войной - танковой в 1918 году. Фильм основан на рассказах очевидцев.Телекомпания: Великобритания, BBCЖанр: Документальная драма, война, история, реконструкцияРежиссер: Брюс Гудисон, Бен ЧананПеревод: Многоголосый закадровый, профессиональный (компания «SDI Media»)Продолжительность: 3 х ~ 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37155E2D49EC73A8AE98B2F346517CC3871B06F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316999   (503205) от 29.07.2019
-
-Как мы до этого додумались / How We Got to Now (2014) BDRemux [H.264/1080i] (серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Как мы до этого додумались со Стивеном Джонсоном" раскроет историю зарождения замечательных идей, которые сделали возможной нашу современную жизнь, и познакомит с их незаслуженно забытыми авторами и неожиданными последствиями их изобретений.Производство: Великобритания, США, BBC Worldwide Americas, BBC, NutopiaЖанр: Документальный, познавательный, научно-популярныйРежиссер: Ник Стейси, Джулиан Джонс, Пол ОлдингПеревод: Двуголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: АнглийскиеПродолжительность: 6 x ~ 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0445EB04897C5CE8360F7EE9938FCB773D4AAE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316963   (503204) от 29.07.2019
-
-Воронья стая / A Murder of Crows (2010) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм рассказывает о необычайном интеллекте обыкновенных черных птиц - загадочных и непонятых человеком воронах обыкновенных.Производство: Канада, Optix Digital Pictures, Rubin Tarrant Productions, Public Broadcasting Service (PBS)Жанр: Документальный, природа, исследованияРежиссер: Сьюзан ФлемингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548385A30AD51185DE41667CD78A2E0AE8FFB0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316961   (503119) от 29.07.2019
-
-NGW: Кошка будущего / Future Cat (2014) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503119.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью новейших спецэффектов учёные рассмотрят возможности приспособления больших кошек к разным экстремальным сценариям будущего.Производство: США, Big Machine Design, Nat Geo WildЖанр: Документальный, познавательный, научно-популярныйРежиссер: Стив ПетерсенПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD7E0CECFB7891F5A8C3732DD493BD93E5FC24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

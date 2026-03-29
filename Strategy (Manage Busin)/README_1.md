@@ -1,3 +1,81 @@
+###  Публикация: 1089179   (953211) от 02.01.2017
+
+Sid Meier's Railroads! (2006) [Multi] (1.100) License GOG
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развивайте железнодорожную сеть, отстраивайте города и мегаполисы, налаживайте перевозку грузов, наблюдайте за тем, как созданный вами мир оживает. Увлекательная многопользовательская игра по локальной сети: саботируйте работу ваших конкурентов и станьте монополистом в сфере железнодорожных грузоперевозок! Постройте железную дорогу своей мечты и утрите нос этим задавакам (   Читать дальше...   )Тип издания: LicenseРазработчик: Firaxis GamesЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE81E557DB456F2B1763A1CE85572CD294D59129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624163   (953130) от 27.02.2013
+
+Impire + 2 DLC [Ru] (Repack/1.0.1.2) 2012 | Fenixx
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699BD6C057847D668D543F23FC2800F3D968A25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089807   (950033) от 04.01.2017
+
+Kingdom: New Lands (2016) [Ru/Multi] (1.2.1) Repack Other s
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom: New Lands, расширенное и дополненное издание невероятно красивой и непохожей на другие игры двухмерной стратегии. Что может быть лучше прогулки верхом по землям чудесного виртуального королевства? Мудрый правитель вершит правосудие среди подданных и щедро раздает золото.Тип издания: RepackРазработчик: NoioЖанр: Strategy (Manage, Busin., Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C4B91BA0E4E6197E6032D425555CA10F8606A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944646   (949252) от 02.02.2016
 
 Prison Architect (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay
@@ -6,7 +84,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949252.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946485.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tropico 5 (2014) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst [Complete Collection
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939440.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Cities XL Platinum [En/Multi7] (L) 2013 | PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937865.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Impire [Ru/En] (Repack/1.0.1.1) 2013 | R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936179.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922079.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Hell Architect (2021) [Ru/Multi] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919899.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888799.jpg" />
+  <img src="Z:/picture/005/save_picture_888799.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888746.jpg" />
+  <img src="Z:/picture/005/save_picture_888746.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888638.jpg" />
+  <img src="Z:/picture/005/save_picture_888638.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886305.jpg" />
+  <img src="Z:/picture/005/save_picture_886305.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885659.jpg" />
+  <img src="Z:/picture/005/save_picture_885659.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Fallout Shelter (2016) [Ru/Multi] (1.10) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884344.jpg" />
+  <img src="Z:/picture/005/save_picture_884344.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883928.jpg" />
+  <img src="Z:/picture/005/save_picture_883928.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Holy Potatoes! A Weapon Shop?! (2015) [En/Jp] (1.0.8.9828/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879379.jpg" />
+  <img src="Z:/picture/005/save_picture_879379.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865937.jpg" />
+  <img src="Z:/picture/008/save_picture_865937.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Age Of Gladiators (2016) [En] (1.006.2) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865525.jpg" />
+  <img src="Z:/picture/008/save_picture_865525.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Weedcraft Inc (2019) [Ru/Multi] (1.3.2) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865085.jpg" />
+  <img src="Z:/picture/008/save_picture_865085.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.0.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864293.jpg" />
+  <img src="Z:/picture/008/save_picture_864293.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Punch Club (2016) [Ru/Multi] (1.31/dlc) Repack Other s [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863675.jpg" />
+  <img src="Z:/picture/008/save_picture_863675.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856959.jpg" />
+  <img src="Z:/picture/008/save_picture_856959.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853517.jpg" />
+  <img src="Z:/picture/008/save_picture_853517.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849681.jpg" />
+  <img src="Z:/picture/008/save_picture_849681.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C693055094A65BE0EAE245BDD45B3D2B61D8FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499444   (847354) от 02.10.2021
-
-Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное сочетание детективной новеллы с управлением бизнесом, выполненное в нуар-комиксовой графике. Сыграйте в бизнес-менеджер и погрузитесь в мрачную историю интригующего альтернативного Нео-Лондона. Coffee Noir - бизнес-симулятор с двумерной графикой, налаживанием сделок, организацией контрактов, подрядов и производства, сочетающийся с детективной историей (   Читать дальше...   )Тип издания: LicenseРазработчик: DOJI, NAOS SoftwareЖанр: Detective, Strategy, Management, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2192E1E3994F80DC4844B89435E071E7493BED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379921   (835605) от 01.05.2020
-
-Kingdom Two Crowns (2018) [Ru/Multi] (1.1.2r10007/dlc) License PLAZA [Royal Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Two Crowns является новым этапом развития этой известной и увлекательной микростратегии. В новом режиме кампании монархам придется отстраивать королевство, способное выстоять до тех пор, пока не будет найден способ расправиться с Жадностью раз и навсегда. Нанимайте новые типы боевых единиц и разрабатывайте новые технологии для укрепления обороны. Исследуйте (   Читать дальше...   )Тип издания: LicenseРазработчик: Noio, CoatsinkЖанр: Strategy (Manage, Busin, Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A59CA52D2E3AAEDD17EA201E293E5D13CD6F22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114456   (832784) от 14.03.2017
-
-Lula: The Sexy Empire (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в эротическую индустрию! Это ваша мечта. Вы директор международного эротического холдинга, со своими кино- и аудиостудиями, офисом для кастинга, маркетинговым отделом и так далее! Но все когда-то начинали с низов. Вы живете в маленьком заспанном городке посреди пустыни со своей привлекательной подругой. Хуже того: вы практически на мели, а еще на (   Читать дальше...   )Тип издания: LicenseРазработчик: Interactive StripЖанр: Стратегия, Экономика, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357F26480306AF2F4E4B16B951372D6D54826ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

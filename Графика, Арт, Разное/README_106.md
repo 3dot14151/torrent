@@ -1,3 +1,29 @@
+###  Публикация: 567173   (395894) от 30.10.2012
+
+[Рисованая графика]Artworks by Robert Longo
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_395894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картины, нарисованные древесным углем. Художник Роберт Лонго (Robert Longo).Роберт Лонго (род. 7 января 1953 г.) – всемирно известный американский художник. Живет со своей женой Барбарой и тремя их сыновьями в Нью-Йорке. В 2005 году был награжден премией Goslar Kaiser Ring – одной из самых престижных премий в области современного искусства. Его работа с изображением волны - Untitled (Skull Island), 2005 - была продана в октябре 2007 года на аукционе Christie’s в Лондоне за $392 тыс. Предыдущий ценовой рекорд на его произведения был установлен на Sotheby’s в Нью-Йорке в сентябре 2007 года: рельефная композиция «Corporate Wars: Walls of Influence» (1982) была продана за $205 тыс. при эстимейте в $70 000-$90 000.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D02055D261D47B98DAA705702CFEDD42A26092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567135   (395855) от 30.10.2012
 
 [Рисованая графика] 3D искусство from Pascal ACKERMANN
@@ -6,7 +32,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395855.jpg" />
+  <img src="Z:/picture/008/save_picture_395855.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394476.jpg" />
+  <img src="Z:/picture/008/save_picture_394476.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393045.jpg" />
+  <img src="Z:/picture/008/save_picture_393045.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392281.jpg" />
+  <img src="Z:/picture/008/save_picture_392281.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392269.jpg" />
+  <img src="Z:/picture/008/save_picture_392269.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392234.jpg" />
+  <img src="Z:/picture/008/save_picture_392234.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392129.jpg" />
+  <img src="Z:/picture/008/save_picture_392129.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391758.jpg" />
+  <img src="Z:/picture/008/save_picture_391758.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391693.jpg" />
+  <img src="Z:/picture/008/save_picture_391693.jpg" />
 </div>
 
 
@@ -263,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391589.jpg" />
+  <img src="Z:/picture/008/save_picture_391589.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391544.jpg" />
+  <img src="Z:/picture/008/save_picture_391544.jpg" />
 </div>
 
 
@@ -315,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391501.jpg" />
+  <img src="Z:/picture/008/save_picture_391501.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391272.jpg" />
+  <img src="Z:/picture/008/save_picture_391272.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391263.jpg" />
+  <img src="Z:/picture/008/save_picture_391263.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391199.jpg" />
+  <img src="Z:/picture/008/save_picture_391199.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391193.jpg" />
+  <img src="Z:/picture/008/save_picture_391193.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391187.jpg" />
+  <img src="Z:/picture/008/save_picture_391187.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391152.jpg" />
+  <img src="Z:/picture/008/save_picture_391152.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391105.jpg" />
+  <img src="Z:/picture/008/save_picture_391105.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391102.jpg" />
+  <img src="Z:/picture/008/save_picture_391102.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391039.jpg" />
+  <img src="Z:/picture/008/save_picture_391039.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Computer Desktop Wallpapers Collection (03.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390991.jpg" />
+  <img src="Z:/picture/008/save_picture_390991.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390978.jpg" />
+  <img src="Z:/picture/008/save_picture_390978.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390845.jpg" />
+  <img src="Z:/picture/008/save_picture_390845.jpg" />
 </div>
 
 
@@ -691,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390416.jpg" />
+  <img src="Z:/picture/008/save_picture_390416.jpg" />
 </div>
 
 
@@ -702,32 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5FB5686F25B27CAD3B587977D5BFB42E227791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570424   (389888) от 05.11.2012
-
-Живопись и рисунки Gue Yang [Графика]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живопись и рисунки Gue Yang
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788CA04A86637B214029035BB4FF0C6D7F20243C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,135 @@
+###  Публикация: 1615160   (206537) от 24.02.2023
+
+Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206537.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastAPI — The Complete Course 2022 (Beginner + Advanced) — это учебный курс RESTful API с языком программирования Python и фреймворком FastAPI, опубликованный Udemy Academy. В этом учебном курсе, помимо Python и платформы FastAPI, вы узнаете о SQLAlchemy, протоколе OAuth, а также о том, как получить доступ и авторизовать пользователей, JWT или JSON Web Token и многое (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E726FFD172A32204283A23E94E85DEFB27F52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615142   (206533) от 24.02.2023
+
+Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный мастер-класс FastAPI с нуля 2022 — это учебный курс по микрофреймворку FastAPI, опубликованный Академией Udemy. FastAPI — это мощная веб-инфраструктура на основе языка программирования Python, которую можно использовать для проектирования и разработки расширенных API RESTful. С момента первоначального запуска проекта FastAPI прошло не так много времени, и (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 21:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C452129FF1AAC2C84DAB10756533D6D104AD9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615214   (206437) от 25.02.2023
+
+Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deployment (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Django 4 Masterclass 2022: от разработки до развертывания, опубликованная Udemy Academy. Изучите Django с нуля, создайте и запустите приложения Django с расширенными функциями, такими как аутентификация и интеграция платежей.
+
+Создание веб -приложений с Django. Вот что вы получаете, зарегистрировавшись на этот курс: на протяжении всего курса я объясняю каждую строку (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D115A49E11BA6B9B66CFEAA5623C2DEC7DF387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582293   (206410) от 08.10.2022
+
+Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для всех, кто хочет начать работу с DevOps. Поскольку в DevOps существует множество инструментов и технологий, людям стало сложно выбирать правильные технологии. Этот курс начинается с самых основ командной строки, демонстрируя множество инструментов и технологий. Также, что наиболее важно, он покажет вам, как различные технологии в DevOps работают (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 47:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582291   (206385) от 08.10.2022
+
+Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработчик - Java + JSP + Restful WS + Spring (2021) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы энтузиаст обучения и хотите создать быстрое и эффективное веб-приложение, у вас есть некоторые знания Java и немного или совсем нет знаний о сетевом программировании на Java, то этот курс для вас. Курс знакомит вас с Java, JSP, Restful WS и Spring. В нем вы сможете объединить все способы подключения к базе данных и научитесь делать это в информативной и привлекательной (   Читать дальше...   )Производство: Udemy, StudyEasy OrganisationЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 64:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D084154BD5E673243B548181122CA6589A3924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583196   (205985) от 13.10.2022
 
 Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +138,7 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205985.jpg" />
+  <img src="Z:/picture/005/save_picture_205985.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205826.jpg" />
+  <img src="Z:/picture/005/save_picture_205826.jpg" />
 </div>
 
 
@@ -61,7 +193,7 @@ Global Digital Space, Алексей Лукацкий | Как обеспечи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205540.jpg" />
+  <img src="Z:/picture/005/save_picture_205540.jpg" />
 </div>
 
 
@@ -90,7 +222,7 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205443.jpg" />
+  <img src="Z:/picture/005/save_picture_205443.jpg" />
 </div>
 
 
@@ -118,7 +250,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205306.jpg" />
+  <img src="Z:/picture/005/save_picture_205306.jpg" />
 </div>
 
 
@@ -147,7 +279,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205109.jpg" />
+  <img src="Z:/picture/004/save_picture_205109.jpg" />
 </div>
 
 
@@ -174,7 +306,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204927.jpg" />
+  <img src="Z:/picture/004/save_picture_204927.jpg" />
 </div>
 
 
@@ -202,7 +334,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204764.jpg" />
+  <img src="Z:/picture/004/save_picture_204764.jpg" />
 </div>
 
 
@@ -230,7 +362,7 @@ Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn In
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204654.jpg" />
+  <img src="Z:/picture/004/save_picture_204654.jpg" />
 </div>
 
 
@@ -257,7 +389,7 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204594.jpg" />
+  <img src="Z:/picture/004/save_picture_204594.jpg" />
 </div>
 
 
@@ -284,7 +416,7 @@ Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204567.jpg" />
+  <img src="Z:/picture/004/save_picture_204567.jpg" />
 </div>
 
 
@@ -310,7 +442,7 @@ Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204528.jpg" />
+  <img src="Z:/picture/004/save_picture_204528.jpg" />
 </div>
 
 
@@ -336,7 +468,7 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204521.jpg" />
+  <img src="Z:/picture/004/save_picture_204521.jpg" />
 </div>
 
 
@@ -362,7 +494,7 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204513.jpg" />
+  <img src="Z:/picture/004/save_picture_204513.jpg" />
 </div>
 
 
@@ -389,7 +521,7 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204497.jpg" />
+  <img src="Z:/picture/004/save_picture_204497.jpg" />
 </div>
 
 
@@ -415,7 +547,7 @@ amigoscode, Mama Samba Braima | Docker for DevOps Engineers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204492.jpg" />
+  <img src="Z:/picture/004/save_picture_204492.jpg" />
 </div>
 
 
@@ -442,7 +574,7 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204476.jpg" />
+  <img src="Z:/picture/004/save_picture_204476.jpg" />
 </div>
 
 
@@ -470,7 +602,7 @@ Ryan Laley Games, Ryan Laley | Unreal Engine Tutorials  (2019-2023) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204460.jpg" />
+  <img src="Z:/picture/004/save_picture_204460.jpg" />
 </div>
 
 
@@ -498,7 +630,7 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204253.jpg" />
+  <img src="Z:/picture/004/save_picture_204253.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204036.jpg" />
+  <img src="Z:/picture/004/save_picture_204036.jpg" />
 </div>
 
 
@@ -555,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204004.jpg" />
+  <img src="Z:/picture/004/save_picture_204004.jpg" />
 </div>
 
 
@@ -567,150 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060524CFC44D5B2AAE16E77506DE73C300242BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604818   (204001) от 15.01.2023
-
-ЯЮниор, Роман Сакутин, Валентин Кравченко | C# c 0 до профи (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный курс C# от ЯЮниор, таймкоды онлайн-версии и перечень тем:
-00:00:00 - Предисловие от Романа Сакутина
-00:02:27 - Введение в программирование
-00:05:15 - Установка Visual Studio бесплатно(   Читать дальше...   )Производство: ЯЮниорЖанр: Программирование, C#Язык озвучки: РусскийПродолжительность: 09:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606696   (203652) от 23.01.2023
-
-e-Business | Webflow intensive 2.0 (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание курса:
-Курс Webflow intensive 2.0 состоит из 6 блоков.
-1. Основы webflow (7 пунктов)
-• Создаём свой первый сайт на webflow. Как избежать большинства проблем и ошибок вёрстки(   Читать дальше...   )Жанр: СайтостроениеЯзык озвучки: РусскийПродолжительность: 10:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD31C231B863DD516C944917F9EB9E5792B0BC97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656270   (203484) от 30.08.2023
-
-Udemy, Ashutosh Pawar | The Complete FastAPI Course With OAuth & JWT Authentication (2021) WEBRip [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Here Is A Brief Introduction About This Complete Course:
-FastAPI is one of the most modern, fast and efficient framework for building APIs.
-If you want to learn how to built high performance APIs then FastAPI should be your go to framework.
-In this course we will learn FastAPI right from scratch and by then end of the course you will be able to build a complete API (   Читать дальше...   )Производство: UdemyЖанр: Fast, FastAPI, Rest, Python, SQLAlchemyЯзык озвучки: АнглийскийПродолжительность: 05:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE88421AF186664B45512D25A69B29EC14866FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607779   (203431) от 28.01.2023
-
-Курсы-по-1С.РФ | Сценарное тестирование в 1С: настройка и практика использования (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разберем инструменты и практику авто-тестирования конфигураций 1С, чтобы пользователи и клиенты никогда не сталкивались с ошибками.
-Чему Вы научитесь на курсе:Точно понимать, для каких кейсов необходимо автоматизировать тестирование, а для каких оставить тесты в ручном режиме.
-Писать сценарии тестов на проверку корректности движений документов, а не только на создание (   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:58:11Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11577A8B861765EDDE3AF37CA55B8AF991C830FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607777   (203426) от 28.01.2023
-
-Курсы-по-1С.РФ | Профессиональная разработка в 1С:EDT + Git и современные подходы к управлению версиями и качеством кода (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс – первый в серии курсов про DevOps нормальным языком – как оно на самом деле работает, зачем, почему именно так, и как на это все перейти…
-Но сначала – несколько слов о чем речь…
-28% технических докладов на ИС 2021 – про командную разработку, BDD / TDD, управление версиями, тестирование, контроль качества кода, CI/CD и т.д.
-Инфостарт – открытая площадка, (   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:58:54Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243A3489518E6371FF997A5F8CC22F1085164C61
 ```
 
 https://mybot314.ru/tekegram_catalog/

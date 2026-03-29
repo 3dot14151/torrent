@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836850.jpg" />
+  <img src="Z:/picture/008/save_picture_836850.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836841.jpg" />
+  <img src="Z:/picture/008/save_picture_836841.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836828.jpg" />
+  <img src="Z:/picture/008/save_picture_836828.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836827.jpg" />
+  <img src="Z:/picture/008/save_picture_836827.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836824.jpg" />
+  <img src="Z:/picture/008/save_picture_836824.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ ChronoSync 4.7.4 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836823.jpg" />
+  <img src="Z:/picture/008/save_picture_836823.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Layout Lab - Templates for Keynote 3.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836819.jpg" />
+  <img src="Z:/picture/008/save_picture_836819.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836817.jpg" />
+  <img src="Z:/picture/008/save_picture_836817.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Icecream Slideshow Maker 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836780.jpg" />
+  <img src="Z:/picture/008/save_picture_836780.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Icecream Image Resizer 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836779.jpg" />
+  <img src="Z:/picture/008/save_picture_836779.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836769.jpg" />
+  <img src="Z:/picture/008/save_picture_836769.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836724.jpg" />
+  <img src="Z:/picture/008/save_picture_836724.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836720.jpg" />
+  <img src="Z:/picture/008/save_picture_836720.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836700.jpg" />
+  <img src="Z:/picture/008/save_picture_836700.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ Theme Lab - Templates for Keynote 5.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836698.jpg" />
+  <img src="Z:/picture/008/save_picture_836698.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ USDownloader 1.3.5.9 Portable (12.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836689.jpg" />
+  <img src="Z:/picture/008/save_picture_836689.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sunnery James & Ryan Marciano - Live @ SAGA Festival, Romania (2021-09-10) [MP3|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836683.jpg" />
+  <img src="Z:/picture/008/save_picture_836683.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ SQL Dynamite 1.8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836673.jpg" />
+  <img src="Z:/picture/008/save_picture_836673.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Maxthon Cloud Browser 4.9.2.1000 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836671.jpg" />
+  <img src="Z:/picture/008/save_picture_836671.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ K-Lite Codec Pack Update 12.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836668.jpg" />
+  <img src="Z:/picture/008/save_picture_836668.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Moom 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836664.jpg" />
+  <img src="Z:/picture/008/save_picture_836664.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836662.jpg" />
+  <img src="Z:/picture/008/save_picture_836662.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836660.jpg" />
+  <img src="Z:/picture/008/save_picture_836660.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836655.jpg" />
+  <img src="Z:/picture/008/save_picture_836655.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Avast Free Antivirus 2016 11.2.2260 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836654.jpg" />
+  <img src="Z:/picture/008/save_picture_836654.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ FTP Server 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836612.jpg" />
+  <img src="Z:/picture/008/save_picture_836612.jpg" />
 </div>
 
 

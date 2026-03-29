@@ -1,3 +1,87 @@
+###  Публикация: 1784198   (69621) от 09.03.2025
+
+Михаил Пляцковский | История третья. Разыскивается Кузнечик Кузя (2022) [MP3, Георгий Вицин, Олег Анофриев, Юрий Антонов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
+Продолжение приключений кузнечика Кузи.
+Сказку придумал и написал стихи для песен Михаил Пляцковский. Музыку сочинил, играл на (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD76920737D2A6686BADC8AD443EC8FCE189A722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784195   (69610) от 09.03.2025
+
+Михаил Пляцковский | История первая. Приключения кузнечика Кузи (2022) [MP3, Георгий Вицин, Евгений Весник, Юрий Антонов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
+Кузнечик Кузя на своем родном лугу встречает корову Мурёнку, которая с удовольствием поет песни. Правда, её голос мало кому нравится. (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44680528FBDC33A6049195E8243913F5140F925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784889   (69504) от 13.03.2025
+
+Ганс Христиан Андерсен | Девочка со спичками (2008) [MP3, Екатерина Хлыстова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детям.
+Сказки – «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» Ганса (Ханса) Христиана Андерсена (1805–1875) знают и любят дети и взрослые во всем мире. Великий сказочник сумел создать волшебный мир, полный любви, светлых чувств и гуманизма. Все его персонажи: растения и животные, люди и предметы – отличаются особым характером, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 03:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC85A6BF0D4B50A2D2343316238622EEB4996E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784893   (69482) от 13.03.2025
 
 Ганс Христиан Андерсен | Русалочка (Инсценировка) (2023) [MP3, Марианна Мокшина, Александр Васильев и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69482.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69470.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69123.jpg" />
 </div>
 
 
@@ -90,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69119.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69118.jpg" />
 </div>
 
 
@@ -147,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68770.jpg" />
 </div>
 
 
@@ -175,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68769.jpg" />
 </div>
 
 
@@ -203,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68768.jpg" />
 </div>
 
 
@@ -232,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68767.jpg" />
 </div>
 
 
@@ -260,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68766.jpg" />
 </div>
 
 
@@ -288,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68765.jpg" />
 </div>
 
 
@@ -316,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68747.jpg" />
 </div>
 
 
@@ -345,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68745.jpg" />
 </div>
 
 
@@ -374,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68744.jpg" />
 </div>
 
 
@@ -402,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68699.jpg" />
 </div>
 
 
@@ -430,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68698.jpg" />
 </div>
 
 
@@ -459,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68637.jpg" />
 </div>
 
 
@@ -486,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68633.jpg" />
 </div>
 
 
@@ -514,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68527.jpg" />
 </div>
 
 
@@ -542,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68526.jpg" />
 </div>
 
 
@@ -571,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68510.jpg" />
 </div>
 
 
@@ -600,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68505.jpg" />
 </div>
 
 
@@ -629,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68485.jpg" />
 </div>
 
 
@@ -641,91 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A2930E09B98CC5E10142240E0E7EFC0FF3C1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788691   (68483) от 31.03.2025
-
-Антон Чехов | Белолобый. Ванька. Детвора (1954, 1985) [MP3, Мария Петрова, Лев Колесов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская страничка. Библиотека школьника.
-Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
-В аудиокнигу вошли рассказы разных лет: «Белолобый», «Ванька», «Детвора.
-(   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6282019052C7C4D0945164D6D94C171637BD964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788809   (68422) от 01.04.2025
-
-Дженсен Фрэнсис Э., Эми Эллис Натт | Мозг подростка. Спасительные рекомендации нейробиолога для родителей тинейджеров (2024) [MP3, Валерия Савельева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга была написана как ответ на многочисленные вопросы, полученные профессором Фрэнсис Э. Дженсен от родителей, учителей и даже от подростков. Все они хотели поделиться своими историями, спросить что-то и попытаться понять, как помочь их детям – или самим себе – пройти этот волнующий, но сложный переходный период.
-Цель книги – дать практические советы родителям, (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияИздательство: ЭксмоПродолжительность: 11:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC5F9773F1D440133A2BA438645F7D19A0D0EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788899   (68408) от 01.04.2025
-
-Карло Гоцци | Любовь к трём Апельсинам (Три апельсина) (Радиопостановка) (2021) [MP3, Вячеслав Захаров, Александр Лыков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома. Детский остров.
-Карло Гоцци (1720–1806) – итальянский писатель и драматург, автор сказочных пьес.
-Пьеса «Любовь к трём апельсинам» (Другое название – Три апельсина) (1761) из цикла «Сказки для театра».
-Сын короля Треф болен ипохондрией, излечить его может только смех. Первый министр Леандр и принцесса Клариче, племянница короля, пытаются (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, пьеса-сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D80080A6D5F7FFCD3DC6FF0CD06D7D4A32A4EA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1032544   (600714) от 01.05.2022
+
+Патриарх Алексий II, Патриарх Кирилл (ред.) | Православная Энциклопедия [Том 0-63] (2000-2021) [DJVU] [Обновляемая]
+
+>>След.
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600714.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Православная энциклопедия" является специализированным справочным изданием, ставящим перед собой две задачи: 1) дать всеобъемлющую информацию по двухтысячелетней истории и современному состоянию вселенского Православия; 2) ознакомить читателя с др. христианскими конфессиями, нехристианскими религиями, а также с явлениями науки, культуры, философии, искусства, (   Читать дальше...   )Жанр: ЭнциклопедияИздательство: Церковно-научный центр "Православная Энциклопедия"Формат: DJVUКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C3E64CD2EA588ADB84408BC40EFA9BBD2D3879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 687223   (600576) от 07.08.2013
 
 Журнал | Автомир [Украина] №32 [август 2013] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600576.jpg" />
+  <img src="Z:/picture/008/save_picture_600576.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600064.jpg" />
+  <img src="Z:/picture/008/save_picture_600064.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599969.jpg" />
+  <img src="Z:/picture/008/save_picture_599969.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599777.jpg" />
+  <img src="Z:/picture/008/save_picture_599777.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599774.jpg" />
+  <img src="Z:/picture/008/save_picture_599774.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599667.jpg" />
+  <img src="Z:/picture/008/save_picture_599667.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599656.jpg" />
+  <img src="Z:/picture/008/save_picture_599656.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599607.jpg" />
+  <img src="Z:/picture/008/save_picture_599607.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598569.jpg" />
+  <img src="Z:/picture/008/save_picture_598569.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598568.jpg" />
+  <img src="Z:/picture/008/save_picture_598568.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598556.jpg" />
+  <img src="Z:/picture/008/save_picture_598556.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598359.jpg" />
+  <img src="Z:/picture/008/save_picture_598359.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598347.jpg" />
+  <img src="Z:/picture/008/save_picture_598347.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598328.jpg" />
+  <img src="Z:/picture/008/save_picture_598328.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597882.jpg" />
+  <img src="Z:/picture/008/save_picture_597882.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597810.jpg" />
+  <img src="Z:/picture/008/save_picture_597810.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597668.jpg" />
+  <img src="Z:/picture/008/save_picture_597668.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597658.jpg" />
+  <img src="Z:/picture/008/save_picture_597658.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597657.jpg" />
+  <img src="Z:/picture/008/save_picture_597657.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597647.jpg" />
+  <img src="Z:/picture/008/save_picture_597647.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597645.jpg" />
+  <img src="Z:/picture/008/save_picture_597645.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597529.jpg" />
+  <img src="Z:/picture/008/save_picture_597529.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597441.jpg" />
+  <img src="Z:/picture/008/save_picture_597441.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597437.jpg" />
+  <img src="Z:/picture/008/save_picture_597437.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597428.jpg" />
+  <img src="Z:/picture/008/save_picture_597428.jpg" />
 </div>
 
 
@@ -672,34 +698,6 @@ GLAMOUR — это пропуск в красивую жизнь. Наш жур�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C1632D9501742989FFC63AA4815DE43457CD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525238   (597425) от 24.07.2012
-
-Патрик Бовен | Цирк монстров [2011] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Беккер — добропорядочный житель маленького провинциального городка во Флориде, успешный врач и настоящий семьянин. Он имел все, о чем можно только мечтать: жену, сына, любимую работу, собственную клинику. И даже никогда не мог помыслить о том, что простая случайность полностью перевернет его жизнь…
-Однажды, после утомительного рабочего дня, Пол нашел у себя в кабинете забытый одним из пациентов мобильный телефон. В то же мгновение раздался звонок.
-С этой самой минуты жизнь Пола Беккера полетела в тартарары. Ему пришлось стать невольным участником страшных событий и лицом к лицу столкнуться со злом, имя которому — МОНСТР.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A88DCC2BB4902248F606ADC13D68CE6F1BEE431
 ```
 
 https://mybot314.ru/tekegram_catalog/

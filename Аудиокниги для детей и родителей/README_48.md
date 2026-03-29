@@ -1,3 +1,86 @@
+###  Публикация: 1080433   (288481) от 07.12.2016
+
+Владимир Тендряков | Весенние перевертыши (1976) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной с Дюшкой Тягуновым произошли удивительные перемены: он вдруг стал задумываться о том, что мир очень переменчив, что Земля - это еще не вся Вселенная, что сколько людей - столько разных миров. Все это надо было обдумать и понять. Но откуда берутся такие жестокие люди, как Санька Ераха, Дюшка объяснить не мог...
+
+В. Тендряков | Весенние перевертыши (1980)Жанр: Детская литератураПродолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98BEAFBD1DF8B28079616E7FE242CD9B5CCCBB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839119   (287224) от 27.11.2025
+
+Никита Карпов | Чертовы подростки! (2025) [MP3, Никита Карпов, Максим Доронин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никита Карпов – опытный детский психолог с 15-летним стажем, автор популярных книг о подростковом возрасте.
+В своей серии книг он помогает родителям справиться с трудностями взросления детей, предлагая эффективные стратегии общения и решения типичных проблем:Жанр: Подростковая психологияИздательство: БОМБОРАПродолжительность: 17:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AEF2D0A1036C71E3D5A5BCC79E7D0C359C678B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839118   (287222) от 27.11.2025
+
+Эдуард Вартаньян | Простая наука для детей, Крылатые имена (2023) [MP3, Анна Сказко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые увлекательные факты о крылатых выражениях русского языка от известного лингвиста!
+Язык, на котором мы говорим и пишем, – живой, и он постоянно меняется: одни слова уходят из употребления, другие появляются, третьи со временем меняют своё значение.
+А некоторые имена и выражения становятся крылатыми – о них и поведает книга известного писателя и языковеда Эдуарда (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, научно-популярная литератураИздательство: АСТПродолжительность: 05:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F842297B10A48394CBF142F49BCDDAEEFAD7FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263763   (286285) от 20.11.2018
 
 Борис Заходер | Стихи и сказки (1961, 1978) [MP3]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286285.jpg" />
+  <img src="Z:/picture/008/save_picture_286285.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286269.jpg" />
+  <img src="Z:/picture/008/save_picture_286269.jpg" />
 </div>
 
 
@@ -60,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286258.jpg" />
+  <img src="Z:/picture/008/save_picture_286258.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285634.jpg" />
+  <img src="Z:/picture/008/save_picture_285634.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284774.jpg" />
+  <img src="Z:/picture/008/save_picture_284774.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284636.jpg" />
+  <img src="Z:/picture/008/save_picture_284636.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284466.jpg" />
+  <img src="Z:/picture/008/save_picture_284466.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280910.jpg" />
+  <img src="Z:/picture/008/save_picture_280910.jpg" />
 </div>
 
 
@@ -217,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279006.jpg" />
+  <img src="Z:/picture/008/save_picture_279006.jpg" />
 </div>
 
 
@@ -243,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273706.jpg" />
+  <img src="Z:/picture/008/save_picture_273706.jpg" />
 </div>
 
 
@@ -269,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273022.jpg" />
+  <img src="Z:/picture/008/save_picture_273022.jpg" />
 </div>
 
 
@@ -295,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272788.jpg" />
+  <img src="Z:/picture/008/save_picture_272788.jpg" />
 </div>
 
 
@@ -321,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272484.jpg" />
+  <img src="Z:/picture/008/save_picture_272484.jpg" />
 </div>
 
 
@@ -347,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271652.jpg" />
+  <img src="Z:/picture/008/save_picture_271652.jpg" />
 </div>
 
 
@@ -373,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271588.jpg" />
+  <img src="Z:/picture/008/save_picture_271588.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271579.jpg" />
+  <img src="Z:/picture/008/save_picture_271579.jpg" />
 </div>
 
 
@@ -425,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271508.jpg" />
+  <img src="Z:/picture/008/save_picture_271508.jpg" />
 </div>
 
 
@@ -451,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271454.jpg" />
+  <img src="Z:/picture/008/save_picture_271454.jpg" />
 </div>
 
 
@@ -477,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270773.jpg" />
+  <img src="Z:/picture/008/save_picture_270773.jpg" />
 </div>
 
 
@@ -503,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270669.jpg" />
+  <img src="Z:/picture/008/save_picture_270669.jpg" />
 </div>
 
 
@@ -529,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268217.jpg" />
+  <img src="Z:/picture/008/save_picture_268217.jpg" />
 </div>
 
 
@@ -555,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266661.jpg" />
 </div>
 
 
@@ -581,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266504.jpg" />
 </div>
 
 
@@ -594,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267693   (265806) от 07.12.2018
-
-Жан-Клод Мурлева | Река, текущая вспять (2000) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы взять каплю воды из реки, текущей вспять, каплю, способную сделать человека бессмертным, маленький лавочник Томек совершит долгое и сложное путешествие. Пройдя через множество препятствий, он станет смелым, стойким, находчивым юношей, найдёт свою любовь и приобретёт настоящих друзей, прежде чем поймёт, что смерть — не больше и не меньше, чем часть жизни.Жанр: СказкаПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F122D4268F0E4BAF22DB2F7046DCA0D48FB63EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267929   (265124) от 08.12.2018
-
-Памела Трэверс | Мэри Поппинс рассказывает сказку (1973) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265124.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одну обыкновенную лондонскую семью поступила необыкновенная няня, с приходом которой в доме начались разные чудеса. К тому же няня Мэри Поппинс умела рассказывать удивительные сказки…
-У Джейн болело ухо. Она лежала в постели; голова у неё была повязана платком, и ей было очень скучно.
-— Хочешь, я сяду у окна и буду тебе говорить, что делается на улице? — предложил (   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 00:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FED19710113A902006DB7AC1446C7FB45C2819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339925   (264706) от 21.11.2019
-
-Евгений Рудашевский | Здравствуй, брат мои Бзоу! (2018) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дружба человека и дельфина… Дельфина и человека… Не сейчас, когда даже в далёких от моря мегаполисах открыты океанариумы и дети могут встретиться и поиграть с ручным дельфином не только на морском курорте. Эта история из прошлого века – о дружбе простого абхазского юноши с диким морским зверем. И тем чудеснее эта дружба, что её окружает суровый и порой примитивный (   Читать дальше...   )Жанр: Детская литература, приключенияПродолжительность: 04:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9A18F19A0F8FA47C719A37FC4A6B143A303F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

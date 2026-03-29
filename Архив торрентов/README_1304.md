@@ -6,7 +6,7 @@ Downie 3.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761658.jpg" />
+  <img src="Z:/picture/008/save_picture_761658.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761656.jpg" />
+  <img src="Z:/picture/008/save_picture_761656.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Google Chrome 97.0.4692.71 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761655.jpg" />
+  <img src="Z:/picture/008/save_picture_761655.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sandboxie 5.55.5 / Sandboxie Plus 1.0.5 RePack by Umbrella Corporation [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761646.jpg" />
+  <img src="Z:/picture/008/save_picture_761646.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Windows 10 Manager 3.5.9 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761639.jpg" />
+  <img src="Z:/picture/008/save_picture_761639.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761636.jpg" />
+  <img src="Z:/picture/008/save_picture_761636.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Advanced Installer Enterprise 8.1.1 Build 34480 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_761570.jpg" />
+  <img src="Z:/picture/005/save_picture_761570.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761549.jpg" />
+  <img src="Z:/picture/008/save_picture_761549.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Debookee 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761546.jpg" />
+  <img src="Z:/picture/008/save_picture_761546.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ W.E.T. - Earthrage (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761542.jpg" />
+  <img src="Z:/picture/008/save_picture_761542.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761523.jpg" />
+  <img src="Z:/picture/008/save_picture_761523.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AIMP 5.01 build 2358 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761518.jpg" />
+  <img src="Z:/picture/008/save_picture_761518.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Sweet Home 3D 6.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761486.jpg" />
+  <img src="Z:/picture/008/save_picture_761486.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761453.jpg" />
+  <img src="Z:/picture/008/save_picture_761453.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761449.jpg" />
+  <img src="Z:/picture/008/save_picture_761449.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - W9 Hits 2018 Vol.2 (2018) [MP3|320 Kbps] <House, Techno, Industrial, Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761447.jpg" />
+  <img src="Z:/picture/008/save_picture_761447.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761428.jpg" />
+  <img src="Z:/picture/008/save_picture_761428.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ TeamViewer 15.25.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761409.jpg" />
+  <img src="Z:/picture/008/save_picture_761409.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761394.jpg" />
+  <img src="Z:/picture/008/save_picture_761394.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761393.jpg" />
+  <img src="Z:/picture/008/save_picture_761393.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761340.jpg" />
+  <img src="Z:/picture/008/save_picture_761340.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761339.jpg" />
+  <img src="Z:/picture/008/save_picture_761339.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761338.jpg" />
+  <img src="Z:/picture/008/save_picture_761338.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761337.jpg" />
+  <img src="Z:/picture/008/save_picture_761337.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761336.jpg" />
+  <img src="Z:/picture/008/save_picture_761336.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761335.jpg" />
+  <img src="Z:/picture/008/save_picture_761335.jpg" />
 </div>
 
 

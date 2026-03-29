@@ -1,3 +1,159 @@
+###  Публикация: 1152720   (559839) от 26.07.2017
+
+Легенда о легендарных героях | The Legend of the Legendary Heroes | Densetsu no Yuusha no Densetsu [2010, TV, 24 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то мир разрывали на части войны демонов, но легендарные герои, овладевшие могучей магией, смогли изгнать их и отвоевать землю для людей. Люди тут же передрались между собой, основав множество стран. Самой могущественной державой считается Роландская Империя, раскинувшаяся на юге континента. Но и она сильно пострадала от недавней схватки с соседями, в которой (   Читать дальше...   )Производство: студия ZEXCSЖанр: приключения, комедия, драма, фэнтезиРежиссер: Кавасаки ИцуроПеревод: Asca & Farankovsky (01-14), Constantine (15-24), Reno (SP)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6166CBF615E5EC955D95D1EC486F03EAC3A1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552802   (559719) от 09.06.2022
+
+Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-полицейские наносят ответный удар [2022, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_559719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавай, юная сотрудница полиции, больше не может терпеть свою работу. Готовая отдать заявление об отставке, она встречает новую главу полицейского участка. Проведя некоторое время с новым боссом, ставшей образцом для подражания, Кавай решает остаться в структурах ещё ненадолго… Свежая комедия в адаптации манги Мико Ясу от студии Madhouse.Производство: студия Madhouse / マッドハウスЖанр: комедия, повседневностьРежиссер: Сато ЮдзоПеревод: Wakanim (01-10) + AniLibria (11-13)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1476069395978FF2C7A8826CFCE9C0EC61FCAAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924511   (558687) от 03.08.2015
+
+Gekijouban Aoki Hagane no Arpeggio: Ars Nova - DC | Мелодия воронёной стали, фильм первый [2015, MV] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558687.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире ледяные шапки Земли в XXI веке тоже подтаяли, но по морям-океанам особо не поплаваешь – откуда ни возьмись, явился «Флот Тумана» из разумных кораблей. Пришельцы, ведомые искусственным интеллектом, превосходящие землян технически, блокировали привычные водные и воздушные пути, в результате люди стали пленниками сухопутья. Совершенные боевые корабли Тумана, (   Читать дальше...   )Производство: Студии SanzigenЖанр: приключения, фантастика, романтикаРежиссер: Киси СэйдзиПеревод: nnm-club^animeЯзык субтитров: РусскийПродолжительность: 105 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F8FC429EE520904DB8411F9FF101E8106832E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235672   (557292) от 13.07.2018
+
+Calamity of the Zombie Girl | Aru Zombie Shoujo no Sainan | Месть восставшей из мёртвых [2018, ONA, 1 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет повествует о красивой девушке по имени Евфросинья, которая, ко всему прочему, ещё и зомби. Начинается всё с того, что Евфросинья просыпается в университетском архиве в подвале. Её ждёт горничная по имени Альма, которая говорит Евфросинье: «Мадам, убейте студентов и добудьте Тайный камень». Оказывается, зомби-девушку случайно пробудили от столетнего сна шестеро (   Читать дальше...   )Производство: студия Gonzo Digimation / ゴンゾЖанр: приключенияРежиссер: Ивами ХидэакиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 80 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2A49548CEFEBA78D4FC30020E96425A57CA62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045872   (556710) от 25.08.2016
+
+Devil Survivor 2 The Animation | Выжившие среди демонов 2 [2013, TV, 13] BDrip 1080p HEVC Hi10p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычным воскресным днем 18-летний Хибики Кудзэ возвращался с пробного экзамена, и тут лучший друг Дайти Сидзима рассказал про сайт «Никея», что рассылает мастерски смонтированные ролики, в которых твои знакомые якобы гибнут страшной смертью. ИТ-прогрессу давно никто не удивляется, да и друга надо уважить, потому у сайта появился новый подписчик. Вот только Хибики (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Продолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F10FEED951B43ECAE0824390B8531D291C54F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306348   (555665) от 04.06.2019
+
+Break Blade /  Broken Blade / Сломанный Меч [2010, Movie, 6 эп.] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Континент Крузон. Мир, где правит "магия". Здесь не добывают нефть. Здесь не вырабатывают электричество. Основным ресурсом этого мира и двигателем производства стал кварц - добываемый минерал. Люди очищают совместимый кварц и создают кварцевые двигатели и ускорители, которые двигают механизмы. Всё - от движков могучих "големов" до поршней пневматических (   Читать дальше...   )Производство: Production I.G и XebecЖанр: приключения, фэнтези, мехаРежиссер: Амино ТэцуроСубтитры: РусскиеПродолжительность: 6 серий по 50 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BD30C3A162B2A48C7A711ACE4CEB7E1C913742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306931   (555201) от 08.06.2019
 
 Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit raw
@@ -6,7 +162,7 @@ Slow Start / Медленный старт [2018, TV, 12] BDrip 1080p HEVC 10bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555201.jpg" />
+  <img src="Z:/picture/008/save_picture_555201.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Bubblegum Crisis / Кризис каждый день [1987, OVA, 8 эп.] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554135.jpg" />
+  <img src="Z:/picture/008/save_picture_554135.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Koro-sensei Quest! (2016) / Квест Коро-сэнсэя! (2016) [2016, ONA,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552878.jpg" />
+  <img src="Z:/picture/008/save_picture_552878.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Senki Zesshou Symphogear AXZ / Последняя Песня Боевых При
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552801.jpg" />
+  <img src="Z:/picture/008/save_picture_552801.jpg" />
 </div>
 
 
@@ -111,7 +267,7 @@ Ajin 2 | Полулюди [ТВ-2] [2016, TV, 13 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552347.jpg" />
+  <img src="Z:/picture/008/save_picture_552347.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Nobunaga the Fool | Глупец  Нобунага [2014, TV, 24] BDrip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550747.jpg" />
+  <img src="Z:/picture/008/save_picture_550747.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Tonari no Seki-kun | Tonari no Seki-kun: The Master of Killing Time | Сэки, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549935.jpg" />
+  <img src="Z:/picture/008/save_picture_549935.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Toshokan Sensou: Kakumei no Tsubasa / Библиотечная война: Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549421.jpg" />
+  <img src="Z:/picture/008/save_picture_549421.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Basilisk: Kouga Ninpou Chou | Basilisk: The Kouga Ninja Scrolls | Василис
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549283.jpg" />
+  <img src="Z:/picture/008/save_picture_549283.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [2017, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548785.jpg" />
+  <img src="Z:/picture/008/save_picture_548785.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548718.jpg" />
+  <img src="Z:/picture/008/save_picture_548718.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548653.jpg" />
+  <img src="Z:/picture/008/save_picture_548653.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548408.jpg" />
+  <img src="Z:/picture/008/save_picture_548408.jpg" />
 </div>
 
 
@@ -350,7 +506,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547246.jpg" />
+  <img src="Z:/picture/008/save_picture_547246.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544544.jpg" />
+  <img src="Z:/picture/008/save_picture_544544.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542547.jpg" />
+  <img src="Z:/picture/008/save_picture_542547.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540236.jpg" />
+  <img src="Z:/picture/008/save_picture_540236.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538461.jpg" />
+  <img src="Z:/picture/008/save_picture_538461.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538113.jpg" />
+  <img src="Z:/picture/008/save_picture_538113.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538019.jpg" />
+  <img src="Z:/picture/008/save_picture_538019.jpg" />
 </div>
 
 
@@ -519,163 +675,6 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64F2305A4126B569EB0C090BCD393A5A00A1B442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687390   (534955) от 09.08.2015
-
-Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободитель [2013, TV, 24 эп.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем люди живут в околоземном пространстве, вокруг Солнца раскинулась огромная сфера Дайсона, а человечество все так же рвут на части междоусобицы. Главными силами конфликта являются германская империя Доруссия, Атлантическая Федерация Арус и экономически успешный, но не богатый военными ресурсами Джиор, наследник маленькой, но гордой островной нации. (   Читать дальше...   )Производство: Студия SunriseЖанр: приключения, фантастика, мехаРежиссер: Мацуо КоПеревод: 1) Timecraft; 2) ggЯзык субтитров: 1) Русский; 2) АнглийскийПродолжительность: 24 серии по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47165C6E03700F3E621B0928D7F702B19CC30B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155891   (528549) от 06.08.2017
-
-Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того, чтобы из обычного начинающего поп-идола стать суперзвездой, одного таланта маловато. В бизнес-индустрии хватает симпатичных одаренных барышень, но удача улыбается далеко не всем, а только самым целеустремленным из них. А уж целеустремленности у Мисс Монохром, лишенного эмоций идола, хоть отбавляй – каждое утро, проснувшись, она только и думает, как бы сравняться (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Ивасаки Ёсиаки / Iwasaki Yoshiaki / 岩崎良明Перевод: Язык озвучки: ЯпонскийПродолжительность: 13 серий по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F21B22CD4AF7B49C2F86375E3795F564B3347F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155892   (528547) от 06.08.2017
-
-Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий сезон комедийного сериала об амбициозной певице-андроиде мисс Монохром! Со своими новыми друзьями она продолжает восхождение на вершину славы, хоть порой её действия приводят к неожиданному результату.
-© Elven_TankmanЖанр: повседневность, музыкальныйРежиссер: Ивасаки Ёсиаки / Iwasaki Yoshiaki / 岩崎良明Перевод: Язык озвучки: ЯпонскийПродолжительность: 13 серий по 8 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3C20651C783153A5477717009BCAD29C332F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313189   (528054) от 07.07.2019
-
-Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земле грозит опасность – пришельцы из иного измерения самим фактом появления в нашем мире вызывают страшные бедствия. Зачастили они, как положено, в Страну восходящего солнца, и люди быстро привыкли, что кроме цунами и подземных толчков надо бояться еще и «возмущений пространства». Да, методом страуса проблему не решить, только стоит ли биться насмерть с незваными (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Мотонага КэйтароПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631FC2540CAE9425F2AE89573B0F46E9E3D1374D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240605   (523663) от 13.08.2018
-
-Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломничество [2018, ONA, 1 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сома Михара - первогодка старшей школы. Сома не видел своего лучшего друга Ацуши 3, 5 года, с тех пор, как они потеряли контакт друг с другом после начальной школы. Однажды Ацуши вступает в контакт с Сомой, чтобы пригласить его на необычный фестиваль, чтобы они могли встретиться и поговорить. Сома отправляется на «Семидневный фестиваль Танабата» вглубь гор, но Ацуши (   Читать дальше...   )Производство: студия Yokohama Animation Lab / 横浜アニメーションラボЖанр: повседневность, мистикаРежиссер: Мурата КадзуяПеревод: Crunchyroll; SoveRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 65 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044B4D0B4460B262128AA453691692700C5AA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554945   (521855) от 28.06.2022
-
-Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Show: The Unpopular Girl and the Secret Task | Настоящая героиня [2022, TV, 12 из 12] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хиёри Судзуми покинула свой родной город и поступила в токийскую старшую школу Сакурагаока, чтобы продолжить заниматься лёгкой атлетикой. В поисках подработки Хиёри становится менеджером для своих одноклассников Юдзиро Сомея и Айдзо Щибасаки, которые состоят в айдол-дуэте LIPxLIP. История рассказывает о проблемах Хиори, с которыми она сталкивается в школе, вне школы (   Читать дальше...   )Производство: Lay-duceЖанр: Комедия, сёдзё, повседневностьРежиссер: Хасимото НорикоСубтитры: РусскиеПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F703B8FEAA8C64A7FB60DD5E8A96615925214F6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

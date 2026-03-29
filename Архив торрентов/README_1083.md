@@ -6,7 +6,7 @@ qBittorrent 4.3.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799819.jpg" />
+  <img src="Z:/picture/008/save_picture_799819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Privacy Eraser Free 4.46.0 Build 2744 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799782.jpg" />
+  <img src="Z:/picture/008/save_picture_799782.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Photo Supreme 4.3.2.1834 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799774.jpg" />
+  <img src="Z:/picture/008/save_picture_799774.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Aiseesoft Data Recovery 1.1.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799773.jpg" />
+  <img src="Z:/picture/008/save_picture_799773.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Athentech Perfectly Clear + Essentials v3.6.3.1398 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799770.jpg" />
+  <img src="Z:/picture/008/save_picture_799770.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Daff Moon Phase / Фазы Луны v3.0.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799764.jpg" />
+  <img src="Z:/picture/008/save_picture_799764.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Embarcadero RAD Studio 11.0 Alexandria 28.0.42600.6491 + Patch 1 October 2021 [E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799763.jpg" />
+  <img src="Z:/picture/008/save_picture_799763.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Acrobat Pro DC 2021.007.20099 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799747.jpg" />
+  <img src="Z:/picture/008/save_picture_799747.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Adobe Acrobat Reader DC 2021.007.20099 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799742.jpg" />
+  <img src="Z:/picture/008/save_picture_799742.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Apowersoft Screen Capture Pro 1.4.7.9 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799739.jpg" />
+  <img src="Z:/picture/008/save_picture_799739.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.8.4 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799722.jpg" />
+  <img src="Z:/picture/008/save_picture_799722.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799718.jpg" />
+  <img src="Z:/picture/008/save_picture_799718.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Aspire v9.510 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799715.jpg" />
+  <img src="Z:/picture/008/save_picture_799715.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799713.jpg" />
+  <img src="Z:/picture/008/save_picture_799713.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799712.jpg" />
+  <img src="Z:/picture/008/save_picture_799712.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799695.jpg" />
+  <img src="Z:/picture/008/save_picture_799695.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799694.jpg" />
+  <img src="Z:/picture/008/save_picture_799694.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799693.jpg" />
+  <img src="Z:/picture/008/save_picture_799693.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ DJ Feel - TranceMission (27-03-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799674.jpg" />
+  <img src="Z:/picture/008/save_picture_799674.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ VA - Paul Oakenfold: DJ Box March (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799672.jpg" />
+  <img src="Z:/picture/008/save_picture_799672.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ QuickLens 1.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799666.jpg" />
+  <img src="Z:/picture/008/save_picture_799666.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ MetaMovie 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799660.jpg" />
+  <img src="Z:/picture/008/save_picture_799660.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799659.jpg" />
+  <img src="Z:/picture/008/save_picture_799659.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Dexcell - Under The Blue (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799658.jpg" />
+  <img src="Z:/picture/008/save_picture_799658.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799652.jpg" />
+  <img src="Z:/picture/008/save_picture_799652.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799648.jpg" />
+  <img src="Z:/picture/008/save_picture_799648.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Opera 70.0.3728.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718858.jpg" />
+  <img src="Z:/picture/008/save_picture_718858.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USDownloader 1.3.5.9 Portable (29.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718832.jpg" />
+  <img src="Z:/picture/008/save_picture_718832.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ScanMyReg 3.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718819.jpg" />
+  <img src="Z:/picture/008/save_picture_718819.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SRWare Iron 72.0.3750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718807.jpg" />
+  <img src="Z:/picture/008/save_picture_718807.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mailbird Pro 2.5.34.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718804.jpg" />
+  <img src="Z:/picture/008/save_picture_718804.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Telestream Wirecast Pro 6.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718777.jpg" />
+  <img src="Z:/picture/008/save_picture_718777.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Office 2010 Professional Plus 14.0.7147.5001 SP2 RePack by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718773.jpg" />
+  <img src="Z:/picture/008/save_picture_718773.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NI Circuit Design Suite 14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718769.jpg" />
+  <img src="Z:/picture/008/save_picture_718769.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ WinToUSB Technician 5.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718760.jpg" />
+  <img src="Z:/picture/008/save_picture_718760.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Everything 1.4.1.988 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718757.jpg" />
+  <img src="Z:/picture/008/save_picture_718757.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Paint.NET 4.2.13 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718729.jpg" />
+  <img src="Z:/picture/008/save_picture_718729.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ eM Client Pro 7.2.34731.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718682.jpg" />
+  <img src="Z:/picture/008/save_picture_718682.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Privacy Eraser Free 5.20.2 Build 4161 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718667.jpg" />
+  <img src="Z:/picture/008/save_picture_718667.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718664.jpg" />
+  <img src="Z:/picture/008/save_picture_718664.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Edge 98.0.1108.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718661.jpg" />
+  <img src="Z:/picture/008/save_picture_718661.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BandLab - Cakewalk 2022.02 (Build 029) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718659.jpg" />
+  <img src="Z:/picture/008/save_picture_718659.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718650.jpg" />
+  <img src="Z:/picture/008/save_picture_718650.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ LibreOffice 7.0.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718633.jpg" />
+  <img src="Z:/picture/008/save_picture_718633.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ TeamViewer Free 14.1.18533 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718581.jpg" />
+  <img src="Z:/picture/008/save_picture_718581.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ WinRAR 5.70 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718571.jpg" />
+  <img src="Z:/picture/008/save_picture_718571.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ WinRAR 5.70 Final RePack by ivandubskoj [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718568.jpg" />
+  <img src="Z:/picture/008/save_picture_718568.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Firefox Browser 97.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718565.jpg" />
+  <img src="Z:/picture/008/save_picture_718565.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VueScan Pro 9.7.78 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718558.jpg" />
+  <img src="Z:/picture/008/save_picture_718558.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Opera 84.0.4316.14 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718557.jpg" />
+  <img src="Z:/picture/008/save_picture_718557.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Overloud TH-U Premium 1.4.8 STANDALONE, VST, VST3, AAX (x64) + Library RePack by
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718550.jpg" />
+  <img src="Z:/picture/008/save_picture_718550.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ SMPlayer 17.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718525.jpg" />
+  <img src="Z:/picture/008/save_picture_718525.jpg" />
 </div>
 
 

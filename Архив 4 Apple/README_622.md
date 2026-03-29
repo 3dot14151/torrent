@@ -1,3 +1,110 @@
+###  Публикация: 1517461   (162882) от 15.12.2021
+
+zCommander - File Manager for Mac 6.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162882.jpg" />
+</div>
+
+
+###  Подробнее
+
+zCommander - мощный, быстрый, функциональный, с удобным и симпатичным интерфейсом, менеджер файлов, который сделает процедуру управления файлами на вашем Mac простой и удобной, особенно для тех пользователей, какие совсем недавно перешли на платформу macOS.Тип издания: macOS SoftwareРелиз состоялся: 06.10.2021Разработчик: © 2021 woojooinПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский и Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C97E3224935A9F463FAC4702DC555C7569D677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517319   (162879) от 15.12.2021
+
+BusyContacts 1.6.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162879.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
+BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 BusyCal, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA35B2FAD1B34460E24FC76B5D45FF358B362BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517323   (162845) от 15.12.2021
+
+Do Your Data Recovery Pro 8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Do Your Data Recovery Professional – инструмент для быстрого восстановления удаленных или недоступных файлов.
+Do Your Data Recovery Professional – это простой в управлении и мощный инструмент для быстрого восстановления удаленных или недоступных файлов. Программа вернет утерянную информацию с ПК, ноутбука, жесткого диска, цифрового устройства, накопителя и т.д
+Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2021Разработчик: © 2021 DoYourDataПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BACEEF185B813AC34DCDD305B1A7135D7B04036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598535   (162752) от 19.12.2022
+
+iShot Pro-ScreenShot Recording 2.2.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение iShot — отличное ПО для  скриншота области, окна, многооконный скриншота, скриншота оболочки, скриншот с интервальной съемкой, быстрая аннотация, текстура, выбор цвета, запись экрана, аудиозапись, оптическое распознавание символов, инструмент перевода скриншота на Мак.Тип издания: macOS SoftwareРелиз состоялся: 13.08.2022Разработчик: © Ningbo Shangguan Technology Co., LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749B40E108B37B5D097AA691A5AD97B592F2D688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598490   (162749) от 19.12.2022
 
 ProFind 1.19.0 [En]
@@ -6,7 +113,7 @@ ProFind 1.19.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162749.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Maxon Cinema 4D Studio R25.113 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162735.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ ColoFolXS 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162721.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Keep It 2.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162720.jpg" />
 </div>
 
 
@@ -113,7 +220,7 @@ VideoDuke 2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162708.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ KCNcrew Pack 12-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162692.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ CheckBook Pro 2.7.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162678.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Adobe Substance 3D Painter 7.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162665.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ SuperDuper! 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162643.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Nevercenter CameraBag Photo 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162637.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Nevercenter CameraBag Pro 2023.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162631.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Amadine 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162627.jpg" />
 </div>
 
 
@@ -324,7 +431,7 @@ NCH WavePad Audio Editor Pro 17.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162619.jpg" />
 </div>
 
 
@@ -350,7 +457,7 @@ Adobe Premiere Pro 2020 v14.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162617.jpg" />
 </div>
 
 
@@ -376,7 +483,7 @@ Blocs 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162612.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162605.jpg" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162595.jpg" />
 </div>
 
 
@@ -455,7 +562,7 @@ Adobe Photoshop Lightroom Classic v10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162564.jpg" />
 </div>
 
 
@@ -481,7 +588,7 @@ Commander One PRO - FTP client 3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162543.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Adobe Acrobat Pro DC 2020.013.20074 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162531.jpg" />
 </div>
 
 
@@ -535,7 +642,7 @@ TG Pro (Temperature Gauge Pro) 2.76 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162530.jpg" />
 </div>
 
 
@@ -562,7 +669,7 @@ WiFi Explorer 3.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162497.jpg" />
 </div>
 
 
@@ -574,114 +681,6 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1792B47AE83FF89CACDF9414C6817D859545E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432747   (162495) от 18.12.2020
-
-Adobe Photoshop 2021 v22.1.0 + Neural Filters [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E23C57D4544101EAD2213E109D5E8CE2C50561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598571   (162466) от 19.12.2022
-
-Commander One PRO Pack 3.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор. Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-● Создание, удаление, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Eltima SoftwareПоддерживаемая ОС: OS X 10.12+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4F53A295801EECCD63735247121900E58AB146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517322   (162465) от 15.12.2021
-
-Microsoft Office 2021 for Mac LTSC v16.56 VL [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, которые сочетающими в себе знакомый интерфейс Office и уникальные возможности Mac, какие успели вам полюбиться.
-Что касается Word, то здесь появилась новая вкладка «Макет» для быстрого доступа к функциям и область (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2021Разработчик: © 2021 Microsoft CorporationПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566BC34FEE7A577095A0E7CB616A4E7987D7133A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598530   (162450) от 19.12.2022
-
-Elmedia Player Pro 8.11 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2022Разработчик: © 2022 Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A22876F0CD210197F4D51115C45CEB73E985D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

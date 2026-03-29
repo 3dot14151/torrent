@@ -1,3 +1,56 @@
+###  Публикация: 782112   (752040) от 30.04.2014
+
+Дин Кунц | Собрание сочинений [97 книг] (1968-2013) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дин Рэй Кунц (Dean Ray Koontz) — американский писатель-фантаст.
+Родился и вырос в Пенсильвании, США. Родился 9 июля 1945 в Эверетте. Его мечтой всегда была писательская карьера. Еще во время учебы в университете Шиппенбурга начал писать рассказы и победил в конкурсе журнала "Атлантик Мансли". Работал координаторам программы помощи беднякам, преподавал в (   Читать дальше...   )Жанр: Мистика, Ужасы, Триллер, ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A7949AFCB60163A00462526F05EBC48841A95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387330   (750970) от 11.01.2022
+
+Бернард Корнуэлл | Собрание сочинений [64 книги] (1997-2021) [FB2 [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бернард Корнуэлл (англ. Bernard Cornwell) - Настоящее имя: Бернард Виггинс (Bernard Wiggins), родился в Лондоне 23 февраля 1944. Это был «ребёнок войны» – его отец был канадский летчик, а мать служила во вспомогательных частях ВВС. Его усыновила семья из Эссекса, принадлежавшая религиозной секте «Особые люди» (таковыми они, впрочем, и являлись). Он вырвался оттуда (   Читать дальше...   )Жанр: Историческая проза, Исторические приключения, Историческое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399482C2906DFBBB8D7BBED1E96B98F7A67420A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 206440   (749048) от 02.06.2010
 
 Жерар Клейн (Gérard Klein) | Антология (1985-2010) [FB2]
@@ -6,7 +59,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749048.jpg" />
+  <img src="Z:/picture/008/save_picture_749048.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746694.jpg" />
+  <img src="Z:/picture/008/save_picture_746694.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741859.jpg" />
+  <img src="Z:/picture/008/save_picture_741859.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740970.jpg" />
+  <img src="Z:/picture/008/save_picture_740970.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738700.jpg" />
+  <img src="Z:/picture/008/save_picture_738700.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738088.jpg" />
+  <img src="Z:/picture/008/save_picture_738088.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737285.jpg" />
+  <img src="Z:/picture/008/save_picture_737285.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735285.jpg" />
+  <img src="Z:/picture/005/save_picture_735285.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735278.jpg" />
+  <img src="Z:/picture/008/save_picture_735278.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734353.jpg" />
+  <img src="Z:/picture/008/save_picture_734353.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733610.jpg" />
+  <img src="Z:/picture/008/save_picture_733610.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731282.jpg" />
+  <img src="Z:/picture/008/save_picture_731282.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726264.jpg" />
+  <img src="Z:/picture/008/save_picture_726264.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723097.jpg" />
+  <img src="Z:/picture/005/save_picture_723097.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714477.jpg" />
+  <img src="Z:/picture/008/save_picture_714477.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712399.jpg" />
+  <img src="Z:/picture/008/save_picture_712399.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708939.jpg" />
+  <img src="Z:/picture/008/save_picture_708939.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707240.jpg" />
+  <img src="Z:/picture/008/save_picture_707240.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705991.jpg" />
+  <img src="Z:/picture/008/save_picture_705991.jpg" />
 </div>
 
 
@@ -519,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704205.jpg" />
+  <img src="Z:/picture/008/save_picture_704205.jpg" />
 </div>
 
 
@@ -546,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704197.jpg" />
+  <img src="Z:/picture/008/save_picture_704197.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703708.jpg" />
+  <img src="Z:/picture/008/save_picture_703708.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702332.jpg" />
+  <img src="Z:/picture/008/save_picture_702332.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702325.jpg" />
+  <img src="Z:/picture/008/save_picture_702325.jpg" />
 </div>
 
 
@@ -639,61 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F712BA9B5897423CBA7473CDD9AF534060F37A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027680   (695788) от 19.06.2016
-
-Андрэ Нортон | Легенды фантастики. Вся Нортон [12 книг] (2013-2015) [FB2]
-
->>След.
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персональная серия классика американской фантастики Андрэ Нортон. В состав собрания сочинений вошли только сольные произведения автора, многие переводы которых подверглись литературным правкам.
-Уникальная особенность данного собрания сочинений в том, что весь условный космический цикл в этой серии впервые выстроен по внутренней хронологии и выверен по терминологии.Жанр: Научная фантастика, Космическая фантастика, ФэнтезиИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6746E3D7BACB59E47F1883CE64FF6304DAED7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027926   (694442) от 20.06.2016
-
-Нацумэ Сосэки | Собрание сочинений [8 книг] (1905-1914) [FB2, DOC, RTF]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нацумэ Сосэки (9 февраля 1867 — 9 декабря 1916) — выдающийся японский писатель, один из основоположников современной японской литературы.
-Нацумэ родился 9 февраля 1867 в бедной семье старшины одной из общин Эдо (современный Токио). В юности он получил классическое образование и слыл знатоком древней китайской и японской классической поэзии.
-Недосказанность, не выраженная (   Читать дальше...   )Жанр: Классическая литература, Японская прозаФормат: FB2, DOC, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3CB9E7410AD456E36F54FCD4E471B032EBE43B
 ```
 
 https://mybot314.ru/tekegram_catalog/

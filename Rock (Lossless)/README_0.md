@@ -1,3 +1,148 @@
+###  Публикация: 1854346   (1057184) от 17.02.2026
+
+Rock N' Roll Circus - The Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gold
+02. Natalia
+03. Break Your Spell
+04. Like A Satelite(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Classic RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9C8FE299BD88D451F4A2CC79FA398CCC37570B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854041   (1056904) от 15.02.2026
+
+Endez - The Life In A Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1056904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Younger than young (06:32)
+ 02 - I can't wait (03:31)
+ 03 - Tree of life (09:32)
+ 04 - A good plot (03:27)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 01:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5700B5B2CB7863F574677E4681DB6157C7C545B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853186   (1056569) от 12.02.2026
+
+VA - This Is... 1971 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1056569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Chocolate - I Believe (In Love) - (03:54)
+02. Hurricane Smith - Don’t Let It Die - (02:30)
+03. Cilla Black - Something Tells Me (Something’s Gonna Happen Tonight) - (02:26)
+04. The Congregation - Softly Whispering I Love You - (03:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67147FE55FBFB7D08D1CF4E010ECDFC57587025F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852971   (1056224) от 11.02.2026
+
+Howie Day - Stop All The World Now (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1056224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brace Yourself [0:03:39.48]
+02. Perfect Time of Day [0:04:21.13]
+03. Collide [0:04:09.09]
+04. Trouble in Here [0:05:57.27](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C974F4D8D0A9DA1453CA2E3E81C5CCBE28B1221B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852819   (1056171) от 10.02.2026
+
+Ben Folds Five - Whatever and Ever Amen (1997) [FLAC|Lossless|tracks + .cue] <Soft Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1056171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Angry Dwarf and 200 Solemn Faces [0:03:52.42]
+02. Fair [0:05:55.65]
+03. Brick [0:04:32.55]
+04. Song for the Dumped [0:03:40.03](   Читать дальше...   )Жанр: Soft Rock, Indie RockПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F1FF602753EE587FCA1DC7232305813A35D406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852564   (1055959) от 08.02.2026
 
 Various - The Best Of '70s Rock (2009) 4 x CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
@@ -6,7 +151,7 @@ Various - The Best Of '70s Rock (2009) 4 x CD, Compilation [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055959.jpg" />
+  <img src="Z:/picture/005/save_picture_1055959.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - This Is... 1970 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055572.jpg" />
+  <img src="Z:/picture/005/save_picture_1055572.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Cast - Yeah Yeah Yeah (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054980.jpg" />
+  <img src="Z:/picture/005/save_picture_1054980.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Lady Moscow - Barrel Dance (2008) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054979.jpg" />
+  <img src="Z:/picture/005/save_picture_1054979.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Sleeplab - Syzygy (2026) [FLAC|Lossless|WEB-DL|tracks] <electro industrial rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054772.jpg" />
+  <img src="Z:/picture/005/save_picture_1054772.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Symphony Of Sweden - Stand My Ground (2026) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052311.jpg" />
+  <img src="Z:/picture/005/save_picture_1052311.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Petra - Hope (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051551.jpg" />
+  <img src="Z:/picture/005/save_picture_1051551.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Leprous - Pitfalls (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051186.jpg" />
+  <img src="Z:/picture/005/save_picture_1051186.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Tina Turner - Simply The Best (1991) [FLAC|Lossless|image + .cue] <Pop Rock, Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050993.jpg" />
+  <img src="Z:/picture/005/save_picture_1050993.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Magic Dance - No Way to Surrender (2025) [FLAC|Lossless|WEB-DL|tracks] <AOR, Syn
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050784.jpg" />
+  <img src="Z:/picture/005/save_picture_1050784.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Queen + Paul Rodgers - The Cosmos Rocks (2008) SHM-CD, Japanese Edition, Reissue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050674.jpg" />
+  <img src="Z:/picture/008/save_picture_1050674.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Freddie Mercury - Mr. Bad Guy (1985) SHM-CD, Japanese Edition, Reissue, 2025, Me
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050641.jpg" />
+  <img src="Z:/picture/008/save_picture_1050641.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Def Leppard - Diamond Star Heroes (Live From Sheffield) (2025) SHM-CD, Japanese 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050571.jpg" />
+  <img src="Z:/picture/005/save_picture_1050571.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Keith Richards - Talk Is Cheap (1988) [FLAC|Lossless|image + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050472.jpg" />
+  <img src="Z:/picture/005/save_picture_1050472.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Coverdale Page - Rarities (1993) 2025 [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050323.jpg" />
+  <img src="Z:/picture/005/save_picture_1050323.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Erdész Róbert - Welcome To My Brain (2025) 2 x CD [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049880.jpg" />
+  <img src="Z:/picture/005/save_picture_1049880.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Pink Floyd - Wish You Were Here (1975) Japanese Edition, Box Set, 2 x CD, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049798.jpg" />
+  <img src="Z:/picture/005/save_picture_1049798.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Jim Peterik & World Stage - River Of Music The Power Of Duets, Vol. 1 (2025) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049714.jpg" />
+  <img src="Z:/picture/005/save_picture_1049714.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Fleurs du Mal - Spacetime Mystery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049330.jpg" />
+  <img src="Z:/picture/008/save_picture_1049330.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Scorpions - Coming Home Live (2025) 2 x CD [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049105.jpg" />
+  <img src="Z:/picture/008/save_picture_1049105.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Roxy Music - Love Is The Drug (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048631.jpg" />
+  <img src="Z:/picture/008/save_picture_1048631.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Roxy Music - Love Is The Drug (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12D9D0283B7535BEB31BE51A792F27E63D4F0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840900   (1047623) от 07.12.2025
-
-Rush - Rush 50 (2025) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047623.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Not Fade Away
-02. You Can't Fight It
-03. Working Man (Vault Edition)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 04:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474970F5CA3F490B5A813BAADA352DB90E4D0479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840815   (1047540) от 07.12.2025
-
-Marillion - A Extended Collection of Recycled Gifts (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Christmas>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Xmas (War Is Over)
-02. Gabriel's Message
-03. The Christmas Song
-04. Stop the Cavalry(   Читать дальше...   )Жанр: Progressive Rock, ChristmasПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE2C3AEC959AD2DE85BD8113D518A82349AABAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840097   (1047009) от 02.12.2025
-
-Wishbone Ash - New England (1976) Japanese Edition, Reissue, Remastered, 2001, MCA Records [WavPack|Lossless|image + .cue] <Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Of Pearl
-02. (In All Of My Dreams) You Rescue Me
-03. Runaway
-04. Lorelie(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E1F3A4E386BBCFE8F6282F83E1A3272A045388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839510   (1046648) от 29.11.2025
-
-Queen - A Night At The Odeon (2015) SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now I’m Here
-02. Ogre Battle
-03. White Queen (As It Began)
-04. Bohemian Rhapsody(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Pop RockПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDCC6A11A0535243B5654AABD6226F08AA8D695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601798   (1046356) от 02.01.2023
-
-Nilver Perez - Living In Desire (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Cycle (Lead Vocals – Daniel Vargas) (4:42)
-02. We Belong To The Stars (Lead Vocals – Fabio Cabral) (4:16)
-03. Secret (Lead Vocals – Caroline Breiter) (5:23)
-04. Keep The Dreams Alive (Lead Vocals – Ricardo DeStefano) (5:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59AE29696F5E7D5A78F3871AB43F3C51FC5EBCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

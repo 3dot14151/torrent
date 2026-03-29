@@ -1,3 +1,55 @@
+###  Публикация: 960582   (307839) от 28.11.2015
+
+Территория заблуждений с Игорем Прокопенко (2015.11.28) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_307839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 01:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9C004D1266667451282ABCE6564B8F597FF546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077358   (306982) от 28.11.2016
+
+Экстрасенсы против детективов (2016.11.25) SATRip (сезон 1, выпуск 13)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозная схватка между интуицией и дедукцией, предчувствием и логикой. Впервые в истории российского телевидения следователи, оперативники и криминалисты МВД сразятся с обладателями паранормальных способностей - шаманами, ведьмами и парапсихологами. По правилам проекта обеим командам предстоит в каждой программе раскрывать реальные преступления. В начале выпуска (   Читать дальше...   )Телекомпания: НТВЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAE95AC81D3C4523B4ECC70896341C9035469C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261303   (304655) от 10.11.2018
 
 Битва экстрасенсов (2018.11.10) SATRip (сезон 19, выпуск 8)
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304655.jpg" />
+  <img src="Z:/picture/008/save_picture_304655.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303198.jpg" />
+  <img src="Z:/picture/008/save_picture_303198.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301058.jpg" />
+  <img src="Z:/picture/008/save_picture_301058.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299154.jpg" />
+  <img src="Z:/picture/008/save_picture_299154.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298526.jpg" />
+  <img src="Z:/picture/008/save_picture_298526.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298208.jpg" />
+  <img src="Z:/picture/008/save_picture_298208.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298143.jpg" />
+  <img src="Z:/picture/008/save_picture_298143.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297441.jpg" />
+  <img src="Z:/picture/008/save_picture_297441.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297144.jpg" />
+  <img src="Z:/picture/008/save_picture_297144.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297143.jpg" />
+  <img src="Z:/picture/008/save_picture_297143.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297138.jpg" />
+  <img src="Z:/picture/008/save_picture_297138.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295977.jpg" />
+  <img src="Z:/picture/008/save_picture_295977.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295883.jpg" />
+  <img src="Z:/picture/008/save_picture_295883.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295659.jpg" />
+  <img src="Z:/picture/008/save_picture_295659.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295312.jpg" />
+  <img src="Z:/picture/008/save_picture_295312.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295173.jpg" />
+  <img src="Z:/picture/008/save_picture_295173.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293144.jpg" />
+  <img src="Z:/picture/008/save_picture_293144.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292509.jpg" />
+  <img src="Z:/picture/008/save_picture_292509.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290932.jpg" />
+  <img src="Z:/picture/008/save_picture_290932.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290464.jpg" />
+  <img src="Z:/picture/008/save_picture_290464.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286550.jpg" />
+  <img src="Z:/picture/008/save_picture_286550.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286440.jpg" />
+  <img src="Z:/picture/008/save_picture_286440.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286372.jpg" />
+  <img src="Z:/picture/008/save_picture_286372.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285792.jpg" />
+  <img src="Z:/picture/008/save_picture_285792.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB802FD06C704BE03275EE2A74075904AB8BF4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964019   (285784) от 09.12.2015
-
-Земля. Территория загадок. Крысолов из Гамельна (2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сейчас здесь спокойно, но одна из легенд гласит, что небольшой городок Германии подвергся атаке крыс и был заполонен жуткими грызунами. Некий Крысолов смог избавить Гамельн от напасти, но вместе с этим человеком пропали почти все дети. Загадка не дает покоя ученым, историкам и литераторам и по сей день. Подробности смотрите в этой программе.Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF51EF75CEDD0CE3A1D5CB20722D2AEC5C02634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964012   (285782) от 09.12.2015
-
-Земля. Территория загадок. Мангуп и Чаша Грааля (2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связана история чаши Грааля с земной жизнью Иисуса Христа, из-за чего артефакт перевезли из Константинополя на крымский берег и почему нацисты были одержимы поиском мистической реликвии? Мангуп – древний город-крепость в Крыму. По одной из легенд, в его стенах спрятан сосуд, который сделан из короны Люцифера - падшего ангела.Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28615C3EDB14D8B617F05D9ADEE383F6A290F2AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

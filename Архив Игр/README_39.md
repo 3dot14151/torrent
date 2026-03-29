@@ -6,7 +6,7 @@ Saints Row 4/IV (2013) [Multi] (1.0.0.1/4 DLC) RePack R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548950.jpg" />
+  <img src="Z:/picture/008/save_picture_548950.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0.10246.0/DLC) Steam-Rip R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548047.jpg" />
+  <img src="Z:/picture/008/save_picture_548047.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Lost Planet 3 (2013) [Multi] (1.0) License FAIRLIGHT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548045.jpg" />
+  <img src="Z:/picture/008/save_picture_548045.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Pillars of Eternity (2015) [Ru/Multi] (3.03.1047 PX1/PX2) Repack xatab [Royal Ed
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547934.jpg" />
+  <img src="Z:/picture/008/save_picture_547934.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0/2DLC) Steam-Rip R.G. Игр
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547180.jpg" />
+  <img src="Z:/picture/008/save_picture_547180.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Armello (2015) [Ru/Multi] (1.4) License GOG [DRM Free Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547059.jpg" />
+  <img src="Z:/picture/008/save_picture_547059.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Balrum (2016) [Ru/En] (1.12) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547047.jpg" />
+  <img src="Z:/picture/008/save_picture_547047.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.3) SteamRip Ученик_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546266.jpg" />
+  <img src="Z:/picture/008/save_picture_546266.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Order of Battle: World War II (2015) [Ru/Multi] (2.6.7/dlc) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546210.jpg" />
+  <img src="Z:/picture/008/save_picture_546210.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота [patch] (1.24
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546173.jpg" />
+  <img src="Z:/picture/008/save_picture_546173.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ StarCrawlers (2016) [En] (Prolific Pocketmonster v8 08.27.2016) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545276.jpg" />
+  <img src="Z:/picture/008/save_picture_545276.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Lost Planet 3 (2013) [Ru/Multi] (1.0/4DLC) Steam-Rip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544387.jpg" />
+  <img src="Z:/picture/008/save_picture_544387.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.82.5006/2dlc) Repack R.G. М
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543961.jpg" />
+  <img src="Z:/picture/008/save_picture_543961.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ FBI Hostage Rescue / ФБР:  Освобождение заложников (P) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543051.jpg" />
+  <img src="Z:/picture/008/save_picture_543051.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ HeXen II / HeXen 2 (1997) [En] (1.11) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542314.jpg" />
+  <img src="Z:/picture/008/save_picture_542314.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Top Gun: Hard Lock (2012) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540526.jpg" />
+  <img src="Z:/picture/008/save_picture_540526.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2015) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540272.jpg" />
+  <img src="Z:/picture/008/save_picture_540272.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0/dlc) Repack GAMER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539893.jpg" />
+  <img src="Z:/picture/008/save_picture_539893.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539294.jpg" />
+  <img src="Z:/picture/008/save_picture_539294.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Life is Strange - Episode 4: Dark Room (2015) [Ru] (1.0.0.344867) Steam-Rip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538376.jpg" />
+  <img src="Z:/picture/008/save_picture_538376.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.347790) Repack R.G. Механики [Epis
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538371.jpg" />
+  <img src="Z:/picture/008/save_picture_538371.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Prototype 2: RedNet Edition [Ru/En] (RePack/1.0) 2012 l TERRAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538053.jpg" />
+  <img src="Z:/picture/008/save_picture_538053.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Orcs Must Die Дилогия [Ru/En] (RePack) 2011-2012 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538052.jpg" />
+  <img src="Z:/picture/008/save_picture_538052.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Spec Ops: The Line [Ru] (RePack/1.0/DLC) 2012 l RG Packers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537949.jpg" />
+  <img src="Z:/picture/008/save_picture_537949.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537865.jpg" />
+  <img src="Z:/picture/008/save_picture_537865.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537857.jpg" />
+  <img src="Z:/picture/008/save_picture_537857.jpg" />
 </div>
 
 

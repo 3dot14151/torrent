@@ -1,3 +1,29 @@
+###  Публикация: 410915   (343738) от 14.11.2011
+
+Игорь Симбирцев | Спецслужбы первых лет СССР. 1923-1939 [2008] [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343738.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге Игорь Симбирцев прослеживает историю советских спецслужб периода, который уложился между двумя войнами: Гражданской и Великой Отечественной. Автор открывает малоизвестные детали нашумевших операций этого времени, обнажая механизм "создания" новых антисоветских организаций: "Синдикат-2", "Трест" и т. д. Описывает репрессии (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB351C92DE4449A2D91ABE7C629CC8216D224FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580533   (343635) от 25.11.2012
 
 Г.Н.Дмитриев | ПТУР сухопутных войск [1997] [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343635.jpg" />
+  <img src="Z:/picture/008/save_picture_343635.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343622.jpg" />
+  <img src="Z:/picture/008/save_picture_343622.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_343193.jpg" />
+  <img src="Z:/picture/005/save_picture_343193.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343131.jpg" />
+  <img src="Z:/picture/008/save_picture_343131.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342835.jpg" />
+  <img src="Z:/picture/008/save_picture_342835.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342232.jpg" />
+  <img src="Z:/picture/008/save_picture_342232.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337648.jpg" />
+  <img src="Z:/picture/008/save_picture_337648.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337517.jpg" />
+  <img src="Z:/picture/008/save_picture_337517.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337377.jpg" />
+  <img src="Z:/picture/008/save_picture_337377.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337374.jpg" />
+  <img src="Z:/picture/008/save_picture_337374.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337341.jpg" />
+  <img src="Z:/picture/008/save_picture_337341.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337188.jpg" />
+  <img src="Z:/picture/008/save_picture_337188.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337040.jpg" />
+  <img src="Z:/picture/008/save_picture_337040.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336325.jpg" />
+  <img src="Z:/picture/008/save_picture_336325.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Gordon L. Rottman | US Army Special Forces 1952–84 (2012) [EPUB] [Elite #4] [E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336298.jpg" />
+  <img src="Z:/picture/008/save_picture_336298.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Martin Windrow, Wayne Braby | French Foreign Legion Paratroops (2013) [EPUB] [El
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336293.jpg" />
+  <img src="Z:/picture/008/save_picture_336293.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335153.jpg" />
+  <img src="Z:/picture/008/save_picture_335153.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333793.jpg" />
+  <img src="Z:/picture/008/save_picture_333793.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Gordon L. Rottman | US Marine Corps 1941–45 (2012) [EPUB] [Elite #59] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333356.jpg" />
+  <img src="Z:/picture/008/save_picture_333356.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332410.jpg" />
+  <img src="Z:/picture/008/save_picture_332410.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330325.jpg" />
+  <img src="Z:/picture/008/save_picture_330325.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Steven J. Zaloga | Early US Armor: Tanks 1916–40 (2017) [PDF] [New Vanguard #2
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327996.jpg" />
+  <img src="Z:/picture/008/save_picture_327996.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327431.jpg" />
+  <img src="Z:/picture/008/save_picture_327431.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327403.jpg" />
+  <img src="Z:/picture/008/save_picture_327403.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ Steven J. Zaloga | French Tanks of World War I (2011) [PDF] [New Vanguard #173] 
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326343.jpg" />
+  <img src="Z:/picture/008/save_picture_326343.jpg" />
 </div>
 
 
@@ -650,33 +676,6 @@ Steven J. Zaloga | French Tanks of World War I (2011) [PDF] [New Vanguard #173] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADF9B2F59EFF8E3EE7499E3CBADCFE25354AB2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 262167   (326206) от 25.11.2010
-
-А. Медведь, Д. Хазанов | Пикирующий бомбардировщик Пе-2. "Пешка", ставшая ферзем [Эксмо] [2007] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый массовый советский бомбардировщик Великой Отечественной войны Пе-2 был создан группой конструкторов под руководством В.М.Петлякова в ЦКБ-29 - уникальной организации, подведомственной НКВД, весь костяк которой составляли заключенные, так называемые "враги народа" и "вредители". Первоначально эта машина задумывалась как высотный истребитель, но по решению руководства страны в серию Пе-2 запустили в варианте более необходимого Красной Армии пикирующего бомбардировщика.
-Пе-2 сыграл выдающуюся роль в достижении победы в Великой Отечественной войне. Этот самолет применялся как бомбардировщик, разведчик, истребитель. Они воевали на всех фронтах и в морской авиации всех флотов. В руках советских летчиков Пе-2 в полной мере раскрыл заложенные в нем возможности. Скорость, маневренность, мощное вооружение плюс прочность, надежность и живучесть были его отличительными чертами. Пе-2 был популярен у летчиков и с первого до последнего дня Великой Отечественной войны "Пешка" служила им верой (   Читать дальше...)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E10BC3A9041CC446D230DD09182459F3EEA226D
 ```
 
 https://mybot314.ru/tekegram_catalog/

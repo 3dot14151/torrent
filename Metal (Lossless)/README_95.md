@@ -1,3 +1,90 @@
+###  Публикация: 1022507   (728994) от 02.06.2016
+
+Iron Savior - Titancraft (2016) Japanese EdItion [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Siege (Intro)
+02. Titancraft
+03. Way of the Blade
+04. Seize the Day(   Читать дальше...   )Жанр: Speed Metal, Power MetalПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1726C954D0ADC862E937A9BB4C5606F2E89A46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284357   (728959) от 21.02.2019
+
+A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|tracks + .cue] <Stoner, Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As It Begins (01:44)
+02. When the World Becomes Undone (06:37)
+03. Love the Ones You Hate (03:56)
+04. Fell in My Hole (05:54)(   Читать дальше...   )Жанр: Stoner, Gothic, Doom MetalПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1375E193636E6C3FB64E6DD921EE5F9E517602A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128222   (728873) от 24.04.2017
+
+Aes Dana - La Chasse Sauvage (2001) [FLAC|Lossless|image + .cue] <Celtic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Chasse Sauvage 04:24
+02. La Dernière Marche 03:45
+03. Anwynn 05:25
+04. Les Complaintes De Nemon 03:21(   Читать дальше...   )Жанр: Celtic Black MetalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB8471779AAEEB9C1A993169C9E8FF5CE9BE67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530460   (728696) от 11.02.2022
 
 Amorphis - Halo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
@@ -6,7 +93,7 @@ Amorphis - Halo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728696.jpg" />
+  <img src="Z:/picture/008/save_picture_728696.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Order From Chaos - Dawn Bringer (1995) [FLAC|Lossless|image + .cue] <Black, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726647.jpg" />
+  <img src="Z:/picture/008/save_picture_726647.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726580.jpg" />
+  <img src="Z:/picture/008/save_picture_726580.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Internal Bleeding - Onward To Mecca (2004) [FLAC|Lossless|tracks + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726579.jpg" />
+  <img src="Z:/picture/008/save_picture_726579.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Elffor - Dra Sad (2017) [FLAC|Lossless|image + .cue] <Medieval Ambient, Dungeon 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726560.jpg" />
+  <img src="Z:/picture/008/save_picture_726560.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Perverted Dexterity - Spiritual Awakening (2017) [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726416.jpg" />
+  <img src="Z:/picture/008/save_picture_726416.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Bloodhammer - Post-Apocalypse Trilogy (2006) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725294.jpg" />
+  <img src="Z:/picture/008/save_picture_725294.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ S-Tool - 2 Albums (2017-2020) [FLAC|Lossless|image + .cue] <Groove Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725211.jpg" />
+  <img src="Z:/picture/008/save_picture_725211.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Septic Flesh - Sumerian Daemons (2003) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725210.jpg" />
+  <img src="Z:/picture/008/save_picture_725210.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Volbeat - The Strength / The Sound / The Songs (2005) [APE|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724831.jpg" />
+  <img src="Z:/picture/008/save_picture_724831.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ VA - Metal For The Masses 666 (2007) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724651.jpg" />
+  <img src="Z:/picture/008/save_picture_724651.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Death Angel - The Evil Divide (2016) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724546.jpg" />
+  <img src="Z:/picture/008/save_picture_724546.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Forbidden - Twisted Into Form (1990) Japan [FLAC|Lossless]<Thrash metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724448.jpg" />
+  <img src="Z:/picture/005/save_picture_724448.jpg" />
 </div>
 
 
@@ -387,7 +474,7 @@ Gorefest - Soul Survivor (1996) [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723898.jpg" />
+  <img src="Z:/picture/005/save_picture_723898.jpg" />
 </div>
 
 
@@ -422,7 +509,7 @@ Alcyona - Trailblazer (2018) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723294.jpg" />
+  <img src="Z:/picture/008/save_picture_723294.jpg" />
 </div>
 
 
@@ -451,7 +538,7 @@ Skyclad - Oui Avant-garde A Chance (1996) [FLAC|Lossless|image + .cue] <Folk Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723165.jpg" />
+  <img src="Z:/picture/008/save_picture_723165.jpg" />
 </div>
 
 
@@ -480,7 +567,7 @@ Septicflesh - Communion (2008) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723158.jpg" />
+  <img src="Z:/picture/008/save_picture_723158.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ Rammstein - 5 Albums (1997-2009) Japanese Edition, 6 CD [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722839.jpg" />
+  <img src="Z:/picture/008/save_picture_722839.jpg" />
 </div>
 
 
@@ -538,7 +625,7 @@ Imagika - Worship (1998) [FLAC|Lossless|image + .cue] <Power, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722720.jpg" />
+  <img src="Z:/picture/008/save_picture_722720.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ Fall of Empyrean - Anhedonia (2003) [APE|Lossless]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722215.jpg" />
+  <img src="Z:/picture/005/save_picture_722215.jpg" />
 </div>
 
 
@@ -602,7 +689,7 @@ Fission - Crater (2004) [FLAC|Lossless]<Thrash metal / Melodic death metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722211.jpg" />
+  <img src="Z:/picture/005/save_picture_722211.jpg" />
 </div>
 
 
@@ -637,7 +724,7 @@ DragonForce - Killer Elite-The Hits, The Highs, The Vids (2016) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722143.jpg" />
+  <img src="Z:/picture/008/save_picture_722143.jpg" />
 </div>
 
 
@@ -666,7 +753,7 @@ Genocide - Stranded (1994) [style AC/DC] [APE|Lossless]<Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721993.jpg" />
+  <img src="Z:/picture/005/save_picture_721993.jpg" />
 </div>
 
 
@@ -686,93 +773,6 @@ Genocide - Stranded (1994) [style AC/DC] [APE|Lossless]<Hard'n'Heavy>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218495   (721520) от 10.04.2018
-
-Kamelot - The Shadow Theory (2018) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mission (1:31)
- 02. Phantom Divine (Shadow Empire) (4:06)
- 03. Ravenlight (3:38)
- 04. Amnesiac (3:41)(   Читать дальше...   )Жанр: Symphonic Metal, Progressive Power MetalПродолжительность: 01:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F16BE36F014F8B157FC3B4169DA88DED35A5C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400269   (721407) от 04.08.2020
-
-Dynazty - The Dark Delight (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presence Of Mind (04:16)
-02. Paradise Of The Architect (04:14)
-03. The Black (03:54)
-04. From Sound To Silence (03:54)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A5585852FB5C4D642362FFC6363A51C3BD41D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892061   (721337) от 25.04.2015
-
-Kiske / Somerville - City of Heroes (2015) [FLAC|Lossless]<Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City of Heroes (4:02)
-02. Walk on Water (4:17)
-03. Rising Up (4:44)
-04. Salvation (6:00)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416FB38B65253B8B087EC34DC0C699C3ACB0BAE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

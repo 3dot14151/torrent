@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843650.jpg" />
+  <img src="Z:/picture/008/save_picture_843650.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843649.jpg" />
+  <img src="Z:/picture/008/save_picture_843649.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843648.jpg" />
+  <img src="Z:/picture/008/save_picture_843648.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843647.jpg" />
+  <img src="Z:/picture/008/save_picture_843647.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843645.jpg" />
+  <img src="Z:/picture/008/save_picture_843645.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843643.jpg" />
+  <img src="Z:/picture/008/save_picture_843643.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843610.jpg" />
+  <img src="Z:/picture/008/save_picture_843610.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843609.jpg" />
+  <img src="Z:/picture/008/save_picture_843609.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843582.jpg" />
+  <img src="Z:/picture/008/save_picture_843582.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843580.jpg" />
+  <img src="Z:/picture/008/save_picture_843580.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Dancing Flower Mix (2016) [MP3|268-320 кб/с] <Electro, Progressive House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843579.jpg" />
+  <img src="Z:/picture/008/save_picture_843579.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ VA - Wild Trance Antehems Vol.2 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843578.jpg" />
+  <img src="Z:/picture/008/save_picture_843578.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843577.jpg" />
+  <img src="Z:/picture/008/save_picture_843577.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843568.jpg" />
+  <img src="Z:/picture/008/save_picture_843568.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843529.jpg" />
+  <img src="Z:/picture/008/save_picture_843529.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Ibiza EDM (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843504.jpg" />
+  <img src="Z:/picture/008/save_picture_843504.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Perfect Diet Tracker 3.8.7001 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843500.jpg" />
+  <img src="Z:/picture/008/save_picture_843500.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sip Pro 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843498.jpg" />
+  <img src="Z:/picture/008/save_picture_843498.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PowerTunes 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843497.jpg" />
+  <img src="Z:/picture/008/save_picture_843497.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843496.jpg" />
+  <img src="Z:/picture/008/save_picture_843496.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843492.jpg" />
+  <img src="Z:/picture/008/save_picture_843492.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Application Wizard 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843489.jpg" />
+  <img src="Z:/picture/008/save_picture_843489.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843440.jpg" />
+  <img src="Z:/picture/008/save_picture_843440.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843423.jpg" />
+  <img src="Z:/picture/008/save_picture_843423.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Murus Pro 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843413.jpg" />
+  <img src="Z:/picture/008/save_picture_843413.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Network Utility X 5.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843411.jpg" />
+  <img src="Z:/picture/008/save_picture_843411.jpg" />
 </div>
 
 

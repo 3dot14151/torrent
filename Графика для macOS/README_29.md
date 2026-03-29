@@ -1,3 +1,29 @@
+###  Публикация: 1698703   (118262) от 10.02.2024
+
+Persecond for Mac 1.7 U2B [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Persecond - это простой и увлекательный способ создать красивое замедленное видео. Импортируйте последовательность изображений с любой камеры, обрежьте длину видео, настройте скорость и направление воспроизведения, и все готово. Экспортируйте в качестве вещания или импортируйте в Flixel Cinemagraph Pro и создайте удивительное гибридное видео с интервальной съемкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2024Разработчик: © 2015-2024 Flixel Photos Inc.Поддерживаемая ОС: macOS 11.7+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D5A0EEFD10F9AE0EF4B0F87D145ADE7A2EB038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700053   (117474) от 15.02.2024
 
 ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
@@ -6,7 +32,7 @@ ACDSee Photo Studio 10 for Mac v.10.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117474.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ doubleTake 2.6.13 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117368.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ LRTimelapse Pro 6 v.6.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117236.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ GraphicConverter 12 for Mac 12.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117156.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Iridient Developer for Mac 4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116842.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ PhotoMill X 2.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116523.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ JixiPix Artista Impresso Pro 1.8.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116511.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Acorn 7 v.7.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116179.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Iridient Developer for Mac 4.2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115989.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ MetaRename for Mac 1.0.10 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114313.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114043.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Folder-Factory 7.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113709.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Boxy SVG 4.26.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113665.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ PanoramaStudio 4 Pro for Mac v.4.0.0 iNTEL [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113586.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Upscayl for Mac 2.10.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113492.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Labels and Databases 1.7.11 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113411.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113350.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Retrobatch Pro 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113152.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ EdgeView 4 v.4.6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113086.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Hype 4 Pro v.4.1.16 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113082.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Principle 6.34 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112957.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ Nevercenter CameraBag Photo 2024.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112950.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ RAW Power 3.4.20 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112941.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ RAW Power 3.4.20 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710108   (112720) от 26.03.2024
-
-PowerPhotos 2.5.7 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112720.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8B966076A6E42C08A08CD750F701E3D8C67314
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626244.jpg" />
+  <img src="Z:/picture/005/save_picture_626244.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623091.jpg" />
+  <img src="Z:/picture/008/save_picture_623091.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621323.jpg" />
+  <img src="Z:/picture/008/save_picture_621323.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620093.jpg" />
+  <img src="Z:/picture/008/save_picture_620093.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619360.jpg" />
+  <img src="Z:/picture/008/save_picture_619360.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619308.jpg" />
+  <img src="Z:/picture/008/save_picture_619308.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618726.jpg" />
+  <img src="Z:/picture/008/save_picture_618726.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616967.jpg" />
+  <img src="Z:/picture/008/save_picture_616967.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614890.jpg" />
+  <img src="Z:/picture/008/save_picture_614890.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608971.jpg" />
+  <img src="Z:/picture/008/save_picture_608971.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) Blu-ray 3D [H.264/1080p] [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608551.jpg" />
+  <img src="Z:/picture/008/save_picture_608551.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) BDRemux [H.264/1080p] [2D/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608549.jpg" />
+  <img src="Z:/picture/008/save_picture_608549.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608415.jpg" />
+  <img src="Z:/picture/008/save_picture_608415.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600086.jpg" />
+  <img src="Z:/picture/008/save_picture_600086.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599744.jpg" />
+  <img src="Z:/picture/008/save_picture_599744.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRemux 3D [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598600.jpg" />
+  <img src="Z:/picture/008/save_picture_598600.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) Blu-ray 3D [
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598591.jpg" />
+  <img src="Z:/picture/008/save_picture_598591.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip  [1080
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598586.jpg" />
+  <img src="Z:/picture/008/save_picture_598586.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Need for Speed: Жажда скорости / Need for Speed (2014) BDRip [1080p
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598585.jpg" />
+  <img src="Z:/picture/008/save_picture_598585.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597095.jpg" />
+  <img src="Z:/picture/008/save_picture_597095.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597092.jpg" />
+  <img src="Z:/picture/008/save_picture_597092.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591002.jpg" />
+  <img src="Z:/picture/008/save_picture_591002.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590968.jpg" />
+  <img src="Z:/picture/008/save_picture_590968.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590435.jpg" />
+  <img src="Z:/picture/008/save_picture_590435.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586281.jpg" />
+  <img src="Z:/picture/008/save_picture_586281.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586210.jpg" />
+  <img src="Z:/picture/008/save_picture_586210.jpg" />
 </div>
 
 

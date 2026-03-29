@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1860663   (1062258) от 
+
+Анатолий Таволжанский - Временно живой (2026) [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Глаза горят [00:03:32]
+02 - Дожить до весны [00:03:02]
+03 - Синий май [00:03:28]
+04 - Лето ту ту [00:03:16](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B85C922DDDDDBEB0F82F3DADD4B9943D9CBF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860652   (1062256) от 
+
+Евгений Любимцев - Тропочки (2025) [MP3|256 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эх, золотишко, эх, бриллианты [00:03:27]
+02 - Порой осенней тебя встречаю [00:03:42]
+03 - Ах, Нинка, Нинка, как ты без меня [00:03:37]
+04 - Давай с тобой опять поговорим [00:04:05](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116EC1A8943AA3588182E1491917F8D9DE39F49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859960   (1061619) от 
 
 VA - 50 песен радио шансон, Часть 10 (2026) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
@@ -7,7 +65,7 @@ VA - 50 песен радио шансон, Часть 10 (2026) [FLAC|Lossless|
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061619.jpg" />
+  <img src="Z:/picture/005/save_picture_1061619.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ VA - Новые хитовые песни 2026, Часть 3 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061618.jpg" />
+  <img src="Z:/picture/005/save_picture_1061618.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ VA - Шансон премьера 2026 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061607.jpg" />
+  <img src="Z:/picture/005/save_picture_1061607.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061286.jpg" />
+  <img src="Z:/picture/005/save_picture_1061286.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061214.jpg" />
+  <img src="Z:/picture/005/save_picture_1061214.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060842.jpg" />
+  <img src="Z:/picture/005/save_picture_1060842.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060517.jpg" />
+  <img src="Z:/picture/005/save_picture_1060517.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060515.jpg" />
+  <img src="Z:/picture/005/save_picture_1060515.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060514.jpg" />
+  <img src="Z:/picture/005/save_picture_1060514.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060512.jpg" />
+  <img src="Z:/picture/005/save_picture_1060512.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060511.jpg" />
+  <img src="Z:/picture/005/save_picture_1060511.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060510.jpg" />
+  <img src="Z:/picture/005/save_picture_1060510.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060509.jpg" />
+  <img src="Z:/picture/005/save_picture_1060509.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059676.jpg" />
+  <img src="Z:/picture/005/save_picture_1059676.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059675.jpg" />
+  <img src="Z:/picture/005/save_picture_1059675.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059674.jpg" />
+  <img src="Z:/picture/005/save_picture_1059674.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Волчий шансон: Сборник крутых песен otKOSTETa
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059601.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ VA - Колючий Шансон: Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059598.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Новые хитовые песни 2026, Часть 2 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059596.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 1 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059595.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 2 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059594.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 4 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059592.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 5 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059590.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Шансон 90-х, Часть 4 (Избранные песни десят�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059589.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Шансон 90-х, Часть 4 (Избранные песни десят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DE40583E8241F91E7228D5551A8740A1BB54944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856756   (1059190) от 02.03.2026
-
-iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ветры [00:03:48]
-02 - Крестьянский сын [00:03:50]
-03 - Видно так заведено навеки (remake) [00:03:48]
-04 - Не вернусь я в отчий дом (chanson-rock) [00:04:14](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A68C9EB9C36E5DD83463A49D111A95059666BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855246   (1058927) от 27.02.2026
-
-Владимир Кудрявый - Сразу в ЗАГС (2026) AI-generated content [MP3|320 Kbps] <Pop, Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сразу в ЗАГС [00:01:59]
-02 - Душа в рубашке [00:03:09]
-03 - Мимо, мимо ты идёшь [00:03:01]
-04 - Чёрные ресницы [00:02:52](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2514D149D3EC606151D72068D16ABB86E2ED811
 ```
 
 https://mybot314.ru/tekegram_catalog/

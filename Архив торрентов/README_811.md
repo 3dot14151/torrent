@@ -6,7 +6,7 @@ SMath Studio Desktop 0.97.5890 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866118.jpg" />
+  <img src="Z:/picture/008/save_picture_866118.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Smoke DZA & Pete Rock - Don't Smoke Rock (2016) [FLAC|Lossless|tracks + .cue] <H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866100.jpg" />
+  <img src="Z:/picture/008/save_picture_866100.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Commander One Pro Pack 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866096.jpg" />
+  <img src="Z:/picture/008/save_picture_866096.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866094.jpg" />
+  <img src="Z:/picture/008/save_picture_866094.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866090.jpg" />
+  <img src="Z:/picture/008/save_picture_866090.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866070.jpg" />
+  <img src="Z:/picture/008/save_picture_866070.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866006.jpg" />
+  <img src="Z:/picture/008/save_picture_866006.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865960.jpg" />
+  <img src="Z:/picture/008/save_picture_865960.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865950.jpg" />
+  <img src="Z:/picture/008/save_picture_865950.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865949.jpg" />
+  <img src="Z:/picture/008/save_picture_865949.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865948.jpg" />
+  <img src="Z:/picture/008/save_picture_865948.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ ProPresenter 6.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865944.jpg" />
+  <img src="Z:/picture/008/save_picture_865944.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865921.jpg" />
+  <img src="Z:/picture/008/save_picture_865921.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ WinCatalog 2017 17.0.2.23 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865914.jpg" />
+  <img src="Z:/picture/008/save_picture_865914.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865902.jpg" />
+  <img src="Z:/picture/008/save_picture_865902.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865899.jpg" />
+  <img src="Z:/picture/008/save_picture_865899.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Art Text 3.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865898.jpg" />
+  <img src="Z:/picture/008/save_picture_865898.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Avira Free Antivirus 15.0.24.146 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865897.jpg" />
+  <img src="Z:/picture/008/save_picture_865897.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Agisoft PhotoScan Pro 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865830.jpg" />
+  <img src="Z:/picture/008/save_picture_865830.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865828.jpg" />
+  <img src="Z:/picture/008/save_picture_865828.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865826.jpg" />
+  <img src="Z:/picture/008/save_picture_865826.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ HDScape: Серенити. Южные моря / HDScape: Serenity. Southern Sea
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865820.jpg" />
+  <img src="Z:/picture/008/save_picture_865820.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865812.jpg" />
+  <img src="Z:/picture/008/save_picture_865812.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ TeraCopy Pro 3 RC2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865799.jpg" />
+  <img src="Z:/picture/008/save_picture_865799.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865791.jpg" />
+  <img src="Z:/picture/008/save_picture_865791.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865771.jpg" />
+  <img src="Z:/picture/008/save_picture_865771.jpg" />
 </div>
 
 

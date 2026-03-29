@@ -6,7 +6,7 @@ Adobe Acrobat Reader DC 2015.016.20041 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755513.jpg" />
+  <img src="Z:/picture/008/save_picture_755513.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755512.jpg" />
+  <img src="Z:/picture/008/save_picture_755512.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755511.jpg" />
+  <img src="Z:/picture/008/save_picture_755511.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ RadioMaximus 2.27.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755487.jpg" />
+  <img src="Z:/picture/008/save_picture_755487.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755485.jpg" />
+  <img src="Z:/picture/008/save_picture_755485.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755471.jpg" />
+  <img src="Z:/picture/008/save_picture_755471.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Light Image Resizer 4.7.0.0 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755458.jpg" />
+  <img src="Z:/picture/008/save_picture_755458.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755453.jpg" />
+  <img src="Z:/picture/008/save_picture_755453.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft4Boost PC Win Booster Free 9.3.5.547 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755428.jpg" />
+  <img src="Z:/picture/008/save_picture_755428.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755427.jpg" />
+  <img src="Z:/picture/008/save_picture_755427.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755423.jpg" />
+  <img src="Z:/picture/008/save_picture_755423.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Skype 7.24.32.104 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755419.jpg" />
+  <img src="Z:/picture/008/save_picture_755419.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Firefox Browser 78.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755413.jpg" />
+  <img src="Z:/picture/008/save_picture_755413.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 10.07.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755408.jpg" />
+  <img src="Z:/picture/008/save_picture_755408.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755406.jpg" />
+  <img src="Z:/picture/008/save_picture_755406.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Everything 1.4.1.985 Beta Nightly Builds + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755397.jpg" />
+  <img src="Z:/picture/005/save_picture_755397.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Native Instruments - Kontakt 6.3.1 STANDALONE, VSTi, AAX (Update) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755396.jpg" />
+  <img src="Z:/picture/008/save_picture_755396.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ System Toolkit 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755394.jpg" />
+  <img src="Z:/picture/008/save_picture_755394.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Privatus 6 v6.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755393.jpg" />
+  <img src="Z:/picture/008/save_picture_755393.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Storyist 4 v4.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755392.jpg" />
+  <img src="Z:/picture/008/save_picture_755392.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Artstudio Pro 3.2.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755389.jpg" />
+  <img src="Z:/picture/008/save_picture_755389.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Omni Toolbox 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755386.jpg" />
+  <img src="Z:/picture/008/save_picture_755386.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Omni Recover 3 v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755385.jpg" />
+  <img src="Z:/picture/008/save_picture_755385.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ ToothFairy 2.7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755383.jpg" />
+  <img src="Z:/picture/008/save_picture_755383.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Omni Downloader 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755381.jpg" />
+  <img src="Z:/picture/008/save_picture_755381.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Lunar Pro for Mac 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755380.jpg" />
+  <img src="Z:/picture/008/save_picture_755380.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alcohol 120% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708348.jpg" />
+  <img src="Z:/picture/008/save_picture_708348.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708329.jpg" />
+  <img src="Z:/picture/008/save_picture_708329.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708298.jpg" />
+  <img src="Z:/picture/008/save_picture_708298.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708297.jpg" />
+  <img src="Z:/picture/008/save_picture_708297.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708296.jpg" />
+  <img src="Z:/picture/008/save_picture_708296.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708295.jpg" />
+  <img src="Z:/picture/008/save_picture_708295.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708292.jpg" />
+  <img src="Z:/picture/008/save_picture_708292.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Airmail 3 v3.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708240.jpg" />
+  <img src="Z:/picture/008/save_picture_708240.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708213.jpg" />
+  <img src="Z:/picture/008/save_picture_708213.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ FilePane 1.9.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708209.jpg" />
+  <img src="Z:/picture/008/save_picture_708209.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708189.jpg" />
+  <img src="Z:/picture/008/save_picture_708189.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Maxthon Browser 5.2.1.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708174.jpg" />
+  <img src="Z:/picture/008/save_picture_708174.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ QuiteRSS 0.18.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708158.jpg" />
+  <img src="Z:/picture/008/save_picture_708158.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708127.jpg" />
+  <img src="Z:/picture/008/save_picture_708127.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Calendarique 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708122.jpg" />
+  <img src="Z:/picture/008/save_picture_708122.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Data Rescue Pro 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708118.jpg" />
+  <img src="Z:/picture/008/save_picture_708118.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708115.jpg" />
+  <img src="Z:/picture/008/save_picture_708115.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Slimjet 18.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708112.jpg" />
+  <img src="Z:/picture/008/save_picture_708112.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Pale Moon 27.9.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708108.jpg" />
+  <img src="Z:/picture/008/save_picture_708108.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Aiseesoft Screen Recorder 1.1.36 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708107.jpg" />
+  <img src="Z:/picture/008/save_picture_708107.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Default Folder X 5.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708106.jpg" />
+  <img src="Z:/picture/008/save_picture_708106.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ A Force & Adrian - Continental Chaos (2003) Single [MP3|320 Kbps] <Electronic, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708102.jpg" />
+  <img src="Z:/picture/008/save_picture_708102.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Downie 3.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708101.jpg" />
+  <img src="Z:/picture/008/save_picture_708101.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Easy CD-DA Extractor 2011.3 [RU/EN/SU] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708066.jpg" />
+  <img src="Z:/picture/008/save_picture_708066.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Wise Folder Hider Free 3.34.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708032.jpg" />
+  <img src="Z:/picture/008/save_picture_708032.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ K-Lite Codec Pack Update 12.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708030.jpg" />
+  <img src="Z:/picture/008/save_picture_708030.jpg" />
 </div>
 
 

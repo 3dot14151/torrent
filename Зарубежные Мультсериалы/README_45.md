@@ -1,3 +1,55 @@
+###  Публикация: 1567598   (201022) от 21.03.2023
+
+Харли Квинн / Harley Quinn (2022) WEB-DL [H.264/720p-LQ] (сезон 3, серия 1-10 из 10 + спецвыпуск) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_201022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: русские (сообщество UGN SUBZ Translators), английские, испанские, португальскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E670D5CC0D6F27BC57685E1AE78629E9A7C52D47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567599   (200948) от 21.03.2023
+
+Харли Квинн / Harley Quinn (2022) WEB-DLRip (сезон 3, серия 1-10 из 10 + спецвыпуск) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный  (NewStation) - присутствует ненормативная лексика.Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C2A7CE4B56889D4BEFDAE550CC725E60798FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567597   (200942) от 21.03.2023
 
 Харли Квинн / Harley Quinn (2022) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10 + спецвыпуск) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200942.jpg" />
+  <img src="Z:/picture/005/save_picture_200942.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200722.jpg" />
+  <img src="Z:/picture/005/save_picture_200722.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200636.jpg" />
+  <img src="Z:/picture/005/save_picture_200636.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200405.jpg" />
+  <img src="Z:/picture/005/save_picture_200405.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200115.jpg" />
+  <img src="Z:/picture/005/save_picture_200115.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200108.jpg" />
+  <img src="Z:/picture/005/save_picture_200108.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200102.jpg" />
+  <img src="Z:/picture/005/save_picture_200102.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199731.jpg" />
+  <img src="Z:/picture/005/save_picture_199731.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199725.jpg" />
+  <img src="Z:/picture/005/save_picture_199725.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199678.jpg" />
+  <img src="Z:/picture/005/save_picture_199678.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199583.jpg" />
+  <img src="Z:/picture/005/save_picture_199583.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199483.jpg" />
+  <img src="Z:/picture/005/save_picture_199483.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199342.jpg" />
+  <img src="Z:/picture/005/save_picture_199342.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199049.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199037.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198972.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198597.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198379.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197662.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197457.jpg" />
+  <img src="Z:/picture/004/save_picture_197457.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197215.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197181.jpg" />
+  <img src="Z:/picture/004/save_picture_197181.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197153.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197112.jpg" />
 </div>
 
 
@@ -618,60 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:405FFEC8AED7CEF0138842908DBF671D7C2DB845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618473   (197002) от 14.06.2023
-
-Гриффины / Family Guy (2022) WEBRip [H.264/1080p-LQ] (сезон 21, серии 1-20 из 20)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197002.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФарлейном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящая и терпеливая жена Лоис, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / 20th Century Fox Television, Film Roman Productions, Fuzzy Door Productions, Hands Down EntertainmeЖанр: мультфильм, комедияРежиссер: Джеймс Пурдум, Доминик Бьянчи, Питер ШинАктеры: Сет МакФарлейн, Алекс Борштейн, Сет Грин, Мила Кунис, Майк Генри, Дэнни Смит, Патрик Варбертон, Джон Винер, Алек Салкин, Ральф ГарменПеревод: Профессиональный многоголосый закадровый Zone Vision, TVShowsЯзык озвучки: русский, английскийСубтитры: русские (Full), английские (SDH)Продолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009A75FAE748A04CE662D2B979E8E8A6E648CF43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402089   (196741) от 20.06.2023
-
-Конь БоДжек / BoJack Horseman (2014-2020) WEB-DL [H.264/1080p-LQ] (сезон 1-6, серии 1-77 из 77) Невафильм
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в мире населенном антропоморфными животными и людьми. Большая часть сюжета происходит в Лос-Анджелесе. БоДжек — звезда ситуационной комедии, популярной в конце 80-х — начале 90-х годов, на момент времени происходящего в сериале, БоДжек переживает кризис среднего возраста. В попытках вернуть былую популярность и любовь публики, БоДжек пытается (   Читать дальше...   )Производство: США | Tornante Company, NetFlix, ShadowMachine FilmsЖанр: мультфильм, драма, комедия, для взрослых
-
-Режиссер: Эми Уинфри, JC Gonzalez, Аарон ЛонгПеревод: Дублированный (Невафильм)Субтитры: Русские, английские и др.Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EEAD6CBA0C33CF7E51A1A53E20721C800EDDB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

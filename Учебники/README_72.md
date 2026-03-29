@@ -1,3 +1,57 @@
+###  Публикация: 1581624   (326250) от 06.10.2022
+
+С.Л. Соболев | Уравнения математической физики (1950) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание учебника по уравнениям математической физики.
+Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8C612F6ED67425086FFA5B4E166D3F46EF61DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581752   (325445) от 07.10.2022
+
+С.Л. Соболев | Уравнения математической физики (1992) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_325445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятое издание учебника по уравнениям математической физики.
+Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED0EDBEC909E8086AEFC89C2088F98406CEA949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581763   (325323) от 07.10.2022
 
 Р.А. Гладкова | Сборник задач и вопросов по физике для средних специальных учебных заведений (1975) [DJVU]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325323.jpg" />
+  <img src="Z:/picture/008/save_picture_325323.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325302.jpg" />
+  <img src="Z:/picture/008/save_picture_325302.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323080.jpg" />
+  <img src="Z:/picture/008/save_picture_323080.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322162.jpg" />
+  <img src="Z:/picture/008/save_picture_322162.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321257.jpg" />
+  <img src="Z:/picture/008/save_picture_321257.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320634.jpg" />
+  <img src="Z:/picture/008/save_picture_320634.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319780.jpg" />
+  <img src="Z:/picture/008/save_picture_319780.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319342.jpg" />
+  <img src="Z:/picture/008/save_picture_319342.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319340.jpg" />
+  <img src="Z:/picture/008/save_picture_319340.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319331.jpg" />
+  <img src="Z:/picture/008/save_picture_319331.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319328.jpg" />
+  <img src="Z:/picture/008/save_picture_319328.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319326.jpg" />
+  <img src="Z:/picture/008/save_picture_319326.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319214.jpg" />
+  <img src="Z:/picture/008/save_picture_319214.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319211.jpg" />
+  <img src="Z:/picture/008/save_picture_319211.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319207.jpg" />
+  <img src="Z:/picture/008/save_picture_319207.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319080.jpg" />
+  <img src="Z:/picture/008/save_picture_319080.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318374.jpg" />
+  <img src="Z:/picture/008/save_picture_318374.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318298.jpg" />
+  <img src="Z:/picture/008/save_picture_318298.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318221.jpg" />
+  <img src="Z:/picture/008/save_picture_318221.jpg" />
 </div>
 
 
@@ -505,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316413.jpg" />
+  <img src="Z:/picture/008/save_picture_316413.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316176.jpg" />
+  <img src="Z:/picture/008/save_picture_316176.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315664.jpg" />
+  <img src="Z:/picture/008/save_picture_315664.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314881.jpg" />
+  <img src="Z:/picture/008/save_picture_314881.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314861.jpg" />
+  <img src="Z:/picture/008/save_picture_314861.jpg" />
 </div>
 
 
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029DD804A9850259969232EF28F8AEEC4D5D8F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182826   (314754) от 11.11.2017
-
-Махмуд Харун | Проектирование и строительство инженерных систем (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методический комплекс обеспечивает реализацию магистерской программы "Теория и практика организационно-технологических и экономических решений в строительстве" и предназначена для студентов, обучающихся по направлению 270800.68 "Строительство".Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA7AE1A68327FBF7D6F7688CEB5D08D900A26DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182481   (314279) от 11.11.2017
-
-С.А. Орлов | Программная инженерия. Технологии разработки программного обеспечения (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник посвящен систематическому изложению принципов, моделей, методов и метрик, используемых в инженерном цикле создания сложных программных систем. Изложены основы как классических, так и гибких методов разработки, вопросы менеджмента классических и гибких программных проектов. Показаны последние научные и практические достижения, характеризующие динамику развития (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53E64BC457AC93C0D39133CBF2B8DF3CCC3337E
 ```
 
 https://mybot314.ru/tekegram_catalog/

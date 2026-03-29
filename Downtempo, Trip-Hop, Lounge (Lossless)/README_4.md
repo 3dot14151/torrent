@@ -1,3 +1,61 @@
+###  Публикация: 1466432   (1018636) от 29.04.2021
+
+VA - Jazz Mood Cocktail (2017) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo'jardo – Let's Party (3:46)
+02. Van – Street Cafe (5:33)
+03. Marc Hartman – Crushing Waves (3:57)
+04. Velvet Dreamer – Oasis (5:45)(   Читать дальше...   )Производство: Anim RecordsЖанр: Downtempo, Lounge, JazzПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BD642B78CFFFB162A5F5190EE3C9FDD0FE7461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466450   (1018438) от 30.04.2021
+
+ROISIN MURPHY / Róisín Murphy - Crooked Machine (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingdom of Machines (06:29)
+02. Echo Returns (05:55)
+03. Capable Rhythm (06:07)
+04. Assimilation (06:55)(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0CBDADFC356008E6C07706ECBDC214DED3ADB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469320   (1016583) от 11.05.2021
 
 VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +64,7 @@ VA - Calming Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016583.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Relaxing Afternoon: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016582.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016267.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015635.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015634.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Morcheeba - Blackest Blue (2021) [FLAC|Lossless|tracks + .cue] <Electronic, Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015281.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Ambient Trip to Relaxation: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014819.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Penelope Trappes - 5 CD (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Dark-Ambient,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013557.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012566.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mystic Diversions - Лучшие хиты (2014) 2016, RDS Records [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012269.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Spiro And Wix - Save The Robot Two (2001) KPM Music [FLAC|Lossless|tracks+.cue] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011682.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - On the Beach: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010806.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Ambiental Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010341.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-de
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009484.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009162.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008712.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008597.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008419.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Re
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008056.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007616.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007195.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (202
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007008.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006509.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006356.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Emancipator - Discography 37 Releases (2006-2021) Loci Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B70A5FED9FEA892E377396227EBF6D8F478873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460488   (1006260) от 18.07.2021
-
-Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records, ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Atmo - Qui (03:38)
- 02. Atmo.Feos - Sunset (05:12)
- 03. Belotone - On The Neon (06:54)
- 04. Belotone - Bamboo Neon (05:28)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental •Продолжительность: 22:58:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148082A90A22375666B322E9E1507C83F5743C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486863   (1004328) от 02.08.2021
-
-VA - A​.​M Study Session 1-4 (2020-2021) Lofi Girl / ChilledCow Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Acoustic, Lo-Fi, Chillhop, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purrple Cat - Snooze Button (03:31)
- 02. Tom Doolie x loland - Parallel (02:15)
- 03. jhove - Counting Sheep (02:40)
- 04. Dontcry x Nokiaa - Bliss (01:51)(   Читать дальше...   )Тип издания: WebЖанр: Downtempo, Acoustic, Lo-Fi, Chillhop, Ambient •Продолжительность: 04:10:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96981AB080DB4A570C1C34084A31183E524228A
 ```
 
 https://mybot314.ru/tekegram_catalog/

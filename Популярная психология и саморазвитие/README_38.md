@@ -1,3 +1,86 @@
+###  Публикация: 1215282   (759544) от 25.03.2018
+
+Леонид Улановский | Девять выходов из безвыходного положения. Дневник психолога (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга-дневник. В ней нет художественного вымысла. Это запись бесед психолога со своей посетительницей. Автор — практический психолог с более чем пятнадцатилетним стажем работы. Ценность материала в том, что все рекомендации конкретны и направлены на саморазвитие личности посетительницы.
+
+Поэтому каждый читатель найдёт здесь что-то необходимое лично ему (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869726812635A73ADE7610D25BCF67086E55E9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887652   (758992) от 12.04.2015
+
+Ольга Быкова | Свобода от страха. Признай и победи! (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге перечислены основные страхи, которые может переживать человек на протяжении всей своей жизни. Страх смерти, неудачи, отвержения, общественного мнения, нищеты, старости, потери любви, одиночества, успеха. Человек, находящийся в плену у таких страхов, не может достигнуть в жизни успеха и реализовать свой потенциал. В книге даны практические рекомендации, как победить страх.Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EB0873C6622CE9818BC6B705F4AD521D653AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280479   (758355) от 04.02.2019
+
+Ника Набокова | Исповедь бывшей любовницы. От неправильной любви – к настоящей (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возрастное ограничение: 18+
+
+Когда жизнь преподносит нам «сюрприз» в виде болезненных, невыносимых, запутанных ситуаций, мы впадаем в ступор. И тогда у нас появляется выбор: жаловаться и страдать или обернуть все происходящее в свою пользу.
+История, которой Ника Набокова делится с читателями, – про второй вариант. Эта книга – простой, доступный, понятный рассказ (   Читать дальше...   )Жанр: Практическая психология, Семейная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711F189AE2ACD415925AA4FDF36FD9C0A624BFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395250   (757189) от 09.07.2020
 
 Оливия Поттс | Я справлюсь, мама. Как пережить потерю, обрести любовь и научиться готовить (2020) [EPUB]
@@ -6,7 +89,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757189.jpg" />
+  <img src="Z:/picture/008/save_picture_757189.jpg" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757184.jpg" />
+  <img src="Z:/picture/008/save_picture_757184.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757113.jpg" />
+  <img src="Z:/picture/005/save_picture_757113.jpg" />
 </div>
 
 
@@ -85,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756918.jpg" />
+  <img src="Z:/picture/008/save_picture_756918.jpg" />
 </div>
 
 
@@ -111,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756801.jpg" />
+  <img src="Z:/picture/008/save_picture_756801.jpg" />
 </div>
 
 
@@ -137,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756007.jpg" />
+  <img src="Z:/picture/008/save_picture_756007.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756000.jpg" />
+  <img src="Z:/picture/008/save_picture_756000.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754963.jpg" />
+  <img src="Z:/picture/008/save_picture_754963.jpg" />
 </div>
 
 
@@ -220,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754929.jpg" />
+  <img src="Z:/picture/008/save_picture_754929.jpg" />
 </div>
 
 
@@ -246,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754706.jpg" />
+  <img src="Z:/picture/008/save_picture_754706.jpg" />
 </div>
 
 
@@ -272,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754380.jpg" />
+  <img src="Z:/picture/008/save_picture_754380.jpg" />
 </div>
 
 
@@ -298,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753540.jpg" />
+  <img src="Z:/picture/008/save_picture_753540.jpg" />
 </div>
 
 
@@ -324,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753537.jpg" />
+  <img src="Z:/picture/008/save_picture_753537.jpg" />
 </div>
 
 
@@ -353,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753353.jpg" />
+  <img src="Z:/picture/008/save_picture_753353.jpg" />
 </div>
 
 
@@ -379,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753226.jpg" />
+  <img src="Z:/picture/008/save_picture_753226.jpg" />
 </div>
 
 
@@ -405,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753224.jpg" />
+  <img src="Z:/picture/008/save_picture_753224.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750931.jpg" />
+  <img src="Z:/picture/008/save_picture_750931.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749852.jpg" />
+  <img src="Z:/picture/008/save_picture_749852.jpg" />
 </div>
 
 
@@ -483,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749762.jpg" />
+  <img src="Z:/picture/008/save_picture_749762.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749690.jpg" />
+  <img src="Z:/picture/008/save_picture_749690.jpg" />
 </div>
 
 
@@ -537,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748520.jpg" />
+  <img src="Z:/picture/008/save_picture_748520.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748403.jpg" />
+  <img src="Z:/picture/008/save_picture_748403.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748258.jpg" />
+  <img src="Z:/picture/008/save_picture_748258.jpg" />
 </div>
 
 
@@ -601,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848ED930D3BF409D3416FFC75097C989C12C5031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396405   (748120) от 14.07.2020
-
-Зигмунд Фрейд | Введение в психоанализ (2019) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зигмунд Фрейд читал лекции по психоанализу в лектории при психиатрической клинике Венского университета каждую субботу по вечерам. Теоретические выкладки, которые на рубеже XIX–XX веков заинтересовали весьма скромное по численности собрание слушателей, сегодня формируют многие мировоззрения, без разработанных первым психоаналитиком терминов теперь уже сложно описать (   Читать дальше...   )Жанр: Психология, психоанализПеревод: Г.В. БарышниковаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3F4C89AD5822AB9DE233E6D29BFE95CF69E95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216315   (747390) от 01.04.2018
-
-Джон Медина | Правила мозга. Что стоит знать о мозге вам и вашим детям (2018) [PDF, FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что 26 минут сна могут повысить вашу производительность на 34%? Что мозг во сне не прекращает свою деятельность и бывает даже активнее, чем в периоды бодрствования? Что мужчины и женщины воспринимают реальность и принимают решения совсем по-разному?
-
-Мы очень мало знаем о том, как функционирует наш мозг, и не учитываем особенности его работы в нашей (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаФормат: PDF, FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1C5FCB391ADAFB80F5ACC1ED1A2AC43116E180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396421   (746765) от 15.07.2020
-
-Анна Фрейд, Зигмунд Фрейд | Теория психоанализа и «эго-психология» [сборник] (2018) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746765.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Зигмунд Фрейд, австрийский психоаналитик, психиатр и невролог, известен как основатель психоанализа, который оказал значительное влияние на психологию, медицину, социологию, антропологию, литературу и искусство XX века. Интерес к исследованиям Фрейда не угасает по сей день.
-Анна Фрейд – психолог и психоаналитик, дочь Зигмунда Фрейда. Став прямым наследником научных (   Читать дальше...   )Жанр: Психология, психоанализФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6DF62F1DC1D4017081F57E2E5725A590451CD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

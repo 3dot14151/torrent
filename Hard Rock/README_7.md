@@ -6,7 +6,7 @@ Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801035.jpg" />
+  <img src="Z:/picture/008/save_picture_801035.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Uriah Heep - Demons and Wizards (1972) Remastered, 2017, Sanctuary Records Group
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800431.jpg" />
+  <img src="Z:/picture/008/save_picture_800431.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Deep Purple - Knocking At Your Back Door (1997) [MP3|320 Kbps] <Hard Rock, Class
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798692.jpg" />
+  <img src="Z:/picture/008/save_picture_798692.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Magnum - Lost on the Road to Eternity (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797437.jpg" />
+  <img src="Z:/picture/008/save_picture_797437.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wild Boyz - Unleashed! (1991) Polaris Records [MP3|320 Kbps] <Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797426.jpg" />
+  <img src="Z:/picture/008/save_picture_797426.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Devil’s Gun - Dirty ‘n’ Damned (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796398.jpg" />
+  <img src="Z:/picture/008/save_picture_796398.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Whitesnake - The Purple Tour: Live (2018) [MP3|320 Kbps] <Hard-Rock, Classic-Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796257.jpg" />
+  <img src="Z:/picture/008/save_picture_796257.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ One Desire - Midnight Empire (2020) [MP3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795885.jpg" />
+  <img src="Z:/picture/008/save_picture_795885.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sunstorm - Edge Of Tomorrow (2016) Japanese Edition [MP3|320 кб/с] <Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795450.jpg" />
+  <img src="Z:/picture/008/save_picture_795450.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sixx: A.M. - Prayers For The Damned, Vol.1 (2016) [MP3|320 кб/с] <Hard Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795449.jpg" />
+  <img src="Z:/picture/008/save_picture_795449.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ruxt - Behind The Masquerade (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793424.jpg" />
+  <img src="Z:/picture/008/save_picture_793424.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Area 55 - One Ocean (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792574.jpg" />
+  <img src="Z:/picture/008/save_picture_792574.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Extreme - Extreme II : Pornograffitti (A Funked Up Fairytale) (1990) Remastered,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791510.jpg" />
+  <img src="Z:/picture/008/save_picture_791510.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Foreigner & Aerosmith - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790659.jpg" />
+  <img src="Z:/picture/008/save_picture_790659.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Bon Jovi & Guns N' Roses - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790638.jpg" />
+  <img src="Z:/picture/008/save_picture_790638.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ ZZ Top & Van Halen - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790626.jpg" />
+  <img src="Z:/picture/008/save_picture_790626.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Heaven - Bent (1982) Unofficial, 1999, Heatsink Records [MP3|320 Kbps] <Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789835.jpg" />
+  <img src="Z:/picture/008/save_picture_789835.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Deep Purple - Turning to Crime (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787345.jpg" />
+  <img src="Z:/picture/008/save_picture_787345.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Black Rainbows - Cosmic Ritual Supertrip (2020) [MP3|320 Kbps] <Hard Rock, Psych
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786875.jpg" />
+  <img src="Z:/picture/008/save_picture_786875.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AC/DC - Melbourne 1974 (2017) Live [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786295.jpg" />
+  <img src="Z:/picture/008/save_picture_786295.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sixgun Renegades - Sixgun Renegades (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783771.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ McQueen Street - McQueen Street (1991) 1992, SBK Records [MP3|320 Kbps] <Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782121.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Sweet - Funny How Sweet Co-Co Can Be (1971) RCA [MP3|320 Kbps] <Hard Rock, G
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781703.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Alice Cooper - The Sound of A (2018) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779634.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779109.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Blackwater Park - Dirt Box (1971) Remastered, 2015, Long Hair [MP3|320 кб/с] 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776935.jpg" />
+  <img src="Z:/picture/008/save_picture_776935.jpg" />
 </div>
 
 

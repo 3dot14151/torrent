@@ -1,3 +1,57 @@
+###  Публикация: 402878   (803301) от 21.05.2013
+
+Крепостная актриса (1963) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803301.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам либретто Е. Геркена.
+Настя Батманова — бывшая крепостная, красавица, стала прославленной актрисой придворного театра. Посмотрев мир, завоевав Париж, она возвращается домой и попадает в роскошные залы особняка Кутайсова, в окружение дам и гусаров. Там она сталкивается с любовными переживаниями…Производство: СССР / ЛенфильмЖанр: Мюзикл, Комедия, МелодрамаРежиссер: Роман ТихомировАктеры: Тамара Семина, Евгений Леонов, Дмитрий Смирнов, Сергей Юрский, Гренада Мнацаканова, Александр Потапов, Сергей Филиппов, Гликерия Богданова-Чеснокова, Марина Полбенцева, Е. Орлов (II), Е. ЛемкеПродолжительность: 01:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B886863E301FA5A59E8DC851214D6DFC89D62D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199587   (800351) от 17.01.2018
+
+Моя жена – бабушка (1976) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лирическая комедия по мотивам рассказа эстонского писателя Эрни Крустена "Новорожденный".
+Главный герой -учитель - все свое свободное время посвящает сочинительству. До поры до времени домочадцы относились к нему с трепетом и бережно оберегали его покой, чтобы случайно не спугнуть вдохновение. Но в один прекрасный день в семье появился младенец, сразу же (   Читать дальше...   )Производство: СССР / ТаллинфильмЖанр: КомедияРежиссер: Вирве АруояАктеры: Аарне Юкскюла, Ита Эвер, Раили Джоеаар, Лембит Ульфсак, Анне Веэсаар, Мартин Вейнманн, Лиина Рандмаа, Лембит ПетерсонСубтитры: Эстонские (вшитые не отключаемые)Продолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2805E32FB907698A2E58D9FBAE411CB54625A50B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199734   (800225) от 17.01.2018
 
 Дети солнца (1985) DVDRip (серии 1-2 из 2)
@@ -6,7 +60,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800225.jpg" />
+  <img src="Z:/picture/008/save_picture_800225.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798393.jpg" />
+  <img src="Z:/picture/008/save_picture_798393.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798092.jpg" />
+  <img src="Z:/picture/008/save_picture_798092.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797378.jpg" />
+  <img src="Z:/picture/008/save_picture_797378.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796950.jpg" />
+  <img src="Z:/picture/008/save_picture_796950.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796942.jpg" />
+  <img src="Z:/picture/008/save_picture_796942.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796891.jpg" />
+  <img src="Z:/picture/008/save_picture_796891.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796887.jpg" />
+  <img src="Z:/picture/008/save_picture_796887.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796314.jpg" />
+  <img src="Z:/picture/008/save_picture_796314.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796199.jpg" />
+  <img src="Z:/picture/008/save_picture_796199.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795430.jpg" />
+  <img src="Z:/picture/008/save_picture_795430.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795308.jpg" />
+  <img src="Z:/picture/008/save_picture_795308.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794679.jpg" />
+  <img src="Z:/picture/008/save_picture_794679.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794181.jpg" />
+  <img src="Z:/picture/008/save_picture_794181.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794109.jpg" />
+  <img src="Z:/picture/008/save_picture_794109.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793820.jpg" />
+  <img src="Z:/picture/008/save_picture_793820.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792987.jpg" />
+  <img src="Z:/picture/008/save_picture_792987.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792951.jpg" />
+  <img src="Z:/picture/008/save_picture_792951.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792917.jpg" />
+  <img src="Z:/picture/008/save_picture_792917.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792854.jpg" />
+  <img src="Z:/picture/008/save_picture_792854.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792811.jpg" />
+  <img src="Z:/picture/008/save_picture_792811.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792189.jpg" />
+  <img src="Z:/picture/008/save_picture_792189.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792109.jpg" />
+  <img src="Z:/picture/008/save_picture_792109.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792058.jpg" />
+  <img src="Z:/picture/008/save_picture_792058.jpg" />
 </div>
 
 
@@ -619,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13617BB48E36843C2401F72327AA5E4FE4190340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387433   (791791) от 01.06.2020
-
-Всего одна жизнь /  Bare et liv - historien om Fridtjof Nansen (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791791.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма положены наиболее значительные этапы жизни Фритьофа Нансена — известного полярного исследователя и путешественника: путешествие на пароходе «Фрам» к Северному полюсу, борьба на дипломатическом поприще за независимость Норвегии, деятельность в Лиге Наций.Производство: СССР, Норвегия / Ленфильм, Norsk Film A/SЖанр: драма, приключенияРежиссер: Сергей МикаэлянАктеры: Евгений Евстигнеев, Арне Аас, Янис Грантиньш, Кнут Уигерт, Веслемой Хаслунд, Рольф Сэнд, Йоахим Кальмейер, Джек ФьелдстадЯзык озвучки: русскийСубтитры: отсутствуетПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7517E84C9059D1CDD4AAF05860A9A49458862A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388041   (790044) от 04.06.2020
-
-Пассажир (1975) SATRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790044.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа И. Назарова "Были великой реки".
-Юноша Игорь во время аварии на барже не растерялся и проявил мужество.Производство: СССР | НовосибирсктелефильмЖанр: киноповесть, экранизация, короткометражныйРежиссер: Вадим ГнедковАктеры: Светлана Полуэктова, Игорь Корсаков, Сергей Авдеев, Евгений Лемешонок, Михаил Стрелков, Анастасия Гаршина, Альберт Дорожко, Вадим Наймушин, Валерий Чумичев, Михаил Манюнин, Дмитрий Бутенко, Станислав Байков, Игорь Баранов, Евгений СтригунСубтитры: ОтсутствуютПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7E1344F7566D2EA72C8B6736F107DFCF9DFBF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

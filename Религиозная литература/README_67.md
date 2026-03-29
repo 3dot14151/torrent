@@ -1,3 +1,85 @@
+###  Публикация: 1243430   (492207) от 27.08.2018
+
+Н.С. Посадский (сост.) | Страсти (2017) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познание себя — это основа духовной жизни. Однако увидеть свои грехи не так просто. И ещё труднее бывает разглядеть в себе то, что их порождает, — укоренившиеся в душе страсти. В этой книге рассказывается о недугах, поражающих человеческую душу, — страстях и греховных навыках, отдаляющих от Бога и лишающих вечной жизни.
+
+Издание предназначено для самого широкого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD562F3E0FD6D1C29B5E5B75D6FFC7B9B9032E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404643   (491318) от 26.08.2020
+
+Ю. Коннова (сост.) | Возлюбим покаяние. По творениям святителя Тихона Задонского (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_491318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений святителя Тихона Задонского о покаянном делании христианина. В своих творениях святитель Тихон учит нас тому, в чём заключается суть и необходимость покаяния перед Богом в своих грехах для каждого христианина, каковы этапы и условия покаяния и исповеди, а также духовные плоды покаянного подвига.
+
+Издание рассчитано (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CF297CF7E912D51D1F3F7CFC9079AA84DF7E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820726   (490481) от 13.09.2014
+
+Ньошул Кхенпо Ринпоче | Естественное Великое Совершенство. Учения Дзогчена и Ваджрные песни (2001) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490481.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Нам не следует впадать в сектантские предрассудки и в критиканство. Время от времени в разных буддийских странах или в разных Учениях утверждается: `Такие божества, как Ваджрадхара, не имеют ничего общего с Буддой. Это другое Учение, оно смешано с Индуизмом. Божества просто похожи на божеств индуистов, это не чистый Буддизм. В нем нет божеств и творца, он опирается только на природу Будды`. Или: `Только тибетский Буддизм может принести подлинное Просветление в течение одной жизни`. Это заблуждение, необъективность, (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3963B387EAA43F7445B0FEB1004F39C1016EB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158838   (490188) от 17.08.2017
 
 Иеромонах Серафим (Параманов) | О почитании святых мощей (2004) [PDF, DJVU]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490188.jpg" />
+  <img src="Z:/picture/008/save_picture_490188.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490186.jpg" />
+  <img src="Z:/picture/008/save_picture_490186.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490169.jpg" />
+  <img src="Z:/picture/008/save_picture_490169.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489529.jpg" />
+  <img src="Z:/picture/008/save_picture_489529.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488226.jpg" />
+  <img src="Z:/picture/008/save_picture_488226.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488134.jpg" />
+  <img src="Z:/picture/008/save_picture_488134.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486136.jpg" />
+  <img src="Z:/picture/008/save_picture_486136.jpg" />
 </div>
 
 
@@ -192,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486135.jpg" />
+  <img src="Z:/picture/008/save_picture_486135.jpg" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485987.jpg" />
+  <img src="Z:/picture/008/save_picture_485987.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485941.jpg" />
+  <img src="Z:/picture/008/save_picture_485941.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485705.jpg" />
+  <img src="Z:/picture/008/save_picture_485705.jpg" />
 </div>
 
 
@@ -300,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484789.jpg" />
+  <img src="Z:/picture/008/save_picture_484789.jpg" />
 </div>
 
 
@@ -326,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481953.jpg" />
+  <img src="Z:/picture/008/save_picture_481953.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481857.jpg" />
+  <img src="Z:/picture/008/save_picture_481857.jpg" />
 </div>
 
 
@@ -381,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481824.jpg" />
+  <img src="Z:/picture/008/save_picture_481824.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481628.jpg" />
+  <img src="Z:/picture/008/save_picture_481628.jpg" />
 </div>
 
 
@@ -433,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481482.jpg" />
+  <img src="Z:/picture/008/save_picture_481482.jpg" />
 </div>
 
 
@@ -461,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480079.jpg" />
+  <img src="Z:/picture/008/save_picture_480079.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480066.jpg" />
+  <img src="Z:/picture/008/save_picture_480066.jpg" />
 </div>
 
 
@@ -513,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480065.jpg" />
+  <img src="Z:/picture/008/save_picture_480065.jpg" />
 </div>
 
 
@@ -539,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480012.jpg" />
+  <img src="Z:/picture/008/save_picture_480012.jpg" />
 </div>
 
 
@@ -565,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479998.jpg" />
+  <img src="Z:/picture/008/save_picture_479998.jpg" />
 </div>
 
 
@@ -591,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479872.jpg" />
+  <img src="Z:/picture/008/save_picture_479872.jpg" />
 </div>
 
 
@@ -604,87 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:694491F37561499886F16EE5733892CCC94D081D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822788   (479865) от 18.09.2014
-
-Сергей Иваненко | Саентология и бизнес (2011) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказано о том, что такое Саентология и каким образом ее нравственные принципы, а также технология управления, разработанная Роном Хаббардом, помогают предпринимателям добиваться успеха. Автор побывал на нескольких процветающих предприятиях Московского региона и Санкт-Петербурга, владельцы которых используют технологию управления Хаббарда. Живые впечатления от встреч с бизнесменами и сотрудниками компаний доказывают правильность народной мудрости: лучше один раз увидеть, чем сто раз услышать.
-Сергей (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFA7552196A7D57B0EC59BC62DA5925B0A72898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319727   (479413) от 14.08.2019
-
-И.А. Гусева (сост.) | Как жить по нагорной проповеди сегодня (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор-составитель, руководствуясь Писанием и Преданием Православной Церкви, предлагает задуматься над вопросами, важными для каждого человека, независимо от его мирской опытности, профессиональной и социальной принадлежности.
-
-Как понимали Нагорную проповедь Святые отцы и учителя церкви? Откровение Божие о мире и человеке много веков благоговейно принималось Церковью, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5775CC328324122FB1AFC6C056870DD04E4284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938950   (477922) от 20.09.2015
-
-Н.И. Сагарда, А.И. Сагарда | Патрология (2004) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор церковной истории, профессор Николай Иванович Сагарда (1870-1943 ?) является создателем фундаментального и единственного на сей день полного курса Лекций по Патрологии (Первая кафедра) в России. Он преподавал в Санкт-Петербургской Духовной Академии в 1905-1918-х годах и до сих пор его Лекции (существующие лишь в литографированном с машинописи виде) оставались (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1446D2B6309BEC882C58E76E42D00ED0B6D696
 ```
 
 https://mybot314.ru/tekegram_catalog/

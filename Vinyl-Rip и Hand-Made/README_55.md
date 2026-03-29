@@ -1,3 +1,234 @@
+###  Публикация: 1595313   (176126) от 04.12.2022
+
+Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nuclear Assault — американская трэш-метал/кроссовер-трэш группа, основанная в 1984 году бас-гитаристом Anthrax Дэнни Лилкером.1986 - Game Over + The Plague (EP)
+1988 - Survive
+1989 - Handle With Care
+1991 - Out Of OrderЖанр: Thrash MetalПродолжительность: 04:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595112   (176042) от 04.12.2022
+
+Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <AOR/Hard Rock; Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джо Линн Тёрнер (англ. Joe Lynn Turner; настоящее имя Джозеф Артур Марк Линквито, англ. Joseph Arthur Mark Linquito; род. 2 августа 1951, Хакенсак, Нью-Джерси) — американский певец, а также автор песен, известный по выступлениям в группах Fandango, Rainbow, Deep Purple, Yngwie Malmsteen’s Rising Force, HTP, Mother's Army.1985 - Rescue You
+1995 - Nothing's Changed
+1997 - Under Cover
+1998 - Hurry Up And WaitЖанр: AOR/Hard Rock; Heavy MetalПродолжительность: 09:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429650   (175880) от 07.12.2020
+
+Георги Бейков, Ваня Цокова (Дуо Нове) - Завръщане (1983) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175880.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Земя
+A2 Спомен подир спомен
+A3 Циганката
+A4 Любовта, която остава(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429648   (175788) от 07.12.2020
+
+Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175788.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Computer-Karriere
+A2 Flieg Mit Mir
+A3 Jahreszeiten
+A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668086   (175410) от 10.10.2023
+
+Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Behind the Scenery - Melodic Death Metal группа из Германии.1997 - Nocturnal Beauty Of A Dying Land
+2000 - ...of Honesty Forbidden
+2004 - RetroviseurЖанр: Melodic Death MetalПродолжительность: 02:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668144   (174595) от 11.10.2023
+
+Чёрный Кофе - Белый Ветер (2002) [FLAC|Lossless|image + .cue] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Убытие
+02. Я Не Ранен - Я Убит
+03. Девятый День(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430188   (174233) от 09.12.2020
+
+VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 гг. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174233.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Игры - Освобождение (I Want To Be Free)
+A2 Алиса - Мое Поколение (My Generation)
+A3 Присутствие - Выйди Вон (Get Out)
+A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085375   (173820) от 21.12.2016
+
+Александр Барыкин - Букет (1988) [WavPack|192/24|image + .cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Букет (3:38)
+02. Дождь И Снег (4:36)
+03. Осенний Парк (5:05)
+04. Голос Твой (5:26)(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668137   (173817) от 12.10.2023
 
 Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
@@ -6,7 +237,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173817.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173783.jpg" />
+  <img src="Z:/picture/004/save_picture_173783.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173410.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173246.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173223.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -178,7 +409,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -207,7 +438,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172981.jpg" />
 </div>
 
 
@@ -236,7 +467,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -265,7 +496,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172684.jpg" />
 </div>
 
 
@@ -294,7 +525,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172683.jpg" />
 </div>
 
 
@@ -321,7 +552,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172682.jpg" />
 </div>
 
 
@@ -350,7 +581,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172673.jpg" />
 </div>
 
 
@@ -379,7 +610,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172644.jpg" />
 </div>
 
 
@@ -408,7 +639,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172602.jpg" />
 </div>
 
 
@@ -437,7 +668,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172592.jpg" />
 </div>
 
 
@@ -466,7 +697,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172323.jpg" />
 </div>
 
 
@@ -495,7 +726,7 @@ Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Sax
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172211.jpg" />
 </div>
 
 
@@ -509,238 +740,6 @@ A1 Toki Ni Wa Haha No Nai Ko No Yoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670413   (172141) от 20.10.2023
-
-Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Castaway (02:31)
-A2. Genesis (06:04)
-A3. Spirits Will Collide (04:39)
-A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670294   (172120) от 20.10.2023
-
-Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172120.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Morning Has Broken
-A2 I Believe
-A3 Kumbayah
-A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670597   (171948) от 21.10.2023
-
-Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171948.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Beyond Measure (01:31)
-A2. Blue Dot (03:08)
-A3. Drifting and Dreaming (04:26)
-A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670637   (171940) от 21.10.2023
-
-Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171940.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Chromatic Ridge (03:44)
-A2. Life Is but a Dream (03:30)
-A3. Yucky Lung (01:22)
-A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670505   (171830) от 21.10.2023
-
-Мираж - Звёзды нас ждут (1987-1988) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171830.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (42:50)
-
-[6:03] 1. Звезды Нас Ждут
-[4:19] 2. Видео(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261C68AEFD6A04F25E52A6290E8508899A3C06D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670917   (171743) от 22.10.2023
-
-Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rival Sons — американская блюз-рок-группа из Лонг-Бич, Южная Калифорния.2009 - Before The Fire
-2010 - Prime Cuts (EP)
-2011 - Pressue and Time
-2012 - Head DownЖанр: Blues Rock, Hard RockПродолжительность: 06:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670844   (171738) от 22.10.2023
-
-Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171738.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tony Allen - Love Letters In The Sand
-A2 Tony Allen - He'll Have To Go
-A3 Tony Allen - Forgiving You Was Easy
-A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671189   (171583) от 23.10.2023
-
-Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
-2003 - Deja Entendu
-2006 - The Devil And God Are Raging Inside Me
-2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
 ```
 
 https://mybot314.ru/tekegram_catalog/

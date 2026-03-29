@@ -1,3 +1,107 @@
+###  Публикация: 838765   (346532) от 07.11.2014
+
+Клуб Винкс: Тайна морской бездны / Winx Club: Il mistero degli abissi (2014) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трикс вернулись! Они хотят завладеть Императорским Троном, чтобы активировать огромную силу, но случайно будят Политею — злую нимфу, до сих пор проклятую тремя Древними Ведьмами Прородительницами. Она готова заключить сделку с Трикс. Политея рассказывает им о том, что для активации Трона им нужно освободить Тританнуса из Обливиона, но до этого им нужно заполучить (   Читать дальше...   )Жанр: Мультфильм, фэнтези, приключения, семейный, полнометражныйРежиссер: Иджинио СтраффиАктеры: Летиция Чиампа, Перла Либератори, Илария Латини, Джемма Донати, Домитилья Д’амико, Лаура Ленги, Марко Вивио, Алессандра Коромпай, Татьяна Десси, Федерика Де БортолиПеревод: ДублированныйПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D36FEE4EB2FF65CCCAA6024F4A8009020BA959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257105   (345510) от 12.11.2010
+
+Даша следопыт: Сила щенков / Dora The Explorer: Puppy Power! (2007) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особенностью данного мультфильма является общение Даши со зрителями. Она постоянно просит то что-нибудь сказать, то попрыгать, то посмотреть и найти что-то на экране. План мультфильмов всегда одинаковый. Девочка Даша собирается в поход под разными предлогами. Дорогу ей подсказывает Карта (это её подруга), ей всегда приходится пройти через 3 основные точки, последняя (   Читать дальше...   )Жанр: Рисованая анимация, Детский, ПриключенияРежиссер: Генри Мэдден, Гари КонрадПерсонажи: Даша, Диего, Башмачок, Карта и др.Перевод: Полный дубляж, вкл. песниПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BEDAC3CA850D74FD8781C0CDDF4C31AA04DCC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 409985   (345476) от 13.11.2011
+
+Лего Звездные Войны: Падаванская Угроза / Lego Star Wars: The Padawan Menace (2011) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа падаванов возвращается с экскурсии. Мастер Йода ведет в их галактический сенат но чувствует возмущение в силе и должен их покинуть.Жанр: МультфильмПеревод: Полное дублированиеПродолжительность: ~ 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453AB8DF67B2FFB65C75799912C96248163350D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839345   (341815) от 09.11.2014
+
+Лего. Новые хроники Йоды: Побег из храма джедаев / LEGO. The New Yoda Chronicles: Escape from the Jedi Temple (2014) SATRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341815.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета серии - история о том, как недальновидность Люка подвергает опасности его друзей, которые чуть было не попадают в руки Дарта Вейдера. Свидетелями этого эпизода становятся мудрый гранд-мастер Йода и призрак легендарного джедая Оби-Ван Кеноби. Они решают серьезно заняться тренировками Люка. Для этой цели им может послужить последний Джедайский голокрон.Жанр: Мультфильм, приключения, короткометражныйРежиссер: Майкл ХэгнерАктеры: Эрик Бауза, Майкл Дэйнджерфилд, Энтони Дэниелс, Тревор Дивэлл, Брайан Добсон, Хезер Дорксен, Майкл ДонованПеревод: ДублированныйПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633A3BB2DA955FE69833EE9AEBBBE354890459EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 839127   (341733) от 09.11.2014
 
 Клуб Винкс: Тайна морской бездны / Winx Club: Il mistero degli abissi (2014) WEB-DLRip
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341733.jpg" />
+  <img src="Z:/picture/008/save_picture_341733.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339939.jpg" />
+  <img src="Z:/picture/008/save_picture_339939.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339893.jpg" />
+  <img src="Z:/picture/008/save_picture_339893.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339800.jpg" />
+  <img src="Z:/picture/008/save_picture_339800.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339118.jpg" />
+  <img src="Z:/picture/008/save_picture_339118.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338343.jpg" />
+  <img src="Z:/picture/008/save_picture_338343.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337753.jpg" />
+  <img src="Z:/picture/008/save_picture_337753.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337309.jpg" />
+  <img src="Z:/picture/008/save_picture_337309.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335560.jpg" />
+  <img src="Z:/picture/008/save_picture_335560.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334510.jpg" />
+  <img src="Z:/picture/008/save_picture_334510.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Winx Club: Волшебное приключение / Winx Club: Magic Adventur
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331558.jpg" />
+  <img src="Z:/picture/008/save_picture_331558.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329935.jpg" />
+  <img src="Z:/picture/008/save_picture_329935.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329688.jpg" />
+  <img src="Z:/picture/008/save_picture_329688.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328963.jpg" />
+  <img src="Z:/picture/008/save_picture_328963.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328724.jpg" />
+  <img src="Z:/picture/008/save_picture_328724.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327270.jpg" />
+  <img src="Z:/picture/008/save_picture_327270.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326296.jpg" />
+  <img src="Z:/picture/008/save_picture_326296.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326141.jpg" />
+  <img src="Z:/picture/008/save_picture_326141.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324431.jpg" />
+  <img src="Z:/picture/008/save_picture_324431.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323467.jpg" />
+  <img src="Z:/picture/008/save_picture_323467.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323416.jpg" />
+  <img src="Z:/picture/008/save_picture_323416.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322977.jpg" />
+  <img src="Z:/picture/008/save_picture_322977.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD791CA0CB22059332DD48BAC45EBE2EFFF5A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259168   (322717) от 02.11.2018
-
-Суперсемейка 2 / Incredibles 2 (2018) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322717.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Брэд БердПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0706C0FC08020FC30A9CDAF21E821FB30AEF7D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727658   (322129) от 27.11.2013
-
-Железный человек и Халк: Союз героев / Iron Man & Hulk: Heroes United (2013) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Халк и Железный человек объединили свои невероятные силы во имя борьбы за спасение человечества, а в это время еще один сверхчеловек стал представлять угрозу для Халка, он телепортируется и постоянно получает улучшенную ДНК, что делает его почти неуязвимым. Только вдвоем можно сразить грозного врага.Производство: СШАЖанр: Мультфильм, Фантастика, БоевикРежиссер: Лео РайлиАктеры: Адриан Пасдар, Ди Брэдли Бейкер, Фред ТатаскьорПеревод: ДублированныйЯзык субтитров: ОтсутствуютПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BEBE63856117DFFDDD50FCE3357E85AC788245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727665   (321807) от 27.11.2013
-
-Железный человек и Халк: Союз героев / Iron Man & Hulk: Heroes United (2013) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321807.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Халк и Железный Человек объединят усилия. Поводом дружбы зеленого гиганта и изобретателя-плейбоя станет угроза со стороны Зззакса (Zzzax) - существа, состоящего из чистой энергии и способного поглощать человеческий разум.
-• Зззакс хорошо знаком поклонникам Халка. Это существо было создано во время террористической атаки на ядерную станцию, вызвавшей взрыв сооружения. (   Читать дальше...   )Производство: США | Marvel StudiosЖанр: Мультфильм, Фантастика, БоевикРежиссер: Лео РайлиАктеры: Адриан Пасдар, Ди Брэдли Бейкер, Фред ТатаскьорПеревод: Дублированный (Лицензия)Продолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA438E3B25DFC4F13CC3AD2AAC801C2B974218CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958755   (321371) от 22.11.2015
-
-Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) DCPRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321371.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Скарт - любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: США / Blue Sky StudiosЖанр: Мультфильм, Короткометражка, КомедияРежиссер: Майк ТёрмайерАктеры: Крис УэджПеревод: Дублированный (Лицензия)Продолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A194DE9988632BE48935F01AE390B60FE60145F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

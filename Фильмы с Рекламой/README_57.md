@@ -1,3 +1,29 @@
+###  Публикация: 1064365   (425669) от 20.10.2016
+
+Наши жёны / Nos femmes (2015) BDRip [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дружба между Максом, Полем и Симоном длится уже 35 лет и никогда не давала трещин. Каждый их них состоялся в профессии, а вот в личной жизни - не все так однозначно. Решив однажды встретиться на квартире Макса, вместе поужинать и перекинуться в карты, никто не предполагал, что на повестке будет стоять совсем иной вопрос. Симон сообщает, что убил свою жену и просит (   Читать дальше...   )Производство: ФранцияЖанр: Драма, КомедияРежиссер: Ришар БерриАктеры: Даниель Отой, Ришар Берри, Тьерри Лермитт, Полин Лефевр, Мирей Перье, Паскаль Луанж, Жозефин Берри, Мариса Бруни-Тедески, Акела Сари.Перевод: Многоголосый закадровый, профессиональный (GreenРай Studio)Продолжительность: 01:36:45Реклама: Присутствуют голосовые и текстовые вставки рекламы. Начальный рекламный ролик вырезан.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCCA3ED526F64171DFBD0C7E0B78499920A0273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324500   (425087) от 09.09.2019
 
 Божественная ярость / Saja (2019) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425087.jpg" />
+  <img src="Z:/picture/008/save_picture_425087.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423932.jpg" />
+  <img src="Z:/picture/008/save_picture_423932.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422887.jpg" />
+  <img src="Z:/picture/008/save_picture_422887.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422005.jpg" />
+  <img src="Z:/picture/008/save_picture_422005.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420461.jpg" />
+  <img src="Z:/picture/008/save_picture_420461.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420460.jpg" />
+  <img src="Z:/picture/008/save_picture_420460.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420352.jpg" />
+  <img src="Z:/picture/008/save_picture_420352.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417334.jpg" />
+  <img src="Z:/picture/008/save_picture_417334.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417332.jpg" />
+  <img src="Z:/picture/008/save_picture_417332.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417196.jpg" />
+  <img src="Z:/picture/008/save_picture_417196.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416444.jpg" />
+  <img src="Z:/picture/008/save_picture_416444.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416312.jpg" />
+  <img src="Z:/picture/008/save_picture_416312.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416304.jpg" />
+  <img src="Z:/picture/008/save_picture_416304.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414866.jpg" />
+  <img src="Z:/picture/008/save_picture_414866.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414380.jpg" />
+  <img src="Z:/picture/008/save_picture_414380.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414235.jpg" />
+  <img src="Z:/picture/008/save_picture_414235.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414213.jpg" />
+  <img src="Z:/picture/008/save_picture_414213.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414209.jpg" />
+  <img src="Z:/picture/008/save_picture_414209.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413298.jpg" />
+  <img src="Z:/picture/008/save_picture_413298.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412712.jpg" />
+  <img src="Z:/picture/008/save_picture_412712.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411595.jpg" />
+  <img src="Z:/picture/008/save_picture_411595.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411188.jpg" />
+  <img src="Z:/picture/008/save_picture_411188.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411029.jpg" />
+  <img src="Z:/picture/008/save_picture_411029.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410921.jpg" />
+  <img src="Z:/picture/008/save_picture_410921.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410590.jpg" />
+  <img src="Z:/picture/008/save_picture_410590.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1150D1C1567EFEF52EEFA3E4C670423D5E5790BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252446   (408918) от 05.10.2018
-
-Придержи тьму / Hold the Dark (2018) WEB-DL [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький городок на Аляске. Бесследно исчезает игравший на улице шестилетний мальчик. Поскольку в округе уже были случаи похищения детей волками, мать исчезнувшего Медора Слоун пишет письмо исследователю и специалисту по волкам Расселлу Кору с просьбой выследить и убить того волка, который забрал её сына. Женщина считает, что должна что-то предъявить мужу, когда (   Читать дальше...   )Производство: США / Addictive Pictures,Film Science,VisionChaos ProductionsЖанр: Приключения, Драма, Детектив, ТриллерРежиссер: Джереми СолньеАктеры: Джеффри Райт, Beckam Crawford, Райли Кио, Майкл Тэйлс, Issac Bird, Joseph Whitebird, Зандус Сноу, Джулиан Шэмп, Александр Скарсгард, Конор БоруПеревод: Многоголосый закадровый, профессиональный (Jaskier)Субтитры: ОтсутствуютПродолжительность: 02:05:50Реклама: Присутствуют вставки аудио рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043896BF06A26A6ACDDBDCB9D6AE05536F46A944
 ```
 
 https://mybot314.ru/tekegram_catalog/

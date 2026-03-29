@@ -1,3 +1,107 @@
+###  Публикация: 1258812   (334437) от 31.10.2018
+
+NGW: Остров муссонов. Паутина жизни / Island of the Monsoon. Web of life (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сериал посвящен удивительному миру дикой природы чарующего острова Шри Ланка - этого мира, заполненного экстримом. От влажных, насыщенных водными испарениями джунглей на юге, до выжженной сухой восточной части, этот небольшой остров - словно мозаика из различных сред обитания и микроклиматов.Производство: Великобритания, Blue Ant Media Solutions Inc., Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0537D3790F650016662A0D718B286F945AE9384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258821   (334432) от 31.10.2018
+
+NG: Мегасооружения: музей Лувр Абу Даби / Megastructures. Louvre Abu Dhabi (2017) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расположившийся на берегу Персидского Залива художественный музей Лувр Абу-Даби, спроектированный архитектором с мировым именем Жаном Нувелем, построен по ассоциации с парижским Лувром и является хранилищем почти 400 шедевров мировой живописи. Массивный стальной купол весом почти в 7000 тонн, прикрывающий залы музея - настоящее чудо инженерной мысли, аналогов которому (   Читать дальше...   )Производство: Новая Зеландия, NHNZ Ltd, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Патрик ЛадуэтетПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8D79C04C76838CCB195855BA46FC483E9B7E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580190   (331714) от 30.09.2022
+
+Возрождение рая в Горонгосе / Gorongosa: Paradise Reborn (2022) WEBRip [H.264/720p] [VO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальный парк Горонгоса был известен как африканский рай, но война почти уничтожила его. Теперь это место величайшей реставрации дикой природы в истории.Производство: СШАЖанр: документальныйРежиссер: Лиза ФейтПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133701F4D909F34D4F5AF5C6D93E6E6D6C513B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170861   (322971) от 07.11.2017
+
+NG: Через миллион лет / Year Million (2017) HDTVRip  [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
+
+>>След.
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это новый сериал, посвященный прогнозам развития жизни в ближайшем и отдаленном будущем, когда искусственный интеллект будет буквально повсюду, а достижения медицины и биологии позволят людям жить сотни лет.Производство: США, RadicalMedia for National GeographicЖанр: Документально-драматический сериалРежиссер: Марк Элайджа РозенбергПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6х~00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F7F3756C21101A8257308E0C1950EDF0D2431C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259536   (318953) от 04.11.2018
 
 NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318953.jpg" />
+  <img src="Z:/picture/008/save_picture_318953.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318465.jpg" />
+  <img src="Z:/picture/008/save_picture_318465.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316873.jpg" />
+  <img src="Z:/picture/008/save_picture_316873.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316409.jpg" />
+  <img src="Z:/picture/008/save_picture_316409.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316405.jpg" />
+  <img src="Z:/picture/008/save_picture_316405.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316148.jpg" />
+  <img src="Z:/picture/008/save_picture_316148.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315957.jpg" />
+  <img src="Z:/picture/008/save_picture_315957.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315876.jpg" />
+  <img src="Z:/picture/008/save_picture_315876.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315036.jpg" />
+  <img src="Z:/picture/008/save_picture_315036.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314014.jpg" />
+  <img src="Z:/picture/008/save_picture_314014.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312524.jpg" />
+  <img src="Z:/picture/008/save_picture_312524.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311832.jpg" />
+  <img src="Z:/picture/008/save_picture_311832.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311531.jpg" />
+  <img src="Z:/picture/008/save_picture_311531.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309311.jpg" />
+  <img src="Z:/picture/008/save_picture_309311.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309118.jpg" />
+  <img src="Z:/picture/008/save_picture_309118.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308809.jpg" />
+  <img src="Z:/picture/008/save_picture_308809.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307504.jpg" />
+  <img src="Z:/picture/008/save_picture_307504.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305345.jpg" />
+  <img src="Z:/picture/008/save_picture_305345.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303268.jpg" />
+  <img src="Z:/picture/008/save_picture_303268.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303149.jpg" />
+  <img src="Z:/picture/008/save_picture_303149.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302068.jpg" />
+  <img src="Z:/picture/008/save_picture_302068.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298671.jpg" />
+  <img src="Z:/picture/008/save_picture_298671.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEC4B47C0286D7DECCAECA25131B7703D5FA8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262124   (298670) от 13.11.2018
-
-NG: Из истории Второй мировой войны. Гражданская война / Inside WWII. The People's War (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солдаты и гражданские лица рассказывают леденящие душу истории о самых крупных баталиях Второй мировой войны, и о том, как они умирали день за днем, час за часом, секунда за секундой.Производство: США, National GeographicЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA52ABC6099A1A60301BB4A37CD3AF6FDB2C858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262104   (298602) от 13.11.2018
-
-NGW: Дикая природа Перу: арена боев – Анды. Добро пожаловать в джунгли / Wild Peru: Andes Battleground (2018) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует три Перу: одна часть представляет собой дождевые леса, другая - предгорья Анд, а третья - пустынное побережье Тихого океана. В течение двух часов вы познакомитесь со всеми этими такими различными средами обитания.
-В юго-восточном Перу есть регион под названием "Мадре-де-Дьос", который представляет собой огромный ливневый лес. Но несмотря на то, (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262111   (298593) от 13.11.2018
-
-NGW. Голый землекоп: Самый странный супергерой в природе / Naked Molerat. Nature's Weirdest Superhero (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внешний вид - это еще не все. Несмотря на свою неприглядную наружность, голому землекопу можно позавидовать. Он живет до преклонного возраста, никогда не болеет и практически не чувствителен к боли.Производство: Германия, Taglicht Media, ZDF and ARTE, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Герберт ОствальдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262080   (296779) от 14.11.2018
-
-NG. Космический шаттл: триумф и трагедия / The Space Shuttle: Triumph and Tragedy (2018) DVB (Серии 2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ об экстраординарной истории разработки и эксплуатации космических челноков, этих первых в мире космических кораблей многоразового использования. Задуманные еще 50 лет назад, они должны были стать новым безопасным и эффективным инструментом для освоения космоса. Развивающие скорость в 17500 миль в час, что в 13 раз быстрее, чем у Конкорда, обладающие жаропрочным (   Читать дальше...   )Производство: США, Darlow Smithson Productions Ltd., National GeographicЖанр: Документальный, исследованиеРежиссер: Энди РоббинсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4084B89AE8CD807C73B256D4E0A34878ABC14FE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

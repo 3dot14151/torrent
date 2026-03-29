@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228702.jpg" />
+  <img src="Z:/picture/005/save_picture_228702.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228639.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228504.jpg" />
+  <img src="Z:/picture/005/save_picture_228504.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228348.jpg" />
+  <img src="Z:/picture/005/save_picture_228348.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Monolith - Sentience (2020) [AAC|~340 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228176.jpg" />
+  <img src="Z:/picture/005/save_picture_228176.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Principium - Principium (2020) [AAC|~346 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228106.jpg" />
+  <img src="Z:/picture/005/save_picture_228106.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228087.jpg" />
+  <img src="Z:/picture/005/save_picture_228087.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227943.jpg" />
+  <img src="Z:/picture/005/save_picture_227943.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Melodica, Vol. 6 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227859.jpg" />
+  <img src="Z:/picture/005/save_picture_227859.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Melodica, Vol. 8 (2021) [AAC|~333 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227852.jpg" />
+  <img src="Z:/picture/005/save_picture_227852.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - Melodica, Vol. 3 (2020) [AAC|~337 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227835.jpg" />
+  <img src="Z:/picture/005/save_picture_227835.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Melodica, Vol. 4 (2020) [AAC|~329 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227820.jpg" />
+  <img src="Z:/picture/005/save_picture_227820.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ VA - Melodica, Vol. 7 (2021) [AAC|~336 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227799.jpg" />
+  <img src="Z:/picture/005/save_picture_227799.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ VA - Melodica, Vol. 2 (2020) [AAC|~333 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227789.jpg" />
+  <img src="Z:/picture/005/save_picture_227789.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ VA - Melodica, Vol. 5 (2020) [AAC|~332 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227780.jpg" />
+  <img src="Z:/picture/005/save_picture_227780.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ VA - Undiscovered Places: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227772.jpg" />
+  <img src="Z:/picture/005/save_picture_227772.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Benny Barksdale, Jr. - The Heart & Soul of Benny Barksdale, Jr. (2021) [AAC|~342
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227717.jpg" />
+  <img src="Z:/picture/005/save_picture_227717.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VA - Keep Chilling (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227710.jpg" />
+  <img src="Z:/picture/005/save_picture_227710.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227701.jpg" />
+  <img src="Z:/picture/005/save_picture_227701.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227693.jpg" />
+  <img src="Z:/picture/005/save_picture_227693.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227655.jpg" />
+  <img src="Z:/picture/005/save_picture_227655.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227647.jpg" />
+  <img src="Z:/picture/005/save_picture_227647.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ VA - Arabian Nights 2 (2020) [AAC|~329 Kbps] <Chill Out, Downtempo, Organic Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227617.jpg" />
+  <img src="Z:/picture/005/save_picture_227617.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227575.jpg" />
+  <img src="Z:/picture/005/save_picture_227575.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227572.jpg" />
+  <img src="Z:/picture/005/save_picture_227572.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - Arabian Nights (2019) [AAC|~314 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227527.jpg" />
+  <img src="Z:/picture/005/save_picture_227527.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ SkyLab Studio 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798861.jpg" />
+  <img src="Z:/picture/008/save_picture_798861.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jidenna - The Chief (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798859.jpg" />
+  <img src="Z:/picture/008/save_picture_798859.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mountain Duck 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798857.jpg" />
+  <img src="Z:/picture/008/save_picture_798857.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Allavsoft Video Downloader Converter 3.14.2.6303 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798856.jpg" />
+  <img src="Z:/picture/008/save_picture_798856.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ USDownloader 1.3.5.9 Portable (05.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798842.jpg" />
+  <img src="Z:/picture/008/save_picture_798842.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ SteerMouse 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798837.jpg" />
+  <img src="Z:/picture/008/save_picture_798837.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798834.jpg" />
+  <img src="Z:/picture/008/save_picture_798834.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ App Tamer 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798826.jpg" />
+  <img src="Z:/picture/008/save_picture_798826.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798819.jpg" />
+  <img src="Z:/picture/008/save_picture_798819.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Cacheman 10.10.0.7 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798812.jpg" />
+  <img src="Z:/picture/008/save_picture_798812.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ K-Lite Codec Pack Update 13.0.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798804.jpg" />
+  <img src="Z:/picture/008/save_picture_798804.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ BurnAware Professional 10.2 DC 04.04.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798801.jpg" />
+  <img src="Z:/picture/008/save_picture_798801.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Permute 3 v3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798792.jpg" />
+  <img src="Z:/picture/008/save_picture_798792.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ ColoFolXS 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798786.jpg" />
+  <img src="Z:/picture/008/save_picture_798786.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798785.jpg" />
+  <img src="Z:/picture/008/save_picture_798785.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
+  <img src="Z:/picture/008/save_picture_798773.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
+  <img src="Z:/picture/008/save_picture_798771.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
+  <img src="Z:/picture/008/save_picture_798768.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Downie 4 v4.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798762.jpg" />
+  <img src="Z:/picture/008/save_picture_798762.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sketch 79 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798759.jpg" />
+  <img src="Z:/picture/008/save_picture_798759.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Justus - Live From a Former Submarine Wharf in The Port of Rotterdam (2021-11-01
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798751.jpg" />
+  <img src="Z:/picture/008/save_picture_798751.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ K-Lite Codec Pack Update 16.5.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798746.jpg" />
+  <img src="Z:/picture/008/save_picture_798746.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ GoodSync Enterprise 10.9.21.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798743.jpg" />
+  <img src="Z:/picture/008/save_picture_798743.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798742.jpg" />
+  <img src="Z:/picture/008/save_picture_798742.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798740.jpg" />
+  <img src="Z:/picture/008/save_picture_798740.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Wise Data Recovery 4.12.214 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798737.jpg" />
+  <img src="Z:/picture/008/save_picture_798737.jpg" />
 </div>
 
 

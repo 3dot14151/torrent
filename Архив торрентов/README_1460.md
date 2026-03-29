@@ -6,7 +6,7 @@ Pixelmator 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721704.jpg" />
+  <img src="Z:/picture/008/save_picture_721704.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Pearson Sound - Pearson Sound (2015) [FLAC|Lossless|WEB-DL]<Experimental, Noise,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721702.jpg" />
+  <img src="Z:/picture/008/save_picture_721702.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ AnyMP4 DVD Copy 3.1.28 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721632.jpg" />
+  <img src="Z:/picture/008/save_picture_721632.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ NASCAR. Xfinity Series 2018. Rinnai 250 (24.02.2018) HDTVRip [H.264/720p-LQ] [ha
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721630.jpg" />
+  <img src="Z:/picture/008/save_picture_721630.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Mozilla Firefox 38.0 beta 7 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721622.jpg" />
+  <img src="Z:/picture/008/save_picture_721622.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Benji Bananas Adventures 1.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721610.jpg" />
+  <img src="Z:/picture/008/save_picture_721610.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ The Pirate: Caribbean Hunt 4.1 Mod [Money] [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721605.jpg" />
+  <img src="Z:/picture/008/save_picture_721605.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FS VideoBox 2.3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721591.jpg" />
+  <img src="Z:/picture/008/save_picture_721591.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Privatus 6.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721549.jpg" />
+  <img src="Z:/picture/008/save_picture_721549.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721537.jpg" />
+  <img src="Z:/picture/005/save_picture_721537.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ O&O DiskImage Professional 12.1 Build 149 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721532.jpg" />
+  <img src="Z:/picture/008/save_picture_721532.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Wise Disk Cleaner 9.7.3.690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721528.jpg" />
+  <img src="Z:/picture/008/save_picture_721528.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ WiFiSpoof 3.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721526.jpg" />
+  <img src="Z:/picture/008/save_picture_721526.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ VLC media player 2.2.4 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721493.jpg" />
+  <img src="Z:/picture/008/save_picture_721493.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ AcDisplay 3.4.2 [Ru/Multi] - Просмотр уведомлений без ра
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721448.jpg" />
+  <img src="Z:/picture/008/save_picture_721448.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ CDBurnerXP 4.5.5.5571 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721447.jpg" />
+  <img src="Z:/picture/008/save_picture_721447.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721436.jpg" />
+  <img src="Z:/picture/005/save_picture_721436.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ iCollections 6 v6.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721423.jpg" />
+  <img src="Z:/picture/008/save_picture_721423.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721417.jpg" />
+  <img src="Z:/picture/008/save_picture_721417.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ CoLocalizer Pro 7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721415.jpg" />
+  <img src="Z:/picture/008/save_picture_721415.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ DVD-Cloner 2020 v7.20.717 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721414.jpg" />
+  <img src="Z:/picture/008/save_picture_721414.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ GraphicConverter 11 v11.2.2 (build 4491) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721411.jpg" />
+  <img src="Z:/picture/008/save_picture_721411.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ TablePlus 3.7.1 (build 332) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721408.jpg" />
+  <img src="Z:/picture/008/save_picture_721408.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ pdfFactory Pro 6.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721402.jpg" />
+  <img src="Z:/picture/008/save_picture_721402.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721395.jpg" />
+  <img src="Z:/picture/008/save_picture_721395.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ ScanMyReg 3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721386.jpg" />
+  <img src="Z:/picture/008/save_picture_721386.jpg" />
 </div>
 
 

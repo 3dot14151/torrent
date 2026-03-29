@@ -1,3 +1,141 @@
+###  Публикация: 1033242   (640207) от 10.07.2016
+
+TextLab 1.2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640207.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextLab - текстовый инструмент преобразования, который позволяет Вам быстро управлять и экспортировать свой текст и данные в удобочитаемый и понятный формат. Например, если Вы копируете и вставляете JSON в примере, он предлагает утвердить и отформатировать это JSON. TextLab мудр, так как он предлагает, какие операции могли быть выполнены основанные на Вашем вводе. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 июля 2016Разработчик: Ondrej KvasnovskyПоддерживаемая ОС: OS X 10.7.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062E486747BF9ECCF9AA8CA7EF5A988B721C5866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033304   (639763) от 10.07.2016
+
+NetSpot Wi-Fi Reporter 2.1.472 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639763.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetSpot - планируем беспроводную сеть.
+Установка беспроводной сети не всегда легко. Помехи от соседних сетей и радиопомехи от электронных устройств могут вызвать серьезные проблемы с подключением.
+
+NetSpot - простой инструмент для построения, анализа и визуализации WiFi-сети, с целью создания карты покрытия, что позволит увидеть точки доступа, нагрузку каналов, определить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.11.2015Разработчик: Etwok, LLC.Поддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1894F4C9C0252B666A4341D02E2D53632DCAE8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893860   (639312) от 11.06.2015
+
+Tonality Pro 1.2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tonality — самый красивый способ лишить ваши фотографии цвета
+Tonality Pro поможет создать сногсшибательные и драматические черно-белые изображения. Tonality Pro - полноценный редактор монохромных изображений с больше чем 150 пресетами и  уникальными инструментами для творческих людей.
+Agfa, Kodak, Fuji и Ilford  обеспечивают старый взгляд на новые фотографии с помощью (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июня 2014Разработчик: Macphun SoftwareПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D28CE125A99E42DE303AC67E9591B7B28159985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033555   (638153) от 11.07.2016
+
+TunesMedic 2.2.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_638153.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesMedic - утилита для очистки  ITunes.
+TunesMedic  может решить проблемы с вашей музыкальной библиотекой, как удаление неработающих ссылок, удаление дубликатов и пустых списков воспроизведения или экспорта песни .
+
+Программа также может сделать работу iTunes быстрее, чистя кэши, папку Music или файлы обновления iOS. Помимо восстановления, TunesMedic может помочь (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июня 2016Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011BA2BB3A6A17CABB766555288774C8F35F8B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542684   (637515) от 07.04.2022
+
+MesaExif 2.4.14 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637515.jpg" />
+</div>
+
+
+###  Подробнее
+
+MesaExif — это простой в использовании и мощный процессор метаданных. Некоторые пользователи хотят редактировать все фотографии на основе одной, конкретной отредактированной фотографии. Запрос имеет смысл в отношении местоположения, заголовка, даты и времени и так далее.Тип издания: macOS SoftwareРелиз состоялся: 07.04.2022Разработчик: © Hirofumi KuramotoПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A0FD8F6CAD6CC535DAF66367A867289433A422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143196   (637337) от 17.06.2017
 
 Stock + Pro 3.7.2 [En]
@@ -6,7 +144,7 @@ Stock + Pro 3.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637337.jpg" />
+  <img src="Z:/picture/008/save_picture_637337.jpg" />
 </div>
 
 
@@ -33,7 +171,7 @@ Duplicate Finder and Remover 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637262.jpg" />
+  <img src="Z:/picture/008/save_picture_637262.jpg" />
 </div>
 
 
@@ -59,7 +197,7 @@ CSV Converter Pro 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637122.jpg" />
+  <img src="Z:/picture/008/save_picture_637122.jpg" />
 </div>
 
 
@@ -85,7 +223,7 @@ RE:Vision Effects Pluguins for Adobe PP&AE Май 2018 г. [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637087.jpg" />
+  <img src="Z:/picture/008/save_picture_637087.jpg" />
 </div>
 
 
@@ -111,7 +249,7 @@ VNC Connect Enterprise for Mac 6.9.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636952.jpg" />
+  <img src="Z:/picture/008/save_picture_636952.jpg" />
 </div>
 
 
@@ -137,7 +275,7 @@ iShowU Instant (Advanced) 1.4.10 (beta version) [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635447.jpg" />
+  <img src="Z:/picture/008/save_picture_635447.jpg" />
 </div>
 
 
@@ -164,7 +302,7 @@ PwGenerator 1.11.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635335.jpg" />
+  <img src="Z:/picture/008/save_picture_635335.jpg" />
 </div>
 
 
@@ -193,7 +331,7 @@ Tower 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634985.jpg" />
+  <img src="Z:/picture/008/save_picture_634985.jpg" />
 </div>
 
 
@@ -220,7 +358,7 @@ iZotope Ozone 9 Advanced 9.12.0 intel+M1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634915.jpg" />
+  <img src="Z:/picture/008/save_picture_634915.jpg" />
 </div>
 
 
@@ -246,7 +384,7 @@ Chatty for Facebook 2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634303.jpg" />
+  <img src="Z:/picture/008/save_picture_634303.jpg" />
 </div>
 
 
@@ -275,7 +413,7 @@ WidsMob Montage 1.20 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633684.jpg" />
+  <img src="Z:/picture/008/save_picture_633684.jpg" />
 </div>
 
 
@@ -302,7 +440,7 @@ PhotoLine v. 19.01 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633608.jpg" />
+  <img src="Z:/picture/008/save_picture_633608.jpg" />
 </div>
 
 
@@ -328,7 +466,7 @@ hr - Task timer as simple as it's name 1.2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633264.jpg" />
+  <img src="Z:/picture/008/save_picture_633264.jpg" />
 </div>
 
 
@@ -356,7 +494,7 @@ Outline 3.2203.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631836.jpg" />
+  <img src="Z:/picture/008/save_picture_631836.jpg" />
 </div>
 
 
@@ -383,7 +521,7 @@ Adobe Dreamweaver CC 2018.2 v18.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629707.jpg" />
+  <img src="Z:/picture/008/save_picture_629707.jpg" />
 </div>
 
 
@@ -410,7 +548,7 @@ WiFi Explorer 2.3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629237.jpg" />
+  <img src="Z:/picture/008/save_picture_629237.jpg" />
 </div>
 
 
@@ -439,7 +577,7 @@ Polarr Photo Editor 4.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629230.jpg" />
+  <img src="Z:/picture/008/save_picture_629230.jpg" />
 </div>
 
 
@@ -468,7 +606,7 @@ VMware Fusion Professional 7.1.2 (2779224) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629221.jpg" />
+  <img src="Z:/picture/008/save_picture_629221.jpg" />
 </div>
 
 
@@ -496,7 +634,7 @@ Day One 2 Journal + Notes 2.0.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628424.jpg" />
+  <img src="Z:/picture/008/save_picture_628424.jpg" />
 </div>
 
 
@@ -523,7 +661,7 @@ PopDo 2021.2.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627905.jpg" />
+  <img src="Z:/picture/008/save_picture_627905.jpg" />
 </div>
 
 
@@ -549,7 +687,7 @@ Red Giant Shooter Suite 12.7.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627154.jpg" />
+  <img src="Z:/picture/008/save_picture_627154.jpg" />
 </div>
 
 
@@ -560,145 +698,6 @@ Red Giant Shooter Suite -  комплект инструментов подго�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B37576655ADA23A4E10AFEDF122905AEAEB2B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909505   (627046) от 17.06.2015
-
-Adobe Dreamweaver CC 2015 (7698) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamweaver CC. Совершенно новая версия 2015 года. Создавать интерактивные веб-сайты стало быстрее и легче.
-Программное обеспечение для веб-дизайна Adobe Dreamweaver CC содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 июня 2015Разработчик: Adobe SystemsПоддерживаемая ОС: Mac OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Французский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1963E56A8182E184D9706CCF07B55547B77D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035527   (626509) от 17.07.2016
-
-Stellar Drive Clone 3.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Drive Clone – программное обеспечение, предназначенное для эффективного клонирования томов и для резервного копирования полезных данных
- 
-- Создает точную, идентичную копию вашего Mac диска на другой диск / HD
-- Клоны дисков, отформатированные с MBR (Master Boot Record)(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 мая 2016Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E1FEFFA1F7FE30F2156EFCB1BED0F6B0CDC5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035524   (625920) от 17.07.2016
-
-Enfocus PitStop Pro 13 Update 2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625920.jpg" />
-</div>
-
-
-###  Подробнее
-
-PitStop Professional — эффективный инструмент допечатной проверки, автокоррекции и редактирования документов PDF. Программа выполнена в виде подключаемого модуля Adobe Acrobat и содержит два десятка встроенных профилей Enfocus PDF Profilesс, предназначенных для проверки ключевых атрибутов PDF-файлов и автоматической коррекции типовых ошибок.
-
-Enfocus PitStop Professional (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 мая 2016Разработчик: EnfocusПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, немецкий французский и др. Русский не поддерживается.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FDB050906C027D667461EDBCDE4E07BECC2AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035530   (625906) от 17.07.2016
-
-Stellar Phoenix Video Repair 2.0.0.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Phoenix Video Repair  – Самый мощный инструмент для восстановления поврежденных видеофайлов
-Программное обеспечение может помочь вам исправить заголовки, продолжительность, искажение звука и движение в видео и фильмов, таких как MOV , MP4, M4V , M4A и F4V.  С Stellar Phoenix Video Repair, вы можете легко исправить поврежденный видео файл, сохраняя при этом (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 марта 2016Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6CEBA8520A2B88A5A8FA900374B63F15D50E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229480   (625868) от 06.06.2018
-
-CrossOver 17.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625868.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх. Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
-
-CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7491945513993FD512B4F1EBCA7CD9D7F0D74DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

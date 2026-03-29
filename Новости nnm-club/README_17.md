@@ -1,3 +1,107 @@
+###  Публикация: 865286   (1002609) от 08.01.2020
+
+Camera360 VIP 9.7.5 (Mod) [Ru] - Камера со множеством эффектов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искусство в твоих руках. Самая известная и совершенная камера, поможет вашим фотографиям быть более удивительными, забавными и интересными.Тип издания: ПираткаРелиз состоялся: 08.01.20Разработчик: PinGuo Inc.Поддерживаемая ОС: Android. 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81E617B15BBF4524705D83A29806E710182F7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350860   (1002605) от 08.01.2020
+
+Гемини / Gemini Man (2019) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоклассный киллер Генри Броган становится мишенью таинственного оперативника, который, кажется, знает наперёд каждый его шаг.Производство: Китай, США / Skydance Media, Jerry Bruckheimer Films, Fosun Group Forever PicturesЖанр: Боевик, фантастикаРежиссер: Энг ЛиАктеры: Уилл Смит, Мэри Элизабет Уинстэд, Клайв Оуэн, Бенедикт Вонг, Дуглас Ходж, Ральф Браун, Линда Эмонд, Илья Волох, Э.Дж. Бонилья, Виктор ХьюгоПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), украинские (forced, full), английскиеПродолжительность: 01:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04EAC9D58B091E2AAF680D0D1D4E27B9FD30B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 354528   (1002604) от 08.01.2020
+
+Tension / The Void / Тургор / Тургор: Голос цвета (2008-2009) [Ru] (1.01) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовясь угаснуть, душа проходит через Промежуток - серый лимб, который оживляют лишь редкие капли Цвета. Ненасытные, жуткие Братья жаждут Цвет копить; коварные, упоительные Сёстры мечтают им напиться. Когда вы используете Цвет, Промежуток и его удивительные обитатели меняются. А значит, любое действие игрока меняет весь мир. Быть может, есть и иное применение Цвету. (   Читать дальше...   )Тип издания: Lossless RepackРазработчик: Ice-Pick LodgeЖанр: Экшены, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962D470A8FE2677DF712CEBCB5555A8EE09AFBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487979   (1002444) от 09.08.2021
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) WEB-DLRip [H.264] [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть на земле одно гнилое место, откуда мечтают свалить даже самые отъявленные злодеи. Тюрьма Белль Рив — для преступников со сверхспособностями. Она же — ад. Она же — база рекрутов для суперсекретного проекта «Отряд самоубийц».Производство: США / Atlas Entertainment, DC Comics, DC Entertainment, Safran Company, The, Warner Bros.Жанр: Фантастика, комедия, боевик, приключения, фэнтезиРежиссер: Джеймс ГаннАктеры: Марго Робби, Идрис Эльба, Джон Сина, Юэль Киннаман, Джай Кортни, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Майкл Рукер, Виола ДэвисПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full - без цензуры!), Английские (full, SDH)Продолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7472DA9C3A7A5C1D5DED2D6B68029AB70CD2145F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351154   (1002121) от 10.01.2020
 
 Возможность телепортации людей пояснил «квантовый гуру»
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002121.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Micron пообещала, что новые DDR5 будут на 85% быстр
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001836.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/En] (Build 4073014/dlc) UplayRip 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001808.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ FxSound Enhancer 13.028 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001807.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Kodachi Linux 6.2 [анонимный доступ в сети] [08.26.2019] [am
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001498.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0 CR2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001487.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Lauge (with Baba Gnohm, Rütz, Matt Tondut) - Discography 63 Releases (2008-2021
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001329.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001319.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ TeamViewer 15.1.3937 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001204.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Total Commander 9.22a Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001195.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001061.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ SCUM (2018) [Ru/Multi] (0.3.67.19766/dlc) Repack Mr_Weegley [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000735.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000725.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000714.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000713.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Halo: Dilogy [En/Ru] (Rip) 2002 - 2007 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000564.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Severance: Blade of Darkness [En/Ru] (RePack/1.01) 2001 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000291.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/En] (RePack/1.0.0.3) 2012 l R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000285.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ Medal Of Honor. Warfighter: Digital Deluxe [Ru] (Repack/1.0.0.3/3 DLC) 2012 | Fe
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1000079.jpg" />
+  <img src="Z:/picture/005/save_picture_1000079.jpg" />
 </div>
 
 
@@ -517,7 +621,7 @@ Shadow Defender 1.2.0.355 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999524.jpg" />
 </div>
 
 
@@ -545,7 +649,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999480.jpg" />
 </div>
 
 
@@ -571,7 +675,7 @@ Doom 3 BFG Edition [Ru/En] (L/1.0.0.1u1) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999473.jpg" />
 </div>
 
 
@@ -582,118 +686,6 @@ Doom 3 BFG Edition - это обновленная версия культово
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01DF9533A0D24E355B15F286C20A470A17AF7FDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599132   (999223) от 06.01.2013
-
-NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999223.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks
-Название программы: NVIDIA GeForce
-Версия программы: 310.90 WHQL
-Последняя Версия программы: 310.90
-Адрес официального сайта: NVIDIA
-Язык интерфейса: MULTi / РусскийЛечение: не требуется
-Системные требования:Windows 8, 7, Vista, XP (x32/x64)Описание: Вышла новая официальная версия драйверов для видеокарт на базе графических процессоров компании nVidia. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599319   (999207) от 06.01.2013
-
-Skins kaspersky internet security 2013 3.0 [Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка скинов для Kaspersky Internet Security 2013. 28 штук в одном инсталляторе. Вы получите не только измененный вид окон, но и дополнительную кнопку "Активация ключом" и некоторые дополнительные настройки.Название программы: skins kaspersky internet security 2013Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599641   (998992) от 07.01.2013
-
-Recovery Partition for ASUS K56 CM / Windows 8 (х64)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS K56CM-XX064H
-Образ Recovery Partition ASUS K56CM.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
-Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599649   (998991) от 07.01.2013
-
-[Автомагнитола Masushita NSDN-W59] (2009) файл для SD карты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папка PRIVATE закидывается на отформатированную sd-карту, затем вставляется в слот в нижней части дисплея. И магнитола считав файл загружается в рабочий режим.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2215C942C2D97FF9F9DA4F2E7130F0738EE8FA9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 499534   (259666) от 30.05.2012
+
+Гран-Куражъ - 4 альбома (2006-2012) [MP3|320 кб/с]<Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_259666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy / Power MetalПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502554   (259008) от 28.05.2012
+
+Шторм - С ветром на спицах (ЕР) (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_259008.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не теряй друзей!
+2. Дороги
+3. С ветром на спицах
+4. Страшный сон2012Жанр: Heavy MetalПродолжительность: 00:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA76DB9F32C61350E88CE8B4E58C83D7D590BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502038   (258482) от 26.05.2012
+
+Врата - Дорога зовёт (2010) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — R 35
+ 02 — Сезон открыт
+ 03 — Вперёд
+ 04 — Вольный рокер
+ 05 — Одинокий волк
+ 06 — Забытая трасса
+ 07 — Старый город
+ 08 — Воин тысячи дорог
+ 09 — Н.М.В.В.
+ 10 — Мы снова в пути(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF563057CF57F44C908F5E1F0E6E2666DCBB477F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423941   (255692) от 12.11.2025
+
+Линда - 13 альбомов, 4 сборника, 8 синглов & etc (1994-2020) [MP3|320 Kbps] <Alternative, Independent, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлана Львовна Гейман (29 апреля 1977, Кентау, Чимкентская область), более известная под псевдонимом Линда — российская певица, исполняющая в электроном и этническом стилях. Чаще всего Линду относят к жанру трип-хоп. Первое время автором музыки для Линды был композитор Максим Фадеев. После расставания с Фадеевым Линда начала писать песни самостоятельно, а также (   Читать дальше...   )1994 - Песни тибетских лам
+1996 - Ворона
+1999 - Плацента
+2001 - ЗрениеЖанр: Alternative, Independent, ElectronicПродолжительность: 23:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BFE4F4FBEC18F1F1A0A370BAAEDB50BC35D993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625945   (255272) от 12.04.2023
 
 Fear Shatter - Том I (2023) [MP3|320 Kbps] <Horror Metal>
@@ -6,7 +125,7 @@ Fear Shatter - Том I (2023) [MP3|320 Kbps] <Horror Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255272.jpg" />
+  <img src="Z:/picture/005/save_picture_255272.jpg" />
 </div>
 
 
@@ -35,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255261.jpg" />
+  <img src="Z:/picture/005/save_picture_255261.jpg" />
 </div>
 
 
@@ -64,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255098.jpg" />
+  <img src="Z:/picture/005/save_picture_255098.jpg" />
 </div>
 
 
@@ -93,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254880.jpg" />
+  <img src="Z:/picture/005/save_picture_254880.jpg" />
 </div>
 
 
@@ -122,7 +241,7 @@ Interio - Чёрт в зеркале (2023) [MP3|320 Kbps] <Gothic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254850.jpg" />
+  <img src="Z:/picture/005/save_picture_254850.jpg" />
 </div>
 
 
@@ -151,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254091.jpg" />
+  <img src="Z:/picture/005/save_picture_254091.jpg" />
 </div>
 
 
@@ -180,7 +299,7 @@ Dee_Waste - Discography (2003 - 2010) [MP3|320 кб/с]<Alternative; Metalcore; 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253916.jpg" />
+  <img src="Z:/picture/005/save_picture_253916.jpg" />
 </div>
 
 
@@ -215,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253045.jpg" />
+  <img src="Z:/picture/005/save_picture_253045.jpg" />
 </div>
 
 
@@ -250,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251894.jpg" />
+  <img src="Z:/picture/004/save_picture_251894.jpg" />
 </div>
 
 
@@ -279,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250828.jpg" />
 </div>
 
 
@@ -314,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250291.jpg" />
+  <img src="Z:/picture/004/save_picture_250291.jpg" />
 </div>
 
 
@@ -343,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250161.jpg" />
+  <img src="Z:/picture/004/save_picture_250161.jpg" />
 </div>
 
 
@@ -372,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249555.jpg" />
+  <img src="Z:/picture/004/save_picture_249555.jpg" />
 </div>
 
 
@@ -401,7 +520,7 @@ Jane Air - 9 (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248547.jpg" />
+  <img src="Z:/picture/004/save_picture_248547.jpg" />
 </div>
 
 
@@ -430,7 +549,7 @@ The Vazeline - Кризис Кроссоверов (2025) [MP3|320 Kbps] <Punk r
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247815.jpg" />
+  <img src="Z:/picture/004/save_picture_247815.jpg" />
 </div>
 
 
@@ -459,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246994.jpg" />
+  <img src="Z:/picture/004/save_picture_246994.jpg" />
 </div>
 
 
@@ -488,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245934.jpg" />
+  <img src="Z:/picture/004/save_picture_245934.jpg" />
 </div>
 
 
@@ -517,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245794.jpg" />
+  <img src="Z:/picture/004/save_picture_245794.jpg" />
 </div>
 
 
@@ -546,7 +665,7 @@ Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245523.jpg" />
+  <img src="Z:/picture/004/save_picture_245523.jpg" />
 </div>
 
 
@@ -575,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245508.jpg" />
+  <img src="Z:/picture/004/save_picture_245508.jpg" />
 </div>
 
 
@@ -604,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245477.jpg" />
+  <img src="Z:/picture/004/save_picture_245477.jpg" />
 </div>
 
 
@@ -633,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245449.jpg" />
+  <img src="Z:/picture/004/save_picture_245449.jpg" />
 </div>
 
 
@@ -647,123 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEDFB304F76725BAFE18243A2DB11C9F30F6DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624122   (245444) от 04.04.2023
-
-Ilya Hype - Только крылья берегите (2023) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Шёпот-шорох [00:06:17]
-02 - Гуси-гуси [00:06:45]
-03 - Властитель дум [00:06:08]
-04 - Голосом стелю я [00:10:42](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E19CF1492FFFC42AAA54DE97EEE3BA085AAA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450775   (245114) от 27.02.2021
-
-Vas' - Быстрее послушать (2021) [MP3|320 Kbps] <Indie-Rock / Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Будет ли это важно через год [00:03:02]
-02 - Бинго [00:03:16]
-03 - Оставь свет включённым [00:03:29]
-04 - Голышом [00:03:58](   Читать дальше...   )Жанр: Indie-Rock / Pop-RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAC63003370DCC3DBC7B91B481C7AE1555946C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609173   (245010) от 03.02.2023
-
-Контрибуция - Гробовщик Взял Предоплату (2023) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грабёж По Закону
-02. Одной Ногой В Могиле
-03. 27
-04. Что-То Задумал(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:39:46
-deezer
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816F3EBEBEED92677BBC026CCAD986037A58D527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624829   (244969) от 07.04.2023
-
-Флип - #дваноль (2022) [MP3|320 Kbps] <Alternative Pop Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отрываемся
-02. Лучший враг (ft. Фиги)
-03. BBQ
-04. Не уникален(   Читать дальше...   )Жанр: Alternative Pop Rock, Pop PunkПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21523474E4F4A24F0144026825AF72BE9A0676B
 ```
 
 https://mybot314.ru/tekegram_catalog/

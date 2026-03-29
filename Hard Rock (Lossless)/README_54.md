@@ -1,3 +1,61 @@
+###  Публикация: 1576679   (364272) от 15.09.2022
+
+Rogue Sharks - In For The Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal is the Man
+02. Time Alone
+03. Wipe That Smile
+04. All I Know(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70E9AD52A334D8A982D6E6D805B5B919BC18432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576648   (364185) от 15.09.2022
+
+Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psych Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Automatons in the Sky [00:03:59]
+02. Haywire [00:03:57]
+03. Hoodwinked Again [00:03:59]
+04. Human Tumbleweed [00:05:01](   Читать дальше...   )Жанр: Hard Psych RockПродолжительность: 2 CD, 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6BEAEFF9B0FB63B81F34054059C4C91FB2FB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 708744   (364037) от 08.11.2016
 
 Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
@@ -6,7 +64,7 @@ Black Sabbath - Best Ballads (1996) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364037.jpg" />
+  <img src="Z:/picture/008/save_picture_364037.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Def Leppard - Def Leppard (2015) [FLAC|tracks|WEB-DL]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363069.jpg" />
+  <img src="Z:/picture/008/save_picture_363069.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Gary Barden - 9 albums, 10CD (1986-2014) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363010.jpg" />
+  <img src="Z:/picture/008/save_picture_363010.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Bulletrain - What You Fear The Most (2016) [FLAC|Lossless|image + .cue] <Heavy M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361951.jpg" />
+  <img src="Z:/picture/008/save_picture_361951.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Overland - Contagious (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361879.jpg" />
+  <img src="Z:/picture/008/save_picture_361879.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stage Dolls - Stage Dolls (1988) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361640.jpg" />
+  <img src="Z:/picture/008/save_picture_361640.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Alice Cooper - Welcome To My Nightmare (1975) Remastered, 2002, Atlantic/Rhino [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360898.jpg" />
+  <img src="Z:/picture/008/save_picture_360898.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Lazarus - Down N' Dirty (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360573.jpg" />
+  <img src="Z:/picture/008/save_picture_360573.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Overland - Diamond Dealer (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359436.jpg" />
+  <img src="Z:/picture/008/save_picture_359436.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ The Quireboys - Halfpenny Dancer (2009) [FLAC|Lossless|image + .cue] <Hard rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359427.jpg" />
+  <img src="Z:/picture/008/save_picture_359427.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Uriah Heep - Living The Dream (2018) Japan [WavPack|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358889.jpg" />
+  <img src="Z:/picture/008/save_picture_358889.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Skansis - Take Your Chance (2007) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_358216.jpg" />
+  <img src="Z:/picture/005/save_picture_358216.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357172.jpg" />
+  <img src="Z:/picture/008/save_picture_357172.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Graham Bonnet Band - The Book (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357126.jpg" />
+  <img src="Z:/picture/008/save_picture_357126.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Dreamtide - Drama Dust Dream (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357042.jpg" />
+  <img src="Z:/picture/008/save_picture_357042.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357039.jpg" />
+  <img src="Z:/picture/008/save_picture_357039.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ The Sweet - Greatest Hits (2000) Compilation, Repress [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356557.jpg" />
+  <img src="Z:/picture/008/save_picture_356557.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Aerosmith - Rocks Donington 2014 (2015) 3CD Japanese edition, Live [FLAC|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355858.jpg" />
+  <img src="Z:/picture/008/save_picture_355858.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Glenn Hughes - Resonate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354676.jpg" />
+  <img src="Z:/picture/008/save_picture_354676.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Tony Carey - 3 Albums (1984 - 2008) Remastered, 2008, Renaissance Records [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354533.jpg" />
+  <img src="Z:/picture/008/save_picture_354533.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Airbourne - Diamond Cuts The B-Sides (2017) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353821.jpg" />
+  <img src="Z:/picture/008/save_picture_353821.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Stryper - The Covering (2011) [APE|Lossless|image + .cue] <Hard Rock, Heavy Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352384.jpg" />
+  <img src="Z:/picture/008/save_picture_352384.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ ESP (Eric Singer Project) - ESP (1999) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352382.jpg" />
+  <img src="Z:/picture/008/save_picture_352382.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350269.jpg" />
+  <img src="Z:/picture/008/save_picture_350269.jpg" />
 </div>
 
 
@@ -693,73 +751,6 @@ Lita Ford - Dangerous Curves (1991) Japanese Edition [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D2FAFF325CBA741119FE761788B545883F0808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579255   (350102) от 22.11.2012
-
-Krokus - Original Album Classics (1980-1982) Remastered 3CD Box Set /2012, Sony Music/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_350102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1980 - Metal Rendez-Vous
-1981 - Hardware
-1982 - One Vice At A Time01. Heatstrokes (04:01)
-02. Bedside Radio (03:22)
-03. Come On (04:30)
-04. Streamer (06:45)
-05. Shy Kid (02:34)
-06. Tokyo Nights (05:55)
-07. Lady Double Dealer (03:14)
-08. Fire (06:07)
-09. No Way (04:03)
-10. Back-Seat Rock 'N' Roll (03:15)Жанр: Hard RockПродолжительность: 01:57:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072537   (349720) от 14.11.2016
-
-Dorothy - Rockisdead (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss It (2:33)
-02. Dark Nights(3:10)
-03. Raise Hell(3:02)
-04. Wicked Ones(2:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1986D7532CC7253609024F76049C0065C918BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

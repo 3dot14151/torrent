@@ -6,7 +6,7 @@ Cacheman 10.10.0.9 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786093.jpg" />
+  <img src="Z:/picture/008/save_picture_786093.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786092.jpg" />
+  <img src="Z:/picture/008/save_picture_786092.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786089.jpg" />
+  <img src="Z:/picture/008/save_picture_786089.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786087.jpg" />
+  <img src="Z:/picture/008/save_picture_786087.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Microsoft Windows and Office ISO Download Tool 4.31 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786086.jpg" />
+  <img src="Z:/picture/008/save_picture_786086.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Futuremark 3DMark 2.3.3682 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786085.jpg" />
+  <img src="Z:/picture/008/save_picture_786085.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Viber 6.7.0.1095 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786084.jpg" />
+  <img src="Z:/picture/008/save_picture_786084.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786075.jpg" />
+  <img src="Z:/picture/008/save_picture_786075.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Futuremark 3DMark 2.3.3682 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786074.jpg" />
+  <img src="Z:/picture/008/save_picture_786074.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Stand Up (2017.04.09) SATRip (сезон 6, выпуск 8) [AD]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786070.jpg" />
+  <img src="Z:/picture/008/save_picture_786070.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ DiskDigger 1.12.5.2081 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786062.jpg" />
+  <img src="Z:/picture/008/save_picture_786062.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Kobayashi-san Chi no Maid Dragon / Miss Kobayashi's Dragon Maid / Кобаяcи 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786043.jpg" />
+  <img src="Z:/picture/008/save_picture_786043.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ foobar2000 1.3.15 Stable RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786033.jpg" />
+  <img src="Z:/picture/008/save_picture_786033.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Kinoid v3.1 [Ru/En] - фильмы и сериалы для онлайн про�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786026.jpg" />
+  <img src="Z:/picture/008/save_picture_786026.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786025.jpg" />
+  <img src="Z:/picture/008/save_picture_786025.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786011.jpg" />
+  <img src="Z:/picture/008/save_picture_786011.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786005.jpg" />
+  <img src="Z:/picture/008/save_picture_786005.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Bliss Records - Bliss Music Vol.10 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785985.jpg" />
+  <img src="Z:/picture/008/save_picture_785985.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Bumpr 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785974.jpg" />
+  <img src="Z:/picture/008/save_picture_785974.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ NetWorker - Advanced Network Information App 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785968.jpg" />
+  <img src="Z:/picture/008/save_picture_785968.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785966.jpg" />
+  <img src="Z:/picture/008/save_picture_785966.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Network Speed Monitor 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785956.jpg" />
+  <img src="Z:/picture/008/save_picture_785956.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Ashampoo Snap 10.0.1 Portable punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785947.jpg" />
+  <img src="Z:/picture/008/save_picture_785947.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Reworks (2017) LP [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785945.jpg" />
+  <img src="Z:/picture/008/save_picture_785945.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785943.jpg" />
+  <img src="Z:/picture/008/save_picture_785943.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Ashampoo Snap 10.0.1 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785941.jpg" />
+  <img src="Z:/picture/008/save_picture_785941.jpg" />
 </div>
 
 

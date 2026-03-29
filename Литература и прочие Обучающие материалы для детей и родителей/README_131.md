@@ -1,3 +1,136 @@
+###  Публикация: 1200541   (795704) от 21.01.2018
+
+Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200548   (795700) от 21.01.2018
+
+Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200552   (795697) от 21.01.2018
+
+Василий Жуковский | Война мышей и лягушек (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509227   (795673) от 11.11.2021
+
+Вероника Коссантели | Изумительная Страна Снергов (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, вдохновившая Дж. Р. Р. Толкина!
+Пип и Флора в беде. Они убежали из приюта «Солнечная бухта» – и оказались в изумительной Стране Снергов.
+Это волшебная страна восхитительных пиров и медведей, пахнущих корицей. Вот только есть здесь и мрачные пещеры, есть прожорливые великаны и коварные шуты, а ещё ведьма, с ног до головы облачённая в пурпурные одежды.
+Добрый, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: В.Т. БабенкоФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB7DA294C63F088267935FBE75D4F5207711E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200530   (795654) от 21.01.2018
+
+Василий Андреевич Жуковский | Сказка о Иване-царевиче и сером волке (1909) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сказка о Иване-царевиче и Сером Волке» – произведение русского поэта, одного из основоположников романтизма в русской поэзии В. А. Жуковского (1783 – 1852).Жанр: Детская проза, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1CC71546E9E837B8AE6FE3CEE1D2C87B7DDD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200544   (795651) от 21.01.2018
 
 В.П. Авенариус (сост.) | Образцовые сказки русских писателей (1910) [PDF]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795651.jpg" />
+  <img src="Z:/picture/008/save_picture_795651.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795588.jpg" />
+  <img src="Z:/picture/008/save_picture_795588.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795556.jpg" />
+  <img src="Z:/picture/008/save_picture_795556.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795526.jpg" />
+  <img src="Z:/picture/008/save_picture_795526.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795440.jpg" />
+  <img src="Z:/picture/008/save_picture_795440.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795420.jpg" />
+  <img src="Z:/picture/008/save_picture_795420.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795257.jpg" />
+  <img src="Z:/picture/008/save_picture_795257.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795202.jpg" />
+  <img src="Z:/picture/008/save_picture_795202.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795152.jpg" />
+  <img src="Z:/picture/008/save_picture_795152.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795055.jpg" />
+  <img src="Z:/picture/008/save_picture_795055.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794954.jpg" />
+  <img src="Z:/picture/008/save_picture_794954.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794953.jpg" />
+  <img src="Z:/picture/008/save_picture_794953.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794767.jpg" />
+  <img src="Z:/picture/008/save_picture_794767.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794765.jpg" />
+  <img src="Z:/picture/008/save_picture_794765.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794627.jpg" />
+  <img src="Z:/picture/008/save_picture_794627.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794323.jpg" />
+  <img src="Z:/picture/008/save_picture_794323.jpg" />
 </div>
 
 
@@ -424,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794087.jpg" />
+  <img src="Z:/picture/008/save_picture_794087.jpg" />
 </div>
 
 
@@ -451,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794071.jpg" />
+  <img src="Z:/picture/008/save_picture_794071.jpg" />
 </div>
 
 
@@ -477,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794018.jpg" />
+  <img src="Z:/picture/008/save_picture_794018.jpg" />
 </div>
 
 
@@ -503,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793836.jpg" />
+  <img src="Z:/picture/008/save_picture_793836.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793829.jpg" />
+  <img src="Z:/picture/008/save_picture_793829.jpg" />
 </div>
 
 
@@ -540,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493F1713AD9F8485C5C103CA1E75ADAA9BD8CC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012502   (793826) от 01.05.2016
-
-Николай Терехов | Главная работа (1973) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы. Для младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A2E9E3D6BED8D6338D9255C8D4229EDA7ACEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386826   (793792) от 30.05.2020
-
-Светозар Чернов, Елена Соковенина | Свет! Больше света! Викторианская медицина с доктором Ватсоном (2014) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткий занимательный путеводитель по медицине викторианской эпохи. Доктор Ватсон, опасаясь, что прогресс уведет человечество так далеко, что оно забудет все о своем прошлом, пишет брошюру. В каковой брошюре рассказывает, чем болели и чем лечились викторианцы, какие существовали домашние средства. Как лечили зубы. Какие трудности испытывали санитарные врачи – и многое (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35F5D03E232F94616D777E2ED5EDCEF927273E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386801   (793789) от 30.05.2020
-
-Софья Прокофьева | «Франкенштейн» и другие страшные истории [сборник] (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая сказочница Софья Прокофьева написала вольные пересказы самых страшных историй мировой литературы, от «Франкенштейна» Мэри Шелли до «Ундины» Фридриха де ла Мотт Фуке. Для детей это прекрасный способ познакомиться с важнейшими в европейской культуре сюжетами. А взрослые с удивлением найдут переклички между любимыми с детства историями.Жанр: Проза для детей, Повести и расказы, Мистика, ужасыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C56919210040C68988F31664FA00D3E1248C51E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386816   (793788) от 30.05.2020
-
-Холли Голдберг Слоун | Опоссум по имени Апельсинка (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Апельсинка, самая младшая в семье, пытается найти свое призвание и понять, на что она способна. Однажды она случайно попадает в человеческое жилище. И тут Апельсинка открывает в себе неожиданные качества: она может быть бесстрашной и очень даже сообразительной. А как иначе? Ведь здесь обитают мама, папа, девочка и ОГРОМНЫЙ пес. А мама-опоссум всегда предупреждала (   Читать дальше...   )Жанр: Сказки для детейПеревод: Ирина ЮщенкоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E47F1ECBE93D0F586E20615E2F17B097913F681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386819   (793786) от 30.05.2020
-
-Лада Кутузова | Витька на Кудыкиной горе (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Витька живёт и не знает, что его мама – потомственная баба-яга, а папа – царевич из Тридевятого царства. Сам Витя лишён сказочного дара, а потому родители скрывают от него правду. Но однажды Витя проваливается в Тридевятое царство, и теперь только от него зависит, сможет ли он вернуться обратно.Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB54191A6D2E80467A5FB4520640B4EDBB0325E
 ```
 
 https://mybot314.ru/tekegram_catalog/

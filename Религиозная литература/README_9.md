@@ -1,3 +1,85 @@
+###  Публикация: 1352603   (1000900) от 15.01.2020
+
+Паремия (изд.) | Святые Отцы о смирении (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000900.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смирение обладает великой силой. От смирения диавол рассыпается в прах. Оно — самый сильный шоковый удар по диаволу. Там, где есть смирение, диаволу не находится места. А если нет места диаволу, следовательно, нет и искушений.
+
+Что бы мы ни делали, необходимы смирение, любовь, благородство. Ведь это так просто — мы усложняем нашу духовную жизнь сами. Будем, насколько (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664D7340E1FDDCF3A47AF5769300B1EEF6EE40CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601865   (998080) от 11.01.2013
+
+Ольга Бакушинская, Эдуард Шатов | Полеты божьей коровки [2012] [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998080.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Полеты божьей коровки» составлены из любопытных рассказов и разговоров о том, как устроена жизнь христиан в разных странах мира и в России. Без малейшего стеснения авторы обсуждают вопросы: почему девушки так часто влюбляются в священников, давших обет безбрачия? Можно ли найти себе идеальную пару при помощи молитвы? Помнят ли в раю вкус земляники, испытывают ли эротические переживания?
+ Самое колоритное в этой честной и веселой книге – личности авторов: принявшей католичество известной журналистки и телеведущей Ольги Бакушинской («Скандальная жизнь с Ольгой Б.», «PRO жизнь») и ее духовника, монаха ордена ассумпционистов о. Эдуарда (Шатова), живущего в Канаде.
+ «Полеты божьей коровки» – головокружительный аттракцион новых мыслей и чувств для верующих и неверующих.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC115BB18C89DE94AA037147FB4DBD0782E54BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602217   (997842) от 12.01.2013
+
+Джованни Новелли | Туринская Плащаница: вопрос остаётся открытым [2000] [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе издание книги Джованни Новелли, дополненное и исправленное. В книге рассказывается о научных исследованиях полотна, которым по преданию было обернуто тело Иисуса Христа перед погребением. Книга содержит много цветных иллюстраций и заканчивается хронологией событий по рассматриваемой теме.Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE749DB9D18A0F9C7E4504825308BF82AFF20B90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602222   (997821) от 12.01.2013
 
 Св. Ансельм Кентерберийский | Сочинения [1995] [PDF]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997821.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997820.jpg" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997819.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997812.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997809.jpg" />
 </div>
 
 
@@ -141,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997805.jpg" />
 </div>
 
 
@@ -170,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997804.jpg" />
 </div>
 
 
@@ -196,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997788.jpg" />
 </div>
 
 
@@ -222,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997780.jpg" />
 </div>
 
 
@@ -254,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997779.jpg" />
 </div>
 
 
@@ -280,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997775.jpg" />
 </div>
 
 
@@ -306,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997752.jpg" />
 </div>
 
 
@@ -334,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997532.jpg" />
 </div>
 
 
@@ -360,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997506.jpg" />
 </div>
 
 
@@ -390,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997502.jpg" />
 </div>
 
 
@@ -416,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997270.jpg" />
 </div>
 
 
@@ -442,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997261.jpg" />
 </div>
 
 
@@ -472,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997244.jpg" />
 </div>
 
 
@@ -500,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997226.jpg" />
 </div>
 
 
@@ -526,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997223.jpg" />
 </div>
 
 
@@ -554,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997221.jpg" />
 </div>
 
 
@@ -584,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997217.jpg" />
 </div>
 
 
@@ -611,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997216.jpg" />
 </div>
 
 
@@ -624,93 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57F3BD10DAE87A00AE87E4110EDC8D0002A18B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603249   (997182) от 14.01.2013
-
-Компендиум социального учения Церкви [2006] [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе своей истории, а особенно в последние сто лет, Церковь высказывала свою позицию по проблемам социальной жизни. Это - часть церковной миссии, поскольку человеческая природа имеет социальное измерение: человек - не только индивидуум, но и существо социальное; именно в обществе, вступая в многообразные отношения с себе подобными, он реализуется как личность. Эта книга представляет собой компактное, исчерпывающее и систематическое изложение социального учения Католической Церкви.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B378B22759745431CD1B02EAD4A3A7D740003FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603113   (997158) от 14.01.2013
-
-Азбука-классика | Книга Еноха [2008] [DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Еноха - самый загадочный ветхозаветный апокриф. Его авторство приписывается одному из двенадцати патриархов, прадеду Ноя, который согласно еврейской традиции за праведность был взят живым на небо. Вниманию читателей предлагается отчёт об этом удивительном путешествии.Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA216DB3634E9795A0ECC480E4B9AACB5AB14C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603507   (997025) от 15.01.2013
-
-Николас Уайзмeн | Фабиола [1990] [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Фабиола» переносит нас в ту эпоху, когда император Диоклетиан задумал раз и навсегда покончить с христианством. Он начал жестокие преследования на Востоке, а вскоре гонения перекинулись в Рим, подвластный его соправителю Максимиану.
-
-Происходило это всего за несколько лет до победы Церкви, которая бросила вызов могущественной империи. Книга противопоставляет два мира — языческий Рим и общину верующих во Христа.
-
-Главная героиня повести — молодая знатная Римлянка, перед которой постепенно, через долгие мучительные искания открывается истина Евангелия.
-
-«Фабиола» была переведена на многие языки, в том числе и на русский.
-
-В конце XIX века русская писательница Евгения Тур выпустила ее свободный пересказ. Под названием «Катакомбы» он выдержал более двадцати изданий. Последнее увидело свет в 1917 году.
-(   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB3ECB01FDA8B6A0D017084463CDCF8695F1520
 ```
 
 https://mybot314.ru/tekegram_catalog/

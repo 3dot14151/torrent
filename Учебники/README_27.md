@@ -1,3 +1,55 @@
+###  Публикация: 1512207   (787342) от 24.11.2021
+
+А.И. Врублевский | Тренажер по химии. Вся химия в задачах и упражнениях с примерами решений (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит более 3300 разноуровневых задач и упражнений по всему школьному курсу химии, а также 150 примеров решения типичных заданий. В настоящем 3-м издании максимально учтены требования, предъявляемые к вступительным испытаниям в вуз, проводимым в любом виде — от традиционного экзамена до централизованного тестирования. Рекомендуется педагогам и учащимся средних (   Читать дальше...   )Жанр: ХимияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA2637E4D0FC1E05E54D0A63BD3E719CE38ACB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512404   (787332) от 24.11.2021
+
+Е.И. Фоминых | Математика. Практикум (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие разработано в соответствии с типовой учебной программой по учебной дисциплине «Математика». Включает материалы для практических занятий по 14 темам. Содержит алгоритмы решений, порядок действий для выполнения учащимися индивидуальных заданий, решения типовых примеров и задач, которые достаточно полно отображают суть основных математических понятий. (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72B4627F97C49DD435BB2CEB9A57BE475C13588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276848   (787199) от 18.01.2019
 
 Г.Р. Кадырова | Интеллектуальные системы (2017) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787199.jpg" />
+  <img src="Z:/picture/008/save_picture_787199.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787198.jpg" />
+  <img src="Z:/picture/008/save_picture_787198.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787185.jpg" />
+  <img src="Z:/picture/008/save_picture_787185.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786966.jpg" />
+  <img src="Z:/picture/008/save_picture_786966.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786683.jpg" />
+  <img src="Z:/picture/008/save_picture_786683.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786357.jpg" />
+  <img src="Z:/picture/008/save_picture_786357.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786310.jpg" />
+  <img src="Z:/picture/008/save_picture_786310.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785924.jpg" />
+  <img src="Z:/picture/008/save_picture_785924.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785768.jpg" />
+  <img src="Z:/picture/008/save_picture_785768.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785759.jpg" />
+  <img src="Z:/picture/008/save_picture_785759.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785322.jpg" />
+  <img src="Z:/picture/008/save_picture_785322.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784334.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784188.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783462.jpg" />
+  <img src="Z:/picture/008/save_picture_783462.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783443.jpg" />
+  <img src="Z:/picture/008/save_picture_783443.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783186.jpg" />
+  <img src="Z:/picture/008/save_picture_783186.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783177.jpg" />
+  <img src="Z:/picture/008/save_picture_783177.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783045.jpg" />
+  <img src="Z:/picture/008/save_picture_783045.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782519.jpg" />
+  <img src="Z:/picture/008/save_picture_782519.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ A.B. Сычев | Web-технологии (2016) [PDF]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782496.jpg" />
+  <img src="Z:/picture/008/save_picture_782496.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782117.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782110.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781714.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781253.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2524F27FD5AAF7C4515DA63E9AC96BC81DC6FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206963   (780553) от 18.02.2018
-
-Ю.М. Фролов, В.П. Шелякин | Проектирование электропривода промышленных механизмов (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит сведения и рекомендации по проектированию силовых электроприводов технических установок, широко применяющихся в промышленном и сельскохозяйственном производствах, проиллюстрированные достаточным количеством примеров. Приведены методики расчета электроприводов, учитывающие конструктивные особенности механизмов и специфику их технологических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA6C7D232E9737224CB41F3B2EA1E1C238C4BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207235   (780551) от 18.02.2018
-
-Н.П. Заказнов (ред.) | Прикладная оптика (2009) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780551.jpg" />
-</div>
-
-
-###  Подробнее
-
-На базе физической и геометрической оптики (ч. I и II) изложены основы теории и принципы действия ряда оптических и оптико-электронных систем и приборов (ч. III). Учебное пособие предназначено для студентов технических вузов, обучающихся по приборостроительным специальностям (компьютерные технологии в приборостроении, конструирование и производство измерительных (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B781C44487078D39A1927B24FC1B3D27CE6514F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

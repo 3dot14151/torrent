@@ -1,3 +1,83 @@
+###  Публикация: 1616544   (242388) от 03.03.2023
+
+Преподобный Иустин (Попович) | Православная Церковь и экуменизм (2012) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга доктора богословия преподобного архимандрита Иустина Челийского (Поповича; 1894–1979) написана в 1974 г. и посвящена православной экклезиологии.
+
+Во второй части труда автор рассматривает экуменизм как «общее название всех видов лжехристианства и всех лжецерквей Западной Европы», усматривая в нем отражение сущности всех типов гуманизма.Жанр: Православие, религиоведениеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E4C66EB760F601E2AC98131AF98935A5C0F362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616537   (242347) от 03.03.2023
+
+Николай Посадский | О Божественной литургии (2017) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Божественная литургия – это главное из богослужений, во время которого совершается таинство Церкви: таинство Причащения, или Евхаристия. Первую литургию совершил Сам Господь наш Иисус Христос в Сионской горнице. Отныне каждая литургия становится продолжением этого события. По словам святого праведного Иоанна Кронштадтского, «В даровании Божественной литургии Церкви (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23534023B83CEC687E3111C8D6397AA123EB2A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635123   (242125) от 24.05.2023
+
+Митрополит Антоний Сурожский | Любовь всепобеждающая. Проповеди, произнесенные в России (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242125.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Быть христианином – это быть подвижником; и однако самим нам спастись невозможно. Наше призвание настолько высоко, настолько велико, что человек своими силами не может осуществить его. Я уже говорил, что мы призваны быть как бы привитыми к человечеству Христа, как веточка прививается к животворному дереву – с тем, чтобы жизнь Христова била ключом в нас, чтобы мы (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C859BC7FD03643E6AE4114D45EA3EE698B6360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635119   (242105) от 24.05.2023
 
 Епископ Василий (Родзянко) | Живет во мне Христос. О смысле жизни и православной веры (2020) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242105.jpg" />
+  <img src="Z:/picture/005/save_picture_242105.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242095.jpg" />
+  <img src="Z:/picture/005/save_picture_242095.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241950.jpg" />
+  <img src="Z:/picture/004/save_picture_241950.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241931.jpg" />
+  <img src="Z:/picture/004/save_picture_241931.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241809.jpg" />
+  <img src="Z:/picture/004/save_picture_241809.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241724.jpg" />
+  <img src="Z:/picture/004/save_picture_241724.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241712.jpg" />
+  <img src="Z:/picture/004/save_picture_241712.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241707.jpg" />
+  <img src="Z:/picture/004/save_picture_241707.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241704.jpg" />
+  <img src="Z:/picture/004/save_picture_241704.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241672.jpg" />
+  <img src="Z:/picture/004/save_picture_241672.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241660.jpg" />
+  <img src="Z:/picture/004/save_picture_241660.jpg" />
 </div>
 
 
@@ -298,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241649.jpg" />
+  <img src="Z:/picture/004/save_picture_241649.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241637.jpg" />
+  <img src="Z:/picture/004/save_picture_241637.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241624.jpg" />
+  <img src="Z:/picture/004/save_picture_241624.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241554.jpg" />
+  <img src="Z:/picture/004/save_picture_241554.jpg" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241463.jpg" />
+  <img src="Z:/picture/004/save_picture_241463.jpg" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241428.jpg" />
+  <img src="Z:/picture/004/save_picture_241428.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241288.jpg" />
+  <img src="Z:/picture/004/save_picture_241288.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241251.jpg" />
+  <img src="Z:/picture/004/save_picture_241251.jpg" />
 </div>
 
 
@@ -511,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241249.jpg" />
+  <img src="Z:/picture/004/save_picture_241249.jpg" />
 </div>
 
 
@@ -537,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241194.jpg" />
+  <img src="Z:/picture/004/save_picture_241194.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241172.jpg" />
+  <img src="Z:/picture/004/save_picture_241172.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241167.jpg" />
+  <img src="Z:/picture/004/save_picture_241167.jpg" />
 </div>
 
 
@@ -604,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ADC46AB4AC12B49F6E4BD5187471C342141CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631205   (241138) от 04.05.2023
-
-Преподобный Никон Оптинский | Дневник последнего старца Оптиной пустыни (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Никон Оптинский – священнослужитель Русской православной церкви, иеромонах. Ближайший ученик старца Варсонофия, пламенный молитвенник и любвеобильный пастырь, самоотверженно исполнявший старческие служения уже после закрытия Оптинской пустыни, претерпевший мучения от безбожников и скончавшийся в изгнании, как исповедник. Перу преподобного Никона Оптинского (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6986FD2E4A4C92F55ACB351FB859CD5AB4D377CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631207   (241129) от 04.05.2023
-
-Преподобный Макарий Оптинский | Душеполезные поучения преподобного Макария Оптинского (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иеросхимонах Макарий – священнослужитель Русской православной церкви, преподобный Оптинский старец. С именем старца Макария связано начало издания в монастыре святоотеческих трудов, которое объединило вокруг обители лучшие духовные и интеллектуальные силы России. Под его духовным руководством находилась не только Оптина пустынь, но и многие другие монастыри, а письма (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC54ED0A063BDA69BC813179D465CC2E1D817C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120940   (241111) от 02.04.2017
-
-Митрополит Вениамин (Федченков) | Строй Православного Богослужения (2007) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очерк посвящён вопросу о строе нашего богослужения...
-Как известно, нужно отличать молитву от молитвословия: первое — в сердце, второе — в устах. И молитвословие ещё не есть молитва.
-
-Отсюда получаются несколько выводов.(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659AC6B7F73AA6B6317C1A6523596173CB78AD1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

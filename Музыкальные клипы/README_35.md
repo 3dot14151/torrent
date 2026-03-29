@@ -1,3 +1,84 @@
+###  Публикация: 1722042   (109798) от 10.05.2024
+
+Dessar - Кошмар (посв. студентам РГГУ) (2024) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не хочу ничего уже больше писать,
+Ведь песни мои как пророчества.
+На прогулку ведёт пятилапого пса
+Наше - Ваше высочество.(   Читать дальше...   )Жанр: RapПродолжительность: 00:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F253215582C5B3E2E3F86DF10D23968F790605F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731572   (107668) от 21.06.2024
+
+Семин, DESSAR, Штерк - НЕО (2024) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapПродолжительность: 00:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD243919078A9965DB97853F78B6FA134308199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732053   (107541) от 23.06.2024
+
+Юрий Шатунов — «Грёзы» (2019) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Шатунов - Грезы. Official VideoЖанр: PopПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B961F77B04B8559EB5440B62051D94F14AEDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764385   (102713) от 07.12.2024
 
 Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +87,7 @@ Rihanna feat. Mikky Ekko - Stay (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102713.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ B.o.B feat. Hayley Williams of Paramore - Airplanes (2010) WEB-DLRip [H.265/2160
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101555.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Alicia Keys feat. Kendrick Lamar, Pharrell Williams - It's On Again (2014) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101553.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101549.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98968.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ INNA - WOW (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98957.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94209.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -243,7 +324,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87461.jpg" />
 </div>
 
 
@@ -269,7 +350,7 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86964.jpg" />
 </div>
 
 
@@ -295,7 +376,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86899.jpg" />
 </div>
 
 
@@ -321,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86807.jpg" />
 </div>
 
 
@@ -347,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86322.jpg" />
 </div>
 
 
@@ -373,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86121.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85945.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85752.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85555.jpg" />
 </div>
 
 
@@ -477,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84945.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84939.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -556,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83066.jpg" />
 </div>
 
 
@@ -583,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -596,87 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469028   (82706) от 17.03.2012
-
-UK Top 40 Music Video Hits Febuary 2012 (DVD5)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gotye Feat Kimbra - Somebody That I Used To Know
-02 David Guetta Feat Sia - Titanium
-03 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever)
-04 Jessie J - Domino(   Читать дальше...   )Жанр: Музыка (видеоклипы)Перевод: ОтсутствуетЯзык субтитров: нетПродолжительность: 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468309   (82271) от 15.03.2012
-
-Приключения Электроников - Клипы [2001-2011, Pop-Punk, DVDRip,TVRip,WEBRip] [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключе́ния Электро́ников — российская панк-рок-супергруппа. «Приключения Электроников» не исполняют собственных песен (за исключением песни "Уходит детство") — исключительно кавер-версии песен из советских детских фильмов, мультфильмов и просто хиты тех лет.Жанр: РоссияПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467194   (81908) от 13.03.2012
-
-Душевные песни, знакомые с детства / THE OLD [Part 1] (2007) SATRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A44EF3144AD22A850E8C0CA96C57BEE972DD8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

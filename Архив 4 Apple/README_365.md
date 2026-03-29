@@ -1,3 +1,115 @@
+###  Публикация: 1057084   (477513) от 27.09.2016
+
+Day One 2 Journal + Notes 2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Day One 2: новый журнал-дневник
+Разработчики персонального журнала Day One выпустили новую, кардинально переработанную версию приложения. Версия 2.0, доступная на i-устройствах и "маках", получала ряд важных функций. Во-первых, теперь у пользователей есть возможность вести несколько дневников одновременно, а также присваивать им собственные цвета и названия. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 сентября 2016Разработчик: Bloom Built, Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C9E9314D4B94E460BA92841161DB195E784A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057104   (477508) от 27.09.2016
+
+Super Vectorizer 2.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Super Vectorizer – профессиональное приложение для трассировки векторных изображений, осуществляющее преобразование растровых изображений форматов типа JPEG, BMP и PNG в масштабируемые векторные форматы всего за несколько щелчков мышью.
+
+Вы можете импортировать множество форматов в Super Vectorizer:
+JPG,BMP,PNG,GIF,PDF,PSD,PNT,RGB,ARW,BMPF,CUR,CRW,CR2,DCR,DNG,EPSF,EPSI,EPI,EPS,(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 сентября 2016Разработчик: Photo-in-Art StudioПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78BA5F22445DFE74FF035252D594733BB1A6FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406289   (477364) от 02.09.2020
+
+Art Text 4.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Art Text - красивая текстовая графика
+Art Text - незаменимая программа под Mac OS для тех кому часто нужно рисовать высококачественную графику: тексты заголовков, кнопки, баннеры, логотипы, иконки и тому подобное. Программа позволяет преобразовать любой текст или векторное изображение в яркую графику высочайшего качества.
+
+Благодаря поддержке слоев, обширной векторной (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: BeLight Software Ltd.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F28F922D43B8408A2028304754FECE481B7A287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406284   (477214) от 02.09.2020
+
+TG Pro (Temperature Gauge Pro) 2.50 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477214.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.08.2020Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08F099847A1F366772867535A56DB968F8B477E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057255   (477209) от 27.09.2016
 
 Disk Drill Enterprise 3.0.756 [Multi/Ru]
@@ -6,7 +118,7 @@ Disk Drill Enterprise 3.0.756 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477209.jpg" />
+  <img src="Z:/picture/008/save_picture_477209.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ iExplorer 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477092.jpg" />
+  <img src="Z:/picture/008/save_picture_477092.jpg" />
 </div>
 
 
@@ -59,7 +171,7 @@ MacPilot 4.0.7 [Eng] (2010)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476893.jpg" />
+  <img src="Z:/picture/008/save_picture_476893.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ Music Tag Editor Pro 7.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476528.jpg" />
+  <img src="Z:/picture/008/save_picture_476528.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ GraphicConverter 11 v11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476522.jpg" />
+  <img src="Z:/picture/008/save_picture_476522.jpg" />
 </div>
 
 
@@ -143,7 +255,7 @@ Xliff Editor 2.9.10.1 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476516.jpg" />
+  <img src="Z:/picture/008/save_picture_476516.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ A Better Finder Attributes 7 v7.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476514.jpg" />
+  <img src="Z:/picture/008/save_picture_476514.jpg" />
 </div>
 
 
@@ -196,7 +308,7 @@ Posterino 3 v3.11.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476507.jpg" />
+  <img src="Z:/picture/008/save_picture_476507.jpg" />
 </div>
 
 
@@ -223,7 +335,7 @@ PullTube 1.8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476500.jpg" />
+  <img src="Z:/picture/008/save_picture_476500.jpg" />
 </div>
 
 
@@ -249,7 +361,7 @@ World Clock Deluxe 4.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476498.jpg" />
+  <img src="Z:/picture/008/save_picture_476498.jpg" />
 </div>
 
 
@@ -276,7 +388,7 @@ Note-C 2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476494.jpg" />
+  <img src="Z:/picture/008/save_picture_476494.jpg" />
 </div>
 
 
@@ -302,7 +414,7 @@ iReal Pro 2022.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476411.jpg" />
+  <img src="Z:/picture/008/save_picture_476411.jpg" />
 </div>
 
 
@@ -328,7 +440,7 @@ RAR Extractor - Unzip ZIP 7Z 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476395.jpg" />
+  <img src="Z:/picture/008/save_picture_476395.jpg" />
 </div>
 
 
@@ -354,7 +466,7 @@ Grids for Instagram 8.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476305.jpg" />
+  <img src="Z:/picture/008/save_picture_476305.jpg" />
 </div>
 
 
@@ -380,7 +492,7 @@ iStatistica 4.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476093.jpg" />
+  <img src="Z:/picture/008/save_picture_476093.jpg" />
 </div>
 
 
@@ -406,7 +518,7 @@ Infographics for Pages 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475337.jpg" />
+  <img src="Z:/picture/008/save_picture_475337.jpg" />
 </div>
 
 
@@ -433,7 +545,7 @@ TG Pro (Temperature Gauge Pro) 2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475333.jpg" />
+  <img src="Z:/picture/008/save_picture_475333.jpg" />
 </div>
 
 
@@ -460,7 +572,7 @@ Data Rescue Pro 4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475245.jpg" />
+  <img src="Z:/picture/008/save_picture_475245.jpg" />
 </div>
 
 
@@ -488,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475166.jpg" />
+  <img src="Z:/picture/008/save_picture_475166.jpg" />
 </div>
 
 
@@ -514,7 +626,7 @@ DupeZap 4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475153.jpg" />
+  <img src="Z:/picture/008/save_picture_475153.jpg" />
 </div>
 
 
@@ -543,7 +655,7 @@ TablePlus 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475144.jpg" />
+  <img src="Z:/picture/008/save_picture_475144.jpg" />
 </div>
 
 
@@ -570,7 +682,7 @@ OmniFocus Pro 2.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475139.jpg" />
+  <img src="Z:/picture/008/save_picture_475139.jpg" />
 </div>
 
 
@@ -582,116 +694,6 @@ OmniFocus 2: когда время — важнейший ресурс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C0BAC580E79A7167C5B3A4CDE34796C6B0C37CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406407   (475035) от 03.09.2020
-
-AnyTrans for iOS 8.7.0.20200831 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475035.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD96FFEE37371CDE5AA70FBD05A08F22399C7A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406442   (475032) от 03.09.2020
-
-IINA 1.1.0 Beta 1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC.
-Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.09.2020Разработчик: Collider LI.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97912430FFA2B96AE8959E8A555C88E562F57F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406550   (475030) от 03.09.2020
-
-Audirvana 3.5.40 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.09.2020Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B025D18D67EB8F27D6C97AE7A5A51D4A1BE40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057425   (474714) от 28.09.2016
-
-Commander One PRO 1.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
-Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
-
-• Создание, удаление, открытие, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27.09.2016Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC0E60D7F9E2BE33A420A7916C3466171175520
 ```
 
 https://mybot314.ru/tekegram_catalog/

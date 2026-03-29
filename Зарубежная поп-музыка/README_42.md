@@ -1,3 +1,32 @@
+###  Публикация: 1153176   (561615) от 25.07.2017
+
+Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men at Work - австралийская поп-рок группа, основанная  Колином Хэйем в 1979 и добившаяся признания в 1982-1984 годах. Музыкальный стиль группы сочетал элементы новой волны, регги и в дальнейшем синти-попа. Men at Work остаётся единственной австралийской группой, синглы  которой занимали первые места и в США, и в Великобритании, и, до 2011 года, единственной австралийской (   Читать дальше...   )Список альбомов:
+1981 - Business As Usual
+1983 - Cargo
+1985 - Two Hearts(   Читать дальше...   )Жанр: Electronic, New Wave, Pop Rock, Synth popПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923870   (561030) от 02.08.2015
 
 Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
@@ -6,7 +35,7 @@ Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
+  <img src="Z:/picture/008/save_picture_561030.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
+  <img src="Z:/picture/008/save_picture_560919.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
+  <img src="Z:/picture/008/save_picture_560908.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Donna Summer - Summer: The Original Hits (2018) [MP3|320 Kbps] <Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560373.jpg" />
+  <img src="Z:/picture/008/save_picture_560373.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Fox Giganten (Die besten Discofox Schlager Hits 2019 fur deine Tanz Party) 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560063.jpg" />
+  <img src="Z:/picture/008/save_picture_560063.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Million Dollar Secret - Under The Surface (1989) LP [MP3|320 Kbps] <Electronic P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558189.jpg" />
+  <img src="Z:/picture/008/save_picture_558189.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Acoustic Pop (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557338.jpg" />
+  <img src="Z:/picture/008/save_picture_557338.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Strange Advance - The Distance Between (1988) Reissue, Remastered, 2016, Bullsey
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557025.jpg" />
+  <img src="Z:/picture/008/save_picture_557025.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Richard Vimal - Migrations (1978) LP [MP3|320 Kbps] <Electronic, Synth-pop, Ambi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556452.jpg" />
+  <img src="Z:/picture/008/save_picture_556452.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Clubfete 2019.2 (63 Summer Club & Party Hits) (2019) 3CD [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556189.jpg" />
+  <img src="Z:/picture/008/save_picture_556189.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Samana - Ascension (2019) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555583.jpg" />
+  <img src="Z:/picture/008/save_picture_555583.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Oh Shu - Big Fish (2019) [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555577.jpg" />
+  <img src="Z:/picture/008/save_picture_555577.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Awim - Angels Whisper In Me (2005) [MP3|320 кб/с]<Pop, indie>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555361.jpg" />
+  <img src="Z:/picture/008/save_picture_555361.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Jesika von Rabbit (of Gram Rabbit) - Dessert Rock (2018) [MP3|320 Kbps] <Alterna
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554915.jpg" />
+  <img src="Z:/picture/008/save_picture_554915.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Ketnet Hits - Summer Edition (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554757.jpg" />
+  <img src="Z:/picture/008/save_picture_554757.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Split Dimension 1-3 (2011, 2012) LP [MP3|320 Kbps] <Electronic, Italo-Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554756.jpg" />
+  <img src="Z:/picture/008/save_picture_554756.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - 100% NL Zomer Hits (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554748.jpg" />
+  <img src="Z:/picture/008/save_picture_554748.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Virgin Radio les 10 Ans! (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554746.jpg" />
+  <img src="Z:/picture/008/save_picture_554746.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Synthetic Memento (2009) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554490.jpg" />
+  <img src="Z:/picture/008/save_picture_554490.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Tom Tom Club - 5 Studio Albums (1981-2000) CD [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554483.jpg" />
+  <img src="Z:/picture/008/save_picture_554483.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Madonna - Madame X (2019) Deluxe [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554392.jpg" />
+  <img src="Z:/picture/008/save_picture_554392.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Ballerstyle - Mallorca Hits 2019 (Best of Mallorcastyle Schlager für die D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553779.jpg" />
+  <img src="Z:/picture/008/save_picture_553779.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Schlager-die Hits des Sommers (2019) [MP3|320 Kbps] <Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553777.jpg" />
+  <img src="Z:/picture/008/save_picture_553777.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - No Schlager No Party (Von Discofox bis Mallorca - Die besten Hits 2019 im M
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553775.jpg" />
+  <img src="Z:/picture/008/save_picture_553775.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553746.jpg" />
+  <img src="Z:/picture/008/save_picture_553746.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Discofox Stars (Die besten Schlager Hits 2019 für deine Fox Party) (2019) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268796B36713B43C50583192E743B423EDE1E6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308612   (553733) от 15.06.2019
-
-VA - Discofox 2019 (Die besten Fox Schlager Hits zu deiner Sommer Tanz Party) (2019) [MP3|320 Kbps] <Schlager & Volksmusik, Neue Deutsche Welle, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Fischer - Du machst mich kopflos
-02. Kay Dörfel - Malinconia
-03. Michael Fischer - Unser Moment
-04. Neon - 100.000 Volt(   Читать дальше...   )Жанр: Schlager & Volksmusik, Neue Deutsche Welle, DiscoПродолжительность: 05:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEE6C60302D56D7B337ADECBEC1F1FC533F3189
 ```
 
 https://mybot314.ru/tekegram_catalog/

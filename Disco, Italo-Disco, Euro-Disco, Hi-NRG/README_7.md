@@ -6,7 +6,7 @@ Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808335.jpg" />
+  <img src="Z:/picture/008/save_picture_808335.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Moleskine - Moleskine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808274.jpg" />
+  <img src="Z:/picture/008/save_picture_808274.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ G.B. And The Tracks - Dance To The Music (1978) LP [MP3|320 Kbps] <Electronic, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808224.jpg" />
+  <img src="Z:/picture/008/save_picture_808224.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Morning, Noon & Night - Morning, Noon & Night (1977) LP [MP3|320 Kbps] <Funk-Sou
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804511.jpg" />
+  <img src="Z:/picture/008/save_picture_804511.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sergio Ferraresi - Horizons Vol. 7 Galaxi (1979) LP, Reissue 2013, Private Recor
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803457.jpg" />
+  <img src="Z:/picture/008/save_picture_803457.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ ScAnDroid Experiment's - Disconostalgie (EP) (2018) Авторская разд�
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802939.jpg" />
+  <img src="Z:/picture/008/save_picture_802939.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Italo Disco - The Lost Legends Vol. 1 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801186.jpg" />
+  <img src="Z:/picture/008/save_picture_801186.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kathi Baker - Feel The Heat (1979) LP [MP3|320 Kbps] <Funk / Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801105.jpg" />
+  <img src="Z:/picture/008/save_picture_801105.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Italo Disco: The Lost Legends Vol.11 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801087.jpg" />
+  <img src="Z:/picture/008/save_picture_801087.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Italoconnection - Metropoli (2018) 2CD, Expanded Edition [MP3|320 Kbps] <Synth-p
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800637.jpg" />
+  <img src="Z:/picture/008/save_picture_800637.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lisa - Lisa (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800636.jpg" />
+  <img src="Z:/picture/008/save_picture_800636.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stylove - The Album (The Original Maxi-Singles Collection) (2017) [MP3|320 Kbps]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800550.jpg" />
+  <img src="Z:/picture/008/save_picture_800550.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The New Fifty Guitars - Disco's Greatest Hits (1978) LP [MP3|320 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800537.jpg" />
+  <img src="Z:/picture/008/save_picture_800537.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Italo Disco: The Lost Legends Vol.15 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800412.jpg" />
+  <img src="Z:/picture/008/save_picture_800412.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Italo Disco: The Lost Legends Vol.14 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800405.jpg" />
+  <img src="Z:/picture/008/save_picture_800405.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Italo Disco: The Lost Legends Vol.12 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800404.jpg" />
+  <img src="Z:/picture/008/save_picture_800404.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Italo Disco: The Lost Legends Vol.13 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800366.jpg" />
+  <img src="Z:/picture/008/save_picture_800366.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ N'Draman Blintch - Cosmic Sounds (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799848.jpg" />
+  <img src="Z:/picture/008/save_picture_799848.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tom Hooker - No Time To Say Goodbye (2018) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799840.jpg" />
+  <img src="Z:/picture/008/save_picture_799840.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Rene Riche And Her Cosmic Band - Love In Space (1978) LP [MP3|320 Kbps] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799839.jpg" />
+  <img src="Z:/picture/008/save_picture_799839.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ C.J. & Co - Devil's Gun (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799650.jpg" />
+  <img src="Z:/picture/008/save_picture_799650.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Oliver's Planet - Oliver's Planet (1979) LP [MP3|320 Kbps] <Electronic, Electro,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799644.jpg" />
+  <img src="Z:/picture/008/save_picture_799644.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Italo Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799638.jpg" />
+  <img src="Z:/picture/008/save_picture_799638.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Italo Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799636.jpg" />
+  <img src="Z:/picture/008/save_picture_799636.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Italo Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799626.jpg" />
+  <img src="Z:/picture/008/save_picture_799626.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Italo Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799614.jpg" />
+  <img src="Z:/picture/008/save_picture_799614.jpg" />
 </div>
 
 

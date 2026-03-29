@@ -6,7 +6,7 @@ WinPE 10 Sergei Strelec (x86/x64) 05.05.2016 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776597.jpg" />
+  <img src="Z:/picture/008/save_picture_776597.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Anvir Task Manager 8.0.2 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776536.jpg" />
+  <img src="Z:/picture/008/save_picture_776536.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776531.jpg" />
+  <img src="Z:/picture/008/save_picture_776531.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Anvir Task Manager 8.0.3 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776519.jpg" />
+  <img src="Z:/picture/008/save_picture_776519.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776493.jpg" />
+  <img src="Z:/picture/008/save_picture_776493.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Easy Disc Burner 4.7.9.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776492.jpg" />
+  <img src="Z:/picture/008/save_picture_776492.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TagScanner 6.0.27 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776474.jpg" />
+  <img src="Z:/picture/008/save_picture_776474.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinSnap 4.6.1 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776462.jpg" />
+  <img src="Z:/picture/008/save_picture_776462.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Alternate File Shredder 1.870 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776451.jpg" />
+  <img src="Z:/picture/008/save_picture_776451.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Q-Dir 6.35 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776442.jpg" />
+  <img src="Z:/picture/008/save_picture_776442.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Anvir Task Manager 8.0.2 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776441.jpg" />
+  <img src="Z:/picture/008/save_picture_776441.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Calibre 3.19.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776422.jpg" />
+  <img src="Z:/picture/008/save_picture_776422.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776406.jpg" />
+  <img src="Z:/picture/008/save_picture_776406.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Anvir Task Manager 8.0.3 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776397.jpg" />
+  <img src="Z:/picture/008/save_picture_776397.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Auslogics Registry Cleaner 7.0.5.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776393.jpg" />
+  <img src="Z:/picture/008/save_picture_776393.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ PDF Shaper Professional 8.2 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776389.jpg" />
+  <img src="Z:/picture/008/save_picture_776389.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ KeePass Password Safe 2.33 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776359.jpg" />
+  <img src="Z:/picture/008/save_picture_776359.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Icecream PDF Split & Merge PRO 3.45 Portable by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776356.jpg" />
+  <img src="Z:/picture/008/save_picture_776356.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sandboxie 5.24 RC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776352.jpg" />
+  <img src="Z:/picture/008/save_picture_776352.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776340.jpg" />
+  <img src="Z:/picture/008/save_picture_776340.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Any Video Converter Professional 5.9.4 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776333.jpg" />
+  <img src="Z:/picture/008/save_picture_776333.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Format Factory 4.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776308.jpg" />
+  <img src="Z:/picture/008/save_picture_776308.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ NETGATE Spy Emergency 21.0.105.0 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776294.jpg" />
+  <img src="Z:/picture/008/save_picture_776294.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Duplicate Cleaner Pro 4.0.0 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776290.jpg" />
+  <img src="Z:/picture/008/save_picture_776290.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Opera Developer 38.0.2213.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776279.jpg" />
+  <img src="Z:/picture/008/save_picture_776279.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ SamDrivers 18.3 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776275.jpg" />
+  <img src="Z:/picture/008/save_picture_776275.jpg" />
 </div>
 
 

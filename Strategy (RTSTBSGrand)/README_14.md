@@ -1,3 +1,29 @@
+###  Публикация: 1514338   (216802) от 03.12.2021
+
+Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete Collection]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нападайте на Великих Ханов, имперских военачальников и командиров-сёгунов в классической стратегии в реальном времени и замковом симуляторе - Stronghold: Warlords. Командуйте уникальными военачальниками на поле боя, выстраивайте замковую экономику и используйте оружие в качестве сильного аргуемента!Тип издания: LicenseРазработчик: FireFly StudiosЖанр: Стратегия в реальном времениЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966926   (214623) от 19.12.2015
 
 Europa Universalis IV (2013) [En/Multi] (1.14.01/dlc) Repack R.G. Механики
@@ -6,7 +32,7 @@ Europa Universalis IV (2013) [En/Multi] (1.14.01/dlc) Repack R.G. Механик
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214623.jpg" />
+  <img src="Z:/picture/005/save_picture_214623.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gord (2023) [Ru/Multi] (1.2.0.38299/dlc) Repack DjDI [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213497.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Machiavelli the Prince (1995) [En] (1.0.3) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213389.jpg" />
+  <img src="Z:/picture/005/save_picture_213389.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209951.jpg" />
+  <img src="Z:/picture/005/save_picture_209951.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208926.jpg" />
+  <img src="Z:/picture/005/save_picture_208926.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Planetary Annihilation: TITANS (2015) [Ru/Multi] (124627/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205678.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205604.jpg" />
+  <img src="Z:/picture/005/save_picture_205604.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205307.jpg" />
+  <img src="Z:/picture/005/save_picture_205307.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Solstice (2021) [En] (1.0.1) Repack dark_elf2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203221.jpg" />
+  <img src="Z:/picture/004/save_picture_203221.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Victoria II (2010) [Multi] (2.31-2/dlc) License GOG [Civil War Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202484.jpg" />
+  <img src="Z:/picture/004/save_picture_202484.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack dixen18 [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202459.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Stronghold Crusader (2025) [Ru/Multi] (2.01/dlc) Scene Rune [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202454.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Sins of a Solar Empire: Rebellion (2012) [Ru/En] (1.98/dlc) License GOG [Ultimat
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201968.jpg" />
+  <img src="Z:/picture/005/save_picture_201968.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Warhammer 40,000: Dawn of War Dark Crusade (2006) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201859.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200757.jpg" />
+  <img src="Z:/picture/005/save_picture_200757.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Age of Wonders 2: The Wizard's Throne (2002) [En] (1.20.0.3100) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200756.jpg" />
+  <img src="Z:/picture/005/save_picture_200756.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Age of Wonders: Shadow Magic (2004) [Ru/En] (1.30.0.2616) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200741.jpg" />
+  <img src="Z:/picture/005/save_picture_200741.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Drone Swarm (2020) [Ru/Multi] (7377621) Scene SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200724.jpg" />
+  <img src="Z:/picture/005/save_picture_200724.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.1/dlc) Repack FitGirl [Collecti
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_200583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200583.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Warhammer 40,000: Dawn of War Soulstorm (2008) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_200011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200011.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195939.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Total War: Shogun 2 (2011) [Ru/Multi] (1.1.0.6262.2931569/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195581.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195561.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193368.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Warcraft II: Remastered (2024) [Ru/Multi] (1.0.0.2157) Repack Necros
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B809DCF41679B955474790ABAC225499576570A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661806   (188175) от 16.09.2023
-
-Stellar Monarch (2016) [En] (1.48/dlc) License GOG
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная стратегия в формате 4Х, где вам предстоит исследовать бескрайние просторы космоса, завоевывать новые территории, вкладывать ресурсы в развитие высокотехнологического оборудования и принимать участие в зрелищных битвах. Вам предстоит выступить в качестве полноценного императора, а не привычного оператора логистики, который лишь скрупулезно управляет ресурсами. (   Читать дальше...   )Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586BF505F4F81694D41C278642EECC92E374F2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

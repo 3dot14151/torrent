@@ -1,3 +1,160 @@
+###  Публикация: 1477120   (1011335) от 13.06.2021
+
+Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Votoms: Roots of Ambition | Бронированные воины Вотомы: Предательство [1988, OVA, 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высшее военное руководство только начинает подозревать о личных планах полковника Пейлсена на взвод Красноплечих. Для этого они решают заслать в Красноплечих группу своих людей, в которую попадает и Кирико. Однако, прибыв на военную базу, всех новоприбывших сразу же с борта шаттла отправляют на учебный бой, который обернулся настоящей кровавой бойней.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 56 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E257A309D7F3082F7D80D288C175124F94D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477116   (1011333) от 13.06.2021
+
+Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Red Shoulder | Бронированные воины Вотомы: Последний красноплечий [1985, OVA, 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается уже после завершения войны и расформирования группы элитных воинов-пилотов Вотомс, которые пытаются отомстить своему бывшему командиру за искалеченные судьбы.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 53 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915BC6F9FC372DD7CCCD819E2E91E1FAA58AF88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477126   (1011331) от 13.06.2021
+
+Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Бронированные воины Вотомы: Материалы по делу Пейлсена [2007, OVA, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77976AF6182DBE2EF2A50B6B4CF97A281B89787C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477133   (1011328) от 13.06.2021
+
+Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Бронированные воины Вотомы: Призрачная арка [2010, OVA, 6 из 6] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Призрачная арка" повествует о событиях, произошедших спустя 30 лет после событий оригинального аниме, выпущенного ещё в далёком 1983 году. Серия вполне самостоятельная, не обязательно пересматривать оригинальный сериал.
+Тем не менее, давайте коснемся сюжета. В оригинальном сериале главным героем был Кирико Кьюви, бывший член Отряда Красноплечих - (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EE23AEC1664FA947976F5ADD171CBA2DCD341C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477118   (1011325) от 13.06.2021
+
+Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Бронированные воины Вотомы: Большая битва [1986, OVA, 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Галактика Астрагиус. Во время краткого перемирия после Столетней войны Баларант и Гильгамеш готовятся к новым битвам. В лабораториях Баларанта разрабатывают технологию массового производства Совершенных Солдат. Испытания проводятся на боевой арене, где на радость публике сражаются ветераны войны, оставшиеся в мирное время не у дел. Но обладающий нечеловеческой силой (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF756F10271BB6607510DC70131C921C7D820D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477112   (1011315) от 13.06.2021
+
+Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные воины Вотомы [1983, TV, 52 из 52] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Кирико Кьюви, бывший член Отряда Красноплечих - элитного подразделения конфедерации Гильгамеш, сражавшегося против Баларанта. Эти две космические нации уже сто лет сражаются в войне, причина которой давно забыта. Наконец, когда война казалось бы уже закончилась, Кирико внезапно поручают подозрительную миссию, выполнение которой повлекло за собой захватывающие (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 52 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7642EAF9EC59C18790226BEA9E31DDDA0BE7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477237   (1011140) от 14.06.2021
 
 Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг [ТВ-2] [2018, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +163,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011140.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010674.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010333.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010286.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010165.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009574.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009449.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009438.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009409.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009263.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008711.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008365.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008108.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008107.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007282.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006885.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005277.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004752.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004690.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004689.jpg" />
 </div>
 
 
@@ -517,162 +674,6 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCA7C5D7A3684D29C0917CA577E27A540F2AC17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436133   (1004620) от 31.07.2021
-
-Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альтернативном мире с нуля [ТВ-2] [2020, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004620.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПродолжениеПроизводство: студия White FoxЖанр: фэнтези, драмаРежиссер: Ватанабэ МасахаруПеревод: CrunchyRoll (TV); YakuSub Studio (SP)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF4DCED8F94A240D7528A0A7AA31F309B289E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349380   (1004480) от 01.01.2020
-
-Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выросший в Токио старшеклассник Кайто Дзин переезжает в Нагою, где встречает похожую на кошку школьницу Монаку Ятогамэ, которая разговариает на нагойском диалекте. Для остальных японцев этот диалект звучит довольно грубо, да и сама Ятогамэ не горит желанием идти на контакт. Если вы хотите вместе с главными героями больше узнать о Нагое, то этот сериал для вас!Производство: SaettaЖанр: комедия, повседневностьРежиссер: Хирасава ХисаёсиПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0F209EC08CF21730F324B3CB7B0B512E9DF8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349533   (1004437) от 01.01.2020
-
-Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Ascendance of a Bookworm | Власть книжного червя [ТВ-1] [2019, TV, 14] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она очнулась в другом мире… Трагическая случайность оборвала жизнь книголюбки Урано Мотосу, причём вскоре после того, как её приняли на работу в библиотеку, как она и мечтала. Придя в себя, Урано обнаружила, что перенеслась в тело девочки Майн, дочери простого стражника. Теперь она живёт в параллельном мире, в городе Эренфест, где правит владеющая магией знать. Но (   Читать дальше...   )Производство: Студия Asia-do / 亜細亜堂Жанр: комедия, повседневностьРежиссер: Хонго МицуруПеревод: SovetRomantica, AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 14 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809AB4B572F869FD2F55D0FECCCB489CB37F2696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349537   (1004255) от 02.01.2020
-
-Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation | Лиричная волшебница Наноха: Детонация (фильм четвёртый) [2018, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара исследователей остается на своей умирающей планете Элтория со своими двумя дочерьми Амитиэ и Кириэ в надежде найти способ оживить планету. Но когда их отец заболевает, кажется, мечта возродить планету умрет. Против желания старшей сестры, Кириэ отправляется вместе со своей поддругой детства Ирис, чтобы получить помощь из другого мира. Они прибывают в Японию (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключенияРежиссер: Хамана ТакаюкиПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 115 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E8726C3830416D3DC0942364E9BA1BD6750E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487125   (1004131) от 03.08.2021
-
-Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь знаменитых айдолов наполнена различными трудностями и кропотливой работой. Вот только об этом мало что знают фанаты, которые привыкли видеть энергичных и счастливых звёзд на сцене. Всё меньше на эстраде можно увидеть достойных айдолов, ведь не каждый сумеет преодолеть множество трудностей и добиться успеха. В городе Хошими знаменитые продюсеры решили создать (   Читать дальше...   )Производство: Lerche / ラルケ, Larx EntertainmentЖанр: музыкальный, повседневностьРежиссер: Киномэ ЮПеревод: SovetRomantica (Hanabi, Krou)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88668DFC78B3255AE7E15472284480192A903EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351121   (1002722) от 08.01.2020
-
-Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон беспокойных дев [2019, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участницы литературного клуба старшей школы решили узнать друг друга поближе и для этого по очереди ответили на вопрос: «Если бы перед смертью вы могли сделать что-то одно, то что бы вы выбрали?» Одна из них выпалила: «Заняться сексом!» Тогда никто ещё не знал, какую бурю вызовут эти слова и как скажутся на судьбе каждой из этих девочек с очень разными характерами (   Читать дальше...   )Производство: Студия Lay-duceЖанр: романтика, повседневностьРежиссер: Андо МасахироПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B587638743820687224288F53F549A8D22614B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1091254   (944737) от 08.01.2017
+
+Джеймс Хэрриот | О всех созданиях - прекрасных и удивительных (1988) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Хэрриот делится с читателями воспоминаниями об эпизодах, встречающихся в практике ветеринарного врача. Несмотря на, казалось бы, довольно прозаические сюжеты, отношение врача к четвероногим пациентам и их владельцам – то теплое и лиричное, то саркастическое – передано очень тонко, с большой человечностью и юмором.Жанр: Научно-художественные заметкиПродолжительность: 12:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98934B43788ECFAB3BFC35B2CD8D7EC99178EE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090879   (944535) от 08.01.2017
+
+Владимир Беляев | Старая крепость [Трилогия]  (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944535.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой книге романа известного советского писателя, лауреата Государственной премии СССР и премии имени Т.Шевченко, рассказывается о жизни ребят маленького пограничного городка Западной Украины в годы гражданской войны. Юные герои становятся свидетелями, а порой и участниками революционных боев за Советскую власть.
+Во второй книге - "Дом с привидениями" (   Читать дальше...   )Жанр: классическая проза Детская прозаПродолжительность: 33:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85868462F84D8D4EE2E8C5040E47C995F1CAE87E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983519   (943869) от 06.02.2016
+
+Джозеф Джекобс | Джек и золотая табакерка (сборник) (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943869.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании отобраны самые популярные сказки из собрания Дж. Джекобса, в которых наиболее полно воплотился нравственный и исторический опыт народов Великобритании и Северной Ирландии. Сказки отмечены ярким национальным своеобразием, высокой художественностью, интересными бытовыми зарисовками.Жанр: Английские народные сказкиПродолжительность: 08:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F57DC5C19698DF1E73301DD72A1FB9838CF92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091346   (942922) от 09.01.2017
 
 Виталий Губарев | Путешествие на Утреннюю Звезду (2017) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942922.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942530.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941523.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939606.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939166.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938647.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937772.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937409.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ VA | Машкины страшилки, Часть 1 и 2 (2017) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935336.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934868.jpg" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934088.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933963.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932482.jpg" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932427.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932007.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931845.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930927.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928917.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928583.jpg" />
 </div>
 
 
@@ -517,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922766.jpg" />
 </div>
 
 
@@ -543,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922317.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922268.jpg" />
 </div>
 
 
@@ -599,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921504.jpg" />
 </div>
 
 
@@ -610,84 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDCC647DE613F1C21D8DE24BF8FEDA015619A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288320   (921342) от 29.01.2011
-
-Клайв Стейплз Льюис | Хроники Нарнии [7 аудиокниг] (1950-1956) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хроники Нарнии — цикл из семи детских фэнтезийных книг, написанных Клайвом Стэйплзом Льюисом. В них рассказывается о приключениях детей в мире под названием Нарния. Нарния — это место, где некоторые животные умеют разговаривать, магия никого не удивляет, а добро борется со злом. Хроники Нарнии содержат много намеков на христианские идеи в доступном для юных читателей (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 38:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BEF821996198B58A341D55B05A617242862A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096144   (920926) от 23.01.2017
-
-Валентин Постников | Карандаш и Самоделкин в Египте (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920926.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время, все газеты о том только и пишут, что в Египте найдена пирамида Тутанхамона, чья мумия усыпана драгоценными камнями, а саркофаг сделан из чистого золота. Для кого-то, это ценная научная находка, а для капитана Буль-Буля и шпиона Дырки, это всего лишь повод поживиться найденными сокровищами. Куда приведут жадность и глупость этих двух разбойников, (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 03:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB64159F8B1EF5667D050875561F57629528036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096153   (920880) от 23.01.2017
-
-Валентин Постников | Рождественские приключения Гарри и его собаки Поттера (2005) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920880.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части этой замечательной сказки вы уже познакомились со старинным городом Имменгемом, где живет самый обыкновенный мальчик с самым обыкновенным именем Гарри. Однажды с ним начали происходить настоящие чудеса – как-то раз в его дверь позвонил волшебный пес по кличке Поттер… А в продолжении вас ждут необыкновенные и захватывающие приключения и чудеса, которые (   Читать дальше...   )Жанр: Детское фэнтези, сказкаПродолжительность: 03:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ECE86C27FE20B68F83F0AE58B5BB8D14E2A58D
 ```
 
 https://mybot314.ru/tekegram_catalog/

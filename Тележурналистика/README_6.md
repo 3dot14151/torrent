@@ -1,3 +1,133 @@
+###  Публикация: 975473   (972187) от 15.01.2016
+
+Линия защиты. Состояние республики (2016.01.14) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Донецк и Луганск. Дебальцево и посёлок Октябрьский. С каким настроением Донбасс провожал старый год и встречал новый? Съёмочная группа "Линии защиты" побывала там, где теперь заново учатся верить в чудеса. Дед Мороз-разведчик, снежинки из осколков гранат и залпы… салютов в специальном выпуске программы.Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: 00:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F19A5A2E7690691EA88422FC042CB7513738A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975894   (970380) от 16.01.2016
+
+Теория заговора. Мясная нарезка (2016.01.16) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970380.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 октября 2015 года Всемирная организация здравоохранения объявила мясо и колбасу продуктами, вызывающими рак. Весь мир в буквальном смысле вздрогнул. Веками ели мясо и тут на тебе – от него умирают.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF2DCBAE0015BFC577E63425DE6760D2E9DB98A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976215   (969772) от 17.01.2016
+
+Чудо техники (2016.01.17) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969772.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1BCFDABABA5D07839AF96C4816118E0C6FD5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357838   (969566) от 07.02.2020
+
+Основано на реальных событиях. Проклятие созвездия рака (2020) WEBRip (серии 1-4 из 4)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный документальный детектив, где ведущий программы Михаил Генделев вместе со зрителями будет разбираться в громких скандалах богатых и знаменитых. Проект совместил популярные телевизионные жанры: сериал, расследование, светские и политические интриги, шоу со звездами. На экране — эксклюзивные кадры, добытые командой НТВ, а также сюжеты, которые никогда (   Читать дальше...   )Производство: Россия, «АО Телекомпания НТВ»Жанр: Документальный, расследованиеРежиссер: Михаил ГенделевЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: серии x ~00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345BFFEE9536C49E08005F3FA4E9BB1AC83E6766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976770   (968803) от 18.01.2016
+
+Честный детектив. Видео для закрытого показа (18.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они всегда брали с собой пистолет, нож, молоток, биту и видеокамеру. Несколько месяцев в парке иркутского Академгородка орудовали кровожадные и беспощадные налетчики. Душегубы не жалели никого: ни мужчин, ни женщин, ни детей. Бандитов не интересовали личные вещи потерпевших. Они совершали налеты совсем с другой целью… Почему так долго не могли поймать маньяков-налетчиков? (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Константин МантуровскийПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4098133BEC9407FBC7ADF8DDB0B4433FD887FCA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358494   (968741) от 08.02.2020
 
 Живая еда с Сергеем Малозёмовым (08.02.2020) SATRip
@@ -6,7 +136,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968741.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967715.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967235.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967232.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967191.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966839.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966835.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966826.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965792.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965791.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965783.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965772.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965749.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964816.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964814.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964803.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964797.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964707.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964703.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964349.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963722.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978392   (963721) от 23.01.2016
-
-Центральное телевидение (23.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB7A27DBE94D6FC51F3E3BC262E6BDCE41EAB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978504   (963565) от 23.01.2016
-
-Новые русские сенсации. Новая Ванга. Я знаю, что будет! (2016.01.23) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураПродолжительность: ~ 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE4F378D576E188D7195727A898CDE0096B3A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978272   (963429) от 23.01.2016
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая: Фастфуд (2016.01.23) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963429.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE9EF6B59E2F5043D83F75C80FBE28F1B06DD15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978350   (963182) от 23.01.2016
-
-Теория заговора. Уловки маркетинга (2016.01.23) HDTVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трети тех продуктов, которые сегодня лежат на прилавках, еще совсем недавно не существовало в природе. Только за последний год число производителей выросло в 3 раза. На продовольственном рынке произошли глобальные изменения. Этим пользуются мошенники, поставляющие на прилавки некачественные товары.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D42518D89E71ED4D9A1EB53DFE75FC96F739940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359281   (963043) от 13.02.2020
-
-Основано на реальных событиях. Алмазная вендетта. Убрать Калмановича (2020) WEB-DL [H.264/1080p-LQ] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть Шабтая Калмановича — одна из главных загадок XXI века. После громкого убийства в центре Москвы в СМИ начали всплывать удивительные факты его биографии и невероятные версии дерзкого расстрела. Кем же был Шабтай Калмпанович — секретным агентом, теневым королем шоу-бизнеса или тайным хранителем золота ЦК КПСС?
-Преданный друг Аллы Пугачёвой и вор в законе Япончика, (   Читать дальше...   )Производство: Россия / «АО Телекомпания НТВ»Жанр: Документальный, расследованиеРежиссер: Михаил ГенделевСубтитры: ОтсутствуютПродолжительность: ~00:38:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF61C1A772D203A46CDE338183C50A01AA6FBF38
 ```
 
 https://mybot314.ru/tekegram_catalog/

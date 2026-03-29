@@ -1,3 +1,55 @@
+###  Публикация: 660183   (52507) от 22.06.2024
+
+NG: В объективе: Необычное поведение животных / Caught in the Act (2007-2012) HDTVRip [H.264/720p-LQ] (серий 18)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52507.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дикой природе жизнь течет быстро. Чтобы запечатлеть диких животных на камеру, профессионалы подолгу выжидают в труднопроходимой местности. Наградой за их упорство, могут стать кадры, от которых захватывает дух. Но вовсе не обязательно проводить месяцы спрятавшись в укрытии, чтобы запечатлеть невероятное поведение животных. Целая армия отпускников и искателей приключений (   Читать дальше...   )Производство: СШАЖанр: документальный, природаРежиссер: Мартин Виллис, Бронвин ВоткинсПеревод: профессиональный одноголосый (Александр Гаврилин)Субтитры: отсутствуютПродолжительность: 18 серий по ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8255CC7C9B94443525CDED699DA6134970A3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735120   (50871) от 06.07.2024
+
+Возвращение исчезнувших / The Return (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 3) CLS Media
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природная экосистема чрезвычайно чувствительна и легко разрушается даже при незначительном воздействии извне. В частности, вмешательство человека оказывает фатальное влияние на судьбы разных видов. Биологические виды находятся под угрозой исчезновения из-за человеческих желаний и вмешательства, но, с другой стороны, они проявляют удивительную силу восстановления, (   Читать дальше...   )Производство: Корея Южная / Educational Broadcasting System (EBS)Жанр: документальный, природаРежиссер: Со ЧжунПеревод: Одноголосый профессиональный (CLS Media)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB708B34232678E72B01EED7B98A6AF19809B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329244   (50839) от 07.07.2024
 
 Дикая природа России / Wild Russia (2008) BDRip [H.264/720p] (серии 1-6 из 6)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50839.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50156.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49864.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49802.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49555.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49367.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49284.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49064.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44990.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42828.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39595.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37801.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37792.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36894.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36881.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36692.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33497.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31560.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29812.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29078.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20567.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18995.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ BBC: Мир природы. Смертоносные змеи Индии / BBC: 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16455.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14422.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9398E86D02901094D6FDB1F756B78F2E267B5967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802969   (13908) от 21.06.2025
-
-Большие кошки, маленький мир / Big Cats, Small World (2024) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13908.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Большие кошки, маленький мир» — это захватывающий документальный мини-сериал о жизни трёх самых харизматичных хищников Африки: львов, гепардов и леопардов. На берегах реки Гомоти в Ботсване, где простор ценится на вес золота, эти хищники ведут постоянную борьбу за выживание, охотничьи угодья и будущее своих детёнышей.
-Сериал демонстрирует редкие и драматические (   Читать дальше...   )Производство: Великобритания | Blue Ant Media, Terra Mater Factual StudiosЖанр: Документальный, природаРежиссер: Робин Кин-ЯнгПеревод: ДублированныйСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D204016A9F62DC7F8FDE274D0EBE99DE521244CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803576   (13592) от 24.06.2025
-
-Гладиаторы / Gladiators (2024) WEB-DLRip [H.264/720p] (сезон 1, серии 1-4 из 4) Viasat Nature
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с схватками не на жизнь, а на смерть между величайшими соперниками животного мира, где замедленная съемка усиливают драматизм происходящего. Подобно гладиаторским боям, звериные схватки происходят на различных диких «аренах», включая тропический лес Южной Америки, тихоокеанское побережье Северной Америки, Африканскую саванну и просторы Австралии.Производство: Великобритания / Sky Nature, TalesmithЖанр: документальный, природаРежиссер: Амабель Эдкок, Уилл БенсонУчастники: Шон БинПеревод: Дублированный (Viasat Nature)Язык озвучки: Русский, АнглийскийСубтитры: английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA0814812482147C8CED5EC7C6FBEFAC0158CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

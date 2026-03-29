@@ -1,3 +1,61 @@
+###  Публикация: 1211071   (777786) от 06.03.2018
+
+Steamhammer / Armageddon - Discography: 5 albums, 7 CD (1969-2010) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллектив--------------------------
+
+01. Buzzard (8:21)
+02. Silver Tightrope (8:26)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Psychedelic Rock, Prog Rock |Продолжительность: 05:21:28 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD2DBA673963A181D9417B839F10B9CE07DE909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013566   (776948) от 06.05.2016
+
+Railway - Railway II (1985) Remastered, 1997, High Vaultage [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick It,Stick It    03:15
+02. Go Down    03:19
+03. D.O.A.    03:31
+04. Lady Life    03:01(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7248A3AA97446D8B426E9852975C4F74258AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014183   (776925) от 06.05.2016
 
 Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
@@ -6,7 +64,7 @@ Rich Robinson - Paper (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776925.jpg" />
+  <img src="Z:/picture/008/save_picture_776925.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Fastway - Fastway + All Fired Up! (1991) Remastered, 2000, guitar Fast Eddie Cla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776095.jpg" />
+  <img src="Z:/picture/008/save_picture_776095.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Sunstorm (Joe Lynn Turner) - Edge Of Tomorrow (2016) Japan [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774170.jpg" />
+  <img src="Z:/picture/008/save_picture_774170.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ The Sweet - The Polydor Albums (2017) 4CD Box set, Compilation, Reissue [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773078.jpg" />
+  <img src="Z:/picture/008/save_picture_773078.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Ja
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771935.jpg" />
+  <img src="Z:/picture/008/save_picture_771935.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Platens - Out Of The World (2014) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770521.jpg" />
+  <img src="Z:/picture/008/save_picture_770521.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Moonland - Moonland (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770487.jpg" />
+  <img src="Z:/picture/008/save_picture_770487.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Vandenberg - 2020 (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766910.jpg" />
+  <img src="Z:/picture/008/save_picture_766910.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Tokyo Motor Fist - Tokyo Motor Fist (2017) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765490.jpg" />
+  <img src="Z:/picture/008/save_picture_765490.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Danger Danger - Danger Danger (1989) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765488.jpg" />
+  <img src="Z:/picture/008/save_picture_765488.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Danger Zone - Closer To Heaven (2016) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763029.jpg" />
+  <img src="Z:/picture/008/save_picture_763029.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ H.E.A.T - Greatest H.E.A.Ts (2018) Compilation, 2CD, Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762221.jpg" />
+  <img src="Z:/picture/008/save_picture_762221.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Radioactive - F4ur [Japan Edition] (2015) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755456.jpg" />
+  <img src="Z:/picture/005/save_picture_755456.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Voodoo X - Vol. 1 The Awakening (1989) [APE|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754086.jpg" />
+  <img src="Z:/picture/008/save_picture_754086.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754085.jpg" />
+  <img src="Z:/picture/008/save_picture_754085.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754011.jpg" />
+  <img src="Z:/picture/008/save_picture_754011.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Dead Echoes - Twin Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alter
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753276.jpg" />
+  <img src="Z:/picture/008/save_picture_753276.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bluetruth - Too Much (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751672.jpg" />
+  <img src="Z:/picture/008/save_picture_751672.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|W
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750009.jpg" />
+  <img src="Z:/picture/008/save_picture_750009.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Alice Cooper - The Essential Alice Cooper: The Epic Years (2018) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749325.jpg" />
+  <img src="Z:/picture/008/save_picture_749325.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Seventh Veil - Vox Animae (2015) [FLAC|Lossless|image + .cue] <Modern Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748645.jpg" />
+  <img src="Z:/picture/008/save_picture_748645.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748224.jpg" />
+  <img src="Z:/picture/008/save_picture_748224.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Magnum - The Monster Roars (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748081.jpg" />
+  <img src="Z:/picture/008/save_picture_748081.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Tony Martin - Thorns (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746621.jpg" />
+  <img src="Z:/picture/008/save_picture_746621.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Tony Martin - Thorns (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE2158813F5AA0F4630A835F25D6C58D9953B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282025   (746309) от 11.02.2019
-
-AC / DC - The Best (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jack
-02. Highway To Hell
-03. Touch Too Much
-04. Back In Black(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B760A8B0C22D14BD7284DE0C2EA77EF6CC1A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020118   (745300) от 26.05.2016
-
-Human Zoo - My Own God (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Direction (3:50)
-02. Cry Baby Cry (3:24)
-03. Love Train (2:55)
-04. A Day to Remember (4:38)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E39DC8811CC6670155FB8B0C02911C00AE9D20
 ```
 
 https://mybot314.ru/tekegram_catalog/

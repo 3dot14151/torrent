@@ -6,7 +6,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722633.jpg" />
+  <img src="Z:/picture/008/save_picture_722633.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SolveigMM Video Splitter 7.4.2007.29 Business Edition RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722632.jpg" />
+  <img src="Z:/picture/008/save_picture_722632.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Phillip Island 500. Э
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722630.jpg" />
+  <img src="Z:/picture/008/save_picture_722630.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722625.jpg" />
+  <img src="Z:/picture/008/save_picture_722625.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ USDownloader 1.3.5.9 Portable (28.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722618.jpg" />
+  <img src="Z:/picture/008/save_picture_722618.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722616.jpg" />
+  <img src="Z:/picture/008/save_picture_722616.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Inner Holographic Reality (2017) [MP3|320 Kbps] <Psy Dub, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722614.jpg" />
+  <img src="Z:/picture/008/save_picture_722614.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ goPanel 1.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722611.jpg" />
+  <img src="Z:/picture/008/save_picture_722611.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Acoustica Premium Edition 7.3.27 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722609.jpg" />
+  <img src="Z:/picture/008/save_picture_722609.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VidCoder 7.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722608.jpg" />
+  <img src="Z:/picture/008/save_picture_722608.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Opera 83.0.4254.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722605.jpg" />
+  <img src="Z:/picture/008/save_picture_722605.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Wise Registry Cleaner Pro 10.7.1.698 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722604.jpg" />
+  <img src="Z:/picture/008/save_picture_722604.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722597.jpg" />
+  <img src="Z:/picture/008/save_picture_722597.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Extreme Picture Finder 3.43.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722590.jpg" />
+  <img src="Z:/picture/008/save_picture_722590.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Macrorit Data Wiper 4.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722585.jpg" />
+  <img src="Z:/picture/008/save_picture_722585.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722580.jpg" />
+  <img src="Z:/picture/008/save_picture_722580.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Macrorit Partition Expert 5.3.9 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722571.jpg" />
+  <img src="Z:/picture/008/save_picture_722571.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Office 2013-2019 C2R Install + Lite 7.0.6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722539.jpg" />
+  <img src="Z:/picture/008/save_picture_722539.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ liquivid Video Improve 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722511.jpg" />
+  <img src="Z:/picture/008/save_picture_722511.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722506.jpg" />
+  <img src="Z:/picture/008/save_picture_722506.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ E-Clip - Biointegrated Design (2017) [MP3|320 Kbps] <Progressive Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722504.jpg" />
+  <img src="Z:/picture/008/save_picture_722504.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Slimjet 14.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722502.jpg" />
+  <img src="Z:/picture/008/save_picture_722502.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - 5 Years of Gravitas (2016) [MP3|320 Kbps] <Dubstep, Glitch Hop, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722499.jpg" />
+  <img src="Z:/picture/008/save_picture_722499.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - DEF CON 23 - The Official Soundtrack (2015) [MP3|320 Kbps] <Dubstep, Glitch
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722497.jpg" />
+  <img src="Z:/picture/008/save_picture_722497.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ SyncMate Expert 6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722495.jpg" />
+  <img src="Z:/picture/008/save_picture_722495.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ VA - DEF CON 24 - The Official Soundtrack (2016) [MP3|320 Kbps] <Dubstep, Drum &
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722494.jpg" />
+  <img src="Z:/picture/008/save_picture_722494.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1760415   (37281) от 14.11.2024
+
+Afro Celt Sound System - OVA (2024) [MP3|320 Kbps] <Folk, Ethnic Fusion, Worldbeat>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hawk Owl's Lament [10:12]
+02. The Mantra [07:43]
+03. Magical Love [06:44]
+04. N'Faly Foli [04:25](   Читать дальше...   )Жанр: Folk, Ethnic Fusion, WorldbeatПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA08A34B92E788299E3CAA9817C9696F674CAAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760770   (37115) от 16.11.2024
+
+Gregorian - 25/2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Crossover, Symphonic Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment of Peace (New 2025 Jubilee Version) (3:58)
+02. Scarborough Fair (New 2025 Jubilee Version) (4:14)
+03. Lady D'Arbanville (New 2025 Jubilee Version) (3:29)
+04. Sacrifice (New 2025 Jubilee Version) (4:15)(   Читать дальше...   )Жанр: New Age, Crossover, Symphonic RockПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA78AA1BBF0DB1C06D37B2B36C245C9C875348C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760754   (37081) от 16.11.2024
 
 Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Melody, Easy>
@@ -6,7 +64,7 @@ Feelin's - Love Melody Vol.2 (2008) [WavPack|Lossless|image + .cue] <Romantic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37081.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36787.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36775.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Orient Collective: Sanctuary (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36759.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36577.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Ind
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36565.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36366.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36139.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35873.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35831.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Dammerland - Dammerland (2024) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35830.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35628.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35627.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35431.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35403.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35206.jpg" />
 </div>
 
 
@@ -472,7 +530,7 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35116.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35115.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34419.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34414.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34410.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, Worl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34392.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|L
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34389.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34384.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0851BB520E8D4364AA075F245CA87ECBC822167A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766079   (33958) от 16.12.2024
-
-Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And Winter Came... (3:15)
-02. Journey of the Angels (4:47)
-03. White Is in the Winter Night (3:00)
-04. O Come, O Come, Emmanuel (3:40)(   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF992A38D6CE714A62F16A8C0FC21A7AA1E9861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649845   (33472) от 21.12.2024
-
-Владимир Косма / Vladimir Cosma - Soleil (1997) [MP3|256 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33472.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Soleil (6:06)
-2. Sarah Et Meyer (2:28)
-3. Les Roses De Blida (3:30)
-4. Maman Titine (01:44)(   Читать дальше...   )Производство: ФранцияЖанр: SoundtrackПродолжительность: 00:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
 ```
 
 https://mybot314.ru/tekegram_catalog/

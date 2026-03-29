@@ -1,3 +1,55 @@
+###  Публикация: 1282486   (731947) от 18.02.2019
+
+Жизнь: первые шаги / Life: First Steps (2018) HDTVRip (серии 1-3) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые дни, недели и месяцы жизни каждого животного - самые напряженные. Им предстоит научиться сложным вещам тогда, когда они наиболее уязвимы. Однако природа создала множество стратегий, позволяющих малышам дожить до взросления, несмотря ни на что. Мы увидим, как наши крошечные герои сражаются в битве, каждый шаг которой приводит их всё ближе к успеху.Производство: Великобритания, Offspring Films, Sky TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Дэн ПероунПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C6C13DFCA39570DF4EAC205D90B2C6108C7225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530866   (727722) от 12.02.2022
+
+Животный мир Скалистых гор / Wild Rockies (2015) WEB-DL [H.264/1080p] (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикие Скалистые горы протянулись почти на 5000 км через международные границы, достигнув тысяч футов в небе - это больше, чем просто массивные горы, они чудовищные. Горы перенесут вас в некоторые из уникальных экосистем этой обширной горной цепи и познакомят вас с животными, от диких лошадей в пустынной долине Оканаган, до медведей-гризли, отгоняющих лосося из рек, (   Читать дальше...   )Производство: Канада, Whistlestop Productions INC, Arcadia EntertainmentЖанр: документальный, флора, фаунаРежиссер: Джон БановичПеревод: двуголосый профессиональныйСубтитры: английскиеПродолжительность: 5x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE24147FBEA08C82ADC277A67E3F67A1ABB2F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531069   (726602) от 13.02.2022
 
 Заповедники (2018-2019) HDTV [H.264/1080i] (фильмы 1-8)
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726602.jpg" />
+  <img src="Z:/picture/008/save_picture_726602.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723625.jpg" />
+  <img src="Z:/picture/008/save_picture_723625.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721389.jpg" />
+  <img src="Z:/picture/008/save_picture_721389.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721170.jpg" />
+  <img src="Z:/picture/008/save_picture_721170.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721060.jpg" />
+  <img src="Z:/picture/008/save_picture_721060.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721058.jpg" />
+  <img src="Z:/picture/008/save_picture_721058.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719382.jpg" />
+  <img src="Z:/picture/008/save_picture_719382.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719375.jpg" />
+  <img src="Z:/picture/008/save_picture_719375.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718613.jpg" />
+  <img src="Z:/picture/008/save_picture_718613.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717762.jpg" />
+  <img src="Z:/picture/008/save_picture_717762.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Nat Geo Wild: Дикая природа Индонезии / Wild Indonesia (201
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716842.jpg" />
+  <img src="Z:/picture/008/save_picture_716842.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716163.jpg" />
+  <img src="Z:/picture/008/save_picture_716163.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ BBC. Дикая Аравия / Wild Arabia (2013) HDTVRip [H.264/720p-LQ] [3 с�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715826.jpg" />
+  <img src="Z:/picture/008/save_picture_715826.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714915.jpg" />
+  <img src="Z:/picture/008/save_picture_714915.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714881.jpg" />
+  <img src="Z:/picture/008/save_picture_714881.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714228.jpg" />
+  <img src="Z:/picture/008/save_picture_714228.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711948.jpg" />
+  <img src="Z:/picture/008/save_picture_711948.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ IMAX: Африка - Серенгети / Africa - The Serengeti (1994) BDRemux 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710990.jpg" />
+  <img src="Z:/picture/008/save_picture_710990.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ IMAX: Амазонка / Amazon (1997) BDRemux [VC-1/1080p] [VO]
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710978.jpg" />
+  <img src="Z:/picture/008/save_picture_710978.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709079.jpg" />
+  <img src="Z:/picture/008/save_picture_709079.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708617.jpg" />
+  <img src="Z:/picture/008/save_picture_708617.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ BBC. Дикие Карибы / Wild Caribbean (2007) HDTVRip [H.264/720p-LQ] (с
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707612.jpg" />
+  <img src="Z:/picture/008/save_picture_707612.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707389.jpg" />
+  <img src="Z:/picture/008/save_picture_707389.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706813.jpg" />
+  <img src="Z:/picture/008/save_picture_706813.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FBFDA60515B8B2595202DC3DE740529A460A08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131394   (706482) от 06.05.2017
-
-Секреты подземной жизни / Secret Life Underground (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь подземных обитателей полностью скрыта от наших глаз. На глубине всего нескольких метров, прямо под нашими ногами располагается таинственное царство. На сегодняшний день удалось изучить лишь малую часть разнообразных обитателей почвы. Предполагается, что примерно 70% подземных живых организмов до сих пор неизвестны науке. Зрители совершат захватывающее путешествие (   Читать дальше...   )Жанр: Документальный, фауна, флораРежиссер: Винсент АмороПеревод: Одноголосый закадровый, профессиональный (SDI Media)Продолжительность: 00:51:37 + 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7006F70402E9A63B507CDCD958F478E46293EBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025755   (705963) от 14.06.2016
-
-Лучший друг человека / The Wonder of Dogs (2013) HDTVRip [H.264/720p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинологи рассказывают о больших собаках и маленьких, о служебных и декоративных, о мохнатых и бесшерстных. Мы узнаем, почему один вид животных отличается таким невероятным множеством форм и размеров. Ни одно из наземных животных не демонстрирует такого разнообразия, как собаки. Трудно поверить, что датский дог и чихуахуа принадлежат к одному виду.Телекомпания: Великобритания, British Broadcasting Corporation (BBC), Open University, The Windfall Films, The Open Universitety and For National Geographic ChannelЖанр: Документальный, животные, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F04FF75762E1440063ACB7D1CA10AF43CCF9F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

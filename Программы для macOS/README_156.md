@@ -1,3 +1,136 @@
+###  Публикация: 1598960   (161450) от 21.12.2022
+
+WidsMob HDR 3.20 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и продвинутый фоторедактор HDR. Воссоздать высокий динамический диапазон.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E3E49091627F660378E34EF6600BD029B1ECBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599021   (161416) от 21.12.2022
+
+WidsMob Montage 2.26 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы делаете какой-то плакат для занятий, проектируя монтаж фигуры на день рождения?
+WidesMob Montage должен быть отличным производителем монтажа, чтобы превратить все в потрясающие мозаики. Это универсальный фотомонтаж, который может создавать потрясающую фотомозаику с тысячами изображений в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4312947E4EA2847FEAC951514423BAC309143F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598974   (161398) от 21.12.2022
+
+FrameMagic - Collage Maker Pro 3.6.7 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161398.jpg" />
+</div>
+
+
+###  Подробнее
+
+FrameMagic позволяет создавать потрясающие фотоколлажи, видеоколлажи и видеослайд-шоу всего за несколько секунд с множеством макетов, бесконечными параметрами, цветами, шаблонами, мощным текстовым редактором, красивыми эффектами фильтров, гибкими параметрами воспроизведения, музыкой и комментариями.
+FrameMagic также поддерживает мощные и интеллектуальные фоторедакторы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 FrameMagicПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6356DE6D363304D81DD6DD99D1E30A816C3093B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598948   (161393) от 21.12.2022
+
+WidsMob ImageConvert - JPG/PNG 3.25 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161393.jpg" />
+</div>
+
+
+###  Подробнее
+
+WidsMob ImageConvert - универсальный конвертер фотографий, позволяющий обрабатывать сотни или тысячи изображений одновременно. Если вам нужно преобразовать RAW в JPEG, изменить размер, сжать, переименовать, добавить границу, добавить водяной знак в текст или изображение, вы всегда можете превратить фотографии в желаемый формат одним щелчком мыши.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5C1FF123BA2759A95FD0E00D451955E2515C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598966   (161388) от 21.12.2022
+
+WidsMob Panorama 4.28 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте высококачественную панораму в один клик.
+WidsMob Panorama - это профессиональная программа для создания панорам, которая автоматически создает панораму. Это программное обеспечение для сшивания панорамных изображений может сшивать панораму и обычные фотографии с невероятной скоростью и простыми шагами.Тип издания: macOS SoftwareРелиз состоялся: 21.12.2022Разработчик: © 2022 WidsMobПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6287EFC17F12072B74DE2DE78753BFF243514D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599048   (161381) от 21.12.2022
 
 Super PhotoCut Pro 2.8.7 [En]
@@ -6,7 +139,7 @@ Super PhotoCut Pro 2.8.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161381.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Color Wheel 4.9 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161325.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ WidsMob Viewer Pro 2.19 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161312.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ DMG Canvas 4.0.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161279.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ Disk Space Analyzer Pro 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161268.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ Mirror Magnet 1.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161227.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ Caps Lock Tone v1.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161206.jpg" />
 </div>
 
 
@@ -192,7 +325,7 @@ Affinity Publisher Beta 1.10.5.1224 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161168.jpg" />
 </div>
 
 
@@ -219,7 +352,7 @@ Photo Perspective Pro 1.6.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161122.jpg" />
 </div>
 
 
@@ -245,7 +378,7 @@ Disk Analyzer Pro 4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161116.jpg" />
 </div>
 
 
@@ -272,7 +405,7 @@ Smultron 12 v12.5.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161050.jpg" />
 </div>
 
 
@@ -299,7 +432,7 @@ PDF Reader X - Edit Adobe PDF Pro 3.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161029.jpg" />
 </div>
 
 
@@ -325,7 +458,7 @@ Pasta Pro 1.3.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160976.jpg" />
 </div>
 
 
@@ -352,7 +485,7 @@ BuhoCleaner for Mac 1.10.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160847.jpg" />
 </div>
 
 
@@ -378,7 +511,7 @@ Living Wallpaper HD & Weather 5.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160837.jpg" />
 </div>
 
 
@@ -404,7 +537,7 @@ FabFilter Total Bundle v.2023.11.31 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160815.jpg" />
 </div>
 
 
@@ -430,7 +563,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.2.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160777.jpg" />
 </div>
 
 
@@ -456,7 +589,7 @@ MWeb Pro 4.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160679.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ Notebooks – Write and Organize 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160664.jpg" />
 </div>
 
 
@@ -509,7 +642,7 @@ FonePaw Data Recovery 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160642.jpg" />
 </div>
 
 
@@ -535,7 +668,7 @@ Apple MainStage 3.6.5[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160563.jpg" />
 </div>
 
 
@@ -548,141 +681,6 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F7191A9064937808737DBC6DF6B091A6854AC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674946   (160551) от 07.11.2023
-
-Transmit 5.10.3 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотой стандарт приложений для передачи файлов
-Загружайте, загружайте и управляйте файлами на серверах с простым, знакомым и мощным интерфейсом.
-Теперь Transmit подключается к 10 новым облачным сервисам, таким как Backblaze B2, Box, Google Диск, DreamObjects, Dropbox, Microsoft Azure и Rackspace Cloud Files. И да, Transmit по-прежнему обрабатывает классику - FTP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: Panic IncПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C6A163235DB9EDF671A0B14C66DF7BF25A8FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675230   (160477) от 08.11.2023
-
-Rocket Typist Pro 3.0.5.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160477.jpg" />
-</div>
-
-
-###  Подробнее
-
-В обычный день большинство из нас набирает один и тот же текст снова и снова, тратя на это огромное количество времени. Почему бы не позволить компьютеру сделать часть этой работы за вас? Вот где появляется Rocket Typist. Вот несколько примеров:
-
-• Часто повторяющиеся фразы, такие как «Как дела?»
-• Подписи с изображениями или без них(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 Daniel DienerПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B9D1730A9E7C68BC1E17F7CF2066BD0A9E5F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675212   (160471) от 08.11.2023
-
-LaunchBar 6 v.6.18.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160471.jpg" />
-</div>
-
-
-###  Подробнее
-
-LaunchBar - функциональная замена Spotlight на Mac. После запуска приложения вам необходимо задать комбинацию клавиш, по которой будет открываться строка поиска LaunchBar. По нажатию клавиш в центре экрана будет доступна поисковая строка, в которой вы, как и в Spotlight, можете начать вводить название приложения и затем мгновенно его запустить. Надо отметить, что (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2023Разработчик: © 2023 Objective Development Software GmbHПоддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CC606C42A11ECF902ACB8D524927C27B1DAE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675260   (160466) от 08.11.2023
-
-NCH DrawPad Pro 10.63 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160466.jpg" />
-</div>
-
-
-###  Подробнее
-
-DrawPad - это программа графического дизайна, которая работает как с растровыми, так и с векторными изображениями. Используйте его для создания эскизов на компьютере или для создания профессиональной рекламы.Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2022 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1846FF97401B11EDA1378627D0EA0BBEA8F35238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675215   (160455) от 08.11.2023
-
-Mach Desktop HD 3 v.3.0.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам наскучила статичная картинка на рабочем столе, то Mach Desktop поможет нарядить десктоп с помощью встроенных видеообоев, QuickTime-роликов и даже Веб-страниц. Mach Desktop предлагает двадцать отличных видеообоев Quartz Compositions и семь QuickTime-видеороликов для рабочего стола. Множество настроек позволяют задать в качестве фона предустановленную заставку, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2023 Mach SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92ED43371F847B09F5A3A4F4D16F06FDD3E0F844
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ James Clements (ASC, Intex Systems, Mindspan) - Discography 59 Releases (2003-20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864140.jpg" />
+  <img src="Z:/picture/008/save_picture_864140.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Drive Image Standalone | Technician | Commercial System Deployment | OEM kit |
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864138.jpg" />
+  <img src="Z:/picture/008/save_picture_864138.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864132.jpg" />
+  <img src="Z:/picture/008/save_picture_864132.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cascadea 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864109.jpg" />
+  <img src="Z:/picture/008/save_picture_864109.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PullTube 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864108.jpg" />
+  <img src="Z:/picture/008/save_picture_864108.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CCleaner 5.16.5551 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864084.jpg" />
+  <img src="Z:/picture/008/save_picture_864084.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864079.jpg" />
+  <img src="Z:/picture/008/save_picture_864079.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.70.3800 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864076.jpg" />
+  <img src="Z:/picture/008/save_picture_864076.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864071.jpg" />
+  <img src="Z:/picture/008/save_picture_864071.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864070.jpg" />
+  <img src="Z:/picture/008/save_picture_864070.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ DriverPack Solution Online 17.6.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864069.jpg" />
+  <img src="Z:/picture/008/save_picture_864069.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.70.3800 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864068.jpg" />
+  <img src="Z:/picture/008/save_picture_864068.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864047.jpg" />
+  <img src="Z:/picture/008/save_picture_864047.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Foundry MODO 10.2v2 Build 131034 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864042.jpg" />
+  <img src="Z:/picture/008/save_picture_864042.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Auslogics Disk Defrag Free 7.1.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864041.jpg" />
+  <img src="Z:/picture/008/save_picture_864041.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864039.jpg" />
+  <img src="Z:/picture/008/save_picture_864039.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ EastNewSound, instrumental part - 17 альбомов (2009-2016) Touhou Instrum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864031.jpg" />
+  <img src="Z:/picture/008/save_picture_864031.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864027.jpg" />
+  <img src="Z:/picture/008/save_picture_864027.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Wattagio 1.8.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864019.jpg" />
+  <img src="Z:/picture/008/save_picture_864019.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Keep It 1.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864015.jpg" />
+  <img src="Z:/picture/008/save_picture_864015.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Music Collector Pro 20.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864010.jpg" />
+  <img src="Z:/picture/008/save_picture_864010.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Exposure Software Blow Up 3 v3.1.4.296 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864000.jpg" />
+  <img src="Z:/picture/008/save_picture_864000.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863995.jpg" />
+  <img src="Z:/picture/008/save_picture_863995.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Exposure Software Plug-ins Bundle 2020 update 15.04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863994.jpg" />
+  <img src="Z:/picture/008/save_picture_863994.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Sound Control 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863990.jpg" />
+  <img src="Z:/picture/008/save_picture_863990.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4805.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863964.jpg" />
+  <img src="Z:/picture/008/save_picture_863964.jpg" />
 </div>
 
 

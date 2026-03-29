@@ -1,3 +1,162 @@
+###  Публикация: 1751981   (41434) от 05.10.2024
+
+Одинокие волки / Wolfs (2024) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Многоголосый профессиональный (HDRezka Studio, RGB)Язык озвучки: русский, английскийСубтитры: русские (2 x forced, full), английские (forced, full, SDH), украинские, немецкие, испанские, французскиеПродолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4086C091AA1974CEDDE1EEB3BB3E1A3666B4D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621205   (41330) от 06.10.2024
+
+Треугольник / Triangle (2009) [1080p] BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грег приглашает свою подругу Джесс, молодую мать-одиночку, провести день на яхте в кругу своих друзей. Начавшийся сильный шторм переворачивает судно, и оставшиеся в живых вынуждены дожидаться помощи, цепляясь за перевернутый корпус яхты. Спасение приходит в виде огромного океанического лайнера. Судно оказывается пустым, часы на борту остановились. Но они не одни (   Читать дальше...   )Жанр: Ужасы, Триллер, ДетективРежиссер: Кристофер СмитАктеры: Мелисса Джордж, Джошуа МакИвор, Джек Тейлор, Майкл Дорман, Генри Никсон, Рейчал Карпани, Эмма Ланг, Лиам Хемсворт, Брайан ПробетсПеревод: • Профессиональный (многоголосый закадровый)
+   • Профессиональный (двухголосый закадровый)
+   • Авторский (одноголосый закадровый)Язык субтитров: РусскийПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE34BC66339A3C00738171D2473CB9AFCBB7DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752694   (41310) от 06.10.2024
+
+Квантовые компьютеры оказались слишком слабыми для запуска Doom
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпущенная в 1993 году игра Doom имеет по сегодняшним меркам настолько скромные системные требования, что её запускают на самом неожиданном оборудовании: это может быть встроенный в клавишу Backspace крошечный экран, ёлочная игрушка, воксельный дисплей,  умная газонокосилка или стандартная программа Windows. Но не квантовый компьютер.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753605   (41238) от 07.10.2024
+
+Telegram приглашает к разработке аналога YouTube
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда мессенджера Telegram начала работу над проектом собственного видеохостинга, который может стать аналогом YouTube. Такой вывод можно сделать из условий конкурса для разработчиков, который объявила администрация сервиса.Об этом сказано в публикации верифицированного канала Telegram Contest 4 октября. Условия предполагают создание видеохостинга внутри приложения. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746071   (41133) от 08.10.2024
+
+Властелин колец: Кольца власти / The Lord of the Rings: The Rings of Power (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-8 из 8) RHS, Lostfilm, HDRezka, TVShows, LE-Production
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этой эпической драмы разворачивается за тысячи лет до событий "Хоббита" и "Властелина колец" Дж.Р.Р. Толкина и перенесет зрителей в эпоху, когда создавались великие державы, королевства поднимались к славе и рушились, невероятные герои подвергались испытаниям, надежда висела на тончайших нитях, а величайший злодей, когда-либо вышедший (   Читать дальше...   )Производство: США, Новая Зеландия, Канада / Amazon Studios, Harper Collins Publishers, New Line CinemaЖанр: фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Уэйн Йип, Луиз ХуперАктеры: Морвет Кларк, Чарли Викерз, Маркелла Кавена, Дэниэл Вейман, Меган Ричардс, Исмаэль Крус Кордова, Роберт Арамайо, Чарльз Эдвардс, Синтия Аддай-Робинсон, Ллойд ОуэнПеревод: Дублированный (Red Head Sound), Многоголосый (Lostfilm, HDRezka, TVShows, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D89E31E63FAA5E961CE740E1CC0981F46C962E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746277   (41132) от 08.10.2024
+
+Властелин колец: Кольца власти / The Lord of the Rings: The Rings of Power (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) RHS, Lostfilm, HDRezka, TVShows, LE-Production
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие этой эпической драмы разворачивается за тысячи лет до событий "Хоббита" и "Властелина колец" Дж.Р.Р. Толкина и перенесет зрителей в эпоху, когда создавались великие державы, королевства поднимались к славе и рушились, невероятные герои подвергались испытаниям, надежда висела на тончайших нитях, а величайший злодей, когда-либо вышедший (   Читать дальше...   )Производство: США, Новая Зеландия, Канада / Amazon Studios, Harper Collins Publishers, New Line CinemaЖанр: фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Уэйн Йип, Луиз ХуперАктеры: Морвет Кларк, Чарли Викерз, Маркелла Кавена, Дэниэл Вейман, Меган Ричардс, Исмаэль Крус Кордова, Роберт Арамайо, Чарльз Эдвардс, Синтия Аддай-Робинсон, Ллойд ОуэнПеревод: Дублированный (Red Head Sound), Многоголосый (Lostfilm, HDRezka, TVShows, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F0D070EF0C5C336D5B5C72AB120575B0D91151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 365064   (40834) от 10.10.2024
 
 Great White - 32 Albums, 1 EP  (1984 - 2021) 41 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
@@ -6,7 +165,7 @@ Great White - 32 Albums, 1 EP  (1984 - 2021) 41 CD [FLAC|Lossless|image + .cue|t
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40834.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40832.jpg" />
 </div>
 
 
@@ -60,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40812.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (3.1.0.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40752.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ Parallels Desktop 20 20.1.0 (55732) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40651.jpg" />
 </div>
 
 
@@ -139,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40549.jpg" />
 </div>
 
 
@@ -165,7 +324,7 @@ Windows 11 PRO 24H2 26100.1742 Update 8 by Ghost Spectre [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40338.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40330.jpg" />
 </div>
 
 
@@ -220,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40236.jpg" />
 </div>
 
 
@@ -246,7 +405,7 @@ Skype вернул себе позиции самого популярного �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40018.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39930.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39886.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ Launcher for zapret 1.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39834.jpg" />
 </div>
 
 
@@ -353,7 +512,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39718.jpg" />
 </div>
 
 
@@ -381,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39716.jpg" />
 </div>
 
 
@@ -407,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39636.jpg" />
 </div>
 
 
@@ -433,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39537.jpg" />
 </div>
 
 
@@ -459,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39447.jpg" />
 </div>
 
 
@@ -485,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39329.jpg" />
 </div>
 
 
@@ -511,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39246.jpg" />
 </div>
 
 
@@ -522,164 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF5CDA6A9C21061E533366ACCBB8208E9E5C3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444823   (39245) от 26.10.2024
-
-Все мои друзья мертвы / Wszyscy moi przyjaciele nie zyja (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия в стиле "Американского пирога" повествует об улётной вечеринке польских студентов, которая кончается загадочной гибелью практически всех участников. Детективам, прибывшим на место преступления на следующий день, предстоит изучить кровавые следы прошлой ночи и по крупицам распутать цепь событий, приведших к кровавой трагедии.Производство: Польша / Aurum FilmЖанр: Драма, комедия, криминалРежиссер: Ян БельцлАктеры: Михал Мейер, Адам Воронович, Юлия Венява-Наркевич, Адам Турчик, Никодем Розбицкий, Моника Кшивковская, Шимон Рошак, Михал Сикорский, Адам Бобик, Матеуш Венцлавек, Яссин ФадельПеревод: Дублированный (Netflix)Субтитры: Русские (Forced,full), английские (Full)Продолжительность: 01:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E698A0EE1A0088C3A2D45102838FB102DFA708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756978   (39237) от 26.10.2024
-
-Образец авиадвигателя — демонстратора ПД-35 прошел первый этап испытаний
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опытный образец авиадвигателя — демонстратора технологий ПД-35 успешно завершил первый этап испытаний. Об этом сообщили ТАСС в одном из предприятий, участвующих в разработке двигателя.«Двигатель показал устойчивую работу в соответствии с заданными параметрами и готовится к следующим этапам испытаний», — отметили в предприятии.Разработка двигателя ПД-35 началась летом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756458   (39146) от 27.10.2024
-
-Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окружной прокурор Маргарет оказывается в весьма щекотливой ситуации: она находится в номере элитного отеля, одежда в крови, в спальне труп молодого человека, с которым она познакомилась нынешним вечером. Судорожно перебирая номера в телефонной книжке, Маргарет находит контакт человека, который «решает проблемы». Вскоре появляется профессиональный чистильщик, который (   Читать дальше...   )Производство: Великобритания, США / Apple Studios, Plan B Entertainment, Smoke HouseЖанр: комедия, криминал, боевикРежиссер: Джон УоттсАктеры: Джордж Клуни, Брэд Питт, Остин Абрамс, Эми Райан, Пурна Джаганнатхан, Златко Бурич, Владимир Сизов, Donut McGunigle, Sergio Cota Jr., Alfred ChouПеревод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45A5B91D3424A962745AD543B92D7E857824B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747255   (39142) от 27.10.2024
-
-Комбинация (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987 год. Бывший сотрудник саратовского ОБХСС Александр Шишинин после рождения дочери решает круто изменить свою жизнь и заняться тем, о чем всегда мечтал, — продюсировать музыкальную группу. Он знакомится с талантливым композитором Виталием Окороковым. Вместе они буквально на улице находят первых вокалисток: Татьяну Иванову, Алёну Апину и собирают первую в СССР (   Читать дальше...   )Производство: Россия / «Лунапарк», «НМГ Студия», WinkЖанр: музыка, биография, драма, комедияРежиссер: Никита ВласовАктеры: Никита Кологривый, Елизавета Базыкина, Анастасия Уколова, Павел Прилучный, Даниил Воробьев, Аскар Ильясов, Дарья Руденок, Владимир Канухин, Полина Гухман, Татьяна СтруженковаСубтитры: РусскиеПродолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FADBCFE623AC923B0A299052A18A6C69EB311FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757434   (39052) от 28.10.2024
-
-Бюро авторских прав США отклонила инициативу по расширению доступности цифрового наследия старых видеоигр
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39052.jpg" />
-</div>
-
-
-###  Подробнее
-
-По-прежнему инициативы, направленные на сохранение старых видеоигр, сталкиваются с проблемой авторского права.
-Авторские права — давняя «боль» игровой индустрии. После завершения срока действия лицензия игры убирают из продажи, доступ к ним (официально) сохраняют только те пользователи, которые успели их купить.Недавно стало известно о том, что ещё одна инициатива (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757551   (39047) от 28.10.2024
-
-Кинокомпания "СТВ" подала иск к бизнесмену из-за слов в фильме "Брат-2"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кинокомпания СТВ подала иск к бизнесмену из Липецка из-за продажи товаров с цитатой из фильма "Брат-2", сообщил Telegram-канал SHOT.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

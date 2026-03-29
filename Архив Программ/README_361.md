@@ -6,7 +6,7 @@ The KMPlayer 4.2.2.39 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865155.jpg" />
+  <img src="Z:/picture/008/save_picture_865155.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network Edition 8.13 build 176095 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865077.jpg" />
+  <img src="Z:/picture/008/save_picture_865077.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Victoria 5.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865069.jpg" />
+  <img src="Z:/picture/008/save_picture_865069.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox 46.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864907.jpg" />
+  <img src="Z:/picture/008/save_picture_864907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Registry Life 3.25 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864817.jpg" />
+  <img src="Z:/picture/008/save_picture_864817.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ CoolUtils Total Image Converter 5.1.122 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864814.jpg" />
+  <img src="Z:/picture/008/save_picture_864814.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FBackup 9.2.413 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864775.jpg" />
+  <img src="Z:/picture/008/save_picture_864775.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox 45.0.1 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864721.jpg" />
+  <img src="Z:/picture/008/save_picture_864721.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Instagiffer 1.63 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864713.jpg" />
+  <img src="Z:/picture/008/save_picture_864713.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ TSR Watermark Image Software Pro 3.5.5.4 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864712.jpg" />
+  <img src="Z:/picture/008/save_picture_864712.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WizTree 4.03 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864688.jpg" />
+  <img src="Z:/picture/008/save_picture_864688.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Google Chrome 94.0.4606.54 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864687.jpg" />
+  <img src="Z:/picture/008/save_picture_864687.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Google Chrome 94.0.4606.54 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864686.jpg" />
+  <img src="Z:/picture/008/save_picture_864686.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ XnViewMP 0.99.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864683.jpg" />
+  <img src="Z:/picture/008/save_picture_864683.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ OCCT 9.1.2 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864682.jpg" />
+  <img src="Z:/picture/008/save_picture_864682.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ MAGIX Samplitude Pro X6 Suite 17.1.0.21418 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864673.jpg" />
+  <img src="Z:/picture/008/save_picture_864673.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ xrecode II 1.0.0.230 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864624.jpg" />
+  <img src="Z:/picture/008/save_picture_864624.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ TheWorld Browser 7.0.0.106 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864619.jpg" />
+  <img src="Z:/picture/008/save_picture_864619.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ AdwCleaner 5.105 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864613.jpg" />
+  <img src="Z:/picture/008/save_picture_864613.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ WinScan2PDF 3.14 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864612.jpg" />
+  <img src="Z:/picture/008/save_picture_864612.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cent Browser 1.8.9.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864610.jpg" />
+  <img src="Z:/picture/008/save_picture_864610.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Windows and Office Genuine ISO Verifier v10.10.22.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864583.jpg" />
+  <img src="Z:/picture/008/save_picture_864583.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ MediaHuman YouTube Downloader 3.9.9.61 (2109) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864581.jpg" />
+  <img src="Z:/picture/008/save_picture_864581.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Wise Program Uninstaller 1.99.108 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864531.jpg" />
+  <img src="Z:/picture/008/save_picture_864531.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Glarysoft Malware Hunter 1.6.0.13 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864509.jpg" />
+  <img src="Z:/picture/008/save_picture_864509.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Insofta Cover Commander 3.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864500.jpg" />
+  <img src="Z:/picture/008/save_picture_864500.jpg" />
 </div>
 
 

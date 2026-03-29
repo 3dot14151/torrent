@@ -1,3 +1,115 @@
+###  Публикация: 1811267   (16350) от 08.08.2025
+
+Джонатан Свифт | Путешествия Гулливера (2023) [MP3, Максим Суханов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное произведение мировой литературы на стыке фантастики и социальной сатиры «Путешествия Гулливера» уже почти три столетия остаются актуальными для читателей всех возрастов. Поборник справедливости и уличитель невежества, Джонатан Свифт не только высмеивал человеческие пороки, но ещё лихо закручивал сюжет и придумывал уникальные миры. Вас ждут путешествия (   Читать дальше...   )Жанр: зарубежная классика, литература XIX века, сказки-притчи, социальная проза, социальная сатираПеревод: Адриан ФранковскийИздательство: ВимбоПродолжительность: 15:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091F15C09A7BD98C29DF2EFC5184F59A2E0D2E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800471   (15741) от 03.06.2025
+
+Гайто Газданов | Судьба Саломеи (Радиоспектакль) (2025) [MP3, Анна Алексахина, Александр Баргман и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Гайто (Георгий) Иванович Газданов (1903–1971) – писатель, литературный критик, один из самых ярких и значительных прозаиков русского зарубежья.
+Рассказ «Судьба Саломеи» (1959) Гайто Газданова о людях и их сложных судьбах, о покорности обстоятельствам, выборе и ошибках…
+Впервые опубликован «Новый журнал», №58, 1959 г.(   Читать дальше...   )Жанр: Русская литература, классика, драма, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065C44BC389F46B233CD3AE545B13117073DBF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801847   (14719) от 13.06.2025
+
+Иван Бунин | Таня. В Париже (Инсценировка) (2025) [MP3, Иван Жуков, Татьяна Михалевкина и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказы «Таня» и «В Париже» И.А. Бунина, входят в цикл «Тёмные аллеи». Произведения написаны в 1940 году, впервые опубликованы в 1943 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803486   (13682) от 23.06.2025
+
+Александр Пушкин | Станционный смотритель (Радиопостановка) (1973) [MP3, Игорь Дмитриев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская страничка. Библиотека школьника.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+«Станционный смотритель» – повесть А.С. Пушкина из цикла «Повестей покойного Ивана Петровича Белкина». Написана в 1830 году, издана в (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918B8A9A4BD20372A5EF610CA5E54CA1E53069B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803517   (13672) от 23.06.2025
 
 Джозеф Шеридан Ле Фаню | Дом у кладбища (2025) [MP3, Артём Кухарев]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13672.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13257.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13250.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13249.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12934.jpg" />
 </div>
 
 
@@ -142,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12663.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12645.jpg" />
 </div>
 
 
@@ -198,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12644.jpg" />
 </div>
 
 
@@ -224,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12641.jpg" />
 </div>
 
 
@@ -250,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12553.jpg" />
 </div>
 
 
@@ -276,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11819.jpg" />
 </div>
 
 
@@ -303,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11493.jpg" />
 </div>
 
 
@@ -332,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11312.jpg" />
 </div>
 
 
@@ -360,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11192.jpg" />
 </div>
 
 
@@ -386,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11072.jpg" />
 </div>
 
 
@@ -412,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10478.jpg" />
 </div>
 
 
@@ -441,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10127.jpg" />
 </div>
 
 
@@ -469,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8534.jpg" />
 </div>
 
 
@@ -498,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8075.jpg" />
 </div>
 
 
@@ -524,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8066.jpg" />
 </div>
 
 
@@ -550,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7382.jpg" />
 </div>
 
 
@@ -578,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7357.jpg" />
 </div>
 
 
@@ -591,117 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5779BC7BA6CC6AF67FC65D22A4A4D88B8E69A0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430873   (7355) от 17.08.2025
-
-Джон Голсуорси | Сага о Форсайтах. Современная комедия (Книга 2). Серебряная ложка (2010) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Сага о Форсайтах. Современная комедия.
-Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
-«Сага о Форсайтах» – монументальная серия разноплановых произведений Джона Голсуорси, которая описывает историю многочисленного семейства Форсайтов на протяжении нескольких поколений, ее связь с судьбами Англии. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Александра КривцоваИздательство: Студия «АРДИС»Продолжительность: 12:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA8F7BC99936272DB7DF6A9B1C6340AEFB2BB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 279503   (7350) от 17.08.2025
-
-Джон Голсуорси | Рваный башмак (2010) [MP3, Александр Котов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена.
-Джон Голсуорси (1867–1933) – английский прозаик и драматург, лауреат Нобелевской премии по литературе 1932 г, автор знаменитого цикла «Сага о Форсайтах».
-Сборник рассказов Джона Голсуорси, английского писателя, на художественный вкус которого оказали большое влияние Диккенс, Теккерей, Мопассан, Тургенев и Толстой.Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E6629C9E4F452EF27D4A55377453A4532A9011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430794   (7337) от 17.08.2025
-
-Джон Голсуорси | Сага о Форсайтах (Книга 2). В петле. Интерлюдия: Пробуждение (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
-«Сага о Форсайтах» – роман, рассказывающий о жизни британской буржуазной семьи Форсайтов от конца XIX века до начала XX века.
-«В петле» – второй роман трилогии «Сага о Форсайтах». Рубеж ХIХ и ХХ веков, англо-бурская война, конец викторианской эпохи, крушение казавшихся (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, рассказПеревод: Мария Богословская-Боброва, Мария ЛориеИздательство: Студия «АРДИС»Продолжительность: 14:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AE141EB8C6D50A92C80606A1FC386320107D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430870   (7335) от 17.08.2025
-
-Джон Голсуорси | Сага о Форсайтах (Книга 3). Сдаётся внаём (2006) [MP3, Инна Сытник]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
-В центре романа «Сдаётся внаём» (1921), завершающего его знаменитую трилогию «Сага о Форсайтах» – история отношений двух юных представителей враждующих ветвей рода Форсайтов, Флер и Джона. Наследники старинной ненависти и взаимных обид своих родителей, они не (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Надежда ВольпинИздательство: БиблиофоникаПродолжительность: 11:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA31FBAAD818348FA65E9CCA4D472CE4200752D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,65 @@
+###  Публикация: 509646   (672078) от 13.06.2012
+
+John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  The Watchers  (9:25) 
+2.  Deep Space  (8:09) 
+3.  Aurora  (9:58) 
+4.  Sea Of Tranquility  (7:42) 
+5.  Far Centaurus  (10:49) 
+6.  The Edge  (8:47) 
+
+Послушать:Жанр: New Age, AmbientПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028799   (671839) от 01.07.2016
+
+VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - Blood and Wine (02:57)
+02. Mikolai Stroinski - Fanfares and Flowers (03:11)
+03. Piotr Musial - For Honor! for Toussaint! (02:04)
+04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291120   (670695) от 24.03.2019
 
 Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -6,7 +68,7 @@ Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670695.jpg" />
+  <img src="Z:/picture/008/save_picture_670695.jpg" />
 </div>
 
 
@@ -35,7 +97,7 @@ Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|L
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670651.jpg" />
+  <img src="Z:/picture/005/save_picture_670651.jpg" />
 </div>
 
 
@@ -70,7 +132,7 @@ Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670575.jpg" />
+  <img src="Z:/picture/008/save_picture_670575.jpg" />
 </div>
 
 
@@ -99,7 +161,7 @@ Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670490.jpg" />
+  <img src="Z:/picture/008/save_picture_670490.jpg" />
 </div>
 
 
@@ -125,7 +187,7 @@ Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670331.jpg" />
+  <img src="Z:/picture/008/save_picture_670331.jpg" />
 </div>
 
 
@@ -154,7 +216,7 @@ Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_670316.jpg" />
+  <img src="Z:/picture/005/save_picture_670316.jpg" />
 </div>
 
 
@@ -189,7 +251,7 @@ The Witcher 2: Assassins of Kings (Original Soundtrack) (2012) Enhanced Edition 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670047.jpg" />
+  <img src="Z:/picture/008/save_picture_670047.jpg" />
 </div>
 
 
@@ -218,7 +280,7 @@ The Romantic Strings and Orchestra - Great Broadway Favorites (1993) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669132.jpg" />
+  <img src="Z:/picture/008/save_picture_669132.jpg" />
 </div>
 
 
@@ -247,7 +309,7 @@ Cole Swindell - All of It (2018) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668804.jpg" />
+  <img src="Z:/picture/008/save_picture_668804.jpg" />
 </div>
 
 
@@ -276,7 +338,7 @@ Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668668.jpg" />
+  <img src="Z:/picture/008/save_picture_668668.jpg" />
 </div>
 
 
@@ -305,7 +367,7 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668647.jpg" />
+  <img src="Z:/picture/008/save_picture_668647.jpg" />
 </div>
 
 
@@ -334,7 +396,7 @@ VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668646.jpg" />
+  <img src="Z:/picture/008/save_picture_668646.jpg" />
 </div>
 
 
@@ -363,7 +425,7 @@ Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668644.jpg" />
+  <img src="Z:/picture/008/save_picture_668644.jpg" />
 </div>
 
 
@@ -392,7 +454,7 @@ John Williams - The BFG / Большой и добрый великан (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668594.jpg" />
+  <img src="Z:/picture/008/save_picture_668594.jpg" />
 </div>
 
 
@@ -421,7 +483,7 @@ John Williams - The BFG / Большой и добрый великан (Origina
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668587.jpg" />
+  <img src="Z:/picture/008/save_picture_668587.jpg" />
 </div>
 
 
@@ -450,7 +512,7 @@ Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrument
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668470.jpg" />
+  <img src="Z:/picture/005/save_picture_668470.jpg" />
 </div>
 
 
@@ -484,7 +546,7 @@ James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668441.jpg" />
+  <img src="Z:/picture/008/save_picture_668441.jpg" />
 </div>
 
 
@@ -513,7 +575,7 @@ Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668433.jpg" />
+  <img src="Z:/picture/008/save_picture_668433.jpg" />
 </div>
 
 
@@ -542,7 +604,7 @@ Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668428.jpg" />
+  <img src="Z:/picture/008/save_picture_668428.jpg" />
 </div>
 
 
@@ -571,7 +633,7 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667810.jpg" />
+  <img src="Z:/picture/008/save_picture_667810.jpg" />
 </div>
 
 
@@ -600,7 +662,7 @@ Orquestra Club da Valsa - As Mais Belas Valsas Brasileiras (1999) [MP3|320 Kbps]
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667318.jpg" />
+  <img src="Z:/picture/008/save_picture_667318.jpg" />
 </div>
 
 
@@ -629,7 +691,7 @@ Shalabi Effect - 4 albums (2001-2005) [FLAC|Lossless] <Instrumental, Experimenta
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667225.jpg" />
+  <img src="Z:/picture/005/save_picture_667225.jpg" />
 </div>
 
 
@@ -663,7 +725,7 @@ VA - Buddhatronic The Compilation Vol.2 (2017) [MP3|320 Kbps] <New Age, Chillout
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666771.jpg" />
+  <img src="Z:/picture/008/save_picture_666771.jpg" />
 </div>
 
 
@@ -692,7 +754,7 @@ Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666770.jpg" />
+  <img src="Z:/picture/008/save_picture_666770.jpg" />
 </div>
 
 
@@ -706,64 +768,6 @@ Jody Direen - Shake Up (2016) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB62227CCF6F2E310F7CD18BA60E57C79464617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137708   (666721) от 27.05.2017
-
-Di Donna - Kamasutra Secrets (2002) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song To Kama (6:34)
-02. Sounds From India (Part Two) (0:53)
-03. Song To Artha (4:18)
-04. Samprayoguika (6:41)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70493478237333FFE48FCCA5B42B287B2D90957B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133256   (666593) от 27.05.2017
-
-VA - Furi Original Soundtrack (2016) [MP3|320 Kbps] <Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpenter Brut - Time to Wake Up (1:09)
-02. Danger - 6.24 (4:22)
-03. Carpenter Brut - Enraged (4:58)
-04. Waveshaper - A Picture in Motion (3:23)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3402937E59E1C4FCA72F8759BC596502A4E8184B
 ```
 
 https://mybot314.ru/tekegram_catalog/

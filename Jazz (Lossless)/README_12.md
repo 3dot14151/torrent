@@ -1,3 +1,119 @@
+###  Публикация: 1454892   (1026009) от 17.03.2021
+
+Steve Davis Quartet with Larry Willis - Alone Together (2007) Mapleshade Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milestones [6:32]
+02. My Foolish Heart [4:13]
+03. Surrey with the Fringe on Top [9:51]
+04. Alone Together [8:55](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DC624E71A260814B490EFEAC3E65BB5DF9B720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454760   (1025993) от 17.03.2021
+
+Dena DeRose - I Can See Clearly Now (2000) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Should Lose You [4:44]
+02. Detour Ahead [6:37]
+03. I've Never Been in Love Before [4:23]
+04. I Can See Clearly Now [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB31B53B60D2C53572A729DA3E15545CD413353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454895   (1025985) от 17.03.2021
+
+Dena DeRose - Travelin' Light: Live in Antwerp, Belgium (2010) 2012, MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n Easy [4:27]
+02. 'S Wonderful [4:24]
+03. Two Different Worlds [4:11]
+04. East of the Sun (And West of the Moon) [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F688FB8413641AAA13F9D87FCD520241796914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455313   (1025856) от 18.03.2021
+
+Toots Thielemans & Kenny Werner (2001) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolphin Dance [7:08]
+02. The Dolphin [7:00]
+03. Sinatra Medley [5:58]
+04. Tender Is the Night [3:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2D217F1239FAD212215DB55FBA6E90F9FA04FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455223   (1025852) от 18.03.2021
 
 Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Rock, Fusion>
@@ -6,7 +122,7 @@ Abus Dangereux - Bis (1982) 2015, Musiclip [FLAC|Lossless|WEB-DL|tracks] <azz-Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025852.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Peggy Lee - Black Coffee & Dream Street: The Complete Sessions (2009) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025813.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Frank Sinatra - Reprise Rarities - Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025746.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Stan Getz meets Joao & Astrud Gilberto (1964) 1989, Giants Of Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025313.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Karl Frierson - Soulprint (2006) [FLAC|Lossless]<Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025196.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Uralsky All Stars (Уральский Диксиленд) - Russian Roulette
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025078.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Benny Goodman - 1937 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024958.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Diego Imbert & Alain Jean-Marie - Interplay: The Music of Bill Evans (2020) Treb
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024771.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dinah Shore - Taking A Chance On Love (1940-e - 1950-e) 1996, Promo Sound [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024079.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Von Freeman - Live At The Dakota (2001) Premonition Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023339.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dr. Lonnie Smith - Breathe (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023157.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Swingrowers - Hybrid (2021) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz, Electro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023125.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Swingrowers - Hits & Remixes (2017) Japan [FLAC|Lossless|image + .cue] <Nu-Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022824.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Chet Baker - Sings Again (1985) 2020, Solid Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022618.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Sassy Swingers - So Sassy (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022612.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Martine - Martine (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Progressive Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022479.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Johnny Dodds - Wild Man Blues (1923 - 1940) 1997, ASV [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022379.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Eliane Elias - Illusions (1987) Denon [FLAC|Lossless|tracks + .cue] <Contemporar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022298.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Arcing Wires - Prime (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Heavy Prog>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022133.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sasi Shalom - Nedyaj (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022132.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Jonny King - In From The Cold (1994) Criss Cross [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022131.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022093.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58E3FAA364C0A4CA494C106ADF17EAB3EA7373D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461008   (1022088) от 08.04.2021
-
-Donald Byrd and The Blackbyrds - The Jazz Funk Collection (2020) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022088.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Lansana’s Priestess (7:43)
-02. Black Byrd (7:21)
-03. Love’s So Far Away (6:03)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 03:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275753A32796E4AFC4FAE977DD5C481731C4534E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461350   (1021926) от 09.04.2021
-
-VA - Americans In Paris: The City Of Love And All That Jazz (1952 - 1959) 10CD, 2017, The Intense Media [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021926.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Dizzy Gillespie-Summertime:
-01. Dizzy Gillespie - Cognac Blues [2:42]
-02. Dizzy Gillespie - Cocktails For Two [2:42]
-03. Dizzy Gillespie - Moon Nocturne [3:03](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Vocal JazzПродолжительность: 10:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F26D7AA1412468B44C3DE34749F9C512645AEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461652   (1021820) от 10.04.2021
-
-Warren Vache - Iridescence (1981) 1991, Concord [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly As In A Morning Sunrise [4:42]
-02. Sweet And Slow [4:56]
-03. Between The Devil And The Deep Blue Sea [4:35]
-04. Iridescence [4:18](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D1C8EB01A49175DA81E2617F753C54D90DFC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461766   (1021641) от 11.04.2021
-
-Stan Getz - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021641.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Strike Up The Band:
-01. Strike Up The Band [2:30]
-02. It Might As Well Be Spring [2:53]
-03. Melody Express [2:48](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545EAA4AF0704D26C9DAE143B6D12270BA008541
 ```
 
 https://mybot314.ru/tekegram_catalog/

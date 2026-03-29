@@ -6,7 +6,7 @@ Vivaldi 2.11.1811.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887201.jpg" />
+  <img src="Z:/picture/005/save_picture_887201.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Bat! Professional 7.4.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887142.jpg" />
+  <img src="Z:/picture/005/save_picture_887142.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton AntiVirus 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887139.jpg" />
+  <img src="Z:/picture/005/save_picture_887139.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887126.jpg" />
+  <img src="Z:/picture/005/save_picture_887126.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chromium 80.0.3987.162 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887068.jpg" />
+  <img src="Z:/picture/005/save_picture_887068.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ save2pc Ultimate 5.59.1593 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887062.jpg" />
+  <img src="Z:/picture/005/save_picture_887062.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AnyDesk 6.3.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887059.jpg" />
+  <img src="Z:/picture/005/save_picture_887059.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Icecream Screen Recorder PRO 6.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887044.jpg" />
+  <img src="Z:/picture/005/save_picture_887044.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows Firewall Control 4.9.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887009.jpg" />
+  <img src="Z:/picture/005/save_picture_887009.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Norton 360 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887005.jpg" />
+  <img src="Z:/picture/005/save_picture_887005.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Norton Internet Security 22.9.0.68 [Ru] (с антивирусными база�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886995.jpg" />
+  <img src="Z:/picture/005/save_picture_886995.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Privacy Eraser Free 4.61.0 Build 3425 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886987.jpg" />
+  <img src="Z:/picture/005/save_picture_886987.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Loaris Trojan Remover 3.1.21.1446 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886978.jpg" />
+  <img src="Z:/picture/005/save_picture_886978.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Viber 12.7.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886966.jpg" />
+  <img src="Z:/picture/005/save_picture_886966.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ WinSCP 5.17.3 Build 10325 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886958.jpg" />
+  <img src="Z:/picture/005/save_picture_886958.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Trojan Killer 2.1.19 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886957.jpg" />
+  <img src="Z:/picture/005/save_picture_886957.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ PhotoLine 22.01 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886955.jpg" />
+  <img src="Z:/picture/005/save_picture_886955.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ WireGuard VPN 0.4.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886951.jpg" />
+  <img src="Z:/picture/005/save_picture_886951.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BELOFF 2021.09 Lite (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886933.jpg" />
+  <img src="Z:/picture/005/save_picture_886933.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Opera GX 67.0.3575.130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886916.jpg" />
+  <img src="Z:/picture/005/save_picture_886916.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ ORPALIS PDF Reducer Professional 3.1.14 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886901.jpg" />
+  <img src="Z:/picture/005/save_picture_886901.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Total Commander LE 2.30 (9.00a-x32-x64) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886870.jpg" />
+  <img src="Z:/picture/005/save_picture_886870.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Mozilla Firefox MO 3.52 (45.7.0 esr) Portable by southron4965 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886866.jpg" />
+  <img src="Z:/picture/005/save_picture_886866.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CoolUtils Total Audio Converter 5.3.0.226 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886817.jpg" />
+  <img src="Z:/picture/005/save_picture_886817.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ ORPALIS PaperScan Professional 3.0.101 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886797.jpg" />
+  <img src="Z:/picture/005/save_picture_886797.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Icecream PDF Editor PRO 2.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886740.jpg" />
+  <img src="Z:/picture/005/save_picture_886740.jpg" />
 </div>
 
 

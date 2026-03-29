@@ -1,3 +1,29 @@
+###  Публикация: 1316760   (502374) от 30.07.2019
+
+Т.В. Митрошкина | Типичные фразы английского речевого этикета. Справочник (2013) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит типичные фразы, характерные для стандартных ситуаций общения на английском языке: знакомство, привлечение внимания, приветствие, прощание, просьба, благодарность, извинение, сожаление, сочувствие, согласие, одобрение, приглашение, предложение, поздравление, пожелание и др. Адресован тем, кто уже владеет нормативной грамматикой и общеупотребительной (   Читать дальше...   )Жанр: Учебное пособие, СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2350062F05DEFE938DD14E25E7620D35719D6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540734   (502368) от 30.08.2012
 
 Журнал | Esquire [Россия] №80 (сентябрь 2012) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502368.jpg" />
+  <img src="Z:/picture/008/save_picture_502368.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502361.jpg" />
+  <img src="Z:/picture/008/save_picture_502361.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502173.jpg" />
+  <img src="Z:/picture/008/save_picture_502173.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502097.jpg" />
+  <img src="Z:/picture/008/save_picture_502097.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501431.jpg" />
+  <img src="Z:/picture/008/save_picture_501431.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501430.jpg" />
+  <img src="Z:/picture/008/save_picture_501430.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501409.jpg" />
+  <img src="Z:/picture/008/save_picture_501409.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501408.jpg" />
+  <img src="Z:/picture/008/save_picture_501408.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501338.jpg" />
+  <img src="Z:/picture/008/save_picture_501338.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501336.jpg" />
+  <img src="Z:/picture/008/save_picture_501336.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501328.jpg" />
+  <img src="Z:/picture/008/save_picture_501328.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501260.jpg" />
+  <img src="Z:/picture/008/save_picture_501260.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501230.jpg" />
+  <img src="Z:/picture/008/save_picture_501230.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501130.jpg" />
+  <img src="Z:/picture/008/save_picture_501130.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501079.jpg" />
+  <img src="Z:/picture/008/save_picture_501079.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Udemy | Node.js, Express, MongoDB & More: The Complete Bootcamp (2019) PCRec [H.
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501042.jpg" />
+  <img src="Z:/picture/008/save_picture_501042.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500625.jpg" />
+  <img src="Z:/picture/008/save_picture_500625.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500620.jpg" />
+  <img src="Z:/picture/008/save_picture_500620.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500617.jpg" />
+  <img src="Z:/picture/008/save_picture_500617.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500602.jpg" />
+  <img src="Z:/picture/008/save_picture_500602.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500530.jpg" />
+  <img src="Z:/picture/008/save_picture_500530.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500526.jpg" />
+  <img src="Z:/picture/008/save_picture_500526.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500525.jpg" />
+  <img src="Z:/picture/008/save_picture_500525.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500459.jpg" />
+  <img src="Z:/picture/008/save_picture_500459.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500447.jpg" />
+  <img src="Z:/picture/008/save_picture_500447.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50FD424B4074FD9AA0756C0445B40EDA7688D9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541505   (500425) от 01.09.2012
-
-Евгения Мелемина |  Солнце в рюкзаке [2012] [FB2][TXT][JAVA (jar+jad)]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Искусственный интеллект – миф или реальность? Где начинается человек в тех, кто искусственно создан в колбах? К чему могут привести эксперименты с генетикой, ставшей оружием в руках человечества. Он – Раннинг. Его мышцы питаются молочной кислотой, его движения не знают осечек, его выносливость феноменальна, его жизнь и душа принадлежат команде Солнца. Ему всего лишь девять месяцев с момента открытия колбы.Формат: FB2,TXT,JAVA (jar+jad).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECFD3CC4605CB3A038FA9490D70AD82169004C
 ```
 
 https://mybot314.ru/tekegram_catalog/

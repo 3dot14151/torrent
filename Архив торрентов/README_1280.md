@@ -6,7 +6,7 @@ OnyX 3.8.4 for macOS Catalina 10.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766838.jpg" />
+  <img src="Z:/picture/008/save_picture_766838.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766827.jpg" />
+  <img src="Z:/picture/008/save_picture_766827.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DiskWarrior 5.0 (Standalone) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766824.jpg" />
+  <img src="Z:/picture/008/save_picture_766824.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766820.jpg" />
+  <img src="Z:/picture/008/save_picture_766820.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Helium Premium 13.6.15187.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766802.jpg" />
+  <img src="Z:/picture/008/save_picture_766802.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Glary Utilities 5.113.0.138 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766801.jpg" />
+  <img src="Z:/picture/008/save_picture_766801.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VueScan Pro 9.6.28 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766799.jpg" />
+  <img src="Z:/picture/008/save_picture_766799.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Malwarebytes AdwCleaner 8.0.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766776.jpg" />
+  <img src="Z:/picture/008/save_picture_766776.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WinScan2PDF 4.67 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766753.jpg" />
+  <img src="Z:/picture/008/save_picture_766753.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Reg Organizer 8.25 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766752.jpg" />
+  <img src="Z:/picture/008/save_picture_766752.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 Manager 3.0.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766749.jpg" />
+  <img src="Z:/picture/008/save_picture_766749.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Windows 10 Manager 3.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766744.jpg" />
+  <img src="Z:/picture/008/save_picture_766744.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Advanced System Font Changer 1.1.3.34 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766738.jpg" />
+  <img src="Z:/picture/008/save_picture_766738.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PDF24 Creator 8.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766737.jpg" />
+  <img src="Z:/picture/008/save_picture_766737.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ FL Studio Producer Edition 20.7.1.1773 Signature Bundle Portable by XpucT [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766721.jpg" />
+  <img src="Z:/picture/008/save_picture_766721.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766716.jpg" />
+  <img src="Z:/picture/008/save_picture_766716.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766704.jpg" />
+  <img src="Z:/picture/008/save_picture_766704.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766703.jpg" />
+  <img src="Z:/picture/008/save_picture_766703.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reg Organizer 8.25 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766689.jpg" />
+  <img src="Z:/picture/008/save_picture_766689.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Notepad++ 7.6.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766687.jpg" />
+  <img src="Z:/picture/008/save_picture_766687.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mozilla Firefox Quantum 65.0 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766684.jpg" />
+  <img src="Z:/picture/008/save_picture_766684.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WinTools.net Premium 19.0.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766679.jpg" />
+  <img src="Z:/picture/008/save_picture_766679.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Reg Organizer 8.25 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766673.jpg" />
+  <img src="Z:/picture/008/save_picture_766673.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Illustrator 2020 24.2.1.496 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766660.jpg" />
+  <img src="Z:/picture/008/save_picture_766660.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ qBittorrent 4.1.5 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766643.jpg" />
+  <img src="Z:/picture/008/save_picture_766643.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ priPrinter Professional 6.5.0.2457 Final RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766641.jpg" />
+  <img src="Z:/picture/008/save_picture_766641.jpg" />
 </div>
 
 

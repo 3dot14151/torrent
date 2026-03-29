@@ -1,70 +1,44 @@
-###  Публикация: 1170967   (779830) от 22.02.2018
+###  Публикация: 1391109   (781339) от 19.06.2020
 
-Улица (2017) WEB-DLRip (сезон 1, серии 1-79 из 79)
+Русалка на суше / Mermaid Down (2019) WEB-DL [H.264/1080p-LQ]
 
->>Отечественные сериалы
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781339.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русалок замечали в этих водах на протяжении многих сотен лет. Они выглядывают посмотреть: любопытство побеждает разум. Может, они и правда существуют?» — такие разговоры ведут рыбаки на шхуне в Тихом океане и отправляются на охоту. И охота оказывается удачной… В их сети попадает русалка, и они решают отрубить ей хвост, перевезти и запереть в психушке. Хорошее место (   Читать дальше...   )Производство: США / Grellman Film, Heartpine Pictures, Mermaid DownЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Джеффри ГреллманАктеры: Александра Бокова, Меган Тереза Риппи, Филлип Андре Ботельо, Эрин Ри, Берт Калвер, Кэролайн Бэмфорд, Джессика Хонор Карлтон, Эшли Корделия, Мишель Галлахер, Мелисса ЛугоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (на надписи), английские (Full, SDH)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7425945B2E6A377BE7E2EEB4D81EF82F7BB33805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214487   (781338) от 19.06.2020
+
+Tom Clancy's Rainbow Six: Siege (2015) [Ru/Multi] (14457777/dlc) UplayRip =nemos= [Ultimate Edition + HD Texture Pack]
+
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6719F170B802112348BE443F2E410D213430B5CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208255   (779829) от 22.02.2018
-
-Леди Берд / Lady Bird (2017) WEB-DLRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристина МакФерсон учится в консервативной католической школе в Сакраменто. Она ищет себя, своё место в мире и пытается быть не похожей на других. Её волосы выкрашены в странный красно-розовый цвет, а имя Леди Бёрд она дала себе сама и именно так просит её называть. И главная её мечта — вырваться из этого провинциального захолустья и поехать учиться в Нью-Йорк.Производство: США / Film 360Жанр: Драма, комедияРежиссер: Грета ГервигАктеры: Сирша Ронан, Тимоти Шаламе, Одейя Раш, Лори Меткаф, Лукас Хеджес, Кэтрин Ньютон, Бини Фелдштейн, Джейк Макдорман, Трэйси Леттс, Даниэль МакДональдПеревод: Любительский (многоголосый закадровый) HDrezka StudioСубтитры: Русские, английские (отдельным файлом)Продолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308C242206BC1E6A32CA1E91E826610DFF0F2B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208177   (779828) от 22.02.2018
-
-GS Group запустил массовое производство первых российских SSD-накопителей
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_779828.jpg" />
-</div>
-
-
-###  Подробнее
-
-GS Group объявляет о начале массового производства первых SSD-накопителей собственной разработки. Полный производственный цикл реализован в инновационном кластере «Технополис GS» (инвестиционный проект GS Group в г. Гусеве Калининградской обл.), мощности которого позволяют выпускать более 1 млн устройств в год. До конца 2018 года GS Group выведет на рынок линейку (   Читать дальше...   )
+Tom Clancy's Rainbow Six: Siege - разрабатываемый шутер от первого лица. Игра фокусируется на командную игру и реализм. Тем не менее, существуют значительные различия со старыми версиями игры. Шутер фокусируется на многопользовательской игре и отличается разрушаемым окружением. Tom Clancy’s Rainbow Six® Осада – новая часть всемирно известной серии шутеров от первого (   Читать дальше...   )Тип издания: UplayRipРазработчик: Ubisoft MontralЖанр: Action (Tactical, Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
 
 ## Скачать торент
 ```bash
@@ -76,277 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181837   (779827) от 22.02.2018
+###  Публикация: 1206892   (781337) от 16.02.2018
 
-Как избежать наказания за убийство / How to Get Away with Murder (2017) WEBRip [H.264/1080p] (сезон 4, серии 1-12 из 15) Jaskier, Кириллица, Profix Media (обновляемая)
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Эннализ Китинг — блестящий адвокат. Она преподает у студентов дисциплину под названием: «Как избежать наказания за убийство». Но те даже не подозревают, что в скором времени им придется применить свои знания в этой области в реальной жизни… Загадка убийства Уоллеса Махони не разгадана, местонахождение Фрэнка до сих пор неизвестно, а «Пятерка Китинг» с трудом (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, криминал, детективРежиссер: Билл Д’Элиа, Майкл ОфферАктеры: Виола Дэвис, Чарли Вебер, Карен Кабрера, Билли Браун, Альфред Энок, Джек Фалахи, Кэти Финдлей, Аджа Наоми Кинг и др.Перевод: Многоголосый закадровый, профессиональный - Jaskier, Profix Media,
-Дублированный - студия Кириллица по заказу FOXСубтитры: русские (Amedia до 8 серии), английскиеПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8664A0688BAF5BBDEC630861556603D3FA68D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207874   (779826) от 22.02.2018
-
-Афера доктора Нока / Knock (2017) BDRip [H.264/1080p]
-
->>След.
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950-е. Карманник и авантюрист Нок, скрываясь от «коллег» в небольшом французском городке Сен-Морис, притворяется лицензированным врачом. Он придумал хитрый, но простой план, как не остаться без средств к существованию: лечить здоровых людей от несуществующих у них болезней. Нок — мастер в искусстве манипуляции и соблазнения — почти достиг желанной цели, если бы (   Читать дальше...   )Производство: Франция, Бельгия / Canal+Жанр: КомедияРежиссер: Лоррэйн ЛевиАктеры: Омар Си, Алекс Лутс, Ана Жирардо, Сабин Азема, Паскаль Элбе, Одри Дана, Мишель Вюйермоз, Кристиан Эк, Элен Венсан, Андреа ФерреольПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944744FF90CB4BFEE1486850344071DF94C58A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183854   (779825) от 22.02.2018
-
-Легенды завтрашнего дня / DC's Legends of Tomorrow (2017) WEBRip [H.264/720p-LQ] (сезон 3, серии 1-11 из 18) LostFilm (обновляемая)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увидев будущее, которого обязательно нужно избежать, Рип Хантер, путешественник во времени, собирает команду из героев и злодеев, чтобы противостоять смертельной угрозе. На кону стоит не только наша планета, но и все время в целом. Сможет ли эта команда победить бессмертное зло, абсолютно непохожее на то, что они видели раньше?Производство: СШАЖанр: фантастика, боевик, драма, приключенияРежиссер: Дермотт Даунс, Глен Винтер, Джо ДантеАктеры: Виктор Гарбер, Брэндон Рут, Кейти Лотц, Артур Дарвилл, Сиара Рене, Франц Драмех, Доминик Пёрселл, Вентворт Миллер, Каспер Крамп, Фальк Хеншел и дрПеревод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: английскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B9C419088FE5106850C3B5F39AEB59CFAA7A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170901   (779824) от 22.02.2018
-
-Улица (2017) SATRip (сезон 1, серии 1-79 из 79)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779824.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814742A6CAE9CBB24828EEFE422BE995464EB2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585914   (779823) от 22.02.2018
-
-Андрей Круз | Полное собрание сочинений [26 книг + карта] (2009-2014) [FB2, JPG] (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное собрание сочинений Андрея Круза.
-Отличия от других сборников сети:
-Добавлены новые книги: На пороге Тьмы. Странник, Нижний уровень, Рейтар, Отблески тьмы, Мёртвый Лерой и Близится буря (Ветер над островами 2)Жанр: Фантастика;Формат: FB2;
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0BC2D03B31B0ED9566540A0193DAA25C6A1ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208690   (779822) от 23.02.2018
-
-Enrico Pieranunzi Latin Jazz Quintet - Live At Birdland (2008) 2010, CAM Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talk [00:12]
-02. Danza 2 [14:42]
-03. Choro del Infinito Hombre [09:08]
-04. Rosa del Mare [06:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB15DB64E020D05705AD4D48390C1DFA9F9B710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208516   (779821) от 23.02.2018
-
-FUCT TAPE - FUCT TAPE (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin Nights 05:43
-02. Cave Drawings 04:56
-03. Jessy Lanza 05:29
-04. Don Caballero 04:38(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55DC6BA21CEBD9AC5E53B6F4D8619A7B98216786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208693   (779820) от 23.02.2018
-
-Helen Forrest & Benny Goodman - The Complete Helen Forrest With Benny Goodman (1939 - 1941) 3CD, 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779820.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Busy As A Bee (I'm Buzz, Buzz, Buzzin') [03:15]
-02. What's The Matter With Me? [03:06]
-03. What'll They Think Of Next? [03:18](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 02:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9820CDEF6787709BA17B59DAB568AA13CF276D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208703   (779819) от 23.02.2018
-
-VA - Errormatic Vol​.​1 (2018) Clean Error [FLAC|Lossless|WEB-DL|tracks] <Abstract, Glitch, IDM, Experimental, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grier Edward Carson – Imjpg (04:43)
-02. Nearfield – One Moment (04:01)
-03. Barbiss Trysand – Alleyshftr (03:04)
-04. Ogrvne – Elden (03:26)(   Читать дальше...   )Жанр: Abstract, Glitch, IDM, Experimental, AmbientПродолжительность: 01:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3788571D0E0C7ACEF4AFEDC2868D8016FCD13C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208607   (779818) от 23.02.2018
-
-VA - Deep House Look in the Mirror, Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
+VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kite Lost - Popular Odor
-02. DJ Mr Gogo - The Cellar of the Secrets
-03. Oriental Surprise - Oltre Muras
-04. Mister Gregor - Stop Range(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:57:13
+01. Sugarboys - Nah Nah Nah (Original Mix)
+02. Adam Walker - Pump It (Original Mix)
+03. Nicole Palmer - Little Divine (Original Mix)
+04. Recovery Mafia - Make Love (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:02:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B479C27613FD782AC0F8812C4852142C7FF32181
+magnet:?xt=urn:btih:8095DFD9CC7FFAABBFBBC3437147689CCD7CAD6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,202 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208674   (779817) от 23.02.2018
+###  Публикация: 1206956   (781336) от 16.02.2018
 
-Von Grall - Infinitum (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinitum (06:38)
- 02. Hyper Density (06:02)
- 03. Anthropology (06:06)
- 04. Emerald City (06:00)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B2BD3C188A5BAF155C0A56DB5791BAC18ABFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208450   (779816) от 23.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Сноуборд. Мужчины. Сноуборд-кросс. Квалификация (15.02.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779816.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 февраля 2018 года, четверг. 05:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Сноуборд. Мужчины.
-Сноуборд-кросс. Квалификация(   Читать дальше...   )Телекомпания: TeleSportЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6E650B07D73E849CD9F0B46B0F7800C7C9F65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208689   (779815) от 23.02.2018
-
-Bill Evans - The Bill Evans Album (1971) 2017, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funkallero [07:49]
-02. The Two Lonely People [06:14]
-03. Sugar Plum [07:06]
-04. Waltz for Debby [07:46](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508A6E175467AE51B155A95FD4DC0858E0ACABE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208717   (779814) от 23.02.2018
-
-Corey Nolen & Ashley Spurling - Not All Roses (2018) [FLAC|Lossless|WEB-DL|tracks] <Country Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doing Alright 03:06
-02. My Love 03:21
-03. Page That Never Turned 04:24
-04. Version Of Love 03:07(   Читать дальше...   )Жанр: Country FolkПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DF2F46E13C60759F604D67361FA284B8D586AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208470   (779813) от 23.02.2018
-
-Adrena Line - Live @ Club Level (3 Urodziny duetu DJ Gacki & DJ Pavlik ) (2018) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tiesto - Traffic (Dropshakers & KCR 2k17 Bootleg)
-02 Kalwi & Remi - Explosion (KBN & NoOne Bootleg)
-03 DJ Matys & D-Gor - Orgasm (Mr Matt 2014 Remix) w/DJ Matys & D-Gor - Orgasm (DJ Domingez & Jay Paul Remix)
-04 Digital Rockers - Because I Love You (Acid Luke & X-Meen Bootleg)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17165D8384967B7B4BAD1BDAA60FD8C20D45D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208645   (779812) от 23.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Мужчины. Гонка 15 км. Свободный стиль (16.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps] Россия1 HD
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779812.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 февраля 2018 года, пятница. 09:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Мужчины.
-Гонка 15 км. Свободный стиль(   Читать дальше...   )Телекомпания: Россия1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835338836EC7E5964D1900F4AD1347FFE60BB4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208832   (779811) от 23.02.2018
-
-Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Living Out Loud 4:32
-02. Lost Cause 5:02
-03. Landslide 5:28
-04. That Which Doesn't Kill Me 4:42(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 00:55:50
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
+02. New Black Day 4:50
+03. The Change Cage (2005 Mix) 4:00
+04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
+magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,28 +108,375 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208612   (779810) от 23.02.2018
+###  Публикация: 1206915   (781335) от 16.02.2018
 
-VA - Sexy Miami Beach, Vol. 2 (2018) [MP3|320 Kbps] <Progressive House>
+Jakob Lindhagen - Paces (2017) Feeder [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenopsia (04:20)
+02. Shelter (05:09)
+03. The Tipping Point (04:41)
+04. Forgotten (02:51)(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D410D764C9CD43A2C9F27A52571C91229B183B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206562   (781334) от 16.02.2018
+
+VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Deep House, Hip-House, Garage House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nightwriters - Let The Music (Use You) (Original Mix) (8:11)
+02.Sterling Void & Paris Brightledge - It's Alright (Original 12'House Mix) (6:51)
+03.Adeva - Respect (Extended Mix) (7:32)
+04.Chanelle - One Man (One Mix) (7:45)(   Читать дальше...   )Жанр: Acid House, House, Disco, Deep House, Hip-House, Garage HouseПродолжительность: 02:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B8BE726AF5989A0A416D31D772AC65040FE3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206920   (781333) от 16.02.2018
+
+LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change (05:57)
+02. Tape Loops (05:28)
+03. Enchantment (03:25)
+04. Rise (06:31)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081F191F448A713A007D5AC224AFA2231C5BB4D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206955   (781332) от 16.02.2018
+
+KCNcrew Pack 15.02.2018 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781332.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на середину февраля 2018 года.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CAA4AA02417419869A077072D6DA810F4B94C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206972   (781331) от 16.02.2018
+
+Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
+02. Scupper Shanty 2:56
+03. The Story That Never Starts 4:08
+04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206889   (781330) от 16.02.2018
+
+VA - Music For Everyone - Trance Vol.5 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cyre & DJ T.H. - Salida Del Sol (Original Mix)
+2. Kajis feat. Ylona - Way Back Home (Taival Remix)
+3. RAMiNiO - Confession (Extended Mix)
+4. Sunlight Project - Desert Flower (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57604BC1B24CDFF6EE6A2C6E029998E1AD765595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206964   (781329) от 16.02.2018
+
+Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
+02. Neobedouin 3:41
+03. The Wrath Of Fate 3:05
+04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206910   (781328) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фристайл. Мужчины. Могул. 2-я Квалификация (12.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781328.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 13:30 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Фристайл. Мужчины.
+Могул. 2-я Квалификация(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00FA7C4B18679E631466DE6C11779291EEECBBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207062   (781327) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Женщины. Трамплин HS-109. Финал (12.02.2018) IPTV [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781327.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 15:50 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина. Женщины.
+Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7623F68B95A20F9D476C01502ECC056914065F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206936   (781326) от 16.02.2018
+
+VA - 120 DJ Neoprint: Trance Project (2018) [MP3|320 Kbps] <Progressive, Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva & Justin Oh - Reach For The Sky
+002. Marc Van Gale - Mumbai Taxi (Original Mix)
+003. Emanuele Braveri - Destination Summer (Original Mix)
+004. Activeblaze - Last Day(   Читать дальше...   )Жанр: Progressive, Vocal, Uplifting TranceПродолжительность: 13:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3809C1907A7350628E0286B1BDE20992884361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207028   (781325) от 16.02.2018
+
+White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hansa (Cygnus)
+2. Patent Leather
+3. Slave
+4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206766   (781324) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Женщины. Гонка преследования (12.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781324.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 февраля 2018 года, понедельник. 13:10 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон.
+Женщины. Гонка преследования 10 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CC357A906516F356CA759294364CEFBCC4A1D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206961   (781323) от 16.02.2018
+
+VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afrikano - Sundance
-02. Da Angerboyz - Infinity
-03. Dippu - Magnificent Space
-04. DJ Luciano - DJ Make It Rain(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:38
+01.  Metamorph  -  Wash Your Pain Away (feat. Shelley Sheree) (Original Mix)  7:05
+02.  Leonety  -  Le Lis Blanc (Original Mix)  7:06
+03.  Luvmac  -  Daybreak (Original Mix)  6:26
+04.  Niklas Grosswald  -  Daybreak (Nuestro Remix)  6:21(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:52:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E184E55F4E7C7CE2819E12CD1C9CF4DB9504488
+magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,28 +484,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208641   (779809) от 23.02.2018
+###  Публикация: 1207047   (781322) от 16.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Лыжные гонки. Мужчины. Гонка 15 км. Свободный стиль (16.02.2018) WEB-DL [H.264/720p-LQ]
+Antoine Elie - Antoine Elie (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 L'amas d'chair
+2 Aie
+3 Soirees parisiennes
+4 Toi qui m'ecoutes(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9696E2DE3035EEBE139F83D7FCFDB6519969309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206921   (781321) от 16.02.2018
+
+VA - Erased Tapes Collection VIII (2017) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Avantgarde, IDM, Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allred & Broderick - The Ways (03:08)
+02. Penguin Cafe - Cantorum (07:22)
+03. Daniel Brandt - Kale Me (06:30)
+04. Rival Consoles - Slow Song (03:52)(   Читать дальше...   )Жанр: Contemporary, Avantgarde, IDM, Modern Classical, AmbientПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4139825AD30EBE02B9D443C3838DE8DA3D180178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206893   (781320) от 16.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. 1/2 финала. Россия (ОАР) — Швейцария (12.02.2018) IPTV [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 февраля 2018 года, пятница. 09:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Лыжные гонки. Мужчины.
-Гонка 15 км. Свободный стиль(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:52
+12 февраля 2018 года, понедельник. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. 1/2 финала.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81D60F35AFE78237B3F043E0CE65E8713F6F955B
+magnet:?xt=urn:btih:64B9A1DE3E603C067247F322714FE4A07003F51B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,25 +571,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208398   (779808) от 23.02.2018
+###  Публикация: 1206944   (781319) от 16.02.2018
 
-Дипломатическая неприкосновенность / Diplomatic Immunity (1991) HDTV [MP4|1920x1080]
+VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коул Хикел, морской пехотинец, преследует в Парагвае убийцу дочери, выпущенного из тюрьмы под защиту «дипломатической неприкосновенности»Производство: Metro-Goldwyn-MayerЖанр: Боевик, Драма, ТриллерРежиссер: Питер МарисАктеры: Брюс Бокслайтнер, Билли Драго, Мег Фостер, Том Брезнахан, Фабиана Уденио, Кристофер Ним, Маттиас Хьюз, Шэрон Кейс, Роберт Дукуй, Ли де Бру, Кен ФориПеревод: Двуголосый закадровыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:00
+01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
+02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
+03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
+04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB3D6D405B63B3F6E476F57A29391111AD7B6218
+magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,28 +600,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208748   (779807) от 23.02.2018
+###  Публикация: 1206959   (781318) от 16.02.2018
 
-Eleine - Until the End (2018) [MP3|320 Kbps] <Symphonic Metal>
+Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Story Untold (5:05)
- 2. Echoes (4:06)
- 3. Sanity (3:59)
- 4. From the Grave (4:13)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:26
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
+02. The Wrong Side 3:31
+03. Dear Ophelia 4:51
+04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3441ED8675488F39DF4F48C04B3C046144E44A3B
+magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,25 +629,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208749   (779806) от 23.02.2018
+###  Публикация: 1206914   (781317) от 16.02.2018
 
-В. Замаровский | Их величества пирамиды (1986) [PDF, DJVU]
+VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 
->>Научная и техническая литература
->>Историческая литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга известного чехословацкого популяризатора Войтеха Замаровского, написанная на основе существующей литературы по египтологии и личных наблюдений автора, представляет собой увлекательный рассказ об истории "открытия" пирамид и их научного изучения.Жанр: История, науковедение, археология, искусствоФормат: PDF, DJVU
+01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
+02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
+03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
+04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DF7CABA64D3934DC899BA14555121FF0FC16541
+magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,28 +658,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208665   (779805) от 23.02.2018
+###  Публикация: 1206663   (781316) от 16.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Фигурное катание. Мужчины. Короткая программа (16.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Anderva - Boarding Pass Festival DJ Contest (2018) [MP3|320 Kbps] <Electro House, Progressive House>
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 февраля 2018 года, пятница. 04:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Фигурное катание. Мужчины.
-Короткая программа(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:48:39
+01. Anderva Intro Edit w/ Galantis - Runaway (Acapella)
+02. Nicky Romero & Teamworx vs. Linkin Park - Champion Sound vs. In the End (Steady Mashup)
+03. Jose De Mara & Crusy Ft. Chipper - Believe (Original Mix)
+04. Florian Picasso & Tom Tyger - Mamo (Original Mix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 00:31:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB4CE23DA231B30839089FFE87C0CE1B86ACB12E
+magnet:?xt=urn:btih:8F088DC9889877D3EA2FCF312C63AD840CFB42EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206902   (781315) от 16.02.2018
+
+Виктор Лихачев | Единственный крест (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что чувствует человек, потерявший память? Герой новой книги Виктора Лихачева попадает в автокатастрофу. В попытках вспомнить себя и свою прошлую жизнь, он побывает во многих уголках России, встретит свою любовь, станет участником удивительной и даже опасной истории. Но самое главное - он поймет, что каждый человек несет свой крест, без которого невозможна дорога (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF3EFE695193A7C8FB6AFC8D1E2B944C7F5D133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207034   (781314) от 16.02.2018
+
+Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Circus At The End Of The World 3:44
+02. Blowing Off Steam 3:53
+03. The Anthropophagists' Club 3:38
+04. Follow Me If You Want To Live 3:23(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
 ```
 
 https://mybot314.ru/tekegram_catalog/

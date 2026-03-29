@@ -1,3 +1,60 @@
+###  Публикация: 1354276   (100784) от 06.10.2025
+
+VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За кадром (2000) 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брат-1: Режиссёр Алексей Балабанов вспоминал, что история «Брата» родилась из его старого замысла соединить в одном фильме бандитов и музыкантов, поскольку он общался и с теми, и с другими. Музыка должна была сыграть одну из ведущих ролей в будущей картине. Подыскивая подходящий саундтрек, Балабанов остановил свой выбор на группе «Наутилус Помпилиус», поскольку был (   Читать дальше...   )2000 - Брат-1. Музыка к фильму
+2000 - Брат-2. Музыка к фильму
+2000 - Брат-2. За кадромЖанр: RockПродолжительность: 03:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822332   (100767) от 06.10.2025
+
+VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Pyramid of Light (Original Mix) (8:02)
+02. Tibetania, Kaisser Bouzriba - Sawt El Hob (Original Mix) (6:32)
+03. The Friend, Tibetania - Desert Wind (Original Mix) (7:18)
+04. Tibetania, Noyan Music, Moohan Music - Moyo (Original Mix) (5:14)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768969   (100580) от 30.12.2024
 
 VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2024) [MP3|320 Kbps] <Rock, Pop, OST>
@@ -6,7 +63,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100580.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100321.jpg" />
 </div>
 
 
@@ -69,7 +126,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -95,7 +152,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -130,7 +187,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97675.jpg" />
 </div>
 
 
@@ -161,7 +218,7 @@ Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96567.jpg" />
+  <img src="Z:/picture/005/save_picture_96567.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ Elane - Arcane (2011) [MP3|320 кб/с]<Celtic, Gothic, Fantasy Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96386.jpg" />
 </div>
 
 
@@ -231,7 +288,7 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94941.jpg" />
 </div>
 
 
@@ -266,7 +323,7 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94708.jpg" />
 </div>
 
 
@@ -301,7 +358,7 @@ VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94701.jpg" />
 </div>
 
 
@@ -330,7 +387,7 @@ VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94498.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91024.jpg" />
 </div>
 
 
@@ -394,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90944.jpg" />
 </div>
 
 
@@ -429,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89437.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89375.jpg" />
 </div>
 
 
@@ -494,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89102.jpg" />
 </div>
 
 
@@ -520,7 +577,7 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88229.jpg" />
 </div>
 
 
@@ -555,7 +612,7 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87868.jpg" />
 </div>
 
 
@@ -590,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87800.jpg" />
 </div>
 
 
@@ -625,7 +682,7 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87506.jpg" />
 </div>
 
 
@@ -660,7 +717,7 @@ VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87373.jpg" />
 </div>
 
 
@@ -695,7 +752,7 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87305.jpg" />
 </div>
 
 
@@ -730,7 +787,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85997.jpg" />
 </div>
 
 
@@ -756,7 +813,7 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85122.jpg" />
 </div>
 
 
@@ -776,67 +833,6 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471044   (83360) от 20.03.2012
-
-VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrumental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: folk/dance/instrumentalПродолжительность: 06:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470587   (83357) от 20.03.2012
-
-Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, Instrumental, Chor.>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God of Thunder
- 02 - Incredible Machines
- 03 - Rebirth of a Legend
- 04 - Rebirth Remix
- 05 - Rise of a Hero
- 06 - Warhammer
- 07 - Guardian Angel
- 08 - Limitless
- 09 - Grand Design
- 10 - Dark Force Rising(   Читать дальше...   )Жанр: Orchestral - Electronic - DramaПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
 ```
 
 https://mybot314.ru/tekegram_catalog/

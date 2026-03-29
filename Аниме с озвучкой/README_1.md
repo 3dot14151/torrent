@@ -1,3 +1,30 @@
+###  Публикация: 1847151   (1051962) от 24.01.2026
+
+Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда демонического города [ТВ-2] [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории
+Врата в другое измерение, известное как Мато или Демоническая Столица, появляются по всей Японии. Внутри этого пространства обнаруживается загадочный источник силы — Момо или «Персик». Он дает различные уникальные способности, но только женщинам. Однако есть и проблема: в Мато живут опасные монстры, периодически проникающие во внешний мир. Для (   Читать дальше...   )Производство: Япония, студия PassioneЖанр: приключения, фэнтезиРежиссер: Тамура МасафумиЯзык озвучки: Русский закадровый (AniLibria.TV), (SHIZA Project)Субтитры: Русские надписи, русские (софтсаб)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0783A56342089FDE26CE0FDBFB182FB9EA5BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847183   (1051939) от 24.01.2026
 
 Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели ты думаешь, что кто-то вроде тебя сможет победить повелителя демонов? [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +33,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051939.jpg" />
+  <img src="Z:/picture/005/save_picture_1051939.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051854.jpg" />
+  <img src="Z:/picture/005/save_picture_1051854.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051836.jpg" />
+  <img src="Z:/picture/005/save_picture_1051836.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051815.jpg" />
+  <img src="Z:/picture/005/save_picture_1051815.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051793.jpg" />
+  <img src="Z:/picture/005/save_picture_1051793.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051698.jpg" />
+  <img src="Z:/picture/005/save_picture_1051698.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Kodomo no Jikan | Детское время [2007, TV, 12 эп. + спэшл] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051527.jpg" />
+  <img src="Z:/picture/005/save_picture_1051527.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ Kodomo no Jikan: Ni Gakki | Детское время: Второй семест
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051526.jpg" />
+  <img src="Z:/picture/005/save_picture_1051526.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ Kodomo no Natsu Jikan | Летнее время для детей [2011, OAD] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051525.jpg" />
+  <img src="Z:/picture/005/save_picture_1051525.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убийстве�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051524.jpg" />
+  <img src="Z:/picture/005/save_picture_1051524.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Bokusatsu Tenshi Dokuro-chan Second | Bludgeoning Angel Dokuro-chan 2 | Убий
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051523.jpg" />
+  <img src="Z:/picture/005/save_picture_1051523.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051519.jpg" />
+  <img src="Z:/picture/005/save_picture_1051519.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051481.jpg" />
+  <img src="Z:/picture/005/save_picture_1051481.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051343.jpg" />
+  <img src="Z:/picture/005/save_picture_1051343.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051339.jpg" />
+  <img src="Z:/picture/005/save_picture_1051339.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051122.jpg" />
+  <img src="Z:/picture/005/save_picture_1051122.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051002.jpg" />
+  <img src="Z:/picture/005/save_picture_1051002.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050833.jpg" />
+  <img src="Z:/picture/005/save_picture_1050833.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050430.jpg" />
+  <img src="Z:/picture/005/save_picture_1050430.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050132.jpg" />
+  <img src="Z:/picture/005/save_picture_1050132.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049697.jpg" />
+  <img src="Z:/picture/005/save_picture_1049697.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049324.jpg" />
+  <img src="Z:/picture/008/save_picture_1049324.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048817.jpg" />
+  <img src="Z:/picture/008/save_picture_1048817.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048816.jpg" />
+  <img src="Z:/picture/008/save_picture_1048816.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048815.jpg" />
+  <img src="Z:/picture/008/save_picture_1048815.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4AF6A9D2CFDF4D514710AB4D71298973C613238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842811   (1048814) от 17.12.2025
-
-Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лина Инверс со своей заклятой подругой Нагой Серпент как-то раз во время странствий очутились в небольшом городке, знаменитом изготовлением големов. Там они познакомились со странной девушкой Лайей, дочкой местного мастера Галия. Проблема в том, что у Галиа есть молодой и амбициозный конкурент Хьюи, бросивший ему вызов. Что именно не поделили между собой эти два (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, ~Maria Van Gerad~, Cruel, Chloe, InuMa77Kun, Yukato, PONYAWKA)Продолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B83CABA9CC49CEF3F2C9289783B5F6E8B0547
 ```
 
 https://mybot314.ru/tekegram_catalog/

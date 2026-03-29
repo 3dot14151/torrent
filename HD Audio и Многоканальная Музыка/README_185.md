@@ -1,3 +1,234 @@
+###  Публикация: 1783741   (69667) от 08.03.2025
+
+Deathless Legacy - Damnatio Aeterna (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Damnatio Aeterna
+02 – Miserere
+03 – Get On Your Knees
+04 – Communion(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5049631C7E44ACCE7AE4405957D6AA4612136BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784158   (69631) от 09.03.2025
+
+Ros - Salvator (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quantum Leap (7:44)
+02. Armeria (5:12)
+03. Good Girl Syndrome (5:07)
+04. Woman Who Run With The Wolves (4:22)(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E202121DB0EFB69AFF0E2B0CBAF82F806222E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784050   (69623) от 09.03.2025
+
+Surmachina - Хождение за три моря (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Abstract Hip-Hop, Electronic, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Куролесим [00:03:02]
+02 - Соловейка groove (feat. Kaleriya) [00:04:00]
+03 - Хождение за три моря [00:03:32]
+04 - Хвостоед [00:02:30](   Читать дальше...   )Жанр: Abstract Hip-Hop, Electronic, FolkПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337F89ACAFE1B1532B1A4B4708FAAEFD61A282E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783726   (69607) от 09.03.2025
+
+Gary Numan - Berserker (1984) Extended; Remaster;  2025; BMG [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Berserker (2025 Remaster)
+02 – This Is New Love (2025 Remaster)
+03 – The Secret (2025 Remaster)
+04 – My Dying Machine (2025 Remaster)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17640F56DEA11D0F92D9F06807215BDF22463197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783743   (69601) от 09.03.2025
+
+Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotha [05:14]
+02. 1.5 Dozen [04:13]
+03. Meteorhead [05:31]
+04. Oversized Load [04:44](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F21624B50793E560A6E005567AF5A3D736E92D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783738   (69597) от 09.03.2025
+
+Sadist - Something to Pierce (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Something to Pierce
+02 – Deprived
+03 – No Feast for Flies
+04 – Kill Devour Dissect(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A0909CA39A48D24E386D903A4AF827A22F2B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784339   (69582) от 10.03.2025
+
+Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 24/96, 24/192|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Close to the Edge: i. The Solid Time of Change, ii. Total Mass Retain, iii. I Get up I Get Down, iv. Seasons of Man (2025 Remaster) [18:44]
+02 - And You and I: i. Cord of Life, ii. Eclipse, iii. The Preacher the Teacher, iv. Apocalypse (2025 Remaster) [10:13]
+03 - Siberian Khatru (2025 Remaster) [8:58]Жанр: Rock, Progressive RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAB7A145BCE833DE7F1F2C275036E0D9922835E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784241   (69577) от 10.03.2025
+
+Livingston - A Hometown Odyssey (2024) The Story Continues, 2025, Big Up Entertainment - Livingston [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:01:52]
+02. Shadow [00:02:37]
+03. Surprise! [00:02:25]
+04. Last Man Standing [00:03:03](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA2048A0905308422DDD99CCF0CDF0F137FF01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784326   (69576) от 10.03.2025
 
 Stinking Lizaveta - Slaughterhouse (1997) Remaster, 2025, SRA Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Jazz, Stoner Metal>
@@ -6,7 +237,7 @@ Stinking Lizaveta - Slaughterhouse (1997) Remaster, 2025, SRA Records[FLAC 24/96
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69576.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ The Wildhearts - Satanic Rites of The Wildhearts (2025) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69568.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Tokimonsta - Eternal Reverie (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Al
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69566.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69565.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69562.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69556.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Wily Bo Walker - The Rattlin Bone Theatre Show Volume 1 (2025) [FLAC 24/48|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69520.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Yellowjackets - Fasten Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusio
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69511.jpg" />
 </div>
 
 
@@ -238,7 +469,7 @@ Warwolf - The Final Battle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69507.jpg" />
 </div>
 
 
@@ -267,7 +498,7 @@ Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69506.jpg" />
 </div>
 
 
@@ -296,7 +527,7 @@ David Rose - My Disguise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69502.jpg" />
 </div>
 
 
@@ -325,7 +556,7 @@ T.G. Copperfield - All In Your Head (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69500.jpg" />
 </div>
 
 
@@ -354,7 +585,7 @@ Visions Of Atlantis - Armada LIVE Over Europe (2025) (Live) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69495.jpg" />
 </div>
 
 
@@ -383,7 +614,7 @@ David Rose - A Good Catch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69491.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ The Night Flight Orchestra - Give Us The Moon (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69490.jpg" />
 </div>
 
 
@@ -441,7 +672,7 @@ Heldmaschine - Eiszeit (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neue Deutsc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69488.jpg" />
 </div>
 
 
@@ -470,7 +701,7 @@ Belleville Birds - Merle alors (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Conte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69486.jpg" />
 </div>
 
 
@@ -499,7 +730,7 @@ The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69485.jpg" />
 </div>
 
 
@@ -513,238 +744,6 @@ The Bob Lanza Blues Band - Breadman's Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E525AB6248E14244899411657FC2F7E18924EDD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784802   (69481) от 13.03.2025
-
-Surya - Into the Emerald (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evergreen River (1:28)
-02.  A Blazing Crusade (3:43)
-03.  Through the Stone (4:15)
-04.  Beyond Eyes of Gold (8:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3E323D8CA5A1C18BB6ECD6A5F7A211EE7C9BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784936   (69480) от 13.03.2025
-
-The Witches´ Dream - Muses & Conjurations (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calamity (5:07)
-02.  Eradicate (4:55)
-03.  Grand Conjuration (3:33)
-04.  Stones In The Rainy Forest (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE99D995FF9A02272B876741FF53F5E2FD723E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784939   (69479) от 13.03.2025
-
-Tomislav Goluban & Crooked Eye Tommy - Nashville Road (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hard Run (2:39)
-02.  Rock Dog (4:03)
-03.  Up Is Down (3:17)
-04.  Bad Choices Make Good Stories (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE83DDF90B40F5FEAF09D94D60DCE835BA302790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784791   (69478) от 13.03.2025
-
-Avion - Lady Of The Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Need You (3:48)
-02.  Diamond Eyes (4:12)
-03.  Lady of the Night (2:53)
-04.  We Can Try (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1123D3EDDDA697C95F00F52550B664E12AC0A73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784904   (69477) от 13.03.2025
-
-Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Folk Metal, Viking Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69477.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Tyven
-A2 - Sankarihauta
-A3 - Kylän Päässä
-B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Black MetalПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784789   (69476) от 13.03.2025
-
-Arthur Guyard - Pocket Grooves (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let's Groove (2:05)
-02.  Can You feel (2:27)
-03.  Let's Dance (2:15)
-04.  Shake Yourself (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E37CA1FF955C60F9FECEEC0D031C6BBC8C80F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784929   (69475) от 13.03.2025
-
-The Late Speakers - Freaking News (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Limousine (3:14)
-02.  Alchemical (4:01)
-03.  Hit me! (3:46)
-04.  REM Sleep (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194C6972E62BE6478F91FD8494039DDFAD32F4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784943   (69474) от 13.03.2025
-
-Untold Stories - Wind and Memories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Broken Light (7:04)
-02.  Fly Away (4:59)
-03.  Wind and Memories (10:19)
-04.  The Power of Forgiveness (7:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A34C2CE2B7EFCBAED9D1FF83C713E7B3746321B
 ```
 
 https://mybot314.ru/tekegram_catalog/

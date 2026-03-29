@@ -1,3 +1,234 @@
+###  Публикация: 1728586   (54044) от 07.06.2024
+
+David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition, Remaster, 2021, Rhino Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Country Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riff 1 (Demo) (2021 Remaster) [00:02:22]
+02. Tamalpais High (At About 3)Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 2CD, 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F480E04175EB9444159870F070662C01A581CC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845295   (53891) от 09.06.2024
+
+Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip)]<Pop (Sound-Alike)>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not In Love
+Gouldman - Stewart
+02. Sailing
+Sutherland(   Читать дальше...   )Жанр: Pop (Sound-Alike)Продолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5665089D88FE813DF5D0F2F029F397A72983C990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728940   (53838) от 09.06.2024
+
+Elvis Presley - Masters of Rock Presents Elvis Presley (2024) 2024 Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’s All Right (2024 Remastered)
+02. Mystery Train (2024 Remastered)
+03. Heartbreak Hotel (2024 Remastered)
+04. Blue Suede Shoes (2024 Remastered)(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFA5713C38A28D7E7C5CE3119ED06A76283E603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729148   (53729) от 10.06.2024
+
+Jeff Healey - Road House (The Lost Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Road Again (4:21)
+02. Confidence Man (3:15)
+03. Long Tall Sally (2:42)
+04. One Foot on the Gravel (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824861B65581A327ACE809912BB219B336945D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729153   (53723) от 10.06.2024
+
+Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal Death Metal, Grindcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53723.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Invert The Idols
+A2 Subjected To A Beating
+A3 Second Skin
+A4 From Womb To Waste(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A05C117D3C3086A4E3F4E531719CFF8481F4461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729543   (53668) от 11.06.2024
+
+Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) SACD, Remastered, 2015, Deutsche Grammophon  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 1 in C minor, Op.68
+01. I. Un poco sostenuto - Allegro (13:03)
+02. II. Andante sostenuto (9:52)
+03. III. Un poco allegretto e grazioso (5:08)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1262464524B590829524DE0949880F3FA185CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729470   (53621) от 11.06.2024
+
+Grand Slam - Wheel Of Fortune (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Goes My Heart (4:55)
+02. Starcrossed Lovers (4:34)
+03. Come Together (In Harlem) (4:10)
+04. Trail Of Tears (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D60FA67F970AD4D9249BF2710F9E65A7955D32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729372   (53614) от 11.06.2024
+
+Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ablaze My Sorrow — мелодик-дэт-метал группа из Фалькенберга, Швеция. Группа образовалась в 1993 году, выпустила три полноформатных альбома после нескольких смен состава и получила широкую известность в металлической прессе, прежде чем распалась в августе 2006 года.
+В январе 2013 года группа воссоединилась.1996 - If Emotions Still Burns
+1998 - The Plague
+2002 - Anger, Hate And Fury
+2016 - Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659088   (53554) от 12.06.2024
 
 Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Metal, Hard Rock>
@@ -6,7 +237,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -36,7 +267,7 @@ Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53393.jpg" />
 </div>
 
 
@@ -65,7 +296,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -94,7 +325,7 @@ Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53297.jpg" />
 </div>
 
 
@@ -123,7 +354,7 @@ Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53202.jpg" />
 </div>
 
 
@@ -152,7 +383,7 @@ Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better N
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53101.jpg" />
 </div>
 
 
@@ -181,7 +412,7 @@ Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53089.jpg" />
 </div>
 
 
@@ -210,7 +441,7 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53029.jpg" />
 </div>
 
 
@@ -239,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -265,7 +496,7 @@ Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53001.jpg" />
 </div>
 
 
@@ -294,7 +525,7 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52995.jpg" />
 </div>
 
 
@@ -323,7 +554,7 @@ Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52980.jpg" />
 </div>
 
 
@@ -352,7 +583,7 @@ Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52977.jpg" />
 </div>
 
 
@@ -381,7 +612,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52920.jpg" />
 </div>
 
 
@@ -410,7 +641,7 @@ Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52811.jpg" />
 </div>
 
 
@@ -439,7 +670,7 @@ Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52808.jpg" />
 </div>
 
 
@@ -468,7 +699,7 @@ Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52807.jpg" />
 </div>
 
 
@@ -497,7 +728,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52806.jpg" />
 </div>
 
 
@@ -511,238 +742,6 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0017769819D40A4857F0A941353382ABCF87E3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731218   (52768) от 19.06.2024
-
-Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels Like The First Time (Live) [00:05:10]
-02. Cold As Ice (Live) [00:05:36]
-03. Waiting For A Girl Like You (Live) [00:05:40]
-04. Urgent (Live) [00:07:43](   Читать дальше...   )Жанр: RockПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5335A764F6A18E26CA50BF4427C0493BC2056E1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845272   (52732) от 20.06.2024
-
-Hot Hits (Cover versions of chart songs from 1971) - Round 8 (1971) [FLAC 2.0|24/192|image+.cue|Vinyl Rip]<Pop, Sound-Alike>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52732.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Surrender
-A2	Johnny Reggae
-A3	Look Around (And You'll Find Me There)
-A4	Jeepster(   Читать дальше...   )Жанр: Pop/Pop-RockПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E52343C307AF1F76EAF557F0D0A7B729BA2A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731304   (52684) от 20.06.2024
-
-The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Around And Around (00:03:03)
-02 - Confessin' The Blues (00:02:48)
-03 - Empty Heart (00:02:38)
-04 - Time Is On My Side (Mono Version 1 - Organ Intro) (00:02:54)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:32:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FE56BA57A65A1DC06501A4F3CCCFE170AD8A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582250   (52614) от 21.06.2024
-
-Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped] <Thrash/Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthrax — американская метал-группа, играющая трэш-метал, спид-метал, а также грув-метал (позднее творчество). Основана в 1981 году в Нью-Йорке. Вместе с такими группами, как Slayer, Metallica и Megadeth, Anthrax входит в «большую четвёрку трэш-метала».1983 - Fistful Of Metal
-1985 - Spreading The Disease
-1987 - Among The Living
-1988 - State Of EuphoriaЖанр: Thrash/Groove MetalПродолжительность: 13:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C8D96A2A4136E21CFCA3EB687AF621513C0360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821310   (52288) от 01.10.2025
-
-Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Belong Anywhere
-02. A Curse Upon Iron
-03. I'll Know You're Not Around
-04. Revenge In Carnage(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1142F8C498DF9C149014E6EA09F0E3A99CF2C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821333   (52240) от 01.10.2025
-
-Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Sell Your Soul(5:04)
-02. Danger Zone(3:38)
-03. Eye of the Storm(3:57)
-04. Janey the Fox(3:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE568C26BCEFA2694D45E86B943C145D54AF6168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732267   (52221) от 24.06.2024
-
-Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart's Confess (3:22)
-02. I Found My Place (3:15)
-03. J Manouche (2:27)
-04. Jazzy Arpy Waves (3:58)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AF705A55AF752BE1F9830E3C676150104587BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673285   (52084) от 02.10.2025
-
-Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
-2011 - Time Is Up
-2013 - Unnatural Selection
-2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

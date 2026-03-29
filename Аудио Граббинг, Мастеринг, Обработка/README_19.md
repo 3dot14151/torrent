@@ -1,3 +1,107 @@
+###  Публикация: 1261939   (298674) от 13.11.2018
+
+HY-Plugins - HY-Delay3 1.1.2 VST, VST3 (x86/x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультирежимный эффект задержкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD33E5497E3256EC6B6993696974A183FC3ABD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262011   (296856) от 14.11.2018
+
+FXpansion - Cypher2 2.4.10.3 STANDALONE, VSTi, AAX (x64) RePack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cypher2 предназначен для глубокой звуковой разведки и выразительных выступлений. Он имеет широкий диапазон звуковых инструментов дизайна и более 1300 звуков, в том числе 500 MPE-оптимизированные пресетов. Опыт беспрецедентного уровня экспрессии через аналого-смоделированы осцилляторы, Waveshaping и через ноль FM. Наша система модуляции подписи TransMod, теперь модернизирован (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA8E9B9F6C7AE743D6F01BA69CA91F0AC2FF1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334342   (296747) от 28.10.2019
+
+AnyMP4 Audio Converter 7.2.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296747.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Audio Converter - простой в использовании аудио конвертер, конвертер AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, извлечение аудио из видео файлов MPG, MPEG, MPEG2, MOV, QT, MP4, M4V, RM, RMVB, WMV, ASF, MKV, TS, MPV, AVI, 3GP, 3G2, FLV, MPV, MOD, TOD видео в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, конвертер (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDABB05A13BC71C590D819AF07B36FE655CD9F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334334   (296738) от 28.10.2019
+
+SoundSpot - Union 1.0.1 VSTi, VSTi3, AAX (x86/x64) Repack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Union - это звуковой плагин волнового синтезатора нового поколения SoundSpot, обладающий уникальным волновым генератором, который позволяет создавать гармонически насыщенные волновые наборы из выходных сигналов основных генераторов Union. Этот метод часто используется лучшими мировыми звуковыми дизайнерами для создания насыщенных и глубоких звуков. Union позволяет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561BEB1AFE43927A4C59CBB557C87F09C8CFB6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424064   (295566) от 15.11.2020
 
 Dear Reality - dearVR Bundle (11.2020) VST, VST3, AAX [En]
@@ -6,7 +110,7 @@ Dear Reality - dearVR Bundle (11.2020) VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295566.jpg" />
+  <img src="Z:/picture/008/save_picture_295566.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Accusonus - Regroover Pro 1.7.84 VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293034.jpg" />
+  <img src="Z:/picture/008/save_picture_293034.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Accusonus - Beatformer 1.2.16 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293023.jpg" />
+  <img src="Z:/picture/008/save_picture_293023.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Accusonus - Rhythmiq 1.0.4 VSTi, VSTi3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292903.jpg" />
+  <img src="Z:/picture/008/save_picture_292903.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Spectrasonics instruments + Libraries [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287187.jpg" />
+  <img src="Z:/picture/008/save_picture_287187.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Valhalla DSP - ValhallaDelay 1.1.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283915.jpg" />
+  <img src="Z:/picture/008/save_picture_283915.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Thenatan - Bassynth 2018.11 VSTi (x64) RETAiL [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276423.jpg" />
+  <img src="Z:/picture/008/save_picture_276423.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ IK Multimedia - Hammond B-3X 1.1.0 STANDALONE, VSTi, VSTi3, AAX (x64) [EN]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272442.jpg" />
+  <img src="Z:/picture/008/save_picture_272442.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Arturia - Matrix-12 V2 2.3.2.1889 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269979.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Arturia - Synclavier V 2.0.2.1891 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269144.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Abyssmedia Audio Converter Plus 6.3.0.0 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268915.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ Spek 0.8.2 Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264356.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ D16 Group - Godfazer 1.0.1 VST, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262286.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Native Instruments - Absynth 5 5.3.0 STANDALONE, VSTi, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262176.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ Ableton - Live 12 Suite 12.3 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261601.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ Serato DJ Pro Suite 4.0.0 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257779.jpg" />
+  <img src="Z:/picture/005/save_picture_257779.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ Adobe Audition 2025 25.6.0.97 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256622.jpg" />
+  <img src="Z:/picture/005/save_picture_256622.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ Mp3tag 3.32 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256618.jpg" />
+  <img src="Z:/picture/005/save_picture_256618.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Adobe Audition 2025 25.6.0.97 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255576.jpg" />
+  <img src="Z:/picture/005/save_picture_255576.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ GForce Software Oberheim OB-E 2.5.1 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255063.jpg" />
+  <img src="Z:/picture/005/save_picture_255063.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Tone2 - Electra 3.1.0 STANDALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255058.jpg" />
+  <img src="Z:/picture/005/save_picture_255058.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Tone2 - UltraSpace 1.0.0 VST (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255056.jpg" />
+  <img src="Z:/picture/005/save_picture_255056.jpg" />
 </div>
 
 
@@ -574,111 +678,6 @@ UltraSpace - это гораздо больше, чем просто ревер�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE3EA8098E6A8EBC875F616A84C40EFD5D55AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627955   (254948) от 21.04.2023
-
-W.A. Production - Obsidian 1.0.0 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как создатели музыки, мы всегда ищем новые способы вывести наши проекты на новый уровень. Мы хотим создавать уникальные, оригинальные и ошеломляющие звуки. Сложные цепочки плагинов и внешнее оборудование имеют свое место, но иногда вам просто нужно быстро что-то исправить или добавить, придав вашему миксу уникальность. OBSIDIAN здесь, чтобы помочь вашим синтезаторам, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC23BFC033A821776A7781757C63B6F7996C30CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536042   (254667) от 30.04.2023
-
-accusonus - ERA Bundle Pro 6.2.0 + Voice Changer 1.3.1 VST, VST3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэкономьте массу времени на редактировании. Очищайте свои треки без артефактов за короткий промежуток времени. ERA Bundle Pro включает набор мощных плагинов, которые помогут вам решить все проблемы со звуком, с которыми вы обычно сталкиваетесь. Независимо от того, работаете ли вы с видео, фильмами, подкастами, озвучкой, трансляцией, потоковой передачей или производством (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE282E1BFD596FA2910E76B07F0D3FFF81CB4E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836235   (252460) от 09.11.2025
-
-Mario Nieto - Harmony Bloom 1.3.9 Standalone, VSTi 3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harmony Bloom - это MIDI -генератор, объединяющий полиритмические узоры с красивыми визуальными эффектами. Отправьте данные MIDI на любое устройство, которое принимает его, разблокируя ряд музыкальных возможностей. Harmony Bloom стремится легко создавать магические последовательности, позволяя пользователям добавлять свою личность. Он предлагает много параметров (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0AD09E398175BCE234DB1550B2773EC74E7B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836234   (252459) от 09.11.2025
-
-Mario Nieto - Chord Generator 1.1.6 Standalone, VSTi 3 (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chord Generator — это MIDI-инструмент, который генерирует аккорды с неожиданными, волшебными вариациями.
-Раскройте весь потенциал вашего музыкального производства с помощью Chord Generator, инновационного инструмента для создания сложных гармоний и динамических ритмов. Благодаря таким функциям, как режим повторного запуска, бренчание и повторение нот, этот универсальный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC609E5848B27CEE61215F467C96A9935816E66D
 ```
 
 https://mybot314.ru/tekegram_catalog/

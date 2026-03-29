@@ -1,3 +1,148 @@
+###  Публикация: 1692025   (122889) от 14.01.2024
+
+Ray Noir - Scorpio (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pity Party [00:03:43]
+02. Scorpio [00:03:24]
+03. Latency [00:03:32]
+04. Bergen (Interlude) [00:02:00](   Читать дальше...   )Жанр: Industrial PopПродолжительность: 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EF0754E530C26B2CCA46CA6D6BA532CFAD8311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692378   (122329) от 17.01.2024
+
+Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geography [00:26:15]
+I. Prelude
+II. Space & Shapes
+III. The Summit(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D2C3A3A0F2B4AB6388685AA64D62E4E5D10FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692890   (121982) от 19.01.2024
+
+Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hillbilly Haze (3:14)
+02. That Little Girl (4:05)
+03. Port Wine Prophet (3:11)
+04. Second Hand Luck (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56C217D5009599C42EEF2E64908E26475B0B44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693704   (121684) от 21.01.2024
+
+Bolts of Melody - Film Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 555 [00:03:32]
+02. Hi-Rise Decade [00:03:16]
+03. The Village Sleeps [00:00:38]
+04. Harpsiglass [00:01:25](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C474814104E550F8EEB98D0F819B130FD1ADC420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762342   (121593) от 22.01.2024
+
+Bayside - The Walking Wounded (2007) Gold Edition [FLAC|Lossless]<Rock / Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Walking Wounded [03:45]
+02.  They're Not Horses, They're Unicorns [03:46]
+03.  Duality [03:00]
+04.  Carry On [04:01](   Читать дальше...   )Жанр: Rock / PunkПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E328DA8DA0D2471EC9DBD874DC15298FBFDD9ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693938   (121282) от 23.01.2024
 
 VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Video Game Radio Station (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121282.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Gym Beast Mode Workout 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121280.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Rock Shed Rangers - Different Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121272.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Omega - Az Arc (1981) Reissue, Remastered, 2004, Hungaroton [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121112.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ John Wetton - Caught In The Crossfire (1980) Expanded Edition, 2024, Spirit Of U
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120997.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Omega - Az Omega koncertek legnagyobb sikerei eredeti felvételeken (1994) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120974.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ The Blushing Brides - Broken Hearts on Bleecker Street (2024) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120949.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Ivy Gold - Broken Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120947.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Jim Capaldi - The Outside Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120415.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120073.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Mellow Heavy Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119951.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Sixties Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119949.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Home Workout - Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119945.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Sergio Rowles & The Cinnamon Souls - Sergio Rowles & The Cinnamon Souls (2024) [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119918.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Madness - Madness, by Mike (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119303.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119129.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119093.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118927.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Chill Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118741.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ No More Cries - Social Despair (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118415.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118404.jpg" />
 </div>
 
 
@@ -600,144 +745,6 @@ Iko - Album Three the Music in Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:773725AB7E364E7B25E2F906DD287F4C24E833FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698908   (118103) от 11.02.2024
-
-Wisborg - Wisborg (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im freien Fall [00:03:47]
-02. Kalt wie Eis [00:03:39]
-03. Korrosion [00:03:35]
-04. Unter Menschen [00:04:06](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Hard RockПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68650D5A4EB0B136EBD2563722B0C30A576E1EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699160   (117952) от 12.02.2024
-
-Soren Andersen - Skybar (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117952.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.SkybarЖанр: RockПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D1DB073381A1A1C9B5C6E3B704BE482ABCE4045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699143   (117925) от 12.02.2024
-
-Soren Andersen - City of Angels (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117925.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.City of AngelsЖанр: RockПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C8BB9F084FC19BBDE72AB8D2B94A78942865BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699322   (117809) от 13.02.2024
-
-Grateful Dead - It Must Have Been the Roses (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117809.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Scarlet Begonias (2013 Remaster) (04:19)
-2. They Love Each Other (Live at Barton Hall, Cornell University, Ithaca, NY, 5/8/77) (07:29)
-3. The Stranger (Two Souls in Communion)Жанр: Rock, Folk Rock, Psychedelic RockПродолжительность: 05:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B217E0D46E7632012CE45E4561D2983E3429A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823190   (117537) от 10.10.2025
-
-UFO - The Misdemeanor Tour - Live At The Oxford Apollo (1985) Reissue, 2025, HNE Recordings Ltd [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Heavens Gate
-03. The Chase
-04. This Time(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, GlamПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40626E134C89E927ED0D8F829235CDC4659C9A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

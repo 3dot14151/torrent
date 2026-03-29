@@ -1,3 +1,61 @@
+###  Публикация: 1698417   (118258) от 10.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1159 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Zoë Johnston - Crazy Love
+02. Norni - Collision
+03. Boom Jinx & Andy Moor & Noise Zoo ft. Ashley Tomberlin - Pinpricks Of Life
+04. Stylo & Space Motion & Ruben de Ronde - Free Your Mind (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170CCCBF4103CDCFC9F0AF479E2F04159128FA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700225   (117153) от 16.02.2024
+
+VA - Armin van Buuren - A State Of Trance 1160 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Armin van Buuren ft. Anne Gudrun - Love Is A Drug (Agents Of Time Remix) (ARMIND (ARMADA))
+02.	Ashley Wallbridge & John Grand - Echoes (ENHANCED PROG)
+03.	Hel:sløwed & JNSN - Want Me Artwork (Progressive Pick)
+04.	Magnus - JOI ARMADA ELECTRONIC ELEMENTS(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159986631C01B6348E3ECFA6E58A509F2C535DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700324   (117055) от 17.02.2024
 
 Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
@@ -6,7 +64,7 @@ Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117055.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115859.jpg" />
 </div>
 
 
@@ -67,7 +125,7 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115858.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ VA - Armin van Buuren - A State Of Trance 1161 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115824.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Armin van Buuren - A State Of Trance 1162 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114819.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - Live @ RAI, Amsterdam Dance Event (2023) [MP3|320 Kbps] <Melodic House, Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114030.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ VA - Armin van Buuren - A State Of Trance 1163 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113899.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Armin van Buuren - Tomorrowland Friendship Mix (2024-03-14) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113428.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ James Carter - Axtone House Party (2024-03-11) [MP3|320 Kbps] <House, Tech House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113388.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ VA - Armin van Buuren - A State Of Trance 1164 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113383.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ David Guetta - Live @ The Monolith Al Ula, Saudi Arabia (2024-03-20) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112965.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112952.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112534.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112529.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112514.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Korolova - Live @ Captive Soul, Centrum Eventowe Butelkownia Warsaw (2024-03-16)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112106.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111914.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ MORTEN - Tomorrowland Friendship Mix (2024-04-04) [MP3|320 Kbps] <Tech House, Me
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111904.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Markus Schulz - Global DJ Broadcast World Tour (MAD Club Wynwood Miami, Miami Mu
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111880.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - Armin van Buuren - A State Of Trance 1168 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111563.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ Vintage Culture - Live @ Warung Beach Club 2024 (Opening Fiesta) Itajai, Brazil 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111536.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111128.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Claptone & Diplo - Live @ The Masquerade, Fabrik Madrid, Spain (2024-04-06) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111112.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111106.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Nicky Romero - Tomorrowland Friendship Mix (2024-04-18) [MP3|320 Kbps] <Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21FB60508E28C5C5AE8B0EB12625DA9301E71B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718768   (110750) от 27.04.2024
-
-VA - Armin van Buuren - A State Of Trance 1170 (Top 1000 2024: Top 50) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110750.jpg" />
-</div>
-
-
-###  Подробнее
-
-50. Bryan Kearney & Plumb - All Over Again
-49. Estiva X Ruben de Ronde - Rainbow
-48. Paul Oakenfold ft. Carla Werner - Southern Sun (Tiësto Remix)
-47. Dash Berlin & Cerf & Mitiska & Jaren - Man On The Run(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A188D3EAEEC036E120944ECADC60722F6F8D8A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719245   (110597) от 29.04.2024
-
-Miss Monique - Tomorrowland Friendship Mix (2024-04-25) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Olander - Holmen
-02. Cherry - Silent
-03. ID - ID
-04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A758DA035C7C6E3CF9E65FBCA1558C1E4214EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

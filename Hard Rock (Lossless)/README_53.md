@@ -1,3 +1,61 @@
+###  Публикация: 1253920   (377371) от 12.10.2018
+
+Nazareth - Tattooed on My Brain (2018) Frontiers Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Dance with the Devil (3:00)
+ 02. Tattooed on My Brain (2:50)
+ 03. State of Emergency (3:42)
+ 04. Rubik's Romance (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCFA1FB15563F1F70555AA60AB4A26600C8F5D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327339   (376845) от 24.09.2019
+
+Jimi Anderson Group - I Belong (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brave New World[3:58]
+ 02 - Holdin' On To The Night[4:05]
+ 03 - If All I Need Is You[4:09]
+ 04 - Until Then[3:40](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E533EC5E389F84614A5BF8EB02B5EB5BBAD6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415810   (374311) от 13.10.2020
 
 Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock, Nu Metal, Alternative Rock>
@@ -6,7 +64,7 @@ Boy Hits Car - Worldwide Alive! (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374311.jpg" />
+  <img src="Z:/picture/008/save_picture_374311.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Brother Firetribe - Feel The Burn (2020) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374297.jpg" />
+  <img src="Z:/picture/008/save_picture_374297.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Slade - Cum On Feel The Hitz - The Best Of Slade (2020) 2xCD [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373902.jpg" />
+  <img src="Z:/picture/008/save_picture_373902.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mad Max - 13 Albums, 14CD (1982-2020) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373783.jpg" />
+  <img src="Z:/picture/008/save_picture_373783.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Crosson - 5 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373365.jpg" />
+  <img src="Z:/picture/008/save_picture_373365.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ SirGibson - Elder Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373258.jpg" />
+  <img src="Z:/picture/008/save_picture_373258.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Clutch - Psychic Warfare (2015) [FLAC|tracks+.cue]<Southern Rock /Hard Rock /Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372876.jpg" />
+  <img src="Z:/picture/008/save_picture_372876.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nazareth - Tattooed On My Brain (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372819.jpg" />
+  <img src="Z:/picture/008/save_picture_372819.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Gary Moore - Out In The Fields - The Very Best Of (1998) 2CD Japanese Edition [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372583.jpg" />
+  <img src="Z:/picture/008/save_picture_372583.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Europe - Walk The Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372023.jpg" />
+  <img src="Z:/picture/008/save_picture_372023.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The London Quireboys - This Is Rock'N'Roll (2002) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371540.jpg" />
+  <img src="Z:/picture/008/save_picture_371540.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ The Quireboys - Bitter Sweet & Twisted & Live (1993) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371535.jpg" />
+  <img src="Z:/picture/008/save_picture_371535.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The Quireboys - A Bit Of What You Fancy & Bitter Sweet And Twisted (1997) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371410.jpg" />
+  <img src="Z:/picture/008/save_picture_371410.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Platinum Overdose - Murder In High Heels (2019) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369672.jpg" />
+  <img src="Z:/picture/008/save_picture_369672.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Outlasted - Waiting For Daybreak (2019) Limited Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369663.jpg" />
+  <img src="Z:/picture/008/save_picture_369663.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Light Of Darkness - Light Of Darkness (1971 | 1992) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368301.jpg" />
+  <img src="Z:/picture/008/save_picture_368301.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ John Mellencamp - Cuttin' Heads (2001) [FLAC|Lossless|tracks + .cue] <Classic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367638.jpg" />
+  <img src="Z:/picture/008/save_picture_367638.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Cheap Trick - Christmas Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Christma
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367477.jpg" />
+  <img src="Z:/picture/008/save_picture_367477.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The Quireboys - Homewreckers & Heartbreakers (2008) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366872.jpg" />
+  <img src="Z:/picture/008/save_picture_366872.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Francesco Marras - It's Me! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366627.jpg" />
+  <img src="Z:/picture/008/save_picture_366627.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ SNEW - What’s It to Ya (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366452.jpg" />
+  <img src="Z:/picture/005/save_picture_366452.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Hurricane - Slave To The Thrill (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365103.jpg" />
+  <img src="Z:/picture/008/save_picture_365103.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364362.jpg" />
+  <img src="Z:/picture/008/save_picture_364362.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Super Vintage - Guardians of Tradition (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364284.jpg" />
+  <img src="Z:/picture/008/save_picture_364284.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Super Vintage - Guardians of Tradition (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079EA7976B0AE5BE954BD2DA0DC7DF73D62BBB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576679   (364272) от 15.09.2022
-
-Rogue Sharks - In For The Kill (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal is the Man
-02. Time Alone
-03. Wipe That Smile
-04. All I Know(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70E9AD52A334D8A982D6E6D805B5B919BC18432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576648   (364185) от 15.09.2022
-
-Rocky MTN Roller - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Psych Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Automatons in the Sky [00:03:59]
-02. Haywire [00:03:57]
-03. Hoodwinked Again [00:03:59]
-04. Human Tumbleweed [00:05:01](   Читать дальше...   )Жанр: Hard Psych RockПродолжительность: 2 CD, 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6BEAEFF9B0FB63B81F34054059C4C91FB2FB24
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1295413   (613190) от 16.04.2019
+
+Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Nation
+02. No Pain No Gain
+03. Rhythm of Love
+04. Big City Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B088B80AE7777EA5E83588B48E72D7B3F650770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545485   (613158) от 20.04.2022
+
+Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ronald (Ronnie) Romero (20.11.1981) - чилийский певец, автор песен и музыкант, наиболее известный как солист рок-групп Lords of Black, Rainbow, The Ferrymen, Michael Schenker Group и Sunstorm. Один из самых многообещающих исполнителей хард-рока нашего времени собирается представлять Болгарию на конкурсе песни Евровидение-2022 в качестве солиста группы Intelligent (   Читать дальше...   )01. Sin's A Good Man's Brother (Grand Funk Railroad)
+02. Backstreet Love Affair (Survivor)
+03. No Smoke Without A Fire (Bad Company)
+04. I Was Born To Love You (Queen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5098CD19D9976EB2B2249F213293E77A8A2D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146831   (612848) от 30.06.2017
 
 Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Hard Rock>
@@ -6,7 +64,7 @@ Deep Purple - In Concert '72 (1972) 2012 Mix, Reissued in 2014 [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612848.jpg" />
+  <img src="Z:/picture/008/save_picture_612848.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Black Sabbath - The Dio Years (2007) Compilation, Remastered [FLAC|Lossless|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612722.jpg" />
+  <img src="Z:/picture/008/save_picture_612722.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612123.jpg" />
+  <img src="Z:/picture/008/save_picture_612123.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Gillan - Double Trouble (1981) Remaster  /1996, Virgin Records/ [FLAC|Lossless]<
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612089.jpg" />
+  <img src="Z:/picture/008/save_picture_612089.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Nazareth - Surviving The Law (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611232.jpg" />
+  <img src="Z:/picture/008/save_picture_611232.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Gillan - Magic (1982) Remaster /1988, Virgin Records/ [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610286.jpg" />
+  <img src="Z:/picture/008/save_picture_610286.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ AOR - Return To L.A. (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609727.jpg" />
+  <img src="Z:/picture/008/save_picture_609727.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Sharks - Jab It In Yore Eye (1974/ 2011) [FLAC|Lossless|image + .cue] <Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608853.jpg" />
+  <img src="Z:/picture/008/save_picture_608853.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Paul Kossoff, Andy Fraser (ex.Free) - 9 альбомов, 10 CD (1972-2003) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608770.jpg" />
+  <img src="Z:/picture/008/save_picture_608770.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Gypsy Pistoleros - Welcome To The Hotel De La Muerte (2009) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608716.jpg" />
+  <img src="Z:/picture/008/save_picture_608716.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Bonfire - 29 Golden Bullets: The Very Best Of Bonfire (2001) 2CD, Compilation [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605167.jpg" />
+  <img src="Z:/picture/008/save_picture_605167.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Alaska - The Pack (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605054.jpg" />
+  <img src="Z:/picture/008/save_picture_605054.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604493.jpg" />
+  <img src="Z:/picture/008/save_picture_604493.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Cheap Trick - We're All Alright! (2017) Deluxe Edition [FLAC|Lossless|tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604303.jpg" />
+  <img src="Z:/picture/008/save_picture_604303.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ A Caustic Fate - Chromatic (2019) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604068.jpg" />
+  <img src="Z:/picture/008/save_picture_604068.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ American Bombshell - Tattood ‘N Bruised (2019) [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604067.jpg" />
+  <img src="Z:/picture/008/save_picture_604067.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Humbucker - King Of The World (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603982.jpg" />
+  <img src="Z:/picture/008/save_picture_603982.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603706.jpg" />
+  <img src="Z:/picture/008/save_picture_603706.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The Scream - Let It Scream (1991) Reissue, 2018 [FLAC|lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602642.jpg" />
+  <img src="Z:/picture/008/save_picture_602642.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Grand Illusion - Prince Of Paupers (2011) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602469.jpg" />
+  <img src="Z:/picture/008/save_picture_602469.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Axel Rudi Pell - Lost XXIII (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602454.jpg" />
+  <img src="Z:/picture/008/save_picture_602454.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Faces - 4 Studio Albums, 2 Box Set, 6 Issues, 13CD (1970-2015) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602257.jpg" />
+  <img src="Z:/picture/008/save_picture_602257.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Crashdiet - Automaton (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602034.jpg" />
+  <img src="Z:/picture/008/save_picture_602034.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Mott The Hoople - Mental Train: The Island Years 1969-1971 (2018) 6-Disc Box Set
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601893.jpg" />
+  <img src="Z:/picture/008/save_picture_601893.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Mott the Hoople - британская рок-группа, образованн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3C1943816B7F1987B620391B7DEEEBAA32210E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298588   (601671) от 28.04.2019
-
-Grand Funk Railroad - 24 albums, 3 Box sets, 64 CD (1969-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Boogie Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Funk Railroad (или Grand Funk) — американская хард-рок-группа, образованная в 1969 году. В течение 1969—1972 годов пять альбомов GFR стали платиновыми (остальные три — золотыми); общий альбомный тираж группы в 70-х годах составил более 25 миллионов[1]. Grand Funk Railroad исполняли предельно упрощённый, но оглушительно-громкий вариант блюз-рока; впоследствии (   Читать дальше...   )--------------------------
-
-01. Footstompin' Music (4:08)
-02. Rock 'N' Roll Soul  (4:04)(   Читать дальше...   )Жанр: Hard Rock, Boogie Rock, Blues Rock |Продолжительность: 56:54:51 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4887D5CABC2770C0A1F45D59660E26DF3E19CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298612   (601627) от 29.04.2019
-
-Mantra - Roots (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Different Keys (4:14)
-02. Dirty River (5:13)
-03. The Architechtures Of The Sky (7:50)
-04. Garden Of Secrets (3:55)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABB79B9BA7A9B2152E76BE8EDF5B359108DA1B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

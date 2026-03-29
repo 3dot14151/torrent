@@ -1,3 +1,90 @@
+###  Публикация: 693067   (550320) от 25.08.2013
+
+VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Level 42 - Hot Water 1984
+02. Level 42 - Lessons In Love
+03. Lionel Richie - Hello 1984
+04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694564   (546670) от 29.08.2013
+
+VA - Vocal Trance Sessions vol.2 (2013) WEBRip [1080p, 720p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - Moscow Subway (Official Music Video)
+02.Ali - Cocoon (Official Music Video)
+03.Armin van Buuren feat. Cindy Alma - Beautiful Life (Official Music Video)
+04.Armin van Buuren feat. Jacqueline Govaert - Never Say Never (Official Music Video)(   Читать дальше...   )Жанр: Музыка, TranceПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4830C0249FD0F1C5AC67F9159372EB956149836A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238537   (546127) от 30.07.2018
+
+Сборник клипов - Lite Fitness от ALEXnROCK часть 1 (2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник делал на заказ для фитнесс зала. В него вошли ритмичные клипы с танцевальной поп музыкой периода 2010 - 2018. Он подойдет для любых физических упражнений и танцев, да и просто побалдеть под крутую попсу. Обложка и блин для диска есть в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK000 Intro
+001 Andreea Balan - Trippin
+002 Armin van Buuren feat. Josh Cumbee - Sunny Days (Club Mix)
+003 Alex Spite - Sky(   Читать дальше...   )Жанр: Pop, TranceПродолжительность: 03:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37945BF39FFA59100F1EE383AA34A089C2598F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924916   (542816) от 05.08.2015
 
 VA - Летний марафон № 180 / Видеоклипы (Новинки Русской Эстрады) (2015) WEBRip [H.264/1080p-LQ]
@@ -6,7 +93,7 @@ VA - Летний марафон № 180 / Видеоклипы (Новинки 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542816.jpg" />
+  <img src="Z:/picture/008/save_picture_542816.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Herbie Hancock - Future2Future (2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542024.jpg" />
+  <img src="Z:/picture/008/save_picture_542024.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542012.jpg" />
+  <img src="Z:/picture/008/save_picture_542012.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540446.jpg" />
+  <img src="Z:/picture/008/save_picture_540446.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539476.jpg" />
+  <img src="Z:/picture/008/save_picture_539476.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539475.jpg" />
+  <img src="Z:/picture/008/save_picture_539475.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539467.jpg" />
+  <img src="Z:/picture/008/save_picture_539467.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536924.jpg" />
+  <img src="Z:/picture/008/save_picture_536924.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535896.jpg" />
+  <img src="Z:/picture/008/save_picture_535896.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Go
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534476.jpg" />
+  <img src="Z:/picture/008/save_picture_534476.jpg" />
 </div>
 
 
@@ -291,7 +378,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533322.jpg" />
+  <img src="Z:/picture/008/save_picture_533322.jpg" />
 </div>
 
 
@@ -320,7 +407,7 @@ NikitA - Avocado (2012) MasterRip [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533108.jpg" />
+  <img src="Z:/picture/008/save_picture_533108.jpg" />
 </div>
 
 
@@ -348,7 +435,7 @@ Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532748.jpg" />
+  <img src="Z:/picture/008/save_picture_532748.jpg" />
 </div>
 
 
@@ -374,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529450.jpg" />
+  <img src="Z:/picture/008/save_picture_529450.jpg" />
 </div>
 
 
@@ -403,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529387.jpg" />
+  <img src="Z:/picture/008/save_picture_529387.jpg" />
 </div>
 
 
@@ -432,7 +519,7 @@ Slipknot - Клипография [1999-2010, Nu Metal, DVDRip-AVC]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527353.jpg" />
+  <img src="Z:/picture/008/save_picture_527353.jpg" />
 </div>
 
 
@@ -458,7 +545,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523972.jpg" />
+  <img src="Z:/picture/008/save_picture_523972.jpg" />
 </div>
 
 
@@ -487,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520958.jpg" />
+  <img src="Z:/picture/008/save_picture_520958.jpg" />
 </div>
 
 
@@ -516,7 +603,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520341.jpg" />
+  <img src="Z:/picture/008/save_picture_520341.jpg" />
 </div>
 
 
@@ -542,7 +629,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519492.jpg" />
+  <img src="Z:/picture/008/save_picture_519492.jpg" />
 </div>
 
 
@@ -571,7 +658,7 @@ VA - Летний марафон № 184 / (Марафон Русских Хит
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516146.jpg" />
+  <img src="Z:/picture/008/save_picture_516146.jpg" />
 </div>
 
 
@@ -600,7 +687,7 @@ DJ Rhiannon - Nasty Bitch (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515569.jpg" />
+  <img src="Z:/picture/008/save_picture_515569.jpg" />
 </div>
 
 
@@ -626,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515495.jpg" />
+  <img src="Z:/picture/008/save_picture_515495.jpg" />
 </div>
 
 
@@ -648,90 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1398019630BD57B071E208F9250E6AC1CF59B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930517   (515080) от 23.08.2015
-
-Ирина Круг – Лучшие концертные выступления (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых востребованных исполнительниц жанровой песни, на ее концертах всегда аншлаги, ее голос можно услышать из любой машины, в кафе, магазинах и пр., ее любят и знают, но вот увидеть ее на телеэкране практически невозможно. Тем ценнее становится каждая запись ее выступлений, тем более, что там действительно есть на что посмотреть. Этот сборник содержит лучшие (   Читать дальше...   )01. Напиши мне
-02. Юбочка
-03. Моя королева
-04. Я прочитаю в глазах твоих(   Читать дальше...   )Производство: Россия / "Classic Company"Жанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A24F061781EA88EF9942812ADC46D479704AFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930893   (513869) от 24.08.2015
-
-VA - Летний марафон № 185 / (Новый Хитовый Сборник) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (23.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 5 Seconds Of Summer - She's Kinda Hot (Official Video) (00:04:05)
-2. Achtabahn - To The King (Official Video) (00:02:54)
-3. Amure - Horses (Official Video) (00:05:15)
-4. Black Fox ft. Dj Chris Parker - Live show (Official Video) (00:07:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, House, ProgressiveПродолжительность: 01:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF80D2CFECA00A81D7119D8775A6567A5C7B09A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536198   (513190) от 19.08.2012
-
-PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: K-pop, hip-hopПродолжительность: 00:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F84BC367DB23A475243259C72CAEBFD55A21A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 953162   (346982) от 05.11.2015
+
+И. К. Луппол | Дени Дидро. Очерки жизни и мировоззрения (1960) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_346982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография известного советского философа, академика Ивана Капитоновича Луппола «Дени Дидро» впервые была опубликована в 1924 г. Через десять лет, в связи с исполняющимся стопятидесятилетием со дня смерти Д. Дидро, автор подготовил второе издание своего труда, внеся в него ряд изменений, подсказываемых критикой первого издания. Самое существенное из этих изменений (   Читать дальше...   )Жанр: История, биография, философия, этика, эстетикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FF6C980CF28E3B9EA75E742AE716F1861348A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953605   (346974) от 05.11.2015
 
 А. И. Ракитов | Трактат о научном познании для умов молодых, пытливых и критических (1977) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346974.jpg" />
+  <img src="Z:/picture/008/save_picture_346974.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346968.jpg" />
+  <img src="Z:/picture/008/save_picture_346968.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346964.jpg" />
+  <img src="Z:/picture/008/save_picture_346964.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346840.jpg" />
+  <img src="Z:/picture/008/save_picture_346840.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346836.jpg" />
+  <img src="Z:/picture/008/save_picture_346836.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346611.jpg" />
+  <img src="Z:/picture/008/save_picture_346611.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346579.jpg" />
+  <img src="Z:/picture/008/save_picture_346579.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345718.jpg" />
+  <img src="Z:/picture/008/save_picture_345718.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344778.jpg" />
+  <img src="Z:/picture/008/save_picture_344778.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344661.jpg" />
+  <img src="Z:/picture/008/save_picture_344661.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344508.jpg" />
+  <img src="Z:/picture/008/save_picture_344508.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344261.jpg" />
+  <img src="Z:/picture/008/save_picture_344261.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343552.jpg" />
+  <img src="Z:/picture/008/save_picture_343552.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342426.jpg" />
+  <img src="Z:/picture/008/save_picture_342426.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342413.jpg" />
+  <img src="Z:/picture/008/save_picture_342413.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342046.jpg" />
+  <img src="Z:/picture/008/save_picture_342046.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341932.jpg" />
+  <img src="Z:/picture/008/save_picture_341932.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340550.jpg" />
+  <img src="Z:/picture/008/save_picture_340550.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340093.jpg" />
+  <img src="Z:/picture/008/save_picture_340093.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339880.jpg" />
+  <img src="Z:/picture/008/save_picture_339880.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339743.jpg" />
+  <img src="Z:/picture/008/save_picture_339743.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339738.jpg" />
+  <img src="Z:/picture/008/save_picture_339738.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339735.jpg" />
+  <img src="Z:/picture/008/save_picture_339735.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339733.jpg" />
+  <img src="Z:/picture/008/save_picture_339733.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339515.jpg" />
+  <img src="Z:/picture/008/save_picture_339515.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7729BF38578FFCC81E27306C8478CA8EAFB4FFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180451   (339510) от 04.11.2017
-
-Александр Молчанов | Сценарий телесериала. Книга-тренинг (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами трехмесячный курс по написанию сценария сериала. Если вы еженедельно будете выполнять задания, которые найдете в конце каждой главы, через три месяца пилотный сценарий вашего телесериала будет готов. Единственное условие – серьезно относиться к тому, что будете узнавать на каждом уроке, и сразу использовать полученные знания в своей работе. Цель книги (   Читать дальше...   )Жанр: КинематографФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B121E7E0BF3AD4FB66F613A03DB018D94FDADA14
 ```
 
 https://mybot314.ru/tekegram_catalog/

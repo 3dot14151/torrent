@@ -6,7 +6,7 @@ Ubuntu 16.04.7 LTS Xenial Xerus [i386, amd64] 4xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697330.jpg" />
+  <img src="Z:/picture/008/save_picture_697330.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Screen Recorder 11.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697323.jpg" />
+  <img src="Z:/picture/008/save_picture_697323.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Trials Frontier 3.2.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697307.jpg" />
+  <img src="Z:/picture/008/save_picture_697307.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ mMusic Mini Audio Player 1.17.6 [Ru] - простой аудиоплеер
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697299.jpg" />
+  <img src="Z:/picture/008/save_picture_697299.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ BitTorrent Stable 7.10.5 build 44995 Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697263.jpg" />
+  <img src="Z:/picture/008/save_picture_697263.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697256.jpg" />
+  <img src="Z:/picture/008/save_picture_697256.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697249.jpg" />
+  <img src="Z:/picture/005/save_picture_697249.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697245.jpg" />
+  <img src="Z:/picture/008/save_picture_697245.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697233.jpg" />
+  <img src="Z:/picture/008/save_picture_697233.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Perth SuperSprint. Э�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697227.jpg" />
+  <img src="Z:/picture/008/save_picture_697227.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ PeakHour 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697219.jpg" />
+  <img src="Z:/picture/008/save_picture_697219.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697199.jpg" />
+  <img src="Z:/picture/008/save_picture_697199.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe Flash Player 18.0.0.114 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697186.jpg" />
+  <img src="Z:/picture/008/save_picture_697186.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Death Worm 1.40 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697177.jpg" />
+  <img src="Z:/picture/008/save_picture_697177.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Advanced Renamer 3.66 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697174.jpg" />
+  <img src="Z:/picture/008/save_picture_697174.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Auslogics BoostSpeed Premium 7.9.0.0 DC 07.05.2015 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697172.jpg" />
+  <img src="Z:/picture/008/save_picture_697172.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697163.jpg" />
+  <img src="Z:/picture/008/save_picture_697163.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Perth SuperSprint. Э�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697116.jpg" />
+  <img src="Z:/picture/008/save_picture_697116.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Cisdem DuplicateFinder 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697112.jpg" />
+  <img src="Z:/picture/008/save_picture_697112.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Process Lasso Pro 9.0.0.338 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697107.jpg" />
+  <img src="Z:/picture/008/save_picture_697107.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VA - DEF CON 21 - The Official Soundtrack (2013) [MP3|320 Kbps] <Glitch hop, Bre
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697100.jpg" />
+  <img src="Z:/picture/008/save_picture_697100.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ LibreOffice 4.4.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697090.jpg" />
+  <img src="Z:/picture/008/save_picture_697090.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Windows 7 Manager 5.1.0 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697081.jpg" />
+  <img src="Z:/picture/008/save_picture_697081.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ WinZip Pro 19.5 Build 11475 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697080.jpg" />
+  <img src="Z:/picture/008/save_picture_697080.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Kaspersky Anti-Ransomware Tool for Business 4.0.0.861 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697075.jpg" />
+  <img src="Z:/picture/008/save_picture_697075.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Bartender 3 v3.0.56b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697066.jpg" />
+  <img src="Z:/picture/008/save_picture_697066.jpg" />
 </div>
 
 

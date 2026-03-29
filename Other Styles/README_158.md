@@ -1,3 +1,61 @@
+###  Публикация: 1673601   (164194) от 02.11.2023
+
+VA - Die 50 Grobten Saxophon Hits Aller Zeiten (2015) [MP3|320 Kbps] <Pop, Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxophone Dreamsound - The Lady in Red [04:13]
+02. Saxophone Dreamsound - Unchained Melody [03:36]
+03. Saxophone Dreamsound - Killing Me Softly with His Song [04:50]
+04. Saxophone Dreamsound - She's the One [04:27](   Читать дальше...   )Жанр: Pop, Instrumental, SaxophoneПродолжительность: 02:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A69DDDFB21A0F9319B252C1453734E2B4B04692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597539   (164103) от 17.12.2022
+
+VA - Yoga Music Session 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
+02. Dyan Garris,Sherry Finzer - Forest Whispers (5:20)
+03. Dellasollounge - Fantasy (Original Mix) (5:23)
+04. Ann Grace - Intromotion (1:35)(   Читать дальше...   )Жанр: Relax, Chillout, DowntempoПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3AFCF2F93F6220FBAC64C2C3C9FAD749FCA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597528   (164085) от 17.12.2022
 
 VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
@@ -6,7 +64,7 @@ VA - Yoga Music Session 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164085.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ernesto Cortazar - The Best of Ernesto Cortazar, Vol. 1 (2022) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164080.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163946.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163888.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163021.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162541.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162279.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161940.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160639.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160636.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160026.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159825.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159619.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Paul Mauriat - Dans Les Yeux D'Emilie (1978) Remastered, 2019, Vocalion [OGG Vor
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159593.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Rainbow Suzy - Nature's Treasures (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158717.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Bernward Koch - Silent Star (2011) [APE|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158487.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The Mystic Sound Orchestra - Pharaoh: Sound of Mystery (1998) 2CD [MP3|320 kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158335.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ David Arkenstone - Native Dreams (2015) [MP3|320 кб/с] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158223.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Jon Richards - Midwinter (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157901.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157892.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157689.jpg" />
 </div>
 
 
@@ -687,67 +745,6 @@ Gregorian - Pure Chants (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age,  Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B91E72C693393FD644C7BEE0E1FF0380518F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588534   (157375) от 13.12.2012
-
-Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_157375.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Raga Puriya Kalyan [11:48]
-2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
-Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
-3. I. Lalit (Presto) [16:36]
-4. II. Bairagi (Moderato) [08:11]
-5. III. Yaman Kalyan (Moderato) [14:32]
-6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433454   (156856) от 21.12.2020
-
-Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New Age, Easy Listening, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Giovanni Marradi (17.04.1952) родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток. После иммиграции в Америку он играл небольшие концерты в Калифорнии. Набравшись смелости, он приехал в Лас-Вегас и попросился выступить в Caesar's Palace (казино и отель). Удивительно, но ему пошли навстречу. А что более удивительно, на одном из выступлений (   Читать дальше...   )01. Never Again (5:03)
-02. Janet's Dream (4:33)
-03. Voices (3:18)
-04. Thoughts (3:40)(   Читать дальше...   )Жанр: New Age, Easy Listening, Instrumental, PianoПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
 ```
 
 https://mybot314.ru/tekegram_catalog/

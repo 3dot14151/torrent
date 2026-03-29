@@ -1,3 +1,61 @@
+###  Публикация: 1218123   (217238) от 22.11.2020
+
+Jimmy Page: Solo Projects - 27 albums, 46 CD (1967-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джимми Пейдж (James Patrick Page) — британский рок-музыкант, аранжировщик, композитор, музыкальный продюсер и гитарист-виртуоз, стоявший у истоков Led Zeppelin и до самого конца оставался музыкальным «мозгом» группы. Гитарное соло Пейджа в «Stairway to Heaven» возглавило списки лучших гитарных соло журналов Guitar World и Total Guitar. Журнал Creem признавал его (   Читать дальше...   )--------------------------
+
+01. Breathless (2:41)
+02. Everyday (2:32)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues |Продолжительность: 38:04:40 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB94155C43AD427173B1A439729F71D7CE9D1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652503   (217179) от 12.08.2023
+
+Kind - Close Encounters (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Scar [00:06:47]
+02. Favorite One [00:07:10]
+03. Black Yesterday [00:05:58]
+04. Snag [00:03:58](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, DoomПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC72FC7517DFF74CBE5B0F65C02C2F41A917A157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652540   (217161) от 12.08.2023
 
 Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Bluesy>
@@ -6,7 +64,7 @@ Malkasian - The Macabre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217161.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ George Lynch & Jeff Pilson - Heavy Hitters II (2023) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217057.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blindstone - Scars To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217001.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ King Kobra - We Are Warriors (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216982.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Rob Moratti - Paragon (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216698.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216152.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Spitfire MkIII - Shadows Phantoms Nightmares (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215962.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Enuff Z'Nuff - 1985 (1994) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215420.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Grand Funk Railroad - E Pluribus Funk (1971) reissue /1995, Capitol Records/ [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214727.jpg" />
+  <img src="Z:/picture/005/save_picture_214727.jpg" />
 </div>
 
 
@@ -272,7 +330,7 @@ Palaye Royale - Fever Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214011.jpg" />
+  <img src="Z:/picture/005/save_picture_214011.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214004.jpg" />
+  <img src="Z:/picture/005/save_picture_214004.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213957.jpg" />
+  <img src="Z:/picture/005/save_picture_213957.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ Dead City Ruins - Shockwave (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213938.jpg" />
+  <img src="Z:/picture/005/save_picture_213938.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ AC/DC - Black Ice (2008) Digipack for sale in CIS 06573249 [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213929.jpg" />
+  <img src="Z:/picture/005/save_picture_213929.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ John Norum - Gone To Stay (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213912.jpg" />
+  <img src="Z:/picture/005/save_picture_213912.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Barnabas Sky - Inspirations (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213862.jpg" />
+  <img src="Z:/picture/005/save_picture_213862.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ AC/DC - Back In Black (1980) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213808.jpg" />
+  <img src="Z:/picture/005/save_picture_213808.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213739.jpg" />
+  <img src="Z:/picture/005/save_picture_213739.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Heart Line - Back In The Game (2021) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213700.jpg" />
+  <img src="Z:/picture/005/save_picture_213700.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ Tania Kikidi - Wings of Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213685.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Decadents - Lost in Translation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213636.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Marc Bolan & T. Rex, Tyrannosaurus Rex - 38 albums, 8 Box-sets, 134CD (1967-2021
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213359.jpg" />
+  <img src="Z:/picture/005/save_picture_213359.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ Asia - 41 albums, 1 Box-set, 128 CD (1982-2021) Discography [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213220.jpg" />
+  <img src="Z:/picture/005/save_picture_213220.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Gotthard - 24 albums, 29 CD (1992-2022) [FLAC|Lossless|image + .cue | tracks + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212700.jpg" />
+  <img src="Z:/picture/005/save_picture_212700.jpg" />
 </div>
 
 
@@ -694,64 +752,6 @@ Gotthard - 24 albums, 29 CD (1992-2022) [FLAC|Lossless|image + .cue | tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5561560DD5FABD85D3155E1DB4714E6C02BC7258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638441   (212017) от 08.06.2023
-
-White Spirit - Right or Wrong (2022) Special Edition, 2023, Malcolm Pearson [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Right or Wrong (00:04:49)
-02 - Runaway (00:04:03)
-03 - The Dice Rolls On (00:04:53)
-04 - Lady of the Night (00:04:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE99430153016F41E70ACED7B7591B9F02E48964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252532   (211854) от 20.10.2022
-
-Steelheart - 7 Albums (1990-2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых недооценённых групп - американская глэм-метал-группа Steelheart «Стальное сердце», созданная в 1990 году Майклом Матиевичем (уроженец Загреба Мильенко Матиевич, сменивший имя в 6 лет при переезде в США). Идея названия группы так-же принадлежит ему, бессменному лидеру группы. В разгар раскрутки альбома "Tangled In Reins", вышедшего в 1992 году, (   Читать дальше...   )--------------------------
-
-01. Blood Pollution (8:12)
-02. Livin' The Life (3:57)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Modern Rock |Продолжительность: 05:53:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF53006384CB855E1CFDE3F720A9C91B46CCEE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

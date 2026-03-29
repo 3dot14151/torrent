@@ -1,3 +1,61 @@
+###  Публикация: 1272370   (718471) от 27.02.2019
+
+Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Send Me An Angel
+02. You And I
+03. Is There Anybody There
+04. When The Smoke Is Going Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024380   (718150) от 08.06.2016
+
+Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Explode
+02. We Got It All
+03. Every Little Monster
+04. Nothing Is Forever(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEDFA56204873DA858424179EBDA65436D6A7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024383   (718058) от 08.06.2016
 
 The Screaming Jets - Chrome (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hard & Heavy>
@@ -6,7 +64,7 @@ The Screaming Jets - Chrome (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718058.jpg" />
+  <img src="Z:/picture/008/save_picture_718058.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Whitesnake - 1987 (2015) Remaster [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717901.jpg" />
+  <img src="Z:/picture/008/save_picture_717901.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Flame - Flame (1992) Japanese Edition, 1st Press [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716787.jpg" />
+  <img src="Z:/picture/008/save_picture_716787.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Phantom 5 - Phantom 5 (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716038.jpg" />
+  <img src="Z:/picture/008/save_picture_716038.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Shakra - High Noon (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716024.jpg" />
+  <img src="Z:/picture/008/save_picture_716024.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715195.jpg" />
+  <img src="Z:/picture/008/save_picture_715195.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sleepwulf - Sunbeams Curl (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714840.jpg" />
+  <img src="Z:/picture/008/save_picture_714840.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Mystery - Live Life Loud (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714832.jpg" />
+  <img src="Z:/picture/008/save_picture_714832.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Manic Sinners - King Of The Badlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714829.jpg" />
+  <img src="Z:/picture/008/save_picture_714829.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ AZ.U.R. - Rock Like Pigz (1990) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714431.jpg" />
+  <img src="Z:/picture/008/save_picture_714431.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Phil Rudd - Head Job (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714430.jpg" />
+  <img src="Z:/picture/008/save_picture_714430.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Uriah Heep - The Magician's Birthday (1972) 2CD, Remastered, 2017, Sanctuary Rec
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714222.jpg" />
+  <img src="Z:/picture/008/save_picture_714222.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Uriah Heep - Look At Yourself (1971) 2CD, Remastered, 2017, Sanctuary Records [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714126.jpg" />
+  <img src="Z:/picture/008/save_picture_714126.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Deep Purple - Infinite (2017) +6 bonus tracks [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714050.jpg" />
+  <img src="Z:/picture/008/save_picture_714050.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Dire Straits & Mark Knopfler - Private Investigations (The Best Of) (2005) [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714045.jpg" />
+  <img src="Z:/picture/008/save_picture_714045.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713781.jpg" />
+  <img src="Z:/picture/008/save_picture_713781.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713105.jpg" />
+  <img src="Z:/picture/008/save_picture_713105.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Vega - Anarchy And Unity (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713034.jpg" />
+  <img src="Z:/picture/008/save_picture_713034.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Rian - Twenty-Three (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712791.jpg" />
+  <img src="Z:/picture/008/save_picture_712791.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ FM - Rockville II (2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711611.jpg" />
+  <img src="Z:/picture/008/save_picture_711611.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ FM - Rockville (2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711514.jpg" />
+  <img src="Z:/picture/008/save_picture_711514.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Black Map - Melodoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternati
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710952.jpg" />
+  <img src="Z:/picture/008/save_picture_710952.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Paradise - Do Or Die (1992) [FLAC|Lossless|image + .cue] <Hard Rock, Hair Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710945.jpg" />
+  <img src="Z:/picture/008/save_picture_710945.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Soul Doctor (ex-Fair Warning, Bonfire) - 6 альбомов (2001 - 2009) Japan 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709936.jpg" />
+  <img src="Z:/picture/008/save_picture_709936.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Soul Doctor (ex-Fair Warning, Bonfire) - 6 альбомов (2001 - 2009) Japan 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE886E692F137093C8E679050D60D1139219B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401496   (709545) от 10.08.2020
-
-Rhino Bucket - The Hardest Town (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardest Town (04:01)
-02. Justified (04:27)
-03. Know My Name (03:44)
-04. Dog Don't Bite (05:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744782C8941C1F8BAF0CA95B76457D733A2B2293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401298   (709400) от 10.08.2020
-
-FM - Atomic Generation (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Magic (04:30)
-02. Too Much Of A Good Thing (04:10)
-03. Killed By Love (04:40)
-04. In It For The Money (04:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41643911D0CA6DF52010DEF7266B11DD3742CEC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

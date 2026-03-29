@@ -1,3 +1,55 @@
+###  Публикация: 1839852   (1046734) от 01.12.2025
+
+Galador: The Prince and the Coward / Галадор: Проклятие Принца (1998) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сон или кошмар? Совершенно обычный мальчик по имени Галадор внезапно обнаруживает себя в теле принца. Однако у внезапного и быстрого восхождения до подобной должности есть свои обратные стороны. От принцев обычно ждут бесстрашия и героизма. Но это не про Галадора. Он хочет как можно скорее вернуться к своей простой и созерцательной жизни. Но это не так просто: его (   Читать дальше...   )Тип издания: LicenseРазработчик: Metropolis SoftwareЖанр: Приключение, КвестЯзык озвучки: Русский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839514   (1046641) от 29.11.2025
+
+MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046641.jpg" />
+</div>
+
+
+###  Подробнее
+
+MechWarrior 5: Mercenaries — это шутер от первого лица, в котором игроки берут на себя пилотов гигантских боевых роботов. Игроков ждет далекое будущее - 3015 год, где третья Война за наследие входит в финальную фазу. В роли пилотов-наемников игроки должны выбирать различные контракты, чтобы зарабатывать деньги, открывать новых мехов и продвигаться по карьерной лестнице.Тип издания: RepackРазработчик: Piranha Games Inc.Жанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415238   (1046296) от 02.01.2023
 
 Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
@@ -6,7 +58,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046296.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044179.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040671.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037052.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036778.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036486.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035677.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035605.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034729.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034316.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033584.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033583.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032901.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032886.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032863.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032848.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030829.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030624.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030166.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030158.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029894.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029354.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028138.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026678.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455191   (1025702) от 18.03.2021
-
-Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте зомби, творите беспредел и жрите мозги. 1959 год. Город Панчбоул — столица прогресса и образец прекрасной жизни. Однако вам предстоит доказать, что закон и порядок — ничто по сравнению с целеустремленным зомби. Парень Мэгги вернулся, а это значит только одно — Панчбоул больше никогда не будет прежним!Тип издания: RepackРазработчик: AspyrЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103611   (1021346) от 12.04.2021
-
-SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021346.jpg" />
-</div>
-
-
-###  Подробнее
-
-В SimCity 4 вы не просто строите свой город, а вдыхаете в него жизнь. Создайте мегаполис, объединяя самые разные населенные пункты, среди которых могут быть спальные районы, высокотехнологические городские центры, места отдыха и фермерские общины. Можно создать регион, в котором города, связанные полностью интегрированной транспортной системой, будут иметь общие (   Читать дальше...   )Тип издания: LicenseРазработчик: MaxisЖанр: Strategy (God Sim, Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
 ```
 
 https://mybot314.ru/tekegram_catalog/

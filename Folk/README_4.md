@@ -6,7 +6,7 @@ Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558036.jpg" />
+  <img src="Z:/picture/008/save_picture_558036.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
+  <img src="Z:/picture/008/save_picture_551930.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551850.jpg" />
+  <img src="Z:/picture/008/save_picture_551850.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551481.jpg" />
+  <img src="Z:/picture/008/save_picture_551481.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550941.jpg" />
+  <img src="Z:/picture/008/save_picture_550941.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547352.jpg" />
+  <img src="Z:/picture/008/save_picture_547352.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545735.jpg" />
+  <img src="Z:/picture/008/save_picture_545735.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543810.jpg" />
+  <img src="Z:/picture/008/save_picture_543810.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542653.jpg" />
+  <img src="Z:/picture/008/save_picture_542653.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538244.jpg" />
+  <img src="Z:/picture/008/save_picture_538244.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532694.jpg" />
+  <img src="Z:/picture/008/save_picture_532694.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenc
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528636.jpg" />
+  <img src="Z:/picture/008/save_picture_528636.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527653.jpg" />
+  <img src="Z:/picture/008/save_picture_527653.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527004.jpg" />
+  <img src="Z:/picture/008/save_picture_527004.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbp
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525820.jpg" />
+  <img src="Z:/picture/008/save_picture_525820.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525281.jpg" />
+  <img src="Z:/picture/008/save_picture_525281.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525218.jpg" />
+  <img src="Z:/picture/008/save_picture_525218.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516886.jpg" />
+  <img src="Z:/picture/008/save_picture_516886.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Dan Owen - Stay Awake with Me (2018) [MP3|320 Kbps] <Folk-Rock, Pop, Soul>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516174.jpg" />
+  <img src="Z:/picture/008/save_picture_516174.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxoph
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510491.jpg" />
+  <img src="Z:/picture/008/save_picture_510491.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508231.jpg" />
+  <img src="Z:/picture/008/save_picture_508231.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505363.jpg" />
+  <img src="Z:/picture/008/save_picture_505363.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Jack Convery - Beatles On The Banjo (2009) [MP3|256 кб/с]<Folk-Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503601.jpg" />
+  <img src="Z:/picture/008/save_picture_503601.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496086.jpg" />
+  <img src="Z:/picture/008/save_picture_496086.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487329.jpg" />
+  <img src="Z:/picture/008/save_picture_487329.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485992.jpg" />
+  <img src="Z:/picture/008/save_picture_485992.jpg" />
 </div>
 
 

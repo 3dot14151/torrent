@@ -1,3 +1,107 @@
+###  Публикация: 1075876   (316371) от 24.11.2016
+
+Михаил Ломоносов | Избранная проза (2012) [MP3, Илья Прудовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокое искусство слова великого поэта нашло отражение в прозаических произведениях, среди которых и научные труды ("Слова"), и письма, и служебные документы (рапорты, доношения, представления).Жанр: Классическая прозаИздательство: Нигде не купишьПродолжительность: 27:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F74B569AD2FE992660C68F4D9146CB9EA76601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844718   (316299) от 26.11.2014
+
+Лев Николаевич Толстой | Смерть Ивана Ильича (2012) [MP3, Любовь Конева]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316299.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смерть Ивана Ильича» — повесть Л.Н. Толстого, над которой он работал с 1882 по 1886 годы, внося последние штрихи уже на стадии корректуры. В произведении рассказывается о мучительном умирании судейского чиновника средней руки. Это рассказ о том, как прозрение о бессмысленности жизни приходит к человеку только тогда, когда смерть смотрит в глаза. Рассказ о пошлости (   Читать дальше...   )Жанр: Классика, повестьИздательство: BibeПродолжительность: 02:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2761B27B929BD818660C1410494D30D7D4596D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959385   (314585) от 25.11.2015
+
+А.П. Чехов | Дядя Ваня (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314585.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дядя Ваня» — Это пьеса А.П. Чехова с подзаголовком «Сцены из деревенской жизни в четырёх действиях». Окончательно завершена в 1896 году. В 1889 году, Чехов закончил пьесу «Леший» (комедия в 4-х действиях), опубликованную в 1890 году, которая была впоследствии, после написания «Чайки», переделана в пьесу «Дядя Ваня». В первоначальном варианте («Леший»), она была (   Читать дальше...   )Жанр: Классика, аудиоспектакльПродолжительность: 02:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB9EFBC7199ACDA35BA14E945AC6540DC7D8D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583260   (314228) от 13.10.2022
+
+Теодор Драйзер | Таунсенд и другие рассказы (2019) [MP3, Александр Клюквин, Сергей Чонишвили и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведения Теодора Драйзера - будь то объемный роман или небольшая повесть - можно с полной уверенностью считать образцами классики мировой литературы. И по сей день они пользуются огромной популярностью и интересом у читателей всего мира. Это и неудивительно, ведь в каждом из них отражен личный опыт писателя, путь которого к славе и известности был далеко не прост. (   Читать дальше...   )Жанр: Зарубежная проза, КлассикаПродолжительность: 03:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5138AEB344426800322E82A87E07ECCB4FBA8623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 157033   (314157) от 09.12.2009
 
 Трумен Капоте | Завтрак у Тиффани [2004] [MP3]
@@ -6,7 +110,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314157.jpg" />
+  <img src="Z:/picture/008/save_picture_314157.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310894.jpg" />
+  <img src="Z:/picture/008/save_picture_310894.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309792.jpg" />
+  <img src="Z:/picture/008/save_picture_309792.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309557.jpg" />
+  <img src="Z:/picture/008/save_picture_309557.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309262.jpg" />
+  <img src="Z:/picture/008/save_picture_309262.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309034.jpg" />
+  <img src="Z:/picture/008/save_picture_309034.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308468.jpg" />
+  <img src="Z:/picture/008/save_picture_308468.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307336.jpg" />
+  <img src="Z:/picture/008/save_picture_307336.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307295.jpg" />
+  <img src="Z:/picture/008/save_picture_307295.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304819.jpg" />
+  <img src="Z:/picture/008/save_picture_304819.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303348.jpg" />
+  <img src="Z:/picture/008/save_picture_303348.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303103.jpg" />
+  <img src="Z:/picture/008/save_picture_303103.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301061.jpg" />
+  <img src="Z:/picture/008/save_picture_301061.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300699.jpg" />
+  <img src="Z:/picture/008/save_picture_300699.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300529.jpg" />
+  <img src="Z:/picture/008/save_picture_300529.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300301.jpg" />
+  <img src="Z:/picture/008/save_picture_300301.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300290.jpg" />
+  <img src="Z:/picture/008/save_picture_300290.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299690.jpg" />
+  <img src="Z:/picture/008/save_picture_299690.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299573.jpg" />
+  <img src="Z:/picture/008/save_picture_299573.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297754.jpg" />
+  <img src="Z:/picture/008/save_picture_297754.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296124.jpg" />
+  <img src="Z:/picture/008/save_picture_296124.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295594.jpg" />
+  <img src="Z:/picture/008/save_picture_295594.jpg" />
 </div>
 
 
@@ -569,114 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE73DDBB202F5B14B4A9A06A3B2DA48B8F5C1643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421242   (295235) от 10.12.2011
-
-Эрих Мария Ремарк | Три товарища (2005) [MP3, Максим Пинскер]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена.
-Роман «Три товарища» Эриха Марии Ремарка, вышедший в 1937 году, является заключительной частью трилогии, которую автор посвятил Первой мировой войне и теме «потерянного поколения» - судьбе солдат, прошедших войну (первые две книги: «На Западном фронте без перемен», «Возвращение».
-Главные герои всех трех романов, вернувшись с войны, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: СоюзПродолжительность: 16:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E8BFAE2649566F3BB6A3A786AE9C54B261D339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079141   (294258) от 04.12.2016
-
-Саша Черный | Иероглифы. Храбрая женщина (2007) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио России представляет два рассказа Саши Черного, которые были написаны в стиле своеобразного анекдотически-бытового реализма.Жанр: Классика, юмор, рассказПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1CB3C103EA911F933E8041605F96B6D0629318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422810   (288018) от 14.12.2011
-
-Александр Иванович Герцен | Былое и думы (2011) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288018.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Былое и думы» — литературное произведение, написанное Александром Ивановичем Герценом в жанре воспоминаний. Отдельные главы писались автором в разные годы и между некоторыми из них разрыв в несколько лет. Опубликовано в 1868 году. Написанию книги предшествовала тяжелая полоса в жизни Герцена: рушились не только его революционные воззрения, но и семья.
-Герцен посвятил (   Читать дальше...   )Жанр: воспоминанияИздательство: Нигде не купишьПродолжительность: 75:36:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422885   (287873) от 14.12.2011
-
-И.А. Гончаров | Обломов (Радиоспектакль) (2007) [MP3, Юрий Яковлев, Александр Лазарев и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
-Роман «Обломов» – «Золотая классика» русской литературы. Оригинальная, неоднозначная книга, которую считают и эталоном критического реализма, и романом откровенно сатирическим... Но все критики единодушны в том, что «Обломов» – гениальнейшее и блистательнейшее явление отечественной прозы, явление, не утратившее (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио РоссииПродолжительность: 03:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E75770DE835A7CA805257CA4E5B55E69E095DCC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

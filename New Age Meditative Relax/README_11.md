@@ -1,3 +1,32 @@
+###  Публикация: 1139237   (661291) от 01.06.2017
+
+KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <New Age & Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Echoes - Meditation Mix (05:47)
+02. Face to Face - Caress Mix (05:54)
+03. Harmonie - Angel Mix (05:40)
+04. Sign of Life - Esoteric Mix (05:55)(   Читать дальше...   )Жанр: New Age & MeditationПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139662   (659194) от 03.06.2017
 
 David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
@@ -6,7 +35,7 @@ David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
+  <img src="Z:/picture/008/save_picture_659194.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656816.jpg" />
+  <img src="Z:/picture/008/save_picture_656816.jpg" />
 </div>
 
 
@@ -66,7 +95,7 @@ Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654772.jpg" />
+  <img src="Z:/picture/008/save_picture_654772.jpg" />
 </div>
 
 
@@ -95,7 +124,7 @@ Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654768.jpg" />
+  <img src="Z:/picture/008/save_picture_654768.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653945.jpg" />
+  <img src="Z:/picture/008/save_picture_653945.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653785.jpg" />
+  <img src="Z:/picture/008/save_picture_653785.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651807.jpg" />
+  <img src="Z:/picture/008/save_picture_651807.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ VA - Music from the World of Osho. Collection (1987-2009) [MP3|320 кб/с]<New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651510.jpg" />
+  <img src="Z:/picture/008/save_picture_651510.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Raw Silk - Raw Silk (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650391.jpg" />
+  <img src="Z:/picture/008/save_picture_650391.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Andre Gagnon - Comme Dans Un Film (1986) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649824.jpg" />
+  <img src="Z:/picture/008/save_picture_649824.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ David Clavijo - From the Depths (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649675.jpg" />
+  <img src="Z:/picture/008/save_picture_649675.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647764.jpg" />
+  <img src="Z:/picture/008/save_picture_647764.jpg" />
 </div>
 
 
@@ -362,7 +391,7 @@ Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647543.jpg" />
+  <img src="Z:/picture/008/save_picture_647543.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647540.jpg" />
+  <img src="Z:/picture/008/save_picture_647540.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643987.jpg" />
+  <img src="Z:/picture/005/save_picture_643987.jpg" />
 </div>
 
 
@@ -455,7 +484,7 @@ VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643578.jpg" />
+  <img src="Z:/picture/008/save_picture_643578.jpg" />
 </div>
 
 
@@ -484,7 +513,7 @@ Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642902.jpg" />
+  <img src="Z:/picture/008/save_picture_642902.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gosp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642101.jpg" />
+  <img src="Z:/picture/008/save_picture_642101.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640005.jpg" />
+  <img src="Z:/picture/008/save_picture_640005.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ Manish Vyas - Sahaj Atma (2017) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639343.jpg" />
+  <img src="Z:/picture/008/save_picture_639343.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ Frantz Amathy - Zen Piano Paradise (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639283.jpg" />
+  <img src="Z:/picture/008/save_picture_639283.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Ch
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639074.jpg" />
+  <img src="Z:/picture/008/save_picture_639074.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637601.jpg" />
+  <img src="Z:/picture/008/save_picture_637601.jpg" />
 </div>
 
 
@@ -692,7 +721,7 @@ Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635697.jpg" />
+  <img src="Z:/picture/008/save_picture_635697.jpg" />
 </div>
 
 
@@ -721,7 +750,7 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634309.jpg" />
+  <img src="Z:/picture/008/save_picture_634309.jpg" />
 </div>
 
 
@@ -735,35 +764,6 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144142   (629362) от 21.06.2017
-
-Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Celtic Paths (8:07)
-2. At the Cliffs (7:07)
-3. The Hunt (8:09)
-4. Coming Home (7:05)(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755932F28AE7ECD769D06CD824DFC7434279839E
 ```
 
 https://mybot314.ru/tekegram_catalog/

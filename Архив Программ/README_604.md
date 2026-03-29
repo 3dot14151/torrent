@@ -6,7 +6,7 @@ SIV (System Information Viewer) 4.53 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745989.jpg" />
+  <img src="Z:/picture/008/save_picture_745989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745988.jpg" />
+  <img src="Z:/picture/008/save_picture_745988.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ICE Book Reader Professional 9.6.4 + Lang Pack + Skin Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745966.jpg" />
+  <img src="Z:/picture/008/save_picture_745966.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BELOFF 2019.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745956.jpg" />
+  <img src="Z:/picture/008/save_picture_745956.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Red Giant Shooter Suite 13.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745938.jpg" />
+  <img src="Z:/picture/008/save_picture_745938.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 65.0.3325.181 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745898.jpg" />
+  <img src="Z:/picture/008/save_picture_745898.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ MKVToolNix 22.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745894.jpg" />
+  <img src="Z:/picture/008/save_picture_745894.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Acoustica Premium Edition 7.0.56 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745893.jpg" />
+  <img src="Z:/picture/008/save_picture_745893.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AIMP 4.51 Build 2070 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745890.jpg" />
+  <img src="Z:/picture/008/save_picture_745890.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FileOptimizer 12.61.2265 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745883.jpg" />
+  <img src="Z:/picture/008/save_picture_745883.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ DxO Optics Pro 10.4.0 Build 480 Elite [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745865.jpg" />
+  <img src="Z:/picture/008/save_picture_745865.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NetLimiter 4.0.35.0 Pro [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745834.jpg" />
+  <img src="Z:/picture/008/save_picture_745834.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Movavi Video Editor Business 14.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745830.jpg" />
+  <img src="Z:/picture/008/save_picture_745830.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Movavi Video Converter 18.3.0 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745825.jpg" />
+  <img src="Z:/picture/008/save_picture_745825.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Photo Supreme 1.8.1.131 Final RePack by WYLEK [MULTi / Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745793.jpg" />
+  <img src="Z:/picture/008/save_picture_745793.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Techsmith Snagit 12.3.2 Build 2920 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745746.jpg" />
+  <img src="Z:/picture/008/save_picture_745746.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ DxO Optics Pro 10.4.0 Build 480 Elite RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745739.jpg" />
+  <img src="Z:/picture/008/save_picture_745739.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x86) RePack by D!ako
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745708.jpg" />
+  <img src="Z:/picture/008/save_picture_745708.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sogou Explorer 6.2.5.21336 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745522.jpg" />
+  <img src="Z:/picture/008/save_picture_745522.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Box Sync 4.0.7415 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745520.jpg" />
+  <img src="Z:/picture/008/save_picture_745520.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ JottaCloud 3.1.49.445 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745519.jpg" />
+  <img src="Z:/picture/008/save_picture_745519.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Registry Life 5.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745504.jpg" />
+  <img src="Z:/picture/008/save_picture_745504.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AIMP 4.70 Build 2222 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745502.jpg" />
+  <img src="Z:/picture/008/save_picture_745502.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1804 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745498.jpg" />
+  <img src="Z:/picture/008/save_picture_745498.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ JumpShare 2.0.4.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745465.jpg" />
+  <img src="Z:/picture/008/save_picture_745465.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Opera 69.0.3686.77 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745447.jpg" />
+  <img src="Z:/picture/008/save_picture_745447.jpg" />
 </div>
 
 

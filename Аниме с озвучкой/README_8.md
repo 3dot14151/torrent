@@ -1,3 +1,29 @@
+###  Публикация: 1360575   (960289) от 15.02.2020
+
+Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии для Начинающих с Нуля [2017, TV, 12 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960289.jpg" />
+</div>
+
+
+###  Подробнее
+
+История расскажет о мире, где существуют ведьмы, способные призывать различных бесов и заручаться их помощью. Местная церковь же ведёт безжалостную охоту на всех ведьм. И хотя среди последних есть те, кто мирно уживаются с людьми, щадить она никого не собирается. Ещё в этом мире есть зверолюди — дети, рождённые обычными людьми, но по непонятным причинам являющиеся (   Читать дальше...   )Производство: White Fox, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Хиракава ТэцуоОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867FF1D1AAEFF6D1721528CB18C4FC60B0C7A8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 622176   (959755) от 22.02.2013
 
 Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
@@ -6,7 +32,7 @@ Baccano! / Шумиха! [2007, TV, 13] BDRip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959755.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ B Gata H Kei / Размер - второй, характер - извращен�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959753.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958951.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Maken-ki! / Не проиграю! [2011, TV, 12 ep] BDRip 720p Hi10p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958383.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Keijo!!!!!!!! / Кэйджо!!!!!!!! [2016, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954718.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951929.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951921.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танк
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950452.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Girls und Panzer Gekijouban | Girls und Panzer der Film | Девушки и Та
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950451.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Stranger Mukoh Hadan | Sword of the Stranger | Меч чужака [2007, Movie]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950450.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Girls und Panzer | Girls & Panzer | Девушки и Танки [2012, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950449.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949928.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ D.Gray-man / Грэй-мен [2006-2008, TV, 103 из 103] SDTVrip 396p raw + ru
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946771.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Shuumatsu no Izetta / Izetta: The Last Witch / Последняя ведьма �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945415.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Soul Eater Not! | Пожиратель Душ! Класс НОТ! [2014, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942306.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Burn Up Excess | Burn-Up Excess | Разгон! Перебор [1998, TV] DVDRip
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940423.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Black Bullet / Черная пуля [2014, TV, 13 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939784.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Rinne no Lagrange / Lagrange: The Flower of Rin-ne / Цветок вечност
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939693.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | По�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939075.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Owari no Seraph | Seraph of the End: Vampire Reign | Последний Сера
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939074.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Hai to Gensou no Grimgar | Grimgar of Fantasy and Ash | Гримгал Мир И
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939073.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938631.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из Завтра�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935633.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во Т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935632.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935631.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Akame ga Kill! | Убийца Акамэ! [2014, TV, 24 ep + 24 sp] BDRip 1080p 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838664DAE84F07BC640038C6B73561DD18294761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837581   (935598) от 19.01.2015
-
-Shingeki no Bahamut: Genesis / Rage of Bahamut: Genesis / Ярость Бахамута: Истоки [2014, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно боги, демоны и люди объединились, чтобы одолеть и запечатать огненного дракона Бахамута, угрожавшего самому бытию магического мира Мистарции. Ключ от узилища древнего зверя был разделен на две части – одну на хранение приняли боги, другую – демоны. Дальше союз распался, и каждая раса тысячи лет занималась своими делами, понемногу враждуя с другими, пока в один прекрасный день обладатели Силы не узнали, что ключ богов был украден. Как следствие, печать Бахамута зашаталась, и все в мире пришло в (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Сато КэйитиПеревод: Teisoku & TimecraftФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85554F1819595432279477B74A08C9E802E774D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

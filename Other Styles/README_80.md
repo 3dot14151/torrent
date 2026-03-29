@@ -1,3 +1,61 @@
+###  Публикация: 1229207   (627948) от 05.06.2018
+
+Артель РОСА - Счастливые люди (2018) [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ромашка
+02. Ляпота
+03. Космонавты
+04. Камушка(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78F19AB00D523D45CA6AFBE69AC19F41C7FE4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909162   (627927) от 17.06.2015
+
+David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drifting In
+02. Gravity Waves
+03. Isee3
+04. Forward Motion(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908372   (627635) от 17.06.2015
 
 Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobilly>
@@ -6,7 +64,7 @@ Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobi
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627635.jpg" />
+  <img src="Z:/picture/008/save_picture_627635.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World mu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627629.jpg" />
+  <img src="Z:/picture/008/save_picture_627629.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627296.jpg" />
+  <img src="Z:/picture/008/save_picture_627296.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627138.jpg" />
+  <img src="Z:/picture/008/save_picture_627138.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_626959.jpg" />
+  <img src="Z:/picture/005/save_picture_626959.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626708.jpg" />
+  <img src="Z:/picture/008/save_picture_626708.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626662.jpg" />
+  <img src="Z:/picture/008/save_picture_626662.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626624.jpg" />
+  <img src="Z:/picture/008/save_picture_626624.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626580.jpg" />
+  <img src="Z:/picture/008/save_picture_626580.jpg" />
 </div>
 
 
@@ -276,7 +334,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626517.jpg" />
+  <img src="Z:/picture/008/save_picture_626517.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626463.jpg" />
+  <img src="Z:/picture/008/save_picture_626463.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626378.jpg" />
+  <img src="Z:/picture/008/save_picture_626378.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626241.jpg" />
+  <img src="Z:/picture/008/save_picture_626241.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625526.jpg" />
+  <img src="Z:/picture/008/save_picture_625526.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624720.jpg" />
+  <img src="Z:/picture/008/save_picture_624720.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624662.jpg" />
+  <img src="Z:/picture/008/save_picture_624662.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624583.jpg" />
+  <img src="Z:/picture/008/save_picture_624583.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624576.jpg" />
+  <img src="Z:/picture/008/save_picture_624576.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624489.jpg" />
+  <img src="Z:/picture/008/save_picture_624489.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624117.jpg" />
+  <img src="Z:/picture/008/save_picture_624117.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624070.jpg" />
+  <img src="Z:/picture/008/save_picture_624070.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623627.jpg" />
+  <img src="Z:/picture/008/save_picture_623627.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623596.jpg" />
+  <img src="Z:/picture/008/save_picture_623596.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623568.jpg" />
+  <img src="Z:/picture/008/save_picture_623568.jpg" />
 </div>
 
 
@@ -696,76 +754,6 @@ James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522140   (623012) от 13.07.2012
-
-Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большой Барабан (1:29) 64 kbps
-02. Большой Барабан (1:42) 64 kbps
-03. Большой Барабан (3:16) 64 kbps
-04. Большой Барабан (3:57) 64 kbps
-05. выступление в Белых Облаках (9:06) 160 kbps
-06. выступление в Гавань Надежды (7:41) 160 kbps
-07. выступление в Картонии (11:02) 70 kbps (VBR)
-08. и Оркестр Интуитивной музыки (7:27) 160 kbps
-09. выступление на винзаводе (3:40) 89 kbps (VBR)
-10. выступление на Евроконе (7:16) 64 kbpsЖанр: Instrumental, World Music,Продолжительность: 02:37: 58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522235   (622863) от 13.07.2012
-
-Казачий ансамбль «Старина» - Казак по Дону гуляет... (2009) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На речке Камышинке (4:57)
- 2. Вспомним, братцы, про былое (2:44)
- 3. Не в чистом поле злодеюшки живут (5:47)
- 4. Казак по Дону гуляет-протяжн (7:19)
- 5. Как при балке, при лощинке (3:42)
- 6. Вот уж полночь (4:22)
- 7. Два ангела парили (1:09)
- 8. По полку полковничек идёт (4:08)
- 9. Отойди-ка горечко на время (4:37)
- 10. Была весна (5:11)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

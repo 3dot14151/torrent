@@ -1,3 +1,67 @@
+###  Публикация: 1288698   (690377) от 14.03.2019
+
+Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Red Dirt (02:20)
+2. Too Hot To Just Quit (03:29)
+3. Met My Match (02:35)
+4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506158   (690278) от 05.06.2012
+
+George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile (6:44)
+02. Evangelia (5:33)
+03. Reunion (4:26)
+04. Numinous (5:05)
+05. Hopes And Dreams (3:23)
+06. Into The Light (2:12)
+07. Tree Of Life (5:08)
+08. On Friendship's Wings (4:18)
+09. The Calling (5:00)
+10. Snow (3:01)Жанр: New Age, Piano soloПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288919   (690230) от 14.03.2019
 
 LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .cue] <Folk, Country>
@@ -6,7 +70,7 @@ LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690230.jpg" />
+  <img src="Z:/picture/008/save_picture_690230.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690228.jpg" />
+  <img src="Z:/picture/008/save_picture_690228.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690225.jpg" />
+  <img src="Z:/picture/008/save_picture_690225.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Patty Griffin - Patty Griffin (2019) [FLAC|Lossless|tracks + .cue] <Folk, Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690220.jpg" />
+  <img src="Z:/picture/008/save_picture_690220.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA - Aroma Therapy. Complete 10 CD Collection (2006) [FLAC|Lossless|tracks] <Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690143.jpg" />
+  <img src="Z:/picture/008/save_picture_690143.jpg" />
 </div>
 
 
@@ -149,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689597.jpg" />
+  <img src="Z:/picture/008/save_picture_689597.jpg" />
 </div>
 
 
@@ -184,7 +248,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689378.jpg" />
+  <img src="Z:/picture/008/save_picture_689378.jpg" />
 </div>
 
 
@@ -213,7 +277,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689374.jpg" />
+  <img src="Z:/picture/008/save_picture_689374.jpg" />
 </div>
 
 
@@ -242,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689307.jpg" />
+  <img src="Z:/picture/008/save_picture_689307.jpg" />
 </div>
 
 
@@ -271,7 +335,7 @@ Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия �
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689250.jpg" />
+  <img src="Z:/picture/008/save_picture_689250.jpg" />
 </div>
 
 
@@ -300,7 +364,7 @@ Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689247.jpg" />
+  <img src="Z:/picture/008/save_picture_689247.jpg" />
 </div>
 
 
@@ -329,7 +393,7 @@ Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumenta
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689244.jpg" />
+  <img src="Z:/picture/008/save_picture_689244.jpg" />
 </div>
 
 
@@ -358,7 +422,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689217.jpg" />
+  <img src="Z:/picture/008/save_picture_689217.jpg" />
 </div>
 
 
@@ -387,7 +451,7 @@ Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689213.jpg" />
+  <img src="Z:/picture/008/save_picture_689213.jpg" />
 </div>
 
 
@@ -416,7 +480,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689207.jpg" />
+  <img src="Z:/picture/008/save_picture_689207.jpg" />
 </div>
 
 
@@ -445,7 +509,7 @@ CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jaz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689100.jpg" />
+  <img src="Z:/picture/008/save_picture_689100.jpg" />
 </div>
 
 
@@ -474,7 +538,7 @@ Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689099.jpg" />
+  <img src="Z:/picture/008/save_picture_689099.jpg" />
 </div>
 
 
@@ -503,7 +567,7 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [MP3|320 Kbps] <In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689090.jpg" />
+  <img src="Z:/picture/008/save_picture_689090.jpg" />
 </div>
 
 
@@ -532,7 +596,7 @@ Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Ser
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689082.jpg" />
+  <img src="Z:/picture/008/save_picture_689082.jpg" />
 </div>
 
 
@@ -561,7 +625,7 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688965.jpg" />
+  <img src="Z:/picture/008/save_picture_688965.jpg" />
 </div>
 
 
@@ -590,7 +654,7 @@ Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688743.jpg" />
+  <img src="Z:/picture/008/save_picture_688743.jpg" />
 </div>
 
 
@@ -617,7 +681,7 @@ Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688688.jpg" />
+  <img src="Z:/picture/008/save_picture_688688.jpg" />
 </div>
 
 
@@ -645,7 +709,7 @@ Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688506.jpg" />
+  <img src="Z:/picture/008/save_picture_688506.jpg" />
 </div>
 
 
@@ -674,7 +738,7 @@ Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688392.jpg" />
+  <img src="Z:/picture/008/save_picture_688392.jpg" />
 </div>
 
 
@@ -688,64 +752,6 @@ Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289335   (688278) от 15.03.2019
-
-АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688278.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Час по часу
-2. Зародила меня матушка
-3. Эх, молодой
-4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028678   (688246) от 23.06.2016
-
-Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

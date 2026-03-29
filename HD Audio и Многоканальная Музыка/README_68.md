@@ -1,3 +1,234 @@
+###  Публикация: 1668666   (173241) от 14.10.2023
+
+Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paint My Bedroom Black [00:03:49]
+02. Into Your Room [00:03:29]
+03. Cocoon [00:03:06]
+04. Kissing In Swimming Pools [00:04:47](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF81A9F77C95B33B85662C7856153B47B5D2C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668662   (173231) от 14.10.2023
+
+Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Late [00:03:30]
+02. Your Servant [00:04:55]
+03. Still Alive [00:03:41]
+04. Standing On My Own [00:04:58](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F288C977AC0E946251FD00DAC8A5A81ECEC485FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669001   (173223) от 14.10.2023
+
+Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noumena — мелодик-дэт-метал группа из Эхтяри, Финляндия. Образована в 1998 году.2002 - Pride_Fall
+2005 - Absence
+2006 - Anatomy of Life
+2013 - Death Walks with MeЖанр: Melodic Death MetalПродолжительность: 05:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668775   (173222) от 14.10.2023
+
+††† (Crosses) - Permanent.Radiant.Remixed (2023) [FLAC 24/44.1-48|Lossless|WEB-DL|tracks] <Dreampop, Darkwave, Industrial Rock, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensation (Suicideyear Remix) [00:03:00]
+02. Vivien (AWAY Remix) [00:03:04]
+03. Cadavre Exquis (DJ Tony G and Ern “Dogg” Medina In a Daize Mix) [00:03:01]
+04. Day One (Machinedrum Remix) [00:03:24](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3F5C439398DFF496F128706EA3E069895A84D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668688   (173213) от 14.10.2023
+
+Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel The Heat [00:04:31]
+02. All The Right Moves [00:03:54]
+03. Wild In The CIty [00:04:49]
+04. Needs A Little Love [00:04:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CAD70D20BF1C3ECA961CA9B537495AD3299BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668708   (173209) от 14.10.2023
+
+Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173209.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 – Future
+15 – Twilight Zone
+16 – Don’t Be Silly
+17 – Lost And Found(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 2CD, 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2613E07577393947DD90B07A07C6BAEC4F5A879F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668650   (173197) от 14.10.2023
+
+Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Pigs (8:28)
+02. Behind The Wall Of Sleep (4:06)
+03. N.I.B. (6:47)
+04. Fairies Wear Boots (6:20)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357D79819C7C6A9C23A0092302C366720AC4D00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668700   (173178) от 14.10.2023
+
+Пневмослон - Полегче, Потяжелее (2023) 2 EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2023 - Полегче
+2023 - ПотяжелееЖанр: Alternative RockПродолжительность: 2 CD, 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C993F2084E2006770EA7E423BC355B6E739C876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668654   (173175) от 14.10.2023
 
 Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +237,7 @@ Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173175.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -62,7 +293,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -91,7 +322,7 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173003.jpg" />
 </div>
 
 
@@ -120,7 +351,7 @@ Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173002.jpg" />
 </div>
 
 
@@ -148,7 +379,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172981.jpg" />
 </div>
 
 
@@ -177,7 +408,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -206,7 +437,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172684.jpg" />
 </div>
 
 
@@ -235,7 +466,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172683.jpg" />
 </div>
 
 
@@ -262,7 +493,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172682.jpg" />
 </div>
 
 
@@ -291,7 +522,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172673.jpg" />
 </div>
 
 
@@ -320,7 +551,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172644.jpg" />
 </div>
 
 
@@ -349,7 +580,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172602.jpg" />
 </div>
 
 
@@ -378,7 +609,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172592.jpg" />
 </div>
 
 
@@ -407,7 +638,7 @@ Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172337.jpg" />
 </div>
 
 
@@ -436,7 +667,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172323.jpg" />
 </div>
 
 
@@ -465,7 +696,7 @@ The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172252.jpg" />
 </div>
 
 
@@ -494,7 +725,7 @@ Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Sax
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172211.jpg" />
 </div>
 
 
@@ -508,238 +739,6 @@ A1 Toki Ni Wa Haha No Nai Ko No Yoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670413   (172141) от 20.10.2023
-
-Devin Townsend - Empath (2019) [FLAC|24/192|image + .cue|Vinyl-Rip]  <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Castaway (02:31)
-A2. Genesis (06:04)
-A3. Spirits Will Collide (04:39)
-A4. Evermore (05:38)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFE24B0DCB9D65823CD955A39D14FE5CEAB547D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670318   (172136) от 20.10.2023
-
-Oxymorrons - Melanin Punk (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enemy (00:02:24)
-02 - Graveyard Words (00:02:54)
-03 - Look Alive (Netic) (00:03:13)
-04 - Head For The Hills (00:02:52)(   Читать дальше...   )Жанр: RapcoreПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B1936BE9F6882F6CB3666BC3A8D11F85BDDC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670294   (172120) от 20.10.2023
-
-Roger Whittaker - Love Will Be Our Home (1989) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Pop, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172120.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Morning Has Broken
-A2 I Believe
-A3 Kumbayah
-A4 Somewhere(   Читать дальше...   )Жанр: Rock, Pop, BalladПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86620D37C53E889A3AACBFFE1929F8886040AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670367   (172096) от 20.10.2023
-
-Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Head Is Spinning (2023 Remaster) (06:33)
-02. Forever In Love (2023 Remaster) (06:18)
-03. Kdx 125 (2023 Remaster) (06:26)
-04. We Came From Outer Space (2023 Remaster) (05:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6389DD0494755783B878E97D3F4FCF21F393BC42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670597   (171948) от 21.10.2023
-
-Devin Townsend - Snuggles (Beautiful Dream) (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171948.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Beyond Measure (01:31)
-A2. Blue Dot (03:08)
-A3. Drifting and Dreaming (04:26)
-A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670645   (171943) от 21.10.2023
-
-Duff McKagan - Lighthouse (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lighthouse (3:20)
-02. Longfeather (4:12)
-03. Holy Water (4:32)
-04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61F65FBB1E2D3E66EBBB0A3EBA6960AA86D0618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670637   (171940) от 21.10.2023
-
-Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171940.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Chromatic Ridge (03:44)
-A2. Life Is but a Dream (03:30)
-A3. Yucky Lung (01:22)
-A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670722   (171909) от 21.10.2023
-
-Savage - Glory Riders (2023) [FLAC 24/44,1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carcass on your Shoulders [00:04:45]
-02. Life in Chains [00:03:37]
-03. Make my Day [00:04:16]
-04. Master Bator [00:04:22](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E39396CE1EE9EA91C71FED79A8A83C650B4824
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1444823   (39245) от 26.10.2024
+
+Все мои друзья мертвы / Wszyscy moi przyjaciele nie zyja (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комедия в стиле "Американского пирога" повествует об улётной вечеринке польских студентов, которая кончается загадочной гибелью практически всех участников. Детективам, прибывшим на место преступления на следующий день, предстоит изучить кровавые следы прошлой ночи и по крупицам распутать цепь событий, приведших к кровавой трагедии.Производство: Польша / Aurum FilmЖанр: Драма, комедия, криминалРежиссер: Ян БельцлАктеры: Михал Мейер, Адам Воронович, Юлия Венява-Наркевич, Адам Турчик, Никодем Розбицкий, Моника Кшивковская, Шимон Рошак, Михал Сикорский, Адам Бобик, Матеуш Венцлавек, Яссин ФадельПеревод: Дублированный (Netflix)Субтитры: Русские (Forced,full), английские (Full)Продолжительность: 01:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E698A0EE1A0088C3A2D45102838FB102DFA708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756978   (39237) от 26.10.2024
+
+Образец авиадвигателя — демонстратора ПД-35 прошел первый этап испытаний
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опытный образец авиадвигателя — демонстратора технологий ПД-35 успешно завершил первый этап испытаний. Об этом сообщили ТАСС в одном из предприятий, участвующих в разработке двигателя.«Двигатель показал устойчивую работу в соответствии с заданными параметрами и готовится к следующим этапам испытаний», — отметили в предприятии.Разработка двигателя ПД-35 началась летом (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756458   (39146) от 27.10.2024
+
+Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окружной прокурор Маргарет оказывается в весьма щекотливой ситуации: она находится в номере элитного отеля, одежда в крови, в спальне труп молодого человека, с которым она познакомилась нынешним вечером. Судорожно перебирая номера в телефонной книжке, Маргарет находит контакт человека, который «решает проблемы». Вскоре появляется профессиональный чистильщик, который (   Читать дальше...   )Производство: Великобритания, США / Apple Studios, Plan B Entertainment, Smoke HouseЖанр: комедия, криминал, боевикРежиссер: Джон УоттсАктеры: Джордж Клуни, Брэд Питт, Остин Абрамс, Эми Райан, Пурна Джаганнатхан, Златко Бурич, Владимир Сизов, Donut McGunigle, Sergio Cota Jr., Alfred ChouПеревод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45A5B91D3424A962745AD543B92D7E857824B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747255   (39142) от 27.10.2024
+
+Комбинация (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1987 год. Бывший сотрудник саратовского ОБХСС Александр Шишинин после рождения дочери решает круто изменить свою жизнь и заняться тем, о чем всегда мечтал, — продюсировать музыкальную группу. Он знакомится с талантливым композитором Виталием Окороковым. Вместе они буквально на улице находят первых вокалисток: Татьяну Иванову, Алёну Апину и собирают первую в СССР (   Читать дальше...   )Производство: Россия / «Лунапарк», «НМГ Студия», WinkЖанр: музыка, биография, драма, комедияРежиссер: Никита ВласовАктеры: Никита Кологривый, Елизавета Базыкина, Анастасия Уколова, Павел Прилучный, Даниил Воробьев, Аскар Ильясов, Дарья Руденок, Владимир Канухин, Полина Гухман, Татьяна СтруженковаСубтитры: РусскиеПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FADBCFE623AC923B0A299052A18A6C69EB311FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757434   (39052) от 28.10.2024
+
+Бюро авторских прав США отклонила инициативу по расширению доступности цифрового наследия старых видеоигр
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39052.jpg" />
+</div>
+
+
+###  Подробнее
+
+По-прежнему инициативы, направленные на сохранение старых видеоигр, сталкиваются с проблемой авторского права.
+Авторские права — давняя «боль» игровой индустрии. После завершения срока действия лицензия игры убирают из продажи, доступ к ним (официально) сохраняют только те пользователи, которые успели их купить.Недавно стало известно о том, что ещё одна инициатива (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757551   (39047) от 28.10.2024
+
+Кинокомпания "СТВ" подала иск к бизнесмену из-за слов в фильме "Брат-2"
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинокомпания СТВ подала иск к бизнесмену из Липецка из-за продажи товаров с цитатой из фильма "Брат-2", сообщил Telegram-канал SHOT.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601565   (39035) от 28.10.2024
 
 Слон (2022) WEBRip [H.264/1080p]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39035.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38962.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38950.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38765.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38666.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38468.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38450.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38449.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38158.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ Driver Easy Pro 6.1.1.29776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38154.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.41/1.42d) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38051.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ Serious Sam Classic (2002) [Ru/En] (1.07/dlc) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38046.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38044.jpg" />
 </div>
 
 
@@ -345,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37839.jpg" />
 </div>
 
 
@@ -371,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37828.jpg" />
 </div>
 
 
@@ -397,7 +555,7 @@ Shadowsocks
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37738.jpg" />
 </div>
 
 
@@ -423,7 +581,7 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.2 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37737.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37734.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37724.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37607.jpg" />
 </div>
 
 
@@ -515,168 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760007   (37565) от 12.11.2024
-
-Немцы первыми в мире испытали в полёте клиновоздушный ракетный двигатель
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37565.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 октября 2024 года над Балтийским морем немецкий стартап Polaris Raumflugzeuge провёл испытательный полет масштабного прототипа самолёта MIRA II с клиновидным ракетным двигателем на борту. Двигатель включался всего на 3 секунды, но это было первое в мире испытание КРД в воздухе, а не в лаборатории. И оно было успешным.Клиновоздушные ракетные двигатели (aerospike) (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747391   (37547) от 12.11.2024
-
-Трасса (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана отправляется на поиски приёмной дочери, которая уехала искать настоящих родителей и пропала. В то же время в этом курортном городе тринадцатилетняя девочка расстреливает свою спящую семью — мать, отца и бабушку — после чего пытается повеситься. На выстрелы прибегает сосед, и вытаскивает девочку из петли. Глава полиции района поручает расследование громкого (   Читать дальше...   )Производство: Россия / «Среда», OkkoЖанр: драма, триллерРежиссер: Душан ГлигоровАктеры: Карина Разумовская, Александр Ильин мл., Анна Михалкова, Елизавета Ищенко, Семён Серзин, Алексей Фатеев, Василиса Немцова, Геннадий Смирнов, Елена Литвинова, Сергей УмановСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7AD7C8917512B3FD585092729D11F4E0E3BF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760049   (37533) от 12.11.2024
-
-Россия и страны Африки выступили за интернационализацию управления интернетом
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия и Африка выступают за интернационализацию управления интернетом, говорится в совместном заявлении первой министерской конференции Форума партнерства Россия – Африка о мерах по формированию справедливой и равноправной системы международной информационной безопасности. Документ опубликован на сайте МИД РФ.«Выступаем за интернационализацию управления интернетом, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760351   (37446) от 13.11.2024
-
-Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2314 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинального образа
-ru-ru_windows_11_business_editions_version_24h2_x64_dvd_f9b9b5d6
-ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
-Удалены все модерн приложения.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDF907EFE9E53359C93D47DD37F1C6DB098F1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760388   (37320) от 14.11.2024
-
-На Rutube появилась кнопка «Подайте сведения в Роскомнадзор»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоплатформа Rutube приступила к маркировке каналов, аудитория которых превышает 10 тыс. подписчиков, и которые были внесены в реестр Роскомнадзора, передаёт ТАСС со ссылкой на пресс-службу сервиса.1 ноября вступил в силу закон, требующий, чтобы владельцы страниц и каналов в соцсетях регистрировались в реестре, который ведёт Роскомнадзор. Когда численность подписчиков (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759928   (37149) от 16.11.2024
-
-YTDisBystro (универсальная сборка на основе Zapret) 2.2 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37149.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDisBystro - сбока на основе zapret от KDS. Обеспечивает доступ к ютубу, дискорду и прочим заблокированным сайтам (инстаграм, фейсбук, x (твиттер) и т.д.).
-Не содержит никаких ненужных надстроек над zapret (лаунчеров), только командная строка и минимальный расход памяти.
-Режимы запуска: Окно программы либо как служба Windows
-Поддерживает настройку и изменение стратегий (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5943AABDB0283EA566E1973AA021307F64DB680A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (28.16.0) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41749.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Steamworld Heist (2016) [Ru/Multi]  (2.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41334.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.6.24/dlc) License GOG [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40649.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Combat Mission: Shock Force 2 (2020) [Multi] (02.06.03/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40221.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39342.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39318.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39145.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Inkulinati (2023) [Ru/Multi] (1.48.1.0/dlc) License GOG [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37019.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36792.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.102.62906.0/dlc) Re
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36729.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36712.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36650.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36178.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.2.32791/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36116.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Troop (2023) [Ru/Multi] (Build 20241125/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35378.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack Let'sРlay [Final Cut]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34651.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Scene R
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34480.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34332.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Warcraft III (3): Reforged (2020) [Ru/En] (2.0.1.22498) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33102.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Mount & Blade II: Bannerlord (2020) [Ru/Multi] (1.2.12.54620) Repack Wanterlude
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32905.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32898.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.11/dlc) Repack Let'sРlay [C
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32527.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Men of War II (2024) [Ru/Multi] (1.041/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32485.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) Repack FitGirl [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31820.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31638.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31554.jpg" />
 </div>
 
 

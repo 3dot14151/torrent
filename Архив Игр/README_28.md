@@ -6,7 +6,7 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/vv1.1) [EN] 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653133.jpg" />
+  <img src="Z:/picture/008/save_picture_653133.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Spec Ops: The Line (L) [Multi5/-] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653114.jpg" />
+  <img src="Z:/picture/008/save_picture_653114.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kingdoms of Amalur: Reckoning [Ru/En] (RePack/1.0.0.2) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653036.jpg" />
+  <img src="Z:/picture/008/save_picture_653036.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Kingdoms of Amalur: Reckoning [Ru] (RePack/1.0.0.2) 2012 l R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652902.jpg" />
+  <img src="Z:/picture/008/save_picture_652902.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652857.jpg" />
+  <img src="Z:/picture/008/save_picture_652857.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Ice Age: Continental Drift (RePack/1.0) [En] 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652112.jpg" />
+  <img src="Z:/picture/008/save_picture_652112.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652075.jpg" />
+  <img src="Z:/picture/008/save_picture_652075.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Krater. Shadows over Solside - Collector's Edition (Lossless RePack/1.0.4/DLC) [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651433.jpg" />
+  <img src="Z:/picture/008/save_picture_651433.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | Mailchik
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651420.jpg" />
+  <img src="Z:/picture/008/save_picture_651420.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651419.jpg" />
+  <img src="Z:/picture/008/save_picture_651419.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651315.jpg" />
+  <img src="Z:/picture/005/save_picture_651315.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651169.jpg" />
+  <img src="Z:/picture/008/save_picture_651169.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651058.jpg" />
+  <img src="Z:/picture/008/save_picture_651058.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ LEGO Batman 2 : DC Super Heroes (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650975.jpg" />
+  <img src="Z:/picture/008/save_picture_650975.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650961.jpg" />
+  <img src="Z:/picture/008/save_picture_650961.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Spec Ops: The Line (RePack) [Ru] 2012 | R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650955.jpg" />
+  <img src="Z:/picture/008/save_picture_650955.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ LEGO Batman 2 : DC Super Heroes (RePack) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650862.jpg" />
+  <img src="Z:/picture/008/save_picture_650862.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0.120.531) [Multi11/+] 2012 l
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650859.jpg" />
+  <img src="Z:/picture/008/save_picture_650859.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Quantum Conundrum (RePack/1.0dc120625) [En] 2012 | R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650857.jpg" />
+  <img src="Z:/picture/008/save_picture_650857.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru] (P) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650856.jpg" />
+  <img src="Z:/picture/008/save_picture_650856.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650850.jpg" />
+  <img src="Z:/picture/008/save_picture_650850.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2013 (Lossless Repack/1.0) [Ru
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650795.jpg" />
+  <img src="Z:/picture/008/save_picture_650795.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_650786.jpg" />
+  <img src="Z:/picture/005/save_picture_650786.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Sid Meier’s Civilization V: GOTY + 10 DLC [Ru] (RePack/1.0.1.674) 2010 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650735.jpg" />
+  <img src="Z:/picture/008/save_picture_650735.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Salvation Prophecy [En] (L) 2012 | SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650734.jpg" />
+  <img src="Z:/picture/008/save_picture_650734.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Tom Clancy's Ghost Recon: Future Soldier (LossLess RePack/1.2/DLC) [Ru/En/Multi1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650714.jpg" />
+  <img src="Z:/picture/008/save_picture_650714.jpg" />
 </div>
 
 

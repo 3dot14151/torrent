@@ -1,3 +1,57 @@
+###  Публикация: 534260   (521345) от 12.08.2012
+
+Воины мира. Джедаи  (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джедаи
+Фильм рассказывает о философии воина, и о том, почему боевые искусства стали популярными во всем мире.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0C3ADA15C1150C539EC43767781CCA224B2921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534219   (521245) от 12.08.2012
+
+Воины мира. Илья Муромец  (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илья Муромец
+Илья Муромец – кто он, этот великий русский богатырь? Откуда он родом, существовал ли он на самом деле, есть ли у него потомки? В фильме рассказывается не только о самом Илье, но о традициях русской воинской славы и богатырском служении Родине.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5B0B758B74D42FA19A1E534D4940C9D7731B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534222   (521221) от 12.08.2012
 
 Воины мира. Шаолинь  (2011) SATRip
@@ -6,7 +60,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521221.jpg" />
+  <img src="Z:/picture/008/save_picture_521221.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521219.jpg" />
+  <img src="Z:/picture/008/save_picture_521219.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520977.jpg" />
+  <img src="Z:/picture/008/save_picture_520977.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520637.jpg" />
+  <img src="Z:/picture/008/save_picture_520637.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515757.jpg" />
+  <img src="Z:/picture/008/save_picture_515757.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515590.jpg" />
+  <img src="Z:/picture/008/save_picture_515590.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515250.jpg" />
+  <img src="Z:/picture/008/save_picture_515250.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514994.jpg" />
+  <img src="Z:/picture/008/save_picture_514994.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514736.jpg" />
+  <img src="Z:/picture/008/save_picture_514736.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514399.jpg" />
+  <img src="Z:/picture/008/save_picture_514399.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509652.jpg" />
+  <img src="Z:/picture/008/save_picture_509652.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507962.jpg" />
+  <img src="Z:/picture/008/save_picture_507962.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507530.jpg" />
+  <img src="Z:/picture/008/save_picture_507530.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507459.jpg" />
+  <img src="Z:/picture/008/save_picture_507459.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507171.jpg" />
+  <img src="Z:/picture/008/save_picture_507171.jpg" />
 </div>
 
 
@@ -411,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506220.jpg" />
+  <img src="Z:/picture/008/save_picture_506220.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506163.jpg" />
+  <img src="Z:/picture/008/save_picture_506163.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505568.jpg" />
+  <img src="Z:/picture/008/save_picture_505568.jpg" />
 </div>
 
 
@@ -490,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505276.jpg" />
+  <img src="Z:/picture/008/save_picture_505276.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505078.jpg" />
+  <img src="Z:/picture/008/save_picture_505078.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504569.jpg" />
+  <img src="Z:/picture/008/save_picture_504569.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504044.jpg" />
+  <img src="Z:/picture/008/save_picture_504044.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503629.jpg" />
+  <img src="Z:/picture/008/save_picture_503629.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502385.jpg" />
+  <img src="Z:/picture/008/save_picture_502385.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDF0C7E9B1CB6FDC1A5297DD1908D756403866CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541231   (502355) от 30.08.2012
-
-Прекрасная Италия (43 серия). Лигурия: от Вентимильи до Галлинары / Magnifica Italia - Liguria: da Ventimiglia a Gallinara (2007) HDTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотрев цикл "Прекрасная Италия". вы влюбитесь в эту страну навсегда. Вы захотите во что бы то ни стало попасть в Италию и объехать её всю, чтобы увидеть своими глазами и потрогать своими руками! Италия это история, это искусство, это природа, это жизнь!
-В этом выпуске мы посетим: La Morotola, Ventimiglia, Bordighera, Sanremo, Taggia, Bussana, Bussana Vecchia, Ceriana, Perinaldo, Dolceacqua, Castel, Vittorio, Realdo, Triora, Imperia, Diano Marina, Cervo, Laigueglia, Alassio, Isola di CallinaraЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44906D7D5FA92A415C84D5019AF7DCAB4431572D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539560   (500535) от 01.09.2012
-
-Украинские путешествия.Слобожанщина (2003) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательные путешествия по разным уголкам Украины. Слобожа́нщина или Слободска́я Украи́на (укр. Слобожанщина, Слобідська Україна) — историческая область на северо-востоке современной Украины и юго-западе Черноземья в России.Жанр: Документальный,путешествияПродолжительность: 00:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6684299B391BF1F24DB9A9B83ED7B0CC4116FB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

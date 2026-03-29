@@ -1,3 +1,55 @@
+###  Публикация: 1854697   (1057735) от 19.02.2026
+
+Х.А. Арустамов | Сборник задач по начертательной геометрии (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057735.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой главе сборника даны краткие сведения по начертательной геометрии, решеные типовые примеры, знакомящие студентов с методикой решения задач и графическим оформлением эпюр, задачи для самостоятельного решения студентами, а в некоторых главах приведены вопросы для самопроверки.Жанр: Технические наукиИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDEA80362A3A2B46E660E8308F9BE9EAF246B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854619   (1057662) от 20.02.2026
+
+А.И. Островский | Начертательная геометрия в популярном изложении (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал книги рассчитан на учащихся строительных техникумов и ВУЗов.Жанр: Технические наукиИздательство: Государственное издательство физико-математической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505038F8DFCFA3F02D7F4181EE2DE3842DFCFC84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853697   (1057446) от 17.02.2026
 
 Sylvie Pommier, Yves Berthaud | Mécanique Générale (2010) [PDF] [FR]
@@ -6,7 +58,7 @@ Sylvie Pommier, Yves Berthaud | Mécanique Générale (2010) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057446.jpg" />
+  <img src="Z:/picture/005/save_picture_1057446.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057411.jpg" />
+  <img src="Z:/picture/005/save_picture_1057411.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057337.jpg" />
+  <img src="Z:/picture/005/save_picture_1057337.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ André CHEVALIER | Guide du dessinateur industriel (2004) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057199.jpg" />
+  <img src="Z:/picture/005/save_picture_1057199.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056914.jpg" />
+  <img src="Z:/picture/005/save_picture_1056914.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056913.jpg" />
+  <img src="Z:/picture/005/save_picture_1056913.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Jean-Louis FANCHON | Guide des SCIENCES ET TECHNOLOGIES INDUSTRIELLES (2026) [PD
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056741.jpg" />
+  <img src="Z:/picture/005/save_picture_1056741.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055897.jpg" />
+  <img src="Z:/picture/005/save_picture_1055897.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055461.jpg" />
+  <img src="Z:/picture/005/save_picture_1055461.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055052.jpg" />
+  <img src="Z:/picture/005/save_picture_1055052.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055047.jpg" />
+  <img src="Z:/picture/005/save_picture_1055047.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055046.jpg" />
+  <img src="Z:/picture/005/save_picture_1055046.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055040.jpg" />
+  <img src="Z:/picture/005/save_picture_1055040.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054561.jpg" />
+  <img src="Z:/picture/005/save_picture_1054561.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054459.jpg" />
+  <img src="Z:/picture/005/save_picture_1054459.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053999.jpg" />
+  <img src="Z:/picture/005/save_picture_1053999.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052764.jpg" />
+  <img src="Z:/picture/005/save_picture_1052764.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052763.jpg" />
+  <img src="Z:/picture/005/save_picture_1052763.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052762.jpg" />
+  <img src="Z:/picture/005/save_picture_1052762.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052761.jpg" />
+  <img src="Z:/picture/005/save_picture_1052761.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051837.jpg" />
+  <img src="Z:/picture/005/save_picture_1051837.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051707.jpg" />
+  <img src="Z:/picture/005/save_picture_1051707.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051462.jpg" />
+  <img src="Z:/picture/005/save_picture_1051462.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051154.jpg" />
+  <img src="Z:/picture/005/save_picture_1051154.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E00AAB934E106646C1A6B6F5CFB25AE8A9A4B71A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845671   (1050932) от 02.01.2026
-
-Кирилл Плешаков-Качалин | Красивый голос и четкая дикция за 30 дней. Только практика (2025) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050932.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Красивый голос и четкая дикция за 30 дней. Только практика» — практическая книга Кирилла Плешакова-Качалина, руководителя «Школы природного голоса». Это проверенный практикой инструмент, который позволить улучшить голос и добиться четкой дикции.
-Программа рассчитана на 30 дней и включает в себя ежедневные упражнения, направленные на развитие различных аспектов голоса: (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ПитерФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99C6D1DF399272529A9B343055CA91C197B7FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845539   (1050829) от 
-
-А.Р. Труль, Е.А. Пронин, И.А. Давиденко и др. | Силовая тренировка для повышения физической подготовленности военнослужащих (2025) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050829.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом пособии даются как теоретические сведения, так и практические рекомендации по специальной подготовке силовой тренировки. Так, большой раздел учебного пособия посвящен актуальным вопросам естественно-научного обоснования влияния занятий силовыми тренировками на организм человека – скелет, мышцы и другие органы и системы. В нем также освещены основные (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Михайловская военная артиллерийская академияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16BDC19271FECE5056D0564D9D3A0C037BAD15B
 ```
 
 https://mybot314.ru/tekegram_catalog/

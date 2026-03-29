@@ -1,3 +1,114 @@
+###  Публикация: 1084019   (272584) от 17.12.2016
+
+Business Templates for Pages 3.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Business Templates-  профессиональные и стильные бизнес-шаблоны для Pages.
+Business Templates представляет собой прекрасный комплект из 455 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей,  товарных чеков и счетов,  заканчивая различными формами для менеджемента и других публикаций.
+
+Используйте шаблоны одной страницы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBCA31A129355FF362433903DD00C636B350363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337670   (272545) от 12.11.2019
+
+Adobe Zii 2020 - Universal Patcher v5.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4100D6F495BCDE7DB67B09636FBFF88A9AE084DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084202   (272451) от 17.12.2016
+
+sdspeed 3.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272451.jpg" />
+</div>
+
+
+###  Подробнее
+
+sdspeed - Программное обеспечение для проверки целостности карты флэш-памяти SD
+sdspeed является единственным продуктом, который измеряют чтения и записи скорости и тестирования каждый бит карты памяти SD вы можете доверять без "конфликта интересов".
+
+Вы ищете тест скорости SD карты на Mac, как проверить скорость карты памяти, SD Card Speed Test, тест флэш-карты (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 июля 2016Разработчик: Michael MustunПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F7FB07C7507CF64ECBA7D4E3974B9372EFEF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337735   (272438) от 12.11.2019
+
+Find Any File (FAF) 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2019Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7627BB566ACD88F72E43678ED489396D4C5947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084224   (272399) от 17.12.2016
 
 SSDReporter 1.0.14 [En]
@@ -6,7 +117,7 @@ SSDReporter 1.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272399.jpg" />
+  <img src="Z:/picture/008/save_picture_272399.jpg" />
 </div>
 
 
@@ -35,7 +146,7 @@ TurboCollage 6 v6.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272389.jpg" />
+  <img src="Z:/picture/008/save_picture_272389.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Yoink 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272326.jpg" />
+  <img src="Z:/picture/008/save_picture_272326.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Downie 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272300.jpg" />
+  <img src="Z:/picture/008/save_picture_272300.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ Window Focus 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272143.jpg" />
+  <img src="Z:/picture/008/save_picture_272143.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ Sublime Text 3 (3156) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272085.jpg" />
+  <img src="Z:/picture/008/save_picture_272085.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ File Juicer 4.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272068.jpg" />
+  <img src="Z:/picture/008/save_picture_272068.jpg" />
 </div>
 
 
@@ -199,7 +310,7 @@ CrossOver 16.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272001.jpg" />
+  <img src="Z:/picture/008/save_picture_272001.jpg" />
 </div>
 
 
@@ -228,7 +339,7 @@ Cisdem DVDBurner 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271702.jpg" />
+  <img src="Z:/picture/008/save_picture_271702.jpg" />
 </div>
 
 
@@ -254,7 +365,7 @@ WebToLayers 1.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271697.jpg" />
+  <img src="Z:/picture/008/save_picture_271697.jpg" />
 </div>
 
 
@@ -280,7 +391,7 @@ MP3 Gain 4 v4.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271676.jpg" />
+  <img src="Z:/picture/008/save_picture_271676.jpg" />
 </div>
 
 
@@ -306,7 +417,7 @@ Do Your Data Recovery Professional 7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271661.jpg" />
+  <img src="Z:/picture/008/save_picture_271661.jpg" />
 </div>
 
 
@@ -335,7 +446,7 @@ Path Finder 9.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271660.jpg" />
+  <img src="Z:/picture/008/save_picture_271660.jpg" />
 </div>
 
 
@@ -361,7 +472,7 @@ Zoc Terminal 7.24.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271659.jpg" />
+  <img src="Z:/picture/008/save_picture_271659.jpg" />
 </div>
 
 
@@ -387,7 +498,7 @@ Wondershare Filmora 9 v9.2.10.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271657.jpg" />
+  <img src="Z:/picture/008/save_picture_271657.jpg" />
 </div>
 
 
@@ -413,7 +524,7 @@ Waltr 2 v2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271634.jpg" />
+  <img src="Z:/picture/008/save_picture_271634.jpg" />
 </div>
 
 
@@ -440,7 +551,7 @@ iMazing 2.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271633.jpg" />
+  <img src="Z:/picture/008/save_picture_271633.jpg" />
 </div>
 
 
@@ -467,7 +578,7 @@ DaisyDisk 4.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271593.jpg" />
+  <img src="Z:/picture/008/save_picture_271593.jpg" />
 </div>
 
 
@@ -495,7 +606,7 @@ Exposure X5 5.0.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271583.jpg" />
+  <img src="Z:/picture/008/save_picture_271583.jpg" />
 </div>
 
 
@@ -521,7 +632,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271581.jpg" />
+  <img src="Z:/picture/008/save_picture_271581.jpg" />
 </div>
 
 
@@ -548,7 +659,7 @@ Sketch 60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271580.jpg" />
+  <img src="Z:/picture/008/save_picture_271580.jpg" />
 </div>
 
 
@@ -575,7 +686,7 @@ TokenLock 4.69 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271526.jpg" />
+  <img src="Z:/picture/008/save_picture_271526.jpg" />
 </div>
 
 
@@ -588,115 +699,6 @@ TokenLock 4.69 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE523D7AA3D11877626DE69B5A810652734671D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084490   (271451) от 18.12.2016
-
-Swinsian 1.12.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swinsian - Альтернативный музыкальный проигрыватель для Mac OS X.
-Swinsian демонстрирует простой, но вместе с тем очень приятный интерфейс. Здесь мы видим привычные нам элементы управления, родную кнопку для раскрытия окошка на весь рабочий стол, привычные кнопки для сворачивания и разворачивания проигрывателя. Мы можем импортировать медиатеку iTunes, либо же некую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2016Разработчик: SwinsianПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0BF34829458DE3F2BAC6ED5D283AC7753B3997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084297   (271447) от 18.12.2016
-
-Together 3.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
-
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 декабря 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1080C728A9E425390B5ECC06B7A623F488A5AF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336169   (271427) от 13.11.2019
-
-Bartender 3.1.12 Beta (fixed) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 ноября 2019Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA5DDC3B23A973D0716E69C07A5E21E7735E0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084449   (271373) от 18.12.2016
-
-SMARTReporter 3.1.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271373.jpg" />
-</div>
-
-
-###  Подробнее
-
-SMARTReporter – утилита для диагностики состояния жестких дисков ATA и SATA интерфейсов и уведомления в случае дефектов. Программа опрашивает S.M.A.R.T. и подает сигналы о возможных неисправностях еще до их возникновения. Утилита выполняет другой контроль на "ошибки ввода / вывода" или "деградацию" R.A.I.D. Текущее состояние Ваших жестких дисков (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 декабря 2016Разработчик: Albert MayerПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F721666B33802B21271468709EA0C6677C6099
 ```
 
 https://mybot314.ru/tekegram_catalog/

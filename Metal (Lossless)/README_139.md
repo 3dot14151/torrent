@@ -1,3 +1,90 @@
+###  Публикация: 1562533   (508155) от 10.07.2022
+
+HolyRoller - Swimming Witches (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Atheist Prayer (00:03:28)
+02 - Stumbling Towards Death (00:05:14)
+03 - Earthdweller (00:03:25)
+04 - Last Embrace (00:04:49)(   Читать дальше...   )Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42A6CA07B720A51305661575CA02BF2ED23D174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562507   (508153) от 10.07.2022
+
+Undertow - Bipolar (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Gothic, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When Tears Became Scars (00:08:28)
+02 - On Fire (00:04:17)
+03 - Life Kills (00:06:02)
+04 - Call of the Sin (00:04:59)(   Читать дальше...   )Жанр: Groove, Gothic, Doom MetalПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7CDCA355E9FACD0415CDA13CF8D67D48F55BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562576   (508151) от 10.07.2022
+
+Wiegedood - There's Always Blood At The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - FN SCAR 16 (00:04:07)
+02 - And in Old Salamano's Room, The Dog Whimpered Softly (00:04:32)
+03 - Noblesse Oblige Richesse Oblige (00:05:06)
+04 - Until It Is Not (00:05:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9452CE89C331600943A550AACFBC000F9E6B216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562554   (508145) от 10.07.2022
 
 Whispering Tales - A Matter of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -6,7 +93,7 @@ Whispering Tales - A Matter of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508145.jpg" />
+  <img src="Z:/picture/008/save_picture_508145.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507802.jpg" />
+  <img src="Z:/picture/008/save_picture_507802.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Bokassa - Crimson Rider (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507761.jpg" />
+  <img src="Z:/picture/008/save_picture_507761.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Korpiklaani - Manala (Deluxe Edition) (2012) [FLAC|Lossless]<Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507468.jpg" />
+  <img src="Z:/picture/008/save_picture_507468.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Dissenter - Contamination (2003) [FLAC|image +.cue]<Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507329.jpg" />
+  <img src="Z:/picture/008/save_picture_507329.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Elnordia - Insight (2007) [FLAC|image +.cue]<Symphonic Doom Metal / Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507327.jpg" />
+  <img src="Z:/picture/008/save_picture_507327.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Scaphis - Dissected & Fermented (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507326.jpg" />
+  <img src="Z:/picture/008/save_picture_507326.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Wilt - Ruin (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507323.jpg" />
+  <img src="Z:/picture/008/save_picture_507323.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ A Fitting Revenge - Omnipresence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507322.jpg" />
+  <img src="Z:/picture/008/save_picture_507322.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Epidemic - The Truth Of What Will Be (1989) [APE|image +.cue]<Death Metal / Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507259.jpg" />
+  <img src="Z:/picture/008/save_picture_507259.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Atrophia Red Sun - Twisted Logic (2003) [FLAC|image +.cue]<Technical Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507249.jpg" />
+  <img src="Z:/picture/008/save_picture_507249.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Wilt - Moving Monoliths (2015) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507239.jpg" />
+  <img src="Z:/picture/008/save_picture_507239.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Afterimage - II: Beyond Horizons Infinite (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507235.jpg" />
+  <img src="Z:/picture/008/save_picture_507235.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Am Himmel - As Eternal As The Starless Kingdom Of Sorrow (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507234.jpg" />
+  <img src="Z:/picture/008/save_picture_507234.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Hailmary - Disturbing The Peace (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507228.jpg" />
+  <img src="Z:/picture/008/save_picture_507228.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Edguy - Mandrake (2001) AFM Records, 2022, Anniversary Edition, Remastered [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507134.jpg" />
+  <img src="Z:/picture/008/save_picture_507134.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Black Sabbath - The Rules Of Hell (2008) 5xCD [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507123.jpg" />
+  <img src="Z:/picture/008/save_picture_507123.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Megadeth - Greatest Hits: Back To The Start (2005) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506953.jpg" />
+  <img src="Z:/picture/008/save_picture_506953.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Weedsnake - Cannabinoide (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506921.jpg" />
+  <img src="Z:/picture/008/save_picture_506921.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ KMFDM - Amnesia (2012) EP [FLAC|Lossless]<Industrial Metal, Industrial Dance>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506671.jpg" />
+  <img src="Z:/picture/008/save_picture_506671.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Andro Coulton - Dragonhead (2006) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506328.jpg" />
+  <img src="Z:/picture/008/save_picture_506328.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Besatt - Supreme And True At Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506323.jpg" />
+  <img src="Z:/picture/008/save_picture_506323.jpg" />
 </div>
 
 
@@ -650,7 +737,7 @@ Brutality - Sempiternity (2022) Compilation, Emanzipation Productions [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506318.jpg" />
+  <img src="Z:/picture/008/save_picture_506318.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Brutality - Sempiternity (2022) Compilation, Emanzipation Productions [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9037ED40905378B1FD73B610187A0FD46AF74A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563077   (506316) от 12.07.2022
-
-Idol Throne - The Sibylline Age (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tale Untold
-02. Unholy Warrior
-03. The Labyrinth
-04. Sacred Fire(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7D6EEE57875409C9FAA833AD236982D84C59A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563069   (506311) от 12.07.2022
-
-Vanquisher - An Age Undreamed Of (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nemedian Chronicle
-02. The Pride Of Aquilonia
-03. Storming Venarium
-04. Ode To the Slain(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E3D7C232167BE2299BA469A073268715C9CDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933372   (506175) от 01.09.2015
-
-Fear Factory - Genexus (2015) [FLAC|image+.cue]<Industrial Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506175.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:28] 01. Autonomous Combat System
-[04:47] 02. Anodized
-[04:19] 03. Dielectric
-[03:12] 04. Soul Hacker(   Читать дальше...   )Жанр: Industrial Groove MetalПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADAA3900922589CB676D3D0729E5B9E3F1F70A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

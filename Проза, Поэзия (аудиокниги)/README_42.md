@@ -1,3 +1,29 @@
+###  Публикация: 1029225   (682594) от 26.06.2016
+
+Александр Мелихов | Любовь к отеческим гробам (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_682594.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Любовь к отеческим гробам" - это роман о людях, родных и неродных одновременно, сразу обыкновенных и страшных. И про иллюзии этих людей, радужные мыльные пузыри, на которые люди любуются вместо того, чтобы смотреть себе под ноги. В этом очень серьезном романе много смешного. Юмор здесь проходит весь путь от улыбки до сарказма, лишний раз подчеркивая, что (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0CDFCDC0E2D7936E203376185A688EB42ACF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029228   (682557) от 26.06.2016
 
 Полина Клюкина | Дерись или беги (2015) [MP3]
@@ -6,7 +32,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682557.jpg" />
+  <img src="Z:/picture/008/save_picture_682557.jpg" />
 </div>
 
 
@@ -24,6 +50,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335564   (682547) от 12.05.2011
+
+Евгений Гришковец | Дредноуты [2006] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_682547.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дредноуты» — это аудиоспектакль о самых больших военных кораблях, о событиях Первой мировой, о грандиозной Ютландской битве. Евгений Гришковец рассказывает историю битвы, как мальчик излагает друзьям увлекательную сказку о больших кораблях и морских боях. Гришковец дробит большую историю на крошечные осколки человеческих судеб. Гришковец соединяет в спектакле короткие эпизоды сражений. Причем только те из них, в которых запечатлелась история людского благородства.Жанр: История / Аудиоспектакль
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500DEACF278B37C0FEB4081D9EFFBA01B0E04801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535748   (682504) от 08.03.2022
 
 Дмитрий Сергеев | Запасной полк (2014) [MP3, Владимир Сушков]
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682504.jpg" />
+  <img src="Z:/picture/008/save_picture_682504.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682495.jpg" />
+  <img src="Z:/picture/008/save_picture_682495.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682344.jpg" />
+  <img src="Z:/picture/008/save_picture_682344.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682205.jpg" />
+  <img src="Z:/picture/008/save_picture_682205.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681194.jpg" />
+  <img src="Z:/picture/008/save_picture_681194.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681193.jpg" />
+  <img src="Z:/picture/008/save_picture_681193.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681096.jpg" />
+  <img src="Z:/picture/008/save_picture_681096.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681075.jpg" />
+  <img src="Z:/picture/008/save_picture_681075.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680937.jpg" />
+  <img src="Z:/picture/008/save_picture_680937.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678316.jpg" />
+  <img src="Z:/picture/008/save_picture_678316.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677154.jpg" />
+  <img src="Z:/picture/008/save_picture_677154.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677143.jpg" />
+  <img src="Z:/picture/008/save_picture_677143.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676781.jpg" />
+  <img src="Z:/picture/008/save_picture_676781.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676692.jpg" />
+  <img src="Z:/picture/008/save_picture_676692.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676680.jpg" />
+  <img src="Z:/picture/008/save_picture_676680.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676675.jpg" />
+  <img src="Z:/picture/008/save_picture_676675.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676671.jpg" />
+  <img src="Z:/picture/008/save_picture_676671.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676596.jpg" />
+  <img src="Z:/picture/008/save_picture_676596.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676594.jpg" />
+  <img src="Z:/picture/008/save_picture_676594.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676593.jpg" />
+  <img src="Z:/picture/008/save_picture_676593.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676588.jpg" />
+  <img src="Z:/picture/008/save_picture_676588.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676585.jpg" />
+  <img src="Z:/picture/008/save_picture_676585.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676328.jpg" />
+  <img src="Z:/picture/008/save_picture_676328.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:615186D0D75F47BA64B32761BA0D3FA6425573FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289228   (676311) от 21.03.2019
-
-Глеб Бобров | Снайпер в Афгане. Порванные души (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676311.jpg" />
-</div>
-
-
-###  Подробнее
-
-«У советского солдата, помимо его основной специальности, есть еще несколько внештатных – так называемая „взаимозаменяемость“. Любой старослужащий в случае необходимости может принять на себя командование отделением или даже взводом, работать из любого вида стрелкового оружия (в том числе и орудий БМП), провести несложные реанимационные мероприятия, снять простую (   Читать дальше...   )Жанр: Военное дело, спецслужбыПродолжительность: 08:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06606FCE75BC3E02464CB4B95F9E7B708A46718A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292931   (675948) от 21.03.2019
-
-Глеб Бобров | Порванные души (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ из книги Глеба Боброва "Солдатская сага".
-Книга Глеба Боброва написана с позиции солдатской правды, продолжая традиции "окопного реализма" Эриха-Марии Ремарка и Эрнеста Хемингуэя, Вячеслава Кондратьева и Василя Быкова. Правда солдата — это усталость тела и души, это грязь и пот, стертые ноги и пересохшие от жажды губы. Это первоэлемент (   Читать дальше...   )Жанр: Военная прозаПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B5ECE291FB245DA3078B30DA50314224FC6612
 ```
 
 https://mybot314.ru/tekegram_catalog/

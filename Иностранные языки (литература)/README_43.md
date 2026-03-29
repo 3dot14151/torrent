@@ -1,3 +1,161 @@
+###  Публикация: 1731141   (52805) от 19.06.2024
+
+Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52805.jpg" />
+</div>
+
+
+###  Подробнее
+
+A thematic organization of more than 10,000 fully illustrated terms labeled in both Polish and English, and comprehensive two-way indexes put the perfect translation at your fingertips. Additional feature panels include abstract nouns and verbs, as well as useful phrases that you can use in conversation once you are feeling more confident. Polish-English Bilingual (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731176   (52803) от 19.06.2024
+
+Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52803.jpg" />
+</div>
+
+
+###  Подробнее
+
+A photographic guide to the key words and phrases in Thai. This attractive pocket-sized book is a perfect travel companion and provides a practical guide to Thailand and Thai language and culture. Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Thai index help you to find words (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731194   (52801) от 19.06.2024
+
+Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731345   (52708) от 20.06.2024
+
+Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
+Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731300   (52688) от 20.06.2024
+
+Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English, French, German, Spanish, Italian (2003) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52688.jpg" />
+</div>
+
+
+###  Подробнее
+
+The quick and intuitive way to learn and recall everyday vocabulary in English, French, German, Spanish, and Italian, this is the only visual dictionary to feature a complete range of objects and scenes from everyday life - showing you what other language dictionaries can only tell you. Clear design and superb illustrations place over 6,000 words ¡n context (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: New York: DK PublishingФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2256CE3DD8C378169A1172AC620FBD342EEB70E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731333   (52664) от 20.06.2024
+
+Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52664.jpg" />
+</div>
+
+
+###  Подробнее
+
+The edition to DK's Visual Bilingual Dictionary series, the Japanese English Bilingual Visual Dictionary, will help the international visitor whether for business or recreational absorb essential vocabulary in Japanese.
+Using full color photographs and artworks to display and label all the elements of everyday life from the home and office to sports, music, and nature (   Читать дальше...   )Жанр: учебный словарьЯзык: английскийИздательство: New York: Dorling Kindersley LtdФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21A40C5E89C68E501C89457AE5D5CE78718EF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731613   (52579) от 21.06.2024
 
 Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
@@ -6,7 +164,7 @@ Ed Swick | Easy German Step-by-Step. Second edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52579.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Rhona Snelling | Speaking: A2 Pre-intermediate (2013) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52384.jpg" />
 </div>
 
 
@@ -61,7 +219,7 @@ Steven D. Jamar, Lateef Mtima (еditors) | The Cambridge Handbook of Intellectua
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52262.jpg" />
 </div>
 
 
@@ -87,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50593.jpg" />
 </div>
 
 
@@ -113,7 +271,7 @@ D. Thompson, P. Falla et al (еditors) | The Oxford Russian Dictionary. Third ed
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48287.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ Fyodor Dostoevsky | Dostoevsky: Letters and Reminiscences (1923) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48071.jpg" />
 </div>
 
 
@@ -167,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47243.jpg" />
 </div>
 
 
@@ -194,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45294.jpg" />
 </div>
 
 
@@ -221,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43412.jpg" />
 </div>
 
 
@@ -247,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42785.jpg" />
 </div>
 
 
@@ -275,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40346.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36948.jpg" />
 </div>
 
 
@@ -328,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35294.jpg" />
 </div>
 
 
@@ -354,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33403.jpg" />
 </div>
 
 
@@ -382,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31626.jpg" />
 </div>
 
 
@@ -408,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31401.jpg" />
 </div>
 
 
@@ -434,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29735.jpg" />
 </div>
 
 
@@ -460,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25271.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24609.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24462.jpg" />
 </div>
 
 
@@ -523,165 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0B328BED42DFD4910C54C9131D9D540EE3BC7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785593   (24456) от 16.03.2025
-
-Я.М. Вовшин, И.И. Панова | Английский с улыбкой. The Fun of Handling Tricky Things in English (2001) [PDF] [RU, EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит увлекательный юмористический языковой материал для правильного восприятия сложных и неоднозначных построений английской речи. Пособие в занимательной форме развивает навыки творческого мышления, обеспечивает самоконтроль при решении лингвистических задач и тестов. Построенное по принципу интеллектуальной игры, пособие окажет неоценимую помощь всем, (   Читать дальше...   )Жанр: Справочное пособие. Английский язык. Англоязычный юморЯзык: АнглийскийИздательство: ПарадоксФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DC5B43B410E5087803EFB8C3C79D275FBABBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785768   (24380) от 17.03.2025
-
-А.Д. Дешевицына | Говорить по-китайски без акцента: учебное пособие по фонетике китайского языка (2022) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ключ к формированию свободной речи на китайском языке - это изучение естественных для носителей языка процессов: артикуляции, паузации, ударения и интонации. Эта книга станет вашим проводником в мир китайской фонетики и фонологии, поможет научиться думать и говорить по-китайски. Материал пособия изложен простым языком и рассчитан на постепенное изучение по мере прохождения (   Читать дальше...   )Жанр: Учебники и учебные пособия. Китайский языкИздательство: Издательский дом ВКНФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19056C0B8457D934EE184393F11FDCED93F69C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785757   (24354) от 17.03.2025
-
-В.А. Хомяков | Введение в изучение слэнга - основного компонента английского языка (1971) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет первую в отечественной англистике попытку дать подробный анализ компонентов просторечия как нормы второго уровня. Автор излагает историю вопроса и рассматривает в плане социолингвистики коллоквиализмы, сленг, кэнт, жаргоны и вульгаризмы. Автор ставил две основные задачи. Во-первых, дать читателю необходимые сведения из истории вопроса; (   Читать дальше...   )Жанр: МонографияИздательство: Вологда: Областная типографияФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44D2D796A7740CA15FBC862BD7C6A154DEA525DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786957   (23769) от 23.03.2025
-
-Альберт Шубаев | Английский в деталях. Изучаем тонкости языка с @VeryEnglish! (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучаете английский язык? Не упустите шанс познакомиться с книгой лингвиста Альберта Шубаева, оформленной в стиле газеты!
-
-Внутри вас ждет:
-1. 35 глав на самые актуальные темы: от тонкостей грамматики до полезных лайфхаков.(   Читать дальше...   )Жанр: Изучение языковИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5428A2062A7C35ED9B5579B8486A1CFB2FE29997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787529   (23457) от 26.03.2025
-
-Мария Столь | Топики по английскому языку. ОГЭ на "отлично"! (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23457.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Топики по английскому языку. ОГЭ на "отлично!"" — это универсальное пособие для подготовки к ОГЭ. В книге представлены 18 тщательно отобранных тем уровня B1–B2, соответствующих кодификатору и структуре экзамена. Каждая тема сопровождается полезной лексикой, примерами и заданиями для тренировки навыков чтения, устной речи, грамматики и письма. (   Читать дальше...   )Жанр: Изучение иностранных языковИздательство: БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D7C6EDD229358D4D546B4FBDA0AB343F7055AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787517   (23454) от 26.03.2025
-
-А.А. Ковалев, Г.Ш. Шарбатов | Учебник арабского языка (2004) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переработанное и расширенное издание "Учебника арабского языка" (1-е изд.— 1960г.) рассчитано на двухгодичный курс обучения в вузах, а также может служить самоучителем. В настоящем издании устаревшие материалы заменены современными, тематически актуальными учебными текстами и оригинальными литературными произведениями; представлена современная общественно-политическая, (   Читать дальше...   )Жанр: Арабский языкИздательство: "Восточная литература" РАНФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8902CACA523047E5FB39371C2B58C3CDABDE506
 ```
 
 https://mybot314.ru/tekegram_catalog/

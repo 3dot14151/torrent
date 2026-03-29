@@ -1,3 +1,108 @@
+###  Публикация: 908754   (629324) от 16.06.2015
+
+BBC. Человеческая Вселенная / Human Universe (2014) BDRip [H.264/720p-LQ] (Сезон 1, серия 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор Брайан Кокс задаст самые важные вопросы какие только мы можем задать. Одни ли мы? Почему мы здесь? Какое наше будущее? Присоединитесь к нему в потрясающем торжестве жизни человека, как он исследует свои истоки, наше место и нашу судьбу во Вселенной.Жанр: Документальный, научно-познавательныйАктеры: Брайан КоксПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: АнглийскиеПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4571EED6FF1475E5C975F71143E8E38AAE4F21E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142816   (629146) от 21.06.2017
+
+Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] (сезон 2, эпизоды 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_629146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон много веков был опасным городом. Сюда, будто магнитом, притягивало убийц. О Джеке-потрошителе писали во всех газетах но он был далеко не единственным. Убийство повсюду. Страх смерти обуял весь город. В этой программе мы узнаем о самых известных, самых загадочных лондонских убийствах. Интриги и страсть, коварные убийства и новейшие достижения технологий, рассказы (   Читать дальше...   )Производство: Великобритания, 3DD Production in association with UKTVЖанр: Документальный, криминалистика, историяРежиссер: Дэниел КончерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93CC74CB72EC71141B0BA99F56E604C5E52E44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034328   (628433) от 16.07.2016
+
+Discovery: Необъяснимое. Специальные материалы / The Unexplained Files (2013, 2014) SATRip (7 серий)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа посвящена таинственным историям, до сегодняшнего дня не имевшим правдоподобного объяснения. Авторы этого проекта исследуют удивительные факты, которым мистики спешат придать потусторонние черты и над которыми посмеиваются скептики. Создатели программы придерживаются золотой середины. Конечно, они не идут на поводу у мистиков, но и не спешат утверждать: (   Читать дальше...   )Телекомпания: Discovery Communications LLCЖанр: Документальный, научно-познавательныйРежиссер: Тим Конрад, Нат Шарман.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 7 x ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0EEB36C59A7AEA9B7FD30A1228429982D7A32C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672346   (628420) от 16.07.2016
+
+NG. Тайны древности. Секретный код соборов / Ancient Secrets. Catherdrals Decoded (2012) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_628420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канал National Geographic исследует древние секреты самых известных в мире необычных и загадочных построек, волнующих умы легенд, отыскивает исторические свидетельства и пытается объяснить загадки с помощью новых теорий и достижений современной науки.
+Исследования экспертов помогут нам отделить правду от мифов, а также нарисовать картины древней жизни, которые создали (   Читать дальше...   )Жанр: Документальный, научно-познавательный, историяПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:44:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 702870   (628404) от 16.07.2016
 
 NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
@@ -6,7 +111,7 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628404.jpg" />
+  <img src="Z:/picture/008/save_picture_628404.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ History Channel. Кто на самом деле открыл Америку / W
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628282.jpg" />
+  <img src="Z:/picture/008/save_picture_628282.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628272.jpg" />
+  <img src="Z:/picture/008/save_picture_628272.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628186.jpg" />
+  <img src="Z:/picture/008/save_picture_628186.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Animal Planet. Сурикаты / The Meerkats (2008) BDRip [H.264/720p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_628185.jpg" />
+  <img src="Z:/picture/005/save_picture_628185.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ NGW: Крупные рыбы Зэба: нашествие акул-молото�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628077.jpg" />
+  <img src="Z:/picture/008/save_picture_628077.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628065.jpg" />
+  <img src="Z:/picture/008/save_picture_628065.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Viasat History: Запретная история / Forbidden History (2013 - 20
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628041.jpg" />
+  <img src="Z:/picture/008/save_picture_628041.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627939.jpg" />
+  <img src="Z:/picture/008/save_picture_627939.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627929.jpg" />
+  <img src="Z:/picture/008/save_picture_627929.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627770.jpg" />
+  <img src="Z:/picture/008/save_picture_627770.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627677.jpg" />
+  <img src="Z:/picture/008/save_picture_627677.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627462.jpg" />
+  <img src="Z:/picture/008/save_picture_627462.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626915.jpg" />
+  <img src="Z:/picture/008/save_picture_626915.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626591.jpg" />
+  <img src="Z:/picture/008/save_picture_626591.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626330.jpg" />
+  <img src="Z:/picture/008/save_picture_626330.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626175.jpg" />
+  <img src="Z:/picture/008/save_picture_626175.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626165.jpg" />
+  <img src="Z:/picture/008/save_picture_626165.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625808.jpg" />
+  <img src="Z:/picture/008/save_picture_625808.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625423.jpg" />
+  <img src="Z:/picture/008/save_picture_625423.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625365.jpg" />
+  <img src="Z:/picture/008/save_picture_625365.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625294.jpg" />
+  <img src="Z:/picture/005/save_picture_625294.jpg" />
 </div>
 
 
@@ -569,110 +674,6 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521870   (624679) от 12.07.2012
-
-BBC: Полет Земли. (Земля с птичьего полёта). Северная Америка [часть 1] / EarthFlight. North America (2011) HDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624679.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Земля с птичьего полёта" - Документальный сериал о том, какой предстаёт нашему взору Земля с высоты птичьего полёта, глазами самих птиц, в грандиозном природном калейдоскопе. Потрясающие виды пяти континентов, поданные в новом ракурсе в этом шести серийном фильме, благодаря которому можно присоединиться к стае лапландских гусей, журавлей, фламинго, пеликанов, орлов и прочей птичьей братии. Для создания фильма были использованы последние технологии воздушных съёмок, чтобы мы смогли в мельчайших деталях увидеть всю мощь природы. Взору зрителя откроется ракурс видимый лишь глазу летящего высоко в небе журавля, который проносится над каналами Венеции или пережить плавное скольжение вместе с белоголовым орланом на фоне Великого Каньона. Фильм «Земля с птичьего полёта» откроет перед вами секреты того что таит в себе голубизна неба, показывая мир в совершенно новой и захватывающей перспективе. Комментирует фильм Давид Теннант.Жанр: ДокументальныйПеревод: Юрий Онищенко (Logos71)Язык субтитров: русскиеПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319EE249EC5E565C29FDFA6A1BF37A947E043B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521697   (624611) от 12.07.2012
-
-NG: Суперсооружения: Мегазаводы. MV Agusta / MegaStructures. Megafactories: MV Agusta (2011) HDTVRip
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624611.jpg" />
-</div>
-
-
-###  Подробнее
-
-MV Agusta – производитель мотоциклов, расположенный в городе Касцина Коста близ Милана, Италия. Образована 12 февраля 1945 года как ответвление авиационной компании Agusta, учрежденной в 1923 году графом Джованни Агуста (Giovanni Agusta). Основатель авиастроительной фирмы умер в 1927 году, оставив её на попечение своих вдовы Гуссепины и сыновей – Доменико, Винченцо, Марио и Коррадо. Винченцо и Доменико Агуста (Vincenzo & Domenico Agusta) в конце Второй мировой войны с целью сохранения рабочих мест в своей компании учредили MV Agusta. Братья учли, что в трудное послевоенное время на рынке будут востребованы дешевые и действенные транспортные средства. Литеры MV были взяты как начальные буквы слов Meccanica Verghera («Механика Вергера», где Verghera – город, в котором было начато производство мотоциклов). Компания начала выпускать мотоциклы стиля Café racer, преимущественно с двигателями рабочим объемом 125 – 150 кубических сантиметров. Когда же в 1960-х годах продажи такой техники стали падать, фирма начала (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84337DD354FA4F45F7BABEF409A1D6F909BE3A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035642   (624574) от 18.07.2016
-
-Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/1080i-LQ] (Сезон 1 Серии 1-4 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверка экспертов по ядовитым змеям ловит грозных созданий в болотах Флориды и в пустынях Аризоны, рискуя своей жизнью. Кстати говоря, профессия охотника за ядом входит в десятку самых опасных в мире, и это неудивительно, ведь стоит чуть-чуть зазеваться, и можно попрощаться с жизнью. К тому же противника нужно знать в лицо и уметь безошибочно отличать ядовитую рептилию (   Читать дальше...   )Телекомпания: США / Authentic Entertainment, Discovery ChannelЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 4 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6830BA4F53F389971528A816788D83DAC9BEDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229625   (624435) от 07.06.2018
-
-NGW: Последний рай орангутанов / The Last Orangutan Eden (2015) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Морган посетит удалённый заболоченный лес, в котором живут орангутаны, а также питомник для молодняка приматов.Производство: США, Rubin Tarrant Productions, National Geographic StudiosЖанр: Документальный, фауна, защита животныхПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED853BB31592F4DE953A9B60AD5D068650AE50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

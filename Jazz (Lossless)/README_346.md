@@ -1,3 +1,119 @@
+###  Публикация: 1778876   (70765) от 10.02.2025
+
+Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Around [4:55]
+02. Pusherman/Superfly [7:16]
+03. Wichita Lineman [6:04]
+04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778881   (70764) от 10.02.2025
+
+Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak with a Single Voice [17:42]
+02. O's Time [11:06]
+03. Goodbye [13:56]
+04. Scufflin' [14:39]Жанр: Post-BopПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3BC85AB0146B23719DA585C5528668ECF886EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778873   (70760) от 10.02.2025
+
+John Bunch Trio - Love Songs (1997) 2001, LRC [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Else Has Taken My Place [4:06]
+02. I'll Get By [3:13]
+03. Do Nothin' Till You Hear From Me [4:40]
+04. We'll Meet Again [3:54](   Читать дальше...   )Жанр: Mainstream jazz, Piano JazzПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DA3B6F5FB8696CA5971B4E53D2A9A2A616BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779073   (70758) от 11.02.2025
+
+Dave Stryker Organ Trio - One For Reedus (2008) 2010, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Imagination [6:33]
+02. Burn for Ern [7:45]
+03. One for Reedus [7:12]
+04. Alone Again (Naturally) [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680A8CAD26A719DD43E106D939CAD91CFB082B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779071   (70757) от 11.02.2025
 
 Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
@@ -6,7 +122,7 @@ Sivuca & Guitars Unlimited - Let's Vamos (1987) Sonet Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70757.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ LAHR.(ex-De/Phazz) – Lyrical Amusement (Limited Edition) (2002) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70755.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Eliane Elias - Time And Again (2024) Candid [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70731.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Eliane Elias - Quietude (2022) Candid [FLAC|Lossless|tracks + .cue] <Vocal Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70714.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Carmen McRae - Milestones Of A Jazz Legend (1954 - 1961) 10CD, 2019, The Intense
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70675.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70662.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70625.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70622.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Phil Woods Quintet - American Songbook II (2007) Kind of Blue Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70582.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bill Evans - The East End (2011) 2019, Jazzline [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70580.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dinah Washington - Milestones Of A Legend (1956 - 1962) 10CD, 2017, The Intense 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70579.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Phil Woods Quintet - Summer Afternoon Jazz (1977) 1999, Hindsight Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70528.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Joe Pass - Virtuoso #4 (1973) 2CD, 1992, Pablo Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70527.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Balduin - Electro Swing Instrumentals 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70511.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Phil Woods Quintet - Mile High Jazz: Live In Denver (1996) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70508.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Joe Pass - Live At Elder Hall, Adelaide (1990) 1995, ABC [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70492.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Art Farmer - The Best Of Art Farmer (1990) Epic Associated [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70491.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Joe Pass - Virtuoso #3 (1977) 1992, Universal [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70490.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Wolfgang Haffner - Silent World (2023) ACT Music [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70488.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Tape Five - Best of ... Swing Edition (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70460.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70456.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70454.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780526   (70439) от 18.02.2025
-
-VA - Bravo Groove! (New Contemporary Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
-02.  Lo Greco Bros - Crooked Hip (5:33)
-03.  Avex - Ain't Talking Sugo (2:29)
-04.  Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1EE2EFC25781B6010F8AC8C950FE79C321749C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780518   (70433) от 18.02.2025
-
-Stan Getz - Stan Getz: City Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Midnight Samba (2:10)
-02.  In The Night (Live In Kildevælds Church, Copenhagen, Denmark / 1960) (5:28)
-03.  Soul Dance (4:39)
-04.  The Night Has A Thousand Eyes (4:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C236630860D623588EEDAD907DC4B677B8964E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780533   (70429) от 18.02.2025
-
-VA - Jazz Collection Tracks For Stress Relief (Volume 2) (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulstance - Around Me (4:35)
-02.  Michele Staino & Renato Cantini - Cloud (3:21)
-03.  Lo Greco Bros & Flow Bop - Blue Rainbow (5:11)
-04.  Modulo5 - Day Off (8.00 am) (2:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5A0637D0B2CE18F8DC36B036DF1AA4794D0408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780528   (70426) от 18.02.2025
-
-VA - Candlelight Rendezvous Romantic Smooth Jazz Instrumentals (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kool&Klean - Graceful Moves (4:00)
-02.  Chillaxing Jazz Kollektion - Drops in the Ocean (3:44)
-03.  Konstantin Klashtorni - Humble and Kind (4:07)
-04.  eJazz Artistry - Letters from Home (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501263598294CE8FE9E512299E30AE2C1AFE8778
 ```
 
 https://mybot314.ru/tekegram_catalog/

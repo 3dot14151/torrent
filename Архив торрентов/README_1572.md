@@ -1,3 +1,84 @@
+###  Публикация: 1027871   (694939) от 20.06.2016
+
+Футбол. Чемпионат Европы 2016. Обзор матчей 2 Тура (15.06.2016-18.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы 2016. Обзор матчей. 2 Тур
+Нарезка голов, опасных моментов, предупреждений и удалений матчей 2 тура Евро-2016 c комментарием.Жанр: СпортЯзык озвучки: русскийПродолжительность: ~ 00:25:00 каждый обзор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D47DEE7D0A538B69330193B8F71CDAF5A8ECED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027851   (694938) от 20.06.2016
+
+Email Archiver Enterprise 3.3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архивирование электронной почты может быть болезненным опытом. Упростите свою жизнь с Email Archiver
+Email Archiver - с помощью этого приложения вы можете архивировать и хранить всю вашу почту или отдельные письма в формате PDF. Удобство использования такого подхода неоспоримо, т.к. для того, чтобы прочитать почтовые сообщения, не требуется собственно Mail.app.
+ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2016Разработчик: Palmer Andersen Design & Development Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21DD5F81DAADD89304BBA8A0749A7CDE5AC2426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221474   (694933) от 24.04.2018
+
+Comfy Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите цифровые изображения программой Comfy Photo Recovery. Программа восстанавливает не только случайно удаленные фото файлы, но и изображения, утерянные после форматирования жесткого диска, карты памяти или USB флешки. Функция «Поиска разделов», реализованная в программе, позволяет найти и продолжить восстановление цифровых изображений с раздела, который (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBCA0158C52AEDF913729BD4E7792E5E3361245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221374   (694925) от 24.04.2018
 
 На пределе / Aus dem Nichts (2017) WEB-DL [H.264/720p-LQ] [MVO]
@@ -6,7 +87,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694925.jpg" />
+  <img src="Z:/picture/008/save_picture_694925.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694924.jpg" />
+  <img src="Z:/picture/008/save_picture_694924.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694919.jpg" />
+  <img src="Z:/picture/008/save_picture_694919.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Telegram Desktop 1.2.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694900.jpg" />
+  <img src="Z:/picture/008/save_picture_694900.jpg" />
 </div>
 
 
@@ -102,6 +183,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211783   (694896) от 20.06.2010
+
+Отряд Кочубея (Вторые) (2009) SATRip (сезон 1, серии 1-8 из 8)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1941 года. Немецкие войска в трехстах километрах от Москвы. На одном из маршрутов следования первых лиц государства сотрудники Четвертого управления НКВД обезвреживают группу немецких диверсантов, целью которой являлось физическое устранение Сталина. В момент задержания группы, диверсанты применяют неизвестное оружие «панцеркнакке», по силе действия схожее (   Читать дальше...   )Производство: РоссияЖанр: Военный, Боевик, ДрамаРежиссер: Александр ДаругаАктеры: Алексей Воробьев, Анатолий Пашинин, Владимир Стеклов, Игорь Лагутин, Дмитрий Муляр, Юрий Ваксман, Кирилл Гребенщиков, Владимир Зайцев, Александр Робак, Сергей Удовик, Михаил Асанкин и др.Продолжительность: 8 серий по 45 мин
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674236   (694892) от 29.06.2013
 
 Rock Revolution  [Wii] [PAL] [Multi 5] (2009)
@@ -110,7 +217,7 @@ Rock Revolution  [Wii] [PAL] [Multi 5] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694892.jpg" />
+  <img src="Z:/picture/008/save_picture_694892.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ Comfy Partition Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694888.jpg" />
+  <img src="Z:/picture/008/save_picture_694888.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694885.jpg" />
+  <img src="Z:/picture/008/save_picture_694885.jpg" />
 </div>
 
 
@@ -190,7 +297,7 @@ SamDrivers 17.5  LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694867.jpg" />
+  <img src="Z:/picture/008/save_picture_694867.jpg" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694866.jpg" />
+  <img src="Z:/picture/008/save_picture_694866.jpg" />
 </div>
 
 
@@ -242,7 +349,7 @@ VLC Media Player 2.2.5.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694864.jpg" />
+  <img src="Z:/picture/008/save_picture_694864.jpg" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694863.jpg" />
+  <img src="Z:/picture/008/save_picture_694863.jpg" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694862.jpg" />
+  <img src="Z:/picture/008/save_picture_694862.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ VLC Media Player 2.2.5.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694859.jpg" />
+  <img src="Z:/picture/008/save_picture_694859.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ Dead Obies - Collation Vol. 2 - Limon Verde: La Experiencia (2014) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694843.jpg" />
+  <img src="Z:/picture/008/save_picture_694843.jpg" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694840.jpg" />
+  <img src="Z:/picture/008/save_picture_694840.jpg" />
 </div>
 
 
@@ -396,6 +503,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027731   (694838) от 20.06.2016
+
+Dead Obies - Collation Vol.1 (2012) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, Conscious, Gangsta>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piève Maîtresse (4:15)
+02. D'lautre Bord (1:57)
+03. Théâtre 1 (0:22)
+04. $ud $ale (3:32)(   Читать дальше...   )Производство: Not On Label (Dead Obies Self-released)Жанр: Hip Hop, Conscious, Gangsta, ElectroПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92156326A01EFCF3304091B1B6257EAC65C82ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027905   (694835) от 20.06.2016
 
 Alternate File Shredder 1.900 [Multi/Ru]
@@ -404,7 +540,7 @@ Alternate File Shredder 1.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694835.jpg" />
+  <img src="Z:/picture/008/save_picture_694835.jpg" />
 </div>
 
 
@@ -430,7 +566,7 @@ Calendarique 1.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694830.jpg" />
+  <img src="Z:/picture/008/save_picture_694830.jpg" />
 </div>
 
 
@@ -457,7 +593,7 @@ VLC Media Player 3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694825.jpg" />
+  <img src="Z:/picture/008/save_picture_694825.jpg" />
 </div>
 
 
@@ -483,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694822.jpg" />
+  <img src="Z:/picture/008/save_picture_694822.jpg" />
 </div>
 
 
@@ -509,7 +645,7 @@ CCleaner 5.42.6495 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694819.jpg" />
+  <img src="Z:/picture/008/save_picture_694819.jpg" />
 </div>
 
 
@@ -535,7 +671,7 @@ ESET Internet Security 11.1.54.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694789.jpg" />
+  <img src="Z:/picture/008/save_picture_694789.jpg" />
 </div>
 
 
@@ -546,145 +682,6 @@ ESET Internet Security - комплексное антивирусное реш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7DA74F1576634C336CE783563D7E0FC96A3F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027769   (694707) от 20.06.2016
-
-VA - Swedish Electro vol 2 (2013) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machinista - The Blues And The Reds (04:13)
-02. Sad Sad Zoo - Follow My Heart (05:22)
-03. Art Fact - Separated Bodies (04:14)
-04. Vogon Poetry - Land Of Forever (03:46)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 02:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373480CCC72430D3F3486907BC3AADFAD93E9AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027751   (694705) от 20.06.2016
-
-Soft4Boost Easy Disc Burner 4.8.5.379 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая бесплатная утилита для записи файлов и папок с ПК на диски различных форматов: CD, DVD, Blu-Ray. Программа предельно проста в пользовании и не загружена лишними опциями - все только для того, чтобы записать данные на диск.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F3A65CE6E161434429D65B30FEBFE5EEBA6535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027748   (694698) от 20.06.2016
-
-Soft4Boost Any Uninstaller 6.9.9.545 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая, безопасная, простая и удобная утилита для удаления приложений, которые не могут быть удалены стандартными средствами Windows.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45AEF6156D59BE7CB27418BBE5FCFB60FDD0C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027777   (694694) от 20.06.2016
-
-VA - Swedish Electro vol 3 (2015) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncreated - I Never Told You To Stay (03:50)
-02. Optic - Rise (04:42)
-03. Erotic Elk - Surrender (04:40)
-04. Machinista - The Scare (Acoustic Version) (04:25)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 04:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B940EFE91C18FACBD3BC675DF0447C03898EFD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027764   (694693) от 20.06.2016
-
-VA - Swedish Electro vol 1 (2013) [MP3|320 кб/с] <Synthpop, EBM, Futurepop, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moist feat.Smith &Thell - Me And You (04:27)
-02. Optic - Devil & I (Control Mix) (04:37)
-03. Rezonance - Obscurity (05:43)
-04. Arachnophobias - Saudade (Swedish Electro Scene Remix) (08:31)(   Читать дальше...   )Жанр: Synthpop, EBM, Futurepop, ElectroПродолжительность: 02:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6072C14764977186915563691591A4E0E1F10C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

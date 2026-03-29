@@ -6,7 +6,7 @@ Dark Tales: Edgar Allan Poes Metzengerstein / Темные истории. Эд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276932.jpg" />
+  <img src="Z:/picture/008/save_picture_276932.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Grim Tales 10: The Heir / Мрачные истории 10. Наследник (
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276829.jpg" />
+  <img src="Z:/picture/008/save_picture_276829.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Secrets of Great Queens 2: Regicide / Тайны великих королев 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276413.jpg" />
+  <img src="Z:/picture/008/save_picture_276413.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274746.jpg" />
+  <img src="Z:/picture/008/save_picture_274746.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274598.jpg" />
+  <img src="Z:/picture/008/save_picture_274598.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274495.jpg" />
+  <img src="Z:/picture/008/save_picture_274495.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274067.jpg" />
+  <img src="Z:/picture/008/save_picture_274067.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273394.jpg" />
+  <img src="Z:/picture/008/save_picture_273394.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Phantasmat 5: Behind the Mask / Фантазмат 5: Под маской (2015)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273381.jpg" />
+  <img src="Z:/picture/008/save_picture_273381.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adam Wolfe: Blood of Eternity / Adam Wolfe: Кровь вечности (2016) [
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273167.jpg" />
+  <img src="Z:/picture/008/save_picture_273167.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Secret City 3: The Human Threat / Тайный город 3: Неотврати�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271438.jpg" />
+  <img src="Z:/picture/008/save_picture_271438.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270960.jpg" />
+  <img src="Z:/picture/008/save_picture_270960.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270448.jpg" />
+  <img src="Z:/picture/008/save_picture_270448.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Зол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270444.jpg" />
+  <img src="Z:/picture/008/save_picture_270444.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Redemption Cemetery 15: The Stolen Time (2019) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268837.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ghost Files 2: Memory of a Crime / Дело призрака 2: След пре�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268834.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Christmas Stories 6: A Little Prince /Рождественские истори�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268565.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Dark City 3: Vienna / Мрачный Город 3: Вена (2019) [Ru] (1.0) Un
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267979.jpg" />
+  <img src="Z:/picture/008/save_picture_267979.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Unseen Fears 3: Last Dance (2018) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267729.jpg" />
+  <img src="Z:/picture/008/save_picture_267729.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Dark City 2: Munich / Мрачный город 2: Мюнхен (2018) [Ru] (1.0
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267531.jpg" />
+  <img src="Z:/picture/008/save_picture_267531.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Royal Detective 6: The Last Charm / Королевский детектив 6: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266934.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Mystery Case Files 16: The Revenants Hunt / За семью печатями: Р
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266824.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Surface 12. Project Dawn / Внешние пределы 12: Проект "За�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266684.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Christmas Stories 7: Alice's Adventures (2018) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265723.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Iris.Fall (2018) [Ru/Multi] (1.0.00022) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265504.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Dead Reckoning 8: Lethal Knowledge / Точный расчет 8: Смертел
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265096.jpg" />
 </div>
 
 

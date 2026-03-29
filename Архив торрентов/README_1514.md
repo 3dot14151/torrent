@@ -6,7 +6,7 @@ Super MOV Converter  6.1.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708014.jpg" />
+  <img src="Z:/picture/008/save_picture_708014.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708013.jpg" />
+  <img src="Z:/picture/008/save_picture_708013.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton 360 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708002.jpg" />
+  <img src="Z:/picture/008/save_picture_708002.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707959.jpg" />
+  <img src="Z:/picture/008/save_picture_707959.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Outsiders - Our Prophecy (2015) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Full 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707950.jpg" />
+  <img src="Z:/picture/008/save_picture_707950.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ iTranslate 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707945.jpg" />
+  <img src="Z:/picture/008/save_picture_707945.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707944.jpg" />
+  <img src="Z:/picture/008/save_picture_707944.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VidCoder 2.30 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707943.jpg" />
+  <img src="Z:/picture/008/save_picture_707943.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ XYplorer 16.90.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707941.jpg" />
+  <img src="Z:/picture/008/save_picture_707941.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Glarysoft Malware Hunter PRO 1.11.0.23 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707936.jpg" />
+  <img src="Z:/picture/008/save_picture_707936.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Affinity Designer 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707935.jpg" />
+  <img src="Z:/picture/008/save_picture_707935.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sublime Text 3 (3163) Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707903.jpg" />
+  <img src="Z:/picture/008/save_picture_707903.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ AsceticSoft : BitmapCreator v.C Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707898.jpg" />
+  <img src="Z:/picture/008/save_picture_707898.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707882.jpg" />
+  <img src="Z:/picture/005/save_picture_707882.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707850.jpg" />
+  <img src="Z:/picture/008/save_picture_707850.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ ASAP Ferg - Always Strive and Prosper (2016) [MP3|320 кб/с] <Rap, Hip-hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707848.jpg" />
+  <img src="Z:/picture/008/save_picture_707848.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Affinity Photo 1.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707841.jpg" />
+  <img src="Z:/picture/008/save_picture_707841.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Beats of Rage Xtra 3.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707833.jpg" />
+  <img src="Z:/picture/008/save_picture_707833.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Drop - Color Picker 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707811.jpg" />
+  <img src="Z:/picture/008/save_picture_707811.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Middle 1.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707808.jpg" />
+  <img src="Z:/picture/008/save_picture_707808.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Permute 3 v3.5.2 (build 2290) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707807.jpg" />
+  <img src="Z:/picture/008/save_picture_707807.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Multitouch 1.18.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707805.jpg" />
+  <img src="Z:/picture/008/save_picture_707805.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Norton Internet Security 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707798.jpg" />
+  <img src="Z:/picture/008/save_picture_707798.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Reg Organizer 8.11 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707797.jpg" />
+  <img src="Z:/picture/008/save_picture_707797.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Factorio (2016) [Ru/Multi] (0.16.36) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707790.jpg" />
+  <img src="Z:/picture/008/save_picture_707790.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707788.jpg" />
+  <img src="Z:/picture/008/save_picture_707788.jpg" />
 </div>
 
 

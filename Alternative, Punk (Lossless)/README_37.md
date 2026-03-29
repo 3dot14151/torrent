@@ -1,3 +1,32 @@
+###  Публикация: 1569108   (455811) от 11.08.2022
+
+Yard Act - The Overload (2022) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455811.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - The Overload:
+01. The Overload (3:16)
+02. Dead Horse (3:39)
+03. Payday (2:54)(   Читать дальше...   )Жанр: Alternative Rock, Post-PunkПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00092B0B4BDE44E31EFC7A5B83AE9362772FA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568994   (455809) от 11.08.2022
 
 Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
@@ -6,7 +35,7 @@ Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455809.jpg" />
+  <img src="Z:/picture/008/save_picture_455809.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455375.jpg" />
+  <img src="Z:/picture/008/save_picture_455375.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Zoot Woman - Redesigned (2018) Anthology [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454942.jpg" />
+  <img src="Z:/picture/008/save_picture_454942.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Frank Zappa - Finer Moments (2012) 2CD [FLAC|Lossless|tracks + .cue] <Avantgarde
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454937.jpg" />
+  <img src="Z:/picture/008/save_picture_454937.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Jungle - For Ever (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454545.jpg" />
+  <img src="Z:/picture/008/save_picture_454545.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Desecration Conflict - Digital Dementia (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454021.jpg" />
+  <img src="Z:/picture/008/save_picture_454021.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Mindwake - B-52 (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metalcore, Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454019.jpg" />
+  <img src="Z:/picture/008/save_picture_454019.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaot
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453827.jpg" />
+  <img src="Z:/picture/008/save_picture_453827.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Pronoun - I'll Show You Stronger (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452604.jpg" />
+  <img src="Z:/picture/008/save_picture_452604.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Fixation - Global Suicide (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451831.jpg" />
+  <img src="Z:/picture/008/save_picture_451831.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Frank Zappa - Jazz From Hell (1986) 1999, Reissue [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451376.jpg" />
+  <img src="Z:/picture/008/save_picture_451376.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Green Day - Revolution Radio (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450363.jpg" />
+  <img src="Z:/picture/008/save_picture_450363.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Russkaja - Kosmopoliturbo (2017) [FLAC|lossless|image + .cue] <Pop-Punk, Gypsy-P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450339.jpg" />
+  <img src="Z:/picture/008/save_picture_450339.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447298.jpg" />
+  <img src="Z:/picture/008/save_picture_447298.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447051.jpg" />
+  <img src="Z:/picture/005/save_picture_447051.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Fly Pan Am - C'est ca (2019) [FLAC|Lossless|tracks + .cue] <Post-rock, Experimen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446581.jpg" />
+  <img src="Z:/picture/008/save_picture_446581.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Silverchair - The Best Of - Volume 1 (2000) 2CD, Limited Edition [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445240.jpg" />
+  <img src="Z:/picture/008/save_picture_445240.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Teleman - Family of Aliens (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444783.jpg" />
+  <img src="Z:/picture/008/save_picture_444783.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Mansun - 5 Albums, 2 EP (1997 - 2006) [FLAC|Lossless|tracks + .cue|image + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444141.jpg" />
+  <img src="Z:/picture/008/save_picture_444141.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Adapt To Survive - The Endless Condition (2020) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443276.jpg" />
+  <img src="Z:/picture/008/save_picture_443276.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Disciple - Love Letter Kill Shot (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442870.jpg" />
+  <img src="Z:/picture/008/save_picture_442870.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sum 41 - 13 Voices (2016) Japanese Edition [FLAC|Lossless|tracks +.cue] <Punk Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441605.jpg" />
+  <img src="Z:/picture/008/save_picture_441605.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Conditions - Fluorescent Youth (2010) 10 Year Anniversary, 2020, Good Fight Musi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440966.jpg" />
+  <img src="Z:/picture/008/save_picture_440966.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The Inhibitor - The End Is Hear (2019) [FLAC|Lossless|WEB-DL|tracks] <Experiment
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440960.jpg" />
+  <img src="Z:/picture/008/save_picture_440960.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Armor for Sleep - What to Do When You Are Dead (2005) 15th Anniversary, 2020, Eq
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440743.jpg" />
+  <img src="Z:/picture/008/save_picture_440743.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Armor for Sleep - What to Do When You Are Dead (2005) 15th Anniversary, 2020, Eq
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2945CE2870565AF69ADA4FDDEFDC0DDF7CB573D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409822   (440302) от 19.09.2020
-
-Marilyn Manson - We Are Chaos (2020) Japan [FLAC|Lossless|tracks + .cue] <Alternative Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Black And Blue (05:04)
-02. We Are Chaos (04:00)
-03. Dont Chase The Dead (04:17)
-04. Paint You With My Love (04:29)(   Читать дальше...   )Жанр: Alternative Metal, IndustrialПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A10636C4BEBAC43B6F8E1899BCD16CF8813A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1297587   (603603) от 23.04.2019
+
+Trollfest - Norwegian Fairytales (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fjøsnissens Fjaseri (03:19)
+02. Kjettaren Mot Strømmen (03:51)
+03. Espen Bin Askeladden (04:05)
+04. Trine Reinlender (01:21)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E06192F03B7D872A813DE7F9AA1A54837432DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547307   (603473) от 27.04.2022
+
+Speckmann Project - Fiends of Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Oldschool>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Absolute Power [00:02:28]
+02 - Indifferent [00:02:37]
+03 - A Sick Carnival [00:02:09]
+04 - Destroy the Weak [00:02:34](   Читать дальше...   )Жанр: Death Metal, OldschoolПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:073DB337C6982981D8A7070122B4DC0E53C9D5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547215   (603464) от 27.04.2022
+
+Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алтарь блудниц (8:54)
+02. Сквозь ночь Фобетора (6:46)
+03. Эшафот (8:29)
+04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547182   (603431) от 27.04.2022
 
 Crystal Viper - The Last Axeman (2022) Compilation [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Crystal Viper - The Last Axeman (2022) Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603431.jpg" />
+  <img src="Z:/picture/008/save_picture_603431.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Hammerschmitt - Dr. Evil (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603346.jpg" />
+  <img src="Z:/picture/008/save_picture_603346.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lizzy Borden - My Midnight Things (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603234.jpg" />
+  <img src="Z:/picture/008/save_picture_603234.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Anthem - Nucleus (2019) 2CD [WV|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603109.jpg" />
+  <img src="Z:/picture/008/save_picture_603109.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Exumer - Hostile Defiance (2019) Limited Edition [FLAC|lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602664.jpg" />
+  <img src="Z:/picture/008/save_picture_602664.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Motley Crue - The Dirt Soundtrack (2019) [FLAC|lossless|tracks + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602638.jpg" />
+  <img src="Z:/picture/008/save_picture_602638.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Crypt of Kerberos - World of Myths (1993) (Reissued-2012) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602597.jpg" />
+  <img src="Z:/picture/008/save_picture_602597.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Zombie Rodeo - The Eyes Are Set Upon You (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602057.jpg" />
+  <img src="Z:/picture/008/save_picture_602057.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Mechanical Organic - This Global Hive Part Two (2014) [FLAC|lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601919.jpg" />
+  <img src="Z:/picture/008/save_picture_601919.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Iron Maiden - Powerslave (1984) 1st Press /1984, EMI/ [FLAC|Lossless]<Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_601394.jpg" />
+  <img src="Z:/picture/005/save_picture_601394.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Metallica - S&M Live 2CD (1999) [FLAC | Lossless] < Thrash Metal/Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_600332.jpg" />
+  <img src="Z:/picture/005/save_picture_600332.jpg" />
 </div>
 
 
@@ -327,7 +414,7 @@ The 11th Hour - 2 альбома (2009 - 2012) [FLAC|Lossless]<Doom/Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599613.jpg" />
+  <img src="Z:/picture/005/save_picture_599613.jpg" />
 </div>
 
 
@@ -359,7 +446,7 @@ Saeko - Above Heaven, Below Heaven (2004) [FLAC|Lossless|tracks + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598632.jpg" />
+  <img src="Z:/picture/008/save_picture_598632.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ Killing Gandhi - Aspirations of Failure (2018) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598495.jpg" />
+  <img src="Z:/picture/008/save_picture_598495.jpg" />
 </div>
 
 
@@ -417,7 +504,7 @@ Diskreet - Engage the Mechanicality (2010) [FLAC|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598487.jpg" />
+  <img src="Z:/picture/008/save_picture_598487.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ Kalmah - Palo (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598381.jpg" />
+  <img src="Z:/picture/008/save_picture_598381.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ Adastra - Corroder Of Minds (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598213.jpg" />
+  <img src="Z:/picture/008/save_picture_598213.jpg" />
 </div>
 
 
@@ -504,7 +591,7 @@ Ador Dorath - Bestiari (2008) [APE|Lossless|image + .cue] <Melodic Gothic, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598211.jpg" />
+  <img src="Z:/picture/008/save_picture_598211.jpg" />
 </div>
 
 
@@ -533,7 +620,7 @@ Adastra - The Last Sunset (2007) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598207.jpg" />
+  <img src="Z:/picture/008/save_picture_598207.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ Embraced - Within (2000) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598205.jpg" />
+  <img src="Z:/picture/008/save_picture_598205.jpg" />
 </div>
 
 
@@ -591,7 +678,7 @@ Adrana - Perturbatio (2008) [FLAC|Lossless|image + .cue] <Heavy Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598201.jpg" />
+  <img src="Z:/picture/008/save_picture_598201.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ The Great Kat - Wagner's War (2002) EP [APE|Lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598197.jpg" />
+  <img src="Z:/picture/008/save_picture_598197.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598192.jpg" />
+  <img src="Z:/picture/008/save_picture_598192.jpg" />
 </div>
 
 
@@ -663,93 +750,6 @@ The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F858D3161F602A3E275D1EF099C550B55D757EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039159   (598190) от 31.07.2016
-
-Aeternam - Disciples of the Unseen (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Almadel 01:51
-02. Angel Horned 03:15
-03. Esoteric Formulae 04:20
-04. The Coronation of Seth 05:16(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB63E027DC3088BACB7C44ABA3332F5374303864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039160   (598180) от 31.07.2016
-
-Deicide - Deny The Cross (1992) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead But Dreaming
-02. Oblivious To Evil
-03. Satan Spawn, The Caco-Daemon
-04. Dead By Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61FCC44BF6248FD2712E2DA636AA2C2C19BDC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038904   (598066) от 31.07.2016
-
-The Great Kat - Rossini's Rape (2000) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rossini's "William Tell Overture" for Symphony Orchestra & Band 01:53
-2. Sodomize 01:40
-3. Castration 01:12
-4. Bazzini's "The Road of the Goblins" for Violin, Piano & Band 01:35Жанр: Thrash Metal, ShredПродолжительность: 0:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1BE8E14493AD6E62AB41A83281E61B18F98188
 ```
 
 https://mybot314.ru/tekegram_catalog/

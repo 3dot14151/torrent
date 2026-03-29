@@ -6,7 +6,7 @@ iTrash 5.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821023.jpg" />
+  <img src="Z:/picture/008/save_picture_821023.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Super PhotoCut Pro 2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821020.jpg" />
+  <img src="Z:/picture/008/save_picture_821020.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF-XChange Viewer Pro 2.5 Build 194 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821007.jpg" />
+  <img src="Z:/picture/008/save_picture_821007.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821006.jpg" />
+  <img src="Z:/picture/008/save_picture_821006.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ J. Rocc & MED - Axel F. (Theme Music) (2014) [FLAC|Lossless|tracks + .cue] <Rap,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820995.jpg" />
+  <img src="Z:/picture/008/save_picture_820995.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ IObit Malware Fighter Pro 3.1.0.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820978.jpg" />
+  <img src="Z:/picture/008/save_picture_820978.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ PIDKey Lite 1.64.4 b18 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820970.jpg" />
+  <img src="Z:/picture/008/save_picture_820970.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ O&O Defrag Professional / Server 25.1 Build 7305 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820959.jpg" />
+  <img src="Z:/picture/008/save_picture_820959.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Movavi Video Converter 22.0.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820955.jpg" />
+  <img src="Z:/picture/008/save_picture_820955.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Miami Vocal Trance 2017 [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820927.jpg" />
+  <img src="Z:/picture/008/save_picture_820927.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - JOOF Editions  Vol.2 (Mixed by John 00 Fleming) (2015) [FLAC|Lossless|WEB|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820926.jpg" />
+  <img src="Z:/picture/008/save_picture_820926.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820922.jpg" />
+  <img src="Z:/picture/008/save_picture_820922.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820921.jpg" />
+  <img src="Z:/picture/008/save_picture_820921.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820919.jpg" />
+  <img src="Z:/picture/008/save_picture_820919.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VMware Fusion Pro 8.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820915.jpg" />
+  <img src="Z:/picture/008/save_picture_820915.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820910.jpg" />
+  <img src="Z:/picture/008/save_picture_820910.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820898.jpg" />
+  <img src="Z:/picture/008/save_picture_820898.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820895.jpg" />
+  <img src="Z:/picture/008/save_picture_820895.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Slimjet 26.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820889.jpg" />
+  <img src="Z:/picture/008/save_picture_820889.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ JRiver Media Center 26.0.73 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820886.jpg" />
+  <img src="Z:/picture/008/save_picture_820886.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ BestReminder v2020.05.09.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820881.jpg" />
+  <img src="Z:/picture/008/save_picture_820881.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_820847.jpg" />
+  <img src="Z:/picture/009/save_picture_820847.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Xilisoft Blu Ray Ripper 5.2.12 build 0323 [Multilanguage+Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820844.jpg" />
+  <img src="Z:/picture/008/save_picture_820844.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820828.jpg" />
+  <img src="Z:/picture/008/save_picture_820828.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Movavi Screen Recorder 22.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820826.jpg" />
+  <img src="Z:/picture/008/save_picture_820826.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820821.jpg" />
+  <img src="Z:/picture/008/save_picture_820821.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1577127   (359376) от 17.09.2022
+
+Крах (1968) WEBRip (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о разгроме чекистами подпольной организации, возглавляемой Борисом Савинковым.Производство: СССР / МосфильмЖанр: драма, биография, историяРежиссер: Владимир ЧеботаревАктеры: Владимир Самойлов, Юрий Яковлев, Анатолий Фалькович, Ефим Копелян, Евгений Матвеев, Александр Барушной, Михаил Глузский, Николай Граббе, Леонид Куравлёв, Владимир ПокровскийСубтитры: отсутствуютПродолжительность: 01:25:49 + 01:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8627EFBC3BCAC4906BEEB408D4DB89F238B641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836962   (359310) от 02.11.2014
+
+Фа минор (1989) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359310.jpg" />
+</div>
+
+
+###  Подробнее
+
+История молодого человека, его поисков смысла жизни.
+ фильм получил Гран-При на фестивале в Клермон Ферране (Франция).Жанр: киноповестьРежиссер: Андрей ЧерныхАктеры: Николай Павлов, Ингеборге Дапкунайте, Марина Крутикова, Олег ДоманскийПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0B5BB7A7DD6AD3F9F64AC416155028FB42C3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836966   (359303) от 02.11.2014
 
 Выигрышный билет (1956) SATRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359303.jpg" />
+  <img src="Z:/picture/008/save_picture_359303.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358569.jpg" />
+  <img src="Z:/picture/008/save_picture_358569.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358351.jpg" />
+  <img src="Z:/picture/008/save_picture_358351.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357731.jpg" />
+  <img src="Z:/picture/008/save_picture_357731.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357574.jpg" />
+  <img src="Z:/picture/008/save_picture_357574.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357208.jpg" />
+  <img src="Z:/picture/008/save_picture_357208.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357153.jpg" />
+  <img src="Z:/picture/008/save_picture_357153.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356251.jpg" />
+  <img src="Z:/picture/008/save_picture_356251.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356092.jpg" />
+  <img src="Z:/picture/008/save_picture_356092.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356031.jpg" />
+  <img src="Z:/picture/008/save_picture_356031.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355881.jpg" />
+  <img src="Z:/picture/008/save_picture_355881.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355864.jpg" />
+  <img src="Z:/picture/008/save_picture_355864.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355781.jpg" />
+  <img src="Z:/picture/008/save_picture_355781.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355716.jpg" />
+  <img src="Z:/picture/008/save_picture_355716.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355552.jpg" />
+  <img src="Z:/picture/008/save_picture_355552.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355403.jpg" />
+  <img src="Z:/picture/008/save_picture_355403.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355321.jpg" />
+  <img src="Z:/picture/008/save_picture_355321.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354980.jpg" />
+  <img src="Z:/picture/008/save_picture_354980.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354964.jpg" />
+  <img src="Z:/picture/008/save_picture_354964.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354229.jpg" />
+  <img src="Z:/picture/008/save_picture_354229.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354212.jpg" />
+  <img src="Z:/picture/008/save_picture_354212.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354119.jpg" />
+  <img src="Z:/picture/008/save_picture_354119.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353883.jpg" />
+  <img src="Z:/picture/008/save_picture_353883.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353855.jpg" />
+  <img src="Z:/picture/008/save_picture_353855.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28187B6AC4553C3E6B2BA87CAB3EC62DE36CE32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256640   (353846) от 22.10.2018
-
-Он, она и дети (1986) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о двух практически одинаковых судьбах. Герой картины вдовец, сам воспитывает сына. Главная героиня после развода живет вдвоем с дочкой. Их дома находятся в одном микрорайоне, они ходят в один магазин и пользуются одним транспортом, а их дети учатся в одной школе. Но случайная встреча показывает, что они  нужны друг другу. Однако в стремлении быть (   Читать дальше...   )Производство: СССР, Рижская киностудия по заказу ГостелерадиоЖанр: МелодрамаРежиссер: Олег Розенберг, Ольгерт ДункерсАктеры: Виталий Соломин, Лилита Озолиня, Икар Самарджиев, Андра Гулбе, Петерис Лиепиньш, Гунта Виркава, Хелена Романова, Элита Крастиня, Вайронис Яканс, Освальд БерзиньшПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53BE0D45DC91E14C9DC033033DF1CF0684C3A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417419   (353430) от 22.10.2020
-
-Красное яблоко (1975) SATRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темир в юности встречает девушку удивительной красоты, любит на расстоянии, тайком, встречая и провожая возлюбленную в потоке прохожих. Но вот высокое чувство разбивается о прозу быта — пытаясь поднести незнакомке прекрасный символ своей мечты о счастье — красное яблоко, герой наталкивается на непонимание и даже враждебность. Через несколько лет после пережитого, (   Читать дальше...   )Производство: СССР, КиргизфильмЖанр: ДрамаРежиссер: Толомуш ОкеевАктеры: Гульсара Ажибекова, Суйменкул Чокморов, Анара Макекадырова, Таттыбюбю Турсунбаева, Алиман ДжангорозоваПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F696762F94BA4BBF356409BC0C8A32F3DE050E
 ```
 
 https://mybot314.ru/tekegram_catalog/

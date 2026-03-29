@@ -1,3 +1,81 @@
+###  Публикация: 1322737   (1012781) от 03.06.2021
+
+Операция «Святой Януарий» / Operazione San Gennaro (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда американских воров в составе Джека, Мэгги и Фрэнка прибывает в Неаполь. Их цель — сокровища, которыми изобилует рака небесного покровителя Неаполя — святого Януария. Американцы обращаются к опытному вору дону Винченцо, который сейчас сидит в тюрьме. Он перенаправляет их к своему ученику Дуду. Дуду соглашается на кощунство, мечтая истратить деньги на благое (   Читать дальше...   )Производство: Италия, Франция, ФРГ / Lyre Films, Roxy Film GmbH, Ultra FilmЖанр: Комедия, криминалРежиссер: Дино РизиАктеры: Нино Манфреди, Зента Бергер, Гарри Гуардино, Ральф Вольтер, Клодин Оже, Тото, Марио Адорф, Фрэнк Вулф, Уго Фангареджи, Данте Маджио... Манфреди, Зента Бергер, Гарри Гуардино, Ральф Вольтер, Клодин Оже, Тото, Марио Адорф, Фрэнк Вулф, Уго Фангареджи, Данте Маджио...Перевод: Дублированный, многоголосый закадровыйСубтитры: РусскиеПродолжительность: 01:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514052F84322262D754EDB5692127E2469D7E243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472731   (1012116) от 08.06.2021
+
+Скачи по высокогорью / Ride the High Country (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшему шерифу Стиву Джадду предлагают работу: перевезти золото из высокогорного поселка старателей в банк. Стив предлагает старому другу, Гилу Веструму, поработать вместе с ним. Но Гилу интересней получить большой куш, чем 40 долларов.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Вестерн, ДрамаРежиссер: Сэм ПекинпаАктеры: Рэндольф Скотт, Джоэл МакКри, Мэриетт Хартли, Рон Старр, Эдгар Бьюкенен, Р.Г. Армстронг, Джени Джексон, Джеймс Друри, Л. К. Джонс, Джон АндерсонПеревод: Многоголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB2138EDA206A0EB9BC382D1FA42A104925FDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473184   (1011967) от 09.06.2021
+
+Нежный капкан (Нежная ловушка) / The Tender Trap (1955) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Ридер — успешный театральный агент. Не менее успешен он и в отношениях с девушками.Его многочисленные подружки приходят и уходят, готовят и убирают для него. Однажды на прослушивании он встречает актрису и певицу Джули Гиллис — девушку, которая живет строго по плану. Согласну плану, она должна выйти замуж, бросить сцену и воспитывать детей уже к 22 годам. После (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, мелодрама, комедияРежиссер: Чарльз УолтерсАктеры: Фрэнк Синатра, Дебби Рейнолдс, Дэвид Уэйн, Селеста Холм, Йарма Левис, Лола Олбрайт, Кэролин Джонс, Ховард Ст. Джон, Джои Фэй, Том ХелморПеревод: Одноголосый профессиональный (BBC Saint-Petersburg)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BD4FD2769D5EAAAB57CA54A3EA660A0675BA948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475058   (1011605) от 11.06.2021
 
 Ведьмы / Le streghe (1967) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011605.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011401.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010920.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010910.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010906.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010900.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010898.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010893.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010884.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010758.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010731.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009375.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008806.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008231.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007958.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007268.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007253.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006951.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006614.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006570.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005172.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005169.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004452.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528EDA05A9DACE83D0EF294319F0AAB570A89947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478839   (1003138) от 06.01.2020
-
-По ту сторону закона / Al di l della legge / Beyond The Law (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизменный герой спагетти-вестернов, Ли Ван Клиф, на этот раз выступает в роли грабителя, решившего встать на путь исправления и даже принявшего на себя нелёгкие обязанности шерифа маленького городка, чтобы покончить с преступностью в этом отдельно взятом населённом пункте. Однако, к сожалению, его благие намерения не простираются дальше того момента, когда в городе (   Читать дальше...   )Производство: Германия, Италия / Roxy Film GmbH, SancrosiapЖанр: ВестернРежиссер: Джорджио СтеганиАктеры: Антонио Сабато, Бад Спенсер, Гордон Митчел, Карло Гадди, Лайонел Стэндер, Ли Ван Клиф, Херберт Фукс ...Перевод: Одноголосый закадровыйПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFC44D0DF3B95B52475A32C4493B943B4580788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346905   (1002351) от 09.01.2020
-
-В свете серебристой луны / By the Light of the Silvery Moon (1953) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в маленьком городке штата Индиана после Первой мировой войны. Дорис Дэй в роли сорвиголовы из колледжа, которая доставляет много проблем окружающим. Все меняется, когда приходится заняться проблемами брата…Производство: США / Warner Bros. PicturesЖанр: Мюзикл, Мелодрама, Комедия, СемейныйРежиссер: Дэвид БатлерАктеры: Дорис Дэй, Гордон МакРэй, Леон Эймс, Розмари ДеКамп, Билли Грэй, Мэри Уикс, Расселл Армс, Мария Палмер, Ховард УенделлПеревод: Многоголосый профессиональный, ТК «Домашний»Субтитры: ОтсутствуютПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C5A23409DC5FE10DF9DC8C11514F9ACCD50ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 51404   (1001494) от 12.01.2020
-
-Плутовство (Хвост виляет собакой) / Wag the Dog (1997) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы отвлечь внимание общественности от сексуального скандала, связанного с президентом США, срочно вызван специалист по нештатным ситуациям Конрад Брин (Роберт Де Ниро). Брин решает инсценировать небольшую войну с помощью голливудского продюсера Стенли Мотса (Дастин Хоффман). Вдвоем они смело организуют задуманное шоу с небывалым размахом! Ну не мог Стенли Мотс (   Читать дальше...   )Производство: США / Baltimore Pictures, New Line Cinema, Punch Productions, Tribeca ProductionsЖанр: Комедия, Драма, Политическая сатираРежиссер: Бэрри ЛевинсонАктеры: Дастин Хоффман, Роберт Де Ниро, Энн Хеч, Дэнис Лири, Уилли Нельсон, Андреа Мартин, Кирстен Данст, Вуди Харрельсон, Уильям Х. Мэйси, Джон МайклПеревод: Профессиональный многоголосыйЯзык озвучки: русский,  английскийСубтитры: ОтсутствуютПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C7AA1A08B6280BD8294AFCAFC535739392EE37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1817835   (2900) от 13.09.2025
+
+Fargo - Live In '25 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live) (02:03)
+ 02. Rain Of Champagne (Live) (03:19)
+ 03. Gimme That Bone (Live) (03:30)
+ 04. Leave It (Live) (03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB69D241D361CEB6D08DD367129EF9C2045F8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818030   (2758) от 14.09.2025
+
+I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative-Metal, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spin It [00:00:27]
+02. THE WHEEL [00:02:00]
+03. Eliminator [00:03:29]
+04. D4MAGE DONE [00:03:15](   Читать дальше...   )Жанр: Post-Hardcore, Alternative-Metal, ElectronicПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B579B07278B932BA5F46512A2563B41BA1FA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818113   (2757) от 14.09.2025
+
+Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weaponize Your Rage [00:02:56]
+02. Devil Left Me On Read [00:02:38]
+03. New Age Cannibal [00:02:42]
+04. Waiting 4 U [00:03:01](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, ElectronicПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E81E5C372D7E59FF9EE2835B6328CD216E61429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818106   (2752) от 14.09.2025
+
+Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deathdealer [00:02:49]
+02. Embrace Of Steele [00:03:27]
+03. Redwing [00:05:11]
+04. Far Beyond The Grave [00:04:39](   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5901A359B1AB3F06AE45C9A804219DD085DFBA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818114   (2746) от 14.09.2025
+
+Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5678 [00:00:59]
+02. Showdown [00:04:38]
+03. I Want It [00:04:28]
+04. Eye to Eye [00:04:11](   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E4C5EFC316314B4B9A88E569709A35DB74BD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818107   (2734) от 14.09.2025
+
+Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Watched You Burn [00:03:48]
+02. Valley Of Agony [00:04:16]
+03. Godforsaken Silence [00:03:43]
+04. The Executioner [00:04:09](   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF028BFB17B2F9F60751DCD35C866EA873F03A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818023   (2732) от 14.09.2025
+
+Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cutthroat [00:03:14]
+02. Cowards Around [00:02:21]
+03. Quiet Life [00:03:16]
+04. Nothing Better [00:02:47](   Читать дальше...   )Жанр: Indie, Post-Punk, BritpopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FC8BBCAF0447A5E664CBBB58C99D87C115DBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818015   (2731) от 14.09.2025
+
+Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, Alternative-Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praesens [00:02:00]
+02. Degenerate [00:03:36]
+03. Silos [00:04:20]
+04. Rise Of Messenger [00:02:14](   Читать дальше...   )Жанр: Alternative-Metal, Alternative-Rock, ElectronicПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A7BE33477199CB22687F2189CC789F1FC96CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818033   (2730) от 14.09.2025
 
 Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative-Rock, Rapcore>
@@ -6,7 +238,7 @@ Nevertel - Start Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2730.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2667.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2645.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2609.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2608.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2606.jpg" />
 </div>
 
 
@@ -179,7 +411,7 @@ Vargas Blues Band - Down Under Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2600.jpg" />
 </div>
 
 
@@ -208,7 +440,7 @@ Led Zeppelin - Live EP (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bluse Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2490.jpg" />
 </div>
 
 
@@ -237,7 +469,7 @@ Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2469.jpg" />
 </div>
 
 
@@ -266,7 +498,7 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2467.jpg" />
 </div>
 
 
@@ -295,7 +527,7 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2461.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2460.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ Joe Bonamassa - B.B.King's Blues Summit 100, Vol. I (2025) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2455.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2451.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Igorrr - Amen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Avantgarde Metal, Br
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2322.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Year Of The Goat - Trivia Goddess (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2303.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Modeselektor - DJ-Kicks: Modeselektor (2025) 2CD [FLAC 16,24/44.1,48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2296.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2290.jpg" />
 </div>
 
 
@@ -512,238 +744,6 @@ Parcels - Loved (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC6198FF0B2DA8CB12FE0078EE5346F46F618BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818736   (2145) от 18.09.2025
-
-Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Breach [00:02:45]
-02. The Madness [00:03:19]
-03. The Summoning [00:06:07]
-04. Headfirst Into The Void [00:04:27](   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818659   (2144) от 18.09.2025
-
-Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fear My Thoughts - немецкая метал-группа из Райнфельдена, существовавшая с 1998 по 2010 год.2001 - 23
-2002 - Vitriol
-2004 - The Great Collapse
-2005 - Hell Sweet HellЖанр: Hardcore/Metalcore, Melodic Death MetalПродолжительность: 04:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3E9CC1880AC71F90764DDD82B41E5AA17CD40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818670   (2141) от 18.09.2025
-
-Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country, Polka>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2141.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stesti Na Rozcesti
-A2 Hej, Panimamo
-A3 Skrivanek Zpival
-A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk, Country, PolkaПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818734   (2140) от 18.09.2025
-
-Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Metal, Gothic Metal, NDH>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Egomanie [00:04:55]
-02. Dominanz [00:05:53]
-03. Flieh! [00:04:11]
-04. Leidenschaft [00:06:11](   Читать дальше...   )Жанр: Industrial Metal, Gothic Metal, NDHПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5233DC17C37FB9666D69A074F7D9FD6F8565F9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818781   (2139) от 18.09.2025
-
-Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore, electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feral [00:03:21]
-02. Magic [00:04:05]
-03. Disconnect [00:03:05]
-04. Sold My Soul [00:03:06](   Читать дальше...   )Жанр: progressive metalcore, electronicПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEF943399D120ABADDD731FEE33B9697F0536DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818785   (2136) от 18.09.2025
-
-Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Nu-Metal, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killher [00:03:21]
-02. built diff [00:02:55]
-03. WASHED [00:02:44]
-04. SMOKEBOMB [00:02:58](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, Nu-Metal, ElectronicПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1D840DAF0A3F98BCEFA1E783CBE25709A6724E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818789   (2134) от 18.09.2025
-
-Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk, New Wave, Oli>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys Will Be Boys [00:03:36]
-02. Rocky Road [00:03:02]
-03. Mad World [00:03:52]
-04. Family Isn't Always Blood [00:03:45](   Читать дальше...   )Жанр: Punk, New Wave, OliПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAA408B4FF64039B88A2A2D74F45665A6FB27FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578274   (2110) от 19.09.2025
-
-Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paradise Lost  — метал-группа из Великобритании, основанная в 1988 году. Наряду с Anathema и My Dying Bride считаются основателями стиля дэт-дум и готик-метал. Paradise Lost также повлияли на музыкальное становление таких групп, как Katatonia и The Gathering.1990 - Lost Paradise
-1991 - Gothic
-1993 - Icon
-1993 - Shades Of GodЖанр: Doom/Death Metal, Gothic MetalПродолжительность: 18:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA298A1C235004C788CBF26E74AC348E715FC56
 ```
 
 https://mybot314.ru/tekegram_catalog/

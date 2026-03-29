@@ -6,7 +6,7 @@ WiFi Explorer Pro 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706898.jpg" />
+  <img src="Z:/picture/008/save_picture_706898.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Synapse Audio - DUNE 3.0.7 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706889.jpg" />
+  <img src="Z:/picture/008/save_picture_706889.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706869.jpg" />
+  <img src="Z:/picture/008/save_picture_706869.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706865.jpg" />
+  <img src="Z:/picture/008/save_picture_706865.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706861.jpg" />
+  <img src="Z:/picture/008/save_picture_706861.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706852.jpg" />
+  <img src="Z:/picture/008/save_picture_706852.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Allavsoft Video Downloader Converter 3.14.4.6334 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706845.jpg" />
+  <img src="Z:/picture/008/save_picture_706845.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Temple Run: Oz  1.6.7 [RUS]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706837.jpg" />
+  <img src="Z:/picture/008/save_picture_706837.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706833.jpg" />
+  <img src="Z:/picture/008/save_picture_706833.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706826.jpg" />
+  <img src="Z:/picture/008/save_picture_706826.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SSH Config Editor Pro 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706825.jpg" />
+  <img src="Z:/picture/008/save_picture_706825.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Alix Perez & Spectrasoul - Synergy (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706824.jpg" />
+  <img src="Z:/picture/008/save_picture_706824.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Run Vaylor - Disco Cross (2017) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706822.jpg" />
+  <img src="Z:/picture/008/save_picture_706822.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - MECHANIZED! - Freak Machine 0.4 (2016) [MP3|320 Kbps] <Dark Electro, Harsh 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706820.jpg" />
+  <img src="Z:/picture/008/save_picture_706820.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hardware Monitor 5.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706816.jpg" />
+  <img src="Z:/picture/008/save_picture_706816.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - MECHANIZED! - Freak Machine 0.3 (CD1-CD3) (2015) [MP3|320 Kbps] <Dark Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706812.jpg" />
+  <img src="Z:/picture/008/save_picture_706812.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ WinRAR 6.11 Beta 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706807.jpg" />
+  <img src="Z:/picture/008/save_picture_706807.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ AIMP 5.02 Build 2365 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706804.jpg" />
+  <img src="Z:/picture/008/save_picture_706804.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Windows 10 Manager 3.6.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706797.jpg" />
+  <img src="Z:/picture/008/save_picture_706797.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Native Instruments - Kontakt 6.0.4 STANDALONE, VSTi (x86/x64) Portable by vkDani
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706790.jpg" />
+  <img src="Z:/picture/008/save_picture_706790.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ CCleaner Professional 5.54.7088 RePack (& Portable) by elchupakabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706786.jpg" />
+  <img src="Z:/picture/008/save_picture_706786.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706784.jpg" />
+  <img src="Z:/picture/008/save_picture_706784.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov (03.03.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706779.jpg" />
+  <img src="Z:/picture/008/save_picture_706779.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ TeamViewer 14.1.18533 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706774.jpg" />
+  <img src="Z:/picture/008/save_picture_706774.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK (05.03.2019) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706773.jpg" />
+  <img src="Z:/picture/008/save_picture_706773.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Best Fiends 1.5.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706750.jpg" />
+  <img src="Z:/picture/008/save_picture_706750.jpg" />
 </div>
 
 

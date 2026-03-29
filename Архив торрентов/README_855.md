@@ -6,7 +6,7 @@ MediaInfo 0.7.92 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853812.jpg" />
+  <img src="Z:/picture/008/save_picture_853812.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DupeZap 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853806.jpg" />
+  <img src="Z:/picture/008/save_picture_853806.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Exif Editor 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853796.jpg" />
+  <img src="Z:/picture/008/save_picture_853796.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ AdwCleaner 5.107 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853793.jpg" />
+  <img src="Z:/picture/008/save_picture_853793.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853790.jpg" />
+  <img src="Z:/picture/008/save_picture_853790.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Reg Organizer  7.35 Beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853783.jpg" />
+  <img src="Z:/picture/008/save_picture_853783.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Tipard Total Media Converter 8.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853782.jpg" />
+  <img src="Z:/picture/008/save_picture_853782.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853781.jpg" />
+  <img src="Z:/picture/008/save_picture_853781.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Tipard PDF Converter Platinum 3.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853780.jpg" />
+  <img src="Z:/picture/008/save_picture_853780.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853779.jpg" />
+  <img src="Z:/picture/008/save_picture_853779.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853778.jpg" />
+  <img src="Z:/picture/008/save_picture_853778.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Serial Box 03-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853776.jpg" />
+  <img src="Z:/picture/008/save_picture_853776.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Monster Energy NASCAR Cup Series 2017 / Этап 1 - Daytona / Гонка / (201
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853774.jpg" />
+  <img src="Z:/picture/008/save_picture_853774.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Path Finder 7.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853768.jpg" />
+  <img src="Z:/picture/008/save_picture_853768.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853766.jpg" />
+  <img src="Z:/picture/008/save_picture_853766.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Sidify Apple Music Converter 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853764.jpg" />
+  <img src="Z:/picture/008/save_picture_853764.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Mr. Capone-E - Gangster Love (2017) [MP3|320 Kbps] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853763.jpg" />
+  <img src="Z:/picture/008/save_picture_853763.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Tipard DVD Creator 3.5.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853757.jpg" />
+  <img src="Z:/picture/008/save_picture_853757.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Cent Browser 1.8.9.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853743.jpg" />
+  <img src="Z:/picture/008/save_picture_853743.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853723.jpg" />
+  <img src="Z:/picture/008/save_picture_853723.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ File Cabinet Pro 7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853718.jpg" />
+  <img src="Z:/picture/008/save_picture_853718.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Blocs 3.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853717.jpg" />
+  <img src="Z:/picture/008/save_picture_853717.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Download Master 6.8.2.1511 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853709.jpg" />
+  <img src="Z:/picture/008/save_picture_853709.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Xilisoft Video Converter Ultimate 7.8.14 Build 20160322 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853708.jpg" />
+  <img src="Z:/picture/008/save_picture_853708.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853707.jpg" />
+  <img src="Z:/picture/008/save_picture_853707.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Google Chrome 49.0.2623.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853706.jpg" />
+  <img src="Z:/picture/008/save_picture_853706.jpg" />
 </div>
 
 

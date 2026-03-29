@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809608.jpg" />
+  <img src="Z:/picture/008/save_picture_809608.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809606.jpg" />
+  <img src="Z:/picture/008/save_picture_809606.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Spring Uplifting (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809605.jpg" />
+  <img src="Z:/picture/008/save_picture_809605.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Spring Progressive Trance (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809603.jpg" />
+  <img src="Z:/picture/008/save_picture_809603.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Maglev - Artist Focus 67 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809602.jpg" />
+  <img src="Z:/picture/008/save_picture_809602.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0j) License PLAZA [Enhanc
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809579.jpg" />
+  <img src="Z:/picture/008/save_picture_809579.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Pano2VR Pro 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809573.jpg" />
+  <img src="Z:/picture/008/save_picture_809573.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ ESET SysInspector 1.4.1.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809564.jpg" />
+  <img src="Z:/picture/008/save_picture_809564.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809551.jpg" />
+  <img src="Z:/picture/008/save_picture_809551.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Ashampoo Snap 9.0.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809545.jpg" />
+  <img src="Z:/picture/008/save_picture_809545.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809544.jpg" />
+  <img src="Z:/picture/008/save_picture_809544.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ WinTools.net Premium 16.4.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809538.jpg" />
+  <img src="Z:/picture/008/save_picture_809538.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Tinytopia (2021) [Multi] (211013) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809501.jpg" />
+  <img src="Z:/picture/008/save_picture_809501.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Star Dynasties (2021) [En] (1.0.1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809488.jpg" />
+  <img src="Z:/picture/008/save_picture_809488.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809482.jpg" />
+  <img src="Z:/picture/008/save_picture_809482.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Downie 2.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809467.jpg" />
+  <img src="Z:/picture/008/save_picture_809467.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Chris Duarte Group - Tailspin Headwhack (1997) [FLAC|Lossless|tracks + .cue] <Bl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809466.jpg" />
+  <img src="Z:/picture/008/save_picture_809466.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Miami Hits (2017) [MP3|320 Kbps] <Trance, Progressive House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809464.jpg" />
+  <img src="Z:/picture/008/save_picture_809464.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ DupeZap 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809463.jpg" />
+  <img src="Z:/picture/008/save_picture_809463.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Suffer the Silence - All Things Beautiful (2017) [FLAC|Lossless|WEB-DL|tracks + 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809461.jpg" />
+  <img src="Z:/picture/008/save_picture_809461.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ WiFiSpoof 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809456.jpg" />
+  <img src="Z:/picture/008/save_picture_809456.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 4 - Phoenix. Гонка (2017) H
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809451.jpg" />
+  <img src="Z:/picture/008/save_picture_809451.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809407.jpg" />
+  <img src="Z:/picture/008/save_picture_809407.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ VMware Fusion Pro 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809399.jpg" />
+  <img src="Z:/picture/008/save_picture_809399.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809372.jpg" />
+  <img src="Z:/picture/008/save_picture_809372.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VSDC Free Video Editor 4.0.1.475 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809367.jpg" />
+  <img src="Z:/picture/008/save_picture_809367.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942730.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942663.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941894.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941046.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932092.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926187.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925960.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925853.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923957.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921513.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921449.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918391.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908488.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907963.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906343.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896897.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888873.jpg" />
+  <img src="Z:/picture/005/save_picture_888873.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888649.jpg" />
+  <img src="Z:/picture/005/save_picture_888649.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886407.jpg" />
+  <img src="Z:/picture/005/save_picture_886407.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876901.jpg" />
+  <img src="Z:/picture/005/save_picture_876901.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869544.jpg" />
+  <img src="Z:/picture/008/save_picture_869544.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869542.jpg" />
+  <img src="Z:/picture/008/save_picture_869542.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859518.jpg" />
+  <img src="Z:/picture/008/save_picture_859518.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859075.jpg" />
+  <img src="Z:/picture/008/save_picture_859075.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858661.jpg" />
+  <img src="Z:/picture/008/save_picture_858661.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Индийское кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858543.jpg" />
+  <img src="Z:/picture/008/save_picture_858543.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1703058   (115409) от 27.02.2024
+
+DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиночное приключение DREDGE предлагает игроку путешествовать по глубинам и постепенно раскрывать их тайны, параллельно занимаясь ловлей рыбы. По мере прохождения главному герою предстоит улучшать свое судно и тщательнее исследовать дно, чтобы раздобыть давно погребенные секреты. Событие разворачивается посреди таинственного архипелага островов, где сокрыто множество (   Читать дальше...   )Тип издания: SceneРазработчик: Black Salt GamesЖанр: Приключение, Ролевая игра, ExplorationЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861A378197F454538B639B025CF8A6E044F99D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703301   (115274) от 28.02.2024
+
+The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте поразительную вселенную The Expanse в уникальном приключении от Telltale под названием The Expanse: A Telltale Series. Вы можете обшаривать обломки кораблекрушения в невесомости, сражаться с пиратами или заниматься чем-то ещё, но придётся постоянно делать выбор, который повлияет на последующий ход игры. Кара Джи (Cara Gee) в роли Камины Драммер поможет (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck NineЖанр: Экшены, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF01E218AA3F16E86BFF873C82C50C111E5E707E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703498   (115109) от 29.02.2024
+
+The Witch of Fern Island (2023) [Multi] (1.0.0_B/dlc) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115109.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Witch of Fern Island - это красочный симулятор жизни, в котором вы познакомитесь с местной культурой и глубоко погрузитесь в её тайны, научитесь мастерству магии и преодолеете все испытания, чтобы доказать своё мастерство и стать самой известной ведьмой на острове! Остров Ферн - это не просто место для учёбы. Это мир, где можно найти своё место, завести новых (   Читать дальше...   )Тип издания: RepackРазработчик: Enjoy Studio S.A.Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, ПольскийЯзык интерфейса: Английский, Немецкий, Французский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703639   (114947) от 01.03.2024
 
 Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ Nathan Morgan: Dilemma (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114947.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534/dlc) Repack Other s [Supporter Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114934.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Invisible Fear (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114910.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Beyond the Fringe (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114567.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114445.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Lil' Guardsman (2024) [Multi] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111194.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.03.1485026) License GOG [Soundtra
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110903.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108444.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ no sleep for sole (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108077.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ A Memoir Blue (2022) [Ru/Multi] (Build 8901003) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106071.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Crystal Shard Adventure Bundle (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106045.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105191.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104836.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Don't Starve Together (2016) [Ru/Multi] (692916/dlc) Repack Let'sРlay [MEGA PAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102695.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100623.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100615.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Hauma: A Detective Noir Story (2023) [Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100577.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90518.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88904.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Morpheus [Ru] (P) 1998
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86985.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Alone in the Dark: The New Nightmare / Alone in The Dark 4: По Ту Сторо
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86881.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86450.jpg" />
 </div>
 
 
@@ -596,87 +674,6 @@ Yesterday / Yesterday: Печать Люцифера [Ru/En] (RePack) 2012 | R.G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0EFDEA25DBAE35AC689D2EEBE36E9EC3CA50F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477869   (86446) от 04.04.2012
-
-Lone Survivor [En] (L) 2012
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный хоррор от создателя игр Soul Brother и Soundless Mountain 2.
-Главный герой, скрывающий лицо под белой маской, должен выбраться из опустошенного  неизвестным вирусом города. Обессиленный, измученный голодом, он должен найти выход из ситуации, даже когда происходящее настолько ужасно, что не хочется верить своим глазам.
-В новой адвенчуре только вы выбираете тот способ выжить, который вам ближе. Крадитесь без единого выстрела или убивайте все, что встанет у вас на пути. Отдыхайте когда устали и добывайте еду если голодны или глотайте наркотики и идите дальше. Ищите выживших или выбирайтесь из города в одиночку. Следите за рассудком или съезжайте с катушек...Тип издания: ЛицензияЖанр: Platformer / horrorЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BB6F83E08D7F342066444A098615EFE9301AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475537   (85568) от 31.03.2012
-
-Gemini Rue / Gemini Rue: Заговор на Барракусе [En] (P) 2011
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gemini Rue - приключенческая инди-игра, разработанная калифорнийским студентом Joshua Nuernberger. Игра представляет собой классический квест в стиле нуара и киберпанка. Азриэль Один, бывший наёмный убийца, прибывает на утопающую в дождях планету Барракус, чтобы найти кое-кого. Но всё оборачивается совершенно не так, как планировалось и ему приходится искать помощи у преступников, на которых он раньше работал. В тоже время, на другом конце галактики, человек, называемый Дельта-Шесть, приходит в себя в больнице, память его стёрта. Не зная, что ждёт за следующим поворотом и кому можно верить, он пытается выбраться наружу, пока окончательно не утратил личность. По мере того, как судьба сводит этих двух людей всё ближе, мы открываем для себя мир, в котором жизнь - бросовый товар, личность продаётся и покупается, и простые попытки спастись могут изменить судьбу всей галактики. В Gemini Rue игрока ждут интересный сюжет, множество загадок, а также непривычные для жанра боевые вставки.Тип издания: ПираткаЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD9371CFD84479BD375C454BF16DE4ECDD3E3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474903   (85416) от 30.03.2012
-
-To the Moon (P) [Ru] 2011
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85416.jpg" />
-</div>
-
-
-###  Подробнее
-
-To the Moon рассказывает о двух докторах — Dr. Eva Rosalene и Dr. Neil Watts, которые занимаются достаточно необычным делом. Они, буквально говоря, дают людям ещё один шанс прожить жизнь — путём создания искусственных воспоминаний в разуме пациента. Однако возникающий конфликт между настоящим и искусственным позволяет практиковать такие операции только для людей, которые находятся на своём смертном одре. Чтобы осуществить то, что они мечтали сделать за свою жизнь… но не сделали.
-Очередной клиент — умирающий пожилой мужчина по имени Джонни. Путешествуя по воспоминаниям, коллеги раскрывают новые фрагменты его прошлого. Необходимо собрать воедино кусочки событий его жизни, чтобы выяснить причину такого предсмертного желания, и исполнить его. А последнее желание Джонни, конечно же — отправиться на Луну.Тип издания: ПираткаЖанр: Adventure, RPG, indieЯзык озвучки: n/a (отсутствует)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8758FB93397488BF632051BDF667E517F37EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

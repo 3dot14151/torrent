@@ -1,3 +1,61 @@
+###  Публикация: 1657335   (192765) от 03.09.2023
+
+Black Magic Six - Black Cloud Descending (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Goat [00:03:06]
+02. Evil Eye Powder [00:02:31]
+03. Blood of Babylon [00:02:45]
+04. Werewolf of Istanbul [00:03:13](   Читать дальше...   )Жанр: Hard-Rock, Alternative-RockПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64108A936A1652929C7C77DE4D0E5F90452FAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657232   (192758) от 03.09.2023
+
+Eclipse - Megalomanium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardest Part Is Losing You (3:25)
+02. Got It! (3:29)
+03. Anthem (3:26)
+04. Children of the Night (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7023BE389F5DC6BE6060294D5FD9D2F9F16DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657509   (192757) от 03.09.2023
 
 Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post-Grunge, Hard Rock>
@@ -6,7 +64,7 @@ Eve To Adam - Locked & Loaded (2013) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192757.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Various Artists - English Hard Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192697.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Biters - The Future Ain't What It Used To Be (2017) [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192148.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ amma'd'amma - rock stars obscured by... (2021) [FLAC|Lossless|tracks + .cue] <Ma
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192081.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Suzi Quatro - 33 albums, 2 Box-set, 66 CD (1973-2023) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191957.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Airstrike - Red Born Reborn (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191951.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sabotage - See the World (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191832.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191642.jpg" />
+  <img src="Z:/picture/004/save_picture_191642.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Kane Roberts - Kane Roberts (1987) ex-guitar Alice Cooper [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191628.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Tony Martin (Forcefield, Giuntini Project, Empire, Rondinelli, Silver Horses) - 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191502.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191362.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Craver - Torch Of Wisdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191323.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Montra - Against All Odds (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191322.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191101.jpg" />
+  <img src="Z:/picture/004/save_picture_191101.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190912.jpg" />
+  <img src="Z:/picture/004/save_picture_190912.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190901.jpg" />
+  <img src="Z:/picture/004/save_picture_190901.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ Vandenberg - 11 albums, 1 Box-set, 16 CD (1982-2023) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190852.jpg" />
+  <img src="Z:/picture/004/save_picture_190852.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Divides Unfold - Distain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alt. M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190683.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Smooch - A Force To Be Rockin' With (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190659.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190632.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190630.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Fire Rose - Blood On Your Hands (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190611.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Marant - The Last Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190422.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Insonika - Pithos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190419.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Insonika - Pithos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A4BED0CC836CF68C85D9D1B7584BA03619A2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589564   (190059) от 10.11.2022
-
-96 Bitter Beings - Synergy Restored (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaudeville's Revenge [00:04:56]
-02. Wish Me Dead [00:04:42]
-03. Fire Skyline [00:03:22]
-04. Throw Yourself Inside [00:03:36](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F1C1A06E82A998F5F3E7A30BDD02B596920551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589712   (189762) от 11.11.2022
-
-Super Vintage - Guardians Of Tradition (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Ride (04:18)
-02. Indian Soul (05:52)
-03. Hero (04:44)
-04. Rolling Thunder (05:10)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EC0210F0012F991F0709874E2406240B75B2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

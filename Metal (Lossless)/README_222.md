@@ -1,3 +1,90 @@
+###  Публикация: 1626496   (237634) от 15.04.2023
+
+Overkill - Scorched (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorched (6:13)
+02. Goin' Home (4:32)
+03. The Surgeon (5:33)
+04. Twist of the Wick (5:34)(   Читать дальше...   )Жанр: Thrash-metalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7E0716E608B8C852E2207E820FD9878567E3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640252   (237627) от 16.06.2023
+
+Wonders - Beyond The Mirage (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Million Miles
+02. Breaking The Chains
+03. Here I Go Again
+04. Hold Me, Save Me(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0275B8D1B6D3A0C9A71F858A65CC93A43CDC124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626630   (237626) от 15.04.2023
+
+Czakan - Unreal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Line [00:03:15]
+02. Getting Hungry [00:03:46]
+03. Breaking all the Rules [00:04:53]
+04. Living in a Nightmare [00:03:40](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07750EC692E535187BF0DC02BD8DB7852FC52BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502239   (237617) от 14.10.2021
 
 Lions at the Gate (ex. El Nino) - 2 Singles (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
@@ -6,7 +93,7 @@ Lions at the Gate (ex. El Nino) - 2 Singles (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237617.jpg" />
+  <img src="Z:/picture/004/save_picture_237617.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ Excalion - Emotions (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237614.jpg" />
+  <img src="Z:/picture/004/save_picture_237614.jpg" />
 </div>
 
 
@@ -61,7 +148,7 @@ Johnny The Boy - You (2023) [FLAC|Lossless|WEB-DL|tracks] <Black-Metal, Extreme-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237580.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ Contrail Architects - Guarded Cave (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237569.jpg" />
+  <img src="Z:/picture/004/save_picture_237569.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ Opera Magna - Of Love and Other Demons (2023) Compilation [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237521.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Snakemother - Snakemother (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237505.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Void King - 3 Albums (2016-2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237495.jpg" />
+  <img src="Z:/picture/004/save_picture_237495.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Core Fire - Consumed (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237489.jpg" />
+  <img src="Z:/picture/004/save_picture_237489.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Vision Denied - Age Of The Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237479.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Moonscape - The Continuum Synergy (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237455.jpg" />
+  <img src="Z:/picture/005/save_picture_237455.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Convergence - Extinction Level Event (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237454.jpg" />
+  <img src="Z:/picture/005/save_picture_237454.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Anthemon - Arcanes (2003) [FLAC|Lossless|image + .cue] <Symphonic Gothic, Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237453.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Alex Stephens - The Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237439.jpg" />
+  <img src="Z:/picture/005/save_picture_237439.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Thergothon - Stream From The Heavens (1994) Reissue, 2009, Peaceville [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237421.jpg" />
+  <img src="Z:/picture/005/save_picture_237421.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Gates of Prophecy - Gates of Prophecy (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237414.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Hyades - The Wolves Are Getting Hungry (2015) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237400.jpg" />
+  <img src="Z:/picture/005/save_picture_237400.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Spirit - Le Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237398.jpg" />
+  <img src="Z:/picture/005/save_picture_237398.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237378.jpg" />
+  <img src="Z:/picture/005/save_picture_237378.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Suton - Sacrilegious (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237372.jpg" />
+  <img src="Z:/picture/005/save_picture_237372.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Midnight Phantom - Hollywood Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237365.jpg" />
+  <img src="Z:/picture/005/save_picture_237365.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ Dragonland - The Power Of The Nightstar (2022) Japanese Edition [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237351.jpg" />
+  <img src="Z:/picture/005/save_picture_237351.jpg" />
 </div>
 
 
@@ -612,7 +699,7 @@ Lutharo - Hiraeth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237337.jpg" />
+  <img src="Z:/picture/005/save_picture_237337.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Helestios - Your Pain Tastes Good (2020) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237335.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Helestios - Your Pain Tastes Good (2020) [FLAC|Lossless|WEB-DL|tracks] <Power, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4DB75505934C69A9338C4D79CCF56E10F11AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502602   (237329) от 16.10.2021
-
-Devoid - Lonely Eye Movement (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Eye Movement
-02. Man Without Fear
-03. Impostor
-04. Destination Heaven(   Читать дальше...   )Жанр: Melodic Heavy Metal, Progressive MetalПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F8A4BDE6E3534C1E5DAFD0050D86E38EA8062C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265529   (237324) от 04.09.2022
-
-Arjen A. Lucassen (Ayreon, Star One, Ambeon, Guilt Machine, The Gentle Storm) - Collection (1993 - 2022) [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Symphonic Metal, Progressive Rock ...
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арьен Антони Люкассен (нидерл. Arjen Anthony Lucassen, 3 апреля 1960, Гаага, Нидерланды) — нидерландский мультиинструменталист и композитор, работающий в разнообразных жанрах: прогрессив-метал, прогрессив-рок, арт-рок, фолк, амбиент. Арьен Люкассен является создателем нескольких музыкальных проектов, в том числе основанного в 1994 году «Ayreon».Список альбомов:
-1993 - Anthony - Pools Of Sorrow - Waves Of Joy
-1995 - Ayreon - The Final Experiment
-1996 - Arjen Anthony Lucassen - Strange Hobby(   Читать дальше...   )Жанр: Progressive Symphonic Metal, Progressive RockПродолжительность: 51:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C9042E83DF93401DBF6D9D54C98876D123E339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606380   (237322) от 22.01.2023
-
-Skyblazer - Infinity's Wings (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prologue (00:48)
-02 - Shine Forth! (04:22)
-03 - Eyes Of Serenity (06:13)
-04 - Across The Heavens (04:45)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE466E19F6388B0369FE79BBE1502FA6387FEEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

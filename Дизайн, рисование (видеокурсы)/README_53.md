@@ -1,3 +1,30 @@
+###  Публикация: 1833993   (248608) от 02.11.2025
+
+Vertex, Дмитрий Зиновьев | Основы конструирования в Компас - 3D v19 (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный практический видеокурс нацелен на быстрое, легкое и системное вхождение в среду САПР КОМПАС-3D v19.
+Данный курс будет идеальным как для начинающих в работе с САПР, так и для повышения квалификации сотрудников конструкторских отделов малых и средних, построении таких отделов или при переходе на новый программный комплекс и при составлении учебных программ в (   Читать дальше...   )Производство: VertexЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD4F613920583966A04EC0047DDE066C4157B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637531   (247698) от 09.06.2023
 
 CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapters 11-13] (2023) PCRec [EN / EN Sub]
@@ -6,7 +33,7 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247698.jpg" />
+  <img src="Z:/picture/004/save_picture_247698.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247072.jpg" />
+  <img src="Z:/picture/004/save_picture_247072.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246968.jpg" />
+  <img src="Z:/picture/004/save_picture_246968.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246942.jpg" />
+  <img src="Z:/picture/004/save_picture_246942.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246933.jpg" />
+  <img src="Z:/picture/004/save_picture_246933.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ TOAnimate, Brian Kouhi, Simona Baranovicova, Vladimir Mokhov | Blender Animation
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246889.jpg" />
+  <img src="Z:/picture/004/save_picture_246889.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246264.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246261.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246062.jpg" />
+  <img src="Z:/picture/004/save_picture_246062.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246035.jpg" />
+  <img src="Z:/picture/004/save_picture_246035.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245977.jpg" />
+  <img src="Z:/picture/004/save_picture_245977.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245940.jpg" />
+  <img src="Z:/picture/004/save_picture_245940.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245888.jpg" />
+  <img src="Z:/picture/004/save_picture_245888.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245823.jpg" />
+  <img src="Z:/picture/004/save_picture_245823.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ FXPHD, Jeronimo Maggi | HOU222 - USD in Houdini 19.5 (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245808.jpg" />
+  <img src="Z:/picture/004/save_picture_245808.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245544.jpg" />
+  <img src="Z:/picture/004/save_picture_245544.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245413.jpg" />
+  <img src="Z:/picture/004/save_picture_245413.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245371.jpg" />
+  <img src="Z:/picture/004/save_picture_245371.jpg" />
 </div>
 
 
@@ -494,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245012.jpg" />
+  <img src="Z:/picture/004/save_picture_245012.jpg" />
 </div>
 
 
@@ -522,7 +549,7 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244398.jpg" />
 </div>
 
 
@@ -548,7 +575,7 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244369.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244341.jpg" />
 </div>
 
 
@@ -603,7 +630,7 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244332.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244305.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244206.jpg" />
 </div>
 
 
@@ -668,35 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A44C2342A774BFDEA3EAE61D83DBDF755B148B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622491   (243723) от 29.03.2023
-
-Enterclass, Марина Ласаева | Дачное настроение (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дачный сезон богат на сюжеты для картин. Начинаем готовиться заранее в марафоне с Мариной Ласаевой. Напишем четыре сюжета разными материалами, научимся акварельной «легкости» и острой графике. Шишки, цветы, натюрморт с самоваром и крыжовник линером – отличное подспорье для грядущего творческого сезона. Старт 18 марта – присоединяйтесь!
-
-МАРИНА ЛАСАЕВА
-художник-акварелист,(   Читать дальше...   )Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 14:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

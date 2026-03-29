@@ -1,3 +1,148 @@
+###  Публикация: 1119853   (241179) от 29.03.2017
+
+The Jelly Jam - Profit (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care (5:47)
+02. Stain On The Sun (3:09)
+03. Water (4:58)
+04. Stop (3:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC706E93083C3938C27ECEACF2B5FDFCC451533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547789   (241104) от 30.04.2022
+
+The William Loveday Intention - Early Demos, Vol. 2 (The Devil and God Entwined) (2022) [FLAC|Lossless|WEB-DL|tracks] <Garage Rock, Psychedelic, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Make Me Die [02:42]
+02. Das Lied Der Kriegsmarine (Take 2) [02:25]
+03. The Angel of Death [03:08]
+04. I Don't Like the Man I Am (Take 2) [04:22](   Читать дальше...   )Жанр: Garage Rock, Psychedelic, Blues RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42D821297359E1438DCF161CDD568ED37D6E62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461756   (241095) от 14.04.2021
+
+Dominoe - The Lost Radio Show (2018) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Sugar (4:35)
+02. Satellite (3:39)
+03. Dark Dogs (3:30)
+04. Angel Don't Cry (3:45)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A70B3F61B98126CA442144FF2F6C0B416B7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017075   (241085) от 17.04.2022
+
+VA - The Rock: The Ultimate Collection (2011) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название Ultimate Collection ко многому обязывает. Но думаю, Sony Music вполне справилась с этой задачей. Такого сборника классического рока (сбалансированного и по исполнителям и по классическим трекам) достаточно трудно найти. Многие найдут для себя какие-то новые имена, а кто-то просто вспомнит как это всё было...CD1:
+01. Sweet - Ballroom Blitz  (4:03)
+02. Toto - Hold The Line  (3:57)
+03. Survivor - Eye Of The Tiger  (4:06)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C39B48627A98DD557C50296B9E7DC3E095732E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625656   (241036) от 11.04.2023
+
+VA - 70s Lost & Found (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Don't Stop (2018 Remaster)
+ 02. Hot Chocolate - Every 1's a Winner (Single Version)
+ 03. Chicago - Baby, What a Big Surprise
+ 04. Aretha Franklin - Until You Come Back to Me (That's What I'm Gonna Do)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAB818E955030F387DDE24D17529756BBC8D825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626183   (241025) от 13.04.2023
 
 VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241025.jpg" />
+  <img src="Z:/picture/004/save_picture_241025.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Julius Project - Cut The Tongue (2020) [FLAC|Lossless|image + .cue] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240878.jpg" />
+  <img src="Z:/picture/004/save_picture_240878.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Gathering - Interference (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Atmospheri
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240873.jpg" />
+  <img src="Z:/picture/004/save_picture_240873.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ Blanc Faces - Blanc Faces (2005) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240799.jpg" />
+  <img src="Z:/picture/004/save_picture_240799.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ VA - Rock Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240791.jpg" />
+  <img src="Z:/picture/004/save_picture_240791.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Rockets - Another Future (1992) Reissue 2008, Recording Arts AG [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240766.jpg" />
+  <img src="Z:/picture/004/save_picture_240766.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Nektar - ...Sounds Like This (1973) 2CD, Remastered, 2022, Esoteric Recordings [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240762.jpg" />
+  <img src="Z:/picture/004/save_picture_240762.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Enigma Project - Living the Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240720.jpg" />
+  <img src="Z:/picture/004/save_picture_240720.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Narnia - Aslan Is Not A Tame Lion (1974) Reissue, 2017, Hiatus [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240678.jpg" />
+  <img src="Z:/picture/004/save_picture_240678.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Perfect View - Bushido (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240671.jpg" />
+  <img src="Z:/picture/004/save_picture_240671.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Pure Reason Revolution - Above Cirrus (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240586.jpg" />
+  <img src="Z:/picture/004/save_picture_240586.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Giant Brain - Grade A Gray Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240568.jpg" />
+  <img src="Z:/picture/004/save_picture_240568.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Wo Fat - The Singularity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240520.jpg" />
+  <img src="Z:/picture/004/save_picture_240520.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Alex Carpani - Microcosm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240446.jpg" />
+  <img src="Z:/picture/004/save_picture_240446.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Tyler Kamen - Artichoke Pythagorum (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240431.jpg" />
+  <img src="Z:/picture/004/save_picture_240431.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Dead Earthlings - Dead Earthlings (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240415.jpg" />
+  <img src="Z:/picture/004/save_picture_240415.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ The Flower Kings - Paradox Hotel (2006) 2023, InsideOutMusic [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_240387.jpg" />
+  <img src="Z:/picture/005/save_picture_240387.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240380.jpg" />
+  <img src="Z:/picture/004/save_picture_240380.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240355.jpg" />
+  <img src="Z:/picture/004/save_picture_240355.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Bomber Goggles - Gyreland (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240341.jpg" />
+  <img src="Z:/picture/004/save_picture_240341.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Dave Matthews Band - Walk Around The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240338.jpg" />
+  <img src="Z:/picture/004/save_picture_240338.jpg" />
 </div>
 
 
@@ -602,151 +747,6 @@ Dave Matthews Band - Walk Around The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4964720F5B77C11E17CD2760CE8146DAA543D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465092   (240311) от 25.04.2021
-
-Marko Hietala - Pyre Of The Black Heart (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stones (5:15)
-02. The Voice Of My Father (4:37)
-03. Star, Sand And Shadow (5:01)
-04. Dead God's Son (4:42)(   Читать дальше...   )Жанр: Symphonic Rock, Heavy MetalПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6545C02E7AFA5348C84C84B8A63A38C33DD9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634347   (240301) от 19.05.2023
-
-Stormburst - III (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up On Your Feet
-02. Peace Of Mind
-03. When The Worlds Collide
-04. Wild And Crazy(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC0D9957284BECBB0BDB77D75543ABA7E6D7C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411638   (240290) от 26.09.2020
-
-Yuri Gagarin - The Outskirts Of Reality (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock / Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. QSO (10:05)
-02. Oneironaut (13:36)
-03. Crystal Dunes (08:00)
-04. Laboratory 1 (03:48)(   Читать дальше...   )Жанр: Psychedelic Rock / Space RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DACDE09370DC76CF7AC22408F4F30AC4239D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637069   (240282) от 02.06.2023
-
-Hollywood Vampires - Live In Rio (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise the Dead (5:30)
-02. My Generation (3:02)
-03. I Got a Line on You (2:54)
-04. Cold Turkey (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01D9B218644945161571CEBBBB281A6227F938E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465064   (240275) от 25.04.2021
-
-Carla Riehl - Heroes (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Lite AOR, CCM>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240275.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heroes
-2. Out On The Ocean
-3. Write Your Vision
-4. Destiny(   Читать дальше...   )Жанр: Soft Rock, Lite AOR, CCMПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96890B85A50B5ECA54D514B747DFAAF253E257C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

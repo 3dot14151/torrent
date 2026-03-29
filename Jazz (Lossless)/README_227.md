@@ -1,3 +1,119 @@
+###  Публикация: 1336050   (282724) от 05.11.2019
+
+Katherine Penfold - Sweetest Thing (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unapologetic (4:39)
+02. Feel Like Makin' Love (3:17)
+03. Far Away (4:14)
+04. Better (3:30)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D345C41D09FFA0C057482FE7551E1396247D9DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187149   (282682) от 27.11.2017
+
+Yusef Lateef - Yusef Lateef's Detroit: Latitude 42º 30' Longitude 83º (1969) 2002, Collectables [WavPack|Lossless|image + .cue] <Hard Bop, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bishop School [03:02]
+02. Livingston Playground [03:41]
+03. Eastern Market [04:15]
+04. Belle Isle [03:15](   Читать дальше...   )Жанр: Hard Bop, Jazz-FunkПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88473CB9753EDBC290F86DF456A514FAE39F0AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964441   (282606) от 11.12.2015
+
+Cecil Taylor - The Great Paris Concert (1966) 1999, Black Lion[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sudent Studies part 1 [16:01]
+ 02.Sudent Studies part 2 [11:01]
+ 03.Amplitude [19:45]
+ 04.Niggle Feuigle [12:07]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5224CC170F638C791BD6B09671EF6B18DDD5EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964408   (282602) от 11.12.2015
+
+Art Blakey - Drums Around The Corner (1959) 2014, Universal[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_282602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moose The Mooche [15:20]
+ 02.Blakey's Blues [11:10]
+ 03.Lee's Tune [08:27]
+ 04.Let's Take 16 Bars [06:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD49171CC79251F1EDBF20945F4AA3C47A3A3DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 964544   (282423) от 11.12.2015
 
 VA - Blue Note Live At The Roxy Vol. 1 (Alphonse Mouzon, Ronnie Laws, Donald Byrd) (1976) 2012, EMI Music[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
@@ -6,7 +122,7 @@ VA - Blue Note Live At The Roxy Vol. 1 (Alphonse Mouzon, Ronnie Laws, Donald Byr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282423.jpg" />
+  <img src="Z:/picture/008/save_picture_282423.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Paul Hardcastle - The Collection (2009) [FLAC|Tracks+cue]<Nu Jazz, Lounge, Chill
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282234.jpg" />
+  <img src="Z:/picture/008/save_picture_282234.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Connee Boswell - Connee Boswell And The Original Memphis Five in Hi-Fi (1956) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281247.jpg" />
+  <img src="Z:/picture/008/save_picture_281247.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281124.jpg" />
+  <img src="Z:/picture/008/save_picture_281124.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Acoustic Alchemy - Thirty Three and a Third (2018) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281093.jpg" />
+  <img src="Z:/picture/008/save_picture_281093.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jerome Cooper - In Concert. From There To Hear (2001) Mutable Music[APE|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281065.jpg" />
+  <img src="Z:/picture/008/save_picture_281065.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - The Art Of Jazz: The Traditional & The Modern Sound (1991) 2CD, Jazz Life[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281054.jpg" />
+  <img src="Z:/picture/008/save_picture_281054.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Kenny Clarke - Bohemia After Dark (1955) 1992, Savoy[FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281036.jpg" />
+  <img src="Z:/picture/008/save_picture_281036.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bill Evans Trio - Live At Ronnie Scott's: Letter To Evan & Turn Out The Stars (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281025.jpg" />
+  <img src="Z:/picture/008/save_picture_281025.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Anthony Wonsey Trio - Anthonyology (1995) [FLAC|Lossless|tracks + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280955.jpg" />
+  <img src="Z:/picture/008/save_picture_280955.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Oscar Peterson Trio - Live In Paris 1957-1962 (2017) 3CD, Fremeaux & Associe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280943.jpg" />
+  <img src="Z:/picture/008/save_picture_280943.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Prince Lasha - Inside Story & Search For Tomorrow (1965/1974) 2001, Enja[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280932.jpg" />
+  <img src="Z:/picture/008/save_picture_280932.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stan Kenton - Adventures In Jazz (1961) 1999, Capitol [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280776.jpg" />
+  <img src="Z:/picture/008/save_picture_280776.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Carola Grey - The Age of Illusions (1994) Jazzline [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280770.jpg" />
+  <img src="Z:/picture/008/save_picture_280770.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Miles Davis Quintet - Freedom Jazz Dance (The Bootleg Series) Vol. 5 (2016) 3CD 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280744.jpg" />
+  <img src="Z:/picture/008/save_picture_280744.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Franco D'Andrea - Solo 8: Classic Jazz (2002) Philology [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279579.jpg" />
+  <img src="Z:/picture/008/save_picture_279579.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Gil Evans - Priestess (1977) 1983, Antilles [APE|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279578.jpg" />
+  <img src="Z:/picture/008/save_picture_279578.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Jordi Sabatés amb Toti Soler - Jordi Sabatés amb Toti Soler (1973) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279577.jpg" />
+  <img src="Z:/picture/008/save_picture_279577.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279576.jpg" />
+  <img src="Z:/picture/008/save_picture_279576.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279575.jpg" />
+  <img src="Z:/picture/008/save_picture_279575.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279256.jpg" />
+  <img src="Z:/picture/008/save_picture_279256.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279255.jpg" />
+  <img src="Z:/picture/008/save_picture_279255.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Gary Burton - Artist's Choice (1963 - 1967) 1987, Bluebird [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC1CC96724F81498505158B374711886C2BEBC60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336633   (279168) от 07.11.2019
-
-Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Money (Jones) - 4:20
-02. Willow Weep for Me (Ronell) - 4:49
-03. Droppin' Things (Carter) - 4:34
-04. Man from Mars (Mitchell) - 6:24(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187574   (278967) от 29.11.2017
-
-Bodil Niska - Blue (2004) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Wee Small Hours of the Morning [05:51]
-02. How About You [04:59]
-03. Et gammelt stykke Oslo [04:32]
-04. Taking a Chance on Love [06:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF41A934E8AA9928CED78742DCE386DACCBD2CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187573   (278966) от 29.11.2017
-
-Bodil Niska - First Song (2000) Hot Club Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Boy [03:53]
-02. Rosetta [06:58]
-03. Merlin [03:45]
-04. Only Trust Your Heart [06:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64F27FBF422B28E94FEBE168D6DFA54148A27CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187578   (278863) от 29.11.2017
-
-Bodil Niska - Night Time (2008) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Rainbow [05:37]
-02. Watch What Happens [04:41]
-03. Fiin gammel [04:26]
-04. C'est si bon [05:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

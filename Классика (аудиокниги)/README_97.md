@@ -1,3 +1,114 @@
+###  Публикация: 430873   (7355) от 17.08.2025
+
+Джон Голсуорси | Сага о Форсайтах. Современная комедия (Книга 2). Серебряная ложка (2010) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Сага о Форсайтах. Современная комедия.
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
+«Сага о Форсайтах» – монументальная серия разноплановых произведений Джона Голсуорси, которая описывает историю многочисленного семейства Форсайтов на протяжении нескольких поколений, ее связь с судьбами Англии. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Александра КривцоваИздательство: Студия «АРДИС»Продолжительность: 12:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA8F7BC99936272DB7DF6A9B1C6340AEFB2BB56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 279503   (7350) от 17.08.2025
+
+Джон Голсуорси | Рваный башмак (2010) [MP3, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена.
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, лауреат Нобелевской премии по литературе 1932 г, автор знаменитого цикла «Сага о Форсайтах».
+Сборник рассказов Джона Голсуорси, английского писателя, на художественный вкус которого оказали большое влияние Диккенс, Теккерей, Мопассан, Тургенев и Толстой.Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E6629C9E4F452EF27D4A55377453A4532A9011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430794   (7337) от 17.08.2025
+
+Джон Голсуорси | Сага о Форсайтах (Книга 2). В петле. Интерлюдия: Пробуждение (2007) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
+«Сага о Форсайтах» – роман, рассказывающий о жизни британской буржуазной семьи Форсайтов от конца XIX века до начала XX века.
+«В петле» – второй роман трилогии «Сага о Форсайтах». Рубеж ХIХ и ХХ веков, англо-бурская война, конец викторианской эпохи, крушение казавшихся (   Читать дальше...   )Жанр: Зарубежная литература, классика, роман, рассказПеревод: Мария Богословская-Боброва, Мария ЛориеИздательство: Студия «АРДИС»Продолжительность: 14:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AE141EB8C6D50A92C80606A1FC386320107D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430870   (7335) от 17.08.2025
+
+Джон Голсуорси | Сага о Форсайтах (Книга 3). Сдаётся внаём (2006) [MP3, Инна Сытник]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Голсуорси (1867–1933) – английский прозаик и драматург, автор знаменитого цикла «Сага о Форсайтах».
+В центре романа «Сдаётся внаём» (1921), завершающего его знаменитую трилогию «Сага о Форсайтах» – история отношений двух юных представителей враждующих ветвей рода Форсайтов, Флер и Джона. Наследники старинной ненависти и взаимных обид своих родителей, они не (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Надежда ВольпинИздательство: БиблиофоникаПродолжительность: 11:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA31FBAAD818348FA65E9CCA4D472CE4200752D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 279523   (7334) от 17.08.2025
 
 Джон Голсуорси | Яблоня (2005) [MP3, Вадим Максимов]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7334.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7224.jpg" />
 </div>
 
 
@@ -63,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7183.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7117.jpg" />
 </div>
 
 
@@ -117,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7055.jpg" />
 </div>
 
 
@@ -145,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7052.jpg" />
 </div>
 
 
@@ -174,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7051.jpg" />
 </div>
 
 
@@ -203,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7041.jpg" />
 </div>
 
 
@@ -231,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7020.jpg" />
 </div>
 
 
@@ -259,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6759.jpg" />
 </div>
 
 
@@ -286,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6742.jpg" />
 </div>
 
 
@@ -312,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6741.jpg" />
 </div>
 
 
@@ -338,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6736.jpg" />
 </div>
 
 
@@ -365,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6565.jpg" />
 </div>
 
 
@@ -393,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6405.jpg" />
 </div>
 
 
@@ -420,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6403.jpg" />
 </div>
 
 
@@ -446,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6398.jpg" />
 </div>
 
 
@@ -472,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6290.jpg" />
 </div>
 
 
@@ -499,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6287.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6276.jpg" />
 </div>
 
 
@@ -553,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6272.jpg" />
 </div>
 
 
@@ -581,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6269.jpg" />
 </div>
 
 
@@ -592,117 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814194   (6263) от 23.08.2025
-
-Исаак Бабель | Как это делалось в Одессе (2008) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
-Рассказ «Как это делалось в Одессе» (1923), цикл «Одесские рассказы». Первая публикация – «Литературное приложение» к газете «Известия Одесского губисполкома, губкома КП(б)У и губпрофсовета», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 03:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75E5422CF0DD65EC7027FFD25D95237C32988D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814193   (6251) от 23.08.2025
-
-Исаак Бабель | Беня Крик (2017) [MP3, Игорь Тарадайкин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
-Бенцион (Беня) Менделевич Крик по прозвищу Король – главный герой ряда произведений Исаака Бабеля: сборника «Одесские рассказы», пьесы «Закат», киноповести «Беня Крик», аудиозапись которой в исполнении (   Читать дальше...   )Жанр: Русская литература, классика, киноповестьИздательство: Студия «АРДИС»Продолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815496   (5121) от 30.08.2025
-
-Владимир Клавдиевич Арсеньев | Встречи в тайге (2015) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Клавдиевич Арсеньев (1872-1930) – российский исследователь Дальнего Востока, писатель и географ. Изучал в 1902-1903 гг. Южное Приморье, а в 1906–1910 гг. – горы Сихотэ-Алиня.
-Студия «АРДИС» предлагает вашему вниманию аудиокнигу «Встречи в тайге» знаменитого русского исследователя Дальнего Востока и писателя Владимира Арсеньева. В.К. Арсеньев писал свои книги (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 05:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C4FA7C85EF29EC03B46889617D803BC993C7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442989   (4878) от 01.09.2025
-
-Иоганн Вольфганг Гёте | Страдания юного Вертера (2005) [MP3, Кирилл Гребенщиков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «XVIII век. Зарубежная проза».
-Иоганн Вольфганг Гёте (1749–1832) – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста».
-«Страдания молодого Вертера» – принесший автору мировую славу роман, проникнут духом и идеями Гердера и Руссо. Герой произведения Вертер – даровитый молодой человек с передовыми взглядами и устремлениями. Он глубоко страдает (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталья КасаткинаИздательство: Студия «АРДИС»Продолжительность: 05:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90519EFF652F553008CC4EE6B82ED1D155BD3CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

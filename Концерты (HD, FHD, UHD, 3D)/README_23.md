@@ -1,3 +1,81 @@
+###  Публикация: 1559665   (523383) от 26.06.2022
+
+Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEB-DL [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юбилейный, 30-й праздник выпускников «Алые паруса» вновь озаряет Петербург залпами салютов, провожающих вчерашних школьников в новую жизнь. Создатели всемирно известного события в этом году выбрали главной его темой вечные ценности, которые вдохновляют и дарят веру в будущее. Центральная часть празднования - запуск фейерверков и шествие брига «Россия». Выпускников (   Читать дальше...   )Телекомпания: 5 каналЖанр: ТВ-шоу, Реальное ТВ, КонцертПродолжительность: 03:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9877DE905FE0495538196C7297C7E24B0FF19989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314268   (520331) от 13.07.2019
+
+Славянский базар в Витебске. Торжественное открытие (11.07.2019) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гала-концерт торжественного открытия XXVIII Международного фестиваля искусств «Славянский базар в Витебске — 2019» стал признанием в любви к городу, артистам и зрителям. Красной нитью через всю программу прошли темы малой родины, семейных и общечеловеческих ценностей, любви, дружбы и преемственности поколений.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684BAE637BF38E90928AF5F8E6D29109E66E8AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314439   (519371) от 14.07.2019
+
+Квартирник НТВ у Маргулиса. Рожден Ануси (13.07.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519371.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске в гости к Евгению Маргулису пришел известный украинский певец и саунд-продюсер Рожден Ануси, который выступает под именем ROZHDEN. Российской публике он известен такими композициями, как «Знаешь», «Без тебя, "Пустяк"», «Герой», «Ни ты, ни я». Рожден поделился интересными воспоминаниями из творческой жизни, и исполнил свои лучшие композиции. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A18F0CCDB06946BD04A71C07AFEAAB08D8A27C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314381   (519272) от 14.07.2019
 
 Славянский базар в Витебске. Песнярам - 50  (12.07.2019) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519272.jpg" />
+  <img src="Z:/picture/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518342.jpg" />
+  <img src="Z:/picture/008/save_picture_518342.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518261.jpg" />
+  <img src="Z:/picture/008/save_picture_518261.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518229.jpg" />
+  <img src="Z:/picture/008/save_picture_518229.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517216.jpg" />
+  <img src="Z:/picture/008/save_picture_517216.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517033.jpg" />
+  <img src="Z:/picture/008/save_picture_517033.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516593.jpg" />
+  <img src="Z:/picture/008/save_picture_516593.jpg" />
 </div>
 
 
@@ -199,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516056.jpg" />
+  <img src="Z:/picture/008/save_picture_516056.jpg" />
 </div>
 
 
@@ -225,7 +303,7 @@ Iron Maiden - Flight 666 (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516008.jpg" />
+  <img src="Z:/picture/008/save_picture_516008.jpg" />
 </div>
 
 
@@ -254,7 +332,7 @@ Slipknot / Live At Download (2009/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515357.jpg" />
+  <img src="Z:/picture/008/save_picture_515357.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ Muse - Live At Rome Olympic Stadium (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513660.jpg" />
+  <img src="Z:/picture/008/save_picture_513660.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511742.jpg" />
+  <img src="Z:/picture/008/save_picture_511742.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ Heaven and Hell - Radio City Music Hall Live! (2011) BDRip 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505415.jpg" />
+  <img src="Z:/picture/008/save_picture_505415.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Metallica - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504942.jpg" />
+  <img src="Z:/picture/008/save_picture_504942.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Gary Moore - Live at Montreux (2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504157.jpg" />
+  <img src="Z:/picture/008/save_picture_504157.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504152.jpg" />
+  <img src="Z:/picture/008/save_picture_504152.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ U.D.O. - Navy Metal Night (2014/2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503258.jpg" />
+  <img src="Z:/picture/008/save_picture_503258.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502318.jpg" />
+  <img src="Z:/picture/008/save_picture_502318.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Gary Moore - Blues for Jimi (2007/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502152.jpg" />
+  <img src="Z:/picture/008/save_picture_502152.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ U.D.O. - Navy Metal Night (2014/2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502149.jpg" />
+  <img src="Z:/picture/008/save_picture_502149.jpg" />
 </div>
 
 
@@ -567,7 +645,7 @@ Madonna - Sticky and Sweet Tour (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502136.jpg" />
+  <img src="Z:/picture/008/save_picture_502136.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ Rammstein - Live @ Moscow (2019) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502114.jpg" />
+  <img src="Z:/picture/008/save_picture_502114.jpg" />
 </div>
 
 
@@ -621,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502093.jpg" />
+  <img src="Z:/picture/008/save_picture_502093.jpg" />
 </div>
 
 
@@ -637,99 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Подруга
 09. Ноктюрн (Дуэт с И. Кобзоном)
 10. Была любовь(   Читать дальше...   )Жанр: PopПродолжительность: 01:58:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317268   (501113) от 31.07.2019
-
-Легенды Ретро FM полная версия (2018) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера международного музыкального фестиваля Легенды Ретро FM 201801. Дмитрий Харатьян и Домисолька - Мы к вам заехали на час
-02. Ottawan - D.I.S.C.O.
-03. Ottawan - Shalala Song
-04. Ottawan - Hands Up(   Читать дальше...   )Телекомпания: 1 канал (Россия)Жанр: PopСубтитры: отсутствуютПродолжительность: 04:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C900124478B67F6290F3841286FB14489C07689C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935060   (500199) от 07.09.2015
-
-Madonna - The MDNA Tour (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500199.jpg" />
-</div>
-
-
-###  Подробнее
-
-The MDNA Tour — девятый концертный тур американской певицы Мадонны в поддержку её двенадцатого студийного альбома MDNA. Сразу после выпуска MDNA в интервью для Vogue Italia, Мадонна сказала, что хочет двигаться. Было решено создать самый масштабный тур в ее карьере, включающий в себя около 90 дат. Первоначально планировалось провести концерты в США, после чего отправится (   Читать дальше...   )01. Virgin Mary (Intro)
-02. Girl Gone Wild
-03. Revolver
-04. Gang Bang(   Читать дальше...   )Жанр: PopРежиссер: Дэнни ТуллПродолжительность: 01:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFF70C07AD20465628A277753B341A0AD28090D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541617   (499051) от 02.09.2012
-
-Валерия: Русские романсы и золотые шлягеры XX века (2012) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499051.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале декабря прошлого года Валерия праздновала в Государственном Кремлевском дворце 20-летие своей творческой деятельности. По ее собственному признанию, певица не любит никаких юбилеев, «потому что юбилей предполагает взгляд назад». В связи с этим Валерия отказалась от идеи устроить ретроспективу своих хитов за отчетный период и подготовила специальную программу – по ее мнению, «лирическую и основанную на романсах, с которых она начинала», а по сути – невероятно торжественную и пафосную: с Российский национальным оркестром в роли аккомпаниатора, камерным хором Московской консерватории в качестве «подпевок», а также Раймондом Паулсом, Давидом Тухмановым и Игорем Крутым, исполняющими партии на рояле в своих песнях. Многочисленные знаменитые гости и коллеги - вопреки популярной юбилейной традиции музыкальных поздравлений - наблюдали за триумфом Валерии из зала: режиссер телеверсии не забывал регулярно показывать то Ларису Долину, то Михаила Барщевского, то взволнованного и гордого Иосифа Пригожина. Гордиться (   Читать дальше...   )01. П.И. Чайковский - Полонез из оперы "Евгений Онегин"
-02. Как хороши те очи
-03. Хризантемы
-04. Оправдаешь ли ты
-05. Небо звездами (За роялем Д. Тухманов)
-06. Напрасные слова (За роялем Д. Тухманов)
-07. Нищая
-08. Подруга
-09. Ноктюрн (Дуэт с И. Кобзоном)
-10. Была любовь(   Читать дальше...   )Жанр: МузыкаРежиссер: Артём ШадровАктеры: Валерия (Алла Перфилова), Давид Тухманов, Иосиф Кобзон, Игорь Крутой, Раймонд Паулс, Василий Герелло, Арсений Шульгин, Российский Национальный ОркестрПеревод: ОтсутствуетПродолжительность: 01:58:04
 
 ## Скачать торент
 ```bash

@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764041.jpg" />
+  <img src="Z:/picture/008/save_picture_764041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2022.01.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764008.jpg" />
+  <img src="Z:/picture/008/save_picture_764008.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ontal - Amass (2017) Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764002.jpg" />
+  <img src="Z:/picture/008/save_picture_764002.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mellel 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763994.jpg" />
+  <img src="Z:/picture/008/save_picture_763994.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Pale Moon 27.8.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763979.jpg" />
+  <img src="Z:/picture/008/save_picture_763979.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Vivaldi 1.14.1077.60 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763977.jpg" />
+  <img src="Z:/picture/008/save_picture_763977.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ ReviverSoft Registry Reviver 4.19.4.4 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763975.jpg" />
+  <img src="Z:/picture/008/save_picture_763975.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ FastStone Capture 8.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763971.jpg" />
+  <img src="Z:/picture/008/save_picture_763971.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763968.jpg" />
+  <img src="Z:/picture/008/save_picture_763968.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ FastStone Capture 8.9 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763945.jpg" />
+  <img src="Z:/picture/008/save_picture_763945.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Telegram Desktop 1.2.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763938.jpg" />
+  <img src="Z:/picture/008/save_picture_763938.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Driver Easy Pro 5.6.1.14162 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763937.jpg" />
+  <img src="Z:/picture/008/save_picture_763937.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Opera 52.0.2871.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763935.jpg" />
+  <img src="Z:/picture/008/save_picture_763935.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NetLimiter 4.0.33.0 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763933.jpg" />
+  <img src="Z:/picture/008/save_picture_763933.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Android Studio 3.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763931.jpg" />
+  <img src="Z:/picture/008/save_picture_763931.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_763912.jpg" />
+  <img src="Z:/picture/005/save_picture_763912.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Skype 7.41.32.101 by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763901.jpg" />
+  <img src="Z:/picture/008/save_picture_763901.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763853.jpg" />
+  <img src="Z:/picture/008/save_picture_763853.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763849.jpg" />
+  <img src="Z:/picture/008/save_picture_763849.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763847.jpg" />
+  <img src="Z:/picture/008/save_picture_763847.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ EASEUS Partition Master 12.9 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763843.jpg" />
+  <img src="Z:/picture/008/save_picture_763843.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763837.jpg" />
+  <img src="Z:/picture/008/save_picture_763837.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763825.jpg" />
+  <img src="Z:/picture/008/save_picture_763825.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763810.jpg" />
+  <img src="Z:/picture/008/save_picture_763810.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763794.jpg" />
+  <img src="Z:/picture/008/save_picture_763794.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763773.jpg" />
+  <img src="Z:/picture/008/save_picture_763773.jpg" />
 </div>
 
 

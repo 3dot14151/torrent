@@ -1,3 +1,29 @@
+###  Публикация: 1856130   (1058776) от 26.02.2026
+
+Level One, Татьяна Смирнова | Как использовать возможности мозга (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1058776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мозг — рычаг управления всей жизнью. Он не только про интеллект. Научиться распоряжаться мозгом — значит получить неограниченные возможности: влиять на свои эмоции, выстраивать крепкие связи, больше зарабатывать и жить ярко. За какую бы сферу мы ни взялись, нужно прокачивать голову. Каждый из нас может больше. Есть волшебная таблетка — научный подход. Для курса мы (   Читать дальше...   )Производство: Level OneЖанр: видеокурс, обучающий курс, психология, саморазвитиеЯзык озвучки: русскийПродолжительность: 08:59:32Реклама: наложение на видео и в презентации (плашка спонсоров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17679B396926A170DC9BB7BAD327D06DC8D0E2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855829   (1058757) от 26.02.2026
 
 Зина Шамоян | Папа, я даю тебе место в сердце (2023) WEBRip [RU] [AD]
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058757.jpg" />
+  <img src="Z:/picture/005/save_picture_1058757.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ EduNote, Наталья Вяземская | Кризис самоценност
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058756.jpg" />
+  <img src="Z:/picture/005/save_picture_1058756.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058604.jpg" />
+  <img src="Z:/picture/005/save_picture_1058604.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058603.jpg" />
+  <img src="Z:/picture/005/save_picture_1058603.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058400.jpg" />
+  <img src="Z:/picture/005/save_picture_1058400.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058144.jpg" />
+  <img src="Z:/picture/005/save_picture_1058144.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055716.jpg" />
+  <img src="Z:/picture/005/save_picture_1055716.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054974.jpg" />
+  <img src="Z:/picture/005/save_picture_1054974.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054176.jpg" />
+  <img src="Z:/picture/005/save_picture_1054176.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054088.jpg" />
+  <img src="Z:/picture/005/save_picture_1054088.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ Mindvalley, Джон Бутчер, Мисси Бутчер | Книга жизн
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052177.jpg" />
+  <img src="Z:/picture/005/save_picture_1052177.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ The Great Courses, Стивен Новелла | Игры разума: Науч
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052103.jpg" />
+  <img src="Z:/picture/005/save_picture_1052103.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051478.jpg" />
+  <img src="Z:/picture/005/save_picture_1051478.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ TutorPlace, Анна Литвиненко (Дробот) | Ораторское 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051474.jpg" />
+  <img src="Z:/picture/005/save_picture_1051474.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050647.jpg" />
+  <img src="Z:/picture/008/save_picture_1050647.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050142.jpg" />
+  <img src="Z:/picture/005/save_picture_1050142.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Level One, Леонид Немцев | Вечные книги: от «Гамл�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050128.jpg" />
+  <img src="Z:/picture/005/save_picture_1050128.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049291.jpg" />
+  <img src="Z:/picture/008/save_picture_1049291.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049289.jpg" />
+  <img src="Z:/picture/008/save_picture_1049289.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Liveclasses, Анатолий Ясинский | Ценности и конфл�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049288.jpg" />
+  <img src="Z:/picture/008/save_picture_1049288.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ TutorPlace, Илья Тараканов | Как помочь близкому �
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048064.jpg" />
+  <img src="Z:/picture/008/save_picture_1048064.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Level One, Анна Кигай | Свобода глазами философо�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047980.jpg" />
+  <img src="Z:/picture/008/save_picture_1047980.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Lectera, Lectera | Профессии будущего. Работа на сов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046790.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ TutorPlace, Эрика Байрамова | Как бросить курить 2
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046765.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044904.jpg" />
 </div>
 
 
@@ -649,35 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E78F5C22D1A19460313A2AB743A9F420F786CC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436508   (1042992) от 01.01.2021
-
-Ицхак Пинтосевич | Курс «Новый Я: революционная трансформация мышления для бизнеса и жизни» (2017) CamRip
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухмесячный курс, в который входит 8 занятий и 8 домашних заданий. Проходит в режиме онлайн, видео-лекции. Специальных навыков не требуется.
-
-Для кого актуален:
-Тем, кто хочет избавиться от заложенных в детстве программ и четко смотреть в будущее, используя в настоящем все доступные инструменты.Жанр: БизнесПродолжительность: 05:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAE76272973536BB0B8B9491ADBA0F61F1A1190
 ```
 
 https://mybot314.ru/tekegram_catalog/

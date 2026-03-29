@@ -1,3 +1,29 @@
+###  Публикация: 1033732   (635800) от 12.07.2016
+
+И.П. Неумывакин | Вода - жизнь и здоровье: мифы и реальность (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга еще об одном чуде природы - воде, без которой, как все мы хорошо знаем, нет жизни на Земле. Однако автор книги И.П. Неумывакин (доктор медицинских наук, народный целитель, разработавший и применяющий на практике собственную систему по оздоровлению организма, автор многих популярных книг, в том числе и знаменитой "Перекиси водорода") рассказывает (   Читать дальше...   )Жанр: Нетрадиционная медицинаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBF2C779F5A598A85E725AFEA4A5446BC6D2F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909347   (627621) от 17.06.2015
 
 Кэрол Ритбергер | Сигналы тела. О чем говорят наши болезни. Помоги своему исцелению (2009) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627621.jpg" />
+  <img src="Z:/picture/008/save_picture_627621.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626081.jpg" />
+  <img src="Z:/picture/008/save_picture_626081.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625926.jpg" />
+  <img src="Z:/picture/008/save_picture_625926.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625837.jpg" />
+  <img src="Z:/picture/008/save_picture_625837.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623291.jpg" />
+  <img src="Z:/picture/008/save_picture_623291.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622051.jpg" />
+  <img src="Z:/picture/008/save_picture_622051.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620847.jpg" />
+  <img src="Z:/picture/008/save_picture_620847.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620846.jpg" />
+  <img src="Z:/picture/008/save_picture_620846.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620731.jpg" />
+  <img src="Z:/picture/008/save_picture_620731.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620480.jpg" />
+  <img src="Z:/picture/008/save_picture_620480.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620102.jpg" />
+  <img src="Z:/picture/008/save_picture_620102.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618833.jpg" />
+  <img src="Z:/picture/008/save_picture_618833.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615850.jpg" />
+  <img src="Z:/picture/008/save_picture_615850.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614929.jpg" />
+  <img src="Z:/picture/008/save_picture_614929.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614075.jpg" />
+  <img src="Z:/picture/008/save_picture_614075.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614071.jpg" />
+  <img src="Z:/picture/008/save_picture_614071.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613746.jpg" />
+  <img src="Z:/picture/008/save_picture_613746.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612717.jpg" />
+  <img src="Z:/picture/008/save_picture_612717.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610554.jpg" />
+  <img src="Z:/picture/008/save_picture_610554.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608819.jpg" />
+  <img src="Z:/picture/008/save_picture_608819.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608694.jpg" />
+  <img src="Z:/picture/008/save_picture_608694.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608585.jpg" />
+  <img src="Z:/picture/008/save_picture_608585.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608217.jpg" />
+  <img src="Z:/picture/008/save_picture_608217.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606838.jpg" />
+  <img src="Z:/picture/008/save_picture_606838.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604794.jpg" />
+  <img src="Z:/picture/008/save_picture_604794.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26FA3543FE21C6D74F2074BB0FC9930B049BA445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297552   (603546) от 23.04.2019
-
-Владимир Шампаров | Ваше тело хочет движения! Оздоровительная Гимнастика удовольствия (2019) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Шампаров - основатель и разработчик оздоровительной системы "Гимнастика удовольствия", автор и ведущий тренингов по развитию личности, организатор популярных фестивалей в сфере ЗОЖ, изобретатель "телосообразных" тренажеров, ведущий серии авторских радио- и телепередач, писатель.
-Миллионы людей встанут с уютного дивана и полюбят зарядку, (   Читать дальше...   )Жанр: Здоровье,  Популярная медицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CBA6C830272C10A030B99C50C58AE6E79C0D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

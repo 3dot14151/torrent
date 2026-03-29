@@ -1,3 +1,29 @@
+###  Публикация: 1564599   (249710) от 19.07.2022
+
+Bandband, Мария Галина и др. | Литературная мастерская. Как написать роман (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс о том, как написать свой первый в жизни роман. Пройти этот путь под руководством опытных наставников и редакторов, которые вели авторов в ведущих российских издательствах. На курсе мы напишем первую главу романа, шаг за шагом создадим подробную карту вашего произведения, выстроим его архитектуру, где главы будут соединены изящными арками, а сцены – поддерживаться (   Читать дальше...   )Производство: BandbandЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 32:34:45Реклама: Присутствуют сторонние наложения и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEE6EEB8A95AF6DF8C4D10FE92773C98A16F973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564665   (249691) от 19.07.2022
 
 Курсы писательского мастерства | Поэпизодный план романа за 40 дней (2022) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249691.jpg" />
+  <img src="Z:/picture/004/save_picture_249691.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247740.jpg" />
+  <img src="Z:/picture/004/save_picture_247740.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ MasterClass , Terence Tao | Teaches Mathematical Thinking (2022) WEB-DL [EN / EN
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230617.jpg" />
+  <img src="Z:/picture/005/save_picture_230617.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Jacque Fresco | The Venus Project (2004-2012) WEBRip [H.264] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229449.jpg" />
+  <img src="Z:/picture/004/save_picture_229449.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Bert Rhine | Интимные Женские Секреты / Intimate Secrets (
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227774.jpg" />
+  <img src="Z:/picture/005/save_picture_227774.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227422.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Mark Schoen | Современная Камасутра. Увлекательн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226290.jpg" />
+  <img src="Z:/picture/005/save_picture_226290.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226261.jpg" />
+  <img src="Z:/picture/005/save_picture_226261.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Clint Arthur | Новый Современный Секс / New Sex Now (2004) D
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226251.jpg" />
+  <img src="Z:/picture/005/save_picture_226251.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212980.jpg" />
+  <img src="Z:/picture/005/save_picture_212980.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209410.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208654.jpg" />
+  <img src="Z:/picture/005/save_picture_208654.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ Analytera, Центр Статистических Технологий, Его�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208498.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ Level One, Олег Грознов | Как устроены лучшие гол
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208010.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207716.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Advance, Ягодкин Николай | Как повысить уровень 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207316.jpg" />
+  <img src="Z:/picture/005/save_picture_207316.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207044.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204825.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ TutorOnline, Василий Рустамович | Курс по высшей м
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204778.jpg" />
+  <img src="Z:/picture/004/save_picture_204778.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203312.jpg" />
+  <img src="Z:/picture/004/save_picture_203312.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203214.jpg" />
+  <img src="Z:/picture/004/save_picture_203214.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202404.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201237.jpg" />
+  <img src="Z:/picture/005/save_picture_201237.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199668.jpg" />
+  <img src="Z:/picture/005/save_picture_199668.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199413.jpg" />
+  <img src="Z:/picture/005/save_picture_199413.jpg" />
 </div>
 
 
@@ -675,35 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A052563B227D10477FC3B1C92C7D2E82644FF495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631414   (198892) от 05.05.2023
-
-Уроки Легенд, Максим Суханов | Курс «Актёрское мастерство» (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие навыки вы освоите?
-Как стать востребованным актёром.
-Из чего строится долговременный успех.
-Что значит «быть интересным» для зрителей, продюсеров и режиссёров.(   Читать дальше...   )Производство: Уроки ЛегендЖанр: актёрское мастерствоЯзык озвучки: русскийПродолжительность: 03:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1749B22EC7EEADC12D3952B504D88FA3393945E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

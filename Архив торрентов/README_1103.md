@@ -6,7 +6,7 @@ RAW Power 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796861.jpg" />
+  <img src="Z:/picture/008/save_picture_796861.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BurnAware Free 14.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796856.jpg" />
+  <img src="Z:/picture/008/save_picture_796856.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Mozilla Firefox ESR 45.1.0 Portable by Sitego [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796851.jpg" />
+  <img src="Z:/picture/008/save_picture_796851.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Format Factory 3.9.0 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796850.jpg" />
+  <img src="Z:/picture/008/save_picture_796850.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AIMP 4.02 Build 1713 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796843.jpg" />
+  <img src="Z:/picture/008/save_picture_796843.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796839.jpg" />
+  <img src="Z:/picture/008/save_picture_796839.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796832.jpg" />
+  <img src="Z:/picture/008/save_picture_796832.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796831.jpg" />
+  <img src="Z:/picture/008/save_picture_796831.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Coolmuster Data Recovery 2.1.15 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796822.jpg" />
+  <img src="Z:/picture/008/save_picture_796822.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796821.jpg" />
+  <img src="Z:/picture/008/save_picture_796821.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CyberLink PhotoDirector Ultra 9.0.2504.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796816.jpg" />
+  <img src="Z:/picture/008/save_picture_796816.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ GeoGebra 6.0.674.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796813.jpg" />
+  <img src="Z:/picture/008/save_picture_796813.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Slimjet 32.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796809.jpg" />
+  <img src="Z:/picture/008/save_picture_796809.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ PrivaZer 4.0.34 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796808.jpg" />
+  <img src="Z:/picture/008/save_picture_796808.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ScreenToGif 2.34.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796807.jpg" />
+  <img src="Z:/picture/008/save_picture_796807.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Pale Moon 29.4.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796801.jpg" />
+  <img src="Z:/picture/008/save_picture_796801.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ RegScanner 2.65 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796800.jpg" />
+  <img src="Z:/picture/008/save_picture_796800.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Opera 81.0.4196.37 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796799.jpg" />
+  <img src="Z:/picture/008/save_picture_796799.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796791.jpg" />
+  <img src="Z:/picture/008/save_picture_796791.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Malwarebytes AdwCleaner 7.0.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796787.jpg" />
+  <img src="Z:/picture/008/save_picture_796787.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VirtualBox 5.2.6 Build 120293 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796779.jpg" />
+  <img src="Z:/picture/008/save_picture_796779.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796777.jpg" />
+  <img src="Z:/picture/008/save_picture_796777.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Ashampoo Burning Studio 19.0.1.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796776.jpg" />
+  <img src="Z:/picture/008/save_picture_796776.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Magic Retouch Pro plug-in for Photoshop 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796773.jpg" />
+  <img src="Z:/picture/008/save_picture_796773.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Path Finder 7.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796772.jpg" />
+  <img src="Z:/picture/008/save_picture_796772.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ WifiInfoView 2.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796771.jpg" />
+  <img src="Z:/picture/008/save_picture_796771.jpg" />
 </div>
 
 

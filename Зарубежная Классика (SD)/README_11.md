@@ -1,3 +1,83 @@
+###  Публикация: 1350609   (986877) от 23.01.2020
+
+Великое молчание / Il grande silenzio (1968) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои фильма — два охотника за головами. Первый из них всегда молчит и ему дали прозвище Молчание, а второй, Локо, наоборот очень разговорчив и необычайно жесток. Ему ничего не стоит убить женщину или ребенка, не говоря уже о мужчинах. Оба они оказываются в городке Сноу Хилл, который окружают горы и снега. Локо охотится за преступниками, прячущимися в этих (   Читать дальше...   )Производство: Италия, Франция / Adelphia Compagnia Cinematografica, Les Films CoronaЖанр: ВестернРежиссер: Серджио КорбуччиАктеры: Жан-Луи Трентиньян, Клаус Кински, Фрэнк Вулф, Луиджи Пистилли, Марио Брега, Карло Д’Анджело, Мариза Мерлини, Анна Мария Феррара, Мариса Сэлли, Раф БальдассарреПеревод: Многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FF0246679174072495F172CFADD6D8669C0D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611083   (986843) от 01.02.2013
+
+Цветок кактуса / Cactus Flower (1969) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиан Уинстон, смешной холостяк — дантист, который под влиянием жизненных обстоятельств попадает в различные комические ситуации. Уинстон встречается с головокружительной блондинкой Тони, обманывая её и говоря, что у него есть жена и трое детей. Но когда он узнает, что она пыталась совершить самоубийство из-за него, твердо обещает жениться на ней. Тони добивается (   Читать дальше...   )Производство: Columbia Pictures Corporation, Frankovich ProductionsЖанр: Мелодрама, КомедияРежиссер: Джин СаксАктеры: Уолтер Мэттау, Ингрид Бергман, Голди Хоун, Джек Уэстон,   Рик Ленц, Вито Скотти, Ирен Херви, Ив Брюс, Ирвин Чарон, Мэттью СаксПеревод: Дублированный (киностудия «Мосфильм», 1979 г)Субтитры: ОтсутствуютПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBEBB262C8C948DBFE799582FDB62CE0F9D2A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611724   (985846) от 02.02.2013
+
+Узкая грань / The Narrow Margin (1952) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_985846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена бандита решает дать свидетельские показания против него, и находится под прикрытием, чтобы не быть убитой. Теперь, когда его будут судить, ей нужно проехать полстраны на поезде, чтобы выступить в качестве свидетеля.
+
+Полицейский Уолтер Браун и его напарник были назначены сопровождающими. Однако бандиты убили напарника Брауна, и находятся в том же поезде, что и он. Теперь Уолтеру в одиночку предстоит в целости доставить женщину в суд.Жанр: Детектив, Триллер, КриминалРежиссер: Ричард ФлайшерАктеры: Чарльз МакГроу, Мари Уиндсор, Жаклин Уайт, Гордон Геберт, Куини Леонард, Дэвид Кларк, Питер Вирго, Дон Беддоу, Пол Макси, Гарри ХарвиПеревод: Двуголосый закадровыйПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A3338ED9D5276BBB950381A74092B1FB42C9A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611565   (985735) от 02.02.2013
 
 Довольно сложная девушка / Una Ragazza piuttosto complicata (1969) DVDRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985735.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985664.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985309.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985308.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985243.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985232.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984302.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984046.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983866.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982744.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982511.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981836.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981796.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981625.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981232.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981017.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980667.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980346.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980107.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979755.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979663.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978988.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978553.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968128   (978053) от 10.01.2016
-
-Мои друзья / Amici miei (1975) DVDRip [H.264] [Полная версия] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их кредо: шутить до самой смерти, фактически так оно и есть… Четверо друзей, дожив каждый сам по себе лет до 50-ти, решают, что если и стоит жить дальше, так только шутя и вместе. Нет такого места на белом свете, где нельзя было бы напроказничать. Шутки у них непростые, иногда просто грандиозные и всегда не глупые. «Что такое ум? Фантазия, интуиция, решительность (   Читать дальше...   )Производство: Италия / R.P.A. Cinematografica, Rizzoli Film S.p.a.Жанр: КомедияРежиссер: Марио Моничелли, Пьетро ДжермиАктеры: Уго Тоньяцци, Гастоне Москин, Филипп Нуаре, Дуилио Дель Прете, Ольга Карлатос, Сильвия Дионисио, Франка Тамантини, Анджела Гудвин, Милена Вукотич, Бернар БлиеПеревод: Одноголосый закадровый, авторскийЯзык субтитров: Русский (Forced, Full)Продолжительность: 02:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C61C14E36BC716E3838B66E2EE0F3D27602C889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356605   (977736) от 31.01.2020
-
-Закон и порядок / Law and Order (1953) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977736.jpg" />
-</div>
-
-
-###  Подробнее
-
-1882 год. Аризона. США. Шериф Фрэйм Джонсон зорко следит за нарушителями закона на вверенной ему территории — здесь правят закон и порядок. В один из дней он ловит известного преступника по кличке Дуранго Кид и сажает его в тюрьму, чтобы судить по закону. Но возмущенные жители городка требуют линчевать пойманного злодея без суда и следствия. Фрэйм берется за оружие (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Нэйтан ЮранАктеры: Рональд Рейган, Дороти Мэлоун, Престон Фостер, Алекс Николь, Рут Хэмптон, Расселл Джонсон, Бэрри Келли, Чабби Джонсон, Джек Келли, Деннис УиверПеревод: Многоголосый профессиональный, "Светла"Субтитры: АнглийскиеПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E47A52D25F5E0A97F2DDCC162D3322148D4C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434606   (977661) от 17.01.2012
-
-Игра в четыре руки / Le Guignolo (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Дюпре (Жан-Поль Бельмондо), угодивший в тюрьму за редкую преданность профессии проходимца, образцово изображает перед начальством паиньку, чем заслуживает досрочное освобождение. Пора наверстывать упущенное и, «с чистой совестью», обаятельный аферист, прикинувшись восточным принцем, в компании со сливками общества отправляется в круиз, где знакомится с (   Читать дальше...   )Жанр: КомедияРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Мирелла Д`Анджело, Мишель Галабрю, Карла Романелли, Паоло Боначелли, Жорж Жере, Мишель Бон, Шарль Жерар, Морис ОзельПеревод: Дублированный  (полное дублирование) - СССРПродолжительность: 01:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E22573D26F4328AF116721F6D4BEE8F8198B89
 ```
 
 https://mybot314.ru/tekegram_catalog/

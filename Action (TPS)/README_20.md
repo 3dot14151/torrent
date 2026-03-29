@@ -1,3 +1,163 @@
+###  Публикация: 1232798   (596023) от 26.06.2018
+
+Rune Classic / Руна (2001) [Ru/Multi] (1.11/dlc) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический слэшер от третьего лица, посвященный викингам, теперь доступен в Steam. Это издание, известное как «Rune Classic», содержит в себе не только контент оригинальной «Rune», но и дополнение «Halls of Valhalla» для многопользовательской игры. Погрузитесь в увлекательнейшую историю одиночной кампании и помешайте Локи и его приспешникам принести Рагнарок в (   Читать дальше...   )Тип издания: LicenseРазработчик: Human Head StudiosЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F846F618DC792373BF1D1D044D00204A2A02263B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039607   (595486) от 01.08.2016
+
+Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/upd2/dlc) Repack =nemos= [Ultimate Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая веха в истории борьбы охотников на вампиров c порождениями тьмы и новый этап в истории прославленной серии Castlevania. Когда наступил конец времен, Земля оказалась во власти сил Тьмы и таинственных Лордов теней. По разоренным странам бродили души умерших, не способные обрести покой, а таинственные существа сеяли смерть и разрушение среди выживших. Игроку предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: MercurySteam - Climax StudiosЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681343C07058459250F24121C8CC1668A7F7DDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124876   (593719) от 15.07.2017
+
+Sniper Elite Anthology / Sniper Elite Антология  (2005-2017) [Ru/En] (1.0/1.13/1.06/1.02/1.15a/1.0/1.4.1/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя свободу снайперской стрельбы в самом передовом шутере всех времен, действие которого проходит во время Второй мировой войны. Вас ждут тактические бои с видом от третьего лица, выбор геймплея и невероятные дальние выстрелы в ходе кампании по освобождению Италии от ига фашизма.Тип издания: RepackРазработчик: Rebellion DevelopmentsЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76C748D81B1AB24FDDD601C30AEC9F404A6C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300900   (587951) от 08.05.2019
+
+Fade to Silence (2019) [Ru/Multi] (1.0 hotfix 3b) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит играть за Эша, прирожденного лидера, которого терзает его собственный разум, исследовать ледяные земли, опустошенные мировой катастрофой, и собирать материалы, без которых построить убежище и выжить невозможно. В мире, где ресурсов становится все меньше, даже такие простые задачиТип издания: RepackРазработчик: Black Forest GamesЖанр: RPG, Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0DC34FF9D1DC2D6446111236A3A0DF176D2AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356861   (587744) от 30.06.2011
+
+Spider-Man: Friend or Foe [Ru] (P) 2007
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильные союзники. Вы можете выбрать напарника из длинного списка выдающихся героев, а затем свободно переключаться между ним и Паркером. Каждый помощник, будь то супергерой или суперзлодей, вносит неповторимый вклад в общее дело. Лишь совместив умения персонажей, вы доберетесь до победного финала.
+Враги на стороне добра. После того, как Человек-паук одолеет давних противников –Доктора Октопуса, Зеленого Гоблина и Песчаного человека, они присоединятся к нему.
+Совместные подвиги. В любой момент к вам может присоединиться друг и взять контроль над союзником Человека-паука. Плечо живого товарища надежнее виртуального помощника, и лишь пара игроков способна раскрыть глубокий тактический потенциал проекта.
+Сражайтесь на разных аренах! Одолевая соперников одного за другим, вы открываете новые площадки для подвигов.
+Есть повод вернуться! Повторите понравившиеся уровни в совместной игре, сразитесь друг против друга, пройдите кампанию с новыми союзниками или в обличье Человека-паука в черном костюме. Мрачная экипировка (   Читать дальше...   )Тип издания: ПираткаЖанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086288   (585915) от 10.05.2019
+
+Aragami (2016) [Ru/Multi] (01.09) License GOG [Collector`s Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aragami, игра в жанре "стелс", посвященная тайному перемещению с использованием сверхъестественных способностей. То, что вы беззвучно двигаетесь и избегаете источников света, еще не значит, что вы сливаетесь с тенью. Танцуйте с ней, живите в ней, пусть она проходит сквозь вас так же, как вы проходите сквозь нее.Тип издания: LicenseРазработчик: Lince WorksЖанр: Action, 3D, 3rd Person, StealthЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5C7FC449FC0E9C36C8EAC68C272512DE378072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918620   (585574) от 16.07.2015
 
 How To Survive Third Person Standalone (2015) [Ru/Multi] (1.0) SteamRip Let'sРlay
@@ -6,7 +166,7 @@ How To Survive Third Person Standalone (2015) [Ru/Multi] (1.0) SteamRip Let'sРl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585574.jpg" />
+  <img src="Z:/picture/008/save_picture_585574.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Dead Space (2008) [Ru] (1.0.0.222) Portable PortGamPС
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582164.jpg" />
+  <img src="Z:/picture/008/save_picture_582164.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582054.jpg" />
+  <img src="Z:/picture/008/save_picture_582054.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ Shadwen (2016) [En/Multi] (1356/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581183.jpg" />
+  <img src="Z:/picture/008/save_picture_581183.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581178.jpg" />
+  <img src="Z:/picture/008/save_picture_581178.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580280.jpg" />
+  <img src="Z:/picture/008/save_picture_580280.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ Yasai Ninja (2015) [En/Esp] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579621.jpg" />
+  <img src="Z:/picture/008/save_picture_579621.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579188.jpg" />
+  <img src="Z:/picture/008/save_picture_579188.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579122.jpg" />
+  <img src="Z:/picture/008/save_picture_579122.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ Eisenhorn: XENOS (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579059.jpg" />
+  <img src="Z:/picture/008/save_picture_579059.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578878.jpg" />
+  <img src="Z:/picture/008/save_picture_578878.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577697.jpg" />
+  <img src="Z:/picture/008/save_picture_577697.jpg" />
 </div>
 
 
@@ -318,7 +478,7 @@ SNIPER BLACKLIST (2016) [En] (1.0) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577693.jpg" />
+  <img src="Z:/picture/008/save_picture_577693.jpg" />
 </div>
 
 
@@ -344,7 +504,7 @@ Sleeping Dogs (2012) [Ru] (2.1.437044/dlc) Repack Other s [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577282.jpg" />
+  <img src="Z:/picture/008/save_picture_577282.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ Assassin's Creed Liberation Remastered (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575545.jpg" />
+  <img src="Z:/picture/008/save_picture_575545.jpg" />
 </div>
 
 
@@ -396,7 +556,7 @@ Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.4.2/dlc) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575544.jpg" />
+  <img src="Z:/picture/008/save_picture_575544.jpg" />
 </div>
 
 
@@ -422,7 +582,7 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2011) [Ru/En] (Up
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571109.jpg" />
+  <img src="Z:/picture/008/save_picture_571109.jpg" />
 </div>
 
 
@@ -448,7 +608,7 @@ Onechanbara Z2: Chaos (2016) [En/Jp] (1.07/dlc) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568385.jpg" />
+  <img src="Z:/picture/008/save_picture_568385.jpg" />
 </div>
 
 
@@ -474,7 +634,7 @@ Spec Ops: The Line (2012) [Ru/Multi] (1.0.689hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568305.jpg" />
+  <img src="Z:/picture/008/save_picture_568305.jpg" />
 </div>
 
 
@@ -500,7 +660,7 @@ Prototype 2 [Ru]  (RePack) 2012 l cdman
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564323.jpg" />
+  <img src="Z:/picture/008/save_picture_564323.jpg" />
 </div>
 
 
@@ -513,166 +673,6 @@ Prototype 2 - продолжение жестокого и кровавого и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1EC8A073D8BE3CA7AA30898FD27189A019C7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128919   (562736) от 24.07.2017
-
-Man O' War: Corsair - Warhammer Naval Battles (2017) [Multi] (1.1.4/dlc) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примите участие в эпических морских сражениях и исследуйте океаны мира Warhammer. Man O' War: Corsair – это видеоигра о бесшабашных приключениях, морских сражениях и исследовании мира, созданная на основе классической настольной игры Man O' War компании Games Workshop. Бороздите моря, грабьте вражеские корабли, заходите в порты и торгуйте. Подминайте под себя все (   Читать дальше...   )Тип издания: LicenseРазработчик: Evil Twin ArtworksЖанр: Action, Adventure, Naval, Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, Немецкий и другиеЯзык интерфейса: Английский, Испанский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBE806DE3D318CD83BE7C5559F226492999A41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045047   (562623) от 21.08.2016
-
-Warhammer 40,000: Space Marine (2012) [Ru/Multi] (1.0.165.0/dlc) License PROPHET [Collection Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562623.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Warhammer® 40,000® Space Marine® вам отводится роль капитана Титуса, космодесантника ордена Ультрамаринов, закаленного в огне бесчисленных сражений.
-Неисчислимая орда орков вторглась в имперский мир-кузницу - одну из фабрик размером с планету, где делаются машины для непрекращающейся борьбы человечества за выживание. Потерять эту планету недопустимо! Кроме (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: Action (Shooter, Slasher), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720E4274C3CC52A370F947E18309BBA0B0BDB950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530107   (562316) от 02.08.2012
-
-Prototype 2 [Ru/En] (RePack) 2012 l R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prototype 2 - продолжение жестокого и кровавого игрового бестселлера, разработанного студией Radical Entertainment в 2009 году. Вторая часть игры продолжит рассказ о превращении человека в абсолютное оружие. Сейте хаос и разрушение на городских улицах с помощью способностей, которые дает вам вирус. Трансформируйте тело героя, поглощая многочисленных врагов. Используйте безграничные возможности перемещения, чтобы исследовать руины Нью-Йорк Зеро в поисках новых впечатлений. Сражайтесь. Убивайте. Меняйтесь. Принесите свою человечность в жертву ради единой цели - уничтожить… Алекса… Мерсера!
-
-Вырвавшийся на свободу смертоносный вирус превратил мегаполис в преддверие ада. Разделенный на зоны безопасности, город стал огромной ловушкой. Часть улиц контролируют военные, уничтожающие любое проявление заразы. Остальные районы превратились в "красную зону" - обиталище мутантов, безжалостно пожирающих своих жертв. Где-то там, среди разрушенных зданий, скрывается Алекс Мерсер, главный виновник распространения вируса. А теперь туда стремится и бывший сержант Джеймс Хеллер, жаждущий отомстить за свою семью, погибшую в первые дни катаклизма. Добро пожаловать в Нью-Йорк Зеро. Сезон охоты открыт.(   Читать дальше...   )Тип издания: RePackРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F31B7D6145FD9DD8B6D8A3F181C9D581BD724B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530449   (562296) от 02.08.2012
-
-Prototype 2 + DLC [Ru] (RePack) 2012 l R.G. Origami
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prototype 2 - продолжение жестокого и кровавого игрового бестселлера, разработанного студией Radical Entertainment в 2009 году. Вторая часть игры продолжит рассказ о превращении человека в абсолютное оружие. Сейте хаос и разрушение на городских улицах с помощью способностей, которые дает вам вирус. Трансформируйте тело героя, поглощая многочисленных врагов. Используйте безграничные возможности перемещения, чтобы исследовать руины Нью-Йорк Зеро в поисках новых впечатлений. Сражайтесь. Убивайте. Меняйтесь. Принесите свою человечность в жертву ради единой цели - уничтожить… Алекса… Мерсера!
-Вырвавшийся на свободу смертоносный вирус превратил мегаполис в преддверие ада. Разделенный на зоны безопасности, город стал огромной ловушкой. Часть улиц контролируют военные, уничтожающие любое проявление заразы. Остальные районы превратились в "красную зону" - обиталище мутантов, безжалостно пожирающих своих жертв. Где-то там, среди разрушенных зданий, скрывается Алекс Мерсер, главный виновник распространения вируса. А теперь туда стремится и бывший сержант Джеймс Хеллер, жаждущий отомстить за свою семью, погибшую в первые дни катаклизма. Добро пожаловать в Нью-Йорк Зеро. Сезон охоты открыт.(   Читать дальше...   )Тип издания: RePackРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D56FFE9C029127C6F3DD0494EA6BFD25F5E557A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235258   (561795) от 10.07.2018
-
-Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remothered: Tormented Fathers - первая часть долгожданной трилогии игр от 3-го лица. Розмари Рид - скучающая по острым ощущениям дама бальзаковского возраста, решила в один день раскрыть очередную тайну. С этой целью она приезжает в поместье к Доктору Фелтону, бывшему некогда известным нотариусом. Сейчас Фелтон, потеряв всех кого он любил (жена и дочь) оказался поражен (   Читать дальше...   )Тип издания: LicenseРазработчик: Stormind GamesЖанр: Экшн, От третьего лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BE2F391D6DD5BFACDA75C976413EF70971F26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187466   (561163) от 27.05.2019
-
-Spec Ops: The Line (2012) [Ru] (1.0.6890.0/dlc) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный кинематографичный шутер от третьего лица, который заставит вас вступить в противостояние не только с реальными противниками, но даже с собственными принципами. Приготовьтесь оказаться в мире, где нет места понятию «нравственность» и на каждом шагу приходится выбирать — кому жить, а кому умереть.Тип издания: RepackРазработчик: Yager DevelopmentЖанр: Action, Shooter, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B9192F89E80857A85ABF6D45CD26327F74353C
 ```
 
 https://mybot314.ru/tekegram_catalog/

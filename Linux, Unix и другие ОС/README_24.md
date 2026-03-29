@@ -1,3 +1,55 @@
+###  Публикация: 1262785   (290931) от 17.11.2018
+
+Arco Linux 18.11.2 [x86_x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arco Linux - это дистрибутив, сочетающий в себе мощь Arch Linux, пользовательского репозитория AUR и собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Xfce, Openbox and i3, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное можно доустановить из терминала или используя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963033   (290558) от 06.12.2015
+
+Oracle Linux 7 Update 2 Server [x86-64] 1xDVD + 2CD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle Linux — инициатива Oracle Corporation по созданию собственного дистрибутива операционной системы, основанного на Red Hat Enterprise Linux. Это специализированный дистрибутив предназначенный для установки на сервера баз данных. В дистрибутив включены все критичные для работы базы данных Oracle апдейты, исправлены ошибки. Кроме того, начиная с марта 2012 года, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02141C56C60EEA84559882CC8020E5CEF9EDE0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186088   (287298) от 24.11.2017
 
 Skype for Linux 8.11.0.4 [x86_64] (rpm,deb)
@@ -6,7 +58,7 @@ Skype for Linux 8.11.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287298.jpg" />
+  <img src="Z:/picture/008/save_picture_287298.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Mageia 4 Beta II [i586, x86-64] 7xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283339.jpg" />
+  <img src="Z:/picture/008/save_picture_283339.jpg" />
 </div>
 
 
@@ -68,7 +120,7 @@ Parted Magic 2019.11.04 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281908.jpg" />
+  <img src="Z:/picture/008/save_picture_281908.jpg" />
 </div>
 
 
@@ -94,7 +146,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278986.jpg" />
+  <img src="Z:/picture/008/save_picture_278986.jpg" />
 </div>
 
 
@@ -122,7 +174,7 @@ Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278879.jpg" />
+  <img src="Z:/picture/008/save_picture_278879.jpg" />
 </div>
 
 
@@ -150,7 +202,7 @@ Red Hat Enterprise Linux 8.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276854.jpg" />
+  <img src="Z:/picture/008/save_picture_276854.jpg" />
 </div>
 
 
@@ -176,7 +228,7 @@ Red Hat Enterprise Linux 7.7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275776.jpg" />
+  <img src="Z:/picture/008/save_picture_275776.jpg" />
 </div>
 
 
@@ -204,7 +256,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275404.jpg" />
+  <img src="Z:/picture/008/save_picture_275404.jpg" />
 </div>
 
 
@@ -230,7 +282,7 @@ Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274390.jpg" />
+  <img src="Z:/picture/008/save_picture_274390.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ Sublime Text 3 Build 3156 Dev [x86_x64] (deb, rpm, tar.bz2, tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270060.jpg" />
 </div>
 
 
@@ -283,7 +335,7 @@ IRIX 5.3 [MIPS] 4xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267883.jpg" />
+  <img src="Z:/picture/008/save_picture_267883.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262589.jpg" />
 </div>
 
 
@@ -338,7 +390,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262563.jpg" />
 </div>
 
 
@@ -366,7 +418,7 @@ IRIX 6.5 [MIPS] 12xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262557.jpg" />
 </div>
 
 
@@ -393,7 +445,7 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262547.jpg" />
 </div>
 
 
@@ -419,7 +471,7 @@ Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261599.jpg" />
 </div>
 
 
@@ -447,7 +499,7 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255157.jpg" />
+  <img src="Z:/picture/005/save_picture_255157.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ophcrack 3.4.0 (Взлом паролей Windows)[x86] (3xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253568.jpg" />
+  <img src="Z:/picture/005/save_picture_253568.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252022.jpg" />
+  <img src="Z:/picture/004/save_picture_252022.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ TrueNAS CORE 13.0-U4 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251905.jpg" />
+  <img src="Z:/picture/004/save_picture_251905.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250316.jpg" />
+  <img src="Z:/picture/004/save_picture_250316.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250305.jpg" />
+  <img src="Z:/picture/004/save_picture_250305.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249347.jpg" />
+  <img src="Z:/picture/004/save_picture_249347.jpg" />
 </div>
 
 
@@ -638,7 +690,7 @@ Fedora 36 Workstation Server Beta [x86_64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243659.jpg" />
+  <img src="Z:/picture/004/save_picture_243659.jpg" />
 </div>
 
 
@@ -650,60 +702,6 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626498   (240592) от 15.04.2023
-
-Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3D09D9E53FFEEED42555FCC7CFB70FA45FAFAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626500   (240559) от 15.04.2023
-
-Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AC0EBFBC77F2BE1915FE505189F1100C1D0CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

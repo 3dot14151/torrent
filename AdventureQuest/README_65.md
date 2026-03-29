@@ -1,3 +1,81 @@
+###  Публикация: 1373982   (162236) от 18.10.2025
+
+The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак Мина, ученица школы «Сехва», просыпается ночью в своей школе. Вскоре она осознаёт, что что-то не так. Знакомая школа, где она провела уйму вечеров за учёбой, превратилась во что-то зловещее и мрачное. Кто-то, похожий на её учительницу, гонится за ней. Чтобы выжить, Мине придётся покинуть школу и найти убежище где-то в окружающем районе. Она встретится со странными (   Читать дальше...   )Тип издания: LicenseРазработчик: Devespresso GamesЖанр: Приключение, Экшн, ХоррорЯзык озвучки: КорейскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529593   (162229) от 18.10.2025
+
+A Short Hike (2019) [Multi] (1.9_v3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись на живописном острове "Соколиный Пик" - важное место для всех пернатых. Вам предстоит забраться на самую высокую гору, но вот не задача: Вы играете за птицу по имени Клэр, которая толком не умеет летать. Вам предстоит собирать особые перья, которые помогут взлететь Вам чуть выше. Но этим дело не ограничится. На острове обитают разнообразные зверушки, (   Читать дальше...   )Тип издания: LicenseРазработчик: adamgryuЖанр: Приключение, ExplorationЯзык субтитров: Английский, Французский, Испанский, ЯпонскийЯзык интерфейса: Английский, Французский, Испанский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674116   (162011) от 04.11.2023
+
+Filthy Us (2023) [Multi] (1.0) License GOG [Complete Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале тысячелетия в одном из населённых пунктов северо-западного Китая произошло убийство, вызвавшее временный общественный резонанс. Перед смертью убийца яростно сжимал в руках обломок разбитой статуи Будды, и его сильное негодование привлекло внимание «Небытия». По мере погружения в эту грязь и историю вы обнаружите необычное дело об убийстве целой семьи путём (   Читать дальше...   )Тип издания: LicenseРазработчик: Game Logic StudioЖанр: Приключение, Головоломка, ХоррорЯзык субтитров: Английский, Китайский (упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657D964A06E57B00BE4BC92CD8D76169688AFD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674272   (161918) от 04.11.2023
 
 One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
@@ -6,7 +84,7 @@ One Eleven (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161918.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.02(210331).1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161818.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Scrapland Remastered (2021) [Ru/Multi] (1.1/1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161765.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tell Me Why (2020) [Ru/Multi] (5510896) Repack xatab [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161617.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.0.6/dlc) Repack DjDI [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161560.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Skabma - Snowfall (2022) [Ru/Multi] (1.1.110) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161552.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160914.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (673723) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160882.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Enypnion Redreamed (2023) [Multi] (1.06a1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160784.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160748.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160738.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ One Eleven (2023) [Ru/En] (1.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160737.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Alexey's Winter: Night Adventure (2021) [Ru/Multi] (Build 10121369) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159709.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Attentat 1942 (2017) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159530.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159515.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Road 96 (2021) [Ru/Multi] (1.04/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156531.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156455.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The House of Da Vinci 3 (2022) [Multi] (Build 10193115) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156341.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Watchmaker (2018) [Ru/Multi] (1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156313.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Crime O'Clock (2023) [Multi] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155178.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Ceiba (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154920.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Life Is Strange (2015) [Ru/En] (1.0.0.397609) Repack xatab [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154588.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154485.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Sally Face (2016) [Ru/Multi] (1.5.05/dlc) Repack Other s [Episode 1-5]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20C27E485CF8110B8B57E71BC8B7B2FBEA1845BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600840   (153670) от 29.12.2022
-
-Riddle of the Sphinx - The Awakening (2021) [En] (1.4.5/dlc) License GOG [Enhanced Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Riddle of the Sphinx The Awakening дает возможность погулять по главным достопримечательностям Египта. Здесь можно исследовать Большого сфинкса и Пирамиду Хеопса. По сюжету герой пытается разгадать археологические тайны и понять, что же на самом деле в себе скрывают эти древнейшие постройки. Создатели предложили свою трактовку.Тип издания: LicenseРазработчик: Old World StudiosЖанр: Adventure, Puzzle, Detective, MysteryЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B0047C7A01048C0FBE36258994E1910CFD19A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600913   (153259) от 29.12.2022
-
-Titan Station (2022) [Ru/Multi] (1.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Titan Station погружает пользователей в приключения на борту космической станции, где оказывается протагонист. Сюжет показывает 1999 год, когда персонаж по имени Дэвид устроился на новую работу в качестве оператора одного научного комплекса-станции. Герой вынужден столкнуться с ужасными вещами, что застают его в новом месте. Придется бродить по коридорам и комнатам (   Читать дальше...   )Тип издания: LicenseРазработчик: Joakim LarsenЖанр: Приключение, От первого лица, ФантаcтикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C825D38585A05F998E48C84A4BAAED7A54BD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170144   (153010) от 26.12.2017
-
-Oxenfree (2016) [En] (2.6.0cs HotFix) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oxenfree – это триллер о сверхъестественных силах, повествующий о группе друзей, которые случайно открывают проход в мир призраков. Вы играете за Алекс – умную, но своенравную девушку-тинейджера, которая берет своего нового сводного брата Джонаса на вечеринку с ночевкой на острове. Вечеринка оборачивается кошмаром, когда вы по незнанию открываете жуткие врата, являющиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Night School StudiosЖанр: Приключение, Квест, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D98CD380EEA7DFCE2EDF4E2479B191CBDB18CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Street Outlaws 2: Winner Takes All (2021) [En] (7729942) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gear.Club Unlimited 2 (2021) [Ru/Multi] (1.0) License СODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168031.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163655.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160501.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Assetto Corsa (2014) [En/It] (1.11.0/dlc) License RELOADED [Porsche Season Pass]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157504.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Redout (2016) [Ru/Multi] (1.6.0/dlc) License PLAZA [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156291.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Test Drive: Ferrari Racing Legends [En] (Lossless Repack) 2012 | R.G. Origami
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155832.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Garfield Kart - Furious Racing (2019) [Multi] (20191220) Repack Butter_
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154533.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MX vs ATV Legends (2022) [Ru/Multi] (2.08/dlc) Scene Tenoke
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153720.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.29.2.6s/dlc) Repack R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151366.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150945.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150822.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Trials Rising (2019) [Ru/Multi] (Build 10831717/dlc) Repack Wanterlude [Gold Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150730.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ art of rally (2020) [Ru/Multi] (1.5.0/dlc) Repack dixen18
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150152.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ City Patrol: Police (2018) [Multi] (1.0) License CPY
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149134.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143169.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Inertial Drift (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143035.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.4.0/dlc) Repack Mr_Weegley
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142552.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.17) License PROPHET
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139666.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DethKarz (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139261.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ City Car Driving (2016) [Ru/En] (1.5.9.1.27346) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138484.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138289.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137630.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.33.2.12s/dlc) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137342.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137182.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Antigraviator (2018) [Ru/Multi] (1.31) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137130.jpg" />
 </div>
 
 

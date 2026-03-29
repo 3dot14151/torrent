@@ -1,3 +1,115 @@
+###  Публикация: 1250148   (426976) от 27.09.2018
+
+Folx Downloader Pro 5 v5.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426976.jpg" />
+</div>
+
+
+###  Подробнее
+
+FOLX 5 - Менеджер загрузок для Мас
+
+Folx- бесплатный менеджер загрузок с удобным интерфейсом в стиле Mac OS. Менеджер загрузок предлагает удобную систему управления загрузок, гибкие настройки и т.д
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BCB7C4409319FAC056D578A9BC82CC36BFB569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166343   (426917) от 16.09.2017
+
+ChronoSync 4.8.0 & ChronoAgent 1.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426917.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChronoSync  - синхронизируем файлы и папки
+ChronoSync представляет собой приложение для Mac, который может использоваться для синхронизации или резервного копирования файлов и папок. Позволяет сделать резервное копирование всей системы  также, создав загрузочную резервную копию.
+
+С ChronoSync можно синхронизировать или делать резервные копировании для большинства  устройств (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2017Разработчик: Econ Technologies, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D65C7FB158A1FBA2BC0CFC593AA658312A3F584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250108   (426883) от 27.09.2018
+
+TechSmith Snagit 2018.2.3  (90457)[En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426883.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0317A8EB1BEBB55905A7FEBB7AEB52E96F4727B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250170   (426875) от 27.09.2018
+
+Rhinoceros 5 v5.5.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2018Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.8.5 +Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733CC207E1780E95DDA76F2B98570948160AFBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166328   (426795) от 16.09.2017
 
 Cocktail Sierra Edition 10.4.4 [En]
@@ -6,7 +118,7 @@ Cocktail Sierra Edition 10.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426795.jpg" />
+  <img src="Z:/picture/008/save_picture_426795.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ SteerMouse 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426794.jpg" />
+  <img src="Z:/picture/008/save_picture_426794.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ CloudTV 3.8.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426665.jpg" />
+  <img src="Z:/picture/008/save_picture_426665.jpg" />
 </div>
 
 
@@ -85,7 +197,7 @@ Photomatix Pro 6.1.1 Standalone Program + Plugin for Lightroom[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426445.jpg" />
+  <img src="Z:/picture/008/save_picture_426445.jpg" />
 </div>
 
 
@@ -113,7 +225,7 @@ BusyContacts 1.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426390.jpg" />
+  <img src="Z:/picture/008/save_picture_426390.jpg" />
 </div>
 
 
@@ -141,7 +253,7 @@ ChronoSync 4.7.0 & ChronoAgent 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426374.jpg" />
+  <img src="Z:/picture/008/save_picture_426374.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ Ummy Video Downloader 1.59 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426276.jpg" />
+  <img src="Z:/picture/008/save_picture_426276.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ Elements for iWork 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426261.jpg" />
+  <img src="Z:/picture/008/save_picture_426261.jpg" />
 </div>
 
 
@@ -223,7 +335,7 @@ Graphic Styles 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426253.jpg" />
+  <img src="Z:/picture/008/save_picture_426253.jpg" />
 </div>
 
 
@@ -251,7 +363,7 @@ Smultron 8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426242.jpg" />
+  <img src="Z:/picture/008/save_picture_426242.jpg" />
 </div>
 
 
@@ -280,7 +392,7 @@ Infographics for Pages 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426238.jpg" />
+  <img src="Z:/picture/008/save_picture_426238.jpg" />
 </div>
 
 
@@ -307,7 +419,7 @@ uBar 4 v4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426138.jpg" />
+  <img src="Z:/picture/008/save_picture_426138.jpg" />
 </div>
 
 
@@ -333,7 +445,7 @@ Microsoft Office Standard 2019 v16.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426130.jpg" />
+  <img src="Z:/picture/008/save_picture_426130.jpg" />
 </div>
 
 
@@ -360,7 +472,7 @@ SQLPro Studio 2020.84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425978.jpg" />
+  <img src="Z:/picture/008/save_picture_425978.jpg" />
 </div>
 
 
@@ -386,7 +498,7 @@ Adguard 2.5.0 (892) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425720.jpg" />
+  <img src="Z:/picture/008/save_picture_425720.jpg" />
 </div>
 
 
@@ -412,7 +524,7 @@ Axure RP 9 v9.0.0.3717 Pro / Team / Enterprise Edition macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425575.jpg" />
+  <img src="Z:/picture/008/save_picture_425575.jpg" />
 </div>
 
 
@@ -438,7 +550,7 @@ Dash 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425573.jpg" />
+  <img src="Z:/picture/008/save_picture_425573.jpg" />
 </div>
 
 
@@ -464,7 +576,7 @@ Reallusion Cartoon Animator 4 v4.3 (2110.1) Pipeline macOS [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425466.jpg" />
+  <img src="Z:/picture/008/save_picture_425466.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ Adobe Premiere Rush v1.5.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425283.jpg" />
+  <img src="Z:/picture/008/save_picture_425283.jpg" />
 </div>
 
 
@@ -516,7 +628,7 @@ Motion 5.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425281.jpg" />
+  <img src="Z:/picture/008/save_picture_425281.jpg" />
 </div>
 
 
@@ -542,7 +654,7 @@ Compressor 4.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425272.jpg" />
+  <img src="Z:/picture/008/save_picture_425272.jpg" />
 </div>
 
 
@@ -568,7 +680,7 @@ Adobe Audition 2020 13.0.10.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425271.jpg" />
+  <img src="Z:/picture/008/save_picture_425271.jpg" />
 </div>
 
 
@@ -579,115 +691,6 @@ Adobe Audition 2020 13.0.10.32 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC2244E3F3EE7B360E5BE9EAEE43DC0D0108EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411744   (425183) от 26.09.2020
-
-Adobe XD 33.1.12.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe XD - это новый творческий инструмент от компании Adobe для проектирования высококачественных прототипов интерфейсов пользователя для мобильных и веб-приложений. Этот инструмент специально разработан для построения быстрых прототипов, а также для высокой точности воспроизведения пользовательского интерфейса и дизайна. С помощью Adobe XD  любой желающий может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 или более поздняя версияЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3090D25873FEA596C1C06C3B54C97DDAE563E975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411751   (425166) от 26.09.2020
-
-Adobe Media Encoder 2020 14.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Media Encoder 2020 - это программа кодирования, которая позволяет кодировать аудио- и видеофайлы в различные форматы распространения для различных приложений и аудиторий. Такие видео- и аудиоформаты характеризуются повышенной степенью сжатия. Используя эту программу, можно экспортировать видео в форматы, поддерживаемые различными устройствами, от DVD-проигрывателей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C19A2B13F1595331F80D6728B734D9855978E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411701   (425062) от 26.09.2020
-
-Adobe After Effects 2020 17.1.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects — одно из ведущих в отрасли приложений для разработки анимации и творческих композиций, позволяющих создавать профессиональную графику и визуальные эффекты для киноэкранов, телевидения и веб-сайтов.
-
-Название происходит от эффекта, известного как «стойкость (инертность) зрительного ощущения», этот механизм использует сенсорную память сетчатки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BDCAF46C4FFAF1873C74CEF03F79AA09B6DA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946778   (425041) от 14.10.2015
-
-Graphic 3.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic - (бывший iDraw)  — это мощный многофункциональный и удобный редактор векторной графики и иллюстраций для Mac OS X.
-Graphic имеет все необходимые инструменты, чтобы создать все - от подробных технических иллюстраций, до красивых произведений искусства. С Graphic создавать замысловатые рисунки становится быстро и легко.
-
-C Graphic Вы можете импортировать  PSD, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 октября 2015Разработчик: Indeeo, Inc.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский, Французский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95116F95BCA23F13AA60EC372744EDAE24BDF6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

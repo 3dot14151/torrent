@@ -1,3 +1,107 @@
+###  Публикация: 1207002   (781108) от 16.02.2018
+
+Photodex ProShow Producer 9.0.3793 RePack (& portable) by KpoJIuK + Effects Pack 7.0  [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781108.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProShow Producer – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D0A4933B4064F5D0AB157186C57B8284063C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200971   (781046) от 14.05.2010
+
+Туман (2010) [H.264] DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_781046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд молодых бойцов Российской Армии отрывается от основного строя во время марш-броска, дабы сократить путь, бежит наперерез, но попадает в туман, который переносит его в прошлое, в годы Великой Отечественной войны. Ребята, видевшие войну только в кино, попадают в лапы безжалостных событий того времени. Все на грани: храбрость, страх, любовь, ненависть, жизнь, (   Читать дальше...   )Производство: РоссияЖанр: Драма, ВоенныйРежиссер: Иван Шурховецкий, Артем АксененкоАктеры: Игорь Шмаков, Василий Ракша, Артем Крестников, Григорий Калинин, Евгений Куршинский, Дмитрий Росляков, Вячеслав Буцков, Светлана Устинова, Алексей Марков, Илья Глинников, Родион Галюченко, Дмитрий Сергин, Иван Лапин, Алексей ИльинПеревод: ОригинальныйПродолжительность: 02:31:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391430   (780921) от 20.06.2020
+
+Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный психологический экшен-триллер Beyond: Two Souls с участием голливудских суперзвезд голливудских суперзвезд Эллен Пейдж и Виллема Дефо уносит вас в увлекательное путешествие по всему миру, в котором вы проживете часть удивительной жизни Джоди Холмс. Джоди не такая как все: с рождения она обладает связью с таинственным существом с невероятными способностями. (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure (Interactive Movie), Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B188AE7AE8444FB75AB4D59419FFC02F247186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207228   (780683) от 17.02.2018
+
+Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.2.1/dlc) Repack R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая часть серии стелс-экшенов о Братстве ассасинов, которая расскажет предысторию возникновения этой тайной организации. События игры разворачиваются в Древнем Египте. Главный герой — Байек, бывший член элитной охраны, в чьи обязанности входила защита дворцов и гробниц в период эллинистического Египта.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, RPG (Open World), 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930B29DABEA5823AD0A77119C8B5CA8B960C1237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184672   (780621) от 15.05.2010
 
 H2O: Просто добавь воды / H2O: Just Add Water (полный 3 Сезон) (2009) SATRip [EN]
@@ -6,7 +110,7 @@ H2O: Просто добавь воды / H2O: Just Add Water (полный 3 С
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780621.jpg" />
+  <img src="Z:/picture/008/save_picture_780621.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780440.jpg" />
+  <img src="Z:/picture/008/save_picture_780440.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_780353.jpg" />
+  <img src="Z:/picture/005/save_picture_780353.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Win 10 Tweaker 5.6 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780335.jpg" />
+  <img src="Z:/picture/008/save_picture_780335.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ Adobe Photoshop CC 2018 19.1.1 (x64) RePack by JFK2005 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780316.jpg" />
+  <img src="Z:/picture/008/save_picture_780316.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ MAGIX Vegas Pro 15.0 Build 311 RePack by KpoJIuK  [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780160.jpg" />
+  <img src="Z:/picture/008/save_picture_780160.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780139.jpg" />
+  <img src="Z:/picture/008/save_picture_780139.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Red Giant Magic Bullet Suite 13.0.6 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780135.jpg" />
+  <img src="Z:/picture/008/save_picture_780135.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780134.jpg" />
+  <img src="Z:/picture/008/save_picture_780134.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_780033.jpg" />
+  <img src="Z:/picture/005/save_picture_780033.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_779862.jpg" />
+  <img src="Z:/picture/005/save_picture_779862.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779714.jpg" />
+  <img src="Z:/picture/008/save_picture_779714.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_779710.jpg" />
+  <img src="Z:/picture/005/save_picture_779710.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779693.jpg" />
+  <img src="Z:/picture/008/save_picture_779693.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& portable) by 7sh3 (20.02.2018) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779559.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779546.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 23.02.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779423.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779417.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779413.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Win 10 Tweaker 7.0 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779313.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779310.jpg" />
 </div>
 
 
@@ -558,119 +662,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779211.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Разработчики из России выпустили приложение MR Guide, которое позволяет любому желающему, не обладающему навыками программирования, создавать собственные голографические экскурсии и туры на очках дополненной реальности HoloLens. Конструктор позволяет интегрировать в AR-пространство любой цифровой контент, включая 360-градусные видео, фотографии, 3D-модели, текст (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209407   (779161) от 27.02.2018
-
-Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779161.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AlexFilm)Субтитры: русские (форсированные, полные), английские, + много других языков (см. MediaInfo)Продолжительность: 02:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934C998FF078FF457CFCEE54FBB6018E0A4B1C1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209268   (779032) от 28.02.2018
-
-Nokia воскресила телефон из "Матрицы"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания HMD Global, которой принадлежат права на выпуск смартфонов и обычных мобильников под брендом Nokia, анонсировала на проходящей в Барселоне выставке Mobile World Congress (MWC) очередное переиздание легендарной модели из 90-х. Если год назад производитель получил массу бесплатного пиара благодаря "воскрешению" Nokia 3310, то в этот раз удивить всех (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204437   (779024) от 28.02.2018
-
-Видоизмененный углерод / Altered Carbon (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, XXVII век. Мир, в котором появилась возможность «сгружать» человеческое сознание и личность из одного тела в другое. Идеальный мир и для преступников, и для полицейских, и для армии, но вряд ли идеальный для бывшего военного спецназовца Такеси Ковача, которого миллиардер Бэнкрофт нанял для расследования гибели одного из своих тел. Внешне — явное самоубийство. (   Читать дальше...   )Производство: США, Mythology Entertainment, Skydance TelevisionЖанр: фантастика, триллер, драмаРежиссер: Ута Бризвитц, Питер Хор, Ник Харран и др.Актеры: Юэль Киннаман, Джеймс Пьюрфой, Марта Игареда, Крис Коннер, Антонио Марциале, Кристин Леман, Хиро Канагава, Валид Зуэйтер, Марлин Форте, Тич Грант и др.Перевод: многоголосый закадровый, профессиональный - NewStudio (ненормативная лексика)Субтитры: русские, английские
-
-ВНИМАНИЕ! Присутствует ненормативная лексика.Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98BC246B259B78307AC9728B288C5B3EE635E45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209845   (778922) от 01.03.2018
-
-МОК восстановил членство Олимпийского комитета России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный олимпийский комитет (МОК) восстановил членство Олимпийского комитета России в организации, которое было приостановлено 5 декабря прошлого года за два месяца до старта зимней Олимпиады в Пхенчхане, сообщили РИА Новости несколько источников, не связанных друг с другом.Исполком МОК 5 декабря принял решение временно отстранить ОКР. Российские атлеты были (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

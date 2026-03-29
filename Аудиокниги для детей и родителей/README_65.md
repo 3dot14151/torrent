@@ -1,3 +1,84 @@
+###  Публикация: 1681001   (133512) от 01.12.2023
+
+А.И. Асов | Мифы для детей. Перо Гамаюна. Волшебники Китеж-града (2014) [MP3, Евгений Покромович]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Игоревич Асов – писатель, журналист, историк и филолог, один из известнейших исследователей и знатоков древней славянской культуры и хранитель языческих традиций наших далеких предков – славянских ведов.
+Приглашаем наших слушателей в мир сказаний и мифов, повествующих о Волшебной стране. Эта страна населена волшебниками и драконами, русалками, вилами и (   Читать дальше...   )Жанр: Русская литература для детей, мифы, легенды и притчиИздательство: Аудиокнига (АСТ)Продолжительность: 06:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EADA39B9A7269B83F865A6EFEBB49748F5C864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681016   (133384) от 01.12.2023
+
+А.Н. Афанасьев, М. Михайлов | Лучшие сказки для детей (2009) [MP3, Александр Пашутин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет на свете ни одного ребёнка, который не любил бы слушать сказки. А каждый взрослый обязательно припомнит самые яркие из них, те, которые много-много лет назад рождали в его воображении подвиги добрых богатырей или похождения Ивана, крестьянского сына или приключения прекрасных царевен. Каждая сказка была наполнена народной мудростью и передавала знания об отношении (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: РМГ МедиаПродолжительность: 08:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD43676BB6D353157719DA648019D3B3AF00599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681353   (133166) от 02.12.2023
+
+Николай Ахшарумов, Екатерина II | Золотая коллекция сказок. Царевич Хлор (2008) [MP3, Александр Гусев, Галина Лебедева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Золотая коллекция сказок.
+Предлагаем вашему вниманию аудиокнигу со сказками:
+1.Жанр: Русская литература для детей, сказкаИздательство: Детское музыкальное издательство «ТВИК»Продолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D3893EEE4F18A5273424164D3E467FA3A04FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681338   (133163) от 02.12.2023
 
 Льюис Кэрролл | Алиса для малышей (2011) [MP3, Алла Човжик, Владимир Левашёв]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133163.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133131.jpg" />
 </div>
 
 
@@ -69,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132896.jpg" />
 </div>
 
 
@@ -96,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132895.jpg" />
 </div>
 
 
@@ -123,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132891.jpg" />
 </div>
 
 
@@ -150,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132888.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132879.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132844.jpg" />
 </div>
 
 
@@ -232,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132840.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132818.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132748.jpg" />
 </div>
 
 
@@ -313,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132746.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132705.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132527.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132525.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132507.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132498.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132483.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132412.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132248.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132143.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132139.jpg" />
 </div>
 
 
@@ -617,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131981.jpg" />
 </div>
 
 
@@ -630,89 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D20B9C558831F60FF3FC7F8D35D3F3987556D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316763   (131979) от 05.12.2023
-
-Лидия Чарская | Генеральская дочка (2007) [MP3, Елена Чебатуркина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Чтение вслух – для всей семьи. Повести для юношества
-Аудиокнига адресована, прежде всего, юному читателю, но ее с интересом прослушают и взрослые.
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, ее сказки переведены на многие языки мира.
-Причудливые, полные интриг приключения героев повестей Чарской переплетаются (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Говорящая книгаПродолжительность: 02:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663C9CF5AA4A84C28F39FF423594755310A1160F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392408   (131975) от 05.12.2023
-
-Лидия Чарская | Сибирочка (2009) [MP3, Мария Говорова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Архив мировой литературы.
-В начале XX века произведения Лидии Чарской (1875–1937) пользовались огромной популярностью среди детей и юношества дореволюционной России. Её повести и романы воспевали светлую любовь, живописали романтику повседневности – гимназические и институтские интересы, страсти, столкновение характеров. Душевные, романтичные истории (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АрМир (аудио)Продолжительность: 05:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B388E7BC7933D63767E98CAB9F3D51CCEEA8EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427362   (131971) от 05.12.2023
-
-Лидия Чарская | Счастливчик (2010) [MP3, Ульяна Милюшкина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская писательница Лидия Алексеевна Чарская (1875–1937) была «властительницей сердец» юных читателей. Выпускница Павловского института благородных девиц, она с сочувствием и любовью описывает мир переживаний, мыслей и идеалов институтских затворниц.
-«Мальчик этот очень хорошенький и изящный. Он весь тоненький и хрупкий, с бледным, точно фарфоровым личиком, черноглазый, (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Издательство Московской ПатриархииПродолжительность: 04:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789F3C0D021AF0D320A782F83F1CDD3E753A76F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

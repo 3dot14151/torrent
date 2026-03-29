@@ -1,3 +1,90 @@
+###  Публикация: 1200445   (795656) от 21.01.2018
+
+Iron Savior - Reforged - Riding on Fire (2017) 2CD (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warrior
+02. Iron Savior
+03. Tales of the Bold
+04. No Heroes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8334583DFC17437AD54D6D4BDD418D1A2BF0A4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200405   (795644) от 21.01.2018
+
+Gamma Ray - Land of the Free (1995) 2CD (Japanese Anniversary Edition, 2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Metal Mania (Holocaust Cover)
+02. As Time Goes By (Pre-production Version)
+03. The Silence ’95
+04. Dream Healer (Instrumental) (Live at Chameleon Studios 2017)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBABB58CD0736AF30428A09A7B347038196F275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509080   (795617) от 11.11.2021
+
+Planet Fatale - The Cycle Repeats (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking To Myself (04:24)
+02. 86 (03:36)
+03. Break For You (05:18)
+04. Shotgun Riders (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC94C5F7A9B840F99AAFB820A2CAC8010C05FB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011965   (795569) от 29.04.2016
 
 Fallujah - Dreamless (2016) [FLAC|tracks|WEB-DL]<Technical Deathcore, Progressive Death Metal, Atmospheric>
@@ -6,7 +93,7 @@ Fallujah - Dreamless (2016) [FLAC|tracks|WEB-DL]<Technical Deathcore, Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795569.jpg" />
+  <img src="Z:/picture/008/save_picture_795569.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ NorthTale - Eternal Flame (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795543.jpg" />
+  <img src="Z:/picture/008/save_picture_795543.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Woodtemple - Sorrow of the Wind (2008) [FLAC|Lossless|image + .cue] <Pagan Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795359.jpg" />
+  <img src="Z:/picture/008/save_picture_795359.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Split Heaven - The Devil's Bandit (2013) [WavPack|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795279.jpg" />
+  <img src="Z:/picture/008/save_picture_795279.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Amarok - Devoured (2018) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795070.jpg" />
+  <img src="Z:/picture/008/save_picture_795070.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sandstone - Epsilon Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795017.jpg" />
+  <img src="Z:/picture/008/save_picture_795017.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Knights Of The Realm - Knights Of The Realm (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795013.jpg" />
+  <img src="Z:/picture/008/save_picture_795013.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Insania - V (Praeparatus Supervivet) (2021) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795012.jpg" />
+  <img src="Z:/picture/008/save_picture_795012.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ David Reece - Blacklist Utopia (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795005.jpg" />
+  <img src="Z:/picture/008/save_picture_795005.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Wonders - The Fragments Of Wonder (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795004.jpg" />
+  <img src="Z:/picture/008/save_picture_795004.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Pain - Dancing With The Dead (2004) [FLAC|Lossless|image + .cue] <Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794955.jpg" />
+  <img src="Z:/picture/008/save_picture_794955.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Screaming Shadows - Legacy Of Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794897.jpg" />
+  <img src="Z:/picture/008/save_picture_794897.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Saratoga - XXX (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794883.jpg" />
+  <img src="Z:/picture/008/save_picture_794883.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Varg - Das Ende Aller Lugen (2016) [FLAC|Lossless|image + .cue] <Melodic Death, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794722.jpg" />
+  <img src="Z:/picture/008/save_picture_794722.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ The Crown - Doomsday King (2010) [FLAC|Lossless|image + .cue] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794112.jpg" />
+  <img src="Z:/picture/008/save_picture_794112.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Alda - A Distant Fire (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794089.jpg" />
+  <img src="Z:/picture/008/save_picture_794089.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ophis - Spew Forth Odium (2021) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794086.jpg" />
+  <img src="Z:/picture/008/save_picture_794086.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ In This Moment - А Stаr-Сrоssed Wаstelаnd (2010) Japanese Edition, 2015, K
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794004.jpg" />
+  <img src="Z:/picture/008/save_picture_794004.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Spheric Universe Experience - Anima (2007) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793799.jpg" />
+  <img src="Z:/picture/008/save_picture_793799.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Abigail Williams - Walk Beyond the Dark (2019) [FLAC|Lossless|image + .cue] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793794.jpg" />
+  <img src="Z:/picture/008/save_picture_793794.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Ep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793711.jpg" />
+  <img src="Z:/picture/008/save_picture_793711.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793710.jpg" />
+  <img src="Z:/picture/008/save_picture_793710.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793709.jpg" />
+  <img src="Z:/picture/008/save_picture_793709.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8287649BF8BEC69C234B5F3C173FC5C01A039071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122873   (793708) от 06.04.2017
-
-SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nights All Nine (02:37)
-2. Midwinter Sacrifice (05:37)
-3. Blood of the North (07:35)
-4. Black Sun's Bane (05:02)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122875   (793707) от 06.04.2017
-
-SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793707.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. King Of The World (09:33)
-2. Beyond The North Winds (08:21)
-3. Pale Autumnal Moon (03:08)
-4. Under The Mountain (09:16)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201075   (793702) от 23.01.2018
-
-Metallica - Load (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Load — вышел в 1996 г, за год ранее альбома01. Ain't My Bitch (5:04)
- 02. 2 X 4 (5:28)
- 03. The House Jack Built (6:39)
- 04. Until It Sleeps (4:28)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038588459708516CDEB3FE4936A3CB4FDD92DF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

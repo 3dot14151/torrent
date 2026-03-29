@@ -1,3 +1,81 @@
+###  Публикация: 719627   (381782) от 07.11.2013
+
+Быть или не быть / To Be or Not to Be (1942) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Польше до и во время немецкой оккупации. В одном театре Варшавы работают муж и жена - Йосиф и Мария Тура. Ставят антинацистскую пьесу, но ее запрещают, и приходится играть «Гамлета». Чрезвычайно тщеславный и ранимый Йосиф Тура играет самого принца датского, один из зрителей, молодой и красивый летчик, встает и уходит из зала в самый ответственный (   Читать дальше...   )Производство: США, Romaine Film CorporationЖанр: Комедия, Военный, ДрамаРежиссер: Эрнст ЛюбичАктеры: Кэрол Ломбард, Джек Бенни, Роберт Стэк, Феликс Брессарт, Лайонел Этуилл, Стэнли Риджес, Сиг Руман, Том Дуган, Чарльз Хэлтон, Джордж ЛиннПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 01:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B01EDF018E3CBE53B4C2318DA2724FB7F7F899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574861   (381543) от 07.09.2022
+
+После комендантского часа / Lewat Djam Malam / After the Curfew (1954) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озвучивая страдания нации, борющейся за свою национальную идентичность, картина Усмара Исмаила следует за разочарованным бывшем борце за свободу, который не может приспособиться к гражданской жизни после революции, давшей Индонезии независимость от Нидерландов. Пропитанный мрачной атмосферой и психологическим напряжением, фильм, как молния, поразил национальный кинематограф, (   Читать дальше...   )Производство: Индонезия, PERFINIЖанр: драмаРежиссер: Ушмар ИсмаилАктеры: A.N. Alcaff, Далия, Netty Herawati, Бамбанг Эрманто, Р.Д. ИзмаилПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английскиеПродолжительность: 01:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682757BA7F633BA18CD3F1CBD83EB56EDAC6F492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172341   (380929) от 17.10.2017
+
+Твонки / The Twonky (1953) TVRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_380929.jpg" />
+</div>
+
+
+###  Подробнее
+
+В доме профессора философии, после отъезда его жены, появляется странный телевизор, который мало того ходит, но еще начинает наводить свои порядки.Производство: США, Arch Oboler ProductionsЖанр: Фантастика, КомедияРежиссер: Арч ОболерАктеры: Ганс Конрид, Илэйн Мори, Уильям Х. Линн, Эдвин Макс, Глория Блонделл, Эвелин Бересфорд, Норман Филд, Элис Бэкес, Трилби Конрид, Джо ХоторнПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD4BADB3D48D2790A1DDB4331643813BA496E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066248   (380453) от 01.11.2016
 
 Человек из Ларами / The Man from Laramie (1955) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380453.jpg" />
+  <img src="Z:/picture/008/save_picture_380453.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380007.jpg" />
+  <img src="Z:/picture/008/save_picture_380007.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379343.jpg" />
+  <img src="Z:/picture/008/save_picture_379343.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_379274.jpg" />
+  <img src="Z:/picture/005/save_picture_379274.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379190.jpg" />
+  <img src="Z:/picture/008/save_picture_379190.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379044.jpg" />
+  <img src="Z:/picture/008/save_picture_379044.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378634.jpg" />
+  <img src="Z:/picture/008/save_picture_378634.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377868.jpg" />
+  <img src="Z:/picture/008/save_picture_377868.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377567.jpg" />
+  <img src="Z:/picture/008/save_picture_377567.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377562.jpg" />
+  <img src="Z:/picture/008/save_picture_377562.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377325.jpg" />
+  <img src="Z:/picture/008/save_picture_377325.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377323.jpg" />
+  <img src="Z:/picture/008/save_picture_377323.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377163.jpg" />
+  <img src="Z:/picture/008/save_picture_377163.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375526.jpg" />
+  <img src="Z:/picture/008/save_picture_375526.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375513.jpg" />
+  <img src="Z:/picture/008/save_picture_375513.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374689.jpg" />
+  <img src="Z:/picture/008/save_picture_374689.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374653.jpg" />
+  <img src="Z:/picture/008/save_picture_374653.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374528.jpg" />
+  <img src="Z:/picture/008/save_picture_374528.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374308.jpg" />
+  <img src="Z:/picture/008/save_picture_374308.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373907.jpg" />
+  <img src="Z:/picture/008/save_picture_373907.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373903.jpg" />
+  <img src="Z:/picture/008/save_picture_373903.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373699.jpg" />
+  <img src="Z:/picture/008/save_picture_373699.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373673.jpg" />
+  <img src="Z:/picture/008/save_picture_373673.jpg" />
 </div>
 
 
@@ -603,96 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C281ECA463500202FD7AC524A6816A582FC59335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252210   (373497) от 31.10.2010
-
-Сансет бульвар / Sunset Blvd. (Sunset Boulevard) (1950) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молоденький писатель Джо Гиллис сидит на полной «мели», его преследуют кредиторы, ему не на что поесть, ему кажется, что жизнь кончилась.
-Машина, на которой он отправляется бездумно и бесцельно неизвестно куда, вдруг резко виляет в сторону (лопнула шина!) и влетает во двор особняка знаменитой в прошлом, но увядающей в настоящем кинозвезды Нормы Десмонд..Жанр: драма, фильм-нуарРежиссер: Билли УайлдерПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4670DE05942300C18F5440AC62DDD35D8FB77FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251969   (373322) от 31.10.2010
-
-Дневная красавица / Belle de jour (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верная жена и добропорядочная хозяйка Северина Серизи однажды решается на невероятный и совершенно аморальный эксперимент. Устав от собственной непогрешимости, она тайно поступает на работу в публичный дом некой мадам Анаис.
-
-Но так как по вечерам и по ночам Северина продолжает играть свою привычную роль буржуазной кошечки, в борделе она получает имя «Дневная красавица».
-Как любая проститутка она исполняет все желания своих клиентов. А затем возвращается к домашнему очагу.
-Таким образом, Северина начинает вести двойную жизнь. И никто из ее близких даже не догадывается о том, как Северина проводит свои дни.
-
-Режиссер: Луис Бунюэль /Luis Bunuel
-Актеры: Катрин Денев /Catherine Deneuve/, Жан Сорель /Jean Sorel/, Мишель Пикколи /Michel Piccoli/, Женевьев Паж /Genevieve Page/, Франсиско Рабаль /Francisco Rabal/, Пьер Клементи /Pierre Clementi/, Жорж Маршал /Georges Marchal/, Маша Мериль /Macha Meril/, Франсуаза Фабиан /Francoise Fabian/, Мария Латур /Maria Latour
-Продолжительность: 01:39:57
-Перевод: Многоголосый закадровый(   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477F5C8F7CA757F2D179F7E1A266A56DCDA7BB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574712   (372607) от 13.11.2012
-
-Хористы / Les Choristes (2004) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, 1949 год. Отчаявшись найти работу, учитель музыки Клемент Матье попадает в интернат для трудных подростков. Там он видит, к каким жестоким «воспитательным мерам» прибегает ректор этого заведения Рашан. Чем больше издевается Рашан над мальчиками, тем агрессивнее они становятся.
-
-Добродушного по натуре Матье возмущают эти методы, но он не в состоянии открыто протестовать. Но однажды ему, автору многочисленных музыкальных произведений, которые он скромно прячет в своей комнате, приходит в голову замечательная идея: организовать школьный хор.Жанр: Драма, МузыкаРежиссер: Кристоф БарратьеАктеры: Жерар Жюньо, Франсуа Берлеан, Кад Мерад, Жан-Поль Боннер, Мари Бюнель, Жак Перрен, Дидье Фламан, Жан-Баптист Монье, Максанс Перрен, Грегори Гатиньоль, Тома Блюменталь, Сирил Бернико, Симон Фаржо, Теодул Карр-Кассейн, Филипп дю Жанеран, Кароль Вайсс, Армен Годель, Моника Дитишеим, Стив Гадлер, Фабрис Дубуссе...Перевод: ДублированныйПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AEE7CDB654E40050EF204BCD7876CEC9A05F269
 ```
 
 https://mybot314.ru/tekegram_catalog/

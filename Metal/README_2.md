@@ -6,7 +6,7 @@ The Rods - Brotherhood Of Metal (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040646.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Hellhole - Whores in the guise of saints (2020) [MP3|320 Kbps] <Black Metal, Pos
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040534.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Unquiet Grave 2020 (2020) [MP3|320 Kbps] <Darkwave, Gothic Rock, Coldwa
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040403.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pigs Pigs Pigs Pigs Pigs Pigs Pigs - Land Of Sleeper (2023) [MP3|320 Kbps] <Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040398.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Graphic Nature - A Mind Waiting To Die (2023) [MP3|320 Kbps] <Nu-Metal, Metalcor
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040175.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Avatar - Dance Devil Dance (2023) [MP3|320 Kbps] <Heavy Metal, Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040095.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Foi - Transcendent (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039943.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Martiria - Timeless (2023) Compilation [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039924.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Painted Wives - New Medusa (2021) [MP3|320 Kbps] <Heavy Metal, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039607.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kromheim - Journey To Divinity (2023) [MP3|320 Kbps] <Vikings Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039547.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Majestic Ryte - Majestic Ryte (2023) [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039397.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sonic Bong - 3 Albums (2017-2023) [MP3|320 Kbps] <Stoner, Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039383.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ruins of Elysium - Amphitrite: Ancient Sanctuary in the Sea (2021) [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039300.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Humanity Gone - The Seven Deadly Sins (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039297.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Social Scream - From Ashes To Hope (2021) 2xCD, Compilation [MP3|320 Kbps] <Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039293.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Goat Explosion - Rumors of Man (2018) [MP3|320 Kbps] <Doom, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039133.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ OzNor - Sea of Stars (2021) [MP3|320 Kbps] <Heavy Metal, Shred, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039034.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Anareta - Fear Not (2023) [MP3|320 Kbps] <Symphonic Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038601.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Incidense - Collide (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038380.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tanzwut - Silberne Hochzeit (2023) [MP3|320 Kbps] <Neue Deutsche Harte, Folk Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038356.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Swamp Lantern - Phantasms (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal, Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038317.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Myrkur (feat. Chelsea Wolfe) - Mareridt (2017) Deluxe Version, Relapse Records [
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037786.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Human Fortress - Epic Tales & Untold Stories (2021) 2xCD [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037785.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Therion - Leviathan (2021) [MP3|320 Kbps] <Symphonic Operatic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037724.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Ektomorf - 16 Studio Albums, 1 EP, 2 Live Albums, 2 Singles (1996-2021) [MP3|320
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037632.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mind Driller - InBolution (2021) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037518.jpg" />
 </div>
 
 

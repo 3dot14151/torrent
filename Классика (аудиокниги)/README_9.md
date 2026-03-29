@@ -1,3 +1,81 @@
+###  Публикация: 763066   (886922) от 05.03.2014
+
+Шарль де Костер | Легенда об Уленшпигеле (2011) [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_886922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда об Уленшпигеле смело может быть отнесена к тем десяти книгам, без которых не может прожить ни один человек. Шарль де Костер дал нам незабываемую интерпретацию средневековой фламандской легенды. Бродяга и балагур, отчаянный герой и проходимец Тиль проходит по жизни, ломая ее и устраивая по своему вкусу. Не влюбиться в этого шалопая просто невозможно, как и (   Читать дальше...   )Жанр: Классическая прозаИздательство: МедиаКнига
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28886E7B1A4AD7B9AE06D8E13079750102C93AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763075   (886570) от 05.03.2014
+
+Жюль Верн | Дети капитана Гранта (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Матросы яхты "Дункан", принадлежащей лорду Эдуарду Гленарвану, поймали в водах Шотландии рыбу-молот, внутри которой оказалась бутылка с загадочным письмом о помощи. Вода сильно испортила документы, однако удалось разобрать, что на 37 градусе южной широты потерпел крушение корабль капитана Гранта. Долготу же, как и саму землю, на которую выбрались жертвы (   Читать дальше...   )Жанр: Приключенческий романИздательство: Ардис
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BA2B90579A4AF0D54511F9A1DEFFD4E69D5C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641107   (884529) от 08.04.2013
+
+Александр Твардовский | Василий Тёркин [2011] [MP3, Семён Янишевский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884529.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1941 Твардовский начал работать над поэмой Василий Теркин, которой дал подзаголовок Книга про бойца. Первые главы были напечатаны в сентябре 1942 в газете «Красноармейская правда», в том же году ранний вариант поэмы вышел отдельной книгой. Окончательный вариант был завершен в 1945. В статье Как был написан «Василий Теркин» Твардовский писал о том, что образ главного (   Читать дальше...   )Жанр: ПоэмаИздательство: Sam-издат
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE91AE838141C19B0299C88B350DC53023E70A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103712   (883456) от 13.02.2017
 
 Александр Островский | Красавец-мужчина (1953) [MP3]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883456.jpg" />
+  <img src="Z:/picture/005/save_picture_883456.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883121.jpg" />
+  <img src="Z:/picture/005/save_picture_883121.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882610.jpg" />
+  <img src="Z:/picture/005/save_picture_882610.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881014.jpg" />
+  <img src="Z:/picture/005/save_picture_881014.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875076.jpg" />
+  <img src="Z:/picture/005/save_picture_875076.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874573.jpg" />
+  <img src="Z:/picture/005/save_picture_874573.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873896.jpg" />
+  <img src="Z:/picture/008/save_picture_873896.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873226.jpg" />
+  <img src="Z:/picture/008/save_picture_873226.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871567.jpg" />
+  <img src="Z:/picture/008/save_picture_871567.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871434.jpg" />
+  <img src="Z:/picture/008/save_picture_871434.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868022.jpg" />
+  <img src="Z:/picture/008/save_picture_868022.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866687.jpg" />
+  <img src="Z:/picture/008/save_picture_866687.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866258.jpg" />
+  <img src="Z:/picture/008/save_picture_866258.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865362.jpg" />
+  <img src="Z:/picture/008/save_picture_865362.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863767.jpg" />
+  <img src="Z:/picture/008/save_picture_863767.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863037.jpg" />
+  <img src="Z:/picture/008/save_picture_863037.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862950.jpg" />
+  <img src="Z:/picture/008/save_picture_862950.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860487.jpg" />
+  <img src="Z:/picture/008/save_picture_860487.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860072.jpg" />
+  <img src="Z:/picture/008/save_picture_860072.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859992.jpg" />
+  <img src="Z:/picture/008/save_picture_859992.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859983.jpg" />
+  <img src="Z:/picture/008/save_picture_859983.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857518.jpg" />
+  <img src="Z:/picture/008/save_picture_857518.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853851.jpg" />
+  <img src="Z:/picture/008/save_picture_853851.jpg" />
 </div>
 
 
@@ -602,87 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2411D8858A1D181EF86BD86C764FD363A2E29FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110129   (853760) от 02.03.2017
-
-Александр Пушкин | Станционный смотритель (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль 1987 года по одноименной повести А.С. Пушкина из цикла "Повести Белкина"
-
-Режиссёр-постановщик — Борис Щедрин.Жанр: радиоспектакльПродолжительность: 0:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237F00571C132A1A3513C3A6137A1AD1E7F69E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001346   (853751) от 28.03.2016
-
-Антон Чехов | Рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антон Павлович Чехов - один из величайших писателей и драматургов не только отечественной, но и мировой литературы, тончайший психолог, ироничный юморист, непревзойденный певец загадочной русской души во всем се эмоциональном диапазоне, в котором от смешного до драматического - всего один шаг.
-В сборник вошли наиболее известные повести и рассказы Чехова - произведения (   Читать дальше...   )Жанр: КлассикаПродолжительность: 09:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE5D0CCEC53CADC38353C88E47D4B59381BDDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306537   (853174) от 09.03.2011
-
-Александр Островский | Сердце не камень [радиоспектакль] [1957] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Классика, пьесаПродолжительность: 02:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6588C7A0485620768D606793C24094056E4403A
 ```
 
 https://mybot314.ru/tekegram_catalog/

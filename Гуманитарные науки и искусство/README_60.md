@@ -1,3 +1,29 @@
+###  Публикация: 913567   (605354) от 29.06.2015
+
+А. Д. Михайлов | Средневековые легенды и западноевропейские литературы (2006) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны работы, посвященные некоторым легендам Средневековья. На сложных путях от мифа к литературе, по крайней мере, в рамках средневековой культуры, всевозможным легендам принадлежит доминирующая роль. Включенные в эту книгу исследования преследуют каждый раз одну и ту же цель – выявить пути формирования средневековых легенд, особенности их функционирования (   Читать дальше...   )Жанр: Культурология, ЯзыкознаниеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45DE74B8316539CB6D87DBCF290F4AD26483B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912347   (605205) от 29.06.2015
 
 С. В. Цветков | Поход Русов на Константинополь в 860 году и начало Руси (2010) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605205.jpg" />
+  <img src="Z:/picture/008/save_picture_605205.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605119.jpg" />
+  <img src="Z:/picture/008/save_picture_605119.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604791.jpg" />
+  <img src="Z:/picture/008/save_picture_604791.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604114.jpg" />
+  <img src="Z:/picture/008/save_picture_604114.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603938.jpg" />
+  <img src="Z:/picture/008/save_picture_603938.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603491.jpg" />
+  <img src="Z:/picture/008/save_picture_603491.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603274.jpg" />
+  <img src="Z:/picture/008/save_picture_603274.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603237.jpg" />
+  <img src="Z:/picture/008/save_picture_603237.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602928.jpg" />
+  <img src="Z:/picture/008/save_picture_602928.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602674.jpg" />
+  <img src="Z:/picture/008/save_picture_602674.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602663.jpg" />
+  <img src="Z:/picture/008/save_picture_602663.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602556.jpg" />
+  <img src="Z:/picture/008/save_picture_602556.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602554.jpg" />
+  <img src="Z:/picture/008/save_picture_602554.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602550.jpg" />
+  <img src="Z:/picture/008/save_picture_602550.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602533.jpg" />
+  <img src="Z:/picture/008/save_picture_602533.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602520.jpg" />
+  <img src="Z:/picture/008/save_picture_602520.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601744.jpg" />
+  <img src="Z:/picture/008/save_picture_601744.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601736.jpg" />
+  <img src="Z:/picture/008/save_picture_601736.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600431.jpg" />
+  <img src="Z:/picture/008/save_picture_600431.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600425.jpg" />
+  <img src="Z:/picture/008/save_picture_600425.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600424.jpg" />
+  <img src="Z:/picture/008/save_picture_600424.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600365.jpg" />
+  <img src="Z:/picture/008/save_picture_600365.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600108.jpg" />
+  <img src="Z:/picture/008/save_picture_600108.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599976.jpg" />
+  <img src="Z:/picture/008/save_picture_599976.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599973.jpg" />
+  <img src="Z:/picture/008/save_picture_599973.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:282BFC79CE12C027D2A1713655550670123DD169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232112   (599919) от 24.06.2018
-
-Росс Кинг | Чарующее безумие. Клод Моне и водяные лилии (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599919.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 1914 году шумные баталии, ознаменовавшие появление на свет мятежной группы художников-импрессионистов, давно стали историей, а молодые бунтари, их спровоцировавшие, – те из них, кто еще не покинул этот мир, – превратились в седобородых патриархов французской живописи. Клод Моне, которому исполнилось 73 года, обосновался в Живерни, где обустроил свой персональный (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная литература о культуре и искусстве, Зарубежная публицистика, Изобразительное искусство, Искусствоведение, История искусстваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A93424FFD281B91D8C757B979ED817E7DC90AF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

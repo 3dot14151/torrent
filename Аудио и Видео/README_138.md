@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644489.jpg" />
+  <img src="Z:/picture/008/save_picture_644489.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643366.jpg" />
+  <img src="Z:/picture/008/save_picture_643366.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643327.jpg" />
+  <img src="Z:/picture/008/save_picture_643327.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643224.jpg" />
+  <img src="Z:/picture/008/save_picture_643224.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643100.jpg" />
+  <img src="Z:/picture/008/save_picture_643100.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643093.jpg" />
+  <img src="Z:/picture/008/save_picture_643093.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642921.jpg" />
+  <img src="Z:/picture/008/save_picture_642921.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642781.jpg" />
+  <img src="Z:/picture/008/save_picture_642781.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642780.jpg" />
+  <img src="Z:/picture/008/save_picture_642780.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642765.jpg" />
+  <img src="Z:/picture/008/save_picture_642765.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642701.jpg" />
+  <img src="Z:/picture/008/save_picture_642701.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642695.jpg" />
+  <img src="Z:/picture/008/save_picture_642695.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642689.jpg" />
+  <img src="Z:/picture/008/save_picture_642689.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642486.jpg" />
+  <img src="Z:/picture/008/save_picture_642486.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642276.jpg" />
+  <img src="Z:/picture/008/save_picture_642276.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642168.jpg" />
+  <img src="Z:/picture/008/save_picture_642168.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641625.jpg" />
+  <img src="Z:/picture/008/save_picture_641625.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641612.jpg" />
+  <img src="Z:/picture/008/save_picture_641612.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641611.jpg" />
+  <img src="Z:/picture/008/save_picture_641611.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641568.jpg" />
+  <img src="Z:/picture/008/save_picture_641568.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641512.jpg" />
+  <img src="Z:/picture/008/save_picture_641512.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641484.jpg" />
+  <img src="Z:/picture/008/save_picture_641484.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ VA - Lounge Jazz In Lisbon (2022) [AAC|~328 Kbps] <Jazz, Lounge, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641222.jpg" />
+  <img src="Z:/picture/008/save_picture_641222.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Soulful House Cafe (Bar tracks & grooves for your drink time) (2022) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641220.jpg" />
+  <img src="Z:/picture/008/save_picture_641220.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Friends List Vol. 3 (2021) [AAC|~321 Kbps] <Deep House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641219.jpg" />
+  <img src="Z:/picture/008/save_picture_641219.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ VA - Chillaxing Time, Vol. 11 (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641218.jpg" />
+  <img src="Z:/picture/008/save_picture_641218.jpg" />
 </div>
 
 

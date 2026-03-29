@@ -1,3 +1,31 @@
+###  Публикация: 1403224   (694019) от 18.08.2020
+
+Balabolka 2.15.0.751 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
+Для воспроизведения звуков человеческого голоса могут использоваться
+любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651EB6CE2934D6516831F75778FB9546CA469BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534548   (694012) от 02.03.2022
 
 AOMEI Backupper Technician Plus 6.9.0 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +34,7 @@ AOMEI Backupper Technician Plus 6.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694012.jpg" />
+  <img src="Z:/picture/008/save_picture_694012.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ AIMP 5.02 Build 2366 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694008.jpg" />
+  <img src="Z:/picture/008/save_picture_694008.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ CPU-Z 2.00.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694007.jpg" />
+  <img src="Z:/picture/008/save_picture_694007.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Reg Organizer 8.86 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694006.jpg" />
+  <img src="Z:/picture/008/save_picture_694006.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ PotPlayer 1.7.21612 (220302) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694004.jpg" />
+  <img src="Z:/picture/008/save_picture_694004.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ Google Chrome 99.0.4844.51 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693996.jpg" />
+  <img src="Z:/picture/008/save_picture_693996.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ VueScan Pro 9.6.35 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693930.jpg" />
+  <img src="Z:/picture/008/save_picture_693930.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ Adobe Flash Player 32.0.0.156 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693920.jpg" />
+  <img src="Z:/picture/008/save_picture_693920.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ Any Video Converter Professional 6.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693917.jpg" />
+  <img src="Z:/picture/008/save_picture_693917.jpg" />
 </div>
 
 
@@ -241,7 +269,7 @@ Microsoft Edge 84.0.522.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693899.jpg" />
+  <img src="Z:/picture/008/save_picture_693899.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693895.jpg" />
+  <img src="Z:/picture/008/save_picture_693895.jpg" />
 </div>
 
 
@@ -293,7 +321,7 @@ Transcend SSD Scope 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693891.jpg" />
+  <img src="Z:/picture/008/save_picture_693891.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ Windows Repair (All In One) 3.9.3 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693889.jpg" />
+  <img src="Z:/picture/008/save_picture_693889.jpg" />
 </div>
 
 
@@ -346,7 +374,7 @@ WifiInfoView 2.62 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693888.jpg" />
+  <img src="Z:/picture/008/save_picture_693888.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ Nikon Capture NX-D 1.6.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693883.jpg" />
+  <img src="Z:/picture/008/save_picture_693883.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693861.jpg" />
+  <img src="Z:/picture/008/save_picture_693861.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693852.jpg" />
+  <img src="Z:/picture/008/save_picture_693852.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693849.jpg" />
+  <img src="Z:/picture/008/save_picture_693849.jpg" />
 </div>
 
 
@@ -469,6 +497,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288622   (693812) от 12.03.2019
+
+Adobe Flash Player 32.0.0.156 Final [3 в 1] RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_693812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2ADCF11C84174D1933D40952B5BE6FF5F238E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896318   (693786) от 09.05.2015
 
 R-Studio 7.6 Build 158715 Network Edition [Multi/Ru]
@@ -477,7 +531,7 @@ R-Studio 7.6 Build 158715 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693786.jpg" />
+  <img src="Z:/picture/008/save_picture_693786.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ Psiphon 3 build 157 DC 10.08.2020 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693763.jpg" />
+  <img src="Z:/picture/008/save_picture_693763.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ R-Studio 7.6 Build 158715 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693688.jpg" />
+  <img src="Z:/picture/008/save_picture_693688.jpg" />
 </div>
 
 
@@ -556,7 +610,7 @@ BitTorrent Pro Stable 7.10.5 build 44995 Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693643.jpg" />
+  <img src="Z:/picture/008/save_picture_693643.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Microsoft Windows 10 Version 2004 Build 10.0.19041.450 (Updated August 2020) (es
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693612.jpg" />
+  <img src="Z:/picture/008/save_picture_693612.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ BELOFF 2020.08.1 (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693598.jpg" />
+  <img src="Z:/picture/008/save_picture_693598.jpg" />
 </div>
 
 
@@ -619,61 +673,6 @@ BELOFF 2020.08.1 (Авторская раздача)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F9D012DCE8D54C16F7A1A989C1BE6D7BD4800E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333289   (693547) от 07.05.2011
-
-WSUS Offline Update 6.8.4 Portable [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693547.jpg" />
-</div>
-
-
-###  Подробнее
-
-WSUS Offline Update - программа, которая позволяет выполнять обновление Windows и Office в режиме оффлайн. Как известно, корпорация Microsoft регулярно выпускает обновления для своих ключевых продуктов - Windows и Office, причем эти обновления устанавливаются автоматическиы, но только в том случае, если компьютер, на который они устанавливаются, подключен к Интернету. WSUS Offline Update предоставляет возможность обновления Windows и Office в автономном режиме.
-
-Принцип работы заключается в том, что программа с помощью встроенного клиента позволяет загрузить свежие обновления на компьютер, подключенный к Интернету, после чего их можно записать на DVD и в дальнейшем использовать этот диск для обновления других компьютерах уже в режиме оффлайн.
-Одной из особенностей WSUS Offline Update является то, что программа позволяет исключать из списка загружаемых некоторые обновления (громоздкие сервис-паки и т.п.), а также настраивать ряд других параметров, например, для какой из локализаций (русской, английской и т.д.) (   Читать дальше...)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288776   (693536) от 12.03.2019
-
-Домашний медиа-сервер (UPnP, DLNA, HTTP) 3.00 [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашний медиа-сервер (UPnP, DLNA, HTTP) - программа, предоставляющая медиа-ресурсы (фотографии, аудио и видео файлы) Вашего компьютера другим UPnP (DLNA) устройствам в домашней сети, например, телевизорам Philips, Sony, Samsung, LG, Toshiba, игровым приставкам Sony Playstation 3, XBOX 360, медиа-плеерам WD TV Live, Popcorn Hour, Dune, Boxee Box, IconBit, ASUS O!Play, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC872E469690631BB6FA5EBBE8D47FDAAD58401
 ```
 
 https://mybot314.ru/tekegram_catalog/

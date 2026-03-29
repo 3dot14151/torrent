@@ -1,3 +1,32 @@
+###  Публикация: 987119   (923839) от 18.02.2016
+
+Свят Костюк | 0,5+0,5. Карточные фокусы и кардистри (2014) CamRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923839.jpg" />
+</div>
+
+
+###  Подробнее
+
+0.5 + 0.5 — курс обучения фокусам, флоришам и фишкам с картами.
+
+Даже всего с одной колодой карт можно показывать то, от чего неподготовленный зритель начинает сомневаться в реальности происходящего.
+(   Читать дальше...   )Жанр: Карточные фокусыПродолжительность: 05:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33C8F1CB7FC370F6685C29984686576AA10E893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988289   (922320) от 19.02.2016
 
 Сергей Змеев | Интуиция (2012) DVDRip [H.264]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922320.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Intellect | Техника быстрого чтения [2007] DVDRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919660.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915109.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Experiment-fest,  Виталий Черемисинов, Искандер Мир
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911907.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911164.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907591.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Bang Bang Education | Секреты композиции (2017) PCRec [H.264/10
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906525.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898946.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898780.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898623.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898466.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893007.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890880.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890791.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_888528.jpg" />
+  <img src="Z:/picture/009/save_picture_888528.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877247.jpg" />
+  <img src="Z:/picture/005/save_picture_877247.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Cornacchia | Создание украшения от Cornacchia (2015) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873109.jpg" />
+  <img src="Z:/picture/008/save_picture_873109.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870921.jpg" />
+  <img src="Z:/picture/008/save_picture_870921.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867770.jpg" />
+  <img src="Z:/picture/008/save_picture_867770.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866082.jpg" />
+  <img src="Z:/picture/008/save_picture_866082.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865813.jpg" />
+  <img src="Z:/picture/008/save_picture_865813.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ kalachevaschool, Татьяна Быковская | История искусс
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864457.jpg" />
+  <img src="Z:/picture/008/save_picture_864457.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863716.jpg" />
+  <img src="Z:/picture/008/save_picture_863716.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862424.jpg" />
+  <img src="Z:/picture/008/save_picture_862424.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862178.jpg" />
+  <img src="Z:/picture/008/save_picture_862178.jpg" />
 </div>
 
 
@@ -681,33 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA0E1B4E45E0967782E57E45557EE5CFC6F0DCC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498217   (859301) от 25.09.2021
-
-Правое полушарие интроверта, Никита Добряков и др. | Станьте искусствоведом. Расцвет искусства (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите профессионально разбираться в искусстве, но на переобучение или поступление в университет нет времени и ресурсов? Мы уверены: каждый, кто любит искусство, может стать искусствоведом. И для этого совсем не обязательно 4-6 лет учиться в университете.
-В этом блоке: Поговорим о классической живописи и ее направлениях. Обсудим основных художников и их главные шедевры.Производство: Правое полушарие интровертаЖанр: ИскусствоПродолжительность: 29:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02B2A57C698E78279AD9EAF6E65F3742FE5EC74
 ```
 
 https://mybot314.ru/tekegram_catalog/

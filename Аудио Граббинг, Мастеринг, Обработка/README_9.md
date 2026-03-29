@@ -1,3 +1,107 @@
+###  Публикация: 1541679   (645030) от 03.04.2022
+
+Native Instruments - Replika XT 1.2.2 VST, VST3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Replika XT - это комплексное решение «все в одном» для сложных ритмов, трюков микширования и многого другого. Это творческий многорежимный эффект задержки с пятью яркими режимами задержки и расширенными параметрами. Программа позволяет легко создавать сложные ритмы, расширять микс или исследовать вселенную возможностей звукового дизайна. Replika XT Делей высшего (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FE01F63BA064CDEB58A3DA785B533E04867A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541597   (645027) от 03.04.2022
+
+Native Instruments - Transient Master 1.4.2 VST, VST3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transient Master был вдохновлен современным популярным студийным процессором, и предоставляет уникальный и действенный метод для обработки ударных и звуков перкуссионных инструментов, путем формирования огибающей сигнала. С помощью параметров "Attack" и "Sustain", Transient Master может добавить естественную ударность и четкость, или отодвинуть (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F98108A1062A2A2F9ADA00258031E9293E0F1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541669   (644778) от 03.04.2022
+
+XLN Audio - XO Complete 1.4.5.9 STANDALONE, VSTi, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драм-секвенсор нового поколения. XO идентифицирует и собирает одиночные сэмплы, хранящиеся в любом месте на вашем компьютере или жестких дисках, и сортирует их по сходству. Это дает вашим отобранным сэмплам новый творческий контекст, который облегчает эксперименты. XO может использоваться для создания битов и ритмов, если вы загружаете в нее звуки ударных.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06F5B188D77B77A4F9EB817AC411ED4C1B48842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541647   (644638) от 03.04.2022
+
+XLN Audio - Addictive Keys Complete 1.5.4.2 STANDALONE, VSTi, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addictive Keys это мощный инструмент для музыкантов, продюсеров и композиторов, устанавливающий новый стандарт качества виртуальных клавишных инструментов. С его звуковыми возможностями, гибким рабочим процессом и быстрым временем загрузки, Addictive Keys подойдет для любых стилей и музыкальных жанров. Смешивайте и сочетайте различные расположения микрофонов, добавляйте (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DEB6FC3CA0E01D3C1E3FC0B322AD35AEAB18E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518132   (644559) от 02.07.2012
 
 Arturia - Spark Creative Drum Machine v.1.4.1 x86 x64 by ASSiGN [английский]
@@ -6,7 +110,7 @@ Arturia - Spark Creative Drum Machine v.1.4.1 x86 x64 by ASSiGN [английс�
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644559.jpg" />
+  <img src="Z:/picture/005/save_picture_644559.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Adrosoft Dual Audio Recorder 1.4 RePack by Vl@d [Rus/Eng]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642875.jpg" />
+  <img src="Z:/picture/005/save_picture_642875.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Native Instruments - Driver 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642849.jpg" />
+  <img src="Z:/picture/008/save_picture_642849.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Native Instruments - Solid Mix Series 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642730.jpg" />
+  <img src="Z:/picture/008/save_picture_642730.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Native Instruments - Reverb Classics 1.4.2 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642620.jpg" />
+  <img src="Z:/picture/008/save_picture_642620.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ XLN Audio - Addictive Trigger Complete 1.2.5.3 VST, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642608.jpg" />
+  <img src="Z:/picture/008/save_picture_642608.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ TBProAudio - DSEQ3 3.6.0 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640955.jpg" />
+  <img src="Z:/picture/008/save_picture_640955.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Toontrack EZkeys Electronic Pop 1.0.0 STANDALONE, VSTi, AAX (x86/x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638835.jpg" />
+  <img src="Z:/picture/008/save_picture_638835.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ Acon Digital Collection 04.2022 Standalone, VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638748.jpg" />
+  <img src="Z:/picture/008/save_picture_638748.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Initial Audio - AR1 Reverb 1.2.0 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635319.jpg" />
+  <img src="Z:/picture/008/save_picture_635319.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ Initial Audio - Dynamic Delay 1.0.5 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635178.jpg" />
+  <img src="Z:/picture/008/save_picture_635178.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Initial Audio - Master Suite 1.2.0 VST, VST3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635164.jpg" />
+  <img src="Z:/picture/008/save_picture_635164.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ FeelYourSound - Chillout Engine Pro 1.0.0 VSTi (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635049.jpg" />
+  <img src="Z:/picture/008/save_picture_635049.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Arturia - 3 Compressors 1.0.0 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633495.jpg" />
+  <img src="Z:/picture/008/save_picture_633495.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ MAGIX Audio & Music Lab 2017 Premium 22.1.0.38 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625913.jpg" />
+  <img src="Z:/picture/008/save_picture_625913.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ Audio Transcoder 2.9.0.1331 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625911.jpg" />
+  <img src="Z:/picture/008/save_picture_625911.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ ADSR Sample Manager 1.2 STANDALONE, VSTi, VSTi3 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623874.jpg" />
+  <img src="Z:/picture/008/save_picture_623874.jpg" />
 </div>
 
 
@@ -456,7 +560,7 @@ Cakewalk - Z3TA Plus 2 2.2.3.51 STANDALONE, VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623650.jpg" />
+  <img src="Z:/picture/008/save_picture_623650.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Togu Audio Line - TAL-Drum 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622075.jpg" />
+  <img src="Z:/picture/008/save_picture_622075.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ Audiffex - ampLion Pro v.1.0.4 x86 by ASSIGN [английский]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_618747.jpg" />
+  <img src="Z:/picture/005/save_picture_618747.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ Cherry Audio - Memorymode 1.2.0.125 Standalone, VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616548.jpg" />
+  <img src="Z:/picture/008/save_picture_616548.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Cherry Audio - Dreamsynth 1.0.7.128 Standalone, VSTi, VSTi 3, AAX (x64) RePack b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616544.jpg" />
+  <img src="Z:/picture/008/save_picture_616544.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ Cherry Audio Dreamsynth — это дань уважения знамениты�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49ADAC1F20153840E01512167CBD2093842CB36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545048   (616533) от 18.04.2022
-
-Cherry Audio - Quadra 1.0.4.75 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cherry Audio Quadra — это сверхточная и значительно улучшенная эмуляция синтезатора ARP Quadra, первоначально выпущенного в 1978 году, — редкого и желанного инструмента «единорога» в мире синтезаторов, впервые воспроизведенного в виде виртуального инструмента.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEDAAC2691580A27AB797C417236809047C1FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545328   (614896) от 19.04.2022
-
-BBE Sound Stomp Board 1.3.0 Standalone, VST, VST 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stomp Board — это отдельное приложение и набор подключаемых модулей, содержащий хост «Stomp Board» со встроенным симулятором усилителя и 8 подключаемых модулей премиальных смоделированных эффектов из оригинальной классики BBE Stomp Ware.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBBD96DC7DFD120E96226B66462D73E56C4C1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545338   (614807) от 19.04.2022
-
-Polyverse Music - Gatekeeper 1.3.13 VST, VST 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики из Polyverse Music и популярный электронный дуэт Infected Mushroom выпустили третий совместный плагин — Polyverse Gatekeeper. Новинка представляет собой модулятор громкости, который изменяет громкость сигнала на основе различных паттернов и предлагает функции гейта и дакинга, возможность создания креативного усиления и эффектов заикания и многое другое. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4B5A9B3F4261395D3428F85F05C9372CA92A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545330   (614803) от 19.04.2022
-
-Cherry Audio - Rackmode 1.0.6 Standalone, VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rackmode Signal Processors — это набор из семи виртуальных эффектов и инструментального плагина, которые воспроизводят классические стоечные сигнальные процессоры Moog 1970-х и 80-х годов. Эта эксклюзивная коллекция представляет собой первый раз, когда вся линейка известных аналоговых сокровищ была воссоздана в виде виртуальных эффектов. Rackmode также отмечает наше (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82134C4A7E6864BB475E91604D097F6FDB3B8115
 ```
 
 https://mybot314.ru/tekegram_catalog/

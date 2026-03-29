@@ -1,3 +1,81 @@
+###  Публикация: 1334455   (293180) от 30.10.2019
+
+Кристина Гросс-Ло | Родители без границ. Секреты воспитания со всего мира (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_293180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правильно ли мы воспитываем детей? Кристина Гросс-Ло, мама двух девочек и двух мальчиков, признанный эксперт в области воспитания, считает, что лучший способ оценить собственные действия – взглянуть на них через призму иной культуры. Она берет читателя с собой в Финляндию, Францию, Германию, США, Японию, Китай и показывает, как в разных культурах принято развивать (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 09:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C017D7D4056A505897B98FE8AD0FB299FB7F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080074   (292148) от 05.12.2016
+
+Джордж Макдональд | Легковесная принцесса (2012) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невесомость тела приводит к невесомости души, которая не способна ни чувствовать чужую боль, ни любить. А как легко потерять себя в самодовольном "Я - Не-Кто-Нибудь!". Избалованная неразумными родителями маленькая принцесса не имеет никакого понятия о том, что такое любить, жалеть, сочувствовать. Такой беде не могут помочь даже самые именитые ученые. Тут (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD8796D0F877962130DA42784E18CF0C208C113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079863   (291981) от 05.12.2016
+
+Геннадий Гладков, Лазарь Лагин, Юрий Энтин | Хоттабыч! (1979) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается музыкальная комедия Лазаря Лагина и Юрия Энтина по повести Лазаря Лагина "Старик Хоттабыч". Музыка Геннадия Гладкова, стихи Юрия Энтина.Жанр: Детская литература, музыкальный аудиоспектакльПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC296A1AF588EA95B50F46A259A8EBD7783A113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269552   (291750) от 12.12.2010
 
 Shamindra - Baby Massage (2007) [MP3|320 kbps]<Музыка для малышей>
@@ -6,7 +84,7 @@ Shamindra - Baby Massage (2007) [MP3|320 kbps]<Музыка для малыше�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291750.jpg" />
+  <img src="Z:/picture/008/save_picture_291750.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291376.jpg" />
+  <img src="Z:/picture/008/save_picture_291376.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Tweenies - The Christmas Album (2004) [MP3|320 kbps]<Детские песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290133.jpg" />
+  <img src="Z:/picture/008/save_picture_290133.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290119.jpg" />
+  <img src="Z:/picture/008/save_picture_290119.jpg" />
 </div>
 
 
@@ -118,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288954.jpg" />
+  <img src="Z:/picture/008/save_picture_288954.jpg" />
 </div>
 
 
@@ -144,7 +222,7 @@ VA - Снова в школу (2015) [MP3|320 кб/с]<Детские песни
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288724.jpg" />
+  <img src="Z:/picture/008/save_picture_288724.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288545.jpg" />
+  <img src="Z:/picture/008/save_picture_288545.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288481.jpg" />
+  <img src="Z:/picture/008/save_picture_288481.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ Disney - Princess Tea Party (2005) [MP3|192 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288446.jpg" />
+  <img src="Z:/picture/008/save_picture_288446.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ Disney - Princess Lullaby Album (2002) [MP3|192 kbps]<Музыка для дет
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288348.jpg" />
+  <img src="Z:/picture/008/save_picture_288348.jpg" />
 </div>
 
 
@@ -282,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287224.jpg" />
 </div>
 
 
@@ -309,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287222.jpg" />
 </div>
 
 
@@ -337,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286285.jpg" />
+  <img src="Z:/picture/008/save_picture_286285.jpg" />
 </div>
 
 
@@ -365,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286269.jpg" />
+  <img src="Z:/picture/008/save_picture_286269.jpg" />
 </div>
 
 
@@ -391,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286258.jpg" />
+  <img src="Z:/picture/008/save_picture_286258.jpg" />
 </div>
 
 
@@ -418,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285634.jpg" />
+  <img src="Z:/picture/008/save_picture_285634.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284774.jpg" />
+  <img src="Z:/picture/008/save_picture_284774.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284636.jpg" />
+  <img src="Z:/picture/008/save_picture_284636.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284466.jpg" />
+  <img src="Z:/picture/008/save_picture_284466.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281753.jpg" />
+  <img src="Z:/picture/008/save_picture_281753.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280910.jpg" />
+  <img src="Z:/picture/008/save_picture_280910.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ VA - 200 лучших детских песен (2011) [MP3|256-320 kbps]<Дет
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280097.jpg" />
+  <img src="Z:/picture/008/save_picture_280097.jpg" />
 </div>
 
 
@@ -606,7 +684,7 @@ VA - The Smurfs Christmas Party (1996) [MP3|192 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279046.jpg" />
+  <img src="Z:/picture/008/save_picture_279046.jpg" />
 </div>
 
 
@@ -620,84 +698,6 @@ VA - The Smurfs Christmas Party (1996) [MP3|192 kbps]<Детские песен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED0B611496CD56CFEAE61088F91012589A9F343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082113   (279006) от 12.12.2016
-
-Юлия Бортновская-Медокс | Зимние сказки, стихи и загадки (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогие мамы и папы, бабушки и дедушки! Зима - это игры в снежки, катание с горок, лепка снеговиков и, конечно же, самый любимый праздник малышей - Новый год с дедом Морозом и Снегурочкой под наряженной ёлкой. вошедшие в эту аудиокнигу веселые стихотворенья, сказки и загадки на зимние и новогодние темы очень понравятся детям.Жанр: Для детей дошкольного возрастаПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2746B106FB8B5D3DFBB2CFF5C68BDD9512DBBD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272449   (278822) от 19.12.2010
-
-VA - DisneyMania [7 CD] (2002-2010) [MP3|150-267 kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские песниПродолжительность: 05:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083537   (273706) от 16.12.2016
-
-Леонид Пантелеев, Юрий Владимиров и др. | О братьях наших меньших (1999) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273706.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Золотая коллекция" - это серия лучших инсценировок русских и зарубежных классических сказок и рассказов, это бесценная и неисчерпаемая кладовая русской и зарубежной культуры, это духовное наследие поколений, это первые "учебники жизни" ребенка.Жанр: Детская литератураПродолжительность: 02:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C857832FA58EB669D2CE451A0A1BCD196FFAB8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

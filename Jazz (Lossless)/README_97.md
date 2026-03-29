@@ -1,3 +1,119 @@
+###  Публикация: 1022786   (727855) от 03.06.2016
+
+Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Workout [10:01]
+ 02.Uh Huh [10:44]
+ 03.Smokin' [07:31]
+ 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284708   (727846) от 22.02.2019
+
+Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Mornin' (3:13)
+ 02. Santa Gotta Choo Choo (3:29)
+ 03. Somebody Stole My Santa Claus Suit (4:44)
+ 04. Carol of the Bells (3:08)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284705   (727837) от 22.02.2019
+
+Vangelis Katsoulis - Pictures From Inside (2011) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Universe Clockwork (8:29)
+ 02. Snapshots of a Lost World (16:26)
+ 03. Filinks (7:42)
+ 04. I Died for Beauty (4:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38A62B3275F388C836310821D93D966C1BAF5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530821   (727823) от 12.02.2022
+
+Rick Braun - Rick Braun (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away Places (4:57)
+02. Amor De Mi Vida (Love Of My Life) (4:54)
+03. Turkish (5:02)
+04. The Color Of Love (3:54)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC1C71B55E440E75A503D2E5C32EB5D19DD442C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022807   (727787) от 03.06.2016
 
 Paolo Fresu - Around Tuk (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
@@ -6,7 +122,7 @@ Paolo Fresu - Around Tuk (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cue] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727787.jpg" />
+  <img src="Z:/picture/008/save_picture_727787.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ruben Reeves - The Complete Vocalions 1928-1933 (1997) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727767.jpg" />
+  <img src="Z:/picture/008/save_picture_727767.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ McCoy Tyner - Blue Bossa (1991) 2001, LRC Ltd. [APE|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727758.jpg" />
+  <img src="Z:/picture/008/save_picture_727758.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Monty Alexander Trio - Full Steam Ahead (1985) 2000, ООО "Галакти�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727662.jpg" />
+  <img src="Z:/picture/008/save_picture_727662.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Harold Mabern - Mabern Plays Coltrane (2021) Smoke Sessions Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726668.jpg" />
+  <img src="Z:/picture/008/save_picture_726668.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Putney  Dandridge  And  His  Orchestra - 1935 - 1936 (1995) Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726582.jpg" />
+  <img src="Z:/picture/008/save_picture_726582.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Oscar Peterson & Clark Terry - Oscar Peterson Trio + One (1964) 1984, EmArcy [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725148.jpg" />
+  <img src="Z:/picture/008/save_picture_725148.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ June Christy - Complete Capitol Small Group Transcriptions (1945, 1946) 2001, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724977.jpg" />
+  <img src="Z:/picture/008/save_picture_724977.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sidney Bechet - Jazz Anthology (1952) 2007, Promo Sound [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724975.jpg" />
+  <img src="Z:/picture/008/save_picture_724975.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Laurindo Almeida - Chamber Jazz (1978) 2000,	Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724843.jpg" />
+  <img src="Z:/picture/008/save_picture_724843.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Frank McComb - The Truth, Volume One (2003) Expansion [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724834.jpg" />
+  <img src="Z:/picture/008/save_picture_724834.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Eddie Higgins - You Don't Know What Love Is (2003) Venus Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724832.jpg" />
+  <img src="Z:/picture/008/save_picture_724832.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Don Elliott - Mellophone (1955) Remaster, 2013, Solid Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724811.jpg" />
+  <img src="Z:/picture/008/save_picture_724811.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Phil Woods - Floresta Canto (1975) Remaster, 2015, Sony Music[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724810.jpg" />
+  <img src="Z:/picture/008/save_picture_724810.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chick Corea Elektric Band - To The Stars (2004) Par Media Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724680.jpg" />
+  <img src="Z:/picture/008/save_picture_724680.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Angelo Debarre & Marius Apostol - Complicite (2013) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724676.jpg" />
+  <img src="Z:/picture/008/save_picture_724676.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ George Coleman & Tete Montoliu Duo - Meditation (1977) Remaster, 2015, Solid Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724661.jpg" />
+  <img src="Z:/picture/008/save_picture_724661.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sari - The Sweetest Sounds (2017) [FLAC|Lossless|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724657.jpg" />
+  <img src="Z:/picture/008/save_picture_724657.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dexter Gordon - Complete Kenny Drew & Carl Perkins Sessions (1955) 2004, Lone Hi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724473.jpg" />
+  <img src="Z:/picture/008/save_picture_724473.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Dexter Gordon - The Squirrel (1967) 2001, Blue Note [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724472.jpg" />
+  <img src="Z:/picture/008/save_picture_724472.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724427.jpg" />
+  <img src="Z:/picture/008/save_picture_724427.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724416.jpg" />
+  <img src="Z:/picture/008/save_picture_724416.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1AB5135CEEBC77A15B0251152BD296C40272832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023514   (724400) от 05.06.2016
-
-Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream A Little Dream (3:37)
-02. Caravane (4:26)
-03. Quizas, Quizas, Quizas (3:24)
-04. It's Crazy (4:04)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667951   (723558) от 15.06.2013
-
-Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Andy Summers & Robert Fripp - I Advance Masked (1982):
-Andy Summers & Robert Fripp - Bewitched (1984):
-Andy Summers - XYZ (1987):(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 12:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218195   (723404) от 09.04.2018
-
-Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <Organ Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Champ [13:03]
-02. When You're Smilin' [07:17]
-03. The Good Life [08:37]
-04. Back Home Again in Indiana [10:56](   Читать дальше...   )Жанр: Organ Jazz, Soul-JazzПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218422   (723401) от 09.04.2018
-
-Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You Or No One [08:36]
-02. Jamph [11:11]
-03. Nutville [10:17]
-04. Wee [11:29]Жанр: Hard BopПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
 ```
 
 https://mybot314.ru/tekegram_catalog/

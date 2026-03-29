@@ -1,25 +1,22 @@
-###  Публикация: 1454504   (1026166) от 15.03.2021
+###  Публикация: 1379226   (1027420) от 07.03.2021
 
-VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
+SnowRunner (2020) [Ru/Multi] (12.1/dlc) Repack xatab [Premium Edition]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>3
+>>29
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nathan Evans, 220 KID, Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix) (1:56)
-02. Weird Genius, Sara Fajira, R3HAB - LATHI (R3HAB Remix]) (2:03)
-03. Hot Chip, Dillon Francis, Jarvis Cocker - Straight To The Morning (Dillon Francis vs. Hot Chip Remix) (2:22)
-04. Koosen, Strange Fruits Music - Mood (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:07
+Приготовьтесь к новой главе внедорожных приключений! Управляйте мощными грузовиками от таких брендов, как Ford и Chevrolet, и покоряйте суровые природные условия в самом усовершенствованном симуляторе заездов по бездорожью за всю историю. Преодолевайте грязь, проливной дождь, снег и замёрзшие озера, выполняя опасные контракты и задания. Расширьте и настройте свой (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44839DDE3242CDE35CB2D17961C72757B3384716
+magnet:?xt=urn:btih:E4E0483FE659C0CB3132950EB7BED91F82F32714
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454540   (1026165) от 15.03.2021
+###  Публикация: 1452891   (1027419) от 08.03.2021
 
-Adobe Illustrator 2021 25.2.1.236 RePack by KpoJIuK [Multi/Ru]
+BetterZip 5 v5.1b3 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программное обеспечение Adobe Illustrator 2021 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой архиватором, например, утилитой BetterZip.
+Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2021Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12C8CDD173F97F3A16C03A3275075C3DFB7E7AAD
+magnet:?xt=urn:btih:230357A0C20F9EE329E9190F0CB030B229A179BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454599   (1026164) от 15.03.2021
+###  Публикация: 1452826   (1027418) от 08.03.2021
 
-Новости со всех концов света / News of the World (2020) BDRip [H.264]
+Marked 2 v2.6.5 [En]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Капитан Джефферсон Кайл Кидд путешествует из города в город, делясь новостями со всех концов света, а также историями о президентах и ​​королевах, великих сражениях и разрушительных катастрофах. На равнинах Техаса его путь пересекается с десятилетней Джоанной, которая была похищена племенем Кайова и последние шесть лет воспитывалась в традициях индейской (   Читать дальше...   )Производство: США / Perfect World Pictures, Playtone, Pretty PicturesЖанр: Вестерн, драма, приключенияРежиссер: Пол ГринграссАктеры: Том Хэнкс, Хелен Зенгель, Том Эстор, Travis Johnson, Энди Кастелич, Рэй Маккиннон, Мэр Уиннингхэм, Джефф Уэр, Крис Билсма, Джастин ТадэПеревод: Дублированный (Netflix), Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:58:18
+Marked 2 — универсальный превью-инструмент для любого Markdown-редактора
+Многие текстовые редакторы для Mac поддерживают облегченный язык разметки Markdown, придуманный Джоном Грубером для упрощения восприятия текста при подготовке к публикации. Преимуществом Markdown является то, что его можно легко экспортировать в HTML-код и вставить в редактор кода. Одним словом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Brett TerpstraПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F57411467D218F51735679EFBD88D147A39C39F4
+magnet:?xt=urn:btih:BB621C14E1861E6B6D14D15EFA80E6E7C1DEF1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +78,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454533   (1026163) от 15.03.2021
+###  Публикация: 1452997   (1027417) от 08.03.2021
 
-Adobe Premiere Pro 2021 15.0.0.41 RePack by KpoJIuK [Multi/Ru]
+TextMate 2 v2.0.21 [En]
 
->>3
->>4
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Premiere Pro CC 2020 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
+Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2021Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93C18317F8B37540B8D0AE92910F39EA8D85AA9B
+magnet:?xt=urn:btih:4446F6E32823858B904F2CC14C8517DA954D7A95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,161 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454305   (1026162) от 15.03.2021
+###  Публикация: 1452869   (1027416) от 08.03.2021
 
-Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy 03.2021 2DVD
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026162.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL) (x86-x64) - (Russian) Final (MSDN) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных установочных образах (x86 и x64) со встроенным пакетом обновления Update 3. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035C7E80657444F50FFBE3B72D5B88733DBF7D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454595   (1026161) от 15.03.2021
-
-Serhii Zashkaruk | Видеомонтаж в Adobe Premiere Pro - с нуля до результата (2021) PCRec
-
->>След.
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему вы научитесь
-Практические домашние задания / Полноценное портфолио
-Работа с эффектом CROP / Движение и масштабирование
-От монтажа простых видео до сложных проектов(   Читать дальше...   )Производство: UdemyЖанр: видеоПродолжительность: 03.00.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A059A570584F38000EF57707A6E05F3994797CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279601   (1026160) от 15.03.2021
-
-VA - Русская Дискотека 70 - 80 - 90 г.  [MP3|256 - 320 Kbps] <Disco, POP, Rock>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, POP, RockПродолжительность: 47.08.38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AB9B204C1ED6D27337A1FA153A563BF1A5A2B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278657   (1026159) от 15.03.2021
-
-Variours Artist - Дискотека 70-80-90-2000 [MP3|224-320 Kbps] <Disco, POP, Rock>
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, POP, RockПродолжительность: 209.08.32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB783ACBDBD054E907C4ED28B90C96AEFC54C526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065053   (1026158) от 15.03.2021
-
-Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Digital Deluxe]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная легендарным дизайнером Сидом Мейером серия Civilization представляет собой увлекательную пошаговую стратегию, в которой игроку предлагается создать империю, способную выдержать испытание временем. Станьте одним из сильных мира сего, основав собственную цивилизацию, и возглавляйте ее в течение многих эпох. Объявляйте войны, ведите дипломатические переговоры, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454707   (1026157) от 16.03.2021
-
-Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal>
+East Temple Avenue - Both Sides Of Midnight (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rifles And Hammers (4:33)
-02. Riding The Mushhushu (4:58)
-03. Monuments of Bereavement (3:39)
-04. The Shattering (1:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:49
+01. Mountain
+02. Don't Make Believe
+03. Fool For Love
+04. My Last Breath(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
+magnet:?xt=urn:btih:0A84986D085614459960EDF606BC5D23BAF2CBBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454709   (1026156) от 16.03.2021
+###  Публикация: 1452890   (1027415) от 08.03.2021
 
-Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+Arc - Maquette (1980) Reissue, Remastered, 2020, Paisley Press [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ride The Rainbow
-02. The Fire Of Hades
-03. The Devil Inside
-04. Waves Of War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
+01. Quand (7:11)
+02. Oraison Funebre (6:06)
+03. Ami (9:54)
+04. Souffle Colore (11:56)(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
+magnet:?xt=urn:btih:30DFF6B6EB050C0C0DA8455902FA7820FBD80A80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454735   (1026155) от 16.03.2021
+###  Публикация: 1452820   (1027414) от 08.03.2021
 
-Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+Kim Mitchell - Itch (1994) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Charioteer
-02. Confessions Of The Maker
-03. Northern Rage
-04. The Fools' Ballet(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:07
+01. Wonder Where & Why
+02. Acrimony
+03. Lick Yer Finger
+04. The U.S. Of Ache(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
+magnet:?xt=urn:btih:5C0EE585CB1403512044296CB7F656FC05F74855
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,28 +192,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454738   (1026154) от 16.03.2021
+###  Публикация: 1452877   (1027413) от 08.03.2021
 
-Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+Dakota Staton - The Complete Early Years (1955 - 1958) 2CD, 2019, Acrobat [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027413.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Heart's Delight [2:14]
+02. What Do You Know About Love [2:18]
+03. No Mama, No Papa [1:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D360A3EB04B07BA5E4595F8B70BAD5304BF0D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452982   (1027412) от 08.03.2021
+
+Днепровский Берег - Случай (2021) [MP3|320 Kbps] <Alternative, Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vengeance Descending
-02. Highland Revenge
-03. Child Of Rock
-04. Mr. Failure(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
+01 - Случай [00:03:32]
+02 - На работу [00:03:06]
+03 - Будем умирать [00:04:14]
+04 - Синдром счастья [00:03:22](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:18:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
+magnet:?xt=urn:btih:2319D51F0E953AC269E30DC6D9B978D5B62C5C7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,28 +250,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454741   (1026153) от 16.03.2021
+###  Публикация: 1453001   (1027411) от 08.03.2021
 
-Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Power Metal>
+Sensei 1.4.2 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Interstellar War
-02. Gods Of Ohe World
-03. Winds Of The Free
-04. The Power Behind The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:43
+Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Оно включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2021Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F76419B5B7BA02B7C8B1820B5AA7D0FF8F1D601F
+magnet:?xt=urn:btih:4BDFD4AE32B514F8287DBFD5CF74AAACAE767AE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,28 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454714   (1026152) от 16.03.2021
+###  Публикация: 1452684   (1027410) от 08.03.2021
 
-Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Metal>
+Earl Thomas and Moligan - Cold Ghetto (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead City Dreaming
-02. Into The Light
-03. The Narrow Mind
-04. Wall Of Stars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:15
+01. Cold Ghetto (3:49)
+02. Feeling All Blue (4:04)
+03. Dance (3:46)
+04. Holy Ground (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB1330F768CA5A46B1E403836A59F69108C35BF1
+magnet:?xt=urn:btih:E146BBEC1EBBAD738DD373B4621968001EA2C886
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,252 +305,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454849   (1026151) от 16.03.2021
+###  Публикация: 1452949   (1027409) от 08.03.2021
 
-Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Macao (05:00)
- 02. My Synthesiser (04:50)
- 03. Lito : A (04:17)
- 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454666   (1026150) от 16.03.2021
-
-Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive Neoclassical Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpathia
-02. Cask of Amontillado
-03. Psychotic Episode
-04. Masque of the Red Death(   Читать дальше...   )Жанр: Progressive Neoclassical Metal, ShredПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90086F65B9E53E77ED6B35406118B4B4699AD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454774   (1026149) от 16.03.2021
-
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026149.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 марта 2021, вторник. 02:00 МСК
-Стадион: Кибэнк-центр (Баффало, США). Матч прошёл без зрителей
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E780CE5074140C158CCE1A549E08EBC76E7FB62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454770   (1026148) от 16.03.2021
-
-Хоккей. НХЛ 2020-2021. Бостон Брюинз - Питтсбург Пингвинз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026148.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 марта 2021, вторник. 02:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 2 800 зрителей (15 % при вместимости 18 673)
-Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F023DBB3DB90B40E1CA97DCA54ED9FEFA28DDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454697   (1026147) от 16.03.2021
-
-Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Untold
-02. The Ghost And The Shadow
-03. Love Stick Love
-04. Romeo & Juliet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE20AC24BB889539B31DA513B552D57A4F82CEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454712   (1026146) от 16.03.2021
-
-Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Disorder
-02. Side By Side
-03. Extreme Paranoia
-04. Starbourne Traveler(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC2607AB50E9BF66F17B3169812205F30879768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454847   (1026145) от 16.03.2021
-
-Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454690   (1026144) от 16.03.2021
-
-Редьярд Киплинг | 40 норд-50 вест (1931) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для детей младшего и среднего школьного возраста.
-Редкая книга. Первое издание в библиотеке.Жанр: Детская проза, СтихиПеревод: С. МаршакФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F06110AAAE035EB2589FACC0E73A9461231765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454840   (1026143) от 16.03.2021
-
-Леонид Гальперштейн | Моя первая книга о технике (2015) [PDF]
+Дмитрий Кошевар | Научно-популярная библиотека начальной школы. Человек (2017) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта книга-путеводитель по лабиринтам сложных технических изобретений и терминов. Она знакомит маленьких читателей и их родителей с таинственным миром техники. Прекрасные иллюстрации - незаменимый гид в этой увлекательной экскурсии по стране знаний.
+Несколько миллионов лет назад на Земле появился первый человек. Шаг за шагом он развивался и добился невероятных успехов. А те великие открытия, которые он сделал за всю историю существования несомненно вызывают большой интерес. Наверное, именно поэтому каждому хотелось бы заглянуть в многообразный и такой неоднозначный мир человека, в чем и поможет эта занимательная (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1903954D9573F578A5A6C728220DBE548B0B6384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452880   (1027408) от 08.03.2021
+
+Empire - Empire (1994) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's There?
+02. Shadowking
+03. Above And Below
+04. I Want It Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D798282AFB9548423CC54E5F726E66009ED6C719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452884   (1027406) от 08.03.2021
+
+MediaHuman Youtube Downloader 3.9.9.53 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027406.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
 
-Для младшего школьного возраста.Жанр: Познавательная литература для детейФормат: PDF
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED9E6EE69AC52F10AB2FD5DEB74D62CEBAC9AA84
+magnet:?xt=urn:btih:5CD0B1DBD35919B2B629A5E4D00436B8CF23141E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +389,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454660   (1026142) от 16.03.2021
+###  Публикация: 1452807   (1027405) от 08.03.2021
 
-Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+Мотоспорт. Чемпионат США по мотокроссу. Сезон 2021. Дайтона / AMA Supercross Championship. Daytona (2021) WEB-DL [H.264/720p-LQ]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Space Games (6:52)
-02. Giant Robots (7:21)
-03. Man Machine (5:50)
-04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
+AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:43:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
+magnet:?xt=urn:btih:47D4B441D86EC234E6B9E4652E6668B2011851E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +415,296 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454658   (1026141) от 16.03.2021
+###  Публикация: 1452963   (1027404) от 08.03.2021
 
-Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+Ирина Котовская (сост.) | Тренажёр по чтению. И я читаю! Волшебная дудочка. Русские сказки (2019) [PDF]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gravity Zero (6:44)
-02. Journey Between the Stars (6:26)
-03. X Force (6:39)
-04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
+Ваш ребёнок успешно освоил «Букварь». Что дальше? Как помочь ему полюбить читать не только слова, а целые книги? Идеальный вариант для маленьких читателей, переходящих от чтения слогов к чтению полных слов, а от них к целым предложениям, — книги удобного формата из серии «И я читаю!». Здесь много рисунков, но они не отвлекают малыша от чтения. Повествование ведётся (   Читать дальше...   )Жанр: Детская литература/Обучение и развитие детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
+magnet:?xt=urn:btih:2E229DFC4219DE36AD208D0C2854961EA8024132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452871   (1027403) от 08.03.2021
+
+Серия Кубков NASCAR 2021. Этап 4. Пензоил 400. Гонка / NASCAR Cup Series 2021. Pennzoil 400 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков Nascar 2021 года — 73 сезон американских профессиональных гонок сток-каров и 50 сезон кубка современной эры. Сезон стартует на международном треке Дайтона Интернейшнл Спидвей внезачетным этапом Busch Clash. 2021 год станет первым, когда гонка-открытие чемпионата пройдет на дорожной трассе. Следом пройдут две квалификационные гонки Bluegreen Vacations (   Читать дальше...   )Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 03:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019F632136B126E0400F7D3409EEDFBC689EF9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453003   (1027402) от 08.03.2021
+
+Blocs 4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.03.2021Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E440366BB050BECC8CC05E5D0041CAF7D9881363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452940   (1027401) от 08.03.2021
+
+Эл Ригби | Иди на мой голос (2019) [MP3, Михаил Росляков]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бал правит Леди - и Смерть идет рука об руку с ней. Лондон потрясают преступления, ставящие Скотланд-Ярд в тупик, а в колониальной Индии вспыхивают бунты, которые Крылатая Империя не может погасить.
+Преступница прячет лицо и не оставляет улик, а только кровь и... старые ноты. И, даже объединив силы с частными детективами, полиция не может ее настичь.
+Но кто-то все (   Читать дальше...   )Жанр: Исторические детективы, ТриллерыПродолжительность: 24:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2739C3F989879D3615CDF17E18C66812DE9FDEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452875   (1027400) от 08.03.2021
+
+Tono to Issho OVA-1 | Вместе с господином OVA-1 [2010, OVA] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cобытия которой разворачиваются в период Сенгоку - «Эпоху воюющих провинций». И собственно представляет собой пародию на всех наиболее известных политических деятелей того времени.Производство: Студия Gathering (anime) / ギャザリングЖанр: комедияРежиссер: МанкюПеревод: HiouxsovЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D1CD2C125AE8D1491A42E4342A969AEC658B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452862   (1027399) от 08.03.2021
+
+Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expedition To The Barrier Peaks [00:04:22]
+02. The Labyrinth Of Evermore [00:01:40]
+03. We're The Vegepygmies [00:03:36]
+04. Robot Police [00:04:09](   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452852   (1027398) от 08.03.2021
+
+Rou Kyuu Bu! Tomoka no Ichigo Sunday | Баскетбольный клуб! OVA [2013, OVA] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонус к PSP игре Rou Kyuu Bu! Himitsu no Otoshimono (ロウきゅーぶ! ひみつのおとしもの).Производство: Студия Project No.9Жанр: комедияРежиссер: Янаги СинсукэПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 1 эп. 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0035861A9F6E5FF128FE26C9C7E4C55D21174E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452866   (1027397) от 08.03.2021
+
+Joel Hoekstra's 13 - Running Games (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finish Line
+02. I'm Gonna Lose It
+03. Hard To Say Goodbye
+04. How Do You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE983955B501F71CE9F63A3A8E5891A0B6E3A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452990   (1027396) от 08.03.2021
+
+Александр Островский | Счастливый день [MP3, Татьяна Михалевкина и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы привыкаем к грязным дорогам, привыкаем к беспорядку у себя дома и точно также привыкаем к проблемам в своей жизни.
+Она кажется нам абсолютно нормальной и даже по-своему прекрасной.
+На первый взгляд, почтмейстер Сандырёв, его семья и коллеги живут в ярком, красивом мире. Но достаточно одного взгляда, чтобы понять - так жить неудобно, невозможно и попросту опасно. (   Читать дальше...   )Жанр: КомедияПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1BAC9FA1C1A906418234E3F641C41FEC659407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452980   (1027395) от 08.03.2021
+
+Роско Арбакл. Красная мельница / The Red Mill (1927) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедная девушка Тина работает в прислугах. А богатую, Грехтен, хотят насильно выдать замуж за губернатора. Но Грехтен любит другого. Чтобы помочь Грехтен увидеться со своим возлюбленным, Тина меняется с ней одеждой. На руку Грехтен претендует также заезжий ловелас, узнав, что за ней дают миллионное приданое. Он влюбляется в Тину, думая, что это ГрехтенПроизводство: СШАЖанр: Комедия, немое киноРежиссер: Роско АрбаклАктеры: Мэрион Дэвис, Оуэн Мур, Луиза Фазенда, Джордж Сигман, Карл Дэйн, Расс Пауэлл, Шнитц Эдвардс, Уилльям Орламонд, Ignatz, Кай ДеслисПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADC0C801A377AC7FE807367214FC5ECDCAA0E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452942   (1027394) от 08.03.2021
+
+Владимир Малов | А почему? 100 тысяч почему (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027394.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «100 тысяч почему» собраны ответы на самые интересные вопросы о науке, технике, природе, искусстве, которые только может задать юный почемучка: кто придумал названия месяцам, для чего киты пускают фонтаны, на каких камнях работают механические часы, долго ли живут грибы, почему компьютерный диск называется «винчестером», почему в Перу полосы на аэродроме (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E18E75AE364032293C3E7054F65C4FC07356C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

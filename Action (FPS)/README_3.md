@@ -1,3 +1,81 @@
+###  Публикация: 970949   (988165) от 01.01.2016
+
+Die Hard: Nakatomi Plaza (2002) [Ru/Multi] (1.04) Repack R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинематографичный action по мотивам самого первого фильма о приключениях «Крепкого орешка» - полицейского Джона МакКлейна. Джон прилетает в Лос-Анджелес, чтобы попытаться наладить взаимоотношения со своей женой Холи, которая работает вице-президентом корпорации «Накатоми». В тот момент, когда он наконец-то встречает её в небоскрёбе корпорации, здание захватывают (   Читать дальше...   )Тип издания: RepackРазработчик: Piranha GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2437E703DC8B0065CC57AD509167541809443835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971034   (988159) от 01.01.2016
+
+Command & Conquer: Renegade (2002) [Ru/En] (1.037) Lossless Repack R.G. Revenants
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command & Conquer: Renegade - трехмерный шутер от первого лица “по мотивам” культовой серии стратегических игр от Westwood. Если вы играли хотя бы в одну из этих стратегий, то безусловно найдете множество сходств в таких на первый взгляд совершенно разных проектах, как real-time стратегия и трехмерный шутер от первого (а местами и третьего) лица.Тип издания: Lossless RepackРазработчик: Westwood StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2D2DEC0B353EA7A2825FF6F503675AF2CBEC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145687   (987612) от 22.01.2020
+
+Deadfall Adventures (2013) [Ru/En] (1.0/upd2/dlc) Repack Other s [Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadfall Adventures – приключенческий FPS, действия которого разворачиваются в 1938 году. Игрокам предстоит выступить в роли путешественника Джеймса Ли Квотермейна, сопровождающего агента США, Дженнифер Гудвин, в египетский храм на поиски древнего артефакта «Сердце Атлантиды». Но не только американцы положили глаз на артефакт – немецкие оккультисты из Аненербе также (   Читать дальше...   )Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD3F339B317241BA551CDEF5F1542EB1D30B371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354982   (985667) от 24.01.2020
 
 Submersed (2020) [Multi] (1.0.0.1) License CODEX
@@ -6,7 +84,7 @@ Submersed (2020) [Multi] (1.0.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985667.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Quake - Collection (1996-2014) [En] (20140513/dlc) Repack X-NET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985240.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Far Cry 3: Deluxe Edition [Ru/En/Multi11] (Steam-Rip/1.04/7 DLC) 2012 | R.G. Gam
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983541.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Find Me: Horror Game (2020) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983239.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The Kreed [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980791.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Onimusha: Warlords / Onimusha: Путь самурая [Ru/En/Jp] (Repack/1.2) 2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978266.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Terra Incognita (2020) [En] (1.0) License TiNYiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977397.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Sanctum [Ru/En/Milti12] (L/1.5.22889/5 DLC) 2011 | PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977226.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Sanctum [Ru/En] (RePack/1.5.22889) 2011 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975779.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Another Dawn (2020) [Ru/Multi] (1.02) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975043.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ Sniper: Ghost Warrior 2 / Снайпер: Воин-призрак 2 (2013) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969908.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Half-Life + Half-Life: Opposing Force [Ru/En] (P) 1999
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965867.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ Kona (2017) [Ru/Multi] (14034) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965825.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ Project: Snowblind / Операция Снегопад  [Ru/En] (P) 2007
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962190.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ F.E.A.R. 2: Reborn / F.E.A.R. 2: Возрождённый [Ru] (RePack) 2010 | U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953799.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951992.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ SOMA (2015) [Ru/Multi] (1.102) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951585.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Alpha Prime (2007) [En] (1.01) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951531.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ Curse of Anabelle (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950458.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ ELDERBORN (2020) [Multi] (20200220142720) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950448.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/upd2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948390.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947555.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946932.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ TRON 2.0 (2003) [Multi] (1.030) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A5B87C18D5A2BFE94F040F64D94D57DD3F3BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090863   (945409) от 07.01.2017
-
-Quake 4 (2005) [Ru/Multi] (1.4.2) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровавая битва человечества с инопланетной расой Строггов продолжается. Земляне отчаянно сопротивляются натиску безжалостных пришельцев, но лишь став одним из них, ты сможешь победить... Возглавив элитный отряд десантников, использующих самое современное боевое снаряжение, ты отправляешься на родную планету Строггов. Ты - единственная надежда землян на победу в этой (   Читать дальше...   )Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD250A3BFB7B6639A2C0681F6D2DC598641B31D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091917   (940816) от 10.01.2017
-
-Bequest (2017) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - Дима, приезжает в дом усопшей бабушки, которая оставила в наследство своему любимому внуку. Вскоре, внук усопшей замечает, что дома происходит неладное. Пытаясь выбраться из оков невиданного, главный герой становится жертвой необъяснимого. Каждый шаг внука, приближает его к истине... Дом покажет свою сущность...Тип издания: LicenseРазработчик: Taste GamesЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717F4DE051411DB807B8A67ED8B3D76F6CA81AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626996   (940645) от 07.03.2013
-
-Sniper: Ghost Warrior Gold Edition + 2 DLC [Ru/En] (RePack/1.3.0.0) 2010 | R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Государственный переворот в небольшом островном государстве грозит обернуться мировым кризисом. Местные военные открыли шахту по добыче урана и готовы передать его в руки международных террористов. Правительство США, озабоченное происходящим, отправляет в опасный район специалиста по скрытному решению проблем. Сможете ли вы преодолеть все сложности высадки, избежать преждевременного обнаружения и устранить противника без шума и пыли?
-«Снайпер. Воин-призрак» – современный военный шутер от первого лица с мощными спецэффектами и невероятным ощущением реальности происходящего на экране монитора. Он полностью передает все напряжение настоящего боя. От внимания создателей не ускользнули даже самые мелкие детали специальных операций. В ваших руках снайперская винтовка станет абсолютным оружием. Устраивайте засады, делайте поправку на ветер, учитывайте влияние погоды и расстояние до цели. Никаких бегущих на вас армий безмозглого мяса – на этом острове каждый враг смертельно опасен и способен отправить героя на тот свет парой метких выстрелов. Разработайте свою стратегию и тактику боевых действий, скрывайтесь в тенях и бейте без промаха!(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288174D1D2FF996A137270B1B44F430F9F19A3EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

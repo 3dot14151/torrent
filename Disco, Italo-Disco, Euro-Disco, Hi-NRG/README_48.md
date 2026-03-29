@@ -6,7 +6,7 @@ Purple Disco Machine - Paradise (2024) [MP3|320 Kbps] <Electronic, Disco, Nu-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42721.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Linda Jo Rizzo - Best Of Linda Jo Rizzo (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42616.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Powermix Vol. 001+002 (1990) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42538.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Powermix Part IV (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42506.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42502.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Powermix Vol. 5 (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41997.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Blue System - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Pop, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39505.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Boney M - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39297.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Modern Talking Vol.2 - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39086.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Modern Talking Vol.1 - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39083.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Yuri Sosnin - Night Disco (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33038.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mflex Sounds - Flashback Vol. 2 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32933.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32931.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32928.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Best Of Italo Disco Vol. 11 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32086.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - The Best Of Italo Disco Vol. 12 (1988) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31979.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31888.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Disco Down The Best of 2024 (2025) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31571.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31369.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Flirts - Castle Gold Collection, Vol. 18 (1991) [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31046.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - The Best Of Made Up Records Vol. 1 (1989) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30830.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - The Best Of Made Up Records Vol. 2 (1999) [OGG Vorbis|480 Kbps] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30742.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Daro-X - After The Rain (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29131.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Modern 80's - The Best Of Discopop (1998) 2 CD [OGG Vorbis|480 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26776.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26463.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Good Ride - Faces (2023) [MP3|320 Kbps] <Italo-Disco, Italo-Dance>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24986.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK (20.03.2017) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820226.jpg" />
+  <img src="Z:/picture/008/save_picture_820226.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820225.jpg" />
+  <img src="Z:/picture/008/save_picture_820225.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820218.jpg" />
+  <img src="Z:/picture/008/save_picture_820218.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Auslogics Disk Defrag Professional 4.8.1.0 Final RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820217.jpg" />
+  <img src="Z:/picture/008/save_picture_820217.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - You Call It Trance I Call It Electronic Dance Music 6 (2010) [MP3|320 kbps]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820197.jpg" />
+  <img src="Z:/picture/008/save_picture_820197.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820149.jpg" />
+  <img src="Z:/picture/008/save_picture_820149.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820148.jpg" />
+  <img src="Z:/picture/008/save_picture_820148.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Animato - Harmonize (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Progressive P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820144.jpg" />
+  <img src="Z:/picture/008/save_picture_820144.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Hetman Partition Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820137.jpg" />
+  <img src="Z:/picture/008/save_picture_820137.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820101.jpg" />
+  <img src="Z:/picture/008/save_picture_820101.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819972.jpg" />
+  <img src="Z:/picture/008/save_picture_819972.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819969.jpg" />
+  <img src="Z:/picture/008/save_picture_819969.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ MediaInfo 0.7.63 Final RePack by nikollo2013 [Русский/Английски�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819941.jpg" />
+  <img src="Z:/picture/008/save_picture_819941.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819933.jpg" />
+  <img src="Z:/picture/008/save_picture_819933.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819906.jpg" />
+  <img src="Z:/picture/008/save_picture_819906.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819904.jpg" />
+  <img src="Z:/picture/008/save_picture_819904.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819896.jpg" />
+  <img src="Z:/picture/008/save_picture_819896.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Boinx FotoMagico 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819891.jpg" />
+  <img src="Z:/picture/008/save_picture_819891.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Uplifting Trance Anthems (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819890.jpg" />
+  <img src="Z:/picture/008/save_picture_819890.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Black Hole Trance Music 04 - 16 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819889.jpg" />
+  <img src="Z:/picture/008/save_picture_819889.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ DJ Micro - Tech-Mix Live (2001) [FLAC|Lossless|WEB-DL|tracks] <Trance, Hard Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819888.jpg" />
+  <img src="Z:/picture/008/save_picture_819888.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819868.jpg" />
+  <img src="Z:/picture/008/save_picture_819868.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819861.jpg" />
+  <img src="Z:/picture/008/save_picture_819861.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Uplifting Only Top 15 - April (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819820.jpg" />
+  <img src="Z:/picture/008/save_picture_819820.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819819.jpg" />
+  <img src="Z:/picture/008/save_picture_819819.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ CARROT Weather - Talking Forecast Robot 1.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819817.jpg" />
+  <img src="Z:/picture/008/save_picture_819817.jpg" />
 </div>
 
 

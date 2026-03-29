@@ -1,3 +1,119 @@
+###  Публикация: 1706165   (113713) от 11.03.2024
+
+Airport Passengers - Hangar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuovo Mondo (7:30)
+02. Donkey Monkey (8:43)
+03. Marrakech Blues (6:54)
+04. Superstite (7:25)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0534FFD781004837D02299ED961DBF7A627902C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706176   (113711) от 11.03.2024
+
+El Jadida Milano - Symphony Flavours Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auralis (5:48)
+02. Harem's Veils (5:16)
+03. Lonely Lullaby (4:42)
+04. Boreal Sands (4:40)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1206EC32EE35E566DA176A05DA9022DF4B871DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706004   (113707) от 11.03.2024
+
+VA - Supreme Chill Lounge Instrumentals to Relax (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Together We Fly (4:08)
+02. Chillaxing Jazz Kollektion - Evening Sun (5:25)
+03. Kool&Klean - Dream (3:58)
+04. Chillaxonic - So Far, But so Near (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16FB71FD206456A86A00B7AA0BF362E36717378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706005   (113705) от 11.03.2024
+
+VA - Supreme Jazz Chill Lounge Smooth Relaxing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Blue Water (4:00)
+02. Love Suggestions - Life Is Love (4:44)
+03. Chillaxonic - Violet Twilight (4:34)
+04. Kool&Klean - Dream (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C308A4028D9B0EBE351898951D10ABF6BFFA802F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706013   (113690) от 11.03.2024
 
 George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +122,7 @@ George Shearing Trio & Stephane Grappelli - The Reunion (1976) 1987, MPS Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113690.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Steve Baxter - Crusade Blvd (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113667.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sonny Stitt - Constellation (1971) 1992, Muse Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113659.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113653.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113651.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113648.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sonny Stitt - Night Letter (1963, 1969) 1996, Prestige [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113633.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Terumasa Hino - Bluestruck (1990) [FLAC|Lossless|tracks + .cue] <Fusion, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113631.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kenny Barron - The Source (2023) Artwork Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113622.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Oscar Peterson - Con Alma: Live in Lugano (1964) 2023, Mack Avenue [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113619.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113613.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113595.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Labe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113556.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113543.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sonny Stitt - Plays Jimmy Giuffre Arrangements (1959) 2010, American Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113535.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Red Holloway / Clark Terry Sextet - Locksmith Blues (1989) Concord Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113534.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Sonny Stitt - No Greater Love (1981) 2001, TKO Magnum Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113532.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Gene Harris Quartet - Another Night In London (1996) 2010, Resonance Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113531.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Sexy Lovers Music Collection, Smooth Jazz Sax Instrumentals - Saxophone Intimate
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113517.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Gene Krupa - Drum Crazy (1936 - 1950) 2001, ASV [FLAC|Lossless|image + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113469.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Herb Ellis Trio - Sweet And Lovely (1984) Atlas [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113460.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Shirley Horn & Dizzy Gillespie - Where Are You Going & The Real Thing (1996) Col
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113459.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Shirley Horn & Dizzy Gillespie - Where Are You Going & The Real Thing (1996) Col
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E8131A21BB2BB1E58987338FA6D3AF1E704B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706900   (113385) от 15.03.2024
-
-VA - The Morning Jazz : Swing & More (Breakfast Restaurant Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nova 40 - Apaixonada (4:20)
-02. Christian Lisi - Du' Caffè (2:31)
-03. Soulstance - Around Me (4:35)
-04. Sylvain Luc - Caruso (3:45)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6680DC235B50A400555093B4B4D245B4A82C668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707028   (113378) от 15.03.2024
-
-Dave McKenna - A Celebration Of Hoagy Carmichael (1983) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust [4:52]
-02. Riverboat Shuffle [3:02]
-03. One Morning in May [5:44]
-04. Moon Country [4:03](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26771BCA6B899AD890E64D66E8D0BD8928D783EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707064   (113377) от 15.03.2024
-
-Shirley Horn Trio - A Lazy Afternoon (1978) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Old Fashioned [2:45]
-02. There's No You [6:16]
-03. New York's My Home [2:48]
-04. Why Did I Choose You [6:15](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B62ADE3C90FC979318448C31DB930CF27C35BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707026   (113376) от 15.03.2024
-
-Dave McKenna - Solo Piano (1973) 1994, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C Jam Blues [3:42]
-02. I Wonder Why [4:08]
-03. Norwegian Wood [3:46]
-04. There Will Never Be Another You [4:21](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F4F9B763DDD1F7AA74E44BC8267D876C478FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

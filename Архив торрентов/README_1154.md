@@ -6,7 +6,7 @@ Moonbooter - Schwarzmond (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789089.jpg" />
+  <img src="Z:/picture/008/save_picture_789089.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789085.jpg" />
+  <img src="Z:/picture/008/save_picture_789085.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ambulance LTD - Ambulance LTD (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789078.jpg" />
+  <img src="Z:/picture/008/save_picture_789078.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vivaldi 1.14.1077.41 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789070.jpg" />
+  <img src="Z:/picture/008/save_picture_789070.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Clozee - Harmony Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtem
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789069.jpg" />
+  <img src="Z:/picture/008/save_picture_789069.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ CoolUtils Total PDF Converter 6.1.0.142 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789068.jpg" />
+  <img src="Z:/picture/008/save_picture_789068.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Soulvent Records: 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789067.jpg" />
+  <img src="Z:/picture/008/save_picture_789067.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Vivaldi 1.14.1077.41 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789065.jpg" />
+  <img src="Z:/picture/008/save_picture_789065.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Patrick O'Hearn - So Flows the Current (2001) Paras Recordings [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789062.jpg" />
+  <img src="Z:/picture/008/save_picture_789062.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Moonbooter - Cosmosonic (2018) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789060.jpg" />
+  <img src="Z:/picture/008/save_picture_789060.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ YTD Video Downloader PRO 5.9.3.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789053.jpg" />
+  <img src="Z:/picture/008/save_picture_789053.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ VA - Across the Cell Wall: A Visualization of Miniaturization (2000) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789047.jpg" />
+  <img src="Z:/picture/008/save_picture_789047.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Data Creator 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789044.jpg" />
+  <img src="Z:/picture/008/save_picture_789044.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ DMG Master 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789041.jpg" />
+  <img src="Z:/picture/008/save_picture_789041.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Registry Life 4.20 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789034.jpg" />
+  <img src="Z:/picture/008/save_picture_789034.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ XYLIO Future DJ Pro 1.7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789033.jpg" />
+  <img src="Z:/picture/008/save_picture_789033.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Lyn 1.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789028.jpg" />
+  <img src="Z:/picture/008/save_picture_789028.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Incendium: Editio Retractata (2013) Loki Foundation [FLAC|Lossless|WEB-DL|t
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789023.jpg" />
+  <img src="Z:/picture/008/save_picture_789023.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Luminar 2018 v1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789012.jpg" />
+  <img src="Z:/picture/008/save_picture_789012.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ High School Mystery: Gakuen Nanafushigi | School of Seven Wonders | Школа �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789008.jpg" />
+  <img src="Z:/picture/008/save_picture_789008.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ IObit Uninstaller Free 8.3.0.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789005.jpg" />
+  <img src="Z:/picture/008/save_picture_789005.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789000.jpg" />
+  <img src="Z:/picture/008/save_picture_789000.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Avast Secure Browser 71.0.1037.99 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788996.jpg" />
+  <img src="Z:/picture/008/save_picture_788996.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ YouTube Video Downloader PRO 5.9.3 (20180116) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788991.jpg" />
+  <img src="Z:/picture/008/save_picture_788991.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Avira Phantom VPN Pro 2.12.4.26090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788990.jpg" />
+  <img src="Z:/picture/008/save_picture_788990.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Xojo IDE RAD 17.3.0.39152 (2017r3)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788982.jpg" />
+  <img src="Z:/picture/008/save_picture_788982.jpg" />
 </div>
 
 

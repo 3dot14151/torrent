@@ -1,3 +1,109 @@
+###  Публикация: 1342872   (220981) от 04.12.2019
+
+NGW. Странная природа: сумасброды / Stranger than Nature. Unhinged (2019) HDTV [H.264/1080i] (серии 1-8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал "Странная природа" знакомит зрителей с самыми необычными историями из реальной жизни дикой природы.Производство: США, Tigress Productions, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Карен БеландПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513845   (220854) от 01.12.2021
+
+BBC. Как устроены шикарные отели. Эм-Джи-Эм (Макао) / Amazing Hotels: Life Beyond the Lobby (2020) HDTV [H.264/1080i] (сезон 3, серия 1)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джайлс и Моника возвращаются, чтобы заглянуть за кулисы в одни из самых удивительных отелей мира, начиная с одного из новейших и самых высокотехнологичных отелей в самоуправляемом китайском городе Макао.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательныйРежиссер: Pete StantonПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50C4E709F73C3E1CC1644318D9E8F0CF1E31F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342927   (220832) от 04.12.2019
+
+NG: Осушить океан: Подводные лодки-убийцы / Drain the Oceans. Killer U-Boats (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первыми в мире малозаметными военными объектами стали подводные лодки, которые доказали в ходе Второй мировой войны величие королевских ВМС. Потопив немецкие корабли общим водоизмещением в 12 млн тонн, они практически обеспечили победу в этой войне. Сумев достойно ответить угрозе немецкого подводного флота, они изменили все правила ведения войны на море. Сериал "Осушить (   Читать дальше...   )Производство: США, Канада, Великобритания, 422 South, Battens Media, Mallinson Sadler Productions, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алекс ВестПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587853   (220809) от 11.12.2012
+
+NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Где же могла быть расположена легендарная Атлантида? Используя современные технологии и опираясь на записи Платона, учёные пытаются раскрыть одну из величайших тайн мира. Три научные экспедиции проверяют гипотезы о местоположении мифического, исчезнувшего города и получают поразительные результаты...
+
+РелизТелекомпания: Канада, Франция, National Geographic, "Atlantis LTD"Жанр: ДокументальныйРежиссер: Грэм БеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287329   (220650) от 04.12.2019
 
 NG: Затерянные сокровища Египта / Lost Treasures of Egypt (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
@@ -6,7 +112,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220650.jpg" />
+  <img src="Z:/picture/005/save_picture_220650.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220273.jpg" />
+  <img src="Z:/picture/005/save_picture_220273.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219969.jpg" />
+  <img src="Z:/picture/005/save_picture_219969.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NG. Потерянный и найденный / Lost and Found (2019) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219715.jpg" />
+  <img src="Z:/picture/005/save_picture_219715.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ NG. Петра: тайны древних строений / Petra. Secrets of t
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219602.jpg" />
+  <img src="Z:/picture/005/save_picture_219602.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219451.jpg" />
+  <img src="Z:/picture/005/save_picture_219451.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ NG: Суперсооружения. Корейская Супермагистр�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219167.jpg" />
+  <img src="Z:/picture/005/save_picture_219167.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219090.jpg" />
+  <img src="Z:/picture/005/save_picture_219090.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218729.jpg" />
+  <img src="Z:/picture/005/save_picture_218729.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ NGW: Зов малыша белухи / Call of the Baby Beluga (2016) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217814.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ Discovery. Османы и христиане: Битва за Европу / Ot
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217775.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217738.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ NG: От Парижа до Питтсбурга / Paris to Pittsburgh (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217659.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217608.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217361.jpg" />
+  <img src="Z:/picture/005/save_picture_217361.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217306.jpg" />
+  <img src="Z:/picture/005/save_picture_217306.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ Discovery: Я не должен был выжить / I Shouldn't Be Alive (2005
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217276.jpg" />
+  <img src="Z:/picture/005/save_picture_217276.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ NG: Инстинкт выживания. Экстремальные джунгл
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217213.jpg" />
+  <img src="Z:/picture/005/save_picture_217213.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216934.jpg" />
 </div>
 
 
@@ -503,7 +609,7 @@ NG. Тутанхамон: Цветная Версия / King Tut In Colour (2020
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216385.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215931.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215930.jpg" />
 </div>
 
 
@@ -566,110 +672,6 @@ Discovery: Разрушители легенд. Челюсти: месть / Myt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E95EF175BAF898EEA9EE4BA1EA5A2C1C231A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514712   (215134) от 04.12.2021
-
-NGW: Самые мощные челюсти / World's Deadliest Bite (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215134.jpg" />
-</div>
-
-
-###  Подробнее
-
-У какого хищника самый сильная хватка при укусе? С помощью реалистичной графики мы увидим укусы самых жестоких и смертоносных в мире существ: львов, крокодилов, акул, аллигаторов, ягуаров и многих других.Телекомпания: США / Plimsoll Productions, Aquavision Tv Productions, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Эд ФилдсПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8B65CB5BA34E0C233764990D8AB5FB31F5152C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915423   (214854) от 19.12.2015
-
-National Geographic. Взлом системы / Hacking the System (2014) IPTVRip [Серии 1-12 из 12]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брайан Брашвуд  сделал карьеру, думая, как преступник, и теперь он здесь, чтобы показать нам, как избегать людей, которые обманывают систему. Кроме того, он будет давать нам юридические советы и рассказывать о разных уловкахТелекомпания: США, National GeographicЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A1D981E9377CED3DEEEE83E50EBCA219355623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084962   (214209) от 21.12.2016
-
-Фонтаны Краснодара (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214209.jpg" />
-</div>
-
-
-###  Подробнее
-
-На юге России, где теплый сезон длится более полугода, а лето жаркое и засушливое, трудно представить город без фонтанов. Они способны преобразить практически любое пространство, будь то парк, площадь, дачный участок, холл торгового центра или ресторана. Городской оазис, предстающий перед нашими глазами - лишь "вершина айсберга", малая часть большой конструкции. (   Читать дальше...   )Телекомпания: Россия, RTGЖанр: Документальный, познавательныйПеревод: Не требуетсяПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4CA1D9CCB2F8C17A1D0AE4F1E615338C62EBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426374   (214168) от 24.11.2020
-
-Discovery. История Пластика / The Story of Plastic (2019) HDTV [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, охватывающий три континента, иллюстрирует продолжающуюся катастрофу: поля, заполненные мусором, настоящие горы мусора, реки и моря, забитые отходами, и небо, задыхающееся от ядовитых выбросов от производства и обработки пластика. С помощью оригинальной анимации, архивных материалов, снятых в 1930-х годах, и рассказов от первого лица о разворачивающейся чрезвычайной (   Читать дальше...   )Производство: США, Pale Blue Dot Media, Discovery ChannelЖанр: Документальный, природа, экологияРежиссер: Дейа ШлосбергПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AA702C7CDB540138A5F5E6BE07023DD9CC754D
 ```
 
 https://mybot314.ru/tekegram_catalog/

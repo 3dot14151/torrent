@@ -1,3 +1,61 @@
+###  Публикация: 1200532   (795594) от 21.01.2018
+
+VA - Music For Your Car Vol.6 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kylie Minogue  -  Dancing  2:59
+02.  Tujamo & Sidney Samson  -  Riverside (Extended Mix)  3:54
+03.  Rudimental feat Jess Glynne vs. Macklemore & Dan Caplen  -  These Days  3:31
+04.  Tritonal & SJ  -  Calabasas  3:44(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 05:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87419A93528808F9682E8FDE65F40724F7C1EC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011764   (795575) от 29.04.2016
+
+VA - Ibiza 2015. Massive Energy Flux. Vol.1 (2015) [MP3|256-320 кб/с] <Techno-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cari Lekebusch - Forsta Uppdraget (intro)  00:43
+02. Tilliander - Cold As Ice (enter version)  03:25
+03. Catz N Dogz - Keep On (feat. Green Velvet)  03:10
+04. Mr. V - Jus Dance (Dario D’attis remix)  07:51(   Читать дальше...   )Жанр: Techno-House, Techno, HouseПродолжительность: 05:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25A151B94D3C40F99E74B17528FB345CE636C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200551   (795472) от 21.01.2018
 
 VA - Trance Collection Vol.67 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance, Progressive Trance>
@@ -6,7 +64,7 @@ VA - Trance Collection Vol.67 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795472.jpg" />
+  <img src="Z:/picture/008/save_picture_795472.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Bass Killer 5 (2016) [MP3|320 кб/с] <Dubstep, Electro House, Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795416.jpg" />
+  <img src="Z:/picture/008/save_picture_795416.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Tech House: Electro Sound Pack #94 (2020) [MP3|320 Kbps] <Tech Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795236.jpg" />
+  <img src="Z:/picture/008/save_picture_795236.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 004 (2016) [MP3|320 кб/с] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794874.jpg" />
+  <img src="Z:/picture/008/save_picture_794874.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Top 100 April (2016) [MP3|320 кб/с] <House, Electro, Tech, Nu-D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794728.jpg" />
+  <img src="Z:/picture/008/save_picture_794728.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Sound Of Fractal (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794555.jpg" />
+  <img src="Z:/picture/008/save_picture_794555.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Sunset Lounge Sounds (2020) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794482.jpg" />
+  <img src="Z:/picture/008/save_picture_794482.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Top 100 Downloads March 2017 [MP3|320 Kbps] <Electro, Indie, Nu Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794320.jpg" />
+  <img src="Z:/picture/008/save_picture_794320.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beatport Top 100 Deep House March (2017) [MP3|320 Kbps] <Deep House, Tech H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794211.jpg" />
+  <img src="Z:/picture/008/save_picture_794211.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Puff Puff Bass: Full Version DJ Hybrid (2019) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794166.jpg" />
+  <img src="Z:/picture/008/save_picture_794166.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Record Super Chart 568 (2019) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794132.jpg" />
+  <img src="Z:/picture/008/save_picture_794132.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Deep House Vibes: Absolut Hot (2019) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794126.jpg" />
+  <img src="Z:/picture/008/save_picture_794126.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Drum And Bass: Sound Pack #365 (2021) [MP3|320 Kbps] <D&B, Basslin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794077.jpg" />
+  <img src="Z:/picture/008/save_picture_794077.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794031.jpg" />
+  <img src="Z:/picture/008/save_picture_794031.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794028.jpg" />
+  <img src="Z:/picture/008/save_picture_794028.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Beatport Techno: Sound Pack #367 (2021) [MP3|320 Kbps] <Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794027.jpg" />
+  <img src="Z:/picture/008/save_picture_794027.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - SVS Collection vol. 5 by MR.DJ (2020) [MP3|256-320 Kbps] <Deep House, D'n'B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793920.jpg" />
+  <img src="Z:/picture/008/save_picture_793920.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Beatport Synth Electronic: Sound Pack #366 (2021) [MP3|320 Kbps] <Synthwave
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793846.jpg" />
+  <img src="Z:/picture/008/save_picture_793846.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Hands Up Essentials Vol.2 (2016) [MP3|320 кб/с] <Club, Dance, Hand Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793833.jpg" />
+  <img src="Z:/picture/008/save_picture_793833.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Electro Synth - Mcity Edition (2015) [MP3|320 кб/с] <Synth-pop, Spacesyn
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793823.jpg" />
+  <img src="Z:/picture/008/save_picture_793823.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Party Time (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Disco Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793754.jpg" />
+  <img src="Z:/picture/008/save_picture_793754.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - VNP – Trance Traveling 76 (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793750.jpg" />
+  <img src="Z:/picture/008/save_picture_793750.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Sexy Summer Relaxation: Cool Spring and Buddha Cafe Music (2016) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793744.jpg" />
+  <img src="Z:/picture/008/save_picture_793744.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Top 100 Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793652.jpg" />
+  <img src="Z:/picture/008/save_picture_793652.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Top 100 Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA691D03828B5480F2CACB1A824603C3FA8597DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012636   (793561) от 01.05.2016
-
-VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix)  3:18
-02. Crystal Lake & Headhunterz -  Say Goodbye (Headhunterz Edit)  4:02
-03. DJ KUBA & NE!TAN -  Party On!  3:35
-04. Twenty One Pilots -  Stressed Out (Dave Winnel Remix)  4:24(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 02:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C472B6377A84AEC8ED77C0854A60115A3CF41D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012364   (793385) от 01.05.2016
-
-Space - Greatest Hits (Presents: Elgujakviso) (2016) [MP3|256 кб/с] <Electronic, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fasten Seat Belt
-02. Just Blue
-03. Magic Fly
-04. Running In The City(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076724C3F32D184502B7893F7784BD943A1DCA8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

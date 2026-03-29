@@ -1,3 +1,61 @@
+###  Публикация: 1410166   (436155) от 21.09.2020
+
+Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Give Up
+02. Never Say Die
+03. Lost In The City
+04. Closest Thing To Heaven(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DD10A0EC47BA5337CE63F0AABC39C7AEA8EE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571045   (436049) от 20.08.2022
+
+Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe
+02. I Am Beyond
+03. Neverending Me (Dempsey's Kick)
+04. A(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693B6D39FA0553257EFAEDA0E976A2BB19ACFABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063308   (435361) от 16.10.2016
 
 Tango Down - Bulletproof (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Tango Down - Bulletproof (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435361.jpg" />
+  <img src="Z:/picture/008/save_picture_435361.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dokken - Return To The East Live (2018) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434054.jpg" />
+  <img src="Z:/picture/008/save_picture_434054.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434045.jpg" />
+  <img src="Z:/picture/008/save_picture_434045.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Loverboy - Turn Me Loose (1999) [FLAC|image+.cue]<Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433915.jpg" />
+  <img src="Z:/picture/008/save_picture_433915.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Quireboys - Twisted Love (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432681.jpg" />
+  <img src="Z:/picture/008/save_picture_432681.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Tango Down - Damage Control (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432529.jpg" />
+  <img src="Z:/picture/008/save_picture_432529.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Tommy James & The Shondells - I Think We're Alone Now (1967) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432253.jpg" />
+  <img src="Z:/picture/008/save_picture_432253.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Parlor Mob - 2 альбома, 1 EP (2008-2015) [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432221.jpg" />
+  <img src="Z:/picture/008/save_picture_432221.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Carousel - Round & Round (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431773.jpg" />
+  <img src="Z:/picture/008/save_picture_431773.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Shiloblaengare - Golden Book of Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431769.jpg" />
+  <img src="Z:/picture/008/save_picture_431769.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430274.jpg" />
+  <img src="Z:/picture/005/save_picture_430274.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Lord Tracy - Deaf Gods Of Babylon (1989) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429542.jpg" />
+  <img src="Z:/picture/008/save_picture_429542.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Alice Cooper - Paranormal (2017) Deluxe Edition, Japan Press [WavPack|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428570.jpg" />
+  <img src="Z:/picture/008/save_picture_428570.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Thunder And Steel Down Under - A Tribute To Riot (2015) [FLAC|Lossless|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428372.jpg" />
+  <img src="Z:/picture/008/save_picture_428372.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Tony Carey - Stanislaus County Kid (2010) [FLAC|Lossless|image + .cue]<Classic R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428042.jpg" />
+  <img src="Z:/picture/008/save_picture_428042.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ The 13th Floor Elevators - Easter Everywhere (1967), Reissue 1993  [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427910.jpg" />
+  <img src="Z:/picture/008/save_picture_427910.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Stefan Berggren - 2 Albums (2014-2016) [FLAC|Lossless|image + .cue] <Classic Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426987.jpg" />
+  <img src="Z:/picture/008/save_picture_426987.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Slash (Featuring Myles Kennedy and The Conspirators) - Living the Dream (2018) [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426878.jpg" />
+  <img src="Z:/picture/008/save_picture_426878.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ MUD (featuring Les Grays) - 14 Albums, 1 Box-set, 16CD (1974-2021) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425513.jpg" />
+  <img src="Z:/picture/008/save_picture_425513.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Mad Max - Stormchild Rising (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425069.jpg" />
+  <img src="Z:/picture/008/save_picture_425069.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Deep Purple ‎– Hit Collection (2000) [FLAC|Lossless|image + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424712.jpg" />
+  <img src="Z:/picture/008/save_picture_424712.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Riverdogs - California (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424581.jpg" />
+  <img src="Z:/picture/008/save_picture_424581.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Skagarack - Skagarack (1986) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424401.jpg" />
+  <img src="Z:/picture/008/save_picture_424401.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ AC/DC ‎– Rock Or Bust (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423903.jpg" />
+  <img src="Z:/picture/008/save_picture_423903.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ AC/DC ‎– Rock Or Bust (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F77C8038C78F2CCD86643D1F26778915002808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572259   (423679) от 26.08.2022
-
-Angeline - We Were Raised On Radio (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helpless
-02. Closer
-03. My Heart Won't Let You Go
-04. We Were Raised On Radio(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E4A8CE0ABD5E3C76AA863354AA05D3AB9B34D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572339   (423675) от 26.08.2022
-
-Santa Cruz - The Return Of The Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Revolution
-02. Take Me To America
-03. Under The Gun
-04. Disarm Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142FCC707B52121B88D61279C6A6A853B416C38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

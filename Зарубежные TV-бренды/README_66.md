@@ -1,3 +1,109 @@
+###  Публикация: 1303120   (575995) от 19.05.2019
+
+NGW: Хищник в раю. Прибрежные убийцы / Predator in Paradise. Seaside Assassins (2019) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все живые существа вдоль побережья вынуждены выживать в этих бесконечно меняющихся ландшафтах, где суша встречается с морем, и все их существование неразрывно связано с водой.
+Безмятежные на первый взгляд пляжи - настоящая арена для схваток хищников.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Карен ГринфилдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89879B6D2D77E4D63FA7AEED2B61FD0F111E3F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303050   (575987) от 19.05.2019
+
+NGW. Королевство обезьян: Брат против брата / Kingdom Of The Apes: Brother vs. Brother (2014) HDTV [H.264/1080i-LQ] (Сезон 1, серия 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постепенно исчезающие Африканские джунгли. Здесь раскрываются секреты деградантов, что находятся на пороге полного исчезновения. Шимпанзе и гориллы — наши ближайшие родственники в животном мире. И они обитают в до боли нам знакомых условиях. Молодые воины вынуждены идти сражаться, чтобы расширить владения своего королевства. Матери отчаянно заботятся о потомстве (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэтрин ЙеллосПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E184AD9A0B9E89338CA6BC50036BF6DED3F8CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233971   (575910) от 02.07.2018
+
+BBC. Большое австралийское приключение (Виктория) / Coast Australia (2013) HDTV [H.264/1080i-LQ] (сезон 1, серия 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подавляющее большинство австралийцев живёт в городах, которые расположены недалеко от побережья. Британский журналист и писатель Нейл Оливер вместе с энтузиастами отправляется в путешествие вдоль берегов Австралии. Вместе они узнают много нового об истории и географии этих мест. Их ждут потрясающие пейзажи и интересные встречи с людьми. Присоединяйтесь к захватывающему (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, природа, флора, фаунаРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBEC2329E47FBB1468AD666FC01AAD8DBBE8575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303122   (575860) от 19.05.2019
+
+Animal Planet: В дикие края с Эваном. Приключения Непальского слона / Evan Goes Wild (2019) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеринар Эван Энтин путешествует по миру, спасает и лечит диких зверей. Пусть он родился в Канзасе, но его любовь к братьям нашим меньшим не знает границ, и у него есть длинный список животных, которых он мечтает увидеть в их естественной среде обитания.
+Доктор Эван Энтин путешествует по миру, спасает и изучает диких животных. Основное внимание он уделяет лечению (   Читать дальше...   )Производство: США, Industrial Media, Animal PlanetЖанр: Документальный, исследование, фаунаПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49197FE9A24A64C0C7D3A9AC7570D8FED01574D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233765   (575784) от 02.07.2018
 
 NGW: По следам мифических чудовищ. Монгольский червь смерти / Beast man. Mongolian Death Worm (2010) HDTV [H.264/1080i-LQ]
@@ -6,7 +112,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575784.jpg" />
+  <img src="Z:/picture/008/save_picture_575784.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575743.jpg" />
+  <img src="Z:/picture/008/save_picture_575743.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575741.jpg" />
+  <img src="Z:/picture/008/save_picture_575741.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575623.jpg" />
+  <img src="Z:/picture/008/save_picture_575623.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Discovery: Стальные мышцы / American Muscle (2014) HDTVRip (Вып�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575379.jpg" />
+  <img src="Z:/picture/008/save_picture_575379.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575191.jpg" />
+  <img src="Z:/picture/008/save_picture_575191.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575186.jpg" />
+  <img src="Z:/picture/008/save_picture_575186.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575086.jpg" />
+  <img src="Z:/picture/008/save_picture_575086.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ BBC: Выдающиеся женщины ХХ столетия. Уоллис С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574891.jpg" />
+  <img src="Z:/picture/008/save_picture_574891.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ BBC: Выдающиеся женщины ХХ столетия. Мадам Ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574721.jpg" />
+  <img src="Z:/picture/008/save_picture_574721.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ Discovery: Новый мир (1-12 серии из 12) / Discovery: Next World (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574626.jpg" />
+  <img src="Z:/picture/008/save_picture_574626.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574138.jpg" />
+  <img src="Z:/picture/008/save_picture_574138.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574057.jpg" />
+  <img src="Z:/picture/008/save_picture_574057.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ BBC: Сверхчеловек (6 серий из 6) / BBC: Superhuman (2001) [DV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_573140.jpg" />
+  <img src="Z:/picture/005/save_picture_573140.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ NG: Секретные материалы древности: Тайна Жан�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572684.jpg" />
+  <img src="Z:/picture/008/save_picture_572684.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572596.jpg" />
+  <img src="Z:/picture/008/save_picture_572596.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572375.jpg" />
+  <img src="Z:/picture/008/save_picture_572375.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ Discovery. Наркосиндикат Сэм Гор / The World's Biggest Drug L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572086.jpg" />
+  <img src="Z:/picture/008/save_picture_572086.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ History Channel: Вселенная: НЛО. Внеземные технолог
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572058.jpg" />
+  <img src="Z:/picture/008/save_picture_572058.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571822.jpg" />
+  <img src="Z:/picture/008/save_picture_571822.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571685.jpg" />
+  <img src="Z:/picture/008/save_picture_571685.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ BBC: Жизнь в микромире / Life in the Undergrowth (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571434.jpg" />
+  <img src="Z:/picture/008/save_picture_571434.jpg" />
 </div>
 
 
@@ -565,111 +671,6 @@ BBC: Жизнь в микромире / Life in the Undergrowth (2005) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD31471990B9D251925CE5955C0E0D64D7D3B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 142336   (571336) от 27.07.2015
-
-BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_571336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами документальный сериал, который рассказывает об удивительных способностях нашего тела. Мы проникнем вглубь нашего организма и впервые покажем, как каждая клетка, каждый нерв, каждый орган борется за то, чтобы мы жили. С помощью нанотехнологий, электронных микроскопов и современной компьютерной графики вы сможете увидеть полную картину процессов, которые (   Читать дальше...   )Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 6 x ~ 00:50:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 12743   (571210) от 27.07.2015
-
-BBC: Освенцим (Аушвиц). Окончательное решение (Взгляд на нацизм изнутри) / Auschwitz. Inside The Nazi State (2005) [DVDRip]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_571210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освенцим, известный также под немецкими названиями Аушвиц или полностью концентрационный лагерь Аушвиц-Биркенау (польск. Oswiecim, нем. Auschwitz) - комплекс немецких концлагерей, располагавшийся в 1940—1945 на юге Польши, около города Освенцим, в 60 км к западу от Кракова. Над входом в Освенцим висел лозунг: «Arbeit macht frei» («Труд освобождает»).
-Вся шокирующая (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234358   (570902) от 05.07.2018
-
-NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Африканский слон - самое большое наземное млекопитающее, а Ботсвана - это место, где их больше, чем где-бы то ни было на земле.Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB88319EFF2DD1046120E002F7A1EF4DCE57CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234349   (570759) от 05.07.2018
-
-NGW: Прекрасная Америка: Величественный Северо-Запад. В стране гигантских секвой / The Mighty Northwest (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Страну Гигантов, в которой самые высокие деревья в мире возвышаются над калифорнийским побережьем.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, природа, фауна, флораПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CCF0A4020AB649BB739E12DC1F456C4988C358
 ```
 
 https://mybot314.ru/tekegram_catalog/

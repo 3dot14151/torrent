@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696849.jpg" />
+  <img src="Z:/picture/008/save_picture_696849.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NASCAR. Monster Energy Cup Series 2018. Auto Club 400 (18.03.2018) HDTVRip [H.26
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696810.jpg" />
+  <img src="Z:/picture/008/save_picture_696810.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ NASCAR. Monster Energy Cup Series 2018. Pennzoil 400 (04.03.2018) HDTVRip [H.264
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696809.jpg" />
+  <img src="Z:/picture/008/save_picture_696809.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ NASCAR. Xfinity Series 2018. Boyd Gaming 300 (03.03.2018) HDTVRip [H.264/720p-LQ
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696808.jpg" />
+  <img src="Z:/picture/008/save_picture_696808.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ NASCAR. Xfinity Series 2018. DC Solar 200 (10.03.2018) WEB-DL [H.264/720p-LQ] [E
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696807.jpg" />
+  <img src="Z:/picture/008/save_picture_696807.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ NASCAR. Xfinity Series 2018. Roseanne 300 (17.03.2018) HDTVRip [H.264/720p-LQ] [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696803.jpg" />
+  <img src="Z:/picture/008/save_picture_696803.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Flume Pro 2.8.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696796.jpg" />
+  <img src="Z:/picture/008/save_picture_696796.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696768.jpg" />
+  <img src="Z:/picture/008/save_picture_696768.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696767.jpg" />
+  <img src="Z:/picture/008/save_picture_696767.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696766.jpg" />
+  <img src="Z:/picture/008/save_picture_696766.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696765.jpg" />
+  <img src="Z:/picture/008/save_picture_696765.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ KakaoTalk 2.2.1.1211 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696763.jpg" />
+  <img src="Z:/picture/008/save_picture_696763.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696751.jpg" />
+  <img src="Z:/picture/008/save_picture_696751.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Coolmuster Android Assistant 4.2.74 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696737.jpg" />
+  <img src="Z:/picture/008/save_picture_696737.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BCee - Magic Words (2018) EP [MP3|320 Kbps] <Electronic, Drum & Bass, Liquid fun
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696732.jpg" />
+  <img src="Z:/picture/008/save_picture_696732.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ R-Drive Image Technician 6.2 Build 6203 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696727.jpg" />
+  <img src="Z:/picture/008/save_picture_696727.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ JetBrains Rider 2018.1 Build #RD-181.4379.1191 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696726.jpg" />
+  <img src="Z:/picture/008/save_picture_696726.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696703.jpg" />
+  <img src="Z:/picture/008/save_picture_696703.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ JumpShare 2.0.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696667.jpg" />
+  <img src="Z:/picture/008/save_picture_696667.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Trance Collection #1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696663.jpg" />
+  <img src="Z:/picture/008/save_picture_696663.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ IDrive 6.5.1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696662.jpg" />
+  <img src="Z:/picture/008/save_picture_696662.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696653.jpg" />
+  <img src="Z:/picture/008/save_picture_696653.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696651.jpg" />
+  <img src="Z:/picture/008/save_picture_696651.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696649.jpg" />
+  <img src="Z:/picture/008/save_picture_696649.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ BookMacster 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696648.jpg" />
+  <img src="Z:/picture/008/save_picture_696648.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Norton AntiVirus 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696616.jpg" />
+  <img src="Z:/picture/008/save_picture_696616.jpg" />
 </div>
 
 

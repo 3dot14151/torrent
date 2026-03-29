@@ -1,3 +1,55 @@
+###  Публикация: 1637689   (230672) от 05.06.2023
+
+RTG. Прогулка по Геленджику (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_230672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В уютной бухте Черноморского побережья России расположился Геленджик. Статус города он получил лишь в 1915 году, но с давних времен к берегам Геленджикской бухты приходили торговые суда: здесь было сначала поселение, потом и крепость. Сегодня одна из границ города проходит прямо по морю, с другой стороны его защищают Кавказские горы. Разнообразные курортные учреждения (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательныйРежиссер: Игорь ЧернышевЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407BA97A5E7CB8982E15728726ADA23D0171426C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424399   (229159) от 16.11.2020
+
+Охотники за вулканами. Камчатка / Chasseurs de volcans (2017) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полуостров Камчатка - край медведей и вулканов. Здесь есть две сотни вулканов, тридцать из которых - действующие.Производство: Франция, MC4&VoyageЖанр: Документальный, познавательный, путешествияРежиссер: Бертран ХомассПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB23AFA7CAEEE2D16C1FBDE6443E845B080B069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424234   (228823) от 16.11.2020
 
 Большое приключение по Новой Зеландии. Отаго / Coast New Zealand. North Otago (2018) HDTV [H.264/1080p] (сезон 3, эпизод 4)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228823.jpg" />
+  <img src="Z:/picture/004/save_picture_228823.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227759.jpg" />
+  <img src="Z:/picture/005/save_picture_227759.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227673.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227594.jpg" />
+  <img src="Z:/picture/005/save_picture_227594.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225401.jpg" />
+  <img src="Z:/picture/005/save_picture_225401.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223798.jpg" />
+  <img src="Z:/picture/005/save_picture_223798.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222070.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221248.jpg" />
+  <img src="Z:/picture/005/save_picture_221248.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221041.jpg" />
+  <img src="Z:/picture/005/save_picture_221041.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220971.jpg" />
+  <img src="Z:/picture/005/save_picture_220971.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220847.jpg" />
+  <img src="Z:/picture/005/save_picture_220847.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220772.jpg" />
+  <img src="Z:/picture/005/save_picture_220772.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220438.jpg" />
+  <img src="Z:/picture/005/save_picture_220438.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218856.jpg" />
+  <img src="Z:/picture/005/save_picture_218856.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218502.jpg" />
+  <img src="Z:/picture/005/save_picture_218502.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218390.jpg" />
+  <img src="Z:/picture/005/save_picture_218390.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218306.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215597.jpg" />
+  <img src="Z:/picture/005/save_picture_215597.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_214340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214340.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ Discovery. Долгий путь вокруг Земли / Long Way Round (2004)
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213891.jpg" />
+  <img src="Z:/picture/005/save_picture_213891.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213618.jpg" />
+  <img src="Z:/picture/005/save_picture_213618.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213613.jpg" />
+  <img src="Z:/picture/005/save_picture_213613.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ RTG. Прогулка по Петропавловску-Камчатскому (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212082.jpg" />
+  <img src="Z:/picture/004/save_picture_212082.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211991.jpg" />
+  <img src="Z:/picture/005/save_picture_211991.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D1787E732FB461D7BD8188E76AEC53548AB8EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566037   (211889) от 26.07.2022
-
-Джеймс Мэй: Наш человек в Италии / James May: Our Man in Italy (2022) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) [EN / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Мэй путешествует по одной из своих любимых стран: Италии. Начав c сицилийской столицы Палермо и закончив в Доломитовых Альпах, он посетит почти все регионы Италии. Культура, еда, промышленность и даже немного спорта — все это будет происходить на фоне самых потрясающих городских и сельских пейзажей в мире. Для Джеймса Италия всегда казалась страной, в которой (   Читать дальше...   )Производство: Великобритания, Amazon Prime VideoЖанр: документальный, комедия, приключенияРежиссер: Билл Бэйли, Том УайтерПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английские, датские, французские, немецкие, индийские, итальянские, норвежские, польские, португальские, испанские, шведские, тамильские, греческие, венгерские, корейские, японские, китайские, арабские, амхарскиеПродолжительность: серии x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E51938610075EBFE013EB86694A995C9A24069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638850   (211843) от 10.06.2023
-
-Поедем, поедим! Круиз Сочи — Турция: город шафрана, курица в гранатовом соусе, скальный монастырь (10.06.2023) WEB-DL [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди отправился в морской круиз из Сочи по городам Турции. На каждой остановке круизного лайнера итальянец отправлялся на поиски приключений: в Стамбуле он побывал в Голубой мечети и купил чудодейственный чай на местном рынке специй. В старинном городе шафрана попробовал кофе с древесной смолой, в Трабзоне посетил монастырь, который высечен на высоте (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F748555CEF938AEBF05497055C6C6AA359CC80
 ```
 
 https://mybot314.ru/tekegram_catalog/

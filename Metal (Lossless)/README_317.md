@@ -1,3 +1,90 @@
+###  Публикация: 1684251   (127787) от 15.12.2023
+
+Therion - Leviathan III (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Operatic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninkigal (3:06)
+02. Ruler Of Tamag (6:44)
+03. An Unsung Lament (6:58)
+04. Maleficium (3:34)(   Читать дальше...   )Жанр: Symphonic Rock, Operatic MetalПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B8735A905C8F5BBC21B61DD52AA32C55AAA022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684226   (127778) от 15.12.2023
+
+Grafvitnir - Venenum Scorpionis (2019) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127778.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Wolf of the Eclipse
+2.	Ormeld
+3.	The Beast Inside
+4.	Venenum Scorpionis(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934444BE3464DE0477896905F69F7FFD51502085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684676   (127600) от 16.12.2023
+
+Axis of Empires - Heretics and Orthodoxy (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prayer of the Journeyman (00:01:11)
+02 - Fallen by Nature (00:04:15)
+03 - Heretics (00:02:48)
+04 - The Magic Must Return (00:03:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD21E9F20961617FF443E84A50AEB48545C1D199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684664   (127574) от 16.12.2023
 
 Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
@@ -6,7 +93,7 @@ Lamori - Ave Valkyria (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127574.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Swarm Chain - Looming Darkness (2022) [FLAC|Lossless|image + .cue] <Epic Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127560.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127559.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Raven Age - Exile (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127558.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Raven Age - Darkness Will Rise (2017) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127557.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Colliding Worlds - Colliding Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127555.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Solitary Sabred - Temple of the Serpent (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127554.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Wake Arkane - Awakenings (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127551.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Nawabs Of Destruction - Rising Vengeance (2020) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127546.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Thragedium - Lisboa Depois de Morta (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127541.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ The Raven Age - The Raven Age (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127540.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ The Raven Age - Conspiracy (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127539.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Rash Panzer - Liberation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127397.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Iris Official - Heart Of An Artist: Resurrection (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127394.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Heavy Load - Death Or Glory (1982) Remastered, 2019, Reissue, 2023, WM Sweden [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127391.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Holy Giant - Diviners & Dividers (2023) [FLAC|Lossless|WEB-DL|tracks] <doommetal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127384.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Valentino Francavilla - Midnight Dreams (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127370.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Consume - Genetic Waste (2023) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127358.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - With Us or Against Us (1995) Compilation, Napalm Records [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127357.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Dusk Chapel - Astrophysics And Abnormal Activities (2022) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127356.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Vore - Gravehammer (2011) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127207.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Vox Interium - Yearning (2004) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127206.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Vore - Lord of Storms & Dead Kings Eyes (2009) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127205.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Vore - Lord of Storms & Dead Kings Eyes (2009) Compilation [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF83889EF31DB16A1723A31DE57A3331BB225F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685016   (127202) от 18.12.2023
-
-Seawalker - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ignis Ardet (Intro) (00:01:40)
-02 - Words are Dying (00:05:41)
-03 - Evolve and Decay (00:04:41)
-04 - Post Amazon World (00:05:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AFFD17D0A72D01B2D98A1C1A94A6D092733F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685382   (127201) от 18.12.2023
-
-Salome - Salome (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, atmospheric black metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinland [00:02:44]
-02. On Blood Wings [00:04:20]
-03. Is This All? [00:04:27]
-04. Sárr [00:05:47](   Читать дальше...   )Жанр: Doom Metal, atmospheric black metalПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BD52F5315459E7DBF60D8F31EC970BD4E809CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685397   (127053) от 19.12.2023
-
-Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isolation [00:01:21]
-02. He Who [00:04:31]
-03. The Alchemist [00:05:51]
-04. Tension Rising [00:04:43](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 ```
 
 https://mybot314.ru/tekegram_catalog/

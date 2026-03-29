@@ -1,3 +1,61 @@
+###  Публикация: 1161767   (465634) от 29.08.2017
+
+Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oglumga
+02. Odarladyp Semirtiili
+03. Dongup Xonar Boldum-Na Be
+04. Flute Box(   Читать дальше...   )Жанр: World, Ethnic, FolkПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161497   (465535) от 29.08.2017
+
+The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovely Days (5:05)
+02. For you (4:34)
+03. Through the centuries (3:50)
+04. I am alive (INSTRUMENTAL VERSION) (3:36)Жанр: New Age, Ambient, Chillout |Продолжительность: 00:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246188   (465481) от 09.09.2018
 
 Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -6,7 +64,7 @@ Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465481.jpg" />
+  <img src="Z:/picture/008/save_picture_465481.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Новая рождественская сказка / Scrooged (2001 (1988
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464992.jpg" />
+  <img src="Z:/picture/008/save_picture_464992.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464913.jpg" />
+  <img src="Z:/picture/008/save_picture_464913.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kb
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464673.jpg" />
+  <img src="Z:/picture/008/save_picture_464673.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrument
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464606.jpg" />
+  <img src="Z:/picture/008/save_picture_464606.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464462.jpg" />
+  <img src="Z:/picture/008/save_picture_464462.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - 20 Золотых Уличных Мелодий (2000) [MP3|320 кб/с]<In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464364.jpg" />
+  <img src="Z:/picture/008/save_picture_464364.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464362.jpg" />
+  <img src="Z:/picture/008/save_picture_464362.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи �
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464044.jpg" />
+  <img src="Z:/picture/008/save_picture_464044.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464024.jpg" />
+  <img src="Z:/picture/008/save_picture_464024.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463649.jpg" />
+  <img src="Z:/picture/008/save_picture_463649.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463225.jpg" />
+  <img src="Z:/picture/008/save_picture_463225.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462714.jpg" />
+  <img src="Z:/picture/008/save_picture_462714.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462056.jpg" />
+  <img src="Z:/picture/008/save_picture_462056.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigm
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461967.jpg" />
+  <img src="Z:/picture/008/save_picture_461967.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461823.jpg" />
+  <img src="Z:/picture/008/save_picture_461823.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461479.jpg" />
+  <img src="Z:/picture/008/save_picture_461479.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460057.jpg" />
+  <img src="Z:/picture/008/save_picture_460057.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459623.jpg" />
+  <img src="Z:/picture/008/save_picture_459623.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459168.jpg" />
+  <img src="Z:/picture/008/save_picture_459168.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458912.jpg" />
+  <img src="Z:/picture/008/save_picture_458912.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458008.jpg" />
+  <img src="Z:/picture/008/save_picture_458008.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457968.jpg" />
+  <img src="Z:/picture/008/save_picture_457968.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457793.jpg" />
+  <img src="Z:/picture/008/save_picture_457793.jpg" />
 </div>
 
 
@@ -687,70 +745,6 @@ Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F70E2FF6A90705B3D0CCB51C24F62B32898846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549632   (457417) от 22.09.2012
-
-Gipsy Kings - Greatest Hits (1994) /Japan/ [FLAC (tracks+cue)|Lossless]<Flamenco>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djobi Djoba
-02. Baila Me
-03. Bamboleo
-04. Pida Me La
-05. Bem, Bem, Maria
-06. Volare (Nel Blu Di Pinto Di Blu)
-07. Moorea
-08. A Mi Manera (Comme D'Habitude)
-09. Un Amor
-10. Galaxia(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:11:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059818   (457400) от 06.10.2016
-
-Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Carolina Wind (2:47)
-02 - Coal Train (3:08)
-03 - These Hills (3:33)
-04 - Johnson's Hardware Store (3:19)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385B02334D79B57FF80BB6E330CD8C4826AE41D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 373807   (519115) от 09.08.2011
+
+Журнал | Автомир [Украина] №32 [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автомир — специализированное автомобильное издание, целиком посвященное миру автомобилей. Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, что с ними связано.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 373534   (519110) от 09.08.2011
 
 Журнал | Автомир [Россия] №32 [2011] [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519110.jpg" />
+  <img src="Z:/picture/008/save_picture_519110.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519014.jpg" />
+  <img src="Z:/picture/008/save_picture_519014.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518974.jpg" />
+  <img src="Z:/picture/008/save_picture_518974.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518825.jpg" />
+  <img src="Z:/picture/008/save_picture_518825.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518505.jpg" />
+  <img src="Z:/picture/008/save_picture_518505.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518464.jpg" />
+  <img src="Z:/picture/008/save_picture_518464.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518424.jpg" />
+  <img src="Z:/picture/008/save_picture_518424.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518366.jpg" />
+  <img src="Z:/picture/008/save_picture_518366.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518344.jpg" />
+  <img src="Z:/picture/008/save_picture_518344.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518340.jpg" />
+  <img src="Z:/picture/008/save_picture_518340.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518050.jpg" />
+  <img src="Z:/picture/008/save_picture_518050.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Highlights School | Портретная обработка (2015) PCRec [H.264]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517998.jpg" />
+  <img src="Z:/picture/008/save_picture_517998.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517872.jpg" />
+  <img src="Z:/picture/008/save_picture_517872.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517861.jpg" />
+  <img src="Z:/picture/008/save_picture_517861.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517854.jpg" />
+  <img src="Z:/picture/008/save_picture_517854.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517762.jpg" />
+  <img src="Z:/picture/008/save_picture_517762.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517483.jpg" />
+  <img src="Z:/picture/008/save_picture_517483.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517412.jpg" />
+  <img src="Z:/picture/008/save_picture_517412.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517409.jpg" />
+  <img src="Z:/picture/008/save_picture_517409.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517408.jpg" />
+  <img src="Z:/picture/008/save_picture_517408.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517402.jpg" />
+  <img src="Z:/picture/008/save_picture_517402.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517383.jpg" />
+  <img src="Z:/picture/008/save_picture_517383.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517382.jpg" />
+  <img src="Z:/picture/008/save_picture_517382.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517379.jpg" />
+  <img src="Z:/picture/008/save_picture_517379.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517349.jpg" />
+  <img src="Z:/picture/008/save_picture_517349.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058F16C1033DEFEE31F39A1DB8F298A7A6AC972B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229519   (517239) от 23.08.2010
-
-Подшивка журналов | Сам себе мастер №1-8 [2010] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Сам себе мастер» - журнал прежде всего для тех, кто стремится с наименьшими затратами отремонтировать свое жилье. Вплоть до «евроремонта». Профессиональными секретами делятся специалисты из разных стран.Формат: DJVU
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

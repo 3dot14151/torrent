@@ -1,3 +1,29 @@
+###  Публикация: 1333903   (298237) от 27.10.2019
+
+Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: One Flew Over the Kuno's Nest | Ранма 1/2: Команда Ранмы против Легендарного феникса [1994, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татэваки Куно покупает в одном антикварном магазине таинственное яйцо легендарного феникса. По словам продавца, мастера рукопашного боя очень его ценят. И неспроста: владелец яйца способен обучиться особой атаке «Хоо-кэн» (рус. «Меч феникса»). Есть только одно железное правило: ни в коем случае не класть яйцо себе на голову, иначе — быть беде. Но не проходит и дня, (   Читать дальше...   )Производство: Studio DEEN / スタジオディーンЖанр: приключения, комедияРежиссер: Нисимура ДзюндзиСубтитры: русские (полные)Продолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C6867A092D446F2CC60AD554A8BF3323E5D330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333919   (298235) от 27.10.2019
 
 Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, OVA, 3 из 3] BDRip 1080p raw+rus+eng
@@ -6,7 +32,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298235.jpg" />
+  <img src="Z:/picture/008/save_picture_298235.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298233.jpg" />
+  <img src="Z:/picture/008/save_picture_298233.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298231.jpg" />
+  <img src="Z:/picture/008/save_picture_298231.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ranma 1/2 | Ranma Nibun no Ichi | Ранма 1/2 [1989, TV, 161 из 161] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298229.jpg" />
+  <img src="Z:/picture/008/save_picture_298229.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290697.jpg" />
+  <img src="Z:/picture/008/save_picture_290697.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286904.jpg" />
+  <img src="Z:/picture/008/save_picture_286904.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280478.jpg" />
+  <img src="Z:/picture/008/save_picture_280478.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Gyakusatsu Kikan | Орган геноцида | Genocidal Organ [2017, Movie + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266518.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262766.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Renai Boukun | Love Tyrant | Любовь тирана [TV-1] [2017, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262645.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257549.jpg" />
+  <img src="Z:/picture/005/save_picture_257549.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256544.jpg" />
+  <img src="Z:/picture/005/save_picture_256544.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255491.jpg" />
+  <img src="Z:/picture/005/save_picture_255491.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255462.jpg" />
+  <img src="Z:/picture/005/save_picture_255462.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250244.jpg" />
+  <img src="Z:/picture/004/save_picture_250244.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250129.jpg" />
+  <img src="Z:/picture/004/save_picture_250129.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247535.jpg" />
+  <img src="Z:/picture/004/save_picture_247535.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247493.jpg" />
+  <img src="Z:/picture/004/save_picture_247493.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247475.jpg" />
+  <img src="Z:/picture/004/save_picture_247475.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247436.jpg" />
+  <img src="Z:/picture/004/save_picture_247436.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247434.jpg" />
+  <img src="Z:/picture/004/save_picture_247434.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247411.jpg" />
+  <img src="Z:/picture/004/save_picture_247411.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247406.jpg" />
+  <img src="Z:/picture/004/save_picture_247406.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247215.jpg" />
+  <img src="Z:/picture/004/save_picture_247215.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247135.jpg" />
+  <img src="Z:/picture/004/save_picture_247135.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627181   (247050) от 11.07.2023
-
-Великая небесная стена | Иллюзия рaя | Tengoku Daimakyou | Heavenly Delusion [2023, TV, 13 из 13] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247050.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом аниме нас ожидает мистическое переплетение двух историй из, казалось бы, абсолютно разных миров. Одна из них расскажет нам о событиях в так называемом ""раю"", где туда-сюда снуют взрослые, а дети играют среди зелёных садов и учатся под присмотром заботливых роботов. Этот рай окружён гигантскими стенами, и никто даже не задумывается, что (   Читать дальше...   )Производство: Япония / Студия Production I.GЖанр: ПриключенияРежиссер: Мори ХиротакаЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Hekomi, JazzJack, Kroxxa, WhiteCroW (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

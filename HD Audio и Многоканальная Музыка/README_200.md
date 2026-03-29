@@ -1,3 +1,235 @@
+###  Публикация: 1793615   (67454) от 25.04.2025
+
+Limbes - Liernes (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Pied De Pilori
+A2 - Les Côtes à L'Unisson
+B1 - Buffet Frigide
+B2 - Aulnes Et PoussièresЖанр: Atmospheric Black MetalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86056FEFF7E86C9A0DD6BE6FBE7DD76A62359596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793648   (67453) от 25.04.2025
+
+Jeff Krause & Brokedown Gramophone - Brokedown Gramophone (Live at Marigny Studios) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love You This Way (7:28)
+02.  Leave a Light On (Live) (4:26)
+03.  Tears for My Friends (Live) (3:15)
+04.  When I'm With You (Radio Edit) (5:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6692CE0A134E4CA867FDE223131B6B0F47DE7AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793643   (67452) от 25.04.2025
+
+Elegant People, Lo Greco Bros and Soulstance - Atlantis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atlantis (5:15)
+02.  Breaking Up (5:37)
+03.  Dear Mister X (4:36)
+04.  Hunky Funky (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D7568C6C0701517D7C709702A67A1CBAD7F502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793651   (67451) от 25.04.2025
+
+Karen Lee Andrews - Survival (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dark and Heavy (5:00)
+02.  Borrowed Time (3:44)
+03.  Nobody's Fool (4:00)
+04.  Survival (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C08A76BE0FA4E53B5D7885D63CEB5E5EE40BF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793667   (67450) от 25.04.2025
+
+Vegas Two Times - Challenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heater (5:42)
+02.  Challenge (4:22)
+03.  Ashes To Ashes (4:18)
+04.  Travels Of The Hero (5:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41172F8C04311ECA82A9DC7D5DD84AD71EF68797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793661   (67448) от 25.04.2025
+
+Nikhil Korula Power Trio, Bob Malone, and Gregg Wright - Sight & Sound Episode 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Struttin' (4:29)
+02.  Red House (5:06)
+03.  Good Love Is on the Way (3:08)
+04.  The Price of Falling Down (6:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92A45CF54B500E9EC37968355CA0C8BAED4BBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793653   (67447) от 25.04.2025
+
+Mike Farris - The Sound Of Muscle Shoals (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ease On (4:24)
+02.  Heavy On The Humble (4:05)
+03.  Swingin' (5:31)
+04.  I'll Come Runnin' (5:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FAF91A7D5660A36E9D5633124265E9F79D6EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793637   (67446) от 25.04.2025
+
+Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67446.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rebellion
+A2 After The Sepulture (New Version)
+A3 I Love The Dead
+B1 Static Journey(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A14D243F236A840441C71C6F6D21038AA4B0E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793652   (67443) от 25.04.2025
 
 Michael Prunner - Dirty Times (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -6,7 +238,7 @@ Michael Prunner - Dirty Times (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67443.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Samantha Fish - Paper Doll (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67441.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Missy Sippy All Stars - Vol II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67440.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Paul Thorn - Life Is Just A Vapor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67438.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Orlndo - The Vintage of Own Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67437.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Sign Of The Wolf - Sign Of The Wolf (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67430.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Outlaw Patriots Blues and Chicago Blues Collective - The Hollow Road Sessions (2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67429.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Philipp Fankhauser - Ain't That Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67423.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ No King - Roadside Rhythms - No King - Roadside Rhythms (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67422.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67412.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Helena Vondrackova - Music (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soul,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67405.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Steve Howell & The Mighty Men - Yeah Man (2025) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67385.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ The Damn Truth - The Damn Truth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Cl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67384.jpg" />
 </div>
 
 
@@ -381,7 +613,7 @@ Skyla Owen - In My Dreams (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67383.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Brainstorm - Wall of Skulls (2021) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy, Power M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67382.jpg" />
 </div>
 
 
@@ -439,7 +671,7 @@ Game Over - Studio Albums (6 releases) (2012-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67381.jpg" />
 </div>
 
 
@@ -468,7 +700,7 @@ Travellin' Blue - Take The Edge Off (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67380.jpg" />
 </div>
 
 
@@ -497,7 +729,7 @@ Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67376.jpg" />
 </div>
 
 
@@ -511,237 +743,6 @@ Sister Suzie - Honestly? (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC1E5C44B43D806C6DB3375F42691DCE964F13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794133   (67374) от 27.04.2025
-
-William Wallace Band - Worn Thin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walter Trout - Blues Is Still Alive (5:29)
-02.  Wild Man (3:40)
-03.  Don't Play With Fire (3:04)
-04.  Gypsy Woman (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5246B85CD77E5F15D513F39D0EA473D6162EA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794131   (67373) от 27.04.2025
-
-Will Wilde - Blues Is Still Alive (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Walter Trout - Blues Is Still Alive (5:29)
-02.  Wild Man (3:40)
-03.  Don't Play With Fire (3:04)
-04.  Gypsy Woman (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCE3ADB4B5439F93C5C4037C1A28DF450E10BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794040   (67369) от 27.04.2025
-
-Sean Chambers - LIVE FROM DARYL'S HOUSE CLUB (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cobra (Live) (3:36)
-02.  I Need Your Loving (Live) (3:39)
-03.  Red Hot Mama (Live) (3:41)
-04.  Louise (Live) (5:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B9F62C9527C7983A8467B2E28C0C44CB004575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794042   (67365) от 27.04.2025
-
-Shinyribs - Leaving Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Blues, Americana>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leaving Time (3:56)
-02.  Cry Yer Way (4:35)
-03.  Shitty Music (3:28)
-04.  Drinkin' Night (3:17)(   Читать дальше...   )Жанр: Country, Blues, AmericanaПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA078CD1E1FA7D076782FB05182B70BEEC46420B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794262   (67343) от 28.04.2025
-
-Billy Idol - Dream Into It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Into It (5:05)
-02. 77 (feat. Avril Lavigne) (2:54)
-03. Too Much Fun (3:20)
-04. John Wayne (feat. Alison Mosshart) (4:16)(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFB20A01FF0FEEC60DE99DCBB657A728DAB8E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794370   (67325) от 28.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67325.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fighting The World (03:46)
-A2. Blow Your Speakers (03:36)
-A3. Carry On (04:09)
-A4. Violence And Bloodshed (03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A223F401AF040E32B97808020136468DD5BF5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794222   (67317) от 28.04.2025
-
-Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67317.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Twenty Four Hours From Tulsa
-A2 It Hurts To Be In Love
-A3 Half Heaven - Half Heartache
-A4 Billy You're A Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6458A3354B9683E31997B122D8EB67AED552C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794240   (67288) от 28.04.2025
-
-Soulfallen - Studio Albums (3 releases) (2007-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulfallen - дарк-метал-группа из Ювяскюля, Финляндия, образованная в 2003 году.2007 - World Expiration
-2009 - Grave New World
-2012 - The Promise Of HellЖанр: Melodic Death/Black MetalПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F771B2211ABDFA39961E6B142498D60800B29073
 ```
 
 https://mybot314.ru/tekegram_catalog/

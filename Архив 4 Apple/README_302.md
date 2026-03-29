@@ -1,3 +1,113 @@
+###  Публикация: 1032102   (647761) от 06.07.2016
+
+Capto – Screen Recording, Screen Captures, and Editing 1.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Capto (was Voila) - профессиональная программа для захвата видео и изображений с рабочего стола.
+Приложение от Французских разработчиков прошло тернистый путь, от простого менеджера скриншотов, до полнофункционального редактора и каталогизатора. Менеджеры скриншотов относятся к узкоспециализированным программам для Mac, которые востребованы лишь у небольшого числа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 июля 2016Разработчик: Global Delight Technologies Pvt. LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5094882F2D062AF51C196DA14388D9FFF13C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032243   (647249) от 06.07.2016
+
+Adobe Audition CC 2015.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D5D69BD78D72DE92964B347C86FEDF90F998A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824382   (647071) от 07.06.2015
+
+Vectoraster 6.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vectoraster  - программа для создания векторной графики на основе растровых моделей и полутонов из растровых изображений. Вы можете всячески конфигурировать растровые и точечные узоры для создания различных стилей изображений.
+
+Растры могут быть легко экспортированы в качестве векторов в EPS или PDF-файлы, как изображения,  JPEG, PNG или TIFF, или просто скопировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 апреля 2015Разработчик: Lost MindsПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E95735CF74E5AFA6BC891DF1EB97E3A82151448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141835   (646720) от 12.06.2017
+
+Tomates - Time Management 6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tomates Time Management помогает вам повысить производительность с помощью одного из самых эффективных методов управления в личных или паре рабочих средах.
+
+Приложение очень настраивается в таких аспектах, как время на перерывы или задачи, уведомления, серии задач, все это в красивом и подробном интерфейсе.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 июня 2017Разработчик: Adolfo Vera BlascoПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA3B5F3715072C219C59F454F3A39252DC3A078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292330   (646557) от 29.03.2019
 
 EndNote X9 v9.1.1 (Build 14483) [En]
@@ -6,7 +116,7 @@ EndNote X9 v9.1.1 (Build 14483) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646557.jpg" />
+  <img src="Z:/picture/008/save_picture_646557.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ Movavi Video Editor Plus 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646543.jpg" />
+  <img src="Z:/picture/008/save_picture_646543.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646541.jpg" />
+  <img src="Z:/picture/008/save_picture_646541.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ Movavi Video Editor 4 v4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646189.jpg" />
+  <img src="Z:/picture/008/save_picture_646189.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ Elmedia Player Pro 5.2.623 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645313.jpg" />
+  <img src="Z:/picture/008/save_picture_645313.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ Multitouch 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645282.jpg" />
+  <img src="Z:/picture/008/save_picture_645282.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ AudioFinder 5.9.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645094.jpg" />
+  <img src="Z:/picture/008/save_picture_645094.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ Tipard Mac Video Converter Ultimate 9.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645085.jpg" />
+  <img src="Z:/picture/008/save_picture_645085.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ AirFoil+Airfoil Satellite 5.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645084.jpg" />
+  <img src="Z:/picture/008/save_picture_645084.jpg" />
 </div>
 
 
@@ -249,7 +359,7 @@ Affinity Designer 1.7.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644989.jpg" />
+  <img src="Z:/picture/008/save_picture_644989.jpg" />
 </div>
 
 
@@ -276,7 +386,7 @@ iSkysoft iTube Studio 7.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644979.jpg" />
+  <img src="Z:/picture/008/save_picture_644979.jpg" />
 </div>
 
 
@@ -305,7 +415,7 @@ Check Off - A Task Manager 5.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644962.jpg" />
+  <img src="Z:/picture/008/save_picture_644962.jpg" />
 </div>
 
 
@@ -332,7 +442,7 @@ A Better Finder Rename 10.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644871.jpg" />
+  <img src="Z:/picture/008/save_picture_644871.jpg" />
 </div>
 
 
@@ -359,7 +469,7 @@ CloudMounter 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644708.jpg" />
+  <img src="Z:/picture/008/save_picture_644708.jpg" />
 </div>
 
 
@@ -387,7 +497,7 @@ Archiver 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644587.jpg" />
+  <img src="Z:/picture/008/save_picture_644587.jpg" />
 </div>
 
 
@@ -416,7 +526,7 @@ Davinci Resolve Studio 17.4.6 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644507.jpg" />
+  <img src="Z:/picture/008/save_picture_644507.jpg" />
 </div>
 
 
@@ -444,7 +554,7 @@ Adguard for Mac 2.8.0 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644505.jpg" />
+  <img src="Z:/picture/008/save_picture_644505.jpg" />
 </div>
 
 
@@ -470,7 +580,7 @@ Sketch 44.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644190.jpg" />
+  <img src="Z:/picture/008/save_picture_644190.jpg" />
 </div>
 
 
@@ -496,7 +606,7 @@ Paws for Trello 1.0.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644019.jpg" />
+  <img src="Z:/picture/008/save_picture_644019.jpg" />
 </div>
 
 
@@ -525,7 +635,7 @@ CodeRunner 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644013.jpg" />
+  <img src="Z:/picture/008/save_picture_644013.jpg" />
 </div>
 
 
@@ -554,7 +664,7 @@ SiteSucker 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643813.jpg" />
+  <img src="Z:/picture/008/save_picture_643813.jpg" />
 </div>
 
 
@@ -583,7 +693,7 @@ TechTool Pro 8.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643345.jpg" />
+  <img src="Z:/picture/008/save_picture_643345.jpg" />
 </div>
 
 
@@ -595,115 +705,6 @@ TechTool Pro — диагностику заказывали?
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72127D5FC45DFDB20D42F30C01664D69FA83B75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032640   (643267) от 08.07.2016
-
-Logic Pro X 10.2.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Новые мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобной работы, где бы вы ни находились. Logic Pro X включает огромную коллекцию музыкальных инструментов, эффектов и циклов — всё, что нужно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 июня 2016Разработчик: iTunes S.a.r.l. Apple Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Китайский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C980D65526BBEA0A6AABD05EC556D85FD51F343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541796   (643135) от 04.04.2022
-
-Downcast 2.11.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2022Разработчик: © 2012-2022 Jamawkinaw Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D69023C7D78FB0A18B777936FE9C544FAD5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541804   (643128) от 04.04.2022
-
-Screen Wonders 2.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
-Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2022Разработчик: © 2022 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E9EDF2C7DC955D6CE4E083B8E2E157166E37AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142625   (643110) от 14.06.2017
-
-Shredo 1.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shredo - красивая и функциональная утилита удаления файлов.
-Уничтожение данных — последовательность операций, предназначенных для осуществления программными или аппаратными средствами необратимого удаления данных, в том числе остаточной информации.
-Shredo поддерживает внешние диски и флэш-накопители.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 июня 2017Разработчик: mymixapps.comПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AB474CE692B9066A6953FEAB445A16781FAF91
 ```
 
 https://mybot314.ru/tekegram_catalog/

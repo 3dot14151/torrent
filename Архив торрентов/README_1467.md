@@ -6,7 +6,7 @@ O&O Defrag Professional 20.5 Build 603 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720323.jpg" />
+  <img src="Z:/picture/008/save_picture_720323.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cent Browser 2.5.6.57 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720322.jpg" />
+  <img src="Z:/picture/008/save_picture_720322.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720319.jpg" />
+  <img src="Z:/picture/008/save_picture_720319.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zyce - The Fifth Dimension (2016) [MP3|320 кб/с] <Progressive Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720313.jpg" />
+  <img src="Z:/picture/008/save_picture_720313.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BlueHarvest 6.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720304.jpg" />
+  <img src="Z:/picture/008/save_picture_720304.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Wise Disk Cleaner 9.25.644 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720302.jpg" />
+  <img src="Z:/picture/008/save_picture_720302.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Cyberfox 47.0 for AMD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720299.jpg" />
+  <img src="Z:/picture/008/save_picture_720299.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ qBittorrent 4.4.1 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720292.jpg" />
+  <img src="Z:/picture/008/save_picture_720292.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Adobe Media Encoder 2022 v22.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720291.jpg" />
+  <img src="Z:/picture/008/save_picture_720291.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Remote Desktop Manager Enterprise 2022.1.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720290.jpg" />
+  <img src="Z:/picture/008/save_picture_720290.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ CyberLink PowerDirector Ultimate 20.1.2607.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720287.jpg" />
+  <img src="Z:/picture/008/save_picture_720287.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ WhatsApp 2.2202.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720286.jpg" />
+  <img src="Z:/picture/008/save_picture_720286.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720277.jpg" />
+  <img src="Z:/picture/008/save_picture_720277.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720245.jpg" />
+  <img src="Z:/picture/008/save_picture_720245.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720238.jpg" />
+  <img src="Z:/picture/008/save_picture_720238.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720222.jpg" />
+  <img src="Z:/picture/008/save_picture_720222.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ WinUtilities Pro 12.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720206.jpg" />
+  <img src="Z:/picture/008/save_picture_720206.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ VirtualBox 5.1.22 r115126 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720200.jpg" />
+  <img src="Z:/picture/008/save_picture_720200.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VirtualBox 5.1.22.115126 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720199.jpg" />
+  <img src="Z:/picture/008/save_picture_720199.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ R/R Coseboom - Beneath Trembling Lanterns (2006) [FLAC|Lossless]<Downtempo, Trip
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720189.jpg" />
+  <img src="Z:/picture/008/save_picture_720189.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - A State Of Trance Year Mix 2004 (Mixed By Armin Van Buuren) Remastered (201
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720188.jpg" />
+  <img src="Z:/picture/008/save_picture_720188.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ ScreenPresso Pro 1.6.3.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720184.jpg" />
+  <img src="Z:/picture/008/save_picture_720184.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ ICQ 10.0 build 12077 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720183.jpg" />
+  <img src="Z:/picture/008/save_picture_720183.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720181.jpg" />
+  <img src="Z:/picture/008/save_picture_720181.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720176.jpg" />
+  <img src="Z:/picture/008/save_picture_720176.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720104.jpg" />
+  <img src="Z:/picture/008/save_picture_720104.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1681078   (133272) от 01.12.2023
+
+Skinwalker Hunt (2022) [Ru/Multi] (1.011) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skinwalker Hunt — это симулятор охоты, смешанный с хоррором, от создателя игры Witch Hunt. Основными особенностями игры является фокус на исследовании, нелинейности и атмосфере. Вам предстоит играть за коренного американца, который занимается охотой на монстров. Вас ждет охота на легендарное существо под названием cкинуокер, охота на которое будет происходить в различных (   Читать дальше...   )Тип издания: RepackРазработчик: GuaЖанр: Simulator, Horror, 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B60A0E514BE039F3467FE7D27E1533F5A7EBBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681305   (132872) от 02.12.2023
 
 Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
@@ -6,7 +32,7 @@ Creature Lab (2023) [Multi] (2.0.40/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132872.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Zipp's Café (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132858.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (2.33/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131921.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Destroyer: The U-Boat Hunter (2023) [Ru/Multi] (1.0/dlc) Scene Rune [Supporter B
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129699.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Prison Tycoon: Under New Management (2021) [Multi] (1.0.2.2/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129002.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127903.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Fabulous Fear Machine (2023) [Ru/Multi] (1.0.28) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126541.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Buried Alive: Breathless Rescue (2023) [Ru/Multi] (1.0) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126385.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.4.0.r49909/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125933.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Cartel Tycoon (2021) [Ru/Multi] (1.0.9.6411/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125543.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Hotel Renovator (2023) [Ru/Multi] (1.0.6.6.285/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124815.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Islanders (2019) [Ru/Multi] (1.04) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124704.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123858.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ The Faraway Land (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123856.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Arma Reforger (2023) [Ru/Multi] (1.0.0.80) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123497.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Beer Factory (2024) [Ru/Multi] (build 69) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123200.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Computer Repair Shop (2024) [Ru/Multi] (1.01) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123009.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Grand Emprise: Time Travel Survival (2023) [Ru/Multi] (20230809) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122101.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121780.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.13.1.1/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121379.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.14.2) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120910.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119581.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Spells and Secrets / Spells & Secrets (2023) [Multi] (1.0.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119010.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118895.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Don't Pee (2024) [En] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118668.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Don't Pee – вы внезапно проснулись посреди ночи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BF3472549A5169144CBE7639E38D61A098D78E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698721   (118364) от 10.02.2024
-
-Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцать великолепных столов для игры в пинбол и совместимая с Steam Deck со скоростью 60 кадров в секунду. Новые столы имеют более крупные игровые поля, лучшую физику, лучшую графику, лучшие спецэффекты, лучшие ракурсы камеры, более длинные саундтреки, полную поддержку контроллеров, онлайн-таблицы лидеров и больше снимков на игровых автоматах!Тип издания: SceneРазработчик: Pinblend StudiosЖанр: Казуальные игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09DB0F8CF662DCE9950A6F2462428489EAB58FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

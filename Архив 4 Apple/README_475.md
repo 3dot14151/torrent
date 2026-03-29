@@ -1,3 +1,112 @@
+###  Публикация: 1337319   (275016) от 10.11.2019
+
+Duplicate Manager Pro 1.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Manager Pro обнаруживает, управляет и удаляет:
+Дублированные фото, размноженное видео, размноженные звуковые дорожки, размноженные документы, размноженные другие файлы.
+
+Простота в использовании и скорость работы - это основные принципы в концепции приложения. Ваше время является самым ценным, что у вас есть! Мы заботимся о вашем времени. Не тратьте свое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3343D9BFF1305B279CFD8D950CF46A3863054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337334   (275012) от 10.11.2019
+
+Wirecast Pro 13.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wirecast предлагает доступное программное обеспечение в качестве альтернативы дорогим аппаратным решениям организации видео-трансляций в сети Интернет. Благодаря Wirecast вы можете выводить на вещание несколько потоков с камер, в реальном времени вставляя в программный поток видеоклипы, изображения, звуки и такие необходимые элементы, как переходы, титры, хрома-кеинг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74814393ACAF11C6D1B2F4FA670351D79C2BFE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337445   (275005) от 10.11.2019
+
+Elimisoft App Uninstaller 2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elimisoft App Uninstaller разумно находит ВСЕ оставшиеся файлы (кеши, журналы, настройки, отчеты о сбоях) приложения и очищает ваш Mac. Освободите это ценное дисковое пространство.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083446   (274969) от 15.12.2016
+
+KCNcrew Pack 12-15-16 + Bonus [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274969.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack  -  это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и периодически обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на декабрь 2016 года.Тип издания: OS X SoftwareРелиз состоялся: 15 декабря 2016Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350CF8634F9B16BFBA0792952B1F6A091FF84470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083353   (274967) от 15.12.2016
 
 Downie 2.6 [Multi/Ru]
@@ -6,7 +115,7 @@ Downie 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274967.jpg" />
+  <img src="Z:/picture/008/save_picture_274967.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Wondershare Recoverit 8 v8.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274905.jpg" />
+  <img src="Z:/picture/008/save_picture_274905.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ BetterTouchTool 3 v3.209 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274881.jpg" />
+  <img src="Z:/picture/008/save_picture_274881.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ iFinance 4.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274874.jpg" />
+  <img src="Z:/picture/008/save_picture_274874.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ Duplicate Photos Fixer Pro 2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274873.jpg" />
+  <img src="Z:/picture/008/save_picture_274873.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274864.jpg" />
+  <img src="Z:/picture/008/save_picture_274864.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Adobe Zii 2020 - Universal Patcher v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274863.jpg" />
+  <img src="Z:/picture/008/save_picture_274863.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ Aiseesoft PDF Converter-PDF 3.3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274852.jpg" />
+  <img src="Z:/picture/008/save_picture_274852.jpg" />
 </div>
 
 
@@ -221,7 +330,7 @@ A Better Finder Rename 10.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274848.jpg" />
+  <img src="Z:/picture/008/save_picture_274848.jpg" />
 </div>
 
 
@@ -248,7 +357,7 @@ Get Backup Pro 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274840.jpg" />
+  <img src="Z:/picture/008/save_picture_274840.jpg" />
 </div>
 
 
@@ -277,7 +386,7 @@ TurboMosaic Pro 3.0.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274815.jpg" />
+  <img src="Z:/picture/008/save_picture_274815.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ CodeRunner 3.1 (21730) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274788.jpg" />
+  <img src="Z:/picture/008/save_picture_274788.jpg" />
 </div>
 
 
@@ -330,7 +439,7 @@ Pixelmator Pro 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274766.jpg" />
+  <img src="Z:/picture/008/save_picture_274766.jpg" />
 </div>
 
 
@@ -358,7 +467,7 @@ iTrash 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274751.jpg" />
+  <img src="Z:/picture/008/save_picture_274751.jpg" />
 </div>
 
 
@@ -386,7 +495,7 @@ Pacifist 3.5.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274737.jpg" />
+  <img src="Z:/picture/008/save_picture_274737.jpg" />
 </div>
 
 
@@ -415,7 +524,7 @@ Cisdem Video Player 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274676.jpg" />
+  <img src="Z:/picture/008/save_picture_274676.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ Nik Complete 2 Collection by DxO 2.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274556.jpg" />
+  <img src="Z:/picture/008/save_picture_274556.jpg" />
 </div>
 
 
@@ -468,7 +577,7 @@ Swinsian 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274210.jpg" />
+  <img src="Z:/picture/008/save_picture_274210.jpg" />
 </div>
 
 
@@ -494,7 +603,7 @@ EtreCheck 5 v5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274203.jpg" />
+  <img src="Z:/picture/008/save_picture_274203.jpg" />
 </div>
 
 
@@ -522,7 +631,7 @@ Postbox 6 v6.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274201.jpg" />
+  <img src="Z:/picture/008/save_picture_274201.jpg" />
 </div>
 
 
@@ -548,7 +657,7 @@ AutoCrypt 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274199.jpg" />
+  <img src="Z:/picture/008/save_picture_274199.jpg" />
 </div>
 
 
@@ -574,7 +683,7 @@ WebVideoHunter Pro 5.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274191.jpg" />
+  <img src="Z:/picture/008/save_picture_274191.jpg" />
 </div>
 
 
@@ -586,117 +695,6 @@ WebVideoHunter Pro 5.9.1 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15241E9EAD1EA9827D3F2306338F59524CACD296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265662   (274144) от 28.11.2018
-
-MovieSherlock 5.9.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274144.jpg" />
-</div>
-
-
-###  Подробнее
-
-MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
-MovieSherlock - это лучший способ получить видео на ваш Mac.
-
-MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2018Разработчик: Capibara Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0279631754804F8197853986EE0588CBE8BC3F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265546   (274126) от 28.11.2018
-
-Big Mean Folder Machine 2 v2.38 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Mean Folder Machine - интересное приложение, предназначенное для упорядочения файлов по определеннокму критерию. Т.е., если в одной папке все файлы свалены в одну кучу (часто бывает в папке "Загрузка"), мы можем, выбрав определенный критерий, моментально навести порядок, переместив определенные типы файлов в нужные папки.
-
-Например, идеально подходит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2018Разработчик: publicspace.netПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F5EC1100BA395C9D3B173372384E8F0E198426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188465   (274104) от 02.12.2017
-
-Imagenomic Portraiture 3 for Adobe Lightroom CC2015/ClassicCC build 3035 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagenomic Portraiture -  незаменимый фильтр, который превратит ваше фото в гламурный снимок, позволит избежать трудоемкой процедуры попиксельного ретуширования снимка с целью удаления дефектов изображения. Благодаря реализованной в приложении технологии интеллектуального сглаживания, фотолюбители смогут бесследно удалять дефекты, не затрагивая мельчайших деталей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: ImagenomicПоддерживаемая ОС: macOS 10.10.x +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EB182CB3C60DCF7A1F0B5BB24CC58A13DA8D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265611   (274078) от 28.11.2018
-
-Elmedia Player Pro 7 v7.0 (1615) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Video Player - это бесплатный медиаплеер для Mac OS. Он может воспроизводить практически все типы файлов, будь то - AVI, MP4, FLV, SWF, WMV, MKV, MP3, M4V и пр. Elmedia Video Player - это решение «все-в-одном», не требующее каких-либо дополнительных плагинов или кодеков.
-
-Этот плеер предлагает своим пользователям изумительное воспроизведение видео в формате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2018Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296FF5666F1D11AE22EA62A6AB603E31AAB0652F
 ```
 
 https://mybot314.ru/tekegram_catalog/

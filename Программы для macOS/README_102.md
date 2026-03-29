@@ -1,3 +1,140 @@
+###  Публикация: 1327203   (374088) от 25.09.2019
+
+Mixed In Key 8 v8.5.3 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы начинающий или опытный ди-джей? Mixed In Key будет незаменимым помощником для вас. Это программное обеспечение практически гарантирует, что ваши DJ-сеты будут звучать идеально.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Mixed In Key LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC171A947B2125E7F25E1DFE6F99985E81B8539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175957   (374067) от 20.10.2017
+
+Templates Lab for MS Office 3.2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_374067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Templates Lab for MS Office от Jumsoft - это обширная коллекция шаблонов, позволяющая перегрузить вашу работу в Microsoft Office для Mac на любой случай! Коллекция содержит тысячи шаблонов, от случайных и бизнес-шаблонов для Word, тем и макетов для Keynote, до сложных электронных таблиц для Excel - вы называете то, что вам нужно и тут же находите нужный шаблон!
+ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2017Разработчик: JumsoftПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE108B4C4A7196DB1B61EBAB6661B93419A64A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327462   (373974) от 25.09.2019
+
+Adobe Photoshop Lightroom Classic CC 2019 v8.4.1 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда фотографии не могут передать все те ощущения, которые охватывали вас в момент съемки. Теперь благодаря инструментам Lightroom Classic CC вы сможете отредактировать фотографии на компьютере и передать свои эмоции. Добавляйте цвета, делайте тусклые фотографии яркими и живыми, удаляйте случайно попавшие в кадр объекты и корректируйте наклон изображений. Кроме (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe Systems IncПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4591471943BE141A12E9E6C0306B25652F267A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069473   (373776) от 04.11.2016
+
+World Clock 1.4.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373776.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Clock - простые и одновременно мощные часы, которые покажут время во всем мире.
+
+• Добавляйте города и часовые поясов, как по Гринвичу так и UTC
+• Преобразовывайте международное время(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 ноября 2016Разработчик: Komarov MobileПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C846FD258B2C6E97B602672B8F554AAC6FEA71ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327597   (372542) от 26.09.2019
+
+FSMonitor 1.1 (116) [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372542.jpg" />
+</div>
+
+
+###  Подробнее
+
+FSMonitor - это приложение для MacOS, которое отслеживает все изменения в файловой системе.
+
+Отслеживать все изменения в файловой системе, включая создание, удаление, изменение содержимого, переименование и изменение атрибутов.
+Изучите измененные файлы с помощью любого из четырех предусмотренных режимов отображения.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Tristan Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57D8FD37A5F2AE07CFAE79F39C44C0981AB9189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415956   (372134) от 14.10.2020
 
 Entity 1.3.1 [Multi]
@@ -6,7 +143,7 @@ Entity 1.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372134.jpg" />
+  <img src="Z:/picture/008/save_picture_372134.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372058.jpg" />
+  <img src="Z:/picture/008/save_picture_372058.jpg" />
 </div>
 
 
@@ -58,7 +195,7 @@ ChatMate for WhatsApp 4.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371904.jpg" />
+  <img src="Z:/picture/008/save_picture_371904.jpg" />
 </div>
 
 
@@ -85,7 +222,7 @@ Bundle for iWork 5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371543.jpg" />
+  <img src="Z:/picture/008/save_picture_371543.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ Microsoft Office Standard 2019 for Mac v16.42 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371156.jpg" />
+  <img src="Z:/picture/008/save_picture_371156.jpg" />
 </div>
 
 
@@ -142,7 +279,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370969.jpg" />
+  <img src="Z:/picture/008/save_picture_370969.jpg" />
 </div>
 
 
@@ -170,7 +307,7 @@ Mirror for Philips TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370967.jpg" />
+  <img src="Z:/picture/008/save_picture_370967.jpg" />
 </div>
 
 
@@ -199,7 +336,7 @@ Mirror for Panasonic TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370954.jpg" />
+  <img src="Z:/picture/008/save_picture_370954.jpg" />
 </div>
 
 
@@ -228,7 +365,7 @@ Mirror for Sony TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370827.jpg" />
+  <img src="Z:/picture/008/save_picture_370827.jpg" />
 </div>
 
 
@@ -257,7 +394,7 @@ Mirror for Samsung TV 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370687.jpg" />
+  <img src="Z:/picture/008/save_picture_370687.jpg" />
 </div>
 
 
@@ -286,7 +423,7 @@ Unibox 1.9.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370378.jpg" />
+  <img src="Z:/picture/008/save_picture_370378.jpg" />
 </div>
 
 
@@ -312,7 +449,7 @@ VideoProc (former MacX Video Converter Pro) 3.9 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369656.jpg" />
+  <img src="Z:/picture/008/save_picture_369656.jpg" />
 </div>
 
 
@@ -340,7 +477,7 @@ Business Templates 3.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369644.jpg" />
+  <img src="Z:/picture/008/save_picture_369644.jpg" />
 </div>
 
 
@@ -368,7 +505,7 @@ Graphic Styles 3.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369142.jpg" />
+  <img src="Z:/picture/008/save_picture_369142.jpg" />
 </div>
 
 
@@ -396,7 +533,7 @@ Adobe Muse CC 2018.0.0.685 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369098.jpg" />
+  <img src="Z:/picture/008/save_picture_369098.jpg" />
 </div>
 
 
@@ -423,7 +560,7 @@ Corporate Packs for Pages 3.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369006.jpg" />
+  <img src="Z:/picture/008/save_picture_369006.jpg" />
 </div>
 
 
@@ -451,7 +588,7 @@ CalendarPro for Google 3.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368297.jpg" />
+  <img src="Z:/picture/008/save_picture_368297.jpg" />
 </div>
 
 
@@ -480,7 +617,7 @@ KCNcrew Pack 10-15-20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367834.jpg" />
+  <img src="Z:/picture/008/save_picture_367834.jpg" />
 </div>
 
 
@@ -506,7 +643,7 @@ Visual Studio Code 1.50.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367339.jpg" />
+  <img src="Z:/picture/008/save_picture_367339.jpg" />
 </div>
 
 
@@ -532,7 +669,7 @@ Capture One Pro 8.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367219.jpg" />
+  <img src="Z:/picture/008/save_picture_367219.jpg" />
 </div>
 
 
@@ -559,7 +696,7 @@ Photo Size Optimizer (was IMAGEmini) 1.71 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366777.jpg" />
+  <img src="Z:/picture/008/save_picture_366777.jpg" />
 </div>
 
 
@@ -571,143 +708,6 @@ Photo Size Optimizer (Ранее известный как IMAGEmini) - изме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A828771A561A40611849C6323A4C18F38E10D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327892   (366367) от 29.09.2019
-
-Elasty 2.0.3 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elasty - панель инструментов для того, чтобы настроить фильмы на Mac OS X со многими расширенными функциями. Можете импортировать различные форматы фильма из любого источника, включая прямой доступ к iPhoto и носителям iMovie. Можете также использовать iSight непосредственно, из Elasty, чтобы импортировать изображение или анимацию.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CreaceedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7919C269D6C48EDFC08A0987342D3E29A2FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255289   (366231) от 17.10.2018
-
-Outline 3.21.3 [En/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
-
-Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: © GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0635E311AE3ADC15E48E9C7D26D75FB081B7398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255183   (366055) от 17.10.2018
-
-Disk Expert 2.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
-
-Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные DMG-образы и сетевые диски SMB. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDA1E4CDD4AAAF853A1B77FBCD8060A1476190C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327737   (366016) от 29.09.2019
-
-ActiveDock 1.15 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Application Launcher, улучшенный Dock для MacOS, альтернатива Apple Dock, uBar, HyperDock.
-ActiveDock - полная замена Apple Dock с функциями настройки. Инструменты для более быстрого переключения между приложениями и окнами и управления окнами из предварительного просмотра на док-станции.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DD0B78BD2AB9EBAB750BF0C18F5FCDD68D4666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327975   (365874) от 29.09.2019
-
-FileMaker Pro 18 Advanced v18.0.3.317 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365874.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
-
-Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. Источником вдохновения для вас могут стать встроенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FileMaker, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3BADAFC0F9302F9E78C46D9259D91EE539D523
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1124247   (785892) от 10.04.2017
+
+NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Производство: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс ТовеллАктеры: Джордж Р. Робертсон, Дэн Дюран, Джилл Фраппье, Ванесса СмитПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124456   (785571) от 12.04.2017
+
+От колыбели до могилы / Cradle to Grave (2016) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124550   (785563) от 12.04.2017
+
+От колыбели до могилы / Cradle to Grave (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277407   (785370) от 20.01.2019
 
 NG: Тайна гималайских мумий / Mystery of the Himalayan Mummies (2016) DVB
@@ -6,7 +84,7 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785370.jpg" />
+  <img src="Z:/picture/008/save_picture_785370.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784032.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783746.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782057.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG: Умные Крысы / Rat Genius  (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_781187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781187.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780520.jpg" />
+  <img src="Z:/picture/008/save_picture_780520.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779943.jpg" />
+  <img src="Z:/picture/008/save_picture_779943.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779623.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_779467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779467.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779249.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779232.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779224.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778838.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778819.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778669.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778506.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778485.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778065.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776716.jpg" />
+  <img src="Z:/picture/008/save_picture_776716.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776343.jpg" />
+  <img src="Z:/picture/008/save_picture_776343.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776339.jpg" />
+  <img src="Z:/picture/008/save_picture_776339.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775733.jpg" />
+  <img src="Z:/picture/008/save_picture_775733.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775088.jpg" />
+  <img src="Z:/picture/008/save_picture_775088.jpg" />
 </div>
 
 
@@ -593,85 +671,6 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116C0F6DF5925CC5224A15710C551DCBC61E4A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277899   (774937) от 22.01.2019
-
-NG: Как устроен интернет. 50 лет онлайн / Inside the Internet. 50 Years of Life Online (2019) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отмечая 50-ю годовщину создания интернета, Nat Geo предпринимает веселую ностальгическую поездку в его прошлое по кибершоссе, с самых первых дней и до настоящего времени. Я ЛЮБЛЮ ИНТЕРНЕТ - это та часть славного пути, которая рассказывает о том, "как интернет изменил все" - наши дружеские связи, наши привычки, даже наш образ мышления. Это ностальгическое (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: Документальный, технологии, интернетРежиссер: Тодд ХерманнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD7275F81891C1DC71B05F0F0EE7B12A4B7D662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277988   (774233) от 23.01.2019
-
-NGW: Рожденные в Африке. Опасная игровая площадка / Born in Africa (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проследите все этапы взросления этих милых пушистых зверьков, переживая вместе с их матерями за их жизнь и деля с ними моменты нежности к своим детенышам.
-Детеныш каждого животного развивается с разной скоростью, и это влияет на процесс его обучения. В этой серии вы сможете день за днем наблюдать этот процесс, стать свидетелями их прогресса и неправильных действий.Производство: Франция, One Planet, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Стефани ГолдшмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DE9424BC37A3492DFFB6CA06782239648D881F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278021   (774226) от 23.01.2019
-
-NG: C точки зрения науки: Вымирание человечества / Naked Science: Wipepout (2006) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир изобилует разнообразием форм жизни: от простейших одноклеточных существ до, собственно, человека. А теперь представьте себе мир, утопающий в смертоносных газах, иссушаемый аномальной жарой, разрушаемый фатальными спадами температур под пронизывающими космическими излучениями. Мир, на который падают астероиды, разрушаемые высокотемпературными ударными волнами. (   Читать дальше...   )Производство: США, National Geographic, Pioneer Productions, Steadfast TelevisionЖанр: Документальный, познавательный, научно-популярныйРежиссер: Рабиндер МинхасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C95418717F013F9A9D730A12548CCD734EBDD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

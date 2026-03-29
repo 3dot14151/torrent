@@ -1,3 +1,108 @@
+###  Публикация: 1332060   (315845) от 19.10.2019
+
+CloudMounter 3.5 (585) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315845.jpg" />
+</div>
+
+
+###  Подробнее
+
+CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с онлайн файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к онлайн данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3694A75F37F3BA5836A9CA715AE1A847B6EC820C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421847   (315619) от 06.11.2020
+
+BusyCal 3 v3.11 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315619.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73286152CD6707B20B1D0A3E3AC5039B5FE4DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421879   (315618) от 06.11.2020
+
+ProFind 1.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC6BF66B22838385E60285D7DCC2B514EC48512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332126   (315602) от 19.10.2019
+
+Adobe Premiere Pro CC 2019 v13.1.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K x 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.12 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED124B0634E9BAACB684357CF66D8F8BD072AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421878   (315551) от 06.11.2020
 
 Posterino 3 v3.8.6 [Multi]
@@ -6,7 +111,7 @@ Posterino 3 v3.8.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315551.jpg" />
+  <img src="Z:/picture/008/save_picture_315551.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ Find Any File (FAF) 2.1.2b8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315546.jpg" />
+  <img src="Z:/picture/008/save_picture_315546.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ MediaHuman Youtube Downloader 3.9.9.48 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315543.jpg" />
+  <img src="Z:/picture/008/save_picture_315543.jpg" />
 </div>
 
 
@@ -90,7 +195,7 @@ Default Folder X 5.5  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315539.jpg" />
+  <img src="Z:/picture/008/save_picture_315539.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ USBclean 3.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315513.jpg" />
+  <img src="Z:/picture/008/save_picture_315513.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ Weather Guru 2.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315510.jpg" />
+  <img src="Z:/picture/008/save_picture_315510.jpg" />
 </div>
 
 
@@ -168,7 +273,7 @@ Application Wizard 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_315162.jpg" />
+  <img src="Z:/picture/005/save_picture_315162.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Privatus 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315107.jpg" />
+  <img src="Z:/picture/008/save_picture_315107.jpg" />
 </div>
 
 
@@ -222,7 +327,7 @@ Soulver 2.6.6 (5881) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314992.jpg" />
+  <img src="Z:/picture/008/save_picture_314992.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ Downcast 2.9.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314990.jpg" />
+  <img src="Z:/picture/008/save_picture_314990.jpg" />
 </div>
 
 
@@ -279,7 +384,7 @@ UninstallPKG 1.1.9  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314924.jpg" />
+  <img src="Z:/picture/008/save_picture_314924.jpg" />
 </div>
 
 
@@ -307,7 +412,7 @@ Meta 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314713.jpg" />
+  <img src="Z:/picture/008/save_picture_314713.jpg" />
 </div>
 
 
@@ -334,7 +439,7 @@ Script Debugger 7.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314679.jpg" />
+  <img src="Z:/picture/008/save_picture_314679.jpg" />
 </div>
 
 
@@ -362,7 +467,7 @@ Paw 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314547.jpg" />
+  <img src="Z:/picture/008/save_picture_314547.jpg" />
 </div>
 
 
@@ -388,7 +493,7 @@ ProFind 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314503.jpg" />
+  <img src="Z:/picture/008/save_picture_314503.jpg" />
 </div>
 
 
@@ -414,7 +519,7 @@ EdgeView 2 v2.825 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314501.jpg" />
+  <img src="Z:/picture/008/save_picture_314501.jpg" />
 </div>
 
 
@@ -440,7 +545,7 @@ AudioSwitcher 2.99.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314452.jpg" />
+  <img src="Z:/picture/008/save_picture_314452.jpg" />
 </div>
 
 
@@ -466,7 +571,7 @@ QLab Pro 4 v4.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314449.jpg" />
+  <img src="Z:/picture/008/save_picture_314449.jpg" />
 </div>
 
 
@@ -492,7 +597,7 @@ iFinance 4.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314444.jpg" />
+  <img src="Z:/picture/008/save_picture_314444.jpg" />
 </div>
 
 
@@ -518,7 +623,7 @@ Easy New File 4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314373.jpg" />
+  <img src="Z:/picture/008/save_picture_314373.jpg" />
 </div>
 
 
@@ -544,7 +649,7 @@ Polarr Photo Editor 3.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314357.jpg" />
+  <img src="Z:/picture/008/save_picture_314357.jpg" />
 </div>
 
 
@@ -573,7 +678,7 @@ AirRadar 5 v5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314338.jpg" />
+  <img src="Z:/picture/008/save_picture_314338.jpg" />
 </div>
 
 
@@ -586,118 +691,6 @@ AirRadar - приложение для сканирования WiFi сетей 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E755CB66078B241280BFF7642D9CB438490A8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076435   (314311) от 25.11.2016
-
-Yummy FTP Pro 1.11.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yummy FTP - “вкусный клиент” для ФТП
-Один из лучших фтп клиентов для Mac OS X со “вкусным” названием Yummy FTP. Придется по вкусу многим. И на самом деле, программа замечательна, удобна и полна “вкусностей”. Вполне достаточно взглянуть на список наиболее интересных:
-	•	возможность подключаться по FTP, FTPS и SFTP
-	•	ftp-ярлыки — загружайте файлы простым перетаскиванием (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2916790BE6BD312665D4DF213D531D0894AAF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332463   (314271) от 20.10.2019
-
-iMac Cleaner 2.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314271.jpg" />
-</div>
-
-
-###  Подробнее
-
-iMac Cleaner позволяет вам безопасно сканировать и очищать всю систему Mac, удалять ненужные файлы и дубликаты файлов, уменьшать размер библиотеки iPhoto, удалять ненужные приложения, уничтожать файлы, управлять элементами автозагрузки, извлекать архивы RAR, сохранять Winmail.dat и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Elimisoft Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A833AE2C9748BBF2CEFB3557B8E2EC3D7FEFA52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959742   (314260) от 25.11.2015
-
-Audirvana Plus 2.2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями.
-Преобразование частоты дискретизации происходит при помощи Sound Forge iZotope 64-Bit SRC. Если в кратце — это гибридный низкочастотный фильтр, который обеспечивает полное сохранение качества при переводе цифрового звука из одной частоты дискретизации в другую.
-
-Особенности и преимущества:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 ноября 2015Разработчик: AudirvanaПоддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FD226FE47D581AD2E5763E5528EB7F697E30AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076265   (314226) от 25.11.2016
-
-iFlicks 2 v2.4.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как добавить и смотреть фильмы в iTunes, iPhone или iPad? Используйте iFlicks 2! Добавьте метаданные к фильмам и сериалам и ваша медиатека будет выглядеть просто шикарно. Управление вашей видео коллекцией еще никогда не было такой удобной.
-
-iFlicks — это метаданные к сериалам и фильмам. При помощью добавления метаданных iFlicks поможет сделать вашу iTunes библиотеку (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: Jendrik BertramПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0364A1983B76A40072C9414B352EA90C84A5D55D
 ```
 
 https://mybot314.ru/tekegram_catalog/

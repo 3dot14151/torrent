@@ -1,3 +1,111 @@
+###  Публикация: 985626   (932049) от 13.02.2016
+
+Ученые обнаружили сотни новых галактик, скрывавшихся позади Млечного Пути
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые-астрономы, работающие на радиотелескопе Паркса австралийского Национального исследовательского агентства CSIRO (Commonwealth Science and Industrial Research Organisation), который недавно был оборудован новым высокочувствительным приемником, обнаружили сотни галактик, которые достаточно долго "скрывались" позади нашей собственной галактики, галактики (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364948   (931802) от 06.03.2020
+
+Очередное достижение: 4000 релизов от vilator!!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от vilator!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!От всей души поздравляем
+vilator
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!
+Все любители электронной музыки знают его уникальные релизы! Это тот случай, когда количество и качество в одном флаконе!
+ Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986203   (931577) от 13.02.2016
+
+Мафия: Игра на выживание (2015) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва. Далекое будущее. Карточная игра МАФИЯ стала самым популярным в мире телешоу. Одиннадцать человек соберутся за столом, чтобы выяснить — кто из них Мирный Житель, а кто безжалостная МАФИЯ. На глазах всего мира готовится коктейль из эмоций и чувств: хитрости, страха, лжи, ненависти, презрения, боли, гордости, страсти, любви и смерти. Ведь выигравший в схватке (   Читать дальше...   )Производство: РоссияЖанр: Фантастика, боевикРежиссер: Сарик АндреасянАктеры: Виктор Вержбицкий, Вениамин Смехов, Юрий Чурсин, Вячеслав Разбегаев, Ольга Тумайкина, Андрей Чадов, Вадим Цаллати, Виолетта Гетманская, Наталья Рудова, Евгений КоряковскийПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:30:40Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E4517937B881435C48F43D3876E181F5317B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986302   (931571) от 13.02.2016
+
+Microsoft Office Picture Manager 2010 14.0.4750.1000 RePack by SPecialiST [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с изображениями из пакета Microsoft Office 2010. При создании презентаций периодически возникает потребность предварительно обработать изображения, изменив их в соответствии с задачами презентации. Для значительных преобразований картинок требуются профессиональные графические редакторы. Например, Photoshop. Однако и пользоваться ими достаточно (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597EE15DEAE16844515D0D5B12993B71F493E4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907242   (931569) от 13.02.2016
 
 Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack =nemos=
@@ -6,7 +114,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931569.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931568.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ Q4OS 1.8.2 (Легкий дистрибутив) [Trinity - форк KDE 3.5]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931477.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931472.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Microsoft Windows x86 x64 Plus PE StartSoft 03-2017 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931469.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ Call of Duty (2004) [Ru] (1.5/dlc) Repack =nemos= [Gold edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931466.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930275.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930120.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930113.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929872.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929840.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929837.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ World of Warcraft (2004) [En] (1.12.1) Official
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929823.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ Adobe Illustrator CC 2017.0.2 21.0.2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929821.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929660.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929590.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ Profileschool | Творческая Ретушь Vol.2 (2014) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929578.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929567.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ Pinnacle Studio 16 Ultimate 16.1.0.115 VPP 2013 (58.2GB) [MULTi / Русский
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929518.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929334.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928560.jpg" />
 </div>
 
 
@@ -557,7 +665,7 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928558.jpg" />
 </div>
 
 
@@ -568,112 +676,6 @@ Middle-earth: Shadow of War / Средиземье: Тени войны (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE266603EBBB0B6B3DA215231706E76DB3A594A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984924   (928543) от 15.02.2016
-
-М.П. Кулакова, М.М. Кулакова (ред.) | Библия [Книги Священного Писания Ветхого и Нового Завета в современном русском переводе] (2015) [DJVU, FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание нового русского перевода Библии — совместный проект ББИ и Института перевода Библии в Заокском.
-Новый перевод осуществлялся под эгидой Института перевода Библии в Заокском группой ведущих российских ученых – библеистов и филологов, принадлежащих разным христианским конфессиям. Именно этот совместный труд дал возможность сделать перевод свободным от узко-конфессиональных (   Читать дальше...   )Жанр: Духовная литератураФормат: DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2719684AC9BEE16034EAA82074D7FA3197AE088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986874   (928431) от 15.02.2016
-
-Самый лучший день (2015) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешному сотруднику ДПС Пете Васютину уже давно пора заводить семью, а он живет с мамой, хозяйкой придорожного кафе. И невеста есть - королева бензоколонки, кассирша Оля. В тот самый день, когда Петя решает сделать Оле предложение, в его служебную машину врезается пьяная поп-звезда Алина Шёпот. Чтобы избежать наказания, Алина решает соблазнить Петю...Производство: Россия / Базелевс ПродакшнЖанр: комедия, музыкаРежиссер: Жора КрыжовниковАктеры: Дмитрий Нагиев, Юлия Александрова, Ольга Серябкина, Инна Чурикова, Михаил Боярский, Елена Яковлева, Владислав Ветров, Валентина Мазунина, Ян Цапник, Андрей МалаховПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC3D9D44B270431B35F06895A83BB3573A0560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903022   (928422) от 15.02.2016
-
-Wolfenstein The Old Blood (2015) [Ru/Multi] (1.0.0.1464/upd1) Repack =nemos=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfenstein: The Old Blood – приквел знаменитого приключенческого боевика от первого лица. В этом самостоятельном дополнении к Wolfenstein: The New Order, под завязку наполненном адреналиновыми перестрелками, вас ждет совершенно новая история и фирменный игровой процесс Wolfenstein. На дворе 1946 год, и нацисты вот-вот выиграют Вторую мировую войну. Чтобы переломить (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: Action (Shooter), Add-on (Standalone), 3D, 1st PersonЯзык озвучки: Английский, Французский, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E745FC56D065AEBF02B9BB31CBF895DE246F265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038566   (928398) от 18.01.2017
-
-Экипаж (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928398.jpg" />
-</div>
-
-
-###  Подробнее
-
-История талантливого молодого летчика Алексея Гущина. Он не признает авторитетов, предпочитая поступать в соответствии с личным кодексом чести. За невыполнение абсурдного приказа его выгоняют из военной авиации, и только чудом он получает шанс летать на гражданских самолетах.
-Гущин начинает свою летную жизнь сначала. Его наставник - командир воздушного судна - суровый (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: Драма, Приключения, ТриллерРежиссер: Николай ЛебедевАктеры: Данила Козловский, Владимир Машков, Агне Грудите, Сергей Кемпо, Катерина Шпица, Сергей Шакуров, Сергей Газаров, Елена Яковлева, Алёна Бабенко, Сергей Романович, Ксения Георгиади, Ирина ЛачинаПеревод: Не требуетсяПродолжительность: 02:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248B060EAD6DCAEB18289C3098C92CE850CB2BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

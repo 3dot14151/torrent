@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861300   (1062575) от 
+
+NVIDIA GeForce Desktop Game Ready 595.97 WHQL + DCH [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Драйверы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062575.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FCE3F55FE5FA646727504EE6DBBE781A31ABD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858737   (1060545) от 12.03.2026
 
 NVIDIA GeForce Desktop Game Ready 595.79 WHQL + DCH [Multi/Ru]
@@ -7,7 +33,7 @@ NVIDIA GeForce Desktop Game Ready 595.79 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060545.jpg" />
+  <img src="Z:/picture/005/save_picture_1060545.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ NVIDIA GeForce Desktop Studio 595.79 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060439.jpg" />
+  <img src="Z:/picture/009/save_picture_1060439.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ MCS Drivers Disk 26.2.3.2193 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060233.jpg" />
+  <img src="Z:/picture/009/save_picture_1060233.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ NVIDIA GeForce Desktop Game Ready 595.71 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059278.jpg" />
+  <img src="Z:/picture/005/save_picture_1059278.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ SamDrivers 26.2 Mini - Сборник драйверов для Windows [Multi/R
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057675.jpg" />
+  <img src="Z:/picture/005/save_picture_1057675.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ SamDrivers 26.2 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057130.jpg" />
+  <img src="Z:/picture/005/save_picture_1057130.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ SamDrivers 26.2 Expert [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057127.jpg" />
+  <img src="Z:/picture/005/save_picture_1057127.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ SamDrivers 26.2 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057121.jpg" />
+  <img src="Z:/picture/005/save_picture_1057121.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ NVIDIA GeForce Desktop Game Ready 591.86 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056468.jpg" />
+  <img src="Z:/picture/005/save_picture_1056468.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ NVIDIA GeForce Desktop Studio 591.74 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051239.jpg" />
+  <img src="Z:/picture/005/save_picture_1051239.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ NVIDIA GeForce Desktop Studio 591.44 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047277.jpg" />
+  <img src="Z:/picture/005/save_picture_1047277.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ NVIDIA GeForce Experience 3.23.0.74 Final [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009495.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ X7 5-Mode Wireless for R4 (H8GR4) mouse V11.09V02 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008256.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999015.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Windows XP & 7 Drivers x32/x64 Update 31.12.2014 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958264.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Intel Chipset Device Software 10.1.1.42 WHQL [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925471.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ SPTD 2.11 (x86/x64) [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850033.jpg" />
+  <img src="Z:/picture/008/save_picture_850033.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Raxco PerfectUpdater 2.0.651.18068 [En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847798.jpg" />
+  <img src="Z:/picture/008/save_picture_847798.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752359.jpg" />
+  <img src="Z:/picture/005/save_picture_752359.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ My Drivers Professional 5.1 Build 3808 RePack by Trovel [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656179.jpg" />
+  <img src="Z:/picture/008/save_picture_656179.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649009.jpg" />
+  <img src="Z:/picture/008/save_picture_649009.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646898.jpg" />
+  <img src="Z:/picture/008/save_picture_646898.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Logitech SetPoint 6.67.83 [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493449.jpg" />
+  <img src="Z:/picture/008/save_picture_493449.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ SamDrivers 22.7 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457056.jpg" />
+  <img src="Z:/picture/008/save_picture_457056.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Easy DriverPack 6.5.2015.0915 [Ru/En]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441811.jpg" />
+  <img src="Z:/picture/008/save_picture_441811.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ Easy DriverPack 6.5.2015.0915 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA741C557122B3EB23EE1E1D3AA40B6E15AEB164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561367   (405383) от 19.10.2012
-
-Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bit n/a [Русский]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_405383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный диск шел в комплекте с ноутбуком SAMSUNG NP300E5X-U01RU.Сделал iso-образ и выложил.Название программы: Драйвера для ноутбуков Samsung серий 300E4X/300E5X/3431EX-DOS (System Software Media) for WINDOWS 7 32bit-64bitЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

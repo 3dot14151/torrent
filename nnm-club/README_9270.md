@@ -1,392 +1,24 @@
-###  Публикация: 1535908   (682171) от 08.03.2022
+###  Публикация: 1029062   (684540) от 25.06.2016
 
-Дизайн Календарей 16.5 RePack (& Portable) by elchupacabra [Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн Календарей - это доступная и удобная программа для создания красивых календарей с фотографиями на любой год или месяц. Достаточно выбрать формат и оформление проекта, добавить фотографии - и получить превосходный результат. Программа позволяет подготовить сотни вариантов календарей в самых разных стилях: классическом и современном, строгом или изящном, деловом (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535722   (682170) от 08.03.2022
-
-Джеймс Гриффитс | Великий Китайский Файрвол (2022) [EPUB]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что вы оказались в мире без интернета. Некуда загрузить фотографию, не с кем поделиться смешной картинкой, негде быстро получить нужную информацию. Кажется, что сегодня такое практически невозможно, но иногда это результат единственного решения и нескольких нажатий на кнопку. Интернет начинался как развиваемый энтузиастами островок свободы, но с тех (   Читать дальше...   )Жанр: Интернет, Публицистика, БезопасностьФормат: EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535829   (682169) от 08.03.2022
-
-Борис Романовский | "Арчи" Книга 2. Кровавый Огранец (2022) [MP3, Дмитрий Кузнецов]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я умер. И проснулся в ином мире, где есть Огранённые и Чернокнижники, чакра и узоры. Где люди живут в защищённых городах и вечно воюют с гулями.
-Теперь я – Арчи из клана Беловых – одного из сильнейших в Великом Городе Петербурге.
-И я смертельно болен – моё время ограничено.
-Но я найду способ, как продлить свою жизнь. И в этом мне поможет Алиса – чип с ИИ, который (   Читать дальше...   )Жанр: Боевое фэнтези, попаданцыПродолжительность: 11:50:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535853   (682168) от 08.03.2022
-
-Е.М. Лаврищева | Программная инженерия и технологии программирования сложных систем (2022) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682168.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем учебнике подробно рассмотрена история отечественной технологии программирования, теоретические ее аспекты и парадигмы программирования: модульная, объектно-компонентная и сервисная, а также методы разработки в них отдельных элементов, их сборки в систему с проведением верификации, тестирования систем и оценки качества, обозначены перспективы развития (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289767   (682167) от 18.03.2019
-
-Ray Brown - Ultimate Ray Brown Selected by Christian McBride (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solo for Unaccompanied Bass [2:32]
-02. Tricotism [3:57]
-03. Tangerine [3:20]
-04. Much in Common [3:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5089168AEBDBE6499A5FE9A2E37619763551D831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289773   (682166) от 18.03.2019
-
-Dizzy Gillespie - Four Classic Albums (1954 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682166.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dizzy's Blues [11:53]
-02. School Days [5:40]
-03. Dizzy Speaks [0:48](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FA44F40511FAC1607EC5335C93FC1F5B6DFB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290030   (682165) от 18.03.2019
-
-Janet Seidel - The Way You Wear Your Hat (1998) 2CD, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682165.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lazy River [4:04]
-02. Pick Yourself Up [3:00]
-03. My One and Only Love [6:55](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F2712B92BC963173576BC300EE19CC611BCAB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289946   (682164) от 18.03.2019
-
-Fever Feel - Fever Feel (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spitting Silver (3:57)
-02. Lose Your Mind (3:53)
-03. Far Beyond the Path You See (5:23)
-04. Who Are You? (1:48)(   Читать дальше...   )Жанр: Rock, Indie, PopПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E910B1C71D47255D82497AAF85EFA15C8F1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289766   (682163) от 18.03.2019
-
-Ray Brown - Something For Lester (1977) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ojos de Rojo [5:16]
-02. Slippery [7:27]
-03. Something in Common [4:49]
-04. Love Walked In [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49372CEDC20189EE668E27D0FA9AE6DFEAC748B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290025   (682162) от 18.03.2019
-
-Janet Seidel - Little Jazz Bird (1990, 1992) 1994, La Brava Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September in the Rain [2:29]
-02. 42nd Street [3:12]
-03. Embraceable You [4:00]
-04. Skylark [4:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BFF2AA6FA8357DDC730F9355F70D562F35B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290032   (682161) от 18.03.2019
-
-Ninna Milner - Songs For Sentient Beings (2016) WiMi [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Be Your Favorite Song [3:44]
-02. Back to Wellington [3:45]
-03. Wednesday in October [4:34]
-04. Dear Humans [6:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3A1B1D292710DC623B3C5D3037A326FB09F600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289981   (682160) от 18.03.2019
-
-VA - House Arena Vol.6 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coco Fay - Paradise (Radio Edit) 3:28
-02. Depdramez - Used To Lie (Original Mix) 3:25
-03. Sunrider - Missing You (Radio Edit) 3:31
-04. Housecrusherzzz - Not Too Late (Funky House Brothers Edit) 4:41(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D64B3D9C161E57F1977BE5DEF995D0111C2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290027   (682159) от 18.03.2019
-
-Janet Seidel - The Art of Lounge 3 (2005) Musictronic Lounge [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonglow [3:40]
-02. If They Asked Me I Could Write a Book [2:16]
-03. Always [4:01]
-04. Midnight Sun [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2D53273D3E2E77C749ED0386F0C8E15755E508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290085   (682158) от 18.03.2019
-
-Lucy - Dyscamupia (2019) Stroboscopic Artefacts [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682158.jpg" />
+  <img src="Z:/picture/008/save_picture_684540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dyscamupia (Forward) (12:41)
- 02. Dyscamupia (Paused) (05:44)
- 03. Dyscamupia (Backward) (07:46)Жанр: TechnoПродолжительность: 00:26:11
+01. Sad Robot (Rich Lane remix) (07:38)
+02. Sad Robot (D-Nox & Beckers remix) (08:24)
+03. Sad Robot (Alejo Gonzalez & Max Blade remix) (07:32)Жанр: Deep House, Tech HouseПродолжительность: 00:23:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:903C32BB50B9B6E8A94CF8519615F6EF75C2012F
+magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,28 +26,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290110   (682157) от 18.03.2019
+###  Публикация: 1029235   (684539) от 25.06.2016
 
-VA - German Top 50 Party Schlager Charts 18.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+Право знать! (25.06.2016) SATRip
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682157.jpg" />
+  <img src="Z:/picture/008/save_picture_684539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:27
+"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:12:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1665B035296BBDEB02CAA3CE7A5B924D55F986F0
+magnet:?xt=urn:btih:A44EFBC9727F228D2FBF25155A714C01454018ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,28 +52,252 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289873   (682156) от 18.03.2019
+###  Публикация: 1029234   (684538) от 25.06.2016
 
-Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Rock>
+MiniNote Pro 5.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684538.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro - удобные заметки
+MiniNote Pro - очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+
+ В версии Pro можно воспользоваться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02.06.2016Разработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7252AEDBB4BC4C95D3AFCBA1EEA7B1FF2E38E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029164   (684537) от 25.06.2016
+
+VA - 85 Dance Summer Hits (2016) [MP3|254-320 кб/с] <House, Trance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Moss & Gandalf Bosch -  Wanted (Extended Version) 5:21
+02. Finger & Kadel -  Kalinka (Radio Edit) 3:20
+03. Ferry Sander feat. Eira G -  Stay 3:30
+04. Jorn Van Deynhoven -  We Can Fly (Extended Mix) 6:52(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0703641931CD79A43686C374136739A1512A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028988   (684536) от 25.06.2016
+
+Gloomy Grim - The Age Of Aquarius (2016) [MP3|320 кб/с] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684536.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Rise Of The Great Beast
+2. Germination
+3. A Lady In White
+4. Beyond The Hate(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C648C854D249ED61EC7A6A3A19123689E6BD181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029151   (684535) от 25.06.2016
+
+Владимир Фурзиков | Айзюлю быть?.. (2008) [DOC]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сие ”Письмо…” было отправлено частным порядком королю Швеции Карлу XVI Густаву восемь лет назад. Основная тема - проблема айзюля (политического убежища) для иностранцев в Европе. Ответа не последовало, и через полгода после небольшой корректуры тот же текст был разослан в Парламент, во все ведущие газеты и основные политические партии. Снова официальной реакции не (   Читать дальше...   )Жанр: Политика, История, ПублицистикаФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4341C416D5BF5502397C95FDE0F3874477727DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029003   (684534) от 25.06.2016
+
+VA - The Ladies Of Jazz (1997) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah Washington - Mad About The Boy (2:50)
+ 02. Sarah Vaughan - My Favourite Things (2:46)
+ 03. Astrud Gilberto - The Girl From Ipanema (3:18)
+ 04. Nina Simone - I Loves You Porgy (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E647C918ECB9DE47762254F7FDBB1D974FC22E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029217   (684533) от 25.06.2016
+
+Постскриптум с Алексеем Пушковым (25.06.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: 22 июня - как усвоен главный урок начала войны? Brexit - что изменится после референдума в Великобритании? Специальный репортаж из Лондона. Свобода слова, или свобода лжи - информационная война против России. А также... Наш ответ на санкции - сумели ли наши сельхозпроизводители использовать свой шанс? Германия - дружить или враждовать с Россией? Какой подход возьмёт (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40415BCB1CE56F4BA334AA16B48EBCE68249BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029011   (684532) от 25.06.2016
+
+Журнал | Тайны и загадки №13 (июнь 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исторические сенсации, скандальные расследования, загадочные артефакты, а также сверхъестественное, мистическое, непознанное для тех, кто привык быть в курсе самой интересной информации.
+Собственный скан.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E597B75A6860DD6A80F86639A5FA7CD161556B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028980   (684531) от 25.06.2016
+
+Natalia - In My Blood (2016) [FLAC|Lossless|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Anyone Out There 3:38
+02 In My Blood 3:32
+03 Julie In The Meantime 3:41
+04 Sabotage 3:43(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CF8D27492E4F9E435583AF9F145378C3312A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404152   (684530) от 23.08.2020
+
+Taraxacum - Rainmaker (2003) [APE|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682156.jpg" />
+  <img src="Z:/picture/008/save_picture_684530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Falling Away
-02 - City Of Angels
-03 - Heartbeat
-04 - Burning(   Читать дальше...   )Жанр: Love, Gothic RockПродолжительность: 00:43:09
+01. Disfunctional 04:02
+02. Prayer In Unison 04:22
+03. Rainmaker 04:32
+04. Never to Return 04:24(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62FE67F94039AD1C12F4F02926480CD45DA17F4C
+magnet:?xt=urn:btih:4F27B0AE5514F9344764323D4738EFF669A11128
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,27 +305,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 675961   (682148) от 05.07.2013
+###  Публикация: 1404171   (684529) от 23.08.2020
 
-BitDefender Antivirus Free Edition 1.0.16.1026 [English]
+Saurom Lamderth - Legado de juglares (2004) 2CD [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal, Heavy Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682148.jpg" />
+  <img src="Z:/picture/008/save_picture_684529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bitdefender Antivirus Free Edition - бесплатный антивирус, использующий вирусные сигнатуры и проактивные технологии Bitdefender для защиты от новых и неизвестных угроз в режиме реального времени.
-
-Функциональность и эффективность полноценных платных решений позволяет надежно защищать компьютер от вредоносных программ, сетевых угроз, мошеннических и фишинговых веб-сайтов.
-
-Расплата за бесплатность - отсутствие возможности настраивать защиту под определенный уровень безопасности. В то же время, это делает решение простым и легким в использование для рядовых пользователей компьютера. Бесплатный антивирус Bitdefender не требует технических знаний для настройки защиты - все компоненты работают на оптимальном уровне безопасности.
-
-Bitdefender Antivirus Free Edition - быстрый, эффективный бесплатный антивирус, с автоматической защитой, с простым и удобным интерфейсом, который предлагается без надоедливой рекламы.Язык интерфейса: English
+01. Canto das Sireas (2005 Version) (04:39)
+02. El Arquero del Rey (2005 Version) (04:02)
+03. La Taberna (Single Version) (04:04)
+04. Las Minas de Moria (Cyborgdrive Version) (06:03)(   Читать дальше...   )Жанр: Power Metal, Folk Metal, Heavy MetalПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4C7EDEFFCA92B3A839B3FB58863F44746728B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404009   (684528) от 23.08.2020
+
+Ages - Uncrown (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Them (04:50)
+02. Illicit State (04:35)
+03. Herolds Of Enslavement (04:56)
+04. A Hollow Tomb (04:58)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C1C549C69DA722CB4CDB407F4A7F51DFFAA147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404143   (684527) от 23.08.2020
+
+Марина Аромштам | Плащ крысолова (2014) [FB2, EPUB, MOBI]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_684527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках очень необычную книгу – книгу о том, что у крыс и людей издавна были свои непростые, но действительно важные отношения. Порой настолько важные, что крыса могла спасти человеку жизнь или же, наоборот, принести несчастье целому народу. В своей новой книге Марине Аромштам на удивление точно удалось передать атмосферу Палестины времён крестовых походов (   Читать дальше...   )Жанр: Детская литература/Приключения/СказкаФормат: FB2, EPUB, MOBI
 
 ## Скачать торент
 ```bash
@@ -484,28 +389,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029195   (682135) от 26.06.2016
+###  Публикация: 1404154   (684526) от 23.08.2020
 
-Grant Green & Baby Face Willette - Trio/Quartet: Complete Recordings (1961) 2CD, 2014, American Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+Sinister - The Blood Past (2009) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682135.jpg" />
+  <img src="Z:/picture/008/save_picture_684526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01.Miss Ann's Tempo [05:43]
-02.Lullaby Of The Leaves [07:45]
-03.Blues For Willarene [07:11](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:35:05
+01 - Compulsory Resignation
+02 - Perpetual Damnation
+03 - Compulsory Resignation
+04 - Spiritual Immolation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCF951CCD6E25E67A98C9C43742836D62145C267
+magnet:?xt=urn:btih:95CB457335E2300B2CE99BEDEFD01A412403E0E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,28 +418,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028764   (682134) от 26.06.2016
+###  Публикация: 1134729   (684517) от 17.05.2017
 
-VA - Siddharta: Spirit Of Buddha Bar Vol. 2 (Mixed by Ravin) (2003) 2CD [FLAC|Lossless|image + .cue] <Electronic, Downtempo, Tribal House>
+Проекты - Motion Array - Stomp 2 - 34200 [AEP]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682134.jpg" />
+  <img src="Z:/picture/008/save_picture_684517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Bliss - Sleep Will Come 05:39
-02.Afterlife- Speck Of Gold 05:31
-03.Ratnabali - Breeze (Baul Dimension & Murphy Remix) 03:56
-04.Cirque Du Soleil - A Tale-Bliss (Munchausen Mix) 04:28(   Читать дальше...   )Жанр: Electronic, Downtempo, Tribal HouseПродолжительность: 02:29:46
+Stomp 2 - энергичный и вдохновляющий шаблон для After Effects. Динамичная и ритмичная анимация быстрые и четкие переходы. В Вашем распоряжении 23 заполнителя для фото или видео, 32 заполнителя для текста, один для логотипа. Шаблон очень легко редактировать и настраивать. Создайте свой видеоролик в стиле фанк уже сегодня!Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B69E409DEB7B31DF5993BC29E199EA02CD840A06
+magnet:?xt=urn:btih:61DD34C4F6A35CA017259D551366C9F43FCA2F01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029281   (682133) от 26.06.2016
+###  Публикация: 1135098   (684515) от 17.05.2017
 
-Alle Farben - Music Is My Best Friend (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+Wise Registry Cleaner Pro 9.44.616 RePack by вовава [Ru/En]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682133.jpg" />
+  <img src="Z:/picture/008/save_picture_684515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Intro    01:56
-02.  Please Tell Rosie    02:52
-03.  Bad Ideas    02:46
-04.  Remember Yesterday    03:10(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:47:35
+Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2173B1D8F660D96EBEEAFC44C536782AC773903B
+magnet:?xt=urn:btih:3A17C7708F43E24F06EE61A1051385D159F83F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +470,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028685   (682132) от 26.06.2016
+###  Публикация: 1135080   (684513) от 17.05.2017
 
-Владимир Орлов | Трактат о вдохновенье, рождающем великие изобретения (1980) [DJVU, PDF]
+HWiNFO x32/x64 5.50-3130 + Portable [En]
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682132.jpg" />
+  <img src="Z:/picture/008/save_picture_684513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это не учебник, не учебное пособие по изобретательству. Это научно-художественная книга о человеческой мысли, изменяющей мир, в котором мы живем, творящей, по словам К. Маркса, "вторую природу". Размышляя о том, как рождаются изобретения, автор наряду с историческим материалом, относящимся к временам стародавним, привлекает также и собственные живые впечатления (   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU, PDF
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жесткие диски, сетевые карты, адаптеры, показания датчиков и т.д.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CE1CAFEE51A0CF6AF8607B49DC6878BF6897337
+magnet:?xt=urn:btih:C257DC6B23173DFDE0AA622FED402700B0F6C1C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,51 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029284   (682131) от 26.06.2016
+###  Публикация: 1134992   (684511) от 17.05.2017
 
-Василий Ян | Голубая сойка Заратустры,Ватан,Демон горы и др.рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавая свои произведения Ян, зачастую следовал убеждению, что героические личности «должны быть не такими, какими они были в действительности, а какими они должны быть, чтобы стать идеалом, должны возвышаться над остальными, показанными реалистично. Писателю удаётся показать сложность человеческой судьбы и отсутствие деления на своих и чужих.Жанр: Русская классикаПродолжительность: 04:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F08FA6827FFCA9284F0F24C44893CC88BED569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029308   (682130) от 26.06.2016
-
-Борис Лего | Сумеречные рассказы [сборник] (2016) [FB2]
+Ольга Пашнина, Валерия Тишакова | Учеба до гроба (2017) [FB2]
 
 >>Художественная литература
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682130.jpg" />
+  <img src="Z:/picture/008/save_picture_684511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это страшная книга. Ее герои долго смотрели в бездну, и теперь бездна стала всматриваться в них. Готовы ли вы из любопытства тоже заглянуть – в них и в нее? 19 демонов из средневекового трактата, сожженного инквизицией, вышли на свободу. И они жаждут славы! 19 рассказов в стиле русской готики, лишенной крыльев упадочного романтизма и оттого столь беспощадной и суровой, (   Читать дальше...   )Жанр: Ужасы и МистикаФормат: FB2
+Первый роман цикла «Академия смертей».
+
+Неприятности начались, когда их совсем не ждали. Я-то была уверена, что закончила учебу в Академии смертей. Но мой дипломный проект прямо во время защиты… восстал из мертвых и сбежал!
+И теперь, чтобы стать дипломированной смертью, мне надо не только вернуть свою работу на полагающееся ей место, но и оторвать руки тому, кто (   Читать дальше...   )Жанр: Героическая фантастика, Юмористическое фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D326135C0D8EE2494A8518FBCFDAB93F1FB2F49
+magnet:?xt=urn:btih:BC73F3105168F7370DD485A54A0DE7235CF38AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,25 +525,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029418   (682129) от 26.06.2016
+###  Публикация: 1135054   (684509) от 17.05.2017
 
-Смешанные единоборства. Bellator 157: Dynamite 2. Main card. (24.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Internet Download Manager 6.28 Build 10 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682129.jpg" />
+  <img src="Z:/picture/008/save_picture_684509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные бои турнира "Bellator 157: Dynamite 2", прошедшего 24 июня 2016 года в "Арена Scottrade Center", Сент-Луис, США.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Я. Баранчук и А. Володин)Продолжительность: 02:37:42
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58557E17F9D065056837981C6089C2E94EB5ED2E
+magnet:?xt=urn:btih:AC9C24BF3C6847DEC5D0499EFC4A9CC0184E746D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,28 +551,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029434   (682128) от 26.06.2016
+###  Публикация: 1134861   (684505) от 17.05.2017
 
-VA - Around the World - Hit 90's (2016) [MP3|320 кб/с] <Pop>
+D.O.A.: Живым или мертвым / DOA: Dead or Alive (2006) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тина, Кристи, Касуми и Хелена отменно владеют азиатскими боевыми искусствами. Особенно их коллег мужского пола впечатляет даже не яркая сексуальность каждой из девушек, а сила, которой пронизана каждая из них. В один прекрасный день соперницы получают приглашение посетить тайное состязание по боевым искусствам под названием "Dead or Alive" ("Живым (   Читать дальше...   )Производство: США, Германия / Constantin Film Produktion GmbH, Impact Pictures, Mindfire EntertainmentЖанр: Боевик, ПриключенияРежиссер: Кори ЮэньАктеры: Джейми Прессли, Девон Аоки, Холли Вэлэнс, Сара Картер, Наташа Мальте, Кейн Косуги, Мэттью Мэрсден, Эрик Робертс, Стив Хоуи, Робин ШоуПеревод: Дублированный (R5)Субтитры: Русские, Украинские, АнглийскиеПродолжительность: 01:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51A678F334B22661D5F262363D15B07A0F359CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135014   (684503) от 17.05.2017
+
+Stardock Start10 1.55 RePack by D!akov [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682128.jpg" />
+  <img src="Z:/picture/008/save_picture_684503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Temple of the Dog - Wooden Jesus
-02. Foo Fighters - Everlong
-03. 2 Unlimited - Twilight Zone
-04. The Cure - Lullaby(   Читать дальше...   )Жанр: PopПродолжительность: 08:05:34
+Stardock Start10 – утилита, предназначенная для применения классического стиля меню "Пуск" и проводника Windows 7 в ОС Windows 10. Поддерживает скины, имеет полностью настраиваемый интерфейс и обладает высокой функциональностью.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CE1CF3224838569814CC1F269C614206AD9442C
+magnet:?xt=urn:btih:10C0ED147A18687CC161FC34114EF8CA84C4B1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,25 +603,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029518   (682127) от 26.06.2016
+###  Публикация: 1134730   (684501) от 17.05.2017
 
-Экшены - GraphicRiver - 3 Most Wanted Actions Bundle - 11426166 [ATN]
+Проекты - VideoHive - Titles - 19843723 [AEP]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Проекты
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682127.jpg" />
+  <img src="Z:/picture/008/save_picture_684501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Most Wanted Actions Bundle - сборник из трёх экшенов для Вашего творчества.Формат: ATN
+Пакет из 20 анимированных дизайнерских титров для корпоративных презентаций.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6CDC57720722AEBF10902D3F1D052ADE444AE53
+magnet:?xt=urn:btih:061E3EC09AE8F697BBF5E254FFD26E33ACD51BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134952   (684499) от 17.05.2017
+
+Windows 10 Manager 2.1.0 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Manager - программа-оптимизатор все в одном, полное решение для отличной оптимизации, продуманной настройки и качественной очистки операционных систем Windows 10. Программа включает более 30 утилит которые улучшают и ускоряют работу системы, повышают её стабильность, устойчивость и безопасность. Windows 10 Manager позволяет получить доступ к нескольким (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0ECB0706F62C97C9102D08E407E1D5986AC5260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134487   (684497) от 17.05.2017
+
+Java code geeks | Docker Containerization Cookbook (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Docker является ведущей в мире платформой для программной платформы для программного обеспечения. Контейнеры докера обертывают часть программного обеспечения в полную файловую систему, которая содержит все необходимое для запуска: код, время выполнения, системные инструменты, системные библиотеки - все, что может быть установлено на сервере. Это гарантирует, что (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADED70D6929929011ABA0AB4294DA924722F3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134640   (684495) от 17.05.2017
+
+Современное искусство - The Art of Javier Arizabalo [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684495.jpg" />
+</div>
+
+
+###  Подробнее
+
+С величайшим удовольствием представляю вам фото-реалистичные картины художника Хавьера Аризабало. Хавьер родился во Франции в 1965 году. Его страсть к искусству привела его в Испанию, где он учился и получил степень в Школе изящных искусств в Бильбао. Аризабало работает в очень реалистичном стиле, изучая падение света на человеческое тело. Картины Аризабало просты (   Читать дальше...   )Формат: JPGРазрешение файлов: от 414х699 до 720х1149
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3B969088CD12B2C96789285FA418F039ACD9B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

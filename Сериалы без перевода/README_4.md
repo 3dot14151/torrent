@@ -6,7 +6,7 @@
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478418.jpg" />
+  <img src="Z:/picture/008/save_picture_478418.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475964.jpg" />
+  <img src="Z:/picture/008/save_picture_475964.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471547.jpg" />
+  <img src="Z:/picture/008/save_picture_471547.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471537.jpg" />
+  <img src="Z:/picture/008/save_picture_471537.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462012.jpg" />
+  <img src="Z:/picture/008/save_picture_462012.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459203.jpg" />
+  <img src="Z:/picture/008/save_picture_459203.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459135.jpg" />
+  <img src="Z:/picture/008/save_picture_459135.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459122.jpg" />
+  <img src="Z:/picture/008/save_picture_459122.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459028.jpg" />
+  <img src="Z:/picture/008/save_picture_459028.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459026.jpg" />
+  <img src="Z:/picture/008/save_picture_459026.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459025.jpg" />
+  <img src="Z:/picture/008/save_picture_459025.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459024.jpg" />
+  <img src="Z:/picture/008/save_picture_459024.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457028.jpg" />
+  <img src="Z:/picture/008/save_picture_457028.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453212.jpg" />
+  <img src="Z:/picture/008/save_picture_453212.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448195.jpg" />
+  <img src="Z:/picture/008/save_picture_448195.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448124.jpg" />
+  <img src="Z:/picture/008/save_picture_448124.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_439405.jpg" />
+  <img src="Z:/picture/005/save_picture_439405.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439197.jpg" />
+  <img src="Z:/picture/008/save_picture_439197.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438300.jpg" />
+  <img src="Z:/picture/008/save_picture_438300.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438294.jpg" />
+  <img src="Z:/picture/008/save_picture_438294.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438186.jpg" />
+  <img src="Z:/picture/008/save_picture_438186.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436712.jpg" />
+  <img src="Z:/picture/008/save_picture_436712.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421455.jpg" />
+  <img src="Z:/picture/005/save_picture_421455.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416070.jpg" />
+  <img src="Z:/picture/008/save_picture_416070.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400013.jpg" />
+  <img src="Z:/picture/008/save_picture_400013.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ CSI: Бессмертие / CSI: Immortality (2015) HDTV [H.264/720p-LQ] [EN / R
 >>Сериалы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372056.jpg" />
+  <img src="Z:/picture/008/save_picture_372056.jpg" />
 </div>
 
 

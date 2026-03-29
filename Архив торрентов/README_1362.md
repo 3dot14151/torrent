@@ -6,7 +6,7 @@ Leibo 6.0.112.11768 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745373.jpg" />
+  <img src="Z:/picture/008/save_picture_745373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745372.jpg" />
+  <img src="Z:/picture/008/save_picture_745372.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MediaHuman YouTube Downloader 3.9.9.41 (1507) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745371.jpg" />
+  <img src="Z:/picture/008/save_picture_745371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Pepakura Designer 4.1.7a RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745370.jpg" />
+  <img src="Z:/picture/008/save_picture_745370.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ TweakPower 1.103 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745366.jpg" />
+  <img src="Z:/picture/008/save_picture_745366.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Luminar 4.3.0.6160 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745364.jpg" />
+  <img src="Z:/picture/008/save_picture_745364.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ABViewer Enterprise 14.1.0.74 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745363.jpg" />
+  <img src="Z:/picture/008/save_picture_745363.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Nagi no Asukara | Безоблачное Завтра [2013, TV, 26 ep] BDRip 10
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745362.jpg" />
+  <img src="Z:/picture/008/save_picture_745362.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ pCloud Drive 3.3.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745309.jpg" />
+  <img src="Z:/picture/008/save_picture_745309.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ OziBox Sync 2.1.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745302.jpg" />
+  <img src="Z:/picture/008/save_picture_745302.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ MEGA Sync Client 2.9.4 (d887a) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745301.jpg" />
+  <img src="Z:/picture/008/save_picture_745301.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Replay Media Catcher 6.0.1.27 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745298.jpg" />
+  <img src="Z:/picture/008/save_picture_745298.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AOL Shield 1.0.22.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745297.jpg" />
+  <img src="Z:/picture/008/save_picture_745297.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Maxthon Cloud Browser 4.9.3.500 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745296.jpg" />
+  <img src="Z:/picture/008/save_picture_745296.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Mozilla Firefox Quantum ESR 60.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745264.jpg" />
+  <img src="Z:/picture/008/save_picture_745264.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ DMG Audio – Plugins Bundle (2019.2) VST, VST3, AAX, RTAS (x86/x64) RePack by V
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745260.jpg" />
+  <img src="Z:/picture/008/save_picture_745260.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Opera 58.0.3135.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745246.jpg" />
+  <img src="Z:/picture/008/save_picture_745246.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Synapse Audio - DUNE 3.0.5 VSTi, AAX (x86/x64) Repack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745234.jpg" />
+  <img src="Z:/picture/008/save_picture_745234.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ PointerStick 3.41 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745229.jpg" />
+  <img src="Z:/picture/008/save_picture_745229.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745215.jpg" />
+  <img src="Z:/picture/008/save_picture_745215.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Cent Browser 1.9.12.65 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745214.jpg" />
+  <img src="Z:/picture/008/save_picture_745214.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Lane 8 - Winter 2021 Mixtape (2022-01-04) [MP3|320 Kbps] <Progressive House, Dee
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745205.jpg" />
+  <img src="Z:/picture/008/save_picture_745205.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Firefox Browser 96.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745204.jpg" />
+  <img src="Z:/picture/008/save_picture_745204.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ K-Lite Codec Pack Update 16.7.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745200.jpg" />
+  <img src="Z:/picture/008/save_picture_745200.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ CrystalDiskInfo 8.14.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745196.jpg" />
+  <img src="Z:/picture/008/save_picture_745196.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PrivaZer 4.0.39 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745189.jpg" />
+  <img src="Z:/picture/008/save_picture_745189.jpg" />
 </div>
 
 

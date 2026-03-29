@@ -6,7 +6,7 @@ ExpressionsinBar 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236189.jpg" />
+  <img src="Z:/picture/005/save_picture_236189.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TimeTable 3 v3.4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236146.jpg" />
+  <img src="Z:/picture/005/save_picture_236146.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235926.jpg" />
+  <img src="Z:/picture/005/save_picture_235926.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235765.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ BluePlum Home Inventory 4 v4.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235400.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Transfer 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235074.jpg" />
+  <img src="Z:/picture/005/save_picture_235074.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Workspaces 2 v.2.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234616.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Memoires 5 v.5.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234602.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Texifier 1.9.20 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234356.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ UctoX 2.9.8 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234094.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Website Watchman 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234076.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ AutoSwitchInput Pro 2.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232634.jpg" />
+  <img src="Z:/picture/005/save_picture_232634.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ BusyCal 2023.1.2 U2B [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232549.jpg" />
+  <img src="Z:/picture/005/save_picture_232549.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Exhibeo 2 v.2.0.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232301.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ NCH Crescendo Masters Pro 9.59 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232060.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Focus Professional 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230991.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Task Office 8.15 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230741.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Export Calendars Pro 1.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229865.jpg" />
+  <img src="Z:/picture/005/save_picture_229865.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Exporter for Contacts 1.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229814.jpg" />
+  <img src="Z:/picture/004/save_picture_229814.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Banktivity 7 v7.5.3 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229337.jpg" />
+  <img src="Z:/picture/004/save_picture_229337.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Scudo 1.0 beta 10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229274.jpg" />
+  <img src="Z:/picture/004/save_picture_229274.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Family Tree Maker 2019 v24.0.1.252 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228970.jpg" />
+  <img src="Z:/picture/004/save_picture_228970.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ DjVu To PDF Converter 2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228964.jpg" />
+  <img src="Z:/picture/004/save_picture_228964.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Photoflow - for Instagram 1.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227947.jpg" />
+  <img src="Z:/picture/005/save_picture_227947.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Radio Silence 3.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227487.jpg" />
+  <img src="Z:/picture/005/save_picture_227487.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Scapple 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227456.jpg" />
+  <img src="Z:/picture/005/save_picture_227456.jpg" />
 </div>
 
 

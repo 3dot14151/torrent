@@ -1,3 +1,55 @@
+###  Публикация: 1209463   (779213) от 27.02.2018
+
+10 сценариев конца света: Последние дни человечества / 10 Ways to End the World (2011) HDTVRip (2 серии из 2)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779213.jpg" />
+</div>
+
+
+###  Подробнее
+
+От коллапсирующих звезд до смертоносных эпидемий, от атомной войны до изменения климата - ученые исследуют десять потенциальных угроз, которые могут уничтожить человечество. Уничтожит ли человечество само себя? Суждено ли человечеству жить на земле вечно, или же наши дни сочтены? Будем ли мы удачливее динозавров или наших далеких предков, неандертальцев, которые (   Читать дальше...   )Производство: США , Swedish Educational Broadcasting CompanyЖанр: Документальный, познавательный, исследованиеПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 2 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5677A218E290AB2795D6006C542C84AFF6CA263F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209438   (779200) от 27.02.2018
+
+Ангар-1: Архив НЛО / Hangar 1: The UFO Files (2015) WEB-DLRip (сезон 2, серий 12 из 12)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная в 1969 году Всеобщая организация наблюдения за НЛО (MUFON) сегодня имеет свои представительства в 42 странах мира. В архиве MUFON - более 300 000 документов, связанных с НЛО. Все документы хранятся на закрытом для посторонних складе в Огайо, известном как «Ангар-1». Организация предоставила телеканалу неограниченный доступ в Ангар-1, ко всем хранящимся (   Читать дальше...   )Производство: США, Go Go Luckey Productions, A&E Television Networks, LLCЖанр: Документальный, НЛО, расследованиеПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 12 х ~ 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD433DCA763DD7F4093D2271BC3974A7A93882C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210395   (778825) от 02.03.2018
 
 Последние предсказания Нострадамуса (02.03.2017) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778825.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778461.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778046.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777977.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777259.jpg" />
+  <img src="Z:/picture/008/save_picture_777259.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776893.jpg" />
+  <img src="Z:/picture/008/save_picture_776893.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776447.jpg" />
+  <img src="Z:/picture/008/save_picture_776447.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776159.jpg" />
+  <img src="Z:/picture/008/save_picture_776159.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776011.jpg" />
+  <img src="Z:/picture/008/save_picture_776011.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770297.jpg" />
+  <img src="Z:/picture/008/save_picture_770297.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768406.jpg" />
+  <img src="Z:/picture/008/save_picture_768406.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768342.jpg" />
+  <img src="Z:/picture/008/save_picture_768342.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768101.jpg" />
+  <img src="Z:/picture/008/save_picture_768101.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768058.jpg" />
+  <img src="Z:/picture/008/save_picture_768058.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767999.jpg" />
+  <img src="Z:/picture/008/save_picture_767999.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767886.jpg" />
+  <img src="Z:/picture/008/save_picture_767886.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767110.jpg" />
+  <img src="Z:/picture/008/save_picture_767110.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767092.jpg" />
+  <img src="Z:/picture/008/save_picture_767092.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767091.jpg" />
+  <img src="Z:/picture/008/save_picture_767091.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_766454.jpg" />
+  <img src="Z:/picture/005/save_picture_766454.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766237.jpg" />
+  <img src="Z:/picture/008/save_picture_766237.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759614.jpg" />
+  <img src="Z:/picture/008/save_picture_759614.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756914.jpg" />
+  <img src="Z:/picture/008/save_picture_756914.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755923.jpg" />
+  <img src="Z:/picture/008/save_picture_755923.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C7B09B2BBD7AA0B9E17F7C3004D953D89EF4FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018494   (755811) от 20.05.2016
-
-Знахари.  Целители под прицелом медицины (20.05.2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли нетрадиционное лечение представлять угрозу для фармацевтических корпораций? Некоторые альтернативные методы постоянно балансируют на грани полного запрещения. Однако до прошлого года никто не мог предположить, что нетрадиционное лечение может стать опасным для практикующего врача! Что это – новая теория заговора? Или противостояние официальной медицины и (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFC0624C7B12600171254535DB542053808E976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018903   (753945) от 21.05.2016
-
-Территория заблуждений с Игорем Прокопенко (2016.05.21) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18ADDA83C872803E902E2487C41EFE9A60224E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

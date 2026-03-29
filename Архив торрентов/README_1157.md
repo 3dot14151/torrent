@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788575.jpg" />
+  <img src="Z:/picture/008/save_picture_788575.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iCare Format Recovery 6.0.6 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788562.jpg" />
+  <img src="Z:/picture/008/save_picture_788562.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788555.jpg" />
+  <img src="Z:/picture/008/save_picture_788555.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ u-he - All Effects Bundle 2019.1 VST, VST3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788546.jpg" />
+  <img src="Z:/picture/008/save_picture_788546.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Auslogics BoostSpeed 10.0.22.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788545.jpg" />
+  <img src="Z:/picture/008/save_picture_788545.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Your Universal MultiBoot Installer UEFI 0.0.1.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788544.jpg" />
+  <img src="Z:/picture/008/save_picture_788544.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Driver Booster 6.2.0.200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788543.jpg" />
+  <img src="Z:/picture/008/save_picture_788543.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788542.jpg" />
+  <img src="Z:/picture/008/save_picture_788542.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FastStone Image Viewer v6.8 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788536.jpg" />
+  <img src="Z:/picture/008/save_picture_788536.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788534.jpg" />
+  <img src="Z:/picture/008/save_picture_788534.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Driver Easy Pro 5.6.0.6935 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788519.jpg" />
+  <img src="Z:/picture/008/save_picture_788519.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Avid Sibelius 2018.1 Build 1449 x64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788516.jpg" />
+  <img src="Z:/picture/008/save_picture_788516.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MCS Drivers Disk 18.01.24.1417 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788512.jpg" />
+  <img src="Z:/picture/008/save_picture_788512.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ FastStone Image Viewer 6.8 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788506.jpg" />
+  <img src="Z:/picture/008/save_picture_788506.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788498.jpg" />
+  <img src="Z:/picture/008/save_picture_788498.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Easy Calculator v1.0.3 Pro [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788496.jpg" />
+  <img src="Z:/picture/008/save_picture_788496.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Wise Folder Hider Pro 4.2.5.165 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788494.jpg" />
+  <img src="Z:/picture/008/save_picture_788494.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ AusLogics Disk Defrag Pro 4.9.0.0 Final RePack (& Portable) by KpoJIuK  [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788490.jpg" />
+  <img src="Z:/picture/008/save_picture_788490.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ K-Lite Codec Pack 13.8.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788486.jpg" />
+  <img src="Z:/picture/008/save_picture_788486.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Discord 0.0.300 Portable by soyv4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788485.jpg" />
+  <img src="Z:/picture/008/save_picture_788485.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788483.jpg" />
+  <img src="Z:/picture/008/save_picture_788483.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788481.jpg" />
+  <img src="Z:/picture/008/save_picture_788481.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788476.jpg" />
+  <img src="Z:/picture/008/save_picture_788476.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Adobe Audition CC 2018 11.0.1.49 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788471.jpg" />
+  <img src="Z:/picture/008/save_picture_788471.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788468.jpg" />
+  <img src="Z:/picture/008/save_picture_788468.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Adobe Photoshop CC 2018 (v19.1.0) x86-x64 Portable by punsh (with Plugins) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788443.jpg" />
+  <img src="Z:/picture/008/save_picture_788443.jpg" />
 </div>
 
 

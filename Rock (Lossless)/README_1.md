@@ -1,3 +1,148 @@
+###  Публикация: 1840900   (1047623) от 07.12.2025
+
+Rush - Rush 50 (2025) 4 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Progressive Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1047623.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Not Fade Away
+02. You Can't Fight It
+03. Working Man (Vault Edition)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 04:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474970F5CA3F490B5A813BAADA352DB90E4D0479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840815   (1047540) от 07.12.2025
+
+Marillion - A Extended Collection of Recycled Gifts (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Christmas>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1047540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Xmas (War Is Over)
+02. Gabriel's Message
+03. The Christmas Song
+04. Stop the Cavalry(   Читать дальше...   )Жанр: Progressive Rock, ChristmasПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE2C3AEC959AD2DE85BD8113D518A82349AABAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840097   (1047009) от 02.12.2025
+
+Wishbone Ash - New England (1976) Japanese Edition, Reissue, Remastered, 2001, MCA Records [WavPack|Lossless|image + .cue] <Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother Of Pearl
+02. (In All Of My Dreams) You Rescue Me
+03. Runaway
+04. Lorelie(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E1F3A4E386BBCFE8F6282F83E1A3272A045388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839510   (1046648) от 29.11.2025
+
+Queen - A Night At The Odeon (2015) SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now I’m Here
+02. Ogre Battle
+03. White Queen (As It Began)
+04. Bohemian Rhapsody(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Pop RockПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDCC6A11A0535243B5654AABD6226F08AA8D695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601798   (1046356) от 02.01.2023
+
+Nilver Perez - Living In Desire (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking The Cycle (Lead Vocals – Daniel Vargas) (4:42)
+02. We Belong To The Stars (Lead Vocals – Fabio Cabral) (4:16)
+03. Secret (Lead Vocals – Caroline Breiter) (5:23)
+04. Keep The Dreams Alive (Lead Vocals – Ricardo DeStefano) (5:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59AE29696F5E7D5A78F3871AB43F3C51FC5EBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601802   (1046353) от 02.01.2023
 
 August Red - Sunshine Melodies (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Yacht Rock>
@@ -6,7 +151,7 @@ August Red - Sunshine Melodies (2021) EP, Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046353.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Transcend All Negative Energy - Trust the Penguin (2022) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046349.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Jaime Kyle - Wild One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046347.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Alexa - Alexa (1989) Reissue, 2006, Major MTM Music GmbH [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046280.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Space Mirrors - Majestic Tapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Space Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046254.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ DeGarmo & Key - The Pledge (1989) [FLAC|Lossless|image + .cue] <AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046220.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Paul Weller - Modern Classics - The Greatest Hits (1998) 2xCD, Compilation [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046204.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ In Reach - Waterline (1992) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046136.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ The Beach Boys - The Best of the Beach Boys (1995) 2xCD, Compilation, Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045931.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ White Skies - Black Tide (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045861.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Grand - Grand (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045854.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Times Up - Snow Queen (2012) [FLAC|Lossless|tracks + .cue]<Crossover Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045685.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Renegade - Time To Choose (1992) [FLAC|Lossless|image + .cue] <Arena Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045601.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Elvis Presley - Love Me Tender (1975) Reissue, 1989, Ariola Express [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045487.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Jeff Beck - 26 Albums, 51CD (1968-2022) [FLAC|Lossless|image + .cue | tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045450.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Glass Hammer - At The Gate (2022) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045418.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045297.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Autumn's Child - Starflower (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045215.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Nazareth - The Ballads Album (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045163.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Dropkick Murphys - This Machine Still Kills Fascists (2022) Expanded Edition, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045062.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Franz Ferdinand - Right Thoughts, Right Words, Right Action (2013) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044994.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Franz Ferdinand - Right Thoughts, Right Words, Right Action (2013) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D711C158D2AD6A3038C25CA64FBD520E820A1F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605251   (1044992) от 17.01.2023
-
-VeroniKa Grand - Classic Meets Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road of silence
-02. Throw down the crown
-03. Silent man
-04. Hunted(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879338332873698C4FCF8C7F4089630DC2885A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605388   (1044979) от 17.01.2023
-
-The Samurai Of Prog Featuring Marco Grieco - Anthem To The Phoenix Star (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem to the Phoenix Star 7:18
-02. Burning Silence 6:59
-03. Killing Hopes 7:38
-04. Bones 8:38(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C96269509B57044D6A1232B9E3FBF43E5A0391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605643   (1044875) от 18.01.2023
-
-First Night - Deep Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Hearts
-02. Little Love
-03. Beginning of the End
-04. Savage Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB709EFC3E33BFD4EE570A8E6D27AA6FD1C69D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605942   (1044769) от 19.01.2023
-
-Németh Gábor Project - Staféta (2022) [FLAC|Lossless|tracks + .cue] <Jazz Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Staféta
-2. Dirty Funk
-3. Guitar Meeting
-4. New Orleans(   Читать дальше...   )Жанр: Jazz Rock, Prog RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ABE63FDFBBA1BF15A40DB35909E9A97E4D82D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605685   (1044749) от 19.01.2023
-
-Neil Young with Crazy Horse - World Record (2022) 2xCD [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044749.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Love Earth
-02. Overhead
-03. I Walk with You (Earth Ringtone)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D1E43BDBA0C9557E768AC9E5470E95E993A4F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

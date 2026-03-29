@@ -1,3 +1,29 @@
+###  Публикация: 502976   (260352) от 01.06.2012
+
+Defenders of Ardania [Ru] (RePack/1.2) 2012 l Naitro
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_260352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defenders of Ardania – игра в стиле «tower defense», действие которой происходит в фэнтезийной вселенной Majesty. В отличие от других игр данного типа, где нужно устанавливать башни, чтобы остановить продвижение вражеских юнитов, игроки также смогут выступить на стороне нападающих и попытаться уничтожить вражескую базу. Defenders of Ardania также включает в себя элементы RTS. В игре представлено три различные расы с уникальными локациями, башнями и юнитами, а также широкий спектр заклинаний.В игре есть как однопользовательский режим, так и многопользовательский, в котором одновременно может принимать участие от двух до четырех игроков. Они могут сражаться друг против друга или против AI через интернет. Всего в мультиплеере представлено три режима игры.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Real-time) / Arcade / 3DЯзык интерфейса: Русский (русификатор от R.G. Кинозал.ТВ)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2210F03F94C12E60EE303B168CC25401225E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838400   (260051) от 22.11.2025
 
 Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
@@ -6,7 +32,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260051.jpg" />
+  <img src="Z:/picture/005/save_picture_260051.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Iron Harvest (2020) [Ru/Multi] (1.4.8.2986/dlc) License GOG [Deluxe Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260038.jpg" />
+  <img src="Z:/picture/005/save_picture_260038.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259251.jpg" />
+  <img src="Z:/picture/005/save_picture_259251.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257614.jpg" />
+  <img src="Z:/picture/005/save_picture_257614.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ ZEPHON (2024) [Ru/Multi] (1.2.11/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256719.jpg" />
+  <img src="Z:/picture/005/save_picture_256719.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Total War: Three Kingdoms (2019) [Ru/En] (1.7.1/dlc) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256612.jpg" />
+  <img src="Z:/picture/005/save_picture_256612.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256389.jpg" />
+  <img src="Z:/picture/005/save_picture_256389.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.3041.0/dlc) Repack R.G. Механ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254698.jpg" />
+  <img src="Z:/picture/005/save_picture_254698.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254557.jpg" />
+  <img src="Z:/picture/005/save_picture_254557.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252567.jpg" />
+  <img src="Z:/picture/005/save_picture_252567.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249057.jpg" />
+  <img src="Z:/picture/004/save_picture_249057.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Rival Realms (P) [Ru] 1998
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248904.jpg" />
+  <img src="Z:/picture/004/save_picture_248904.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248616.jpg" />
+  <img src="Z:/picture/004/save_picture_248616.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Galactic Civilizations III / Galactic Civilizations 3 (2015) [Ru/Multi] (4.52.36
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247544.jpg" />
+  <img src="Z:/picture/004/save_picture_247544.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ A Total War Saga: Thrones of Britannia (2018) [Ru/En] (1.2.3/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247092.jpg" />
+  <img src="Z:/picture/004/save_picture_247092.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237632.jpg" />
+  <img src="Z:/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234043.jpg" />
+  <img src="Z:/picture/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231452.jpg" />
+  <img src="Z:/picture/005/save_picture_231452.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224411.jpg" />
+  <img src="Z:/picture/005/save_picture_224411.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Company of Heroes (2006) [Ru] (1.0) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221793.jpg" />
+  <img src="Z:/picture/005/save_picture_221793.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221498.jpg" />
+  <img src="Z:/picture/005/save_picture_221498.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221013.jpg" />
+  <img src="Z:/picture/005/save_picture_221013.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Total War: ROME II / Total War: Rome 2 (2013) [Ru/En] (2.4.0.19728/dlc) Repack x
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218450.jpg" />
+  <img src="Z:/picture/005/save_picture_218450.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217704.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Imperium Galactica (1997) [En] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:884B8988BF1424A723B622AE0C4762A190553D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514338   (216802) от 03.12.2021
-
-Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete Collection]
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нападайте на Великих Ханов, имперских военачальников и командиров-сёгунов в классической стратегии в реальном времени и замковом симуляторе - Stronghold: Warlords. Командуйте уникальными военачальниками на поле боя, выстраивайте замковую экономику и используйте оружие в качестве сильного аргуемента!Тип издания: LicenseРазработчик: FireFly StudiosЖанр: Стратегия в реальном времениЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```
 
 https://mybot314.ru/tekegram_catalog/

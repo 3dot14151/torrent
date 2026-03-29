@@ -6,7 +6,7 @@ VA - The World Series of Chill Out, Vol. 4 (2021) [AAC|~309 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168757.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The World Series of Chill Out, Vol. 3 (2021) [AAC|~316 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168726.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marga Sol - Natural High (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168715.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Best Of Chill Out Lounge - Winter Chillout Lounge 2021 (2021) [AAC|~307 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168711.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Schwarz & Funk - Back to the Beach, Vol. 2 (2021) [AAC|~306 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168710.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Project Blue Sun - Oriental Touch (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168686.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tool - Opiate (1992) [AAC|~341 Kbps] <Hard Rock, Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168677.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 1 (2021) [AAC|~319 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168654.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168630.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Gate to Eternity: Chillout Your Mind (2021) [AAC|~319 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168590.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Deepalma Ibiza Winter Moods, Vol. 2 (2020) [AAC|~326 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168499.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Deepalma Ibiza Winter Moods (2017) [AAC|~323 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168490.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168476.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Music For Sleep - La coesione tra i due mondi (2021) [AAC|~291 Kbps] <Meditation
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168469.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - Deepalma Ibiza Winter Moods, Vol. 3 (2021) [AAC|~326 Kbps] <Disco, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168467.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - Milk & Sugar Winter Sessions 2022 (2021) [AAC|~318 Kbps] <Deep House, House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168410.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168360.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Caravan 1 (2018) [AAC|~316 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167977.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167967.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Caravan 2 (2018) [AAC|~305 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167949.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Earthbound Collection, Vol. 2 (Compiled by Salvo Migliorini) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167936.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Buddha Luxury, Vol. 3 (Esoteric World Music) (2019) [AAC|~318 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167933.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ VA - Earthbound Collection, Vol. 1 (Compiled by Salvo Migliorini) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167922.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Buddha Luxury, Vol. 2 (Esoteric World Music) (2018) [AAC|~320 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167919.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Earthbound Collection, Vol. 3 (Compiled by Salvo Migliorini) (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167913.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Buddha Luxury, Vol. 5 (Esoteric World Music) (2021) [AAC|~328 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167909.jpg" />
 </div>
 
 

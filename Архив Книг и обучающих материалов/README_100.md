@@ -1,3 +1,29 @@
+###  Публикация: 530478   (563203) от 02.08.2012
+
+Журнал | Сам [Россия] №8 (август 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_563203.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сам» - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35DEEF95B4069E707D410BECA4B08221BDF54CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530133   (563079) от 02.08.2012
 
 Книжная серия "Нереальная проза" (13 книг) [2010-2012] [FB2]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563079.jpg" />
+  <img src="Z:/picture/008/save_picture_563079.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563070.jpg" />
+  <img src="Z:/picture/008/save_picture_563070.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562939.jpg" />
+  <img src="Z:/picture/008/save_picture_562939.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562855.jpg" />
+  <img src="Z:/picture/008/save_picture_562855.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562851.jpg" />
+  <img src="Z:/picture/008/save_picture_562851.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562845.jpg" />
+  <img src="Z:/picture/008/save_picture_562845.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562810.jpg" />
+  <img src="Z:/picture/008/save_picture_562810.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562693.jpg" />
+  <img src="Z:/picture/008/save_picture_562693.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562692.jpg" />
+  <img src="Z:/picture/008/save_picture_562692.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562691.jpg" />
+  <img src="Z:/picture/008/save_picture_562691.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562685.jpg" />
+  <img src="Z:/picture/008/save_picture_562685.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562630.jpg" />
+  <img src="Z:/picture/008/save_picture_562630.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562585.jpg" />
+  <img src="Z:/picture/008/save_picture_562585.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562555.jpg" />
+  <img src="Z:/picture/008/save_picture_562555.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562531.jpg" />
+  <img src="Z:/picture/008/save_picture_562531.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562359.jpg" />
+  <img src="Z:/picture/008/save_picture_562359.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562068.jpg" />
+  <img src="Z:/picture/008/save_picture_562068.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562036.jpg" />
+  <img src="Z:/picture/008/save_picture_562036.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561766.jpg" />
+  <img src="Z:/picture/008/save_picture_561766.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Coursera, John Rofrano и др. | IBM DevOps And Software Engineering Profession
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561381.jpg" />
+  <img src="Z:/picture/008/save_picture_561381.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561354.jpg" />
+  <img src="Z:/picture/008/save_picture_561354.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561343.jpg" />
+  <img src="Z:/picture/008/save_picture_561343.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561247.jpg" />
+  <img src="Z:/picture/008/save_picture_561247.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561152.jpg" />
+  <img src="Z:/picture/008/save_picture_561152.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561100.jpg" />
+  <img src="Z:/picture/008/save_picture_561100.jpg" />
 </div>
 
 
@@ -662,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C2B66669D7034B3871D66D9AFEAD03721674500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530911   (561091) от 03.08.2012
-
-Джорджо Фалетти | Я убиваю [2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монте-Карло – это солнце и изумрудные волны Средиземного моря, казино и белоснежные виллы, парусные регаты и гонки «Формулы-1». Монте-Карло – это символ безмятежной жизни, идиллия, рай на земле. Но сегодня здесь царит ужас. В прямой эфир радио Монте-Карло позвонил неизвестный и словами «я убиваю» объявил начало страшной игры. Теперь он будет предлагать полиции и жителям города музыкальные подсказки, а они должны суметь предотвратить очередное убийство, которое он планирует совершить. По следу убийцы, похищающего человеческие лица, идут комиссар полиции Монако Никола Юло и его друг, бывший агент ФБР американец Фрэнк Оттобре. Игра началась…
-В романе «Я убиваю» есть все – напряженный и увлекательный сюжет, неповторимая атмосфера залитого солнцем Монте-Карло, музыка от Шуберта до Тома Уэйтса, и в центре – загадочный ночной убийца, коллекционирующий чужие лица, персонаж, который по праву займет свое место между доктором Ганнибалом Лектором из «Молчания ягнят» и великим Парфюмером Патрика Зюскинда.
-«Я убиваю» – самый (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CC68E37FF9B4BCF3FA63605112D3EEEA2755E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

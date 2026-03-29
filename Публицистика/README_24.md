@@ -1,3 +1,82 @@
+###  Публикация: 1277313   (785367) от 20.01.2019
+
+К. А. Попов (ред.) | Допрос Колчака (1925) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикуемые Центрархивом протоколы заседаний Чрезвычайной Следственной Комиссии по делу Колчака воспроизводятся по стенографической записи, заверенной заместителем председателя Следственной Комиссии, К. А, Поповым, и хранящейся в Архиве Октябрьской Революции (Фонд LXXV, арх. № 51). Некоторые места стенограммы и отдельные слова, не поддававшиеся прочтению, в подлиннике (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388986   (785142) от 08.06.2020
+
+Ян Стокласса | Стиг Ларссон: человек, который играл с огнем (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян Стокласса – шведский дипломат, журналист и писатель. Публикация его первой книги привела к международному скандалу, связанному с разоблачением коррупционных схем: уголовные дела были открыты в семи странах. Книга, которую вы держите в руках, пролила свет на события 30-летней давности, что позволило возобновить расследование убийства премьер-министра.
+Таинственный (   Читать дальше...   )Жанр: Биографии и мемуары, ПублицистикаПеревод: Александр МурашовФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B00922E49ACC9D6F7CBC0E9610CAF93CD4476B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204184   (784988) от 05.02.2018
+
+В. В. Маевский | Сражения мирных дней (1975) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_784988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга адресована массовому читателю. Ее автор В. Маевский - политический обозреватель газеты «Правда» - рассказывает об идеологических сражениях наших дней. Многие страницы книги посвящены полемике с буржуазными деятелями США, Англии, Японии но вопросам войны и мира, национально-освободительной борьбы, демократии, сосуществования государств с различным социальным (   Читать дальше...   )Жанр: История, политология, экономика, журналистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6E6730951969DB9E61C72F8EC592D824A10419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203960   (784940) от 05.02.2018
 
 Антисоветские подлоги [история фальшивок, факсимиле и комментарии] (1926) [PDF]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784940.jpg" />
+  <img src="Z:/picture/008/save_picture_784940.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784642.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784640.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784624.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784559.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784325.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784319.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783878.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783670.jpg" />
+  <img src="Z:/picture/008/save_picture_783670.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783646.jpg" />
+  <img src="Z:/picture/008/save_picture_783646.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783482.jpg" />
+  <img src="Z:/picture/008/save_picture_783482.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783347.jpg" />
+  <img src="Z:/picture/008/save_picture_783347.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783271.jpg" />
+  <img src="Z:/picture/008/save_picture_783271.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783244.jpg" />
+  <img src="Z:/picture/008/save_picture_783244.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783233.jpg" />
+  <img src="Z:/picture/008/save_picture_783233.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783057.jpg" />
+  <img src="Z:/picture/008/save_picture_783057.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782957.jpg" />
+  <img src="Z:/picture/008/save_picture_782957.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782658.jpg" />
+  <img src="Z:/picture/008/save_picture_782658.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782618.jpg" />
+  <img src="Z:/picture/008/save_picture_782618.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782084.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782052.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781879.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781871.jpg" />
 </div>
 
 
@@ -598,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6783D66A1955834DCA4E86BE267434952329E27D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206826   (781630) от 15.02.2018
-
-Михаил Веллер | Веритофобия (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название новой книги Михаила Веллера «Веритофобия» поясняется в первых ее строках: «Ужас правды, неумение видеть правду, нежелание знать ее». Она о том, как с детства нам ловко и радостно мешают видеть мир собственными глазами и иметь собственные мысли. Это и судьба нынешнего поколения, и секреты Советского Союза, и скандальные страницы русской культуры. Автор разоблачает (   Читать дальше...   )Жанр: Современная русская литература, Психологическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E3A974E9168C5E201BD9B5B1D7A465A59E0A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391336   (781030) от 20.06.2020
-
-Норберт Винер | Бывший вундеркинд. Детство и юность (2001) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781030.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Бывший вундеркинд» создатель кибернетики Норберт Винер рассказывает о своих первых шагах в математике и жизни. Эта книга приобрела огромную популярность за рубежом и спустя почти 50 лет переведена на русский язык. Книга адресована широкому кругу читателей, интересующихся историей математики.Жанр: АвтобиографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC19F077FDD8BA56DE6BA2AC260FB532159CEFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391340   (781028) от 20.06.2020
-
-Норберт Винер | Я — математик. Дальнейшая жизнь вундеркинда (2001) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателю книга "Я - математик" представляет собой вторую часть автобиографии недавно умершего американского ученого Норберта Винера. Имя Винера стало широко известно во всем мире после появления в 1948 году его книги "Кибернетика", сыгравшей очень большую роль в оформлении кибернетики как самостоятельной дисциплины, рассматривающей (   Читать дальше...   )Жанр: АвтобиографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE727FE55CDE5414D56786FBDBB4063AAF60CAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,169 @@
+###  Публикация: 1185549   (291230) от 22.11.2017
+
+David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897000   (290894) от 22.11.2017
+
+Дмитрий Хворостовский. Большой праздничный концерт - Песни Великой Победы (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самые известные песни военных лет к празднованию Великой Победы исполняет всемирно известный русский баритон Дмитрий Хворостовский. Концерт организован ВДНХ при поддержке правительства Москвы.01. Вот солдаты идут
+02. Минуты тишины
+03. Дороги
+04. Темная ночь(   Читать дальше...   )Производство: ВГТРКЖанр: Музыка, КонцертРежиссер: ВГТРКАктеры: Дмитрий ХворостовскийПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8DA2139FC1BF6A638C428A2293B859154CD57DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962822   (290747) от 06.12.2015
+
+Celtic Woman (2004) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	–Chloу Agnew "Last Rose Of Summer" (Intro)/"Walking In The Air"	4:22
+2	–Meav Ni Mhaolchatha  "Danny Boy" (A Cappella)  3:26
+(Choir – Aontas Choral Group)
+3	–Mairead Nesbitt	"The Butterfly" 3:02(   Читать дальше...   )Жанр: Celtic, Folk, New Age, CrossoverПеревод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Espanol, Italiano, Portugues, NederlandsПродолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6EE0BF0D80F73EE7256CD7924053C11EF40704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962865   (290605) от 06.12.2015
+
+Большой праздничный концерт в Кремле: "Триколор ТВ" — 10 лет (05.12.2015) HDTVRip [720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Олешко, ведущий Первого канала: "В юбилейные дни принято дарить особые подарки, и потому получать удивительные, творческие подарки от народных артистов особенно приятно".
+Всего за 10 лет работы зрительская аудитория спутникового оператора "Триколор ТВ" достигла 11,6 миллионов российских семей, а сам оператор по праву получил звание народного. (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42991DA03C8BF010D574FA1DB6F5AEEF4F833184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880068   (290553) от 06.12.2015
+
+Девичник club (2014) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия, МДТ имени А.С.Пушкина, кинокомпания "Вигорос"Жанр: КомедияРежиссер: Надежда АракчееваАктеры: Вера Алентова, Мария Аронова, Лариса Голубкина, Борис Дьяченко, Екатерина СибиряковаПродолжительность: 02:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA80F3A0F2B1B2A4129CD875BCAC0ABDD3D47904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185718   (289517) от 23.11.2017
+
+The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джефф со своей группой несколько раз выступал на этом фестивале... Это один из его концертов,сыгранный в далеком 1999-м,сделанный позже на DVD. В возрасте одного года у Джеффа Хили обнаружили редкую болезнь - рак сетчатки. Несмотря на слепоту, Хили самостоятельно выучился играть на гитаре и трубе и со времени превратился в одного из самых известных и популярных гитаристов (   Читать дальше...   )01. My Little Girl
+02. Stop Breakin' Down
+03. Third Degree
+04. I Think I Love You Too Much(   Читать дальше...   )Производство: Швейцария, Montreux Jazz FestivalЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:23:13 + 00:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6671621B6FD7D6973FD4031F7E45C5A5D2190DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186012   (289129) от 23.11.2017
 
 Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
@@ -6,7 +172,7 @@ Bee Gees - One Night Only 1997 (2013) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289129.jpg" />
+  <img src="Z:/picture/008/save_picture_289129.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289125.jpg" />
+  <img src="Z:/picture/008/save_picture_289125.jpg" />
 </div>
 
 
@@ -64,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288727.jpg" />
+  <img src="Z:/picture/008/save_picture_288727.jpg" />
 </div>
 
 
@@ -93,7 +259,7 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288383.jpg" />
+  <img src="Z:/picture/008/save_picture_288383.jpg" />
 </div>
 
 
@@ -125,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286276.jpg" />
+  <img src="Z:/picture/008/save_picture_286276.jpg" />
 </div>
 
 
@@ -151,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286169.jpg" />
+  <img src="Z:/picture/008/save_picture_286169.jpg" />
 </div>
 
 
@@ -177,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286070.jpg" />
+  <img src="Z:/picture/008/save_picture_286070.jpg" />
 </div>
 
 
@@ -206,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285857.jpg" />
+  <img src="Z:/picture/008/save_picture_285857.jpg" />
 </div>
 
 
@@ -233,7 +399,7 @@ Tout paye, или Все оплачено (2014) WEBRip [H.264/1080p-LQ] «Ле�
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285677.jpg" />
+  <img src="Z:/picture/008/save_picture_285677.jpg" />
 </div>
 
 
@@ -260,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285646.jpg" />
+  <img src="Z:/picture/008/save_picture_285646.jpg" />
 </div>
 
 
@@ -289,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285514.jpg" />
+  <img src="Z:/picture/008/save_picture_285514.jpg" />
 </div>
 
 
@@ -315,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285488.jpg" />
+  <img src="Z:/picture/008/save_picture_285488.jpg" />
 </div>
 
 
@@ -344,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285451.jpg" />
+  <img src="Z:/picture/008/save_picture_285451.jpg" />
 </div>
 
 
@@ -373,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285366.jpg" />
+  <img src="Z:/picture/008/save_picture_285366.jpg" />
 </div>
 
 
@@ -399,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285364.jpg" />
+  <img src="Z:/picture/008/save_picture_285364.jpg" />
 </div>
 
 
@@ -425,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285196.jpg" />
+  <img src="Z:/picture/008/save_picture_285196.jpg" />
 </div>
 
 
@@ -454,7 +620,7 @@ VA - Зимний марафон № 211: Коктейль Хитовых Нов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285130.jpg" />
+  <img src="Z:/picture/008/save_picture_285130.jpg" />
 </div>
 
 
@@ -483,7 +649,7 @@ Europe - Live at Sweden Rock: 30th Anniversary Show (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285105.jpg" />
+  <img src="Z:/picture/008/save_picture_285105.jpg" />
 </div>
 
 
@@ -512,7 +678,7 @@ Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285022.jpg" />
+  <img src="Z:/picture/008/save_picture_285022.jpg" />
 </div>
 
 
@@ -541,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285019.jpg" />
+  <img src="Z:/picture/008/save_picture_285019.jpg" />
 </div>
 
 
@@ -555,167 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB85971EDA235D7DFA3C208C309B539B1A2BF015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186811   (284240) от 26.11.2017
-
-Квартирник на НТВ у Маргулиса. Градусы (25.11.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла группа "Градусы". Музыканты рассказали о том, кем им приходилось работать, чтобы выжить в Москве, объяснили, почему их коллектив носит такое название, а также исполнили любимые хиты: "Режиссер", "Научиться бы не париться", "Голая" и другие.Производство: Жанр: КонцертПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8121A6D8914E698AFAB7115E3817FDEC8E963EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335705   (284071) от 04.11.2019
-
-Небесные странники (Попрыгунья) (2014) WEBRip [H.264/720p-LQ] «Ленком»
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему люди не летают, как птицы? Почему вопросы, которые волновали их еще в V веке до нашей эры, так перекликаются с веком сегодняшним?..
-Подданные царя Удода – птицы, следуя приказу своего повелителя, летят на землю, превращаясь в людей. Они попадают прямиком в гости к той самой чеховской Попрыгунье – легкомысленной бездельнице, абсолютно пустой даме, не замечающей (   Читать дальше...   )Производство: РоссияЖанр: трагикомедия, спектакльРежиссер: Игорь ФокинАктеры: Сергей Дьячковский, Александра Захарова, Александр Балуев, Наталья Заякина, Виктор Раков, Иван Агапов, Анна Якунина, Сергей Степанченко, Алиса Сапегина, Дмитрий Гизбрехт, Геннадий Козлов, Виталий Боровик, Игорь Коняхин, Иван Лешук, Кирилл Петров, Алексей Поляков, Алексей СкуратовСубтитры: отсутствуютПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00234ECEC8FEA7D6B049DDAA38927871CB6A0E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186589   (284045) от 26.11.2017
-
-Joe Cocker - Cry Me A River (2008) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Кокер — английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «Now That The Magic Has Gone», «N`oubliez jamais». Кавалер Ордена Британской Империи. На диске концерт в Metropol, Берлин, 31 октября 1980 (   Читать дальше...   )01. Cry Me A River
-02. Can't Say No
-03. Feelin' Alright
-04. Look What You’ve Done(   Читать дальше...   )Производство: США, Eagle VisionЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:34:02+00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82969D0CD5DCCA75FD490543BE69AD4C2E5E62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967950   (283918) от 04.11.2019
-
-Вновь я посетил... (1982) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворения Александра Сергеевича ПУШКИНА.Производство: СССР, Творческое объединение "Экран", Гостелерадио СССРЖанр: Литературные чтения, поэзияРежиссер: Александр ПрошкинАктеры: Иннокентий СмоктуновскийПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE32FF7FC4722F95A974F4BD3A68F703C7DBAD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081246   (283636) от 09.12.2016
-
-Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важной вехой в истории «Пинк Флойд» стал этот фильм-концерт без зрителей, снятый в амфитеатре итальянского города Помпеи. Живописный пейзаж Везувия, застывшая лава, классическая архитектура руин подчеркивает вневременную окраску музыки, принадлежащую как прошлому, так и будущему.Производство: Бельгия, Германия (ФРГ), Франция  | Bayerischer Rundfunk (BR), Office de Radiodiffusion Télévision Française (ORTF), RM Productions Fernseh-und Filmgesellschaft mbH,  Television FrançaiseЖанр: Psychedelic RockРежиссер: Adrian MabenПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4FC984BFF4FFD1D29ED6533A473BA7746D277E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335950   (283483) от 04.11.2019
-
-Малыш и К. (2014) WEBRip [H.264/720p-LQ] Театр "ОКОЛО дома Станиславского"
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия спектакля Московского Драматического Театра "ОКОЛО дома Станиславского", "Малыш и К."
-Известный всем с детства сюжет о добром Малыше и его друге Карлсоне, который живет на крыше. Сюжет развивается в комнате Малыша, но многоликость действия не заставляет зрителей скучать. Тут и погоня за ворами Рулле и Филле, которые стремятся поймать (   Читать дальше...   )Производство: Россия | «Студия 2В»Жанр: комедия, спектакльРежиссер: Ольга МузалеваАктеры: Ольга Бешуля, Алексей Сидоров, Элен Касьяник, Владимир Храбров, Александр Орав, Алексей Шендрик, Юрий ПавловСубтитры: отсутствуютПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3F302A9B3989EB2E1EEF2BF836B2CCD4EA50C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

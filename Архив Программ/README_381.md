@@ -6,7 +6,7 @@ Tipard Video Converter Platinum 6.2.38 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851935.jpg" />
+  <img src="Z:/picture/008/save_picture_851935.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ummy Video Downloader 1.6.0.2 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851934.jpg" />
+  <img src="Z:/picture/008/save_picture_851934.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Download Master 6.8.2.1511 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851930.jpg" />
+  <img src="Z:/picture/008/save_picture_851930.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Xilisoft Video Converter Ultimate 7.8.14 Build 20160322 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851926.jpg" />
+  <img src="Z:/picture/008/save_picture_851926.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aiseesoft Audio Converter 6.3.60 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851923.jpg" />
+  <img src="Z:/picture/008/save_picture_851923.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Ashampoo Photo Recovery 1.0.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851916.jpg" />
+  <img src="Z:/picture/008/save_picture_851916.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mp3tag 2.81 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851906.jpg" />
+  <img src="Z:/picture/008/save_picture_851906.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Panda Protection 18.00.00 DC 26.02.2017 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851903.jpg" />
+  <img src="Z:/picture/008/save_picture_851903.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PTE AV Studio Pro 10.0.10 Build 6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851881.jpg" />
+  <img src="Z:/picture/008/save_picture_851881.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Notepad++ 6.9.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851867.jpg" />
+  <img src="Z:/picture/008/save_picture_851867.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Autorun Organizer 2.21 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851860.jpg" />
+  <img src="Z:/picture/008/save_picture_851860.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ GeoGebra 6.0.577.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851830.jpg" />
+  <img src="Z:/picture/008/save_picture_851830.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Vivaldi 3.0.1874.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851827.jpg" />
+  <img src="Z:/picture/008/save_picture_851827.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ashampoo Photo Commander 16.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851825.jpg" />
+  <img src="Z:/picture/008/save_picture_851825.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ MetaProducts Offline Explorer Enterprise 7.1.4452 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851814.jpg" />
+  <img src="Z:/picture/008/save_picture_851814.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ummy Video Downloader 1.7.2.7 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851752.jpg" />
+  <img src="Z:/picture/008/save_picture_851752.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Norton Security 22.9.0.68 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851747.jpg" />
+  <img src="Z:/picture/008/save_picture_851747.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Opera 68.0.3618.46 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851744.jpg" />
+  <img src="Z:/picture/008/save_picture_851744.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Google Chrome 81.0.4044.122 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851743.jpg" />
+  <img src="Z:/picture/008/save_picture_851743.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Autorun Organizer 4.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851741.jpg" />
+  <img src="Z:/picture/008/save_picture_851741.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Google Chrome 81.0.4044.122 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851740.jpg" />
+  <img src="Z:/picture/008/save_picture_851740.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ashampoo Photo Commander 16.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851736.jpg" />
+  <img src="Z:/picture/008/save_picture_851736.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851726.jpg" />
+  <img src="Z:/picture/008/save_picture_851726.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Process Hacker 2.39 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851723.jpg" />
+  <img src="Z:/picture/008/save_picture_851723.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Winstep Nexus Ultimate 16.3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851713.jpg" />
+  <img src="Z:/picture/008/save_picture_851713.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NVIDIA GeForce Desktop 364.72 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851711.jpg" />
+  <img src="Z:/picture/008/save_picture_851711.jpg" />
 </div>
 
 

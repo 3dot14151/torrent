@@ -1,3 +1,85 @@
+###  Публикация: 1444749   (1033915) от 04.02.2021
+
+Gabriella Quevedo - Fingerstyle Guitarist (2014-2021) WEBRip [H.264/1080p-LQ] <Acoustic, Pop>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Габриэлла родилась и выросла в Чинне, Швеция. Начала играть на гитаре достаточно рано, её первым преподавателем был её отец. С двенадцати лет Габриэлла начала играть на гитаре, в основном в технике фингерстайл. Сначала она играла каверы других исполнителей, а также собственные аранжировки на платформе YouTube. В июле 2018 года альбом с названием "Acoustic Cover (   Читать дальше...   )01. (ABBA) Happy New Year - Gabriella Quevedo
+02. (ABBA) Lay All Your Love On Me - Gabriella Quevedo
+03. (ABBA) Money Money Money - Gabriella Quevedo
+04. (ABBA) The Winner Takes It All - Gabriella Quevedo (std)(   Читать дальше...   )Жанр: Acoustic, PopПродолжительность: ~00:03:00-00:07:00 ролик, (общая 05:50:13)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DBA44CD2F64580B62BC40FD05A33C1974B3C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619920   (1032498) от 18.03.2023
+
+Laibach - The Future (Blast from the Past remix) (2023) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial, Neo-Classical, ExperimentalПродолжительность: 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480921AF761699C3F435C53512DF1FC4B7DA2EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445972   (1030665) от 18.02.2021
+
+Toy-Box - The Sailor Song (1999) WEB-DLRip [H.264/1080p] [handmade remastered upscale AI] [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030665.jpg" />
+</div>
+
+
+###  Подробнее
+
+:question:  А че писать? Клип он и есть клип, веселый, красочный. Сиськи, много Сисек. Потому и рейтинг НЕ детский, а еще коробки с презервативами полным кадром. Так что - клип точно не детский.
+Клип переделан в Топазе с увеличением размера картинки, предварительно до него была снята гребенка с оригинального DVD-сборника клипов (качество там полная дрянь). Надеюсь (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF4621DD8B644F673EA88D74295EAD400C91D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 64632   (1030591) от 18.02.2021
 
 VA «20 Years Of Nuclear Blast» 2007 2DVD
@@ -6,7 +88,7 @@ VA «20 Years Of Nuclear Blast» 2007 2DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030591.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027454.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ Little Big - Sex Machine (2021) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027337.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ Dua Lipa - We're Good (2021) WEB-DL [1440p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025596.jpg" />
 </div>
 
 
@@ -114,7 +196,7 @@ Little Big Family - 40 Music Videos (2013-2021) WEB-DLRip [H.264/V9/1080p/2160p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024985.jpg" />
 </div>
 
 
@@ -143,7 +225,7 @@ The Beatles: Мне следовало быть осторожнее / I Should 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023106.jpg" />
 </div>
 
 
@@ -169,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022722.jpg" />
 </div>
 
 
@@ -198,7 +280,7 @@ The Beatles: Я хочу быть твоим парнем / I Wanna Be Your Man 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021282.jpg" />
 </div>
 
 
@@ -225,7 +307,7 @@ The Beatles: Не приставай / Don’t Bother Me (A Hard Day's Night) (1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020800.jpg" />
 </div>
 
 
@@ -252,7 +334,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019615.jpg" />
 </div>
 
 
@@ -279,7 +361,7 @@ Caliban - Intoleranz [Клип] (2021) WEBRip [H.264/1080p-LQ] <Metalcore>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016145.jpg" />
 </div>
 
 
@@ -305,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016143.jpg" />
 </div>
 
 
@@ -334,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016139.jpg" />
 </div>
 
 
@@ -360,7 +442,7 @@ Thundercloud - Lightning Queen (2021) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016062.jpg" />
 </div>
 
 
@@ -386,7 +468,7 @@ The Beatles: Я счастлив просто потанцевать с тобо
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015757.jpg" />
 </div>
 
 
@@ -414,7 +496,7 @@ The Beatles: Любовь нельзя купить 2 / Can't Buy Me Love (A Har
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013830.jpg" />
 </div>
 
 
@@ -442,7 +524,7 @@ The Beatles: Вся моя любовь / All My Loving (A Hard Day's Night) (19
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012993.jpg" />
 </div>
 
 
@@ -470,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012930.jpg" />
 </div>
 
 
@@ -499,7 +581,7 @@ Lindemann - 21 Music Videos (Censored / Uncensored Versions) (2018-2021) WEB-DL 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012926.jpg" />
 </div>
 
 
@@ -528,7 +610,7 @@ The Beatles: Если есть любовь 2 / If I Fell (A Hard Day's Night) (
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011947.jpg" />
 </div>
 
 
@@ -556,7 +638,7 @@ Little Big - Everybody (Little Big Are Back) (2021) WEB-DLRip [VP9/2160p-LQ] <Ra
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011274.jpg" />
 </div>
 
 
@@ -582,7 +664,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) DVDRemux [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004926.jpg" />
 </div>
 
 
@@ -611,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004797.jpg" />
 </div>
 
 
@@ -625,94 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF369B93D27F288E823FC7B27EB0EEB180F97973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597472   (1000377) от 02.01.2013
-
-DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598303   (999825) от 04.01.2013
-
-Лучшие клипы 2012 / Slim Shady Place Video Yearmix 2012 [720p] BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год Sebastiaan Sopamena (aka DJ SSP) радует нас новой подборкой лучших клипов, перетекающих один в другой, выполненной для Slim Shady Place. Это своего рода сборник лучших музыкальных видеотворений 2012 года. Отличная возможность увидеть самые яркие клипы СО ВСЕГО МИРА за два последних года!
-Приятного просмотра Slim Shady Place Video Yearmix 2012!Жанр: Pop / House / Eurodance / Electronic / R&BПеревод: ОригинальныйПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C9878BEDA069995808C70D28D2B1D56F89023A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598141   (999635) от 05.01.2013
-
-Светлана Разина - Презентация нового альбома (2008) CamRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наступает Ночь
-02. Нравится
-03. Звёзды / Я Не Хочу / Солнечное Лето (попурри)
-04. Музыка Нас Связала
-05. Демон
-06. Реинкарнация
-07. Короче (feat B. Лесовская)
-08. Плакать
-09. Света
-10. Налоговый Инспектор(   Читать дальше...   )Жанр: POPПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1237151   (553150) от 22.07.2018
+
+Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License PLAZA [Definitive Version]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помоги роботу Йозефу спасти его подругу Берту, похищенную бандитами из Братства Черных Шляп. Теперь с полноэкранным режимом, достижениями, новыми языками и полной поддержкой контроллера. Machinarium — обладательница множества наград от критиков, приключенческая игра-головоломка, созданная разработчиками популярных игр Samorost и Botanicula. Маленького робота выбросили (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure, LogicЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80862ECD1572FD6D39F2B7A3B67532515B4B3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309455   (550845) от 19.06.2019
+
+Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую историю в серии Life is Strange от DONTNOD Entertainment. Из-за трагических событий братья Шон и Даниэль Диасы сбегают из дома. Скрываясь от полиции, они обнаруживают у Даниэля телекинетическую способность — умение двигать предметы силой мысли. В поисках убежища братья отправляются в мексиканский городок Пуэрто-Лобос, на родину их отца. На плечи (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606E4377289A131E953031EC605011BED43DE50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046834   (550725) от 28.08.2016
+
+Parvaneh: Legacy of the Light's Guardians (2016) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parvaneh: Legacy of the Light's Guardians - очень красочная игрушка про отважного парня, который решил спасти свой прекрасный мир Нория от врагов под названием Khazdaks, которые в свою очередь прилетели с другой планеты и хотя отравить их реку. Начиная свое прохождение, главный герой по имени Фадия узнает, кто эти существа и откуда они взялись.Тип издания: LicenseРазработчик: Bearded Bird Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: ФарсиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22A685685FB44D66F3608C087F1A4DFEF2663F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237210   (550279) от 25.07.2018
 
 George's Memories (2018) [Ru/En] (1.0/upd1) License PLAZA [Episode 1]
@@ -6,7 +84,7 @@ George's Memories (2018) [Ru/En] (1.0/upd1) License PLAZA [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550279.jpg" />
+  <img src="Z:/picture/008/save_picture_550279.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Existentia (2016) [Ru/Multi] (1.0.3) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549789.jpg" />
+  <img src="Z:/picture/008/save_picture_549789.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bear With Me (2016) [Ru/Multi] (1.0) License POSTMORTEM [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548974.jpg" />
+  <img src="Z:/picture/008/save_picture_548974.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ SCP 087. Re (2016) [En] (1.0 Remake) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548908.jpg" />
+  <img src="Z:/picture/008/save_picture_548908.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ The Turing Test (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548898.jpg" />
+  <img src="Z:/picture/008/save_picture_548898.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ Bear With Me (2016) [Ru/Multi] (5.2.2.22320) Repack Dok2 [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548008.jpg" />
+  <img src="Z:/picture/008/save_picture_548008.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.6.26515) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547746.jpg" />
+  <img src="Z:/picture/008/save_picture_547746.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ The Raven: Legacy of a Master Thief (Episode 2: Ancestry of Lies) (2013) [En] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547173.jpg" />
+  <img src="Z:/picture/008/save_picture_547173.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ King's Quest: Chapter 1-3 (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547055.jpg" />
+  <img src="Z:/picture/008/save_picture_547055.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546388.jpg" />
+  <img src="Z:/picture/008/save_picture_546388.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ Ian’s Eyes (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546296.jpg" />
+  <img src="Z:/picture/008/save_picture_546296.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ Joana’s Life (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546220.jpg" />
+  <img src="Z:/picture/008/save_picture_546220.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ The Underground Man / Подземный человек (2016) [Ru/En] (1.0) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546171.jpg" />
+  <img src="Z:/picture/008/save_picture_546171.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ De-Void (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545467.jpg" />
+  <img src="Z:/picture/008/save_picture_545467.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ De-Void (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545328.jpg" />
+  <img src="Z:/picture/008/save_picture_545328.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ CURSE (2016) [En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544629.jpg" />
+  <img src="Z:/picture/008/save_picture_544629.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ CURSE (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544417.jpg" />
+  <img src="Z:/picture/008/save_picture_544417.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ Deluded Mind (2018) [Ru/Multi] (1.8.6) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544345.jpg" />
+  <img src="Z:/picture/008/save_picture_544345.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ The Sinking City (2019) [Ru/Multi] (3709.2/dlc) Repack xatab [Necronomicon Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544093.jpg" />
+  <img src="Z:/picture/008/save_picture_544093.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544089.jpg" />
+  <img src="Z:/picture/008/save_picture_544089.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Hunted: One Step Too Far (2016) [En] (1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543496.jpg" />
+  <img src="Z:/picture/008/save_picture_543496.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542258.jpg" />
+  <img src="Z:/picture/008/save_picture_542258.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Submerged (2015) [Ru/Multi] License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542238.jpg" />
+  <img src="Z:/picture/008/save_picture_542238.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ Submerged (2015) [Ru/Multi] License RELOADED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DFCBF951333BF967790CA139BF291B0536EA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922503   (542218) от 05.08.2015
-
-Blues & Bullets: Episode 1 (2015) [Ru/En] License CODEX
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпизодическая игра в стиле «нуар» о человеке, который пытается делать свою работу, попутно борясь с собственными демонами. Бывший лидер легендарной группы «Неприкасаемые» Элиот Несс желал спокойно жить, работать потихоньку в своем ресторане и не задумываться о том, что его родной город Санта Эсперанза погряз в коррупции. Но не всегда все идет по плану.Тип издания: ЛицензияРазработчик: A Crowd of MonstersЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225C9705F53C56B8544500EC87B72537F5E5FE98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050180   (539772) от 07.09.2016
-
-Dream (2015) [Ru/Multi] (1.0.8767.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dream - это игра об исследовании миров, целиком находящихся в подсознании Говарда Филлипса, молодого человека, будни которого пусты и лишены смысла, зато сны - невероятно ярки и прекрасны. Там вас ждет множество испытаний, и чтобы отыскать ключ к будущему Говарда, все их нужно преодолеть.Тип издания: LicenseРазработчик: HyperSlothЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF5444ADB4E095435CB2676965CE0C0A9258024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305567   (539423) от 30.06.2019
-
-Draugen (2019) [Ru/Multi] (1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Draugen — новый психологический детектив от первого лица, действие которого разворачивается в Норвегии 1920-х годов. Вы играете за Эдварда Чарльза Хардена – американского путешественника, приехавшего в Норвегию в поисках своей пропавшей сестры. Но вы не одиноки: вас будет неотступно сопровождать юная спутница по имени Лисси – решительная, независимая и загадочная (   Читать дальше...   )Тип издания: RepackРазработчик: Red Thread GamesЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31FD2238704F9EA8926B4614F43F9788D18700B
 ```
 
 https://mybot314.ru/tekegram_catalog/

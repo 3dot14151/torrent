@@ -1,3 +1,107 @@
+###  Публикация: 1155522   (533142) от 03.08.2017
+
+NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip [H.264/1080p-LQ] (Сезон 1, серия 1 из 5) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированные буи открывают новые возможности наблюдения за морским змеем,  источником множества мифов и легенд.Производство: Франция, Saint Thomas Productios, ARTE FranceЖанр: Документальный, познавательный, исследованияРежиссер: Бертран ЛойерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E28F39BD51D5B03D2F8B2737C01550BBCEA22B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532949   (532054) от 10.08.2012
+
+Обнажённая магия / Magia nuda (1975) VHSRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика документального жанра. Фильм рассказывает о магических обрядах и традициях так называемых первобытных племён, ныне уже повсюду исчезнувших под натиском цивилизации. Фильм снят в 1975 году, тогда ещё не была в моде политкорректность, потому всё снято как оно есть, без цензуры и постановки. Сейчас так уже не снимают, да и некого больше снимать.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 1:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D392437A318F8BCD8F69C78710DB9771A66F11C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155775   (531456) от 04.08.2017
+
+BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) DVB (сезон 43, эпизод 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531456.jpg" />
+</div>
+
+
+###  Подробнее
+
+65 миллионов лет назад динозавры исчезли навсегда. Но что, если бы они не вымерли, а продолжили эволюционировать вместе с человеком. Возможно мы бы держали динозавров, как домашних животных, или употребляли бы в пищу, а возможно, некоторые особи динозавров в процессе эволюции смогли бы составить конкуренцию человеку...Производство: Великобритания, BBC and Discovery ChannelЖанр: Документальный, археология, история, исследованияРежиссер: Марк ЭверестПеревод: Двуголосый закадровый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F768E9EBF9598FD170BCFD3919D341A92F21D42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558718   (529893) от 21.06.2022
+
+Эльбрус. Тайна нацистского аэродрома (2013) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1942 года. В разгаре Сталинградская битва и одновременно идут ожесточенные бои за Кавказ. Взявший Ростов горнострелковый корпус генерала Конрада получает неожиданный приказ - бросить две дивизии влево и взять Эльбрус, со стратегической точки зрения интереса не представлявший. Гитлеровские войска держали высочайшую вершину Европы под контролем около пяти месяцев. (   Читать дальше...   )Производство: Россия, т/к "Звезда"Жанр: документальный, историяРежиссер: Сергей НейлауЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B12C17066E52A50BFF5EDB56EC281FF6846C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312911   (529002) от 06.07.2019
 
 NG: Строительство тоннеля / Building the Channel Tunnel (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NG: Строительство тоннеля / Building the Channel Tunnel (201
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529002.jpg" />
+  <img src="Z:/picture/008/save_picture_529002.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528618.jpg" />
+  <img src="Z:/picture/008/save_picture_528618.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528587.jpg" />
+  <img src="Z:/picture/008/save_picture_528587.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528113.jpg" />
+  <img src="Z:/picture/008/save_picture_528113.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527914.jpg" />
+  <img src="Z:/picture/008/save_picture_527914.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527305.jpg" />
+  <img src="Z:/picture/008/save_picture_527305.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527211.jpg" />
+  <img src="Z:/picture/008/save_picture_527211.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526975.jpg" />
+  <img src="Z:/picture/008/save_picture_526975.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526966.jpg" />
+  <img src="Z:/picture/008/save_picture_526966.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526538.jpg" />
+  <img src="Z:/picture/008/save_picture_526538.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Discovery: Неизвестная история Египта / The Hidden Histo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526032.jpg" />
+  <img src="Z:/picture/008/save_picture_526032.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525954.jpg" />
+  <img src="Z:/picture/008/save_picture_525954.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524910.jpg" />
+  <img src="Z:/picture/008/save_picture_524910.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524331.jpg" />
+  <img src="Z:/picture/008/save_picture_524331.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Animal Planet. Амба, русский тигр / Amba the Russian Tiger (2008)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523565.jpg" />
+  <img src="Z:/picture/008/save_picture_523565.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522866.jpg" />
+  <img src="Z:/picture/008/save_picture_522866.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522399.jpg" />
+  <img src="Z:/picture/008/save_picture_522399.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522285.jpg" />
+  <img src="Z:/picture/008/save_picture_522285.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522002.jpg" />
+  <img src="Z:/picture/008/save_picture_522002.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521818.jpg" />
+  <img src="Z:/picture/008/save_picture_521818.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ Discovery: Расследование заговоров. Проверка фа�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521124.jpg" />
+  <img src="Z:/picture/008/save_picture_521124.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ DV: NOVA. Расширение вселенной / Runaway Universe (2000) SATR
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520858.jpg" />
+  <img src="Z:/picture/008/save_picture_520858.jpg" />
 </div>
 
 
@@ -568,114 +672,6 @@ DV: NOVA. Расширение вселенной / Runaway Universe (2000) SATR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76D666C23FF178E68591E11CA05595472AE92A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 85981   (520840) от 16.08.2018
-
-Discovery. Византия: Утраченная Империя / Byzantium: The Lost Empire (1997/2006) DVDRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите путешествие вглубь веков в поисках происхождения западной веры. История Византии, первого христианского государства, – это история торжества веры. Византийские императоры стремились превратить Константинополь, «око веры христианской», в Новый Иерусалим, который стал бы раем на Земле. Эта программа расскажет об удивительном духовном наследии Византии: рукописях, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Рон ДжонсонПеревод: Профессиональный (одноголосый)Продолжительность: 00:52:19
-
-На Византию с жадным интересом смотрели многие европейские монархи. Ни один правитель не обладал таким могуществом, как император Византии. Дорогие ткани, сверкающие эмали, убранные золотом и драгоценными камнями одежды, изделия из слоновой кости, бесценные благовония – эти несметные богатства восхищали и притягивали взоры. Огромные сокровища хранили в (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22E82FE0153295635FDAE4B6850C1EDE752D632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560478   (520671) от 29.06.2022
-
-Discovery: Путешествие в Малайзию / Passage To Malaysia: Into The Wild with Denise Keller (2009) DVDRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малайзия — одна из самых экзотичных стран в мире, и многое в ней выглядит необычно даже в сравнении с другими соседями по Юго-Восточной Азии. Она состоит из двух частей — материковой (на полуострове Малакка), где находится и столица страны; и островной — на острове Борнео (Калимантан). Телеведущая Дениз Келлер приглашает Вас в видеопутешествие именно по островной (   Читать дальше...   )Производство: США, Reel Networks FilmЖанр: документальный, путешествия, флора, фауна, традицииРежиссер: Дэвид МоджиПеревод: двуголосый профессиональныйСубтитры: английские (участки с речью на местном языке)Продолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F3C31D54C261EE527C272E5D84E37E81339A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928472   (520492) от 18.08.2015
-
-BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SATRip [сезон 3 серия 1- 3 из 3]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такое огромное, бескрайнее и глубокое небо. Миллионы лет миллиарды глаз смотрят вверх и пытаются разгадать, что же там, и почему нас туда так тянет. Дара О'Бриэн и профессор Брайан Кокс приглашают нас в космическое путешествие - наше удивительную ночное небо.Жанр: Документальный, научно-познавательный, космосРежиссер: Barbara WiltshireПеревод: Профессиональный (двухголосый), компания "Видеофильм ТВ"Формат: AVIПродолжительность: 00:48:01+00:48:26+00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD44828F6A0D16FD0FC9B01403DA61D439A2072A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928559   (520490) от 18.08.2015
-
-Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life on the Reef (2012) HDRip (720p-LQ) [серии 1-3 из 3]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой Барьерный Риф у побережья Австралии является крупнейшей в мире живой структурой и одной из самых богатых и самых сложных природных экосистем на Земле. Для некоторых, это место, полное тайн и трудностей, чужой мир, полный странных, прекрасных и смертоносных тварей. Для других он является истинным домом.
-В этом документальном мини-сериале мы познакомимся с (   Читать дальше...   )Телекомпания: США, Northern Pictures, National Geographic TelevisionЖанр: Документальный, научно-познавательныйРежиссер: Карина Холден / Karina HoldenПеревод: Одноголосый закадровый, профессиональный
-(студия "Велес", текст читал Олег Белов)Продолжительность: 00:42:31+00:42:42+00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E37CE60C20B9FA95E79E21D227F99BC5616BD8C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

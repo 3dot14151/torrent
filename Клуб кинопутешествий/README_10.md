@@ -1,3 +1,55 @@
+###  Публикация: 1498466   (857792) от 26.09.2021
+
+Дикие люди. Возвращение (Бен Фогл: Возвращение в дикую природу) (Хорватия) / Ben Fogle: Return To The Wild (2020) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857792.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии Бен отправляется в солнечную Хорватию - дивный лесной край в котором поселился ещё один ''дикарь''Производство: Великобритания, Renegade Pictures, GroupM Entertainment, BBCЖанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18233192B539FF14DFD3A311AF560FDFC5CD4D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000835   (857512) от 26.03.2016
+
+Путешествие по побережью Азовского моря (2014) HDTVRip [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кажется, что все самое лучшее, что сохранила Донская земля для любителя российской истории, сосредоточено вдоль берега Азовского моря. Здесь находится один из древнейших городов России — Азов, здесь проходят яркие этнические фестивали. А ласковое море и песчаные пляжи помогают на время забыть обо всех неприятностях. Побывав в Приазовье, ведущая RTG TV Ольга Дегтярева (   Читать дальше...   )Телекомпания: RTG HDЖанр: ДокументальныйПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5295305E63869B72C398F9E36CDB6424DC557412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001192   (855818) от 27.03.2016
 
 С миру по нитке. Новосибирск-рекордсмен (2016) HDTVRip [720p-LQ]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855818.jpg" />
+  <img src="Z:/picture/008/save_picture_855818.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855642.jpg" />
+  <img src="Z:/picture/008/save_picture_855642.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855473.jpg" />
+  <img src="Z:/picture/008/save_picture_855473.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851876.jpg" />
+  <img src="Z:/picture/008/save_picture_851876.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851143.jpg" />
+  <img src="Z:/picture/008/save_picture_851143.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850378.jpg" />
+  <img src="Z:/picture/008/save_picture_850378.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848662.jpg" />
+  <img src="Z:/picture/008/save_picture_848662.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848588.jpg" />
+  <img src="Z:/picture/008/save_picture_848588.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848580.jpg" />
+  <img src="Z:/picture/008/save_picture_848580.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848575.jpg" />
+  <img src="Z:/picture/008/save_picture_848575.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848507.jpg" />
+  <img src="Z:/picture/008/save_picture_848507.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848433.jpg" />
+  <img src="Z:/picture/008/save_picture_848433.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848364.jpg" />
+  <img src="Z:/picture/008/save_picture_848364.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847955.jpg" />
+  <img src="Z:/picture/008/save_picture_847955.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847829.jpg" />
+  <img src="Z:/picture/008/save_picture_847829.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846593.jpg" />
+  <img src="Z:/picture/008/save_picture_846593.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846039.jpg" />
+  <img src="Z:/picture/008/save_picture_846039.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844747.jpg" />
+  <img src="Z:/picture/008/save_picture_844747.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844430.jpg" />
+  <img src="Z:/picture/008/save_picture_844430.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843501.jpg" />
+  <img src="Z:/picture/008/save_picture_843501.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843190.jpg" />
+  <img src="Z:/picture/008/save_picture_843190.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843131.jpg" />
+  <img src="Z:/picture/008/save_picture_843131.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843015.jpg" />
+  <img src="Z:/picture/008/save_picture_843015.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841797.jpg" />
+  <img src="Z:/picture/008/save_picture_841797.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C27B0891E02D84C8C28991C39919FE6F68F6E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840953   (839761) от 05.04.2016
-
-Водный мир Хорватии / Aquatic Treasures of Croatia (2012) HDTVRip [H.264/720p] (1-4 серия из 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы отправимся в удивительное путешествие по самым красивым заповедникам и паркам Хорватии: национальный парк «Плитвицкие озёра», а также природные парки Ластово и Копачки Рит. Заповедники и парки Хорватии поражают, в первую очередь, буйством красок и оттенков, и разнообразием флоры и фауны. Мы посетим различные территории и увидим, как изменяется климат в зависимости (   Читать дальше...   )Телекомпания: HRTЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 4 x ~ 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E4D373660A01D25F3A3C21DA12DE7E999C7502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836567   (839638) от 05.04.2016
-
-Джунгли: Волшебство другого мира / The Jungle: Magic of Another World (2012) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы отправитесь в увлекательное путешествие в джунгли Коста-Рики и попадете в волшебный мир, который еще никогда раньше не видели.Телекомпания: KSMЖанр: Документальный, природаРежиссер: Аттила ТенкиПеревод: Одноголосый закадровый (профессиональный)Язык субтитров: русскийПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F608D392C4E4265ABC1236DA82591904FFFDA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

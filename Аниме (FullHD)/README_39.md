@@ -1,3 +1,160 @@
+###  Публикация: 1181122   (335187) от 06.11.2017
+
+Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Sequence| Коллекционная флотилия на большом экране [2016, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335187.jpg" />
+</div>
+
+
+###  Подробнее
+
+После успешного завершения операции МИ и разгрома сил Бездны в Коралловом море Девы Флота занимают базу на Соломоновых островах и готовятся к дальнейшем наступлению. Однако вскоре многие девушки начинают слышать таинственный голос, который зовёт их куда-то вдаль. И вместе с этим морские воды окрашиваются в красный цвет. Чтобы выяснить причину этого странного явления, (   Читать дальше...   )Производство: студия Studio Barcelona / ディオメディアЖанр: приключения, меха-мусумеРежиссер: Кусакава КэйдзоПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6533E11863ADEDA51F5F9C6A9058BB207B916AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257837   (334446) от 31.10.2018
+
+Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Animation | Перекрестки в лабиринтах чужих городов [2011, TV, 12 эп. + 1 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж, последняя четверть XIX столетия. Давно отгремели войны и революции, в недавнем прошлом остались баррикады Коммуны. Франция времен Третьей республики – все еще мировая держава, а ее столица – центр европейской культуры. И вот в магазине вывесок в знаменитой торговой «Королевской галерее» появляется его основатель Оскар Клодель, некогда знатный кузнец, ныне (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: повседневность, комедияРежиссер: Ясуда КэндзиПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 1 SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB808EB62F1263C89C6F5C6169FB07AB212A12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887183   (334099) от 28.09.2022
+
+Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (фильм-компиляция) [2015, MV] BDRip 1080p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334099.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем Земля была уничтожена космическими пришельцами Гауна. Ее жители бежали в космос, превратив осколки родной планеты в гигантские корабли, но сбить врага со следа не удалось. «Сидония» - один из кораблей-миров, что ищет новый дом, отбиваясь от Гауна, монстров-оборотней с каменной броней. Главная защита ковчега - боевые роботы-Стражи, обладающие оружием, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Сидзуно КобунПеревод: SeshaRimСубтитры: Формат: MKVПродолжительность: 02:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02ACDF5FFEA960A934154B4EF256CEB37B6E9CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580066   (333217) от 29.09.2022
+
+Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333217.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2041 году в Японии запрещена религия и распространение любой информации о сверхъестественных явлениях. Любое нарушение жестоко карается законом. В это же время из одного исследовательского института выбираются два брата, обладающие необычными способностями, и сталкиваются с враждебным к ним миром.Производство: Студия Shirogumi / 白組Жанр: приключения, фантастикаРежиссер: Хиракава ТакамицуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D907C07DA9BFC351F0370A3CE673A1BA857EF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331463   (332272) от 15.10.2019
+
+Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Явара!: Задайте жару, слабаки! [1992, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Явара помогает группе детей справиться с их страхом и достойно выступить на соревнованиях по дзюдо.
+  Один из детей - кузен Ханазоно-куна, а вторая выглядит совсем как сама Явара.Производство: Madhouse Studios / マッドハウスЖанр: комедия, спортРежиссер: Токита ХирокоПеревод: HajimeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707E7FE1221E03D79758F534562085E3FC93D29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331462   (332263) от 15.10.2019
+
+Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — Явара Инокума, старшеклассница. Её дедушка Джигоро Инокума, бывший чемпион Японии по дзюдо, годами тренирует её, вынашивая мечту, что в один прекрасный день она выиграет золотую медаль на Олимпийских играх и Национальную премию. Джигоро готов пойти на всё, не считаясь с мнением внучки, чтобы это произошло. В то же время, Яваре уже надоело всё, связанное (   Читать дальше...   )Производство: Madhouse Studios / マッドハウス, Kitty Films / キティ・フィルムЖанр: комедия, романтика, спортРежиссер: Токита ХирокоПеревод: HajimeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 124 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4563474AA5E9A4A6BC8B60E1B7334B1ED83CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331465   (332259) от 15.10.2019
 
 Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара! Поездка в Атланту [1996, Special, 1 эп.] BDRip 1080p raw
@@ -6,7 +163,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332259.jpg" />
+  <img src="Z:/picture/008/save_picture_332259.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332021.jpg" />
+  <img src="Z:/picture/008/save_picture_332021.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329838.jpg" />
+  <img src="Z:/picture/008/save_picture_329838.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328898.jpg" />
+  <img src="Z:/picture/008/save_picture_328898.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324409.jpg" />
+  <img src="Z:/picture/008/save_picture_324409.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322802.jpg" />
+  <img src="Z:/picture/008/save_picture_322802.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322800.jpg" />
+  <img src="Z:/picture/008/save_picture_322800.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320744.jpg" />
+  <img src="Z:/picture/008/save_picture_320744.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317566.jpg" />
+  <img src="Z:/picture/008/save_picture_317566.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317283.jpg" />
+  <img src="Z:/picture/008/save_picture_317283.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317281.jpg" />
+  <img src="Z:/picture/008/save_picture_317281.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317278.jpg" />
+  <img src="Z:/picture/008/save_picture_317278.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317185.jpg" />
+  <img src="Z:/picture/008/save_picture_317185.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317182.jpg" />
+  <img src="Z:/picture/008/save_picture_317182.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317178.jpg" />
+  <img src="Z:/picture/008/save_picture_317178.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317047.jpg" />
+  <img src="Z:/picture/008/save_picture_317047.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316762.jpg" />
+  <img src="Z:/picture/008/save_picture_316762.jpg" />
 </div>
 
 
@@ -457,7 +614,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316626.jpg" />
+  <img src="Z:/picture/008/save_picture_316626.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316624.jpg" />
+  <img src="Z:/picture/008/save_picture_316624.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316618.jpg" />
+  <img src="Z:/picture/008/save_picture_316618.jpg" />
 </div>
 
 
@@ -520,162 +677,6 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB55F823D70FE1FF8738E0D2A528515D6F77F822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259942   (316607) от 05.11.2018
-
-Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать в бальный зал [2017, TV, 24 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучение в средней школе уже подходило к концу, а Татара Фуджита до сих пор не имел понятия о том, чем ему хочется заниматься в этой жизни. И пока его одноклассники уже строили планы о том, в какую старшую школу им поступить, он всё ещё смутно представлял, куда ему двигаться дальше. Так бы он и провёл остаток времени в раздумьях и сомнениях, если бы не один случай, (   Читать дальше...   )Производство: студия Production I.GЖанр: спорт, романтика, комедияРежиссер: Итадзу ЁсимиПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6B4D63D2B7EA2F0E09C881FE887000C7C076CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259939   (316600) от 05.11.2018
-
-Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316600.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о загадочном музыкальном роботе по имени ПАПО, который дарит своим слушателям психоделические видения.Жанр: музыкальное видеоПеревод: не требуетсяЯзык озвучки: ЯпонскийСубтитры: нетПродолжительность: 2 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1998C18A5931E2062ED48D6640E7F4E086E7DE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259961   (316597) от 05.11.2018
-
-Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город бесконечного вечера. Город одиночества. Зов воспоминаний обретает здесь колоссальную силу. Дождь. Он везде. Кажется, в этом дожде не существует времени, только вода потоком с равнодушных небес. Он смывает все, он течет по улицам и зовет с собой. Город дождя. Он поет свою песнь и шепчет свои истории. Он пахнет сыростью и кидает в глаза свет редких фонарей. Зеркальный (   Читать дальше...   )Жанр: драмаРежиссер: Исида ХироясуПеревод: Daemon 1912Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 10 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5691436D1E0C315A8566AF1871AFDF26155F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332248   (316482) от 19.10.2019
-
-Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава о Фениксе [1986, Movie] HDTV 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боль и душевные муки могут сделать из разбойника великого мастера, а алчность и жажда славы - превратить гения в убийцу. Но какими бы ни были людские деяния, их карма определена, и всем достанется по заслугам своим.Производство: Madhouse Studios / マッドハウスЖанр: фэнтези, драмаРежиссер: РинтароПеревод: Near_DarkЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97396A3ADFD5D5923FB2A237144FFF5FA8E70D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332257   (316469) от 19.10.2019
-
-Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Жар-Птица" - это сборник различных рассказов, и все они имеют что-то общее. Те кто хоть раз попробуют кровь Жар-Птицы - живут вечно, и именно поэтому многие так хотят её убить. Но каждый раз, она возрождается, словно Феникс из пепла. Рассказы повествуют и о прошлом, и о будущем, о людях, которые сражаются, и боятся умереть. И в каждом рассказе мораль (   Читать дальше...   )Производство: Tezuka Productions / 手塚プロダクションЖанр: приключения, фэнтези, драмаРежиссер: Такахаси РёсукэПеревод: LeoneedЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4D9E2BC49A5FA4BB9F9998E82A2D3D8E7AF5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259946   (316404) от 05.11.2018
-
-Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последнем путешествии [2017, TV, 12 эп. + 12 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступил конец цивилизации. Лишь две девочки — Чито и Юури — остались в живых, и теперь они бороздят руины погибшего мира на своём гусеничном мотоцикле «Кеттенкрад» в поисках топлива и еды. Но пока они вместе, даже подобное тоскливое существование несёт в себе маленькие радости, будь то плошка супа или найденная исправная запчасть. Лишь общие опыт и чувства придают (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Одзаки ТакахаруПеревод: TimecraftЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 12 SP по 2 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF76F1159266F4C7F7F10ECF752C79DAC449CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

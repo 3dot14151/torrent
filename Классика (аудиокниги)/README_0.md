@@ -1,3 +1,81 @@
+###  Публикация: 1848093   (1052590) от 16.01.2026
+
+Николай Лейкин | На побывке (2025) [MP3, Геннадий Постригайло]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это произведение известного отечественного писателя конца XIX – начала XX века Николая Александровича Лейкина – изящный перевертыш. Его герои хотят, чтобы у них все было как в романах: и сентиментальные жесты, и несметное богатство, которым одаривают достойного, – а получается всё, как в жизни. За каждым действием молодого человека, приехавшего в деревню к родителям (   Читать дальше...   )Жанр: Классика, СатираИздательство: Аудиокнига своими рукамиПродолжительность: 09:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF724B5B62689DF75025D4A1F0B6A092F5859D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848100   (1052586) от 16.01.2026
+
+Элизабет Гаскелл | Под покровом ночи (2025) [MP3, Ирина Воробьёва]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Под покровом ночи» (1863) на русском языке публикуется впервые. Действие разворачивается в провинциальном городке небольшого английского графства, на фоне панорамного изображения викторианских нравов и социальных предрассудков минувшего времени. Тонкий психологизм сочетается с захватывающим сюжетом, пружиной которого становится непредумышленное убийство, совершенное (   Читать дальше...   )Жанр: Социальный реализм, Драма, КлассикаИздательство: Нигде не купишьПродолжительность: 07:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72EF3DDF9B7A8D21E72A38737DB76500ABF0F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848153   (1052522) от 16.01.2026
+
+Джеффри Чосер | Кентерберийские рассказы (2026) [MP3, Роман Ильин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052522.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Джеффри Чосер - "отец английской поэзии" - жил в XIV веке, когда родина его была очень далека от Возрождения, которое в Англии заставило себя ждать еще чуть ли не два столетия. Вплоть до Спенсера и Марло в английской поэзии не было ничего не только равного, но просто соизмеримого с "Кентерберийскими рассказами" Чосера. Поэму можно назвать (   Читать дальше...   )Жанр: Поэзия, историяИздательство: Аудиокнига своими рукамиПродолжительность: 05:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62CDA52AD14610D221CB2968581962AD46E1138D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847870   (1052458) от 15.01.2026
 
 Роберт Льюис Стивенсон | Принц Отто (2025) [MP3, Иван Забелин]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052458.jpg" />
+  <img src="Z:/picture/005/save_picture_1052458.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052313.jpg" />
+  <img src="Z:/picture/005/save_picture_1052313.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052171.jpg" />
+  <img src="Z:/picture/005/save_picture_1052171.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052116.jpg" />
+  <img src="Z:/picture/005/save_picture_1052116.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052097.jpg" />
+  <img src="Z:/picture/005/save_picture_1052097.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052060.jpg" />
+  <img src="Z:/picture/005/save_picture_1052060.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051801.jpg" />
+  <img src="Z:/picture/005/save_picture_1051801.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051509.jpg" />
+  <img src="Z:/picture/005/save_picture_1051509.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051487.jpg" />
+  <img src="Z:/picture/005/save_picture_1051487.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051483.jpg" />
+  <img src="Z:/picture/005/save_picture_1051483.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051425.jpg" />
+  <img src="Z:/picture/005/save_picture_1051425.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051424.jpg" />
+  <img src="Z:/picture/005/save_picture_1051424.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051416.jpg" />
+  <img src="Z:/picture/005/save_picture_1051416.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051415.jpg" />
+  <img src="Z:/picture/005/save_picture_1051415.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051294.jpg" />
+  <img src="Z:/picture/005/save_picture_1051294.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050474.jpg" />
+  <img src="Z:/picture/005/save_picture_1050474.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049147.jpg" />
+  <img src="Z:/picture/008/save_picture_1049147.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048831.jpg" />
+  <img src="Z:/picture/008/save_picture_1048831.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048770.jpg" />
+  <img src="Z:/picture/008/save_picture_1048770.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048755.jpg" />
+  <img src="Z:/picture/008/save_picture_1048755.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048639.jpg" />
+  <img src="Z:/picture/008/save_picture_1048639.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048359.jpg" />
+  <img src="Z:/picture/008/save_picture_1048359.jpg" />
 </div>
 
 
@@ -593,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048082.jpg" />
+  <img src="Z:/picture/008/save_picture_1048082.jpg" />
 </div>
 
 
@@ -606,88 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B55CFD6F56D440D9A242ACA037B5B9D417C76A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840914   (1047612) от 08.12.2025
-
-Рока Токутоми | Куросиво (2025) [MP3, Александр Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047612.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Куросиво» – самый знаменитый роман, повествует об уникальной эпохе японской истории. . Прошло уже двадцать лет с тех пор, как отгремела революция Мэйдзи. Кланы Сацума и Тёсю, лютые враги династии сёгунов Токугава, потомки тех, кого Иэясу в 1600 году разгромил в битве при Сэкигахара, наконец-то взяли реванш. Сёгунат повержен, власть перешла в руки императора, но (   Читать дальше...   )Жанр: Восточные традиции, Время перемен, Зарубежная классика, Исторические романы, История Японии, Литература 20 века, Портрет эпохи, Самураи, Японская классика, Японская культура, Японская прозаИздательство: ЭксмоПродолжительность: 11:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61559DD3DFA4279551B7506E40CFD8A959988C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840868   (1047569) от 07.12.2025
-
-Уильям Теккерей | Записки Барри Линдона (2025) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия «МедиаКнига» представляет аудиокнигу знаменитого английского писателя-сатирика, мастера реалистического романа – Уильяма Мейкписа Теккерея «Записки Барри Линдона, эсквайра», автора и другого культого произведения «Ярмарка тщеславия». Книга была экранизирована самим Стэнли Кубриком.
-
-Действие романа происходит в XVIII веке. Его главный герой, играющий роль (   Читать дальше...   )Жанр: Зарубежная классика, история, приключенияИздательство: МедиаКнигаПродолжительность: 15:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524F26501952C2A35683E64EF253604319DBAE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840388   (1047274) от 05.12.2025
-
-Дмитрий Мамин-Сибиряк | Не то… (Провинциальная история) [Радиоспектакль] (1987) [MP3, Эрнст Романов и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника.
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель. В своих произведениях он проникновенно и правдиво отразил дух русского народа, его вековую судьбу, национальные его особенности – мощь, размах, трудолюбие, любовь к жизни, жизнерадостность.
-Рассказ «Не то...» 1891 год, входит в сборник «Именинник», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2BE8B8BBA192EBF4BE34562BB0C02E237C85B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

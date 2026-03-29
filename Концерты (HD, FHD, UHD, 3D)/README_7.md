@@ -1,3 +1,87 @@
+###  Публикация: 1103951   (883204) от 13.02.2017
+
+Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_883204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярная британская группа была сформирована в 1977 году в Шеффилде (Йоркшир) Питом Уиллисом  под названием «Atomic Mass». Когда Джо Эллиотт присоединился к ним, команда сменила название на «Def Leppard». Эллиотт также являлся автором логотипа группы — он вспомнил свой плакат, нарисованный на школьной лекции по пластике.1. Let's Go 5:01
+2. Animal 4:03
+3. Let It Go 5:36
+4. Dangerous 3:39(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: Rock, Hard Rock, Heavy Metal, Glam MetalПеревод: ОтсутствуетПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83D893EEE4A5D7F6F40E53145393125B09EDCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104165   (881182) от 14.02.2017
+
+Стас Михайлов. Концерт в Олимпийском (2017.02.12) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Премьера на Первом! Грандиозный концерт Стаса Михайлова. Поклонники Стаса Михайлова услышат свои самые любимые песни, а также станут свидетелями нескольких премьер. Новых песен артист готовится исполнить немало: так, например, обязательно прозвучит свежая композиция "Ты все", которую самые преданные поклонники Стаса уже слышали на его концертах, а все остальные (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFBBBC62A83FF5D98006184F789235AC43A0CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764013   (881048) от 08.03.2014
+
+Наутилус Помпилиус - 30 лет под водой (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881048.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках празднования 30-летия группы «Наутилус Помпилиус» запланировано три особенных концерта с участием разных составов легендарного коллектива в трёх городах - Москва, Санкт-Петербург, Екатеринбург01. Тутанхамон - "Ю-Питер" совместно с театром клоунады "Лицедеи"
+02. Всего лишь быть - "Ю-Питер" совместно с Максимом Ивановым из рок-группы "Торба-на-Круче"
+03. Кто ещё - "Ю-Питер" совместно Ильёй Разиным из рок-группы "Полюса"
+04. Отход на север - "Ю-Питер" совместно с Ильёй Лагутенко из рок-группы (   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E80BCBDC2A137FA14DAC984614E2B11DAD8C150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495411   (880537) от 12.09.2021
 
 Квартирник НТВ у Маргулиса. Группа Zoloto (11.09.2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +90,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880537.jpg" />
+  <img src="Z:/picture/005/save_picture_880537.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879644.jpg" />
+  <img src="Z:/picture/005/save_picture_879644.jpg" />
 </div>
 
 
@@ -62,7 +146,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877893.jpg" />
+  <img src="Z:/picture/005/save_picture_877893.jpg" />
 </div>
 
 
@@ -92,7 +176,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871597.jpg" />
+  <img src="Z:/picture/008/save_picture_871597.jpg" />
 </div>
 
 
@@ -120,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870798.jpg" />
+  <img src="Z:/picture/008/save_picture_870798.jpg" />
 </div>
 
 
@@ -149,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870602.jpg" />
+  <img src="Z:/picture/008/save_picture_870602.jpg" />
 </div>
 
 
@@ -175,7 +259,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870240.jpg" />
+  <img src="Z:/picture/008/save_picture_870240.jpg" />
 </div>
 
 
@@ -201,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870239.jpg" />
+  <img src="Z:/picture/008/save_picture_870239.jpg" />
 </div>
 
 
@@ -227,7 +311,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868053.jpg" />
+  <img src="Z:/picture/008/save_picture_868053.jpg" />
 </div>
 
 
@@ -256,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867871.jpg" />
+  <img src="Z:/picture/008/save_picture_867871.jpg" />
 </div>
 
 
@@ -282,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867599.jpg" />
+  <img src="Z:/picture/008/save_picture_867599.jpg" />
 </div>
 
 
@@ -311,7 +395,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863376.jpg" />
+  <img src="Z:/picture/008/save_picture_863376.jpg" />
 </div>
 
 
@@ -340,7 +424,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860581.jpg" />
+  <img src="Z:/picture/008/save_picture_860581.jpg" />
 </div>
 
 
@@ -370,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860457.jpg" />
+  <img src="Z:/picture/008/save_picture_860457.jpg" />
 </div>
 
 
@@ -399,7 +483,7 @@ Kiss - Live At Rock Am Ring (2010) HDTV[1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859621.jpg" />
+  <img src="Z:/picture/008/save_picture_859621.jpg" />
 </div>
 
 
@@ -428,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858545.jpg" />
+  <img src="Z:/picture/008/save_picture_858545.jpg" />
 </div>
 
 
@@ -454,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857673.jpg" />
+  <img src="Z:/picture/008/save_picture_857673.jpg" />
 </div>
 
 
@@ -480,7 +564,7 @@ Status Quo - The Last Night Of The Electrics 2016 (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855893.jpg" />
+  <img src="Z:/picture/008/save_picture_855893.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ Within Temptation - Let Us Burn (Elements & Hydra Live In Concert) (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852151.jpg" />
+  <img src="Z:/picture/008/save_picture_852151.jpg" />
 </div>
 
 
@@ -538,7 +622,7 @@ Nightwish - Vehicle of Spirits (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851368.jpg" />
+  <img src="Z:/picture/008/save_picture_851368.jpg" />
 </div>
 
 
@@ -566,7 +650,7 @@ Eagles - Live at the Capital Centre (1977) BDRip [H.264/1080p] [audio - self mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849784.jpg" />
+  <img src="Z:/picture/008/save_picture_849784.jpg" />
 </div>
 
 
@@ -593,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846415.jpg" />
+  <img src="Z:/picture/008/save_picture_846415.jpg" />
 </div>
 
 
@@ -623,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846388.jpg" />
+  <img src="Z:/picture/008/save_picture_846388.jpg" />
 </div>
 
 
@@ -634,90 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B0B6D65F996FB015723B138B38F094C40F331FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933108   (846379) от 25.04.2020
-
-Heaven and Hell - Radio City Music Hall Live! (2007/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846379.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Heaven And Hell Live From Radio City" - концертный релиз, основой для которого стало выступление команды в нью-йоркском Radio City Music Hall в марте 2007 года. В ходе концерта группа представила сет из 15 композиций из репертуара Black Sabbath - в том числе 15-минутную "Heaven And Hell", давшую название альбому группы 1980-го года, и две новые (   Читать дальше...   )1. E5150/After All
-2. The Mob Rules
-3. Children Of The Sea
-4. Lady Evil(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9189851CB858D553B1A69C9EBAAA9D38AAEF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002475   (846330) от 01.04.2016
-
-Ленинград - Stadium Live, Москва (2016.03.25) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группировка "Ленинград" вновь ворвалась на вершину музыкального Олимпа - на этот раз на "лабутенах" и в соответственных штанах. На волне ошеломительного "вирусного" успеха клипа "Экспонат" (более 20 миллионов просмотров за 2 недели) весенние концерты "Ленинграда" в Москве и Петербурге обещают быть супераншлаговыми. (   Читать дальше...   )01. *бубаб
-02. WWW
-03. Экспонат
-04. Пару баб(   Читать дальше...   )Жанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC1C41216497EA08CFE4A964EA630CFB4BEF609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499781   (846053) от 03.10.2021
-
-Квартирник НТВ у Маргулиса. PLC (02.10.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846053.jpg" />
-</div>
-
-
-###  Подробнее
-
-PLC занимается хип-хопом уже много лет: он начинал в рэп-группе «Альманах» в качестве битмейкера и MC, но довольно быстро ушел в соло. А благодаря своей любви к баттлам он стал основателем проекта Slovo — первого оффлайн-баттла в России. Его музыка мало похожа на отечественный рэп, зато оригинальные треки находят отклик даже у самых недружественных хип-хопу слушателей. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6EE3416415B832B11A656318EFE6D7B8CB88B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

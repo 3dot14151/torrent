@@ -1,3 +1,37 @@
+###  Публикация: 561005   (406253) от 16.10.2012
+
+Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRip 1080p raw + rus x2
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В провинции Ямасиро неожиданно начинается эпидемия чумы — уникальное событие для Японии. Все жители бегут оттуда, а глава одного из соседних самурайских кланов — клана Мотидзукэ, отправляет на разведку в эти места подчиняющиеся ему остатки клана ниндзя Кога.
+
+Однако какие-то странные существа, наделенные невероятной силой, мгновенно расправляются с незваными гостями, и спастись удается только девушке-ниндзя Кагэро, потому что ей в этом помог бродячий ниндзя-самурай Дзюбэй, смогший справиться с одним из этих странных существ.
+
+Но Дзюбэй и не догадывается, что убил не просто «демона», а одного из «Восьми Демонов Кимона», группы воинов с поразительными, нечеловеческими возможностями, и для оставшейся семерки он теперь — смертельный враг.
+
+Да еще и монах-шпион правительства Дакуан шантажоми обманом нанимает Кагэро и Дзюбэя на помощь себе, чтобы выяснить, что замышляют эти «демоны». И им приходится приложить все свои силы и способности, чтобы спасти страну от готовящегося нового витка братоубийственной войны…
+
+Попутно (   Читать дальше...   )Жанр: аниме, фэнтези, боевик, триллер, приключенияРежиссер: Ёсиаки Кавадзири, Кевин СеймурАктеры: Коиши Ямадера, Еми Синохара, Такеши Аоно, Дайсукэ Гори, Тосихико Секи, Сюитиро Морияма, Ричард Барнс, Сонни Биркетт, Ричард Кансино, Дин ЭллиотПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562499   (405344) от 19.10.2012
 
 Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 720p raw+rus
@@ -6,7 +40,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405344.jpg" />
+  <img src="Z:/picture/008/save_picture_405344.jpg" />
 </div>
 
 
@@ -32,7 +66,7 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405125.jpg" />
+  <img src="Z:/picture/008/save_picture_405125.jpg" />
 </div>
 
 
@@ -58,7 +92,7 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402972.jpg" />
+  <img src="Z:/picture/008/save_picture_402972.jpg" />
 </div>
 
 
@@ -84,7 +118,7 @@ Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402221.jpg" />
+  <img src="Z:/picture/008/save_picture_402221.jpg" />
 </div>
 
 
@@ -110,7 +144,7 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401059.jpg" />
+  <img src="Z:/picture/008/save_picture_401059.jpg" />
 </div>
 
 
@@ -136,7 +170,7 @@ Pokemon: Master Quest (5 season) / Покемон: Путь Мастера (5 с
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400642.jpg" />
+  <img src="Z:/picture/008/save_picture_400642.jpg" />
 </div>
 
 
@@ -163,7 +197,7 @@ Clannad After Story / Кланнад. Продолжение истории / К
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400491.jpg" />
+  <img src="Z:/picture/008/save_picture_400491.jpg" />
 </div>
 
 
@@ -191,7 +225,7 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400110.jpg" />
+  <img src="Z:/picture/008/save_picture_400110.jpg" />
 </div>
 
 
@@ -219,7 +253,7 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396342.jpg" />
+  <img src="Z:/picture/008/save_picture_396342.jpg" />
 </div>
 
 
@@ -245,7 +279,7 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396341.jpg" />
+  <img src="Z:/picture/008/save_picture_396341.jpg" />
 </div>
 
 
@@ -271,7 +305,7 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391639.jpg" />
+  <img src="Z:/picture/008/save_picture_391639.jpg" />
 </div>
 
 
@@ -297,7 +331,7 @@ Isekai wa Smartphone to Tomo ni / In Another World With My Smartphone / В ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391638.jpg" />
+  <img src="Z:/picture/008/save_picture_391638.jpg" />
 </div>
 
 
@@ -323,7 +357,7 @@ Motto To Love-Ru: Trouble / Любовные неприятности (ТВ-2) [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391432.jpg" />
+  <img src="Z:/picture/008/save_picture_391432.jpg" />
 </div>
 
 
@@ -351,7 +385,7 @@ Starship Troopers / Звездный десант [1988, OVA, 6 из 6] DVDRip r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388822.jpg" />
+  <img src="Z:/picture/008/save_picture_388822.jpg" />
 </div>
 
 
@@ -377,7 +411,7 @@ Shingeki no Bahamut: Virgin Soul / Rage of Bahamut: Virgin Soul / Ярость �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388707.jpg" />
+  <img src="Z:/picture/008/save_picture_388707.jpg" />
 </div>
 
 
@@ -403,7 +437,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e / Добро пожаловат�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386409.jpg" />
+  <img src="Z:/picture/008/save_picture_386409.jpg" />
 </div>
 
 
@@ -429,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385186.jpg" />
+  <img src="Z:/picture/008/save_picture_385186.jpg" />
 </div>
 
 
@@ -457,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384660.jpg" />
+  <img src="Z:/picture/008/save_picture_384660.jpg" />
 </div>
 
 
@@ -483,7 +517,7 @@ Fruits Basket 2019 | Корзинка фруктов 2019 [2019, TV, 25 из 25]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382496.jpg" />
+  <img src="Z:/picture/008/save_picture_382496.jpg" />
 </div>
 
 
@@ -510,7 +544,7 @@ Joker Game / Игра Джокера [2016, TV, 12 ep + 2 sp] WEB-DL 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381819.jpg" />
+  <img src="Z:/picture/008/save_picture_381819.jpg" />
 </div>
 
 
@@ -536,7 +570,7 @@ Hyakuren no Haou to Seiyaku no Valkyria | The Master of Ragnarok & Blesser of Ei
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380958.jpg" />
+  <img src="Z:/picture/008/save_picture_380958.jpg" />
 </div>
 
 
@@ -562,7 +596,7 @@ Koi Koi Seven / Koikoi 7 / Дружная семерка (2005, TV, 13 эп.) DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380714.jpg" />
+  <img src="Z:/picture/008/save_picture_380714.jpg" />
 </div>
 
 
@@ -591,7 +625,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / За �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379682.jpg" />
+  <img src="Z:/picture/008/save_picture_379682.jpg" />
 </div>
 
 
@@ -617,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374684.jpg" />
+  <img src="Z:/picture/008/save_picture_374684.jpg" />
 </div>
 
 
@@ -643,7 +677,7 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374106.jpg" />
+  <img src="Z:/picture/008/save_picture_374106.jpg" />
 </div>
 
 
@@ -654,32 +688,6 @@ Durarara!!x2 Ten / Дюрарара!! 2 (сезон второй) [2015, TV, 12 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4256A4563EAAF5A30BAB86BA71BF792345E9FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034613   (372685) от 04.11.2016
-
-Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы: Второе Блюдо TV-2 [2016, TV, 13] HDTV 720p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории о невероятном обучении и жизни Юкихиро Сомы в элитной кулинарной академии. Что же ждёт в дальнейшем нашего героя и его друзей? Сможет ли он пробиться на «Олимп» и доказать всем, что он самый искусный кулинар нашего времени. Сможет ли превзойти отца и уберечь семейный ресторанчик? А так же стереть самодовольную улыбку с лица Эрины Накири, которая (   Читать дальше...   )Производство: Япония, J.C. StaffЖанр: комедияПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B7DBD3132726C6EC224077D5E111E4A3281078
 ```
 
 https://mybot314.ru/tekegram_catalog/

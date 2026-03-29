@@ -1,3 +1,29 @@
+###  Публикация: 1679099   (139799) от 24.11.2023
+
+Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамунэ [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макабе Масамуне рос толстым ребёнком, из-за чего его постоянно дразнила и доводила до слёз мерзкая девчонка Адагаки Аки. И так она его достала, что он решил ей страшно отомстить: начал вести здоровый образ жизни, занялся спортом, взялся за учёбу и личностное развитие. Спустя несколько лет обновлённый Масамуне — красивый и популярный отличник-спортсмен-чемпион — переводится (   Читать дальше...   )Производство: студия Silver LinkЖанр: комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBFBED6C99163935D5188FD2BC128547F2D13A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520707   (138574) от 30.12.2021
 
 Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяси и её горничная-дракон [ТВ-2] [2021, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138574.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138511.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137767.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137158.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137085.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136561.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135167.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134433.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134402.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134167.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133772.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132914.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132641.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132286.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132152.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131228.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129830.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128196.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127193.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127169.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126845.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126828.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126806.jpg" />
 </div>
 
 
@@ -656,33 +682,6 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F9E4B85853E9C48BD0ADF80A62F7444E099CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666553   (126800) от 21.12.2023
-
-Сила святых вокруг нас [ТВ-2] | Seijo no Maryoku wa Bannou Desu (2023) | The Saint's Magic Power Is Omnipotent (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что финал первого сезона не оставляет никаких сомнений, кто же здесь настоящая Святая, история ещё далека от своего завершения. В конце концов, источники Скверны ещё не очищены, диковинные чудовища не уничтожены, дворцовые интриги не распутаны, свадьбы с красавчиками не сыграны, а героини не возвращены туда, откуда появились. Конечно, не всему из (   Читать дальше...   )Производство: Япония / Студия DiomedeaЖанр: Приключения, романтика, фэнтезиРежиссер: Ибата СётаЯзык озвучки: Русский двухголосый, закадровый; Японский
-- HectoR, Hoopoe (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A3FACFB069DE3011D5AA2147F9782C944B565F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

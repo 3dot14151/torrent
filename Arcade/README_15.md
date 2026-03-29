@@ -1,3 +1,29 @@
+###  Публикация: 1526411   (737974) от 25.01.2022
+
+Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) License CODEX
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Cafe Simulator 2 - это комплексный и детализированный бизнес-симулятор интернет-кафе. Вторая игра серии содержит гораздо более подробную и иную новую механику. Постройте отличное интернет-кафе. Не позволяйте уличным бандитам и бандитам забирать ваши деньги. Они даже могут бросить бомбу в ваше кафе. Вы можете привлечь больше клиентов в дождливые дни. Увеличьте (   Читать дальше...   )Тип издания: LicenseРазработчик: Cheesecake DevЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BE43A2529487190371915FB44F954AF2B6DC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370654   (735948) от 25.07.2020
 
 One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
@@ -6,7 +32,7 @@ One Piece: Pirate Warriors 4 (2020) [Ru/Multi] (1.0.1.0/dlc) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735948.jpg" />
+  <img src="Z:/picture/008/save_picture_735948.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Escapists 2 (2017) [Ru/Multi] (27.666175/dlc) License GOG [Game of the Year 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735501.jpg" />
+  <img src="Z:/picture/008/save_picture_735501.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732419.jpg" />
+  <img src="Z:/picture/008/save_picture_732419.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Killer Instinct (2017) [Ru/Multi] (1.0/upd14) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731469.jpg" />
+  <img src="Z:/picture/008/save_picture_731469.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Groovy (2016) [Ru/Multi] (1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731318.jpg" />
+  <img src="Z:/picture/008/save_picture_731318.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Quantum Replica (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730431.jpg" />
+  <img src="Z:/picture/008/save_picture_730431.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Tumbleweed Express (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729229.jpg" />
+  <img src="Z:/picture/008/save_picture_729229.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ STCC: The Game 2 (L) [Multi10/Ru] 2011 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727944.jpg" />
+  <img src="Z:/picture/005/save_picture_727944.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dangerous Golf (2016) [En/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726933.jpg" />
+  <img src="Z:/picture/008/save_picture_726933.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Adele: Following the Signs (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726889.jpg" />
+  <img src="Z:/picture/008/save_picture_726889.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723521.jpg" />
+  <img src="Z:/picture/008/save_picture_723521.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Brigador (2016) [En] (1.0/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723341.jpg" />
+  <img src="Z:/picture/008/save_picture_723341.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Job Simulator (2016) [En] (1.0) Repack Other s [VR]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722931.jpg" />
+  <img src="Z:/picture/008/save_picture_722931.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Impact Winter (2017) [Ru/Multi] (2.0.10) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722826.jpg" />
+  <img src="Z:/picture/008/save_picture_722826.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Death's Gambit: Afterlife (2018) [Ru/Multi] (1.1.6/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722099.jpg" />
+  <img src="Z:/picture/008/save_picture_722099.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ BlazBlue: Centralfiction (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721934.jpg" />
+  <img src="Z:/picture/008/save_picture_721934.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Adele: Following the Signs (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721583.jpg" />
+  <img src="Z:/picture/008/save_picture_721583.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ TurnOn (2016) [Ru/Multi] (1.0.0.7) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719310.jpg" />
+  <img src="Z:/picture/008/save_picture_719310.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714450.jpg" />
+  <img src="Z:/picture/008/save_picture_714450.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ HeartZ: Co-Hope Puzzles (2016) [En/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713401.jpg" />
+  <img src="Z:/picture/008/save_picture_713401.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Fimbul (2019) [Ru/Multi] (1.0) License RELOADED
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712496.jpg" />
+  <img src="Z:/picture/008/save_picture_712496.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Gold Rush! 2 (2017) [En/De] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712022.jpg" />
+  <img src="Z:/picture/008/save_picture_712022.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Distrust (2017) [Ru/Multi] (1.1.4/Upd4) Repack Other s [Cruise Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711106.jpg" />
+  <img src="Z:/picture/008/save_picture_711106.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710604.jpg" />
+  <img src="Z:/picture/008/save_picture_710604.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710449.jpg" />
+  <img src="Z:/picture/008/save_picture_710449.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABF48E114E57521E2F58D24097D0CA206396F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254568   (710362) от 03.03.2019
-
-Farm Together (2018) [Ru/Multi] (1.0/upd26/dlc) Repack Other s
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farm Together — от создателей Avatar Farm. Начните с нуля, с маленького участка, и закончите с огромной фермой, которая простирается дальше, чем может видеть глаз!Тип издания: RepackРазработчик: Milkstone StudiosЖанр: Simulator, Casual, 3DЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3579194AFEC70FBE4881D67D8EA9D334214550
 ```
 
 https://mybot314.ru/tekegram_catalog/

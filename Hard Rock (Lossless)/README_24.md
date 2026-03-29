@@ -1,3 +1,61 @@
+###  Публикация: 1502838   (799881) от 31.10.2021
+
+Creedence Clearwater Revival - 39 albums, 1 Box sets, 95CD (1968-2021) [FLAC|Lossless|image + .cue | tracks + .cue ] <Classic Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creedence Clearwater Revival (CCR) — американская рок-группа, образовавшаяся в 1967 году и за пять лет существования добившаяся всемирного успеха и признания критиками. CCR, возникшие в Сан-Франциско, с самого начала находились под влиянием свомп-блюза. В ранних песнях («Born On The Bayou» и др.) CCR создали своего рода легенду «простых парней со старого доброго (   Читать дальше...   )--------------------------
+
+01. Born On The Bayou (5:33)
+02. Green River (3:16)(   Читать дальше...   )Жанр: Roots Rock, Swamp Rock, Southern Rock, Classic Rock, Country |Продолжительность: 80:02:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506809   (799560) от 01.11.2021
+
+The Feckers - Courage of Conviction, Pt. I: Picking up the Pieces (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinners & Saints (05:53)
+02. Moments in Time (08:07)
+03. No Hard Feelings (05:52)
+04. Fall into Line (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8EDB112902A56E911B1118AA6CC027F58FF91E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506765   (799530) от 01.11.2021
 
 Pearlz - Feel Fine (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
@@ -6,7 +64,7 @@ Pearlz - Feel Fine (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799530.jpg" />
+  <img src="Z:/picture/008/save_picture_799530.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Soul Rash - The Covid Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799525.jpg" />
+  <img src="Z:/picture/008/save_picture_799525.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Osukaru - Starbound (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799099.jpg" />
+  <img src="Z:/picture/008/save_picture_799099.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Shakra - Life Tales: The Ballads (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798821.jpg" />
+  <img src="Z:/picture/008/save_picture_798821.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
+  <img src="Z:/picture/008/save_picture_798770.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
+  <img src="Z:/picture/008/save_picture_798769.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
+  <img src="Z:/picture/008/save_picture_798767.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Eclipse - Wired (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798286.jpg" />
+  <img src="Z:/picture/008/save_picture_798286.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797998.jpg" />
+  <img src="Z:/picture/008/save_picture_797998.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Crashdiet - Rust (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797990.jpg" />
+  <img src="Z:/picture/008/save_picture_797990.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ KingSlayer - Graves (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797554.jpg" />
+  <img src="Z:/picture/008/save_picture_797554.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Jeff - Didn't You Hear (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797549.jpg" />
+  <img src="Z:/picture/008/save_picture_797549.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797510.jpg" />
+  <img src="Z:/picture/008/save_picture_797510.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, M
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796927.jpg" />
+  <img src="Z:/picture/008/save_picture_796927.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796857.jpg" />
+  <img src="Z:/picture/008/save_picture_796857.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Greg Lake - Greg Lake (1981) Reissue, 1993, Chrysalis [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796381.jpg" />
+  <img src="Z:/picture/008/save_picture_796381.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Pat O'May - Welcome To A New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796282.jpg" />
+  <img src="Z:/picture/008/save_picture_796282.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796274.jpg" />
+  <img src="Z:/picture/008/save_picture_796274.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Whitesnake - The Purple Tour: Live (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796268.jpg" />
+  <img src="Z:/picture/008/save_picture_796268.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Queen - 15 Studio Albums, 8 Live Albums, 18 Compilation, 66 Singles, 2 Collabora
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795741.jpg" />
+  <img src="Z:/picture/008/save_picture_795741.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Danger Danger - The Return of the Great Gildersleeves (2000) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795664.jpg" />
+  <img src="Z:/picture/008/save_picture_795664.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Dalton - The Race Is On (1987) Reissue, 1994, EMI [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795555.jpg" />
+  <img src="Z:/picture/008/save_picture_795555.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Rock's Finest - Planet Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795006.jpg" />
+  <img src="Z:/picture/008/save_picture_795006.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Heartland - Into The Future (2021) [FLAC|Lossless|tracks + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794958.jpg" />
+  <img src="Z:/picture/008/save_picture_794958.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Heartland - Into The Future (2021) [FLAC|Lossless|tracks + .cue] <Melodic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B015E649D098722B6E99DD21D5D0E62508E5F3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012328   (794803) от 30.04.2016
-
-Freakshow - Freakshow (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Freakshow (3:27)
-02. Everyone (2:53)
-03. You Who Wins (2:35)
-04. It's Really Over (3:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C0FC08AB7A634310C06B985CA8EB599DA89BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012248   (794712) от 30.04.2016
-
-Sixx: A.M. - Prayers For The Damned (Vol.1) (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise (3:54)
-02. You Have Come To The Right Place (4:29)
-03. I'm Sick (4:13)
-04. Prayers For The Damned (4:40)(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73D8D1B1906DFC8E0BCA4BC526554185005086E
 ```
 
 https://mybot314.ru/tekegram_catalog/

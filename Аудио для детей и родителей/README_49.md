@@ -1,3 +1,90 @@
+###  Публикация: 377903   (507420) от 20.08.2011
+
+VA - Simply Kids (4 CD) (2006) [MP3|128 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507420.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Nursery Rhymes And Songs
+1. 12345 Once I Caught a Fish Alive
+2. Baa Baa Black Sheep
+3. One Man Went To Mow(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 03:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DB741BCA3959637117B2934F0CE54BDD8BD6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377847   (507417) от 20.08.2011
+
+VA - Sleepy Baby (2003) [MP3|192 kbps]<Колыбельные для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rockabye, Baby
+2. Bedtime
+3. Duermo, pequeno
+4. Sleep on, little one(   Читать дальше...   )Жанр: Колыбельные для детейПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D6930C313CF71484CB9F42C5B2C6F64C413A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377870   (507414) от 20.08.2011
+
+VA - Детские песни Михаила Ваняна (1972) [MP3|128 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кем я стану - М. Ванян. Викторов. Харабадзе
+02. Мне скучно - М. Ванян. Викторов. Камбурова
+03. Хочу быть моряком - М. Ванян. Викторов. Горохов
+04. Подарите крокодила - М. Ванян. Мошковская. Харабадзе(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D21B56471AA5B7146437526399B486A58692A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377971   (507298) от 20.08.2011
 
 VA - Небылицы - 100 детских песен (2011) [MP3|256-320 kbps]<Детские песенки>
@@ -6,7 +93,7 @@ VA - Небылицы - 100 детских песен (2011) [MP3|256-320 kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507298.jpg" />
+  <img src="Z:/picture/008/save_picture_507298.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507226.jpg" />
+  <img src="Z:/picture/008/save_picture_507226.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507025.jpg" />
+  <img src="Z:/picture/008/save_picture_507025.jpg" />
 </div>
 
 
@@ -88,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507010.jpg" />
+  <img src="Z:/picture/008/save_picture_507010.jpg" />
 </div>
 
 
@@ -114,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506375.jpg" />
+  <img src="Z:/picture/008/save_picture_506375.jpg" />
 </div>
 
 
@@ -143,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506227.jpg" />
+  <img src="Z:/picture/008/save_picture_506227.jpg" />
 </div>
 
 
@@ -172,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505518.jpg" />
+  <img src="Z:/picture/008/save_picture_505518.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505387.jpg" />
+  <img src="Z:/picture/008/save_picture_505387.jpg" />
 </div>
 
 
@@ -225,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505184.jpg" />
+  <img src="Z:/picture/008/save_picture_505184.jpg" />
 </div>
 
 
@@ -254,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503719.jpg" />
+  <img src="Z:/picture/008/save_picture_503719.jpg" />
 </div>
 
 
@@ -280,7 +367,7 @@ VA - Io Canto (2010) [MP3|204-238 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503643.jpg" />
+  <img src="Z:/picture/008/save_picture_503643.jpg" />
 </div>
 
 
@@ -309,7 +396,7 @@ VA - Io Canto - 2a Edizione (2010) [MP3|320 kbps]<Детские песенки>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503543.jpg" />
+  <img src="Z:/picture/008/save_picture_503543.jpg" />
 </div>
 
 
@@ -338,7 +425,7 @@ VA - Cristian Imparato e i Finalisti Di Io Canto (2010) [MP3|224 kbps]<Детс�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503379.jpg" />
+  <img src="Z:/picture/008/save_picture_503379.jpg" />
 </div>
 
 
@@ -367,7 +454,7 @@ VA - Радионяня. Мамины Помощники (1995) [MP3|256 kbps]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502751.jpg" />
+  <img src="Z:/picture/008/save_picture_502751.jpg" />
 </div>
 
 
@@ -396,7 +483,7 @@ VA - Нежные Песни Любви (1999) [MP3|256 kbps]<Колыбельн
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502695.jpg" />
+  <img src="Z:/picture/008/save_picture_502695.jpg" />
 </div>
 
 
@@ -425,7 +512,7 @@ VA - Песни Для Малышей - Весёлая Прогулка (2009) [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502694.jpg" />
+  <img src="Z:/picture/008/save_picture_502694.jpg" />
 </div>
 
 
@@ -455,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502693.jpg" />
+  <img src="Z:/picture/008/save_picture_502693.jpg" />
 </div>
 
 
@@ -484,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502591.jpg" />
+  <img src="Z:/picture/008/save_picture_502591.jpg" />
 </div>
 
 
@@ -513,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502514.jpg" />
+  <img src="Z:/picture/008/save_picture_502514.jpg" />
 </div>
 
 
@@ -539,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502076.jpg" />
+  <img src="Z:/picture/008/save_picture_502076.jpg" />
 </div>
 
 
@@ -568,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501557.jpg" />
+  <img src="Z:/picture/008/save_picture_501557.jpg" />
 </div>
 
 
@@ -594,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501059.jpg" />
+  <img src="Z:/picture/008/save_picture_501059.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ VA - На зарядку становись! Новые песни о спорт
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500835.jpg" />
+  <img src="Z:/picture/008/save_picture_500835.jpg" />
 </div>
 
 
@@ -634,84 +721,6 @@ VA - На зарядку становись! Новые песни о спорт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C67C20F2C969BD9E4647FC4DCCD9E94B31B4DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317545   (500492) от 01.08.2019
-
-Фрэнсис Элиза Бёрнетт | Маленькая принцесса (Радиоспектакль) (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая девочка мечтает стать принцессой… А знаешь ли ты, что значит быть настоящей принцессой? Героиня этой истории – английская девочка Сара – придумала для себя игру. "Принцесса должна достойно держать себя, не обижаться на глупых и злых людей, помогать всем, кто нуждается в помощи, не показывать, что она злится или расстроена". Сначала Сара просто играла (   Читать дальше...   )Жанр: Cказка, радиоспектакльИздательство: Литрес ПаблишингПродолжительность: 06:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58766433D4B3A9ED1CE77A3200F1052EE89E17D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564486   (499748) от 19.07.2022
-
-Георгий Почепцов | Хрустальная гора (2022) [MP3, Виктор Моключенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейтенант Петр Зверев, заброшен с секретным заданием на таинственную Хрустальную Гору, которая возникла посреди Европейской части страны, после необъяснимого временного катаклизма, на которой существуют существа, которые у нас принято называть сказочными... По иронии случая, становится племянником самой Бабы Яги, и переживает множество головокружительных приключений...Жанр: Детская литератураПродолжительность: 04:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05110811F73723665BD0FC980D3332E3C51AF405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564435   (499711) от 19.07.2022
-
-Илья Дворкин | Голова античной богини (1976) [MP3, Khud]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцатилетняя Витя - девчонка хоть куда! Ей ничего не стоит получить взрослый разряд по плаванию, накормить обедом родителей и в одиночку отправиться на поезде в лагерь археологической экспедиции, где работает её отец. Думаете, искать на дне моря античную статую с затонувшего древнегреческого корабля скучно? А вот и нет! Витю ждут новые знакомства и впечатления, (   Читать дальше...   )Жанр: Приключения, Детская литератураЯзык озвучки: РусскийПродолжительность: 04:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2DAEC0211A57A57E204EEF752A137F645511B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1862083   (1063049) от 
+
+Поедем, поедим! Кипр: катание на подводном скутере, «русская столица» Лимасол и самые вкусные креветки на побережье (28.03.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились на солнечный Кипр! Ведущий совершил путешествие сквозь тысячелетия: он прикоснулся к античным колоннам в величественном Курионе, разгадал феномен Лимасола — «русской столицы» острова, где чувствуешь себя как дома; заглянул в дружелюбную таверну, чтобы устроить проверку местным хитам, и узнал, почему кипрское гостеприимство (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFBCD3E59B6EE64E033B927F6BA7E3D121A4D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860791   (1062119) от 
+
+Поедем, поедим! Башкирия: традиционное чаепитие, тропический вояж в лимонарии и йога с котами (21.03.2026) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди и «Поедем, поедим!» отправились в гостеприимный Башкортостан — край тысячи озер и седых Уральских гор, где первозданная природа встречается с древними традициями. Здесь ведущий отыскал маленькую Италию, занялся необычной йогой с котами, заглянул в гости к Карлсону и прокатился на горных лыжах в самом центре города. А еще Федерико поднялся на минарет (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC3736C4E083F2302EB036716AC5BCC4116AA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859289   (1060998) от 
 
 Поедем, поедим! Пермский край: звездный завтрак для орангутанга, катания по заснеженной тайге и посикунчики (14.03.2026) WEBRip [H.264/720p]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1060998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060998.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060067.jpg" />
+  <img src="Z:/picture/005/save_picture_1060067.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059111.jpg" />
+  <img src="Z:/picture/005/save_picture_1059111.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057813.jpg" />
+  <img src="Z:/picture/005/save_picture_1057813.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057559.jpg" />
+  <img src="Z:/picture/005/save_picture_1057559.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057534.jpg" />
+  <img src="Z:/picture/005/save_picture_1057534.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057036.jpg" />
+  <img src="Z:/picture/005/save_picture_1057036.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056029.jpg" />
+  <img src="Z:/picture/005/save_picture_1056029.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055006.jpg" />
+  <img src="Z:/picture/005/save_picture_1055006.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054838.jpg" />
+  <img src="Z:/picture/005/save_picture_1054838.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053910.jpg" />
+  <img src="Z:/picture/005/save_picture_1053910.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052957.jpg" />
+  <img src="Z:/picture/005/save_picture_1052957.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052781.jpg" />
+  <img src="Z:/picture/005/save_picture_1052781.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052698.jpg" />
+  <img src="Z:/picture/005/save_picture_1052698.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051810.jpg" />
+  <img src="Z:/picture/005/save_picture_1051810.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050313.jpg" />
+  <img src="Z:/picture/005/save_picture_1050313.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049503.jpg" />
+  <img src="Z:/picture/005/save_picture_1049503.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049382.jpg" />
+  <img src="Z:/picture/008/save_picture_1049382.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048694.jpg" />
+  <img src="Z:/picture/008/save_picture_1048694.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048474.jpg" />
+  <img src="Z:/picture/008/save_picture_1048474.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047353.jpg" />
+  <img src="Z:/picture/005/save_picture_1047353.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046642.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Discovery. Путешествие по Индии / The Journey of India (2022) 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046414.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046315.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D42A87B08F3EB2876F3442A918EB27B5FAE7655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602465   (1046116) от 05.01.2023
-
-Китобойный промысел (в море и на берегу) / Whaling afloat and ashore (1908) WEBRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых первых документальных фильмов о природе. Так сказать, прадедушка Дискавери и Клуба кинопутешествий. Рассказывает о китобойным промысле. Лишен всякой корректности и деликатности. Тем хорош и замечателен. Снят в Ирландии (наряду с несколькими другими фильмами, ныне утерянными). Считается, что он был сделан в ознаменование открытия китобойной компании (   Читать дальше...   )Производство: ВеликобританияЖанр: документальный, природа, история, немое киноСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:12:18 копия (две копии)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FCB1A503FBDD72FFD3D2ADB3922DBD11093C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602569   (1046034) от 06.01.2023
-
-Тайная кухня Энтони Бурдена / Anthony Bourdain: Parts Unknown (2016) IPTVRip (сезон 9, серии 3 из 9)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый человек иногда задумывается, как сложилась бы его жизнь, живи он в другой стране. Известный американский шеф-повар Энтони Бурден ищет ответ на этот вопрос, путешествуя по всему миру. Погрузиться в чужую языковую среду, попробовать блюда местной кухни, погулять по затерянным улочкам городов и пообщаться с их обитателями - всё это стало его настоящей страстью.Производство: США, Zero Point Zero Production Inc.Жанр: документальный, путешествия, кулинарияРежиссер: Том Витале, Майкл Стид, Салли ФриманПеревод: двуголосый закадровый, профессиональный (1ТВЧ)Субтитры: отсутствуютПродолжительность: серии x ~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713E281B4D87D1CBB270EA39FE6E41C274AA069D
 ```
 
 https://mybot314.ru/tekegram_catalog/

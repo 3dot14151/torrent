@@ -1,3 +1,139 @@
+###  Публикация: 927172   (523897) от 14.08.2015
+
+SynforgeTutorials | Basic Java, Java Swing (2013) PCRec [H.264/720p] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Туториал по Java от простого парня который решил немного покодить. Показано как можно создавать графические интерфейсы на основе Swing. Больше добавить к описанию нечего. Смотрите, комментируйте.Производство: SynforgeTutorialsЖанр: JavaПродолжительность: 06:06:29.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CC3CEC47BD54005CCC4E837B149DC5C9533FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927176   (523865) от 14.08.2015
+
+Lineware | Учебное руководство по Java / Java Tutorial (2013) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Extended Java Tutorial.
+Достаточно качественнный туториал затрагивающий малоизвестные аспекты Java, такие как неотменяемый статический код класса, который исполняется перед конструктором.Производство: LinewareЖанр: TutorialПродолжительность: 07:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C320A85447AC402A6B4A49700622F63FF06EFE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927613   (523776) от 14.08.2015
+
+PSD2HTML | Воркшоп по вёрстке адаптивной веб-страницы (2015) PCRec [H.264/720p]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты уже сверстал пару страниц, но чувствуешь что твоих знаний недостаточно? Ты ищешь проверенные практикой приемы, но поиск в интернете дает лишь обрывки информации? Тогда этот воркшоп для тебя!
+«Ускоряй работу без потери качества!» - именно под таким девизом будет проходить воркшоп.
+За 7 уроков ты получишь представление о том, как верстается современная адаптивная (   Читать дальше...   )Жанр: HTML, PSDПродолжительность: 19:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524FA7CD3F10969406650BBC65C864A6C47ED430
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928020   (522991) от 15.08.2015
+
+Школа современных технологий | Чек-лист для оптимизации сайта. SEO.chek-list (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последовательное, по списку, выполнение необходимых действий по оптимизации сайта. Каждому пункту дадим подробное пояснение. Предлагаемый список не исчерпывающий, однако, каждый пункт желательно запланировать и выполнить.
+Будет представлен план работы с контентом, технической оптимизации, анализа конкурентов, улучшения юзабилити. Реализовав все пункты чек-листа, (   Читать дальше...   )Жанр: Разработка, ПрограммированиеПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D63CE09914F75C20E351413F73DA65D727B56FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240996   (522627) от 14.08.2018
+
+Григорий-Азиз | Кнопкомет 2: Тренажер, слепая печать за 3-7 дней (2017) PCRec [H.264]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навык слепого письма давно перестал быть привилегией специалистов. Владение им — хороший тон. В первую очередь, им конечно должны владеть программисты и писатели.
+
+Да и для всех остальных пользователей пк это станет очень полезным дополнением. Вы сможете мгновенно гуглить, быстро переписываться в соц сетях, писать электронные письма, работать над документами. Удивитесь, (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E99F5E2A9325F2D631B73483EC63A9584087F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928137   (522271) от 16.08.2015
 
 Master-CSS | Вёрстка шаблона Л.Е.В (2015) PCRec [H.264/720p]
@@ -6,7 +142,7 @@ Master-CSS | Вёрстка шаблона Л.Е.В (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522271.jpg" />
+  <img src="Z:/picture/008/save_picture_522271.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Veeam Academy, Дмитрий Шалымов | С#/NET- разработчик (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521806.jpg" />
+  <img src="Z:/picture/008/save_picture_521806.jpg" />
 </div>
 
 
@@ -61,7 +197,7 @@ Geekbrains | Objective C. Уровень 2 Профессиональная ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521248.jpg" />
+  <img src="Z:/picture/008/save_picture_521248.jpg" />
 </div>
 
 
@@ -87,7 +223,7 @@ Pluralsight | CheckPoint Certified Security Administrator: Backup and Updating (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519359.jpg" />
+  <img src="Z:/picture/008/save_picture_519359.jpg" />
 </div>
 
 
@@ -113,7 +249,7 @@ Keith Barker | Check Point CCSA GAiA (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518345.jpg" />
+  <img src="Z:/picture/008/save_picture_518345.jpg" />
 </div>
 
 
@@ -139,7 +275,7 @@ ITVDN | Видео курс C++ Starter (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517810.jpg" />
+  <img src="Z:/picture/008/save_picture_517810.jpg" />
 </div>
 
 
@@ -165,7 +301,7 @@ Udemy | Kickstart ur Network Security Career: Checkpoint CCSA Course (2015) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517253.jpg" />
+  <img src="Z:/picture/008/save_picture_517253.jpg" />
 </div>
 
 
@@ -191,7 +327,7 @@ Cybrary, Robert Smith и др. | Become a SOC Analyst - Level 1 (2020) PCRec [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516588.jpg" />
+  <img src="Z:/picture/008/save_picture_516588.jpg" />
 </div>
 
 
@@ -217,7 +353,7 @@ SmartMe | Thinking in Angular: про что не знает 80% AngularJS ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514745.jpg" />
+  <img src="Z:/picture/008/save_picture_514745.jpg" />
 </div>
 
 
@@ -243,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514648.jpg" />
+  <img src="Z:/picture/008/save_picture_514648.jpg" />
 </div>
 
 
@@ -269,7 +405,7 @@ Geekbrains | Node.js Серверное программирование на Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514642.jpg" />
+  <img src="Z:/picture/008/save_picture_514642.jpg" />
 </div>
 
 
@@ -295,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514635.jpg" />
+  <img src="Z:/picture/008/save_picture_514635.jpg" />
 </div>
 
 
@@ -322,7 +458,7 @@ Udemy, Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514344.jpg" />
+  <img src="Z:/picture/008/save_picture_514344.jpg" />
 </div>
 
 
@@ -351,7 +487,7 @@ PluralSight | Check Point Certified Security Administrator Install & Deploy (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513655.jpg" />
+  <img src="Z:/picture/008/save_picture_513655.jpg" />
 </div>
 
 
@@ -377,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513228.jpg" />
+  <img src="Z:/picture/008/save_picture_513228.jpg" />
 </div>
 
 
@@ -403,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513217.jpg" />
+  <img src="Z:/picture/008/save_picture_513217.jpg" />
 </div>
 
 
@@ -429,7 +565,7 @@ Udemy | Spring и Hibernate для новичков [включая Spring Boot]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512544.jpg" />
+  <img src="Z:/picture/008/save_picture_512544.jpg" />
 </div>
 
 
@@ -458,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510628.jpg" />
+  <img src="Z:/picture/008/save_picture_510628.jpg" />
 </div>
 
 
@@ -484,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510617.jpg" />
+  <img src="Z:/picture/008/save_picture_510617.jpg" />
 </div>
 
 
@@ -510,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509806.jpg" />
+  <img src="Z:/picture/008/save_picture_509806.jpg" />
 </div>
 
 
@@ -536,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509481.jpg" />
+  <img src="Z:/picture/008/save_picture_509481.jpg" />
 </div>
 
 
@@ -550,143 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C29550F2D221ABA4E0C17034918514F68102194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932559   (508916) от 29.08.2015
-
-Школа современных технологий | Среда знаний. Яндекс. Минусинск (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поисковые системы постоянно работают над повышением качества выдачи и, стремясь снизить искусственное влияние на нее со стороны сеошников, ужесточают требования к ссылочной массе и снижают влияние ссылок вообще, одновременно работая над усилением влияния внутренних показателей сайта. По заявлению специалистов Яндекса в определении релевантности сайта участвуют, кроме (   Читать дальше...   )Жанр: SEOПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1EC96F38F0B849DD80BAFBA5AEA6341FD6D8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932439   (508757) от 29.08.2015
-
-Oleg Lav | Camtasia Studio — профессиональный видеоредактор (2015) PCRec [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia Studio — профессиональный видеоредактор...
-Просто так программа не установится, ей нужна программная платформа .NET Framework. Заходим в Панель управления — Программы и компоненты — Включение или отключение компонентов Windows...Жанр: ВидеоредакторПродолжительность: 00:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D4B0437F7F413A00C512D1D2106503C21E61FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932648   (508744) от 29.08.2015
-
-Школа современных технологий | Среда знаний. SEO. Заточка лендинга (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный семинар будет интересен вам, если вы интересуетесь SEO, владеете основами HTML и CSS и хотите овладеть практическими приёмами внутренней оптимизации.
-За два часа мы оптимизируем SEO демонстрационного лендинга практически до совершенства!
-Вы узнаете как оптимизировать сайты под два наиболее популярных автоматизированных оценщика: Google PageSpeed и Site Analyzer. (   Читать дальше...   )Жанр: SEOПродолжительность: 02:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E229B00EC4C327AC6DF9C3F71AD419409D7B306E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933140   (506935) от 31.08.2015
-
-Дэвид Бизли | Конкурентность в Питоне с нуля. Вживую. (2015) HDTV
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506935.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данный момент существуют три пользующихся популярностью подхода к реализации конкурентных вычислений в Питоне: нити, событийные циклы и сопрограммы. Каждый из этих подходов окружён своей завесой тайны и рисками.
-
-В этом докладе, на коде, который будет написан прямо по ходу, мы разберём каждый из упомянутых путей: плюсы, минусы, места, на которые следует обратить (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B15F6D2466F0481FF33E0DAFD5A7F521CFD911A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933521   (505056) от 02.09.2015
-
-Антон Добрый | Сборка игрового компьютера от А до Я (2015) CamRip [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс предназначен для людей, решивших первый раз собрать компьютер. Как самостоятельно собрать игровой компьютер своими руками? Как установить оперативную память, видеокарту, жесткий диск Как подключить материнскую плату к корпусу?
-
-Все это Вы узнаете посмотрев данное видео, и без посторонней помощи Вы сможете правильно и не дорого выбрать комплектующие и собрать (   Читать дальше...   )Жанр: ПКПродолжительность: 02:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88521A530B55C457083F5CD14ED7B7A53B5EB892
 ```
 
 https://mybot314.ru/tekegram_catalog/

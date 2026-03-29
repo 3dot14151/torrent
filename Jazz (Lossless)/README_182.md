@@ -1,3 +1,119 @@
+###  Публикация: 944282   (443115) от 06.10.2015
+
+Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443115.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.After You've Gone [05:02]
+02.Fascinating Rhythm [04:23]
+03.Brazil [04:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0C8CD6CC8B17006F74C0DD15D2335549D48EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570436   (443033) от 17.08.2022
+
+Art Davis - A Time Remembered (1995) Jazz Planet [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evidence [7:18]
+02. A flower is a lovesome thing [8:00]
+03. Driftin' [7:20]
+04. Everybody's doing it [6:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1CFD23E647FCDBE4039CE8115B7E2CF9CA3289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570381   (443032) от 17.08.2022
+
+Benny Carter - Four Classic Albums: Second Set (1954 - 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443032.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Blue Heaven [4:03]
+02. Blues In B Flat [5:46]
+03. Street Of Dreams [3:52](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C356468EF2AB1556E2D9A3245994FAD3070B211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706594   (442620) от 03.10.2013
+
+VA - Norway Nights (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_442620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cover Me With Snow   (3:44)
+02.  Merciful (Herbert's We Mix)   (6:02)
+03.  Bella   (5:48)
+04.  Out Here, In There   (5:45)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD40DC3A6F8C185F5ECD82EECD4C78889518C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248589   (442564) от 20.09.2018
 
 Count Basie And The Kansas City - 7 (1962) 1996, GRP Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -6,7 +122,7 @@ Count Basie And The Kansas City - 7 (1962) 1996, GRP Records [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442564.jpg" />
+  <img src="Z:/picture/008/save_picture_442564.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Hugh Masekela - No Borders (2016) Trapeze Music [FLAC|Lossless|tracks + .cue] <A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442546.jpg" />
+  <img src="Z:/picture/008/save_picture_442546.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mel Torme - Meets The British: The London Recordings 1956/1957 (2008) Sepia Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442468.jpg" />
+  <img src="Z:/picture/008/save_picture_442468.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Freddie Roach - Mo' Greens Please (1963) Remaster, 2005, Toshiba[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442467.jpg" />
+  <img src="Z:/picture/008/save_picture_442467.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Billy Strayhorn - Lush Life (1965) 1992, Red Baron[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442466.jpg" />
+  <img src="Z:/picture/008/save_picture_442466.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Peggy Lee - I'm A Woman & Norma Deloris Egstrom From Jamestown, North Dakota (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442321.jpg" />
+  <img src="Z:/picture/008/save_picture_442321.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Miles Davis - Free Trade Hall: Vol. 1-2 (1960) 2CD, 2004, Magnetic Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442309.jpg" />
+  <img src="Z:/picture/008/save_picture_442309.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Hal Galper - Live at Maybeck Recital Hall, Vol.6 (1990) Concord Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442027.jpg" />
+  <img src="Z:/picture/008/save_picture_442027.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Rob Brown Ensemble - Crown Trunk Root Funk (2008) AumFidelity [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442026.jpg" />
+  <img src="Z:/picture/008/save_picture_442026.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Stan Getz - Sweet Rain (1986) Verve [FLAC|Lossless|image + .cue] <Cool, Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442009.jpg" />
+  <img src="Z:/picture/008/save_picture_442009.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jeremy Steig - Firefly (1977) 2016, King Record [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441873.jpg" />
+  <img src="Z:/picture/008/save_picture_441873.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ June Christy - The Cool School & Do Re Mi (1960, 1961) 2006, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441031.jpg" />
+  <img src="Z:/picture/008/save_picture_441031.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Ken Fowser - Don't Look Down (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441030.jpg" />
+  <img src="Z:/picture/008/save_picture_441030.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Vic Damone - Spotlight on Vic Damone (1995) Capitol Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441025.jpg" />
+  <img src="Z:/picture/008/save_picture_441025.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sidney Bechet - Great Original Performances 1924 to 1938 (1989) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440963.jpg" />
+  <img src="Z:/picture/008/save_picture_440963.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Panta Rhei - Hier Wie Nebenan - Anthologie (2020) Compilation, 2xCD [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440887.jpg" />
+  <img src="Z:/picture/008/save_picture_440887.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440871.jpg" />
+  <img src="Z:/picture/008/save_picture_440871.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440795.jpg" />
+  <img src="Z:/picture/008/save_picture_440795.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440679.jpg" />
+  <img src="Z:/picture/008/save_picture_440679.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440666.jpg" />
+  <img src="Z:/picture/008/save_picture_440666.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440375.jpg" />
+  <img src="Z:/picture/008/save_picture_440375.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440368.jpg" />
+  <img src="Z:/picture/008/save_picture_440368.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB38D1984A768F0797B6C6E6AF7AE55CA66192CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062667   (440116) от 14.10.2016
-
-Duke Ellington - Unknown Session (1960) 1991, Columbia[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everything But You [03:33]
- 02.Black Beauty [03:17]
- 03.All Too Soon [03:13]
- 04.Something To Live For [02:46](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4C43045048EF6776C2D16D9717CFD76C27D90B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062669   (440115) от 14.10.2016
-
-Peggy Lee - Pretty Eyes & Guitars Ala Lee (1960, 1966) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.As You Desire Me [02:54]
- 02.It Could Happen To You [02:28]
- 03.Pretty Eyes [02:38]
- 04.Moments Like This [01:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE25D5FAABC3F4B7A61F781E0B44CABCD21DDDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164760   (440051) от 10.09.2017
-
-Bruce Barth - Live At The Village Vanguard (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Ditty [06:51]
-02. Star Eyes [10:04]
-03. In the Still of the Night [05:23]
-04. Song for Alex [05:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D56EBF93A33B61EA4016E45A2FCFD07464067A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164766   (440048) от 10.09.2017
-
-Julian & Roman Wasserfuhr - Landed in Brooklyn (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [05:49]
-02. Tutto [05:12]
-03. Tinderly [07:26]
-04. Durch den Monsun [08:20](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E533CE0E47D721EB946A516C1787A71BE79F09
 ```
 
 https://mybot314.ru/tekegram_catalog/

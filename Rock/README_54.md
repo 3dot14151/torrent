@@ -1,3 +1,29 @@
+###  Публикация: 1407861   (460239) от 10.09.2020
+
+Psychlona - Mojo Rising / Venus Skytrip (2018-2020) 2CD [MP3|320 Kbps] <Psychedelic, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_460239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psychedelic, Stoner RockПродолжительность: 01:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4877B48DDFAE0B586B5E081DC06B0D22B4EBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407806   (460233) от 10.09.2020
 
 JD Simo (Simo) - JD Simo (2020) [MP3|320 Kbps] <Blues Rock, Psychodelic, Jam Band>
@@ -6,7 +32,7 @@ JD Simo (Simo) - JD Simo (2020) [MP3|320 Kbps] <Blues Rock, Psychodelic, Jam Ban
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460233.jpg" />
+  <img src="Z:/picture/008/save_picture_460233.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Cliff Richard & The Shadows - Reunited (50th Anniversary) (2009) [MP3|128-192 kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460219.jpg" />
+  <img src="Z:/picture/008/save_picture_460219.jpg" />
 </div>
 
 
@@ -70,7 +96,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967 [2012]) [MP3|320 кб/с]<Folk Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460149.jpg" />
+  <img src="Z:/picture/008/save_picture_460149.jpg" />
 </div>
 
 
@@ -105,7 +131,7 @@ Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458521.jpg" />
+  <img src="Z:/picture/008/save_picture_458521.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Toehider - I LIKE IT! (2020) [MP3|320 Kbps] <Progressive Rock, Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458307.jpg" />
+  <img src="Z:/picture/008/save_picture_458307.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Artful Dodger - Artful Dodger (1975) Remastered /1997, P.E.G./ [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458102.jpg" />
+  <img src="Z:/picture/008/save_picture_458102.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456617.jpg" />
+  <img src="Z:/picture/008/save_picture_456617.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456570.jpg" />
+  <img src="Z:/picture/008/save_picture_456570.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ Stoned Harpies - Another Land (2020) EP [MP3|320 Kbps] <Rock, Stoner Rock, Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456133.jpg" />
+  <img src="Z:/picture/008/save_picture_456133.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ Puce - The Trough (2020) [MP3|320 Kbps] <Hard Rock, Psychedelic Rock, Garage Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456131.jpg" />
+  <img src="Z:/picture/008/save_picture_456131.jpg" />
 </div>
 
 
@@ -314,7 +340,7 @@ Gil Edwards - Celebrate (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455123.jpg" />
+  <img src="Z:/picture/008/save_picture_455123.jpg" />
 </div>
 
 
@@ -343,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453777.jpg" />
+  <img src="Z:/picture/008/save_picture_453777.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Bryan Adams - Get Up (2015) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453406.jpg" />
+  <img src="Z:/picture/008/save_picture_453406.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Steely Dan - Les Genies du Rock - The Caves Of Altamira (1993) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452707.jpg" />
+  <img src="Z:/picture/008/save_picture_452707.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452510.jpg" />
+  <img src="Z:/picture/008/save_picture_452510.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452404.jpg" />
+  <img src="Z:/picture/008/save_picture_452404.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451904.jpg" />
+  <img src="Z:/picture/008/save_picture_451904.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451903.jpg" />
+  <img src="Z:/picture/008/save_picture_451903.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451898.jpg" />
+  <img src="Z:/picture/008/save_picture_451898.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Def Leppard - Hysteria (1987) [OGG|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451656.jpg" />
+  <img src="Z:/picture/008/save_picture_451656.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ Joe Bouchard - Tales from the Island (2012) [MP3|320 кб/с]<Classic Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451417.jpg" />
+  <img src="Z:/picture/008/save_picture_451417.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Frank Zappa - ZAPPAtite - Frank Zappa’s Tastiest Tracks (2016) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450783.jpg" />
+  <img src="Z:/picture/008/save_picture_450783.jpg" />
 </div>
 
 
@@ -665,7 +691,7 @@ Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450640.jpg" />
+  <img src="Z:/picture/008/save_picture_450640.jpg" />
 </div>
 
 
@@ -694,7 +720,7 @@ VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450341.jpg" />
+  <img src="Z:/picture/008/save_picture_450341.jpg" />
 </div>
 
 
@@ -723,7 +749,7 @@ Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450223.jpg" />
+  <img src="Z:/picture/008/save_picture_450223.jpg" />
 </div>
 
 
@@ -737,40 +763,6 @@ Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63D3850BDF3D58B55B3B681B866EBC58E3E9D556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 242451   (449954) от 06.10.2010
-
-The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock and Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449954.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:49] 01.  - Christmas Time is Here Again (outtake 1967)
-[05:05] 02.  - The Beatles Christmas Record (1963
-[04:07] 03.  - Another Beatles Christmas Record (1964)
-[06:26] 04.  - The Beatles Third Christmas Record (1965)
-[06:42] 05.  - The Beatles Fourth Christmas Record (1966)
-[06:14] 06.  - Christmas Time is Here Again (1967)
-[07:56] 07.  - The Beatles 1968 Christmas Record (1968)
-[07:45] 08.  - The Beatles Seventh Christmas Record (1969)
-[04:40] 09.  - Christmas Message (1964)Жанр: Rock and RollПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

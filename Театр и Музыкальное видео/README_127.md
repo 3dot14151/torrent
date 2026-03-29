@@ -1,3 +1,171 @@
+###  Публикация: 594248   (133983) от 25.12.2012
+
+сНежное шоу 3D (2012) HDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебная сказка, рассказанная знаменитым русским клоуном Славой Полуниным.
+
+Для кого-то это шоу покажется лирическим воспоминанием о детстве, для кого-то станет пронзительным рассказом об одиночестве. Кто-то будет от души смеяться над желтым клоуном в лохматых красных тапочках и повторять вслед за ним: «Асисяй…» А у кого-то будут наворачиваться слезы от щемящей трепетности маленького человека в бездонной синеве вселенной… И любовь, словно паутина, окутает каждого в зале и заставит радоваться до слёз, не даст забыть, ещё долго будет будоражить странными чудесными воспоминаниями.Жанр: Документальный, семейныйРежиссер: Виктор КрамерАктеры: Слава Полунин, Роберт СаралповПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1E39378E03FB4AFC098A883E88EC6C2A159C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593980   (133898) от 25.12.2012
+
+сНежное шоу 3D (2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Документальный, семейныйРежиссер: Виктор КрамерАктеры: Слава Полунин, Роберт СаралповПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0A71F99EA04F2A2333B98636F129CF1356C6E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680601   (133674) от 30.11.2023
+
+Original ENIGMA Voices LIVE 2023 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись нового концертного тура  группы «Original ΣNIGMA Voices», организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки. Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Angel X и латвийская певица Fox Lima продолжают втроём гастролировать с живыми версиями песен ENIGMA.1 Intro
+2 Gravity Of Love
+3 The Rivers Of Belief
+4 Beyond The Invisible(   Читать дальше...   )Жанр: New Age, Worldbeat, Chill-outПродолжительность: 01:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5F7EB010B8399804D080DFE7FB9BD316FB18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680470   (133649) от 30.11.2023
+
+Старые Песни о Главном: Постскриптум (2000) DVDRip [H.265/1080p] [10-bit] [Hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в сказочном отеле времени. Его посетители - эстрадные звезды. Они все раз в столетие в новогоднюю ночь уходящего века собираются вместе. Этой ночью пространство и время чудесным образом сжимаются так, что мы одновременно можем видеть звезд из разных стран и эпох.1. Александр Буйнов -"Let My People Go"
+2. Лайма Вайкуле - "Эй, моряк" (из к/ф "Человек-амфибия")
+3. Мумий Тролль - "Twist And Shout"
+4. Таня Буланова - "Padam Padam"(   Читать дальше...   )Производство: Россия / Первый каналЖанр: мюзикл, музыка, документальныйРежиссер: Олег ГусевАктеры: Николай Фоменко, Филипп Киркоров, Алла Пугачёва, Виктор Сухоруков, Елена Воробей, Марина Хлебникова, Александр Буйнов, Михаил Терентьев, Елена Корикова. Людмила ГурченкоЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C859FE991F20C17DB20227D04F2156C215876BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595074   (132550) от 28.12.2012
+
+Нюша - Это Новый Год (2012)[H.264] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Традиционно, под Новый год звезды исполняют новые песни и выпускают в эфир свежие клипы о новогоднем счастье. Так и Нюша не удержалась от массовых поздравлений и сняла клип к песне «Это Новый год».Жанр: POP МузыкаРежиссер: Павел ВладимирскийПродолжительность: 00:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683DEDFDC852C72CBC0C35E234557138A8E749BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681698   (132338) от 04.12.2023
+
+Квартирник у Маргулиса. Группа «25/17» (03.12.2023) WEBRip [H.264/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Речь пойдет о группе, которая одной ногой в рэпе, одной в русском роке.
+«25/17» – российская группа, играющая альтернативную музыку. В начале творческой деятельности коллектив играл традиционный рэп, однако по мере взросления музыканты стали00:00:05 Подорожник
+00:04:27 Русская
+00:09:42 Пограничник
+00:18:19 Шей меня(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Альтернативный рок, хип-хопЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC30CD4BC90B7E1F0C9727102AD8180CB157D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595733   (132076) от 29.12.2012
 
 Слава Бобков - Переплавленный в колокол (2007) [H.264/1080p] WEBRip
@@ -6,7 +174,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132076.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132063.jpg" />
 </div>
 
 
@@ -62,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131902.jpg" />
 </div>
 
 
@@ -88,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131847.jpg" />
 </div>
 
 
@@ -114,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131619.jpg" />
 </div>
 
 
@@ -140,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131426.jpg" />
 </div>
 
 
@@ -169,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131364.jpg" />
 </div>
 
 
@@ -198,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131338.jpg" />
 </div>
 
 
@@ -226,7 +394,7 @@ SaBo-FX - Erotic (Final Countdown 2012 remake) [H.264/720p] (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131325.jpg" />
 </div>
 
 
@@ -252,7 +420,7 @@ Progressive Rock - Rock Legends (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130968.jpg" />
 </div>
 
 
@@ -287,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130820.jpg" />
 </div>
 
 
@@ -318,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130751.jpg" />
 </div>
 
 
@@ -344,7 +512,7 @@ Duran Duran - A Hollywood High: Live In Los Angeles (2022) BDRip [H.265/1080p] [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129926.jpg" />
 </div>
 
 
@@ -370,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128396.jpg" />
 </div>
 
 
@@ -399,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127252.jpg" />
 </div>
 
 
@@ -429,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127241.jpg" />
 </div>
 
 
@@ -456,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126662.jpg" />
 </div>
 
 
@@ -482,7 +650,7 @@ Till Lindemann - 2023 Tour Live (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126298.jpg" />
 </div>
 
 
@@ -513,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126163.jpg" />
 </div>
 
 
@@ -543,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125978.jpg" />
 </div>
 
 
@@ -554,175 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21FC45A6C5E77BC54A342BDB728B6AB68D2B1E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687069   (125972) от 25.12.2023
-
-Квартирник у Маргулиса. Любэ (24.12.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Любэ» была создана в 1989 году продюсером и композитором Игорем Матвиенко. Ее бессменным лидером и солистом на протяжении всех лет является Николай Расторгуев. В основе репертуара коллектива — рок-музыка с использованием авторской, народной и военной песни. «Любэ» полюбили с первых нот и с первых слов, похожих на кухонные разговоры и фразы, доносящиеся из (   Читать дальше...   )00:00:04   А заря
-00:06:22   Ребята с нашего двора
-00:12:52   Солдат
-00:24:32   Главное — что есть ты у меня…(   Читать дальше...   )Производство: РоссияЖанр: Поп, рокЯзык озвучки: РусскийПродолжительность: 01:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A9580479AC40E88689AB5011CCB94E8EB48609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687201   (125968) от 25.12.2023
-
-МузЛофт / МузLoft. Хижина Музыканта & Квашеная (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Квашеная Хижина Музыканта. Лучшие музыкальные стримеры России. Песни по заявкам.
-Уникальный концерт, в котором встретились два самых популярных стримера. Ребята поделились планами на Новый год и спели множество «народных» хитов, чтобы у вас было под что нареза́ть салаты.00:00 В этом выпуске
-01:07 Песенка про «билайн»
-03:34 «А снег идет», а мы начинаем
-06:27 Стекловата – Новый год(   Читать дальше...   )Производство: Россия | Y-GenerationЖанр: PopУчастники: Саша Квашеная (Капустина), Раиль АрслановПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521B7A3DD3FEE025D7CB2E47554C6210A27F81BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823575   (125845) от 11.10.2025
-
-Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт прошёл 22 марта в рамках тура "The big mash up tour 2012" в концертном зале "02 World".01. Intro (The big mash up tour '12)
-02. Faster Harder Scooter / Ramp! (The logical song)
-03. Sugary dip
-04. The only one(   Читать дальше...   )Производство: Германия, ABC EntertaimentЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 02:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687848   (125492) от 27.12.2023
-
-Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125492.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме-концерте Эрика Уотсона представлено живое выступление Британского поп-дуэта Pet Shop Boys во время их революционного мирового турне 1991 года. Создан совместно с режиссером Дэвидом Олденом и дизайнером Дэвидом Филдингом, наиболее известными своими авангардными оперными постановками.1 Intro
-2 This Must Be The Place I Waited Years To Leave
-3 It's A Sin
-4 Losing My Mind(   Читать дальше...   )Производство: Великобритания / Pet Shop Boys Partnership, PMI, EMI Records Ltd.Жанр: Pop, ElectronicРежиссер: Eric WatsonПеревод: ОтсутствуетПродолжительность: 01:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1733D721BE2D1361998978B8B595AF938E873F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687183   (125096) от 30.12.2023
-
-Щелкунчик / The Nutcracker (1968) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Балетный шедевр Петра Чайковского по сказке Эрнста Гофмана "Щелкунчик и Мышиный король". Историческая постановка в Ковент-Гарден в 1968 году запечатлела Рудольфа Нуреева на пике его карьеры. Легендарное выступление Нуреева делает этот фильм неповторимым "Щелкунчиком". В роли Клары - Мерл Парк, прима-балерина Королевского балета Лондона. Рудольф (   Читать дальше...   )Производство: Великобритания, Covent Garden Pioneer FSPЖанр: балет,  музыка, сказкаРежиссер: Джон ВернонАктеры: Мерл Парк, Рудольф Нуреев, Джеффри Коли, Майкл Коулмэн, Лесли Колье, Лесли Эдвардс, Александр Грант, Кэрол Хилл, Стэнли Холден, Рональд ХайндПеревод: нет диалогов и озвученных комментариевСубтитры: отсутствуютПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F747DB56F0F372C5CED8F8A38104F95A3086B298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 247623   (124844) от 01.01.2024
-
-НеГолубой Огонёк на REN-TV  (2004) <Rock-Pop>  DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неголубой огонёк - это новогодняя музыкальная телепередача, выходившая на канале Ren-TV в новогоднюю ночь 2004. Впервые в истории отечественной ПОПСЫ, впервые в истории российского РОКА исполнители из этих двух враждующих кланов обойдутся без взаимных оскорблений и выступят не только на одной сцене, но и ансамблями. Первый «Неголубой Огонек» получил высокий рейтинг. (   Читать дальше...   )Жанр: Новогодняя тв-программаРежиссер: Максим ВиторганПеревод: ОригинальныйПродолжительность: 02:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E0DA8B4B57AC8AA65B285E2249B205BE35381C
 ```
 
 https://mybot314.ru/tekegram_catalog/

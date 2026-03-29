@@ -1,3 +1,159 @@
+###  Публикация: 1750242   (43013) от 20.09.2024
+
+Discord запускает DAVE: безопасность общения выходит на новый уровень
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики уверяют в надёжности и эффективности нового протокола.Discord представил новый протокол шифрования DAVE, который обеспечит полную безопасность аудио- и видеозвонков на платформе. Пользователи смогут общаться через Discord с полным шифрованием данных, что исключает возможность доступа к контенту третьих лиц, включая саму платформу.Сквозное шифрование (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750555   (43005) от 20.09.2024
+
+Камеди Клаб / Комеди Клаб / Comedy Club (2024.09.20) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43005.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76800AA49982F19B436D7F2F96FCF7F079905DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750431   (42913) от 21.09.2024
+
+ФСТЭК назвала стоимость российского ПО чрезмерно высокой
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стоимость отечественного программного обеспечения очень завышена, заявил заместитель директора Федеральной службы по техническому и экспортному контролю (ФСТЭК) Виталий Лютиков на пленарной сессии BIS Summit.Замдиректора отметил, что российские производители подняли цены в десятки раз из-за спроса на свои товары и отсутствия конкуренции с популярными европейскими (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749129   (42898) от 21.09.2024
+
+Star Wars Jedi: Survivor (2023) [Multi] (Patch 9/dlc) Scene Rune [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42898.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: SceneРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9A992A768564E7A0534A2F572C61DA3BDE9ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750550   (42895) от 21.09.2024
+
+Microsoft Office LTSC 2024 Professional Plus / Standard + Visio + Project 16.0.17932.20114 (2024.09) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office LTSC 2024 предоставляет привычный набор приложений, таких как Word, Excel, PowerPoint, Outlook, OneNote, OneDrive и Access, и включает функции, представленные в корпоративных версиях Microsoft 365. Среди нововведений — динамические диаграммы в Excel, улучшенные возможности поиска и создания встреч в Outlook, а также улучшения производительности, безопасности (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1DB6CC46CA6294B39C2AE5765A0C7A416417CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750486   (42801) от 22.09.2024
+
+Палата представителей США заявила: все новые автомобили должны быть оснащены AM-радио
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автопроизводители сопротивляются по экономическим и техническим причинам.Конгресс размышляет, следует ли требовать от новых транспортных средств включать AM-радио, технологию, которую многие автопроизводители считают устаревшей и от которой потребители все чаще отказываются в пользу цифрового потокового вещания. Однако есть аргументы в пользу ее включения, такие (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 278889   (42793) от 22.09.2024
 
 Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
@@ -6,7 +162,7 @@ Sin Episodes: Emergence (2006) [Ru] (1.0/dlc) Repack Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42793.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42791.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42581.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ SpaceX хочет запустить пять кораблей на Марс д�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42562.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42483.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42479.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ Ookami to Koushinryou: Merchant Meets the Wise Wolf | Spice & Wolf: Merchant Mee
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42377.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42268.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42177.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42165.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42164.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42126.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41970.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41849.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41848.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41823.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41725.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41622.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41544.jpg" />
 </div>
 
 
@@ -502,7 +658,7 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41538.jpg" />
 </div>
 
 
@@ -513,165 +669,6 @@ VLADiK BRUTAL (2024) [Ru/Multi] (1.0.3.7) Repack Decepticon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC9B518E37E5DE730A8289B497AFA6F17CD8BCF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751981   (41434) от 05.10.2024
-
-Одинокие волки / Wolfs (2024) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пути двух соперничающих решал пересекаются, когда их обоих вызывают помочь скрыть промах видного нью-йоркского чиновника. В течение одной взрывоопасной ночи им придётся отбросить свои мелкие обиды и эго, чтобы довести дело до конца.Производство: Великобритания, США / Apple Studios, Columbia Pictures Corporation, Plan B Entertainment, Smoke HouseЖанр: триллер, криминалРежиссер: Джон УоттсАктеры: Брэд Питт, Джордж Клуни, Эми Райан, Остин Абрамс, Пурна Джаганнатан, Wael Alroyly, Златко Бурич, Линда Карола, Ирина Дубова, Ричард КайндПеревод: Многоголосый профессиональный (HDRezka Studio, RGB)Язык озвучки: русский, английскийСубтитры: русские (2 x forced, full), английские (forced, full, SDH), украинские, немецкие, испанские, французскиеПродолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4086C091AA1974CEDDE1EEB3BB3E1A3666B4D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621205   (41330) от 06.10.2024
-
-Треугольник / Triangle (2009) [1080p] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег приглашает свою подругу Джесс, молодую мать-одиночку, провести день на яхте в кругу своих друзей. Начавшийся сильный шторм переворачивает судно, и оставшиеся в живых вынуждены дожидаться помощи, цепляясь за перевернутый корпус яхты. Спасение приходит в виде огромного океанического лайнера. Судно оказывается пустым, часы на борту остановились. Но они не одни (   Читать дальше...   )Жанр: Ужасы, Триллер, ДетективРежиссер: Кристофер СмитАктеры: Мелисса Джордж, Джошуа МакИвор, Джек Тейлор, Майкл Дорман, Генри Никсон, Рейчал Карпани, Эмма Ланг, Лиам Хемсворт, Брайан ПробетсПеревод: • Профессиональный (многоголосый закадровый)
-   • Профессиональный (двухголосый закадровый)
-   • Авторский (одноголосый закадровый)Язык субтитров: РусскийПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE34BC66339A3C00738171D2473CB9AFCBB7DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752694   (41310) от 06.10.2024
-
-Квантовые компьютеры оказались слишком слабыми для запуска Doom
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущенная в 1993 году игра Doom имеет по сегодняшним меркам настолько скромные системные требования, что её запускают на самом неожиданном оборудовании: это может быть встроенный в клавишу Backspace крошечный экран, ёлочная игрушка, воксельный дисплей,  умная газонокосилка или стандартная программа Windows. Но не квантовый компьютер.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753605   (41238) от 07.10.2024
-
-Telegram приглашает к разработке аналога YouTube
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда мессенджера Telegram начала работу над проектом собственного видеохостинга, который может стать аналогом YouTube. Такой вывод можно сделать из условий конкурса для разработчиков, который объявила администрация сервиса.Об этом сказано в публикации верифицированного канала Telegram Contest 4 октября. Условия предполагают создание видеохостинга внутри приложения. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746071   (41133) от 08.10.2024
-
-Властелин колец: Кольца власти / The Lord of the Rings: The Rings of Power (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit] (сезон 2, серии 1-8 из 8) RHS, Lostfilm, HDRezka, TVShows, LE-Production
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой эпической драмы разворачивается за тысячи лет до событий "Хоббита" и "Властелина колец" Дж.Р.Р. Толкина и перенесет зрителей в эпоху, когда создавались великие державы, королевства поднимались к славе и рушились, невероятные герои подвергались испытаниям, надежда висела на тончайших нитях, а величайший злодей, когда-либо вышедший (   Читать дальше...   )Производство: США, Новая Зеландия, Канада / Amazon Studios, Harper Collins Publishers, New Line CinemaЖанр: фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Уэйн Йип, Луиз ХуперАктеры: Морвет Кларк, Чарли Викерз, Маркелла Кавена, Дэниэл Вейман, Меган Ричардс, Исмаэль Крус Кордова, Роберт Арамайо, Чарльз Эдвардс, Синтия Аддай-Робинсон, Ллойд ОуэнПеревод: Дублированный (Red Head Sound), Многоголосый (Lostfilm, HDRezka, TVShows, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D89E31E63FAA5E961CE740E1CC0981F46C962E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746277   (41132) от 08.10.2024
-
-Властелин колец: Кольца власти / The Lord of the Rings: The Rings of Power (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) RHS, Lostfilm, HDRezka, TVShows, LE-Production
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этой эпической драмы разворачивается за тысячи лет до событий "Хоббита" и "Властелина колец" Дж.Р.Р. Толкина и перенесет зрителей в эпоху, когда создавались великие державы, королевства поднимались к славе и рушились, невероятные герои подвергались испытаниям, надежда висела на тончайших нитях, а величайший злодей, когда-либо вышедший (   Читать дальше...   )Производство: США, Новая Зеландия, Канада / Amazon Studios, Harper Collins Publishers, New Line CinemaЖанр: фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Уэйн Йип, Луиз ХуперАктеры: Морвет Кларк, Чарли Викерз, Маркелла Кавена, Дэниэл Вейман, Меган Ричардс, Исмаэль Крус Кордова, Роберт Арамайо, Чарльз Эдвардс, Синтия Аддай-Робинсон, Ллойд ОуэнПеревод: Дублированный (Red Head Sound), Многоголосый (Lostfilm, HDRezka, TVShows, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F0D070EF0C5C336D5B5C72AB120575B0D91151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Ethnic Music The Indians' Collection (2013) [MP3|320 Kbps] <Native American
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893406.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892929.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891606.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891577.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Ruhelounge Entspannungsraum (2016) [MP3|320 кб/с] <Chillout, Lounge, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889827.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887713.jpg" />
+  <img src="Z:/picture/005/save_picture_887713.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gomer Edwin Evans - Celtic Legends of Ireland (2016) [MP3|320 кб/с] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884612.jpg" />
+  <img src="Z:/picture/005/save_picture_884612.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881167.jpg" />
+  <img src="Z:/picture/005/save_picture_881167.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native S
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881068.jpg" />
+  <img src="Z:/picture/005/save_picture_881068.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876998.jpg" />
+  <img src="Z:/picture/008/save_picture_876998.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Guy Sweens - Legend Of Ganesha (2009) [MP3|320 кб/с]<New Age, Spiritual, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876991.jpg" />
+  <img src="Z:/picture/008/save_picture_876991.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Paul Sills - Electric Storm (2017) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876551.jpg" />
+  <img src="Z:/picture/005/save_picture_876551.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876549.jpg" />
+  <img src="Z:/picture/005/save_picture_876549.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873736.jpg" />
+  <img src="Z:/picture/008/save_picture_873736.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873676.jpg" />
+  <img src="Z:/picture/008/save_picture_873676.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873528.jpg" />
+  <img src="Z:/picture/008/save_picture_873528.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871560.jpg" />
+  <img src="Z:/picture/008/save_picture_871560.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870515.jpg" />
+  <img src="Z:/picture/008/save_picture_870515.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866892.jpg" />
+  <img src="Z:/picture/008/save_picture_866892.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866847.jpg" />
+  <img src="Z:/picture/008/save_picture_866847.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866445.jpg" />
+  <img src="Z:/picture/008/save_picture_866445.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864641.jpg" />
+  <img src="Z:/picture/008/save_picture_864641.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864544.jpg" />
+  <img src="Z:/picture/008/save_picture_864544.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864533.jpg" />
+  <img src="Z:/picture/008/save_picture_864533.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Tristeria - Epoka (2011) 2017 Tristeria [FLAC|Lossless|WEB-DL] <New Age, Enigmat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862579.jpg" />
+  <img src="Z:/picture/008/save_picture_862579.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855566.jpg" />
+  <img src="Z:/picture/008/save_picture_855566.jpg" />
 </div>
 
 

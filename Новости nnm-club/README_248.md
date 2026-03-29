@@ -1,3 +1,161 @@
+###  Публикация: 1495829   (167143) от 09.12.2021
+
+Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.0.0p-1.1.4i.486) License GOG [Patches]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pathfinder: Wrath of the Righteous – непрямое продолжение ролевой игры Pathfinder: Kingmaker, событие которого разворачиваются в новой части Голариона, Ране Мира, где открылся портал в Бездну. Оказавшись там, вы будете вовлечены в войну между смертными и демонами. В Pathfinder: Wrath of the Righteous появились новые классы персонажей – ведьма и оракул.Тип издания: LicenseРазработчик: Owlcat GamesЖанр: Adventure, RPG, Isometric, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44910538A321505BA1A89CBA32E0F061C2503C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431272   (167069) от 13.12.2020
+
+Zombie Army 4: Dead War (2020) [Ru/Multi] (1.06/dlc) License EMPRESS [Super Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орды под предводительством Гитлера возвращаются за добавкой в новом леденящем кровь шутере от создателей Sniper Elite 4! Жуткие демонические враги, эпическое оружие и невероятная новая кампания для 1−4 игроков в духе Европы 1940-х. Сразитесь с нежитью и не дайте человечеству погибнуть!Тип издания: LicenseРазработчик: RebellionЖанр: ШутерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5D20E05F4320A4A9F4CFE305060E81AE91983C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596853   (167060) от 13.12.2022
+
+Google Chrome теперь официально поддерживает ключи доступа для входа без паролей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_167060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google объявила, что общедоступная версия браузера Chrome теперь поддерживает ключи доступа — решение, предназначенное для аутентификации пользователей на различных ресурсах без необходимости запоминать и вводить пароль. Ключи доступа работают в последней версии Chrome под Windows 11, macOS и Android.Классический механизм аутентификации с логинами и паролями в современных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431479   (167046) от 13.12.2020
+
+HTML Academy | HTML и CSS. Профессиональная вёрстка сайтов (2020) PCRec [7 сентября — 8 ноября 2020]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс разработан для тех, кто хочет сменить профессию и стать высокооплачиваемым профессионалом. Он подойдёт для работающих людей, у которых мало времени.
+
+Во время курса вы будете работать как настоящие верстальщики: поработаете с системой контроля версий в GitHub Desktop и с графическим макетом в редакторе Figma, создадите выразительную и доступную разметку, построите (   Читать дальше...   )Производство: HTML AcademyЖанр: Программирование, вёрсткаПродолжительность: 19:18:81
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0627532B1A3770A6A1CD7A0AA549676C8E895F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338431   (166829) от 14.12.2019
+
+Kaspersky Free 2020 20.0.14.1085 (e) RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Free — бесплатный Антивирус Касперского с облачными технологиями Kaspersky Security Network. Решение предлагает файловый антивирус, веб-антивирус, VPN, защиту от сетевых атак и мониторинг активности.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E4DA4958D5108498814EC45AAC234EAFD513AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317607   (166789) от 14.12.2019
+
+KMS Tools Portable 01.08.2019 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166789.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CBCCE32E119D40CF19563A24DC63DBC2BC2945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370361   (166366) от 14.12.2020
 
 Sticky Password Premium 8.2.3.43 (промо Comss) [Multi/Ru]
@@ -6,7 +164,7 @@ Sticky Password Premium 8.2.3.43 (промо Comss) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166366.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_166334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_166334.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.12.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166319.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166315.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166314.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Windows 11 22H2 x64 Rus by OneSmiLe [22621.963]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166168.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165945.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165935.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165638.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_165604.jpg" />
+  <img src="Z:/picture/005/save_picture_165604.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 20.12.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165533.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ Blasphemous (2019) [Ru/Muilti] (4.0.67/dlc) License GOG [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165531.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165513.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165508.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ KMS Tools Portable by Ratiborus 15.12.2022 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165385.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2019
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165349.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_164977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_164977.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164680.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/En] (1.34.0.15931218) Rip Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164673.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164672.jpg" />
 </div>
 
 
@@ -518,163 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F63A5F66B0454EF33596D79CF9EDFB387599F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293496   (164671) от 12.12.2021
-
-Flibusta Downloader v3.2.2.1 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступ к библиотеке Флибусты через технологии TOR. Работает без подключения к прокси.Тип издания: FreeРелиз состоялся: 21.04.2021Разработчик: el-dorianПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AA5D1575BA52A5622D3E6F9E0ABB8170439C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431764   (164585) от 16.12.2020
-
-Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164585.jpg" />
-</div>
-
-
-###  Подробнее
-
-После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288281   (164580) от 16.12.2020
-
-Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA15E06F789056CB7E6FA79F196CBC828CC26397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597810   (164465) от 16.12.2022
-
-Банши Инишерина / The Banshees of Inisherin (2022) WEB-DLRip [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164465.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух друзей, которые вступают в конфликт на отдалённом ирландском острове.Производство: Ирландия, Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: драма, комедияРежиссер: Мартин МакдонаАктеры: Колин Фаррелл, Брендан Глисон, Керри Кондон, Барри Кеоган, Гари Лайдон, Пэт Шорт, Шила Флиттон, Брид Ни Нетэн, Джон Кенни, Аарон МонахэнПеревод: Многоголосый профессиональный (HDRezka Studio, TVShows), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английские (SDH), русские (forced, full) - отдельными файламиПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD49C01799280618CB2C7DEC97361552F8F6EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428585   (164455) от 16.12.2022
-
-Borland Delphi 7 Science Edition 2020 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delphi 7 - всеми известная программа от компании Borland, а именно средство разработки для программирования как на начальном, так и на профессиональном уровне. Один из самых лучших и популярных продуктов от компании Borland.
-В состав пакета входит расширенный комплект разрабочика - более сотни сторонних компонент и исправлений, корректно настроенных для исключения (   Читать дальше...   )Язык интерфейса: установщик русский/среда IDE  - английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345933   (164086) от 18.12.2019
-
-Япония и Корея приступают к переводу своей энергетики на водород
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_164086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная инициатива между корейскими и японскими компаниями Kawasaki Heavy Industries, Iwatani Corporation, Shell Japan и J-Power по созданию новой транспортной инфраструктуры, основанной на применении водорода в качестве топлива, дала первые результаты. Kawasaki ввела в эксплуатацию корабль «Suiso Frontier», который стал первым в мире судном, предназначенным для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

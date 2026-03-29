@@ -1,3 +1,133 @@
+###  Публикация: 954837   (336557) от 09.11.2015
+
+REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamRip Let'sРlay
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336557.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1972 г. в ходе последнего пилотируемого полёта на луну был обнаружен, потерпевший крушение космический корабль, инопланетного происхождения и все сведения об этой миссии были засекречены. Однако, в 1976 г. разведка СССР получает эти данные и правительство организовывает экспедицию на луну, с целью изучения обломков космического корабля. Спустя два года, на луне (   Читать дальше...   )Тип издания: SteamRipРазработчик: ReewGamesЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F200DF65EEBC495ADAE4FB30FDEAEE3496843A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816371   (336548) от 09.11.2015
+
+Salt (2015) [En] (1.6) Repack Hazestalker [Early Acsess]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Salt - это приключенческая survival-песочница про выживание человека на далеком архипелаге, со случайно генерируемым миром, в котором игрок будет исследовать огромный океанический архипелаг путешествуя между островами. Сражайтесь с пиратами, добывайте пищу, ищите торговцев, чтобы купить редкие и ценные товары, создавайте новые предметы, занимайтесь поиском пиратских (   Читать дальше...   )Тип издания: RepackРазработчик: Lavaboots StudiosЖанр: Survival-песочницаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420442   (332196) от 01.11.2020
+
+In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специально для фанатов хоррор-выживания мы подготовили In Silence по сети или интернету онлайн. Здесь лишь один игрок сможет играть роль монстра со сверхъестественными способностями. Монстр ослеп, но отлично ориентируется по звуку. Остальная часть игроков будут играть роль выживших, их главная цель выжить и параллельно ликвидировать преследующего их монстра.Тип издания: RepackРазработчик: Ravenhood GamesЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483B4D805C8D31D5A2ED469FF8629B5E68E213DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581258   (326967) от 05.10.2022
+
+Bus World (2022) [Ru/Multi] (Build 9649353) Repack Other s
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bus World - игра о пассажирских перевозках, от простых будней водителя автобуса до спасения людей в условиях различных катастроф. Окунитесь в сюжеты десятков разнообразных сценариев или играйте в свободный режим, где вы вольны сами строить маршруты и перемещаться по игровым картам, как захотите! Место и время действия максимально разнообразны! На каждой карте своя (   Читать дальше...   )Тип издания: RepackРазработчик: KishMish GamesЖанр: Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9130FF4A0FAF02063FC87B25C85698CA9ACE2C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260227   (313620) от 06.11.2018
+
+Stranded Deep (2015) [En] (0.50.01) SteamRip R.G. Игроманы
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stranded Deep — это квест с видом от первого лица с элементами экшена от студии Beam Team Games. Издателем игры выступает Beam Team Games. Сюжет игры прост - терпя авиакрушение ваш герой оказывается посреди Тихого океана. Сооружаем все что попадется под руку, едим все что движется..Тип издания: SteamRipРазработчик: Beam Team GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6828104E90CB42CB6492605AF2B8FEFE8E883B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080147   (291207) от 05.12.2016
 
 Agony (2017) [Multi] (Demo) Repack Other s
@@ -6,7 +136,7 @@ Agony (2017) [Multi] (Demo) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291207.jpg" />
+  <img src="Z:/picture/008/save_picture_291207.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281976.jpg" />
+  <img src="Z:/picture/008/save_picture_281976.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ Visage (2018) [Ru/Multi] (2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278333.jpg" />
+  <img src="Z:/picture/008/save_picture_278333.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Off-Road Paradise: Trial 4x4 (2016) [En/Es] (0.1/Early Access) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276742.jpg" />
+  <img src="Z:/picture/008/save_picture_276742.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ The Coma 2: Vicious Sisters (2019) [Ru/Multi] (0.2.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274326.jpg" />
+  <img src="Z:/picture/008/save_picture_274326.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ BIOS (2016) [Ru/Multi] (0.32) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273117.jpg" />
+  <img src="Z:/picture/008/save_picture_273117.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261692.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Kingdoms Reborn (2020) [Ru/Multi] (0.250) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260826.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260757.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ Fatal Claw (2025) [Ru/Multi] (0.9.81) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257799.jpg" />
+  <img src="Z:/picture/005/save_picture_257799.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ The Last Starship (2023) [Ru/Multi] (18a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256789.jpg" />
+  <img src="Z:/picture/005/save_picture_256789.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255638.jpg" />
+  <img src="Z:/picture/005/save_picture_255638.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ PARANOIA PLACE (2023) [Multi] (0.48) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255431.jpg" />
+  <img src="Z:/picture/005/save_picture_255431.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ The Scouring (2025) [Ru/Multi] (02.11.25) Repack R.G. Freedom [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250345.jpg" />
+  <img src="Z:/picture/004/save_picture_250345.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ Cisco Aspire (L / Beta) [En] 2011
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248970.jpg" />
+  <img src="Z:/picture/004/save_picture_248970.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246246.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234149.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ Darkest Dungeon (2015) [En] (Build 12102) Repack NIK220V
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223255.jpg" />
+  <img src="Z:/picture/005/save_picture_223255.jpg" />
 </div>
 
 
@@ -478,7 +608,7 @@ Exoplanet: First Contact (2016) [En] (0.15.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219469.jpg" />
+  <img src="Z:/picture/005/save_picture_219469.jpg" />
 </div>
 
 
@@ -504,7 +634,7 @@ The Forest (2014) [En] (0.51b) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219448.jpg" />
+  <img src="Z:/picture/005/save_picture_219448.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213448.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55C6D8473A1B0E204DD818098CFFEEB236DAFB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586837   (211198) от 28.10.2022
-
-Death Trash (2021) [Multi] (0.8.7.3) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Trash - изометрическая RPG в мире постапокалипсиса, в котором присутствует тотальная разруха и суровые панки с пушками. Игра представляет собой смесь киберпанка, научной фантастики, ужасов и темного фэнтези. Все локации выполнены вручную. Сюжетную линию можно проходить как в одиночку, так и в компании с другом. Присутствует режим сплитскрина. События игры происходят (   Читать дальше...   )Тип издания: LicenseРазработчик: Crafting LegendsЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE60E6B26399BE8E7C3E5164A2873DD98AFF312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641968   (210543) от 25.06.2023
-
-Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный симулятор выживания в открытом мире, выполненный в научно-фантастическом сеттинге. События разворачиваются на орбите, где единственная станция оказалась разрушена, и вы потеряли связь с внешним миром. Отныне полагаться придется исключительно на себя и по крупицам восстановить все сломанные механизмы, чтобы уцелеть в опасном космосе. Отслеживайте свои (   Читать дальше...   )Тип издания: LicenseРазработчик: SoloQЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D1428A5BC2F7D746351E0BCAB5E537C6625C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641981   (210522) от 25.06.2023
-
-Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иммерсивный симулятор, где вам предстоит перенестись на несколько веков назад в Средневековую Европу и познать все “прелести” тогдашней медицины от лица молодого доктора. Вы полны энергии и решили познать сложное дело врачевания, правда, есть одна беда - в то время мало кто представлял как устроено человеческое тело и большинство проблем решались ампутацией и кровопусканием, (   Читать дальше...   )Тип издания: LicenseРазработчик: MuccyGamesЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5C3404C9DA6D9EA7B378D88A555B7FC552FBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611276   (207643) от 11.02.2023
-
-Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207643.jpg" />
-</div>
-
-
-###  Подробнее
-
-После недавней войны инженеры «Эпсилон Энерджи» создали систему неразрушимого щита «Сплит». Она должна была защитить от вооруженных конфликтов отдельные города-гиганты, охватывающие почти всю планету. В разных городах разная политика по отношению к своим гражданам. В West Ulrage каждый гражданин получает при рождении робота-хранителя. В Хал'Торе пары роботов воспитывают (   Читать дальше...   )Тип издания: LicenseРазработчик: Garlic JamЖанр: Action, Packed, Puzzle AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5241622F35A4D57542086D68721DD323777B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655948   (201940) от 28.08.2023
-
-Phasmophobia (2020) [Ru/Multi] (0.9.0.8) Repack Other s
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phasmophobia — это совместная онлайн-игра в жанре психологического хоррора для 4 игроков с одиночным режимом. Вы и ваша команда исследователей паранормальных явлений отправитесь в места с привидениями, наполненные паранормальной активностью, и попытаетесь собрать как можно больше улик. Используйте свое оборудование для охоты на привидений, чтобы найти и записать (   Читать дальше...   )Тип издания: RepackРазработчик: Kinetic GamesЖанр: Action (Psychological horror), Co-op, 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD6EDF06A56E11E3C3EE156D441D22A0655507D
 ```
 
 https://mybot314.ru/tekegram_catalog/

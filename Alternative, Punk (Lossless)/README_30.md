@@ -1,3 +1,32 @@
+###  Публикация: 1555626   (567499) от 05.06.2022
+
+Antagonist A.D. - Through Fire All Things Are Renewed (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metallic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gates of Hell (00:02:47)
+02 - Pure Fear (00:02:48)
+03 - The System is Racist and Oppressive (00:02:59)
+04 - Blade of Truth (00:02:18)(   Читать дальше...   )Жанр: Modern Metallic HardcoreПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A319D37FB2BF2A2523CD3009F73F94D3078853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304055   (567448) от 24.05.2019
 
 Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
@@ -6,7 +35,7 @@ Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
+  <img src="Z:/picture/008/save_picture_567448.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Masfel - Kinai Natha (Chinese Flu) (1994) [FLAC|Lossless|tracks + .cue] <Experim
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565992.jpg" />
+  <img src="Z:/picture/008/save_picture_565992.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cate Le Bon - Reward (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565272.jpg" />
+  <img src="Z:/picture/008/save_picture_565272.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Foster The People - Sacred Hearts Club (2017) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565219.jpg" />
+  <img src="Z:/picture/008/save_picture_565219.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lewis Capaldi - Divinely Uninspired To A Hellish Extent (2019) [FLAC|Lossless|WE
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565122.jpg" />
+  <img src="Z:/picture/008/save_picture_565122.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Saint Asonia - Saint Asonia (2015) [FLAC|Lossless]<Alt. Metal, Modern Hard Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564392.jpg" />
+  <img src="Z:/picture/008/save_picture_564392.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Masfel - Viperagarzon (1996) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564210.jpg" />
+  <img src="Z:/picture/008/save_picture_564210.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Madsen - Lichtjahre (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562269.jpg" />
+  <img src="Z:/picture/008/save_picture_562269.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560521.jpg" />
+  <img src="Z:/picture/008/save_picture_560521.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Hospital Hungary (2005) Приложение #083 к журналу Stereo 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560469.jpg" />
+  <img src="Z:/picture/008/save_picture_560469.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559727.jpg" />
+  <img src="Z:/picture/008/save_picture_559727.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Masfel - Katasztrofamamor (1998) [FLAC|Lossless|image + .cue] <Experimental rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558756.jpg" />
+  <img src="Z:/picture/008/save_picture_558756.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Masfel - En garde! (2005) [FLAC|Lossless|tracks + .cue] <Experimental rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558754.jpg" />
+  <img src="Z:/picture/008/save_picture_558754.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Abyss, Watching Me - Nix (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Al
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558308.jpg" />
+  <img src="Z:/picture/008/save_picture_558308.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Masfel - Moni (2001) Maxi-Single, Remix [FLAC|Lossless|tracks + .cue] <Experimen
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557370.jpg" />
+  <img src="Z:/picture/008/save_picture_557370.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557177.jpg" />
+  <img src="Z:/picture/008/save_picture_557177.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557129.jpg" />
+  <img src="Z:/picture/008/save_picture_557129.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557127.jpg" />
+  <img src="Z:/picture/008/save_picture_557127.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|t
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557122.jpg" />
+  <img src="Z:/picture/008/save_picture_557122.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557116.jpg" />
+  <img src="Z:/picture/008/save_picture_557116.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557114.jpg" />
+  <img src="Z:/picture/008/save_picture_557114.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ K-Man & The 45s - Stand With The Youth (2019) [FLAC|Lossless|tracks + .cue] <Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555669.jpg" />
+  <img src="Z:/picture/008/save_picture_555669.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555493.jpg" />
+  <img src="Z:/picture/008/save_picture_555493.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555224.jpg" />
+  <img src="Z:/picture/008/save_picture_555224.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Hollerado - Retaliation Vacation (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554721.jpg" />
+  <img src="Z:/picture/008/save_picture_554721.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Hollerado - Retaliation Vacation (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A4201A7E41660C9698482DB0557AE7D5AEC6FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308546   (553950) от 14.06.2019
-
-The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Pop Rock, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:18)
- 02. Blind Ambition (3:39)
- 03. Bring Me Back To Life (3:48)
- 04. Way Down (3:21)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Post PunkПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC0A4D345165F04B02D31F6DBE506CA2D16CBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

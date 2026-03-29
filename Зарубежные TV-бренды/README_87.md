@@ -1,3 +1,108 @@
+###  Публикация: 1213882   (407727) от 06.10.2018
+
+NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (2 серии из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_407727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это реальные ужасающие свидетельства людей, своими глазами увидевших Челюсти. Они остались в живых, чтобы рассказать нам о том, что они пережили.Производство: США, Nat Geo WildЖанр: Документальный, морская фауна, исследованияРежиссер: Кайл МакКейбПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2 х ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABADD7B58AEB9E903F92CB08134214FF551437E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530186   (406926) от 14.10.2012
+
+Наука 2.0. Опыты дилетанта [выпуски 1-14] (2011-2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас хотя бы раз мечтал испытать ощущение невесомости. Или – поднять в небо воздушный лайнер. Чтобы эта мечта стала реальностью, нужны годы обучения, изнуряющие тренировки и незаурядные способности. Уникальная возможность на время оказаться в необычной роли предоставлена автору и ведущему Александру Коневичу. На собственном опыте, вместе со зрителем, он узнает все трудности и радости интересных профессий и поделится своими ощущениями.Жанр: ДокументальныйПеревод: РусскийПродолжительность: 14x~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F096EB3E999A9A79F841870DF869861ED7CC2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560231   (406543) от 15.10.2012
+
+Discovery: Мистический мир: Необъяснимое.Неведомое.Сверхъестественное / Discovery: Mysterious Journeys:The Unexplained.The Unknown.The Supernatural (2002) [H.264] DVDRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_406543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нам кажется, что мы прекрасно знаем мир, в котором живем, однако нас повсеместно окружают незримые тайны, и в любой момент мы можем столкнуться с необъяснимыми событиями, которые открывают перед нами окошко в иной, неведомый мир мистики. Круги на полях и загадочные исчезновения, призраки в древних замках и таинственные существа – вот лишь некоторые из загадок, о которых мы расскажем в этом захватывающем сериале.Жанр: Научно-популярный фильмРежиссер: Рон ЗиммерманТелекомпания: Discovery CommunicationsПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAA68E0AD090681026CC8AD4423FF9AD337054C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560663   (404428) от 21.10.2012
+
+Прыжок из стратосферы, 14 октября / Red Bull Stratos, 14th October (2012) WEB-DLRip [EN]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_404428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня 14 октября австрийский парашютист-экстремал Феликс Баумгартнер побил ряд мировых рекордов "прыжком из космоса". Он стал первым человеком, преодолевшим звуковой барьер без помощи какого-либо транспортного средства. Два с половиной часа он подымался на высоту почти ! 40 км., скорость свободного падения после прыжка достигла почти ! 1200 км\час.
+Прыжок Феликса Баумгартнера транслировался в прямом эфире на YouTube и на сайте www.redbullstratos.com. Число зрителей достигло свыше ! 7 миллионов человек.Жанр: Экстрим, Спорт, ДокументальныйПеревод: ОтсутствуетПродолжительность: 00:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABCCA21B95AA1C2A807C6346ED024FDCC825B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563756   (403686) от 22.10.2012
 
 В ожидании конца света (7 эпизод) Друзья могут стать врагами / Doomsday Preppers (episode 7) You Shall Not Fear (2012) IPTVRip
@@ -6,7 +111,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403686.jpg" />
+  <img src="Z:/picture/008/save_picture_403686.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403374.jpg" />
+  <img src="Z:/picture/008/save_picture_403374.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403060.jpg" />
+  <img src="Z:/picture/008/save_picture_403060.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403054.jpg" />
+  <img src="Z:/picture/008/save_picture_403054.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403052.jpg" />
+  <img src="Z:/picture/008/save_picture_403052.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402164.jpg" />
+  <img src="Z:/picture/008/save_picture_402164.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ BBC: Уникальные способности животных / Animal Super
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401225.jpg" />
+  <img src="Z:/picture/008/save_picture_401225.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ History Channel: История далекого прошлого / Deep Time Hi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399226.jpg" />
+  <img src="Z:/picture/008/save_picture_399226.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398273.jpg" />
+  <img src="Z:/picture/008/save_picture_398273.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396649.jpg" />
+  <img src="Z:/picture/008/save_picture_396649.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394853.jpg" />
+  <img src="Z:/picture/008/save_picture_394853.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393831.jpg" />
+  <img src="Z:/picture/008/save_picture_393831.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391145.jpg" />
+  <img src="Z:/picture/008/save_picture_391145.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391030.jpg" />
+  <img src="Z:/picture/008/save_picture_391030.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389700.jpg" />
+  <img src="Z:/picture/008/save_picture_389700.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388837.jpg" />
+  <img src="Z:/picture/008/save_picture_388837.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387863.jpg" />
+  <img src="Z:/picture/008/save_picture_387863.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387706.jpg" />
+  <img src="Z:/picture/008/save_picture_387706.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387703.jpg" />
+  <img src="Z:/picture/008/save_picture_387703.jpg" />
 </div>
 
 
@@ -507,7 +612,7 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387692.jpg" />
+  <img src="Z:/picture/008/save_picture_387692.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387600.jpg" />
+  <img src="Z:/picture/008/save_picture_387600.jpg" />
 </div>
 
 
@@ -559,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387432.jpg" />
+  <img src="Z:/picture/008/save_picture_387432.jpg" />
 </div>
 
 
@@ -570,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F6B19FA398CC2D50AFF82399B1633CADD96104A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414298   (386973) от 07.10.2020
-
-BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взросление – это самая удивительная трансформация. Вот мы милые и симпатичные пучки радости, и все нас любят. И вот нас уже распирает от эмоций так, что мы покрываемся пятнами, и все нас ненавидят. Ну, нам так кажется. Ученые только сейчас обнаруживают массу удивительных вещей, которые происходят с нами по мере того, как растут наши тела и формируются наши личности… (   Читать дальше...   )Производство: Великобритания, Oxford Scientific Films, BBC WorldwideЖанр: Документальный, научно-популярныйРежиссер: Люк УайлсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: НетПродолжительность: 2х ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081AA7C85B0D909B06B63112D341CF0BBD797A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164085   (386793) от 14.10.2017
-
-Discovery. Торговцы космосом (космические дилеры) / Space Dealers (2017) HDTVRip (Серия 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре торговца космической атрибутикой колесят по Америке в поисках побывавших в космосе артефактов. Будь то туалет с пилотируемого космического корабля «Джемини-12», шлем Нила Армстронга, который был на нём во время полёта на экспериментальном самолёте-ракетоплане «Икс-15», или даже сухой паёк астронавтов – коллекционеры готовы отдать огромные деньги, лишь бы пополнить (   Читать дальше...   )Производство: США, Discovery ChannelЖанр: Документальный, телешоуПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C993E99231B3705BDA43A465060A3896DD1ED8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253239   (385441) от 08.10.2018
-
-NG. Экстремальный Китай. Горы Сыгунян / Extreme China (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователь и фотограф Бен Хортон объединяется с несколькими китайскими исследователями, чтобы отправиться в путешествие, которое позволит им познакомиться с жизнью и бытом трех общин, живущих в экстремальных условиях. И убедиться, что они научились не только выживать, но и чувствовать себя в этих условиях вполне комфортно.Производство: КНР, China Intercontinental Communication, National GeographicЖанр: Документальный, путешествие, исследованиеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C0B39A9D0C20D00B6BD83F5B1B01BDFFEB1B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569589   (385060) от 08.11.2012
-
-GoPro HD: Dreams with Kelia Moniz - Roxy Wahine Classic 2011 (Music from SKY) [1080p] WEBRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рокси серфер Kelia Moniz на длинной доске, сессия на красивых пляжах Вайкики.Жанр: музыка, документальныйПеревод: oтсутствуетПродолжительность: 00:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70E9BC6BD0ECC4A4FEF6EAA6B9866F80B464BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,146 @@
+###  Публикация: 1420820   (331199) от 02.11.2020
+
+Bruce Springsteen - Letter To You (2020) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Heartland Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Minute You're Here
+02. Letter To You
+03. Burnin' Train
+04. Janey Needs A Shooter(   Читать дальше...   )Жанр: Rock, Folk Rock, Heartland RockПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F664C2D8A03FF7FD23A3295124C5B6F1A7349AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956273   (330985) от 13.11.2015
+
+Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Deluxe Edition [FLAC|image + .cue] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Was a Boy
+02. Love and Rain
+03. Dirty to the Bone
+04. When the Night Comes(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CF4D5B9F3CF68DE853F1448B17CACD43B8C06E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580494   (330890) от 01.10.2022
+
+Imaginaerium - The Rise Of Medici (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Rock-Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festina Lente (2:28)
+02. Duty Of Love (4:45)
+03. House Of Dreams (4:10)
+04. The Tide Will Change (5:08)(   Читать дальше...   )Жанр: Progressive Rock, Rock-OperaПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8506E2157BB396B35E5AA3809D97154A4C7354
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580499   (330887) от 01.10.2022
+
+Robot God - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330887.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Silver Buddha Dreaming
+2022 - Worlds CollideЖанр: Heavy Psych, Stoner, SpaceПродолжительность: 01:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3392CF7603FB7C0E9B2E772FE8D9418B9BAC1824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580297   (330882) от 01.10.2022
+
+Marenna - Voyager (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking The Chains
+02. Out Of Line
+03. Gotta Be Strong
+04. Wait(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B519DC953ADE492A4A6941BA95D019947EA46EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580512   (330728) от 01.10.2022
 
 Manfred Mann’s Earth Band - Messin’ (1973) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +149,7 @@ Manfred Mann’s Earth Band - Messin’ (1973) Japanese Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330728.jpg" />
+  <img src="Z:/picture/008/save_picture_330728.jpg" />
 </div>
 
 
@@ -35,7 +178,7 @@ Beth Hart - Leave The Light On (2006) [FLAC|image + .cue]<Rock,  Blues Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330271.jpg" />
+  <img src="Z:/picture/008/save_picture_330271.jpg" />
 </div>
 
 
@@ -64,7 +207,7 @@ Marillion - B'Sides Themselves (1988) EMI Records Ltd.[FLAC|image + .cue]<Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330268.jpg" />
+  <img src="Z:/picture/008/save_picture_330268.jpg" />
 </div>
 
 
@@ -93,7 +236,7 @@ Rik Swinn - Strum (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329995.jpg" />
+  <img src="Z:/picture/008/save_picture_329995.jpg" />
 </div>
 
 
@@ -122,7 +265,7 @@ Jess Harnell - The Sound Of Your Voice (1995) Japanese Edition, Reissue, 1998, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329994.jpg" />
+  <img src="Z:/picture/008/save_picture_329994.jpg" />
 </div>
 
 
@@ -151,7 +294,7 @@ Compass - Theory of Tides (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329930.jpg" />
+  <img src="Z:/picture/008/save_picture_329930.jpg" />
 </div>
 
 
@@ -180,7 +323,7 @@ Manfred Mann’s Earth Band - Watch (1978) Japanese Edition, Reissue, 2022, Bell
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329775.jpg" />
+  <img src="Z:/picture/008/save_picture_329775.jpg" />
 </div>
 
 
@@ -209,7 +352,7 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329374.jpg" />
+  <img src="Z:/picture/008/save_picture_329374.jpg" />
 </div>
 
 
@@ -238,7 +381,7 @@ Black Tongue Reverend - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329055.jpg" />
+  <img src="Z:/picture/008/save_picture_329055.jpg" />
 </div>
 
 
@@ -265,7 +408,7 @@ Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329053.jpg" />
+  <img src="Z:/picture/008/save_picture_329053.jpg" />
 </div>
 
 
@@ -292,7 +435,7 @@ Sonata Arctica - Acoustic Adventures (Volume Two) (2022) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328980.jpg" />
+  <img src="Z:/picture/008/save_picture_328980.jpg" />
 </div>
 
 
@@ -321,7 +464,7 @@ Phantom Spell - Immortal's Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328968.jpg" />
+  <img src="Z:/picture/008/save_picture_328968.jpg" />
 </div>
 
 
@@ -350,7 +493,7 @@ Manfred Mann’s Earth Band - Angel Station (1979) Japanese Edition, Reissue, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328891.jpg" />
+  <img src="Z:/picture/008/save_picture_328891.jpg" />
 </div>
 
 
@@ -379,7 +522,7 @@ VA - Classic Rock Presents - Voodoo Lounge (2014) [FLAC|tracks + .cue]<Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328412.jpg" />
+  <img src="Z:/picture/008/save_picture_328412.jpg" />
 </div>
 
 
@@ -408,7 +551,7 @@ Bryan Ferry - Avonmore (2014) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328358.jpg" />
+  <img src="Z:/picture/008/save_picture_328358.jpg" />
 </div>
 
 
@@ -437,7 +580,7 @@ The Tirith - 2 Albums (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328136.jpg" />
+  <img src="Z:/picture/008/save_picture_328136.jpg" />
 </div>
 
 
@@ -466,7 +609,7 @@ Realm Drifter - Realm Drifter (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stone
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328133.jpg" />
+  <img src="Z:/picture/008/save_picture_328133.jpg" />
 </div>
 
 
@@ -495,7 +638,7 @@ Deadly Vipers - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328060.jpg" />
+  <img src="Z:/picture/008/save_picture_328060.jpg" />
 </div>
 
 
@@ -524,7 +667,7 @@ Ethel Cain - Preacher’s Daughter (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock,Go
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328052.jpg" />
+  <img src="Z:/picture/008/save_picture_328052.jpg" />
 </div>
 
 
@@ -553,7 +696,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327233.jpg" />
+  <img src="Z:/picture/008/save_picture_327233.jpg" />
 </div>
 
 
@@ -582,7 +725,7 @@ Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326483.jpg" />
+  <img src="Z:/picture/008/save_picture_326483.jpg" />
 </div>
 
 
@@ -596,153 +739,6 @@ Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581228   (326403) от 06.10.2022
-
-Manfred Mann’s Earth Band - Chance (1980) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lies (Through the 80s)
-02. On the Run
-03. For You
-04. Adolescent Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435343A2F1D8C7D71E5C69CE3101A358CA9BC290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957511   (325791) от 19.11.2015
-
-Fish - Internal Exile (1991) [FLAC|image + .cue] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325791.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд знаковый альбом. Был вдохновлен Шотландией и посвящен дочери Фиша, родившейся 01.01.91. И не смотря, на то что он второй после ухода из группы, я все же его считаю первым .
-«Internal Exile» во многом можно назвать экспериментальным. Новый звук и не побоюсь сказать - новый стиль. Один из лучших и любимых альбомов.
-Диск был издан на Polydor, так как Фиш (   Читать дальше...   )1.Shadowplay	6:21
-2.Credo	6:39
-3.Just Good Friends (Close)	5:59
-4.Favourite Stranger	5:58(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:47:98
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F179689DCDE2FEF7D54750B3D44120A169617BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957689   (325673) от 19.11.2015
-
-Suzi Quatro - The Girl From Detroit City (2014) 4CD Box Set / Remastered [FLAC|image + .cue]<Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What A Way To Die (With Pleasure Seekers) (02:25)
- 02. Light Of Love (With Pleasure Seekers) (03:02)
- 03. Locked In Your Love (With Pleasure Seekers) (02:34)
- 04. Rolling Stone (02:47)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 05:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91EAB224767D0DBA7970B04D02E5705149A7C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581753   (325585) от 07.10.2022
-
-Caravan - Better by Far (1977) Japanese Edition, Reissue, Remastered, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Canterbury rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelin’ Alright
-02. Behind You
-03. Better by Far
-04. Silver Strings(   Читать дальше...   )Жанр: Canterbury rockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC026BB2B1465A72C2F0580D43308958779D1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581607   (325497) от 07.10.2022
-
-Caravan - Blind Dog At St. Dunstans (1976) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Canterbury rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Am I
-02. Chiefs and Indians
-03. A Very Smelly, Grubby Little Oik
-04. Bobbing Wide(   Читать дальше...   )Жанр: Canterbury rockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C57890CB270F7A3A596CD73AA1038E7BA23DFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1328165   (367386) от 28.09.2019
+
+Обратный отсчёт / 10 Minutes Gone (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367386.jpg" />
+</div>
+
+
+###  Подробнее
+
+У грабителя-эксперта Фрэнка Салливана никогда не было проблем с работой, пока его брата не убили во время ограбления. После потери сознания Фрэнк просыпается на грязной аллее, не помня, почему ограбление сорвалось и кто застрелил его брата. Для босса Фрэнка, лорда Рекса, все это не имеет значения. Ему нужна добыча, которая была упущена. Теперь Фрэнк должен выяснить, (   Читать дальше...   )Производство: Канада, США / Emmett/Furla/Oasis Films (EFO Films), MoviePass Films, Potato Eater Productions SeeЖанр: Боевик, триллер, криминал, детективРежиссер: Брайан А. МиллерАктеры: Брюс Уиллис, Майкл Чиклис, Медоу Уильямс, Кайл Шмид, Тексас Бэттл, Лидия Халл, Свен Теммел, Джон Д. Хикман, Серхио Риццуто, Джеффри М. РивзПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:55Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB108B7190031AE15F494BA6D1E9262DA5CB5EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176904   (367158) от 23.10.2017
 
 Группа «Лейкопластырь» / Band Aid (2017) HDRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367158.jpg" />
+  <img src="Z:/picture/008/save_picture_367158.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367151.jpg" />
+  <img src="Z:/picture/008/save_picture_367151.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367150.jpg" />
+  <img src="Z:/picture/008/save_picture_367150.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367071.jpg" />
+  <img src="Z:/picture/008/save_picture_367071.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367061.jpg" />
+  <img src="Z:/picture/008/save_picture_367061.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367059.jpg" />
+  <img src="Z:/picture/008/save_picture_367059.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367051.jpg" />
+  <img src="Z:/picture/008/save_picture_367051.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366970.jpg" />
+  <img src="Z:/picture/008/save_picture_366970.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366969.jpg" />
+  <img src="Z:/picture/008/save_picture_366969.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366966.jpg" />
+  <img src="Z:/picture/008/save_picture_366966.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Naked / Голышом (2017) WEBRip [MVO] [AD]
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366965.jpg" />
+  <img src="Z:/picture/008/save_picture_366965.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366963.jpg" />
+  <img src="Z:/picture/008/save_picture_366963.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366960.jpg" />
+  <img src="Z:/picture/008/save_picture_366960.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365884.jpg" />
+  <img src="Z:/picture/008/save_picture_365884.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365712.jpg" />
+  <img src="Z:/picture/008/save_picture_365712.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365553.jpg" />
+  <img src="Z:/picture/008/save_picture_365553.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365395.jpg" />
+  <img src="Z:/picture/008/save_picture_365395.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364792.jpg" />
+  <img src="Z:/picture/008/save_picture_364792.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363457.jpg" />
+  <img src="Z:/picture/008/save_picture_363457.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363002.jpg" />
+  <img src="Z:/picture/008/save_picture_363002.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363001.jpg" />
+  <img src="Z:/picture/008/save_picture_363001.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362977.jpg" />
+  <img src="Z:/picture/008/save_picture_362977.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362975.jpg" />
+  <img src="Z:/picture/008/save_picture_362975.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362804.jpg" />
+  <img src="Z:/picture/008/save_picture_362804.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362800.jpg" />
+  <img src="Z:/picture/008/save_picture_362800.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6331C35045CE1506E7A092CC9DF148423DA6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328540   (362790) от 30.09.2019
-
-Тайки / Taiki (2019) HDTVRip [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время семейной поездки, 9-ти летний Бруно, так достает своих родителей, что они оставляют его в лесу, чтобы проучить. Когда они возвращаются за ним, он решает преподать им урок.Производство: Нидерланды / Fiction ValleyЖанр: Драма, детектив, приключения, семейныйРежиссер: Мирьям Де УитАктеры: Pepijn van der Sman, Дженнифер Хоффман, Тибор Лукаш, Linde van der Storm, Аус Грейднаус, Камилла Ларссон, Надя Христианссон, Рэйми Самбо, Peter Stefansson, Элина Ду РитцПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:25:29Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CF56558727BC9D0EB549F301F6DFB38C8D396F
 ```
 
 https://mybot314.ru/tekegram_catalog/

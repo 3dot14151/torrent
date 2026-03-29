@@ -1,3 +1,86 @@
+###  Публикация: 1452956   (1026997) от 10.03.2021
+
+Faronics Deep Freeze Standard 8.60.020.5592 [En]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Freeze - программа мгновенно защищает и сохраняет базовые конфигурации компьютера. Независимо от того, какие изменения пользователь делает на рабочей станции, просто перезагрузите компьютер и все вернется в исходное состояние - вплоть до последнего байта. Приложение можно смело рекомендовать системным администраторам, в чьи обязанности входит обслуживание компьютерного (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494EE1C79E1233C82EA5AC82D6506BA61FD0E910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461304   (1021658) от 10.04.2021
+
+HitmanPro 3.8.22 Build 316 RePack by DoMiNo [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021658.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitmanPro – мощный cканер для выявления различных вредоносных программ. Особенность HitmanPro в том, что он использует при проверке базы данных других приложений для обнаружения и удаления шпионских модулей (Ad-Aware SE Personal, Spy Sweeper, Spybot Search & Destroy, CWShredder, SpywareBlaste, Spyware Block List, Sysclean Package, SuperDAT VirusScan).
+
+После (   Читать дальше...   )Язык интерфейса: Русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257FB2E3881792F566A34FBDF204083C112C7DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466446   (1018566) от 29.04.2021
+
+Norton Remove and Reinstall Tool 4.5.0.157 [Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton Remove and Reinstall Tool — официальная утилита для корректного и полного удаления любых продуктов линейки Norton: Norton AntiVirus, Norton SystemWorks, Norton Personal Firewall и т.п.
+
+Есть 2 вида работы программы:
+1). Удалить и переустановить.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABADB696CC0EEFF436A871A456C44ADE9664EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466891   (1018142) от 01.05.2021
 
 AV Uninstall Tools Pack 2021.05 [Ru/En]
@@ -6,7 +89,7 @@ AV Uninstall Tools Pack 2021.05 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018142.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ Kaspersky Anti-Ransomware Tool for Business 5.0.0.3886(i) [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017004.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ USB Disk Security 6.9.0.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016822.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ Passware Kit Forensic 2021.1.0 prepatched retail x64 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014254.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ Hitman Pro 3.8.23 Build 318 RePack by DoMiNo [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013286.jpg" />
 </div>
 
 
@@ -141,7 +224,7 @@ Universal Virus Sniffer 3.87 Portable [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963175.jpg" />
 </div>
 
 
@@ -167,7 +250,7 @@ Jetico BestCrypt 9.04.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962931.jpg" />
 </div>
 
 
@@ -193,7 +276,7 @@ Jetico BestCrypt 9.04.0.0 RePack by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956707.jpg" />
 </div>
 
 
@@ -219,7 +302,7 @@ Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904545.jpg" />
 </div>
 
 
@@ -245,7 +328,7 @@ Password Depot 14.0.5 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888070.jpg" />
+  <img src="Z:/picture/005/save_picture_888070.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ Comodo Uninstaller 2.0.0.3 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822205.jpg" />
+  <img src="Z:/picture/008/save_picture_822205.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ Ashampoo Privacy Protector 1.1.3.107 RePack by вовава [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796136.jpg" />
+  <img src="Z:/picture/008/save_picture_796136.jpg" />
 </div>
 
 
@@ -323,7 +406,7 @@ IObit Protected Folder Pro 1.3 [Multi/Ru] (акция Comss)
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789606.jpg" />
+  <img src="Z:/picture/008/save_picture_789606.jpg" />
 </div>
 
 
@@ -351,7 +434,7 @@ Hide Folders 5.5 Build 5.5.1.1161 RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785849.jpg" />
+  <img src="Z:/picture/008/save_picture_785849.jpg" />
 </div>
 
 
@@ -377,7 +460,7 @@ SUPERAntiSpyware Professional 6.0.1258 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759373.jpg" />
+  <img src="Z:/picture/008/save_picture_759373.jpg" />
 </div>
 
 
@@ -403,7 +486,7 @@ Hekasoft PassKeeper 0.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751494.jpg" />
+  <img src="Z:/picture/008/save_picture_751494.jpg" />
 </div>
 
 
@@ -430,7 +513,7 @@ Auslogics Anti-Malware 1.21.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737760.jpg" />
+  <img src="Z:/picture/008/save_picture_737760.jpg" />
 </div>
 
 
@@ -456,7 +539,7 @@ Zemana AntiMalware Premium 3.2.15 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736540.jpg" />
+  <img src="Z:/picture/008/save_picture_736540.jpg" />
 </div>
 
 
@@ -482,7 +565,7 @@ TNod User & Password Finder 1.8.0.0 Beta + Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736245.jpg" />
+  <img src="Z:/picture/008/save_picture_736245.jpg" />
 </div>
 
 
@@ -508,7 +591,7 @@ SpyHunter 4.28.7.4850 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718962.jpg" />
+  <img src="Z:/picture/008/save_picture_718962.jpg" />
 </div>
 
 
@@ -534,7 +617,7 @@ Defender Control 2.1 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691977.jpg" />
+  <img src="Z:/picture/008/save_picture_691977.jpg" />
 </div>
 
 
@@ -560,7 +643,7 @@ Kon-Boot for Windows 2.7 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633097.jpg" />
+  <img src="Z:/picture/008/save_picture_633097.jpg" />
 </div>
 
 
@@ -586,7 +669,7 @@ Spybot - Search & Destroy 2.6.46.0 Portable by PortableApps [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627008.jpg" />
+  <img src="Z:/picture/008/save_picture_627008.jpg" />
 </div>
 
 
@@ -597,84 +680,6 @@ Spybot - Search & Destroy - утилита для поиска и удалени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A515EA477D9F36189CB8C2F7AF20E3B0D21E8BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150515   (593925) от 15.07.2017
-
-Junkware Removal Tool 8.1.4 [En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая и эффективная утилита, предназначенная для сканирования компьютера на наличие вредоносных элементов, таких как рекламное ПО, ненужные панели инструментов и PUPS (потенциально нежелательные программы). Программа уничтожает все их следы с диска компьютера, памяти, автозагрузки, реестра и пр.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB80609B8C19E863E254F0801FFEABBD7F14E092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233560   (592898) от 30.06.2018
-
-Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общественные сети Wi-Fi могут быть недостаточно защищены, например, если сеть Wi-Fi использует уязвимый протокол шифрования или слабый пароль. Когда вы совершаете покупки в интернете через незащищенные сети Wi-Fi, ваши пароли и другие конфиденциальные данные передаются в открытом текстовом виде. Злоумышленники могут перехватить ваши конфиденциальные данные, например, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1D1481EEA371D786A5CBE69DE1141C3D512160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922369   (569609) от 28.07.2015
-
-WinPatrol PLUS 33.6.2015.18 [Ru/En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569609.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinPatrol отслеживает и уничтожает в операционной системе различные шпионские модули и вредоносные программы типа Adware и Spyware, находит и обезвреживает некоторые типы вирусов-Троянов, саморазмножающиеся вирусы и программы, представляющие угрозу для конфиденциальности компьютерной информации. WinPatrol следит за изменениями, происходящими в браузере и не допускает (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C277E5EA2F0E5A82F46F69C590F689A4637FCFD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

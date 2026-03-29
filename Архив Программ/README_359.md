@@ -6,7 +6,7 @@ BitTorrent 7.10.5 (build 45597) Portable by SanLex (Ad-Free) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866800.jpg" />
+  <img src="Z:/picture/008/save_picture_866800.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ R-Studio Network Edition 8.13 Build 176095 RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866785.jpg" />
+  <img src="Z:/picture/008/save_picture_866785.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AdwCleaner 5.104 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866696.jpg" />
+  <img src="Z:/picture/008/save_picture_866696.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CoolUtils Total Image Converter 5.1.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866616.jpg" />
+  <img src="Z:/picture/008/save_picture_866616.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Free Studio 6.6.4.317 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866608.jpg" />
+  <img src="Z:/picture/008/save_picture_866608.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Vivaldi 4.2.2406.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866577.jpg" />
+  <img src="Z:/picture/008/save_picture_866577.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AdwCleaner 5.103 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866509.jpg" />
+  <img src="Z:/picture/008/save_picture_866509.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Wise Disk Cleaner 9.21.639 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866500.jpg" />
+  <img src="Z:/picture/008/save_picture_866500.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Q-Dir 6.32 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866498.jpg" />
+  <img src="Z:/picture/008/save_picture_866498.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CoolUtils Total Image Converter 5.1.121 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866491.jpg" />
+  <img src="Z:/picture/008/save_picture_866491.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WizTree 4.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866470.jpg" />
+  <img src="Z:/picture/008/save_picture_866470.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Q-Dir 9.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866467.jpg" />
+  <img src="Z:/picture/008/save_picture_866467.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ OCCT 9.1.1 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866462.jpg" />
+  <img src="Z:/picture/008/save_picture_866462.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ FileZilla Server 1.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866461.jpg" />
+  <img src="Z:/picture/008/save_picture_866461.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Opera 79.0.4143.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866455.jpg" />
+  <img src="Z:/picture/008/save_picture_866455.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Spotify 1.1.68.632 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866454.jpg" />
+  <img src="Z:/picture/008/save_picture_866454.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ SRWare Iron 49.0.2600.0 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866388.jpg" />
+  <img src="Z:/picture/008/save_picture_866388.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Glary Utilities Pro 5.47.0.67 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866387.jpg" />
+  <img src="Z:/picture/008/save_picture_866387.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ HWiNFO 32-64 5.22-2820 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866380.jpg" />
+  <img src="Z:/picture/008/save_picture_866380.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ AMD Radeon Software Adrenalin Edition 21.9.2 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866341.jpg" />
+  <img src="Z:/picture/008/save_picture_866341.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TweakPower 2.001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866339.jpg" />
+  <img src="Z:/picture/008/save_picture_866339.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ LibreOffice 7.2.1.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866338.jpg" />
+  <img src="Z:/picture/008/save_picture_866338.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ TheAeroClock 3.91 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866266.jpg" />
+  <img src="Z:/picture/008/save_picture_866266.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ditto 3.21.50.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866255.jpg" />
+  <img src="Z:/picture/008/save_picture_866255.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ SRWare Iron 49.0.2600.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866250.jpg" />
+  <img src="Z:/picture/008/save_picture_866250.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ FileZilla 3.24.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866237.jpg" />
+  <img src="Z:/picture/008/save_picture_866237.jpg" />
 </div>
 
 

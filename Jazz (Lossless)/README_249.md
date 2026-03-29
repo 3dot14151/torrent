@@ -1,3 +1,119 @@
+###  Публикация: 1466295   (240106) от 29.04.2021
+
+Dizzy Gillespie Big Band - Complete 1956 South American Tour Recordings (2015) 2CD, Solar Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240106.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cool Breeze [8:41]
+02. Groovin' for Nat [3:23]
+03. I Can't Get Started [3:48](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 02:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E13AF626ABA917352F2C5CFF3218789865BBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466202   (240080) от 29.04.2021
+
+Dizzy Gillespie - The Champ (1952) 2003,  Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Champ (Parts 1 and 2) (Gillespie) - 5:41
+02. Birk's Works (Gillespie) - 3:07
+03. Caravan (Ellington) - 2:53
+04. Time on My Hands (Youmans-Adamson-Gordon) - 2:23(   Читать дальше...   )Жанр: BopПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764C9968F95B7E5B40DE625200FB322D32310838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466739   (240042) от 01.05.2021
+
+Stan Getz - 1946 - 1949 (2000) Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus de Bop [2:32]
+02. And the Angels Swing [2:45]
+03. Running Water [2:46]
+04. Don't Worry 'Bout Me [2:39](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6BF802AB5208C0C1EFB0EAF6C959359509378B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635100   (240037) от 24.05.2023
+
+The Modern Jazz Sextet - 1956 (2000) Азбука Звука [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toure de Force [11:44]
+02. Dizzy Meets Sonny [8:04]
+03. Ballad Madley: Old Folks/ Whats New?/How Deep is the Ocean? [7:15]
+04. Mean to Me [6:34](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6EA83FBA69B1CC9D18EABD106623B33ED34057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466734   (240034) от 01.05.2021
 
 James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, Stride, Piano Jazz>
@@ -6,7 +122,7 @@ James P. Johnson - 1944 (1995) Classics [FLAC|Lossless|image + .cue] <Ragtime, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240034.jpg" />
+  <img src="Z:/picture/004/save_picture_240034.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Buck Clayton - 1945 - 1947 (1997) Classics [FLAC|Lossless|image + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240026.jpg" />
+  <img src="Z:/picture/004/save_picture_240026.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Louis Prima - 1935 - 1936 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240018.jpg" />
+  <img src="Z:/picture/004/save_picture_240018.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Lucky Thompson - 1944 - 1947 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240003.jpg" />
+  <img src="Z:/picture/004/save_picture_240003.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Goldsby - Viewpoint (2001) [FLAC|Lossless|tracks + .cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239990.jpg" />
+  <img src="Z:/picture/004/save_picture_239990.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bill Evans - Live At Ronnie Scott's (1968) 2CD, 2020, Resonance Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239978.jpg" />
+  <img src="Z:/picture/004/save_picture_239978.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Christian McBride's New Jawn - Prime (2023) Mack Avenue Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239929.jpg" />
+  <img src="Z:/picture/004/save_picture_239929.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ John Coltrane - Coltrane Time (1958) 1986, Toshiba-EMI [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239900.jpg" />
+  <img src="Z:/picture/004/save_picture_239900.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Jason Marsalis - Live (2017) 2020, Basin Street Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239868.jpg" />
+  <img src="Z:/picture/004/save_picture_239868.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Max Roach - Deeds, Not Words (1958) 1987, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239853.jpg" />
+  <img src="Z:/picture/004/save_picture_239853.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239851.jpg" />
+  <img src="Z:/picture/004/save_picture_239851.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239797.jpg" />
+  <img src="Z:/picture/004/save_picture_239797.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239768.jpg" />
+  <img src="Z:/picture/004/save_picture_239768.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Benny Golson Funky Quintet - That's Funky (1994) 2000, Arkadia Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239752.jpg" />
+  <img src="Z:/picture/004/save_picture_239752.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sammy Davis, Jr. - I've Gotta Be Me (1968) 2004,  Collectors' Choice Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239751.jpg" />
+  <img src="Z:/picture/004/save_picture_239751.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Guillaume Nouaux & The Stride Piano Kings (2020) Self-Released [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239742.jpg" />
+  <img src="Z:/picture/004/save_picture_239742.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Lewis - Four Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239720.jpg" />
+  <img src="Z:/picture/004/save_picture_239720.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Full Faith & Credit Big Band - FF&C III (1988) TBA Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239695.jpg" />
+  <img src="Z:/picture/004/save_picture_239695.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Don Patterson & Booker Ervin - Legends Of Acid Jazz (1964) 1996, Prestige [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239665.jpg" />
+  <img src="Z:/picture/004/save_picture_239665.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Martial Solal Trio - Triangle (1995) JMS [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239630.jpg" />
+  <img src="Z:/picture/004/save_picture_239630.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Connie Han - Iron Starlet (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239612.jpg" />
+  <img src="Z:/picture/004/save_picture_239612.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Muggsy Spanier - 1939 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239597.jpg" />
+  <img src="Z:/picture/004/save_picture_239597.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Muggsy Spanier - 1939 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:527894D6F65F2D740DF2993BCB8598C290B74956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468634   (239589) от 10.05.2021
-
-Harry James - 1937 - 1939 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jubilee [2:51]
-02. When We're Alone [2:40]
-03. (I Can Dream) Can't I? [3:02]
-04. Life Goes to a Party [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C3C1F323274EC30A05E5C3F64951C3068AF809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468736   (239580) от 10.05.2021
-
-Howard McGhee - 1945 - 1946 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intersection [3:05]
-02. Lifestream [3:18]
-03. Mop-Mop [2:55]
-04. Stardust [2:56](   Читать дальше...   )Жанр: BopПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A3526E8871CAB5A3AF83961AA6FB94943B8C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468644   (239565) от 10.05.2021
-
-Stuff Smith - 1936 - 1939 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'se a Muggin' [3:14]
-02. I'se a Muggin' Musical Numbers Game [3:24]
-03. I Hope Gabriel Likes My Music [2:46]
-04. I'm Putting All My Eggs in One Basket [3:06](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E09CA3FEE3B01883C1033AB5B65CD635EF7543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472639   (239462) от 26.05.2021
-
-Shirley Scott - Queen Of The Organ (1964) 1993, GRP [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [7:34]
-02. Squeeze Me (But Don't Tease Me) [10:00]
-03. Mean, Angry, Nasty and Lowdown [9:40]
-04. Can't Buy Me Love [9:12](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B630F3EC84D4F41C375E09D04385063D0FEECAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

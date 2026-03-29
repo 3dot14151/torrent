@@ -1,3 +1,31 @@
+###  Публикация: 1493298   (897170) от 02.09.2021
+
+Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалы, которые мы используем в сцене, то, как они реагируют на свет и как они взаимодействуют друг с другом, оказывает огромное влияние на нашу способность рассказывать истории в ходе нашей работы, но в первый раз переход к процедурным рабочим процессам на основе нодов может быть очень сложным.
+
+В этом курсе Эрин проведет вас от основ навигации по редактору шейдеров (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ШейдингЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 03:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48980BD8A73D5A4BD22D1D288F996A7C8853E8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493170   (897166) от 02.09.2021
 
 Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Painter (2015) PCRec [En, Ru]
@@ -6,7 +34,7 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897166.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897087.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897078.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Lynda.com | Основные принципы дизайна логотипа (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896775.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896380.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895321.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893359.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893296.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893232.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891609.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ CG Cookie | Создание и анимация низкополигональ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891586.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ CG Cookie | Создание анимированного игрового Sci-F
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889833.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ ArtStation, Bailey Facer | Violent Seduction – Tempeste Set Creation (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888913.jpg" />
+  <img src="Z:/picture/005/save_picture_888913.jpg" />
 </div>
 
 
@@ -356,7 +384,7 @@ Domestika, Karmen Loh | Lighting and Color for Digital Portraits in Photoshop (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888720.jpg" />
+  <img src="Z:/picture/005/save_picture_888720.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ CG Cookie | Создание процедурных песчаных дюн в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888149.jpg" />
+  <img src="Z:/picture/005/save_picture_888149.jpg" />
 </div>
 
 
@@ -409,7 +437,7 @@ CG Cookie | Риггинг трансформирующейся винтовки
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888107.jpg" />
+  <img src="Z:/picture/005/save_picture_888107.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ CG Cookie | Анимация оружия персонажей от первог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888092.jpg" />
+  <img src="Z:/picture/005/save_picture_888092.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ Unreal Engine, Jerome Platteaux | Lighting with Unreal Engine Masterclass (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887383.jpg" />
+  <img src="Z:/picture/005/save_picture_887383.jpg" />
 </div>
 
 
@@ -487,7 +515,7 @@ Udemy, Michael Ricks | Learn How To Do Amazing Cloth Animation In Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887331.jpg" />
+  <img src="Z:/picture/005/save_picture_887331.jpg" />
 </div>
 
 
@@ -513,7 +541,7 @@ Epic Games, Mathew Wadstein | UE4 Projects and File Structure (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885923.jpg" />
+  <img src="Z:/picture/005/save_picture_885923.jpg" />
 </div>
 
 
@@ -539,7 +567,7 @@ Packt Publishing, Jonathan A. Daley | Building an Unreal RTS Game: Adding Killer
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885919.jpg" />
+  <img src="Z:/picture/005/save_picture_885919.jpg" />
 </div>
 
 
@@ -565,7 +593,7 @@ Udemy, Cubo Class и др. | Unreal Engine 4 Class. Blueprints Part 1-4 (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885353.jpg" />
+  <img src="Z:/picture/005/save_picture_885353.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ CG Cookie | Создание зацикленного коридора в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885168.jpg" />
+  <img src="Z:/picture/005/save_picture_885168.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ CG Cookie | Создание мини-танка для мобильных иг�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884949.jpg" />
+  <img src="Z:/picture/005/save_picture_884949.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884800.jpg" />
+  <img src="Z:/picture/005/save_picture_884800.jpg" />
 </div>
 
 
@@ -656,34 +684,6 @@ CG Cookie | Создание анимации с ригом в Grease Pencil в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C48D9FD752B8BDB58594997184BE1CA5A623102E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372536   (884773) от 03.04.2020
-
-CG Cookie | Основы моделирования 3D-меша в Blender 2.8 / Fundamentals of 3D Mesh Modeling in Blender 2.8 (2020) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебный курс проведет вас через все основные рабочие процессы моделирования полигональной сетки и покажет как использовать инструменты Blender.
-Вместе мы рассмотрим все наиболее часто используемые инструменты и настройки Blender, которые вы будете использовать для всех ваших следующих проектов моделирования.
-Но, что не менее важно, я помогу Вам понять фундаментальные (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 04:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE5400A10680227A7C7A17780772713EA1F228A
 ```
 
 https://mybot314.ru/tekegram_catalog/

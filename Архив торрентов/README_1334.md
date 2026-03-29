@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753449.jpg" />
+  <img src="Z:/picture/008/save_picture_753449.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinNc 7.5.0.0 RePack by HakerStars [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753424.jpg" />
+  <img src="Z:/picture/008/save_picture_753424.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Artlantis Studio 6.0.2.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753418.jpg" />
+  <img src="Z:/picture/008/save_picture_753418.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HyperDock 1.8.0.9-dev [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753412.jpg" />
+  <img src="Z:/picture/008/save_picture_753412.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ TG Pro (Temperature Gauge Pro) 2.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753411.jpg" />
+  <img src="Z:/picture/008/save_picture_753411.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ RegCool 1.305 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753407.jpg" />
+  <img src="Z:/picture/008/save_picture_753407.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ IP Scanner Pro 4.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753403.jpg" />
+  <img src="Z:/picture/008/save_picture_753403.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ HDCleaner 2.012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753399.jpg" />
+  <img src="Z:/picture/008/save_picture_753399.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ HitPaw Screen Recorder 1.3.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753395.jpg" />
+  <img src="Z:/picture/008/save_picture_753395.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cockos REAPER for Mac v6.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753384.jpg" />
+  <img src="Z:/picture/008/save_picture_753384.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ ApowerREC 1.5.4.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753375.jpg" />
+  <img src="Z:/picture/008/save_picture_753375.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Acretongue - Discography 5 Releases (2004-2019) [MP3|320 Kbps] <Industrial, Synt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753369.jpg" />
+  <img src="Z:/picture/008/save_picture_753369.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Google Chrome 72.0.3626.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753365.jpg" />
+  <img src="Z:/picture/008/save_picture_753365.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Path Finder 8.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753361.jpg" />
+  <img src="Z:/picture/005/save_picture_753361.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Loaris Trojan Remover 3.0.77.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753359.jpg" />
+  <img src="Z:/picture/008/save_picture_753359.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Google Chrome 72.0.3626.96 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753357.jpg" />
+  <img src="Z:/picture/008/save_picture_753357.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VueScan Pro 9.6.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753356.jpg" />
+  <img src="Z:/picture/008/save_picture_753356.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Soft Organizer Pro 7.43 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753355.jpg" />
+  <img src="Z:/picture/008/save_picture_753355.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Adobe components: Flash Player 17.0.0.169 + AIR 17.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753350.jpg" />
+  <img src="Z:/picture/008/save_picture_753350.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Hard Drive Inspector Professional 4.32 Build 235 + for Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753336.jpg" />
+  <img src="Z:/picture/008/save_picture_753336.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753331.jpg" />
+  <img src="Z:/picture/008/save_picture_753331.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753328.jpg" />
+  <img src="Z:/picture/008/save_picture_753328.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753327.jpg" />
+  <img src="Z:/picture/008/save_picture_753327.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753325.jpg" />
+  <img src="Z:/picture/008/save_picture_753325.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753319.jpg" />
+  <img src="Z:/picture/008/save_picture_753319.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Office 2016 Standard 16.0.4366.1000 RePack by KpoJIuK (2016.05) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753315.jpg" />
+  <img src="Z:/picture/008/save_picture_753315.jpg" />
 </div>
 
 

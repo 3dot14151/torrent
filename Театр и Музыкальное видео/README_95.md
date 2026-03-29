@@ -1,3 +1,159 @@
+###  Публикация: 577883   (358345) от 19.11.2012
+
+Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577454   (358335) от 19.11.2012
+
+Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577919   (358229) от 19.11.2012
+
+Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577666   (358221) от 19.11.2012
+
+Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577519   (358213) от 19.11.2012
+
+Robbie Williams - Candy (2012) [1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577924   (358211) от 19.11.2012
+
+Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_358211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: POP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177822   (358124) от 27.10.2017
 
 Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
@@ -6,7 +162,7 @@ Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358124.jpg" />
+  <img src="Z:/picture/008/save_picture_358124.jpg" />
 </div>
 
 
@@ -35,7 +191,7 @@ No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358056.jpg" />
+  <img src="Z:/picture/008/save_picture_358056.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358052.jpg" />
+  <img src="Z:/picture/008/save_picture_358052.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
+  <img src="Z:/picture/008/save_picture_358044.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
+  <img src="Z:/picture/008/save_picture_358040.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
+  <img src="Z:/picture/008/save_picture_358038.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358028.jpg" />
+  <img src="Z:/picture/008/save_picture_358028.jpg" />
 </div>
 
 
@@ -191,7 +347,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357663.jpg" />
+  <img src="Z:/picture/008/save_picture_357663.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357632.jpg" />
+  <img src="Z:/picture/008/save_picture_357632.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357552.jpg" />
+  <img src="Z:/picture/008/save_picture_357552.jpg" />
 </div>
 
 
@@ -272,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357517.jpg" />
+  <img src="Z:/picture/008/save_picture_357517.jpg" />
 </div>
 
 
@@ -298,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357513.jpg" />
+  <img src="Z:/picture/008/save_picture_357513.jpg" />
 </div>
 
 
@@ -333,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357402.jpg" />
+  <img src="Z:/picture/008/save_picture_357402.jpg" />
 </div>
 
 
@@ -359,7 +515,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357396.jpg" />
+  <img src="Z:/picture/008/save_picture_357396.jpg" />
 </div>
 
 
@@ -385,7 +541,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357388.jpg" />
+  <img src="Z:/picture/008/save_picture_357388.jpg" />
 </div>
 
 
@@ -411,7 +567,7 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_357004.jpg" />
+  <img src="Z:/picture/005/save_picture_357004.jpg" />
 </div>
 
 
@@ -438,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356891.jpg" />
+  <img src="Z:/picture/008/save_picture_356891.jpg" />
 </div>
 
 
@@ -467,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356675.jpg" />
+  <img src="Z:/picture/008/save_picture_356675.jpg" />
 </div>
 
 
@@ -493,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356558.jpg" />
+  <img src="Z:/picture/008/save_picture_356558.jpg" />
 </div>
 
 
@@ -519,7 +675,7 @@ Gregorian - Live! Masters of Chant  Final Chapter Tour (2016) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356382.jpg" />
+  <img src="Z:/picture/008/save_picture_356382.jpg" />
 </div>
 
 
@@ -534,186 +690,6 @@ Gregorian представляет последнюю главу своего п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664593BE416C4406ED00B56F73F779CBF526CBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256236   (356321) от 21.10.2018
-
-Evanescence - Synthesis Live (2018) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления Evanescence, состоявшегося 3 ноября 2017г в зале Foxwoods Resort Casino Grand Theater , Ledyard, Connecticut (USA) в рамках  тура «Synthesis tour». Гастроли стартовали 14 октября 2017-го, и завершились 8 сентября 2018 года. Тур включал в себя  60 концертов в разных городах Северной Америки в 2017-м и 2018-ом годах, также 4 концерта в Океании (   Читать дальше...   )01. Overture
-02. Never Go Back
-03. Lacrymosa
-04. End Of The Dream(   Читать дальше...   )Производство: Eagle VisionЖанр: Symphonic Metal, Gothic MetalРежиссер: P.R. BrownАктеры: EvanescenceСубтитры: отсутствуютПродолжительность: 01:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE99537EC82453852A24D13B66391C20BF7B63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256346   (356161) от 21.10.2018
-
-Супердискотека 90-х от Радио Рекорд в Санкт-Петербурге (20.10.2018) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этой осенью Радио Рекорд раскрутил Петербургский СКК на все 360 градусов. Да, по многочисленным заявкам на наш пейджер снова поставили сцену в центре арены. Ведь классным пацанам и девчонкам нужно больше места для энергичных танцев и отличный вид на любимых артистов с любой точки трибун!
-Самое главное остается неизменным: атмосфера отвязных, музыкальных и таких наших (   Читать дальше...   )Intro
-ID
-Дискотека Авария - Хиа-хоп хаус / Пей пиво / Влечение / Новогодняя / Свет далеких планет
-Света - Что мне делать / Твои глаза / Хватит довольно / Я тебя люблю(   Читать дальше...   )Производство: РоссияЖанр: Музыка, ШоуПродолжительность: 03:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831765   (356087) от 03.11.2014
-
-The Beatles: Концерт на стадионе Шей / Shea stadium concert (1965) DVDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт The Beatles на стадионе Shea (New York) 15.08.1965
-В данном релизе представлена вторая часть концерта, в которой выступала группа "Битлз".01. Twist & Shout
-02. I Feel Fine
-03. Dizzy Miss Lizzie
-04. Ticket To Ride(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177705   (355946) от 28.10.2017
-
-Masami Okui - GIGS 2007 Masami Life (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта Masami Okui - Live tour 2007 Masami Life, прошедшего в Shibuya O-East 20 октября 2007. Сам DVD был выпущен 25 марта 2009.
-
-Источник: лицензионный DVDIt's my life
-Limited War
-紫音-sion-
-GAIA2012(   Читать дальше...   )Производство: Япония, evolution/GodSpeed, dwango AG EntertainmentЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9A4E75CF6B82120BE1382FD7A838A80D850490C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176551   (355942) от 28.10.2017
-
-Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта Masami Okui - Spring tour 2006 God Speed, прошедшего в Shibuya O-East 13 марта 2016.
-
-Источник: perfect darkDISC-1
-
-God Speed
-SUBLIMINAL(   Читать дальше...   )Производство: Япония, evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177761   (355931) от 28.10.2017
-
-Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
-2. Rise Up
-3. More Than Meets The Eye
-4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

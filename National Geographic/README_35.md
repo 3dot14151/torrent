@@ -1,3 +1,107 @@
+###  Публикация: 1650278   (207459) от 31.07.2023
+
+Акулы и Луна - удивительная связь / Shark Side of the Moon (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луна и океаны навеки связаны друг с другом. Но, возможно, эта связь далеко не ограничивается возникновением приливов и отливов. Неужели Луна управляет жизнью под водой? В сенсорной системе акул многое ещё остается непостижимым. Невероятное исследование с новейшими технологиями может связать миграции бронзовых акул-молотов с Луной...Производство: США, Roller Coaster Road, National GeographicЖанр: документальныйРежиссер: Сара Бёрнс, Алекс ШерраттУчастники: Тоби РикеттсПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2205932A17D5E8D6537C5E79CAB1FC949441E428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650639   (207391) от 02.08.2023
+
+Начало. Происхождение: Путешествие человечества / Origins: The Journey of Humankind (2017) WEB-DL [H.264/1080p] (серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы путешествуем во времени вдоль всей истории человечества в ходе интереснейшего путешествия, чтобы обнаружить ключевые начальные моменты, которые в действительности и сделали из нас современных людей. Это своеобразные "квантовые скачки" или компьютерный квест Next Big Things ("Новый хит"). Неважно, к какой точке отсчета в истории человечества (   Читать дальше...   )Производство: США, Asylum Entertainment, National GeographicЖанр: документальный, история, исследованияРежиссер: Саймон Джордж, Найал МакКормикУчастники: Джейсон СильваПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 8x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A831A5699E504BB042831D811362D3A1374001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651926   (206807) от 08.08.2023
+
+Акула - хищник в камуфляже / Camo Sharks (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая белая акула - ужасная и прекрасная. Но все ли достоинства этих хищников бросаются в глаза? Двое учёных разработали теорию и беспрецедентное исследование: владеют ли эти ловкие охотники навыком маскировки, присущим самым высшим хищникам.Производство: США, Roller Coaster Road, National GeographicЖанр: документальный, исследованияРежиссер: Сара В. Бёрнс, Алекс ШерраттУчастники: Дональд Эливерт, Райан Джонсон, Гиббс КугуруПеревод: одноголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7656B757C0CE40A0D0FBAC06B75FD7D7BF373E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930144   (206647) от 03.10.2022
+
+NG: Апокалипсис: Первая мировая война (5 серий из 5) / Apocalypse: World War I (2014) HDTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот новый документальный сериал создан на основе более 500 часов восстановленных в цвете и озвученных архивных киноматериалов, большая часть которых ранее не показывалась. Мы перенесемся в эпицентр военных действий, от окопов северной Франции до менее известных фронтов в России, Сербии, Турции и Палестине, и также увидим повседневную жизнь гражданского населения (   Читать дальше...   )Телекомпания: France Télévisions, TV5 Québec CanadaЖанр: ДокументальныйРежиссер: Изабель Кларк, Даниэль КостельПеревод: ДублированныйПродолжительность: 5 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC7B0C8621B138336C2DC27164230F2C1A5AA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652518   (206572) от 11.08.2023
 
 Африка: Смертельный рай / Africa's Deadly Eden (1999) HDTVRip [H.264/720pi]
@@ -6,7 +110,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206572.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205978.jpg" />
+  <img src="Z:/picture/005/save_picture_205978.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205049.jpg" />
+  <img src="Z:/picture/004/save_picture_205049.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204335.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204296.jpg" />
+  <img src="Z:/picture/004/save_picture_204296.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203029.jpg" />
+  <img src="Z:/picture/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201678.jpg" />
+  <img src="Z:/picture/005/save_picture_201678.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Реальность или фантастика? Бермудский тр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201195.jpg" />
+  <img src="Z:/picture/005/save_picture_201195.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199545.jpg" />
+  <img src="Z:/picture/005/save_picture_199545.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197323.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197310.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197249.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196856.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196715.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196531.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196410.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195322.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195075.jpg" />
+  <img src="Z:/picture/004/save_picture_195075.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195069.jpg" />
+  <img src="Z:/picture/004/save_picture_195069.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195051.jpg" />
+  <img src="Z:/picture/004/save_picture_195051.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195039.jpg" />
+  <img src="Z:/picture/004/save_picture_195039.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ NG: Самые опасные животные: От пустыни до сав�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0B855CF8A6CC2A450F04EBB4A336478B743F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498469   (195035) от 28.07.2023
-
-NG. Самая огромная акула-бык / World's Biggest Bull Shark (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Морской эколог доктор Нил Хаммершлаг объединяется с бывшим бойцом королевской морской пехоты Джеймсом Глэнси и эволюционным биологом доктором Тоби Дейли-Энгелем, чтобы выяснить, как Биг Булл, одна из самых крупных когда-либо пойманных тупорылых акул, выросла такой гигантской. А также узнать, не существуют ли другие подобные громадины.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, фаунаРежиссер: Дэвид С. ФальконеПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517200   (195021) от 28.07.2023
-
-Становление Кусто / Becoming Cousteau (2021) WEBRip [H.264/1080p]
-
->>След.
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взгляд на жизнь, достижения и трагедии, окружавшие известного исследователя и защитника окружающей среды Жака Кусто, благодаря архиву его недавно отреставрированных съемок.Производство: США / ACE Content, National Geographic, National Geographic Documentary Films, Story SyndicateЖанр: Документальный, биография, приключенияРежиссер: Лиз ГарбусУчастники: Венсан Кассель, Кэрол Бёрнетт, Луи Маль, Жак Ив Кусто, Дебора Норвилл, Пабло Пикассо, Жан-Мишель Кусто, Филипп Кусто, Дэвид Л. Волпер, Симона КустоПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2B6D388295F27C86B585EF17919E32988399C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484897   (195004) от 29.07.2023
-
-NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая большая стая серых акул в мире... 700 особей... Такое количество хищников собирается в полнолуние с единственной целью - поесть. Команда ученых совершит погружение, чтобы с помощью сверхсовременного оборудования запечатлеть грандиозную охоту и выяснить, что происходит в этом огромном скоплении акул.Производство: Франция, Германия, Французская Полинезия, ARTE, Andromeуde Oceanologie, CNRS Images, Filmin'Tahiti, Le cinquieme reve, Les Gens Biens Productions, National GeographicЖанр: Документальный, фауна, исследованияРежиссер: Люк МарескоУчастники: Дэн Нахтраб, Лоран Бальеста, Чарли ХувенерсПеревод: Одноголосый профессиональный (Велес)Субтитры: Английские, русскиеПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF4D6D0479B7B97FE323891F8CCA2AD59D1CBBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216343   (194981) от 31.07.2023
-
-NG: Земля: Биография Планеты / Earth: Making of a Planet (2011) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля... Насколько нам известно, это единственное обитаемое небесное тело во Вселенной. Почему? Чем наша планета так особенна? Ответы кроются в далеком прошлом Земли. Чтобы их отыскать, нам надо совершить путешествие в прошлое и увидеть первых ходивших по земле людей... Проехаться по континентам, движущихся навстречу друг другу... Повстречаться с динозаврами-убийцами, (   Читать дальше...   )Производство: Великобритания, Канада, Pioneer Productions International Limited, Handel ProductionsЖанр: ДокументальныйРежиссер: Явар АббасПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04EA6E423577B909145E60DBABB48E67423AC36
 ```
 
 https://mybot314.ru/tekegram_catalog/

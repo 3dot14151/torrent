@@ -1,3 +1,85 @@
+###  Публикация: 906746   (643235) от 09.06.2015
+
+Anim8or 0.9.8.0 Portable [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для 3D моделирования и анимации. При таком малом объеме предоставляет возможности, сравнимые с профессиональными программами моделирования и анимации. Интерфейс не совсем привычен для тех, кто раньше работал с профессиональными программами, придется повозится с освоением. Из недостатков можно отметить не полную поддержку кириллических шрифтов (например, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC4ACDE9E068B479988B2218934F2009159E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522960   (620126) от 14.07.2012
+
+MultiTexture Map 1.0.2 для 3DS Max 9, 2008, 2009, 2010, 2011, 2012, 2013 x86/x64 [Eng]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_620126.jpg" />
+</div>
+
+
+###  Подробнее
+
+MultiTexture Map представляет собой плагин для 3DS Max, который загружает несколько растровых текстур и назначает их случайным (random) образом либо по объектам, либо по ID материала. Позволяет изменять настройки гаммы, цветового тона и насыщенности случайным образом.
+Плагин совместим со Scanline, Vray, Brazil и FinalRender. MentalRay в настоящее время не поддерживается.
+
+Незаменимая вещь для работы с текстуризацией полов, плитки, массивов объектов, листвы деревьев и т.п.Название программы: MultiTexture MapЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038101   (607782) от 27.07.2016
+
+Nitro4D NitroBlast 2.0.2 for Cinema 4D  [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_607782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый плагин для гидроразрыва от создателя Thrausi и Catastrophe теперь полностью автоматический , Nitroblast написан с нуля, чтобы быть быстрее, больше , мощнее и лучше со всех точек зрения , чем предыдущие плагины для гидроразрыва .
+Несмотря на то что этот плагин на много мощней предыдущих , он был разработан с простым в использовании интерфейсом . Особенности (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F088B0D420FC1B0222A77CD15CA2C2DA4272D604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913642   (604591) от 29.06.2015
 
 Smith Micro Anime Studio Pro 11 Build 15858 [En]
@@ -6,7 +88,7 @@ Smith Micro Anime Studio Pro 11 Build 15858 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604591.jpg" />
+  <img src="Z:/picture/008/save_picture_604591.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ Reallusion CrazyTalk Pipeline 8.13.3615.3 + Resource Pack [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604189.jpg" />
+  <img src="Z:/picture/008/save_picture_604189.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ Rayfire 1.65.01 for 3ds Max 2014-2015 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599388.jpg" />
+  <img src="Z:/picture/008/save_picture_599388.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587741.jpg" />
+  <img src="Z:/picture/008/save_picture_587741.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ Anima 2.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574093.jpg" />
+  <img src="Z:/picture/008/save_picture_574093.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ Itoo RailClone Pro 3.3.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537559.jpg" />
+  <img src="Z:/picture/008/save_picture_537559.jpg" />
 </div>
 
 
@@ -165,7 +247,7 @@ Artlantis Studio 4.1.7 x64 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511998.jpg" />
+  <img src="Z:/picture/008/save_picture_511998.jpg" />
 </div>
 
 
@@ -192,7 +274,7 @@ V-ray 3.10.01 for Maya 2015-2016 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510608.jpg" />
+  <img src="Z:/picture/008/save_picture_510608.jpg" />
 </div>
 
 
@@ -218,7 +300,7 @@ Reallusion iClone Pro 6.2.2102.1 Retail + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501909.jpg" />
+  <img src="Z:/picture/008/save_picture_501909.jpg" />
 </div>
 
 
@@ -244,7 +326,7 @@ RayFire 1.81 for 3ds Max 2017-2018 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493535.jpg" />
+  <img src="Z:/picture/008/save_picture_493535.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ Trypogen 1.5 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487737.jpg" />
+  <img src="Z:/picture/008/save_picture_487737.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ MoFractal v.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486901.jpg" />
+  <img src="Z:/picture/008/save_picture_486901.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ Pixologic Sculptris [Eng] Alpha 6
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462181.jpg" />
+  <img src="Z:/picture/008/save_picture_462181.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ Manga Studio EX 5.0.6 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457075.jpg" />
+  <img src="Z:/picture/008/save_picture_457075.jpg" />
 </div>
 
 
@@ -381,7 +463,7 @@ Influence Point v1.5.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409464.jpg" />
+  <img src="Z:/picture/008/save_picture_409464.jpg" />
 </div>
 
 
@@ -408,7 +490,7 @@ Depliage V1.3.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409461.jpg" />
+  <img src="Z:/picture/008/save_picture_409461.jpg" />
 </div>
 
 
@@ -434,7 +516,7 @@ Alveole v1.0.3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409337.jpg" />
+  <img src="Z:/picture/008/save_picture_409337.jpg" />
 </div>
 
 
@@ -461,7 +543,7 @@ Topoformer 1.1 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385212.jpg" />
+  <img src="Z:/picture/008/save_picture_385212.jpg" />
 </div>
 
 
@@ -487,7 +569,7 @@ Quixel Megascans + Studio + Bridge 0.922 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385096.jpg" />
+  <img src="Z:/picture/008/save_picture_385096.jpg" />
 </div>
 
 
@@ -513,7 +595,7 @@ GreyscaleGorilla - Light Kit Pro v3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383314.jpg" />
+  <img src="Z:/picture/008/save_picture_383314.jpg" />
 </div>
 
 
@@ -539,7 +621,7 @@ AwesomeBump V5.1 Portable 5.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372642.jpg" />
+  <img src="Z:/picture/008/save_picture_372642.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ Phoenix FD 3.04.00 for 3ds max 2013-2018 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357503.jpg" />
+  <img src="Z:/picture/008/save_picture_357503.jpg" />
 </div>
 
 
@@ -593,7 +675,7 @@ NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355262.jpg" />
+  <img src="Z:/picture/008/save_picture_355262.jpg" />
 </div>
 
 
@@ -605,84 +687,6 @@ NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4CA2104E04C5BE180044B24C1CF6487DC0A32E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419408   (339460) от 28.10.2020
-
-Substance Alchemist 2020.3.0 (2.3.0) Build 70 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Alchemist - Это приложение нового поколения позволяет легко и просто создавать коллекции материалов. Можно смешивать и корректировать существующие материалы или создавать новые из фотографий и отсканированных изображений в высоком разрешении. Это очень удобно, когда требуются реальные эталонные образцы или просто хочется поэкспериментировать. С помощью (   Читать дальше...   )Язык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F99E7BB35A63B8287DD90E16A303398031E52C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183400   (309061) от 13.11.2017
-
-CrazyBump 1.22 RePack by Serka [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309061.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrazyBump создает карты: displacement, normal, occlusion, и specmaps, основанные на 2D изображениях. CrazyBump - Это быстрый, чистый и интуитивно понятный интерфейс, это отличный инструмент для того, чтобы быстро вывести ваши текстуры на совершенно иной уровень.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB2E57C07FC405A586E259824345B3DA6CB3E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332816   (308917) от 22.10.2019
-
-Next Limit RealFlow 10.5.3.0189 + Plugins [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308917.jpg" />
-</div>
-
-
-###  Подробнее
-
-RealFlow - это отраслевой стандарт для моделирования жидкости, быстрый и простой в использовании, он совместим со всеми основными 3D платформами для создания как безупречно крупных потоков, так и мелких потоков жидкостей быстро и легко! Программа лидер на мировом рынке в создании жидкостей и их анимации.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F392648BDDB51BBCC594C780225AF195D50CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

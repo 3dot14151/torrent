@@ -1,3 +1,55 @@
+###  Публикация: 1728932   (53830) от 09.06.2024
+
+Люди Икс ’97 / X-Men '97 (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (Сезон 1, Серия 1-10 из 10) HDRezka Studio, LostFilm, Jaskier, NewComers, Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53830.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Люди Икс ’97" - американский супергеройский мультсериал, созданный шоураннером Бо ДеМайо для стримингового сервиса Disney+. Он основан на комиксах об одноимённой команде Marvel Comics и является продолжением мультсериала "Люди Икс" 1992 года. Повествование начинается с момента завершения оригинального сериала и освещает приключения мутантов после (   Читать дальше...   )Производство: США Marvel Animation, Marvel Studios, The Walt Disney Company/Жанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Чейз Конли, Emi Yonemura, Джейк КасторенаПеревод: Дублированный (Flarrow Films), Профессиональный многоголосый (HDRezka Studio, LostFilm, Jaskier, NewComers)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125D750AC16FD8B61D2026FB00F8869CEAD91A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730013   (53338) от 14.06.2024
+
+Блуи / Bluey (2020) WEBRip [H.264/1080p] (сезон 2, серии 1-52) [EN / RU, EN, Multi Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озорная, любопытная и полная идей Блуи — щенок австралийской пастушьей собаки. Она живёт вместе с родителями и младшей сестрой Бинго в большом уютном доме. Каждый день Блуи придумывает весёлые игры.Производство: Австралия, Великобритания, Ludo StudioЖанр: мультфильм, семейныйРежиссер: Ричард Джеффри, Джо Брумм, Бет Харви и др.Актеры: Дэвид Маккормак, Мелани Занетти, Шарлотта Стент, Брэд Эллиотт и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русский (автор: Dabfar), Английский, Чешский, Венгерский, Польский, Румынский, ТурецкийПродолжительность: ~00:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08DFF15D221430CB992317208CBA676F40EA7AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730632   (53084) от 16.06.2024
 
 Агент Элвис / Agent Elvis (2023) WEB-DL (сезон 1, серии 1-10 из 10) [H.264/1080p-LQ] NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53084.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52928.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52636.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51922.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51398.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51245.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49485.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49484.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49206.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48419.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48210.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48194.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47943.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47911.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47465.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47397.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47264.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47176.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46958.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46550.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45918.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45796.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45620.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45540.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB13143E8409AA769896D4FEF8BDEBFD554D4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745585   (45469) от 27.08.2024
-
-Армитаж III / Amiteiji za saado / Armitage III (1995) BDRip (1-4 серии из 4) MC Entertainment [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45469.jpg" />
-</div>
-
-
-###  Подробнее
-
-2046 год. Полицейского Росса Сайлибуса переводят на Марс. Прилетев на место, прямо в аэропорту он становится свидетелем убийства известной певицы, которая оказывается запрещённым биороботом третьего поколения. Местная женщина-полицейский Наоми Армитаж решает подключиться к расследованию.Производство: Япония / AICЖанр: аниме, мультфильм, фантастика, детектив, боевикРежиссер: Хироюки Оти, Сатоси Сага, Юкио ОкамотоАктеры: Хироко Касахара, Ясунори Масутани, Рюсэй Накао, Хирохико Какэгава, Масахару Сато, Нобутоси Канна, Ватару Такаги, Мэгуми Огата, Хидэюки Танака, Юко КобаясиПеревод: Двухголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:33:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF49AD56EDF5EF4F7EF087557ABD6289183F90B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746183   (45175) от 30.08.2024
-
-Жестокий Джек / Baiorensu Jakku / Violence Jack (1986 – 1990) BDRip (1-3 серии из 3) Kallaider, Ranmaru [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45175.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце ХХ века на Землю упал метеорит, вызвав многочисленные землетрясения, цунами и прочие стихийные бедствия. Большинство крупных городов Японии оказалось в руинах, в уцелевших населенных пунктах хозяйничают мародеры и стихийные воинские образования. Человек, именующий себя «Слам Кинг», претендует на единовластное правление в Канто. Однако, есть некто (или, быть (   Читать дальше...   )Производство: Япония / Ashi Productions, Anime R, Studio 88, DAST Corporation, AICЖанр: аниме, мультфильм, боевик, ужасыРежиссер: Осаму Камидзё, Итиро Итано, Акихико НисиямаАктеры: Унсё Исидзука, Иссэи Футамата, Киёси Кобаяси, Кэнъю Хориути, Кэн Ямагути, Масаси Хиросэ, Тэссё Гэнда, Сигэдзо Сасаока, Каппэи Ямагути, Норио ВакамотоПеревод: Одноголосый любительский (Kallaider, Ranmaru)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1553C106D7534516A9E705671227AC045C97A570
 ```
 
 https://mybot314.ru/tekegram_catalog/

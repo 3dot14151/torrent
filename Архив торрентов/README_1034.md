@@ -6,7 +6,7 @@ A Better Finder Rename 10.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810252.jpg" />
+  <img src="Z:/picture/008/save_picture_810252.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810234.jpg" />
+  <img src="Z:/picture/008/save_picture_810234.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Disk Drill Enterprise 4.4.369 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810211.jpg" />
+  <img src="Z:/picture/008/save_picture_810211.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ D16 Group - SilverLine Collection 10.2021 VST, AAX [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810207.jpg" />
+  <img src="Z:/picture/008/save_picture_810207.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ ISO Workshop 10.6 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810205.jpg" />
+  <img src="Z:/picture/008/save_picture_810205.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810203.jpg" />
+  <img src="Z:/picture/008/save_picture_810203.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Reg Organizer 8.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810201.jpg" />
+  <img src="Z:/picture/008/save_picture_810201.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ goPanel 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810179.jpg" />
+  <img src="Z:/picture/008/save_picture_810179.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810163.jpg" />
+  <img src="Z:/picture/008/save_picture_810163.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ WiFiSpoof 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810159.jpg" />
+  <img src="Z:/picture/008/save_picture_810159.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ iMazing 1.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810158.jpg" />
+  <img src="Z:/picture/008/save_picture_810158.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ end.user - Shut Down Remixes (2017) Sonicterror Recordings [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810135.jpg" />
+  <img src="Z:/picture/008/save_picture_810135.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Slimjet 26.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810118.jpg" />
+  <img src="Z:/picture/008/save_picture_810118.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Slimjet 17.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810113.jpg" />
+  <img src="Z:/picture/008/save_picture_810113.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810109.jpg" />
+  <img src="Z:/picture/008/save_picture_810109.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ K-Lite Codec Pack Update 15.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810099.jpg" />
+  <img src="Z:/picture/008/save_picture_810099.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810073.jpg" />
+  <img src="Z:/picture/008/save_picture_810073.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Aiseesoft Video Converter Ultimate 10.3.12 RePack (& Portable) by TryRooM [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810070.jpg" />
+  <img src="Z:/picture/008/save_picture_810070.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ OCCT 9.1.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810065.jpg" />
+  <img src="Z:/picture/008/save_picture_810065.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810053.jpg" />
+  <img src="Z:/picture/008/save_picture_810053.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Maxthon Cloud Browser 4.9.3.100 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810052.jpg" />
+  <img src="Z:/picture/008/save_picture_810052.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810046.jpg" />
+  <img src="Z:/picture/008/save_picture_810046.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Q-Dir 6.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810036.jpg" />
+  <img src="Z:/picture/008/save_picture_810036.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Planet V: Drum & Bass Vol. 2 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810032.jpg" />
+  <img src="Z:/picture/008/save_picture_810032.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810004.jpg" />
+  <img src="Z:/picture/008/save_picture_810004.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Canary Mail 1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809993.jpg" />
+  <img src="Z:/picture/008/save_picture_809993.jpg" />
 </div>
 
 

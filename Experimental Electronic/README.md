@@ -7,7 +7,7 @@ ScAnDroid Experiment's - Pacification (2021) авторская раздача [
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026388.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ ScAnDroid Experiment's - Necessity of Rest (2021) авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017561.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ ScAnDroid Experiment's - Scribendarum (2021) авторская раздача [
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017234.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Time Travelers - Time Travelers (1982) LP [MP3|320 Kbps] <Electronic, Jazz, Rock
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975388.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ ScAnDroid Experiment's - Ortus et Occasus (2020) авторская раздач
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940733.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ IC3PEAK - До Свидания (2020) [MP3|320 Kbps] <Electronic, Experimental>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847958.jpg" />
+  <img src="Z:/picture/008/save_picture_847958.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ NKOHA - autumn (2015) EP [MP3|192 Kbps] <Electronic, Cloud, Beat>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844839.jpg" />
+  <img src="Z:/picture/008/save_picture_844839.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ ScAnDroid Experiment's - The Geometry of Life (2018) Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811751.jpg" />
+  <img src="Z:/picture/008/save_picture_811751.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ ScAnDroid Experiment's - Rhythms of Nature (2019) Авторская разда�
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799766.jpg" />
+  <img src="Z:/picture/008/save_picture_799766.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795965.jpg" />
+  <img src="Z:/picture/008/save_picture_795965.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ ScAnDroid Experiment's - Multis Sonorum in Diversis (2018) Авторская р
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785272.jpg" />
+  <img src="Z:/picture/008/save_picture_785272.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ ScAnDroid Experiment's - Fera Venator (2018) Single, Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778951.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ ScAnDroid Experiment's - Tempestas (2021) авторская раздача [MP3
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764347.jpg" />
+  <img src="Z:/picture/008/save_picture_764347.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ All4tonic - Mus(ion)ic (2016) [MP3|160 кб/с] <Electronic, Ambient, EDM>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746605.jpg" />
+  <img src="Z:/picture/008/save_picture_746605.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Balazs Ferenc - Register (1985) LP [MP3|320 Kbps] <Electronic, Experimental, Amb
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721275.jpg" />
+  <img src="Z:/picture/008/save_picture_721275.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Amon Tobin - Dark Jovian (2015) [MP3|320 кб/с|Vinyl]<Abstract, Ambient>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695578.jpg" />
+  <img src="Z:/picture/008/save_picture_695578.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Jean-Pierre Decerf - Space Oddities 1975-1979 (2015) CD, Compilations [MP3|320 K
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693023.jpg" />
+  <img src="Z:/picture/008/save_picture_693023.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ All4tonic - Laika Messages (2016) [MP3|160 Kbps] <Electronic, Ambient, Dub>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674268.jpg" />
+  <img src="Z:/picture/008/save_picture_674268.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ ScAnDroid Experiment's - Erunt Omnia (2018) Авторская раздача [M
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665943.jpg" />
+  <img src="Z:/picture/008/save_picture_665943.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639080.jpg" />
+  <img src="Z:/picture/008/save_picture_639080.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ ScAnDroid Experiment's - Nature Reviving (Single) (2018) [MP3|320 Kbps] <Atmosph
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622614.jpg" />
+  <img src="Z:/picture/008/save_picture_622614.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ ScAnDroid Experiment's - Stories Of Different Times (2022) авторская р
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592890.jpg" />
+  <img src="Z:/picture/008/save_picture_592890.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586441.jpg" />
+  <img src="Z:/picture/008/save_picture_586441.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568545.jpg" />
+  <img src="Z:/picture/008/save_picture_568545.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздач
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555020.jpg" />
+  <img src="Z:/picture/008/save_picture_555020.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Judge Bitch - Gridiron (2014) [MP3|320 кб/с]<80s, Electronic, Dreamwave>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541208.jpg" />
+  <img src="Z:/picture/008/save_picture_541208.jpg" />
 </div>
 
 

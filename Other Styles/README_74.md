@@ -1,3 +1,67 @@
+###  Публикация: 514537   (658151) от 24.06.2012
+
+Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_658151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Francisco Tárrega ( 1852 - 1909 )
+01. Capricho Arabe (Serenata) [05:25]
+02. Preludio No. 1 D-Moll/In D Minor [01:06]
+03. Endecha (Klage/Lament) [01:02]
+04. Oremus [00:48]
+05. Preludio No. 6 H-Moll/In B Minor [00:46]
+06. Preludio No. 2 A-Moll/In a Minor [01:43]
+07. Preludio No. 5 E-Dur/In E Major [01:32]
+08. Preludio No. 13 A-Moll/In a Minor [00:53]
+09. Lagrima (Preludio) [01:43](   Читать дальше...   )1992Жанр: Classical GuitarФормат: CDПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139770   (658112) от 04.06.2017
+
+Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stones (4:36)
+02 - Go Be Love (4:09)
+03 - Not Dead Yet (3:59)
+04 - Temperance (4:13)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139766   (658038) от 04.06.2017
 
 Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
@@ -6,7 +70,7 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658038.jpg" />
+  <img src="Z:/picture/008/save_picture_658038.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Laurindo Almeida, Salli Terri, Martin Ruderman - Duets With Spanish Guitar (1990
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657968.jpg" />
+  <img src="Z:/picture/005/save_picture_657968.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ VA - The Ultimate Classical Guitar Album (2008) 2CD [FLAC|Lossless]<Classical Gu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_657745.jpg" />
+  <img src="Z:/picture/005/save_picture_657745.jpg" />
 </div>
 
 
@@ -105,7 +169,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) [FLA
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657375.jpg" />
+  <img src="Z:/picture/008/save_picture_657375.jpg" />
 </div>
 
 
@@ -134,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656816.jpg" />
+  <img src="Z:/picture/008/save_picture_656816.jpg" />
 </div>
 
 
@@ -165,7 +229,7 @@ Daniel Licht - Silent Hill: Downpour / Сайлент-Хилл: Ливень (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656621.jpg" />
+  <img src="Z:/picture/008/save_picture_656621.jpg" />
 </div>
 
 
@@ -200,7 +264,7 @@ VA - Latino Fitness Club 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, Latin-Dance, Reg
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655655.jpg" />
+  <img src="Z:/picture/008/save_picture_655655.jpg" />
 </div>
 
 
@@ -232,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655328.jpg" />
+  <img src="Z:/picture/005/save_picture_655328.jpg" />
 </div>
 
 
@@ -267,7 +331,7 @@ Marcin Przybylowicz & Mikolai Stroinski – The Witcher 3: Wild Hunt (2015) Unof
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655102.jpg" />
+  <img src="Z:/picture/008/save_picture_655102.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654772.jpg" />
+  <img src="Z:/picture/008/save_picture_654772.jpg" />
 </div>
 
 
@@ -325,7 +389,7 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654770.jpg" />
+  <img src="Z:/picture/008/save_picture_654770.jpg" />
 </div>
 
 
@@ -354,7 +418,7 @@ Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654768.jpg" />
+  <img src="Z:/picture/008/save_picture_654768.jpg" />
 </div>
 
 
@@ -383,7 +447,7 @@ Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654712.jpg" />
+  <img src="Z:/picture/008/save_picture_654712.jpg" />
 </div>
 
 
@@ -412,7 +476,7 @@ Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654680.jpg" />
+  <img src="Z:/picture/008/save_picture_654680.jpg" />
 </div>
 
 
@@ -447,7 +511,7 @@ William Joseph - Be Still (2012) [MP3|320 кб/с]<Contemporary Instrumental, Ne
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654412.jpg" />
+  <img src="Z:/picture/008/save_picture_654412.jpg" />
 </div>
 
 
@@ -482,7 +546,7 @@ VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653945.jpg" />
+  <img src="Z:/picture/008/save_picture_653945.jpg" />
 </div>
 
 
@@ -511,7 +575,7 @@ Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653856.jpg" />
+  <img src="Z:/picture/008/save_picture_653856.jpg" />
 </div>
 
 
@@ -540,7 +604,7 @@ Joseph L Young - Every Moment (2018) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653785.jpg" />
+  <img src="Z:/picture/008/save_picture_653785.jpg" />
 </div>
 
 
@@ -569,7 +633,7 @@ Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651997.jpg" />
+  <img src="Z:/picture/008/save_picture_651997.jpg" />
 </div>
 
 
@@ -598,7 +662,7 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651807.jpg" />
+  <img src="Z:/picture/008/save_picture_651807.jpg" />
 </div>
 
 
@@ -627,7 +691,7 @@ Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651789.jpg" />
+  <img src="Z:/picture/008/save_picture_651789.jpg" />
 </div>
 
 
@@ -653,7 +717,7 @@ Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651656.jpg" />
+  <img src="Z:/picture/008/save_picture_651656.jpg" />
 </div>
 
 
@@ -682,7 +746,7 @@ VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651481.jpg" />
+  <img src="Z:/picture/008/save_picture_651481.jpg" />
 </div>
 
 
@@ -711,7 +775,7 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651480.jpg" />
+  <img src="Z:/picture/008/save_picture_651480.jpg" />
 </div>
 
 
@@ -725,64 +789,6 @@ Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домаш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031488   (651479) от 04.07.2016
-
-Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Demon (03:23)
-02. Mine (by Sweet Tempest) (03:43)
-03. The Demon Dance (by Julian Winding) (06:00)
-04. What Are You (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9A093ED9198EB5DAAD601A270C5AAD8FB6BFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031632   (651475) от 04.07.2016
-
-Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oregon hills    05:58
-02.  On my wings    04:24
-03.  Bonjour Nico    05:30
-04.  Shakuhaji tales    06:21(   Читать дальше...   )Жанр: New Age, Meditative, Relax |Продолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D85E8D29D2241B7D5DCBCC96036524D0FAD814
 ```
 
 https://mybot314.ru/tekegram_catalog/

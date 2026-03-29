@@ -1,3 +1,82 @@
+###  Публикация: 1437263   (1042001) от 05.01.2021
+
+Кайрос / Kairoseu / Kairos (2020) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) NewDub
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042001.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Ким Со-джина карьера на зависть и замечательная семья, но эта прекрасная жизнь рушится в один момент после похищения неизвестными его маленькой дочери. Мужчина впадает в отчаяние, когда внезапно получает возможность связаться с человеком в прошлом. Девушка Хан Э-ри разрывается между учёбой и работой, изо всех сил пытаясь накопить на операцию для больной матери, (   Читать дальше...   )Производство: Южная Корея, OH Story, Blossom StoryЖанр: триллер, фантастика, мелодрамаРежиссер: Пак Сын-уАктеры: Щин Сон-нок, Ли Сэ-ён, Ан Бо-хён, Нам Гю-ри, Кан Сын-юн, Ли Джу-мён, Чон Э-ри, Щин Гу, Квон Хёк, Хван Джон-минПеревод: Двуголосый любительский (NewDub)Язык озвучки: РусскийПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173E15A8E6DC40D76FFB1FF4389DC85D85C7F1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437451   (1041940) от 05.01.2021
+
+Моя опасная жена / Naui Wiheomhan Anae / My Dangerous Wife (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) BaibaKo [PR]
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ким Юн Чхоль - владелец и шеф-повар известного ресторана, шесть лет счастливо женат на умной, красивой и богатой, практически идеальной Сим Чжэ Кён. Но брак, заключённый по большой любви, оказывается под угрозой, когда Ким Юн Чхоль влюбляется в красавицу Чжин Сон Ми, и между ними начинается страстный роман. Любовники планируют убить мешающую им Сим Чжэ Кён. Но однажды, (   Читать дальше...   )Производство: Южная Корея, KeyEastЖанр: драма, мелодрама, триллерРежиссер: Ли Хён-минАктеры: Ким Джон-ын, Чхве Вон-ён, Чхве Ю-хва, Щим Хе-джин, Ли Джун-хёк, Чон Су-ён, Ан Нэ-сан, Юн Е-хи, Юн Джон-сок, Ким Джа-ёнПеревод: Многоголосый профессиональный (BaibaKo)Продолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B522F6CAC210C1079B57C4C8ABC110CC91E34A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611224   (1041305) от 11.02.2023
+
+Любовное сражение / Битва любви / Люблю тебя ненавидеть / Yeonaedaejeon / Love To Hate You (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорама о мужчине и женщине, которые не доверяют противоположному полу и не верят в любовь.
+Ё Ми Ран – новый юрист юридической фирмы Gilmu, специализирующейся на индустрии развлечений. Она патологически ненавидит проигрывать мужчинам и считает, что единственный способ для женщины выжить в этом мире одной – это сделать успешную карьеру. Ё Ми Ран рассматривает свидания (   Читать дальше...   )Производство: Южная Корея / Seoul Broadcasting System (SBS)Жанр: мелодрама, комедияРежиссер: Ким Джон-гвонАктеры: Ким Ок-пин, Тео Ю, Ким Джи-хун, Ко Вон-хи, Ким До-ён, Ли Джу-бин, Ким Сон-нёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейский, английский, французскийСубтитры: украинские, английские (forced, full), французские (forced, full)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF76BC9C435D05D73773BC47405441086A5F933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431886   (1040982) от 08.01.2021
 
 Алиса в Пограничье / Imawa no Kuni no Arisu / Alice in Borderland (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) LostFilm
@@ -6,7 +85,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040982.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040092.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040088.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039482.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039224.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039213.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039021.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038186.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033330.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032761.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032719.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032643.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031804.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031801.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031461.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031458.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028818.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028409.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024274.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014095.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011871.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005159.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874389.jpg" />
+  <img src="Z:/picture/005/save_picture_874389.jpg" />
 </div>
 
 
@@ -594,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98A8F286D59B39B433C55A1C815ED419A6CF697A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 129292   (852743) от 21.04.2020
-
-Чингисхан / Cheng Ji Si Han / Genghis Khan (2004) DVDRip (сезон 1, серии 1-30 из 30)
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852743.jpg" />
-</div>
-
-
-###  Подробнее
-
-800 лет назад монгольская степь была заселена множеством племен, самыми крупными из которых были кераиты, меркиты, татары, найманы, монголы. Эти 5 племен были независимыми и не подчинялись друг другу. Династия Цзинь в отношении них вела политику 'разделяй и властвуй', проводила разбойные набеги, сокращая их население. Bражда привела к длительным войнам как на территории (   Читать дальше...   )Производство: Китай, МонголияЖанр: БоевикРежиссер: Чжу ВэньцзеАктеры: Ба Лин, Сажэнь Гаова, Чжао ХэнсюаньПеревод: Многоголосый закадровыйПродолжительность: 30 серий по 40 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6327A2C4C122EF233272053B1813D8634FCAF3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863478   (823947) от 25.03.2015
-
-Хищник / Mozu (2014) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (ViruseProject)
-
->>След.
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эхо сирен разносится по Токио холодным зимним вечером. Пыль и обломки оседают на залитый кровью бетон, а газеты и телеэкраны по всей стране начинают пестрить заголовками о террористическом акте, затронувшем сердца и жизни многих людей.
-Кураки, суровый и упрямый инспектор из первого отдела Управления Общественной Безопасности, встает на путь бесконечно запутанной (   Читать дальше...   )Производство: ЯпонияЖанр: триллер, драмаРежиссер: Эйитиро ХасумиАктеры: Хидэтоси Нисидзима, Теруюки Кагава, Йоко Маки, Масахиро Тода, Кацухиса Намасе, Юсукэ Хираяма, Синго Цуруми, Ацуси Ито и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Татьяна Романовская, Валерий Смекалов, Дмитрий Кравченко, Алексей КизубПродолжительность: (1) 01:31:05 + (9) 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F8AFE0964A096B98E12F3DA2014B0F91DBB098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881567   (822326) от 26.03.2015
-
-Хищник / Mozu / Shrike (2014) HDTVRip (сезон 1, серии 1-10 из 10) (ViruseProject)
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эхо сирен разносится по Токио холодным зимним вечером. Пыль и обломки оседают на залитый кровью бетон, а газеты и телеэкраны по всей стране начинают пестрить заголовками о террористическом акте, затронувшем сердца и жизни многих людей.
-Кураки, суровый и упрямый инспектор из первого отдела Управления Общественной Безопасности, встает на путь бесконечно запутанной (   Читать дальше...   )Производство: Япония, WOWOW, TBSЖанр: триллер, драма, детективРежиссер: Эйчиро ХасумиАктеры: Хидэтоси Нисидзима, Теруюки Кагава, Йоко Маки, Масахиро Тода, Кацухиса Намасе, Юсукэ Хираяма, Синго Цуруми, Ацуси Ито и др.Перевод: Многоголосый закадровый, профессиональный - ViruseProjectОзвучка: Татьяна Романовская, Валерий Смекалов, Дмитрий Кравченко, Алексей КизубПродолжительность: 01:31:05 + 9 x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5424A7AB390225D6FDF9FCAF663AA884B6948C
 ```
 
 https://mybot314.ru/tekegram_catalog/

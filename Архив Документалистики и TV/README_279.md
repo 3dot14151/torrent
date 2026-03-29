@@ -1,3 +1,174 @@
+###  Публикация: 1182931   (312690) от 12.11.2017
+
+Футбол. Товарищеский матч 2017. Россия — Аргентина (Матч ТВ) (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312690.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 2017 года, суббота. 16:00 МСК
+Товарищеский матч 2017
+Россия — Аргентина
+Стадион: Лужники БСА (Москва, Россия), вместимость: 84745(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACC5E8BDBF88CC31E3C9F768445C3DA4B3B2C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959984   (312640) от 26.11.2015
+
+Время покажет с Петром Толстым (26.11.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312640.jpg" />
+</div>
+
+
+###  Подробнее
+
+В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD72B964228A33AB2C42B4DF432D2E25AE685FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076676   (312439) от 26.11.2016
+
+Фигурное катание. Гран-при сезона 2016-2017 "НХК Трофи-2016". Пары. Короткая программа (25.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312439.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2016, пятница. 08:20 МСК
+6-й Этап серии Гран-при сезона 2016-2017
+"НХК Трофи-2016", Саппоро (Япония)
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E24AD283CFE736F78E103145FF72D7E0AF8178D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076852   (312438) от 26.11.2016
+
+Футбол. Лига Европы 2016-2017. Группа D. 5-й тур. Зенит (Россия) – Маккаби Т-А (Израиль) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312438.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2016, четверг. 19:00 МСК
+Лига Европы 2016-2017. Групповой этап
+Группа D. 5-й тур
+(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29F08FEE28E71A0A04BFCFD31F9B688EA7EB360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076859   (312330) от 26.11.2016
+
+Футбол. Лига Европы 2016-2017. Группа E. 5-й тур. Рома (Италия) – Виктория Пльзень (Чехия) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312330.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2016, четверг. 23:05 МСК
+Лига Европы 2016-2017. Групповой этап
+Группа E. 5-й тур
+(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51723A955357563D7C26589DF21A82DBCDD720F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076888   (312323) от 26.11.2016
+
+Футбол. Лига Европы 2016-2017. Группа I. 5-й тур. Шальке-04 (Германия) – Ницца (Франция) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312323.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2016, четверг. 21:00 МСК
+Лига Европы 2016-2017. Групповой этап
+Группа I. 5-й тур
+(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35F10C3944D55A8B9F1241376A73F1E8A239190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076867   (312321) от 26.11.2016
 
 Футбол. Лига Европы 2016-2017. Группа F. 5-й тур. Атлетик Б (Испания) – Сассуоло (Италия) (24.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
@@ -6,7 +177,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312321.jpg" />
+  <img src="Z:/picture/008/save_picture_312321.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312315.jpg" />
+  <img src="Z:/picture/008/save_picture_312315.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312188.jpg" />
+  <img src="Z:/picture/008/save_picture_312188.jpg" />
 </div>
 
 
@@ -93,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312187.jpg" />
+  <img src="Z:/picture/008/save_picture_312187.jpg" />
 </div>
 
 
@@ -122,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312186.jpg" />
+  <img src="Z:/picture/008/save_picture_312186.jpg" />
 </div>
 
 
@@ -151,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312184.jpg" />
+  <img src="Z:/picture/008/save_picture_312184.jpg" />
 </div>
 
 
@@ -180,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312183.jpg" />
+  <img src="Z:/picture/008/save_picture_312183.jpg" />
 </div>
 
 
@@ -209,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312177.jpg" />
+  <img src="Z:/picture/008/save_picture_312177.jpg" />
 </div>
 
 
@@ -238,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312173.jpg" />
+  <img src="Z:/picture/008/save_picture_312173.jpg" />
 </div>
 
 
@@ -267,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312024.jpg" />
+  <img src="Z:/picture/008/save_picture_312024.jpg" />
 </div>
 
 
@@ -296,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311871.jpg" />
+  <img src="Z:/picture/008/save_picture_311871.jpg" />
 </div>
 
 
@@ -325,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311728.jpg" />
+  <img src="Z:/picture/008/save_picture_311728.jpg" />
 </div>
 
 
@@ -351,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311599.jpg" />
+  <img src="Z:/picture/008/save_picture_311599.jpg" />
 </div>
 
 
@@ -379,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311444.jpg" />
+  <img src="Z:/picture/008/save_picture_311444.jpg" />
 </div>
 
 
@@ -407,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310664.jpg" />
+  <img src="Z:/picture/008/save_picture_310664.jpg" />
 </div>
 
 
@@ -433,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310649.jpg" />
+  <img src="Z:/picture/008/save_picture_310649.jpg" />
 </div>
 
 
@@ -459,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310645.jpg" />
+  <img src="Z:/picture/008/save_picture_310645.jpg" />
 </div>
 
 
@@ -485,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310423.jpg" />
+  <img src="Z:/picture/008/save_picture_310423.jpg" />
 </div>
 
 
@@ -511,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310416.jpg" />
+  <img src="Z:/picture/008/save_picture_310416.jpg" />
 </div>
 
 
@@ -537,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310401.jpg" />
+  <img src="Z:/picture/008/save_picture_310401.jpg" />
 </div>
 
 
@@ -548,174 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83271EDD2A9B0E584B5E76BF6516539FAD1E1F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960379   (310335) от 27.11.2015
-
-Футбол. Лига Европы 2015-16. Группа C. 5 тур. Краснодар (Россия) - Боруссия Д (Германия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Групповой этап Лиги Европы 5 тур. Краснодар (Россия) - Боруссия Д (Германия)Телекомпания: Матч ТВ HDЖанр: Спорт, ТелепередачаПродолжительность: 01:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2546563E2E8AC06E7BEE39D80E35605447496411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960218   (310325) от 27.11.2015
-
-Обзор. Лига Чемпионов 2015-16. 5 тур. 1 и 2 день. Обзор матчей за 24-25.11.2015 (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор группового этапа Лиги Чемпионов 2015-2016 5 тура.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:40:50 + 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD91B40693939D6827B929594F1667F8DDFD0F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183262   (310317) от 13.11.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. 1-й матч. Дания – Ирландия (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310317.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2017 года, суббота. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа.
-Плей-офф. 1-й матч. Дания – Ирландия
-Стадион: Паркен (Копенгаген, Дания), вместимость: 42358(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0F01C56B15688F3B61402638CF1831D1A3E914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183227   (310316) от 13.11.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. 1-й матч. Швеция – Италия (10.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310316.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 ноября 2017 года, пятница. 22:45 МСК
-Чемпионат Мира 2018. Отборочный турнир. Европа.
-Плей-офф. 1-й матч. Швеция – Италия
-Стадион: Френдс-Арена (Стокгольм, Швеция), вместимость: 54329(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA8778807A19C5ECFE495344DDE2ADD9A38E4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183179   (310315) от 13.11.2017
-
-Хоккей. Евро хоккей тур 2017—2018. Кубок Карьяла 2017. Швейцария – Россия (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310315.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2017 года, суббота. 14:30 МСК
-Евро хоккей тур 2017—2018. Кубок Карьяла 2017
-Швейцария – Россия
-Стадион: Хартвалл-Арена (Хельсинки, Финляндия), 2713 зрителей (20 % при вместимости 13464)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666016D1E738E006231AD0929E6F0FDFBE4A649B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183268   (310314) от 13.11.2017
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Плей-офф. Обзор Первыx матчей (11.11.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310314.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 2017 года, суббота
-Обзор матчей отборочного турнира Чемпионата Мира 2018. Европа. Плей-офф
-Первые матчи:
-09.11.2017 ~ Северная Ирландия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский,Субтитры: отсутствуютПродолжительность: 00:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392F55215EB89220790361886B20BAA07F165EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

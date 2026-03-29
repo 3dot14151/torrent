@@ -6,7 +6,7 @@ Trickster: Edogawa Ranpo "Shounen Tanteidan" yori / Обманщик: Клуб �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804787.jpg" />
+  <img src="Z:/picture/008/save_picture_804787.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chain Chronicle: Haecceitas no Hikari / Цепные хроники - свет �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804649.jpg" />
+  <img src="Z:/picture/008/save_picture_804649.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803080.jpg" />
+  <img src="Z:/picture/008/save_picture_803080.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Piace: Watashi no Italian / Пьячэволе: Моя итальянская к
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803078.jpg" />
+  <img src="Z:/picture/008/save_picture_803078.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ One Room / Одна комната [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803014.jpg" />
+  <img src="Z:/picture/008/save_picture_803014.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, ТВ, 25] HDTV 720p 10bit r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802361.jpg" />
+  <img src="Z:/picture/008/save_picture_802361.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Marginal #4 Kiss kara Tsukuru Big Bang / Маргинал №4 [2017, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801121.jpg" />
+  <img src="Z:/picture/008/save_picture_801121.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Kitsune no Koe | Voice of Fox | Голос лисицы [2018, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800566.jpg" />
+  <img src="Z:/picture/008/save_picture_800566.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Golden Kamuy | Золотой Камуй | Золотое божество [TB-1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800535.jpg" />
+  <img src="Z:/picture/008/save_picture_800535.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Ai Mai Mii: Surgical Friends / Ай Май Ми - 3 [2017, TV, 12] WEB-DLRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800317.jpg" />
+  <img src="Z:/picture/008/save_picture_800317.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800285.jpg" />
+  <img src="Z:/picture/008/save_picture_800285.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Kanamemo | Записки Каны [2009, TV, 13 эп.] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800277.jpg" />
+  <img src="Z:/picture/008/save_picture_800277.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800130.jpg" />
+  <img src="Z:/picture/008/save_picture_800130.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Akiba's Trip The Animation / Виды Акибы [2017, TV, 13] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800088.jpg" />
+  <img src="Z:/picture/008/save_picture_800088.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800087.jpg" />
+  <img src="Z:/picture/008/save_picture_800087.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Kuzu no Honkai / Scum's Wish / Тайные желания отвергнуты�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800083.jpg" />
+  <img src="Z:/picture/008/save_picture_800083.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Osake wa Fuufu ni Natte kara | Супружеская пара и алкогол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799714.jpg" />
+  <img src="Z:/picture/008/save_picture_799714.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Nyanko Days / Кошачьи дни [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799569.jpg" />
+  <img src="Z:/picture/008/save_picture_799569.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Shouwa Genroku Rakugo Shinjuu: Sukeroku Futatabi Hen / Сквозь эпохи: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799555.jpg" />
+  <img src="Z:/picture/008/save_picture_799555.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Onihei / Онихей: Криминальные истории периода Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799014.jpg" />
+  <img src="Z:/picture/008/save_picture_799014.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Ulysses: Jeanne d'Arc to Renkin no Kishi / Ulysses: Jeanne d'Arc and the Alchemi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798614.jpg" />
+  <img src="Z:/picture/008/save_picture_798614.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Soukyuu no Fafner: Dead Aggressor - Right of Left | Небесный Фафни�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797789.jpg" />
+  <img src="Z:/picture/008/save_picture_797789.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794776.jpg" />
+  <img src="Z:/picture/008/save_picture_794776.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Kemono Friends | Животные-друзья [2017, TV, 12 эп.] WEB-DL 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794241.jpg" />
+  <img src="Z:/picture/008/save_picture_794241.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Kobayashi-san Chi no Maid Dragon / Miss Kobayashi's Dragon Maid / Служанк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794173.jpg" />
+  <img src="Z:/picture/008/save_picture_794173.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Emiya-san Chi no Kyou no Gohan | Today's Menu For Emiya Family | Сегодня�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793868.jpg" />
+  <img src="Z:/picture/008/save_picture_793868.jpg" />
 </div>
 
 

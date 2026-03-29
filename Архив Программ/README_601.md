@@ -6,7 +6,7 @@ Hetman Word Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747486.jpg" />
+  <img src="Z:/picture/008/save_picture_747486.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ VeraCrypt 1.22 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747481.jpg" />
+  <img src="Z:/picture/008/save_picture_747481.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Krita 4.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747478.jpg" />
+  <img src="Z:/picture/008/save_picture_747478.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ WinRAR 5.60 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747475.jpg" />
+  <img src="Z:/picture/008/save_picture_747475.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ JetClean Pro 1.5.0.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747413.jpg" />
+  <img src="Z:/picture/008/save_picture_747413.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PhotoSpLoad 103.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747394.jpg" />
+  <img src="Z:/picture/008/save_picture_747394.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Malwarebytes Anti-Malware Premium 2.1.6.1022 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747310.jpg" />
+  <img src="Z:/picture/008/save_picture_747310.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ cFosSpeed 10.08 Build 2216 Final RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747305.jpg" />
+  <img src="Z:/picture/008/save_picture_747305.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Windows 7 SP1 x64 Plus Office Release by StartSoft DVD 10-11-12-13 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747262.jpg" />
+  <img src="Z:/picture/008/save_picture_747262.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ RegScanner 2.55 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746918.jpg" />
+  <img src="Z:/picture/008/save_picture_746918.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FileZilla 3.49.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746914.jpg" />
+  <img src="Z:/picture/008/save_picture_746914.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Free Studio 6.6.15.523 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746898.jpg" />
+  <img src="Z:/picture/008/save_picture_746898.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mozilla Thunderbird 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746837.jpg" />
+  <img src="Z:/picture/008/save_picture_746837.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Internet Download Manager 6.25 Build 19 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746824.jpg" />
+  <img src="Z:/picture/008/save_picture_746824.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Hiren's BootCD 13.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746778.jpg" />
+  <img src="Z:/picture/008/save_picture_746778.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Wallpaper Engine 1.3.19 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746763.jpg" />
+  <img src="Z:/picture/008/save_picture_746763.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Opera 69.0.3686.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746762.jpg" />
+  <img src="Z:/picture/008/save_picture_746762.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Google Chrome 84.0.4147.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746755.jpg" />
+  <img src="Z:/picture/008/save_picture_746755.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Google Chrome 84.0.4147.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746750.jpg" />
+  <img src="Z:/picture/008/save_picture_746750.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Android Studio 4.0.1 Build #AI-193.6911.18.40.6626763 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746649.jpg" />
+  <img src="Z:/picture/008/save_picture_746649.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Foundry Modo 14.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746646.jpg" />
+  <img src="Z:/picture/008/save_picture_746646.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Flash Player 32.0.0.403 (Adobe Runtimes AllInOne 14.07.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746643.jpg" />
+  <img src="Z:/picture/008/save_picture_746643.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Best Service - Halls of Fame 3 Complete Edition 3.1.7 VST, VST3, AAX (x86/x64) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746619.jpg" />
+  <img src="Z:/picture/008/save_picture_746619.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 30.01.2019 RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746543.jpg" />
+  <img src="Z:/picture/008/save_picture_746543.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746534.jpg" />
+  <img src="Z:/picture/008/save_picture_746534.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ VirtualBox 6.1.12 Build 139181 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746527.jpg" />
+  <img src="Z:/picture/008/save_picture_746527.jpg" />
 </div>
 
 

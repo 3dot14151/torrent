@@ -1,3 +1,32 @@
+###  Публикация: 1758275   (103426) от 01.11.2024
+
+Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Eighteen 04:47
+02. Save Me From The Eagles Nest 04:12
+03. Beat Of Life 04:30
+04. Two Of A Thousand 05:14(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94739EDD30A2FDCAF7E160446884E58E4BBB9B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759090   (103319) от 07.11.2024
 
 Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Alternative Rock, Grunge, Hard Rock>
@@ -6,7 +35,7 @@ Alice In Chains - Lives In Seattle, in Dallas (1990-1992) HQ Remastered, 2024, D
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103319.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Aerosmith - Live in Boston (1994) HQ Remastered, 2024, DMG [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103311.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Neal Morse - No Hill For A Climber (2024) [MP3|320 Kbps] <Progressive Rock, Symp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103239.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Violent Femmes - Hallowed Ground (1984) Remastered, 2024, Craft Recordings [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103214.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Alice in Chains - Los Angeles 1990 (1990) HQ Remaster, 2024, TimeLine [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103208.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Keane - Strangeland (2012) [MP3|320 кб/с]<Pop-Rock, Piano Rock, Britpop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102646.jpg" />
+  <img src="Z:/picture/005/save_picture_102646.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ The Cure - Songs Of A Lost World and Songs Of A Live World: Troxy London MMXXIV 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101342.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Spa
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101327.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <So
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100883.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99760.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98961.jpg" />
 </div>
 
 
@@ -398,7 +427,7 @@ VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98222.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ AOR - The Colors of L.A (2012) [MP3|320 кб/с]<Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97115.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Unheilig - Lichter der Stadt (Limited Deluxe Edition) (2012) [MP3|~245 кб/с (
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97018.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ VA - X 2010 Christian Rock Hits (2010) [MP3|258-310 кб/с]<Christian Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97008.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ H.e.a.t. - Address The Nation (2012) [MP3|320 кб/с]<AOR , Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96980.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ I See Stars - Digital Renegade (2012) [MP3|320 кб/с]<Post-Hardcore, Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96488.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96450.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96445.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Les Dudek - Ghost Town Parade (1978) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96388.jpg" />
 </div>
 
 
@@ -712,7 +741,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95460.jpg" />
 </div>
 
 
@@ -747,7 +776,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95410.jpg" />
 </div>
 
 
@@ -782,7 +811,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94268.jpg" />
 </div>
 
 
@@ -802,40 +831,6 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9785E2520A8672318F8797BFA8EACC8C3C3565BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456868   (94263) от 24.02.2012
-
-My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher Palms (04:46)
-02. Jesus Christ (03:19)
-03. OdVIP (07:37)
-04. One Velvet Day (04:51)
-05. In Ghostlike Fading (04:10)
-06. Cracking Eggs (04:53)
-07. Cool Doves (06:24)
-08. I'm Not Going Anywhere (04:21)
-09. On The Shores of The Infinite (07:02)2012Жанр: Alternative, Rock, PunkПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AE53462F98882F5392520CC6FD65B6D6586D8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

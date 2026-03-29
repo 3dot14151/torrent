@@ -6,7 +6,7 @@ VA - Latin Lovers (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875068.jpg" />
+  <img src="Z:/picture/005/save_picture_875068.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874878.jpg" />
+  <img src="Z:/picture/005/save_picture_874878.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Best Of The 90s (2016) 2CD[MP3|320 кб/с] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873558.jpg" />
+  <img src="Z:/picture/008/save_picture_873558.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lana Del Rey - Love (2017) Single [MP3|320 Kbps] <Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873050.jpg" />
+  <img src="Z:/picture/008/save_picture_873050.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Gwen Stefani - This Is What the Truth Feels Like (2016) Japan Deluxe Edition [MP
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871883.jpg" />
+  <img src="Z:/picture/008/save_picture_871883.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ a-ha - Time And Again: The Ultimate a-ha 2 CD (2016) WEB [MP3|320 кб/с] <Pop-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871471.jpg" />
+  <img src="Z:/picture/008/save_picture_871471.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ High Inergy - Turnin' On (1977) Remastered, 2014, Big Break Records [MP3|320 к�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870377.jpg" />
+  <img src="Z:/picture/008/save_picture_870377.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - Number 1's: The Ultimate Collection (2014) 5CD [MP3|320 кб/с] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870205.jpg" />
+  <img src="Z:/picture/008/save_picture_870205.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ W. Bennett, B. Bennett - In The Groove (1985) LP [MP3|320 Kbps] <Electro, Pop, R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869930.jpg" />
+  <img src="Z:/picture/008/save_picture_869930.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Herb Alpert - Rise (1979) LP [MP3|320 Kbps] <Funk Soul, Jazz, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867197.jpg" />
+  <img src="Z:/picture/008/save_picture_867197.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Eini - Eini & Lady (1981) [MP3|320 Kbps] <Pop, Funk Soul, Disco, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866575.jpg" />
+  <img src="Z:/picture/008/save_picture_866575.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Mascha - Stardust (2017) [MP3|320 Kbps] <Pop, Folk, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866482.jpg" />
+  <img src="Z:/picture/008/save_picture_866482.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Michael B. Tretow (feat. ABBA) - Let's Boogie (1976) Reissue CD, 1998, Universal
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866457.jpg" />
+  <img src="Z:/picture/008/save_picture_866457.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Leigha Moore - Ain't Your Girl No More (2020) EP [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865621.jpg" />
+  <img src="Z:/picture/008/save_picture_865621.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tommaso Pini - #COSECHEDANNOANSIA (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864737.jpg" />
+  <img src="Z:/picture/008/save_picture_864737.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ibibio Sound Machine - Uyai (2017) [MP3|320 Kbps] <World, Funk, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864643.jpg" />
+  <img src="Z:/picture/008/save_picture_864643.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Jose Feliciano - La Historia (2006) [MP3|320 кб/с] <Vocal, Latin, Folk-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863042.jpg" />
+  <img src="Z:/picture/008/save_picture_863042.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Samuel - Il codice della bellezza (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862813.jpg" />
+  <img src="Z:/picture/008/save_picture_862813.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Best Pop (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862170.jpg" />
+  <img src="Z:/picture/008/save_picture_862170.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Promises - Real To Real (1979) LP [MP3|320 Kbps] <Disco, Europop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861360.jpg" />
+  <img src="Z:/picture/008/save_picture_861360.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ The Monotones - The Monotones (1980-82) LP, Released 2014 [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859081.jpg" />
+  <img src="Z:/picture/008/save_picture_859081.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859009.jpg" />
+  <img src="Z:/picture/008/save_picture_859009.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
+  <img src="Z:/picture/008/save_picture_856668.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ James Last / Джеймс Ласт - Non Stop Dancing / Танцуем Без П
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856045.jpg" />
+  <img src="Z:/picture/008/save_picture_856045.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855963.jpg" />
+  <img src="Z:/picture/008/save_picture_855963.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855842.jpg" />
+  <img src="Z:/picture/008/save_picture_855842.jpg" />
 </div>
 
 

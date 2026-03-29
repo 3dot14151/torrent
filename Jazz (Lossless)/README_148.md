@@ -1,3 +1,119 @@
+###  Публикация: 1045197   (561825) от 22.08.2016
+
+Diane Schuur - Love Songs (1993) [FLAC|Lossless|image + .cue] <Smooth Jazz, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love
+02. Speak Low (From The Musical Production "One Touch Of Venus")
+03. I Thought About You
+04. Prelude To A Kiss(   Читать дальше...   )Жанр: Smooth Jazz, Cool JazzПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1370A2B4E1BDB61AEC2974F7F3BED66E159F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556111   (561770) от 08.06.2022
+
+Charnett Moffett - New Love (2021) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swinging in the Realms [4:02]
+02. We Remember [4:53]
+03. Little Flowers [3:30]
+04. Today [3:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79327965BD4E05204FB41522952C179493EA3608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153049   (561761) от 25.07.2017
+
+Horace Parlan - Seven Classic Albums (1960, 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561761.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Movin' & Groovin' and Us Three:
+01. C Jam Blues [05:12]
+02. On Green Dolphin Street [05:30]
+03. Up In Cynthia's Room [05:26](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 04:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C38702F3166A1B410F59F7BE1B5834B4D29AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153052   (561755) от 25.07.2017
+
+Paolo Fresu & Omar Sosa - Alma (2011) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'Inguldu [05:33]
+02. Inverno Grigio [05:28]
+03. No Trance [03:36]
+04. Alma [05:49](   Читать дальше...   )Жанр: Post-Bop, World FusionПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524F25614448A3ABCDED869F058C9BCADC171568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556256   (561677) от 08.06.2022
 
 Lee Konitz - The Verve Albums Collection (1955 - 1961) 4CD, 2019, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
@@ -6,7 +122,7 @@ Lee Konitz - The Verve Albums Collection (1955 - 1961) 4CD, 2019, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561677.jpg" />
+  <img src="Z:/picture/008/save_picture_561677.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Pat Metheny - Secret Story (1992) [FLAC|Lossless|image + .cue] <Post Bop, Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561676.jpg" />
+  <img src="Z:/picture/008/save_picture_561676.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Susie Webb - Bossa Loves Abba (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561527.jpg" />
+  <img src="Z:/picture/008/save_picture_561527.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Earth, Wind & Fire - The Real... Earth, Wind & Fire (The Ultimate Collection) (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561315.jpg" />
+  <img src="Z:/picture/008/save_picture_561315.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ OU - Scrambled! (2015) [FLAC|tracks+.cue]<Contemporary Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561045.jpg" />
+  <img src="Z:/picture/008/save_picture_561045.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561044.jpg" />
+  <img src="Z:/picture/008/save_picture_561044.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561043.jpg" />
+  <img src="Z:/picture/008/save_picture_561043.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560958.jpg" />
+  <img src="Z:/picture/008/save_picture_560958.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Hadley Caliman - Hadley Caliman (1971) 2014, Boplicity Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560517.jpg" />
+  <img src="Z:/picture/008/save_picture_560517.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Keith Jarrett, Gary Peacock, Jack DeJohnette - After The Fall (1998) 2CD, 2018, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560456.jpg" />
+  <img src="Z:/picture/008/save_picture_560456.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Vladimir Tolkachev (Владимир Толкачев) Big Band & John Downes (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560207.jpg" />
+  <img src="Z:/picture/008/save_picture_560207.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Barney Wilen - French Ballads (1987) Ida [WavPack|Lossless|image + .cue] <Mainst
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560205.jpg" />
+  <img src="Z:/picture/008/save_picture_560205.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Artie Shaw - Irresistible Swing (1945, 1946) 1994, Drive Archive [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560204.jpg" />
+  <img src="Z:/picture/008/save_picture_560204.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Maurice El Medioni meets Roberto Rodriguez - Descarga Oriental: The New York Ses
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560202.jpg" />
+  <img src="Z:/picture/008/save_picture_560202.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Christian McBride Band - Sci-Fi (2000) Grammy [FLAC|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560075.jpg" />
+  <img src="Z:/picture/008/save_picture_560075.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Buck Clayton - How Hi The Fi & Jumpin' At The Woodside (1953 - 1955) 2CD, 2008, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559969.jpg" />
+  <img src="Z:/picture/008/save_picture_559969.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Ernie Wilkins - The Everest Years (1959, 1960) 2005, Universal[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559961.jpg" />
+  <img src="Z:/picture/008/save_picture_559961.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Johnny McLaughlin - Electric Guitarist (1978) Remaster, 1990, CBS [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559958.jpg" />
+  <img src="Z:/picture/008/save_picture_559958.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ V.A. - Jazz Sexiest Ladies (2017) 3CD [FLAC|Lossless|image + .cue] <Vocal Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559840.jpg" />
+  <img src="Z:/picture/008/save_picture_559840.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Mahavishnu Orchestra - Birds Of Fire (1973) Columbia, Late 1980s [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559829.jpg" />
+  <img src="Z:/picture/008/save_picture_559829.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Mahavishnu Orchestra With The London Symphony Orchestra, Michael Tilson Thomas -
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559682.jpg" />
+  <img src="Z:/picture/008/save_picture_559682.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Marion Brown - Vista (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Gard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559285.jpg" />
+  <img src="Z:/picture/008/save_picture_559285.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Marion Brown - Vista (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Gard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C25CE8A57CC0D3F2D0369FEE8B1EB1F13ED8168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924440   (559178) от 03.08.2015
-
-Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Clown [08:58]
-02. Yellow Fever [06:53]
-03. Soulful Bill [08:12]
-04. La Divetta [08:35](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48D989BB8BD61FB837F66FAF644CB24CB56A234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365184   (559125) от 19.07.2011
-
-Bohren & der Club of Gore - 8 Альбомов (1994-2011) [FLAC|Lossless|tracks + .cue] <Jazz Noir, Ambient, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_559125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецко-английское название группы Bohren und Der Club of Gore можно перевести как «Сверление и клуб фильмов ужаса». Коллектив возник в конце 80-х в городе Мюльхайм-ан-дер-Рур, играла группа тогда гитарный хардкор, doom, тяжёлый металл. Шеф предприятия гитарист и клавишник Мортен Гасс шутил, что они были не в состоянии играть быстрее всех, поэтому решили рвануть (   Читать дальше...   )Список альбомов:
-1994 - Gore Motel
-1995 - Midnight Radio
-2000 - Sunset Mission(   Читать дальше...   )Жанр: Jazz Noir, Ambient, ExperimentalПродолжительность: 08:47:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924435   (559060) от 03.08.2015
-
-Lianne La Havas - Blood (2015) [FLAC|Lossless]<Soul, Folk, Indie>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unstoppable
- 02. Green & Gold
- 03. What You Don't Do
- 04. Tokyo(   Читать дальше...   )Жанр: Soul, Folk, IndieПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED4A4AA51B1296CE7C87AB0A7FB875416CA9422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235565   (558755) от 12.07.2018
-
-Hadley Caliman - Iapetus (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watercress [3:50]
-02. Ambivalence [7:39]
-03. Dee's Glee [7:46]
-04. Iapetus [10:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B777E0FCB39214EEA0F553A440173BBB2D0BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

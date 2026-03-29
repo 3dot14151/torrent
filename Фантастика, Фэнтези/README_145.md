@@ -1,3 +1,57 @@
+###  Публикация: 1317374   (501117) от 31.07.2019
+
+Генри Лайон Олди | Нюансеры (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Алексеев, известный промышленник и актёр-любитель, приезжает в губернский город Х. Здесь умерла старая гадалка Заикина, которая ни с то ни с сего завещала Алексееву свою квартиру. В день приезда также происходит загадочное ограбление банка: убит кассир, убийца скрылся. На квартире Алексеева уже ждут, и с этой минуты ни одна мелочь, ни один нюанс не окажется (   Читать дальше...   )Жанр: Детективная фантастика, Историческая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4006A72764D39B036C44E146BEC3C5BD80EB470F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935029   (500450) от 07.09.2015
+
+Элли Конди | Атлантия (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удел обитающих Внизу – долгая жизнь, здоровье, сила и счастье. Но для того, чтобы существовал прекрасный подводный город Атлантия, кто-то должен трудиться Наверху – в мире, где отравлен воздух, где царят болезни, немощь и нужда.
+
+Сколько себя помнит Рио, она мечтала жить Наверху, верила, что однажды поднимется туда, и не считала свой выбор жертвоприношением. Но вместо (   Читать дальше...   )Жанр: Зарубежное фэнтези, Любовное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310931914945A5E8CA5CE7BD4CEC9A7FEE5CA4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935127   (500399) от 07.09.2015
 
 Дэвид Хофмейр | Дорога ярости (2015) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500399.jpg" />
+  <img src="Z:/picture/008/save_picture_500399.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500344.jpg" />
+  <img src="Z:/picture/008/save_picture_500344.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500324.jpg" />
+  <img src="Z:/picture/008/save_picture_500324.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500315.jpg" />
+  <img src="Z:/picture/008/save_picture_500315.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500304.jpg" />
+  <img src="Z:/picture/008/save_picture_500304.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500216.jpg" />
+  <img src="Z:/picture/008/save_picture_500216.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500073.jpg" />
+  <img src="Z:/picture/008/save_picture_500073.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499951.jpg" />
+  <img src="Z:/picture/008/save_picture_499951.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499448.jpg" />
+  <img src="Z:/picture/008/save_picture_499448.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499436.jpg" />
+  <img src="Z:/picture/008/save_picture_499436.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499248.jpg" />
+  <img src="Z:/picture/008/save_picture_499248.jpg" />
 </div>
 
 
@@ -307,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498265.jpg" />
+  <img src="Z:/picture/008/save_picture_498265.jpg" />
 </div>
 
 
@@ -335,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497439.jpg" />
+  <img src="Z:/picture/008/save_picture_497439.jpg" />
 </div>
 
 
@@ -363,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497279.jpg" />
+  <img src="Z:/picture/008/save_picture_497279.jpg" />
 </div>
 
 
@@ -391,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497202.jpg" />
+  <img src="Z:/picture/008/save_picture_497202.jpg" />
 </div>
 
 
@@ -417,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497156.jpg" />
+  <img src="Z:/picture/008/save_picture_497156.jpg" />
 </div>
 
 
@@ -445,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497149.jpg" />
+  <img src="Z:/picture/008/save_picture_497149.jpg" />
 </div>
 
 
@@ -473,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497063.jpg" />
+  <img src="Z:/picture/008/save_picture_497063.jpg" />
 </div>
 
 
@@ -501,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497010.jpg" />
+  <img src="Z:/picture/008/save_picture_497010.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497009.jpg" />
+  <img src="Z:/picture/008/save_picture_497009.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496514.jpg" />
+  <img src="Z:/picture/008/save_picture_496514.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496513.jpg" />
+  <img src="Z:/picture/008/save_picture_496513.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496511.jpg" />
+  <img src="Z:/picture/008/save_picture_496511.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496510.jpg" />
+  <img src="Z:/picture/008/save_picture_496510.jpg" />
 </div>
 
 
@@ -644,62 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B3CF441EF892AAC8898FA803E9664B4DA7AFA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318356   (496319) от 05.08.2019
-
-Джек Макдевит | Цикл книг "Алекс Бенедикт" [7 книг] (1995 - 2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный талант:
-Эта книга – первая публикация на русском языке современного американского писателя Джека Макдевита. Вниманию читателей предлагается его роман «Военный талант».
-История войны, которую вели земные колонии с «чужими», и величайшего полководца этой войны. История бесплодных побед, сокрушительных поражений, предательства и героизма. История, написанная (   Читать дальше...   )Жанр: Космическая фантастика, Социально-психологическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289E36231CDD949AE7AE6CB24229C1A2F231689E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935527   (496284) от 11.09.2015
-
-Яна Поль | Проклятый (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Зверь в отражении».
-
-Его зовут Гаррет Маккивер, и он ликан. Проклятый, последний из бессмертных. Вот уже семь с лишним веков он верой и правдой служит королевскому роду заклинателей, защищая их ценой собственной жизни. И однажды наступает тот переломный момент, когда он должен будет для себя решить, что важнее: честь и долг, любовь или избавление (   Читать дальше...   )Жанр: Героическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544CF2AEE65CA0F2A75911D75C361F1D05D73715
 ```
 
 https://mybot314.ru/tekegram_catalog/

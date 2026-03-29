@@ -6,7 +6,7 @@ Display Driver Uninstaller 18.0.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769060.jpg" />
+  <img src="Z:/picture/008/save_picture_769060.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sumatra PDF 3.3.12844 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769058.jpg" />
+  <img src="Z:/picture/008/save_picture_769058.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769054.jpg" />
+  <img src="Z:/picture/008/save_picture_769054.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Blender 2.83.1 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_769052.jpg" />
+  <img src="Z:/picture/005/save_picture_769052.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ K-Lite Codec Pack 15.5.6 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769047.jpg" />
+  <img src="Z:/picture/008/save_picture_769047.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Malwarebytes Windows Firewall Control 6.3.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769033.jpg" />
+  <img src="Z:/picture/008/save_picture_769033.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Malwarebytes Windows Firewall Control 6.3.0.0 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769032.jpg" />
+  <img src="Z:/picture/008/save_picture_769032.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Mac DVDRipper Pro 9.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768998.jpg" />
+  <img src="Z:/picture/008/save_picture_768998.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ MovieSherlock 6.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768996.jpg" />
+  <img src="Z:/picture/008/save_picture_768996.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ PDF Search 9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768993.jpg" />
+  <img src="Z:/picture/008/save_picture_768993.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ WebVideoHunter Pro 6.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768985.jpg" />
+  <img src="Z:/picture/008/save_picture_768985.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768977.jpg" />
+  <img src="Z:/picture/008/save_picture_768977.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Hydra 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768976.jpg" />
+  <img src="Z:/picture/008/save_picture_768976.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768966.jpg" />
+  <img src="Z:/picture/008/save_picture_768966.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768961.jpg" />
+  <img src="Z:/picture/008/save_picture_768961.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768956.jpg" />
+  <img src="Z:/picture/008/save_picture_768956.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ n-Track Studio Suite 9.1.1 (build 3650) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768952.jpg" />
+  <img src="Z:/picture/008/save_picture_768952.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Rhinoceros 6 v6.27.20176 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768938.jpg" />
+  <img src="Z:/picture/008/save_picture_768938.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Internet Download Manager 6.37 Build 16 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768937.jpg" />
+  <img src="Z:/picture/008/save_picture_768937.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ JRiver Media Center 26.0.98 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768936.jpg" />
+  <img src="Z:/picture/008/save_picture_768936.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Opera GX 68.0.3618.191 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768924.jpg" />
+  <img src="Z:/picture/008/save_picture_768924.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ IObit Driver Booster Pro 7.5.0.753 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768919.jpg" />
+  <img src="Z:/picture/008/save_picture_768919.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Internet Download Manager 6.38 Build 1 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768907.jpg" />
+  <img src="Z:/picture/008/save_picture_768907.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dorohedoro | Дорохедоро [2020, OVA, 1 эп.] BDRip 1080p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768902.jpg" />
+  <img src="Z:/picture/008/save_picture_768902.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CrystalDiskInfo 8.6.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768901.jpg" />
+  <img src="Z:/picture/008/save_picture_768901.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ MKVToolNix 48.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768900.jpg" />
+  <img src="Z:/picture/008/save_picture_768900.jpg" />
 </div>
 
 

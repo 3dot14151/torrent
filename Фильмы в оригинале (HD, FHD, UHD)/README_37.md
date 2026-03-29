@@ -1,3 +1,107 @@
+###  Публикация: 1160589   (471261) от 26.08.2017
+
+Тетрадь смерти / Death Note (2017) WEBRip [H.264/1080p-LQ] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Способный студент Лайт находит загадочную тетрадь смерти, которая может убить любого, чье имя в нее вписать. Парень решает начать миссию по очистке улиц от преступников. Вскоре студент-линчеватель обнаруживает, что его преследует известный профайлер ФБР, скрывающийся под псевдонимом L.Производство: США, Lin Pictures, Vertigo EntertainmentЖанр: Ужасы, Фэнтези, Боевик, ТриллерРежиссер: Адам ВингардАктеры: Маргарет Куэлли, Лейкит Стэнфилд, Уиллем Дефо, Нат Вулф, Шей Уигэм, Маси Ока, Майкл Шамус Уайлз, Пол МакДжиллион, Олена Медвид, Лия Лам ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84806492FA84356B646EF084A0A99A3F787BBAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160576   (471258) от 26.08.2017
+
+Вспомнить заново / Rememory (2017) WEBRip [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о гениальном ученом, загадочным образом умирающем ровно за день до представления своего уникального открытия — прибора, который может записывать и воспроизводить воспоминания.Производство: США, Канада / First Point Entertainment, Scythia Films, Strophic Productions LimitedЖанр: Драма, Детектив, ФантастикаРежиссер: Марк ПаланскиАктеры: Питер Динклэйдж, Антон Ельчин, Джулия Ормонд, Генри Йен Кьюсик, Эвелин Брошу, Мартин Донован, Джордана Ларги, Кэрри Энн Флеминг, Грэйсин Шиней, Колин Лоуренс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20CB485A33D7D056FBFA59444296A5FA41DF921B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058031   (470620) от 30.09.2016
+
+Моя пекарня в Бруклине / My Bakery in Brooklyn  (2016) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая комедия о двоюродных сестрах Вивьен и Хлое, получивших в наследство тетушкину пекарню. Дружные с детства героини становятся конкурентками: Хлоя на своей половине устраивает современное заведение для хипстеров, в то время как Вивьен остается верна старым порядкам. Но девушкам придется забыть о разногласиях, когда над семейным наследием нависнет угроза.Производство: Испания, СШАЖанр: мелодрама, комедияРежиссер: Густаво РонАктеры: Эйми Тигарден, Криста Родригез, Гриффин Ньюман, Эрни Сабелла, Бланка Суарес, Уорд Хортон, Летти Серра, Айтор Луна, Энрике Арсе, Энтони Чисхолм, Линда Лавин, Энтони АлессандроПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF5184E003848BFDDB27EBCFB2CF14129F243DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058111   (470384) от 30.09.2016
+
+Афера под прикрытием / The Infiltrator  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_470384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федеральный агент Боб Мейзур, специалист по внедрению в преступные группировки, ставит себе целью раскрыть схему отмывания денег наркокартеля Пабло Эскобара. В одной команде со вспыльчивым оперативником Эмиром Абреу, а также начинающим агентом Кэти Эртс, исполняющей роль подставной невесты Боба, ему предстоит провернуть самую рискованную операцию под прикрытием в (   Читать дальше...   )Производство: ВеликобританияЖанр: триллер, драма, криминал, биографияРежиссер: Брэд ФурманАктеры: Брайан Крэнстон, Лиэнн Бест, Дэниэл Мейс, Том Вон-Лолор, Ниал Хэйес, Лара Дэкаро, Джульетт Обри, Олимпия Дукакис, Эми Райан, Джон Легуизамо, Джозеф Гилган, Джейсон АйзексПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4BD94F9345C7D18671F2E1556FA9BE6D0E4C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161289   (467038) от 28.08.2017
 
 2pac: Легенда / All Eyez on Me (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467038.jpg" />
+  <img src="Z:/picture/008/save_picture_467038.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465925.jpg" />
+  <img src="Z:/picture/008/save_picture_465925.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463095.jpg" />
+  <img src="Z:/picture/008/save_picture_463095.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463048.jpg" />
+  <img src="Z:/picture/008/save_picture_463048.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462059.jpg" />
+  <img src="Z:/picture/008/save_picture_462059.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461198.jpg" />
+  <img src="Z:/picture/008/save_picture_461198.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461043.jpg" />
+  <img src="Z:/picture/008/save_picture_461043.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460920.jpg" />
+  <img src="Z:/picture/008/save_picture_460920.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460892.jpg" />
+  <img src="Z:/picture/008/save_picture_460892.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456759.jpg" />
+  <img src="Z:/picture/008/save_picture_456759.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456523.jpg" />
+  <img src="Z:/picture/008/save_picture_456523.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456381.jpg" />
+  <img src="Z:/picture/008/save_picture_456381.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454716.jpg" />
+  <img src="Z:/picture/008/save_picture_454716.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454533.jpg" />
+  <img src="Z:/picture/008/save_picture_454533.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453563.jpg" />
+  <img src="Z:/picture/008/save_picture_453563.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453252.jpg" />
+  <img src="Z:/picture/008/save_picture_453252.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453239.jpg" />
+  <img src="Z:/picture/008/save_picture_453239.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452315.jpg" />
+  <img src="Z:/picture/008/save_picture_452315.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452281.jpg" />
+  <img src="Z:/picture/008/save_picture_452281.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450323.jpg" />
+  <img src="Z:/picture/008/save_picture_450323.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450320.jpg" />
+  <img src="Z:/picture/008/save_picture_450320.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450240.jpg" />
+  <img src="Z:/picture/008/save_picture_450240.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F971D8DDC0BFCA869675B5D94557729D520FF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163430   (449913) от 05.09.2017
-
-Любовь – болезнь / The Big Sick (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449913.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере развития отношений влюбленной паре приходится столкнуться со своими культурными различиями.Производство: США, Apatow Productions, FilmNation Entertainment, Story InkЖанр: Комедия, МелодрамаРежиссер: Майкл ШоуолтерАктеры: Холли Хантер, Зои Казан, Кумэйл Нанджиани, Мэттью Кардаропле, Велла Ловелл, Рэй Романо, Адиль Ахтар, Бо Бёрнэм, Дэвид Алан Грир, Анупам Кхер ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced, Full)Продолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC55D7FAFAF39DD49517B002C37C9B61A7A1FA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247888   (448056) от 17.09.2018
-
-Мег: Монстр глубины / The Meg (2018) WEBRip [H.264/1080p-LQ] [EN / KOR Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоководный батискаф, осуществляющий наблюдение в рамках международной программы по изучению подводной жизни, был атакован огромным существом, которое все считали давно вымершим. Неисправный аппарат теперь лежит на дне глубочайшей впадины Тихого океана… с оказавшимся в ловушке экипажем. Их время на исходе. Китайский океанограф-новатор, несмотря на протесты его (   Читать дальше...   )Производство: США, Китай / Apelles Entertainment,Di Bonaventura Pictures,Flagship Entertainment GroupЖанр: Боевик, Ужасы, Фантастика, ТриллерРежиссер: Джон ТёртлтаубАктеры: Джейсон Стэйтем, Ли Бинбин, Рэйн Уилсон, Клифф Кёртис, Уинстон Чао, Шуя Софиа Цай, Руби Роуз, Пейдж Кеннеди, Роберт Тейлор, Оулавюр Дарри ОулафссонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Корейские (вшитые, не отключаемые)Продолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E741072145055989012F3C0A1CC5174DD6B7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943478   (447012) от 04.10.2015
-
-Шальное ранение / Blunt Force Trauma  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В подвалах и сараях Южной Америки проводятся поединки стрелков. Молодой «дуэлянт» Джон мечтает о встрече с недостижимым чемпионом, в то время как его возлюбленная берет оружие, чтобы отомстить за убитого брата.Производство: Колумбия, ETA filmsЖанр: боевикРежиссер: Кен СэнзелАктеры: Райан Квантен, Фрида Пинто, Микки Рурк, Джон Мак, Джейсон Гибсон, Каролина Гомес, Рубен Самора, Стивен ГаларсеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3825C502B5723E3035E564361EB510DD797D397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322510   (446042) от 30.08.2019
-
-Боль и слава / Dolor y gloria (2019) BDRip [H.264/1080p] [SPA / RU, EN, SPA Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый кинорежиссер на закате своего творческого пути оглядывается в прошлое, и на него обрушивается поток ярких воспоминаний. Нежные чувства к матери, любовь и расставание, поиски счастья и успеха. Всё это приводит творца к важным размышлениям о жизни и искусстве — боли и славе.Производство: Испания / Canal+, Ciné +, El DeseoЖанр: ДрамаРежиссер: Педро АльмодоварАктеры: Антонио Бандерас, Пенелопа Крус, Асьер Эчеандиа, Леонардо Сбаралья, Нора Навас, Хульета Серрано, Сесар Висенте, Асьер Флорес, Сесилия Рот, Суси СанчесПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: Русские (FOCS), английские, испанскиеПродолжительность: 01:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D1134803D54F46208C75B4B34ED30EF1D2A862
 ```
 
 https://mybot314.ru/tekegram_catalog/

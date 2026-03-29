@@ -1,3 +1,56 @@
+###  Публикация: 1140916   (653741) от 08.06.2017
+
+Е.М. Офман, Э.Л. Лещина (ред.) | Трудовое право. Том I. Часть общая (2017) [RTF, FB2]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник написан в соответствии с требованиями Федерального государственного образовательного стандарта высшего профессионального образования по направлению Юриспруденция для студентов очной и заочной формы обучения.
+ Учебник предназначен для студентов, аспирантов, научных сотрудников юридических учебных заведений высшего образования, а также для всех, кто интересуется (   Читать дальше...   )Жанр: Законодательство, правоФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6395CD7F425D192381142E8190F851F477E641F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140955   (653675) от 08.06.2017
+
+К.Э. Плохотников, В.Н. Николенко | Теория вероятностей в пакете MATLAB (+ Приложения) (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены классические основы теории вероятностей на базе пакета прикладных программ MATLAB. Курс состоит из двух тесно связанных частей и включает 16 лекций (Часть I) и 16 семинарских занятий (Часть II). Во второй части представлены две контрольные работы с ответами, по 90 задач в каждой.Жанр: Математика, прогаммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9954D199735327B773A5E6B056E5636A40FE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140758   (653667) от 08.06.2017
 
 Н.В. Чебышев (ред.) | Биология: Учебник для студентов высших учебных заведений (2016) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653667.jpg" />
+  <img src="Z:/picture/008/save_picture_653667.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652486.jpg" />
+  <img src="Z:/picture/008/save_picture_652486.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652451.jpg" />
+  <img src="Z:/picture/008/save_picture_652451.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652449.jpg" />
+  <img src="Z:/picture/008/save_picture_652449.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652446.jpg" />
+  <img src="Z:/picture/008/save_picture_652446.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652321.jpg" />
+  <img src="Z:/picture/008/save_picture_652321.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651714.jpg" />
+  <img src="Z:/picture/008/save_picture_651714.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650347.jpg" />
+  <img src="Z:/picture/008/save_picture_650347.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650311.jpg" />
+  <img src="Z:/picture/008/save_picture_650311.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650199.jpg" />
+  <img src="Z:/picture/008/save_picture_650199.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650198.jpg" />
+  <img src="Z:/picture/008/save_picture_650198.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650192.jpg" />
+  <img src="Z:/picture/008/save_picture_650192.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650099.jpg" />
+  <img src="Z:/picture/008/save_picture_650099.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648609.jpg" />
+  <img src="Z:/picture/008/save_picture_648609.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648605.jpg" />
+  <img src="Z:/picture/008/save_picture_648605.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648604.jpg" />
+  <img src="Z:/picture/008/save_picture_648604.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647789.jpg" />
+  <img src="Z:/picture/008/save_picture_647789.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647627.jpg" />
+  <img src="Z:/picture/008/save_picture_647627.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646806.jpg" />
+  <img src="Z:/picture/008/save_picture_646806.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646632.jpg" />
+  <img src="Z:/picture/008/save_picture_646632.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646616.jpg" />
+  <img src="Z:/picture/008/save_picture_646616.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646612.jpg" />
+  <img src="Z:/picture/008/save_picture_646612.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646606.jpg" />
+  <img src="Z:/picture/008/save_picture_646606.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646596.jpg" />
+  <img src="Z:/picture/008/save_picture_646596.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3F2847D0EC6500D0FCD6B2CBAB4BB71552AF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541367   (646528) от 02.04.2022
-
-А.В. Лупачев, В.Г. Лупачев | Источники питания и оборудование сварки плавлением (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии даны сведения о свойствах сварочной дуги и приведены технологические требования, предъявляемые к источникам питания. Рассмотрены конструктивные особенности и принципы действия источников питания для ручной дуговой сварки, механизированной и автоматической сварки и наплавки в защитных газах и под флюсом, электрошлаковой и плазменной сварки. Описаны (   Читать дальше...   )Жанр: СваркаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB131207545D819DFE79D558AAC4C100C5B34ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141907   (646518) от 12.06.2017
-
-А.Ю. Гребешков | Вычислительная техника, сети и телекоммуникации (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизированы сведения в области организации и построения современной вычислительной техники, сетей и телекоммуникаций. Рассмотрены физические основы средств вычислительной техники и передачи информации, принципы работы устройств инфокоммуникационных технологий, сетевые протоколы SIP, Н.323, TCP/IP, архитектура сетей связи следующего поколения, архитектура современных (   Читать дальше...   )Жанр: Информационные системыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2240019FABF6AE74EE7DF4FCE84846BCCD49DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

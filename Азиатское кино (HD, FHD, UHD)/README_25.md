@@ -1,3 +1,108 @@
+###  Публикация: 1394842   (760252) от 07.07.2020
+
+Бугимен. Царство мёртвых / Keullojet / The Closet (2020) WEB-DL [H.264/1080p-LQ] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через полгода после смерти жены в автокатастрофе архитектор Сан-вон решет сменить обстановку и вместе с 11-летней дочкой И-ной переезжает в новый дом. Сам мужчина с тех пор страдает паническими атаками, а девочка замкнулась в себе. На новом месте дочь заметно оживает, и вскоре поглощенный неотложной работой отец решает отправить её в художественный лагерь. Из-за (   Читать дальше...   )Производство: Южная Корея, Moonlight Film, Perfect Storm FilmЖанр: Ужасы, мистикаРежиссер: Ким Гван-бинАктеры: Ха Джон-у, Ким Нам-гиль, Хо Юль, Ким Щи-а, Пак Сон-ун, Пак Чи-а, Щин Хён-бин, Ким Су-джин, Ким Ми-хва, Кан Щин-чхольПеревод: Двуголосый любительский (SOFTBOX)Субтитры: Английские, болгарские, польские, чешскиеПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E14142BF68E328B7C88C3F40E0CFB1C87604A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522253   (760074) от 06.01.2022
+
+Самокрутка / Sau gyun jin / Hand Rolled Cigarette (2020) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отставной солдат и молодой маргинал вынуждены бороться со своим тяжёлым положением, тогда как общество отворачивается от них.Производство: Гонконг, Hand-Roll Cigarette FilmЖанр: Драма, криминалРежиссер: Келвин ЧанАктеры: Гордон Лам, Бипин Карма, Майкл Нин, Бен Юэнь, Сингх Хартихан Битто, Чинь Сиу-Хо, Аарон Чоу, Чу Пак Хим, Тони Хо, Тай БоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B948BD93496FCB9BF5CD412EDDAD9884DADD1713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280496   (760046) от 03.02.2019
+
+Кунхам: Пограничный остров / Gunhamdo (2017) BDRip [H.265/1080p-LQ] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_760046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Японцы называли этот остров Хасима. Шесть гектаров земли и бетона в 15 километрах от побережья Нагасаки. Здесь с конца XIX века профессиональные шахтеры добывали уголь из подводных забоев. Когда наступила война, и все ушли на фронт, на смену шахтерам привезли военнопленных китайцев и корейских переселенцев.
+Корейцы называли этот остров Кунхам. Или Остров-Броненосец. (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, Filmmaker R&K, Weyunaegang ProductionsЖанр: Военный, Драма, БоевикРежиссер: Рю Сын-ванАктеры: Хван Джон-мин, Со Джи-соп, Сон Джун-ги, Ли Джон-хён, Ким Су-ан, Ли Гён-ён, Ким Мин-джэ, Ким Ин-у, Юн Гён-хо, Щин Сын-хванПеревод: Многоголосый закадровый, Двуголосый закадровыйСубтитры: русские (песни, полные), английскиеПродолжительность: 02:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFDF04A02651E470C29554BEE8F9B43D2F77F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280612   (759755) от 03.02.2019
+
+Монструм / Mulgoe (2018) BDRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1527 год. В Чосонском королевстве неспокойно. Мало того, что по стране расползается жуткая зараза, от которой люди умирают в страшных муках, так ещё и на горе Инван откуда ни возьмись появляется волосатое чудище размеров немалых и нрава злобного. Даже ходят слухи, что нет никакого чудовища, а всё это плод коллективных галлюцинаций. Расследовать загадочные события (   Читать дальше...   )Производство: Корея Южная, CJ E&M Film Financing & Investment Entertainment & Comics, ...Жанр: Боевик, Ужасы, Фантастика, ДетективРежиссер: Хо Джон-хоАктеры: Ким Мён-мин, Ким Ин-гвон, Хери, Чхве У-щик, Пак Сон-ун, Ли Гён-ён, Пак Хи-сун, Ли До-гён, Ли Гю-бок, Хан Со-ён ...Перевод: Двуголосый закадровый, любительский (Batafurai team_&_SOUND-GROUP)Озвучка: Ворон и WenlanaСубтитры: Русские, английскиеПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94B944BAB6A869605B51A08278D490C823E7027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215220   (759526) от 25.03.2018
 
 Молодые копы / Midnight Runners / Cheong-nyeon-gyeong-chal (2017) BDRip [H.265/1080p] [10-bit]
@@ -6,7 +111,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759526.jpg" />
+  <img src="Z:/picture/008/save_picture_759526.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758742.jpg" />
+  <img src="Z:/picture/008/save_picture_758742.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757799.jpg" />
+  <img src="Z:/picture/008/save_picture_757799.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757720.jpg" />
+  <img src="Z:/picture/005/save_picture_757720.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757101.jpg" />
+  <img src="Z:/picture/008/save_picture_757101.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756772.jpg" />
+  <img src="Z:/picture/008/save_picture_756772.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756473.jpg" />
+  <img src="Z:/picture/008/save_picture_756473.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755644.jpg" />
+  <img src="Z:/picture/005/save_picture_755644.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755175.jpg" />
+  <img src="Z:/picture/008/save_picture_755175.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755049.jpg" />
+  <img src="Z:/picture/008/save_picture_755049.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754661.jpg" />
+  <img src="Z:/picture/008/save_picture_754661.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753419.jpg" />
+  <img src="Z:/picture/008/save_picture_753419.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752699.jpg" />
+  <img src="Z:/picture/005/save_picture_752699.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752056.jpg" />
+  <img src="Z:/picture/005/save_picture_752056.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752029.jpg" />
+  <img src="Z:/picture/008/save_picture_752029.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751706.jpg" />
+  <img src="Z:/picture/008/save_picture_751706.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751438.jpg" />
+  <img src="Z:/picture/008/save_picture_751438.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751436.jpg" />
+  <img src="Z:/picture/008/save_picture_751436.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750734.jpg" />
+  <img src="Z:/picture/008/save_picture_750734.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750622.jpg" />
+  <img src="Z:/picture/008/save_picture_750622.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750621.jpg" />
+  <img src="Z:/picture/008/save_picture_750621.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749895.jpg" />
+  <img src="Z:/picture/005/save_picture_749895.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F05FF8A513C57B5D19F2E6E2AF82E4F3416526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523557   (749566) от 12.01.2022
-
-Первый клон / Seobok (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший агент разведки Ки Хон неохотно возвращается в строй, чтобы сопроводить в безопасное место первого в мире клонированного человека. Но по пути на их конвой совершается нападение, и теперь Ки-хону предстоит закончить миссию в одиночку, а его подопечный будет с интересом изучать окружающий мир.Производство: Корея Южная / CJ Entertainment, STUDIO101, TPS CompanyЖанр: Фантастика, драма, боевикРежиссер: Ли Ён-джуАктеры: Кон Ю, Пак По-гом, Чо У-джин, Чан Ён-нам, Пак Пён-ын, Ён Джэ-ук, Ким Джэ-гон, Ли Он-джон, Андреа Пачиотто, На Гван-хунПеревод: Дублированный (iTunes)Язык озвучки: русский, корейскийСубтитры: русские, английские, японские (PGS)Продолжительность: 01:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9072B0B4C967F8D5CA270554064476D6AB0B45EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216514   (749097) от 31.03.2018
-
-Слепая / Blind / Beul-la-in-deu (2011) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попав с братом в аварию, Мин Су А теряет и брата, и собственное зрение, а потому вынуждена оставить мечту стать полицейским. С тех пор прошло уже три года, а она до сих пор вспоминает ту ночь и так и не может смириться со своей слепотой. Однажды вечером, сев в такси, Су А оказывается в обществе очень странного шофёра: он пытается заставить её выпить кофе и, отвлёкшись, (   Читать дальше...   )Производство: Корея Южная / MoonWatcher Co., Next Entertainment WorldЖанр: Триллер, ДрамаРежиссер: Ан Сан-ХунАктеры: Ким Ха Ныль, Ю Сын Хо, Чо Хи Бон, Ян Ён-чжо, Ким Ми Кён, Чхун-сон Пак, Пак Бо Геом, Даль-и, Вон Пун-Ён, Ын-сок ЧхвеПеревод: Многоголосый закадровый, Одноголосый закадровый x3Субтитры: русские x3Продолжительность: 01:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D587DBA0F07E9CA1F244ADC9F10E47AD4666BDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216372   (748977) от 31.03.2018
-
-С богами: Два мира / Singwa hamkke: joewa beol / Along With the Gods: The Two Worlds (2017) BDRip [H.264/1080p] [DVO]
-
->>След.
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасая ребёнка из горящего здания, пожарный Ким Джа-хон погибает героической смертью. И тут же три ангела смерти сопровождают его в мир мёртвых, где смертному предстоит пройти 7 судов и держать ответ перед 7-ю Богами. Ангелы будут его защитниками, и если Джа-хона признают безгрешным, он получит возможность реинкарнироваться и начать новую жизнь.Производство: Корея Южная, Dexter StudiosЖанр: Драма, Фэнтези, ПриключенияРежиссер: Ён Хва КимАктеры: Чон У Ха, Тхэ Хён Чха, Джи Хун Чжу, Хян Ги Ким, Дон Ук Ким, Кён Су До, Чжун Хёк Ли (I), Су Чжон Е, Ю Бин Сон, Чжон Чжэ Ли, Даль Су О, Вон Хи ИмПеревод: Двуголосый закадровый, любительскийСубтитры: Русский (форс., полные)Продолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA431D884CA94D8ABAFA90BF4A71D0D504AA1323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523747   (748089) от 13.01.2022
-
-Операция «Бангкок» (Возвращение героев) / Cim duk sin fung / Heroes Return / Operation Bangkok (2021) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748089.jpg" />
-</div>
-
-
-###  Подробнее
-
-На секретной базе проводят эксперименты над людьми для создания препарата, позволяющего продлить жизнь. Ветеран боевых действий У Вэй (Рэй Луй) и несколько его товарищей проникают на базу, где спасают полицейского Гао Тяньмина (Юэнь Бяо), который два года собирал доказательства против главаря бандитов Ду Си. Силы не равны и наши герои отступают, но в скором времени (   Читать дальше...   )Производство: Гонконг, My Way Film CompanyЖанр: БоевикРежиссер: Кен ИпАктеры: Кэти Чоу, Ракель Сюй, Рэй Лю, Чу Сюй, Бяо Юэнь, Паваритх Монколписит, Лю Вэйсэнь, Хуан ГуаньПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английскиеПродолжительность: 01:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0CE0CBE374C476EEE3A4B2D2EFDF5C7DA30E73
 ```
 
 https://mybot314.ru/tekegram_catalog/

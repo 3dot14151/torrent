@@ -6,7 +6,7 @@ Linux Mint 17.2 Rafaela XFCE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536663.jpg" />
+  <img src="Z:/picture/008/save_picture_536663.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mageia 7  [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536306.jpg" />
+  <img src="Z:/picture/008/save_picture_536306.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Linux Mint 18 Sarah XFCE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534045.jpg" />
+  <img src="Z:/picture/008/save_picture_534045.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kubuntu 16.04.3 LTS Xenial Xerus [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531224.jpg" />
+  <img src="Z:/picture/008/save_picture_531224.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Bio-Linux 8.0.7 [x86-64] 1xDVD, 1xIMG
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530916.jpg" />
+  <img src="Z:/picture/008/save_picture_530916.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Xubuntu 16.04.3 LTS Xenial Xerus (Легкий дистрибутив) [i386, am
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528368.jpg" />
+  <img src="Z:/picture/008/save_picture_528368.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Debian GNU/Linux 10.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528056.jpg" />
+  <img src="Z:/picture/008/save_picture_528056.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Runtu XFCE 16.04.3 x64 - 20170806  [amd64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527524.jpg" />
+  <img src="Z:/picture/008/save_picture_527524.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ KaOS Linux 2016.09 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526470.jpg" />
+  <img src="Z:/picture/008/save_picture_526470.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ KDE neon 5.7.5 (15092016) [x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525907.jpg" />
+  <img src="Z:/picture/008/save_picture_525907.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Runtu XFCE 14.04.2 [i386, amd64] 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524765.jpg" />
+  <img src="Z:/picture/008/save_picture_524765.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Debian Edu - Skolelinux 10.0 Buster I [i386, x86-64] DVD, CD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522810.jpg" />
+  <img src="Z:/picture/008/save_picture_522810.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KaOS Linux 2015.08 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522398.jpg" />
+  <img src="Z:/picture/008/save_picture_522398.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mageia 7.1 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515886.jpg" />
+  <img src="Z:/picture/008/save_picture_515886.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Mageia 7.1 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515870.jpg" />
+  <img src="Z:/picture/008/save_picture_515870.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506080.jpg" />
+  <img src="Z:/picture/008/save_picture_506080.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505829.jpg" />
+  <img src="Z:/picture/008/save_picture_505829.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Elementary OS 0.3.1 Freya [i386,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502959.jpg" />
+  <img src="Z:/picture/008/save_picture_502959.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Debian Linux 8.2 Jessie [i386] 3xDVD + 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499149.jpg" />
+  <img src="Z:/picture/008/save_picture_499149.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Debian Linux 8.2 Jessie [amd64] 3xDVD + 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499015.jpg" />
+  <img src="Z:/picture/008/save_picture_499015.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Slackel Openbox 6.0.7 Live (Легкий дистрибутив) [x86, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496250.jpg" />
+  <img src="Z:/picture/008/save_picture_496250.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Debian GNU/Linux 8.6.0 Jessie [i386] 3xDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492169.jpg" />
+  <img src="Z:/picture/008/save_picture_492169.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Arch Linux 2015.09.01 [i686, x86-64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491334.jpg" />
+  <img src="Z:/picture/008/save_picture_491334.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BackBox Linux v6 [Аудит безопасности, хакинг] [i386, amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490505.jpg" />
+  <img src="Z:/picture/008/save_picture_490505.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Sabayon 15.09 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477681.jpg" />
+  <img src="Z:/picture/008/save_picture_477681.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Manjaro Linux 2015.9 MATE [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477558.jpg" />
+  <img src="Z:/picture/008/save_picture_477558.jpg" />
 </div>
 
 

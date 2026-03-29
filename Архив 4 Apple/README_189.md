@@ -6,7 +6,7 @@ Ultimate Retouch 2.0 panel for Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795851.jpg" />
+  <img src="Z:/picture/008/save_picture_795851.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Movavi Screen Recorder 11.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795828.jpg" />
+  <img src="Z:/picture/008/save_picture_795828.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Feeder 4 v4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795722.jpg" />
+  <img src="Z:/picture/008/save_picture_795722.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ GoodNotes 5 v5.7.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795721.jpg" />
+  <img src="Z:/picture/008/save_picture_795721.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nova 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795678.jpg" />
+  <img src="Z:/picture/008/save_picture_795678.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Screenium 3 v3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795674.jpg" />
+  <img src="Z:/picture/008/save_picture_795674.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Things 3 v3.15.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795672.jpg" />
+  <img src="Z:/picture/008/save_picture_795672.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795660.jpg" />
+  <img src="Z:/picture/008/save_picture_795660.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Boinx mimoLive 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795620.jpg" />
+  <img src="Z:/picture/008/save_picture_795620.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sketch 79.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795613.jpg" />
+  <img src="Z:/picture/008/save_picture_795613.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ OmniGraffle Pro 7 v7.19.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795605.jpg" />
+  <img src="Z:/picture/008/save_picture_795605.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Scrutiny 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795564.jpg" />
+  <img src="Z:/picture/008/save_picture_795564.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Alfred Powerpack 2.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795563.jpg" />
+  <img src="Z:/picture/008/save_picture_795563.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ WiFi Explorer 3.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795554.jpg" />
+  <img src="Z:/picture/008/save_picture_795554.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Live Home 3D Pro Edition 4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795549.jpg" />
+  <img src="Z:/picture/008/save_picture_795549.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Posterino 3.2.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795518.jpg" />
+  <img src="Z:/picture/008/save_picture_795518.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VueScan Pro 9.5.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795514.jpg" />
+  <img src="Z:/picture/008/save_picture_795514.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Wondershare PDFelement with OCR 5.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795507.jpg" />
+  <img src="Z:/picture/008/save_picture_795507.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Total Video Converter Pro 4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795504.jpg" />
+  <img src="Z:/picture/008/save_picture_795504.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795488.jpg" />
+  <img src="Z:/picture/008/save_picture_795488.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Comic Life 3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795452.jpg" />
+  <img src="Z:/picture/008/save_picture_795452.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Boxy SVG 3  v3.38.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795358.jpg" />
+  <img src="Z:/picture/008/save_picture_795358.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Adguard 2.4.8 (795) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795280.jpg" />
+  <img src="Z:/picture/008/save_picture_795280.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Adguard 2.4.8 (795) Release [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795275.jpg" />
+  <img src="Z:/picture/008/save_picture_795275.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Numi 3.28 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795266.jpg" />
+  <img src="Z:/picture/008/save_picture_795266.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Photo Editor 6 Movavi v6.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795237.jpg" />
+  <img src="Z:/picture/008/save_picture_795237.jpg" />
 </div>
 
 

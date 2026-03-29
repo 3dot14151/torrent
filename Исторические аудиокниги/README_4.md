@@ -1,3 +1,66 @@
+###  Публикация: 612157   (986837) от 01.02.2013
+
+Генри Райдер Хаггард | Дочь Монтесумы (2012) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Томаса Вингфилда, сына почтенного английского сквайра, была необычна. Много раз, когда он думал, что уже погиб и спасения нет, провидение спасало его. Он женился на принцессе Отоми, единственной дочери императора Монтесумы, готовой отказаться от всех земных благ ради любви к нему. Но свадьба не стала окончанием его невероятных приключений.Жанр: приключения, историческийИздательство: ИДДК
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C35C22B6C4C9C4C95E453C91170CDDD23279C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164220   (986470) от 07.01.2010
+
+Александр Дюма | Тайна башни Бертодьер [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть 1. «Иезуит 11-го года»
+Часть 2. «Железная маска»
+Спустя годы судьба снова сводит Д’Артаньяна с его старыми друзьями. Но теперь между ними стоит страшная государственная тайна. Что окажется решающим в отношениях бывших мушкетеров: крепкая дружба или личные интересы?2009Жанр: приключения, радиоспектакльВ ролях: Игнатий Лойола — Сергей Цейц
+Францисканец — Александр Вокач
+Папа Римский (Александр 7-й) — Лев Любецкий
+Кардинал Мазарини — Алексей Кузнецов
+Анна Австрийская — Алла Балтер
+Людовик 13-й — Валерий Сторожек
+Людовик 14-й и принц Филипп — Георгий Тараторкин
+Арамис — Всеволод Ларионов
+
+Д’Артаньян — Эммануил Виторган(   Читать дальше...   )Формат: MP3Продолжительность: 1:57:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972580   (975738) от 12.01.2016
 
 Натан Эйдельман | Грань веков (2015) [MP3]
@@ -6,7 +69,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975738.jpg" />
 </div>
 
 
@@ -32,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974278.jpg" />
 </div>
 
 
@@ -58,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974277.jpg" />
 </div>
 
 
@@ -84,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974274.jpg" />
 </div>
 
 
@@ -111,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973156.jpg" />
 </div>
 
 
@@ -138,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970964.jpg" />
 </div>
 
 
@@ -165,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969567.jpg" />
 </div>
 
 
@@ -192,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967785.jpg" />
 </div>
 
 
@@ -218,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967753.jpg" />
 </div>
 
 
@@ -246,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967712.jpg" />
 </div>
 
 
@@ -272,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966777.jpg" />
 </div>
 
 
@@ -299,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966748.jpg" />
 </div>
 
 
@@ -326,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964666.jpg" />
 </div>
 
 
@@ -352,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964126.jpg" />
 </div>
 
 
@@ -378,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960728.jpg" />
 </div>
 
 
@@ -404,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960138.jpg" />
 </div>
 
 
@@ -430,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959659.jpg" />
 </div>
 
 
@@ -456,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954192.jpg" />
 </div>
 
 
@@ -485,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954085.jpg" />
 </div>
 
 
@@ -511,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953025.jpg" />
 </div>
 
 
@@ -539,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950944.jpg" />
 </div>
 
 
@@ -566,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950916.jpg" />
 </div>
 
 
@@ -592,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946909.jpg" />
 </div>
 
 
@@ -618,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945322.jpg" />
 </div>
 
 
@@ -631,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98229FE0C6D048AC0B1635BF5817FE8C14FB5E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089493   (941436) от 10.01.2017
-
-Пьер Алексис Понсон дю Террайль | Похождения валета треф (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочинения французского беллетриста Пьера Алексиса Понсона дю Террайля (1829—1871) с шумным успехом обошли многие страны мира, соперничали в популярности и тиражах с книгами классика занимательного жанра Александра Дюма. Роман "Любовные похождения Трефового Валета" посвящен событиям, предшествовавшим знаменитой Варфоломеевской ночи. Заговоры, дуэли, любовные (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 03:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2638302229E08817BB8B0471CDA9343E5C0BF30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089908   (941432) от 10.01.2017
-
-Пьер Алексис Понсон дю Террайль | Варфоломеевская ночь (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Понсон дю Террайль Пьер Алексис (1829-1879) - французский романист, автор сенсационных романов, преимущественно на уголовные сюжеты. Цикл рассказывает о борьбе за французскую корону в XVI веке и заканчивается вступлением на престол короля Генриха IV. Резня в день Святого Варфоломея была кульминацией ряда событий: Жерменский мирный договор, положивший конец третьей (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 03:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8068A414B8B5EC94C5460C7D2ECF9091AD2BE79D
 ```
 
 https://mybot314.ru/tekegram_catalog/

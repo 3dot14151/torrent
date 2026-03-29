@@ -1,3 +1,136 @@
+###  Публикация: 1325186   (415896) от 13.09.2019
+
+Udemy | Git: Полный курс для начинающих и не только (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс подойдет для тех людей, кто не знает про GIT ничего и хотел бы изучить его "с нуля". Однако, курс также будет полезен тем людям, кто ежедневно использует GIT в своей работе, но хотел бы обрести большую уверенность в управлении этим инструментом. Зачастую разработчики, которые ежедневно используют GIT, не имеют глубокого понимания работы этой системы (   Читать дальше...   )Производство: UdemyЖанр: DevOps, gitПродолжительность: 04:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E8E957FDB3E90F365586AA8232D6CB2127E703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412581   (415306) от 30.09.2020
+
+[Udemy] Oleg Novikov | Создание API на основе Django и Telegram-botа на Flask (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы курса:
+1. Создание простейшего приложения на Django. Переопределение (кастомизация) стандартной модели User.
+2. Принципы REST API
+3. Библиотека Django REST framework (DRF) для создания API.(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 11:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D696C8B31041C47C5E4B1B53E2E412D23B3D4008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325371   (414195) от 14.09.2019
+
+ProfIT| Введение в фреймворк Codeception (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вебинар, который позволит вам составить первое впечатление о фреймворке для тестирования Codeception и решить - пригодится ли он вам в ежедневной практике.Производство: ProfITЖанр: Программирование, Рhp, СodeceptionПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077316786149FB28B9306C0C34F265C1B1B2E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325374   (414051) от 14.09.2019
+
+ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поговорим о том что такое тестирование и почему мы – фронтенд разработчики -  должны это делать. Разберем типы тестов, когда они нужны, а когда не обязательны. Посмотрим на основные инструменты для тестирования и определим их области применения. Научимся писать тестовые сценарии и автоматизировать процесс на практике.Производство: ProfITЖанр: ТестированиеПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741613292C6DDCE0C4455BF5CD08ECA2A1F3B801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325367   (414042) от 14.09.2019
+
+ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семинар посвящен не так давно вышедшей новой, восьмой версии популярнейшей базы данных MySQL. Что же так сильно изменилось, что потребовалось столь "круто" менять номер версии? Об это узнаете на вебинаре!Производство: ProfITЖанр: Базы данных, MysqlПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97577F9716E5300EA4CC75F920DB2C8C6584A27E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325075   (413888) от 14.09.2019
 
 Специалист | Программирование на языке Python. Уровень 3. Разработка веб - приложений в Django (2019) HDTVRip [H.264/720p-LQ]
@@ -6,7 +139,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413888.jpg" />
+  <img src="Z:/picture/008/save_picture_413888.jpg" />
 </div>
 
 
@@ -34,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413400.jpg" />
+  <img src="Z:/picture/008/save_picture_413400.jpg" />
 </div>
 
 
@@ -65,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411810.jpg" />
+  <img src="Z:/picture/008/save_picture_411810.jpg" />
 </div>
 
 
@@ -93,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411180.jpg" />
+  <img src="Z:/picture/008/save_picture_411180.jpg" />
 </div>
 
 
@@ -120,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411027.jpg" />
+  <img src="Z:/picture/008/save_picture_411027.jpg" />
 </div>
 
 
@@ -149,7 +282,7 @@ Postgres Professional | Разработка серверной части пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409826.jpg" />
+  <img src="Z:/picture/008/save_picture_409826.jpg" />
 </div>
 
 
@@ -178,7 +311,7 @@ Lynda.com | Windows 10 October 2018 Update Essential Training (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408961.jpg" />
+  <img src="Z:/picture/008/save_picture_408961.jpg" />
 </div>
 
 
@@ -204,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408910.jpg" />
+  <img src="Z:/picture/008/save_picture_408910.jpg" />
 </div>
 
 
@@ -233,7 +366,7 @@ SoftwareTesting | Программирование на Python для тести
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408297.jpg" />
+  <img src="Z:/picture/008/save_picture_408297.jpg" />
 </div>
 
 
@@ -259,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407985.jpg" />
+  <img src="Z:/picture/008/save_picture_407985.jpg" />
 </div>
 
 
@@ -285,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407892.jpg" />
+  <img src="Z:/picture/008/save_picture_407892.jpg" />
 </div>
 
 
@@ -314,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407882.jpg" />
+  <img src="Z:/picture/008/save_picture_407882.jpg" />
 </div>
 
 
@@ -343,7 +476,7 @@ Infostart | Онлайн-митап "Web-клиенты для 1С" (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407879.jpg" />
+  <img src="Z:/picture/008/save_picture_407879.jpg" />
 </div>
 
 
@@ -372,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407856.jpg" />
+  <img src="Z:/picture/008/save_picture_407856.jpg" />
 </div>
 
 
@@ -399,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407841.jpg" />
+  <img src="Z:/picture/008/save_picture_407841.jpg" />
 </div>
 
 
@@ -426,7 +559,7 @@ Pluralsight.com | Advanced Python (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407578.jpg" />
+  <img src="Z:/picture/008/save_picture_407578.jpg" />
 </div>
 
 
@@ -454,7 +587,7 @@ ZTM | SQL + Базы данных Bootcamp: Zero to Mastery / Complete SQL + Dat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407054.jpg" />
+  <img src="Z:/picture/008/save_picture_407054.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ Brian Yu, David J. Malan | CS50. Веб-программирование с Pyth
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407018.jpg" />
+  <img src="Z:/picture/008/save_picture_407018.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406970.jpg" />
+  <img src="Z:/picture/008/save_picture_406970.jpg" />
 </div>
 
 
@@ -539,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406661.jpg" />
+  <img src="Z:/picture/008/save_picture_406661.jpg" />
 </div>
 
 
@@ -568,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406655.jpg" />
+  <img src="Z:/picture/008/save_picture_406655.jpg" />
 </div>
 
 
@@ -579,145 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE2A367EE18F570FD24D18802ED9109BB9A15B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413934   (406618) от 06.10.2020
-
-Никита Хохлов | PyQt5 Python - Разработка графических интерфейсов (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блок 1. Введение в основные инструменты
-1. Настройка среды и разбор инструментов Qt Designer
-2. Структура Qt программы, преобразование интерфейса и разбор виджетов. Пишем первую программу с кнопками и списками
-3. Использование галочек в программах, принцип построения конфигов(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 03:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561774   (405376) от 19.10.2012
-
-Алексей Захаренко | Дизайн-оформление сайта с нуля [2012] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть видеоуроков курса "Дизайн-оформление сайта с нуля" демонстрируют профессиональное создание дизайна на примере сайта для компании, занимающейся ландшафтным проектированием. Потратив немного более двух часов на просмотр видеокурса, Вы получите исчерпывающую информацию о дизайн-оформлении сайта. Повторные просмотры видеоуроков помогут Вам оформлять собственные сайты на профессиональном уровне.Жанр: Обучающее видеоПродолжительность: 2:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90555B91AC18B750B93D9B39B28BC1B2EE9E2F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169021   (403747) от 26.09.2017
-
-Специалист | VMware vSphere. Уровень 1. Внедрение и эксплуатация vSphere 5.5 (2015) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403747.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware vSphere – решение виртуализации масштаба предприятия, построенное на базе гипервизоров ESXi/ESX, и управляемое с помощью решения vCenter Server.
-
-Цель курса: Научиться внедрять и поддерживать в работоспособном состоянии инфраструктуру виртуализации масштаба предприятия на основе Vmware vSphere: VMware ESXi /ESX и vCenter Server.Жанр: VMWare vSphere, Системное администрированиеПродолжительность: 21:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7602B24A25E3EFB60898ECE463F1A030A452F267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473045   (402658) от 23.10.2012
-
-lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS] PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402658.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основном курсе Logic Pro 9 Scott Hirsch объясняет, как использовать возможности Logic Pro, популярной программы от Apple для написания, редактирования и сведения музыки. Курс включает инструкции, как сочинять музыку в Logic Pro и уделять больше времени творчеству, а не техническим моментам. Scott подробно рассматривает настройку рабочего пространства, запись как исполнителей, так и цифровых инструментов, редактирование и аранжировку, сведение и мастеринг композиции.Жанр: ВидеоурокПеревод: РусскийПродолжительность: 5:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D380F38BB352C42E7A117EC7595957888FAEC523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711498   (402174) от 20.10.2013
-
-Специалист | Linux (Ubuntu) FreeBSD. Уровень 3. Обеспечение безопасности систем сервисов и сетей (2013) [PCRec]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс позволяет получить ключевые знания по обеспечению комплексной безопасности сетевой инфраструктуры средствами UNIX (Linux/FreeBSD).
-
-Порядка 70% курса посвящается практике по усилению защиты сети, включающей в себя построение защищенного внешнего периметра средствами FreeBSD, демилитаризованной зоны на основе Linux, локальной сети c серверами на FreeBSD, а в качестве рабочих станций применяются Windows 7 и Linux. В результате, каждый слушатель курса освоит технологии обеспечения безопасности на примере сети виртуальной корпорации SkyNet.
-
-Курс предназначен для системных администраторов, которым требуется обеспечить комплексную безопасность сетевой инфраструктуры средствами UNIX (Linux/FreeBSD), а также для тех, кто планирует освоить смежную компетенцию специалиста по информационной безопасности.Жанр: Обучающие видеоурокиПродолжительность: ~24:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADE803A9C368908CF94373C384EDA73CA23269C
 ```
 
 https://mybot314.ru/tekegram_catalog/

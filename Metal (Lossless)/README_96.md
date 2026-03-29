@@ -1,3 +1,90 @@
+###  Публикация: 1218495   (721520) от 10.04.2018
+
+Kamelot - The Shadow Theory (2018) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mission (1:31)
+ 02. Phantom Divine (Shadow Empire) (4:06)
+ 03. Ravenlight (3:38)
+ 04. Amnesiac (3:41)(   Читать дальше...   )Жанр: Symphonic Metal, Progressive Power MetalПродолжительность: 01:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F16BE36F014F8B157FC3B4169DA88DED35A5C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400269   (721407) от 04.08.2020
+
+Dynazty - The Dark Delight (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presence Of Mind (04:16)
+02. Paradise Of The Architect (04:14)
+03. The Black (03:54)
+04. From Sound To Silence (03:54)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A5585852FB5C4D642362FFC6363A51C3BD41D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892061   (721337) от 25.04.2015
+
+Kiske / Somerville - City of Heroes (2015) [FLAC|Lossless]<Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City of Heroes (4:02)
+02. Walk on Water (4:17)
+03. Rising Up (4:44)
+04. Salvation (6:00)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416FB38B65253B8B087EC34DC0C699C3ACB0BAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285067   (721198) от 26.02.2019
 
 Cirrha Niva - For Moments Never Done (2009) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Cirrha Niva - For Moments Never Done (2009) [FLAC|Lossless|image + .cue] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721198.jpg" />
+  <img src="Z:/picture/008/save_picture_721198.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Condenados - The Tree Of Death (2016) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721196.jpg" />
+  <img src="Z:/picture/008/save_picture_721196.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721192.jpg" />
+  <img src="Z:/picture/008/save_picture_721192.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721191.jpg" />
+  <img src="Z:/picture/008/save_picture_721191.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Agatus - The Eternalist (2016) [FLAC|Lossless|image + .cue] <Black Metal, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721190.jpg" />
+  <img src="Z:/picture/008/save_picture_721190.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Cytotoxin - Gammageddon (2017) [WavPack|Lossless|image + .cue] <Technical Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721189.jpg" />
+  <img src="Z:/picture/008/save_picture_721189.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Cytotoxin - Radiophobia (2012) [WavPack|Lossless|image + .cue] <Technical Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721088.jpg" />
+  <img src="Z:/picture/008/save_picture_721088.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Holy Terror - Guardians Of The Netherworld: A Tribute To Keith Deen (2015) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721086.jpg" />
+  <img src="Z:/picture/008/save_picture_721086.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Teeth Of The Sea - Wraith (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Experimen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721085.jpg" />
+  <img src="Z:/picture/008/save_picture_721085.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Dream Theater - Distance Over Time (2019) Special Edition, Digipak [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720951.jpg" />
+  <img src="Z:/picture/008/save_picture_720951.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ The Doomsday Kingdom - The Doomsday Kingdom (2017) [FLAC|Lossless|tracks + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720794.jpg" />
+  <img src="Z:/picture/008/save_picture_720794.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720769.jpg" />
+  <img src="Z:/picture/008/save_picture_720769.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Voivod - Synchro Anarchy (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720752.jpg" />
+  <img src="Z:/picture/008/save_picture_720752.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Amorphis - Halo (2022) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720413.jpg" />
+  <img src="Z:/picture/008/save_picture_720413.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Hakenkreuz Nocturna - Eternal Introspective Winter (2006) [APE|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719645.jpg" />
+  <img src="Z:/picture/008/save_picture_719645.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Drowning The Light - 2 альбома (2007 - 2009) [APE|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719644.jpg" />
+  <img src="Z:/picture/008/save_picture_719644.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Fange - Pudeur (2020) [FLAC|Lossless|tracks + .cue] <Death Metal, Industrial Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719536.jpg" />
+  <img src="Z:/picture/008/save_picture_719536.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Thornbridge - Theatrical Masterpiece (2019) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719160.jpg" />
+  <img src="Z:/picture/008/save_picture_719160.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Emerald - Reckoning Day (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718840.jpg" />
+  <img src="Z:/picture/008/save_picture_718840.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|image + .cue] <Technical Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718738.jpg" />
+  <img src="Z:/picture/008/save_picture_718738.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Pyramaze - Contingent (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718703.jpg" />
+  <img src="Z:/picture/008/save_picture_718703.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Battle Beast - Circus Of Doom (2022) 2xCD [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718666.jpg" />
+  <img src="Z:/picture/008/save_picture_718666.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Volbeat - Seal The Deal & Let's Boogie (2016) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717769.jpg" />
+  <img src="Z:/picture/008/save_picture_717769.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Volbeat - Seal The Deal & Let's Boogie (2016) [FLAC|Lossless|image + .cue] <Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EE182CFF8DA3EBD99DEF571DBA9BA6907B9E606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400590   (717110) от 06.08.2020
-
-Firewind - Firewind (2020) [FLAC|Lossless|image + .cue] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Empire (05:13)
-02. Devour (03:45)
-03. Rising Fire (03:26)
-04. Break Away (05:13)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C8BF0379308D246545A2A2BD8000C2A0F906FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285802   (716955) от 28.02.2019
-
-Spirits of Fire - Spirits of Fire (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Light Speed Marching 4:31
- 02 - Temple Of The Soul 6:24
- 03 - All Comes Together 5:46
- 04 - Spirits Of Fire 6:44(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CBA534828C1477C1C3A513FFD6FB00B7E864B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532151   (716762) от 18.02.2022
-
-Schizophrenia - Recollections Of The Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Immolation
-02. Cranial Disintigration
-03. Sea Of Sorrow
-04. Monolith(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17E60241358CF44F756BA4FBA6286CF45340455
 ```
 
 https://mybot314.ru/tekegram_catalog/

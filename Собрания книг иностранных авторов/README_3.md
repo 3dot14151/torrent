@@ -1,3 +1,57 @@
+###  Публикация: 939312   (833681) от 08.04.2016
+
+Терри Пратчетт | Собрание сочинений [62 книги. Обновляемая] (1982-2016) [FB2]
+
+>>След.
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэр Теренс Дэвид Джон Пратчетт (Sir Terence David John Pratchett, род. 28 апреля 1948) — популярный английский писатель. Больше известен как Терри Пратчетт (Terry Pratchett). Наибольшей популярностью пользуется его цикл сатирического фэнтези про Плоский мир (Discworld). Суммарный тираж его книг составляет около 50 миллионов экземпляров.
+В феврале 2009 года Пратчетт (   Читать дальше...   )Жанр: Юмористическая фантастика, Зарубежная фантастика, Зарубежное фэнтези, Книги про волшебниковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447F948E5102362453530AF2393D1948143BFB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371187   (832622) от 03.05.2020
+
+Джон Гришэм | Сборник произведений [77 книг] (1988-2020) [FB2, PDF, DJVU]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Гришэм (Гришем, англ. John Grisham) — американский писатель. Автор многих бестселлеров (т. н. «юридических триллеров»), экранизированных в Голливуде.
+Джон Гришэм родился 8 февраля 1955 года в Джонсборо, штат Арканзас. В детстве мечтал стать профессиональным бейсболистом. Окончил государственный университет Миссисипи, затем юридическую школу. В течение 10 лет (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC486C4A07B22074B9715ACF9F87CA6C4FA6181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006610   (826641) от 12.04.2016
 
 Вальтер Скотт | Собрание сочинений в 8-ми томах [8 книг] (1990) [DJVU]
@@ -6,7 +60,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826641.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826631.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823845.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822723.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821076.jpg" />
+  <img src="Z:/picture/008/save_picture_821076.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820679.jpg" />
+  <img src="Z:/picture/008/save_picture_820679.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815094.jpg" />
+  <img src="Z:/picture/008/save_picture_815094.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802152.jpg" />
+  <img src="Z:/picture/008/save_picture_802152.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799934.jpg" />
+  <img src="Z:/picture/008/save_picture_799934.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798734.jpg" />
+  <img src="Z:/picture/008/save_picture_798734.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797477.jpg" />
+  <img src="Z:/picture/008/save_picture_797477.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796048.jpg" />
+  <img src="Z:/picture/008/save_picture_796048.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795962.jpg" />
+  <img src="Z:/picture/008/save_picture_795962.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792966.jpg" />
+  <img src="Z:/picture/008/save_picture_792966.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789774.jpg" />
+  <img src="Z:/picture/008/save_picture_789774.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789600.jpg" />
+  <img src="Z:/picture/008/save_picture_789600.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789570.jpg" />
+  <img src="Z:/picture/008/save_picture_789570.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787050.jpg" />
+  <img src="Z:/picture/008/save_picture_787050.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784976.jpg" />
+  <img src="Z:/picture/008/save_picture_784976.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784961.jpg" />
+  <img src="Z:/picture/008/save_picture_784961.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775783.jpg" />
+  <img src="Z:/picture/008/save_picture_775783.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764523.jpg" />
+  <img src="Z:/picture/008/save_picture_764523.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758971.jpg" />
+  <img src="Z:/picture/008/save_picture_758971.jpg" />
 </div>
 
 
@@ -624,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755519.jpg" />
+  <img src="Z:/picture/008/save_picture_755519.jpg" />
 </div>
 
 
@@ -636,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954A9D86E2C6CE0C6FFAE7CBD6B6F0F2D5CEE6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782112   (752040) от 30.04.2014
-
-Дин Кунц | Собрание сочинений [97 книг] (1968-2013) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дин Рэй Кунц (Dean Ray Koontz) — американский писатель-фантаст.
-Родился и вырос в Пенсильвании, США. Родился 9 июля 1945 в Эверетте. Его мечтой всегда была писательская карьера. Еще во время учебы в университете Шиппенбурга начал писать рассказы и победил в конкурсе журнала "Атлантик Мансли". Работал координаторам программы помощи беднякам, преподавал в (   Читать дальше...   )Жанр: Мистика, Ужасы, Триллер, ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A7949AFCB60163A00462526F05EBC48841A95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387330   (750970) от 11.01.2022
-
-Бернард Корнуэлл | Собрание сочинений [64 книги] (1997-2021) [FB2 [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бернард Корнуэлл (англ. Bernard Cornwell) - Настоящее имя: Бернард Виггинс (Bernard Wiggins), родился в Лондоне 23 февраля 1944. Это был «ребёнок войны» – его отец был канадский летчик, а мать служила во вспомогательных частях ВВС. Его усыновила семья из Эссекса, принадлежавшая религиозной секте «Особые люди» (таковыми они, впрочем, и являлись). Он вырвался оттуда (   Читать дальше...   )Жанр: Историческая проза, Исторические приключения, Историческое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399482C2906DFBBB8D7BBED1E96B98F7A67420A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

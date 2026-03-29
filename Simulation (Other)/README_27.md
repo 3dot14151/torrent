@@ -1,3 +1,29 @@
+###  Публикация: 1752214   (42063) от 29.09.2024
+
+Train Sim World 5 (2024) [Ru/Multi] (Build 283/dlc) Repack FitGirl [Special Edition]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бросьте вызов новым испытаниям и новым возможностям, покоряя пути и посещая знаменитые города с тремя новыми маршрутами. Погрузитесь в увлекательное железнодорожное хобби и отправляйтесь в новое путешествие! От скоростных поездов с наклоняющимся кузовом до мощных дизельных локомотивов - стальные магистрали уже ждут вас в Train Sim World 5!Тип издания: RepackРазработчик: Dovetail GamesЖанр: СимуляторыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F654BFA7EE748DEF5C8C3B003B3840504680E898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752293   (42029) от 29.09.2024
 
 Chained Together (2024) [En] (1.8.6) Repack Pioneer
@@ -6,7 +32,7 @@ Chained Together (2024) [En] (1.8.6) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42029.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Surreal Farm (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41486.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41190.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41135.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41088.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40925.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Espresso Tycoon (2023) [Ru/Multi] (Update 14) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40831.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Grim Realms (2024) [Multi] (1.0.1.7) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40717.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Mech Engineer (2020) [Ru/Multi] (1.0.65) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40640.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ DATE A LIVE: Ren Dystopia (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40513.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40508.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40505.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.55) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40453.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Game Builder Tycoon (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40326.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0.15) Repack Fit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40295.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40145.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Police Simulator: Patrol Officers (2022) [Ru/Multi] (15.1.4/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40005.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39997.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39783.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39521.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39514.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39471.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Welcome to Empyreum (2024) [Ru/Multi] (1.0.9) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39419.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39148.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Moon Mystery (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38857.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Moon Mystery приглашает игроков в космическую од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA90CF2C87834186BB5D6B84A1D8E3909A90692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758004   (38761) от 31.10.2024
-
-Riot Operator (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Riot Operator - симулятор сдерживания массовых беспорядков. В этой увлекательной игре ваша задача - управлять полицией и медиками, сдерживая бунты. Восстанавливайте порядок в реальных местах по всему миру. Безопасность граждан в ваших руках. Каждая ситуация требует индивидуального подхода. Выбирайте, куда послать полицию и медиков, расставляйте приоритет событий (   Читать дальше...   )Тип издания: RepackРазработчик: Beta 2 GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62464752ED8E11EB19D7688FBF48E37C8C6B06D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

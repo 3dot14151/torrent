@@ -1,3 +1,30 @@
+###  Публикация: 262167   (326206) от 25.11.2010
+
+А. Медведь, Д. Хазанов | Пикирующий бомбардировщик Пе-2. "Пешка", ставшая ферзем [Эксмо] [2007] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый массовый советский бомбардировщик Великой Отечественной войны Пе-2 был создан группой конструкторов под руководством В.М.Петлякова в ЦКБ-29 - уникальной организации, подведомственной НКВД, весь костяк которой составляли заключенные, так называемые "враги народа" и "вредители". Первоначально эта машина задумывалась как высотный истребитель, но по решению руководства страны в серию Пе-2 запустили в варианте более необходимого Красной Армии пикирующего бомбардировщика.
+Пе-2 сыграл выдающуюся роль в достижении победы в Великой Отечественной войне. Этот самолет применялся как бомбардировщик, разведчик, истребитель. Они воевали на всех фронтах и в морской авиации всех флотов. В руках советских летчиков Пе-2 в полной мере раскрыл заложенные в нем возможности. Скорость, маневренность, мощное вооружение плюс прочность, надежность и живучесть были его отличительными чертами. Пе-2 был популярен у летчиков и с первого до последнего дня Великой Отечественной войны "Пешка" служила им верой (   Читать дальше...)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E10BC3A9041CC446D230DD09182459F3EEA226D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956632   (325828) от 19.11.2015
 
 Т. Ф. Коряева (сост.) | Директивы главного командования Красной Армии (1917-1920) [Сборник документов] (1969) [DJVU]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325828.jpg" />
+  <img src="Z:/picture/008/save_picture_325828.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325283.jpg" />
+  <img src="Z:/picture/008/save_picture_325283.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324260.jpg" />
+  <img src="Z:/picture/008/save_picture_324260.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321890.jpg" />
+  <img src="Z:/picture/008/save_picture_321890.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318944.jpg" />
+  <img src="Z:/picture/008/save_picture_318944.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318799.jpg" />
+  <img src="Z:/picture/008/save_picture_318799.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318784.jpg" />
+  <img src="Z:/picture/008/save_picture_318784.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318762.jpg" />
+  <img src="Z:/picture/008/save_picture_318762.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316067.jpg" />
+  <img src="Z:/picture/008/save_picture_316067.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316038.jpg" />
+  <img src="Z:/picture/008/save_picture_316038.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315986.jpg" />
+  <img src="Z:/picture/008/save_picture_315986.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315909.jpg" />
+  <img src="Z:/picture/008/save_picture_315909.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315903.jpg" />
+  <img src="Z:/picture/008/save_picture_315903.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315895.jpg" />
+  <img src="Z:/picture/008/save_picture_315895.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315309.jpg" />
+  <img src="Z:/picture/008/save_picture_315309.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315054.jpg" />
+  <img src="Z:/picture/008/save_picture_315054.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314757.jpg" />
+  <img src="Z:/picture/008/save_picture_314757.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312673.jpg" />
+  <img src="Z:/picture/008/save_picture_312673.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312409.jpg" />
+  <img src="Z:/picture/008/save_picture_312409.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311559.jpg" />
+  <img src="Z:/picture/008/save_picture_311559.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311375.jpg" />
+  <img src="Z:/picture/008/save_picture_311375.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310405.jpg" />
+  <img src="Z:/picture/008/save_picture_310405.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310302.jpg" />
+  <img src="Z:/picture/008/save_picture_310302.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310187.jpg" />
+  <img src="Z:/picture/008/save_picture_310187.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310160.jpg" />
+  <img src="Z:/picture/008/save_picture_310160.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EA330EF4D8E342650CB9A86F74DA758DCB17B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584350   (310039) от 03.12.2012
-
-П.Бруксмит | Искусство снайперской подготовки [2004] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310039.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Искусство снайперской подготовки» — уникальная энциклопедия снайперского промысла. В ней исследуются особенности психологии снайпера, его роль и значение при проведении различных операций, рассказывается об оружии снайперов, о подготовке сверхметких стрелков в лучших снайперских школах мира, об обучении маскировке, камуфляжу и скрытному передвижению. Издание адресовано не только тем, кто интересуется этой разновидностью воинского искусства, но и широкому кругу любителей военной истории.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DDEC685C7A54F9621DE15DF958323B2660E18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

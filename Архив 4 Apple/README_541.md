@@ -1,3 +1,108 @@
+###  Публикация: 1648700   (231124) от 24.07.2023
+
+AI Transcription 1.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преобразовать аудио в текст. Превратите звук в текст. AI Transcription использует расширенное распознавание речи для мгновенной расшифровки ваших аудио- и видеофайлов, полностью автоматически, в автономном режиме и с очень точными результатами.Тип издания: macOS SoftwareРелиз состоялся: 23.07.2023Разработчик: © 2023 IXEAUПоддерживаемая ОС: macOS 13.1+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C74E672A9E180B492A9782E8C6DECE8AFC648F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648822   (231117) от 24.07.2023
+
+Cardhop 2.2.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231117.jpg" />
+</div>
+
+
+###  Подробнее
+
+До сих пор управление и взаимодействие с вашими контактами было настоящим разочарованием. Магический синтаксический анализ Cardhop невероятно интуитивно понятен, позволяя вам искать, добавлять, редактировать и взаимодействовать с вашими контактами с помощью простого предложения!
+Просто введите «John G» и карта Джона немедленно появится. Или введите «Sarah Smith sarah@cardhopapp.com», (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2017-2022 Flexibits Inc.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E03E13EE2AEDCACB7CB130CCEECC7E5EFBBE076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648015   (231114) от 21.07.2023
+
+Keep It 2.2.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2023Разработчик: © 2004 - 2023 Reinvented SoftwareПоддерживаемая ОС: macOS 12+Язык интерфейса: Английский, Арабский и Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FD589CA18C2154EC511FFEA34F081C0C6DBB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648702   (231105) от 24.07.2023
+
+Color Wheel 7.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 03.07.2023Разработчик: © 2023 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492AA0728B5312B076B2EB1A3E130D878A41193C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648014   (231092) от 21.07.2023
 
 Contacts Journal CRM 3.3.12 [En]
@@ -6,7 +111,7 @@ Contacts Journal CRM 3.3.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231092.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Luminar Neo 1.12.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231080.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Integrity Plus 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231077.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Scrutiny 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231068.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ MetaRename for Mac 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231058.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Integrity Pro 12.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231055.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Chain Timer 9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231032.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Alarm Clock Pro 15 v.15.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231022.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Yoink 3.6.85 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231019.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Dynamic Wallpaper Engine 15.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231011.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ Adobe InCopy 2022 18.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231009.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Colibri 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230999.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Librarian Pro 7 v.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230978.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ PullTube 1.8.5.15 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230973.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ VueScan Pro 9.8.12 ARM/Intel [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230951.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ Lungo 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230939.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ System Dashboard Pro 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230926.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ OmniZip - Universal Extractor Pro for Mac 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230922.jpg" />
 </div>
 
 
@@ -480,7 +585,7 @@ Boxy SVG 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230876.jpg" />
 </div>
 
 
@@ -506,7 +611,7 @@ UninstallPKG 1.2.0  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230848.jpg" />
 </div>
 
 
@@ -533,7 +638,7 @@ XnViewMP for Mac 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230827.jpg" />
 </div>
 
 
@@ -560,7 +665,7 @@ Cisdem Video Converter 7.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230798.jpg" />
 </div>
 
 
@@ -572,112 +677,6 @@ Cisdem Video Converter является решением все в одном д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC947CE01797A7BBC2E2A68448056DC245E5C859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649288   (230777) от 27.07.2023
-
-Pixelmator Pro 3.3.10 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
-Много неразрушающих про. инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2022 Pixelmator TeamПоддерживаемая ОС: macOS 11.0Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2013584AF7DF8159E9057F77162C97E44A8113C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649289   (230763) от 27.07.2023
-
-RAR Extractor Max-Unzip File 11.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230763.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor Max унаследовал преимущества RAR Extractor Pro, разработчики переработали интерфейс и добавили более мощные функции.
-Поддержка разархивирования RAR, winmail.dat, ZIP, 7z, tbz, sti, tar, xar, lha, lzh, hqx, bin, bz2, bzip2, bz, xz, iso, cid, nrg, mdf, taz, lzma, exe, msi, cpio, lzx, jar, swf, xip, ace, arj, pak, pkg, apk, lbr, lqr, cab, rpm, cpt, sea, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.07.2023Разработчик: © 2022 by Elimisoft.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:607F3054094D2D96DC8E3D6922C72567ECEDD5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648999   (230759) от 25.07.2023
-
-iBarcoder 3.14.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53C0B82B1EAA2BA0269AC75E5D224D4BA55D867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649431   (230751) от 27.07.2023
-
-CloudMounter 4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230751.jpg" />
-</div>
-
-
-###  Подробнее
-
-CloudMounter - это централизованный сервис, который позволяет монтировать облачные хранилища как локальные диски и работать с online файлами так же как с локальными. При этом сохраняя их защищенными от внешнего доступа. Приложение обеспечит Вам непосредственный доступ к online данным на сервере, прямо из Finder на Вашем Mac, а так же позволит защитить их с помощью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2023Разработчик: © 2023 Electronic Team, Inc.,Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A59BEB01415A9FF69FF88A9C704D5E9446F102
 ```
 
 https://mybot314.ru/tekegram_catalog/

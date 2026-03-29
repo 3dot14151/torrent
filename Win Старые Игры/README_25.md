@@ -1,3 +1,55 @@
+###  Публикация: 493232   (248616) от 07.05.2012
+
+Total Control (RePack) [Ru] 1995 | Pilotus
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пройдя долгий многотысячелетний путь в своем развитии, пережив войны и катаклизмы, рождение и крушение межзвездных империй, распространив свое влияние на сотни планетных систем, человечество не нашло высшей ценности, чем человеческая жизнь. Любая попытка силовых действий мнгновенно пересекалась Объедененными Силами Быстрого Реагирования. Единственным исключением из общего правила стали вновь открытые безжизненные планеты, на которые предъявляли права одновременно несколько потенциальных владельцев. И тогда в действие приводилась специальная процедура, которая позволяла определить, кто получит над планетой ПОЛНЫЙ КОНТРОЛЬ. Единственное "табу" - ни одна человеческая жизнь не должна была оказаться под угрозой.Тип издания: RePackЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833757   (247737) от 02.11.2025
+
+Hitman: Codename 47 (2000) [En] (b192 v2) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247737.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве таинственного Хитмана, вы должны использовать скрытность и разрешение тактических проблем, чтобы войти, выпонить и выйти с задания с минимальными вниманием и максимальной эффективностью. За определенную цену вы получите доступ к самым изощренным устройствам, но от того, как вы их используете, зависит, уйдете ли вы как миллионер или уйдете навсегда.Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B623F901792936E77F503324DC172A2C0A4C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540069   (247405) от 23.06.2023
 
 Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
@@ -6,7 +58,7 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247405.jpg" />
+  <img src="Z:/picture/004/save_picture_247405.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247002.jpg" />
+  <img src="Z:/picture/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Comanche 4 / Команч 4 (2001) [Ru] (1.14) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246952.jpg" />
+  <img src="Z:/picture/004/save_picture_246952.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Challenge of the Five Realms (RePack) [En] 1992 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_246580.jpg" />
+  <img src="Z:/picture/005/save_picture_246580.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246169.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ MechCommander Gold (1998) [Ru/En] (2.1.0.3/dlc) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246072.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ MechCommander 2 (2001) [Ru/En] (2.2.0.5) Repack Necros
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246070.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242378.jpg" />
+  <img src="Z:/picture/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ LEGO Batman: The Videogame (2008) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241091.jpg" />
+  <img src="Z:/picture/004/save_picture_241091.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237632.jpg" />
+  <img src="Z:/picture/004/save_picture_237632.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236481.jpg" />
+  <img src="Z:/picture/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Warhammer: Mark of Chaos (2006) [Multi] (2.14/dlc) License GOG [Gold Edition]
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236415.jpg" />
+  <img src="Z:/picture/005/save_picture_236415.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236275.jpg" />
+  <img src="Z:/picture/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Darkest Hour: A Hearts of Iron Game (2011) [Ru/Multi] (1.05.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234043.jpg" />
+  <img src="Z:/picture/005/save_picture_234043.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Uplink: Hacker Elite (2001) [En] (1.6) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233750.jpg" />
+  <img src="Z:/picture/005/save_picture_233750.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233451.jpg" />
+  <img src="Z:/picture/005/save_picture_233451.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Birthright: The Gorgon's Alliance / Страна Героев (1997) [Ru] (1.3) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233314.jpg" />
+  <img src="Z:/picture/005/save_picture_233314.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Tom Clancy's Splinter Cell (2003) [Multi] (2.0.0.12/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233127.jpg" />
+  <img src="Z:/picture/005/save_picture_233127.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231934.jpg" />
+  <img src="Z:/picture/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Freedom Fighters (2003) [Ru/En] (1.0.0.4490481) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231513.jpg" />
+  <img src="Z:/picture/005/save_picture_231513.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Patrician III: Rise of the Hanse / Patrician III: Расцвет Ганзы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231452.jpg" />
+  <img src="Z:/picture/005/save_picture_231452.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Ishar Trilogy (1990-1994) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230422.jpg" />
+  <img src="Z:/picture/005/save_picture_230422.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dark Messiah of Might and Magic (2006) [Ru/En] (1.02) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228082.jpg" />
+  <img src="Z:/picture/005/save_picture_228082.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227231.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Traffic Giant - это удивительная игра-симулятор, к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513027   (226502) от 27.11.2021
-
-Delta Force: Black Hawk Down / Delta Force: Операция "Черный Ястреб" (2003) [Ru] (1.2.2) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226502.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 октября 1993 года является черным днем в истории спецназа США. Именно тогда в рамках кампании «Возрождение надежды» в Сомали американцами была предпринята попытка захвата полевого командира Мохамеда Фарраха Айдида и его ближайшего окружения. Это должно было способствовать скорейшему налаживанию мирной жизни в измученной гражданской войной стране.Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513201   (224502) от 28.11.2021
-
-Delta Force: Land Warrior / Отряд Дельта: Операция "Спецназ" (2000) [Ru/En] (1.00.42) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты служил в спецназе - гордись. Если не служил - радуйся. C помощью этой игры у тебя появилась возможность ощутить все прелести жизни бойца спецподразделения без всякого вреда для здоровья и даже наоборот! Ведь смех продлевает жизнь, а его в игре предостаточно. Вооружись как следует, учитывая, что в руках настоящего спецназовца даже табуретка является оружием (   Читать дальше...   )Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
 ```
 
 https://mybot314.ru/tekegram_catalog/

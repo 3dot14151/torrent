@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1861680   (1062911) от 
+
+Ui Kits - UI8 - Visual Alchemi - Videographer Framer Portfolio [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062911.jpg" />
+</div>
+
+
+###  Подробнее
+
+UI-набор Visual Alchemi создан для рассказчиков, которые любят делиться своими работами за пределами кадра.
+
+Хорошо структурированные компоненты помогут выделить завершенные работы и ваши идеи в области видеосъемки. Заявите о себе, рассказав свою историю с помощью этой целевой страницы.Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04E505B690FE5E266333047D37DDAEA0D735A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861964   (1062703) от 
+
+Ui Kits - UI8 - Trakr - Affiliate Marketing SaaS UI Kit [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trakr — это современный и полностью настраиваемый набор элементов пользовательского интерфейса, разработанный специально для SaaS-платформ партнерского маркетинга. Включая более 30 профессионально созданных экранов пользовательского интерфейса, Trakr позволяет дизайнерам и разработчикам легко создавать надежное и визуально привлекательное программное обеспечение (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAB865A6C12399D1764AEFBDAC2C0F87EC9FB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858561   (1060379) от 11.03.2026
 
 Ui Kits - Fitness Management Web App UI Kit [FIG]
@@ -7,7 +61,7 @@ Ui Kits - Fitness Management Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060379.jpg" />
+  <img src="Z:/picture/009/save_picture_1060379.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Ui Kits - Craftwork - Hero Headers Figma Template [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057960.jpg" />
+  <img src="Z:/picture/005/save_picture_1057960.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Ui Kits - UI8 - StoreWise - Store Management Dashboard UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056170.jpg" />
+  <img src="Z:/picture/005/save_picture_1056170.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Ui Kits - UI8 - Trans Shuttle App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055731.jpg" />
+  <img src="Z:/picture/005/save_picture_1055731.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ Ui Kits - UI8 - Diva - Women Online Shop App UI Kit [FIG, XD]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055516.jpg" />
+  <img src="Z:/picture/005/save_picture_1055516.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Ui Kits - UI8 - Osmos Foundation [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055285.jpg" />
+  <img src="Z:/picture/005/save_picture_1055285.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Ui Kits - UI8 - Zync – Chat & Team Communication App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054991.jpg" />
+  <img src="Z:/picture/005/save_picture_1054991.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Ui Kits - UI8 - Sport News App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054209.jpg" />
+  <img src="Z:/picture/005/save_picture_1054209.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Ui Kits - UI8 - Sportly - Fittech Web App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054086.jpg" />
+  <img src="Z:/picture/005/save_picture_1054086.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ Ui Kits - UI8 - TravelMate Travel Booking App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052532.jpg" />
+  <img src="Z:/picture/005/save_picture_1052532.jpg" />
 </div>
 
 
@@ -273,7 +327,7 @@ Ui Kits - UI8 - YamYam - Food Delivery App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052124.jpg" />
+  <img src="Z:/picture/005/save_picture_1052124.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ Ui Kits - UI8 -  Prompt AI - Premium AI App (MVP) [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051070.jpg" />
+  <img src="Z:/picture/005/save_picture_1051070.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ Ui Kits - UI8 - Auth Flow UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049696.jpg" />
+  <img src="Z:/picture/005/save_picture_1049696.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ Ui Kits - UI8 - Defyn - Web3 Wallet & DeFi App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049548.jpg" />
+  <img src="Z:/picture/005/save_picture_1049548.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996299.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905542.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901833.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892196.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884160.jpg" />
+  <img src="Z:/picture/005/save_picture_884160.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806888.jpg" />
+  <img src="Z:/picture/008/save_picture_806888.jpg" />
 </div>
 
 
@@ -547,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793129.jpg" />
+  <img src="Z:/picture/008/save_picture_793129.jpg" />
 </div>
 
 
@@ -573,7 +627,7 @@ WordPress plugin - Elementor PRO v2.9.4 [PHP, SVG, CSS, JS]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793113.jpg" />
+  <img src="Z:/picture/008/save_picture_793113.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738842.jpg" />
+  <img src="Z:/picture/008/save_picture_738842.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717137.jpg" />
+  <img src="Z:/picture/005/save_picture_717137.jpg" />
 </div>
 
 
@@ -636,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2F3C101AC9857F57BD2E3FCC16459132CDCA1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363100   (666283) от 17.03.2022
-
-Шаблоны сайта - RocketTheme - Premium Templates 2018-2019 Joomla 3.3-3.9 [PHP, HTML, CSS, JS]
-
->>След.
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666283.jpg" />
-</div>
-
-
-###  Подробнее
-
-106 премиум шаблонов от RocketTheme для Joomla 3.3-3.9. В комплекте: шаблон, исходники (не все), сайт на Joomla с шаблоном и отдельно Gantry Framework, на котором созданы шаблоны.
-Шаблоны для ознакомления, хоть это и покупные версии. Отсутствие скрытых ссылок не гарантирую, так же как и  последующее обновление шаблона или компонентов через Joomla. Посмотрели, протестировали, (   Читать дальше...   )Формат: PHP, HTML, CSS, JS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0D5E7CAA1F722345915866B9B47F7D68F20812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518899   (634509) от 07.07.2012
-
-Шаблоны сайта - YouJoomla - 34 Шаблона для Joomla 2.5
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная и популярная студия YouJoomla опубликовала пакеты обновлений с предустановленным быстрым стартом Joomla 2.5. Всего было подготовлено 34 шаблона.Разработчик: YouJoomla
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17669E752593FB5B8B0804B765F7429E190A31D
 ```
 
 https://mybot314.ru/tekegram_catalog/

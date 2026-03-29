@@ -6,7 +6,7 @@ TeraCopy Pro 3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863915.jpg" />
+  <img src="Z:/picture/008/save_picture_863915.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe components: Flash Player 24.0.0.221 + AIR 24.0.0.180 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863914.jpg" />
+  <img src="Z:/picture/008/save_picture_863914.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TidyTabs 1.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863908.jpg" />
+  <img src="Z:/picture/008/save_picture_863908.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NetBalancer 9.16.2 build 2295 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863895.jpg" />
+  <img src="Z:/picture/008/save_picture_863895.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4805.1001 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863842.jpg" />
+  <img src="Z:/picture/008/save_picture_863842.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Autodesk AutoCAD 2017 N.52.0.0 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863832.jpg" />
+  <img src="Z:/picture/008/save_picture_863832.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4805.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863831.jpg" />
+  <img src="Z:/picture/008/save_picture_863831.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CCleaner 5.16.5551 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863825.jpg" />
+  <img src="Z:/picture/008/save_picture_863825.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NETGATE Spy Emergency 24.0.300.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863801.jpg" />
+  <img src="Z:/picture/008/save_picture_863801.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AMD Radeon Software Crimson ReLive Edition 17.2.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863795.jpg" />
+  <img src="Z:/picture/008/save_picture_863795.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AV Uninstall Tools Pack 2017.02 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863794.jpg" />
+  <img src="Z:/picture/008/save_picture_863794.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NVIDIA GeForce Desktop 378.77 Hotfix driver + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863786.jpg" />
+  <img src="Z:/picture/008/save_picture_863786.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Pano2VR Pro 6.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863739.jpg" />
+  <img src="Z:/picture/008/save_picture_863739.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Loaris Trojan Remover 3.1.24.1455 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863738.jpg" />
+  <img src="Z:/picture/008/save_picture_863738.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ABViewer Enterprise 11.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863718.jpg" />
+  <img src="Z:/picture/008/save_picture_863718.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Cowboy MInstALL Western By StartSoft 12-2016 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863717.jpg" />
+  <img src="Z:/picture/008/save_picture_863717.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.70.3800 Final RePack (& p
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863694.jpg" />
+  <img src="Z:/picture/008/save_picture_863694.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ uTorrent 3.4.9 Build 43295 Stable Portable by A1eksandr1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863676.jpg" />
+  <img src="Z:/picture/008/save_picture_863676.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863612.jpg" />
+  <img src="Z:/picture/008/save_picture_863612.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ YTD Video Downloader PRO 5.9.17.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863606.jpg" />
+  <img src="Z:/picture/008/save_picture_863606.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ SMPlayer 20.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863597.jpg" />
+  <img src="Z:/picture/008/save_picture_863597.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Tipard Video Converter Ultimate 10.0.18 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863527.jpg" />
+  <img src="Z:/picture/008/save_picture_863527.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Topaz DeNoise AI 2.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863453.jpg" />
+  <img src="Z:/picture/008/save_picture_863453.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ IcoFX 3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863450.jpg" />
+  <img src="Z:/picture/008/save_picture_863450.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863447.jpg" />
+  <img src="Z:/picture/008/save_picture_863447.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Windows 10 Manager 3.2.5.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863443.jpg" />
+  <img src="Z:/picture/008/save_picture_863443.jpg" />
 </div>
 
 

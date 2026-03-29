@@ -1,3 +1,136 @@
+###  Публикация: 1694546   (120939) от 25.01.2024
+
+Author 9.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Author это - полный контроль над процессом авторства с помощью расширенной копии цитирования, расширенного глоссария, расширенных представлений, вырезок и многого другого.
+Когда вы будете готовы поделиться своей работой в формате PDF, вы получите автоматически созданный справочный раздел. Вы также можете публиковать сообщения в WordPress.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Augmented Text Company LTD, UKПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CA5FEC686D33C75D1BCF5151F7FC3FF1B2ECBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694568   (120934) от 25.01.2024
+
+OmniFocus Pro 3.15.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021CD078176199B892CAAFD650F5555B5A3B2E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694591   (120933) от 25.01.2024
+
+Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите поврежденные видеофайлы во всех ситуациях. Восстановите видеофайлы, которые невозможно воспроизвести по нескольким причинам в любой ситуации. Исправьте поврежденные видео из-за ошибок загрузки, переноса, ошибок редактирования, неправильных кодеков сжатия, испорченных записей и т. д. Независимо от того, каким образом ваше видео было повреждено, Tipard (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858BFD68DF60B04DDC61940055D626D32EBC9F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694575   (120930) от 25.01.2024
+
+MacLoggerDX 6.49 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120930.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacLoggerDX - выбор журнала радиостанций Mac Ham Radio в 148 странах....
+Организация и фильтрация роликов из вашего любимого DX-кластера для DX-инга, случайных контестов или жевания тряпок. MacLoggerDX поддерживает более сотни радиостанций, автоматически настраиваясь на интересующие вас места и поворачивая луч. Оповещение о редких контактах или открытиях диапазонов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2023Разработчик: ©1995-2024 Dog Park Software Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04A24B53515E2514654A7EE0F20FDB64537F803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694416   (120929) от 25.01.2024
+
+SQLPro for SQLite 2024.10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120929.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8F59C23FFDBFCA53161CD3F68A3940D8551BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694622   (120805) от 26.01.2024
 
 Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
@@ -6,7 +139,7 @@ Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120805.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Cheetah3D for Mac 8.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120791.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Tipard Screen Capture 1.1.26 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120773.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ AnyGo 7.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120640.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ EverWeb (Standalone) 4.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120638.jpg" />
 </div>
 
 
@@ -137,7 +270,7 @@ macOS Server 5.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120478.jpg" />
 </div>
 
 
@@ -163,7 +296,7 @@ Session for Mac 2.9.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120477.jpg" />
 </div>
 
 
@@ -189,7 +322,7 @@ Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120435.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ JetBrains Clion 2023.3.3 for Mac Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120368.jpg" />
 </div>
 
 
@@ -241,7 +374,7 @@ Canvas X Draw 7.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120332.jpg" />
 </div>
 
 
@@ -267,7 +400,7 @@ Typora for Mac 1.8.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120309.jpg" />
 </div>
 
 
@@ -293,7 +426,7 @@ OneCast for Mac 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120299.jpg" />
 </div>
 
 
@@ -319,7 +452,7 @@ eBookBinder 1.12.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120277.jpg" />
 </div>
 
 
@@ -345,7 +478,7 @@ Network Kit 9.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120274.jpg" />
 </div>
 
 
@@ -371,7 +504,7 @@ Hazel 5.3.2 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120263.jpg" />
 </div>
 
 
@@ -397,7 +530,7 @@ Amadine 1.5.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120252.jpg" />
 </div>
 
 
@@ -424,7 +557,7 @@ Keka 1.3.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120198.jpg" />
 </div>
 
 
@@ -450,7 +583,7 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120158.jpg" />
 </div>
 
 
@@ -476,7 +609,7 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120157.jpg" />
 </div>
 
 
@@ -502,7 +635,7 @@ HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120136.jpg" />
 </div>
 
 
@@ -529,7 +662,7 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120111.jpg" />
 </div>
 
 
@@ -540,138 +673,6 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695872   (120092) от 30.01.2024
-
-Amadeus Pro 2.8.13 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2024 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695668   (120087) от 30.01.2024
-
-Folder Hub for Mac 1.8.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder Hub — это инструмент повышения производительности для Mac, используемый для быстрого получения файлов в рабочем каталоге без открытия папок слой за слоем.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2024Разработчик: © 2024 Lessimore TeamПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E72B4B655F296431F6AEAF5F8D8B0EA64ED38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695839   (120086) от 30.01.2024
-
-AudFree Spotify Music Converter for Mac 2.11.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо продуманный музыкальный конвертер Spotify для загрузки более 70 миллионов песен, плейлистов, альбомов, подкастов из Spotify в MP3, FLAC, WAV, AAC для прослушивания в автономном режиме на всех устройствах и плеерах.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456C63B2445BDE116C0685F828D7DE5AC734BBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696056   (120055) от 31.01.2024
-
-ABBYY FineReader PDF for Mac 15.2.14 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120055.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBYY FineReader Pro для Mac – программа для распознавания текста, которая переводит изображения документов и любые типы PDF-файлов в электронные редактируемые форматы. Программа определяет и точно восстанавливает логическую структуру документа в его электронной копии, позволяя забыть о перепечатывании текстов.
-ABBYY FineReader Pro для Mac распознает документы на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 ABBYY Production LLC. OCR app.Поддерживаемая ОС: macOS X 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE36058C71B31E0E78E9526C995E98AD2CBEEB79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695879   (120028) от 31.01.2024
-
-Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект плагинов от компании Imagenomic
-Portraiture - незаменимый фильтр, который превратит ваше фото в гламурный снимок, позволит избежать трудоемкой процедуры попиксельного ретуширования снимка с целью удаления дефектов изображения. Благодаря реализованной в приложении технологии интеллектуального сглаживания, фотолюбители смогут бесследно удалять дефекты, не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2024Разработчик: © 2024 ImagenomicПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1EC7F4917198EEDA7EC838C361217CBC9E40B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

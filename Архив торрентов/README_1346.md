@@ -6,7 +6,7 @@ TinkerTool System 7 v7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749989.jpg" />
+  <img src="Z:/picture/008/save_picture_749989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Vivaldi 1.0.156.2 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749978.jpg" />
+  <img src="Z:/picture/008/save_picture_749978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinTools.net Premium 16.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749964.jpg" />
+  <img src="Z:/picture/005/save_picture_749964.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Screenpresso Pro 1.6.3.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749962.jpg" />
+  <img src="Z:/picture/008/save_picture_749962.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - 100 Disco Hits 90's (2016) [MP3|192-320 кб/с] <Pop, Dance, Europop, Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749955.jpg" />
+  <img src="Z:/picture/008/save_picture_749955.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Punto Switcher 4.2.5 Build 1238 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749950.jpg" />
+  <img src="Z:/picture/008/save_picture_749950.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749949.jpg" />
+  <img src="Z:/picture/008/save_picture_749949.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ AIMP 4.70 build 2222 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749936.jpg" />
+  <img src="Z:/picture/005/save_picture_749936.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749931.jpg" />
+  <img src="Z:/picture/008/save_picture_749931.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ XYplorer 19.60.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749926.jpg" />
+  <img src="Z:/picture/008/save_picture_749926.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ RarmaRadio Pro 2.72.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749915.jpg" />
+  <img src="Z:/picture/008/save_picture_749915.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ NTShare Photo Recovery 3.5.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749909.jpg" />
+  <img src="Z:/picture/008/save_picture_749909.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ uDock 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749908.jpg" />
+  <img src="Z:/picture/008/save_picture_749908.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Bootstrap Studio 5.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749906.jpg" />
+  <img src="Z:/picture/008/save_picture_749906.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ WiFiSpoof 3.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749902.jpg" />
+  <img src="Z:/picture/008/save_picture_749902.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Firefox Browser 91.5.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749899.jpg" />
+  <img src="Z:/picture/005/save_picture_749899.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ ScreenFlow 10 v10.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749898.jpg" />
+  <img src="Z:/picture/005/save_picture_749898.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Firefox Browser 96.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749897.jpg" />
+  <img src="Z:/picture/005/save_picture_749897.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749893.jpg" />
+  <img src="Z:/picture/008/save_picture_749893.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Cytomic The Drop 1.7.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749886.jpg" />
+  <img src="Z:/picture/008/save_picture_749886.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ ON1 Photo RAW 2022.1 v16.1.0.11675 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749884.jpg" />
+  <img src="Z:/picture/008/save_picture_749884.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ K-Lite Codec Pack Update 16.7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749882.jpg" />
+  <img src="Z:/picture/008/save_picture_749882.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Cinemagraph Pro 1.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749879.jpg" />
+  <img src="Z:/picture/008/save_picture_749879.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PDF24 Creator 7.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749867.jpg" />
+  <img src="Z:/picture/008/save_picture_749867.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Icecream Ebook Reader PRO 4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749858.jpg" />
+  <img src="Z:/picture/008/save_picture_749858.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Elmedia Player PRO 6.5.2 (912) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749855.jpg" />
+  <img src="Z:/picture/008/save_picture_749855.jpg" />
 </div>
 
 

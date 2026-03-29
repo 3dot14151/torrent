@@ -6,7 +6,7 @@ Living Legends Remastered 3: Wrath of the Beast (2022) [En] (1.0) Unofficial [Co
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533551.jpg" />
+  <img src="Z:/picture/008/save_picture_533551.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533076.jpg" />
+  <img src="Z:/picture/008/save_picture_533076.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mystery Trackers 9 : Winterpoint Tragedy (2015) [En] Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531492.jpg" />
+  <img src="Z:/picture/008/save_picture_531492.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Witches' Legacy 10: Covered By The Night / Наследие ведьм 10: Ск�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531349.jpg" />
+  <img src="Z:/picture/008/save_picture_531349.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Witches' Legacy 9: The City That Isn't There / Наследие ведьм 9: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531232.jpg" />
+  <img src="Z:/picture/008/save_picture_531232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Top Secret Finders / Архив Секретных Агентов (P) [Ru] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530487.jpg" />
+  <img src="Z:/picture/008/save_picture_530487.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Vampire Legends 3: The Count of New Orleans / Легенды о вампирах
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530321.jpg" />
+  <img src="Z:/picture/008/save_picture_530321.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Proteus (2013) [En] (1.1.2) Repack Табличка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530112.jpg" />
+  <img src="Z:/picture/008/save_picture_530112.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/u6) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530087.jpg" />
+  <img src="Z:/picture/008/save_picture_530087.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Dark Dimensions 6: Shadow Pirouette / Темные измерения 6: Пир�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529677.jpg" />
+  <img src="Z:/picture/008/save_picture_529677.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Dark Parables 11: The Swan Princess And The Dire Tree / Темные Притч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528836.jpg" />
+  <img src="Z:/picture/008/save_picture_528836.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Трон Ть
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528058.jpg" />
+  <img src="Z:/picture/008/save_picture_528058.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Uncharted Tides: Port Royal (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528038.jpg" />
+  <img src="Z:/picture/008/save_picture_528038.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Skyhill (2015) [Ru/Multi] (1.1.19) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527694.jpg" />
+  <img src="Z:/picture/008/save_picture_527694.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ City Legends 2: Trapped in Mirror (2022) [En] (1.0) Unofficial [Colleсtors's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527061.jpg" />
+  <img src="Z:/picture/008/save_picture_527061.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ The Cursed Island: Mask of Baragus / Проклятый Остров: Маска
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526955.jpg" />
+  <img src="Z:/picture/008/save_picture_526955.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Myths of the World 11: The Black Sun / Мифы народов мира 11: Че
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526348.jpg" />
+  <img src="Z:/picture/008/save_picture_526348.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Vermillion Watch 3. Order Zero (2017) [En] (1.0) Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525877.jpg" />
+  <img src="Z:/picture/008/save_picture_525877.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Dark Tales 11: Edgar Allan Poe's Lenore [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525870.jpg" />
+  <img src="Z:/picture/008/save_picture_525870.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Grim Tales 13: The White Lady (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525866.jpg" />
+  <img src="Z:/picture/008/save_picture_525866.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Myth Seekers: The Legacy of Vulcan / Искатели мифов: Насле
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525469.jpg" />
+  <img src="Z:/picture/008/save_picture_525469.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sea of Lies 5: Beneath the Surface / Море лжи 5: Тайны глубин 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525168.jpg" />
+  <img src="Z:/picture/008/save_picture_525168.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Queen's Quest 2: Stories of Forgotten Past / Королевский квест 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525156.jpg" />
+  <img src="Z:/picture/008/save_picture_525156.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Nevertales 6. Forgotten Pages (2017) [En] (1.0) Unofficial [Collector's Edition 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524764.jpg" />
+  <img src="Z:/picture/008/save_picture_524764.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Off the Record 4: Liberty Stone / Не для печати 4: Камень св�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524727.jpg" />
+  <img src="Z:/picture/008/save_picture_524727.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Maze 3: Nightmare Realm (2017) [En] (1.0) Unofficial [Collector's Edition / Ко
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524718.jpg" />
+  <img src="Z:/picture/008/save_picture_524718.jpg" />
 </div>
 
 

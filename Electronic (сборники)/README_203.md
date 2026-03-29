@@ -1,3 +1,61 @@
+###  Публикация: 1271473   (150180) от 23.12.2018
+
+VA - Chill Winter Relaxed (2018) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoundLift - Emperor Of China (Original Mix) 7:36
+02. The Swan & The Lake feat. Emil De Waal & Johan Liepstack - Portofino 7:21
+03. Steve Brian - Kyoto (Steve Brian Ocean Influence Mix) 5:21
+04. Moonnight - Love Is The Key (Original Mix) 4:32(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, Orchestral, Cinematic, Acoustic, AmbientПродолжительность: 02:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDB58E64B421DB480E38FECDCE1C30DD802FFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271464   (150014) от 23.12.2018
+
+VA - Tranceformation 2018 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+02. Rene Ablaze & Tiff Lacey - Tonight
+03. FloE & Alex Byrka - Intuition (Extended Mix)
+04. HyperPhysics - Starlight (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 13:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3C7CC2F9E1EE7420CDC854240570142562012F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968696   (149762) от 25.12.2015
 
 VA - Корпоратив 2016 (mixed by Dj V) (2015) [MP3|320 кб/с] <Club House, Disco House, Dance, Deep House>
@@ -6,7 +64,7 @@ VA - Корпоратив 2016 (mixed by Dj V) (2015) [MP3|320 кб/с] <Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149762.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Options Remake Of Tracks December -B- (2018) [MP3|320 Kbps] <Electronic, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149745.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Euphoric Emotions 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149410.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ VA - Корпоратив 2021 (mixed by Dj V) (2020) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148963.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Greatest Drum Sounds (2019) [MP3|320 Kbps] <Drum And Bass, Bassline>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148855.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ VA - Beats Drum Jungle (2018) [MP3|320 Kbps] <Jungle, Drum and Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148803.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ VA - Panorama Electro Sound (2019) [MP3|320 Kbps] <Synthwave, Electronic, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148759.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Electronic Cosmic Party (2019) [MP3|320 Kbps] <Electronic, Synthwave, Synth
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148708.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148688.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148684.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - EDM Friday Party (2021) [MP3|320 Kbps] <EDM, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148651.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Friday Night: EDM Dance Party (2021) [MP3|320 Kbps] <Dance, Electro, Club, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148640.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Deep House: Soft Session (2021) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148628.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Urban Dance Party: Clubbing Electro House (2021) [MP3|320 Kbps] <Club, Danc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148580.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - SVS Collection vol. 8 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148410.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147799.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147715.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - HarDD NRG OverDoZZe 3 (2021) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147083.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147031.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147016.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Cool Chillout: Smooth Lounge Music Served for a Chilled Winter Season (2012
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146322.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ VA - Privileged Euro Trance: December Party (2015) [MP3|320 кб/с] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145873.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ VA - Chill Session 2016 (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145868.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ VA - Trance In Motion Vol.367 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145619.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ VA - Trance In Motion Vol.367 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:453FCD2E4577DD27C29737DA704D670ABB25B988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678294   (145547) от 21.11.2023
-
-VA - Trance In Motion Vol.368 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synthasia - Lumi (Original Mix)
-02. Nebula - 1999 (Extended Mix)
-03. Angelus - Sanctuary (Extended Mix)
-04. Vinny DeGeorge - Meaning Of Life (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940D46A13CC389BA1C84B639835318BF18E3C7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348051   (145466) от 26.12.2019
-
-VA - Корпоратив 2020 (mixed by Dj V) (2019) [MP3|320 Kbps] <Club House, Disco House, Dance, Pop, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145466.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Preparty
-Продолжительность: 01:00:24
-
-01-Neytram - Last Christmas (V.I.P Edit)(   Читать дальше...   )Жанр: Club House, Disco House, Dance, Pop, Deep HouseПродолжительность: 03:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3450F9EA985C8584A797BA9C7DB5581B3C680C
 ```
 
 https://mybot314.ru/tekegram_catalog/

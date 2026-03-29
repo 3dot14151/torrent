@@ -1,3 +1,61 @@
+###  Публикация: 965282   (226367) от 14.12.2015
+
+VA - Extra House: Bonus [04] (2015) [MP3|320 кб/с] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matte Blac - Back For (Original Mix) (04:13)
+02. Chopstick & Johnjon feat. Slow Hands - Catamount (Original Mix) (08:12)
+03. Whilk & Misky - Clap Your Hands (Original Mix) (09:38)
+04. Kapote - Fuck Music (Session Victim Remix) (06:57)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252724B5406A3349DA000EF814A14BF60AAE2296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342241   (226052) от 01.12.2019
+
+VA - Beatport Trance Pack #02 (2019) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226052.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Laura May - Devil With Yellow Eyes
+002. Life Extension - Overthrow (Original Mix)
+003. Oneworld - Isla Blanca (Original Mix)
+004. Mr. Greidor - Rescued In A Storm(   Читать дальше...   )Жанр: TranceПродолжительность: 13:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABCC33E9347BEFF4396E63B54E6E55CE43679AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342232   (225594) от 01.12.2019
 
 VA - Лучшие Trance треки Ver.11: Classic Vocal Trance (2019) Special Edition [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Лучшие Trance треки Ver.11: Classic Vocal Trance (2019) Special 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225594.jpg" />
+  <img src="Z:/picture/005/save_picture_225594.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Beatport Trance Pack (2019) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225578.jpg" />
+  <img src="Z:/picture/005/save_picture_225578.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 60 Minutes. Old School Dance Music vol.12 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225220.jpg" />
+  <img src="Z:/picture/005/save_picture_225220.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Tropical Party: Ambient Chill House (2019) [MP3|320 Kbps] <Cillout, Amb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225094.jpg" />
+  <img src="Z:/picture/005/save_picture_225094.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Juno Download Deep House Best Of 2015 (2015) [MP3|320 кб/с] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224623.jpg" />
+  <img src="Z:/picture/005/save_picture_224623.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Chillout Session Erotic Edition (2015) [MP3|320 кб/с] <Downtempo, Chillo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224591.jpg" />
+  <img src="Z:/picture/005/save_picture_224591.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Music for Relax Lounge Arena Vol 2 (2015) [MP3|320 кб/с] <Downtempo, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224527.jpg" />
+  <img src="Z:/picture/005/save_picture_224527.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - In Da Club 2012 (New Year's Eve Special) (2012) [MP3|320 кб/с]<Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224432.jpg" />
+  <img src="Z:/picture/005/save_picture_224432.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ VA - Tried Everything: Dance Mixtape (2019) [MP3|320 Kbps] <House, Trance, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224385.jpg" />
+  <img src="Z:/picture/005/save_picture_224385.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - Modern House Audio Samples (2015) [MP3|242-320 кб/с] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224222.jpg" />
+  <img src="Z:/picture/005/save_picture_224222.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Melodic Lines Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224200.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Abstrct Vision: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224173.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ VA - Hedkandi Dance House (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224165.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224156.jpg" />
+  <img src="Z:/picture/005/save_picture_224156.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224152.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Da
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224143.jpg" />
+  <img src="Z:/picture/005/save_picture_224143.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ VA - Club EDM Mysterious (Vol. 01) (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224086.jpg" />
+  <img src="Z:/picture/005/save_picture_224086.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ VA - Club EDM Mysterious (Vol.02) (2019) [MP3|320 Kbps] <Dance, Electro, Club, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224066.jpg" />
+  <img src="Z:/picture/005/save_picture_224066.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - Chill Music In The House (2019) [MP3|320 Kbps] <Chillout, Chill House, Ambi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224042.jpg" />
+  <img src="Z:/picture/005/save_picture_224042.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Hypervolt: Essential Techno Electro Mix (2019) [MP3|320 Kbps] <Techno, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224017.jpg" />
+  <img src="Z:/picture/005/save_picture_224017.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ VA - Record Super Chart 27.11.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223653.jpg" />
+  <img src="Z:/picture/005/save_picture_223653.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ VA - Deep House Collection Vol.192 (2018) [MP3|320 Kbps] <House, Deep House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223626.jpg" />
+  <img src="Z:/picture/005/save_picture_223626.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - Dissolution: Deep Space Electronic (2018) [MP3|320 Kbps] <Synthetic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223310.jpg" />
+  <img src="Z:/picture/005/save_picture_223310.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Interlude Music For Comfort (2018) [MP3|320 Kbps] <Chillout, Lounge, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223304.jpg" />
+  <img src="Z:/picture/005/save_picture_223304.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Interlude Music For Comfort (2018) [MP3|320 Kbps] <Chillout, Lounge, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D573F678B9A20B7547636D8F1F61C0C04259BB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965929   (222815) от 16.12.2015
-
-VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasper Jones - I Want to Meet You Again - Original Mix
-02. Nat Wood - Te Quiero Mi Vida - Original Mix
-03. Frederic Flores - Groove Therapy - Original Mix
-04. James Wilson - Reggae Morning - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BBA0A94632A906EBA77A3D19BE7C39BC48DA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965981   (222805) от 16.12.2015
-
-VA - Soothing Music Finest in Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Florea - Garden of Balance
-02. Relaxea - Into the Blue
-03. Oscar Salguero - We Have to Go Back
-04. M. Vitoria - Shakra Naom(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DF882E346D155DD8C59A5919BC0D3F25FCECBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

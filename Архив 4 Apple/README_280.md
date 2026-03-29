@@ -1,3 +1,86 @@
+###  Публикация: 1534913   (690616) от 04.03.2022
+
+Fix My iPhone 2.0.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
+• Зависший на логотипе Apple
+• Черный / зависший экран
+• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AF8298B9F4BBCED79EE1CCEE115C52933FE1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028377   (690543) от 22.06.2016
+
+TG Pro (Temperature Gauge Pro) 2.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690543.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июня 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF88EC0C954CEA799BFE53AC412888AA5269387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028322   (690542) от 22.06.2016
+
+Remotix VNC & RDP 4.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
+Туннелирование SSH, VNC и RDP. Синхронизация буфера обмена: картинки, RTF, HTML. Удаленный доступ к Mac OS X, Windows и Linux. Не нужна установка ПО на удаленный компьютер. Поддержка Apple Screen Sharing, RDP и VNC. Доступ к Мак через интернет через Back to My Mac. Передача (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июня 2016Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065F3B321C574C8589744DF5AA43801943A0FEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288939   (690395) от 14.03.2019
 
 Vectoraster 7 v7.3.7 [En]
@@ -6,7 +89,7 @@ Vectoraster 7 v7.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690395.jpg" />
+  <img src="Z:/picture/008/save_picture_690395.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ Music Collector 19.01 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690394.jpg" />
+  <img src="Z:/picture/008/save_picture_690394.jpg" />
 </div>
 
 
@@ -52,6 +135,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289039   (690391) от 14.03.2019
+
+Wondershare AllMyTube 7.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_690391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare AllMyTube - полнофункциональное приложение, являющееся профессиональным загрузчиком онлайн-видео и мощным видеоконвертером, которое позволяет скачивать видео с видеосервисов, таких как YouTube, Facebook, Metacafe, Vimeo и т.п., и конвертировать скачанные видео почти во все популярные видеоформаты. Кроме того, AllMyTube для Mac является видеоплееером и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4954EAD1ADE963E2327EA4C7D971F10991BCE971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288980   (690381) от 14.03.2019
 
 oneSafe 2.2.5 [Multi/Ru]
@@ -60,7 +169,7 @@ oneSafe 2.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690381.jpg" />
+  <img src="Z:/picture/008/save_picture_690381.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ Calendar 366 II v2.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690376.jpg" />
+  <img src="Z:/picture/008/save_picture_690376.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ DaVinci Resolve Studio 12.5 + easyDCP CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690260.jpg" />
+  <img src="Z:/picture/008/save_picture_690260.jpg" />
 </div>
 
 
@@ -144,7 +253,7 @@ iClock Pro 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690071.jpg" />
+  <img src="Z:/picture/008/save_picture_690071.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690065.jpg" />
+  <img src="Z:/picture/008/save_picture_690065.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Book Collector 19.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689699.jpg" />
+  <img src="Z:/picture/008/save_picture_689699.jpg" />
 </div>
 
 
@@ -222,7 +331,7 @@ ExactScan Pro 17.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689568.jpg" />
+  <img src="Z:/picture/008/save_picture_689568.jpg" />
 </div>
 
 
@@ -248,7 +357,7 @@ Moom 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689567.jpg" />
+  <img src="Z:/picture/008/save_picture_689567.jpg" />
 </div>
 
 
@@ -275,7 +384,7 @@ KCNcrew Pack 05-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689458.jpg" />
+  <img src="Z:/picture/008/save_picture_689458.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ Hazel 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689456.jpg" />
+  <img src="Z:/picture/008/save_picture_689456.jpg" />
 </div>
 
 
@@ -329,7 +438,7 @@ Clearview 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689454.jpg" />
+  <img src="Z:/picture/008/save_picture_689454.jpg" />
 </div>
 
 
@@ -356,7 +465,7 @@ Downie 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689453.jpg" />
+  <img src="Z:/picture/008/save_picture_689453.jpg" />
 </div>
 
 
@@ -384,7 +493,7 @@ Airmail 3.2.7 [Multi.Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689450.jpg" />
+  <img src="Z:/picture/008/save_picture_689450.jpg" />
 </div>
 
 
@@ -412,7 +521,7 @@ Airmail 3 v3.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689429.jpg" />
+  <img src="Z:/picture/008/save_picture_689429.jpg" />
 </div>
 
 
@@ -440,7 +549,7 @@ OCRKit Pro 17.5.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689379.jpg" />
+  <img src="Z:/picture/008/save_picture_689379.jpg" />
 </div>
 
 
@@ -468,7 +577,7 @@ Moom 3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689235.jpg" />
+  <img src="Z:/picture/008/save_picture_689235.jpg" />
 </div>
 
 
@@ -495,7 +604,7 @@ IconJar 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689223.jpg" />
+  <img src="Z:/picture/008/save_picture_689223.jpg" />
 </div>
 
 
@@ -524,7 +633,7 @@ Guns, Gore and Cannoli 2 v1.0.1 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689174.jpg" />
+  <img src="Z:/picture/008/save_picture_689174.jpg" />
 </div>
 
 
@@ -551,7 +660,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689087.jpg" />
+  <img src="Z:/picture/008/save_picture_689087.jpg" />
 </div>
 
 
@@ -579,7 +688,7 @@ Carbon Copy Cloner 5.1 (5389) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689055.jpg" />
+  <img src="Z:/picture/008/save_picture_689055.jpg" />
 </div>
 
 
@@ -593,117 +702,6 @@ Carbon Copy Cloner - утилита для клонирования дисков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BA5C73C9431DEC053CD1299F998814A3529726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134383   (688880) от 15.05.2017
-
-Movavi Video Editor 4 v4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор видео для Mac OS от Movavi
-Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий.
-
-Просто загрузите фото и видео в программу, исправьте качество одним (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2017Разработчик: MovaviПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1DD84FD14FB1EAAD0C0FC85873C3A95097EB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028696   (688863) от 23.06.2016
-
-iA Writer 3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688863.jpg" />
-</div>
-
-
-###  Подробнее
-
-iA Writer — фон, шрифт и курсор
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июня 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B39F1E9764126BD5654704443093FC34EC53A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221931   (688826) от 27.04.2018
-
-iSkysoft iMedia Converter Deluxe 10.0.6.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактируйте, конвертируйте, скачивайте, записывайте и конечно же просматривайте видео на вашем iPhone, iPad и iPod. iSkysoft iMedia Converter Deluxe воспроизводит, редактирует, записывает и изменяет любые видео файлы без потери качества.
-
- Он обеспечивает удобный интерфейс и функции, и вам не нужно беспокоиться о потере качества во время процесса конверсии. Кроме (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: iSkysoft StudioПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC67CA004E631E3DDBE61A695C01DB9C6B677DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535071   (688697) от 05.03.2022
-
-Scrutiny 10 v10.4.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2022Разработчик: © 2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D813035BE8AA7AD918674BDF7C4AC8F51E11A18
 ```
 
 https://mybot314.ru/tekegram_catalog/

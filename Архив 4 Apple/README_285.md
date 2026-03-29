@@ -1,3 +1,114 @@
+###  Публикация: 1135860   (678733) от 20.05.2017
+
+TechTool Pro 9.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678733.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechTool Pro — диагностику заказывали?
+Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832E4A845198A11661EEA213D3AA9BDBE7D756C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135741   (678594) от 20.05.2017
+
+LRTimelapse Pro 4.7.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678594.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 мая 2017Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E5F42379BA2EB98863FC7E3B40573559A28F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290483   (678365) от 20.03.2019
+
+IconFly 3.8.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678365.jpg" />
+</div>
+
+
+###  Подробнее
+
+IconFly позволяет легко создавать иконки в различных форматах для приложений Mac, iPhone, IPad и Apple Watch. Кроме того, IconFly позволяет создавать иконки для Android-приложений, а также веб-иконки и значки. IconFly активно поддерживается и постоянно обновляется.
+
+IconFly проста в использовании. Просто перетащите изображение в приложение, нажмите кнопку Создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Aperio Lux TeamПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C5D2167F8A65593421378FFC4AAA6E7858B8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290475   (678353) от 20.03.2019
+
+Duplicate Photos Fixer Pro 2.11 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2019Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6ED69559AA8C4C64A1BA7799C723634A6C3D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029954   (678333) от 28.06.2016
 
 Script Debugger 6.0 (6A169) [En]
@@ -6,7 +117,7 @@ Script Debugger 6.0 (6A169) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678333.jpg" />
+  <img src="Z:/picture/008/save_picture_678333.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ Dash 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678330.jpg" />
+  <img src="Z:/picture/008/save_picture_678330.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Fantastical 2 - Calendar and Reminders 2.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678326.jpg" />
+  <img src="Z:/picture/008/save_picture_678326.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ AirMagic 1.0.0.7094 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678235.jpg" />
+  <img src="Z:/picture/008/save_picture_678235.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ Things 3.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678220.jpg" />
+  <img src="Z:/picture/008/save_picture_678220.jpg" />
 </div>
 
 
@@ -141,7 +252,7 @@ SSDReporter 1.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678178.jpg" />
+  <img src="Z:/picture/008/save_picture_678178.jpg" />
 </div>
 
 
@@ -170,7 +281,7 @@ TechTool Pro 8.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678175.jpg" />
+  <img src="Z:/picture/008/save_picture_678175.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ Movavi Photo Manager 1.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678163.jpg" />
+  <img src="Z:/picture/008/save_picture_678163.jpg" />
 </div>
 
 
@@ -223,7 +334,7 @@ Wondershare Filmora 9.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678158.jpg" />
+  <img src="Z:/picture/008/save_picture_678158.jpg" />
 </div>
 
 
@@ -249,7 +360,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678096.jpg" />
+  <img src="Z:/picture/008/save_picture_678096.jpg" />
 </div>
 
 
@@ -277,7 +388,7 @@ TechSmith Snagit 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678091.jpg" />
+  <img src="Z:/picture/008/save_picture_678091.jpg" />
 </div>
 
 
@@ -304,7 +415,7 @@ XMind 7 Pro 3.6.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677760.jpg" />
+  <img src="Z:/picture/008/save_picture_677760.jpg" />
 </div>
 
 
@@ -330,7 +441,7 @@ Serial Box 05-2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677405.jpg" />
+  <img src="Z:/picture/008/save_picture_677405.jpg" />
 </div>
 
 
@@ -359,7 +470,7 @@ Money Pro 1.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677296.jpg" />
+  <img src="Z:/picture/008/save_picture_677296.jpg" />
 </div>
 
 
@@ -387,7 +498,7 @@ Carbon Copy Cloner 4.1.15 (4548) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676999.jpg" />
+  <img src="Z:/picture/008/save_picture_676999.jpg" />
 </div>
 
 
@@ -416,7 +527,7 @@ Deckset 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676990.jpg" />
+  <img src="Z:/picture/008/save_picture_676990.jpg" />
 </div>
 
 
@@ -444,7 +555,7 @@ Wondershare PDFelement 6 Pro 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676987.jpg" />
+  <img src="Z:/picture/008/save_picture_676987.jpg" />
 </div>
 
 
@@ -470,7 +581,7 @@ Total War: WARHAMMER  [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676866.jpg" />
+  <img src="Z:/picture/008/save_picture_676866.jpg" />
 </div>
 
 
@@ -498,7 +609,7 @@ HDRsoft Photomatix Pro 6.0a [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676839.jpg" />
+  <img src="Z:/picture/008/save_picture_676839.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ A Better Finder Rename 10.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676587.jpg" />
+  <img src="Z:/picture/008/save_picture_676587.jpg" />
 </div>
 
 
@@ -553,7 +664,7 @@ VideoboxPro 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676582.jpg" />
+  <img src="Z:/picture/008/save_picture_676582.jpg" />
 </div>
 
 
@@ -581,7 +692,7 @@ Boinx FotoMagico 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676532.jpg" />
+  <img src="Z:/picture/008/save_picture_676532.jpg" />
 </div>
 
 
@@ -593,116 +704,6 @@ FotoMagico – популярный пакет для создания слай�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111B5EFE509118051A4646175D7BEFC8D6F6F4B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136099   (676346) от 21.05.2017
-
-Adobe Audition CC 2017.1.1 (10.1.1) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: май 2017Разработчик: AdobeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680619E84B5E346E47DE4D2EC74C992BEF803CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290724   (676330) от 21.03.2019
-
-Principle 5 v5.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Principle - инструмент для прототипирования
-Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 20.03.2019Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423812AD770BC62DEEED87773764D1732CFE65D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290469   (676329) от 21.03.2019
-
-MediaHuman YouTube Downloader 3.9.9.13 (1803) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676329.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-● Закачка нескольких файлов одновременно
-● Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: MediaHumanПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8D747E14C81055E5C6BD0CF8A780E7C84F55A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290672   (676325) от 21.03.2019
-
-Blocs 3.2.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.02.2019Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8B65F2798ACBE3D62BE53FF143F0C536479BAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

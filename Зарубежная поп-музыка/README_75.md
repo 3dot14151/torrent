@@ -1,3 +1,32 @@
+###  Публикация: 1616238   (206124) от 01.03.2023
+
+VA - Romantic Collection Vol.7 (2001) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse Family - High
+02. Sweetbox - Everything's Gonna Be Alright
+03. Kool & The Gang - Cherish
+04. Eric Clapton - Circus 432 Hz(   Читать дальше...   )Жанр: Electronic, Hip Hop, RockПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813F98FC3D19365D7DAA6005F304D419F216EB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616623   (205967) от 03.03.2023
 
 VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Blues>
@@ -6,7 +35,7 @@ VA - Romantic Collection. Golden Woman Voices (2000) [OGG Vorbis|480 Kbps] <Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205967.jpg" />
+  <img src="Z:/picture/005/save_picture_205967.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Zumbadance Workout (2023) [MP3|320 Kbps] <Pop, Latin, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205475.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203007.jpg" />
+  <img src="Z:/picture/004/save_picture_203007.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202656.jpg" />
+  <img src="Z:/picture/004/save_picture_202656.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Toto Cutugno (Тото Кутуньо) [Сборник] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202264.jpg" />
+  <img src="Z:/picture/004/save_picture_202264.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ VA - NRJ Hit List (2023) [MP3|320 Kbps] <Europop, Synthpop, Dancehall, Afrobeat>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201372.jpg" />
+  <img src="Z:/picture/005/save_picture_201372.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Ace of Base - Beautiful Life - The Singles Box (2023) [MP3|320 Kbps] <Eurodance,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198997.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ VA - The Hits Album - 80s Dance (2023) Box Set [MP3|320 Kbps] <Pop, Dance, Other
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198157.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Modern Talking - Original 80's (2014) 3CD [MP3|320 Kbps] <Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195034.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192942.jpg" />
+  <img src="Z:/picture/004/save_picture_192942.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192929.jpg" />
+  <img src="Z:/picture/004/save_picture_192929.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, S
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192920.jpg" />
+  <img src="Z:/picture/004/save_picture_192920.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Riccardo Fogli - Predestinato (Metalmeccanico) (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192618.jpg" />
+  <img src="Z:/picture/004/save_picture_192618.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192375.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192307.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Jamiroquai - Party Songs (2005) [MP3|320 Kbps] <Acid-Jazz, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191599.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ VA - 100 Greatest Summer Songs (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191534.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Master Genius - The Album (1984) LP [MP3|320 Kbps] <Electronic, Hip Hop, Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190338.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188244.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188210.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ VA - NRJ Music Awards 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187865.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187799.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186793.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Various - Greatest Hits Of The 90's (2004) 8 CD Box [OGG Vorbis|480 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185214.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185108.jpg" />
+  <img src="Z:/picture/004/save_picture_185108.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CFA821C574BD18EF199D8B963AFDFBA39F2CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592340   (184326) от 21.11.2022
-
-Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ола Хоканссон - шведский певец, композитор и продюсер. В раздаче представлены альбомы предшествующие появлению всем известной в мире группы Secret Service, где Ола вместе со своим постоянным ударником Leif Johansson участвовали в трех проектах с его узнаваемым исполнением. Последний был полным составом скоро переименован в Secret ServiceСписок альбомов:
-1976 - Ola & Janglers - Jet Leg
-1976 - Ola Hakansson, Frukt & Flingor - O.F.F.
-1979 - Ola+3 - Det Kanns Som Jag Vandrar Fram(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 01:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

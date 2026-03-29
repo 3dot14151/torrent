@@ -1,3 +1,179 @@
+###  Публикация: 950814   (365072) от 28.10.2015
+
+VA - Осенний марафон № 200 / Видеоклипы (Презент Хитовой Двухсоточки) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (27.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.
+Представляю юбилейный, двухсотый сборник популярной музыки для хорошего настроения.01. 5 Seconds of Summer - Hey Everybody! (Official Video) (00:04:03)
+02. Alex Sparrow - She's Crazy But She's Mine (ПРЕМЬЕРА!) (00:04:18)
+03. Armin van Buuren ft. Cimo Fränkel - Strong Ones (Official Video) (00:03:29)
+04. BT and Senadee ft. Dragon and Jontron - Lifeline (Official Video) (00:03:58)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Dubstep, Soul, Relax, Chill OutПродолжительность: 01:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494605E8979914BC467E07C9408CC893DC2343E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950661   (365066) от 28.10.2015
+
+Adele - Hello (2015) WEBRip[H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое видео британской певицы Adele на песню  "Hello"Жанр: поп-джаз/соул, блюз.Продолжительность: 00:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BCBC5EAA027C23913EAC3EE30F6C45A5117598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254000   (364001) от 04.11.2010
+
+Yanni Live! The Concert Event (2006) HDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждому меломану знакомо чувство насыщения музыкой, которая есть у него, и хочется чего-то не просто нового, а потрясающе нового, открытия новых имен, новых музыкальных идей. Если вам знакомо это чувство, вы должны быть очарованы музыкой Янни. Янни поистине великий мультиинструменалист. Родившись в Греции он стал известен во всем мире благодаря потрясающим (   Читать дальше...   )01. Creating
+02. Standing in Motion
+03. Rainmaker
+04. Keys to Imagination(   Читать дальше...   )Жанр: Концерт, New AgeПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6458B35336DEE43C2153047B9EE86B25FD578C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154155   (363685) от 22.11.2009
+
+Сурганова и Оркестр - Программа "Весь этот рок" [2009 г., Rock, SATRip]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_363685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Весь этот рок": Сурганова и оркестр
+Запись с телеканала "Парк Развлечений" 15.11.09 .Жанр: Концерт, VIP-Punk-Decadence, интервьюРежиссер: Ольга МихешкинаПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575922   (363572) от 17.11.2012
+
+Осмондс / The Osmonds - Live 72 (1972) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы помните эту семейку? Для всех поклонников The Osmonds! (Для немного ностальгирующих...)01. One Bad Apple
+02. Yo Yo
+03. Hold Her Tight
+04. Meet The Osmonds
+05. Too Young
+06. Sweet & Innocent
+07. Why
+08. Crazy Horses
+09. Puppy Love
+10. Down By The Lazy River(   Читать дальше...   )Жанр: Музыка, Pop-RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1F60E4278BA846F1BB1C4F43B4F87B48589DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255406   (363460) от 18.10.2018
+
+Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_363460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).1. Rammstein
+2. Herzeleid
+3. Bestrafe mich (demo)
+4. Der Meister(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEBB49EC17C870262B58F629230786D2590C8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328499   (363376) от 30.09.2019
 
 Квартирник НТВ у Маргулиса. Группа Мегаполис (28.09.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +182,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363376.jpg" />
+  <img src="Z:/picture/008/save_picture_363376.jpg" />
 </div>
 
 
@@ -33,7 +209,7 @@ Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363138.jpg" />
+  <img src="Z:/picture/008/save_picture_363138.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ Mike Oldfield - Tubular Bells III Live (1998) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363077.jpg" />
+  <img src="Z:/picture/008/save_picture_363077.jpg" />
 </div>
 
 
@@ -93,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362730.jpg" />
+  <img src="Z:/picture/008/save_picture_362730.jpg" />
 </div>
 
 
@@ -119,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361742.jpg" />
+  <img src="Z:/picture/008/save_picture_361742.jpg" />
 </div>
 
 
@@ -148,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361270.jpg" />
+  <img src="Z:/picture/008/save_picture_361270.jpg" />
 </div>
 
 
@@ -177,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360913.jpg" />
+  <img src="Z:/picture/008/save_picture_360913.jpg" />
 </div>
 
 
@@ -203,7 +379,7 @@ The best of Zero project (2017) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360351.jpg" />
+  <img src="Z:/picture/008/save_picture_360351.jpg" />
 </div>
 
 
@@ -232,7 +408,7 @@ Epica - Abyss of Time - Countdown to Singularity (2020) WEB-DL [VP9/2160p-LQ] <S
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360212.jpg" />
+  <img src="Z:/picture/008/save_picture_360212.jpg" />
 </div>
 
 
@@ -258,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_359780.jpg" />
+  <img src="Z:/picture/005/save_picture_359780.jpg" />
 </div>
 
 
@@ -287,7 +463,7 @@ Slipknot - Rock am Ring (2009) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359586.jpg" />
+  <img src="Z:/picture/008/save_picture_359586.jpg" />
 </div>
 
 
@@ -316,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359213.jpg" />
+  <img src="Z:/picture/008/save_picture_359213.jpg" />
 </div>
 
 
@@ -342,7 +518,7 @@ Alisher - Компромат (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358725.jpg" />
+  <img src="Z:/picture/008/save_picture_358725.jpg" />
 </div>
 
 
@@ -368,7 +544,7 @@ Usher - Numb (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358722.jpg" />
+  <img src="Z:/picture/008/save_picture_358722.jpg" />
 </div>
 
 
@@ -394,7 +570,7 @@ Usher - Dive (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358716.jpg" />
+  <img src="Z:/picture/008/save_picture_358716.jpg" />
 </div>
 
 
@@ -420,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358546.jpg" />
+  <img src="Z:/picture/008/save_picture_358546.jpg" />
 </div>
 
 
@@ -446,7 +622,7 @@ Ludacris - Representin (Explicit) ft. Kelly Rowland (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358544.jpg" />
+  <img src="Z:/picture/008/save_picture_358544.jpg" />
 </div>
 
 
@@ -472,7 +648,7 @@ Ludacris - Rest Of My Life ft. Usher, David Guetta (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358366.jpg" />
+  <img src="Z:/picture/008/save_picture_358366.jpg" />
 </div>
 
 
@@ -498,7 +674,7 @@ Nelly Furtado - Parking Lot (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358356.jpg" />
+  <img src="Z:/picture/008/save_picture_358356.jpg" />
 </div>
 
 
@@ -524,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358348.jpg" />
+  <img src="Z:/picture/008/save_picture_358348.jpg" />
 </div>
 
 
@@ -535,162 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4667F177E2A8E840975A4743FC6412E9AB7CD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577883   (358345) от 19.11.2012
-
-Юлия Войс - Ненавижу любя (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488EEF6FFAAC2B7B534612798A87F9553DD400BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577454   (358335) от 19.11.2012
-
-Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946C98579EA9B841903BA25270836D64F7B0C2FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577919   (358229) от 19.11.2012
-
-Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577666   (358221) от 19.11.2012
-
-Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577519   (358213) от 19.11.2012
-
-Robbie Williams - Candy (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577924   (358211) от 19.11.2012
-
-Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

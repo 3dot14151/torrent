@@ -1,3 +1,29 @@
+###  Публикация: 1634569   (198194) от 21.05.2023
+
+WPS Office (Kingsoft Office) v17.7 [Ru/Multi] [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198194.jpg" />
+</div>
+
+
+###  Подробнее
+
+WPS Office (Kingsoft Office) Совместим с форматами MS office, такими как doc, docx, xlx, xlxs и ppt (pptx обещают в октябре). C Kingston Office Вы можете создавать, просматривать и редактировать документы типичных форматов MS Office. Встроенный файловый менеджер, корректно работающий и на телефонах и на планшетах (Я тестил только на планшете, мне понравилось). Есть (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.05.23Разработчик: KingsoftПоддерживаемая ОС: Android: 5.0+ (armv7a + arm64)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA0E08EE088780BD063ECD37B0B9CCC6E3D06A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634571   (198099) от 21.05.2023
 
 ES File Explorer File Manager v4.4.0.6 [Ru/En]
@@ -6,7 +32,7 @@ ES File Explorer File Manager v4.4.0.6 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198099.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MX Player Pro v1.63.5 Mod by Balatan, OsitKP [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198087.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ IPTV Pro v7.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197496.jpg" />
+  <img src="Z:/picture/004/save_picture_197496.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197458.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Garmin: Дороги России Топо 6.42 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197193.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ HiPER Scientific Calculator v10.2.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197093.jpg" />
+  <img src="Z:/picture/004/save_picture_197093.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ YouTube ReVanced Extended 18.17.43 Mod by inotia00 + Micro G [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196882.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ YouTube ReVanced Extended 17.34.36 Mod by kitadai31 + Micro G [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196869.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ OGWhatsApp 17.45 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196670.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Cx Проводник/ Cx File Explorer 2.0.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196564.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ ibis Paint X 10.1.3 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196545.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Reverso Translation Dictionary / Переводной словарь Reverso 11.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196541.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Rosetta Stone: Изучение языков 8.21.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196505.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Moon+ Reader Pro 8.2 (802008) Mod by Lucky Las [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196494.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Niagara Launcher 1.9.5 Mod by Taz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196492.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Sense V2 Flip Clock & Weather 6.29.0 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196476.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ TikTok ReVanced 27.2.4 Mod by Dmitry Nechiporenko [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196440.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Death Worm™ Deluxe 2.0.048 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196403.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ ViMu Media Player for TV 10.00 Mod by Vildanoff [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196395.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Truecaller: определитель номера и запись звонков
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196391.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Simple PDF Reader \ Простой PDF Reader v1.0.82 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196274.jpg" />
+  <img src="Z:/picture/004/save_picture_196274.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Imagine : AI Art Generator v2.8.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196242.jpg" />
+  <img src="Z:/picture/004/save_picture_196242.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196174.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.30
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196139.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ GPS Emulator v2.72 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196099.jpg" />
+  <img src="Z:/picture/004/save_picture_196099.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ GPS Emulator v2.72 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70ACE1909494D720792FFD6D3E71F183CFBBAE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644711   (196045) от 06.07.2023
-
-CapCut - Видеоредактор 8.7.0 Mod by dimonx32 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196045.jpg" />
-</div>
-
-
-###  Подробнее
-
-CapCut - видеоредактор, что понравится поклонникам создания коротких роликов предназначенных для таких платформ, как TikTok и прочих. Здесь они найдут всё необходимое для продуктивной работы и с видео и с аудио стороной процесса. Удобная механика редактирования, обширный набор эффектов и цветовых фильтров, различные наклейки, наложение текста, переходы между кадрами (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.07.2023Разработчик: Bytedance Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCFA929AC70A0D2493812D0C6338C9947607183
 ```
 
 https://mybot314.ru/tekegram_catalog/

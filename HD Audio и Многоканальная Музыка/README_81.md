@@ -1,3 +1,235 @@
+###  Публикация: 1577393   (128583) от 14.10.2025
+
+Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
+2006 - Ascendancy
+2006 - The Crusade
+2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683178   (128553) от 10.12.2023
+
+Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life in a Bubble (4:36)
+02. Whiskey and Beer (4:08)
+03. Sweet Lady (5:37)
+04. Beautiful (6:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683357   (128547) от 10.12.2023
+
+Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
+1997 - Under Moonlight We Kiss
+1999 - Fallen Angel's Symphony
+2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683242   (128544) от 10.12.2023
+
+Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaos
+02. Dawn Of A Million Souls
+03. Journey On The Waves Of Time
+04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683180   (128531) от 10.12.2023
+
+Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Do It, Let's Fall In Love (4:03)
+02. Lovin' Arms (4:16)
+03. Sun On My Face (3:32)
+04. Georgia On My Mind (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD064D23255E34EC2AD9E56A5CA957B73CD47A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683388   (128348) от 11.12.2023
+
+Pimpinela - Especial de Navidad (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Latino>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Cien a¤os de soledad
+02 – 2020 El a¤o que se detuvo el tiempo
+03 – Medley A esa – Decide – Valiente
+04 – A la misma hora, en el mismo lugar(   Читать дальше...   )Жанр: Pop, LatinoПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476E96B8A8DB0DF359BAA68C16DA57086DBF63FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683758   (128247) от 12.12.2023
+
+System Of A Down - System Of A Down (1998)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Alternative Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128247.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Suite-Pee
+A2 Know
+A3 Sugar
+A4 Suggestions(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DDB1E1E7991FAE93250C97B386BF7627145CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683807   (128220) от 12.12.2023
+
+Ayreon - 01011001 (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Shadows (Incl. We Are Forever)
+02. Comatose
+03. Liquid Eternity
+04. Connect The Dots(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE0EE88A1B5B91E0A28514DA77D9F3DF3B549D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683710   (128215) от 12.12.2023
 
 Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
@@ -6,7 +238,7 @@ Ayreon - The Human Equation (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progres
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128215.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Agnetha Faltskog - A+ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128122.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ System Of A Down - Steal This Album! (2002) [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128097.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ The Rah Band - Touchdown (Live at The Jazz Café, London, 2022) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128095.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Egyptian Blue - A Living Commodity (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128083.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Mario Lanza/Марио Ланца - Голос и ночь, Всё это ты, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127986.jpg" />
 </div>
 
 
@@ -177,7 +409,7 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127977.jpg" />
 </div>
 
 
@@ -206,7 +438,7 @@ Therion - Leviathan III (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127975.jpg" />
 </div>
 
 
@@ -235,7 +467,7 @@ Evergrey - From Dark Discoveries to Heartless Portraits (2023) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127974.jpg" />
 </div>
 
 
@@ -264,7 +496,7 @@ Semblant - Studio Albums (5 releases) (2010-2022) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127971.jpg" />
 </div>
 
 
@@ -293,7 +525,7 @@ Ayreon - The Theory of Everything (2013) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127952.jpg" />
 </div>
 
 
@@ -322,7 +554,7 @@ Anubis Gate - Studio Albums (10 releases) (2004-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127947.jpg" />
 </div>
 
 
@@ -351,7 +583,7 @@ System Of A Down - Hypnotize (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127946.jpg" />
 </div>
 
 
@@ -380,7 +612,7 @@ System Of A Down - Mezmerize (2005)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Altern
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127816.jpg" />
 </div>
 
 
@@ -409,7 +641,7 @@ VA - Best Sound of Chill & Lounge 2023 – Winter Edition (2023) [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127807.jpg" />
 </div>
 
 
@@ -438,7 +670,7 @@ The String Breakers - Get on Your Feet (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127798.jpg" />
 </div>
 
 
@@ -467,7 +699,7 @@ Silent Force - Studio Albums (5 releases) (2000-2013) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127797.jpg" />
 </div>
 
 
@@ -496,7 +728,7 @@ Stam1na - Studio Albums (12 releases) (2005-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127793.jpg" />
 </div>
 
 
@@ -510,238 +742,6 @@ Stam1na («Стойкость») — метал-группа из Леми, Юж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684396   (127786) от 15.12.2023
-
-Sinisa Petric - Please Come Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway Train Blues (3:48)
-02. Buried Alive in the Blues (4:24)
-03. You Gotta Pay Blues (3:35)
-04. Going Out In Style (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FBDAE68885502B6239484C30A61B288DC4192F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684429   (127772) от 15.12.2023
-
-Wellington Heads - World Keep On Turning (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Uptown (5:55)
-02. Just Too Difficult (3:54)
-03. Goin' Round And Round (4:46)
-04. Puff Of Smoke (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB39D1B8F5F7478B0BD1532B2993A01B2B482F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684388   (127770) от 15.12.2023
-
-Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Permanent Vacation (3:34)
-02. The Scandinavian Way (3:52)
-03. Regrets (3:49)
-04. Grov (6:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684391   (127769) от 15.12.2023
-
-Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Does That Magic Like You (3:25)
-02. Ain't Got Nothing But My Sorrow (Bad Gambler) (5:15)
-03. Mysterious Love (5:08)
-04. Riding On My Mind (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A8E068C5BDEF4A22E337FD54B44F8FB2F82822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684406   (127764) от 15.12.2023
-
-Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127764.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684644   (127607) от 16.12.2023
-
-The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polydor Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered (Live at Racket, NYC) (4:52)
-02. Angry (Live at Racket, NYC) (4:20)
-03. Whole Wide World (Live at Racket, NYC) (4:29)
-04. Tumbling Dice (Live at Racket, NYC) (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 2CD, 01:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684649   (127595) от 16.12.2023
-
-Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Chemicals (5:09)
-02. Beautiful James (4:01)
-03. Scene of the Crime (3:28)
-04. Hugz (4:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D80364644D87BE572597BF4BC74F699D00FFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684639   (127586) от 16.12.2023
-
-The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Deluxe, 2023, American Recordings Catalog P&D [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Rock & Roll, Sou ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Speak No Slave (Live In Houston, TX. 2/6/1993) (5:14)
-02. Sting Me (Live In Houston, TX. 2/6/1993) (5:02)
-03. My Morning Song (Live In Houston, TX. 2/6/1993) (8:53)
-04. Jam (Live In Houston, TX. 2/6/1993) (7:41)(   Читать дальше...   )Жанр: Blues rock, Rock & Roll, Southern Rock, Hard RockПродолжительность: 3CD, 02:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Photo Supreme 5.4.0.2790 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888684.jpg" />
+  <img src="Z:/picture/005/save_picture_888684.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888650.jpg" />
+  <img src="Z:/picture/005/save_picture_888650.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Kubuntu 13.04 Raring Ringtail Beta 2 [i386, amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888631.jpg" />
+  <img src="Z:/picture/005/save_picture_888631.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IObit Driver Booster Pro 8.7.0.529 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888614.jpg" />
+  <img src="Z:/picture/005/save_picture_888614.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Live @ Virtual Audio, Ultra Music Festival Miami 2020 [MP3|~245 Kbps (V0)] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888577.jpg" />
+  <img src="Z:/picture/005/save_picture_888577.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888572.jpg" />
+  <img src="Z:/picture/005/save_picture_888572.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ RegScanner 2.46 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888571.jpg" />
+  <img src="Z:/picture/005/save_picture_888571.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888560.jpg" />
+  <img src="Z:/picture/005/save_picture_888560.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888544.jpg" />
+  <img src="Z:/picture/005/save_picture_888544.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888535.jpg" />
+  <img src="Z:/picture/005/save_picture_888535.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Bach - Brandenburg Concertos: Pommer - Neues Bachisches Collegium Musicum (1999)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888523.jpg" />
+  <img src="Z:/picture/005/save_picture_888523.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.09 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888522.jpg" />
+  <img src="Z:/picture/005/save_picture_888522.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ DAEMON Tools Lite 10.5.1.229 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888496.jpg" />
+  <img src="Z:/picture/005/save_picture_888496.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Glary Disk Cleaner 5.0.1.204 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888481.jpg" />
+  <img src="Z:/picture/005/save_picture_888481.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ JRiver Media Center 26.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888480.jpg" />
+  <img src="Z:/picture/005/save_picture_888480.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Pale Moon 28.9.0.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888476.jpg" />
+  <img src="Z:/picture/005/save_picture_888476.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Process Lasso Pro 9.7.0.48 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888474.jpg" />
+  <img src="Z:/picture/005/save_picture_888474.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Google Chrome 80.0.3987.162 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888473.jpg" />
+  <img src="Z:/picture/005/save_picture_888473.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Google Chrome 80.0.3987.162 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888470.jpg" />
+  <img src="Z:/picture/005/save_picture_888470.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Complete Internet Repair 5.2.3.4058 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888468.jpg" />
+  <img src="Z:/picture/005/save_picture_888468.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ RadioMaximus 2.27 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888466.jpg" />
+  <img src="Z:/picture/005/save_picture_888466.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Video Thumbnails Maker Platinum 14.2.0.0 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888437.jpg" />
+  <img src="Z:/picture/005/save_picture_888437.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Wondershare UniConverter 11.7.3.1 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888417.jpg" />
+  <img src="Z:/picture/005/save_picture_888417.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Complete Internet Repair 5.2.3.4058 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888411.jpg" />
+  <img src="Z:/picture/005/save_picture_888411.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888410.jpg" />
+  <img src="Z:/picture/005/save_picture_888410.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Malevolence (UK) - Reign of Suffering / Self Supremacy (2013-2017) [FLAC|Lossles
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888373.jpg" />
+  <img src="Z:/picture/005/save_picture_888373.jpg" />
 </div>
 
 

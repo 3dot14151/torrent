@@ -1,3 +1,138 @@
+###  Публикация: 1671581   (171108) от 25.10.2023
+
+Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171108.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 7 дней узнайте все о Prometheus
+Научимся:
+    ✅Устанавливать и настраивать систему мониторинга Prometheus.
+    ✅Разбираться в инцидентах и понимать причину, а также получать уведомления о неработоспособности серверов через мессенджеры.(   Читать дальше...   )Производство: RebrainЖанр: Онлайн-тренажерЯзык озвучки: РусскийПродолжительность: 03:14:00Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFADD4D87C1AF98E26FE7CB7A41FF333FD2FB567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825908   (170962) от 19.10.2025
+
+Skill.Im, Екатерина Нечипоренко | Visual Basic for Application для Excel. Курсы базовый, продвинутый и создание интерфейса (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специально для тех, кто хочет решать более сложные задачи в Excel, мы подготовили интересный самоучитель, который будет полезен как начинающим, которые никогда не занимались программированием, так и людям, которые знакомы с Visual Basic, но хотят усовершенствовать свои знания.
+
+В целом, наш самоучитель состоит из трех разделов: продвинутый, базовый и мастерский. (   Читать дальше...   )Производство: Skill.ImЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0BF92DC84681EDA76CDBCCE0270B4430DB8EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826486   (170945) от 19.10.2025
+
+Михаил Рыбков | Организационное и правовое обеспечение информационной безопасности (2021) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обеспечение информационной безопасности в любой организации является комплексной задачей, включающей организационные и технические мероприятия. Для разработки организационных и технических мероприятий, направленных на обеспечение безопасности в организации, необходимы разносторонние знания нормативно-правовых основ защиты информации и умения их применять на практике. (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 07:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C722F58246DAA6974784BB126291AF7BB332BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826766   (170939) от 19.10.2025
+
+Udemy, Георгий Черняк | Инженер тендерного отдела [44-ФЗ]  (2017)  PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном курсе вы изучите весь процесс получения госконтрактов с примерами всех ошибок из практики. У вас всё ещё возникает вопрос, что делает Инженер тендерного отдела и какие его функции? Давайте по порядку…Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDDE280C61A0B4E1405678C0D136D5C06DF3CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515040   (170898) от 05.12.2021
+
+Udemy, Martin Yanev, Plamen Yanev | The Complete Python Network Programming Course for 2021 (2021) WEB-DL [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс Python Networking. Здесь вы узнаете, как использовать Python для сетевого программирования, извлекать данные в различных форматах через Интернет, а также запрашивать и извлекать веб-ресурсы. Вы будете использовать различные протоколы и модифицировать системы через Интернет с помощью DNS и IP-сетей. Мы начнем с самых основ установки python (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 11:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99ABE09AF220DD2EAE314077C907F5815AF634A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515000   (170893) от 05.12.2021
 
 Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до уверенного пользователя (2021) WEB-DL
@@ -6,7 +141,7 @@ Udemy, Nikita Sergeev | Аналитика в SPSS: от новичка до у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170893.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170761.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Softwaretesting, Арсений Батыров | Автоматизация те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170726.jpg" />
 </div>
 
 
@@ -88,7 +223,7 @@ Udemy, Anton Golosnichenko | Хуки React на практике [2021] (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170702.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ Tocode | Курс по Vue.js 3 Практическое руководство 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170676.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ Udemy, Роман Панёв | Kotlin с нуля + разработка при�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170667.jpg" />
 </div>
 
 
@@ -168,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170656.jpg" />
 </div>
 
 
@@ -197,7 +332,7 @@ Udemy, Murtez Alrohani | Модульное тестирование Node.js / N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170482.jpg" />
 </div>
 
 
@@ -225,7 +360,7 @@ JUG Ru Group | Mobius 2021 Moscow. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170209.jpg" />
 </div>
 
 
@@ -253,7 +388,7 @@ JUG Ru Group | DotNext 2021 Moscow. Конференция для .NET-разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170188.jpg" />
 </div>
 
 
@@ -282,7 +417,7 @@ OTUS, Сурен Хоренян | Python-разработчик. Базовый 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170118.jpg" />
 </div>
 
 
@@ -308,7 +443,7 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170078.jpg" />
 </div>
 
 
@@ -334,7 +469,7 @@ JUG Ru Group | SmartData 2021. Конференция по Data Engineering (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170034.jpg" />
 </div>
 
 
@@ -361,7 +496,7 @@ Podlodka Teamlead Crew | Коммуникации в команде и проц�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169351.jpg" />
 </div>
 
 
@@ -390,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169247.jpg" />
 </div>
 
 
@@ -418,7 +553,7 @@ Udemy, Alex Marshal | Java для начинающих 2020. С нуля до Ju
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169189.jpg" />
 </div>
 
 
@@ -447,7 +582,7 @@ Udemy, Илья Фофанов | Полное руководство по Python
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169131.jpg" />
 </div>
 
 
@@ -473,7 +608,7 @@ Skillbox, Александр Клейн | SQL-разработчик (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168821.jpg" />
 </div>
 
 
@@ -501,7 +636,7 @@ Udemy, Глеб Михайлов | Data Science с Глебом Михайлов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168574.jpg" />
 </div>
 
 
@@ -528,7 +663,7 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168338.jpg" />
 </div>
 
 
@@ -554,7 +689,7 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168247.jpg" />
 </div>
 
 
@@ -566,143 +701,6 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA544EFFE697C2357E86DEAC5BABB69C3379B8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402924   (168165) от 12.12.2020
-
-OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе сделан основной упор на выполнение практических задач в облачной системе AWS, с которыми может столкнуться программист / технический руководитель, как в малом стартапе, так и в большой компании. Подобные задачи включают в себя весь жизненный цикл становления проекта: от планирования архитектуры и выбора инфраструктуры, и заканчивая вводом системы в промышленную (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 41:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386155   (168124) от 12.12.2020
-
-Udemy | Android разработка на Kotlin - с нуля до продвинутого уровня (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168124.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы познакомитесь с возможностями разработки приложений для Android и приобретете навыки, которые позволят вам значительно повысить свои карьерные перспективы в качестве разработчика программного обеспечения.
-С этим курсом вы получите лучшее из обоих миров - Java и Kotlin. Хотя Kotlin на данный момент является восходящей звездой разработки приложений (   Читать дальше...   )Производство: YouRa AllakhverdovЖанр: Программирование, Java, KotlinЯзык озвучки: РусскийПродолжительность: 16:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7B045F884FA3011CFB04EC2EB9681445176E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672839   (167616) от 29.10.2023
-
-Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (2023) WEB-DL [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167616.jpg" />
-</div>
-
-
-###  Подробнее
-
-✅Аналитика доходов и ценообразования с помощью Excel и Python
-✅Revenue and Pricing Analytics with Excel & Python
-✅Курс на английском языке с английскими субтитрами и русской аудио дорожкой
-Максимизируйте доступность продуктов и повысьте прибыльность бизнеса с помощью искусства ценообразования!(   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672713   (167578) от 29.10.2023
-
-Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beginner to Advanced (2023) WEB-DL [AD] [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167578.jpg" />
-</div>
-
-
-###  Подробнее
-
-I'm Estefania. I love teaching. I'm a Web Developer with experience in Python, JavaScript, HTML, CSS, React, and other web technologies.
-
-My goal is to create engaging courses where you will learn programming and understand it so well that you will be able to apply your knowledge to new situations, projects, and professional opportunities. I know that learning how (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, Русский (машинный перевод)Продолжительность: 08:20:19Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672991   (166782) от 30.10.2023
-
-Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неделя «Инструменты разработки». Внедряя инструменты в разработку, мы следуем не только желанию быть на пике технологий, но целям и возможностям бизнеса. В новом сезоне уделим особое внимание этому балансу, а так же постараемся не только пройтись по стандартным кейсам применимости инструментов, но заглянем глубже — покажем новые и неочевидные аспекты.
-Во втором сезоне (   Читать дальше...   )Производство: Podlodka CrewЖанр: КонференцияЯзык озвучки: РусскийПродолжительность: 12:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
 ```
 
 https://mybot314.ru/tekegram_catalog/

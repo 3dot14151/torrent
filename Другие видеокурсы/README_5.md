@@ -1,3 +1,31 @@
+###  Публикация: 133101   (722432) от 25.02.2019
+
+Шикин А.С., Кyпов В.В. и др. | БОЕВАЯ СТРЕЛЬБА ИЗ ПИСТОЛЕТА. Фильм 3 [2006] DVDRip
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В третий видефильм цикла "БОЕВАЯ СТРЕЛЬБА ИЗ ПИСТОЛЕТА" вошли следующие части:
+ЧАСТЬ 5 - "...Обоснования, требования к изготовке для стрельбы с колена. Варианты для изготовок на среднем уровне. Действия на атаку по фронту, с флангов, с тыла. Первичная "ЗМЕЙКА" на среднем уровне."
+ЧАСТЬ 6 - "...Пейнтбольные тренировки.Методика учебной (   Читать дальше...   )Жанр: боевые искусстваПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0447F12233E23E00B3D569944A8F00060D41EC29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128411   (718523) от 30.04.2017
 
 Владимир Сибирцев | Создание совершенного Я (2016) PCRec [H.264/720p]
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718523.jpg" />
+  <img src="Z:/picture/008/save_picture_718523.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718436.jpg" />
+  <img src="Z:/picture/008/save_picture_718436.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718430.jpg" />
+  <img src="Z:/picture/008/save_picture_718430.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718424.jpg" />
+  <img src="Z:/picture/008/save_picture_718424.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711107.jpg" />
+  <img src="Z:/picture/008/save_picture_711107.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707395.jpg" />
+  <img src="Z:/picture/008/save_picture_707395.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706305.jpg" />
+  <img src="Z:/picture/008/save_picture_706305.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704385.jpg" />
+  <img src="Z:/picture/008/save_picture_704385.jpg" />
 </div>
 
 
@@ -236,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701407.jpg" />
+  <img src="Z:/picture/008/save_picture_701407.jpg" />
 </div>
 
 
@@ -265,7 +293,7 @@ Academia / Academia (2010) SATRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697880.jpg" />
+  <img src="Z:/picture/005/save_picture_697880.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687290.jpg" />
+  <img src="Z:/picture/008/save_picture_687290.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Hubert Sicard | Видеоролики от Хьюберта Сикарда [201
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670083.jpg" />
+  <img src="Z:/picture/008/save_picture_670083.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660997.jpg" />
+  <img src="Z:/picture/008/save_picture_660997.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660992.jpg" />
+  <img src="Z:/picture/008/save_picture_660992.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657614.jpg" />
+  <img src="Z:/picture/008/save_picture_657614.jpg" />
 </div>
 
 
@@ -435,7 +463,7 @@ Surgical Techniques in Ophthalmology | Хирургические техники
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655658.jpg" />
+  <img src="Z:/picture/008/save_picture_655658.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654766.jpg" />
+  <img src="Z:/picture/008/save_picture_654766.jpg" />
 </div>
 
 
@@ -490,7 +518,7 @@ Convert Monster | Эффективные объявления (2015) PCRec [H.26
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654083.jpg" />
+  <img src="Z:/picture/008/save_picture_654083.jpg" />
 </div>
 
 
@@ -516,7 +544,7 @@ Convert Monster | Интенсивный курс по таргетирован�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654055.jpg" />
+  <img src="Z:/picture/008/save_picture_654055.jpg" />
 </div>
 
 
@@ -542,7 +570,7 @@ Convert Monster | Идеальный Яндек.Директ 2.0 (2014) PCRec [H
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654052.jpg" />
+  <img src="Z:/picture/008/save_picture_654052.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ Convert Monster | Идеальный Landing Page 2.0 (2015) PCRec [H.264]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654046.jpg" />
+  <img src="Z:/picture/008/save_picture_654046.jpg" />
 </div>
 
 
@@ -595,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653558.jpg" />
+  <img src="Z:/picture/008/save_picture_653558.jpg" />
 </div>
 
 
@@ -623,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652074.jpg" />
+  <img src="Z:/picture/008/save_picture_652074.jpg" />
 </div>
 
 
@@ -649,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649087.jpg" />
+  <img src="Z:/picture/008/save_picture_649087.jpg" />
 </div>
 
 
@@ -679,7 +707,7 @@ Lynda.com | Основные навыки обучения / Study Skills Fundam
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648285.jpg" />
+  <img src="Z:/picture/008/save_picture_648285.jpg" />
 </div>
 
 
@@ -692,34 +720,6 @@ Lynda.com | Основные навыки обучения / Study Skills Fundam
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106695D6C23C5FE6A0D37A19939ABC15B74953DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292218   (646333) от 29.03.2019
-
-Алекс Мэй | Новая Академия Секса для мужчин (2018) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не выходя из дома, в удобной обстановке потратьте 10 часов на изучение материала от Академии Секса. И Вы будете в числе менее чем 0,1% мужчин. Мужчин, о которых мечтает каждая женщина – лучших любовниках планеты.
-
-Узнайте, как напрочь «сносить крышу» абсолютно любой женщине, займите в её душе особое место. Навсегда.Жанр: Сексология, ОтношенияПродолжительность: 10:15:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670F094C322F9D92DC9A4DDFBF937476D35353ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 902749   (659511) от 29.05.2015
+
+Агата Кристи | Собрание сочинений [323 книги] (1965-2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агата Мэри Кларисса Миллер (Agatha Mary Clarissa Miller) родилась 15 сентября 1890 в Торки (графство Девон). Первый ее брак с полковником А.Кристи закончился разводом в 1928, и в 1930 она вышла замуж за выдающегося археолога М.Э.Л.Маллоуна. Уже в первом своем романе Таинственное происшествие в Стайлзе (The Mysterious Affair at Styles , 1920) Кристи вывела столь любимого (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81B65C2F6BFAFFE67D92CAEE704D59369AF7ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904304   (655172) от 02.06.2015
+
+Иэн Рэнкин | Собрание сочинений [18 книг] (1987-2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иэн (Йэн) Рэнкин (Ian Rankin) - шотландский писатель. Публикуется также под псевдонимом Джек Харви (Jack Harvey).
+Родился 28 апреля 1960 года в Каркендене, Шотландия. В детстве начал сочинять комиксы, в школе - стихи, в университете - рассказы. Закончил Эдинбургский университет со степенью магистра литературы. За исследования творчества шотландской писательницы Мюриэл (   Читать дальше...   )Жанр: Полицейский детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E411BDC1469D60BECBBEF09494CA9829BC558E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678396   (653310) от 11.07.2013
+
+Артур Конан Дойль | Собрание сочинений в 12 томах [2005] [DJVU]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653310.jpg" />
+</div>
+
+
+###  Подробнее
+
+В собрание сочинений вошли произведения знаменитого писателя Артура Конан Дойла - "создателя" Затерянного мира и "отца" Шерлока Холмса.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B124C7E2544CEF5678003CF4BD61F1D7701E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905499   (648733) от 06.06.2015
 
 Брендон Сандерсон | Собрание сочинений [25 книг] (2005-2015) [FB2]
@@ -6,7 +85,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648733.jpg" />
+  <img src="Z:/picture/008/save_picture_648733.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647074.jpg" />
+  <img src="Z:/picture/008/save_picture_647074.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641270.jpg" />
+  <img src="Z:/picture/008/save_picture_641270.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640624.jpg" />
+  <img src="Z:/picture/008/save_picture_640624.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635591.jpg" />
+  <img src="Z:/picture/008/save_picture_635591.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627981.jpg" />
+  <img src="Z:/picture/008/save_picture_627981.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626385.jpg" />
+  <img src="Z:/picture/008/save_picture_626385.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626375.jpg" />
+  <img src="Z:/picture/008/save_picture_626375.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626373.jpg" />
+  <img src="Z:/picture/008/save_picture_626373.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626240.jpg" />
+  <img src="Z:/picture/008/save_picture_626240.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619406.jpg" />
+  <img src="Z:/picture/008/save_picture_619406.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613241.jpg" />
+  <img src="Z:/picture/008/save_picture_613241.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612202.jpg" />
+  <img src="Z:/picture/008/save_picture_612202.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606677.jpg" />
+  <img src="Z:/picture/008/save_picture_606677.jpg" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605603.jpg" />
+  <img src="Z:/picture/008/save_picture_605603.jpg" />
 </div>
 
 
@@ -406,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601581.jpg" />
+  <img src="Z:/picture/008/save_picture_601581.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599280.jpg" />
+  <img src="Z:/picture/008/save_picture_599280.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597706.jpg" />
+  <img src="Z:/picture/008/save_picture_597706.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595843.jpg" />
+  <img src="Z:/picture/008/save_picture_595843.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595706.jpg" />
+  <img src="Z:/picture/008/save_picture_595706.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589820.jpg" />
+  <img src="Z:/picture/008/save_picture_589820.jpg" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589005.jpg" />
+  <img src="Z:/picture/008/save_picture_589005.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588592.jpg" />
+  <img src="Z:/picture/008/save_picture_588592.jpg" />
 </div>
 
 
@@ -605,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E411D449BAE64A8F235173A4BE351F8FC14B6D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918034   (588549) от 13.07.2015
-
-Стивен Хантер | Собрание сочинений [20 книг] (1994-2015) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стивен Хантер (Stephen Hunter) - король «ганни»-триллера, т.е. триллера, где главным героем является не только человек, но и его оружие. Хантер не столь знаменит и помпезен, как, скажем, Том Клэнси, Фредерик Форсайт или Стивен Кунц… Просто у него своя ниша, свой конёк.
-Это - Человек с Ружьём.
-
-Недаром, наше издательство ЭКСМО на обложках хантеровских книг помещает (   Читать дальше...   )Жанр: Крутой детектив, Шпионский роман, Триллер, БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C64946B1828CDB287FAC070440C32FF7888FBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357590   (586806) от 01.07.2011
-
-Тимоти Зан | Сборник произведений [1979-2011] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлена краткая биография и сборник произведений писателя Тимоти Зана.1979-2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A2F734ACCE84E4C7C16A6EA8808CC91DBB58CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357842   (585755) от 02.07.2011
-
-Жорж Сименон | Собрание сочинений (184 произведения) [1965 - 1993] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жорж Сименон (1903–1989), французский писатель. Член Бельгийской королевской академии (с 1952). Главным героем его наиболее известных романов выступает инспектор Мегрэ, наделенный мощной интуицией коренастый полицейский с трубкой, для которого существенно не только установить, как и по каким мотивам совершено преступление, но также понять, к какому миру принадлежит и как мыслит преступник.1965 - 1993Жанр: ДетективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F05753207075D4B74D4FDC6A934B4D63F37F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

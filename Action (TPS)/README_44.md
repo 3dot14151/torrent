@@ -1,3 +1,159 @@
+###  Публикация: 1749313   (43590) от 14.09.2024
+
+Bully (2008) [Ru/En] (1.2) Repack R.G. Catalyst [Scholarship Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дети злы и жестоки - этот феномен объяснит любой психолог. Но что делать тому, на кого направлена подростковая агрессия? Пространные рассуждения ученых нужны ему в последнюю очередь. Привыкайте решать детские проблемы по-взрослому. Оказавшись в студенческом городке, забудьте о жизни на «гражданке». Новая среда требует иного, гораздо более жесткого поведения. В университете (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar Vancouver, Rockstar New EnglandЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8BC16065EFBDADD77098E3D124F1C165FD58C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749708   (43529) от 15.09.2024
+
+Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack FitGirl [Deluxe Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43529.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAR WARS Jedi: Survivor продолжит повествование о жизни Кэла через пять лет после прошлых событий. В этом галактическом экшен-адвенчуре с видом от третьего лица тебя ждет захватывающий сюжет, который погрузит тебя в мир, погружающийся во мрак. Стоит ожидать сражений с новыми и старыми врагами, а также важных решений, которые придется принимать Кэлу, чтобы спасти (   Читать дальше...   )Тип издания: RepackРазработчик: Respawn EntertainmentЖанр: Экшены, ПриключениеЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F993FDC04ABFDD4EE5A47FE20B705AF0758028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749611   (43485) от 15.09.2024
+
+LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lollipop Chainsaw RePOP - это стремительный hack-and-slash, повествующий о приключениях Джульет Старлинг, школьной чирлидерши, ставшей охотницей на зомби. Джульетта столкнется с новой волной нежити и таинственной вспышкой, угрожающей ее родному городу. Вооружившись своей верной бензопилой, Джульетта должна пробиться сквозь полчища зомби, от классических шамблеров (   Читать дальше...   )Тип издания: SceneРазработчик: DRAGAMI GAMES, LTD.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16973636DC428BED935F4E8D51F090ED308AC703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749609   (43469) от 15.09.2024
+
+LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lollipop Chainsaw RePOP - это стремительный hack-and-slash, повествующий о приключениях Джульет Старлинг, школьной чирлидерши, ставшей охотницей на зомби. Джульетта столкнется с новой волной нежити и таинственной вспышкой, угрожающей ее родному городу. Вооружившись своей верной бензопилой, Джульетта должна пробиться сквозь полчища зомби, от классических шамблеров (   Читать дальше...   )Тип издания: RepackРазработчик: DRAGAMI GAMES, LTD.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749862   (43428) от 16.09.2024
+
+Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Space 3 Айзек Кларк и не знающий жалости солдат Джон Карвер отправятся далеко в космос, чтобы найти источник нашествия некроморфов. Совершив аварийную посадку на заснеженной планете, Айзек вынужден преодолевать суровые условия окружающей среды в поисках ресурсов и деталей для оружия. Чтобы выжить, придется задействовать все свои инженерные навыки. На холодной (   Читать дальше...   )Тип издания: RepackРазработчик: Visceral GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749892   (43402) от 16.09.2024
+
+Assassin's Creed (2008) [Ru/En] (1.0.2) Repack dixen18 [Director's Cut Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assassin's Creed - игра нового поколения, разработанная Ubisoft Montreal, которая изменила представление об экшн-жанре. Пока другие игры претендуют называться новым поколением, пытаясь впечатлить нас графикой и физикой, Assassin's Creed сливает технологии, игровой дизайн, мотивы и чувства в мир, где вы вызываете хаос и становитесь могущественным, но уязвимым агентом (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749914   (43299) от 17.09.2024
 
 Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
@@ -6,7 +162,7 @@ Overlord: Raising Hell (2007) [Ru] (1.4/dlc) Repack ArchangeL
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43299.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42987.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42807.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42781.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42670.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Remnant II (2) (2023) [Ru/Multi] (444.163/dlc) Repack FitGirl [Ultimate Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42070.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Repack FitGirl [Complete
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41239.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (Build 15224246/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41220.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.04/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41045.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (Build 9575745/dlc) Repack Other s [20
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41021.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) Repack Yaroslav98 [Def
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41003.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40345.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39017.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38885.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38882.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.0.82) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38858.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Red Dead Redemption (2024) [Ru/Multi] (1.0.40.57107) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38851.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38745.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Resident Evil: Operation Raccoon City (2012) [Ru/Multi] (Build 10887/dlc) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38658.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38655.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Scene Razor 1911
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70A7E86A01EA4E1F8603C082AA2A121C13F0FC5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758282   (38648) от 01.11.2024
-
-Shadows of the Damned: Hella Remastered (2024) [Multi] (Build 15991776) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows of the Damned: Hella Remastered - долгожданное переиздание приключенческого экшена Shadows of the Damned о путешествии в ад! Ваш ждет история о рок-н-ролле и любви - и совсем немного охоты на демонов. Горячее, дьявольское, отчаянно жестокое путешествие, полное любви и ненависти. Присоединяйтесь к крутому Гарсии Хотспуру и его костлявому приятелю Джонсону (   Читать дальше...   )Тип издания: RepackРазработчик: GRASSHOPPER MANUFACTURE INC.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A93D70FFDFF2F5A18B0F7DAC74DD0FA1CF61DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758470   (38572) от 02.11.2024
-
-Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в эмоциональное приключение в жанре экшн от третьего лица, в котором вы погружаетесь в жизнь Софи - сильной матери и решительного профессора университета, которая неустанно ищет своего пропавшего мужа и сына. В мире, колеблющемся между пугающей реальностью и загадочными эхо прошлого, Софи сталкивается с искаженными ландшафтами, опасными врагами и секретами, (   Читать дальше...   )Тип издания: RepackРазработчик: Working Game Studio Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BEB3E6412BA695E917662E6F0EE380ED38AD06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758474   (38542) от 02.11.2024
-
-Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38542.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагических событий, унесших близких Макса, его душевные раны не спешат затягиваться. Макс уже не коп – он спившийся, сидящий на обезболивающих безработный. Волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью Родриго Бранко. Увы, надежды оставить прошлое (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF57BCCB50DB3D18AD529B848FA8A5FF68365824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758353   (38530) от 02.11.2024
-
-Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38530.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагических событий, унесших близких Макса, его душевные раны не спешат затягиваться. Макс уже не коп – он спившийся, сидящий на обезболивающих безработный. Волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью Родриго Бранко. Увы, надежды оставить прошлое (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar StudiosЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758352   (38519) от 02.11.2024
-
-L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Repack Other s [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38519.jpg" />
-</div>
-
-
-###  Подробнее
-
-L.A. Noire – мрачный и жестокий триллер. В игре используется революционная технология MotionScan, с помощью которой удалось перенести на экран все нюансы актерской мимики. Это приключение сочетает в себе динамичные боевые сцены с размеренной, полной напряженных раздумий работой детектива. Вы будете искать улики, проводить задержания и допрашивать свидетелей – все (   Читать дальше...   )Тип издания: RepackРазработчик: Team Bondi, Rockstar LeedsЖанр: Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BAAAB363BD82B42D802E7D020EB658F090BA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758669   (38443) от 03.11.2024
-
-L.A. Noire (2011) [Ru/Multi] (2675.1/dlc) Scene Razor1911 [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38443.jpg" />
-</div>
-
-
-###  Подробнее
-
-L.A. Noire – мрачный и жестокий триллер. В игре используется революционная технология MotionScan, с помощью которой удалось перенести на экран все нюансы актерской мимики. Это приключение сочетает в себе динамичные боевые сцены с размеренной, полной напряженных раздумий работой детектива. Вы будете искать улики, проводить задержания и допрашивать свидетелей – все (   Читать дальше...   )Тип издания: SceneРазработчик: Team Bondi, Rockstar LeedsЖанр: Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764974257938719A2D95CA2F3A6C03ED66793F91
 ```
 
 https://mybot314.ru/tekegram_catalog/

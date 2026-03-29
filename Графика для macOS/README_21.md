@@ -1,3 +1,29 @@
+###  Публикация: 1514425   (217828) от 03.12.2021
+
+CameraBag Photo Classic 3.2.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение CameraBag Photo Classic - это классическая версия CameraBag Photo и идеальный инструмент для внесения в ваши фотографии как расширенных настроек, так и более 200 фильтров одним щелчком мыши. Это мечта фотографа - гораздо более мощная, чем любые другие приложения-фильтры, работающие в один клик, но при этом гораздо легче, быстрее и интуитивно понятнее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2921Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE47B2ADC072309D9C19124CC13B1344C08A7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652386   (217746) от 11.08.2023
 
 Snapclear for Mac 1.0.0 [Multi]
@@ -6,7 +32,7 @@ Snapclear for Mac 1.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217746.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Image2icon - Make your icon‪s‬ 2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217043.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Topaz Gigapixel AI for Mac 5.7.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216504.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Pixave 2.3.13 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215040.jpg" />
+  <img src="Z:/picture/005/save_picture_215040.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ EdgeView 2 2.840 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214982.jpg" />
+  <img src="Z:/picture/005/save_picture_214982.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Topaz Sharpen AI 3.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213240.jpg" />
+  <img src="Z:/picture/005/save_picture_213240.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Topaz DeNoise AI 3.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213118.jpg" />
+  <img src="Z:/picture/005/save_picture_213118.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ ON1 NoNoise A 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211913.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Luminar AI 1.5.3 U2B [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211904.jpg" />
+  <img src="Z:/picture/005/save_picture_211904.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ ON1 HDR 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211902.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211881.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211636.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211585.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14051 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211407.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Adobe Bridge 2022 12.0.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210144.jpg" />
+  <img src="Z:/picture/005/save_picture_210144.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Movavi Picverse Photo Editor 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209353.jpg" />
+  <img src="Z:/picture/005/save_picture_209353.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207440.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ CaptureGRID 4 v.4.27 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205394.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Overlay 4.26 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205113.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ FigrCollage Pro 3.3.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205112.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Image Resizer – Resize Photos 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204270.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Lyn 2.3.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204241.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Batch Photo Resizer 3.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204215.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204134.jpg" />
+  <img src="Z:/picture/004/save_picture_204134.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202987.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47575466ADE2DDD8FA4DCA9C0E9E9342F60706B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656780   (202928) от 01.09.2023
-
-Luminar Neo 1.13.0 Intel/ARM [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 31.08.20233Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B84FB0FC6474ED28CDAD30DDE7F1AC6D1EB785
 ```
 
 https://mybot314.ru/tekegram_catalog/

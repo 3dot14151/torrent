@@ -1,3 +1,174 @@
+###  Публикация: 1407187   (468615) от 06.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига B. Группа 1. 1-й тур. Норвегия — Австрия (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+04 сентября 2020, пятница. 21:45 МСК
+Лига B. Группа 1. 1-й тур
+Норвегия — Австрия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B1EAFA6140A9BB22108315B125357965708AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407257   (468613) от 06.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига B. Группа 1. 1-й тур. Румыния — Северная Ирландия (2020) IPTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+04 сентября 2020, пятница. 21:45 МСК
+Лига B. Группа 1. 1-й тур
+Румыния — Северная Ирландия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87252C2006ABBDD82C2D7E5F326C0656C31BC53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407276   (468607) от 06.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига B. Группа 2. 1-й тур. Словакия — Чехия (2020) IPTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+04 сентября 2020, пятница. 21:45 МСК
+Лига B. Группа 2. 1-й тур
+Словакия — Чехия(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB49A3F6F94CEC971190C81148199F033153284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407279   (468598) от 06.09.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига C. Группа 4. 1-й тур. Беларусь — Албания (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+04 сентября 2020, пятница. 21:45 МСК
+Лига C. Группа 4. 1-й тур
+Беларусь — Албания(   Читать дальше...   )Телекомпания: Матч! ТВЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F1BABDCF8831EEB5E6929B44D25EF9B821986E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407298   (468476) от 06.09.2020
+
+WRC 2020: Этап 4. Ралли Эстония. Super Stage, Power Stage (04-06.09.2020) / WRC 2020: Rally Estonia. WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по ралли (англ. World Rally Championship, WRC) — раллийная серия, проводимая Международной автомобильной федерацией (FIA) с 1973 года. Пришёл на смену Международному чемпионату по ралли для производителей, проводившемуся в 1970-1972 годах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:15:00 + 01:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22D22D21AB97B81C114A8D11846BC10EAF91B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245893   (467967) от 08.09.2018
+
+Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 4. 1-й тур. Уэльс — Ирландия (06.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467967.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2018 года, четверг. 21:45 МСК
+Лига Наций УЕФА 2018-2019. Групповой турнир
+Лига B. Группа 4. 1-й тур.
+Уэльс — Ирландия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BEA0FF1A928DC5931FDE85C8B0CE58EA471B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 387081   (467946) от 13.09.2011
 
 BBC. Безопасно ли небо? Рейс 253. Детройт / How Safe Are Our Skies? Detroit Flight 253 (2010) SATRip
@@ -6,7 +177,7 @@ BBC. Безопасно ли небо? Рейс 253. Детройт / How Safe A
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467946.jpg" />
+  <img src="Z:/picture/008/save_picture_467946.jpg" />
 </div>
 
 
@@ -33,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467908.jpg" />
+  <img src="Z:/picture/008/save_picture_467908.jpg" />
 </div>
 
 
@@ -62,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467906.jpg" />
+  <img src="Z:/picture/008/save_picture_467906.jpg" />
 </div>
 
 
@@ -91,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467904.jpg" />
+  <img src="Z:/picture/008/save_picture_467904.jpg" />
 </div>
 
 
@@ -120,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467900.jpg" />
+  <img src="Z:/picture/008/save_picture_467900.jpg" />
 </div>
 
 
@@ -147,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467898.jpg" />
+  <img src="Z:/picture/008/save_picture_467898.jpg" />
 </div>
 
 
@@ -176,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467892.jpg" />
+  <img src="Z:/picture/008/save_picture_467892.jpg" />
 </div>
 
 
@@ -205,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467890.jpg" />
+  <img src="Z:/picture/008/save_picture_467890.jpg" />
 </div>
 
 
@@ -234,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467648.jpg" />
+  <img src="Z:/picture/008/save_picture_467648.jpg" />
 </div>
 
 
@@ -263,7 +434,7 @@ Moto GP. Сезон 2017. Octo British Grand Prix. Этап 12. Гонка (27.0
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467565.jpg" />
+  <img src="Z:/picture/008/save_picture_467565.jpg" />
 </div>
 
 
@@ -289,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467504.jpg" />
+  <img src="Z:/picture/008/save_picture_467504.jpg" />
 </div>
 
 
@@ -315,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467437.jpg" />
+  <img src="Z:/picture/008/save_picture_467437.jpg" />
 </div>
 
 
@@ -343,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467297.jpg" />
+  <img src="Z:/picture/008/save_picture_467297.jpg" />
 </div>
 
 
@@ -371,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467296.jpg" />
+  <img src="Z:/picture/008/save_picture_467296.jpg" />
 </div>
 
 
@@ -397,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467295.jpg" />
+  <img src="Z:/picture/008/save_picture_467295.jpg" />
 </div>
 
 
@@ -423,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467275.jpg" />
+  <img src="Z:/picture/008/save_picture_467275.jpg" />
 </div>
 
 
@@ -449,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467250.jpg" />
+  <img src="Z:/picture/008/save_picture_467250.jpg" />
 </div>
 
 
@@ -476,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467197.jpg" />
+  <img src="Z:/picture/008/save_picture_467197.jpg" />
 </div>
 
 
@@ -502,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467075.jpg" />
+  <img src="Z:/picture/008/save_picture_467075.jpg" />
 </div>
 
 
@@ -528,7 +699,7 @@ NASCAR-2019. 23-й Этап. Бруклин. Гонка / Monster Energy NASCAR 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466937.jpg" />
+  <img src="Z:/picture/008/save_picture_466937.jpg" />
 </div>
 
 
@@ -542,171 +713,6 @@ NASCAR Cup Series 2019 - Сезон 2019 года
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4205720CCC0E4C492E9DF2C94B79ED46622E3EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320699   (466933) от 20.08.2019
-
-Художественная гимнастика. Чемпионат Европы 2019. Баку (Азербайджан). День 3-й (2019) WEBRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466933.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 мая 2019 года
-35-й Чемпионат Европы по художественной гимнастике 2019 года. Баку (Азербайджан)
-День 3-й:
-Сениорки:  Личное первенство. Квалификация (булавы и лента)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 07:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB4B8DABEF645E788BCF1E3D234BF1DB323DFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320700   (466923) от 20.08.2019
-
-Художественная гимнастика. Чемпионат Европы 2019. Баку (Азербайджан). День 4-й (2019) WEB-DLRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466923.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 мая 2019 года
-35-й Чемпионат Европы по художественной гимнастике 2019 года. Баку (Азербайджан)
-День 4-й:
-1. Юниорки: Группы. Финалы в отдельных видах упражнения(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184A07FA0F8676B8B52AB57AFADFBABD5CDE1650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548844   (466911) от 18.09.2012
-
-Рестлинг / WWE Night Of Champions (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Of Champions - одно из PPV на WWE.Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA77AE388574FDBDAE2F0689CA4B724C3E29ACF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548847   (466882) от 18.09.2012
-
-Рестлинг / WWE Night Of Champions (Preshow) (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Of Champions - одно из PPV на WWE.Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 00:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2F5D38442E359B97B4E173AFAF452419FCC620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407287   (466717) от 07.09.2020
-
-Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Ассен, Гонка 1-2 / DTM. Assen, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:29:16 + 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7549727C1CEF98EE8C5D733E7A1CAC825359C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058733   (466623) от 02.10.2016
-
-Хоккей. КХЛ 2016-2017. Сибирь (Новосибирск) - Трактор (Челябинск) (27.09.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466623.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 сентября 2016, вторник. 15:30 МСК
-КХЛ 2016-2017, Регулярный чемпионат
-
-Стадион: ЛДС «Сибирь» (Новосибирск, Россия), 7400 зрителей (100 % при вместимости 7400)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BD2B99351AA6A1FD811E7B7D8B95EE957B05A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

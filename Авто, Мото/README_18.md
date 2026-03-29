@@ -1,3 +1,81 @@
+###  Публикация: 1709331   (112842) от 24.03.2024
+
+MotoGP. Этап 02 из 22. Гран-при Португалии. Спринт (23.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112842.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2024, суббота. 18:00 МСК. Этап 2, Портимау. Гран-при Португалии. Спринт (12 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726BDECFF803F64F390A909D87C2459C98A79908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709325   (112832) от 24.03.2024
+
+MotoGP. Этап 02 из 22. Гран-при Португалии. Квалификация (23.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112832.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 марта 2024, суббота. 13:50 МСК. Этап 2, Портимау. Гран-при Португалии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09033FA069167C72C33182B6BEA9153243100091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709607   (112798) от 25.03.2024
+
+MotoGP. Этап 02 из 22. Гран-при Португалии. Гонка (24.03.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112798.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 марта 2024, воскресенье. 17:00 МСК. Этап 2, Портимау. Гран-при Португалии. Гонка (25 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2E1E7E3B050DB0664C7A4DAAB98A00498F14DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716105   (111396) от 14.04.2024
 
 MotoGP. Этап 03 из 21. Гран-при США. Квалификация (13.04.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +84,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111396.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MotoGP. Этап 03 из 21. Гран-при США. Спринт (13.04.2024) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111388.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Спринт (27.04
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110760.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110731.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ MotoGP. Этап 04 из 21. Гран-при Испании. Гонка (28.04.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110643.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Спринт (11.05
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109711.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109690.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Гонка (12.05.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109630.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108915.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108912.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ MotoGP. Этап 06 из 21. Гран-при Каталонии. Гонка (26.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108873.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108563.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Спринт (01.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108488.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ MotoGP. Этап 07 из 20. Гран-при Италии. Гонка (02.06.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108482.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106992.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Спринт (06.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106958.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ MotoGP. Этап 09 из 20. Гран-при Германии. Гонка (07.07
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106953.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Кв�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105777.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Сп�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105774.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Го�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105697.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105380.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105357.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105332.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F19B29D344364BB4F3FD2709CE1AD87B7790CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746551   (104906) от 31.08.2024
-
-MotoGP. Этап 12 из 20. Гран-при Арагона. Спринт (31.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104906.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 августа 2024, суббота. 16:00 МСК. Этап 12 Альканьис. Гран-при Арагона. Спринт (11 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7801FC9FD743B114E08E5DCCA808896FA9551644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746537   (104885) от 31.08.2024
-
-MotoGP. Этап 12 из 20. Гран-при Арагона. Квалификация (31.08.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104885.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 августа 2024, суббота. 11:50 МСК. Этап 12 Альканьис. Гран-при Арагона. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746748   (104850) от 01.09.2024
-
-MotoGP. Этап 12 из 20. Гран-при Арагона. Гонка (01.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сентября 2024, воскресенье. 15:00 МСК. Этап 12 Альканьис. Гран-при Арагона. Гонка (23 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847A69F66F4F45930BE53B26497904B3925B243E
 ```
 
 https://mybot314.ru/tekegram_catalog/

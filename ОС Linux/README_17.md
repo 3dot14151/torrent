@@ -6,7 +6,7 @@ Linux Mint 17.3 Rosa (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292315.jpg" />
+  <img src="Z:/picture/008/save_picture_292315.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Arco Linux 18.11.2 [x86_x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290931.jpg" />
+  <img src="Z:/picture/008/save_picture_290931.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Oracle Linux 7 Update 2 Server [x86-64] 1xDVD + 2CD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290558.jpg" />
+  <img src="Z:/picture/008/save_picture_290558.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Elementary OS Freya 0.3.2 [i386,amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283276.jpg" />
+  <img src="Z:/picture/008/save_picture_283276.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ openSUSE 13.2.1 Education Li-f-e [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280369.jpg" />
+  <img src="Z:/picture/008/save_picture_280369.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278986.jpg" />
+  <img src="Z:/picture/008/save_picture_278986.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278879.jpg" />
+  <img src="Z:/picture/008/save_picture_278879.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) nocodecs [32bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278874.jpg" />
+  <img src="Z:/picture/008/save_picture_278874.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Red Hat Enterprise Linux 8.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276854.jpg" />
+  <img src="Z:/picture/008/save_picture_276854.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Red Hat Enterprise Linux 7.7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275776.jpg" />
+  <img src="Z:/picture/008/save_picture_275776.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275404.jpg" />
+  <img src="Z:/picture/008/save_picture_275404.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274390.jpg" />
+  <img src="Z:/picture/008/save_picture_274390.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Linux Mint 18.1 Serena (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273115.jpg" />
+  <img src="Z:/picture/008/save_picture_273115.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262589.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262563.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262547.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261599.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Astra Linux Special Edition 1.7.4 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251824.jpg" />
+  <img src="Z:/picture/005/save_picture_251824.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250316.jpg" />
+  <img src="Z:/picture/004/save_picture_250316.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250305.jpg" />
+  <img src="Z:/picture/004/save_picture_250305.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249347.jpg" />
+  <img src="Z:/picture/004/save_picture_249347.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Xubuntu 22.04 Jammy Jellyfish LTS [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239989.jpg" />
+  <img src="Z:/picture/004/save_picture_239989.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233177.jpg" />
+  <img src="Z:/picture/005/save_picture_233177.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ SUSE Linux Enterprise Desktop Server 15
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228774.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228765.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228519.jpg" />
+  <img src="Z:/picture/005/save_picture_228519.jpg" />
 </div>
 
 

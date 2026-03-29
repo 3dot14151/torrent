@@ -1,3 +1,60 @@
+###  Публикация: 1314665   (518087) от 15.07.2019
+
+Гарднер Дозуа (сост.) | Книга магии [сборник] (2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебники, чародеи, сверхлюди, обладающие воинственным, а порой и склочным характером и ведущие весьма странный образ жизни…
+Последний сборник Гарднера Дозуа (1947–2018), одного из величайших редакторов и энтузиастов фантастики, расскажет читателю:
+– о Джеке-попрыгунчике, неуловимом грабителе, попавшем в неожиданную ловушку,
+– о последних днях Умирающей земли, – (   Читать дальше...   )Жанр: Зарубежное фэнтези, Книги про волшебниковПеревод: Вера Соломакина, И. Меньшакова, Л. Козлова-Гантман, С. В. РезникФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4E2AB3C26BB7CE80439B65C3BFD6006DE78A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314613   (518083) от 15.07.2019
+
+Роберт А. Сальваторе | Месть железного дворфа (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман трилогии «Кодекс Компаньонов» из цикла о Дзирте До'Урдене.
+
+Воссоединение Компаньонов из Халла было недолгим – они снова разлучены. Друзья оказываются в центре войны, истинные причины и цели которой гораздо серьезнее, чем кто-либо из них может вообразить. Они сражаются за Мифрил Халл, но в действительности на чашу весов положены их собственные души и (   Читать дальше...   )Жанр: ФэнтезиПеревод: Ольга РатниковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DD30CE027289E79C5C968920717C46ADD14C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314695   (518073) от 15.07.2019
 
 Лев Гурский | Корвус Коракс (2019) [FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518073.jpg" />
+  <img src="Z:/picture/008/save_picture_518073.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517959.jpg" />
+  <img src="Z:/picture/008/save_picture_517959.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517906.jpg" />
+  <img src="Z:/picture/008/save_picture_517906.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517397.jpg" />
+  <img src="Z:/picture/008/save_picture_517397.jpg" />
 </div>
 
 
@@ -111,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517389.jpg" />
+  <img src="Z:/picture/008/save_picture_517389.jpg" />
 </div>
 
 
@@ -137,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517373.jpg" />
+  <img src="Z:/picture/008/save_picture_517373.jpg" />
 </div>
 
 
@@ -163,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517265.jpg" />
+  <img src="Z:/picture/008/save_picture_517265.jpg" />
 </div>
 
 
@@ -192,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517200.jpg" />
+  <img src="Z:/picture/008/save_picture_517200.jpg" />
 </div>
 
 
@@ -220,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517141.jpg" />
+  <img src="Z:/picture/008/save_picture_517141.jpg" />
 </div>
 
 
@@ -248,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517139.jpg" />
+  <img src="Z:/picture/008/save_picture_517139.jpg" />
 </div>
 
 
@@ -274,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517092.jpg" />
+  <img src="Z:/picture/008/save_picture_517092.jpg" />
 </div>
 
 
@@ -303,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517042.jpg" />
+  <img src="Z:/picture/008/save_picture_517042.jpg" />
 </div>
 
 
@@ -329,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517035.jpg" />
+  <img src="Z:/picture/008/save_picture_517035.jpg" />
 </div>
 
 
@@ -355,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516947.jpg" />
+  <img src="Z:/picture/008/save_picture_516947.jpg" />
 </div>
 
 
@@ -384,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516843.jpg" />
+  <img src="Z:/picture/008/save_picture_516843.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516515.jpg" />
+  <img src="Z:/picture/008/save_picture_516515.jpg" />
 </div>
 
 
@@ -439,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516192.jpg" />
+  <img src="Z:/picture/008/save_picture_516192.jpg" />
 </div>
 
 
@@ -466,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516176.jpg" />
+  <img src="Z:/picture/008/save_picture_516176.jpg" />
 </div>
 
 
@@ -492,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516110.jpg" />
+  <img src="Z:/picture/008/save_picture_516110.jpg" />
 </div>
 
 
@@ -520,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516057.jpg" />
+  <img src="Z:/picture/008/save_picture_516057.jpg" />
 </div>
 
 
@@ -547,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516052.jpg" />
+  <img src="Z:/picture/008/save_picture_516052.jpg" />
 </div>
 
 
@@ -576,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516047.jpg" />
+  <img src="Z:/picture/008/save_picture_516047.jpg" />
 </div>
 
 
@@ -603,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516039.jpg" />
+  <img src="Z:/picture/008/save_picture_516039.jpg" />
 </div>
 
 
@@ -629,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515779.jpg" />
+  <img src="Z:/picture/008/save_picture_515779.jpg" />
 </div>
 
 
@@ -640,60 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD7654CC40F86A953DA418C37D9A88784CA70640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315166   (515012) от 18.07.2019
-
-Ольга Романовская | В академии поневоле (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515012.jpg" />
-</div>
-
-
-###  Подробнее
-
-За самой обаятельной улыбкой часто скрывается острый нож, а за неоправданно высоким гонораром – нечестная игра. Знай Эльмира Флин, чем все закончится, выставила бы вон настойчивого клиента и не попала бы в Академию магии и прикладного чародейства. Но раз уж она там оказалась, придется на пару месяцев стать ведьмой, приручить одного очень вредного вампира и, если (   Читать дальше...   )Жанр: Героическое фэнтези, Магические академииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8B60ED40188D55CD304BB4830F52CE4C878619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242509   (514974) от 22.08.2018
-
-Ольга Олие | Блондинки тоже не промах (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Блондинки».
-
-Любопытство наказуемо. Хотела полетать на драконе? Полетала. А как дополнительный бонус — обрела жениха. Говорила мне мама: прежде чем совать нос куда бы то ни было, сперва стоит изучить, что на той стороне. Я не стала осторожничать — получила приятный сюрприз. Жаль, что без последствий не обошлось.Жанр: Любовное фэнтези, Фэнтези про драконовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A15C93A107B014DCC8DC99925BBAC70757007CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

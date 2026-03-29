@@ -1,3 +1,81 @@
+###  Публикация: 923183   (564530) от 31.07.2015
+
+Дмитрий Мамин-Сибиряк | Сказки (2015) [MP3, Владимир Самойлов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Наркисович Мамин-Сибиряк (1852 — 1912) — Известный русский писатель и драматург, классик русской литературы. Его произведения, а особенно сказки, которые писатель посвящал своей дочери Алёнушке, знакомы всем нам, еще со школьной скамьи.Жанр: СказкиИздательство: Нигде не купишьПродолжительность: 03:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C7CE4B4C28017A25759DB42DA9D703689ACB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530177   (564465) от 01.08.2012
+
+Николай Кун | Подвиги Геракла [2012] [MP3, Олег Мартьянов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древнегреческая культура оставила нам в наследство удивительные мифы о всемогущих богах и мудрых богинях, об опасных путешествиях и славных походах. Дошла до нас и легенда об отважном герое Древней Греции - Геракле. Чтобы искупить прежние грехи и обрести бессмертие Геракл должен совершить двенадцать подвигов.Жанр: Детская литератураИздательство: Мир "Искателя"
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED24D5DBCFA05F57D9582C76992F8F1369B945B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923520   (560912) от 02.08.2015
+
+Георгий Гончаров | Астроном у географа глобус отнял (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_560912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля как планета: взгляд астронома.Жанр: КосмосПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5259574F1F0D5206B92C36D0096757E66693F004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923493   (560811) от 02.08.2015
 
 Георгий Гончаров | 14 миллиардов световых лет (2015) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560811.jpg" />
+  <img src="Z:/picture/008/save_picture_560811.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560708.jpg" />
+  <img src="Z:/picture/008/save_picture_560708.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559538.jpg" />
+  <img src="Z:/picture/008/save_picture_559538.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559231.jpg" />
+  <img src="Z:/picture/008/save_picture_559231.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559161.jpg" />
+  <img src="Z:/picture/008/save_picture_559161.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557973.jpg" />
+  <img src="Z:/picture/008/save_picture_557973.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557531.jpg" />
+  <img src="Z:/picture/008/save_picture_557531.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ VA - Babydream. Nature sounds vol.6 (2001) [MP3|320 kbps]<Классика дл�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557280.jpg" />
+  <img src="Z:/picture/008/save_picture_557280.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ VA - Классика для малышей (2008) [MP3|320 kbps]<Классич
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557207.jpg" />
+  <img src="Z:/picture/008/save_picture_557207.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ VA - Лучшая Классика Для Малышей (2011) [MP3|256 kbps]<�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557204.jpg" />
+  <img src="Z:/picture/008/save_picture_557204.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ VA - Классика для малышей (Самые прекрасные м�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557173.jpg" />
+  <img src="Z:/picture/008/save_picture_557173.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557160.jpg" />
+  <img src="Z:/picture/008/save_picture_557160.jpg" />
 </div>
 
 
@@ -333,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556520.jpg" />
+  <img src="Z:/picture/008/save_picture_556520.jpg" />
 </div>
 
 
@@ -359,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555670.jpg" />
+  <img src="Z:/picture/008/save_picture_555670.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554259.jpg" />
+  <img src="Z:/picture/008/save_picture_554259.jpg" />
 </div>
 
 
@@ -411,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552653.jpg" />
+  <img src="Z:/picture/008/save_picture_552653.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546400.jpg" />
+  <img src="Z:/picture/008/save_picture_546400.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546359.jpg" />
+  <img src="Z:/picture/008/save_picture_546359.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540567.jpg" />
+  <img src="Z:/picture/008/save_picture_540567.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ VA - Самые лучшие песни детям (2011) [MP3|320 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540432.jpg" />
+  <img src="Z:/picture/008/save_picture_540432.jpg" />
 </div>
 
 
@@ -544,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538537.jpg" />
+  <img src="Z:/picture/008/save_picture_538537.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537266.jpg" />
+  <img src="Z:/picture/008/save_picture_537266.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537096.jpg" />
+  <img src="Z:/picture/008/save_picture_537096.jpg" />
 </div>
 
 
@@ -610,87 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57AC1EA9DE718B588D0CB9EA6FD0D6321B9AB966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312067   (536490) от 02.07.2019
-
-Эрин Хантер | Полночь (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежевика, сын Звездоцапа, получает во сне послание от Звездного племени, которое гласит, что в новолуние он должен встретится с другими избранниками и выслушать то, что скажет Полночь. Вначале молодой воин считает это простым сном, но на совете выясняется, что еще три кота из разных племен получали то же послание. Вместе они должны покинуть свой лес и найти место-где-тонет-солнце. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 10:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD401B86D6CD9CB97482E1DED06DE7F7DB359A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227194   (535771) от 16.08.2010
-
-Сельма Лагерлеф | Чудесное путешествие Нильса с дикими гусями [1968 / 2008] [APE,  М.Корабельникова, В.Сперантова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, мальчик Нильс Хольгерссон, превращается гномом в карлика, и совершает увлекательное путешествие на гусе из Швеции в Лапландию и обратно. По пути в Лапландию он встретит стаю диких гусей, летевших вдоль Ботнического залива, и вместе с ними заглянет в отдаленные районы Скандинавии. В результате Нильс посетит все провинции Швеции, попадёт в различные (   Читать дальше...   )Жанр: Музыкальная инсценировкаПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926082   (535482) от 09.08.2015
-
-Андрей Сёмин-Вадов | Джоконда и принцесса из леса (2015) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Царь-янтарь и королева Слева, шут-парашют и душечка-колдушечка, шмель-карамель и пчелочка с челочкой, Кикимора-умора и такса-плакса...
-
-Все они ищут маленькую пропавшую принцессу. На их пути встречаются Лев-гнев, пещера Ящера, остров Калиостро, огненная даль-мерцаль и даже тощий Кощей без вещей.
-Не знают о ней ни Дыня-гордыня, ни служанка-поганка, ни пан-тюльпан.(   Читать дальше...   )Жанр: СказкаПродолжительность: 07:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D173D029FF3E089CF5DC167926D44826BDEB70
 ```
 
 https://mybot314.ru/tekegram_catalog/

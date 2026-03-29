@@ -1,3 +1,161 @@
+###  Публикация: 1552395   (18264) от 15.05.2025
+
+Любовь, смерть и роботы / Love, Death & Robots (2022) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-9 из 9) LostFilm, HDRezka Studio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал,
+для взрослыхРежиссер: Тим МиллерАктеры: Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилто, Эмили О’Брайэн, Хелен Сэдлер, Илэйн Тан.Перевод: Профессиональный многоголосый (Lostfilm, HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4357522F5726155F79DC8F3B4DE2192939A89FA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797215   (18059) от 17.05.2025
+
+Любовь, смерть и роботы / Love, Death & Robots (2025) WEB-DL [H.264/1080p] (сезон 4, серии 1-10 из 10) [EN / RU, EN, ZH, HEB, RO, UKR Sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал,
+для взрослыхРежиссер: Эмили Дин, Дэвид Финчер, Энди Лион, Патрик ОсборнАктеры: Антонио Альварес, Стефан Капичич, Хейли МакЛафлин, Хелен Сэдлер, Илэйн Тан, Алексия Докс, Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилтон, Эмили О’Брайэн, Адам Бартли, Мэделин НайтЯзык озвучки: английскийСубтитры: Русские, английские, китайские, иврит, румынские, украинскиеПродолжительность: ~00:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1670F231CBBF1B9F49588286BFC82E348DA66718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794810   (18056) от 17.05.2025
+
+Этернавт / El Eternauta / The Eternaut (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm, HDRezka, Red Head Sound, 1win Studio, LE-Production
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18056.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Буэнос-Айресе выпадает смертоносный снег, контакт с которым мгновенно убивает. Город охватывает хаос, а выжившие запираются в домах, не зная, что происходит снаружи. Один из них — Хуан Сальво, обычный инженер, который вместе с женой и дочерью пытается спастись. Вскоре он объединяется с другими выжившими, чтобы выяснить природу катастрофы и найти выход.Производство: Аргентина, США / K&S FilmsЖанр: фантастика, боевик, драма, приключенияРежиссер: Бруно СтагнароАктеры: Рикардо Дарин, Карла Петерсон, Сесар Тронкосо, Марсело Субиотто, Андреа Пьетра, Арьель Стальтари, Клаудио Мартинес Бель и другие.Перевод: Многоголосый (LostFilm, HDRezka Studio, Red Head Sound, 1win Studio, LE-Production)Язык озвучки: Русский, испанский, английскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH), французские (Full, SDH), испанские (Forced, Full, SDH), немецкие, итальянскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE371E91504759B416F8B3353D1BE8AA9EC8D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797386   (18043) от 17.05.2025
+
+Это вам не щи варить. Международный рекорд «Самый юный сварщик»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетняя Елизавета Алтунина изменила представление о детских возможностях, став самым юным сварщиком в мире, покорив три технологии сварки: Ручную дуговую сварку (ММА), сварку полуавтоматом (NIG/MAG) и самую сложную- аргонодуговую сварку (TIG).В раннем возрасте Елизавета начала проявлять интерес к технике. Первый раз взяла в руки электрододержатель и попыталась (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797779   (17958) от 18.05.2025
+
+Мэр поневоле (2025) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэр города Николай Николаевич представляет своего нового зама. Крупного специалиста, которого он переманил из столицы. В администрации никто и не догадывается, что еще неделю назад Катерина Петровна была текила-герл. После серьёзного разговора с местным авторитетом, мэр выпивает лишнего и впадает в кому. Теперь, Катрин — исполняющая обязанности мэра, так решил тот (   Читать дальше...   )Производство: Россия / МайВэйСтудия, ТНТЖанр: комедияРежиссер: Радда НовиковаАктеры: Яна Кошкина, Ян Цапник, Кирилл Нагиев, Александра Емельянова, Катя Кабак, Татьяна Догилева, Константин Карасик, Сергей Фролов, Артур Ваха, Вадим СалаховЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2FD4EB0D93F328C57DD80F501228E3B1854F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797365   (17957) от 18.05.2025
+
+Батя 2. Дед (2025) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время развода с женой Макс вспоминает детство, когда родители, которые тоже собирались разводиться, отправили его на лето к деду-фронтовику в деревню. Тогда строгий дед стал настоящим другом и учителем для мальчика, а также свидетелем и участником его многочисленных проделок.Производство: Россия / Централ Партнершип, Гуд Стори Медиа, ТНТЖанр: комедияРежиссер: Илья УчительАктеры: Владимир Вдовиченков, Стас Старовойтов, Евгений Цыганов, Надежда Михалкова, Андрей Андреев, Степан Девонин, Севастьян Бугаев, Анастасия Талызина, София Петрова, Юрий СтепановПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610EE81D98FD70DC3700532AC1E01EB73A33A388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686782   (17956) от 18.05.2025
 
 Меч короля / Bastarden / The Promised Land (2023) BDRip [H.264/1080p] [MVO]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17956.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17955.jpg" />
 </div>
 
 
@@ -60,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17946.jpg" />
 </div>
 
 
@@ -86,7 +244,7 @@ Samsung и Xiaomi тоже начали цензурировать VPN-прил�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17935.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ FloorGenerator 2.10 for 3ds Max 2013-2026 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17738.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17729.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ Nvidia запретила сравнивать GeForce RTX 5060 с RTX 4060
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17641.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17636.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ N/A | WIFI антенна за 15 минут своими руками PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17635.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17605.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17497.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17459.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17411.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17354.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 05.2025
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17347.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ Tempest (2016) [Ru/Multi] (1.7.5/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17346.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17065.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17039.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17038.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16923.jpg" />
 </div>
 
 
@@ -517,162 +675,6 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55F91FE33132486F011BA18B0714EAA857365D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799355   (16790) от 27.05.2025
-
-Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участвуйте в важнейших битвах Второй мировой и сражайтесь за победу на фронтах Европы, Тихого океана и Северной Африки. В игре Vanguard, разработанной студией Sledgehammer Games, вас ждет увлекательная история о небольшом отряде элитных солдат из разных стран и родов войск, объединившихся, чтобы дать отпор самой страшной угрозе миру, переломить ход войны и заложить (   Читать дальше...   )Тип издания: RepackРазработчик: Sledgehammer Games, Treyarch, High Moon Studios, Raven Software, Beenox, DemonwareЖанр: ЭкшеныЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF56130E7D13A1FC1529C54373B5CE72A8C4A1F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799226   (16789) от 27.05.2025
-
-Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.2.12721522) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, представляющий собой новую главу в одноименной франшизе. Представлен совершенно новый сюжет и огромное количество новых механик. Улучшен искусственный интеллект в одиночном приключении, полностью обновлена физика воды и механика плавания, переработано управление транспортными средствами и многое другое.Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Beenox, Treyarch, High Moon Studios, Sledgehammer Games, Activision Shanghai, Demonware, Toys for BobЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701B12B329685A45B8EF26970BF011EE82408E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799674   (16491) от 29.05.2025
-
-Kaspersky Free 21.21.7.384 Repack by LcHNextGen (29.05.2025) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Free – это ограниченная бесплатная версия приложения Kaspersky. При использовании бесплатной версии приложения вы получаете высокое качество защиты, дополненное нашими новыми разработками, с полностью обновленным интерфейсом для удобного использования.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D0674703AF20DB5ADF4FFF3E332CD1BA1232EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799652   (16490) от 29.05.2025
-
-Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack FitGirl
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участвуйте в важнейших битвах Второй мировой и сражайтесь за победу на фронтах Европы, Тихого океана и Северной Африки. В игре Vanguard, разработанной студией Sledgehammer Games, вас ждет увлекательная история о небольшом отряде элитных солдат из разных стран и родов войск, объединившихся, чтобы дать отпор самой страшной угрозе миру, переломить ход войны и заложить (   Читать дальше...   )Тип издания: RepackРазработчик: Sledgehammer Games, Treyarch, High Moon Studios, Raven Software, Beenox, DemonwareЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B4F6C8D8E1F8B13BB2468D1945A904285CE3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794356   (16484) от 29.05.2025
-
-Одни из нас / The Last of Us (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-7 из 7) Sunnysiders
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пять лет после событий первого сезона Джоэл и Элли оказываются втянуты в конфликт друг с другом и с миром, ещё более опасным и непредсказуемым, чем тот, который они оставили позади.Производство: Канада, США /	Naughty Dog, PlayStation Productions, Sony Pictures TelevisionЖанр: фантастика, драма, ужасы, боевикРежиссер: Крэйг Мэйзин, Марк Майлод, Питер Хор, Кейт Херрон, Стивен Уильямс, Нил Дракманн, Нина Лопес-КоррадоАктеры: Педро Паскаль, Белла Рэмзи, Гэбриел Луна, Изабела Мерсед, Янг Мазино, Кейтлин Дивер, Рутина Уэсли, Роберт Джон Бёрк, Спенсер Лорд, Тати ГабриэльПеревод: Профессиональный многоголосый (Рус, Укр - Sunnysiders по заказу Megogo)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: 2x русские, английские, украинские, болгарские, китайские, румынскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C3C06ED9E613ADF3FCF59038B33B6CBD99E32A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027259   (16483) от 29.05.2025
-
-Подшивка журналов | Моделист-конструктор (1962-1995) [PDF] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный массовый популярный научно-технический журнал. Освещает вопросы научно-технического творчества молодежи, рационализаторской работы, конструирования новой любительской техники, деятельности общественных конструкторских бюро, клубов, кружков юных техников и др.; рассказывает об истории русской, советской и зарубежной техники, о боевых подвигах советских (   Читать дальше...   )Жанр: Моделизм, научно-популярный для детей, хоббиИздательство: ЦК ВЛКСМ, изд-во "Молодая гвардия"Формат: PDFКачество: Хороший скан (
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50583ACF0B9AD35F3289E9B1D920E97F8D3FE289
 ```
 
 https://mybot314.ru/tekegram_catalog/

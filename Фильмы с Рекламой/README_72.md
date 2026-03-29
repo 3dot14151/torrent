@@ -1,3 +1,29 @@
+###  Публикация: 1263506   (287281) от 19.11.2018
+
+Лучший день моей жизни / Here and Now (2018) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нью-йоркская звезда джаза Вивьен накануне мирового турне получает безнадёжный диагноз. У неё остаётся всего 24 часа, чтобы пересмотреть свою жизнь, которую она провела в погоне за мечтой и успехом, отодвинув в сторону близких людей.Производство: США / Pretty Matches Productions, AMBI Group, Big Indie PicturesЖанр: Драма, мелодрама, музыкаРежиссер: Фабьен КонстантАктеры: Сара Джессика Паркер, Рене Зеллвегер, Тейлор Кинни, Саймон Бейкер, Коммон, Жаклин Биссет, Гас Бирни, Валид Зуэйтер, Мэри Бет Пейл, Дорис МакКартиПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:30:45Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B1D237C169A356ABBA0B0473CD5F49190564CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263514   (287274) от 19.11.2018
 
 Перехитрить палача / Cheat the Hangman (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287274.jpg" />
+  <img src="Z:/picture/008/save_picture_287274.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287103.jpg" />
+  <img src="Z:/picture/008/save_picture_287103.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286994.jpg" />
+  <img src="Z:/picture/008/save_picture_286994.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286915.jpg" />
+  <img src="Z:/picture/008/save_picture_286915.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286911.jpg" />
+  <img src="Z:/picture/008/save_picture_286911.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286135.jpg" />
+  <img src="Z:/picture/008/save_picture_286135.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285679.jpg" />
+  <img src="Z:/picture/008/save_picture_285679.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285663.jpg" />
+  <img src="Z:/picture/008/save_picture_285663.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285653.jpg" />
+  <img src="Z:/picture/008/save_picture_285653.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285651.jpg" />
+  <img src="Z:/picture/008/save_picture_285651.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285641.jpg" />
+  <img src="Z:/picture/008/save_picture_285641.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285584.jpg" />
+  <img src="Z:/picture/008/save_picture_285584.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285512.jpg" />
+  <img src="Z:/picture/008/save_picture_285512.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285503.jpg" />
+  <img src="Z:/picture/008/save_picture_285503.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285501.jpg" />
+  <img src="Z:/picture/008/save_picture_285501.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285363.jpg" />
+  <img src="Z:/picture/008/save_picture_285363.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285360.jpg" />
+  <img src="Z:/picture/008/save_picture_285360.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285359.jpg" />
+  <img src="Z:/picture/008/save_picture_285359.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285244.jpg" />
+  <img src="Z:/picture/008/save_picture_285244.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285235.jpg" />
+  <img src="Z:/picture/008/save_picture_285235.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284194.jpg" />
+  <img src="Z:/picture/008/save_picture_284194.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284185.jpg" />
+  <img src="Z:/picture/008/save_picture_284185.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284180.jpg" />
+  <img src="Z:/picture/008/save_picture_284180.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284064.jpg" />
+  <img src="Z:/picture/008/save_picture_284064.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283862.jpg" />
+  <img src="Z:/picture/008/save_picture_283862.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C30A4526C36274E7428C142D6A462C4F0C0393CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263847   (283857) от 21.11.2018
-
-Привет, мистер Миллиардер / Xi hong shi shou fu / Hello Mr. Billionaire (2018) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный неудачник Ван Доюй вдруг узнаёт, что его сказочно богатый двоюродный дед оставил ему многомиллиардное наследство. Но не всё так просто - чтобы получить тридцать миллиардов наследства, Доюй должен потратить миллиард за месяц, причём на невыполнимых, на первый взгляд, условиях.Производство: Китай / Beijing Mahua Funage Company, New Classics Media, Starry EntertainmentЖанр: КомедияРежиссер: Пэн Дамо, Янь ФэйАктеры: Шэнь Тэн, Вивиан Сун, Ай Лунь, Бэйэр Бао, Утро Чанг, Чан Юань, Цу-Чанг Чао, Ламберт Хьюстон, Ларри Сянь Пин ЛангПеревод: Многоголосый закадровый, любительский (КОЛОБОК)Субтитры: Китайские, английские (хардсаб)Продолжительность: 01:57:31Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84790E0111B2E3F59FF12EA2D22919930388CC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

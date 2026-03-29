@@ -1,3 +1,32 @@
+###  Публикация: 1726697   (108663) от 30.05.2024
+
+Allan Barron - Money To Burn (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World's Greatest Liar (03:23)
+ 02. Dolphins (04:48)
+ 03. There's A Man I Know (04:05)
+ 04. Boatstopper's Song (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5DFD74DF1661583BACB3236F931E815D702A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726808   (108662) от 30.05.2024
 
 Night Pleasure Hotel - Portraits (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
@@ -6,7 +35,7 @@ Night Pleasure Hotel - Portraits (2024) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108662.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Alberto Rigoni - Unexpected Lullabies (2024) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108388.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cactus - Temple Of Blues: Influences And Friends (2024) [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108358.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bon Jovi - Rockin' In Cleveland 1984 (2012) Remaster, 2024, The Media Champ [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107877.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Madness - Theatre Of The Absurd presents C'Est La Vie (2023) Enhanced Edition, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107301.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [MP3|320 Kbps] <Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106928.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ DS Caw - Nothing To Fight For (2024) [MP3|320 Kbps] <Classic Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106787.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Slade - Live In London 1972 (Live) (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106773.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ice - Man In The Moon (2024) [MP3|320 Kbps] <Neo Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106728.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Santana - House Of Blues - Las Vegas, NV / May 23, 2024 (2024) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106434.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Keys - The Grand Seduction (2024) [MP3|320 Kbps] <Melodic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106073.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Smashing Pumpkins - Aghori Mhori Mei (2024) [MP3|320 Kbps] <Alternative Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105793.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tom Petty - Full Moon Fever (1989) LP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105741.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105511.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Miazma - 5 Albums (2011-2018) [MP3|320 Kbps] <Gothic Rock, Darkwave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105461.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Red Moon Macabre (Renzo Tellez) - 13 Albums (2021-2024) [MP3|320 Kbps] <Goth
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105394.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Freedom Rockets - American Trash (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105378.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ And So I Watch You From Afar - 7 Albums (2009-2024) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105344.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Saga - The Works (1991) 2CD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104717.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Alan Parsons Project - The Turn of a Friendly Card (1980) Sessions, 2024, Le
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104351.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Simon & Garfunkel - Manchester, England, May '67 (2024) [MP3|320 Kbps] <Soft Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104350.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Neil Young - Global Citizen Festival (2012) Live, 2024, Unicorn [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104336.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104335.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103845.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103762.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C227AFAF01DF4D14441B3CB982EF5EAC49581A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758275   (103426) от 01.11.2024
-
-Avi Rosenfeld & Juan Bach - Bz Dz Purple Snake (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Eighteen 04:47
-02. Save Me From The Eagles Nest 04:12
-03. Beat Of Life 04:30
-04. Two Of A Thousand 05:14(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94739EDD30A2FDCAF7E160446884E58E4BBB9B92
 ```
 
 https://mybot314.ru/tekegram_catalog/

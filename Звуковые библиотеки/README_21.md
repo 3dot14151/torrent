@@ -1,3 +1,81 @@
+###  Публикация: 1825921   (150734) от 18.10.2025
+
+Звуковые библиотеки - The Sound of Machines - Metal Percussion: T Pot Bridge Sample Pack [AIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мне очень нравится гулять по этой пешеходной дорожке в моём городе Ричмонде, штат Вирджиния. Хотя официальное название моста — Мемориальный мост Т. Тайлера Поттерфилда, местные называют его мостом Т-Пот. Гораздо проще сказать. Отсюда открываются головокружительные виды на бурлящую реку Джеймс внизу и центр Ричмонда (в зависимости от того, на какие здания вы смотрите). (   Читать дальше...   )Формат: AIF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747866E73D0237E84E1FB55A969A7673283F87C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271770   (148375) от 24.12.2018
+
+Звуковые библиотеки - Bluezone Corporation - Movie Trailer Sound Effects [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movie Trailer Sound Effects - это пакет сэмплов Trailer / Cinematic, охватывающий широкий спектр тщательно записанных окружений, звуковых эффектов, ударов, текстур синтеза и переходов.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D0B7C4BA2AB85C5FC1E0685CA47AAAEE4D6705
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519387   (148160) от 24.12.2021
+
+Звуковые библиотеки - Project SAM - Symphobia 1 v2.0 RePack ViP [Kontakt, OGG]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оцените полностью обновленную версию Symphobia 2.0 Получите классический и проверенный временем звук Symphobia в совершенно новом интерфейсе с массой новых возможностей.Формат: Kontakt: NICNT, NCSN, NKC, NKR, NKX, NKA, NKI, OGG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C997F7FF5EB5CEE76E9156F786919A34EEAC4B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348033   (145987) от 26.12.2019
 
 Kirk Hunter Studios - Spotlight Strings 4D - RePack Андрей650071 [Kontakt]
@@ -6,7 +84,7 @@ Kirk Hunter Studios - Spotlight Strings 4D - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145987.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ Boom Library - WORLD WAR 2 TANKS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145484.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144111.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144026.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Kirk Hunter Studios - Front Row Violins - RePack Андрей650071 [Kontakt, WA
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141376.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140764.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136851.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136760.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128881.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125928.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121566.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120922.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119391.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119246.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117601.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117328.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112141.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112140.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104918.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104473.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101719.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101679.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101619.jpg" />
 </div>
 
 
@@ -600,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4294B6C13A237FD1E58C0B3623D9A89255666C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822576   (100939) от 07.10.2025
-
-Звуковые библиотеки - Producer Loops - Kryptic Samples - Calydon [WAV, MID]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100939.jpg" />
-</div>
-
-
-###  Подробнее
-
-«CALYDON» — это инновационный и свежий микс хард- и дарк-трэпа и городской музыки. Это коллекция сэмплов, до краев наполненная самыми смелыми и глубокими звуками, созданная Crude Sounds, новым дочерним лейблом Kryptic Samples для продюсеров трэп-музыки, стремящихся окунуться в тёмную сторону трэпа и городской музыки.Формат: WAV, MID
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF37D1B0A66F61FFEC1E50B2B2348AB847094FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822648   (100905) от 07.10.2025
-
-Звуковые библиотеки - Amazon - Fire & Fireworks Sound Effects [FLAC]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обширная звукотека эффектов на тему огня: здесь вы встретите звуки пожаров, огненных взрывов, услышите потрескивающий огонь, доносящийся из камина, интенсивное вспыхивание и шипящее горение бензина, разжигание огня взятой из коробки спичкой с интенсивным пламенем, большой фейерверк с финальной овацией, взрывы петард, звук воспламеняющегося пороха, многократные взрывы, (   Читать дальше...   )Формат: FLAC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292CE449A42EA8FE46C8AB9F811A3C083F1DD04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822321   (100797) от 06.10.2025
-
-Звуковые библиотеки - Bigcitiloops - Ghetto Gospel 4 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100797.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ghetto Gospel 4» содержит десять самых вдохновляющих индивидуальных сэмплов госпел-музыки. Эта проникновенная музыка — настоящий шедевр среди госпел-сэмплов для нарезки. Эти комплекты вдохновлены такими артистами, как Андре Крауч, Смоки Норфул, Марта Муницци, Кирк Франклин и многими другими.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F8E532BD206FE89C7B38C0F645DFEC546A5C95
 ```
 
 https://mybot314.ru/tekegram_catalog/

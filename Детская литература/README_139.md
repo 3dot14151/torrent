@@ -1,3 +1,31 @@
+###  Публикация: 1071769   (357349) от 11.11.2016
+
+Александр Батров | Завтра – океан (1954) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все свое творчество А. М. Батров посвятил детям. Многие писатели среднего и младшего поколения вырастали, зачитываясь его книжками. Но во много раз больше число его читателей, излеченных романтикой моря, которая буквально пронизывает все произведения Александра Батрова, стали моряками.
+
+"...Море навеяло на них теплую целебную дрему. Вода до самого дна просвечивалась (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5551AF4BE9BE49F44B6C3767DB8E8BC3E2E9AC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071766   (357339) от 11.11.2016
 
 Владимир Тан-Богораз | Северные рассказы (1958) [PDF]
@@ -6,7 +34,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357339.jpg" />
+  <img src="Z:/picture/008/save_picture_357339.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357239.jpg" />
+  <img src="Z:/picture/008/save_picture_357239.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357237.jpg" />
+  <img src="Z:/picture/008/save_picture_357237.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356888.jpg" />
+  <img src="Z:/picture/008/save_picture_356888.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356645.jpg" />
+  <img src="Z:/picture/008/save_picture_356645.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356330.jpg" />
+  <img src="Z:/picture/008/save_picture_356330.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356212.jpg" />
+  <img src="Z:/picture/008/save_picture_356212.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356208.jpg" />
+  <img src="Z:/picture/008/save_picture_356208.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356207.jpg" />
+  <img src="Z:/picture/008/save_picture_356207.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355879.jpg" />
+  <img src="Z:/picture/008/save_picture_355879.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354879.jpg" />
+  <img src="Z:/picture/008/save_picture_354879.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354870.jpg" />
+  <img src="Z:/picture/008/save_picture_354870.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354778.jpg" />
+  <img src="Z:/picture/008/save_picture_354778.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354750.jpg" />
+  <img src="Z:/picture/008/save_picture_354750.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354626.jpg" />
+  <img src="Z:/picture/008/save_picture_354626.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354536.jpg" />
+  <img src="Z:/picture/008/save_picture_354536.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354484.jpg" />
+  <img src="Z:/picture/008/save_picture_354484.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354145.jpg" />
+  <img src="Z:/picture/008/save_picture_354145.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354073.jpg" />
+  <img src="Z:/picture/008/save_picture_354073.jpg" />
 </div>
 
 
@@ -516,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353984.jpg" />
+  <img src="Z:/picture/008/save_picture_353984.jpg" />
 </div>
 
 
@@ -544,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352986.jpg" />
+  <img src="Z:/picture/008/save_picture_352986.jpg" />
 </div>
 
 
@@ -572,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352387.jpg" />
+  <img src="Z:/picture/008/save_picture_352387.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352155.jpg" />
+  <img src="Z:/picture/008/save_picture_352155.jpg" />
 </div>
 
 
@@ -624,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352016.jpg" />
+  <img src="Z:/picture/008/save_picture_352016.jpg" />
 </div>
 
 
@@ -650,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352011.jpg" />
+  <img src="Z:/picture/008/save_picture_352011.jpg" />
 </div>
 
 
@@ -663,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D651171E878B610887F96848765DEB6242862376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256684   (351997) от 23.10.2018
-
-Калеб Крисп | Остановите Айви Покет! (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351997.jpg" />
-</div>
-
-
-###  Подробнее
-
-После трагического происшествия в Баттерфилд-парке Айви Покет оказалась в доме гробовщиков, которые взяли её под опеку. Но опасные приключения на этом не закончились. Алмаз Тик-так открыл страшную тайну: Ребекка, которую Айви считала погибшей, оказалась в Проспе, другом мире, где её подвергают ужасным испытаниям. Айви во что бы то ни стало надо проникнуть туда и (   Читать дальше...   )Жанр: Городское фэнтези; Фантастика для детейПеревод: Наташа АллунанФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2CD645DE9C13FD4B8C2C0C7C5B3F7792F983C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

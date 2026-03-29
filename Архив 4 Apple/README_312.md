@@ -1,3 +1,113 @@
+###  Публикация: 1145650   (619680) от 26.06.2017
+
+Lyn 1.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - просмотрщик и браузер изображений
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 июня 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92F3349FFC9B1C0AD430E529DB26D25E1D1A621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145653   (619595) от 26.06.2017
+
+Sparkle Pro 2.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sparkle создана специально для веб-дизайна и строительства веб-сайтов и даёт полный визуальный контроль над всем.
+
+Если вы когда-нибудь занимались ручным кодированием веб-сайтов, вы потратили много часов, чтобы выяснить, как вы могли бы выровнять элементы страницы так же, как вы хотели, или выяснить, почему некоторые браузеры не отображают содержимое. Все это является (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2017Разработчик: River SRLПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Итальянский, Немецкий и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99308F57C9C1A8C703AD4E7113B18BCFA7B995E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910848   (619480) от 21.06.2015
+
+Nik Software Complete Collection by Google 1.2.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
+Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 июня 2015Разработчик: Nik SoftwareПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8048831AFFE08BAE475660AC4683C2ADD3154EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910957   (619387) от 21.06.2015
+
+XMind 6 Pro 3.5.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619387.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMind – это лучшее программное обеспечение для построения диаграмм связей (они также называются интеллект-картами или ассоциативными картами). Это великолепный инструмент для мозгового штурма, экономии времени и энергии вашей компании. Мощное программное обеспечение обычно предоставляет множество инструментов, в которых трудно разобраться новым пользователям. В течение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 июня 2015Разработчик: XMind Ltd.Поддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Русский, Английский и др. (зависит от системного языка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0393BFBD44A2E91FE82DD4D1E47EDE1459962076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036528   (619253) от 21.07.2016
 
 goPanel 1.4 [En]
@@ -6,7 +116,7 @@ goPanel 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619253.jpg" />
+  <img src="Z:/picture/008/save_picture_619253.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ Blocs 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619087.jpg" />
+  <img src="Z:/picture/008/save_picture_619087.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.5b11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618590.jpg" />
+  <img src="Z:/picture/008/save_picture_618590.jpg" />
 </div>
 
 
@@ -92,7 +202,7 @@ GraphicConverter 11 v11.6.1 BETA [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618581.jpg" />
+  <img src="Z:/picture/008/save_picture_618581.jpg" />
 </div>
 
 
@@ -118,7 +228,7 @@ Yoink 3.6.81 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618580.jpg" />
+  <img src="Z:/picture/008/save_picture_618580.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ future.dj pro - mix everything 1.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618579.jpg" />
+  <img src="Z:/picture/008/save_picture_618579.jpg" />
 </div>
 
 
@@ -171,7 +281,7 @@ Wondershare PDFelement Pro OCR 8.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618399.jpg" />
+  <img src="Z:/picture/008/save_picture_618399.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ KCNcrew Pack 04-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618305.jpg" />
+  <img src="Z:/picture/008/save_picture_618305.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ Viscosity 1.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618087.jpg" />
+  <img src="Z:/picture/008/save_picture_618087.jpg" />
 </div>
 
 
@@ -252,7 +362,7 @@ PlistEdit Pro 1.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617877.jpg" />
+  <img src="Z:/picture/008/save_picture_617877.jpg" />
 </div>
 
 
@@ -279,7 +389,7 @@ Homeworld Deserts of Kharak (2016) [Multi/Ru] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617757.jpg" />
+  <img src="Z:/picture/008/save_picture_617757.jpg" />
 </div>
 
 
@@ -305,7 +415,7 @@ CARROT Weather - Talking Forecast Robot 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617395.jpg" />
+  <img src="Z:/picture/008/save_picture_617395.jpg" />
 </div>
 
 
@@ -333,7 +443,7 @@ Downie 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617390.jpg" />
+  <img src="Z:/picture/008/save_picture_617390.jpg" />
 </div>
 
 
@@ -361,7 +471,7 @@ DropDMG 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617388.jpg" />
+  <img src="Z:/picture/008/save_picture_617388.jpg" />
 </div>
 
 
@@ -388,7 +498,7 @@ Path Finder 8.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617297.jpg" />
+  <img src="Z:/picture/008/save_picture_617297.jpg" />
 </div>
 
 
@@ -414,7 +524,7 @@ Principle 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617275.jpg" />
+  <img src="Z:/picture/008/save_picture_617275.jpg" />
 </div>
 
 
@@ -443,7 +553,7 @@ Subnautica (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617083.jpg" />
+  <img src="Z:/picture/008/save_picture_617083.jpg" />
 </div>
 
 
@@ -469,7 +579,7 @@ FSNotes 5.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616725.jpg" />
+  <img src="Z:/picture/008/save_picture_616725.jpg" />
 </div>
 
 
@@ -495,7 +605,7 @@ PriceWatcher 1.2.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616486.jpg" />
+  <img src="Z:/picture/008/save_picture_616486.jpg" />
 </div>
 
 
@@ -524,7 +634,7 @@ FxFactory Pro 8.0.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616237.jpg" />
+  <img src="Z:/picture/008/save_picture_616237.jpg" />
 </div>
 
 
@@ -551,7 +661,7 @@ Navicat Premium 12.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615953.jpg" />
+  <img src="Z:/picture/008/save_picture_615953.jpg" />
 </div>
 
 
@@ -579,7 +689,7 @@ ScreenFlow 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615729.jpg" />
+  <img src="Z:/picture/008/save_picture_615729.jpg" />
 </div>
 
 
@@ -593,113 +703,6 @@ ScreenFlow 5 - создаем свои скринкасты
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D9FB9FA12C0464B7668727AFF77E9DACD50945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037213   (615680) от 23.07.2016
-
-DEVONthink Pro Office 2.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2016Разработчик: Devontechnologies, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82F8ED89A26B12BD23FCBC7C2952963C78C213B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037110   (615671) от 23.07.2016
-
-iStat Menus 5.20 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615671.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 5 — лучшее приложение для контроля работы Mac
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
-
-Первым хочется пожелать и дальше наслаждаться работой, а вот вторым стоит обратить внимание на крупное (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июля 2016Разработчик: BjangoПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский?!, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174CE245D29CADE2AAA9E9603AE0639A1EF0373A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545495   (615010) от 19.04.2022
-
-GraphicConverter 11 v11.6.1 BETA [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615010.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97A53D2867331D032A613A0F55648541332D98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545393   (615009) от 19.04.2022
-
-Valentina Studio Pro 12.2.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 18.04.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5222B969C08E5BB9CEC20C74DDCF78D233279F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

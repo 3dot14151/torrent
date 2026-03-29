@@ -1,3 +1,84 @@
+###  Публикация: 1778315   (70897) от 08.02.2025
+
+Дино Буццати | Невероятное нашествие медведей на Сицилию (2023) [MP3, Данила Чванов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такую сказку можно и нужно читать даже взрослым. Она о том, как на Сицилии голодные медведи спустились с гор в долину и начали воевать с людьми. Или так: эта сказка о том, как, сталкиваясь с человеком, даже медведь не может устоять перед искушением властью, обманом и наживой.
+Эту книгу-аллегорию, одновременно политическую и поэтическую, написал больше 70 лет назад (   Читать дальше...   )Жанр: зарубежные детские книги, сказки, сказки-притчи, современные сказкиПеревод: Геннадий Киселёв, Мария Иванова-АннинскаяИздательство: СамокатПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6F45363D95A3AD791F2ED16C80B1504ED949B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778221   (70894) от 08.02.2025
+
+Гудрун Мебс | Бабушка! – кричит Фридер. 42 истории из жизни проказников (2023) [MP3, Сергей Друзьяк]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фридер и его бабушка — отличная команда! Для них вся жизнь — сплошное приключение. И для этого совсем необязательно куда-то ехать: приключения повсюду — в саду, на кухне и даже на остановке трамвая.
+
+42 истории из жизни пятилетнего неугомонного любопытного  мальчишки, непоседы и проказника теперь собраны в одной аудиокниге. И в каждой истории стоит бабушке заняться (   Читать дальше...   )Жанр: детская проза, детские приключенияПеревод: Вера КомароваИздательство: СамокатПродолжительность: 06:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FFF77D08410F096426D6FFFD648ABF29FE75A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778271   (70875) от 08.02.2025
+
+Мария Парр | Вафельное сердце (2020) [MP3, Михаил Шац]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год из жизни двух жителей бухты Щепки-Матильды, где всего-то три дома, — девятилетнего Трилле, который и рассказывает нам эту историю, и его соседки и одноклассницы Лены — вмещает немыслимо много событий и приключений: забавных, трогательных, опасных... Идиллическое житье-бытье на норвежском хуторе нарушается — но не разрушается — драматическими событиями. Но дружба, (   Читать дальше...   )Жанр: зарубежные детские книги, норвежская литература, современная классикаПеревод: Ольга ДроботИздательство: СамокатПродолжительность: 04:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3053928D6E1DC13EFC4C5FC0CB7AB428CBCE9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778287   (70874) от 08.02.2025
 
 Мария Парр | Вратарь и море (2021) [MP3, Михаил Шац]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70874.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70674.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70668.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70623.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70620.jpg" />
 </div>
 
 
@@ -145,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70563.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70545.jpg" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70525.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70524.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70520.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70403.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70394.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70391.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70372.jpg" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70188.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70147.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70050.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69913.jpg" />
 </div>
 
 
@@ -491,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69912.jpg" />
 </div>
 
 
@@ -518,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69911.jpg" />
 </div>
 
 
@@ -546,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69646.jpg" />
 </div>
 
 
@@ -574,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69645.jpg" />
 </div>
 
 
@@ -603,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69622.jpg" />
 </div>
 
 
@@ -616,90 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50587E5A0A35E2A883D2A8B71C474500C351CEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784198   (69621) от 09.03.2025
-
-Михаил Пляцковский | История третья. Разыскивается Кузнечик Кузя (2022) [MP3, Георгий Вицин, Олег Анофриев, Юрий Антонов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
-Продолжение приключений кузнечика Кузи.
-Сказку придумал и написал стихи для песен Михаил Пляцковский. Музыку сочинил, играл на (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD76920737D2A6686BADC8AD443EC8FCE189A722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784195   (69610) от 09.03.2025
-
-Михаил Пляцковский | История первая. Приключения кузнечика Кузи (2022) [MP3, Георгий Вицин, Евгений Весник, Юрий Антонов и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Главный персонаж – любопытный кузнечик, уже знакомый детям и взрослым, в том числе и по знаменитой песне. У Вас есть уникальная возможность еще раз вспомнить любимые моменты замечательной музыкальной сказки.
-Кузнечик Кузя на своем родном лугу встречает корову Мурёнку, которая с удовольствием поет песни. Правда, её голос мало кому нравится. (   Читать дальше...   )Жанр: Русская литература для детей, музыкальная сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44680528FBDC33A6049195E8243913F5140F925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784889   (69504) от 13.03.2025
-
-Ганс Христиан Андерсен | Девочка со спичками (2008) [MP3, Екатерина Хлыстова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детям.
-Сказки – «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» Ганса (Ханса) Христиана Андерсена (1805–1875) знают и любят дети и взрослые во всем мире. Великий сказочник сумел создать волшебный мир, полный любви, светлых чувств и гуманизма. Все его персонажи: растения и животные, люди и предметы – отличаются особым характером, (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Студия «АРДИС»Продолжительность: 03:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC85A6BF0D4B50A2D2343316238622EEB4996E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

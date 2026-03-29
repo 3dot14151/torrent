@@ -1,3 +1,84 @@
+###  Публикация: 1286701   (709086) от 04.03.2019
+
+Е. А. Тучков | Сектантство и его идеология (1955) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово «секта» происходит от латинского «secta» — учение, школа. Сектой принято называть религиозное течение или группу, отколовшуюся от господствующей церкви. В СССР, где нет никакой господствующей религии, где каждый гражданин может исповедовать любую религию или не исповедовать никакой, название «секты», присвоенное некоторым религиозным организациям, потеряло (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532963   (708876) от 22.02.2022
+
+Галина Калинина | За други своя. Повесть о святом благоверном князе Димитрии Донском и Куликовской битве (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Куликовская битва — одно из ключевых событий отечественной истории. Она имеет символическое значение для нашего народа. Как в дореволюционное, так и особенно в советское время недооценивалась или даже отвергалась важнейшая роль Русской Православной Церкви в подготовке этого сражения, во всех событиях, предшествовавших победе на Куликовом поле и последовавших за нею. (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062B7CA0337BFAAB4B80E2AF11D25EADB10FC758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220122   (708243) от 17.04.2018
+
+Ольга Соколова (сост.) | Помощник преподобного Сергия: Жизнеописание. Духовный алфавит архимандрита Кирилла (Павлова) [Духовные зёрна] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена светлой памяти архимандрита Кирилла (Павлова) — духоносного старца, молитвенника, «всероссийского духовника». В первой части содержится жизнеописание подвижника, во второй в алфавитном порядке расположены фрагменты его наставлений и проповедей.
+
+«Если не слышишь чужие стоны, не помогут ни посты, ни поклоны...»
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA5DB11AB797DAB4885B72F90D4C2A1721C0E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533182   (707199) от 23.02.2022
 
 Игумен Евмений (Перистый) | О побеждающем Христианстве (2006) [PDF, DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707199.jpg" />
+  <img src="Z:/picture/008/save_picture_707199.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706179.jpg" />
+  <img src="Z:/picture/008/save_picture_706179.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706150.jpg" />
+  <img src="Z:/picture/008/save_picture_706150.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706147.jpg" />
+  <img src="Z:/picture/008/save_picture_706147.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705976.jpg" />
+  <img src="Z:/picture/008/save_picture_705976.jpg" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705972.jpg" />
+  <img src="Z:/picture/008/save_picture_705972.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705400.jpg" />
+  <img src="Z:/picture/008/save_picture_705400.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705398.jpg" />
+  <img src="Z:/picture/008/save_picture_705398.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705098.jpg" />
+  <img src="Z:/picture/008/save_picture_705098.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704501.jpg" />
+  <img src="Z:/picture/008/save_picture_704501.jpg" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704498.jpg" />
+  <img src="Z:/picture/008/save_picture_704498.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704484.jpg" />
+  <img src="Z:/picture/008/save_picture_704484.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704474.jpg" />
+  <img src="Z:/picture/008/save_picture_704474.jpg" />
 </div>
 
 
@@ -354,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704079.jpg" />
+  <img src="Z:/picture/008/save_picture_704079.jpg" />
 </div>
 
 
@@ -380,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703962.jpg" />
+  <img src="Z:/picture/008/save_picture_703962.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703329.jpg" />
+  <img src="Z:/picture/008/save_picture_703329.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703216.jpg" />
+  <img src="Z:/picture/008/save_picture_703216.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703186.jpg" />
+  <img src="Z:/picture/008/save_picture_703186.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703182.jpg" />
+  <img src="Z:/picture/008/save_picture_703182.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702544.jpg" />
+  <img src="Z:/picture/008/save_picture_702544.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700681.jpg" />
+  <img src="Z:/picture/008/save_picture_700681.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700203.jpg" />
+  <img src="Z:/picture/008/save_picture_700203.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699766.jpg" />
+  <img src="Z:/picture/008/save_picture_699766.jpg" />
 </div>
 
 
@@ -603,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A45D6D4EB6CFEECB8401987EA804C500D65877A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132785   (698877) от 10.05.2017
-
-А. Н. Кочетов | Искусство и религия (1984) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698877.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре сопоставляются две формы общественного сознания — искусство и религия. Автор прослеживает, как в истории материалистической философии и борьбе с богословскими теориями о «божественной» сущности искусства раскрывалось истинное понимание глубины противоречия между этими двумя общественными явлениями. Искусство и религия показаны как антагонисты в сферах познавательной, (   Читать дальше...   )Жанр: История, религиоведение, искусство, философия, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6339BA43EF1757E4493CF5D74BCFACE9A55CC430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534158   (697523) от 28.02.2022
-
-Игумен Амвросий (Диденко) | Храм-часовня святого Александра Невского. История и современность (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милостивым Промыслом Божиим и по благословению митрополита Екатеринодарского и Кубанского Исидора в самом центре столицы Кубани на Соборной площади воздвигнут небольшой но размерам, но великий по значимости церковный комплекс с двумя приделами. Первый посвящён собирателю, защитнику и покровителю Святой Руси — святому благоверному великому князю Александру Невскому (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A831847764FA3A30988C3A6DC58F78C44FBA0DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221257   (696812) от 23.04.2018
-
-В.И. Борисов (сост.) | Входите тесными вратами. Из творений святых отцов и подвижников благочестия (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богомудрые отцы Церкви дают толкования на Священное Писание и наставления, побуждающие одних из нас к началу, других же к укреплению домостроительства нашего спасения. Избранные места из творений святителей Василия Великого, Григория Нисского, Луки (Войно-Ясенецкого), преподобного Максима Исповедника, а также трудов протоиерея Евгения Попова и схимонаха Паисия Святогорца.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339A3022770E73D177EC364803A5131B4995B862
 ```
 
 https://mybot314.ru/tekegram_catalog/

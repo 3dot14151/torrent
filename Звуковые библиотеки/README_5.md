@@ -1,3 +1,29 @@
+###  Публикация: 1377814   (849723) от 23.04.2020
+
+Звуковые библиотеки - Boom Library - Neon [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Neon - был создан для обеспечения еще не слыханного креативного звукового дизайна и качества звука. Каждый звук был изготовлен вручную и должен был пройти очень критичные уши звукорежиссера. Этот процесс занял у нас больше времени, чем обычно, но результат говорит сам за себя. Пакет содержит предварительно разработанный исходный материал, который полезен для звуковых (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B62EB10F42DFAC9329B93D48DC746810E8B6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378091   (847786) от 24.04.2020
 
 Звуковые библиотеки - Studio Planet – Cinematic Sound Pack Collection [WAV]
@@ -6,7 +32,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847786.jpg" />
+  <img src="Z:/picture/008/save_picture_847786.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846450.jpg" />
+  <img src="Z:/picture/008/save_picture_846450.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840751.jpg" />
+  <img src="Z:/picture/008/save_picture_840751.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Blue Fox Music [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834960.jpg" />
+  <img src="Z:/picture/008/save_picture_834960.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834651.jpg" />
+  <img src="Z:/picture/008/save_picture_834651.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795428.jpg" />
+  <img src="Z:/picture/008/save_picture_795428.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Boom Library - DEBRIS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793946.jpg" />
+  <img src="Z:/picture/008/save_picture_793946.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.05 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792383.jpg" />
+  <img src="Z:/picture/008/save_picture_792383.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ NNM-Club Sound Cleaner Collection from Nataly11
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790999.jpg" />
+  <img src="Z:/picture/008/save_picture_790999.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ NNM-Club Sound Cleaner Collection from anopymous
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790993.jpg" />
+  <img src="Z:/picture/008/save_picture_790993.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ NNM-Club Sound Cleaner Collection from nazarvlad
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790965.jpg" />
+  <img src="Z:/picture/008/save_picture_790965.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790760.jpg" />
+  <img src="Z:/picture/008/save_picture_790760.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790752.jpg" />
+  <img src="Z:/picture/008/save_picture_790752.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790743.jpg" />
+  <img src="Z:/picture/008/save_picture_790743.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790641.jpg" />
+  <img src="Z:/picture/008/save_picture_790641.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ NNM-Club Sound Cleaner Collection from tuxac
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790437.jpg" />
+  <img src="Z:/picture/008/save_picture_790437.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ NNM-Club Sound Cleaner Collection from andrey25991
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790436.jpg" />
+  <img src="Z:/picture/008/save_picture_790436.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ NNM-Club Sound Cleaner Collection from Stranger-13
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790433.jpg" />
+  <img src="Z:/picture/008/save_picture_790433.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ NNM-Club Sound Cleaner Collection from sensei26
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790376.jpg" />
+  <img src="Z:/picture/008/save_picture_790376.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ NNM-Club Sound Cleaner Collection from vip120
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790369.jpg" />
+  <img src="Z:/picture/008/save_picture_790369.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ NNM-Club Sound Cleaner Collection from werter21
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790366.jpg" />
+  <img src="Z:/picture/008/save_picture_790366.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ NNM-Club Sound Cleaner Collection from STouR
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790324.jpg" />
+  <img src="Z:/picture/008/save_picture_790324.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ NNM-Club Sound Cleaner Collection from andgelo12
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789660.jpg" />
+  <img src="Z:/picture/008/save_picture_789660.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787058.jpg" />
+  <img src="Z:/picture/008/save_picture_787058.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786695.jpg" />
+  <img src="Z:/picture/008/save_picture_786695.jpg" />
 </div>
 
 
@@ -646,34 +672,6 @@ ACOUSTIC ISOLATION представляет 200 готовых к использ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE85AFA812EE8D81F394E9A5CEB6AC5F0D5DC4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389375   (784489) от 10.06.2020
-
-Звуковые библиотеки - Cymatics - FX Toolkit Bundle [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784489.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этим предложением каждому производителю медиа-контента будет предоставлен доступ к высококачественным ресурсам.
-Это означает, что независимо от того, где вы находитесь, вы можете получить 900 удивительных Risers, Impacts, Downlifters, Build Upp Drums, Ambience.
-Так что, если вы пытались повысить свои творческие навыки, то это идеальное предложение, чтобы воспользоваться.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB640E7412D308D88B9FDD410C2E1973F209EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
